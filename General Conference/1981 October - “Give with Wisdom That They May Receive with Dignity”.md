@@ -1,6 +1,6 @@
 # “Give with Wisdom That They May Receive with Dignity”
 
-By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -28,7 +28,7 @@ The other day following a Sunday School class a teacher came up and wanted me to
 
 Robert Louis Stevenson used these words to remind us of this fact: “To be what we are, and to become what we are capable of becoming, is the only end of life.” (Bergen Evans, *Dictionary of Quotations,* New York: Crown Publishers, p. 393.) Our Savior said it this way, “As my Father hath sent me, even so I send you.” ([[John 20.21|John 20:21]].) Each one has something special to live for. Some can find their special niche by themselves, but many need added help. All of us are a part of this inspired welfare activity as we assist each other in fulfilling our purposes here on earth.
 
-Satan will do his best to deter us and let discouragement impede our progress. Through trying times we would do well to remember and repeat the famous words of Sir Winston Churchill, England’s Lion of Courage, during some of his country’s darkest days. With character and strength peculiar to himself, he said, “Never give in, never give in, *never, never, never, never.*” (Robert Rhodes James, ed., *Winston S. Churchill: His Complete Speeches, 1897–1963,* 8 vols., New York: Chelsea House Publishers, 1974, 6:6,499.) This mighty statesman in his own way was echoing the words of another mighty leader, “If ye continue in my word, then are ye my disciples indeed;
+Satan will do his best to deter us and let discouragement impede our progress. Through trying times we would do well to remember and repeat the famous words of Sir Winston Churchill, England’s Lion of Courage, during some of his country’s darkest days. With character and strength peculiar to himself, he said, “Never give in, never give in, *never, never, never, never.*” (Robert Rhodes James, ed., *Winston S. Churchill: His Complete Speeches, 1897–1963,* 8 vols., New York: Chelsea House Publishers, 1974, 6:6,499.) This mighty statesman in his own way was echoing the words of another mighty leader, “If ye continue in my word, then are ye my disciples indeed;
 
 “And ye shall know the truth, and the truth shall make you free.” ([[John 8.31|John 8:31–32]][[John 8.32|]].)
 
@@ -48,7 +48,7 @@ It is not enough to make elaborate plans, set up programs, and give serious thou
 
 May we remind each other that the strongest helping hand is most often the one closest to ourselves—our very own hands. Can you consider your own options for self-help as problems arise? Or do you toss your arms in the air and say, “Oh, no!” or “Why me?” Can you quietly sit down, review the facts, and list all the possible courses of action? Can you identify causes and determine remedies? Quiet contemplation can solve problems more quickly than frantic force.
 
-President Marion G. Romney has said so often, “No self-respecting Church member will voluntarily shift the responsibility for his own maintenance to another. Furthermore, a man not only has the responsibility to care for himself; he also has the responsibility to care for his family.” (*Ensign,* May 1981, p. 88.) Paul, speaking to this point, said, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
+President Marion G. Romney has said so often, “No self-respecting Church member will voluntarily shift the responsibility for his own maintenance to another. Furthermore, a man not only has the responsibility to care for himself; he also has the responsibility to care for his family.” (*Ensign,* May 1981, p. 88.) Paul, speaking to this point, said, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
 
 The home, which is the heart of welfare services, and its members should always become involved in all we do so self-respect may be maintained. We must constantly bear in mind that if the total well-being of the individual is to be realized, all members of the family must participate.
 
@@ -107,6 +107,4 @@ May God help us to give of ourselves with wisdom that they may receive with dign
 
 
 
-
-
-#Charity #Self-Esteem
+#Charity #Self-esteem

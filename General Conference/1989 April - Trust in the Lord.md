@@ -34,7 +34,7 @@ As they arose, friends arrived with the injured man. Even in the subdued candlel
 
 The missionaries were able to save a life because they trusted the Lord. They knew how to pray with faith for help with a problem they could not resolve themselves. Because they were obedient to the Lord, the Lord trusted them and answered their prayer. They had learned how to recognize the answer when it came as a quiet prompting of the Spirit. You have that same help available to you if you live for it.
 
-The Savior said, “And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you.” ([[3 Nephi 18.20|3 Ne. 18:20]].)
+The Savior said, “And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you.” ([[3 Nephi 18.20|3 Ne. 18:20]].)
 
 Two young missionaries were walking down a dusty road. In their hands they carried the scriptures, and in each heart burned a desire to share truth. They saw on the ridge of a hill a group of horsemen laughing and pointing toward them. They sensed they were in severe danger. Each prayed for help as a huge man on a powerful horse galloped down the hill toward them. His menacing whip slashed the air and cracked threateningly. He thundered closer. The sneer on his face communicated his cruel intent to harm them. Suddenly, he reined in his horse, paused, whirled, and disappeared down the valley.
 
@@ -91,8 +91,6 @@ We love you and trust you. The Lord needs you for His purposes. Live His command
 Live to have trust in the Lord. Live to be trusted and helped by Him.
 
 I testify that the Lord lives. He loves you and will help you. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Face the Future with Faith
 
-By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -54,7 +54,7 @@ The greatest of all the blessings of the priesthood are bestowed in holy temples
 
 Your rewards come not only hereafter. Many blessings will be yours in this life, among your children and grandchildren. You faithful Saints do not have to fight life’s battles alone. Think of that! The Lord declared, “I will contend with him that contendeth with thee, and I will save thy children.”[^17] Later came this promise to His faithful people: “I, the Lord, would fight their battles, and their children’s battles, and their children’s children’s, … to the third and fourth generation.”[^18]
 
-Our beloved President Thomas S. Monson has given us his prophetic witness. He said: “I testify to you that our promised blessings are beyond measure. Though the storm clouds may gather, though the rains may pour down upon us, our knowledge of the gospel and our love of our Heavenly Father and of our Savior will comfort and sustain us and bring joy to our hearts as we walk uprightly and keep the commandments.”
+Our beloved President Thomas S. Monson has given us his prophetic witness. He said: “I testify to you that our promised blessings are beyond measure. Though the storm clouds may gather, though the rains may pour down upon us, our knowledge of the gospel and our love of our Heavenly Father and of our Savior will comfort and sustain us and bring joy to our hearts as we walk uprightly and keep the commandments.”
 
 President Monson continued: “My beloved brothers and sisters, fear not. Be of good cheer. The future is as bright as your faith.”[^19]
 
@@ -63,13 +63,13 @@ To President Monson’s powerful declaration I add my own. I testify that God is
 
 
 
-[^1]: See [[2 Nephi 2.27|2 Nephi 2:27]].
+[^1]: See [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^2]: Peter taught this concept when he expressed the hope that “ye might be partakers of the divine nature, having escaped the corruption that is in the world” ([[2 Peter 1.4|2 Peter 1:4]]).
+[^2]: Peter taught this concept when he expressed the hope that “ye might be partakers of the divine nature, having escaped the corruption that is in the world” ([[2 Peter 1.4|2 Peter 1:4]]).
 
 [^3]: See [[Abraham 3.25|Abraham 3:25]].
 
-[^4]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+[^4]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^5]: See [[D&C 89.19|Doctrine and Covenants 89:19]]; see also [[Isaiah 45.3|Isaiah 45:3]].
 
@@ -79,13 +79,13 @@ To President Monson’s powerful declaration I add my own. I testify that God is
 
 [^8]: [[D&C 98.2|Doctrine and Covenants 98:2–3]][[D&C 98.3|]].
 
-[^9]: Tithing is mentioned in eight books of the Old Testament: Genesis, Leviticus, Numbers, Deuteronomy, 2 Chronicles, Nehemiah, Amos, and Malachi.
+[^9]: Tithing is mentioned in eight books of the Old Testament: Genesis, Leviticus, Numbers, Deuteronomy, 2 Chronicles, Nehemiah, Amos, and Malachi.
 
 [^10]: [[Malachi 3.10|Malachi 3:10]].
 
 [^11]: [[D&C 85.3|Doctrine and Covenants 85:3]].
 
-[^12]: [[2 Timothy 3.12|2 Timothy 3:12]].
+[^12]: [[2 Timothy 3.12|2 Timothy 3:12]].
 
 [^13]: See [[D&C 86.8|Doctrine and Covenants 86:8–11]][[D&C 86.9|]][[D&C 86.10|]][[D&C 86.11|]].
 
@@ -99,5 +99,6 @@ To President Monson’s powerful declaration I add my own. I testify that God is
 
 [^18]: [[D&C 98.37|Doctrine and Covenants 98:37]].
 
+[^19]: Thomas S. Monson, in Conference Report, Apr. 2009, [[2009 April - Be of Good Cheer.md|90]]; or *Ensign,* May 2009, 92.
 
 #Adversity #Faith #Obedience #Tithing

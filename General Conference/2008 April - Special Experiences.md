@@ -8,7 +8,7 @@ By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/special-experiences?lang=eng)
 
-I would like to add my testimony and witness on this special day that President Thomas S. Monson is the Lord’s prophet on the earth. I am grateful to have this privilege to speak in general conference.
+I would like to add my testimony and witness on this special day that President Thomas S. Monson is the Lord’s prophet on the earth. I am grateful to have this privilege to speak in general conference.
 
 I am grateful, as you are, for the experience we have in this historic conference as we sustain, in an orderly and patterned way, our new prophet, First Presidency, and other leaders of the Church.
 
@@ -53,8 +53,6 @@ Brothers and sisters, the weak and the simple members of the Church, like you an
 President Monson said: “\[The Lord\] commands. And to those who obey Him, whether they be wise or simple, He will reveal Himself in the toils, the conflicts, the sufferings which they shall pass through in His fellowship, and … they shall learn in their *own experience* Who He is” (in “The Way of the Master,” *Liahona* and *Ensign,* Jan. 2003, 7; quoting Albert Schweitzer, *The Quest of the Historical Jesus* \[1948\], 401; emphasis added).
 
 In these days of worldly intrusions into our lives, when trials and difficulties may seem to engulf us, let us remember our own special spiritual experiences. These building blocks of faith will bring us conviction and reassurance of a caring, loving Father in Heaven, of our Lord and Savior, Jesus Christ, and of Their restored true and living Church. I so testify in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # “The Word Is Commitment”
 
-By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 Recently I had the opportunity of congratulating a special young lady upon her graduation from college. Knowing she had achieved this lofty goal under extreme difficulties, I said, “Would you mind telling me in one word how you were able to achieve this great accomplishment?” While she paused momentarily, words like *courage, determination,* and *faith* flashed through my mind as I anticipated her answer. Then without hesitation she said, “Elder Ashton, the word is *commitment.*”
 
-Most of us who have ever heard of the great American leader Abraham Lincoln will recall what he said of his mother: “All that I am, all that I hope to be, I owe to my Angel mother.” (In *Abraham Lincoln’s Philosophy of Common Sense,* ed. Edward J. Kempf, 3 parts, New York: The New York Academy of Sciences, 1965, 1:60.) But how many of us know what his mother’s last words to him were? They were “Be something, Abe.”
+Most of us who have ever heard of the great American leader Abraham Lincoln will recall what he said of his mother: “All that I am, all that I hope to be, I owe to my Angel mother.” (In *Abraham Lincoln’s Philosophy of Common Sense,* ed. Edward J. Kempf, 3 parts, New York: The New York Academy of Sciences, 1965, 1:60.) But how many of us know what his mother’s last words to him were? They were “Be something, Abe.”
 
 Not only is this wise counsel, but it also expresses the yearnings of most fathers’ and mothers’ hearts to have their children be something. Simple terms, but, oh, how powerful, “Be something.” I am so pleased she didn’t say, “Be someone.” She said, “Be something, Abe.” There is a significant difference. In the dictionary *someone* is defined as “conceived or thought of, but not definitely known,” while *something* is identified as “a person or thing of importance.”
 
@@ -28,7 +28,7 @@ True happiness is not made in getting something. True happiness is becoming some
 
 As we search for good causes, we must consider our own needs, but also we must live in compliance with gospel teachings.
 
-President Spencer W. Kimball at the Regional Representatives Seminar of April 3, 1975, said, “I believe in goals, but I believe that the individual should set his own. Goals should always be made to a point that will make us reach and strain. Success should not necessarily be gauged by always reaching the goal set, but by progress and attainment.”
+President Spencer W. Kimball at the Regional Representatives Seminar of April 3, 1975, said, “I believe in goals, but I believe that the individual should set his own. Goals should always be made to a point that will make us reach and strain. Success should not necessarily be gauged by always reaching the goal set, but by progress and attainment.”
 
 In setting our own goals we need to examine our own needs and abilities. The direction in which we are moving is more important than where we are at the moment. Goal setting should cause us to stretch as we make our way.
 
@@ -54,7 +54,7 @@ When one is wholly committed, added strengths and talents become evident. Assist
 
 Goethe wrote, “What you can do, or dream you can, begin it. Boldness has genius, power, and magic in it.” (*Faust: Vorspiel auf dem Theater,* 1:227, as translated by John Anster, *Faustus, A Dramatic Mystery: Prelude at the Theatre,* 1:303, 1835.) We would add that commitment has genius, power, and magic in it.
 
-The scriptures say it this way: “For I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
+The scriptures say it this way: “For I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
 
 A truly committed person does not falter in the face of adversity. Until one is committed, there is a chance to hesitate, to go off in another direction, or to be ineffective. Members within our ranks who are committed to living the gospel of Jesus Christ will not be affected by the rationale of hecklers.
 
@@ -72,7 +72,7 @@ We all have eyes, ears, and minds to lift, lead, and love. Total commitment to G
 
 With Paul’s conversion came commitment. Joseph Smith placed commitment ahead of life itself. From the time of his first vision until his martyrdom, he was a victim of bitter persecution, reviling, and ridicule, but never did he falter in spite of extreme adversity. As he recorded his story, he wrote:
 
-“However, it was nevertheless a fact that I had beheld a vision. I have thought since, that I felt much like Paul, when he made his defense before King Agrippa, and related … when he saw a light, and heard a voice; but still there were but few who believed him; some said he was dishonest, others said he was mad; … But all this did not destroy the reality of his vision. He had seen a vision, he knew he had. …
+“However, it was nevertheless a fact that I had beheld a vision. I have thought since, that I felt much like Paul, when he made his defense before King Agrippa, and related … when he saw a light, and heard a voice; but still there were but few who believed him; some said he was dishonest, others said he was mad; … But all this did not destroy the reality of his vision. He had seen a vision, he knew he had. …
 
 “So it was with me. I had actually seen a light, and in the midst of that light I saw two Personages, and they did in reality speak to me; and though I was hated and persecuted for saying that I had seen a vision, yet it was true; … For I had seen a vision; I knew it, and I knew that God knew it, and I could not deny it, neither dared I do it; at least I knew that by so doing I would offend God, and come under condemnation.” ([[Joseph Smith History 1.24|JS—H 1:24–25]][[Joseph Smith History 1.25|]].)
 
@@ -91,8 +91,6 @@ In a simple statement, the difference between those committed and those who are 
 To reap the full benefits of life, we must fill our days with commitment to worthy goals and principles. There is no other way. As these commitments lead us to action, we will find added growth and dimension which will guide us toward a productive life here on earth and open the door for eternal life with our Father in Heaven.
 
 The word is *commitment.* To be something, we must be committed. God is our Father. Jesus is our Savior, and this is His Church. May we commit ourselves to living Christlike lives regardless of the environment or opposition I pray, in the worthy name of Jesus Christ, our Redeemer, amen.
-
-
 
 
 

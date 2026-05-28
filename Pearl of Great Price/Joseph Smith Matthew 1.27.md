@@ -5,5 +5,5 @@
 [Joseph Smith Matthew 1:27](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.27?lang=eng#p27)
 
 
-[^a]: [[Deuteronomy 28.26|Deut. 28:26.]]
-[^b]: [[Psalms 74.1|Ps. 74:1 (1-2)]]; [[Matthew 24.28|Matt. 24:28]]; [[1 Nephi 19.16|1 Ne. 19:16 (15-16)]]; [[D&C 35.25|D&C 35:25.]]
+[^a]: [[Deuteronomy 28.26|Deut. 28:26]].  
+[^b]: [[Psalms 74.1|Ps. 74:1 (1–2)]][[Psalms 74.2|]]; [[Matthew 24.28|Matt. 24:28]]; [[1 Nephi 19.15|1 Ne. 19:16 (15–16)]][[1 Nephi 19.16|]]; [[D&C 35.25|D&C 35:25]].  

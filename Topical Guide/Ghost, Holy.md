@@ -1,4 +1,3 @@
 # Ghost, Holy
 
-
-*See* [[Holy Ghost.md|Holy Ghost]]
+*See also* [[Holy Ghost.md|Holy Ghost]]

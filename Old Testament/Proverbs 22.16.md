@@ -5,5 +5,5 @@
 [Proverbs 22:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.16?lang=eng#p16)
 
 
-[^a]: [[Oppression, Oppress|TG Oppression]].
-[^b]: [[Treasure|TG Treasure]].
+[^a]: [[Oppression, Oppress|TG Oppression]].  
+[^b]: [[Treasure|TG Treasure]].  

@@ -1,6 +1,6 @@
 # Believe, Love, Do
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/believe-love-do?lang=eng)
 
-My dear brothers and sisters, it’s such a wonderful occasion to be with you in this marvelous general conference session today: to listen to inspired messages; to listen to this marvelous, amazing choir of missionaries representing the many thousands of missionaries all around the world—our daughters, our sons—and especially to be united in our faith today, again sustaining our dear President and prophet, President Russell M. Nelson, the First Presidency, and the General Officers of the Church. What a joyful day to be with you today.
+My dear brothers and sisters, it’s such a wonderful occasion to be with you in this marvelous general conference session today: to listen to inspired messages; to listen to this marvelous, amazing choir of missionaries representing the many thousands of missionaries all around the world—our daughters, our sons—and especially to be united in our faith today, again sustaining our dear President and prophet, President Russell M. Nelson, the First Presidency, and the General Officers of the Church. What a joyful day to be with you today.
 
 The ancient King Solomon was one of the most outwardly successful human beings in history.[^1] He seemed to have everything—money, power, adoration, honor. But after decades of self-indulgence and luxury, how did King Solomon sum up his life?
 
@@ -161,7 +161,7 @@ I testify and leave you my blessing that as we *believe* in God, as we *love* Hi
 
 
 
-[^1]: An msn.com poll listed Solomon as the fifth richest person to ever live. “According to the Bible, King Solomon ruled from 970 BC to 931 BC, and during this time he is said to have received 25 tons of gold for each of the 39 years of his reign, which would be worth billions of dollars in 2016. Along with impossible riches amassed from taxation and trade, the biblical ruler’s personal fortune could have surpassed $2 trillion in today’s money” (“The 20 Richest People of All Time,” Apr. 25, 2017, msn.com).
+[^1]: An msn.com poll listed Solomon as the fifth richest person to ever live. “According to the Bible, King Solomon ruled from 970 BC to 931 BC, and during this time he is said to have received 25 tons of gold for each of the 39 years of his reign, which would be worth billions of dollars in 2016. Along with impossible riches amassed from taxation and trade, the biblical ruler’s personal fortune could have surpassed $2 trillion in today’s money” (“The 20 Richest People of All Time,” Apr. 25, 2017, msn.com).
 
 [^2]: See [[Ecclesiastes 1.1|Ecclesiastes 1:1–2]][[Ecclesiastes 1.2|]].
 
@@ -173,23 +173,23 @@ I testify and leave you my blessing that as we *believe* in God, as we *love* Hi
 
 [^6]: [[Matthew 12.15|Matthew 12:15]]; see also [[Matthew 15.30|Matthew 15:30]].
 
-[^7]: The word *gospel* has its roots in a Greek word that literally means “good news” (see Bible Dictionary, “[Gospels](https://churchofjesuschrist.org/study/scriptures/bd/gospels?lang=eng)”).
+[^7]: The word *gospel* has its roots in a Greek word that literally means “good news” (see Bible Dictionary, “[[BD Gospels|Gospels]]”).
 
 [^8]: [[Matthew 16.25|Matthew 16:25]].
 
 [^9]: See [[Ezekiel 36.26|Ezekiel 36:26]]; [[Jeremiah 24.7|Jeremiah 24:7]].
 
-[^10]: [[1 Nephi 8.12|1 Nephi 8:12]].
+[^10]: [[1 Nephi 8.12|1 Nephi 8:12]].
 
 [^11]: [[Hebrews 11.6|Hebrews 11:6]].
 
-[^12]: See [[2 Nephi 9.28|2 Nephi 9:28]].
+[^12]: See [[2 Nephi 9.28|2 Nephi 9:28]].
 
 [^13]: See [[John 15.16|John 15:16]].
 
 [^14]: See [[James 4.8|James 4:8]].
 
-[^15]: See [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
+[^15]: See [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
 
 [^16]: [[Alma 37.6|Alma 37:6]].
 
@@ -201,10 +201,8 @@ I testify and leave you my blessing that as we *believe* in God, as we *love* Hi
 
 [^20]: [[John 1.39|John 1:39]].
 
-[^21]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^21]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
 [^22]: [[John 14.15|John 14:15]].
-
-
 
 #Discipleship #Faith #Healing #Hope #Love #Ministering

@@ -1,6 +1,6 @@
 # A Second Witness for Christ
 
-By President Loren C. Dunn - *Of the First Council of the Seventy*
+By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -20,7 +20,7 @@ Following these experiences in the land of the Bible, another people in a far-of
 
 “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” ([[3 Nephi 11.8|3 Ne. 11:8–11]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]].)
+“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” ([[3 Nephi 11.8|3 Ne. 11:8–11]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]].)
 
 A second evidence then is recorded to verify what was mentioned in the Holy Bible concerning the resurrection of the Savior. This second witness for Christ can be found in the volume of scripture known as the Book of Mormon. It is a compilation of the writings of the prophets of God who were part of the great civilization which lived anciently in the Americas. These prophets taught the gospel of Jesus Christ as did their counterparts in the Holy Land, and they spoke of the birth and life of the Savior and also of his death and resurrection—although these events would transpire in another part of the world.
 
@@ -36,21 +36,21 @@ The reason for the Book of Mormon coming forth in this generation of time can be
 
 This book, then, bears record of the divine Sonship of Jesus Christ and recognizes him as Redeemer of the world. This passage from 3rd Nephi in the Book of Mormon is a good example:
 
-“Behold, I am Jesus Christ the Son of God. I created the heavens and the earth, and all things that in them are. …
+“Behold, I am Jesus Christ the Son of God. I created the heavens and the earth, and all things that in them are. …
 
 “Behold, I have come unto the world to bring redemption unto the world, to save the world from sin.
 
-“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. Behold, for such I have laid down my life, and have taken it up again; therefore repent, and come unto me ye ends of the earth, and be saved.” ([[3 Nephi 9.15|3 Ne. 9:15, 21–22]][[3 Nephi 9.21|]][[3 Nephi 9.22|]].)
+“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. Behold, for such I have laid down my life, and have taken it up again; therefore repent, and come unto me ye ends of the earth, and be saved.” ([[3 Nephi 9.15|3 Ne. 9:15, 21–22]][[3 Nephi 9.21|]][[3 Nephi 9.22|]].)
 
 A second message of the Book of Mormon is to teach mankind the plan of salvation in its pure and basic form so that we might know what the Lord expects of us in order to be saved. Again, an example of this can be found from the words of the Savior in 3rd Nephi, which are as follows:
 
 “And this is my doctrine, and it is the doctrine which the Father hath given unto me; … and I bear record that the Father commandeth all men, everywhere, to repent and believe in me.
 
-“And whoso believeth in me, and is baptized, the same shall be saved; and they are they who shall inherit the kingdom of God.” ([[3 Nephi 11.32|3 Ne. 11:32–33]][[3 Nephi 11.33|]].)
+“And whoso believeth in me, and is baptized, the same shall be saved; and they are they who shall inherit the kingdom of God.” ([[3 Nephi 11.32|3 Ne. 11:32–33]][[3 Nephi 11.33|]].)
 
 At the same time the Savior spoke these words, he also commissioned certain disciples with specific authority to perform the baptism just spoken of. He also explained what he meant by repentance and what steps must be taken in order to gain this repentance.
 
-And finally, if the Book of Mormon is true, then it must attest to the fact that Joseph Smith, the translator of this record, was a prophet of God and was divinely inspired to bring forth this work. In the revelation concerning the coming forth of the Book of Mormon the Lord referred to Joseph Smith in the following way: “… he has translated the book, even that part which I have commanded him, and as your Lord and your God liveth it is true.” ([[D&C 17.6|D&C 17:6]].)
+And finally, if the Book of Mormon is true, then it must attest to the fact that Joseph Smith, the translator of this record, was a prophet of God and was divinely inspired to bring forth this work. In the revelation concerning the coming forth of the Book of Mormon the Lord referred to Joseph Smith in the following way: “… he has translated the book, even that part which I have commanded him, and as your Lord and your God liveth it is true.” ([[D&C 17.6|D&C 17:6]].)
 
 Joseph Smith once made the statement that the Book of Mormon was the keystone of this religion, that a person could get closer to God by following its precepts than by any other book. Joseph Smith has long since passed away. But The Church of Jesus Christ of Latter-day Saints and the Book of Mormon live on as a sign and witness to all nations that Jesus Christ is the Son of God and that there is a way to return to the presence of God and that the basic truths of the Holy Bible are correct.
 
@@ -75,6 +75,4 @@ To this I bear my humble witness that I know God lives and that Jesus the Christ
 
 
 
-
-
-#Book_Of_Mormon #Restoration #Resurrection
+#BookOfMormon #Restoration #Resurrection

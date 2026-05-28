@@ -20,7 +20,7 @@ Lehi’s vision of the tree of life is appropriate for our day. In that vision, 
 
 “And I … beheld … a great and spacious building; …
 
-“And it was filled with people, both old and young, … and their manner of dress was exceedingly fine; and they were in the attitude of mocking and pointing their fingers towards those who … were partaking of the fruit” ([[1 Nephi 8.26|1 Ne. 8:26–27]][[1 Nephi 8.27|]]).
+“And it was filled with people, both old and young, … and their manner of dress was exceedingly fine; and they were in the attitude of mocking and pointing their fingers towards those who … were partaking of the fruit” ([[1 Nephi 8.26|1 Ne. 8:26–27]][[1 Nephi 8.27|]]).
 
 Even though you have a testimony and want to do what is right, it is difficult not to be drawn to the great and spacious building. From all appearances, the people in the building seem to be having a great time. The music and laughter are deafening. You would say to me what my children have said, “They’re not really happy, huh, Dad?” as you watch them party.
 
@@ -49,8 +49,6 @@ We love you, the youth of the Church, and we know you will collectively succeed.
 To those of you who are struggling and losing ground, you who have been lured into that building through one of its many doors and now find no doors going out, you who feel trapped and defeated, we assure you there is hope, and all is not lost. Through his atonement, our Lord and Savior Jesus Christ has provided a way for you to escape that awful place. He knows you intimately. He knows your name, and he knows your pain. If you will approach your Father in Heaven with a broken heart and contrite spirit, you will find yourself miraculously lifted out of that great and spacious building and into the loving and comforting arms of the Savior of mankind.
 
 At your earthly home, you will find your father’s arms have always been open for you and that during your absence your mother never stopped setting your place at the table in front of your empty chair. You will see clearly the difference between telestial happiness and celestial happiness, and you will experience and savor celestial joy through this life and throughout all eternity. I so testify and promise, in the name of Jesus Christ, amen.
-
-
 
 
 

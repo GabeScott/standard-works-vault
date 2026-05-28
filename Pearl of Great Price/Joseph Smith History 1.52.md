@@ -5,5 +5,5 @@
 [Joseph Smith History 1:52](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.52?lang=eng#p52)
 
 
-[^a]: [[Mormon 6.6|Morm. 6:6]]; [[Ether 4.5|Ether 4:5 (4-7)]]; [[D&C 17.1|D&C 17:1.]]
-[^b]: TG [[Urim and Thummim]].
+[^a]: [[Mormon 6.6|Morm. 6:6]]; [[Ether 4.4|Ether 4:5 (4–7)]][[Ether 4.5|]][[Ether 4.6|]][[Ether 4.7|]]; [[D&C 17.1|D&C 17:1]].  
+[^b]: [[Urim and Thummim|TG Urim and Thummim]].  

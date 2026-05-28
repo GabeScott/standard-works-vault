@@ -1,6 +1,6 @@
 # Welfare Principles in Relief Society
 
-By Shirley W. Thomas - *Second Counselor in the Relief Society General Presidency*
+By Shirley W. Thomas - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -37,8 +37,6 @@ The desire to support the priesthood in this great latter-day work, first seen i
 “As givers gain control of their desires and properly see other needs in light of their own wants, then the powers of the gospel are released in their lives. They learn that by living the great law of consecration they insure not only temporal salvation but also spiritual sanctification” (*Ensign,* Nov. 1977, p. 77).
 
 That we may each fulfill our stewardship and earn this great reward I pray in the name of Jesus Christ, amen.
-
-
 
 
 

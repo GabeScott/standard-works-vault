@@ -1,6 +1,6 @@
 # A Voice of Gladness!
 
-By Elder Kevin R. Duncan - *Of the Seventy*
+By Elder Kevin R. Duncan - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -46,7 +46,7 @@ In the early days of the Church, some would worry when a new temple would be ann
 
 In this mortal life, we will never escape the war, but we can have power over the enemy. That power and strength come from Jesus Christ as we make and keep temple covenants.
 
-President Russell M. Nelson has taught: “The time is coming when those who do not obey the Lord will be separated from those who do. Our safest insurance is to continue to be worthy of admission to His holy house.”[^11]
+President Russell M. Nelson has taught: “The time is coming when those who do not obey the Lord will be separated from those who do. Our safest insurance is to continue to be worthy of admission to His holy house.”[^11]
 
 Here are some additional blessings God has promised us through His prophet:
 
@@ -58,7 +58,7 @@ On the first Palm Sunday, as Jesus Christ triumphantly entered Jerusalem, a mult
 
 How fitting that on Palm Sunday of 1836, the Kirtland Temple was being dedicated. On that occasion the disciples of Jesus Christ were rejoicing as well. In that dedicatory prayer, the Prophet Joseph Smith declared these words of praise:
 
-“O Lord God Almighty, hear us … and answer us from heaven, … where thou sittest enthroned, with glory, honor, power, majesty, \[and\] might. …
+“O Lord God Almighty, hear us … and answer us from heaven, … where thou sittest enthroned, with glory, honor, power, majesty, \[and\] might. …
 
 “… Help us by the power of thy Spirit, that we may mingle our voices with those bright, shining seraphs around thy throne, with acclamations of praise, singing Hosanna to God and the Lamb!
 
@@ -73,11 +73,11 @@ I witness that you will feel joy more and more as you enter the holy temples of 
 
 [^1]: [[D&C 128.19|Doctrine and Covenants 128:19]].
 
-[^2]: [[2 Nephi 2.25|2 Nephi 2:25]]; see also [[Isaiah 55.12|Isaiah 55:12]].
+[^2]: [[2 Nephi 2.25|2 Nephi 2:25]]; see also [[Isaiah 55.12|Isaiah 55:12]].
 
 [^3]: See [[Job 38.7|Job 38:7]].
 
-[^4]: Wilford Woodruff, “Remarks,” *Deseret News*, May 27, 1857, 91; punctuation modernized.
+[^4]: Wilford Woodruff, “Remarks,” *Deseret News*, May 27, 1857, 91; punctuation modernized.
 
 [^5]: See [[D&C 14.7|Doctrine and Covenants 14:7]].
 
@@ -85,17 +85,17 @@ I witness that you will feel joy more and more as you enter the holy temples of 
 
 [^7]: See [[D&C 132.45|Doctrine and Covenants 132:45–46]][[D&C 132.46|]].
 
-[^8]: President Joseph F. Smith taught, “There has got to be a welding together and a joining together of parents and children and children and parents until the whole chain of God’s family shall be welded together into one chain, and they shall all become the family of God and His Christ” ([Teachings of Presidents of the Church: Joseph F. Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-f-smith/chapter-46?lang=eng&id=p20#p20) \[2011\], 411).
+[^8]: President Joseph F. Smith taught, “There has got to be a welding together and a joining together of parents and children and children and parents until the whole chain of God’s family shall be welded together into one chain, and they shall all become the family of God and His Christ” ([Teachings of Presidents of the Church: Joseph F. Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-f-smith/chapter-46?lang=eng&id=p20#p20) \[2011\], 411).
 
 [^9]: [[D&C 128.15|Doctrine and Covenants 128:15]].
 
-[^10]: [Teachings of Presidents of the Church: Brigham Young](https://churchofjesuschrist.org/study/manual/teachings-brigham-young/chapter-41?lang=eng&id=p6#p6) (1997), 300.
+[^10]: [Teachings of Presidents of the Church: Brigham Young](https://www.churchofjesuschrist.org/study/manual/teachings-brigham-young/chapter-41?lang=eng&id=p6#p6) (1997), 300.
 
-[^11]: Russell M. Nelson, “[The Future of the Church: Preparing the World for the Savior’s Second Coming](https://churchofjesuschrist.org/study/liahona/2020/04/the-future-of-the-church-preparing-the-world-for-the-saviors-second-coming?lang=eng&id=p10#p10),” *Ensign* or *Liahona*, Apr. 2020, 9.
+[^11]: Russell M. Nelson, “[The Future of the Church: Preparing the World for the Savior’s Second Coming](https://www.churchofjesuschrist.org/study/liahona/2020/04/the-future-of-the-church-preparing-the-world-for-the-saviors-second-coming?lang=eng&id=p10#p10),” *Ensign* or *Liahona*, Apr. 2020, 9.
 
-[^12]: Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 114.
+[^12]: Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 114.
 
-[^13]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94.
+[^13]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94.
 
 [^14]: [[Luke 19.37|Luke 19:37–38]][[Luke 19.38|]].
 
@@ -103,6 +103,4 @@ I witness that you will feel joy more and more as you enter the holy temples of 
 
 [^16]: [[D&C 128.19|Doctrine and Covenants 128:19]].
 
-
-
-#Jesus_Christ #Joy #Restoration #Temple_Work #Temples
+#Joy #JesusChrist #Restoration #Temples #TempleWork

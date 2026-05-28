@@ -1,4 +1,3 @@
 # Persistence
 
-
-*See* [[Courage, Courageous.md|Courage]]; [[Strength.md|Strength]]
+*See also* [[Courage.md|Courage]]; [[Strength.md|Strength]]

@@ -40,7 +40,7 @@ For instance, we of this day and age can today feel and learn from the teachings
 
 My dear brothers and sisters, the Lord does not want us to become aware of our state of nothingness and misery (see [[Mosiah 4.11|Mosiah 4:11]]; [[Alma 26.12|Alma 26:12]]; [[Helaman 12.7|Hel. 12:7]]; [[Moses 1.10|Moses 1:10]]) only at the Day of Judgment. Now and every day in our mortal lives, He wants to sharpen our awareness, that we may become our own judges, as He calls us to a continuous process of repentance.
 
-After Alma had spoken about repentance and desires of righteousness until the end of life, he said, “They … are redeemed of the Lord; … for behold, they are their own judges.” ([[Alma 41.7|Alma 41:7]].) The Apostle Paul also explained, as stated in [[1 Corinthians 11.31|1 Corinthians 11:31]], “For if we would judge ourselves, we should not be judged.”
+After Alma had spoken about repentance and desires of righteousness until the end of life, he said, “They … are redeemed of the Lord; … for behold, they are their own judges.” ([[Alma 41.7|Alma 41:7]].) The Apostle Paul also explained, as stated in [[1 Corinthians 11.31|1 Corinthians 11:31]], “For if we would judge ourselves, we should not be judged.”
 
 It seems that we can effectively go through the process of continuous repentance only if we literally learn to become our own judges. We ourselves and the Lord are the only ones who really know us. We do not even know ourselves unless we have learned to walk the lonely and most challenging road toward self-honesty, as constantly prompted by the Spirit.
 
@@ -57,6 +57,4 @@ I leave you this testimony as your brother and your servant, and I do this in th
 
 
 
-
-
-#Honesty #Repentance #Temple_Work
+#Honesty #Repentance #TempleWork

@@ -1,6 +1,5 @@
 # Morrow
 
-
 *See also* [[Tomorrow.md|Tomorrow]]
 
 Boast not thyself of to *morrow*, [[Proverbs 27.1|Proverbs 27:1]].

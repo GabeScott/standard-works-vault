@@ -5,6 +5,6 @@
 [Joseph Smith History 1:74](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.74?lang=eng#p74)
 
 
-[^a]: [[D&C 32.4|D&C 32:4.]]
-[^b]: [[John 16.13|John 16:13.]]
-[^c]: TG [[Mysteries of Godliness]].
+[^a]: [[D&C 32.4|D&C 32:4]].  
+[^b]: [[John 16.13|John 16:13]].  
+[^c]: [[Mysteries of Godliness|TG Mysteries of Godliness]].  

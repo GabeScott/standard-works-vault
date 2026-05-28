@@ -38,7 +38,7 @@ There was one episode depicted on the records that would nearly bring tears to m
 
 “‘September 18th, Charles Hubbard sent his boy with a wagon and span of horses to my house; our trunks were put into the wagon by some brethren; I went to my bed and shook hands with my wife who was then shaking with a chill, having two children lying sick by her side; I embraced her and my children, and bade them farewell. My only well child was little Heber P., and it was with difficulty he could carry a couple of quarts of water at a time to assist in quenching their thirst.
 
-“‘It was with difficulty we got into the wagon, and started down the hill about ten rods; it appeared to me as though my very inmost parts would melt within me at leaving my family in such a condition, as it were almost in the arms of death. I felt as though I could not endure it. I asked the teamster to stop, and said to Brother Brigham, “This is pretty tough, isn’t it; let’s rise up and give them a cheer.” We arose, and swinging our hats three times over our heads, shouted: “Hurrah, hurrah for Israel.” Vilate, hearing the noise, arose from her bed and came to the door. She had a smile on her face. Vilate and Mary Ann Young cried out to us: “Goodbye, God bless you!” We returned the compliment, and then told the driver to go ahead. After this I felt a spirit of joy and gratitude, having had the satisfaction of seeing my wife standing upon her feet, instead of leaving her in bed, knowing well that I should not see them again for two or three years’” (Orson F. Whitney, *Life of Heber C. Kimball,* Salt Lake City: Bookcraft, 1967, pp. 265–66).
+“‘It was with difficulty we got into the wagon, and started down the hill about ten rods; it appeared to me as though my very inmost parts would melt within me at leaving my family in such a condition, as it were almost in the arms of death. I felt as though I could not endure it. I asked the teamster to stop, and said to Brother Brigham, “This is pretty tough, isn’t it; let’s rise up and give them a cheer.” We arose, and swinging our hats three times over our heads, shouted: “Hurrah, hurrah for Israel.” Vilate, hearing the noise, arose from her bed and came to the door. She had a smile on her face. Vilate and Mary Ann Young cried out to us: “Goodbye, God bless you!” We returned the compliment, and then told the driver to go ahead. After this I felt a spirit of joy and gratitude, having had the satisfaction of seeing my wife standing upon her feet, instead of leaving her in bed, knowing well that I should not see them again for two or three years’” (Orson F. Whitney, *Life of Heber C. Kimball,* Salt Lake City: Bookcraft, 1967, pp. 265–66).
 
 I have often wondered how these brethren, as valiant as they were, could do what they did. Truly they were willing to make any sacrifice asked of them to build the kingdom of God. They were laying up “treasures in heaven, where neither moth nor rust doth corrupt” ([[Matthew 6.20|Matt. 6:20]]).
 
@@ -63,6 +63,4 @@ May each of us accept the challenge to seek the kingdom of God first, before and
 
 
 
-
-
-#Book_Of_Mormon #Faith #Testimony
+#BookOfMormon #Faith #Testimony

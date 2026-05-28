@@ -1,6 +1,5 @@
 # Appearing
 
-
 until the *appearing* of our Lord Jesus Christ, [[1 Timothy 6.14|1 Timothy 6:14]].
 
 made manifest by the *appearing* of our Saviour Jesus Christ, [[2 Timothy 1.10|2 Timothy 1:10]].

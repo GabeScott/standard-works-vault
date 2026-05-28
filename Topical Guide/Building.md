@@ -1,9 +1,8 @@
 # Building
 
-
 what manner of stones and what *buildings* are here, [[Mark 13.1|Mark 13:1]].
 
-ye are God's *building*, [[1 Corinthians 3.9|1 Corinthians 3:9]].
+ye are God’s *building*, [[1 Corinthians 3.9|1 Corinthians 3:9]].
 
 we have a *building* of God, [[2 Corinthians 5.1|2 Corinthians 5:1]].
 

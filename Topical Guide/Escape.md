@@ -1,7 +1,6 @@
 # Escape
 
-
-*See also* [[Deliver, Deliverance.md|Deliver]]; [[Flee, Fled.md|Flee]]; [[Salvation.md|Salvation]]
+*See also* [[Deliver.md|Deliver]]; [[Flee.md|Flee]]; [[Salvation.md|Salvation]]
 
 *Escape* for thy life; look not behind thee, [[Genesis 19.17|Genesis 19:17]].
 
@@ -29,7 +28,7 @@ woman with child; and they shall not *escape*, [[1 Thessalonians 5.3|1 Thessalon
 
 How shall we *escape*, if we neglect so great salvation, [[Hebrews 2.3|Hebrews 2:3]].
 
-having *escaped* the corruption ... in the world, [[2 Peter 1.4|2 Peter 1:4]].
+having *escaped* the corruption … in the world, [[2 Peter 1.4|2 Peter 1:4]].
 
 those that were clean *escaped* from them who live in error, [[2 Peter 2.18|2 Peter 2:18]].
 
@@ -37,10 +36,10 @@ those that were clean *escaped* from them who live in error, [[2 Peter 2.18|2 Pe
 
 God, who prepareth a way for our *escape*, [[2 Nephi 9.10|2 Nephi 9:10]].
 
-voice of the Lord ... there is none to *escape*, [[D&C 1.2|D&C 1:2]].
+voice of the Lord … there is none to *escape*, [[D&C 1.2|D&C 1:2]].
 
-*escape* ... the servants of Satan, [[D&C 10.5|D&C 10:5]].
+*escape* … the servants of Satan, [[D&C 10.5|D&C 10:5]].
 
-saints ... shall hardly *escape*, [[D&C 63.34|D&C 63:34]].
+saints … shall hardly *escape*, [[D&C 63.34|D&C 63:34]].
 
 Zion shall *escape* if she observe to do, [[D&C 97.25|D&C 97:25]].

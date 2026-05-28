@@ -1,6 +1,5 @@
 # Against
 
-
 He that is not with me is *against* me, [[Matthew 12.30|Matthew 12:30]] ([[Luke 11.23|Luke 11:23]]).
 
 that is not *against* us is on our part, [[Mark 9.40|Mark 9:40]] ([[Luke 9.50|Luke 9:50]]).

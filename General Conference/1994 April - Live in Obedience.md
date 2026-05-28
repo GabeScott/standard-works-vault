@@ -89,32 +89,30 @@ May the Lord bless each of you special young men with strength and courage to ob
 
 [^8]: [[Alma 37.35|Alma 37:35]].
 
-[^9]: Ezra Taft Benson, address delivered at mission presidents’ seminar, 21 June 1988; see also *The Teachings of Ezra Taft Benson* (Salt Lake City: Bookcraft, 1988), p. 26.
+[^9]: Ezra Taft Benson, address delivered at mission presidents’ seminar, 21 June 1988; see also *The Teachings of Ezra Taft Benson* (Salt Lake City: Bookcraft, 1988), p. 26.
 
 [^10]: See [[Alma 56.47|Alma 56:47–48]][[Alma 56.48|]].
 
 [^11]: [[Luke 2.52|Luke 2:52]].
 
-[^12]: [[2 Nephi 2.11|2 Ne. 2:11]].
+[^12]: [[2 Nephi 2.11|2 Ne. 2:11]].
 
 [^13]: [[D&C 14.7|D&C 14:7]].
 
 [^14]: [[Matthew 19.26|Matt. 19:26]].
 
-[^15]: [[1 Corinthians 10.13|1 Cor. 10:13]].
+[^15]: [[1 Corinthians 10.13|1 Cor. 10:13]].
 
-[^16]: [[1 Nephi 3.7|1 Ne. 3:7]].
+[^16]: [[1 Nephi 3.7|1 Ne. 3:7]].
 
-[^17]: Joseph L. Wirthlin, *A Heritage of Faith,* comp. Richard B. Wirthlin (Salt Lake City: Deseret Book Co., 1964), p. 78.
+[^17]: Joseph L. Wirthlin, *A Heritage of Faith,* comp. Richard B. Wirthlin (Salt Lake City: Deseret Book Co., 1964), p. 78.
 
 [^18]: [[John 17.15|John 17:15]].
 
 [^19]: [[Luke 4.8|Luke 4:8]].
 
-[^20]: Neal A. Maxwell, in Conference Report, Apr. 1987, p. 88; or *Ensign,* May 1987, p. 71; emphasis added.
+[^20]: Neal A. Maxwell, in Conference Report, Apr. 1987, [[1987 April - “Overcome … Even As I Also Overcame”.md|p. 88]]; or *Ensign,* May 1987, p. 71; emphasis added.
 
 [^21]: [[Alma 41.10|Alma 41:10]].
 
-
-
-#Commandments #Healing #Missionary_Work #Morality #Obedience #Priesthood #Service #Sin #Temptation #Youth
+#Commandments #Healing #MissionaryWork #Morality #Obedience #Priesthood #Service #Sin #Temptation #Youth

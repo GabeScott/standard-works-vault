@@ -63,7 +63,7 @@ Brothers and sisters, I testify that no one of us is less treasured or cherished
 
 [^2]: See William Shakespeare, *The Merchant of Venice,* act 3, scene 2, line 110.
 
-[^3]: See [[2 Nephi 2.18|2 Ne. 2:18]].
+[^3]: See [[2 Nephi 2.18|2 Ne. 2:18]].
 
 [^4]: [[Moses 4.1|Moses 4:1]].
 
@@ -71,24 +71,22 @@ Brothers and sisters, I testify that no one of us is less treasured or cherished
 
 [^6]: See [[Daniel 5.27|Dan. 5:27]] (double entendre doubly intended).
 
-[^7]: See [[1 Nephi 12.18|1 Ne. 12:18]].
+[^7]: See [[1 Nephi 12.18|1 Ne. 12:18]].
 
 [^8]: Henri J. M. Nouwen, *The Return of the Prodigal Son* (1992), 103.
 
 [^9]: See [[Ether 12.26|Ether 12:26]]; [[Moroni 10.32|Moro. 10:32]]; [[D&C 17.8|D&C 17:8]].
 
-[^10]: See [[2 Nephi 26.24|2 Ne. 26:24–28]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]]; emphasis added.
+[^10]: See [[2 Nephi 26.24|2 Ne. 26:24–28]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]]; emphasis added.
 
-[^11]: [[1 Corinthians 13.13|1 Cor. 13:13]].
+[^11]: [[1 Corinthians 13.13|1 Cor. 13:13]].
 
-[^12]: See [[1 Corinthians 12.25|1 Cor. 12:25–26]][[1 Corinthians 12.26|]].
+[^12]: See [[1 Corinthians 12.25|1 Cor. 12:25–26]][[1 Corinthians 12.26|]].
 
 [^13]: I am indebted to Henri Nouwen for pointing out this etymological link; see *The Return of the Prodigal Son,* 131–32.
 
-[^14]: See [[Isaiah 61.10|Isa. 61:10]]; [[2 Nephi 4.33|2 Ne. 4:33]]; [[2 Nephi 9.14|9:14]].
+[^14]: See [[Isaiah 61.10|Isa. 61:10]]; [[2 Nephi 4.33|2 Ne. 4:33]]; [[2 Nephi 9.14|9:14]].
 
 [^15]: [[Revelation 7.14|Rev. 7:14]].
-
-
 
 #Covetousness #Generosity #Love #Service

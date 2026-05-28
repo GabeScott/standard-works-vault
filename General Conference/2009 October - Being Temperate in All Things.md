@@ -20,7 +20,7 @@ When Paul wrote Titus, describing the attributes necessary for a bishop to assis
 
 When Alma the Younger taught in the land of Gideon, he said:
 
-“I trust that ye are not lifted up in the pride of your hearts; yea, I trust that ye have not set your hearts upon riches and the vain things of the world. …
+“I trust that ye are not lifted up in the pride of your hearts; yea, I trust that ye have not set your hearts upon riches and the vain things of the world. …
 
 “I would that ye should be humble, and be submissive and gentle; easy to be entreated; full of patience and long-suffering; being temperate in all things.”[^4]
 
@@ -75,11 +75,11 @@ I leave my witness that our Redeemer lives and His divine gift of temperance is 
 
 [^7]: [[Joseph Smith History 1.6|Joseph Smith—History 1:6]].
 
-[^8]: [[3 Nephi 11.37|3 Nephi 11:37]].
+[^8]: [[3 Nephi 11.37|3 Nephi 11:37]].
 
-[^9]: See [[3 Nephi 12.24|3 Nephi 12:24]].
+[^9]: See [[3 Nephi 12.24|3 Nephi 12:24]].
 
-[^10]: [[3 Nephi 22.10|3 Nephi 22:10]].
+[^10]: [[3 Nephi 22.10|3 Nephi 22:10]].
 
 [^11]: [[D&C 31.9|D&C 31:9]].
 
@@ -91,6 +91,4 @@ I leave my witness that our Redeemer lives and His divine gift of temperance is 
 
 [^15]: [[D&C 12.8|D&C 12:8]].
 
-
-
-#Financial_Management #Jesus_Christ
+#FinancialManagement #JesusChrist

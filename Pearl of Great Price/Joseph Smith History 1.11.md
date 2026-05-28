@@ -5,4 +5,4 @@
 [Joseph Smith History 1:11](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.11?lang=eng#p11)
 
 
-[^a]: [[James 1.5|James 1:5 (1-7).]]
+[^a]: [[James 1.1|James 1:5 (1–7)]][[James 1.2|]][[James 1.3|]][[James 1.4|]][[James 1.5|]][[James 1.6|]][[James 1.7|]].  

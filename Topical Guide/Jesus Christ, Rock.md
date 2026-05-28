@@ -1,6 +1,5 @@
 # Jesus Christ, Rock
 
-
 from thence is the shepherd, the *stone* of Israel, [[Genesis 49.24|Genesis 49:24]] ([[D&C 50.44|D&C 50:44]]).
 
 He is the *Rock*, [[Deuteronomy 32.4|Deuteronomy 32:4]].
@@ -17,7 +16,7 @@ Lord is my *rock*, and my fortress, [[Psalms 18.2|Psalms 18:2]].
 
 who is a *rock* save our God, [[Psalms 18.31|Psalms 18:31]].
 
-my *rock* ... the God of my salvation, [[Psalms 18.46|Psalms 18:46]] ([[1 Nephi 15.15|1 Nephi 15:15]]; [[2 Nephi 4.30|2 Nephi 4:30]]; [[2 Nephi 9.45|2 Nephi 9:45]]; [[Jacob 7.25|Jacob 7:25]]).
+my *rock* … the God of my salvation, [[Psalms 18.46|Psalms 18:46]] ([[1 Nephi 15.15|1 Nephi 15:15]]; [[2 Nephi 4.30|2 Nephi 4:30]]; [[2 Nephi 9.45|2 Nephi 9:45]]; [[Jacob 7.25|Jacob 7:25]]).
 
 lead me to the *rock* that is higher than I, [[Psalms 61.2|Psalms 61:2]].
 
@@ -35,14 +34,12 @@ not been mindful of the *rock* of thy strength, [[Isaiah 17.10|Isaiah 17:10]].
 
 lay in Sion a stumblingstone and *rock* of offence, [[Romans 9.33|Romans 9:33]] ([[1 Peter 2.8|1 Peter 2:8]]; [[2 Nephi 18.14|2 Nephi 18:14]]).
 
-drank of ... spiritual *Rock* ... and that *Rock* was Christ, [[1 Corinthians 10.4|1 Corinthians 10:4]].
+drank of … spiritual *Rock* … and that *Rock* was Christ, [[1 Corinthians 10.4|1 Corinthians 10:4]].
 
 Lamb, and my *rock*, [[1 Nephi 13.36|1 Nephi 13:36]].
 
-Jews ... will reject the *stone*, [[Jacob 4.15|Jacob 4:15]].
+Jews … will reject the *stone*, [[Jacob 4.15|Jacob 4:15]].
 
 *rock* of our Redeemer, who is Christ, [[Helaman 5.12|Helaman 5:12]].
 
-I am Messiah, the ... *Rock* of Heaven, [[Moses 7.53|Moses 7:53]].
-
-*See also* [[Matthew 16.18|Matthew 16:18]].
+I am Messiah, the … *Rock* of Heaven, [[Moses 7.53|Moses 7:53]].

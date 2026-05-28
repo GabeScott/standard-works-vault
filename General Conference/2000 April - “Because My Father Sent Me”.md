@@ -18,7 +18,7 @@ Enos, likewise, first recognized his father for the preparation he received: “
 
 When the Prophet Joseph Smith first received the vision of the angel Moroni, he was instructed to tell his father, who, in turn, confirmed that it was true and that Joseph should follow the directions of Moroni. Even with the restoration of the gospel, the Lord did not separate a son from his righteous father.
 
-The Savior of the world, in giving us a definition of the meaning of the gospel in 3 Nephi, chapter 27, said simply that He came to work out the plan of salvation and give His life for the sake of all mankind because His Father sent Him. The love between the Father and the Son was so perfect that the Savior gave it as His first reason for coming into mortality and the suffering He did for us in the Garden of Gethsemane and on the cross.
+The Savior of the world, in giving us a definition of the meaning of the gospel in 3 Nephi, chapter 27, said simply that He came to work out the plan of salvation and give His life for the sake of all mankind because His Father sent Him. The love between the Father and the Son was so perfect that the Savior gave it as His first reason for coming into mortality and the suffering He did for us in the Garden of Gethsemane and on the cross.
 
 The gospel is designed to teach us what to do as fathers and mothers, and it would seem that when families are intact, we may very well do good things and give as our first reason “because my Father sent me”[^3] or because a father showed me the way.
 
@@ -43,16 +43,14 @@ May I add at this point my own witness and testimony as to the truthfulness of t
 
 
 
-[^1]: [[1 Nephi 1.1|1 Ne. 1:1]].
+[^1]: [[1 Nephi 1.1|1 Ne. 1:1]].
 
 [^2]: [[Enos 1.1|Enos 1:1]].
 
-[^3]: [[3 Nephi 27.13|3 Ne. 27:13]].
+[^3]: [[3 Nephi 27.13|3 Ne. 27:13]].
 
 [^4]: “Preparing to Meet the Lord,” *Improvement Era,* Feb. 1965, 123–24.
 
 [^5]: “Old Man Green,” in *Collected Verse of Edgar A. Guest* (1934), 560.
 
-
-
-#Commitment #Example #Fatherhood #Joseph_Smith #Love
+#Commitment #Example #Fatherhood #JosephSmith #Love

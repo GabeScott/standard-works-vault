@@ -1,6 +1,5 @@
 # Born
 
-
 one *born* in my house, [[Genesis 15.3|Genesis 15:3]].
 
 time to be *born*, and a time to die, [[Ecclesiastes 3.2|Ecclesiastes 3:2]].
@@ -17,15 +16,15 @@ Among them that are *born* of women there hath not risen a greater, [[Matthew 11
 
 that man if he had not been *born*, [[Matthew 26.24|Matthew 26:24]] ([[Mark 14.21|Mark 14:21]]).
 
-unto you is *born* this day ... a Saviour, [[Luke 2.11|Luke 2:11]].
+unto you is *born* this day … a Saviour, [[Luke 2.11|Luke 2:11]].
 
-Which were *born*, not of blood ... but of God, [[John 1.13|John 1:13]].
+Which were *born*, not of blood … but of God, [[John 1.13|John 1:13]].
 
 Except a man be *born* again, [[John 3.3|John 3:3]] ([[John 3.7|John 3:7]]).
 
 as of one *born* out of due time, [[1 Corinthians 15.8|1 Corinthians 15:8]].
 
-*born* after the flesh ... *born* after the Spirit, [[Galatians 4.29|Galatians 4:29]].
+*born* after the flesh … *born* after the Spirit, [[Galatians 4.29|Galatians 4:29]].
 
 Being *born* again, not of corruptible seed, [[1 Peter 1.23|1 Peter 1:23]].
 
@@ -43,17 +42,17 @@ whatsoever is *born* of God overcometh the world, [[1 John 5.4|1 John 5:4]].
 
 ye are *born* of him, [[Mosiah 5.7|Mosiah 5:7]] ([[Mosiah 5.2|Mosiah 5:2]]).
 
-all nations ... must be *born* again; yea, *born* of God, [[Mosiah 27.25|Mosiah 27:25]].
+all nations … must be *born* again; yea, *born* of God, [[Mosiah 27.25|Mosiah 27:25]].
 
-have ye spiritually been *born* of God, [[Alma 5.14|Alma 5:14]] ([[Alma 5.12|5:12-28]][[Alma 5.13|]][[Alma 5.14|]][[Alma 5.15|]][[Alma 5.16|]][[Alma 5.17|]][[Alma 5.18|]][[Alma 5.19|]][[Alma 5.20|]][[Alma 5.21|]][[Alma 5.22|]][[Alma 5.23|]][[Alma 5.24|]][[Alma 5.25|]][[Alma 5.26|]][[Alma 5.27|]][[Alma 5.28|]]).
+have ye spiritually been *born* of God, [[Alma 5.14|Alma 5:14]].
 
 he shall be *born* of Mary, [[Alma 7.10|Alma 7:10]].
 
-my Redeemer; and he shall ... be *born* of a woman, [[Alma 19.13|Alma 19:13]].
+my Redeemer; and he shall … be *born* of a woman, [[Alma 19.13|Alma 19:13]].
 
 that I may be *born* of God, [[Alma 22.15|Alma 22:15]].
 
-manifest ... that I had been *born* of God, [[Alma 36.23|Alma 36:23]].
+manifest … that I had been *born* of God, [[Alma 36.23|Alma 36:23]].
 
 if I had not been *born* of God I should not have known, [[Alma 38.6|Alma 38:6]].
 

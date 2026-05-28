@@ -1,6 +1,6 @@
 # Counsel to Youth
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -48,9 +48,9 @@ Today there are “wars and rumors of wars, and the whole earth \[is\] in commot
 
 The gospel plan is “the great plan of happiness.”[^5] The family is the center of that plan. The family depends on the worthy use of those life-giving powers that are in your body.
 
-In “The Family: A Proclamation to the World,” an inspired document issued by the First Presidency and the Quorum of the Twelve Apostles, we learn that in the premortal existence “all human beings—male and female—\[were\] created in the image of God. Each is a beloved spirit son or daughter of heavenly parents, and, as such, each has a divine nature and destiny. Gender is an essential characteristic \[and was established in that premortal existence\]. …
+In “The Family: A Proclamation to the World,” an inspired document issued by the First Presidency and the Quorum of the Twelve Apostles, we learn that in the premortal existence “all human beings—male and female—\[were\] created in the image of God. Each is a beloved spirit son or daughter of heavenly parents, and, as such, each has a divine nature and destiny. Gender is an essential characteristic \[and was established in that premortal existence\]. …
 
-“… We further declare that God has commanded that the sacred powers of procreation are to be employed only between man and woman, lawfully wedded as husband and wife.”[^6]
+“… We further declare that God has commanded that the sacred powers of procreation are to be employed only between man and woman, lawfully wedded as husband and wife.”[^6]
 
 The great penalty Lucifer and his followers brought upon themselves was that they were to be denied a mortal body.
 
@@ -62,7 +62,7 @@ By the time we graduated from high school, many of our classmates had marched aw
 
 Against the certainty that I would be drafted, I joined the air force. Soon I was in Santa Ana, California, for preflight training.
 
-I did not then have a firm testimony that the gospel was true, but I knew that my seminary teachers, Abel S. Rich and John P. Lillywhite, knew it was true. I had heard them testify, and I believed them. I thought to myself, “I will lean on their testimonies until I gain one of my own.” And so it was.
+I did not then have a firm testimony that the gospel was true, but I knew that my seminary teachers, Abel S. Rich and John P. Lillywhite, knew it was true. I had heard them testify, and I believed them. I thought to myself, “I will lean on their testimonies until I gain one of my own.” And so it was.
 
 I had heard about patriarchal blessings but had not received one. In each stake there is an ordained patriarch who has the spirit of prophecy and the spirit of revelation. He is authorized to give personal and private blessings to those who come recommended by their bishops. I wrote to my bishop for a recommend.
 
@@ -102,7 +102,7 @@ As one of His special witnesses, I testify that the outcome of this battle that 
 
 We spoke earlier of crows. You young crows need not fly aimlessly to and fro, unsure of the path ahead. There are those who know the way. “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.”[^14] The Lord organized His Church on the principle of keys and councils.
 
-At the head of the Church sit 15 men sustained as prophets, seers, and revelators. Each of the First Presidency and Quorum of the Twelve Apostles holds all of the priesthood keys necessary for directing the Church. The senior Apostle is prophet-President Thomas S. Monson, who is the only one authorized to exercise all of those keys.
+At the head of the Church sit 15 men sustained as prophets, seers, and revelators. Each of the First Presidency and Quorum of the Twelve Apostles holds all of the priesthood keys necessary for directing the Church. The senior Apostle is prophet-President Thomas S. Monson, who is the only one authorized to exercise all of those keys.
 
 The scriptures require that the First Presidency and Quorum of the Twelve work in councils and that the decisions of those councils be unanimous. And so it is. We trust the Lord to guide the way and seek only to do His will. We know that He has placed a great deal of trust in us, individually and collectively.
 
@@ -115,7 +115,7 @@ If you will follow these principles, you will be watched over and protected and 
 
 
 
-[^1]: John Ciardi, “Fast and Slow,” *Fast and Slow: Poems for Advanced Children and Beginning Parents* (1975), 1. © 1975 by John L. Ciardi. Used by permission of Houghton Mifflin Harcourt Publishing Company. All rights reserved.
+[^1]: John Ciardi, “Fast and Slow,” *Fast and Slow: Poems for Advanced Children and Beginning Parents* (1975), 1. © 1975 by John L. Ciardi. Used by permission of Houghton Mifflin Harcourt Publishing Company. All rights reserved.
 
 [^2]: [[Revelation 12.9|Revelation 12:9]]; see also [[D&C 76.25|Doctrine and Covenants 76:25–26]][[D&C 76.26|]].
 
@@ -129,11 +129,11 @@ If you will follow these principles, you will be watched over and protected and 
 
 [^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 211.
 
-[^8]: Patriarchal blessing of Boyd K. Packer, given by J. Roland Sandstrom, Jan. 15, 1944.
+[^8]: Patriarchal blessing of Boyd K. Packer, given by J. Roland Sandstrom, Jan. 15, 1944.
 
-[^9]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^9]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^10]: [[1 Nephi 17.45|1 Nephi 17:45]]; emphasis added.
+[^10]: [[1 Nephi 17.45|1 Nephi 17:45]]; emphasis added.
 
 [^11]: [[Enos 1.10|Enos 1:10]].
 
@@ -147,6 +147,4 @@ If you will follow these principles, you will be watched over and protected and 
 
 [^16]: [[Moroni 10.5|Moroni 10:5]].
 
-
-
-#Holy_Ghost #Repentance #Youth
+#HolyGhost #Repentance #Youth

@@ -1,4 +1,3 @@
 # Levi
 
-
-*See* [BD Levi](https://www.churchofjesuschrist.org/study/scriptures/bd/levi?lang=eng)
+*See also* [[BD Levi.md|BD Levi]]

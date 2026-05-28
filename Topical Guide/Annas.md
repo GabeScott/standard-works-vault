@@ -1,4 +1,3 @@
 # Annas
 
-
-*See* [BD Annas](https://www.churchofjesuschrist.org/study/scriptures/bd/annas?lang=eng)
+*See also* [[BD Annas.md|BD Annas]]

@@ -42,7 +42,7 @@ Along with studying the scriptures, missionaries study *Preach My Gospel* every 
 
 In the introduction to *Preach My Gospel* we read: “*Preach My Gospel* is for the full-time missionaries of the Church. However, the principles and doctrines taught herein are also applicable to ward missionaries and leaders as they seek to build the Lord’s kingdom. Frequent study of this manual will enable them to fulfill their responsibilities as member missionaries and will foster unity with the full-time missionaries” (xi).
 
-Elder Richard G. Scott taught that all members should carefully study *Preach My Gospel.* He said, “Much good has been accomplished … since *Preach My Gospel* was introduced, but the best is yet to come as we all become more proficient in the use of this extraordinary missionary tool” (in Conference Report, Apr. 2005, 32; or *Ensign,* May 2005, 31).
+Elder Richard G. Scott taught that all members should carefully study *Preach My Gospel.* He said, “Much good has been accomplished … since *Preach My Gospel* was introduced, but the best is yet to come as we all become more proficient in the use of this extraordinary missionary tool” (in Conference Report, Apr. 2005, [[2005 April - The Power of Preach My Gospel.md|32]]; or *Ensign,* May 2005, 31).
 
 Our time may seem limited to do this study, so therefore let me give a few suggestions that may help.
 
@@ -56,7 +56,7 @@ Our time may seem limited to do this study, so therefore let me give a few sugge
 
 - *Preach My Gospel* has been translated and published in almost every language that our members speak. In countries where the Church is still young, *Preach My Gospel* may be used along with the scriptures as a resource and foundation for all gospel learning and teaching.
 
-- Elder Scott encouraged local Church leaders “to use these materials in … presidencies, priesthood executive committee meetings, and ward councils” (in Conference Report, Apr. 2005, 32; or *Ensign,* May 2005, 31).
+- Elder Scott encouraged local Church leaders “to use these materials in … presidencies, priesthood executive committee meetings, and ward councils” (in Conference Report, Apr. 2005, [[2005 April - The Power of Preach My Gospel.md|32]]; or *Ensign,* May 2005, 31).
 
 - Use *Preach My Gospel* as a resource for training, talks, spiritual thoughts, lessons, firesides, and personal study.
 
@@ -67,6 +67,4 @@ As members of His Church, we are expected to be a part of this glorious gatherin
 
 
 
-
-
-#Family #Missionary_Work
+#Family #MissionaryWork

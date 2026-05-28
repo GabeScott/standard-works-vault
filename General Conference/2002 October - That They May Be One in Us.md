@@ -32,13 +32,13 @@ Nephi expressed similar feelings:
 
 “Notwithstanding the great goodness of the Lord, in showing me his great and marvelous works, my heart exclaimeth: O wretched man that I am! Yea, my heart sorroweth because of my flesh; my soul grieveth because of mine iniquities.
 
-“I am encompassed about, because of the temptations and the sins which do so easily beset me” ([[2 Nephi 4.17|2 Nephi 4:17–18]][[2 Nephi 4.18|]]).
+“I am encompassed about, because of the temptations and the sins which do so easily beset me” ([[2 Nephi 4.17|2 Nephi 4:17–18]][[2 Nephi 4.18|]]).
 
-But then, remembering the Savior, Nephi stated this hopeful conclusion: “Nevertheless, I know in whom I have trusted” ([[2 Nephi 4.19|2 Nephi 4:19]]). What did he mean?
+But then, remembering the Savior, Nephi stated this hopeful conclusion: “Nevertheless, I know in whom I have trusted” ([[2 Nephi 4.19|2 Nephi 4:19]]). What did he mean?
 
 Jesus was also a being of flesh and spirit, but He yielded not to temptation (see [[Mosiah 15.5|Mosiah 15:5]]). We can turn to Him as we seek unity and peace within because He understands. He understands the struggle, and He also understands how to win the struggle. As Paul said, “We have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin” ([[Hebrews 4.15|Hebrews 4:15]]).
 
-Most importantly, we may look to Jesus to help restore the inner unity of our soul when we have succumbed to sin and destroyed our peace. Soon after His intercessory plea that we might become “perfect in one” ([[John 17.23|John 17:23]]), Jesus suffered and gave His life to atone for sin. The power of His Atonement can erase the effects of sin in us. When we repent, His atoning grace justifies and cleanses us (see [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]). It is as if we had not succumbed, as if we had not yielded to temptation.
+Most importantly, we may look to Jesus to help restore the inner unity of our soul when we have succumbed to sin and destroyed our peace. Soon after His intercessory plea that we might become “perfect in one” ([[John 17.23|John 17:23]]), Jesus suffered and gave His life to atone for sin. The power of His Atonement can erase the effects of sin in us. When we repent, His atoning grace justifies and cleanses us (see [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]). It is as if we had not succumbed, as if we had not yielded to temptation.
 
 As we endeavor day by day and week by week to follow the path of Christ, our spirit asserts its preeminence, the battle within subsides, and temptations cease to trouble. There is greater and greater harmony between the spiritual and the physical until our physical bodies are transformed, in Paul’s words, from “instruments of unrighteousness unto sin” to “instruments of righteousness unto God” (see [[Romans 6.13|Romans 6:13]]).
 
@@ -64,11 +64,11 @@ What form that purging may take, what sacrifices it may entail, we probably cann
 
 President Brigham Young spoke understandingly of our challenge when he said:
 
-“After all that has been said and done, after he has led this people so long, do you not perceive that there is a lack of confidence in our God? Can you perceive it in yourselves? You may ask, ‘\[Brother\] Brigham, do you perceive it in yourself?’ I do, I can see that I yet lack confidence, to some extent, in him whom I trust.—Why? Because I have not the power, in consequence of that which the fall has brought upon me. …
+“After all that has been said and done, after he has led this people so long, do you not perceive that there is a lack of confidence in our God? Can you perceive it in yourselves? You may ask, ‘\[Brother\] Brigham, do you perceive it in yourself?’ I do, I can see that I yet lack confidence, to some extent, in him whom I trust.—Why? Because I have not the power, in consequence of that which the fall has brought upon me. …
 
-“… Something rises up within me, at times\[,\] that … draws a dividing line between my interest and the interest of my Father in heaven; something that makes my interest and the interest of my Father in heaven not precisely one.
+“… Something rises up within me, at times\[,\] that … draws a dividing line between my interest and the interest of my Father in heaven; something that makes my interest and the interest of my Father in heaven not precisely one.
 
-“… We should feel and understand, as far as possible, as far as fallen nature will let us, as far as we can get faith and knowledge to understand ourselves, that the interest of that God whom we serve is our interest, and that we have no other, neither in time nor in eternity” (*Deseret News,* 10 Sept. 1856, 212).
+“… We should feel and understand, as far as possible, as far as fallen nature will let us, as far as we can get faith and knowledge to understand ourselves, that the interest of that God whom we serve is our interest, and that we have no other, neither in time nor in eternity” (*Deseret News,* 10 Sept. 1856, 212).
 
 Surely we will not be one with God and Christ until we make Their will and interest our greatest desire. Such submissiveness is not reached in a day, but through the Holy Spirit, the Lord will tutor us if we are willing until, in process of time, it may accurately be said that He is in us as the Father is in Him. At times I tremble to consider what may be required, but I know that it is only in this perfect union that a fulness of joy can be found. I am grateful beyond expression that I am invited to be one with those holy beings I revere and worship as my Heavenly Father and Redeemer.
 
@@ -77,6 +77,4 @@ May God hear the Savior’s prayer and lead us all to be one with Them is my pra
 
 
 
-
-
-#Atonement #Holy_Ghost #Humility #Unity
+#Atonement #HolyGhost #Humility #Unity

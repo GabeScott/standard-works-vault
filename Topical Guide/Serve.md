@@ -1,9 +1,8 @@
 # Serve
 
+*See also* [[Minister.md|Minister]]; [[Obedience.md|Obedience]]; [[Service.md|Service]]; [[Work.md|Work]]; [[Worship.md|Worship]]
 
-*See also* [[Minister.md|Minister]]; [[Obedience, Obedient, Obey.md|Obedience]]; [[Service.md|Service]]; [[Work.md|Work]]; [[Worship.md|Worship]]
-
-thy seed shall be a stranger ... and shall *serve* them, [[Genesis 15.13|Genesis 15:13]].
+thy seed shall be a stranger … and shall *serve* them, [[Genesis 15.13|Genesis 15:13]].
 
 elder shall *serve* the younger, [[Genesis 25.23|Genesis 25:23]] ([[Romans 9.12|Romans 9:12]]).
 
@@ -17,11 +16,11 @@ ye shall *serve* God upon this mountain, [[Exodus 3.12|Exodus 3:12]].
 
 Let my son go, that he may *serve* me, [[Exodus 4.23|Exodus 4:23]].
 
-better for us to *serve* the Egyptians, than ... die, [[Exodus 14.12|Exodus 14:12]].
+better for us to *serve* the Egyptians, than … die, [[Exodus 14.12|Exodus 14:12]].
 
 Thou shalt not bow down thyself to them, nor *serve*, [[Exodus 20.5|Exodus 20:5]] ([[Deuteronomy 5.9|Deuteronomy 5:9]]).
 
-fear the Lord ... and *serve* him, [[Deuteronomy 6.13|Deuteronomy 6:13]] ([[Matthew 4.10|Matthew 4:10]]; [[Luke 4.8|Luke 4:8]]).
+fear the Lord … and *serve* him, [[Deuteronomy 6.13|Deuteronomy 6:13]] ([[Matthew 4.10|Matthew 4:10]]; [[Luke 4.8|Luke 4:8]]).
 
 neither shalt thou *serve* their gods, [[Deuteronomy 7.16|Deuteronomy 7:16]].
 
@@ -31,7 +30,7 @@ Therefore shalt thou *serve* thine enemies, [[Deuteronomy 28.48|Deuteronomy 28:4
 
 as for me and my house, we will *serve* the Lord, [[Joshua 24.15|Joshua 24:15]] ([[Alma 30.8|Alma 30:8]]; [[Moses 6.33|Moses 6:33]]).
 
-prepare your hearts ... and *serve* him only, [[1 Samuel 7.3|1 Samuel 7:3]].
+prepare your hearts … and *serve* him only, [[1 Samuel 7.3|1 Samuel 7:3]].
 
 *serve* the Lord with all your heart, [[1 Samuel 12.20|1 Samuel 12:20]].
 
@@ -47,7 +46,7 @@ join themselves to the Lord, to *serve* him, [[Isaiah 56.6|Isaiah 56:6]].
 
 kingdom that will not *serve* thee shall perish, [[Isaiah 60.12|Isaiah 60:12]].
 
-*served* strange gods ... so shall ye *serve* strangers, [[Jeremiah 5.19|Jeremiah 5:19]].
+*served* strange gods … so shall ye *serve* strangers, [[Jeremiah 5.19|Jeremiah 5:19]].
 
 go not after other gods to *serve* them, [[Jeremiah 35.15|Jeremiah 35:15]].
 
@@ -71,7 +70,7 @@ he that is chief, as he that doth *serve*, [[Luke 22.26|Luke 22:26]].
 
 If any man *serve* me, let him follow me, [[John 12.26|John 12:26]].
 
-not reason that we should ... *serve* tables, [[Acts 6.2|Acts 6:2]].
+not reason that we should … *serve* tables, [[Acts 6.2|Acts 6:2]].
 
 *Serving* the Lord with all humility, [[Acts 20.19|Acts 20:19]].
 
@@ -99,9 +98,9 @@ I, whom ye call your king, do labor to *serve* you, [[Mosiah 2.18|Mosiah 2:18]].
 
 if ye should *serve* him with all your whole souls yet ye would be unprofitable servants, [[Mosiah 2.21|Mosiah 2:21]].
 
-not suffer your children that they ... *serve* the devil, [[Mosiah 4.14|Mosiah 4:14]].
+not suffer your children that they … *serve* the devil, [[Mosiah 4.14|Mosiah 4:14]].
 
-teach them to ... *serve* one another, [[Mosiah 4.15|Mosiah 4:15]].
+teach them to … *serve* one another, [[Mosiah 4.15|Mosiah 4:15]].
 
 how knoweth a man the master whom he has not *served*, [[Mosiah 5.13|Mosiah 5:13]].
 
@@ -109,7 +108,7 @@ how knoweth a man the master whom he has not *served*, [[Mosiah 5.13|Mosiah 5:13
 
 ye have entered into a covenant with him, that ye will *serve* him, [[Mosiah 18.10|Mosiah 18:10]].
 
-baptize ... entered into a covenant to *serve* him, [[Mosiah 18.13|Mosiah 18:13]].
+baptize … entered into a covenant to *serve* him, [[Mosiah 18.13|Mosiah 18:13]].
 
 probationary time, a time to repent and *serve* God, [[Alma 42.4|Alma 42:4]].
 

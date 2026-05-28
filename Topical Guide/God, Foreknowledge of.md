@@ -1,7 +1,6 @@
 # God, Foreknowledge of
 
-
-*See also* [[Election, Elect.md|Election]]; [[God, Omniscience of.md|God, Omniscience of]]
+*See also* [[Election.md|Election]]; [[God, Omniscience of.md|God, Omniscience of]]
 
 he set the *bounds* of the people, [[Deuteronomy 32.8|Deuteronomy 32:8]].
 
@@ -11,9 +10,9 @@ Remember the *former* things of old: for I am God, [[Isaiah 46.9|Isaiah 46:9]].
 
 I have declared the *former* things from the beginning, [[Isaiah 48.3|Isaiah 48:3]] ([[1 Nephi 20.3|1 Nephi 20:3]]).
 
-Before I formed thee ... I *knew* thee, [[Jeremiah 1.5|Jeremiah 1:5]].
+Before I formed thee … I *knew* thee, [[Jeremiah 1.5|Jeremiah 1:5]].
 
-delivered by the ... *foreknowledge of God*, [[Acts 2.23|Acts 2:23]].
+delivered by the … *foreknowledge of God*, [[Acts 2.23|Acts 2:23]].
 
 hath *determined* the times before appointed, [[Acts 17.26|Acts 17:26]].
 
@@ -31,9 +30,9 @@ he *knoweth* all things, [[2 Nephi 9.20|2 Nephi 9:20]].
 
 Lord *knoweth* all things which are to come, [[Words of Mormon 1.7|Words of Mormon 1:7]].
 
-called ... according to the *foreknowledge of God*, [[Alma 13.3|Alma 13:3]].
+called … according to the *foreknowledge of God*, [[Alma 13.3|Alma 13:3]].
 
-prepared ... according to his *foreknowledge*, [[Alma 13.7|Alma 13:7]].
+prepared … according to his *foreknowledge*, [[Alma 13.7|Alma 13:7]].
 
 God *knoweth* all the times which are appointed unto man, [[Alma 40.10|Alma 40:10]].
 

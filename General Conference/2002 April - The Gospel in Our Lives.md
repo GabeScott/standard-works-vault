@@ -26,7 +26,7 @@ The Church gives us opportunities to serve the Lord and our fellowmen. If given 
 
 Throughout my life I have been blessed by my membership and participation in The Church of Jesus Christ of Latter-day Saints. It is impossible to describe all the ways the Church has blessed my life and the lives of those I love. But I will give a few examples, in the hope that this will add personal persuasion to the principles described.
 
-Attendance at church each week provides the opportunity to partake of the sacrament, as the Lord has commanded us (see [[D&C 59.9|D&C 59:9]]). If we act with the right preparation and attitude, partaking of the sacrament renews the cleansing effect of our baptism and qualifies us for the promise that we will always have His Spirit to be with us. A mission of that Spirit, the Holy Ghost, is to testify of the Father and the Son and to lead us into truth (see [[John 14.26|John 14:26]]; [[2 Nephi 31.18|2 Ne. 31:18]]). Testimony and truth, which are essential to our personal conversion, are the choice harvest of this weekly renewing of our covenants. In the day-to-day decisions of my life and in my personal spiritual growth, I have enjoyed the fulfillment of that promise.
+Attendance at church each week provides the opportunity to partake of the sacrament, as the Lord has commanded us (see [[D&C 59.9|D&C 59:9]]). If we act with the right preparation and attitude, partaking of the sacrament renews the cleansing effect of our baptism and qualifies us for the promise that we will always have His Spirit to be with us. A mission of that Spirit, the Holy Ghost, is to testify of the Father and the Son and to lead us into truth (see [[John 14.26|John 14:26]]; [[2 Nephi 31.18|2 Ne. 31:18]]). Testimony and truth, which are essential to our personal conversion, are the choice harvest of this weekly renewing of our covenants. In the day-to-day decisions of my life and in my personal spiritual growth, I have enjoyed the fulfillment of that promise.
 
 I am sorry when any Latter-day Saint does not understand the precious blessing that comes to those who keep the commandment to offer up their sacraments upon each Sabbath day. What is there in life—on the lakes or streams, in places of commercial recreation, or at home reading the Sunday paper—that can provide anything comparable to these blessings? No recreational pleasure can equal the cleansing renewal and the spiritual guidance and growth God has promised those who faithfully partake of the sacrament and honor Him each Sabbath day. I give thanks for the fulfillment of those promises in my life and affirm their availability to all.
 
@@ -65,6 +65,4 @@ What has our Savior done for us? He has given us His Atonement, His gospel, and 
 
 [^2]: Letter to the editor of the *Religio-Philosophical Journal,* 7 Jan. 1869, quoted in Jed Woodworth, “Brigham Young and the Mission of Mormonism,” *Brigham Young University Studies,* volue 40, number 2 (2001), 11.
 
-
-
-#Church_Attendance #Jesus_Christ #Obedience #Service
+#ChurchAttendance #JesusChrist #Obedience #Service

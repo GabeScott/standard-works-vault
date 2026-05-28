@@ -1,6 +1,6 @@
 # To Make a People Prepared for the Lord
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -24,11 +24,11 @@ As John the Baptist was sent prior to Christ’s birth to prepare the way for hi
 
 The Lord, in a latter-day revelation, reaffirmed the tribulations, desolations, calamities, and destructive forces of the last days. He warned:
 
-“And in that day shall be heard of wars and rumors of wars, and the whole earth shall be in commotion. …
+“And in that day shall be heard of wars and rumors of wars, and the whole earth shall be in commotion. …
 
-“And the love of men shall wax cold, and iniquity shall abound. …
+“And the love of men shall wax cold, and iniquity shall abound. …
 
-“Men standing in that generation … shall not pass until they shall see an overflowing scourge; for a desolating sickness shall cover the land. …
+“Men standing in that generation … shall not pass until they shall see an overflowing scourge; for a desolating sickness shall cover the land. …
 
 “And there shall be earthquakes … in divers places, and many desolations; yet men will harden their hearts against me, and they will take up the sword, one against another, and they will kill one another.” ([[D&C 45.26|D&C 45:26–27, 31, 33]][[D&C 45.27|]][[D&C 45.31|]][[D&C 45.33|]].)
 
@@ -92,7 +92,7 @@ Again He said: “What I the Lord have spoken, I have spoken, and I excuse not m
 
 The Lord has placed prophets, apostles, and teachers in his Church to interpret and point the way for his people in both spiritual and temporal matters. The rights, authority, and priesthood powers of these leaders stem from the Savior himself. Safety lies in following the counsel of divinely appointed leadership.
 
-We in The Church of Jesus Christ of Latter-day Saints are blessed to have a living prophet among us, President Spencer W. Kimball. I bear witness to his divine calling. He is my teacher, my leader, and my exemplar. I sustain and uphold him by my faith and prayers. I have complete and unwavering confidence in his prophetic calling and divine leadership. His character is upright, his mind alert, his counsel wise, his judgment sound, his vision clear. He has a great love for all peoples. He is their friend and is considerate of their needs.
+We in The Church of Jesus Christ of Latter-day Saints are blessed to have a living prophet among us, President Spencer W. Kimball. I bear witness to his divine calling. He is my teacher, my leader, and my exemplar. I sustain and uphold him by my faith and prayers. I have complete and unwavering confidence in his prophetic calling and divine leadership. His character is upright, his mind alert, his counsel wise, his judgment sound, his vision clear. He has a great love for all peoples. He is their friend and is considerate of their needs.
 
 We will never go wrong as a people if we follow the Lord’s prophet, who is also our prophet, and heed his teachings, counsel, and personal example.
 
@@ -104,9 +104,9 @@ The Savior gives this further knowledge of the last days:
 
 “And then shall they see the Son of man coming in a cloud with power and great glory.
 
-“And when these things begin to come to pass, then look up, and lift up your heads; for your redemption draweth nigh. …
+“And when these things begin to come to pass, then look up, and lift up your heads; for your redemption draweth nigh. …
 
-“And take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and so that day come upon you unawares. …
+“And take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and so that day come upon you unawares. …
 
 “Watch ye therefore, and pray always, that ye may be accounted worthy to escape all these things that shall come to pass, and to stand before the Son of man.” ([[Luke 21.25|Luke 21:25–28, 34, 36]][[Luke 21.26|]][[Luke 21.27|]][[Luke 21.28|]][[Luke 21.34|]][[Luke 21.36|]].)
 
@@ -115,6 +115,4 @@ Let us all, my brothers and sisters, discern prophecy’s fulfillment, set in or
 
 
 
-
-
-#Jesus_Christ #Last_Days #Prophecy
+#JesusChrist #LastDays #Prophecy

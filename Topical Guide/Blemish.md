@@ -1,13 +1,12 @@
 # Blemish
 
-
-*See also* [[Spot, Spotted.md|Spot]]
+*See also* [[Spot.md|Spot]]
 
 Your lamb shall be without *blemish*, [[Exodus 12.5|Exodus 12:5]].
 
 let him offer a male without *blemish*, [[Leviticus 1.3|Leviticus 1:3]] ([[Leviticus 22.19|Leviticus 22:19]]).
 
-to the crown ... there was no *blemish* in him, [[2 Samuel 14.25|2 Samuel 14:25]].
+to the crown … there was no *blemish* in him, [[2 Samuel 14.25|2 Samuel 14:25]].
 
 Children in whom was no *blemish*, [[Daniel 1.4|Daniel 1:4]].
 

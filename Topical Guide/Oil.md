@@ -1,7 +1,6 @@
 # Oil
 
-
-*See also* [[Anointing, Anoint.md|Anointing]]
+*See also* [[Anointing.md|Anointing]]
 
 *Oil* for the light, spices for anointing *oil*, [[Exodus 25.6|Exodus 25:6]].
 
@@ -11,7 +10,7 @@ thou shalt make it an *oil* of holy ointment, [[Exodus 30.25|Exodus 30:25]] ([[E
 
 with the *oil* for the light, [[Exodus 35.14|Exodus 35:14]].
 
-priest shall put of the *oil* ... upon the tip of the right ear, [[Leviticus 14.28|Leviticus 14:28]].
+priest shall put of the *oil* … upon the tip of the right ear, [[Leviticus 14.28|Leviticus 14:28]].
 
 Samuel took a vial of *oil*, and poured it, [[1 Samuel 10.1|1 Samuel 10:1]].
 
@@ -37,4 +36,4 @@ pray over him, anointing him with *oil*, [[James 5.14|James 5:14]].
 
 see thou hurt not the *oil* and the wine, [[Revelation 6.6|Revelation 6:6]].
 
-having your lamps trimmed ... and *oil* with you, [[D&C 33.17|D&C 33:17]].
+having your lamps trimmed … and *oil* with you, [[D&C 33.17|D&C 33:17]].

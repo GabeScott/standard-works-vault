@@ -1,7 +1,6 @@
 # Precious
 
-
-Blessed ... for the *precious* things of heaven, [[Deuteronomy 33.13|Deuteronomy 33:13]].
+Blessed … for the *precious* things of heaven, [[Deuteronomy 33.13|Deuteronomy 33:13]].
 
 word of the Lord was *precious* in those days, [[1 Samuel 3.1|1 Samuel 3:1]].
 
@@ -9,7 +8,7 @@ She is more *precious* than rubies, [[Proverbs 3.15|Proverbs 3:15]].
 
 I will make a man more *precious* than fine gold, [[Isaiah 13.12|Isaiah 13:12]] ([[2 Nephi 23.12|2 Nephi 23:12]]).
 
-I lay in Zion ... a *precious* corner stone, [[Isaiah 28.16|Isaiah 28:16]] ([[1 Peter 2.6|1 Peter 2:6]]).
+I lay in Zion … a *precious* corner stone, [[Isaiah 28.16|Isaiah 28:16]] ([[1 Peter 2.6|1 Peter 2:6]]).
 
 Since thou wast *precious* in my sight, [[Isaiah 43.4|Isaiah 43:4]].
 
@@ -23,11 +22,11 @@ chosen of God, and *precious*, [[1 Peter 2.4|1 Peter 2:4]].
 
 tree which is *precious* above all, [[1 Nephi 11.9|1 Nephi 11:9]].
 
-taken away from the gospel ... many parts which are ... most *precious*, [[1 Nephi 13.26|1 Nephi 13:26]].
+taken away from the gospel … many parts which are … most *precious*, [[1 Nephi 13.26|1 Nephi 13:26]].
 
 tree of life, whose fruit is most *precious*, [[1 Nephi 15.36|1 Nephi 15:36]] ([[Alma 32.42|Alma 32:42]]).
 
-brought ... into this *precious* land of promise, [[2 Nephi 1.10|2 Nephi 1:10]].
+brought … into this *precious* land of promise, [[2 Nephi 1.10|2 Nephi 1:10]].
 
 save it were not built of so many *precious* things, [[2 Nephi 5.16|2 Nephi 5:16]].
 
@@ -39,4 +38,4 @@ their souls are *precious*, [[Alma 31.35|Alma 31:35]] ([[D&C 109.43|D&C 109:43]]
 
 depriving them of that which was most dear and *precious*, [[Moroni 9.9|Moroni 9:9]].
 
-tree ... that yieldeth much *precious* fruit, [[D&C 97.9|D&C 97:9]].
+tree … that yieldeth much *precious* fruit, [[D&C 97.9|D&C 97:9]].

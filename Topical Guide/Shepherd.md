@@ -1,6 +1,5 @@
 # Shepherd
 
-
 *See also* [[Flock.md|Flock]]; [[Jesus Christ, Good Shepherd.md|Jesus Christ, Good Shepherd]]; [[Pastor.md|Pastor]]; [[Sheep.md|Sheep]]
 
 Thy servants are *shepherds*, [[Genesis 47.3|Genesis 47:3]].
@@ -45,7 +44,7 @@ one fold, and one *shepherd*, [[John 10.16|John 10:16]] ([[1 Nephi 22.25|1 Nephi
 
 Lord Jesus, that great *shepherd*, [[Hebrews 13.20|Hebrews 13:20]].
 
-ye ... returned unto the *Shepherd* and Bishop of your souls, [[1 Peter 2.25|1 Peter 2:25]].
+ye … returned unto the *Shepherd* and Bishop of your souls, [[1 Peter 2.25|1 Peter 2:25]].
 
 chief *Shepherd* shall appear, [[1 Peter 5.4|1 Peter 5:4]].
 
@@ -53,12 +52,10 @@ one God and one *Shepherd* over all the earth, [[1 Nephi 13.41|1 Nephi 13:41]].
 
 wild flock which fleeth from the *shepherd*, [[Mosiah 8.21|Mosiah 8:21]].
 
-*shepherd* hath called after you, [[Alma 5.37|Alma 5:37]] ([[Alma 5.37|Alma 5:37]], [[Alma 5.38|Alma 5:38]], [[Alma 5.39|Alma 5:39]], [[Alma 5.40|Alma 5:40]], [[Alma 5.41|Alma 5:41]], [[Alma 5.42|Alma 5:42]][[Alma 5.55|Alma 5:55]], [[Alma 5.56|Alma 5:56]], [[Alma 5.57|Alma 5:57]], [[Alma 5.58|Alma 5:58]], [[Alma 5.59|Alma 5:59]], [[Alma 5.60|Alma 5:60]]).
+*shepherd* hath called after you, [[Alma 5.37|Alma 5:37]].
 
 not hearken unto the voice of the good *shepherd*, [[Helaman 7.18|Helaman 7:18]].
 
 Redeemer, and their great and true *shepherd*, [[Helaman 15.13|Helaman 15:13]].
 
 they had Christ for their *shepherd*, [[Mormon 5.17|Mormon 5:17]].
-
-*See also* [[Jeremiah 10.21|Jeremiah 10:21]].

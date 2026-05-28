@@ -1,8 +1,8 @@
 # With the Power of God in Great Glory
 
-([[1 Nephi 14.14|1 Nephi 14:14]])
+([[1 Nephi 14.14|1 Nephi 14:14]])
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -14,7 +14,7 @@ I pray that the Holy Ghost will enlighten and edify all of us as we consider tog
 
 ## Moroni’s First Visit to Joseph Smith
 
-Approximately three years after the First Vision, on the night of September 21, 1823, young Joseph Smith was praying to receive a remission of his sins and to know of his state and standing before God.[^1] A personage appeared at his bedside, called Joseph by name, and declared “he was a messenger sent from the presence of God … and that his name was Moroni.” He explained “that God had a work for \[Joseph\] to do”[^2] and then instructed him about the coming forth of the Book of Mormon. Significantly, the Book of Mormon was one of the first topics addressed in Moroni’s message.
+Approximately three years after the First Vision, on the night of September 21, 1823, young Joseph Smith was praying to receive a remission of his sins and to know of his state and standing before God.[^1] A personage appeared at his bedside, called Joseph by name, and declared “he was a messenger sent from the presence of God … and that his name was Moroni.” He explained “that God had a work for \[Joseph\] to do”[^2] and then instructed him about the coming forth of the Book of Mormon. Significantly, the Book of Mormon was one of the first topics addressed in Moroni’s message.
 
 The Book of Mormon is another testament of Jesus Christ and the great tool of conversion in the latter days. Our purpose in sharing the gospel is to invite all to come unto Jesus Christ,[^3] receive the blessings of the restored gospel, and endure to the end through faith in the Savior.[^4] Helping individuals to experience the mighty change of heart[^5] and bind themselves to the Lord through sacred covenants and ordinances are the fundamental objectives of preaching the gospel.
 
@@ -24,7 +24,7 @@ Continuing his instruction to Joseph, Moroni next quoted from the book of Malach
 
 “Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet, before the coming of the great and dreadful day of the Lord.
 
-“… And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.”[^6]
+“… And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.”[^6]
 
 Our purpose in building temples is to make available the holy places wherein the sacred covenants and ordinances necessary for the salvation and exaltation of the human family can be administered, for both the living and the dead. Moroni’s instruction to Joseph Smith about the vital role of Elijah and priesthood authority expanded the work of salvation and exaltation on *this side of the veil* and initiated in our dispensation the work for the dead on *the other side of the veil*.
 
@@ -32,9 +32,9 @@ In summary, Moroni’s teachings in September of 1823 about the Book of Mormon a
 
 ## Teachings of the Prophet Joseph Smith
 
-The lessons Joseph Smith learned from Moroni influenced every aspect of his ministry. For example, at a solemn assembly held in the Kirtland Temple on April 6, 1837, the Prophet declared, “After all that has been said, the greatest and most important duty is to preach the Gospel.”[^7]
+The lessons Joseph Smith learned from Moroni influenced every aspect of his ministry. For example, at a solemn assembly held in the Kirtland Temple on April 6, 1837, the Prophet declared, “After all that has been said, the greatest and most important duty is to preach the Gospel.”[^7]
 
-Almost precisely seven years later, on April 7, 1844, Joseph Smith delivered a sermon known today as the King Follett Discourse. He declared in that address, “The greatest responsibility in this world that God has laid upon us is to seek after our dead.”[^8]
+Almost precisely seven years later, on April 7, 1844, Joseph Smith delivered a sermon known today as the King Follett Discourse. He declared in that address, “The greatest responsibility in this world that God has laid upon us is to seek after our dead.”[^8]
 
 But how can preaching the gospel and seeking after our dead both be the single greatest duty and responsibility God has placed upon us? I believe the Prophet Joseph Smith was emphasizing in both statements the fundamental truth that covenants, entered into through authoritative priesthood ordinances, can bind us to the Lord Jesus Christ and are the essential core of the work of salvation and exaltation on both sides of the veil.
 
@@ -85,32 +85,30 @@ Covenant promises and blessings are possible only because of our Savior, Jesus C
 
 [^3]: See [[Moroni 10.30|Moroni 10:30–33]][[Moroni 10.31|]][[Moroni 10.32|]][[Moroni 10.33|]].
 
-[^4]: See *Preach My Gospel: A Guide to Missionary Service* (2019), 1.
+[^4]: See *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng)* (2019), 1.
 
 [^5]: See [[Alma 5.12|Alma 5:12–14]][[Alma 5.13|]][[Alma 5.14|]].
 
 [^6]: [[Joseph Smith History 1.38|Joseph Smith—History 1:38–39]][[Joseph Smith History 1.39|]].
 
-[^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 330; see also Joseph Smith discourse, 6 April 1837, in “Anniversary of the Church of Latter Day Saints,” *Latter Day Saints’ Messenger and Advocate* 3, no. 7 (April 1837), 487, josephsmithpapers.org/paper-summary/discourse-6-april-1837/1.
+[^7]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-28?lang=eng)* (2007), 330; see also Joseph Smith discourse, 6 April 1837, in “Anniversary of the Church of Latter Day Saints,” *Latter Day Saints’ Messenger and Advocate* 3, no. 7 (April 1837), 487, josephsmithpapers.org/paper-summary/discourse-6-april-1837/1.
 
-[^8]: *Teachings: Joseph Smith*, 475; see also Joseph Smith discourse, 7 April 1844, in “Conference Minutes,” *Times and Seasons* 5, no. 15 (August 15, 1844), 616, josephsmithpapers.org/paper-summary/minutes-and-discourses-6-7-april-1844-as-published-by-times-and-seasons/14.
+[^8]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-41?lang=eng)*, 475; see also Joseph Smith discourse, 7 April 1844, in “Conference Minutes,” *Times and Seasons* 5, no. 15 (August 15, 1844), 616, josephsmithpapers.org/paper-summary/minutes-and-discourses-6-7-april-1844-as-published-by-times-and-seasons/14.
 
 [^9]: [[Matthew 11.29|Matthew 11:29–30]][[Matthew 11.30|]].
 
-[^10]: [[1 Nephi 14.12|1 Nephi 14:12]].
+[^10]: [[1 Nephi 14.12|1 Nephi 14:12]].
 
-[^11]: [[1 Nephi 14.14|1 Nephi 14:14]]; emphasis added.
+[^11]: [[1 Nephi 14.14|1 Nephi 14:14]]; emphasis added.
 
 [^12]: [[Ephesians 2.19|Ephesians 2:19]].
 
 [^13]: See [[D&C 6.36|Doctrine and Covenants 6:36]].
 
-[^14]: See [[3 Nephi 12.20|3 Nephi 12:20]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
+[^14]: See [[3 Nephi 12.20|3 Nephi 12:20]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
 [^15]: See [[Matthew 11.29|Matthew 11:29]]; [[D&C 19.23|Doctrine and Covenants 19:23]].
 
 [^16]: See [[D&C 43.9|Doctrine and Covenants 43:9]]; [[D&C 82.10|82:10]].
 
-
-
-#Book_Of_Mormon #Covenants #Jesus_Christ #Joseph_Smith #Ordinances
+#BookOfMormon #Covenants #JosephSmith #JesusChrist #Ordinances

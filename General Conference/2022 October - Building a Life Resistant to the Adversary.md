@@ -1,6 +1,6 @@
 # Building a Life Resistant to the Adversary
 
-By Elder Jorge F. Zeballos - *Of the Seventy*
+By Elder Jorge F. Zeballos - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -55,9 +55,9 @@ I pray that we may continue to build our lives following the plans and technical
 
 
 
-[^1]: See Dieter F. Uchtdorf, “[[2008 April - A Matter of a Few Degrees.md|A Matter of a Few Degrees]],” *Ensign* or *Liahona*, May 2008, 57–60.
+[^1]: See Dieter F. Uchtdorf, “[[2008 April - A Matter of a Few Degrees.md|A Matter of a Few Degrees]],” *Ensign* or *Liahona*, May 2008, 57–60.
 
-[^2]: See Dale G. Renlund, “[[2009 October - Preserving the Heart’s Mighty Change.md|Preserving the Heart’s Mighty Change]],” *Ensign* or *Liahona*, Nov. 2009, 97–99.
+[^2]: See Dale G. Renlund, “[[2009 October - Preserving the Heart’s Mighty Change.md|Preserving the Heart’s Mighty Change]],” *Ensign* or *Liahona*, Nov. 2009, 97–99.
 
 [^3]: Joseph Smith Translation, Matthew 4:2 (in [[Matthew 4.2|Matthew 4:2]], footnote *c*).
 
@@ -67,13 +67,14 @@ I pray that we may continue to build our lives following the plans and technical
 
 [^6]: [[Matthew 4.10|Matthew 4:10]].
 
-[^7]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+[^7]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
-[^8]: [[1 Nephi 1.1|1 Nephi 1:1]].
+[^8]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
 [^9]: [[Alma 13.28|Alma 13:28]].
 
 [^10]: [[Alma 26.27|Alma 26:27]].
 
+[^11]: [[D&C 61.36|Doctrine and Covenants 61:36]].
 
 #Adversity #Joy #Preparation #Satan #Temptation

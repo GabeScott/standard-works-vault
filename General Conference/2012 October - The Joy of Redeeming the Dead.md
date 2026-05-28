@@ -1,6 +1,6 @@
 # The Joy of Redeeming the Dead
 
-By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -22,11 +22,11 @@ Through further revelation to Joseph Smith and subsequent prophets, there has co
 
 Temple and family history work is one work divided into two parts. They are connected together like the ordinances of baptism and the gift of the Holy Ghost. Some members may not be able to do both works because of health or distances to temples.
 
-President Howard W. Hunter taught:
+President Howard W. Hunter taught:
 
 “We must accomplish the priesthood temple ordinance work necessary for our own exaltation; then we must do the necessary work for those who did not have the opportunity to accept the gospel in life. Doing work for others is accomplished in two steps: first, by family history research to ascertain our progenitors; and second, by performing the temple ordinances to give them the same opportunities afforded to the living.
 
-“Yet there are many members of the Church who have only limited access to the temples. They do the best they can. They pursue family history research and have the temple ordinance work done by others. Conversely, there are some members who engage in temple work but fail to do family history research on their own family lines. Although they perform a divine service in assisting others, they lose a blessing by not seeking their own kindred dead as divinely directed by latter-day prophets. …
+“Yet there are many members of the Church who have only limited access to the temples. They do the best they can. They pursue family history research and have the temple ordinance work done by others. Conversely, there are some members who engage in temple work but fail to do family history research on their own family lines. Although they perform a divine service in assisting others, they lose a blessing by not seeking their own kindred dead as divinely directed by latter-day prophets. …
 
 “I have learned that those who engage in family history research and then perform the temple ordinance work for those whose names they have found will know the additional joy of receiving both halves of the blessing.”[^6]
 
@@ -46,7 +46,7 @@ Sister Blevins was baptized as a teenager and has been the only member of her fa
 
 My beloved wife, Jeanene, loved doing family history research. When our children were young, she would trade babysitting time with friends so she could have a few hours every few weeks to work on researching our family lines. After our youngest child left home, she recorded in her personal journal: “I have just made a decision and I want to stand up and shout about it. Mike’s old bedroom has become my genealogy workroom. It is well equipped to organize the records and work in. My life will now focus on vital family research and temple name submissions. I am so excited and anxious to get going.”[^8]
 
-Another journal entry reads: “The … miracle for me occurred in the Family History office of Mel Olsen, who presented me with a printout of all my known ancestral pedigrees taken from the update of the Ancestral File computerized records sent into the genealogical society. They came mostly from the records of the four-generation program the Church called for many years ago. I had been overwhelmed with the thought of the huge task ahead of me to gather all my ancestors’ research records from family organizations to get them all in the computer for the first computerized distribution of the Ancestral File. And there they all were, beautiful, organized, and laser printed and sitting there on the desk before me. I was so thrilled and so overwhelmed I just sat there stunned and then began to cry, I was so happy. … For one who has doggedly, painstakingly researched for thirty years, the computerization of all these records is truly exciting. And when I think of the hundreds of thousands of people who are now or soon will be computerizing huge blocks of censuses and private research disks, … I am so excited. It is truly the Lord’s work and He is directing it.”[^9]
+Another journal entry reads: “The … miracle for me occurred in the Family History office of Mel Olsen, who presented me with a printout of all my known ancestral pedigrees taken from the update of the Ancestral File computerized records sent into the genealogical society. They came mostly from the records of the four-generation program the Church called for many years ago. I had been overwhelmed with the thought of the huge task ahead of me to gather all my ancestors’ research records from family organizations to get them all in the computer for the first computerized distribution of the Ancestral File. And there they all were, beautiful, organized, and laser printed and sitting there on the desk before me. I was so thrilled and so overwhelmed I just sat there stunned and then began to cry, I was so happy. … For one who has doggedly, painstakingly researched for thirty years, the computerization of all these records is truly exciting. And when I think of the hundreds of thousands of people who are now or soon will be computerizing huge blocks of censuses and private research disks, … I am so excited. It is truly the Lord’s work and He is directing it.”[^9]
 
 I have tasted enough of the fruits of this sublime work to know that the keys Elijah restored to Joseph Smith permit our hearts to be bound and each of us linked to those of our ancestors who are waiting for our help. Through our efforts in holy temples here on earth using the authority delegated by the Savior, our progenitors receive the saving ordinances that allow them to enjoy eternal happiness.
 
@@ -71,7 +71,7 @@ This work is a spiritual work, a monumental effort of cooperation on both sides 
 
 [^5]: [[D&C 2.2|Doctrine and Covenants 2:2]]; emphasis added.
 
-[^6]: Howard W. Hunter, “A Temple-Motivated People,” *Liahona,* May 1995, 5–6; *Ensign,* Feb. 1995, 4–5.
+[^6]: Howard W. Hunter, “A Temple-Motivated People,” *Liahona,* May 1995, 5–6; *Ensign,* Feb. 1995, 4–5.
 
 [^7]: First Presidency letter, Feb. 29, 2012; emphasis added.
 
@@ -79,6 +79,4 @@ This work is a spiritual work, a monumental effort of cooperation on both sides 
 
 [^9]: Jeanene Watkins Scott, personal journal, Sept. 23, 1989.
 
-
-
-#Family_History #Temple_Work
+#FamilyHistory #TempleWork

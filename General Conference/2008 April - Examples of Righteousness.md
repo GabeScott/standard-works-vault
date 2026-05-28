@@ -28,9 +28,9 @@ Brethren of the Melchizedek Priesthood, do you strive diligently each day to liv
 
 If any of you has slipped along the way, there are those who will help you to once again become clean and worthy. Your bishop or branch president is anxious and willing to help and will, with understanding and compassion, do all within his power to assist you in the repentance process, that you may once again stand in righteousness before the Lord.
 
-Many of you will remember President N. Eldon Tanner, who served as a counselor to four Presidents of the Church. He provided an undeviating example of righteousness throughout a career in industry, during service in the government in Canada, and consistently in his private life. He gave us this inspired counsel:
+Many of you will remember President N. Eldon Tanner, who served as a counselor to four Presidents of the Church. He provided an undeviating example of righteousness throughout a career in industry, during service in the government in Canada, and consistently in his private life. He gave us this inspired counsel:
 
-“Nothing will bring greater joy and success than to live according to the teachings of the gospel. Be an example; be an influence for good. …
+“Nothing will bring greater joy and success than to live according to the teachings of the gospel. Be an example; be an influence for good. …
 
 “Every one of us has been foreordained for some work as \[God’s\] chosen servant on whom he has seen fit to confer the priesthood and power to act in his name. Always remember that people are looking to you for leadership and you are influencing the lives of individuals either for good or for bad, which influence will be felt for generations to come.”[^1]
 
@@ -67,14 +67,12 @@ My brethren, as we now leave this general priesthood meeting, let us all determi
 
 
 
-[^1]: N. Eldon Tanner, in Conference Report, Oct. 1975, 112; or *Ensign,* Nov. 1975, 74.
+[^1]: N. Eldon Tanner, in Conference Report, Oct. 1975, [[1975 October - For They Loved the Praise of Men More Than the Praise of God.md|112]]; or *Ensign,* Nov. 1975, 74.
 
 [^2]: Brigham Young, *Deseret News,* June 21, 1871, 235.
 
 [^3]: [[Luke 2.40|Luke 2:40]].
 
-[^4]: [[1 Peter 2.9|1 Peter 2:9]].
-
-
+[^4]: [[1 Peter 2.9|1 Peter 2:9]].
 
 #Courage #Example #Priesthood #Service

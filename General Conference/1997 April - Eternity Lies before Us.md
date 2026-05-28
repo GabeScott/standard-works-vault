@@ -97,12 +97,10 @@ This I humbly pray in the name of the Lord Jesus Christ, amen.
 
 [^9]: As quoted by Wilford Woodruff, in Conference Report, Apr. 1898, 57.
 
-[^10]: [[1 Corinthians 15.19|1 Cor. 15:19]].
+[^10]: [[1 Corinthians 15.19|1 Cor. 15:19]].
 
 [^11]: [[Acts 10.34|Acts 10:34]].
 
 [^12]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 356.
 
-
-
-#Covenants #Death #Family #Jesus_Christ #Joseph_Smith #Parenthood #Pioneers #Plan_Of_Salvation #Resurrection #Spirituality #Temples
+#Covenants #Death #Family #JosephSmith #JesusChrist #Parenthood #Pioneers #PlanOfSalvation #Resurrection #Spirituality #Temples

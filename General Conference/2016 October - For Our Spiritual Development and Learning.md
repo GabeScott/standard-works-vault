@@ -1,6 +1,6 @@
 # For Our Spiritual Development and Learning
 
-By Elder W. Mark Bassett - *Of the Seventy*
+By Elder W. Mark Bassett - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -42,13 +42,13 @@ Jacob continues:
 
 In order to understand the mysteries of God, or those things that can be understood only through revelation, we must follow the example of Nephi, who said, “Being exceedingly young, nevertheless being large in stature, and also having great desires to know of the mysteries of God, wherefore, I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father.”[^6] The Lord Himself further explained that Nephi had exercised faith, sought diligently with lowliness of heart, and kept His commandments.[^7]
 
-Nephi’s example of seeking knowledge included (1) a sincere desire, (2) humility, (3) prayer, (4) trust in the prophet, and an exercise of (5) faith, (6) diligence, and (7) obedience. This method of seeking is in great contrast to my “prying at the plates,” or trying to force an understanding of things meant to be revealed according to the Lord’s timetable and through the power of the Holy Ghost.
+Nephi’s example of seeking knowledge included (1) a sincere desire, (2) humility, (3) prayer, (4) trust in the prophet, and an exercise of (5) faith, (6) diligence, and (7) obedience. This method of seeking is in great contrast to my “prying at the plates,” or trying to force an understanding of things meant to be revealed according to the Lord’s timetable and through the power of the Holy Ghost.
 
 In this modern age, we have come to expect that knowledge can and should be obtained immediately; when information is not easily known or accessible, it is often dismissed or mistrusted. Because of the abundance of information, some unwittingly give more credibility to available sources with an unknown origin rather than relying on the Lord’s established pattern for receiving personal revelation. Jacob could have been describing our time when he said: “But behold, \[they\] were a stiffnecked people; and they despised the words of plainness … and sought for things that they could not understand. Wherefore, because of their blindness, which blindness came by looking beyond the mark, they must needs fall; for God hath taken away his plainness from them, and delivered unto them many things which they cannot understand, because they desired it.”[^8]
 
-In contrast is President Dieter F. Uchtdorf’s counsel. He spoke of missionaries, but his words are equally applicable to all seekers of spiritual truth. “When … missionaries have faith in Jesus Christ,” he said, “they will trust the Lord enough to follow His commandments—even when they do not completely understand the reasons for them. Their faith will be manifest through diligence and through work.”[^9]
+In contrast is President Dieter F. Uchtdorf’s counsel. He spoke of missionaries, but his words are equally applicable to all seekers of spiritual truth. “When … missionaries have faith in Jesus Christ,” he said, “they will trust the Lord enough to follow His commandments—even when they do not completely understand the reasons for them. Their faith will be manifest through diligence and through work.”[^9]
 
-During last April’s general conference, Elder Dallin H. Oaks explained: “The Church is making great efforts to be transparent with the records we have, but after all we can publish, our members are sometimes left with basic questions that cannot be resolved by study. … Some things can be learned only by faith.”[^10]
+During last April’s general conference, Elder Dallin H. Oaks explained: “The Church is making great efforts to be transparent with the records we have, but after all we can publish, our members are sometimes left with basic questions that cannot be resolved by study. … Some things can be learned only by faith.”[^10]
 
 Ancient prophets taught this same principle, demonstrating that over time human nature has not changed and that the Lord’s pattern for learning is timeless. Consider this Old Testament proverb: “Trust in the Lord with all thine heart; and lean not unto thine own understanding.”[^11]
 
@@ -64,46 +64,46 @@ Even with Nephi’s great faith, he acknowledged his limited understanding when 
 
 Similarly, Alma expressed to his son Helaman, “Now these mysteries are not yet fully made known unto me; therefore I shall forbear.”[^16]
 
-I express my witness that our Father in Heaven loves His children, and yet, like Nephi and Alma, I do not know the meaning of all things. Nor do I need to know all things; I *too* shall forbear and wait patiently upon the Lord, knowing “I have all things as a testimony that these things are true; and ye also have all things as a testimony unto you that they are true. …
+I express my witness that our Father in Heaven loves His children, and yet, like Nephi and Alma, I do not know the meaning of all things. Nor do I need to know all things; I *too* shall forbear and wait patiently upon the Lord, knowing “I have all things as a testimony that these things are true; and ye also have all things as a testimony unto you that they are true. …
 
-“… The scriptures are laid before thee, yea, and all things denote there is a God; yea, even the earth, and all things that are upon the face of it, yea, and its motion, yea, and also all the planets which move in their regular form do witness that there is a Supreme Creator.”[^17]
+“… The scriptures are laid before thee, yea, and all things denote there is a God; yea, even the earth, and all things that are upon the face of it, yea, and its motion, yea, and also all the planets which move in their regular form do witness that there is a Supreme Creator.”[^17]
 
 As we acknowledge that we are the workmanship of a wise and devoted Father in Heaven, “O then,” why not allow Him to guide our spiritual development and learning “according to his will and pleasure” rather than our own?[^18]
 
-He lives. Jesus Christ is His Only Begotten Son and the Redeemer of mankind. Because of Christ’s infinite Atonement, He has the wisdom and foresight to guide us in these latter days. Joseph Smith is His prophet, chosen to restore His kingdom on earth to its fulness. Thomas S. Monson is His living prophet and spokesman today. Of this I bear my sincere witness in the name of Jesus Christ, amen.
+He lives. Jesus Christ is His Only Begotten Son and the Redeemer of mankind. Because of Christ’s infinite Atonement, He has the wisdom and foresight to guide us in these latter days. Joseph Smith is His prophet, chosen to restore His kingdom on earth to its fulness. Thomas S. Monson is His living prophet and spokesman today. Of this I bear my sincere witness in the name of Jesus Christ, amen.
 
 
 
 
 [^1]: See “The Golden Plates,” *Children’s Songbook,* 86.
 
-[^2]: [[2 Nephi 4.15|2 Nephi 4:15–16]][[2 Nephi 4.16|]].
+[^2]: [[2 Nephi 4.15|2 Nephi 4:15–16]][[2 Nephi 4.16|]].
 
 [^3]: [[Jacob 4.8|Jacob 4:8]].
 
-[^4]: See [[1 Nephi 10.19|1 Nephi 10:19]].
+[^4]: See [[1 Nephi 10.19|1 Nephi 10:19]].
 
 [^5]: [[Jacob 4.8|Jacob 4:8–10]][[Jacob 4.9|]][[Jacob 4.10|]].
 
-[^6]: [[1 Nephi 2.16|1 Nephi 2:16]].
+[^6]: [[1 Nephi 2.16|1 Nephi 2:16]].
 
-[^7]: See [[1 Nephi 2.19|1 Nephi 2:19–20]][[1 Nephi 2.20|]].
+[^7]: See [[1 Nephi 2.19|1 Nephi 2:19–20]][[1 Nephi 2.20|]].
 
 [^8]: [[Jacob 4.14|Jacob 4:14]].
 
-[^9]: Dieter F. Uchtdorf, “The Lord’s Work” (address given at the seminar for new mission presidents, June 25, 2016), 6.
+[^9]: Dieter F. Uchtdorf, “The Lord’s Work” (address given at the seminar for new mission presidents, June 25, 2016), 6.
 
-[^10]: Dallin H. Oaks, “[[2016 April - Opposition in All Things.md|Opposition in All Things]],” *Ensign* or *Liahona,* May 2016, 117.
+[^10]: Dallin H. Oaks, “[[2016 April - Opposition in All Things.md|Opposition in All Things]],” *Ensign* or *Liahona,* May 2016, 117.
 
 [^11]: [[Proverbs 3.5|Proverbs 3:5]].
 
 [^12]: [[Isaiah 55.9|Isaiah 55:9]].
 
-[^13]: [[2 Nephi 4.34|2 Nephi 4:34]].
+[^13]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
 [^14]: [[Alma 32.21|Alma 32:21]].
 
-[^15]: [[1 Nephi 11.16|1 Nephi 11:16–17]][[1 Nephi 11.17|]]; emphasis added.
+[^15]: [[1 Nephi 11.16|1 Nephi 11:16–17]][[1 Nephi 11.17|]]; emphasis added.
 
 [^16]: [[Alma 37.11|Alma 37:11]].
 
@@ -111,6 +111,4 @@ He lives. Jesus Christ is His Only Begotten Son and the Redeemer of mankind. Bec
 
 [^18]: [[Jacob 4.9|Jacob 4:9]].
 
-
-
-#Book_Of_Mormon #Faith #Scriptures #Trust
+#BookOfMormon #Faith #Scriptures #Trust

@@ -1,6 +1,6 @@
 # The Joyful Burden of Discipleship
 
-By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
+By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -12,7 +12,7 @@ On May 20 of last year a massive tornado pummeled the suburbs of Oklahoma City, 
 
 Just a week after the massive storm struck, I was assigned to visit the area where homes and belongings were strewn across the flattened, ravaged neighborhoods.
 
-Before I left, I spoke with our beloved prophet, President Thomas S. Monson, who relishes such errands for the Lord. With respect borne not only of his office but also of his goodness, I asked, “What do you want me to do? What do you want me to say?”
+Before I left, I spoke with our beloved prophet, President Thomas S. Monson, who relishes such errands for the Lord. With respect borne not only of his office but also of his goodness, I asked, “What do you want me to do? What do you want me to say?”
 
 He tenderly took my hand, as he would have done with each one of the victims and each of those helping with the devastation had he been there, and said:
 
@@ -24,7 +24,7 @@ He tenderly took my hand, as he would have done with each one of the victims and
 
 As a member of the Presidency of the Seventy, I could feel the weight on my shoulders in the words the Lord spoke unto Moses:
 
-“Gather unto me seventy men of the elders of Israel, whom thou knowest to be the elders of the people, and officers over them; …
+“Gather unto me seventy men of the elders of Israel, whom thou knowest to be the elders of the people, and officers over them; …
 
 “And I will come down and talk with thee there: and I will take of the spirit which is upon thee \[Moses\], and will put it upon them; and they shall bear the burden of the people with thee, that thou bear it not thyself alone.”[^1]
 
@@ -40,7 +40,7 @@ President Monson has said:
 
 “We are surrounded by those in need of our attention, our encouragement, our support, our comfort, our kindness—be they family members, friends, acquaintances, or strangers. We are the Lord’s hands here upon the earth, with the mandate to serve and to lift His children. He is dependent upon each of us. …
 
-“‘… Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me’ \[[[Matthew 25.40|Matthew 25:40]]\].”[^2]
+“‘… Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me’ \[[[Matthew 25.40|Matthew 25:40]]\].”[^2]
 
 Will we respond with love when an opportunity is before us to make a visit or a phone call, write a note, or spend a day meeting the needs of someone else? Or will we be like the young man who attested to following all of God’s commandments:
 
@@ -80,7 +80,7 @@ King Benjamin taught in the Book of Mormon, “When ye are in the service of you
 
 Focusing on serving our brothers and sisters can guide us to make divine decisions in our daily lives and prepares us to value and love what the Lord loves. In so doing, we witness by our very lives that we are His disciples. When we are engaged in His work, we feel His Spirit with us. We grow in testimony, faith, trust, and love.
 
-I know that my Redeemer lives, even Jesus Christ, and that He speaks to and through His prophet, dear President Thomas S. Monson, in this, our day.
+I know that my Redeemer lives, even Jesus Christ, and that He speaks to and through His prophet, dear President Thomas S. Monson, in this, our day.
 
 May we all find the joy that comes from the sacred service of bearing one another’s burdens, even those simple and small, is my prayer in the name of Jesus Christ, amen.
 
@@ -89,7 +89,7 @@ May we all find the joy that comes from the sacred service of bearing one anothe
 
 [^1]: [[Numbers 11.16|Numbers 11:16–17]][[Numbers 11.17|]].
 
-[^2]: Thomas S. Monson, “What Have I Done for Someone Today?” *Ensign* or *Liahona,* Nov. 2009, 86, 87.
+[^2]: Thomas S. Monson, “What Have I Done for Someone Today?” *Ensign* or *Liahona,* Nov. 2009, 86, 87.
 
 [^3]: [[Matthew 19.20|Matthew 19:20–21]][[Matthew 19.21|]].
 
@@ -97,7 +97,7 @@ May we all find the joy that comes from the sacred service of bearing one anothe
 
 [^5]: [[Matthew 19.21|Matthew 19:21]].
 
-[^6]: Experience of Victoria (Tori) Sorrels, recounted Jan. 16, 2014.
+[^6]: Experience of Victoria (Tori) Sorrels, recounted Jan. 16, 2014.
 
 [^7]: [[D&C 84.88|Doctrine and Covenants 84:88]].
 
@@ -107,5 +107,6 @@ May we all find the joy that comes from the sacred service of bearing one anothe
 
 [^10]: [[D&C 81.5|Doctrine and Covenants 81:5]].
 
+[^11]: [[Mosiah 2.17|Mosiah 2:17]].
 
 #Adversity #Discipleship #Service

@@ -1,6 +1,6 @@
 # Hands
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -49,31 +49,31 @@ Not to be overlooked is the hand of a father. Whether he be a skilled surgeon, a
 
 During the period of the great depression I was a small boy. Fortunate were those men who had work. Jobs were few, hours long, pay scant. On our street was a father who, though old in years, supported with the labor of his hands his rather large family of girls. His firm was known as the Spring Canyon Coal Company. It consisted of one old truck, a pile of coal, one shovel, one man, and his own two hands. From early morning to late evening he struggled to survive. Yet during the monthly fast and testimony meeting, I specifically remember him expressing his thanks to the Lord for his family, for his work, and for his testimony. The fingers of those rough, red, chapped hands turned white as they gripped the back of the bench on which I sat as Brother James Farrell bore witness of a boy, even Joseph Smith, who, in a grove of trees near Palmyra, New York, knelt in prayer and beheld the heavenly vision of God the Father and Jesus Christ the Son. The memory of those hands of a father serve to remind me of his abiding faith, his honest conviction, and his testimony of truth. Honored are the hands of a father.
 
-On Friday morning in this historic tabernacle, and in the homes of Church members viewing or listening to the conference session, hands were raised to sustain a prophet, a seer, and a revelator—even the President of The Church of Jesus Christ of Latter-day Saints. Our upraised hands were an outward expression of our inward feelings. As we raised our hands, we pledged our hearts. Could I for a moment mention the hands of that prophet, even President Harold B. Lee? I do so humbly and with his permission.
+On Friday morning in this historic tabernacle, and in the homes of Church members viewing or listening to the conference session, hands were raised to sustain a prophet, a seer, and a revelator—even the President of The Church of Jesus Christ of Latter-day Saints. Our upraised hands were an outward expression of our inward feelings. As we raised our hands, we pledged our hearts. Could I for a moment mention the hands of that prophet, even President Harold B. Lee? I do so humbly and with his permission.
 
-Some years ago, President Lee, directed by inspiration and revelation, called Dewitt J. Paul to serve as patriarch in one of the eastern stakes of the Church. The call humbled beyond words both Brother and Sister Paul. They wondered. They worried. They prayed for assurance and heavenly confirmation. Such did not come suddenly.
+Some years ago, President Lee, directed by inspiration and revelation, called Dewitt J. Paul to serve as patriarch in one of the eastern stakes of the Church. The call humbled beyond words both Brother and Sister Paul. They wondered. They worried. They prayed for assurance and heavenly confirmation. Such did not come suddenly.
 
-The vote of the people demonstrated their supporting approval. Then came the time for ordination. In a basement room situated two floors beneath the meeting hall in which the conference was held, Dewitt Paul nervously sat on a chair and, with a silent prayer in his heart, awaited his ordination. President Harold B. Lee then placed his hands upon the head of the newly called patriarch and began to speak. Peace replaced turmoil. Faith overcame doubt. Seated next to Sister Paul was a lifelong friend to whom Sister Paul had confided her concern. During the pronouncement of the blessing and ordination, she opened her eyes. As she did so she saw a ray of light shining upon President Lee as he placed his hands upon the head of Brother Paul. At the conclusion of the blessing, she hastened to tell Brother Lee of this confirmation of a call. She recounted how she saw the sunshine form the ray of light and how it brought a bright glow to the hands of President Lee. “Indeed, this is to you a confirmation of a sacred call,” said President Lee, “for as you look about this basement room, there is no window through which the sun might beam its rays.” Precious are the hands of a prophet.
+The vote of the people demonstrated their supporting approval. Then came the time for ordination. In a basement room situated two floors beneath the meeting hall in which the conference was held, Dewitt Paul nervously sat on a chair and, with a silent prayer in his heart, awaited his ordination. President Harold B. Lee then placed his hands upon the head of the newly called patriarch and began to speak. Peace replaced turmoil. Faith overcame doubt. Seated next to Sister Paul was a lifelong friend to whom Sister Paul had confided her concern. During the pronouncement of the blessing and ordination, she opened her eyes. As she did so she saw a ray of light shining upon President Lee as he placed his hands upon the head of Brother Paul. At the conclusion of the blessing, she hastened to tell Brother Lee of this confirmation of a call. She recounted how she saw the sunshine form the ray of light and how it brought a bright glow to the hands of President Lee. “Indeed, this is to you a confirmation of a sacred call,” said President Lee, “for as you look about this basement room, there is no window through which the sun might beam its rays.” Precious are the hands of a prophet.
 
 Finally, may we speak of yet another hand—even the hand of the Lord. This was the hand which guided Moses, which strengthened Joshua—the hand promised to Jacob when the Lord declared: “Fear thou not; for I am with thee: be not dismayed; for I am thy God; … I will uphold thee with the right hand of my righteousness.” ([[Isaiah 41.10|Isa. 41:10]].)
 
 This was the determined hand which drove from the temple the money changers. This was the loving hand that blessed little children. This was the strong hand that opened deaf ears and restored vision to sightless eyes. By this hand was the leper cleansed, the lame man healed—even the dead Lazarus raised to life. With the finger of this hand there was written in the sand that message which the winds did erase but which honest hearts did retain. The hand of the carpenter. The hand of the teacher. The hand of the Christ. One called Pontius Pilate washed his hands of this man called King of the Jews. Oh foolish, spineless Pilate! Did you really believe that water could cleanse such guilt?
 
 >“I think of his hands pierced and bleeding to pay the debt!
->Such mercy, such love, and devotion can I forget? …
+>Such mercy, such love, and devotion can I forget? …
 >Oh, it is wonderful that he should care for me enough to die for me!
 >Oh, it is wonderful, wonderful to me!”
 >
 
 Pitied is the hand that sins. Envied is the hand that paints. Honored is the hand that builds. Appreciated is the hand that helps. Respected is the hand that serves. Adored is the hand that saves—even the hand of Jesus Christ, the Son of God, the Redeemer of all mankind. With that hand he knocks upon the door of our understanding.
 
-“Behold, I stand at the door, and knock: if any man hear my voice and open the door, I will come in to him. …” ([[Revelation 3.20|Rev. 3:20]].)
+“Behold, I stand at the door, and knock: if any man hear my voice and open the door, I will come in to him. …” ([[Revelation 3.20|Rev. 3:20]].)
 
 Shall we listen for his voice? Shall we open the doorway of our lives to his exalted presence? Each must answer for himself.
 
 In this journey called mortality, clouds of gloom may appear on the horizon of our personal destiny. The way ahead may be uncertain, foreboding. In desperation we may be prompted to ask, as did another:
 
->“… I said to the man who stood at the gate of the year:
+>“… I said to the man who stood at the gate of the year:
 >‘Give me a light, that I may tread safely into the unknown.’
 >And he replied:
 >‘Go out into the darkness and put your hand into the hand of God.
@@ -85,8 +85,6 @@ Of this solemn truth I testify. I declare that our Lord and Savior does live and
 
 
 
-[^1]: M. Louise Haskins, “The Gate of the Year.”
+[^1]: M. Louise Haskins, “The Gate of the Year.”
 
-
-
-#Family #Jesus_Christ #Service
+#Family #JesusChrist #Service

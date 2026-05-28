@@ -1,6 +1,6 @@
 # The Relief Society
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -36,7 +36,7 @@ Her store is replenished by attendance at Relief Society, and she still draws, n
 
 I do not benefit, I repeat, from having membership in the Relief Society. We, as a family, benefit through association with women who do.
 
-Many years ago there was published in the Church this statement: “The place of woman in the Church is to walk beside the man, not in front of him nor behind him” (John A. Widtsoe, *Evidences and Reconciliations,* comp. by G. Homer Durham, Salt Lake City: Bookcraft, 1960, p. 305).
+Many years ago there was published in the Church this statement: “The place of woman in the Church is to walk beside the man, not in front of him nor behind him” (John A. Widtsoe, *Evidences and Reconciliations,* comp. by G. Homer Durham, Salt Lake City: Bookcraft, 1960, p. 305).
 
 In an organized way Relief Society symbolizes the relationship between man and woman in the Church.
 
@@ -44,7 +44,7 @@ Relief Society is for virtuous women, for steady women, for organized women. It 
 
 Into its ranks are invited those women who are unsteady or disorganized, the lost, careworn women. The Relief Society is an unmeasured blessing to lonely women.
 
-Shortly after the funeral held for the first wife of President Harold B. Lee, I was in a group which included his daughter Helen.
+Shortly after the funeral held for the first wife of President Harold B. Lee, I was in a group which included his daughter Helen.
 
 Someone expressed sympathy to her for the passing of her mother and said, “She took such good care of your father. I’m sure he must be lonely and must miss all of the things she did for him.”
 
@@ -127,6 +127,4 @@ After months of prayerful concern over this matter, having inquired myself of Hi
 
 
 
-
-
-#Relief_Society
+#ReliefSociety

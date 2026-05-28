@@ -2,7 +2,7 @@
 
 [Link](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/001-conversion?lang=eng)
 
-The aim of all gospel learning and teaching is to deepen our conversion and help us become more like Jesus Christ. For this reason, when we study the gospel, we’re not just looking for new information; we want to become a “new creature” ([[2 Corinthians 5.17|2 Corinthians 5:17]]). This means relying on Heavenly Father and Jesus Christ to help us change our hearts, our views, our actions, and our very natures.
+The aim of all gospel learning and teaching is to deepen our conversion and help us become more like Jesus Christ. For this reason, when we study the gospel, we’re not just looking for new information; we want to become a “new creature” ([[2 Corinthians 5.17|2 Corinthians 5:17]]). This means relying on Heavenly Father and Jesus Christ to help us change our hearts, our views, our actions, and our very natures.
 
 But the kind of gospel learning that strengthens our faith and leads to the miracle of conversion doesn’t happen all at once. It extends beyond the classroom into an individual’s heart and home. It requires consistent, daily efforts to understand and live the gospel. True conversion requires the influence of the Holy Ghost.
 

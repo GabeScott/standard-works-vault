@@ -1,6 +1,5 @@
 # Vocally
 
-
 *See also* [[Voice.md|Voice]]
 
 pray *vocally* as well as in thy heart, [[D&C 19.28|D&C 19:28]] ([[D&C 81.3|D&C 81:3]]).

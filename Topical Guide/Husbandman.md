@@ -1,6 +1,5 @@
 # Husbandman
 
-
 Noah began to be an *husbandman*, [[Genesis 9.20|Genesis 9:20]].
 
 I am no prophet, I am an *husbandman*, [[Zechariah 13.5|Zechariah 13:5]].

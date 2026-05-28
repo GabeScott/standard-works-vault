@@ -1,7 +1,6 @@
 # Preserve
 
-
-*See also* [[Keep, Kept.md|Keep]]; [[Scriptures, Preservation of.md|Scriptures, Preservation of]]
+*See also* [[Keep.md|Keep]]; [[Scriptures, Preservation of.md|Scriptures, Preservation of]]
 
 seen God face to face, and my life is *preserved*, [[Genesis 32.30|Genesis 32:30]].
 
@@ -21,7 +20,7 @@ whosoever shall lose his life shall *preserve* it, [[Luke 17.33|Luke 17:33]].
 
 spirit and soul and body be *preserved* blameless, [[1 Thessalonians 5.23|1 Thessalonians 5:23]].
 
-Lord ... will *preserve* me unto his heavenly kingdom, [[2 Timothy 4.18|2 Timothy 4:18]].
+Lord … will *preserve* me unto his heavenly kingdom, [[2 Timothy 4.18|2 Timothy 4:18]].
 
 that we may *preserve* unto them the words, [[1 Nephi 3.20|1 Nephi 3:20]].
 
@@ -41,9 +40,9 @@ that ye *preserve* these interpreters, [[Alma 37.21|Alma 37:21]].
 
 let us *preserve* our liberty, [[Alma 46.24|Alma 46:24]].
 
-land ... God had *preserved* for a righteous people, [[Ether 2.7|Ether 2:7]].
+land … God had *preserved* for a righteous people, [[Ether 2.7|Ether 2:7]].
 
-my scriptures shall be ... *preserved* in safety, [[D&C 42.56|D&C 42:56]].
+my scriptures shall be … *preserved* in safety, [[D&C 42.56|D&C 42:56]].
 
 faithful among you should be *preserved*, [[D&C 62.6|D&C 62:6]].
 

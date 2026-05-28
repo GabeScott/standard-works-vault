@@ -20,9 +20,9 @@ In [[D&C 68.5|Doctrine and Covenants 68, verses 5 and 6]][[D&C 68.6|]], we read:
 
 I seek the companionship of the Holy Ghost as I speak with you this Sabbath morning.
 
-The overwhelming feeling that I have in receiving this call is that we must live by faith and not by fear. In 2 Timothy, the Apostle Paul references the faith of Timothy’s grandmother Lois and his mother, Eunice. Paul writes:
+The overwhelming feeling that I have in receiving this call is that we must live by faith and not by fear. In 2 Timothy, the Apostle Paul references the faith of Timothy’s grandmother Lois and his mother, Eunice. Paul writes:
 
-“For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind” ([[2 Timothy 1.7|2 Timothy 1:7]]).
+“For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind” ([[2 Timothy 1.7|2 Timothy 1:7]]).
 
 In my own case, I respectfully acknowledge ancestors now on the other side of the veil who gave everything asked of them to build the kingdom of God upon the earth.
 
@@ -80,13 +80,11 @@ After the meeting I asked her about her calling. She said that initially the cal
 
 It is our faith in Jesus Christ that sustains us at the crossroads of life’s journey. It is the first principle of the gospel. Without it we will spin our wheels at the intersection, spending our precious time but getting nowhere. It is Christ who offers the invitation to follow Him, to give Him our burden, and to carry His yoke, “for \[His\] yoke is easy, and \[His\] burden is light” ([[Matthew 11.30|Matthew 11:30]]).
 
-There is no other name under heaven whereby man can be saved (see [[Acts 4.12|Acts 4:12]]). We must take upon us His name and receive His image in our countenance so that when He comes we will be more like Him (see [[1 John 3.2|1 John 3:2]]; [[Alma 5.14|Alma 5:14]]). When we choose to follow Christ in faith rather than choosing another path out of fear, we are blessed with a consequence that is consistent with our choice (see [[D&C 6.34|D&C 6:34–36]][[D&C 6.35|]][[D&C 6.36|]]).
+There is no other name under heaven whereby man can be saved (see [[Acts 4.12|Acts 4:12]]). We must take upon us His name and receive His image in our countenance so that when He comes we will be more like Him (see [[1 John 3.2|1 John 3:2]]; [[Alma 5.14|Alma 5:14]]). When we choose to follow Christ in faith rather than choosing another path out of fear, we are blessed with a consequence that is consistent with our choice (see [[D&C 6.34|D&C 6:34–36]][[D&C 6.35|]][[D&C 6.36|]]).
 
 May we all recognize and give thanks for the incomparable gift of life we each enjoy and for the breath that He lends us daily. May we choose to have conviction at the crossroads of life and exercise faith in Jesus Christ. My prayer is that we will live by faith and not by fear. I bear my witness of God, who is our Heavenly Father, and His Son, Jesus Christ, who atoned for our sins, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Faith #Love #Missionary_Work
+#Faith #Love #MissionaryWork

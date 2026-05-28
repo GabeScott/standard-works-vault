@@ -30,7 +30,7 @@ As you are growing older, young women, the path is becoming steeper, and you may
 
 This will take great courage, but you have His plan! What will help you follow the plan and be a valiant and virtuous daughter of God? First, gain a strong testimony, step by step. Second, seek the help of Heavenly Father, Jesus Christ, your family, and others who will support you in your decision to follow the plan. And finally, live to be worthy of the companionship of the Holy Ghost.
 
-Of the importance of gaining a strong testimony, President Thomas S. Monson promised the young women, “Your testimony, when constantly nourished, will keep you safe” (“May You Have Courage,” *Liahona* and *Ensign,* May 2009, 126).
+Of the importance of gaining a strong testimony, President Thomas S. Monson promised the young women, “Your testimony, when constantly nourished, will keep you safe” (“May You Have Courage,” *Liahona* and *Ensign,* May 2009, 126).
 
 Your testimony is strengthened “gradually through your experiences. No one receives a complete testimony all at once” (*True to the Faith: A Gospel Reference* \[2004\], 179). You’ll recall that in order to climb the steepest part of the mountain, we approached it one step at a time. To gain a testimony, you must nourish it step by step. “\[Your testimony\] will increase as you make decisions to keep the commandments. As you lift and strengthen others, you will see your testimony continue to develop.” As you establish personal habits of prayer, scripture study, obedience to the commandments, and service to others, “you will be blessed with moments of inspiration that will \[strengthen\] your testimony” (see *True to the Faith,* 179–80).
 
@@ -61,6 +61,4 @@ My dear young women, I have met many of you who, just like Julie, have not given
 
 
 
-
-
-#Courage #Dedication #Goals #Holy_Ghost #Scriptures #Testimony
+#Courage #Dedication #Goals #HolyGhost #Scriptures #Testimony

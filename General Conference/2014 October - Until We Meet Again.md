@@ -1,6 +1,6 @@
 # Until We Meet Again
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -34,7 +34,5 @@ Until we meet again in six months’ time, I ask the Lord’s blessings to be up
 [^1]: [[D&C 81.5|Doctrine and Covenants 81:5]].
 
 [^2]: [[Philippians 2.15|Philippians 2:15]].
-
-
 
 #Prayer #Service

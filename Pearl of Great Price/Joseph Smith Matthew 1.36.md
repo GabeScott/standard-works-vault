@@ -5,7 +5,7 @@
 [Joseph Smith Matthew 1:36](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.36?lang=eng#p36)
 
 
-[^a]: JS—M 1:18. TG [[Tribulation]].
-[^b]: TG [[Mourning, Mourn]].
-[^c]: TG [[Millennium, Preparing a People for]].
-[^d]: [[Matthew 25.31|Matt. 25:31.]]
+[^a]: [[Joseph Smith Matthew 1.18|JS—M 1:18]]. [[Tribulation|TG Tribulation]].  
+[^b]: [[Mourning, Mourn|TG Mourning]].  
+[^c]: [[Millennium|TG Millennium]].  
+[^d]: [[Matthew 25.31|Matt. 25:31]].  

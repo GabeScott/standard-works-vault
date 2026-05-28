@@ -1,7 +1,6 @@
 # Talents
 
-
-*See also* [BD Weights and measures](https://www.churchofjesuschrist.org/study/scriptures/bd/weights-and-measures?lang=eng)
+*See also* [[BD Weights and measures.md|BD Weights and measures]]
 
 unto one he gave five *talents*, to another two, [[Matthew 25.15|Matthew 25:15]] ([[Luke 19.13|Luke 19:13]]).
 
@@ -27,6 +26,4 @@ neither shalt thou bury thy *talent*, [[D&C 60.13|D&C 60:13]].
 
 that every man may gain other *talents*, [[D&C 82.18|D&C 82:18]].
 
-if a *gift* is bestowed ... and he receive not the gift, [[D&C 88.33|D&C 88:33]].
-
-*See also* [[Genesis 39.6|Genesis 39:6]]; [[Exodus 31.6|Exodus 31:6]]; [[Exodus 35.35|Exodus 35:35]]; [[1 Chronicles 25.7|1 Chronicles 25:7]].
+if a *gift* is bestowed … and he receive not the gift, [[D&C 88.33|D&C 88:33]].

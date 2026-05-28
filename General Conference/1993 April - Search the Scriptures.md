@@ -20,9 +20,9 @@ Scriptures reveal the divine desires of the Lord in our behalf. Each of us shoul
 
 ## Feelings
 
-How do we feel about the scriptures? Do we have the same love for the scriptures that was expressed by Nephi when he said: “For my soul delighteth in the scriptures, and my heart pondereth them. …
+How do we feel about the scriptures? Do we have the same love for the scriptures that was expressed by Nephi when he said: “For my soul delighteth in the scriptures, and my heart pondereth them. …
 
-“Behold, my soul delighteth in the things of the Lord; and my heart pondereth continually upon the things which I have seen and heard” ([[2 Nephi 4.15|2 Ne. 4:15–16]][[2 Nephi 4.16|]]).
+“Behold, my soul delighteth in the things of the Lord; and my heart pondereth continually upon the things which I have seen and heard” ([[2 Nephi 4.15|2 Ne. 4:15–16]][[2 Nephi 4.16|]]).
 
 We should show great respect and reverence for these sacred revelations. We should have feelings of gratitude for those who recorded and preserved these revelations for our research.
 
@@ -34,13 +34,13 @@ Some have suffered death to make it possible for us to have the scriptures today
 
 One of the most sacred purposes for which the scriptures were written was to make it possible for all to know Christ. The scriptures teach and testify of Jesus Christ. They teach us much that we need to know and to do to return to the presence of the Savior. John was specific in giving the purpose of the scriptures when he said, “But these \[things\] are written, that ye might believe that Jesus is the Christ, the Son of God; and that believing ye might have life through his name” ([[John 20.31|John 20:31]]).
 
-Nephi bore witness as to the reason he had recorded the revelations when he said, “And I, Nephi, have written these things unto my people, that perhaps I might persuade them that they would remember the Lord their Redeemer” ([[1 Nephi 19.18|1 Ne. 19:18]]).
+Nephi bore witness as to the reason he had recorded the revelations when he said, “And I, Nephi, have written these things unto my people, that perhaps I might persuade them that they would remember the Lord their Redeemer” ([[1 Nephi 19.18|1 Ne. 19:18]]).
 
 ## Importance
 
 The scriptures should be of the greatest importance in our lives. Our spiritual survival during the stresses of our society and the temptations of our time is greatly dependent upon the strength that we will receive from searching the scriptures and listening to the words of the prophets, seers, and revelators.
 
-People as well as nations perish without scriptures. The scriptures are spiritual food for our spirit, which is just as important as physical food for our body. It was so important for Lehi to have the scriptures and records which were engraven on the brass plates that the Lord commanded Nephi to slay Laban in order to obtain them. The Lord knew of their importance for the spiritual nourishment of Lehi and his descendants. He explained, “It is better that one man should perish than that a nation should dwindle and perish in unbelief” ([[1 Nephi 4.13|1 Ne. 4:13]]).
+People as well as nations perish without scriptures. The scriptures are spiritual food for our spirit, which is just as important as physical food for our body. It was so important for Lehi to have the scriptures and records which were engraven on the brass plates that the Lord commanded Nephi to slay Laban in order to obtain them. The Lord knew of their importance for the spiritual nourishment of Lehi and his descendants. He explained, “It is better that one man should perish than that a nation should dwindle and perish in unbelief” ([[1 Nephi 4.13|1 Ne. 4:13]]).
 
 In contrast, the Mulekites, who migrated to the American continent shortly after Lehi and his family left Jerusalem, failed to bring with them any sacred scriptures or records. Omni recorded the condition of a nation without scriptures:
 
@@ -50,25 +50,43 @@ Even more serious than their continuous contentions and wars and the corruption 
 
 ## Study
 
-The Savior provided counsel as to the way we should study scripture. He said, “And now, whoso readeth, let him understand; he that hath the scriptures, let him search them” ([[3 Nephi 10.14|3 Ne. 10:14]]). The Prophet Joseph Smith counseled:
+The Savior provided counsel as to the way we should study scripture. He said, “And now, whoso readeth, let him understand; he that hath the scriptures, let him search them” ([[3 Nephi 10.14|3 Ne. 10:14]]). The Prophet Joseph Smith counseled:
 
-“Search the scriptures—search the revelations … and ask your Heavenly Father, in the name of His Son Jesus Christ, to manifest the truth unto you, and if you do it with an eye single to His glory nothing doubting, He will answer you by the power of His Holy Spirit. You will then know for yourselves and not for another. You will not then be dependent on man for the knowledge of God; nor will there be any room for speculation” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], pp. 11–12).
+“Search the scriptures—search the revelations … and ask your Heavenly Father, in the name of His Son Jesus Christ, to manifest the truth unto you, and if you do it with an eye single to His glory nothing doubting, He will answer you by the power of His Holy Spirit. You will then know for yourselves and not for another. You will not then be dependent on man for the knowledge of God; nor will there be any room for speculation” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], pp. 11–12).
 
 It is not enough to read the scriptures. Random reading results in reduced retention. We must search for specifics. We must seek for truth and increased understanding of its application in our lives.
 
 If we are to be effective in our study of the scriptures, we must prepare for it to be a special spiritual experience. The following suggestions may be helpful.
 
-1. *Schedule*Schedule a time to search the scriptures daily. Scripture study is such an essential part of our spiritual development that we must take time and make it a priority in our daily schedule. Our spirits should never be deprived of the much-needed spiritual nourishment which comes from scripture study. Without this spiritual food our spirits become starved and weakened to temptation.President Kimball taught the principle that “no father, no son, no mother, no daughter should get so busy that he or she does not have time to study the scriptures and the words of modern prophets” (in Conference Report, Apr. 1976, p. 71; or *Ensign,* May 1976, p. 47).
+1. *Schedule*
 
-2. *Pray*We should begin and end each study session with prayer. We must invite the Spirit to teach us. Nephi taught that: “the mysteries of God shall be unfolded … by the power of the Holy Ghost” ([[1 Nephi 10.19|1 Ne. 10:19]]).
+Schedule a time to search the scriptures daily. Scripture study is such an essential part of our spiritual development that we must take time and make it a priority in our daily schedule. Our spirits should never be deprived of the much-needed spiritual nourishment which comes from scripture study. Without this spiritual food our spirits become starved and weakened to temptation.
 
-3. *Search*To search is to seek, to explore, to examine carefully. As we study we should do so with purpose, searching for specifics and an expansion of our vision of eternal truth. We must search for principles, doctrines, answers to questions, and solutions to problems. We should look for doctrinal relationships and for possible hidden meanings of that which has been recorded.
+President Kimball taught the principle that “no father, no son, no mother, no daughter should get so busy that he or she does not have time to study the scriptures and the words of modern prophets” (in Conference Report, Apr. 1976, [[1976 April - Boys Need Heroes Close By.md|p. 71]]; or *Ensign,* May 1976, p. 47).
 
-4. *Ponder*To ponder is to meditate, to think, to feast, and to treasure. It is more than a mental method; it is a spiritual striving to obtain and to understand truth. We should follow the process taught by the Savior to the Nephites as he taught them sacred principles. He then instructed them, “Go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand, and prepare your minds for the morrow” ([[3 Nephi 17.3|3 Ne. 17:3]]).We should ponder the meanings of the things we learn from our search of the scriptures. The Apostle Paul instructed the Philippian Saints to “think on these things” ([[Philippians 4.8|Philip. 4:8]]). To think involves forming mental images in the mind and focusing intently upon that which has been discovered. Nephi counseled to “feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Ne. 32:3]]). To feast is to consume, to digest, to absorb.As we ponder, we should follow the counsel of the Savior when he said, “Treasure up in your minds continually the words of life” ([[D&C 84.85|D&C 84:85]]). This implies that we should repeat in our minds the principles we have learned and draw upon them in each of our decisions.
+2. *Pray*
 
-5. *Relate*Nephi has counseled to “liken all scriptures unto us, that it might be for our profit and learning” ([[1 Nephi 19.23|1 Ne. 19:23]]). We must read as if the Lord were speaking directly to us in a personal manner.
+We should begin and end each study session with prayer. We must invite the Spirit to teach us. Nephi taught that: “the mysteries of God shall be unfolded … by the power of the Holy Ghost” ([[1 Nephi 10.19|1 Ne. 10:19]]).
 
-6. *Apply*President Marion G. Romney counseled: “Learning the gospel from the written word … is not enough. It must also be lived. … One cannot fully learn the gospel without living it” (“Records of Great Worth,” *Ensign,* Sept. 1980, p. 4). As we learn a principle, we must make a real effort to apply and to live it in our life.
+3. *Search*
+
+To search is to seek, to explore, to examine carefully. As we study we should do so with purpose, searching for specifics and an expansion of our vision of eternal truth. We must search for principles, doctrines, answers to questions, and solutions to problems. We should look for doctrinal relationships and for possible hidden meanings of that which has been recorded.
+
+4. *Ponder*
+
+To ponder is to meditate, to think, to feast, and to treasure. It is more than a mental method; it is a spiritual striving to obtain and to understand truth. We should follow the process taught by the Savior to the Nephites as he taught them sacred principles. He then instructed them, “Go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand, and prepare your minds for the morrow” ([[3 Nephi 17.3|3 Ne. 17:3]]).
+
+We should ponder the meanings of the things we learn from our search of the scriptures. The Apostle Paul instructed the Philippian Saints to “think on these things” ([[Philippians 4.8|Philip. 4:8]]). To think involves forming mental images in the mind and focusing intently upon that which has been discovered. Nephi counseled to “feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Ne. 32:3]]). To feast is to consume, to digest, to absorb.
+
+As we ponder, we should follow the counsel of the Savior when he said, “Treasure up in your minds continually the words of life” ([[D&C 84.85|D&C 84:85]]). This implies that we should repeat in our minds the principles we have learned and draw upon them in each of our decisions.
+
+5. *Relate*
+
+Nephi has counseled to “liken all scriptures unto us, that it might be for our profit and learning” ([[1 Nephi 19.23|1 Ne. 19:23]]). We must read as if the Lord were speaking directly to us in a personal manner.
+
+6. *Apply*
+
+President Marion G. Romney counseled: “Learning the gospel from the written word … is not enough. It must also be lived. … One cannot fully learn the gospel without living it” (“Records of Great Worth,” *Ensign,* Sept. 1980, p. 4). As we learn a principle, we must make a real effort to apply and to live it in our life.
 
 ## Conclusion
 
@@ -77,6 +95,4 @@ The scriptures are priceless possessions. If we search the scriptures, seeking f
 
 
 
-
-
-#Jesus_Christ #Scripture_Study
+#JesusChrist #ScriptureStudy

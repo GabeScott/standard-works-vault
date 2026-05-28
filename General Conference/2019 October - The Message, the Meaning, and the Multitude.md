@@ -1,6 +1,6 @@
 # The Message, the Meaning, and the Multitude
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 Brothers and sisters, this is Sammy Ho Ching, seven months old, watching general conference on television in his home last April.
 
-As time approached to sustain President Russell M. Nelson and the other General Authorities, Sammy’s arms were busy holding his bottle. So he did the next best thing.
+As time approached to sustain President Russell M. Nelson and the other General Authorities, Sammy’s arms were busy holding his bottle. So he did the next best thing.
 
 Sammy gives entirely new meaning to the concept of voting with your feet.
 
@@ -40,7 +40,7 @@ Likewise, when a friend is learning about our faith, she or he can be a bit over
 
 When one goes to the holy temple for the first time, he or she may be somewhat awestruck by that experience. Our job is to ensure that the sacred symbols and revealed rituals, the ceremonial clothing and visual presentations, never distract from but rather point toward the Savior, whom we are there to worship. The temple is His house, and He should be uppermost in our minds and hearts—the majestic doctrine of Christ pervading our very being just as it pervades the temple ordinances—from the time we read the inscription over the front door to the very last moment we spend in the building. Amid all the wonder we encounter, we are to see, above all else, the meaning of Jesus in the temple.
 
-Consider the swirl of bold initiatives and new announcements in the Church in these recent months. As we minister to one another, or refine our Sabbath experience, or embrace a new program for children and youth, we will miss the real reason for these revelatory adjustments if we see them as disparate, unrelated elements rather than as an interrelated effort to help us build more firmly on the Rock of our Salvation.[^4] Surely, surely, this is what President Russell M. Nelson intends in having us use the revealed name of the Church.[^5] If Jesus—His name, His doctrine, His example, His divinity—can be at the center of our worship, we will be reinforcing the great truth Alma once taught: “There be many things to come; \[but\] behold, there is one thing which is of more importance than they all— … the Redeemer \[who\] liveth and cometh among his people.”[^6]
+Consider the swirl of bold initiatives and new announcements in the Church in these recent months. As we minister to one another, or refine our Sabbath experience, or embrace a new program for children and youth, we will miss the real reason for these revelatory adjustments if we see them as disparate, unrelated elements rather than as an interrelated effort to help us build more firmly on the Rock of our Salvation.[^4] Surely, surely, this is what President Russell M. Nelson intends in having us use the revealed name of the Church.[^5] If Jesus—His name, His doctrine, His example, His divinity—can be at the center of our worship, we will be reinforcing the great truth Alma once taught: “There be many things to come; \[but\] behold, there is one thing which is of more importance than they all— … the Redeemer \[who\] liveth and cometh among his people.”[^6]
 
 One concluding thought: Joseph Smith’s 19th-century frontier environment was aflame with competing crowds of Christian witnesses.[^7] But in the tumult they created, these exuberant revivalists were, ironically, obscuring the very Savior young Joseph so earnestly sought. Battling what he called “darkness and confusion,”[^8] he retreated to the solitude of a grove of trees where he saw and heard a more glorious witness of the Savior’s centrality to the gospel than anything we have mentioned here this morning. With a gift of sight unimagined and unanticipated, Joseph beheld in vision his Heavenly Father, the great God of the universe, and Jesus Christ, His perfect Only Begotten Son. Then the Father set the example we have been applauding this morning: He pointed to Jesus, saying: “This is My Beloved Son. Hear Him!”[^9] No greater expression of Jesus’s divine identity, His primacy in the plan of salvation, and His standing in the eyes of God could ever exceed that short seven-word declaration.
 
@@ -57,9 +57,9 @@ Sisters and brothers, through the incessant din and drumbeat of our day, may we 
 
 [^3]: [[Luke 6.39|Luke 6:39]].
 
-[^4]: See [[2 Nephi 9.45|2 Nephi 9:45]].
+[^4]: See [[2 Nephi 9.45|2 Nephi 9:45]].
 
-[^5]: See Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona,* Nov. 2018, 87–89.
+[^5]: See Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona,* Nov. 2018, 87–89.
 
 [^6]: [[Alma 7.7|Alma 7:7]].
 
@@ -77,6 +77,4 @@ Sisters and brothers, through the incessant din and drumbeat of our day, may we 
 
 [^13]: [[Luke 18.42|Luke 18:42]].
 
-
-
-#First_Vision #General_Conference #Jesus_Christ #Temple_Work
+#FirstVision #GeneralConference #JesusChrist #TempleWork

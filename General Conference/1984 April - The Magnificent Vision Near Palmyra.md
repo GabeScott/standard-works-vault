@@ -10,7 +10,7 @@ I welcome all of the new General Authorities. I rejoice in the calls of Elder Oa
 
 Many years ago, I visited for the first time a wooded area of extraordinary natural beauty near Palmyra, New York. This area is known to members of The Church of Jesus Christ of Latter-day Saints as the Sacred Grove. On the day of our visit, the bees were kissing the wildflowers, and the soft zephyrs gently rustled the leaves of the great trees. It is a place of perfect peace and serenity. It was easy to believe that the heavens were opened and that the magnificent vision took place there.
 
-I refer to the awesome experience of Joseph Smith when he beheld God the Father and his Son, Jesus Christ, in the spring of 1820. There has been no event more glorious, more controversial, nor more important in the story of Joseph Smith than this vision. It is possibly the most singular event to occur on the earth since the Resurrection. Those who do not believe it happened find it difficult to explain away. Too much has happened since its occurrence to summarily deny that it ever took place. Some years later, still suffering under the impact of that happening, Joseph said, “If I had not experienced what I have, I should not have known it myself.” (*Millennial Star,* Nov. 1844, p. 93.)
+I refer to the awesome experience of Joseph Smith when he beheld God the Father and his Son, Jesus Christ, in the spring of 1820. There has been no event more glorious, more controversial, nor more important in the story of Joseph Smith than this vision. It is possibly the most singular event to occur on the earth since the Resurrection. Those who do not believe it happened find it difficult to explain away. Too much has happened since its occurrence to summarily deny that it ever took place. Some years later, still suffering under the impact of that happening, Joseph said, “If I had not experienced what I have, I should not have known it myself.” (*Millennial Star,* Nov. 1844, p. 93.)
 
 Young Joseph Smith, fourteen years of age, lived with his family near Palmyra, New York. In the spring of 1820, Joseph, like many others, was caught up in the religious excitement of the day. Desiring to know the truth for himself, and encouraged by the epistle of James, he knelt in solitary, fervent prayer in that beautiful grove not far from his home. He was at first violently seized by “the power of some actual being from the unseen world.” ([[Joseph Smith History 1.16|JS—H 1:16]].) In an effort to extricate himself, he exerted all his powers to call upon God for deliverance from this tremendous evil power. At this point he said:
 
@@ -22,7 +22,7 @@ The message that Joseph received from the Father and the Son was that the full t
 
 Joseph stated in that account: “Many other things did he say unto me, which I cannot write at this time.” ([[Joseph Smith History 1.20|JS—H 1:20]].) Obviously, Joseph was overwhelmed by the occasion and the instructions he received.
 
-Joseph soon declared this marvelous experience to others outside his family. As a result, much ridicule, contempt, and even hatred were visited upon him. His mother, Lucy Mack Smith, relates that after the First Vision, “from this time until the twenty-first of September, 1823, Joseph continued, as usual, to labor with his father, and nothing during this interval occurred of very great importance—though he suffered every kind of opposition and persecution from the different orders of religionists.” (*History of Joseph Smith by His Mother,* ed. Preston Nibley, Salt Lake City: Bookcraft, 1958, p. 74.) The prejudice and the hatred pursued Joseph until his martyrdom.
+Joseph soon declared this marvelous experience to others outside his family. As a result, much ridicule, contempt, and even hatred were visited upon him. His mother, Lucy Mack Smith, relates that after the First Vision, “from this time until the twenty-first of September, 1823, Joseph continued, as usual, to labor with his father, and nothing during this interval occurred of very great importance—though he suffered every kind of opposition and persecution from the different orders of religionists.” (*History of Joseph Smith by His Mother,* ed. Preston Nibley, Salt Lake City: Bookcraft, 1958, p. 74.) The prejudice and the hatred pursued Joseph until his martyrdom.
 
 Of this experience, Joseph said: “I had actually seen a light, and in the midst of that light I saw two Personages, and they did in reality speak to me; and though I was hated and persecuted for saying that I had seen a vision, yet it was true; and while they were persecuting me, reviling me, and speaking all manner of evil against me falsely for so saying, I was led to say in my heart: Why persecute me for telling the truth? I have actually seen a vision. … I knew it, and I knew that God knew it, and I could not deny it, neither dared I do it; at least I knew that by so doing I would offend God, and come under condemnation.” ([[Joseph Smith History 1.25|JS—H 1:25]].)
 
@@ -82,23 +82,23 @@ What of this man Joseph Smith who communed with deity? What was his reputation? 
 
 A Mr. Reed, a nonmember of the Church, said of him:
 
-“The first acquaintance I had with Gen. Smith, was about the year 1823. He came into my neighborhood, being then about eighteen years of age, and resided there two years; during which time I became intimately acquainted with him. I do know that his character was irreproachable; that he was well known for truth and uprightness; that he moved in the first circles of community, and he was often spoken of as a young man of intelligence, and good morals, and possessing a mind susceptible of the highest intellectual attainments.” (*Times and Seasons,* 1 June 1844, p. 549.)
+“The first acquaintance I had with Gen. Smith, was about the year 1823. He came into my neighborhood, being then about eighteen years of age, and resided there two years; during which time I became intimately acquainted with him. I do know that his character was irreproachable; that he was well known for truth and uprightness; that he moved in the first circles of community, and he was often spoken of as a young man of intelligence, and good morals, and possessing a mind susceptible of the highest intellectual attainments.” (*Times and Seasons,* 1 June 1844, p. 549.)
 
-Josiah Quincy, mayor of Boston, said of him, “*A fine-looking man* is what the passer-by would instinctively have murmured upon meeting the remarkable individual.” (*Figures of the Past,* Boston: Roberts Brothers, 1883, p. 381.)
+Josiah Quincy, mayor of Boston, said of him, “*A fine-looking man* is what the passer-by would instinctively have murmured upon meeting the remarkable individual.” (*Figures of the Past,* Boston: Roberts Brothers, 1883, p. 381.)
 
 William M. Allred, one of his followers, stated that some straightlaced people had problems with the Prophet Joseph playing ball with the boys. Said Allred, referring to the Prophet:
 
-“He then related a story of a certain prophet who was sitting under the shade of a tree amusing himself in some way, when a hunter came along with his bow and arrow, and reproved him. The prophet asked him if he kept his bow strung up all the time. The hunter answered that he did not. The prophet asked why, and he said it would lose its elasticity if he did. The prophet said it was just so with his mind, he did not want it strung up all the time.” (*Juvenile Instructor,* 1 Aug. 1892, p. 472.)
+“He then related a story of a certain prophet who was sitting under the shade of a tree amusing himself in some way, when a hunter came along with his bow and arrow, and reproved him. The prophet asked him if he kept his bow strung up all the time. The hunter answered that he did not. The prophet asked why, and he said it would lose its elasticity if he did. The prophet said it was just so with his mind, he did not want it strung up all the time.” (*Juvenile Instructor,* 1 Aug. 1892, p. 472.)
 
-William Taylor, President John Taylor’s brother, said of Joseph Smith’s personality: “Much has been said of his geniality and personal magnetism. I was a witness of this—people, old or young, loved him and trusted him instinctively.” He explained, “My devotion to the Prophet was akin to that felt by all who came under his influence.” (*Young Women’s Journal,* Dec. 1906, p. 548.)
+William Taylor, President John Taylor’s brother, said of Joseph Smith’s personality: “Much has been said of his geniality and personal magnetism. I was a witness of this—people, old or young, loved him and trusted him instinctively.” He explained, “My devotion to the Prophet was akin to that felt by all who came under his influence.” (*Young Women’s Journal,* Dec. 1906, p. 548.)
 
-Joseph’s personal magnetism was confirmed by his wife Emma in a letter written to one of their sons after the Prophet’s death: “I do not expect you can do much more in the garden than your father could, and I never wanted him to go into the garden to work for if he did it would not be fifteen minutes before there would be three or four or sometimes a half dozen men round him and they would tramp the ground down faster than he could hoe it up.” (*Emma Smith Papers,* 1 Aug. 1868 or 1869, p. 4, Independence, Missouri: RLDS Library and Archive.)
+Joseph’s personal magnetism was confirmed by his wife Emma in a letter written to one of their sons after the Prophet’s death: “I do not expect you can do much more in the garden than your father could, and I never wanted him to go into the garden to work for if he did it would not be fifteen minutes before there would be three or four or sometimes a half dozen men round him and they would tramp the ground down faster than he could hoe it up.” (*Emma Smith Papers,* 1 Aug. 1868 or 1869, p. 4, Independence, Missouri: RLDS Library and Archive.)
 
-The practical sage, Brigham Young, died with the name Joseph upon his lips. He previously had said: “I honor and revere the name of Joseph Smith. I delight to hear it; I love it. I love his doctrine. …
+The practical sage, Brigham Young, died with the name Joseph upon his lips. He previously had said: “I honor and revere the name of Joseph Smith. I delight to hear it; I love it. I love his doctrine. …
 
-“I feel like shouting Hallelujah, all the time, when I think that I ever knew Joseph Smith, the Prophet whom the Lord raised up. …
+“I feel like shouting Hallelujah, all the time, when I think that I ever knew Joseph Smith, the Prophet whom the Lord raised up. …
 
-“I am bold to say that, Jesus Christ excepted, no better man ever lived or does live on this earth. I am his witness.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1954, pp. 458–59.)
+“I am bold to say that, Jesus Christ excepted, no better man ever lived or does live on this earth. I am his witness.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1954, pp. 458–59.)
 
 My associates and I are also his witnesses. We are eyewitnesses of the fruits of this work worldwide. The followers of the restored gospel of Christ can be found in over one hundred countries of the world. In the main they are decent, sober, chaste, honest, law-abiding, family-oriented, patriotic members of the countries in which they live.
 
@@ -111,6 +111,4 @@ Since no one was with Joseph when this great vision took place in the wooded gro
 
 
 
-
-
-#Church_History #Joseph_Smith
+#ChurchHistory #JosephSmith

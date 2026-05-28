@@ -10,11 +10,11 @@ One of the great blessings of my childhood was that my mother spent significant 
 
 The books were wide-ranging and grew in sophistication as we grew. I remember nursery rhymes, poetry, folktales from Russia, the adventure in *Thunder Cave*—and the scriptures. Together we read parables, incidents such as the woman at the well, even the great abstractions.
 
-One day Mother read: “Charity suffereth long, and is kind; charity envieth not; charity vaunteth not itself, is not puffed up. …
+One day Mother read: “Charity suffereth long, and is kind; charity envieth not; charity vaunteth not itself, is not puffed up. …
 
 “Beareth all things, believeth all things, hopeth all things, endureth all things.
 
-“Charity never faileth” ([[1 Corinthians 13.4|1 Cor. 13:4, 7–8]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]]; see also [[Moroni 7.45|Moro. 7:45–46]][[Moroni 7.46|]]).
+“Charity never faileth” ([[1 Corinthians 13.4|1 Cor. 13:4, 7–8]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]]; see also [[Moroni 7.45|Moro. 7:45–46]][[Moroni 7.46|]]).
 
 Howard interrupted the reading, as he often did, with a question: “What *is* charity?” He wanted to know the meaning of what we had just heard; I was still caught up in the way it sounded. I only wanted to go on with the reading, but I could tell Mother was pleased with his inquisitiveness. She taught us then, and later, that good questions can be important if we are truly searching to understand and that sometimes good answers that are good enough may take a lifetime of looking. Then she put down the New Testament and read from the Book of Mormon:
 
@@ -22,7 +22,7 @@ Howard interrupted the reading, as he often did, with a question: “What *is* c
 
 There it was in one verse—the concentrated essence of a much larger whole, a definition given for a profound yet available truth. What I heard that day was clearly beyond my childhood comprehension, but the spirit of love was there and was as real as any of the other details of my young life.
 
-The scriptures give us examples of other questioners whose queries taught them new ways to think about love. In the twenty-second chapter of Matthew, Christ was asked by a Pharisee who wanted to trick him, what was the *greatest* commandment. Christ answered: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
+The scriptures give us examples of other questioners whose queries taught them new ways to think about love. In the twenty-second chapter of Matthew, Christ was asked by a Pharisee who wanted to trick him, what was the *greatest* commandment. Christ answered: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
 
 “And the second is like unto it, Thou shalt love thy neighbour as thyself” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]]).
 
@@ -42,11 +42,9 @@ In Thailand in the late 1970s, Sister Srilaxana worked as a translator of the sc
 
 Charitable, compassionate service is the central mission of our Church’s Relief Society organization. We are now nearly three million members worldwide, and we rejoice in our great, diversified sisterhood. We know that our society, which marks its 150th anniversary next year, has accomplished much good. We have learned that we can do *many* things together that would be impossible if we worked alone. But our major focus as a society is to bless the individual woman as she grows in her knowledge of Christ’s gospel and reflects her knowledge by the choices she makes to serve others in righteousness.
 
-At last October’s conference, Bishop Glenn L. Pace admonished all of us to look around us to do what we could as individuals to relieve pain or loneliness or injustice in our own communities. He promised that if we did, a compassion would enter our hearts, and through the Holy Ghost sanctification could take place within our souls and we would become more like our Savior (see Conference Report, Oct. 1990, pp. 7–10; or *Ensign,* Nov. 1990, pp. 8–10).
+At last October’s conference, Bishop Glenn L. Pace admonished all of us to look around us to do what we could as individuals to relieve pain or loneliness or injustice in our own communities. He promised that if we did, a compassion would enter our hearts, and through the Holy Ghost sanctification could take place within our souls and we would become more like our Savior (see Conference Report, Oct. 1990, pp. 7–10; or *Ensign,* Nov. 1990, pp. 8–10).
 
 I pray in all humility that our faith in God may move us to such action and that we may thus know by the Holy Spirit the meaning of charity so that we can exercise it in our lives, in the name of our Lord and Savior, Jesus Christ, amen.
-
-
 
 
 

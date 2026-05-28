@@ -1,6 +1,6 @@
 # Three Sisters
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -10,13 +10,13 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 Dear sisters, dear friends, to begin general conference with a worldwide sisters’ session is significant and wonderful. Just imagine: sisters of all ages, backgrounds, nationalities, and languages united in faith and love for the Lord Jesus Christ.
 
-As we recently met with our beloved prophet, President Thomas S. Monson, he expressed to us how much he loves the Lord. And I know that President Monson is very grateful for your love, your prayers, and your devotion to the Lord.
+As we recently met with our beloved prophet, President Thomas S. Monson, he expressed to us how much he loves the Lord. And I know that President Monson is very grateful for your love, your prayers, and your devotion to the Lord.
 
 A long time ago in a distant land lived a family of three sisters.
 
-The first sister was **sad.** Everything from her nose to her chin and from her skin to her toes seemed not quite good enough to her. When she spoke, her words sometimes came out awkwardly, and people laughed. When someone criticized her or “forgot” to invite her to something, she would blush, walk away, and find a secret spot where she would let out a sad sigh and wonder why life had turned out to be so bleak and cheerless.
+The first sister was ***sad.*** Everything from her nose to her chin and from her skin to her toes seemed not quite good enough to her. When she spoke, her words sometimes came out awkwardly, and people laughed. When someone criticized her or “forgot” to invite her to something, she would blush, walk away, and find a secret spot where she would let out a sad sigh and wonder why life had turned out to be so bleak and cheerless.
 
-The second sister was **mad.** She thought of herself as very smart, but there was always someone else who scored higher on tests at school. She considered herself funny, fair, fashionable, and fascinating. But always, there seemed to be someone who was funnier, fairer, more fashionable, or more fascinating.
+The second sister was ***mad.*** She thought of herself as very smart, but there was always someone else who scored higher on tests at school. She considered herself funny, fair, fashionable, and fascinating. But always, there seemed to be someone who was funnier, fairer, more fashionable, or more fascinating.
 
 She was never first at anything, and this she could not endure. Life was not supposed to be this way!
 
@@ -24,7 +24,7 @@ Sometimes she lashed out at others, and it seemed that she was always one breath
 
 Of course, this did not make her any more likable or popular. Sometimes she clenched her teeth, tightened her fists, and thought, “Life is so unfair!”
 
-Then there was the third sister. Unlike her sad and mad sisters, she was—well, **glad.** And it wasn’t because she was smarter or more beautiful or more capable than her sisters. No, people sometimes avoided or ignored her too. They sometimes made fun of what she was wearing or the things she was saying. They sometimes said mean things about her. But she did not allow any of that to bother her too much.
+Then there was the third sister. Unlike her sad and mad sisters, she was—well, ***glad.*** And it wasn’t because she was smarter or more beautiful or more capable than her sisters. No, people sometimes avoided or ignored her too. They sometimes made fun of what she was wearing or the things she was saying. They sometimes said mean things about her. But she did not allow any of that to bother her too much.
 
 This sister loved to sing. She didn’t have great pitch, and people laughed about it, but that didn’t stop her. She would say, “I am not going to let other people and their opinions stop me from singing!”
 
@@ -183,26 +183,24 @@ I leave you my blessing as an Apostle of the Lord that you will find the strengt
 
 
 
-[^1]: See [[2 Nephi 2.14|2 Nephi 2:14, 26]][[2 Nephi 2.26|]].
+[^1]: See [[2 Nephi 2.14|2 Nephi 2:14, 26]][[2 Nephi 2.26|]].
 
 [^2]: See [[Luke 15.4|Luke 15:4–6]][[Luke 15.5|]][[Luke 15.6|]].
 
-[^3]: Boston College, “Study Finds Intractable Conflicts Stem from Misunderstanding of Motivation,” *ScienceDaily,* Nov. 4, 2014, sciencedaily.com.
+[^3]: Boston College, “Study Finds Intractable Conflicts Stem from Misunderstanding of Motivation,” *ScienceDaily,* Nov. 4, 2014, sciencedaily.com.
 
 [^4]: [[Matthew 5.44|Matthew 5:44–45]][[Matthew 5.45|]].
 
 [^5]: [[Matthew 5.44|Matthew 5:44]].
 
-[^6]: See [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]].
+[^6]: See [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]].
 
 [^7]: See “I Am a Child of God,” *Children’s Songbook,* 2–3.
 
-[^8]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^8]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 [^9]: See “The Most Inspirational Book Quotes of All Time,” pegasuspublishers.com/blog.
 
 [^10]: See [[Alma 5.26|Alma 5:26]].
 
-
-
-#Discipleship #Divine_Nature #Jesus_Christ #Joy
+#Discipleship #DivineNature #Joy #JesusChrist

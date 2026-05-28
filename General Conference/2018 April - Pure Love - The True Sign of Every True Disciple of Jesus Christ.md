@@ -1,6 +1,6 @@
 # Pure Love: The True Sign of Every True Disciple of Jesus Christ
 
-By Elder Massimo De Feo - *Of the Seventy*
+By Elder Massimo De Feo - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Massimo De Feo - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/04/pure-love-the-true-sign-of-every-true-disciple-of-jesus-christ?lang=eng)
 
-We love and miss President Thomas S. Monson, and we love and sustain President Russell M. Nelson. President Nelson has a special place in my heart.
+We love and miss President Thomas S. Monson, and we love and sustain President Russell M. Nelson. President Nelson has a special place in my heart.
 
 When I was a young father, our little son, who was five, came home from school one day and asked his mother, “What kind of work does Daddy do?” He then explained that his new classmates started debating about their fathers’ jobs. One said that his father was the chief of the city police, while another proudly declared that his father was the chief of a big company.
 
@@ -20,7 +20,7 @@ I told my wife, “It’s time to teach him some more details of the plan of sal
 
 But as we taught our children the plan of salvation, their love for Heavenly Father and for the Savior grew as they learned that it is a plan of love. The gospel of Jesus Christ is centered on the love of the Father and the Savior for us and our love for Them and for one another.
 
-Elder Jeffrey R. Holland said: “The first great *commandment* of all eternity is to love God with all of *our* heart, might, mind, and strength—that’s the first great commandment. But the first great *truth* of all eternity is that God loves *us* with all of *His* heart, might, mind, and strength. That love is the foundation stone of eternity, and it should be the foundation stone of our daily life.”[^1]
+Elder Jeffrey R. Holland said: “The first great *commandment* of all eternity is to love God with all of *our* heart, might, mind, and strength—that’s the first great commandment. But the first great *truth* of all eternity is that God loves *us* with all of *His* heart, might, mind, and strength. That love is the foundation stone of eternity, and it should be the foundation stone of our daily life.”[^1]
 
 Being the foundation stone of our daily life, pure love is a requirement for every true disciple of Jesus Christ.
 
@@ -56,7 +56,7 @@ Now, dear brothers and sisters, isn’t this what the Savior did? Of course, in 
 
 He paid for something that He had not done. He paid for sins that He had not committed. Why? Pure love. Having paid the full price, He was in the position to offer us the blessings of what He paid for if we would repent. Why did He offer this? Again, and always, pure love.
 
-President Thomas S. Monson said: “May we begin now, this very day, to express love to all of God’s children, whether they be our family members, our friends, mere acquaintances, or total strangers. As we arise each morning, let us determine to respond with love and kindness to whatever might come our way.”[^5]
+President Thomas S. Monson said: “May we begin now, this very day, to express love to all of God’s children, whether they be our family members, our friends, mere acquaintances, or total strangers. As we arise each morning, let us determine to respond with love and kindness to whatever might come our way.”[^5]
 
 Brothers and sisters, the gospel of Jesus Christ is a gospel of love. The greatest commandment is about love. For me, it’s all about love. The love of the Father, who sacrificed His Son for us. The love of the Savior, who sacrificed all for us. The love of a mother or a father who would give anything for his or her children. The love of those who serve silently and are not known to most of us but are well known to the Lord. The love of those who forgive all and always. The love of the ones who give more than they receive.
 
@@ -69,7 +69,7 @@ May our hearts be filled with the pure love of Christ, the true sign of every tr
 
 
 
-[^1]: Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders among You]],” *Ensign* or *Liahona,* May 2016, 127.
+[^1]: Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders among You]],” *Ensign* or *Liahona,* May 2016, 127.
 
 [^2]: [[Moroni 7.48|Moroni 7:48]].
 
@@ -77,8 +77,6 @@ May our hearts be filled with the pure love of Christ, the true sign of every tr
 
 [^4]: [[D&C 45.32|Doctrine and Covenants 45:32]].
 
-[^5]: Thomas S. Monson, “[[2014 April - Love—the Essence of the Gospel.md|Love—the Essence of the Gospel]],” *Ensign* or *Liahona,* May 2014, 94.
+[^5]: Thomas S. Monson, “[[2014 April - Love—the Essence of the Gospel.md|Love—the Essence of the Gospel]],” *Ensign* or *Liahona,* May 2014, 94.
 
-
-
-#Atonement #Discipleship #Jesus_Christ #Love #Plan_Of_Salvation #Service
+#Atonement #Discipleship #JesusChrist #Love #PlanOfSalvation #Service

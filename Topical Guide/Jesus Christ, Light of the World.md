@@ -1,15 +1,14 @@
 # Jesus Christ, Light of the World
 
-
 *See also* [[Light [noun].md|Light [noun]]]; [[Light of Christ.md|Light of Christ]]
 
 Lord is my *light* and my salvation, [[Psalms 27.1|Psalms 27:1]].
 
 walk in the *light* of the Lord, [[Isaiah 2.5|Isaiah 2:5]] ([[2 Nephi 12.5|2 Nephi 12:5]]).
 
-people ... have seen a great *light*, [[Isaiah 9.2|Isaiah 9:2]] ([[Micah 7.8|Micah 7:8]]; [[Matthew 4.16|Matthew 4:16]]; [[Luke 1.79|Luke 1:79]]; [[2 Nephi 19.2|2 Nephi 19:2]]).
+people … have seen a great *light*, [[Isaiah 9.2|Isaiah 9:2]] ([[Micah 7.8|Micah 7:8]]; [[Matthew 4.16|Matthew 4:16]]; [[Luke 1.79|Luke 1:79]]; [[2 Nephi 19.2|2 Nephi 19:2]]).
 
-Lord shall be ... an everlasting *light*, [[Isaiah 60.19|Isaiah 60:19]].
+Lord shall be … an everlasting *light*, [[Isaiah 60.19|Isaiah 60:19]].
 
 A *light* to lighten the Gentiles, [[Luke 2.32|Luke 2:32]].
 

@@ -38,7 +38,7 @@ When he returned from his mission, a combination of changing interest rates and 
 
 Helaman’s advice to his sons, Nephi and Lehi, can give us strength today:
 
-“Therefore, my sons, I would that ye should do that which is good. …
+“Therefore, my sons, I would that ye should do that which is good. …
 
 “And now my sons, behold I have somewhat more to desire of you, which desire is, that ye may not do these things that ye may boast, but that ye may do these things to lay up for yourselves a treasure in heaven, yea, which is eternal” ([[Helaman 5.7|Hel. 5:7–8]][[Helaman 5.8|]]).
 
@@ -95,8 +95,6 @@ Boasting will be erased when we seek the Lord’s help and thank him for all we 
 God help us to humbly accept his blessings of strength and guidance. The wise and committed will praise his name forever and will avoid the very appearance of any attitudes or situations that feature personal accomplishments or boastings.
 
 I leave you my special witness of the truthfulness of this great work. All of us can more effectively share our knowledge and testimonies if we boast not. This I say in the name of Jesus Christ, amen.
-
-
 
 
 

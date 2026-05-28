@@ -63,9 +63,9 @@ Elder Richard L. Evans observed: “To find peace—the peace within, the peace 
 
 The place of parents in the home and family is of vital importance as we examine our personal responsibilities in this regard. Recently a distinguished group met in conference to examine the increase of violence in the lives of individuals, particularly the young. Some observations from their deliberations are helpful to us as we examine our priorities:
 
-“A society that views graphic violence as entertainment … should not be surprised when senseless violence shatters the dreams of its youngest and brightest. …
+“A society that views graphic violence as entertainment … should not be surprised when senseless violence shatters the dreams of its youngest and brightest. …
 
-“Unemployment and despair can lead to desperation. But most people will not commit desperate acts if they have been taught that dignity, honesty and integrity are more important than revenge or rage; if they understand that respect and kindness ultimately give one a better chance at success. …
+“Unemployment and despair can lead to desperation. But most people will not commit desperate acts if they have been taught that dignity, honesty and integrity are more important than revenge or rage; if they understand that respect and kindness ultimately give one a better chance at success. …
 
 “The women of the anti-violence summit have hit on the solution—the only one that can reverse a downward spiral of destructive behavior and senseless pain. A return to old-fashioned family values will work wonders.”[^7]
 
@@ -93,7 +93,7 @@ During the past year, the Primary organization has conducted an effort to have t
 
 On one significant occasion, Jesus took a text from Isaiah: “The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound”[^12]—a clear pronouncement of the peace that passeth all understanding.
 
-Frequently, death comes as an intruder. It is an enemy that suddenly appears in the midst of life’s feast, putting out its lights and its gaiety. Death lays its heavy hand upon those dear to us and, at times, leaves us baffled and wondering. In certain situations, as in great suffering and illness, death comes as an angel of mercy. But to those bereaved, the Master’s promise of peace is the comforting balm which heals: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”[^13] “I go to prepare a place for you … ; that where I am, there ye may be also.”[^14]
+Frequently, death comes as an intruder. It is an enemy that suddenly appears in the midst of life’s feast, putting out its lights and its gaiety. Death lays its heavy hand upon those dear to us and, at times, leaves us baffled and wondering. In certain situations, as in great suffering and illness, death comes as an angel of mercy. But to those bereaved, the Master’s promise of peace is the comforting balm which heals: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”[^13] “I go to prepare a place for you … ; that where I am, there ye may be also.”[^14]
 
 How I pray that all who have loved then lost might know the reality of the Resurrection and have the unshakable knowledge that families can be forever. One such was a Major Sullivan Ballou, who, during the time of the American Civil War, wrote a touching letter to his wife—just one week before he was killed in the Battle of Bull Run. With me, feel the love of his soul, his trust in God, his courage, his faith.
 
@@ -105,11 +105,11 @@ How I pray that all who have loved then lost might know the reality of the Resur
 
 “The indications are very strong that we shall move in a few days—perhaps tomorrow. Lest I should not be able to write again, I feel impelled to write a few lines that may fall under your eye when I shall be no more.
 
-“I have no misgivings about, or lack of confidence in, the cause in which I am engaged, and my courage does not halt or falter. … I am … perfectly willing … to lay down all my joys in this life, to help maintain this Government. …
+“I have no misgivings about, or lack of confidence in, the cause in which I am engaged, and my courage does not halt or falter. … I am … perfectly willing … to lay down all my joys in this life, to help maintain this Government. …
 
 “Sarah, my love for you is deathless; it seems to bind me with mighty cables that nothing but Omnipotence could break; and yet my love of Country comes over me like a strong wind and bears me unresistibly on with all these chains to the battle field.
 
-“The memories of the blissful moments I have spent with you come creeping over me, and I feel most gratified to God and to you that I have enjoyed them so long. And hard it is for me to give them up and burn to ashes the hopes of future years, when, God willing, we might still have lived and loved together, and seen our sons grown up to honorable manhood around us. I have, I know, but few and small claims upon Divine Providence, but something whispers to me—perhaps it is the wafted prayer of my little Edgar, that I shall return to my loved ones unharmed. If I do not, my dear Sarah, never forget how much I love you, and when my last breath escapes me on the battle field, it will whisper your name. Forgive \[me\] my … faults, and the many pains I have caused you. How thoughtless and foolish I have oftentimes been! How gladly would I wash out with my tears every little spot upon your happiness. …
+“The memories of the blissful moments I have spent with you come creeping over me, and I feel most gratified to God and to you that I have enjoyed them so long. And hard it is for me to give them up and burn to ashes the hopes of future years, when, God willing, we might still have lived and loved together, and seen our sons grown up to honorable manhood around us. I have, I know, but few and small claims upon Divine Providence, but something whispers to me—perhaps it is the wafted prayer of my little Edgar, that I shall return to my loved ones unharmed. If I do not, my dear Sarah, never forget how much I love you, and when my last breath escapes me on the battle field, it will whisper your name. Forgive \[me\] my … faults, and the many pains I have caused you. How thoughtless and foolish I have oftentimes been! How gladly would I wash out with my tears every little spot upon your happiness. …
 
 “But, O Sarah! If the dead can come back to this earth and the unseen around those they loved, I shall always be near you; in the gladdest days and in the darkest nights … always, always, and if there be a soft breeze upon your cheek, it shall be my breath, as the cool air fans your throbbing temple, it shall be my spirit passing by. Sarah, do not mourn me dead; think I am gone and wait for thee, for we shall meet again.”[^15]
 
@@ -122,19 +122,19 @@ Such is the message of Easter morn. He lives! And because He lives all shall ind
 
 
 
-[^1]: [[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].
+[^1]: [[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].
 
-[^2]: John McCrae, “In Flanders Fields,” in *The Best Loved Poems of the American People,* sel. Hazel Felleman (Garden City, N.Y.: Garden City Publishing Co., 1936), p. 429.
+[^2]: John McCrae, “In Flanders Fields,” in *The Best Loved Poems of the American People,* sel. Hazel Felleman (Garden City, N.Y.: Garden City Publishing Co., 1936), p. 429.
 
-[^3]: David Hewson, “More than 13,000 Americans Are Buried in Normandy,” *Deseret News,* 13 Mar. 1994, sec. T, p. 4.
+[^3]: David Hewson, “More than 13,000 Americans Are Buried in Normandy,” *Deseret News,* 13 Mar. 1994, sec. T, p. 4.
 
-[^4]: L. Douglas Wilder, in Jill Lawrence, “Early Hardships Shaped Candidates,” *Deseret News,* 1 Dec. 1991, sec. A, p. 2.
+[^4]: L. Douglas Wilder, in Jill Lawrence, “Early Hardships Shaped Candidates,” *Deseret News,* 1 Dec. 1991, sec. A, p. 2.
 
-[^5]: “Purposeful Living,” *Listen, A Journal of Better Living,* Jan.–Mar. 1955, p. 19.
+[^5]: “Purposeful Living,” *Listen, A Journal of Better Living,* Jan.–Mar. 1955, p. 19.
 
-[^6]: In Conference Report, Oct. 1959, p. 128.
+[^6]: In Conference Report, Oct. 1959, p. 128.
 
-[^7]: “Family Values in a Violent Society,” *Deseret News,* 16 Jan. 1994, sec. A, p. 12.
+[^7]: “Family Values in a Violent Society,” *Deseret News,* 16 Jan. 1994, sec. A, p. 12.
 
 [^8]: [[Matthew 6.19|Matt. 6:19–21]][[Matthew 6.20|]][[Matthew 6.21|]].
 
@@ -150,7 +150,7 @@ Such is the message of Easter morn. He lives! And because He lives all shall ind
 
 [^14]: [[John 14.2|John 14:2–3]][[John 14.3|]].
 
-[^15]: In Dennis Lythgoe, “Extraordinary Letter Shows How Civil War Touched Ordinary Lives,” *Deseret News,* 16 Oct. 1990, sec. C, p. 3.
+[^15]: In Dennis Lythgoe, “Extraordinary Letter Shows How Civil War Touched Ordinary Lives,” *Deseret News,* 16 Oct. 1990, sec. C, p. 3.
 
 [^16]: [[John 11.25|John 11:25–26]][[John 11.26|]].
 
@@ -158,6 +158,4 @@ Such is the message of Easter morn. He lives! And because He lives all shall ind
 
 [^18]: “I Know That My Redeemer Lives,” *Hymns,* 1985, no. 136.
 
-
-
-#Death #Family #Jesus_Christ #Love #Media #Opposition #Peace #Resurrection #Violence #Work
+#Death #Family #JesusChrist #Love #Media #Opposition #Peace #Resurrection #Violence #Work

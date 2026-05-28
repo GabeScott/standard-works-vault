@@ -1,6 +1,6 @@
 # Trust in the Lord and Lean Not
 
-By Bonnie H. Cordon - *Second Counselor in the Primary General Presidency*
+By Bonnie H. Cordon - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -50,7 +50,7 @@ As we make a habit of approaching Heavenly Father in prayer, we will come to kno
 
 Third, we can come to know the Lord and trust Him as we serve others. I share the following story with permission from Amy Wright, who came to understand the principle of serving even amid a terrifying and life-threatening illness. Amy wrote:
 
-“On October 29, 2015, I found out I had cancer. My cancer has a 17 percent survival rate. The odds weren’t good. I knew that I would be in for the fight of my life. I was determined to give it everything I had not just for myself but, more important, for my family. In December, I began chemo. I was familiar with many of the side effects of cancer-fighting drugs, but I did not know that it was possible for someone to be so sick and still be alive.
+“On October 29, 2015, I found out I had cancer. My cancer has a 17 percent survival rate. The odds weren’t good. I knew that I would be in for the fight of my life. I was determined to give it everything I had not just for myself but, more important, for my family. In December, I began chemo. I was familiar with many of the side effects of cancer-fighting drugs, but I did not know that it was possible for someone to be so sick and still be alive.
 
 “At one point, I declared chemotherapy a human rights violation. I told my husband that I was done. I quit! I was not going back to the hospital. In his wisdom, my sweetheart patiently listened and then responded, ‘Well, then we need to find someone to serve.’”
 
@@ -70,29 +70,27 @@ Sisters, each of us can trust in the Lord and lean *not.* We can center our live
 
 We are on earth to demonstrate the same trust in *Him* that allowed us to stand with Jesus Christ when He declared, “Here am I, send me.”[^7]
 
-My dear sisters, President Thomas S. Monson testified that “our promised blessings are beyond measure. Though the storm clouds may gather, though the rains may pour down upon us, our knowledge of the gospel and our love of our Heavenly Father and of our Savior will comfort and sustain us … as we walk uprightly. … There will be nothing in this world that can defeat us.”[^8]
+My dear sisters, President Thomas S. Monson testified that “our promised blessings are beyond measure. Though the storm clouds may gather, though the rains may pour down upon us, our knowledge of the gospel and our love of our Heavenly Father and of our Savior will comfort and sustain us … as we walk uprightly. … There will be nothing in this world that can defeat us.”[^8]
 
 I add my testimony to that of our beloved prophet. If we trust in our Heavenly Father and in our Savior and lean not to our own understanding, They will direct our paths and will extend the arm of mercy toward us. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Gordon B. Hinckley, “[[2004 April - The Dawning of a Brighter Day.md|The Dawning of a Brighter Day]],” *Ensign* or *Liahona,* May 2004, 81.
+[^1]: Gordon B. Hinckley, “[[2004 April - The Dawning of a Brighter Day.md|The Dawning of a Brighter Day]],” *Ensign* or *Liahona,* May 2004, 81.
 
-[^2]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^2]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^3]: [[Mosiah 1.7|Mosiah 1:7]].
 
 [^4]: [[Moroni 7.48|Moroni 7:48]].
 
-[^5]: See Guide to the Scriptures, “[Prayer](https://churchofjesuschrist.org/study/scriptures/gs/prayer?lang=eng),” scriptures.lds.org.
+[^5]: See Guide to the Scriptures, “[Prayer](https://www.churchofjesuschrist.org/study/scriptures/gs/prayer?lang=eng),” scriptures.lds.org.
 
 [^6]: [[Mosiah 2.17|Mosiah 2:17]].
 
 [^7]: [[Abraham 3.27|Abraham 3:27]].
 
-[^8]: Thomas S. Monson, “[[2009 April - Be of Good Cheer.md|Be of Good Cheer]],” *Ensign* or *Liahona,* May 2009, 92.
+[^8]: Thomas S. Monson, “[[2009 April - Be of Good Cheer.md|Be of Good Cheer]],” *Ensign* or *Liahona,* May 2009, 92.
 
-
-
-#Jesus_Christ #Prayer #Premortal_Existence #Scripture_Study #Service #Trust
+#JesusChrist #Prayer #PremortalExistence #ScriptureStudy #Service #Trust

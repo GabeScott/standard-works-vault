@@ -1,7 +1,6 @@
 # House
 
-
-*See also* [BD House](https://www.churchofjesuschrist.org/study/scriptures/bd/house?lang=eng)
+*See also* [[BD House.md|BD House]]
 
 Come thou and all thy *house* into the ark, [[Genesis 7.1|Genesis 7:1]].
 
@@ -11,23 +10,23 @@ not a *house* where there was not one dead, [[Exodus 12.30|Exodus 12:30]].
 
 according to the *house* of their fathers, [[Numbers 34.14|Numbers 34:14]].
 
-brought thee forth out of ... Egypt, from the *house* of bondage, [[Deuteronomy 8.14|Deuteronomy 8:14]].
+brought thee forth out of … Egypt, from the *house* of bondage, [[Deuteronomy 8.14|Deuteronomy 8:14]].
 
 as for me and my *house*, we will serve the Lord, [[Joshua 24.15|Joshua 24:15]].
 
-iniquity of Eli's *house* shall not be purged, [[1 Samuel 3.14|1 Samuel 3:14]].
+iniquity of Eli’s *house* shall not be purged, [[1 Samuel 3.14|1 Samuel 3:14]].
 
-have not dwelt in any *house* since ... out of Egypt, [[2 Samuel 7.6|2 Samuel 7:6]] ([[1 Chronicles 17.5|1 Chronicles 17:5]]).
+have not dwelt in any *house* since … out of Egypt, [[2 Samuel 7.6|2 Samuel 7:6]] ([[1 Chronicles 17.5|1 Chronicles 17:5]]).
 
-Lord ... will make thee an *house*, [[2 Samuel 7.11|2 Samuel 7:11]] ([[1 Chronicles 17.10|1 Chronicles 17:10]]).
+Lord … will make thee an *house*, [[2 Samuel 7.11|2 Samuel 7:11]] ([[1 Chronicles 17.10|1 Chronicles 17:10]]).
 
 I purpose to build an *house* unto the name of the Lord, [[1 Kings 5.5|1 Kings 5:5]].
 
 *house* which king Solomon built, [[1 Kings 6.2|1 Kings 6:2]] ([[2 Chronicles 3.1|2 Chronicles 3:1]]).
 
-glory ... filled the *house* of the Lord, [[1 Kings 8.11|1 Kings 8:11]] ([[2 Chronicles 5.14|2 Chronicles 5:14]]).
+glory … filled the *house* of the Lord, [[1 Kings 8.11|1 Kings 8:11]] ([[2 Chronicles 5.14|2 Chronicles 5:14]]).
 
-this *house* ... is called by thy name, [[1 Kings 8.43|1 Kings 8:43]] ([[2 Chronicles 6.33|2 Chronicles 6:33]]).
+this *house* … is called by thy name, [[1 Kings 8.43|1 Kings 8:43]] ([[2 Chronicles 6.33|2 Chronicles 6:33]]).
 
 Set thine *house* in order, [[2 Kings 20.1|2 Kings 20:1]] ([[Isaiah 38.1|Isaiah 38:1]]).
 
@@ -59,25 +58,25 @@ troubleth his own *house* shall inherit the wind, [[Proverbs 11.29|Proverbs 11:2
 
 Through wisdom is an *house* builded, [[Proverbs 24.3|Proverbs 24:3]].
 
-mountain of the Lord's *house* shall be established, [[Isaiah 2.2|Isaiah 2:2]] ([[2 Nephi 12.2|2 Nephi 12:2]]).
+mountain of the Lord’s *house* shall be established, [[Isaiah 2.2|Isaiah 2:2]] ([[2 Nephi 12.2|2 Nephi 12:2]]).
 
-let us go up ... to the *house* of the God, [[Isaiah 2.3|Isaiah 2:3]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.3|2 Nephi 12:3]]).
+let us go up … to the *house* of the God, [[Isaiah 2.3|Isaiah 2:3]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.3|2 Nephi 12:3]]).
 
 Woe unto them that join *house* to *house*, [[Isaiah 5.8|Isaiah 5:8]].
 
-saith the Lord ... concerning the *house* of Jacob, [[Isaiah 29.22|Isaiah 29:22]].
+saith the Lord … concerning the *house* of Jacob, [[Isaiah 29.22|Isaiah 29:22]].
 
-in mine *house* ... give them an everlasting name, [[Isaiah 56.5|Isaiah 56:5]].
+in mine *house* … give them an everlasting name, [[Isaiah 56.5|Isaiah 56:5]].
 
 mine *house* shall be called an *house* of prayer, [[Isaiah 56.7|Isaiah 56:7]] ([[Matthew 21.13|Matthew 21:13]]; [[Mark 11.17|Mark 11:17]]; [[Luke 19.46|Luke 19:46]]).
 
-Our holy and our beautiful *house* ... is burned up, [[Isaiah 64.11|Isaiah 64:11]].
+Our holy and our beautiful *house* … is burned up, [[Isaiah 64.11|Isaiah 64:11]].
 
 where is the *house* that ye build, [[Isaiah 66.1|Isaiah 66:1]] ([[Acts 7.49|Acts 7:49]]).
 
-*house* of Judah ... *house* of Israel ... shall come together, [[Jeremiah 3.18|Jeremiah 3:18]].
+*house* of Judah … *house* of Israel … shall come together, [[Jeremiah 3.18|Jeremiah 3:18]].
 
-this *house* ... become a den of robbers, [[Jeremiah 7.11|Jeremiah 7:11]].
+this *house* … become a den of robbers, [[Jeremiah 7.11|Jeremiah 7:11]].
 
 Build ye *houses*, and dwell in them, [[Jeremiah 29.5|Jeremiah 29:5]].
 
@@ -91,21 +90,21 @@ mountain of the *house* as the high places of the forest, [[Micah 3.12|Micah 3:1
 
 enemies are the men of his own *house*, [[Micah 7.6|Micah 7:6]].
 
-time that the Lord's *house* should be built, [[Haggai 1.2|Haggai 1:2]].
+time that the Lord’s *house* should be built, [[Haggai 1.2|Haggai 1:2]].
 
-returned to Jerusalem ... *house* shall be built, [[Zechariah 1.16|Zechariah 1:16]].
+returned to Jerusalem … *house* shall be built, [[Zechariah 1.16|Zechariah 1:16]].
 
-tithes ... meat in mine *house*, [[Malachi 3.10|Malachi 3:10]] ([[3 Nephi 24.10|3 Nephi 24:10]]).
+tithes … meat in mine *house*, [[Malachi 3.10|Malachi 3:10]] ([[3 Nephi 24.10|3 Nephi 24:10]]).
 
-*house* ... fell: and great was the fall, [[Matthew 7.27|Matthew 7:27]] ([[3 Nephi 14.27|3 Nephi 14:27]]).
+*house* … fell: and great was the fall, [[Matthew 7.27|Matthew 7:27]] ([[3 Nephi 14.27|3 Nephi 14:27]]).
 
-Jesus came into the ruler's *house*, [[Matthew 9.23|Matthew 9:23]] ([[Mark 5.38|Mark 5:38]]).
+Jesus came into the ruler’s *house*, [[Matthew 9.23|Matthew 9:23]] ([[Mark 5.38|Mark 5:38]]).
 
 entered into the *house* of God, [[Matthew 12.4|Matthew 12:4]] ([[Mark 2.26|Mark 2:26]]; [[Luke 6.4|Luke 6:4]]).
 
 *house* divided against itself, [[Matthew 12.25|Matthew 12:25]] ([[Mark 3.25|Mark 3:25]]; [[Luke 11.17|Luke 11:17]]).
 
-ye devour widows' *houses*, [[Matthew 23.14|Matthew 23:14]] ([[Mark 12.40|Mark 12:40]]; [[Luke 20.47|Luke 20:47]]).
+ye devour widows’ *houses*, [[Matthew 23.14|Matthew 23:14]] ([[Mark 12.40|Mark 12:40]]; [[Luke 20.47|Luke 20:47]]).
 
 your *house* is left unto you desolate, [[Matthew 23.38|Matthew 23:38]] ([[Luke 13.35|Luke 13:35]]).
 
@@ -119,13 +118,13 @@ sweep the *house*, and seek diligently, [[Luke 15.8|Luke 15:8]].
 
 is salvation come to this *house*, [[Luke 19.9|Luke 19:9]].
 
-make not my Father's *house* an *house* of merchandise, [[John 2.16|John 2:16]].
+make not my Father’s *house* an *house* of merchandise, [[John 2.16|John 2:16]].
 
 himself believed, and his whole *house*, [[John 4.53|John 4:53]].
 
 *house* was filled with the odour of the ointment, [[John 12.3|John 12:3]].
 
-In my Father's *house* are many mansions, [[John 14.2|John 14:2]].
+In my Father’s *house* are many mansions, [[John 14.2|John 14:2]].
 
 breaking bread from *house* to *house*, [[Acts 2.46|Acts 2:46]].
 
@@ -169,7 +168,7 @@ visit the *house* of each member, [[D&C 20.47|D&C 20:47]] ([[D&C 20.51|D&C 20:51
 
 Govern your *house* in meekness, [[D&C 31.9|D&C 31:9]].
 
-go to the *house* of prayer ... upon my holy day, [[D&C 59.9|D&C 59:9]].
+go to the *house* of prayer … upon my holy day, [[D&C 59.9|D&C 59:9]].
 
 from *house* to *house*, [[D&C 75.18|D&C 75:18]].
 
@@ -179,9 +178,9 @@ establish a *house*, even a *house* of prayer, [[D&C 88.119|D&C 88:119]] ([[D&C 
 
 set in order your own *house*, [[D&C 93.43|D&C 93:43]].
 
-a *house* ... for the salvation of Zion, [[D&C 97.12|D&C 97:12]].
+a *house* … for the salvation of Zion, [[D&C 97.12|D&C 97:12]].
 
-manifest myself ... in this *house*, [[D&C 110.7|D&C 110:7]].
+manifest myself … in this *house*, [[D&C 110.7|D&C 110:7]].
 
 upon my *house* shall it begin, [[D&C 112.25|D&C 112:25]].
 
@@ -189,4 +188,4 @@ severed from the ordinances of mine *house*, [[D&C 121.19|D&C 121:19]].
 
 ordained by the ordinance of my holy *house*, [[D&C 124.39|D&C 124:39]].
 
-flee unto Jerusalem, unto the mountains of the Lord's *house*, [[D&C 133.13|D&C 133:13]].
+flee unto Jerusalem, unto the mountains of the Lord’s *house*, [[D&C 133.13|D&C 133:13]].

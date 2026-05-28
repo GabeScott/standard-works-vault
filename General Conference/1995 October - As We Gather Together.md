@@ -25,6 +25,4 @@ I invoke the blessings of the Lord upon all who will speak, upon all who will si
 
 
 
-
-
-#Church_Growth #General_Conference #Testimony
+#ChurchGrowth #GeneralConference #Testimony

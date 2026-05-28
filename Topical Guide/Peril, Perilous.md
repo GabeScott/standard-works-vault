@@ -1,11 +1,10 @@
 # Peril, Perilous
 
-
 *See also* [[Danger.md|Danger]]; [[Jeopardy.md|Jeopardy]]
 
 We gat our bread with the *peril* of our lives, [[Lamentations 5.9|Lamentations 5:9]].
 
-separate us from the love of Christ? shall tribulation ... or *peril*, [[Romans 8.35|Romans 8:35]].
+separate us from the love of Christ? shall tribulation … or *peril*, [[Romans 8.35|Romans 8:35]].
 
 in *perils* of waters, in *perils* of robbers, in *perils* by mine own countrymen, [[2 Corinthians 11.26|2 Corinthians 11:26]].
 

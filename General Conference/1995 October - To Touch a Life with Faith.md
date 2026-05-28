@@ -12,7 +12,7 @@ With that introduction, which surely caught our attention, he then said:
 
 “This church does not belong to its President. Its head is the Lord Jesus Christ, whose name each of us has taken upon ourselves. We are all in this great endeavor together. We are here to assist our Father in His work and His glory, ‘to bring to pass the immortality and eternal life of man’ ([[Moses 1.39|Moses 1:39]]). Your obligation is as serious in your sphere of responsibility as is my obligation in my sphere. No calling in this church is small or of little consequence. All of us in the pursuit of our duty touch the lives of others. To each of us in our respective responsibilities the Lord has said:
 
-“‘Wherefore, be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees’ ([[D&C 81.5|D&C 81:5]])” (in Conference Report, Apr. 1995, p. 94; or *Ensign,* May 1995, p. 71).
+“‘Wherefore, be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees’ ([[D&C 81.5|D&C 81:5]])” (in Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|p. 94]]; or *Ensign,* May 1995, p. 71).
 
 You must have wondered about that idea that your calling carries for you as serious a responsibility as his does for him. But you can see why that must be so. You and he are called by the same Savior, whose church this is. You are involved in the same work, which is to help the Lord to bring to pass the eternal life of man. In your calling you touch lives. The life you touch in your service will be as valuable to God as any other life. And so how you touch a life is as serious a matter for you as it would be for any other servant of God.
 
@@ -107,6 +107,4 @@ I testify that God the Father lives and that He loves you. I testify that Jesus 
 
 
 
-
-
-#Adversity #Agency #Commandments #Death #Faith #Jesus_Christ #Missionary_Work #Obedience #Plan_Of_Salvation #Service #Teaching #Work
+#Agency #Adversity #Commandments #Death #Faith #JesusChrist #MissionaryWork #Obedience #PlanOfSalvation #Service #Teaching #Work

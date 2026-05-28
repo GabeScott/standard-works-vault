@@ -1,4 +1,3 @@
 # Behemoth
 
-
-*See* [BD Behemoth](https://www.churchofjesuschrist.org/study/scriptures/bd/behemoth?lang=eng)
+*See also* [[BD Behemoth.md|BD Behemoth]]

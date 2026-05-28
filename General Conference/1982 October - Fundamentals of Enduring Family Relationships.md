@@ -58,7 +58,7 @@ First: “See that ye love one another; cease to be covetous; learn to impart on
 
 Second: “Thou shalt love thy wife with all thy heart, and shalt cleave unto her and none else. … Thou shalt not commit adultery.” ([[D&C 42.22|D&C 42:22, 24]][[D&C 42.24|]].)
 
-Third: “He that hath the spirit of contention is not of me, but is of the devil, who is the father of contention.” ([[3 Nephi 11.29|3 Ne. 11:29]].)
+Third: “He that hath the spirit of contention is not of me, but is of the devil, who is the father of contention.” ([[3 Nephi 11.29|3 Ne. 11:29]].)
 
 And there are many more scriptural admonitions.
 
@@ -112,15 +112,13 @@ Parents who provide such a home will have, as the Lord has said, “a house of p
 
 One past Church President gave this counsel to parents:
 
-“The home is what needs reforming. Try today, and tomorrow, to make a change in your home by praying twice a day with your family. … Ask a blessing upon every meal you eat. Spend ten minutes … reading a chapter from the words of the Lord in the \[scriptures\]. … Let love, peace, and the Spirit of the Lord, kindness, charity, sacrifice for others, abound in your families. Banish harsh words, … and let the Spirit of God take possession of your hearts. Teach to your children these things, in spirit and power. … Not one child in a hundred would go astray, if the home environment, example and training, were in harmony with … the gospel of Christ.” (Joseph F. Smith, *Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 302.)
+“The home is what needs reforming. Try today, and tomorrow, to make a change in your home by praying twice a day with your family. … Ask a blessing upon every meal you eat. Spend ten minutes … reading a chapter from the words of the Lord in the \[scriptures\]. … Let love, peace, and the Spirit of the Lord, kindness, charity, sacrifice for others, abound in your families. Banish harsh words, … and let the Spirit of God take possession of your hearts. Teach to your children these things, in spirit and power. … Not one child in a hundred would go astray, if the home environment, example and training, were in harmony with … the gospel of Christ.” (Joseph F. Smith, *Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 302.)
 
 I testify that, by following these precepts and practices, serious problems with the family can and will be avoided.
 
 Thank God for the joys of family life. I have often said there can be no genuine happiness separate and apart from a good home. The sweetest influences and associations of life are there.
 
 God bless us to strengthen our homes with love and unity and by following his precepts, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

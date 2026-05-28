@@ -63,7 +63,7 @@ Because Relief Society is divinely designed, it blesses not only women but the f
 
 [^6]: [[Moroni 7.46|Moroni 7:46]].
 
-[^7]: In Conference Report, Apr. 1998, 96; or *Ensign,* May 1998, 73.
+[^7]: In Conference Report, Apr. 1998, [[1998 April - The Relief Society.md|96]]; or *Ensign,* May 1998, 73.
 
 [^8]: See [[Alma 32.27|Alma 32:27]].
 
@@ -71,6 +71,4 @@ Because Relief Society is divinely designed, it blesses not only women but the f
 
 [^10]: Personal correspondence.
 
-
-
-#Charity #Family #Relief_Society #Women
+#Charity #Family #ReliefSociety #Women

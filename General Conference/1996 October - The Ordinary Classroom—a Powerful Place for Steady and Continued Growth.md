@@ -85,7 +85,7 @@ I pray that we will continue to hold on to one another through effective classro
 
 [^4]: [[D&C 88.77|D&C 88:77, 80]][[D&C 88.80|]].
 
-[^5]: “True doctrine, understood, changes attitudes and behavior. The study of the doctrines of the gospel will improve behavior quicker than a study of behavior will improve behavior” (in Conference Report, Oct. 1986, 20; or *Ensign,* Nov. 1986, 17).
+[^5]: “True doctrine, understood, changes attitudes and behavior. The study of the doctrines of the gospel will improve behavior quicker than a study of behavior will improve behavior” (in Conference Report, Oct. 1986, [[1986 October - Little Children.md|20]]; or *Ensign,* Nov. 1986, 17).
 
 [^6]: See *Teaching—No Greater Call* (1978); *Instructions for Priesthood and Auxiliary Leaders on Teacher Development* (1993); *Teach One Another* (videocassette, 1990).
 
@@ -99,6 +99,4 @@ I pray that we will continue to hold on to one another through effective classro
 
 [^11]: “We are all in it together, all of us, and we have a great work to do. Every teacher can be a better teacher than he or she is today. Every officer can be a better officer than he or she is today. Every father can be a better father, every mother can be a better mother, every husband can be a better husband, every wife a better wife, every child a better child. We are on the road that leads to immortality and eternal life and today is a part of it. Let us never forget it” (Gordon B. Hinckley, quoted in *Church News,* 4 Nov. 1995, 2).
 
-
-
-#Education #Holy_Ghost #Ordinances #Scriptures #Teaching #Trust
+#Education #HolyGhost #Ordinances #Scriptures #Teaching #Trust

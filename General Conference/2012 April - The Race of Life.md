@@ -1,6 +1,6 @@
 # The Race of Life
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -122,7 +122,7 @@ In one week we will celebrate Easter. Our thoughts will turn to the Savior’s l
 
 [^7]: [[John 14.2|John 14:2–3]][[John 14.3|]].
 
-[^8]: See [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]].
+[^8]: See [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]].
 
 [^9]: [[Hebrews 12.1|Hebrews 12:1]].
 
@@ -136,8 +136,6 @@ In one week we will celebrate Easter. Our thoughts will turn to the Savior’s l
 
 [^14]: [[Luke 24.5|Luke 24:5–6]][[Luke 24.6|]].
 
-[^15]: [[1 Corinthians 15.40|1 Corinthians 15:40]].
+[^15]: [[1 Corinthians 15.40|1 Corinthians 15:40]].
 
-
-
-#Death #Jesus_Christ #Plan_Of_Salvation #Priorities #Resurrection
+#Death #JesusChrist #PlanOfSalvation #Priorities #Resurrection

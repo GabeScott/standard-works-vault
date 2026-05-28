@@ -1,6 +1,6 @@
 # Thru Cloud and Sunshine, Lord, Abide with Me!
 
-By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
+By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -42,7 +42,7 @@ If you are constantly surrounded by a “mist of darkness,”[^24] turn to Heave
 
 Your struggles do not define you, but they can *refine* you.[^28] Because of a “thorn in the flesh,”[^29] you may have the ability to feel more compassion toward others. As guided by the Holy Ghost, share your story in order to “succor the weak, lift up the hands which hang down, and strengthen the feeble knees.”[^30]
 
-For those of us currently struggling or supporting someone who is struggling, let us be willing to follow God’s commandments so we may always have His Spirit with us.[^31] Let us do the “small and simple things”[^32] that will give us spiritual strength. As President Russell M. Nelson said, “Nothing opens the heavens quite like the combination of increased purity, exact obedience, earnest seeking, daily feasting on the words of Christ in the Book of Mormon, and regular time committed to temple and family history work.”[^33]
+For those of us currently struggling or supporting someone who is struggling, let us be willing to follow God’s commandments so we may always have His Spirit with us.[^31] Let us do the “small and simple things”[^32] that will give us spiritual strength. As President Russell M. Nelson said, “Nothing opens the heavens quite like the combination of increased purity, exact obedience, earnest seeking, daily feasting on the words of Christ in the Book of Mormon, and regular time committed to temple and family history work.”[^33]
 
 Let us all remember that our Savior, Jesus Christ, “\[has taken\] upon him \[our\] infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know … how to succor \[us\] according to \[our\] infirmities.”[^34] He came “to bind up the brokenhearted, … to comfort all that mourn; … to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness.”[^35]
 
@@ -51,15 +51,15 @@ I testify to you that “thru cloud and sunshine” the Lord will abide with us,
 
 
 
-[^1]: “Abide with Me!” *Hymns,* no. 166.
+[^1]: “Abide with Me!” *Hymns,* no. 166.
 
 [^2]: When we were above the clouds, we could not visualize the darkness that lay just a few feet below us, and when we were enveloped in the darkness underneath, it was difficult to visualize the radiance of the sun that shone just a few feet above us.
 
-[^3]: “[The Family: A Proclamation to the World,](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng)” *Ensign* or *Liahona,* May 2017, 145.
+[^3]: “[The Family: A Proclamation to the World,](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng)” *Ensign* or *Liahona,* May 2017, 145.
 
-[^4]: “The spirit and the body are the soul of man” ([[D&C 88.15|Doctrine and Covenants 88:15]]). “Your body is the temple for your spirit. And how you use your body affects your spirit” (Russell M. Nelson, “[[2013 October - Decisions for Eternity.md|Decisions for Eternity]],” *Ensign* or *Liahona,* Nov. 2013, 107).
+[^4]: “The spirit and the body are the soul of man” ([[D&C 88.15|Doctrine and Covenants 88:15]]). “Your body is the temple for your spirit. And how you use your body affects your spirit” (Russell M. Nelson, “[[2013 October - Decisions for Eternity.md|Decisions for Eternity]],” *Ensign* or *Liahona,* Nov. 2013, 107).
 
-[^5]: See, for example, [[Isaiah 65.19|Isaiah 65:19]]; [[Luke 7.13|Luke 7:13]]; [[3 Nephi 17.6|3 Nephi 17:6–7]][[3 Nephi 17.7|]]; [[Moses 7.28|Moses 7:28]]. Learning to identify and value our emotions can help us use them constructively to become more like our Savior, Jesus Christ.
+[^5]: See, for example, [[Isaiah 65.19|Isaiah 65:19]]; [[Luke 7.13|Luke 7:13]]; [[3 Nephi 17.6|3 Nephi 17:6–7]][[3 Nephi 17.7|]]; [[Moses 7.28|Moses 7:28]]. Learning to identify and value our emotions can help us use them constructively to become more like our Savior, Jesus Christ.
 
 [^6]: See “Sadness and Depression,” kidshealth.org/en/kids/depression.html.
 
@@ -67,47 +67,47 @@ I testify to you that “thru cloud and sunshine” the Lord will abide with us,
 
 [^8]: Personal correspondence. She also wrote: “The healing balm of my Savior’s Atonement has been the most constant source of peace and refuge throughout my journey. When I feel alone in my struggle, I am reminded that He has already experienced exactly what I am going through on my behalf. … There is so much hope in knowing that my future perfected, resurrected body will not be plagued by this mortal \[affliction\].”
 
-[^9]: See Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign,* Nov. 1995, 86–88; Jeffrey R. Holland, “[[2017 October - Be Ye Therefore Perfect—Eventually.md|Be Ye Therefore Perfect—Eventually]],” *Ensign* or *Liahona,* Nov. 2017, 40–42; J. Devn Cornish, “[[2016 October - Am I Good Enough Will I Make It.md|Am I Good Enough? Will I Make It?]]” *Ensign* or *Liahona,* Nov. 2016, 32–34; Cecil O. Samuelson, “[What Does It Mean to Be Perfect?](https://churchofjesuschrist.org/study/new-era/2006/01/what-does-it-mean-to-be-perfect?lang=eng)” *New Era,* Jan. 2006, 10–13.
+[^9]: See Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign,* Nov. 1995, 86–88; Jeffrey R. Holland, “[[2017 October - Be Ye Therefore Perfect—Eventually.md|Be Ye Therefore Perfect—Eventually]],” *Ensign* or *Liahona,* Nov. 2017, 40–42; J. Devn Cornish, “[[2016 October - Am I Good Enough Will I Make It.md|Am I Good Enough? Will I Make It?]]” *Ensign* or *Liahona,* Nov. 2016, 32–34; Cecil O. Samuelson, “[What Does It Mean to Be Perfect?](https://www.churchofjesuschrist.org/study/new-era/2006/01/what-does-it-mean-to-be-perfect?lang=eng)” *New Era,* Jan. 2006, 10–13.
 
 [^10]: It is important to talk about these issues with our children, families, and friends in our homes, wards, and communities.
 
 [^11]: [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
 
-[^12]: See Russell M. Nelson, “[[2005 October - Jesus Christ—the Master Healer.md|Jesus Christ—the Master Healer]],” *Ensign* or *Liahona,* Nov. 2005, 85–88; Carole M. Stephens, “[[2016 October - The Master Healer.md|The Master Healer]],” *Ensign* or *Liahona,* Nov. 2016, 9–12.
+[^12]: See Russell M. Nelson, “[[2005 October - Jesus Christ—the Master Healer.md|Jesus Christ—the Master Healer]],” *Ensign* or *Liahona,* Nov. 2005, 85–88; Carole M. Stephens, “[[2016 October - The Master Healer.md|The Master Healer]],” *Ensign* or *Liahona,* Nov. 2016, 9–12.
 
 [^13]: Knowing how to recognize signs and symptoms in ourselves and others can be helpful. We can also learn to detect inaccurate or unhealthy thinking patterns and how to replace them with more accurate and healthier ones.
 
 [^14]: Depression can also result from positive life changes—such as the birth of a child or a new job—and can occur when things are good in a person’s life.
 
-[^15]: See “[Understanding Stress](https://churchofjesuschrist.org/study/manual/resource-booklet-adjusting-to-missionary-life/understanding-stress?lang=eng),” *Adjusting to Missionary Life* (2013), 5–10.
+[^15]: See “[Understanding Stress](https://www.churchofjesuschrist.org/study/manual/resource-booklet-adjusting-to-missionary-life/understanding-stress?lang=eng),” *Adjusting to Missionary Life* (2013), 5–10.
 
-[^16]: See Jeffrey R. Holland, “[[2013 October - Like a Broken Vessel.md|Like a Broken Vessel]],” *Ensign* or *Liahona,* Nov. 2013, 40.
+[^16]: See Jeffrey R. Holland, “[[2013 October - Like a Broken Vessel.md|Like a Broken Vessel]],” *Ensign* or *Liahona,* Nov. 2013, 40.
 
-[^17]: See Dale G. Renlund, “Understanding Suicide” (video), [ChurchofJesusChrist.org](https://www.churchofjesuschrist.org); “Talking about Suicide” (video), [ChurchofJesusChrist.org](https://www.churchofjesuschrist.org); Kenishi Shimokawa, “[Understanding Suicide: Warning Signs and Prevention,](https://churchofjesuschrist.org/study/liahona/2016/10/understanding-suicide-warning-signs-and-prevention?lang=eng)” *Ensign* or *Liahona,* Oct. 2016, 35–39.
+[^17]: See Dale G. Renlund, “Understanding Suicide” (video), [ChurchofJesusChrist.org](https://www.churchofjesuschrist.org); “Talking about Suicide” (video), [ChurchofJesusChrist.org](https://www.churchofjesuschrist.org); Kenishi Shimokawa, “[Understanding Suicide: Warning Signs and Prevention,](https://www.churchofjesuschrist.org/study/liahona/2016/10/understanding-suicide-warning-signs-and-prevention?lang=eng)” *Ensign* or *Liahona,* Oct. 2016, 35–39.
 
-[^18]: “The beginning of healing requires childlike faith in the unalterable fact that Father in Heaven loves you and has supplied a way to heal. His Beloved Son, Jesus Christ, laid down His life to provide that healing. But there is no magic solution, no simple balm to provide healing, nor is there an easy path to the complete remedy. The cure requires profound faith in Jesus Christ and in His infinite capacity to heal” (Richard G. Scott, “[[2008 April - To Heal the Shattering Consequences of Abuse.md|To Heal the Shattering Consequences of Abuse]],” *Ensign* or *Liahona,* May 2008, 42). When there is a problem, our tendency is to fix it. However, we do not have to become sole fixers of ourselves or of others. We do not have to do everything ourselves. On more than one occasion in my life, I have sought therapists to help me deal with difficult times.
+[^18]: “The beginning of healing requires childlike faith in the unalterable fact that Father in Heaven loves you and has supplied a way to heal. His Beloved Son, Jesus Christ, laid down His life to provide that healing. But there is no magic solution, no simple balm to provide healing, nor is there an easy path to the complete remedy. The cure requires profound faith in Jesus Christ and in His infinite capacity to heal” (Richard G. Scott, “[[2008 April - To Heal the Shattering Consequences of Abuse.md|To Heal the Shattering Consequences of Abuse]],” *Ensign* or *Liahona,* May 2008, 42). When there is a problem, our tendency is to fix it. However, we do not have to become sole fixers of ourselves or of others. We do not have to do everything ourselves. On more than one occasion in my life, I have sought therapists to help me deal with difficult times.
 
 [^19]: See [[John 9.1|John 9:1–7]][[John 9.2|]][[John 9.3|]][[John 9.4|]][[John 9.5|]][[John 9.6|]][[John 9.7|]].
 
 [^20]: Jane Clayson Johnson, *Silent Souls Weeping* (2018), 197.
 
-[^21]: See [[Matthew 9.2|Matthew 9:2–7, 20–22]][[Matthew 9.3|]][[Matthew 9.4|]][[Matthew 9.5|]][[Matthew 9.6|]][[Matthew 9.7|]][[Matthew 9.20|]][[Matthew 9.21|]][[Matthew 9.22|]]; [[Matthew 14.35|14:35–36]][[Matthew 14.36|]]; [[Mark 1.40|Mark 1:40–42]][[Mark 1.41|]][[Mark 1.42|]]; [[Mark 2.3|2:3–5]][[Mark 2.4|]][[Mark 2.5|]]; [[3 Nephi 17.6|3 Nephi 17:6–7]][[3 Nephi 17.7|]].
+[^21]: See [[Matthew 9.2|Matthew 9:2–7, 20–22]][[Matthew 9.3|]][[Matthew 9.4|]][[Matthew 9.5|]][[Matthew 9.6|]][[Matthew 9.7|]][[Matthew 9.20|]][[Matthew 9.21|]][[Matthew 9.22|]]; [[Matthew 14.35|14:35–36]][[Matthew 14.36|]]; [[Mark 1.40|Mark 1:40–42]][[Mark 1.41|]][[Mark 1.42|]]; [[Mark 2.3|2:3–5]][[Mark 2.4|]][[Mark 2.5|]]; [[3 Nephi 17.6|3 Nephi 17:6–7]][[3 Nephi 17.7|]].
 
-[^22]: [[Mosiah 4.19|Mosiah 4:19]]; see also Jeffrey R. Holland, “[[2014 October - Are We Not All Beggars.md|Are We Not All Beggars?]]” *Ensign* or *Liahona,* Nov. 2014, 40–42.
+[^22]: [[Mosiah 4.19|Mosiah 4:19]]; see also Jeffrey R. Holland, “[[2014 October - Are We Not All Beggars.md|Are We Not All Beggars?]]” *Ensign* or *Liahona,* Nov. 2014, 40–42.
 
-[^23]: See [[Romans 2.19|Romans 2:19]]; [[Romans 13.12|13:12]]; see also Jeffrey R. Holland, “[Come unto Me](https://speeches.byu.edu/talks/jeffrey-r-holland/come-unto)” (Brigham Young University devotional, Mar. 2, 1997), speeches.byu.edu.
+[^23]: See [[Romans 2.19|Romans 2:19]]; [[Romans 13.12|13:12]]; see also Jeffrey R. Holland, “[Come unto Me](https://speeches.byu.edu/talks/jeffrey-r-holland/come-unto)” (Brigham Young University devotional, Mar. 2, 1997), speeches.byu.edu.
 
-[^24]: [[1 Nephi 8.23|1 Nephi 8:23]]; see also [[1 Nephi 12.4|1 Nephi 12:4, 17]][[1 Nephi 12.17|]]; [[3 Nephi 8.22|3 Nephi 8:22]].
+[^24]: [[1 Nephi 8.23|1 Nephi 8:23]]; see also [[1 Nephi 12.4|1 Nephi 12:4, 17]][[1 Nephi 12.17|]]; [[3 Nephi 8.22|3 Nephi 8:22]].
 
 [^25]: See [[Psalms 82.6|Psalm 82:6]]; [[Romans 8.16|Romans 8:16–18]][[Romans 8.17|]][[Romans 8.18|]]; [[D&C 24.1|Doctrine and Covenants 24:1]]; [[D&C 76.24|76:24]]; [[Moses 1.1|Moses 1:1–39]][[Moses 1.2|]][[Moses 1.3|]][[Moses 1.4|]][[Moses 1.5|]][[Moses 1.6|]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.9|]][[Moses 1.10|]][[Moses 1.11|]][[Moses 1.12|]][[Moses 1.13|]][[Moses 1.14|]][[Moses 1.15|]][[Moses 1.16|]][[Moses 1.17|]][[Moses 1.18|]][[Moses 1.19|]][[Moses 1.20|]][[Moses 1.21|]][[Moses 1.22|]][[Moses 1.23|]][[Moses 1.24|]][[Moses 1.25|]][[Moses 1.26|]][[Moses 1.27|]][[Moses 1.28|]][[Moses 1.29|]][[Moses 1.30|]][[Moses 1.31|]][[Moses 1.32|]][[Moses 1.33|]][[Moses 1.34|]][[Moses 1.35|]][[Moses 1.36|]][[Moses 1.37|]][[Moses 1.38|]][[Moses 1.39|]].
 
-[^26]: See *Adjusting to Missionary Life,* 20; see also [[Micah 7.8|Micah 7:8]]; [[Matthew 4.16|Matthew 4:16]]; [[Luke 1.78|Luke 1:78–79]][[Luke 1.79|]]; [[John 8.12|John 8:12]].
+[^26]: See *[Adjusting to Missionary Life,](https://www.churchofjesuschrist.org/study/manual/resource-booklet-adjusting-to-missionary-life/adjusting-to-missionary-life?lang=eng)* 20; see also [[Micah 7.8|Micah 7:8]]; [[Matthew 4.16|Matthew 4:16]]; [[Luke 1.78|Luke 1:78–79]][[Luke 1.79|]]; [[John 8.12|John 8:12]].
 
 [^27]: [[Jacob 3.1|Jacob 3:1]]; see also [[Ephesians 5.8|Ephesians 5:8]]; [[Colossians 1.10|Colossians 1:10–14]][[Colossians 1.11|]][[Colossians 1.12|]][[Colossians 1.13|]][[Colossians 1.14|]]; [[Mosiah 24.13|Mosiah 24:13–14]][[Mosiah 24.14|]]; [[Alma 38.5|Alma 38:5]]. Read your patriarchal blessing or ask for a priesthood blessing so you can hear and remember how much Heavenly Father loves you and wants to bless you.
 
-[^28]: See [[2 Corinthians 4.16|2 Corinthians 4:16–18]][[2 Corinthians 4.17|]][[2 Corinthians 4.18|]]; [[D&C 121.7|Doctrine and Covenants 121:7–8, 33]][[D&C 121.8|]][[D&C 121.33|]]; [[D&C 122.5|122:5–9]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]][[D&C 122.9|]].
+[^28]: See [[2 Corinthians 4.16|2 Corinthians 4:16–18]][[2 Corinthians 4.17|]][[2 Corinthians 4.18|]]; [[D&C 121.7|Doctrine and Covenants 121:7–8, 33]][[D&C 121.8|]][[D&C 121.33|]]; [[D&C 122.5|122:5–9]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]][[D&C 122.9|]].
 
-[^29]: [[2 Corinthians 12.7|2 Corinthians 12:7]].
+[^29]: [[2 Corinthians 12.7|2 Corinthians 12:7]].
 
 [^30]: [[D&C 81.5|Doctrine and Covenants 81:5]]; see also [[Isaiah 35.3|Isaiah 35:3]].
 
@@ -115,17 +115,17 @@ I testify to you that “thru cloud and sunshine” the Lord will abide with us,
 
 [^32]: [[Alma 37.6|Alma 37:6]].
 
-[^33]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95.
+[^33]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95.
 
-[^34]: [[Alma 7.12|Alma 7:12]]; see also [[Isaiah 53.4|Isaiah 53:4]]; [[2 Nephi 9.21|2 Nephi 9:21]]; [[Mosiah 14.4|Mosiah 14:4]].
+[^34]: [[Alma 7.12|Alma 7:12]]; see also [[Isaiah 53.4|Isaiah 53:4]]; [[2 Nephi 9.21|2 Nephi 9:21]]; [[Mosiah 14.4|Mosiah 14:4]].
 
 [^35]: [[Isaiah 61.1|Isaiah 61:1–3]][[Isaiah 61.2|]][[Isaiah 61.3|]]; see also [[Luke 4.18|Luke 4:18]].
 
 [^36]: [[Alma 31.38|Alma 31:38]]; see also [[Alma 32.43|Alma 32:43]]; [[Alma 33.23|33:23]].
 
-[^37]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^37]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
-[^38]: [[Malachi 4.2|Malachi 4:2]]; [[3 Nephi 25.2|3 Nephi 25:2]].
+[^38]: [[Malachi 4.2|Malachi 4:2]]; [[3 Nephi 25.2|3 Nephi 25:2]].
 
 [^39]: [[Revelation 21.4|Revelation 21:4]].
 
@@ -133,6 +133,4 @@ I testify to you that “thru cloud and sunshine” the Lord will abide with us,
 
 [^41]: [[Isaiah 60.20|Isaiah 60:20]].
 
-
-
-#Depression #Hope #Mental_Health
+#Depression #Hope #MentalHealth

@@ -81,9 +81,9 @@ We can all expect to face trials. But great eternal promises are extended to tho
 
 [^5]: [[D&C 42.61|D&C 42:61]].
 
-[^6]: See Carlos E. Asay, in Conference Report, Oct. 1985, 56–60; or *Ensign,* Nov. 1985, 43–45.
+[^6]: See Carlos E. Asay, in Conference Report, Oct. 1985, [[1985 October - The Oath and Covenant of the Priesthood.md|56–60]]; or *Ensign,* Nov. 1985, 43–45.
 
-[^7]: See [[3 Nephi 20.25|3 Nephi 20:25–29]][[3 Nephi 20.26|]][[3 Nephi 20.27|]][[3 Nephi 20.28|]][[3 Nephi 20.29|]].
+[^7]: See [[3 Nephi 20.25|3 Nephi 20:25–29]][[3 Nephi 20.26|]][[3 Nephi 20.27|]][[3 Nephi 20.28|]][[3 Nephi 20.29|]].
 
 [^8]: See *Teachings of the Prophet Joseph Smith,* 149–50.
 
@@ -115,11 +115,11 @@ We can all expect to face trials. But great eternal promises are extended to tho
 
 [^22]: See [[Matthew 26.26|Matthew 26:26–28]][[Matthew 26.27|]][[Matthew 26.28|]]; [[JST Matthew 26.22|Joseph Smith Translation, Matthew 26:22–24]][[JST Matthew 26.23|]][[JST Matthew 26.24|]].
 
-[^23]: Quoted in Victor L. Brown, in Conference Report, Oct. 1975, 101–2; or *Ensign,* Nov. 1975, 68.
+[^23]: Quoted in Victor L. Brown, in Conference Report, Oct. 1975, [[1975 October - The Vision of the Aaronic Priesthood.md|101–2]]; or *Ensign,* Nov. 1975, 68.
 
 [^24]: Quoted in Jason Swensen, “Priesthood Restored Directly from Heaven,” *Church News,* May 22, 2004, 3.
 
-[^25]: See [[Genesis 18.18|Genesis 18:18]]; [[Galatians 3.8|Galatians 3:8]]; [[3 Nephi 20.25|3 Nephi 20:25, 29]][[3 Nephi 20.29|]].
+[^25]: See [[Genesis 18.18|Genesis 18:18]]; [[Galatians 3.8|Galatians 3:8]]; [[3 Nephi 20.25|3 Nephi 20:25, 29]][[3 Nephi 20.29|]].
 
 [^26]: [[Abraham 2.9|Abraham 2:9]].
 
@@ -142,7 +142,5 @@ We can all expect to face trials. But great eternal promises are extended to tho
 [^35]: [[D&C 84.80|D&C 84:80]].
 
 [^36]: [[D&C 84.80|D&C 84:80]].
-
-
 
 #Covenants #Priesthood #Service #Worthiness

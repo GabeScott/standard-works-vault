@@ -20,7 +20,7 @@ I would like to talk about building homes where each of us individually—whethe
 
 I echo the fervor of President David O. McKay, who said, “With all my heart I believe … the best place to prepare for eternal life is in the home” (“Blueprint for Family Living,” *Improvement Era,* Apr. 1963, 252).
 
-And yet the scriptures warn that there must be an opposition in all things (see [[2 Nephi 2.11|2 Ne. 2:11]]). Indeed, President Boyd K. Packer tells us, “The ultimate purpose of the adversary … is to disrupt, disturb, and to destroy the home and the family” (“The Father and the Family,” *Ensign,* May 1994, 19).
+And yet the scriptures warn that there must be an opposition in all things (see [[2 Nephi 2.11|2 Ne. 2:11]]). Indeed, President Boyd K. Packer tells us, “The ultimate purpose of the adversary … is to disrupt, disturb, and to destroy the home and the family” (“The Father and the Family,” *Ensign,* May 1994, 19).
 
 This past spring two different bird families built nests in my yard. A small sparrow chose a rose tree on my patio for her nest. Time after time she flew back and forth, carrying blades of grass and small twigs in her beak. Carefully she manipulated her way through the rose thorns, depositing her building materials in the chosen spot. She worked without resting until the tiny nest was finished. I was amazed at how carefully the grasses were woven to make a strong and stable structure. I was almost moved to tears when I saw in the bottom of the nest four small pieces of cotton, placed in just the right spot to make a soft bed for her little ones.
 
@@ -52,13 +52,11 @@ Recently my friend Richard came home from work to find a very small girl sitting
 
 Throughout the world, many of God’s children are lost. We who know the truth can help them. We can show them a pattern of strong homes and righteous family members. We can help them if we have the Savior in our homes—not just His picture on the wall but also His teachings, His Spirit, and His love. Despite the instincts we have been blessed with, this kind of home doesn’t happen automatically. We need spiritual strength and practical skills to build a home where the Spirit of the Lord is present. Home, Family, and Personal Enrichment meeting is a place for us to share sisterhood, to gain knowledge, to learn skills, and to increase testimony. This meeting is also the place to rededicate ourselves to our homes and families and to the giving of service wherever it is needed.
 
-As Relief Society leaders and all of us as members catch the vision and the excitement of Home, Family, and Personal Enrichment meeting and act out of the resultant enthusiasm, we will grow in testimony and spiritual strength. We will come closer to our Savior and know how to build homes where He can dwell. Then, quoting President Thomas S. Monson, “the Lord, even our building inspector, may say to us, as he said … to Solomon, a builder of another day, ‘… I have hallowed this house, which thou hast built, to put my name there for ever; and mine eyes and mine heart shall be there perpetually’” ([[1 Kings 9.3|1 Kgs. 9:3]]; *Pathways to Perfection* \[1973\], 250).
+As Relief Society leaders and all of us as members catch the vision and the excitement of Home, Family, and Personal Enrichment meeting and act out of the resultant enthusiasm, we will grow in testimony and spiritual strength. We will come closer to our Savior and know how to build homes where He can dwell. Then, quoting President Thomas S. Monson, “the Lord, even our building inspector, may say to us, as he said … to Solomon, a builder of another day, ‘… I have hallowed this house, which thou hast built, to put my name there for ever; and mine eyes and mine heart shall be there perpetually’” ([[1 Kings 9.3|1 Kgs. 9:3]]; *Pathways to Perfection* \[1973\], 250).
 
 Relief Society is an organization of divine origin. Within it lies the power to strengthen sisters and their families and to create a worldwide family of sisters. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Family #Home #Jesus_Christ #Relief_Society
+#Family #Home #JesusChrist #ReliefSociety

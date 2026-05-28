@@ -1,6 +1,6 @@
 # Lamentations of Jeremiah: Beware of Bondage
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -22,9 +22,9 @@ Lehi had a different calling, mission, and assignment from the Lord. He was not 
 
 During the years before the destruction of Jerusalem,[^5] the messages the Lord gave to Jeremiah are haunting. He said:
 
-“My people have changed their glory for that which doth not profit. …
+“My people have changed their glory for that which doth not profit. …
 
-“… They have forsaken me the fountain of living waters, and hewed … out … broken cisterns, that can hold no water.”[^6]
+“… They have forsaken me the fountain of living waters, and hewed … out … broken cisterns, that can hold no water.”[^6]
 
 Speaking of the calamities to come upon the inhabitants of Jerusalem, the Lord lamented, “\[For them\] the harvest is past, the summer is ended, and \[they\] are not saved.”[^7]
 
@@ -34,7 +34,7 @@ Turning from the worship of the true and living God and worshipping false gods l
 
 These messages have echoed and been reinforced across the centuries in all dispensations. They are at the heart of the Restoration of the gospel of Jesus Christ in this, the final dispensation.
 
-The captivity of the Jews and the scattering of the tribes of Israel, including the ten tribes, are prominent doctrinal factors in the Restoration of the gospel. The ten lost tribes made up the Northern Kingdom of Israel and were carried away captive into Assyria in 721 b.c. They went to the north countries.[^9] Our tenth article of faith states, “We believe in the literal gathering of Israel and in the restoration of the Ten Tribes.”[^10] We also believe that as part of the covenant the Lord made with Abraham, not only the lineage of Abraham would be blessed but also all the people of the earth would be blessed. As Elder Russell M. Nelson has stated, the gathering “is not a matter of physical location; it is a matter of individual commitment. People can be ‘brought to the knowledge of the Lord’ \[3 Nephi 20:13\] without leaving their homelands.”[^11]
+The captivity of the Jews and the scattering of the tribes of Israel, including the ten tribes, are prominent doctrinal factors in the Restoration of the gospel. The ten lost tribes made up the Northern Kingdom of Israel and were carried away captive into Assyria in 721 b.c. They went to the north countries.[^9] Our tenth article of faith states, “We believe in the literal gathering of Israel and in the restoration of the Ten Tribes.”[^10] We also believe that as part of the covenant the Lord made with Abraham, not only the lineage of Abraham would be blessed but also all the people of the earth would be blessed. As Elder Russell M. Nelson has stated, the gathering “is not a matter of physical location; it is a matter of individual commitment. People can be ‘brought to the knowledge of the Lord’ \[[[3 Nephi 20.13|3 Nephi 20:13]]\] without leaving their homelands.”[^11]
 
 Our doctrine is clear: “The Lord scattered and afflicted the twelve tribes of Israel because of their unrighteousness and rebellion. However, the Lord also \[utilized\] this scattering of his chosen people among the nations of the world to bless those nations.”[^12]
 
@@ -73,27 +73,27 @@ Let us avoid the despair and sorrow of those who fall into captivity and can no 
 
 [^1]: Many Verdi operas, like *Aida, La traviata,* and *Il trovatore,* are among the most popular operas performed across the world today.
 
-[^2]: See [[1 Nephi 5.13|1 Nephi 5:13]]; [[1 Nephi 7.14|7:14]].
+[^2]: See [[1 Nephi 5.13|1 Nephi 5:13]]; [[1 Nephi 7.14|7:14]].
 
 [^3]: [[Jeremiah 1.5|Jeremiah 1:5]].
 
-[^4]: See [[1 Nephi 2.2|1 Nephi 2:2–3]][[1 Nephi 2.3|]].
+[^4]: See [[1 Nephi 2.2|1 Nephi 2:2–3]][[1 Nephi 2.3|]].
 
 [^5]: The destruction of Solomon’s temple, the downfall of Jerusalem, and the captivity of the tribe of Judah occurred in about 586 b.c.
 
 [^6]: [[Jeremiah 2.11|Jeremiah 2:11, 13]][[Jeremiah 2.13|]].
 
-[^7]: [[Jeremiah 8.20|Jeremiah 8:20]]. Jeremiah previously recorded the Lord crying for repentance, “I am pained at my very heart” ([[Jeremiah 4.19|Jeremiah 4:19]]) and pleading, “Find a man … that executeth judgment, that seeketh the truth; and I will pardon it” ([[Jeremiah 5.1|Jeremiah 5:1]]).
+[^7]: [[Jeremiah 8.20|Jeremiah 8:20]]. Jeremiah previously recorded the Lord crying for repentance, “I am pained at my very heart” ([[Jeremiah 4.19|Jeremiah 4:19]]), and pleading, “Find a man … that executeth judgment, that seeketh the truth; and I will pardon it” ([[Jeremiah 5.1|Jeremiah 5:1]]).
 
-[^8]: See [[Jeremiah 31.1|Jeremiah 31]][[Jeremiah 31.2|]][[Jeremiah 31.3|]][[Jeremiah 31.4|]][[Jeremiah 31.5|]][[Jeremiah 31.6|]][[Jeremiah 31.7|]][[Jeremiah 31.8|]][[Jeremiah 31.9|]][[Jeremiah 31.10|]][[Jeremiah 31.11|]][[Jeremiah 31.12|]][[Jeremiah 31.13|]][[Jeremiah 31.14|]][[Jeremiah 31.15|]][[Jeremiah 31.16|]][[Jeremiah 31.17|]][[Jeremiah 31.18|]][[Jeremiah 31.19|]][[Jeremiah 31.20|]][[Jeremiah 31.21|]][[Jeremiah 31.22|]][[Jeremiah 31.23|]][[Jeremiah 31.24|]][[Jeremiah 31.25|]][[Jeremiah 31.26|]][[Jeremiah 31.27|]][[Jeremiah 31.28|]][[Jeremiah 31.29|]][[Jeremiah 31.30|]][[Jeremiah 31.31|]][[Jeremiah 31.32|]][[Jeremiah 31.33|]][[Jeremiah 31.34|]][[Jeremiah 31.35|]][[Jeremiah 31.36|]][[Jeremiah 31.37|]][[Jeremiah 31.38|]][[Jeremiah 31.39|]][[Jeremiah 31.40|]]; [[1 Nephi 10.14|1 Nephi 10:14]].
+[^8]: See [[Jeremiah 31.1|Jeremiah 31]][[Jeremiah 31.2|]][[Jeremiah 31.3|]][[Jeremiah 31.4|]][[Jeremiah 31.5|]][[Jeremiah 31.6|]][[Jeremiah 31.7|]][[Jeremiah 31.8|]][[Jeremiah 31.9|]][[Jeremiah 31.10|]][[Jeremiah 31.11|]][[Jeremiah 31.12|]][[Jeremiah 31.13|]][[Jeremiah 31.14|]][[Jeremiah 31.15|]][[Jeremiah 31.16|]][[Jeremiah 31.17|]][[Jeremiah 31.18|]][[Jeremiah 31.19|]][[Jeremiah 31.20|]][[Jeremiah 31.21|]][[Jeremiah 31.22|]][[Jeremiah 31.23|]][[Jeremiah 31.24|]][[Jeremiah 31.25|]][[Jeremiah 31.26|]][[Jeremiah 31.27|]][[Jeremiah 31.28|]][[Jeremiah 31.29|]][[Jeremiah 31.30|]][[Jeremiah 31.31|]][[Jeremiah 31.32|]][[Jeremiah 31.33|]][[Jeremiah 31.34|]][[Jeremiah 31.35|]][[Jeremiah 31.36|]][[Jeremiah 31.37|]][[Jeremiah 31.38|]][[Jeremiah 31.39|]][[Jeremiah 31.40|]]; [[1 Nephi 10.14|1 Nephi 10:14]].
 
-[^9]: See [[2 Kings 17.6|2 Kings 17:6]]; [[D&C 110.11|Doctrine and Covenants 110:11]].
+[^9]: See [[2 Kings 17.6|2 Kings 17:6]]; [[D&C 110.11|Doctrine and Covenants 110:11]].
 
-[^10]: [[Articles of Faith 1.10|Articles of Faith 1:10]]; see also [[2 Nephi 10.22|2 Nephi 10:22]].
+[^10]: [[Articles of Faith 1.10|Articles of Faith 1:10]]; see also [[2 Nephi 10.22|2 Nephi 10:22]].
 
-[^11]: Russell M. Nelson, “The Book of Mormon and the Gathering of Israel” (address given at the seminar for new mission presidents, June 26, 2013).
+[^11]: Russell M. Nelson, “The Book of Mormon and the Gathering of Israel” (address given at the seminar for new mission presidents, June 26, 2013), 6, Church History Library, Salt Lake City.
 
-[^12]: Guide to the Scriptures, [“Israel”](https://churchofjesuschrist.org/study/scriptures/gs/israel?lang=eng); scriptures.lds.org.
+[^12]: Guide to the Scriptures, “[Israel](https://www.churchofjesuschrist.org/study/scriptures/gs/israel?lang=eng)”; scriptures.lds.org.
 
 [^13]: The Lord, speaking in our day, said, “The whole world lieth in sin, and groaneth under darkness and under the bondage of sin … because they come not unto me” ([[D&C 84.49|Doctrine and Covenants 84:49–50]][[D&C 84.50|]]).
 
@@ -107,7 +107,7 @@ Let us avoid the despair and sorrow of those who fall into captivity and can no 
 
 [^18]: [[Acts 17.21|Acts 17:21]]; emphasis added.
 
-[^19]: See Keli Goff, “Female Ivy League Graduates Have a Duty to Stay in the Workforce,” *Guardian,* Apr. 21, 2013, www.theguardian.com/commentisfree/2013/apr/21/female-ivy-league-graduates-stay-home-moms; Sheryl Sandberg, *Lean In: Women, Work, and the Will to Lead* (2013); Anne-Marie Slaughter, “Why Women Still Can’t Have It All,” *The Atlantic,* June 13, 2012, www.theatlantic.com/magazine/print/2012/07/why-women-still-cant-have-it-all/309020; Lois M. Collins, “Can Women ‘Have It All’ When It Comes to Work and Family Life?” *Deseret News,* June 28, 2012, A3; Judith Warner, “The Midcareer Timeout (Is Over),” *New York Times Magazine,* Aug. 11, 2013, 24–29, 38; Scott Schieman, Markus Schafer, and Mitchell McIvor, “When Leaning In Doesn’t Pay Off,” *New York Times,* Aug. 11, 2013, 12.
+[^19]: See Keli Goff, “Female Ivy League Graduates Have a Duty to Stay in the Workforce,” *Guardian,* Apr. 21, 2013, www.theguardian.com/commentisfree/2013/apr/21/female-ivy-league-graduates-stay-home-moms; Sheryl Sandberg, *Lean In: Women, Work, and the Will to Lead* (2013); Anne-Marie Slaughter, “Why Women Still Can’t Have It All,” *The Atlantic,* June 13, 2012, www.theatlantic.com/magazine/print/2012/07/why-women-still-cant-have-it-all/309020; Lois M. Collins, “Can Women ‘Have It All’ When It Comes to Work and Family Life?” *Deseret News,* June 28, 2012, A3; Judith Warner, “The Midcareer Timeout (Is Over),” *New York Times Magazine,* Aug. 11, 2013, 24–29, 38; Scott Schieman, Markus Schafer, and Mitchell McIvor, “When Leaning In Doesn’t Pay Off,” *New York Times,* Aug. 11, 2013, 12.
 
 [^20]: The Church has encouraged bishoprics to assist families by spending more time with young men, young women, and young single adults. Bishoprics have been encouraged to delegate more responsibilities in ward council to the Melchizedek Priesthood quorums, to auxiliaries, and to members who have special abilities to assist others appropriately.
 
@@ -115,6 +115,4 @@ Let us avoid the despair and sorrow of those who fall into captivity and can no 
 
 [^22]: [[D&C 45.71|Doctrine and Covenants 45:71]].
 
-
-
-#Freedom #House_Of_Israel #Religious_Freedom #Temptation
+#Freedom #HouseOfIsrael #ReligiousFreedom #Temptation

@@ -12,7 +12,7 @@ I think this has been a remarkable session. The messages have been inspiring; th
 
 My beloved brothers and sisters, over 44 years ago, in October of 1963, I stood at the pulpit in the Tabernacle, having just been sustained as a member of the Quorum of the Twelve Apostles. On that occasion I mentioned a small sign I had seen on another pulpit. The words on the sign were these: “Who stands at this pulpit, let him be humble.” I assure you that I was humbled by my call to the Twelve at that time. However, as I stand at *this* pulpit today, I address you from the absolute depths of humility. I feel very keenly my dependence upon the Lord. I humbly seek the guidance of the Spirit as I share with you the feelings of my heart.
 
-Just two months ago we said farewell to our dear friend and leader Gordon B. Hinckley, the 15th President of The Church of Jesus Christ of Latter-day Saints, an outstanding ambassador of truth to the entire world and beloved of all. We miss him. More than 53,000 men, women, and children journeyed to the beautiful Hall of the Prophets in this very building to pay their last respects to this giant of the Lord, who now belongs to the ages.
+Just two months ago we said farewell to our dear friend and leader Gordon B. Hinckley, the 15th President of The Church of Jesus Christ of Latter-day Saints, an outstanding ambassador of truth to the entire world and beloved of all. We miss him. More than 53,000 men, women, and children journeyed to the beautiful Hall of the Prophets in this very building to pay their last respects to this giant of the Lord, who now belongs to the ages.
 
 With the passing of President Hinckley, the First Presidency was dissolved. President Eyring and I, who served as counselors to President Hinckley, returned to our places in the Quorum of the Twelve Apostles, and that quorum became the presiding authority of the Church.
 
@@ -26,7 +26,7 @@ I know without question, my brothers and sisters, that God lives. I testify to y
 
 I am keenly aware of the 15 men who preceded me as President of the Church. Many of them I have known personally. I have had the blessing and privilege of serving as a counselor to three of them. I am grateful for the abiding legacy left by each one of those 15 men. I have the sure knowledge, as I am confident they had, that God directs His prophet. My earnest prayer is that I might continue to be a worthy instrument in His hands to carry on this great work and to fulfill the tremendous responsibilities which come with the office of President.
 
-I thank the Lord for wonderful counselors. President Henry B. Eyring and President Dieter F. Uchtdorf are men of great ability and sound understanding. They are counselors in the true sense of the word. I value their judgment. I believe they have been prepared by the Lord for the positions they now occupy. I love the members of the Quorum of the Twelve Apostles and treasure my association with them. They too are dedicated to the work of the Lord and are spending their lives in His service. I look forward to serving with Elder Christofferson, who has now been called to that quorum and who has received your sustaining vote. He too has been prepared for the position to which he has been called. It has also been a joy to serve with the members of the Quorums of the Seventy and with the Presiding Bishopric. New members of the Seventy have been called and were sustained yesterday, and I look forward to associating with them in the work of the Master.
+I thank the Lord for wonderful counselors. President Henry B. Eyring and President Dieter F. Uchtdorf are men of great ability and sound understanding. They are counselors in the true sense of the word. I value their judgment. I believe they have been prepared by the Lord for the positions they now occupy. I love the members of the Quorum of the Twelve Apostles and treasure my association with them. They too are dedicated to the work of the Lord and are spending their lives in His service. I look forward to serving with Elder Christofferson, who has now been called to that quorum and who has received your sustaining vote. He too has been prepared for the position to which he has been called. It has also been a joy to serve with the members of the Quorums of the Seventy and with the Presiding Bishopric. New members of the Seventy have been called and were sustained yesterday, and I look forward to associating with them in the work of the Master.
 
 A sweet spirit of unity exists among the General Authorities. The Lord has declared, “If ye are not one ye are not mine.”[^1] We will continue to be united in one purpose—namely, the furtherance of the work of the Lord.
 
@@ -89,6 +89,4 @@ I pledge my life, my strength—all that I have to offer—in serving Him and in
 
 [^6]: [[Jeremiah 8.22|Jeremiah 8:22]].
 
-
-
-#Church_History #Leadership #Prophets #Testimony #Unity
+#ChurchHistory #Leadership #Prophets #Testimony #Unity

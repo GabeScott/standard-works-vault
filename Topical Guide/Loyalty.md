@@ -1,7 +1,6 @@
 # Loyalty
 
-
-*See also* [[Faithfulness.md|Faithfulness]]; [[Obedience, Obedient, Obey.md|Obedience]]; [[Steadfastness, Steadfast.md|Steadfastness]]; [[Trustworthiness.md|Trustworthiness]]
+*See also* [[Faithfulness.md|Faithfulness]]; [[Obedience.md|Obedience]]; [[Steadfastness.md|Steadfastness]]; [[Trustworthiness.md|Trustworthiness]]
 
 they shall *keep* the way of the Lord, [[Genesis 18.19|Genesis 18:19]].
 
@@ -27,10 +26,8 @@ I will *not recall* the words which I have spoken, [[Mosiah 17.9|Mosiah 17:9]].
 
 he had *sworn* with an oath to defend his people, [[Alma 48.13|Alma 48:13]].
 
-all men are bound to *sustain* ... governments in which they reside, [[D&C 134.5|D&C 134:5]].
+all men are bound to *sustain* … governments in which they reside, [[D&C 134.5|D&C 134:5]].
 
 I know not, save the Lord *commanded* me, [[Moses 5.6|Moses 5:6]].
 
-I had seen a vision ... and I could not *deny* it, [[Joseph Smith History 1.25|Joseph Smith History 1:25]].
-
-*See also* [[1 Nephi 17.50|1 Nephi 17:50]]; [[2 Nephi 4.16|2 Nephi 4:16]]; [[2 Nephi 9.49|2 Nephi 9:49]]; [[Alma 20.26|Alma 20:26]]; [[D&C 103.27|D&C 103:27-28]][[D&C 103.28|]].
+I had seen a vision … and I could not *deny* it, [[Joseph Smith History 1.25|Joseph Smith History 1:25]].

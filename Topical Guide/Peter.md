@@ -1,4 +1,3 @@
 # Peter
 
-
-*See* [BD Peter](https://www.churchofjesuschrist.org/study/scriptures/bd/peter?lang=eng); [Peter, Epistles of](https://www.churchofjesuschrist.org/study/scriptures/bd/peter-epistles-of?lang=eng)
+*See also* [[BD Peter.md|BD Peter]]; [[BD Peter, Epistles of.md|BD Peter, Epistles of]]

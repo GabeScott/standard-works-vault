@@ -1,6 +1,6 @@
 # The Lord Jesus Christ Will Come Again
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -103,13 +103,13 @@ Through the power of the sacred priesthood keys I hold, I declare this truth to 
 
 
 
-[^1]: Manti Utah Temple rededication (President Russell M. Nelson, April 21); Urdaneta Philippines Temple (President Dallin H. Oaks, April 28); Puebla Mexico Temple (Elder Gerrit W. Gong, May 19); Taylorsville Utah Temple (Elder Gerrit W. Gong, June 2); Cobán Guatemala Temple (Elder Dale G. Renlund, June 9); Salta Argentina Temple (Elder D. Todd Christofferson, June 16); Layton Utah Temple (Elder David A. Bednar, June 16); Pittsburgh Pennsylvania Temple (Elder Dieter F. Uchtdorf, September 15); Mendoza Argentina Temple (Elder Ronald A. Rasband, September 22).
+[^1]: Manti Utah Temple rededication (President Russell M. Nelson, April 21); Urdaneta Philippines Temple (President Dallin H. Oaks, April 28); Puebla Mexico Temple (Elder Gerrit W. Gong, May 19); Taylorsville Utah Temple (Elder Gerrit W. Gong, June 2); Cobán Guatemala Temple (Elder Dale G. Renlund, June 9); Salta Argentina Temple (Elder D. Todd Christofferson, June 16); Layton Utah Temple (Elder David A. Bednar, June 16); Pittsburgh Pennsylvania Temple (Elder Dieter F. Uchtdorf, September 15); Mendoza Argentina Temple (Elder Ronald A. Rasband, September 22).
 
-[^2]: San Pedro Sula Honduras Temple (October 13); Salvador Brazil Temple (October 20); Deseret Peak Utah Temple (November 10); Casper Wyoming Temple (November 24); Tallahassee Florida Temple (December 8).
+[^2]: San Pedro Sula Honduras Temple (October 13); Salvador Brazil Temple (October 20); Deseret Peak Utah Temple (November 10); Casper Wyoming Temple (November 24); Tallahassee Florida Temple (December 8).
 
 [^3]: See [[D&C 88.73|Doctrine and Covenants 88:73]].
 
-[^4]: [[Isaiah 40.5|Isaiah 40:5]]; see also George Frideric Handel, “And the Glory of the Lord,” *The Messiah*, ed. T. Tertius Noble (1912), 16–18.
+[^4]: [[Isaiah 40.5|Isaiah 40:5]]; see also George Frideric Handel, “And the Glory of the Lord,” *The Messiah*, ed. T. Tertius Noble (1912), 16–18.
 
 [^5]: [[Isaiah 9.6|Isaiah 9:6]].
 
@@ -139,10 +139,8 @@ Through the power of the sacred priesthood keys I hold, I declare this truth to 
 
 [^18]: [[Alma 31.38|Alma 31:38]].
 
-[^19]: See [[2 Nephi 25.26|2 Nephi 25:26]].
+[^19]: See [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^20]: [[Omni 1.26|Omni 1:26]].
 
-
-
-#Atonement #Jesus_Christ #Preparation #Second_Coming #Temples
+#Atonement #JesusChrist #Preparation #SecondComing #Temples

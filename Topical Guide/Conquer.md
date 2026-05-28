@@ -1,6 +1,5 @@
 # Conquer
 
-
 *See also* [[Subdue.md|Subdue]]
 
 he went forth *conquering*, [[Revelation 6.2|Revelation 6:2]].

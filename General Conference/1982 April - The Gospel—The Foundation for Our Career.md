@@ -1,6 +1,6 @@
 # The Gospel—The Foundation for Our Career
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -10,7 +10,7 @@ There is a recurring theme in the revelations having to do with learning. And, f
 
 “Seek ye diligently and teach one another words of wisdom; yea, seek ye out of the best books words of wisdom; seek learning, even by *study* and also by *faith.*” ([[D&C 88.118|D&C 88:118]]; italics added. See also [[D&C 90.15|D&C 90:15]]; [[D&C 109.7|109:7]].)
 
-Learning is to be accompanied by faith, and as the Book of Mormon teaches us, learning “is good if \[we\] hearken unto the counsels of God.” ([[2 Nephi 9.29|2 Ne. 9:29]].)
+Learning is to be accompanied by faith, and as the Book of Mormon teaches us, learning “is good if \[we\] hearken unto the counsels of God.” ([[2 Nephi 9.29|2 Ne. 9:29]].)
 
 There is one thought that must come at the very beginning of a discussion on occupations and careers in order to establish it as preeminent, and it is this:
 
@@ -34,7 +34,7 @@ When Naaman was near, Elisha sent a messenger to him, saying, “Go and wash in 
 
 But one of his servants (it seems there is always a servant) courageously chastised the general and said, “If the prophet had bid thee do some *great* thing, wouldest thou not have done it?”
 
-Humbled by his servant, Naaman “went … down, and dipped himself seven times in Jordan, according to the saying of the man of God: … and he was clean.” ([[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]]; italics added.)
+Humbled by his servant, Naaman “went … down, and dipped himself seven times in Jordan, according to the saying of the man of God: … and he was clean.” ([[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]]; italics added.)
 
 Human nature hasn’t changed over the years. Even today some of us expect to be bidden to do some “great things” in order to receive the blessings of the Lord. When we receive ordinary counsel on ordinary things, there is disappointment, and, like Naaman, we turn away.
 
@@ -56,7 +56,7 @@ Now, all of this was to prepare you for the fact that the counsel I will give ma
 
 That emphasis, on self-reliance, suggests something about education. We cannot expect the Church to assume responsibility for the schooling of all of us.
 
-One of the questions most often asked of General Authorities as we travel usually begins in this way: “Why doesn’t the Church … ?” And then there follows a description of some worthy project that would, if it should succeed, bring credit to the Church and benefit many people.
+One of the questions most often asked of General Authorities as we travel usually begins in this way: “Why doesn’t the Church … ?” And then there follows a description of some worthy project that would, if it should succeed, bring credit to the Church and benefit many people.
 
 For example, why doesn’t the Church establish schools to prepare members for financial security?
 
@@ -145,8 +145,6 @@ There is a formula. The Lord said, “Verily I say unto you, that every man who 
 The gospel of Jesus Christ is the formula for success. Every principle of the gospel, when lived, has a positive influence over your choice of an occupation and on what you will achieve. The counsel to labor in the Church has great value. Living the gospel will give you a perspective and an inspiration that will see you successful however ordinary your work may be or however ordinary your life may seem to others.
 
 God bless the members of this Church, that you can be happy with who you are and where you are, that you can improve yourselves. We pray that God will bless those who are struggling now with unemployment, with the loss of their employment, with the fear of that loss. May he bless us that we can build into our lives those principles of reliance and integrity that have been part of the gospel from the very beginning, for the gospel is true. Of this I bear witness, in the name of Jesus Christ, amen.
-
-
 
 
 

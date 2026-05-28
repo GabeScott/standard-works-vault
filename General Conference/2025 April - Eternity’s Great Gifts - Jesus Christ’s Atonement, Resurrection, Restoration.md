@@ -1,6 +1,6 @@
 # Eternity’s Great Gifts: Jesus Christ’s Atonement, Resurrection, Restoration
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -40,7 +40,7 @@ In cruel civil war, families and neighbors did unspeakable things to each other.
 
 A radiant bride and handsome groom are being sealed in the house of the Lord. She is 70 years old, as is he. A beautiful bride, she has worthily waited for this day. She shyly swishes her bridal dress this way, then that way. We shed joyful tears. God’s promises are fulfilled. His covenants bring blessings.
 
-While home teaching a widowed sister, a young Boyd K. Packer learned a tender lesson. Following a disagreement with her husband, the sister had called out a final hurtful remark. An unexpected accident took her husband’s life that day. “For fifty years,” the widow sobbed, “I’ve lived in hell knowing that the last words he heard from my lips were that biting, spiteful remark.”[^11]
+While home teaching a widowed sister, a young Boyd K. Packer learned a tender lesson. Following a disagreement with her husband, the sister had called out a final hurtful remark. An unexpected accident took her husband’s life that day. “For fifty years,” the widow sobbed, “I’ve lived in hell knowing that the last words he heard from my lips were that biting, spiteful remark.”[^11]
 
 Easter in Jesus Christ helps us mend, reconcile, make right our relationships, on both sides of the veil. Jesus can heal grief; He can enable forgiveness. He can free us and others from things we or they have said or done that otherwise bind us captive.
 
@@ -60,7 +60,7 @@ Fulfilling prophecy, Joseph, Mary, and the infant Christ child sought refuge in 
 
 God’s plan of moral and mortal agency allows us to learn by our own experience. Some of our greatest life lessons come from things we would never choose. In love, Jesus Christ descended below and ascended above all things.[^18] He rejoices in our divine capacities for creativity and delight, kindness without hope for reward, faith unto repentance and forgiveness. And He weeps in sorrow at the enormity of our human suffering, cruelty, unfairness—often brought by human choice—as do the heavens and the God of heaven with them.[^19]
 
-Each Easter spring season testifies that spiritual sequence and convergence are both part of the divine pattern of atonement, resurrection, and restoration through Jesus Christ.[^20] This sacred and symbolic convergence comes not by accident or coincidence. Palm Sunday, Holy Week, and Easter celebrate Christ’s Atonement and Resurrection. As today, every April 6 we commemorate the establishment and organization of The Church of Jesus Christ of Latter-day Saints.[^21] This Restoration is a reason we gather the first Sunday each April in general conference.[^22]
+Each Easter spring season testifies that spiritual sequence and convergence are both part of the divine pattern of atonement, resurrection, and restoration through Jesus Christ.[^20] This sacred and symbolic convergence comes not by accident or coincidence. Palm Sunday, Holy Week, and Easter celebrate Christ’s Atonement and Resurrection. As today, every April 6 we commemorate the establishment and organization of The Church of Jesus Christ of Latter-day Saints.[^21] This Restoration is a reason we gather the first Sunday each April in general conference.[^22]
 
 Restoration also came as the resurrected Jesus Christ, Moses, Elias, and Elijah returned priesthood keys and authority at the newly dedicated Kirtland Temple on Easter Sunday, 1836.[^23] In that setting on that day to the restored Church of Jesus Christ came God’s authority and blessings to gather His children, prepare His children to return to Him, and unite families for eternity. Restoration that day fulfilled prophecy by occurring both on Easter and Passover.
 
@@ -83,7 +83,7 @@ May we each find in Jesus Christ atonement, resurrection, and restoration—peac
 
 
 
-[^1]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]. Note also the covenantal promise in the sacrament ordinance: We take upon us the name of Jesus Christ, “always remember him and keep his commandments … ; that \[we\] may always have his Spirit to be with \[us\]” ([[D&C 20.77|Doctrine and Covenants 20:77]]).
+[^1]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]. Note also the covenantal promise in the sacrament ordinance: We take upon us the name of Jesus Christ, “always remember him and keep his commandments … ; that \[we\] may always have his Spirit to be with \[us\]” ([[D&C 20.77|Doctrine and Covenants 20:77]]).
 
 [^2]: See [[John 11.33|John 11:33–35, 39–44]][[John 11.34|]][[John 11.35|]][[John 11.39|]][[John 11.40|]][[John 11.41|]][[John 11.42|]][[John 11.43|]][[John 11.44|]].
 
@@ -95,7 +95,7 @@ May we each find in Jesus Christ atonement, resurrection, and restoration—peac
 
 [^6]: [[Psalms 30.5|Psalm 30:5]].
 
-[^7]: [[3 Nephi 17.21|3 Nephi 17:21–22]][[3 Nephi 17.22|]].
+[^7]: [[3 Nephi 17.21|3 Nephi 17:21–22]][[3 Nephi 17.22|]].
 
 [^8]: See [[Psalms 107.9|Psalm 107:9]]; [[Jeremiah 33.3|Jeremiah 33:3]].
 
@@ -103,11 +103,11 @@ May we each find in Jesus Christ atonement, resurrection, and restoration—peac
 
 [^10]: See [[Alma 26.12|Alma 26:12]].
 
-[^11]: See Boyd K. Packer, “[The Saints Securely Dwell](https://churchofjesuschrist.org/study/ensign/1973/01/the-saints-securely-dwell?lang=eng&id=p46-p55#p46),” *Ensign*, Jan. 1973, 89–90.
+[^11]: See Boyd K. Packer, “[The Saints Securely Dwell](https://www.churchofjesuschrist.org/study/ensign/1973/01/the-saints-securely-dwell?lang=eng&id=p46-p55#p46),” *Ensign*, Jan. 1973, 89–90.
 
-[^12]: “He Is Risen!,” *Hymns*, no. 199, echoes the glad tidings of [[2 Nephi 9.10|2 Nephi 9:10]]: Jesus Christ “prepareth a way for our escape from the grasp of this awful monster; yea, that monster, death and hell, … the death of the body, and also the death of the spirit.”
+[^12]: “He Is Risen!,” *Hymns*, no. 199, echoes the glad tidings of [[2 Nephi 9.10|2 Nephi 9:10]]: Jesus Christ “prepareth a way for our escape from the grasp of this awful monster; yea, that monster, death and hell, … the death of the body, and also the death of the spirit.”
 
-[^13]: See [[Genesis 37.1|Genesis 37–47]][[Genesis 37.2|]][[Genesis 37.3|]][[Genesis 37.4|]][[Genesis 37.5|]][[Genesis 37.6|]][[Genesis 37.7|]][[Genesis 37.8|]][[Genesis 37.9|]][[Genesis 37.10|]][[Genesis 37.11|]][[Genesis 37.12|]][[Genesis 37.13|]][[Genesis 37.14|]][[Genesis 37.15|]][[Genesis 37.16|]][[Genesis 37.17|]][[Genesis 37.18|]][[Genesis 37.19|]][[Genesis 37.20|]][[Genesis 37.21|]][[Genesis 37.22|]][[Genesis 37.23|]][[Genesis 37.24|]][[Genesis 37.25|]][[Genesis 37.26|]][[Genesis 37.27|]][[Genesis 37.28|]][[Genesis 37.29|]][[Genesis 37.30|]][[Genesis 37.31|]][[Genesis 37.32|]][[Genesis 37.33|]][[Genesis 37.34|]][[Genesis 37.35|]][[Genesis 37.36|]]. Joseph’s bringing his father, Jacob, and his family to Egypt represents the tender reuniting of a long-separated son and father. It also becomes the means by which Jacob’s family and covenant posterity, who will include Lehi and his family, are preserved. (See [[1 Nephi 5.14|1 Nephi 5:14–15]][[1 Nephi 5.15|]]; [[1 Nephi 6.2|6:2]].)
+[^13]: See [[Genesis 37.1|Genesis 37–47]][[Genesis 37.2|]][[Genesis 37.3|]][[Genesis 37.4|]][[Genesis 37.5|]][[Genesis 37.6|]][[Genesis 37.7|]][[Genesis 37.8|]][[Genesis 37.9|]][[Genesis 37.10|]][[Genesis 37.11|]][[Genesis 37.12|]][[Genesis 37.13|]][[Genesis 37.14|]][[Genesis 37.15|]][[Genesis 37.16|]][[Genesis 37.17|]][[Genesis 37.18|]][[Genesis 37.19|]][[Genesis 37.20|]][[Genesis 37.21|]][[Genesis 37.22|]][[Genesis 37.23|]][[Genesis 37.24|]][[Genesis 37.25|]][[Genesis 37.26|]][[Genesis 37.27|]][[Genesis 37.28|]][[Genesis 37.29|]][[Genesis 37.30|]][[Genesis 37.31|]][[Genesis 37.32|]][[Genesis 37.33|]][[Genesis 37.34|]][[Genesis 37.35|]][[Genesis 37.36|]]. Joseph’s bringing his father, Jacob, and his family to Egypt represents the tender reuniting of a long-separated son and father. It also becomes the means by which Jacob’s family and covenant posterity, who will include Lehi and his family, are preserved. (See [[1 Nephi 5.14|1 Nephi 5:14–15]][[1 Nephi 5.15|]]; [[1 Nephi 6.2|6:2]].)
 
 [^14]: See [[Genesis 45.1|Genesis 45:1–8]][[Genesis 45.2|]][[Genesis 45.3|]][[Genesis 45.4|]][[Genesis 45.5|]][[Genesis 45.6|]][[Genesis 45.7|]][[Genesis 45.8|]].
 
@@ -131,7 +131,7 @@ May we each find in Jesus Christ atonement, resurrection, and restoration—peac
 
 [^24]: [[D&C 76.43|Doctrine and Covenants 76:43]]; also see [[D&C 76.42|verse 42]].
 
-[^25]: President Dallin H. Oaks teaches, “The purpose of this restored Church is to prepare God’s children for salvation in the celestial glory and, more particularly, for exaltation in its highest degree” (“[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” *Liahona*, Nov. 2023, 27).
+[^25]: President Dallin H. Oaks teaches, “The purpose of this restored Church is to prepare God’s children for salvation in the celestial glory and, more particularly, for exaltation in its highest degree” (“[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” *Liahona*, Nov. 2023, 27).
 
 [^26]: [[D&C 76.43|Doctrine and Covenants 76:43]].
 
@@ -145,6 +145,4 @@ May we each find in Jesus Christ atonement, resurrection, and restoration—peac
 
 [^31]: [[John 3.16|John 3:16]].
 
-
-
-#Atonement #Easter #Jesus_Christ #Restoration #Resurrection
+#Atonement #Easter #JesusChrist #Restoration #Resurrection

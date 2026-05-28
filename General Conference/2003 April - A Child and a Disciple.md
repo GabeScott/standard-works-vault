@@ -87,7 +87,7 @@ In the name of Jesus Christ, amen.
 
 [^2]: [[Mosiah 28.3|Mosiah 28:3]].
 
-[^3]: [[1 John 4.18|1 Jonn 4:18–19]][[1 John 4.19|]].
+[^3]: [[1 John 4.18|1 Jonn 4:18–19]][[1 John 4.19|]].
 
 [^4]: [[Moroni 7.46|Moroni 7:46–48]][[Moroni 7.47|]][[Moroni 7.48|]].
 
@@ -95,6 +95,4 @@ In the name of Jesus Christ, amen.
 
 [^6]: See [[D&C 50.41|D&C 50:41–42]][[D&C 50.42|]].
 
-
-
-#Fear #Love #Missionary_Work #Prayer #Testimony
+#Fear #Love #MissionaryWork #Prayer #Testimony

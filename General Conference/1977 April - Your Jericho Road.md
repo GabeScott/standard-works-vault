@@ -1,6 +1,6 @@
 # Your Jericho Road
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -56,7 +56,7 @@ One may well ask the penetrating question, “These accounts pertained to the Re
 
 My answer is a resounding “yes.” Let me share with you two such examples—first, the account of one who was injured and was helped; second, the learning experience of one who traveled the Jericho Road.
 
-Some years ago there went to his eternal reward one of the kindest and most loved men to grace the earth. I speak of Louis C. Jacobsen. He ministered to those in need, he assisted the immigrant to find employment, and he delivered more sermons at more funeral services than any other I have known.
+Some years ago there went to his eternal reward one of the kindest and most loved men to grace the earth. I speak of Louis C. Jacobsen. He ministered to those in need, he assisted the immigrant to find employment, and he delivered more sermons at more funeral services than any other I have known.
 
 One day while in a reflective mood, Louis Jacobsen told me of his boyhood. He was the son of a poor Danish widow. He was small in stature, not comely in appearance—easily the object of his classmates’ thoughtless jokes. In Sunday School one Sabbath morning, the children made light of his patched trousers and his worn shirt. Too proud to cry, tiny Louis fled from the chapel, stopping at last, out of breath, to sit and rest on the curb which ran along Second West in Salt Lake City. Clear water flowed along the gutter next to the curb where Louis sat. From his pocket he took a piece of paper which contained the outlined Sunday School lesson and skillfully shaped a paper boat, which he launched on the flowing water. From his hurt boyish heart came the determined words, “I’ll never go back.”
 
@@ -122,8 +122,6 @@ My brothers and sisters, today there are hearts to gladden, there are deeds to b
 The road signs of life enticingly invite every traveler: This way to fame; this way to affluence; this way to popularity; this way to luxury. Pause at the crossroads before you continue your journey. Listen for that still, small voice which ever so gently beckons, “Come, follow me. This way to Jericho.”
 
 May each of us follow Him along that Jericho Road, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

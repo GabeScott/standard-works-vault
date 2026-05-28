@@ -1,6 +1,6 @@
 # The Father and the Son
 
-By Elder Christoffel Golden Jr. - *Of the Seventy*
+By Elder Christoffel Golden Jr. - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -89,7 +89,7 @@ I have learned that it is not possible to convey in the language of man those th
 
 [^7]: [[Revelation 5.9|Revelation 5:9]].
 
-[^8]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^8]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
 [^9]: [[Matthew 7.21|Matthew 7:21]]; emphasis added.
 
@@ -97,17 +97,17 @@ I have learned that it is not possible to convey in the language of man those th
 
 [^11]: [[Luke 23.46|Luke 23:46]]; emphasis added.
 
-[^12]: [[1 Corinthians 15.24|1 Corinthians 15:24]]. For further understanding of the Savior and His mission, see “The Living Christ: The Testimony of the Apostles,” *Ensign* or *Liahona,* Apr. 2000, 2–3.
+[^12]: [[1 Corinthians 15.24|1 Corinthians 15:24]]. For further understanding of the Savior and His mission, see “The Living Christ: The Testimony of the Apostles,” *Ensign* or *Liahona,* Apr. 2000, 2–3.
 
 [^13]: [[John 17.20|John 17:20–22]][[John 17.21|]][[John 17.22|]]; emphasis added.
 
 [^14]: [[John 14.26|John 14:26]].
 
-[^15]: [[2 Nephi 31.18|2 Nephi 31:18]].
+[^15]: [[2 Nephi 31.18|2 Nephi 31:18]].
 
-[^16]: [[3 Nephi 9.20|3 Nephi 9:20]]; [[Moroni 6.2|Moroni 6:2]].
+[^16]: [[3 Nephi 9.20|3 Nephi 9:20]]; [[Moroni 6.2|Moroni 6:2]].
 
-[^17]: See [[John 3.5|John 3:5]]; [[3 Nephi 11.31|3 Nephi 11:31–38]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]].
+[^17]: See [[John 3.5|John 3:5]]; [[3 Nephi 11.31|3 Nephi 11:31–38]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]].
 
 [^18]: [[D&C 84.19|Doctrine and Covenants 84:19–20]][[D&C 84.20|]].
 
@@ -117,6 +117,4 @@ I have learned that it is not possible to convey in the language of man those th
 
 [^21]: Ezra Taft Benson, “Jesus Christ—Gifts and Expectations,” in *Speeches of the Year, 1974* (1975), 313; see also “Jesus Christ—Gifts and Expectations,” *Ensign,* Dec. 1988, 6; *Tambuli,* May 1977, 24.
 
-
-
-#God_The_Father #Jesus_Christ
+#GodTheFather #JesusChrist

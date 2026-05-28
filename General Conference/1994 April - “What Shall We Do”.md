@@ -18,7 +18,7 @@ We choose to accept or reject the gospel of Christ. Human life was created on th
 
 Thomas Carlyle once remarked, “Know your destiny and follow it.” We are here today because we believe that our destiny in life is to gain eternal exaltation. This is the highest goal in life, and it demands all of our strength, devotion, and work. It is impossible to achieve our highest potential destiny without direction and guidance. The Lord gives us spiritual “road signs” which we should follow. Some signposts are:
 
-First, be true. Stand up for the prophets and the scriptures. We want to be able to say, along with Nephi, “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Ne. 25:26]]).
+First, be true. Stand up for the prophets and the scriptures. We want to be able to say, along with Nephi, “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Ne. 25:26]]).
 
 Second, keep the first of the Ten Commandments: “Thou shalt have no other gods before me” ([[Exodus 20.3|Ex. 20:3]]). Through the choices and temptations of this world, we often lose sight of true values and turn our hearts to wealth, careers, hobbies, persons, honor, pride and, worst of all, to the gratification of our own ego.
 
@@ -26,11 +26,11 @@ Third, distinguish between essence and appearance. God knows our heart, and He c
 
 “O Lord, thou hast … known me.
 
-“Thou knowest my downsitting and mine uprising, thou understandest my thought afar off. …
+“Thou knowest my downsitting and mine uprising, thou understandest my thought afar off. …
 
 “There is not a word in my tongue, but … thou knowest it altogether” ([[Psalms 139.1|Ps. 139:1–2, 4]][[Psalms 139.2|]][[Psalms 139.4|]]).
 
-Fourth, rise above selfishness. This includes spiritual selfishness, when one looks toward personal edification and strengthening and has no other interest than one’s own salvation. To be blessed is not an end in itself; we must be a blessing to others. All people have a talent in one way or another to touch and inspire other people’s lives. Let us not only look inward and proudly say, “All is well in Zion; yea, Zion prospereth” ([[2 Nephi 28.21|2 Ne. 28:21]]), but let us be a light unto a chaotic world.
+Fourth, rise above selfishness. This includes spiritual selfishness, when one looks toward personal edification and strengthening and has no other interest than one’s own salvation. To be blessed is not an end in itself; we must be a blessing to others. All people have a talent in one way or another to touch and inspire other people’s lives. Let us not only look inward and proudly say, “All is well in Zion; yea, Zion prospereth” ([[2 Nephi 28.21|2 Ne. 28:21]]), but let us be a light unto a chaotic world.
 
 Are we able and capable of following such admonitions? How often have we made resolutions which we did not carry out? The only answer to these questions is to commit ourselves to serve the Lord and to meet His challenges. As Moroni wrote, the Lord’s grace is sufficient for all who humble themselves before Him. If we humble ourselves and have faith in Him, He will make our weaknesses into our strengths (see [[Ether 12.27|Ether 12:27]]). He will provide His strength to meet our challenges, and many things will take care of themselves. The Spirit of God strengthens us physically, spiritually, and emotionally. It is now up to us to choose the way! Caterina Di Genova, who died in the Middle Ages as a martyr and who inspired future generations, is believed to have said, “Once God possesses the will of a person, God will dwell within this person and will lead him to perfection.” To prevail in this world without God is difficult. Through God, however, all things are possible.
 
@@ -47,6 +47,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Adversity #Commandments #Faith #God_The_Father #Honesty #Idol_Worship #Joy #Plan_Of_Salvation #Prophets #Service #Temptation
+#Adversity #Commandments #Faith #GodTheFather #Honesty #IdolWorship #Joy #PlanOfSalvation #Prophets #Service #Temptation

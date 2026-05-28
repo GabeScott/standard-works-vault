@@ -1,4 +1,3 @@
 # Universe
 
-
-*See* [[Astronomy.md|Astronomy]]; [[Creation, Create.md|Creation]]; [[World.md|World]]
+*See also* [[Astronomy.md|Astronomy]]; [[Creation.md|Creation]]; [[World.md|World]]

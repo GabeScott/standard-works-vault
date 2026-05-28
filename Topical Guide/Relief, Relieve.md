@@ -1,9 +1,8 @@
 # Relief, Relieve
 
-
 *See also* [[Almsgiving.md|Almsgiving]]; [[Charity.md|Charity]]; [[Service.md|Service]]; [[Welfare.md|Welfare]]
 
-Lord ... *relieveth* the fatherless and widow, [[Psalms 146.9|Psalms 146:9]].
+Lord … *relieveth* the fatherless and widow, [[Psalms 146.9|Psalms 146:9]].
 
 seek judgment, *relieve* the oppressed, [[Isaiah 1.17|Isaiah 1:17]].
 
@@ -17,4 +16,4 @@ administer *relief* to the sick and the afflicted, [[Jacob 2.19|Jacob 2:19]].
 
 visiting the sick and administering to their *relief*, [[Mosiah 4.26|Mosiah 4:26]].
 
-they shall ... administer to their *relief*, [[D&C 38.35|D&C 38:35]].
+they shall … administer to their *relief*, [[D&C 38.35|D&C 38:35]].

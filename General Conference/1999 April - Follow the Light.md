@@ -18,7 +18,7 @@ With prayers on our lips and white-knuckled hands holding on, we followed that l
 
 We are each one on a road going toward home, but we’re not trying to get there for Christmas. We’re trying to get there for eternity. We want to arrive home safely to our loving Father in Heaven. He wants us to make it safely there, so He has sent a guiding light for us to follow: a Savior, the Lord Jesus Christ, the perfect example. He knows the way. He lights our path in the dark of night, in storms, at crossroads, and in the daylight. He is always ready to show the way back home.
 
-He tells us, “And I will also be your light; … I will prepare the way before you, if it so be that ye shall keep my commandments; … ye shall know that it is by me that ye are led” ([[1 Nephi 17.13|1 Ne. 17:13]]).
+He tells us, “And I will also be your light; … I will prepare the way before you, if it so be that ye shall keep my commandments; … ye shall know that it is by me that ye are led” ([[1 Nephi 17.13|1 Ne. 17:13]]).
 
 One young woman wrote to me about a road she was on. She said: “I was with a group of my friends watching a video. It was one I knew I shouldn’t be sitting through. The Spirit prompted me to leave. I was able to listen and get up and leave. I felt the Spirit so strong. I know it was because of the choice I made” (letter in possession of Young Women office). She followed the light to safety.
 
@@ -65,6 +65,4 @@ I testify that the Lord is always there to help you. The example of His life and
 
 
 
-
-
-#Goals #Jesus_Christ #Prayer #Preparation #Scripture_Study #Service #Young_Women
+#Goals #JesusChrist #Preparation #Prayer #ScriptureStudy #Service #YoungWomen

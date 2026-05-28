@@ -23,6 +23,4 @@ I know that our Heavenly Father lives and that he loves each one of us. I know t
 
 
 
-
-
 #Commitment #Gratitude #Testimony

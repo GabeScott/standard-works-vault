@@ -1,6 +1,6 @@
 # Opposing Evil
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -26,13 +26,13 @@ I turned to my mail and found a small magazine which lists the television fare f
 
 The flood of pornographic filth, the inordinate emphasis on sex and violence are not peculiar to this land. The situation is as bad in Europe and in many other areas. News stories tell of the production in Denmark of a filthy, erotic, and blasphemous movie to be produced on the life of the Son of God. The whole dismal picture indicates a weakening rot seeping into the very fiber of society.
 
-Our legislatures and courts are affected by this wave. Legal restraints against deviant moral behavior are eroding under legislative enactments and court opinions. This is done in the name of freedom of speech, freedom of the press, freedom of choice in so-called personal matters. But the bitter fruit of these so-called freedoms has been enslavement to debauching habits and behavior that leads only to destruction. A prophet, speaking long ago, aptly described the process when he said, “And thus the devil cheateth their souls, and leadeth them away carefully down to hell.” ([[2 Nephi 28.21|2 Ne. 28:21]].)
+Our legislatures and courts are affected by this wave. Legal restraints against deviant moral behavior are eroding under legislative enactments and court opinions. This is done in the name of freedom of speech, freedom of the press, freedom of choice in so-called personal matters. But the bitter fruit of these so-called freedoms has been enslavement to debauching habits and behavior that leads only to destruction. A prophet, speaking long ago, aptly described the process when he said, “And thus the devil cheateth their souls, and leadeth them away carefully down to hell.” ([[2 Nephi 28.21|2 Ne. 28:21]].)
 
 On the other hand, I am satisfied that there are millions upon millions of good people in this and in other lands. For the most part, husbands are faithful to wives, and wives to husbands. Their children are being reared in sobriety, industry, and faith in God. Given the strength of these, I am one who believes that the situation is far from hopeless. I am satisfied that there is no need to stand still and let the filth and violence overwhelm us, or to run in despair. The tide, high and menacing as it is, can be turned back if enough of the kind I have mentioned will add their strength to the strength of the few who are now effectively working. I believe the challenge to oppose this evil is one from which members of The Church of Jesus Christ of Latter-day Saints, as citizens, cannot shrink. And if we are ever to begin, let it be now.
 
 In that spirit, I should like to suggest four points of beginning:
 
-The first: *Begin with yourself.* Reformation of the world begins with reformation of self. It is a fundamental article of our faith that “We believe in being honest, true, chaste, benevolent, \[and\] virtuous.” ([[Articles of Faith 1.13|A of F 1:13]].)
+The first: *Begin with yourself.* Reformation of the world begins with reformation of self. It is a fundamental article of our faith that “We believe in being honest, true, chaste, benevolent, \[and\] virtuous.” ([[Articles of Faith 1.13|A of F 1:13]].)
 
 We cannot hope to influence others in the direction of virtue unless we live lives of virtue. The example of our living will carry a greater influence than will all the preaching in which we might indulge. We cannot expect to lift others unless we stand on higher ground ourselves.
 
@@ -64,7 +64,7 @@ Declared the Lord to this people: “Wherefore, be not weary in well-doing, for 
 
 This is the essence of the matter—“the heart and a willing mind.” Speak to those who enact the regulations, the statutes, and the laws—those in government on local, state, and national levels; and those who occupy positions of responsibility as administrators of our schools. Of course, there will be some who will slam the door, some who will scoff. Discouragement may come. It has always been thus. Edmund Burke, speaking on the floor of the House of Commons in 1783, declared concerning the advocate of an unpopular cause:
 
-“He well knows what snares are spread about his path. … He is traduced and abused for his supposed motives. He will remember that obloquy is a necessary ingredient in the composition of all true glory: he will remember … that calumny and abuse are essential parts of triumph.” (Quoted in foreword to John F. Kennedy, *Profiles in Courage,* New York: Harper & Row, 1964, p. xviii).
+“He well knows what snares are spread about his path. … He is traduced and abused for his supposed motives. He will remember that obloquy is a necessary ingredient in the composition of all true glory: he will remember … that calumny and abuse are essential parts of triumph.” (Quoted in foreword to John F. Kennedy, *Profiles in Courage,* New York: Harper & Row, 1964, p. xviii).
 
 The apostle Paul, in his defense before Agrippa, gave an account of his miraculous conversion while on the way to Damascus, declaring that the voice of the Lord commanded him to “rise, and stand upon thy feet.” ([[Acts 26.16|Acts 26:16]].)
 
@@ -83,8 +83,6 @@ Finally, my fourth point of beginning: *Strength to do battle begins with enlist
 Brethren and sisters, the tide of evil flows. It has become a veritable flood. Most of us, living somewhat sheltered lives, have little idea of the vast dimensions of it. Billions of dollars are involved for those who pour out pornography, for those who peddle lasciviousness, for those who deal in bestiality, in perversion, in sex and violence. God give us the strength, the wisdom, the faith, the courage as citizens to stand in opposition to these and to let our voices be heard in defense of those virtues which, when practiced in the past, made men and nations strong, and which, when neglected, brought them to decay.
 
 God lives. He is our strength and our helper. As we strive, we shall discover that legions of good men and women will join with us. For this I humbly pray, in the name of him of whom I testify, even the Lord Jesus Christ. Amen.
-
-
 
 
 

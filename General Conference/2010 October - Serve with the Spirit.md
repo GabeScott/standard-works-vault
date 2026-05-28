@@ -44,11 +44,11 @@ Our humility and our faith that invite spiritual gifts are increased by our read
 
 But reading, studying, and pondering are not the same. We read words and we may get ideas. We study and we may discover patterns and connections in scripture. But when we ponder, we invite revelation by the Spirit. Pondering, to me, is the thinking and the praying I do after reading and studying in the scriptures carefully.
 
-For me, President Joseph F. Smith set an example of how pondering can invite light from God. It is recorded in the 138th section of the Doctrine and Covenants. He had been reading and studying many scriptures, trying to understand how the effects of the Savior’s Atonement would reach those who had died never having heard His message. Here is his account of how revelation came: “As I pondered over these things which are written, the eyes of my understanding were opened, and the Spirit of the Lord rested upon me, and I saw the hosts of the dead, both small and great.”[^4]
+For me, President Joseph F. Smith set an example of how pondering can invite light from God. It is recorded in the 138th section of the Doctrine and Covenants. He had been reading and studying many scriptures, trying to understand how the effects of the Savior’s Atonement would reach those who had died never having heard His message. Here is his account of how revelation came: “As I pondered over these things which are written, the eyes of my understanding were opened, and the Spirit of the Lord rested upon me, and I saw the hosts of the dead, both small and great.”[^4]
 
 Repentance, prayer, and pondering over the scriptures are essential parts of our qualifying for the gifts of the Spirit in our priesthood service. Further magnification of our power to serve will come as we respond with faith to go forward in our callings with the Holy Ghost to help us.
 
-President Thomas S. Monson put it this way for us: “What does it mean to magnify \[your\] calling? It means to build it up in dignity … , to enlarge and strengthen it to let the light of heaven shine through it to the view of other men. And how does one magnify a calling? Simply by performing the service that pertains to it.”[^5]
+President Thomas S. Monson put it this way for us: “What does it mean to magnify \[your\] calling? It means to build it up in dignity … , to enlarge and strengthen it to let the light of heaven shine through it to the view of other men. And how does one magnify a calling? Simply by performing the service that pertains to it.”[^5]
 
 I will suggest two services to which we are all called. In carrying them out under the influence of the Spirit, you and others will see your power to serve strengthened and magnified.
 
@@ -72,7 +72,7 @@ Bishops have that feeling come to them during the night and each time they sit o
 
 We need not worry about knowing the right thing to say or do when we get there. The love of God and the Holy Spirit may be enough. When I was a young man I feared that I would not know what to do or to say to people in great need.
 
-Once I was at the hospital bedside of my father as he seemed near death. I heard a commotion among the nurses in the hallway. Suddenly, President Spencer W. Kimball walked into the room and sat in a chair on the opposite side of the bed from me. I thought to myself, “Now here is my chance to watch and listen to a master at going to those in pain and suffering.”
+Once I was at the hospital bedside of my father as he seemed near death. I heard a commotion among the nurses in the hallway. Suddenly, President Spencer W. Kimball walked into the room and sat in a chair on the opposite side of the bed from me. I thought to myself, “Now here is my chance to watch and listen to a master at going to those in pain and suffering.”
 
 President Kimball said a few words of greeting, asked my father if he had received a priesthood blessing, and then, when Dad said that he had, the prophet sat back in his chair.
 
@@ -84,7 +84,7 @@ President Kimball didn’t speak many words of comfort, at least that I could he
 
 That is true whether we are called to teach the gospel by the Spirit or go with the Holy Ghost to those with feeble knees and hands that hang down.[^7] Our priesthood service will be strengthened, people will be blessed, and the light of heaven will be there. The light of heaven will be there for us as well as for those we serve. We may be tired. Our own and our family’s troubles may loom large. But there is a blessing of encouragement for those who serve under the influence of the Spirit.
 
-President George Q. Cannon had more than his fair share of sorrow, opposition, and trials in his years of priesthood service. He also had experience with the Holy Ghost as his companion in difficult times and hard service. This is the assurance to us in our priesthood service, in the Church and in our families. For me the promise has been true when I have felt the Spirit in my priesthood service. “Whenever darkness fills our minds, we may know that we are not possessed of the Spirit of God. … When we are filled with the Spirit of God we are filled with joy, with peace, and with happiness, no matter what our circumstances may be; for it is a spirit of cheerfulness and of happiness. The Lord has given unto us the gift of the Holy Ghost. It is our privilege to have that Holy Ghost reign within us, so that from morning till night and from night till morning we shall have the joy, the light and the revelation thereof.”[^8]
+President George Q. Cannon had more than his fair share of sorrow, opposition, and trials in his years of priesthood service. He also had experience with the Holy Ghost as his companion in difficult times and hard service. This is the assurance to us in our priesthood service, in the Church and in our families. For me the promise has been true when I have felt the Spirit in my priesthood service. “Whenever darkness fills our minds, we may know that we are not possessed of the Spirit of God. … When we are filled with the Spirit of God we are filled with joy, with peace, and with happiness, no matter what our circumstances may be; for it is a spirit of cheerfulness and of happiness. The Lord has given unto us the gift of the Holy Ghost. It is our privilege to have that Holy Ghost reign within us, so that from morning till night and from night till morning we shall have the joy, the light and the revelation thereof.”[^8]
 
 We can watch for that blessing of happiness and joy to come when we need it during the difficult times in our faithful priesthood service.
 
@@ -95,20 +95,18 @@ I testify that we are called of God by prophecy. This is the true Church of Jesu
 
 [^1]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^2]: [[3 Nephi 19.9|3 Nephi 19:9]].
+[^2]: [[3 Nephi 19.9|3 Nephi 19:9]].
 
-[^3]: [[3 Nephi 19.21|3 Nephi 19:21]].
+[^3]: [[3 Nephi 19.21|3 Nephi 19:21]].
 
 [^4]: [[D&C 138.11|Doctrine and Covenants 138:11]].
 
-[^5]: Thomas S. Monson, in Conference Report, Oct. 1999, 66; or *Ensign,* Nov. 1999, 51.
+[^5]: Thomas S. Monson, in Conference Report, Oct. 1999, [[1999 October - Priesthood Power.md|66]]; or *Ensign,* Nov. 1999, 51.
 
 [^6]: [[D&C 20.58|Doctrine and Covenants 20:58–59]][[D&C 20.59|]].
 
 [^7]: See [[D&C 81.5|Doctrine and Covenants 81:5]].
 
-[^8]: George Q. Cannon, *Deseret Weekly,* Sept. 29, 1894, 449–50.
+[^8]: George Q. Cannon, *Deseret Weekly,* Sept. 29, 1894, 449–50.
 
-
-
-#Holy_Ghost #Priesthood #Service
+#HolyGhost #Priesthood #Service

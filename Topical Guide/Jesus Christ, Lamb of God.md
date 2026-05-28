@@ -1,6 +1,5 @@
 # Jesus Christ, Lamb of God
 
-
 he is brought as a *lamb* to the slaughter, [[Isaiah 53.7|Isaiah 53:7]] ([[Mosiah 14.7|Mosiah 14:7]]).
 
 *Lamb of God*, which taketh away the sin, [[John 1.29|John 1:29]] ([[Alma 7.14|Alma 7:14]]).
@@ -31,7 +30,7 @@ throne of God and of the *Lamb* shall be in it, [[Revelation 22.3|Revelation 22:
 
 he had baptized the *Lamb of God*, [[1 Nephi 10.10|1 Nephi 10:10]] ([[2 Nephi 31.4|2 Nephi 31:4]]).
 
-angel said ... Behold the *Lamb of God*, [[1 Nephi 11.21|1 Nephi 11:21]].
+angel said … Behold the *Lamb of God*, [[1 Nephi 11.21|1 Nephi 11:21]].
 
 *Lamb of God* is the Son of the Eternal Father, [[1 Nephi 13.40|1 Nephi 13:40]].
 
@@ -41,7 +40,7 @@ followers of God and the *Lamb*, [[Helaman 6.5|Helaman 6:5]].
 
 cleansed by the blood of the *Lamb*, [[Mormon 9.6|Mormon 9:6]].
 
-Lord, even Christ the *Lamb*, [[D&C 76.85|D&C 76:85]] ([[D&C 76.21|D&C 76:21]], [[D&C 76.39|D&C 76:39]], [[D&C 76.119|D&C 76:119]]).
+Lord, even Christ the *Lamb*, [[D&C 76.85|D&C 76:85]] ([[D&C 76.21|D&C 76:21]]; [[D&C 76.39|D&C 76:39]]; [[D&C 76.119|D&C 76:119]]).
 
 *Lamb of God* hath overcome and trodden, [[D&C 88.106|D&C 88:106]].
 

@@ -36,7 +36,7 @@ When a stricken father brought his terribly afflicted son to Jesus, Mark records
 
 We must trust in the Lord. If we give ourselves freely to Him, our burdens will be lifted and our hearts will be consoled.
 
-Elder Scott has recently counseled: “Trust in God … no matter how challenging the circumstance. … Your peace of mind, your assurance of answers to vexing problems, your ultimate joy depend upon your trust in Heavenly Father and His Son, Jesus Christ” (Richard G. Scott, in Conference Report, Apr. 2003, 79, 80; or *Ensign,* May 2003, 76, 78).
+Elder Scott has recently counseled: “Trust in God … no matter how challenging the circumstance. … Your peace of mind, your assurance of answers to vexing problems, your ultimate joy depend upon your trust in Heavenly Father and His Son, Jesus Christ” (Richard G. Scott, in Conference Report, Apr. 2003, [[2003 April - The Sustaining Power of Faith in Times of Uncertainty and Testing.md|79, 80]]; or *Ensign,* May 2003, 76, 78).
 
 How do we learn to trust? How do we learn to extend our hand and connect to the comfort provided by the Lord?
 
@@ -80,7 +80,7 @@ If we will keep the commandments of God and walk hand in hand with Him in His pa
 
 Trust in His promise of eternal life, and allow peace and hope to distill upon you.
 
-When we connect with the Author of Peace and with His perfect and redeeming love, then we can come to know the reality of the Lord’s promise: “I the Lord thy God will hold thy right hand, saying … , Fear not; I will help thee” ([[Isaiah 41.13|Isaiah 41:13]]).
+When we connect with the Author of Peace and with His perfect and redeeming love, then we can come to know the reality of the Lord’s promise: “I the Lord thy God will hold thy right hand, saying … , Fear not; I will help thee” ([[Isaiah 41.13|Isaiah 41:13]]).
 
 I testify of Jesus Christ, our Redeemer and living Savior.
 
@@ -89,6 +89,4 @@ I testify that He lives and extends His loving hand to each of us. In the name o
 
 
 
-
-
-#Faith #Jesus_Christ #Plan_Of_Salvation #Prayer #Trust
+#Faith #JesusChrist #PlanOfSalvation #Prayer #Trust

@@ -16,7 +16,7 @@ We stand today as beneficiaries of their priceless heritage to us, a heritage ba
 
 May I first pay honor to the founders of our beloved republic.
 
-The Declaration of Independence to which these great men affixed their signatures is much more than a political document. It constitutes a spiritual manifesto—revelation, if you will—declaring not for this nation only, but for all nations, the source of man’s rights. Nephi, a Book of Mormon prophet, foresaw over 2,300 years ago that this event would transpire. The colonies he saw would break with Great Britain and that “the power of the Lord was with \[the colonists\],” that they “were delivered by the power of God out of the hands of all other nations.” ([[1 Nephi 13.16|1 Ne. 13:16, 19]][[1 Nephi 13.19|]].)
+The Declaration of Independence to which these great men affixed their signatures is much more than a political document. It constitutes a spiritual manifesto—revelation, if you will—declaring not for this nation only, but for all nations, the source of man’s rights. Nephi, a Book of Mormon prophet, foresaw over 2,300 years ago that this event would transpire. The colonies he saw would break with Great Britain and that “the power of the Lord was with \[the colonists\],” that they “were delivered by the power of God out of the hands of all other nations.” ([[1 Nephi 13.16|1 Ne. 13:16, 19]][[1 Nephi 13.19|]].)
 
 The Declaration of Independence was to set forth the moral justification of a rebellion against a long-recognized political tradition—the divine right of kings. At issue was the fundamental question of whether men’s rights were God-given or whether these rights were to be dispensed by governments to their subjects. This document proclaimed that *all* men have certain inalienable rights. In other words, these rights came from God. Therefore, the colonists were not rebels against political authority, but a free people only exercising their rights before an offending, usurping power. They were thus morally justified to do what they did.
 
@@ -44,7 +44,7 @@ Other great stalwarts who also pledged lives, possessions, and their sacred hono
 
 Our Mormon forebears covenanted their lives!—and not a few gave them. The following places hallow the memory of the latter-day martyrs: Jackson County; Crooked River (where one of the Twelve was martyred); Haun’s Mill; Carthage; Nauvoo; and the unmarked graves along the Mormon trail. They gave their fortunes!—and many, if not most, lost their lands, homes, and businesses. They gave their sacred honor!—this by covenant to God.
 
-They came west with the faith that God had “set his hand again the second time” ([[2 Nephi 21.11|2 Ne. 21:11]]) to restore the house of Israel. They knew that they were a part of this great movement. They were converted to the truth that the Church of Jesus Christ had been restored again on the earth through the instrumentality of a latter-day Prophet, Joseph Smith, and that following his martyrdom, the keys of the priesthood had been continued through Joseph’s ordained successor, Brigham Young. They believed themselves to be God-directed and prophet-led. Their conviction inspired their sacrifices.
+They came west with the faith that God had “set his hand again the second time” ([[2 Nephi 21.11|2 Ne. 21:11]]) to restore the house of Israel. They knew that they were a part of this great movement. They were converted to the truth that the Church of Jesus Christ had been restored again on the earth through the instrumentality of a latter-day Prophet, Joseph Smith, and that following his martyrdom, the keys of the priesthood had been continued through Joseph’s ordained successor, Brigham Young. They believed themselves to be God-directed and prophet-led. Their conviction inspired their sacrifices.
 
 They came—with indomitable faith and courage, following incredible suffering and adversity. They came—with stamina, with inspired confidence for better days.
 
@@ -66,9 +66,9 @@ Can we not see in their examples the solutions to problems threatening families 
 
 *Third: They would counsel us on the dignity of work, to practice thrift, and to be self-sustaining.* Theirs was a philosophy that neither the world nor the government owes a man his bread. Man is commanded of God to live by the sweat of *his* brow, not someone else’s. In Thomas Jefferson’s First Inaugural Address, he counseled us toward a wise and frugal government, one which “shall not take from the mouth of labor the bread it had earned.” (*Inaugural Addresses of the Presidents of the United States,* U.S. Government Printing Office, 1961, p. 15.)
 
-The Founding Fathers would be in complete agreement with this counsel from Brigham Young, repeated by President Spencer W. Kimball today:
+The Founding Fathers would be in complete agreement with this counsel from Brigham Young, repeated by President Spencer W. Kimball today:
 
-“Beautify your gardens, your houses, your farms; beautify the city. This will make us happy, and produce plenty.” (*Discourses of Brigham Young,* comp. John A. Widtsoe, Deseret Book Co., 1954, ed., p. 302.)
+“Beautify your gardens, your houses, your farms; beautify the city. This will make us happy, and produce plenty.” (*Discourses of Brigham Young,* comp. John A. Widtsoe, Deseret Book Co., 1954, ed., p. 302.)
 
 “To be slothful, wasteful, lazy and indolent … is unrighteous.” (*Discourses,* p. 303.)
 
@@ -90,15 +90,13 @@ That picture has stayed in my memory ever since: America on her knees in recogni
 
 Yes, those valiant patriots and pioneers left us a great heritage. Are we prepared to do what they did? Will we pledge our lives, our possessions, our sacred honor for future generations and the upbuilding of God’s kingdom on the earth?
 
-Hear the challenge made to us—their descendants and benefactors—at the dedication of This Is the Place Monument, at the mouth of Emigration Canyon, July 24, 1947, by President J. Reuben Clark, Jr.:
+Hear the challenge made to us—their descendants and benefactors—at the dedication of This Is the Place Monument, at the mouth of Emigration Canyon, July 24, 1947, by President J. Reuben Clark, Jr.:
 
 “Can we keep and preserve what they wrought? Shall we pass on to our children the heritage they left us, or shall we lightly fritter it away? Have we their faith, their bravery, their courage; could we endure their hardships and suffering, make their sacrifices, bear up under their trials, their sorrows, their tragedies, believe the simple things they knew were true, have the simple faith that worked miracles for them, follow, and not falter or fall by the wayside, where our leaders advance, face the slander and the scorn of an unpopular belief? Can we do the thousands of little and big things that made them the heroic builders of a great Church, a great commonwealth?”
 
 There should be no doubt what our task is today. If we truly cherish the heritage we have received, we must maintain the same virtues and the same character of our stalwart forebears—faith in God, courage, industry, frugality, self-reliance, and integrity. We have the obligation to maintain what those who pledged their lives, their fortunes, and sacred honor gave to future generations. Our opportunity and obligation for doing so is clearly upon us.
 
 As one with you, charged with the responsibility of protecting and perpetuating this noble heritage, I stand today with bowed head and heart overflowing with gratitude. May we begin to repay this debt by preserving and strengthening this heritage in our own lives, in the lives of our children, their children, and generations yet unborn. In the name of Jesus Christ. Amen.
-
-
 
 
 

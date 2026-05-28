@@ -4,6 +4,3 @@
 
 [JST Luke 1:8](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/1?lang=eng)
 
-
-
-

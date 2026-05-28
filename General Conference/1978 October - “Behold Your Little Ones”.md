@@ -1,6 +1,6 @@
 # “Behold Your Little Ones”
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 My brethren and sisters, I pray for the direction of the Holy Spirit in this very serious responsibility.
 
-We took some of our grandchildren to the circus the other evening. I was more interested in watching them and many others of their kind than in watching the man on the flying trapeze. I looked at them in wonder as they alternately laughed and stared wide-eyed at the exciting things before them. And I thought of the miracle of children who become the world’s constant renewal of life and purpose. Observing them in the intensity of their interest, even in this atmosphere, my mind reverted to that beautiful and touching scene recorded in the book of Third Nephi when the resurrected Lord took little children in his arms and wept as he blessed them and said to the people, “Behold your little ones” ([[3 Nephi 17.23|3 Ne. 17:23]]).
+We took some of our grandchildren to the circus the other evening. I was more interested in watching them and many others of their kind than in watching the man on the flying trapeze. I looked at them in wonder as they alternately laughed and stared wide-eyed at the exciting things before them. And I thought of the miracle of children who become the world’s constant renewal of life and purpose. Observing them in the intensity of their interest, even in this atmosphere, my mind reverted to that beautiful and touching scene recorded in the book of Third Nephi when the resurrected Lord took little children in his arms and wept as he blessed them and said to the people, “Behold your little ones” ([[3 Nephi 17.23|3 Ne. 17:23]]).
 
 It is so obvious that the great good and the terrible evil in the world today are the sweet and the bitter fruits of the rearing of yesterday’s children. As we train a new generation, so will the world be in a few years. If you are worried about the future, then look to the upbringing of your children. Wisely did the writer of Proverbs declare, “Train up a child in the way he should go: and when he is old, he will not depart from it” ([[Proverbs 22.6|Prov. 22:6]]).
 
@@ -28,17 +28,17 @@ Perhaps it was because of the home in which I lived, where there was a father wh
 
 I have seen the fruits of that neighbor’s temper come alive again in the troubled lives of his children. I have since discovered that he was one of that very substantial body of parents who seem incapable of anything but harshness toward those for whose coming into the world they are responsible. I have also come to realize that this man, who walks in the memories of my childhood, is but an example of tens of thousands in this land and uncounted thousands across the world who are known as child abusers. Every social worker, every duty officer in the emergency room of a large hospital, every policeman and judge in a large city can tell you of them. The whole tragic picture is one of beatings, kicking, slamming, and even of sexual assault on small children. And akin to these are those vicious men and women who exploit children for pornographic purposes.
 
-I have no disposition to dwell on this ugly picture. I wish only to say that no man who is a professed follower of Christ and no man who is a professed member of this church can engage in such practices without offending God and repudiating the teachings of his Son. It was Jesus himself who, while holding before us the example of the purity and innocence of children, declared, “Whoso shall offend one of these little ones … , it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea” ([[Matthew 18.6|Matt. 18:6]]).
+I have no disposition to dwell on this ugly picture. I wish only to say that no man who is a professed follower of Christ and no man who is a professed member of this church can engage in such practices without offending God and repudiating the teachings of his Son. It was Jesus himself who, while holding before us the example of the purity and innocence of children, declared, “Whoso shall offend one of these little ones … , it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea” ([[Matthew 18.6|Matt. 18:6]]).
 
 Could there be a stronger denunciation of those who abuse children than these words spoken by the Savior of mankind? Do you want a spirit of love to grow in the world? Then begin within the walls of your own home. Behold your little ones and see within them the wonders of God, from whose presence they have recently come.
 
-Brigham Young once said: “A child loves the smiles of its mother, but hates her frowns. I tell the mothers not to allow the children to indulge in evils, but at the same time to treat them with mildness.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, 2nd ed., Salt Lake City: Deseret Book Co., 1926, p. 323.)
+Brigham Young once said: “A child loves the smiles of its mother, but hates her frowns. I tell the mothers not to allow the children to indulge in evils, but at the same time to treat them with mildness.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, 2nd ed., Salt Lake City: Deseret Book Co., 1926, p. 323.)
 
 He further stated, “Bring up your children in the love and fear of the Lord; study their dispositions and their temperaments, and deal with them accordingly, never allowing yourself to correct them in the heat of passion; teach them to love you rather than to fear you” (*Discourses of Brigham Young,* p. 320).
 
 Of course, there is need for discipline with families. But discipline with severity, discipline with cruelty, inevitably leads not to correction, but rather to resentment and bitterness. It cures nothing and only aggravates the problem. It is self-defeating. The Lord, in setting forth the spirit of governance in his church has also set forth the spirit of governance in the home in these great words of revelation:
 
-“No power or influence can or ought to be maintained … , only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned;
+“No power or influence can or ought to be maintained … , only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned;
 
 “Reproving betimes with sharpness, when moved upon by the Holy Ghost; and then showing forth afterwards an increase of love toward him whom thou hast reproved, lest he esteem thee to be his enemy;
 
@@ -67,8 +67,6 @@ How much more beautiful would be the world and the society in which we live if e
 Said Isaiah of old, “All thy children shall be taught of the Lord; and great shall be the peace of thy children” ([[Isaiah 54.13|Isa. 54:13]]). To which I add, “Great also shall be the peace and the gladness of their fathers and mothers.”
 
 For that peace I humbly pray in your behalf as I bear witness of the truth of these things, in the name of Jesus Christ. Amen.
-
-
 
 
 

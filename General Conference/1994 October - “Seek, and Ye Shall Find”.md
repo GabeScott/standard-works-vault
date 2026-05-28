@@ -16,7 +16,7 @@ Speaking for more than three and a half million sisters of Relief Society, I exp
 
 As we have witnessed the transition of leadership from President Benson to President Hunter, it is clear this is a church of order. Jesus Christ has established the order of things on this earth. We need not worry, for he has told us, “Let your hearts be comforted concerning Zion; for all flesh is in mine hands; be still and know that I am God” ([[D&C 101.16|D&C 101:16]]).
 
-Relief Society is a part of that order, for it is the Lord’s organization for women. Our reach extends around the world, and our influence is vital for all women. Forty years ago, President Belle S. Spafford paid tribute to pioneer women leaders, describing them as those who “had been given by divine insight a knowledge of the destiny of Relief Society” (Jill Mulvay Derr, Janath Russell Cannon, and Maureen Ursenbach Beecher, *Women of Covenant: The Story of Relief Society,* Salt Lake City: Deseret Book Co., 1992, p. 337). Today Relief Society is continuing to become what they envisioned so many years ago. As Relief Society sisters, we exemplify brightness and hope, spirituality and compassion. We are women of many cultures, ages, and experiences, united together to build testimonies and exercise the charity for which we are known.
+Relief Society is a part of that order, for it is the Lord’s organization for women. Our reach extends around the world, and our influence is vital for all women. Forty years ago, President Belle S. Spafford paid tribute to pioneer women leaders, describing them as those who “had been given by divine insight a knowledge of the destiny of Relief Society” (Jill Mulvay Derr, Janath Russell Cannon, and Maureen Ursenbach Beecher, *Women of Covenant: The Story of Relief Society,* Salt Lake City: Deseret Book Co., 1992, p. 337). Today Relief Society is continuing to become what they envisioned so many years ago. As Relief Society sisters, we exemplify brightness and hope, spirituality and compassion. We are women of many cultures, ages, and experiences, united together to build testimonies and exercise the charity for which we are known.
 
 Sisters, this is a complicated era in which we live. Technology has simplified some tasks and opened up ways to learn that our grandmothers never imagined. But with a computerized society have come increased pressures, causing us to weigh carefully how we use our time, to evaluate thoughtfully what we can do that will make the greatest difference.
 
@@ -38,7 +38,7 @@ A Relief Society leader in Georgia wrote of the magnanimous service given after 
 
 The Lord has counseled us directly in this dispensation to seek the Spirit—to learn much—that we might “lay aside the things of this world, and seek for the things of a better” ([[D&C 25.10|D&C 25:10]]). I feel strongly that this is a clarion call for the women of this church at this time. For us to stand firm and faithful, we must be clearly focused on seeking the Lord.
 
-Seeking implies so much more than merely looking. *Seek* means energy, direction, passion, purpose. To seek requires all our “heart, might, mind and strength” ([[D&C 4.2|D&C 4:2]]). We sisters are good at using our hearts and our hands in the Lord’s work. But we must also use our minds. More than one hundred years ago, Relief Society President Emmeline B. Wells said, “I believe in women, especially thinking women” (“Why, Ah! Why” *Woman’s Exponent,* vol. 3, Oct. 1, 1874, p. 67). So do I.
+Seeking implies so much more than merely looking. *Seek* means energy, direction, passion, purpose. To seek requires all our “heart, might, mind and strength” ([[D&C 4.2|D&C 4:2]]). We sisters are good at using our hearts and our hands in the Lord’s work. But we must also use our minds. More than one hundred years ago, Relief Society President Emmeline B. Wells said, “I believe in women, especially thinking women” (“Why, Ah! Why” *Woman’s Exponent,* vol. 3, Oct. 1, 1874, p. 67). So do I.
 
 How do we seek with our minds? With our intellect we can ponder, we can analyze our circumstances, we can sort and sift information, weigh our options; we can store ideas, we can draw conclusions from our experiences, find answers to our problems; we can treasure thoughts and receive revelation. Isn’t that what the Lord meant when he said, “You must study it out in your mind” and then ask me if these things are not true? ([[D&C 9.8|D&C 9:8]].)
 
@@ -48,7 +48,7 @@ As we earnestly seek light and truth, we develop clarity in our lives that refle
 
 “Whatever principle of intelligence we attain … in this life, it will rise with us in the resurrection.
 
-“And if a person gains more knowledge … in this life through his diligence … , he will have so much the advantage in the world to come” ([[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]]).
+“And if a person gains more knowledge … in this life through his diligence … , he will have so much the advantage in the world to come” ([[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]]).
 
 Learning—converting light and truth to everyday action in living the laws of God—is what we seek.
 
@@ -68,7 +68,7 @@ Relief Society is a modern forum where sisters learn spiritual truths together. 
 
 These Relief Society sisters are seeking learning, and they are supporting each other in the process. They are using their minds and their might.
 
-In their focus on learning, these women are part of a burgeoning literacy effort in the Church. In announcing the focus on literacy to all the Church, President Gordon B. Hinckley said: “Now a great new project is to be undertaken. … Its consequences will go on and on and be felt in the lives of generations yet to come. It is a program … designed to bring light into the lives of those who can neither read nor write” (*Ensign,* Mar. 1992, p. 6).
+In their focus on learning, these women are part of a burgeoning literacy effort in the Church. In announcing the focus on literacy to all the Church, President Gordon B. Hinckley said: “Now a great new project is to be undertaken. … Its consequences will go on and on and be felt in the lives of generations yet to come. It is a program … designed to bring light into the lives of those who can neither read nor write” (*Ensign,* Mar. 1992, p. 6).
 
 Seeking to be literate is a compelling challenge. Being able to read enables us to seek further light and truth. Light is more than being able to see with eyes. It includes revelation of things as they are, as they were, and as they are to come. Light brings definition out of darkness.
 
@@ -87,6 +87,4 @@ I bear testimony that these truths are given to us by a loving Heavenly Father. 
 
 
 
-
-
-#Education #Holy_Ghost #Jesus_Christ #Literacy #Relief_Society #Truth
+#Education #HolyGhost #JesusChrist #Literacy #ReliefSociety #Truth

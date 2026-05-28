@@ -1,6 +1,6 @@
 # The Light of Christ
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -28,7 +28,7 @@ Mormon was alluding to this Spirit when he wrote to his son Moroni that “every
 
 “For behold, the Spirit of Christ is given to every man, that he may know good from evil.” ([[Moroni 7.13|Moro. 7:13–16]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]].)
 
-President Joseph F. Smith says that this Spirit of Christ “strives with … men, and will continue to strive with them \[if they will resist the enticings of Satan\], until it brings them to a knowledge of the truth and the possession of the greater light and testimony of the Holy Ghost.” (*Gospel Doctrine,* Deseret Book Co., 1973, pp. 67–68.)
+President Joseph F. Smith says that this Spirit of Christ “strives with … men, and will continue to strive with them \[if they will resist the enticings of Satan\], until it brings them to a knowledge of the truth and the possession of the greater light and testimony of the Holy Ghost.” (*Gospel Doctrine,* Deseret Book Co., 1973, pp. 67–68.)
 
 Now, this statement of President Smith’s brings us to a consideration of the second phase of our subject: the gift of the Holy Ghost.
 
@@ -86,7 +86,7 @@ How difficult it is to get one in darkness to comprehend the light or to believe
 
 One is born again by actually receiving and experiencing the light and power inherent in the gift of the Holy Ghost.
 
-Now, concerning the third phase of our theme, “the more sure word of prophecy” ([[D&C 131.5|D&C 131:5]]), which is obtained by making one’s “calling and election sure” ([[2 Peter 1.10|2 Pet. 1:10]]), the Prophet Joseph said:
+Now, concerning the third phase of our theme, “the more sure word of prophecy” ([[D&C 131.5|D&C 131:5]]), which is obtained by making one’s “calling and election sure” ([[2 Peter 1.10|2 Pet. 1:10]]), the Prophet Joseph said:
 
 “After a person has faith in Christ, repents of his sins, and is baptized for the remission of his sins and receives the Holy Ghost, (by the laying on of hands) … then let him continue to humble himself before God, hungering and thirsting after righteousness, and living by every word of God, and the Lord will soon say unto him, Son, thou shalt be exalted. When the Lord has thoroughly proved him, and finds that the man is determined to serve Him at all hazards, then the man will find his calling and his election made sure, then it will be his privilege to receive the other Comforter, which the Lord hath promised the Saints, as is recorded in the testimony of St. John.” (*Teachings of the Prophet Joseph Smith,* p. 150.)
 
@@ -112,7 +112,7 @@ To His twelve Nephite disciples, the Master said:
 
 “And they all spake, save it were three, saying: We desire that after we have lived unto the age of man, that our ministry, wherein thou hast called us, may have an end, that we may speedily come unto thee in thy kingdom.
 
-“And he said unto them: Blessed are ye because ye desired this thing of me; therefore, after that ye are seventy and two years old ye shall come unto me in my kingdom; and with me ye shall find rest.” ([[3 Nephi 28.1|3 Ne. 28:1–3]][[3 Nephi 28.2|]][[3 Nephi 28.3|]].)
+“And he said unto them: Blessed are ye because ye desired this thing of me; therefore, after that ye are seventy and two years old ye shall come unto me in my kingdom; and with me ye shall find rest.” ([[3 Nephi 28.1|3 Ne. 28:1–3]][[3 Nephi 28.2|]][[3 Nephi 28.3|]].)
 
 As Moroni labored in solitude abridging the Jaredite record, he received from the Lord this comforting assurance:
 
@@ -124,13 +124,13 @@ Paul, in his second epistle to Timothy, wrote:
 
 “I have fought a good fight, I have finished my course, I have kept the faith:
 
-“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day.” ([[2 Timothy 4.6|2 Tim. 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].)
+“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day.” ([[2 Timothy 4.6|2 Tim. 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].)
 
-In this dispensation many have received like assurances. In the spring of 1839, while the Prophet Joseph and his associates were languishing in Liberty Jail, Heber C. Kimball, our president’s grandfather, labored against great odds caring for the Saints and striving to free the brethren who were in jail. On the sixth of April he wrote:
+In this dispensation many have received like assurances. In the spring of 1839, while the Prophet Joseph and his associates were languishing in Liberty Jail, Heber C. Kimball, our president’s grandfather, labored against great odds caring for the Saints and striving to free the brethren who were in jail. On the sixth of April he wrote:
 
-“My family having been gone about two months, during which time I heard nothing from them; our brethren being in prison; death and destruction following us everywhere we went; I felt very sorrowful and lonely. The following words came to mind, and the Spirit said unto me, ‘write,’ which I did by taking a piece of paper and writing on my knee as follows: …
+“My family having been gone about two months, during which time I heard nothing from them; our brethren being in prison; death and destruction following us everywhere we went; I felt very sorrowful and lonely. The following words came to mind, and the Spirit said unto me, ‘write,’ which I did by taking a piece of paper and writing on my knee as follows: …
 
-“Verily I say unto my servant Heber, thou art my son, in whom I am well pleased; for thou art careful to hearken to my words, and not transgress my law, nor rebel against my servant Joseph Smith, for thou hast a respect to the words of mine anointed, even from the least to the greatest of them; *therefore*”—listen to this—*“thy name is written in heaven, no more to be blotted out for ever.”* (Orson F. Whitney, *Life of Heber C. Kimball,* Bookcraft, 1975, p. 241; italics added.)
+“Verily I say unto my servant Heber, thou art my son, in whom I am well pleased; for thou art careful to hearken to my words, and not transgress my law, nor rebel against my servant Joseph Smith, for thou hast a respect to the words of mine anointed, even from the least to the greatest of them; *therefore*”—listen to this—*“thy name is written in heaven, no more to be blotted out for ever.”* (Orson F. Whitney, *Life of Heber C. Kimball,* Bookcraft, 1975, p. 241; italics added.)
 
 To the Prophet Joseph Smith the Lord said:
 
@@ -147,6 +147,4 @@ That the Lord will bless all of us priesthood bearers that we will so understand
 
 
 
-
-
-#Jesus_Christ #Spirituality
+#JesusChrist #Spirituality

@@ -1,6 +1,5 @@
 # Show, Shew
 
-
 *See also* [[Appear.md|Appear]]; [[Manifest.md|Manifest]]
 
 *shew* me thy glory, [[Exodus 33.18|Exodus 33:18]].
@@ -9,7 +8,7 @@ I will *shew* wonders in the heavens, [[Joel 2.30|Joel 2:30]] ([[Acts 2.19|Acts 
 
 I *shew* unto him marvellous things, [[Micah 7.15|Micah 7:15]].
 
-devil ... *sheweth* him all the kingdoms of the world, [[Matthew 4.8|Matthew 4:8]] ([[Luke 4.5|Luke 4:5]]).
+devil … *sheweth* him all the kingdoms of the world, [[Matthew 4.8|Matthew 4:8]] ([[Luke 4.5|Luke 4:5]]).
 
 desired him that he would *shew* them a sign, [[Matthew 16.1|Matthew 16:1]].
 
@@ -23,13 +22,13 @@ Father loveth the Son, and *sheweth* him all things, [[John 5.20|John 5:20]].
 
 Philip saith unto him, Lord, *shew* us the Father, [[John 14.8|John 14:8]].
 
-Spirit of truth ... will *shew* you things to come, [[John 16.13|John 16:13]].
+Spirit of truth … will *shew* you things to come, [[John 16.13|John 16:13]].
 
 he *shewed* himself alive after his passion, [[Acts 1.3|Acts 1:3]].
 
-servants ... which *shew* unto us the way of salvation, [[Acts 16.17|Acts 16:17]].
+servants … which *shew* unto us the way of salvation, [[Acts 16.17|Acts 16:17]].
 
-ye do *shew* the Lord's death till he come, [[1 Corinthians 11.26|1 Corinthians 11:26]].
+ye do *shew* the Lord’s death till he come, [[1 Corinthians 11.26|1 Corinthians 11:26]].
 
 *shew* I unto you a more excellent way, [[1 Corinthians 12.31|1 Corinthians 12:31]].
 
@@ -53,15 +52,15 @@ God *showeth* us our weakness, [[Jacob 4.7|Jacob 4:7]].
 
 I will not *show* unto the wicked of my strength, [[Helaman 7.23|Helaman 7:23]].
 
-prophesied ... Christ should *show* himself unto them, [[3 Nephi 11.12|3 Nephi 11:12]].
+prophesied … Christ should *show* himself unto them, [[3 Nephi 11.12|3 Nephi 11:12]].
 
 *show* myself unto the lost tribes of Israel, [[3 Nephi 17.4|3 Nephi 17:4]].
 
 Jesus again *showed* himself, [[3 Nephi 27.2|3 Nephi 27:2]].
 
-ye are redeemed ... therefore I *show* myself unto you, [[Ether 3.13|Ether 3:13]].
+ye are redeemed … therefore I *show* myself unto you, [[Ether 3.13|Ether 3:13]].
 
-Lord ... *showed* unto the brother of Jared all the inhabitants of the earth, [[Ether 3.25|Ether 3:25]].
+Lord … *showed* unto the brother of Jared all the inhabitants of the earth, [[Ether 3.25|Ether 3:25]].
 
 by faith that Christ *showed* himself, [[Ether 12.7|Ether 12:7]].
 

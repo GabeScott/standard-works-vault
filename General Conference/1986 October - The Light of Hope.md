@@ -36,7 +36,7 @@ As Paul said to the Romans: “Now the God of hope fill you with all joy and pea
 
 The Lord wants us to be filled with hope—not just because it points us to a brighter tomorrow, but because it changes the quality of our lives today. *Hopeless* may be the saddest word in our language. Despair is the enemy of our souls. It can paralyze us, halt our progress, and cause us to lose our way. But hope awakens us like a light shining in the darkness.
 
-You remember that the thirteenth article of faith states: “We believe all things, we *hope* all things, we have endured many things, and *hope* to be able to endure all things” \[[[Articles of Faith 1.13|A of F 1:13]]\] (italics added).
+You remember that the thirteenth article of faith states: “We believe all things, we *hope* all things, we have endured many things, and *hope* to be able to endure all things” \[[[Articles of Faith 1.13|A of F 1:13]]\] (italics added).
 
 We can endure all things when our hope is centered in one who will never fail us—our Savior, Jesus Christ, who is the light of the world.
 
@@ -71,6 +71,4 @@ I pray that each of us will seek this gift of hope so that we will be filled wit
 
 
 
-
-
-#Hope #Jesus_Christ
+#Hope #JesusChrist

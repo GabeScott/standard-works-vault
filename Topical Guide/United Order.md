@@ -1,4 +1,3 @@
 # United Order
 
-
-*See* [[Consecration.md|Consecration]]
+*See also* [[Consecration.md|Consecration]]

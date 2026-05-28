@@ -1,6 +1,5 @@
 # Solitary
 
-
 *See also* [[Desolate.md|Desolate]]
 
 They wandered in the wilderness in a *solitary* way, [[Psalms 107.4|Psalms 107:4]].

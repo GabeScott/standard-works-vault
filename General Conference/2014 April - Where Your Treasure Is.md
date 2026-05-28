@@ -1,6 +1,6 @@
 # Where Your Treasure Is
 
-By Elder Michael John U. Teh - *Of the Seventy*
+By Elder Michael John U. Teh - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -48,7 +48,7 @@ In another setting, the Savior gave this parable:
 
 “So is he that layeth up treasure for himself, and is not rich toward God.”[^3]
 
-President Dieter F. Uchtdorf gave the following counsel not too long ago:
+President Dieter F. Uchtdorf gave the following counsel not too long ago:
 
 “Our Heavenly Father sees our real potential. He knows things about us that we do not know ourselves. He prompts us during our lifetime to fulfill the measure of our creation, to live a good life, and to return to His presence.
 
@@ -75,24 +75,22 @@ I bear testimony that our priorities, tendencies, inclinations, desires, appetit
 
 
 
-[^1]: [[2 Nephi 9.51|2 Nephi 9:51]].
+[^1]: [[2 Nephi 9.51|2 Nephi 9:51]].
 
-[^2]: [[Matthew 6.19|Matthew 6:19–21]][[Matthew 6.20|]][[Matthew 6.21|]]; see also [[3 Nephi 13.19|3 Nephi 13:19–21]][[3 Nephi 13.20|]][[3 Nephi 13.21|]].
+[^2]: [[Matthew 6.19|Matthew 6:19–21]][[Matthew 6.20|]][[Matthew 6.21|]]; see also [[3 Nephi 13.19|3 Nephi 13:19–21]][[3 Nephi 13.20|]][[3 Nephi 13.21|]].
 
-[^3]: [[Luke 12.16|Luke 12:16–21]][[Luke 12.17|]][[Luke 12.18|]][[Luke 12.19|]][[Luke 12.20|]][[Luke 12.21|]].
+[^3]: [[Luke 12.16|Luke 12:16–21]][[Luke 12.17|]][[Luke 12.18|]][[Luke 12.19|]][[Luke 12.20|]][[Luke 12.21|]].
 
-[^4]: Dieter F. Uchtdorf, “Of Regrets and Resolutions,” *Ensign* or *Liahona,* Nov. 2012, 22–23.
+[^4]: Dieter F. Uchtdorf, “Of Regrets and Resolutions,” *Ensign* or *Liahona,* Nov. 2012, 22–23.
 
 [^5]: [[Mosiah 3.19|Mosiah 3:19]].
 
-[^6]: See [[3 Nephi 12.48|3 Nephi 12:48]].
+[^6]: See [[3 Nephi 12.48|3 Nephi 12:48]].
 
 [^7]: *Handbook 2: Administering the Church* (2010), 1.1.1.
 
 [^8]: [[Matthew 25.40|Matthew 25:40]].
 
-[^9]: [[2 Nephi 32.3|2 Nephi 32:3]].
-
-
+[^9]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
 #Humility #Priorities #Worldliness

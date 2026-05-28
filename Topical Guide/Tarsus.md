@@ -1,4 +1,3 @@
 # Tarsus
 
-
-*See* [BD Tarsus](https://www.churchofjesuschrist.org/study/scriptures/bd/tarsus?lang=eng)
+*See also* [[BD Tarsus.md|BD Tarsus]]

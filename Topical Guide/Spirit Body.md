@@ -1,11 +1,10 @@
 # Spirit Body
 
-
 *See also* [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father.md|Man, a Spirit Child of Heavenly Father]]; [[Spirit Creation.md|Spirit Creation]]
 
 God of the *spirits* of all flesh, [[Numbers 16.22|Numbers 16:22]] ([[Numbers 27.16|Numbers 27:16]]).
 
-let this child's *soul* come into him again, [[1 Kings 17.21|1 Kings 17:21]].
+let this child’s *soul* come into him again, [[1 Kings 17.21|1 Kings 17:21]].
 
 there is a *spirit* in man, [[Job 32.8|Job 32:8]].
 
@@ -23,7 +22,7 @@ body without the *spirit* is dead, [[James 2.26|James 2:26]].
 
 preached unto the *spirits* in prison, [[1 Peter 3.19|1 Peter 3:19]].
 
-form of a man ... it was the *Spirit* of the Lord, [[1 Nephi 11.11|1 Nephi 11:11]].
+form of a man … it was the *Spirit* of the Lord, [[1 Nephi 11.11|1 Nephi 11:11]].
 
 bodies and the *spirits* of men will be restored, [[2 Nephi 9.12|2 Nephi 9:12]].
 
@@ -51,14 +50,12 @@ celestial *spirit* shall receive the same body, [[D&C 88.28|D&C 88:28]].
 
 Every *spirit* of man was innocent in the beginning, [[D&C 93.38|D&C 93:38]].
 
-*spirits* of just men made perfect ... not resurrected, [[D&C 129.3|D&C 129:3]].
+*spirits* of just men made perfect … not resurrected, [[D&C 129.3|D&C 129:3]].
 
-Holy Ghost ... is a personage of *Spirit*, [[D&C 130.22|D&C 130:22]].
+Holy Ghost … is a personage of *Spirit*, [[D&C 130.22|D&C 130:22]].
 
 All *spirit* is matter, but it is more fine or pure, [[D&C 131.7|D&C 131:7]].
 
-*spirits* ... have no beginning; they existed before, [[Abraham 3.18|Abraham 3:18]].
+*spirits* … have no beginning; they existed before, [[Abraham 3.18|Abraham 3:18]].
 
-took his *spirit* (that is, the man's *spirit*), [[Abraham 5.7|Abraham 5:7]].
-
-*See also* [[Luke 1.47|Luke 1:47]]; [[1 Corinthians 2.10|1 Cor. 2:10-11]][[1 Corinthians 2.11|]]; [[2 Corinthians 4.16|2 Corinthians 4:16]].
+took his *spirit* (that is, the man’s *spirit*), [[Abraham 5.7|Abraham 5:7]].

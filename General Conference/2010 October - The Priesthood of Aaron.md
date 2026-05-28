@@ -14,13 +14,13 @@ I said to my grandson:
 
 “I am not overly pleased with worldly conditions that you and other young men are inheriting as you assume your role in moving toward manhood. While those of us who are older have been of an age and position to influence the world, I believe we’ve greatly failed you in what we have allowed the conditions in the world to become. This places you in a position where many of those with whom you must associate have not been reared with an understanding of or respect for traditional values. Thus, peer pressure becomes much more difficult and extreme.
 
-“We have brought into our homes radios, record players, and television sets. While each has the potential of providing wholesome entertainment, so much of what has been produced for our listening and watching pleasure is not of the caliber to inspire and encourage young men. In fact, most of what is produced is degrading. The flip of a switch right in your own home has the potential of destroying within you a sense of what is right and what is wrong” (in Conference Report, Oct. 1985, 60; or *Ensign,* Nov. 1985, 46).
+“We have brought into our homes radios, record players, and television sets. While each has the potential of providing wholesome entertainment, so much of what has been produced for our listening and watching pleasure is not of the caliber to inspire and encourage young men. In fact, most of what is produced is degrading. The flip of a switch right in your own home has the potential of destroying within you a sense of what is right and what is wrong” (in Conference Report, Oct. 1985, [[1985 October - “I Confer the Priesthood of Aaron”.md|60]]; or *Ensign,* Nov. 1985, 46).
 
 The more things change, the more they stay the same—except for technology. I’m tempted to ask the young men of the Aaronic Priesthood if they even know what a record player is. For those who don’t, it’s something we used to go to the family room and play so we could listen to music. Imagine that—we had to go to it instead of carrying it around with us everywhere.
 
 I also taught my grandson Terry four lessons based on the story of Daniel in the Old Testament. I told him to (1) keep his body healthy and clean, (2) develop his mind and become wise, (3) be strong and resist temptation in a world filled with it, and (4) trust in the Lord, especially when you need His protection.
 
-I closed my counsel to Terry with these words: “These stories in the scriptures will never grow old. They will be just as exciting for you when you are reading them as a deacon, a teacher, a priest, a missionary, a home teacher, an elders quorum president, or whatever the Lord calls on you to do. They will teach you to have faith, courage, love for your fellowmen, confidence, and trust in the Lord” (in Conference Report, Oct. 1985, 63).
+I closed my counsel to Terry with these words: “These stories in the scriptures will never grow old. They will be just as exciting for you when you are reading them as a deacon, a teacher, a priest, a missionary, a home teacher, an elders quorum president, or whatever the Lord calls on you to do. They will teach you to have faith, courage, love for your fellowmen, confidence, and trust in the Lord” (in Conference Report, Oct. 1985, [[1985 October - “I Confer the Priesthood of Aaron”.md|63]]; or *Ensign,* Nov. 1985, 48).
 
 I am happy to report that Terry has been faithful to the charge I gave him 25 years ago. He later received the Melchizedek Priesthood, served a faithful mission, currently serves as an elders quorum president, and of course is a father of a beautiful daughter.
 
@@ -28,7 +28,7 @@ A lot has changed in the last quarter of a century. Another thing that has happe
 
 It is a very special blessing to receive the Aaronic Priesthood. History records the glorious day when the priesthood was restored to the earth, giving men the right to again act as God’s agents as they performed the sacred priesthood ordinances. It was on April 5, 1829, that Oliver Cowdery arrived at the home of Joseph Smith in Harmony, Pennsylvania. Oliver inquired of the Prophet about his work translating an ancient record, the Book of Mormon. Convinced of the divine nature of the work, Oliver agreed to act as scribe in completing the translation. The work of translation progressed rapidly once Oliver committed to act as scribe.
 
-By May 15, 1829, Joseph and Oliver had already reached 3 Nephi. The history of the resurrected Savior visiting the Western Hemisphere and His teachings about baptism thrilled them. As they read in 3 Nephi, their minds started to wonder about baptism. What manner of baptism was correct, and who had authority to perform this sacred, saving ordinance? They sought an answer to these fundamental doctrinal questions. They resolved to seek an answer by prayer, and they went to a nearby place on the banks of the Susquehanna River. They poured out their hearts, and the heavens were opened to them. An angel appeared, introducing himself as John the Baptist, and he told Joseph and Oliver he was acting under the direction of Peter, James, and John, who held the higher priesthood (see [[Joseph Smith History 1.72|Joseph Smith—History 1:72]]).
+By May 15, 1829, Joseph and Oliver had already reached 3 Nephi. The history of the resurrected Savior visiting the Western Hemisphere and His teachings about baptism thrilled them. As they read in 3 Nephi, their minds started to wonder about baptism. What manner of baptism was correct, and who had authority to perform this sacred, saving ordinance? They sought an answer to these fundamental doctrinal questions. They resolved to seek an answer by prayer, and they went to a nearby place on the banks of the Susquehanna River. They poured out their hearts, and the heavens were opened to them. An angel appeared, introducing himself as John the Baptist, and he told Joseph and Oliver he was acting under the direction of Peter, James, and John, who held the higher priesthood (see [[Joseph Smith History 1.72|Joseph Smith—History 1:72]]).
 
 Placing his hands on their heads, he said: “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness” ([[D&C 13.1|D&C 13:1]]).
 
@@ -38,7 +38,7 @@ After mankind had been waiting for centuries for God’s authority to be restore
 
 “The second priesthood is called the Priesthood of Aaron, because it was conferred upon Aaron and his seed, throughout all their generations.
 
-“Why it is called the lesser priesthood is because it is an appendage to the greater, or the Melchizedek Priesthood, and has power in administering outward ordinances. …
+“Why it is called the lesser priesthood is because it is an appendage to the greater, or the Melchizedek Priesthood, and has power in administering outward ordinances. …
 
 “The power and authority of the lesser, or Aaronic Priesthood, is to hold the keys of the ministering of angels, and to administer in outward ordinances, the letter of the gospel, the baptism of repentance for the remission of sins, agreeable to the covenants and commandments” ([[D&C 107.13|D&C 107:13–14, 20]][[D&C 107.14|]][[D&C 107.20|]]).
 
@@ -54,7 +54,7 @@ Then the adviser shared a brief experience that deeply touched his heart, becaus
 
 The adviser expressed in his testimony the feelings he had at that tender moment. He said he wept silently with joy, and he knew the Church was in good hands with these young, caring, obedient bearers of the Aaronic Priesthood.
 
-President Ezra Taft Benson once said: “Give me a young man who has kept himself morally clean and has faithfully attended his Church meetings. Give me a young man who has magnified his priesthood and has earned the Duty to God Award and is an Eagle Scout. Give me a young man who is a seminary graduate and has a burning testimony of the Book of Mormon. Give me such a young man, and I will give you a young man who can perform miracles for the Lord in the mission field and throughout his life” (in Conference Report, Apr. 1986, 59; or *Ensign,* May 1986, 45).
+President Ezra Taft Benson once said: “Give me a young man who has kept himself morally clean and has faithfully attended his Church meetings. Give me a young man who has magnified his priesthood and has earned the Duty to God Award and is an Eagle Scout. Give me a young man who is a seminary graduate and has a burning testimony of the Book of Mormon. Give me such a young man, and I will give you a young man who can perform miracles for the Lord in the mission field and throughout his life” (in Conference Report, Apr. 1986, [[1986 April - To the “Youth of the Noble Birthright”.md|59]]; or *Ensign,* May 1986, 45).
 
 Parents of these magnificent young men and women, we charge you with the sacred responsibility of teaching your children the doctrines of the holy priesthood. Your children must learn at an early age of the blessing of having the Lord’s eternal priesthood and what they must do individually to qualify for these blessings.
 
@@ -66,4 +66,5 @@ I also challenge you to determine today that you will honor this great blessing 
 
 
 
-#Aaronic_Priesthood #Priesthood #Restoration #Service
+
+#AaronicPriesthood #Priesthood #Restoration #Service

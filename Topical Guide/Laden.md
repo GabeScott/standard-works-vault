@@ -1,6 +1,5 @@
 # Laden
 
-
 all ye that labour and are heavy *laden*, [[Matthew 11.28|Matthew 11:28]].
 
 ye *lade* men with burdens, [[Luke 11.46|Luke 11:46]].

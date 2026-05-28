@@ -16,7 +16,7 @@ Whether your baptism was yesterday or years ago, whether you meet in a large mul
 
 Because of the loving plan of our Heavenly Father for each of His children, and because of the redeeming life and mission of our Saviour, Jesus Christ, we can—and should—be the most joyful people on earth! Even as the storms of life in an often-troubled world pound upon us, we can cultivate a growing and abiding sense of joy and inner peace because of our hope in Christ and our understanding of our own place in the beautiful plan of happiness.
 
-The Lord’s senior Apostle, President Russell M. Nelson, has spoken of the joy that comes from a life centered on Jesus Christ in nearly every address he has given since becoming the President of the Church. He summed it up so concisely: “Joy comes from and because of Him. … For Latter-day Saints, Jesus Christ is joy!”[^1]
+The Lord’s senior Apostle, President Russell M. Nelson, has spoken of the joy that comes from a life centered on Jesus Christ in nearly every address he has given since becoming the President of the Church. He summed it up so concisely: “Joy comes from and because of Him. … For Latter-day Saints, Jesus Christ is joy!”[^1]
 
 We are members of the Church of Jesus Christ. We are members of the church of joy! And nowhere should our joy as a people be more apparent than when we gather together each Sabbath in our sacrament meetings to worship the source of all joy! Here we assemble with our ward and branch families to celebrate the sacrament of the Lord’s Supper, our deliverance from sin and death, and the Saviour’s powerful grace! Here we come to experience the joy, refuge, forgiveness, thanksgiving, and belonging found through Jesus Christ!
 
@@ -36,7 +36,7 @@ We do not gather on the Sabbath simply to attend sacrament meeting and check it 
 
 ## On the Stand and in the Congregation
 
-If we are gathering in remembrance of the Saviour and the redemption He has made possible, our faces should reflect our joy and gratitude! Elder F. Enzio Busche once told the story of when he was a branch president and a young boy in the congregation looked at him on the stand and asked loudly, “What is the man with that mean face doing up there?”[^3] Those who sit on the stand—speakers, leaders, choirs—and those who gather in the congregation communicate to each other this “welcome to the church of joy” through the expressions they wear on their faces!
+If we are gathering in remembrance of the Saviour and the redemption He has made possible, our faces should reflect our joy and gratitude! Elder F. Enzio Busche once told the story of when he was a branch president and a young boy in the congregation looked at him on the stand and asked loudly, “What is the man with that mean face doing up there?”[^3] Those who sit on the stand—speakers, leaders, choirs—and those who gather in the congregation communicate to each other this “welcome to the church of joy” through the expressions they wear on their faces!
 
 ## Hymn Singing
 
@@ -85,11 +85,11 @@ Welcome to the church of joy! In the name of Jesus Christ, amen.
 
 
 
-[^1]: President Russell M. Nelson taught: “Joy is powerful, and focusing on joy brings God’s power into our lives. As in all things, Jesus Christ is our ultimate exemplar, ‘who for the joy that was set before him endured the cross’ \[[[Hebrews 12.2|Hebrews 12:2]]\]. Think of that! In order for Him to endure the most excruciating experience ever endured on earth, our Savior focused on *joy*! And what was the joy that was set before Him? Surely it included the joy of cleansing, healing, and strengthening us; the joy of paying for the sins of all who would repent; the joy of making it possible for you and me to return home—clean and worthy—to live with our Heavenly Parents and families. If we focus on the joy that will come to us, or to those we love, what can we endure that presently seems overwhelming, painful, scary, unfair, or simply impossible?” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82–83).
+[^1]: President Russell M. Nelson taught: “Joy is powerful, and focusing on joy brings God’s power into our lives. As in all things, Jesus Christ is our ultimate exemplar, ‘who for the joy that was set before him endured the cross’ \[[[Hebrews 12.2|Hebrews 12:2]]\]. Think of that! In order for Him to endure the most excruciating experience ever endured on earth, our Savior focused on *joy*! And what was the joy that was set before Him? Surely it included the joy of cleansing, healing, and strengthening us; the joy of paying for the sins of all who would repent; the joy of making it possible for you and me to return home—clean and worthy—to live with our Heavenly Parents and families. If we focus on the joy that will come to us, or to those we love, what can we endure that presently seems overwhelming, painful, scary, unfair, or simply impossible?” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82–83).
 
 [^2]: [[Psalms 16.11|Psalm 16:11]].
 
-[^3]: F. Enzio Busche, “[Lessons from the Lamb of God](https://rsc.byu.edu/sites/default/files/pub_content/pdf/Lessons_from_the_Lamb_of_God.pdf),” *Religious Educator*, vol. 9, no. 2 (2008), 3.
+[^3]: F. Enzio Busche, “[Lessons from the Lamb of God](https://rsc.byu.edu/sites/default/files/pub_content/pdf/Lessons_from_the_Lamb_of_God.pdf),” *Religious Educator*, vol. 9, no. 2 (2008), 3.
 
 [^4]: [[D&C 25.12|Doctrine and Covenants 25:12]].
 
@@ -99,15 +99,15 @@ Welcome to the church of joy! In the name of Jesus Christ, amen.
 
 [^7]: See [[Alma 33.23|Alma 33:23]].
 
-[^8]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [29.2.1.1](https://churchofjesuschrist.org/study/manual/general-handbook/29-meetings-in-the-church?lang=eng&id=title_number3#title_number3), Gospel Library.
+[^8]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [29.2.1.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/29-meetings-in-the-church?lang=eng&id=title_number3#title_number3), Gospel Library.
 
-[^9]: See Russell M. Nelson, comment made at the mission leadership seminar, June 2019; quoted in Dale G. Renlund, “[[2019 October - Unwavering Commitment to Jesus Christ.md|Unwavering Commitment to Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2019, 25.
+[^9]: See Russell M. Nelson, comment made at the mission leadership seminar, June 2019; quoted in Dale G. Renlund, “[[2019 October - Unwavering Commitment to Jesus Christ.md|Unwavering Commitment to Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2019, 25.
 
-[^10]: President Gordon B. Hinckley taught: “When you, as a priest, kneel at the sacrament table and offer up the prayer, which came by revelation, you place the entire congregation under covenant with the Lord. Is this a small thing? It is a most important and remarkable thing” (“[[1988 April - The Aaronic Priesthood—a Gift from God.md|The Aaronic Priesthood—a Gift from God]],” *Ensign*, May 1988, 46).
+[^10]: President Gordon B. Hinckley taught: “When you, as a priest, kneel at the sacrament table and offer up the prayer, which came by revelation, you place the entire congregation under covenant with the Lord. Is this a small thing? It is a most important and remarkable thing” (“[[1988 April - The Aaronic Priesthood—a Gift from God.md|The Aaronic Priesthood—a Gift from God]],” *Ensign*, May 1988, 46).
 
 [^11]: [[Alma 36.21|Alma 36:21]].
 
-[^12]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98.
+[^12]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98.
 
 [^13]: See [[Mosiah 24.13|Mosiah 24:13–15]][[Mosiah 24.14|]][[Mosiah 24.15|]].
 
@@ -115,6 +115,4 @@ Welcome to the church of joy! In the name of Jesus Christ, amen.
 
 [^15]: [[Alma 26.35|Alma 26:35–37]][[Alma 26.36|]][[Alma 26.37|]].
 
-
-
-#Hymns #Jesus_Christ #Joy #Reverence #Sacrament #Sacrament_Meeting #Worship
+#Hymns #Joy #JesusChrist #Reverence #Sacrament #SacramentMeeting #Worship

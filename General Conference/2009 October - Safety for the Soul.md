@@ -14,15 +14,15 @@ But there is one kind of latter-day destruction that has always sounded to me mo
 
 The encouraging thing, of course, is that our Father in Heaven knows all of these latter-day dangers, these troubles of the heart and soul, and has given counsel and protections regarding them.
 
-In light of that, it has always been significant to me that the Book of Mormon, one of the Lord’s powerful keystones[^3] in this counteroffensive against latter-day ills, begins with a great parable of life, an extended allegory of hope versus fear, of light versus darkness, of salvation versus destruction—an allegory of which Sister Ann M. Dibb spoke so movingly this morning.
+In light of that, it has always been significant to me that the Book of Mormon, one of the Lord’s powerful keystones[^3] in this counteroffensive against latter-day ills, begins with a great parable of life, an extended allegory of hope versus fear, of light versus darkness, of salvation versus destruction—an allegory of which Sister Ann M. Dibb spoke so movingly this morning.
 
 In Lehi’s dream an already difficult journey gets more difficult when a mist of darkness arises, obscuring any view of the safe but narrow path his family and others are to follow. It is imperative to note that this mist of darkness descends on *all* the travelers—the faithful and the determined ones (the elect, we might even say) as well as the weaker and ungrounded ones. The principal point of the story is that the successful travelers resist all distractions, including the lure of forbidden paths and jeering taunts from the vain and proud who have taken those paths. The record says that the protected “did press their way forward, continually \[and, I might add, tenaciously\] holding fast” to a rod of iron that runs unfailingly along the course of the true path.[^4] However dark the night *or* the day, the rod marks the way of that solitary, redeeming trail.
 
 “I beheld,” Nephi says later, “that the rod of iron … was the word of God, \[leading\] … to the tree of life; … a representation of the love of God.” Viewing this manifestation of God’s love, Nephi goes on to say:
 
-“I looked and beheld the Redeemer of the world, … \[who\] went forth ministering unto the people. …
+“I looked and beheld the Redeemer of the world, … \[who\] went forth ministering unto the people. …
 
-“… And I beheld multitudes of people who were sick, and who were afflicted with all manner of diseases, and with devils and unclean spirits; … and they were healed by the power of the Lamb of God; and the devils and the unclean spirits were cast out.”[^5]
+“… And I beheld multitudes of people who were sick, and who were afflicted with all manner of diseases, and with devils and unclean spirits; … and they were healed by the power of the Lamb of God; and the devils and the unclean spirits were cast out.”[^5]
 
 Love. Healing. Help. Hope. The power of Christ to counter all troubles in all times—including the end of times. That is the safe harbor God wants for us in personal or public days of despair. That is the message with which the Book of Mormon begins, and that is the message with which it ends, calling all to “come unto Christ, and be perfected in him.”[^6] That phrase—taken from Moroni’s final lines of testimony, written 1,000 years after Lehi’s vision—is a dying man’s testimony of the only true way.
 
@@ -63,9 +63,9 @@ Brothers and sisters, God always provides safety for the soul, and with the Book
 
 [^3]: See *History of the Church,* 4:461.
 
-[^4]: [[1 Nephi 8.30|1 Nephi 8:30]].
+[^4]: [[1 Nephi 8.30|1 Nephi 8:30]].
 
-[^5]: [[1 Nephi 11.25|1 Nephi 11:25, 27–28, 31]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.31|]].
+[^5]: [[1 Nephi 11.25|1 Nephi 11:25, 27–28, 31]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.31|]].
 
 [^6]: [[Moroni 10.32|Moroni 10:32]].
 
@@ -77,16 +77,14 @@ Brothers and sisters, God always provides safety for the soul, and with the Book
 
 [^10]: George Cannon, quoted in “The Twelve Apostles,” in Andrew Jenson, ed., *The Historical Record,* 6:175.
 
-[^11]: [[1 Peter 2.8|1 Peter 2:8]].
+[^11]: [[1 Peter 2.8|1 Peter 2:8]].
 
 [^12]: “The Testimony of Three Witnesses,” Book of Mormon.
 
 [^13]: “The Testimony of Eight Witnesses,” Book of Mormon; emphasis added.
 
-[^14]: [[2 Nephi 33.10|2 Nephi 33:10–11]][[2 Nephi 33.11|]]; emphasis added.
+[^14]: [[2 Nephi 33.10|2 Nephi 33:10–11]][[2 Nephi 33.11|]]; emphasis added.
 
 [^15]: [[Joseph Smith Matthew 1.37|Joseph Smith—Matthew 1:37]].
 
-
-
-#Book_Of_Mormon #Endurance #Hope #Testimony
+#BookOfMormon #Endurance #Hope #Testimony

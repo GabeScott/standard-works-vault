@@ -68,7 +68,7 @@ Make the scriptures your constant companion. Read daily from the Book of Mormon 
 
 Realize your personal self-worth. Never demean yourself. Realize the strength of your inner self and that, with God’s help, you “can do all things through Christ which strengtheneth \[you\].” ([[Philippians 4.1|Philip. 4:1]].) Life does not begin only upon marriage. There are important things for you to do right now.
 
-Sister Eliza R. Snow declared: “There is no sister so isolated, and her sphere so narrow but what she can do a great deal towards establishing the kingdom of God upon the earth.” (“An Address,” *Women’s Exponent,* 15 Sept. 1873, p. 62.)
+Sister Eliza R. Snow declared: “There is no sister so isolated, and her sphere so narrow but what she can do a great deal towards establishing the kingdom of God upon the earth.” (“An Address,” *Women’s Exponent,* 15 Sept. 1873, p. 62.)
 
 Become fully involved in the Church. Attend all your meetings and your single adult activities.
 
@@ -88,13 +88,11 @@ And I promise you that indeed you will. All of the blessings of our Father in He
 
 You are choice daughters of our Father in Heaven. You are jewels in His crown. Your virtue and purity make your price above rubies.
 
-In the words of President David O. McKay, “A beautiful, modest, gracious woman is creation’s masterpiece. When to these virtues a woman possesses as guiding stars in her life righteousness and godliness and an irresistible impulse and desire to make others happy, no one will question if she be classed among those who are truly great.” (*Gospel Ideals,* Salt Lake City: The Improvement Era, 1953, p. 449.)
+In the words of President David O. McKay, “A beautiful, modest, gracious woman is creation’s masterpiece. When to these virtues a woman possesses as guiding stars in her life righteousness and godliness and an irresistible impulse and desire to make others happy, no one will question if she be classed among those who are truly great.” (*Gospel Ideals,* Salt Lake City: The Improvement Era, 1953, p. 449.)
 
 God bless and sustain you always. I leave my blessings upon you wonderful sisters with love in my heart for you, and do so in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Commitment #Marriage #Service #Single_Members
+#Commitment #Marriage #Service #SingleMembers

@@ -1,6 +1,6 @@
 # After the Trial of Our Faith
 
-By Elder Jorge M. Alvarado - *Of the Seventy*
+By Elder Jorge M. Alvarado - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -10,13 +10,13 @@ By Elder Jorge M. Alvarado - *Of the Seventy*
 
 When I was a child, Frank Talley, a member of the Church, offered to help my family fly from Puerto Rico to Salt Lake City so we could be sealed in the temple, but soon obstacles began to appear. One of my sisters, Marivid, became ill. Unsettled, my parents prayed about what to do and still felt prompted to make the journey. They trusted that as they faithfully followed the Lord’s prompting, our family would be watched over and blessed—and we were.
 
-No matter the obstacles we face in life, we can trust that Jesus Christ will prepare a way forward as we walk with faith. God has promised that all who live according to the covenants they have made with Him will, in His time, receive all His promised blessings. Elder Jeffrey R. Holland taught, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come*.”[^1]
+No matter the obstacles we face in life, we can trust that Jesus Christ will prepare a way forward as we walk with faith. God has promised that all who live according to the covenants they have made with Him will, in His time, receive all His promised blessings. Elder Jeffrey R. Holland taught, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come*.”[^1]
 
 Moroni taught that “faith is things which are hoped for and not seen; wherefore, dispute not because ye see not, for ye receive no witness until after the trial of your faith.”[^2]
 
 Our question is, What should we do to best meet the trials that come our way?
 
-In his first public remarks as President of the Church, President Russell M. Nelson taught: “As a new Presidency, we want to begin with the end in mind. For this reason, we’re speaking to you today from a temple. The end for which each of us strives is to be endowed with power in a house of the Lord, sealed as families, faithful to covenants made in a temple that qualify us for the greatest gift of God—that of eternal life. The ordinances of the temple and the covenants you make there are key to strengthening your life, your marriage and family, and your ability to resist the attacks of the adversary. Your worship in the temple and your service there for your ancestors will bless you with increased personal revelation and peace and will fortify your commitment to stay on the covenant path.”[^3]
+In his first public remarks as President of the Church, President Russell M. Nelson taught: “As a new Presidency, we want to begin with the end in mind. For this reason, we’re speaking to you today from a temple. The end for which each of us strives is to be endowed with power in a house of the Lord, sealed as families, faithful to covenants made in a temple that qualify us for the greatest gift of God—that of eternal life. The ordinances of the temple and the covenants you make there are key to strengthening your life, your marriage and family, and your ability to resist the attacks of the adversary. Your worship in the temple and your service there for your ancestors will bless you with increased personal revelation and peace and will fortify your commitment to stay on the covenant path.”[^3]
 
 As we follow God’s voice and His covenant path, He will strengthen us in our trials.
 
@@ -56,7 +56,7 @@ This man lived with such integrity that he knew his advice would carry power onl
 
 The influence we have on our children is more powerful as they see us walking faithfully on the covenant path. The Book of Mormon prophet Jacob is an example of such righteousness. His son Enos wrote of the impact of his father’s teachings:
 
-“I, Enos, knowing my father that he was a just man—for he taught me in his language, and also in the nurture and admonition of the Lord—and blessed be the name of my God for it. …
+“I, Enos, knowing my father that he was a just man—for he taught me in his language, and also in the nurture and admonition of the Lord—and blessed be the name of my God for it. …
 
 “… And the words which I had often heard my father speak concerning eternal life, and the joy of the saints, sunk deep into my heart.”[^8]
 
@@ -70,7 +70,7 @@ Enos and the stripling warriors were strengthened by the faith of their parents,
 
 We are blessed with the restored gospel of Jesus Christ in our days, which lifts us when we feel discouraged or troubled. We are reassured that our efforts will bear fruit in the Lord’s own due time if we press forward through the trials of our faith.
 
-My wife and I, with the Area Presidency, recently accompanied Elder David A. Bednar to the dedication of the Port-au-Prince Haiti Temple. Our son Jorge, who came with us, said about his experience: “Amazing, Papa! As soon as Elder Bednar started with the dedicatory prayer, I could feel the room fill with warmth and light. The prayer added so much to my understanding of the purpose of a temple. It really is the house of the Lord.”
+My wife and I, with the Area Presidency, recently accompanied Elder David A. Bednar to the dedication of the Port-au-Prince Haiti Temple. Our son Jorge, who came with us, said about his experience: “Amazing, Papa! As soon as Elder Bednar started with the dedicatory prayer, I could feel the room fill with warmth and light. The prayer added so much to my understanding of the purpose of a temple. It really is the house of the Lord.”
 
 In the Book of Mormon, Nephi teaches that as we desire to know the will of God, He will strengthen us. He wrote, “I, Nephi, being exceedingly young … and also having great desires to know of the mysteries of God, wherefore, I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father; wherefore, I did not rebel against him like unto my brothers.”[^10]
 
@@ -78,20 +78,20 @@ Brothers and sisters, let us help our children and all around us to follow God�
 
 As I consider the example of my parents, I realize that our faith in the Lord Jesus Christ will show us the way back to our heavenly home. I know miracles come after the trial of our faith.
 
-I bear testimony of Jesus Christ and His atoning sacrifice. I know He is our Savior and Deliverer. He and our Heavenly Father came that morning in the spring of 1820 to young Joseph Smith, the prophet of the Restoration. President Russell M. Nelson is the prophet of our day. In the name of Jesus Christ, amen.
+I bear testimony of Jesus Christ and His atoning sacrifice. I know He is our Savior and Deliverer. He and our Heavenly Father came that morning in the spring of 1820 to young Joseph Smith, the prophet of the Restoration. President Russell M. Nelson is the prophet of our day. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 38; *Liahona,* Jan. 2000, 45.
+[^1]: Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 38; *Liahona,* Jan. 2000, 45.
 
 [^2]: [[Ether 12.6|Ether 12:6]].
 
-[^3]: Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
+[^3]: Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
-[^4]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95.
+[^4]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95.
 
-[^5]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7.
+[^5]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7.
 
 [^6]: [[Proverbs 22.6|Proverbs 22:6]].
 
@@ -101,5 +101,6 @@ I bear testimony of Jesus Christ and His atoning sacrifice. I know He is our Sav
 
 [^9]: [[Alma 56.47|Alma 56:47–48]][[Alma 56.48|]].
 
+[^10]: [[1 Nephi 2.16|1 Nephi 2:16]].
 
-#Adversity #Children #Faith #Holy_Ghost #Parenthood #Teaching
+#Adversity #Children #Faith #HolyGhost #Parenthood #Teaching

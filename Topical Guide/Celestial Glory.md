@@ -1,6 +1,5 @@
 # Celestial Glory
 
-
 *See also* [[Heaven.md|Heaven]]
 
 glory of the *celestial* is one, [[1 Corinthians 15.40|1 Corinthians 15:40]].
@@ -32,5 +31,3 @@ I beheld the *celestial* kingdom of God, [[D&C 137.1|D&C 137:1]].
 eternal life in the world to come, even immortal *glory*, [[Moses 6.59|Moses 6:59]].
 
 whose brightness and *glory* defy all description, [[Joseph Smith History 1.17|Joseph Smith History 1:17]].
-
-*See also* [[Daniel 12.1|Dan. 12:1-3]][[Daniel 12.2|]][[Daniel 12.3|]]; [[Matthew 13.43|Matthew 13:43]]; [[John 17.3|John 17:3-5]][[John 17.4|]][[John 17.5|]]; [[Hebrews 1.1|Heb. 1:1-3]][[Hebrews 1.2|]][[Hebrews 1.3|]]; [[D&C 59.1|D&C 59:1-2]][[D&C 59.2|]]; [[D&C 76.5|D&C 76:5]], [[D&C 76.6|D&C 76:6]], [[D&C 76.7|D&C 76:7]], [[D&C 76.8|D&C 76:8]], [[D&C 76.9|D&C 76:9]], [[D&C 76.10|D&C 76:10]][[D&C 76.19|D&C 76:19]], [[D&C 76.20|D&C 76:20]]; [[D&C 77.1|D&C 77:1]]; [[D&C 88.106|88:106-7]][[D&C 88.107|]]; [[D&C 130.1|130:1-2]][[D&C 130.2|]]; [[Moses 1.3|Moses 1:3-5]][[Moses 1.4|]][[Moses 1.5|]]; [[Joseph Smith History 1.30|JS—H 1:30-32]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]].

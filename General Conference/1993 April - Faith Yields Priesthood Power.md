@@ -28,7 +28,7 @@ The Lord commanded His Apostles to believe in Him, saying, “He that believeth 
 
 Let’s look at a well-known example. Nephi and his brethren received an assignment from the Lord. The assignment was to go and obtain the brass plates from Laban. They tried wisdom, charm, persuasion—tools they were comfortable using. They even offered to trade precious things from their family treasure in exchange for the plates. Nothing worked. In fact, they fled for their lives, accused of robbery.
 
-Only then did Nephi turn to pure faith. Here’s how it worked. He convinced himself that the Lord had assigned him to get the plates. Next he conceived the mental energy and trust to try again. “I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]). Without knowing what he would do, Nephi began moving forward while his brothers skulked outside the city walls. “I was led by the Spirit, not knowing beforehand the things which I should do” ([[1 Nephi 4.6|1 Ne. 4:6]]). Now he was moving by faith—confidence in the unknown, hope in things unseen. You know the rest.
+Only then did Nephi turn to pure faith. Here’s how it worked. He convinced himself that the Lord had assigned him to get the plates. Next he conceived the mental energy and trust to try again. “I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]). Without knowing what he would do, Nephi began moving forward while his brothers skulked outside the city walls. “I was led by the Spirit, not knowing beforehand the things which I should do” ([[1 Nephi 4.6|1 Ne. 4:6]]). Now he was moving by faith—confidence in the unknown, hope in things unseen. You know the rest.
 
 Notice that faith and trust in the Lord came first. Then came action. Nephi had no plan except confidence in the Lord. It was really a “ready, fire, aim” approach, the opposite of conventional wisdom. Laman and Lemuel thought it foolhardy. Then the Lord’s plan unfolded with Nephi being guided by unseen hands.
 
@@ -36,7 +36,7 @@ Often this is the way faith works. I was assigned, for example, to escort Elder 
 
 That morning we decided to act by faith by walking out our doors. Events swept us through an amazing day of welcoming ceremonies at the Hanoi Children’s Palace, dinner in our honor with Operation Smile Vietnam, and other activities planned by our hosts. Our hosts had been too busy to communicate their plans to us, but the Lord knew them and moved us into place like pawns on a chessboard.
 
-In the *Lectures on Faith,* prepared by brethren under the direction of Joseph Smith in Kirtland, Ohio, the authors asked: “What are we to understand by a man’s working by faith? We answer—we understand that when a man works by faith he works by mental exertion instead of physical force. It is by words, instead of exerting his physical powers, with which every being works when he works by faith” (Salt Lake City: Deseret Book Co., 1985, p. 72).
+In the *Lectures on Faith,* prepared by brethren under the direction of Joseph Smith in Kirtland, Ohio, the authors asked: “What are we to understand by a man’s working by faith? We answer—we understand that when a man works by faith he works by mental exertion instead of physical force. It is by words, instead of exerting his physical powers, with which every being works when he works by faith” (Salt Lake City: Deseret Book Co., 1985, p. 72).
 
 A brief but profound phrase in the book of Abraham describes the complete power of God’s faith: “There is nothing that the Lord thy God shall take in his heart to do but what he will do it” ([[Abraham 3.17|Abr. 3:17]]). With faith we can get the right things to do into our hearts and the words and mental exertion to do them. It may require leaving unstructured time in our planning and on our agenda. Then faith would have some air to breathe.
 
@@ -44,7 +44,7 @@ Although faith often includes positive thinking, it is much, much more than that
 
 Even more important, faith leads directly to eternal life because in exercising faith we come to know God and His power, and we become like Him.
 
-The brethren explained in their *Lectures on Faith* that “the plan of salvation … was a system of faith—it begins with faith, and continues by faith; and every blessing which is obtained in relation to it is the effect of faith” (p. 80).
+The brethren explained in their *Lectures on Faith* that “the plan of salvation … was a system of faith—it begins with faith, and continues by faith; and every blessing which is obtained in relation to it is the effect of faith” (p. 80).
 
 Priesthood leaders need balance, wisdom, and tools that help them organize, but why can’t we add the power of faith that is available? I know that many of you already do that.
 
@@ -76,7 +76,7 @@ We can start by adding the ingredients of faith identified in the *Lectures on F
 
 2. To know His correct character, attributes, and perfections.
 
-3. To know that the course of life we are now pursuing is according to God’s will. (See p. 38).
+3. To know that the course of life we are now pursuing is according to God’s will. (See p. 38).
 
 Let’s add these three elements to our priesthood power tools. We can’t do it unless we sanctify our lives and add more spiritual depth to our knowledge.
 
@@ -87,8 +87,6 @@ Now, what shall we do to put faith foremost? If we listen carefully, we will dis
 Perhaps it is time that we humble ourselves and overcome the obstacles to faith, and then become converted as Peter did. Why go through life with two candlepower when more than four hundred watts are available? The tasks are so great! How can we possibly take the gospel to all the world and redeem the dead at the same time? I don’t know, but the power and energy to do so must and will come by faith in the Lord Jesus Christ.
 
 So, brethren, let’s plead fervently with the Lord as the Apostles of old did: “Lord, Increase our faith” ([[Luke 17.5|Luke 17:5]]). Then let’s use our increased faith as the primary power source in all our callings. In the name of Jesus Christ, amen.
-
-
 
 
 

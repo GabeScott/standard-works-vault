@@ -1,6 +1,6 @@
 # Earning the Trust of the Lord and Your Family
 
-By Elder Richard J. Maynes - *Of the Seventy*
+By Elder Richard J. Maynes - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -16,7 +16,7 @@ I love both ancient and modern-day scriptures that use the phrase “integrity o
 
 Being a man of integrity simply means your intentions, as well as your actions, are pure and righteous in all aspects of your life, both in public and in private. With each decision we make, we either merit more of God’s trust or diminish His trust. This principle is perhaps most clearly manifest in our divinely appointed responsibilities as husbands and fathers.
 
-As husbands and fathers, we have received a divine charge from modern-day prophets, seers, and revelators in the document “The Family: A Proclamation to the World.” This document teaches us that (1) “fathers are to preside over their families in love and righteousness,” (2) fathers “are responsible to provide the necessities of life,” and (3) fathers are responsible to protect their families.[^2]
+As husbands and fathers, we have received a divine charge from modern-day prophets, seers, and revelators in the document “The Family: A Proclamation to the World.” This document teaches us that (1) “fathers are to preside over their families in love and righteousness,” (2) fathers “are responsible to provide the necessities of life,” and (3) fathers are responsible to protect their families.[^2]
 
 For us to earn God’s trust, we will need to accomplish these three divinely appointed responsibilities to our families in the Lord’s way. As further stated in the family proclamation, the Lord’s way is to fulfill these responsibilities together with our wives “as equal partners.”[^3] To me, this means we do not move forward with any significant decision regarding these three responsibilities without total unity with our wives.
 
@@ -65,20 +65,18 @@ Brethren, it is my prayer this evening that we might all first place our trust i
 
 
 
-[^1]: See, for example, [[1 Kings 9.4|1 Kings 9:4]]; [[D&C 124.15|Doctrine and Covenants 124:15]].
+[^1]: See, for example, [[1 Kings 9.4|1 Kings 9:4]]; [[D&C 124.15|Doctrine and Covenants 124:15]].
 
-[^2]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^2]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^3]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” 129.
+[^3]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” 129.
 
-[^4]: [[2 Nephi 4.34|2 Nephi 4:34]].
+[^4]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
-[^5]: [[1 Nephi 3.7|1 Nephi 3:7, 15]][[1 Nephi 3.15|]].
+[^5]: [[1 Nephi 3.7|1 Nephi 3:7, 15]][[1 Nephi 3.15|]].
 
-[^6]: [[2 Nephi 5.27|2 Nephi 5:27]].
+[^6]: [[2 Nephi 5.27|2 Nephi 5:27]].
 
 [^7]: [[D&C 124.15|Doctrine and Covenants 124:15]].
-
-
 
 #Family #Fatherhood #Honesty #Integrity #Marriage #Peace #Trust

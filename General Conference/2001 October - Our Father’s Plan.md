@@ -49,13 +49,13 @@ May the Lord bless us in this great endeavor, I pray, in the name of Jesus Chris
 
 [^2]: See [[Moses 7.67|Moses 7:67]]; [[D&C 76.69|D&C 76:69–70]][[D&C 76.70|]].
 
-[^3]: See [[Alma 13.3|Alma 13:3–13]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]][[Alma 13.10|]][[Alma 13.11|]][[Alma 13.12|]][[Alma 13.13|]]; [[1 Peter 1.20|1 Pet. 1:20]].
+[^3]: See [[Alma 13.3|Alma 13:3–13]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]][[Alma 13.10|]][[Alma 13.11|]][[Alma 13.12|]][[Alma 13.13|]]; [[1 Peter 1.20|1 Pet. 1:20]].
 
 [^4]: See [[Alma 42.8|Alma 42:8]].
 
-[^5]: [[2 Peter 1.3|2 Pet. 1:3–4]][[2 Peter 1.4|]].
+[^5]: [[2 Peter 1.3|2 Pet. 1:3–4]][[2 Peter 1.4|]].
 
-[^6]: [[Matthew 5.48|Matt. 5:48]]; see also [[3 Nephi 12.48|3 Ne. 12:48]].
+[^6]: [[Matthew 5.48|Matt. 5:48]]; see also [[3 Nephi 12.48|3 Ne. 12:48]].
 
 [^7]: See [[Matthew 7.21|Matt. 7:21]]; [[Revelation 3.21|Rev. 3:21]]; [[D&C 98.14|D&C 98:14–15]][[D&C 98.15|]].
 
@@ -69,7 +69,7 @@ May the Lord bless us in this great endeavor, I pray, in the name of Jesus Chris
 
 [^12]: [[Mosiah 5.15|Mosiah 5:15]]; see also [[Moroni 10.32|Moro. 10:32]].
 
-[^13]: See [[1 Nephi 11.13|1 Ne. 11:13–36]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]]; [[2 Nephi 3.5|2 Ne. 3:5–11]][[2 Nephi 3.6|]][[2 Nephi 3.7|]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]].
+[^13]: See [[1 Nephi 11.13|1 Ne. 11:13–36]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]]; [[2 Nephi 3.5|2 Ne. 3:5–11]][[2 Nephi 3.6|]][[2 Nephi 3.7|]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]].
 
 [^14]: “Special Witnesses of Christ,” *Ensign,* Apr. 2001, 20–21; [[D&C 1.30|D&C 1:30]].
 
@@ -87,6 +87,4 @@ May the Lord bless us in this great endeavor, I pray, in the name of Jesus Chris
 
 [^21]: See [[Deuteronomy 7.7|Deut. 7:7–18]][[Deuteronomy 7.8|]][[Deuteronomy 7.9|]][[Deuteronomy 7.10|]][[Deuteronomy 7.11|]][[Deuteronomy 7.12|]][[Deuteronomy 7.13|]][[Deuteronomy 7.14|]][[Deuteronomy 7.15|]][[Deuteronomy 7.16|]][[Deuteronomy 7.17|]][[Deuteronomy 7.18|]].
 
-
-
-#Atonement #Faith #Fear #Holy_Ghost #Jesus_Christ #Joy #Mercy #Plan_Of_Salvation #Premortal_Existence #Prophets #Restoration #Scriptures
+#Atonement #Faith #Fear #HolyGhost #Joy #JesusChrist #Mercy #PlanOfSalvation #PremortalExistence #Prophets #Restoration #Scriptures

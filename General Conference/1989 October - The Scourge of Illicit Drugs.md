@@ -34,7 +34,7 @@ The article goes on to say: “A surprisingly high 70% of the voters surveyed be
 
 As most of you are aware, the president of the United States has described the drug problem as the gravest domestic threat facing our nation. He has launched a battle against illicit drugs, with some eight billion dollars to be spent on strengthening police forces, building more prisons, and implementing other measures. Notwithstanding this, “those responding to the poll were deeply skeptical that the battle can be won: Only a third believe a federal program would do a ‘great deal’ or ‘quite a bit’ to correct the drug problem.”
 
-A woman respondent said, “No amount of money is going to stop it. It has to be a change within the hearts and minds of people. Young people have to think: ‘I have just one body, and I’m going to need it all my life.’” (Michael McQueen and David Shribman, “Battle against Drugs Is Chief Issue Facing Nation, Americans Say,” *Wall Street Journal,* 22 Sept. 1989, sec. A, pp. 1, 14.)
+A woman respondent said, “No amount of money is going to stop it. It has to be a change within the hearts and minds of people. Young people have to think: ‘I have just one body, and I’m going to need it all my life.’” (Michael McQueen and David Shribman, “Battle against Drugs Is Chief Issue Facing Nation, Americans Say,” *Wall Street Journal,* 22 Sept. 1989, sec. A, pp. 1, 14.)
 
 I am inclined to agree with this woman. Stiffer enforcement measures may be necessary. But I believe that, only when far greater numbers of people conclude within their hearts and minds that the fruits of drug-taking are only sorrow and trouble, remorse, and even death, then will things change to any significant degree.
 
@@ -87,6 +87,4 @@ God bless you to this end I humbly pray, as one who loves you, in the name of Je
 
 
 
-
-
-#Leadership #Priesthood #Service #Word_Of_Wisdom
+#Leadership #Priesthood #Service #WordOfWisdom

@@ -1,6 +1,6 @@
 # A Special Moment in Church History
 
-By Elder W. Grant Bangerter - *Of the First Quorum of the Seventy*
+By Elder W. Grant Bangerter - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -10,13 +10,13 @@ My dear brethren and sisters, I extend special greetings from the Saints in Braz
 
 I have in mind a special moment in Church history which has a great bearing on our testimonies and on the progress of the gospel. I hope that it has been duly recorded by those who keep the history. I refer to what happened on the 4th of April, 1974.
 
-The story really begins on the 26th of December, 1973. President Harold B. Lee passed away suddenly on that day. His death was completely unexpected. It is necessary to remember that over a period of twenty-five years, members of the Church had awaited the time when Harold B. Lee would become the president. There had been every reason to think that this would eventually happen, due to his relative youthfulness and because he occupied a position in seniority following Joseph Fielding Smith and David O. McKay, both of whom were of advanced age. In addition, Harold B. Lee had gained more than average prominence. His leadership in the welfare and priesthood programs of the Church, his forceful nature, and his sound judgment had made him one of the apostles most listened to and one whose influence and advice were most respected. He had an evident spiritual stature which commended him to the members of the Church as one of the great men of our time. He possessed an unusual ability to relate as a personal friend to countless people. It was expected that when he became president he would preside for twenty years or more.
+The story really begins on the 26th of December, 1973. President Harold B. Lee passed away suddenly on that day. His death was completely unexpected. It is necessary to remember that over a period of twenty-five years, members of the Church had awaited the time when Harold B. Lee would become the president. There had been every reason to think that this would eventually happen, due to his relative youthfulness and because he occupied a position in seniority following Joseph Fielding Smith and David O. McKay, both of whom were of advanced age. In addition, Harold B. Lee had gained more than average prominence. His leadership in the welfare and priesthood programs of the Church, his forceful nature, and his sound judgment had made him one of the apostles most listened to and one whose influence and advice were most respected. He had an evident spiritual stature which commended him to the members of the Church as one of the great men of our time. He possessed an unusual ability to relate as a personal friend to countless people. It was expected that when he became president he would preside for twenty years or more.
 
 Suddenly he was gone!—called elsewhere after only one and one-half years. It was the first time since the death of the Prophet Joseph Smith when the president had died before it was time for him to die. In deep sorrow and concern the surging questions arose in the minds of the people, much as they did at the time when Joseph Smith was killed in Carthage, Illinois. “What will we do now? How can we carry on without the prophet? Our great leader has gone. Can the Church survive this emergency?”
 
-Of course we knew that the Church would survive, but it could not possibly be the same. We had never expected Spencer W. Kimball to become the president, and we had not looked to him for the same leadership evident in the life of Harold B. Lee. We knew, of course, that he would manage somehow, until the next great leader arose, but it would not be easy for him, and things would not be the same. “O Lord,” we prayed, “please bless President Kimball. He needs all the help you can give him.” Such seemed to be the attitude in the hearts of the Latter-day Saints during those days of mourning.
+Of course we knew that the Church would survive, but it could not possibly be the same. We had never expected Spencer W. Kimball to become the president, and we had not looked to him for the same leadership evident in the life of Harold B. Lee. We knew, of course, that he would manage somehow, until the next great leader arose, but it would not be easy for him, and things would not be the same. “O Lord,” we prayed, “please bless President Kimball. He needs all the help you can give him.” Such seemed to be the attitude in the hearts of the Latter-day Saints during those days of mourning.
 
-We return to the 4th of April, 1974. There were gathered that morning in the Church Office Building, all of the General Authorities as well as the Regional Representatives and other leaders from around the world. We were to be instructed once again, as we had been periodically during the past seven years. On each preceding occasion Harold B. Lee had given us our direction and sounded the trump of leadership. Now he was no longer there, and we all felt his absence deeply. Again came the questions: “How can we proceed without our great leader?” “How can President Kimball fill the empty space?” And again the prayers went forth: “Please bless President Kimball.”
+We return to the 4th of April, 1974. There were gathered that morning in the Church Office Building, all of the General Authorities as well as the Regional Representatives and other leaders from around the world. We were to be instructed once again, as we had been periodically during the past seven years. On each preceding occasion Harold B. Lee had given us our direction and sounded the trump of leadership. Now he was no longer there, and we all felt his absence deeply. Again came the questions: “How can we proceed without our great leader?” “How can President Kimball fill the empty space?” And again the prayers went forth: “Please bless President Kimball.”
 
 The moment came when President Kimball arose to address the assembled leadership. He noted that he also had never expected to occupy this position and that he missed President Lee equally with the rest of us. Then he reviewed much of the instruction which President Lee had given over the past years, and our prayers in behalf of President Kimball continued.
 
@@ -49,6 +49,4 @@ I pray the Church will listen to President Kimball. I think it does. There is gr
 
 
 
-
-
-#Prophets #Spencer_W_Kimball
+#Prophets #SpencerW.Kimball

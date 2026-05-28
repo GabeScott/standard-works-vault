@@ -1,6 +1,5 @@
 # Author
 
-
 God is not the *author* of confusion, [[1 Corinthians 14.33|1 Corinthians 14:33]].
 
 became the *author* of eternal salvation, [[Hebrews 5.9|Hebrews 5:9]].

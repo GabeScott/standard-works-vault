@@ -1,6 +1,6 @@
 # The Living Christ
 
-By Elder Bernard P. Brockbank - *Of the First Quorum of the Seventy*
+By Elder Bernard P. Brockbank - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -26,7 +26,7 @@ Many of the Christian churches in the British Isles do not consider or recognize
 
 The following statement was printed in the *London Times:*
 
-“Are the Mormons Christians? Certainly they claim to be followers of Christ and hence entitled to take their place alongside other denominations as another Christian church. …
+“Are the Mormons Christians? Certainly they claim to be followers of Christ and hence entitled to take their place alongside other denominations as another Christian church. …
 
 “In fact, there is good reason for regarding them as a new religion rather than as another variety of Christianity. The Christ they follow is both the Christian Messiah of the New Testament, and the Risen Christ who visited the New World after the end of His ministry in the old one. Traditional Christianity—Roman Catholic \[and\] Protestant … —rejects the very existence of this Christ who reappeared on earth after the Ascension, and so the Christ followed by the Mormons is not the Christ followed by traditional Christianity.” (“Alcohol, tea, and smoking banned,” *The London Times,* June 18, 1976, special supplement on Mormons, p. II.)
 
@@ -42,7 +42,7 @@ After his resurrection the Savior visited his apostles and said unto them: “Be
 
 Jesus warned man to beware of false Christs with these words: “Take heed that no man deceive you.
 
-“For many shall come in my name, saying, I am Christ; and shall deceive many. …
+“For many shall come in my name, saying, I am Christ; and shall deceive many. …
 
 “For there shall arise false Christs, and false prophets, and shall shew great signs and wonders; insomuch that, if it were possible, they shall deceive the very elect.” ([[Matthew 24.4|Matt. 24:4–5, 24]][[Matthew 24.5|]][[Matthew 24.24|]].)
 
@@ -56,7 +56,7 @@ When the Savior lived on this earth he condemned the powerful Pharisee religion 
 
 In latter-day revelation, the Lord again warned man not to be misled and deceived by religions that were organized without divine authority by men, by thrones, or by principalities that promise their disciples salvation in the kingdom of heaven.
 
-He said: “I am the Lord thy God; and I give unto you this commandment—that no man shall come unto the Father but by me or by my word, which is my law. …
+He said: “I am the Lord thy God; and I give unto you this commandment—that no man shall come unto the Father but by me or by my word, which is my law. …
 
 “And everything that is in the world, whether it be ordained of men, by thrones, or principalities, or powers, or things of name, whatsoever they may be, that are not by me or by my word, saith the Lord, shall be thrown down, and shall not remain after men are dead, neither in nor after the resurrection, saith the Lord your God.
 
@@ -66,7 +66,7 @@ There is only one way provided by the Lord for man to gain salvation and eternal
 
 The Pharisees with their man-made doctrines and traditions were again condemned by the Savior. He said unto them: “This people draweth nigh unto me with their mouth, and honoureth me with their lips; but their heart is far from me.
 
-“… In vain they do worship me, teaching for doctrines the commandments of men.” ([[Matthew 15.8|Matt. 15:8–9]][[Matthew 15.9|]].)
+“… In vain they do worship me, teaching for doctrines the commandments of men.” ([[Matthew 15.8|Matt. 15:8–9]][[Matthew 15.9|]].)
 
 The belief that God has no body, parts, and passions is not a doctrine of Jesus Christ or a doctrine of the holy scriptures but is a doctrine of men, and to worship such a God is in vain.
 
@@ -81,6 +81,4 @@ I bear witness that Jesus Christ lives and that he will soon be returning to thi
 
 
 
-
-
-#Godhead #Jesus_Christ
+#Godhead #JesusChrist

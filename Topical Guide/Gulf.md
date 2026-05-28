@@ -1,6 +1,5 @@
 # Gulf
 
-
 between us and you there is a great *gulf* fixed, [[Luke 16.26|Luke 16:26]].
 
 an awful *gulf*, which separated the wicked, [[1 Nephi 15.28|1 Nephi 15:28]] ([[1 Nephi 12.18|1 Nephi 12:18]]).

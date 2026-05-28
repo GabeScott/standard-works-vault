@@ -1,6 +1,6 @@
 # Integrity: A Christlike Attribute
 
-By Elder Jack N. Gerard - *Of the Seventy*
+By Elder Jack N. Gerard - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Jack N. Gerard - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/04/17gerard?lang=eng)
 
-In the closing hours of the Savior’s ministry, He went to the Mount of Olives into a garden called Gethsemane and invited His disciples to wait.[^1] Now alone, He petitioned His Father, “If thou be willing, remove this cup from me.”[^2] Being in agony, His suffering caused Him, “even God, the greatest of all, to tremble because of pain, and to bleed at every pore, … and would that \[He\] might not drink the bitter cup, and shrink.”[^3] Yet in the moment of deep despair, the Savior did not shrink “but partook and finished \[His\] preparations unto the children of men.”[^4]
+In the closing hours of the Savior’s ministry, He went to the Mount of Olives into a garden called Gethsemane and invited His disciples to wait.[^1] Now alone, He petitioned His Father, “If thou be willing, remove this cup from me.”[^2] Being in agony, His suffering caused Him, “even God, the greatest of all, to tremble because of pain, and to bleed at every pore, … and would that \[He\] might not drink the bitter cup, and shrink.”[^3] Yet in the moment of deep despair, the Savior did not shrink “but partook and finished \[His\] preparations unto the children of men.”[^4]
 
 As the Only Begotten of the Father, Jesus Christ had power over death, pain, and suffering but did not shrink. He fulfilled the covenant He had made with His Father and, in doing so, manifested a Christlike attribute increasingly important in the world in which we live—the attribute of integrity. He remained true to God, to each of us, and to His divine identity.
 
@@ -20,7 +20,7 @@ A number of years ago, Elder Uchtdorf was assigned to reorganize our stake. Duri
 
 In the moment, I thought Elder Uchtdorf was only asking about worthiness, but I’ve come to understand it was really a question about integrity. Was I true to what I professed? Would the world see consistency between my words and my deeds? Would others see God through my conduct?
 
-President Spencer W. Kimball taught, “Integrity” is our “willingness and ability to live by our beliefs and commitments.”[^8]
+President Spencer W. Kimball taught, “Integrity” is our “willingness and ability to live by our beliefs and commitments.”[^8]
 
 ## True to God
 
@@ -30,7 +30,7 @@ From our early childhood, we learned the story of Daniel in the lions’ den. Da
 
 The king came to know God through Daniel’s integrity. Others see God through ours—words and deeds. Just like Daniel, being true to God will increasingly set us apart from the world.
 
-The Savior reminds us, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.”[^12] President Russell M. Nelson counseled: “\[Overcoming the world\] means overcoming the temptation to care more about the things of this world than the things of God. It means trusting the doctrine of Christ more than the philosophies of men.”[^13] Likewise, we must resist the temptation to walk “in \[our\] own way, and after the image of \[our\] own god, whose image is in the likeness of the world.”[^14]
+The Savior reminds us, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.”[^12] President Russell M. Nelson counseled: “\[Overcoming the world\] means overcoming the temptation to care more about the things of this world than the things of God. It means trusting the doctrine of Christ more than the philosophies of men.”[^13] Likewise, we must resist the temptation to walk “in \[our\] own way, and after the image of \[our\] own god, whose image is in the likeness of the world.”[^14]
 
 The oppositional pull of this world is an essential part of God’s plan of salvation. How we respond to the pull is the essence of who we are—a measure of our integrity. The worldly pull can be as direct as to destroy fidelity in marriage or as subtle as posting anonymous comments critical of Church doctrine or culture. Exercising integrity in our choices is an outward expression of an inner commitment to follow the Savior Jesus Christ.
 
@@ -50,7 +50,7 @@ Our focus is on the Savior, and we are careful to avoid actions that may be perc
 
 Finally, a life of integrity requires us to be true to our divine identity.
 
-We know some who were not. Of particular significance is the anti-Christ Korihor, who led away the hearts of many, appealing to their “carnal mind.”[^20] Yet, in the final moments of his life, he confessed, “I always knew that there was a God.”[^21] President Henry B. Eyring has taught that lying “is contrary to the nature of our spirits,”[^22] our divine identity. Korihor deceived himself, and the truth was not in him.[^23]
+We know some who were not. Of particular significance is the anti-Christ Korihor, who led away the hearts of many, appealing to their “carnal mind.”[^20] Yet, in the final moments of his life, he confessed, “I always knew that there was a God.”[^21] President Henry B. Eyring has taught that lying “is contrary to the nature of our spirits,”[^22] our divine identity. Korihor deceived himself, and the truth was not in him.[^23]
 
 In contrast, the Prophet Joseph Smith confidently proclaimed, “I knew it, and I knew that God knew it, and I could not deny it.”[^24]
 
@@ -73,13 +73,13 @@ As Job said, “Let me be weighed in an even balance, that God may know mine int
 
 [^4]: [[D&C 19.19|Doctrine and Covenants 19:19]].
 
-[^5]: See *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 129.
+[^5]: See *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng&id=p39#p39)* (2023), 129.
 
 [^6]: “Do What Is Right,” *Hymns*, no. 237.
 
-[^7]: See *Preach My Gospel*, 128–29.
+[^7]: See *[Preach My Gospel](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng&id=title17#title17)*, 128–29.
 
-[^8]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 126.
+[^8]: *[Teachings of Presidents of the Church: Spencer W. Kimball](https://www.churchofjesuschrist.org/study/manual/teachings-spencer-w-kimball/chapter-12?lang=eng&id=p4#p4)* (2006), 126.
 
 [^9]: [[Daniel 6.4|Daniel 6:4]].
 
@@ -89,17 +89,17 @@ As Job said, “Let me be weighed in an even balance, that God may know mine int
 
 [^12]: [[John 16.33|John 16:33]].
 
-[^13]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96.
+[^13]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96.
 
 [^14]: [[D&C 1.16|Doctrine and Covenants 1:16]].
 
-[^15]: Dallin H. Oaks, “[[2019 October - Two Great Commandments.md|Two Great Commandments]],” *Ensign* or *Liahona*, Nov. 2019, 73.
+[^15]: Dallin H. Oaks, “[[2019 October - Two Great Commandments.md|Two Great Commandments]],” *Ensign* or *Liahona*, Nov. 2019, 73.
 
 [^16]: See [[D&C 1.30|Doctrine and Covenants 1:30]].
 
 [^17]: See [[Mosiah 18.9|Mosiah 18:9]].
 
-[^18]: See [[D&C 42.2|Doctrine and Covenants 42:2–3]][[D&C 42.3|]]; see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [4.3](https://churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=title12#title12), Gospel Library.
+[^18]: See [[D&C 42.2|Doctrine and Covenants 42:2–3]][[D&C 42.3|]]; see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [4.3](https://www.churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=title12#title12), Gospel Library.
 
 [^19]: See [[D&C 121.35|Doctrine and Covenants 121:35]].
 
@@ -107,15 +107,16 @@ As Job said, “Let me be weighed in an even balance, that God may know mine int
 
 [^21]: [[Alma 30.52|Alma 30:52]].
 
-[^22]: Henry B. Eyring, “[Going Home](https://speeches.byu.edu/talks/henry-b-eyring/going-home)” (Brigham Young University devotional, Nov. 18, 1986), 5, speeches.byu.edu.
+[^22]: Henry B. Eyring, “[Going Home](https://speeches.byu.edu/talks/henry-b-eyring/going-home)” (Brigham Young University devotional, Nov. 18, 1986), 5, speeches.byu.edu.
 
-[^23]: See [[1 John 1.8|1 John 1:8]].
+[^23]: See [[1 John 1.8|1 John 1:8]].
 
 [^24]: [[Joseph Smith History 1.25|Joseph Smith—History 1:25]].
 
 [^25]: [[D&C 124.15|Doctrine and Covenants 124:15]].
 
-[^26]: [[2 Nephi 10.24|2 Nephi 10:24]].
+[^26]: [[2 Nephi 10.24|2 Nephi 10:24]].
 
+[^27]: [[Job 31.6|Job 31:6]].
 
-#Adversity #Divine_Nature #Honesty #Jesus_Christ #Love
+#Adversity #DivineNature #Honesty #JesusChrist #Love

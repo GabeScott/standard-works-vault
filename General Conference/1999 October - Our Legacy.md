@@ -54,7 +54,7 @@ I must confess that whenever my life has failed to measure up to the standards o
 
 My wife and I have watched many converts to the Church make the necessary changes to become gospel-centered souls. We have seen hundreds of young full-time missionaries in Buenos Aires, Argentina, make the sacrifices to become truly consecrated servants of the Lord. All it takes is desire, obedience, dedication, and endurance. The Lord will do the rest!
 
-We are His children. He loves us and knows each one of us by name. He wants us to return to His presence and live with Him eternally. This is the great legacy of the gospel of Jesus Christ. Because of the atoning sacrifice of our Savior, we have an assurance of life hereafter and the possibility of inheriting all that the Father has. With this knowledge and legacy, we must “press forward with a steadfastness in Christ, having a perfect brightness of hope” ([[2 Nephi 31.20|2 Ne. 31:20]]).
+We are His children. He loves us and knows each one of us by name. He wants us to return to His presence and live with Him eternally. This is the great legacy of the gospel of Jesus Christ. Because of the atoning sacrifice of our Savior, we have an assurance of life hereafter and the possibility of inheriting all that the Father has. With this knowledge and legacy, we must “press forward with a steadfastness in Christ, having a perfect brightness of hope” ([[2 Nephi 31.20|2 Ne. 31:20]]).
 
 We must follow the lead of our beloved prophet, President Hinckley, who recently told the students at Ricks College: “To you I say with all of the energy of which I am capable, do not become a weak link in the chain of your generations. You come to the world with a marvelous inheritance. You come of great men and women. … Never let them down. Never do anything which would weaken the chain of which you are a fundamental part” (*Scroll,* 14 Sept. 1999, 20). To me that means that we must do all in our power to ensure that we instill within our loved ones the great legacy of an abiding testimony of the gospel of Jesus Christ.
 
@@ -63,6 +63,4 @@ As my grandfather so eloquently stated 74 years ago: “I rejoice to bear my tes
 
 
 
-
-
-#Anger #Faith #Friendship #Honesty #Jesus_Christ #Prayer #Priesthood #Prophets #Sacrifice #Scripture_Study #Sunday_School #Tithing
+#Anger #Faith #Friendship #Honesty #JesusChrist #Prayer #Priesthood #Prophets #Sacrifice #ScriptureStudy #SundaySchool #Tithing

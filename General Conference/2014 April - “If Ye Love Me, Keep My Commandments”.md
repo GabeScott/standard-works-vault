@@ -1,6 +1,6 @@
 # “If Ye Love Me, Keep My Commandments”
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -99,11 +99,11 @@ I bear my special witness that our Savior lives. Because He obeyed, “every kne
 
 [^8]: [[Matthew 26.39|Matthew 26:39]]; see also verses [[Matthew 26.42|42]], [[Matthew 26.44|44]].
 
-[^9]: [[Matthew 3.17|Matthew 3:17]]; see also [[3 Nephi 11.7|3 Nephi 11:7]].
+[^9]: [[Matthew 3.17|Matthew 3:17]]; see also [[3 Nephi 11.7|3 Nephi 11:7]].
 
 [^10]: [[Matthew 25.21|Matthew 25:21]].
 
-[^11]: “Do What Is Right,” *Hymns,* no. 237.
+[^11]: “Do What Is Right,” *Hymns,* no. 237.
 
 [^12]: [[Moses 5.13|Moses 5:13]].
 
@@ -127,6 +127,4 @@ I bear my special witness that our Savior lives. Because He obeyed, “every kne
 
 [^22]: [[Mosiah 27.31|Mosiah 27:31]].
 
-
-
-#Agency #Jesus_Christ #Obedience
+#Agency #JesusChrist #Obedience

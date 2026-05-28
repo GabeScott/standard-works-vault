@@ -1,6 +1,5 @@
 # Correct
 
-
 *See also* [[Chastening.md|Chastening]]; [[Correction.md|Correction]]
 
 happy is the man whom God *correcteth*, [[Job 5.17|Job 5:17]].

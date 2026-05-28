@@ -1,6 +1,6 @@
 # Smiling Faces and Grateful Hearts
 
-By Elder Carlos A. Godoy - *Of the Seventy*
+By Elder Carlos A. Godoy - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -14,9 +14,9 @@ My new assignment took Monica and me to beautiful Africa, where the Church is fl
 
 At the same time, given the region’s demographics, many people of modest means are joining the Church and transforming their lives through the blessings of tithing faithfulness and the educational opportunities offered by the Church. Programs such as Succeed in School, EnglishConnect, BYU–Pathway Worldwide, and the Perpetual Education Fund bless many lives, especially those of the rising generation.
 
-President James E. Faust once stated, “It has been said that this church does not necessarily attract great people but more often makes ordinary people great.”[^1]
+President James E. Faust once stated, “It has been said that this church does not necessarily attract great people but more often makes ordinary people great.”[^1]
 
-The greatness of our Saints in Africa becomes even more evident as they face life’s challenges and the demands of a growing Church. They always approach it with a positive attitude. They embody well the well-known teaching from President Russell M. Nelson:
+The greatness of our Saints in Africa becomes even more evident as they face life’s challenges and the demands of a growing Church. They always approach it with a positive attitude. They embody well the well-known teaching from President Russell M. Nelson:
 
 “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.
 
@@ -62,7 +62,7 @@ Following a Saturday of leadership training, the stake president took me to Sund
 
 I visited this beautiful small country, also known as “the mountain kingdom,” to see a Church district preparing to become a stake. Following a Saturday of meetings, I attended Sunday services in one of their branches in a rented house. The sacramental room was overflowing, with people standing outside the door to participate. I told the branch president that he needed a bigger house. To my surprise, he informed me that this was only half of his membership. The other half would attend a second sacrament meeting after the second hour. Again, there were no complaints—only smiling faces and grateful hearts.
 
-I returned to Lesotho later due to a fatal traffic accident involving several of our youth, already mentioned by Elder D. Todd Christofferson earlier. When I visited the families and leaders, I expected a somber atmosphere. Instead, I encountered strong and resilient Saints who were coping with the situation in an uplifting and inspiring way.
+I returned to Lesotho later due to a fatal traffic accident involving several of our youth, already mentioned by Elder D. Todd Christofferson earlier. When I visited the families and leaders, I expected a somber atmosphere. Instead, I encountered strong and resilient Saints who were coping with the situation in an uplifting and inspiring way.
 
 Mpho Aniciah Nku, 14, a surviving accident victim in this picture, illustrated it well in her own words: “Trust in Jesus and always look unto Him, because through Him you’ll find peace, and He will help you in the healing process.”
 
@@ -72,11 +72,11 @@ These are just a few examples where we see their positive attitude because they 
 
 Why can the Savior succor them and us in any circumstances of our lives? The answer can be found in the scriptures:
 
-“And he shall go forth, suffering pains and afflictions and temptations of every kind. …
+“And he shall go forth, suffering pains and afflictions and temptations of every kind. …
 
-“… And he will take upon him their infirmities, that his bowels may be filled with mercy, … that he may know … how to succor his people according to their infirmities.”[^3]
+“… And he will take upon him their infirmities, that his bowels may be filled with mercy, … that he may know … how to succor his people according to their infirmities.”[^3]
 
-As Elder David A. Bednar taught, there is no physical pain, anguish, or weakness we can experience that the Savior does not know. “You and I in a moment of weakness may cry out, ‘No one understands \[what I am going through\]. …’ No human being, perhaps, knows. But the Son of God perfectly knows and understands.” And why? Because “He felt and bore our burdens before we ever did.”[^4]
+As Elder David A. Bednar taught, there is no physical pain, anguish, or weakness we can experience that the Savior does not know. “You and I in a moment of weakness may cry out, ‘No one understands \[what I am going through\]. …’ No human being, perhaps, knows. But the Son of God perfectly knows and understands.” And why? Because “He felt and bore our burdens before we ever did.”[^4]
 
 I conclude with my testimony of Christ’s words found in [[Matthew 11.1|Matthew 11]][[Matthew 11.2|]][[Matthew 11.3|]][[Matthew 11.4|]][[Matthew 11.5|]][[Matthew 11.6|]][[Matthew 11.7|]][[Matthew 11.8|]][[Matthew 11.9|]][[Matthew 11.10|]][[Matthew 11.11|]][[Matthew 11.12|]][[Matthew 11.13|]][[Matthew 11.14|]][[Matthew 11.15|]][[Matthew 11.16|]][[Matthew 11.17|]][[Matthew 11.18|]][[Matthew 11.19|]][[Matthew 11.20|]][[Matthew 11.21|]][[Matthew 11.22|]][[Matthew 11.23|]][[Matthew 11.24|]][[Matthew 11.25|]][[Matthew 11.26|]][[Matthew 11.27|]][[Matthew 11.28|]][[Matthew 11.29|]][[Matthew 11.30|]]:
 
@@ -91,13 +91,14 @@ Just like those Saints in Africa, I know this promise is true. It is true there,
 
 
 
-[^1]: James E. Faust, “[[1994 April - Five Loaves and Two Fishes.md|Five Loaves and Two Fishes]],” *Ensign*, May 1994, 5.
+[^1]: James E. Faust, “[[1994 April - Five Loaves and Two Fishes.md|Five Loaves and Two Fishes]],” *Ensign*, May 1994, 5.
 
-[^2]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^2]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
 [^3]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-[^4]: David A. Bednar, “[The Atonement and the Journey of Mortality](https://churchofjesuschrist.org/study/liahona/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng&id=p52#p52),” *Liahona*, Apr. 2012, 19.
+[^4]: David A. Bednar, “[The Atonement and the Journey of Mortality](https://www.churchofjesuschrist.org/study/liahona/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng&id=p52#p52),” *Liahona*, Apr. 2012, 19.
 
+[^5]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-#Adversity #Gratitude #Jesus_Christ #Joy
+#Adversity #Gratitude #Joy #JesusChrist

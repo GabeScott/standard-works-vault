@@ -1,13 +1,12 @@
 # Decree
 
-
 *See also* [[Command.md|Command]]; [[Commandments of God.md|Commandments of God]]; [[Law.md|Law]]; [[Ordain.md|Ordain]]; [[Order.md|Order]]; [[Ordinance.md|Ordinance]]; [[Precept.md|Precept]]; [[Statute.md|Statute]]
 
 Darius the king made a *decree*, [[Ezra 6.1|Ezra 6:1]].
 
 he hath made a *decree*, [[Psalms 148.6|Psalms 148:6]].
 
-By me ... princes *decree* justice, [[Proverbs 8.15|Proverbs 8:15]].
+By me … princes *decree* justice, [[Proverbs 8.15|Proverbs 8:15]].
 
 Woe unto them that *decree* unrighteous *decrees*, [[Isaiah 10.1|Isaiah 10:1]].
 

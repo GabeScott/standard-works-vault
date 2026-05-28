@@ -1,6 +1,6 @@
 # The Music of the Gospel
 
-By Elder Wilford W. Andersen - *Of the Seventy*
+By Elder Wilford W. Andersen - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -20,7 +20,7 @@ Sometimes in our homes, we successfully teach the dance steps but are not as suc
 
 In section 8 of the Doctrine and Covenants, the Lord taught Joseph Smith and Oliver Cowdery, “Yea, behold, I will tell you in your mind and in your heart, by the Holy Ghost, which shall come upon you and which shall dwell in your heart” ([[D&C 8.2|verse 2]]). We learn the dance steps with our minds, but we hear the music with our hearts. The dance steps of the gospel are the things we do; the music of the gospel is the joyful spiritual feeling that comes from the Holy Ghost. It brings a change of heart and is the source of all righteous desires. The dance steps require discipline, but the joy of the dance will be experienced only when we come to hear the music.
 
-There are those who ridicule members of the Church for the things we do. That is understandable. Those who dance often appear strange or awkward or, to use a scriptural term, “peculiar” ([[1 Peter 2.9|1 Peter 2:9]]) to those who cannot hear the music. Have you ever stopped your car at a stoplight next to a car where the driver was dancing and singing at the top of his lungs—but you couldn’t hear a sound because your windows were rolled up? Didn’t he look a little peculiar? If our children learn the dance steps without learning to hear and to feel the beautiful music of the gospel, they will over time become uncomfortable with the dance and will either quit dancing or, almost as bad, keep dancing only because of the pressure they feel from others who are dancing around them.
+There are those who ridicule members of the Church for the things we do. That is understandable. Those who dance often appear strange or awkward or, to use a scriptural term, “peculiar” ([[1 Peter 2.9|1 Peter 2:9]]) to those who cannot hear the music. Have you ever stopped your car at a stoplight next to a car where the driver was dancing and singing at the top of his lungs—but you couldn’t hear a sound because your windows were rolled up? Didn’t he look a little peculiar? If our children learn the dance steps without learning to hear and to feel the beautiful music of the gospel, they will over time become uncomfortable with the dance and will either quit dancing or, almost as bad, keep dancing only because of the pressure they feel from others who are dancing around them.
 
 The challenge for all of us who seek to teach the gospel is to expand the curriculum beyond just the dance steps. Our children’s happiness depends on their ability to hear and love the beautiful music of the gospel. How do we do it?
 
@@ -28,7 +28,7 @@ First, we must keep our own lives attuned to the correct spiritual frequency. Ba
 
 When we receive the gift of the Holy Ghost after baptism, we are filled with the heavenly music that accompanies conversion. Our hearts are changed, and we “have no more disposition to do evil, but to do good continually” ([[Mosiah 5.2|Mosiah 5:2]]). But the Spirit will not endure unkindness or pride or envy. If we lose that delicate influence in our lives, the rich harmonies of the gospel can quickly become dissonant and can ultimately be silenced. Alma asked the poignant question: “If ye have felt to sing the song of redeeming love, I would ask, can ye feel so now?” ([[Alma 5.26|Alma 5:26]]).
 
-Parents, if our lives are out of tune with the music of the gospel, we need to tune them up. As President Thomas S. Monson taught us last October, we must ponder the path of our feet (see  *Ensign* or *Liahona,* Nov. 2014, 86–88). We know how to do it. We must walk the same path that we walked when we first heard the heavenly strains of gospel music. We exercise faith in Christ, repent, and take the sacrament; we feel more strongly the influence of the Holy Ghost; and the music of the gospel begins to play again in our lives.
+Parents, if our lives are out of tune with the music of the gospel, we need to tune them up. As President Thomas S. Monson taught us last October, we must ponder the path of our feet (see “[Ponder the Path of Thy Feet](https://www.churchofjesuschrist.org/study/ensign/2014/11/sunday-morning-session/ponder-the-path-of-thy-feet?lang=eng),” *Ensign* or *Liahona,* Nov. 2014, 86–88). We know how to do it. We must walk the same path that we walked when we first heard the heavenly strains of gospel music. We exercise faith in Christ, repent, and take the sacrament; we feel more strongly the influence of the Holy Ghost; and the music of the gospel begins to play again in our lives.
 
 Second, when we can hear the music ourselves, we must try our best to perform it in our homes. It is not something that can be forced or compelled. “No power or influence can or ought to be maintained by virtue of the priesthood”—or by virtue of being the dad or the mom or the biggest or the loudest—“only by persuasion, by long-suffering, by gentleness and meekness, … by love unfeigned; \[and\] by kindness” ([[D&C 121.41|D&C 121:41–42]][[D&C 121.42|]]).
 
@@ -49,6 +49,4 @@ May it be so in each of our lives and in each of our homes is my prayer in the n
 
 
 
-
-
-#Children #Holy_Ghost #Home #Parenthood #Patience
+#Children #HolyGhost #Home #Parenthood #Patience

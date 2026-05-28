@@ -1,19 +1,18 @@
 # Guilt, Guilty
 
-
-*See also* [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Guiltless.md|Guiltless]]; [[Repent, Repentance.md|Repent]]; [[Shame.md|Shame]]
+*See also* [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Guiltless.md|Guiltless]]; [[Repent.md|Repent]]; [[Shame.md|Shame]]
 
 We are verily *guilty* concerning our brother, [[Genesis 42.21|Genesis 42:21]].
 
-congregation of Israel sin ... and are *guilty*, [[Leviticus 4.13|Leviticus 4:13]].
+congregation of Israel sin … and are *guilty*, [[Leviticus 4.13|Leviticus 4:13]].
 
 he also shall be unclean, and *guilty*, [[Leviticus 5.2|Leviticus 5:2]].
 
 he hath sinned, and is *guilty*, [[Leviticus 6.4|Leviticus 6:4]].
 
-revenger ... shall not be *guilty* of blood, [[Numbers 35.27|Numbers 35:27]].
+revenger … shall not be *guilty* of blood, [[Numbers 35.27|Numbers 35:27]].
 
-take no satisfaction for ... a murderer, which is *guilty* of death, [[Numbers 35.31|Numbers 35:31]].
+take no satisfaction for … a murderer, which is *guilty* of death, [[Numbers 35.31|Numbers 35:31]].
 
 put away the *guilt* of innocent blood, [[Deuteronomy 19.13|Deuteronomy 19:13]] ([[Deuteronomy 21.9|Deuteronomy 21:9]]).
 
@@ -23,9 +22,9 @@ being *guilty*, they offered a ram, [[Ezra 10.19|Ezra 10:19]].
 
 slay them, and hold themselves not *guilty*, [[Zechariah 11.5|Zechariah 11:5]].
 
-sweareth by the gift ... he is *guilty*, [[Matthew 23.18|Matthew 23:18]].
+sweareth by the gift … he is *guilty*, [[Matthew 23.18|Matthew 23:18]].
 
-They answered ... He is *guilty* of death, [[Matthew 26.66|Matthew 26:66]] ([[Mark 14.64|Mark 14:64]]).
+They answered … He is *guilty* of death, [[Matthew 26.66|Matthew 26:66]] ([[Mark 14.64|Mark 14:64]]).
 
 all the world may become *guilty* before God, [[Romans 3.19|Romans 3:19]].
 
@@ -39,7 +38,7 @@ we shall have a perfect knowledge of all our *guilt*, [[2 Nephi 9.14|2 Nephi 9:1
 
 if it so be that we are *guilty*, God will beat us, [[2 Nephi 28.8|2 Nephi 28:8]].
 
-bring you to stand with ... awful *guilt*, [[Jacob 6.9|Jacob 6:9]].
+bring you to stand with … awful *guilt*, [[Jacob 6.9|Jacob 6:9]].
 
 my *guilt* was swept away, [[Enos 1.6|Enos 1:6]].
 
@@ -67,7 +66,7 @@ ye had not been *guilty* of so great a crime, [[Alma 39.7|Alma 39:7]].
 
 Inasmuch as ye are not *guilty* of the first offense, [[Alma 43.46|Alma 43:46]].
 
-letting the *guilty* ... go unpunished, [[Helaman 7.5|Helaman 7:5]].
+letting the *guilty* … go unpunished, [[Helaman 7.5|Helaman 7:5]].
 
 we know that thou art *guilty*, [[Helaman 9.34|Helaman 9:34]].
 
@@ -88,5 +87,3 @@ punish *guilt*, but never suppress the freedom, [[D&C 134.4|D&C 134:4]].
 Son of God hath atoned for original *guilt*, [[Moses 6.54|Moses 6:54]].
 
 I was *guilty* of levity, [[Joseph Smith History 1.28|Joseph Smith History 1:28]].
-
-*See also* [[Alma 36.13|Alma 36:13]].

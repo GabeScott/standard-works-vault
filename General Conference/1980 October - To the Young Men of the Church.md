@@ -1,6 +1,6 @@
 # To the Young Men of the Church
 
-By Elder Robert L. Backman - *Of the First Quorum of the Seventy*
+By Elder Robert L. Backman - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -77,6 +77,4 @@ And may you realize that this is your world, a beautiful world with unlimited op
 
 
 
-
-
-#Missionary_Work #Worthiness
+#MissionaryWork #Worthiness

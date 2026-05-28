@@ -1,6 +1,6 @@
 # “Jesus of Nazareth, Savior and King”
 
-By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
+By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -12,11 +12,11 @@ Thus, foolishness, fear, and fashion have flattened the theology of many. For th
 
 There is, however, one people and one church bearing Jesus Christ’s name and built upon the fulness of his gospel. This people is seen by the world as eccentric, because they are so Christocentric!
 
-This people strives to follow the counsel of the resurrected Savior, who said, “Hold up your light … unto the world. Behold I am the light which ye shall hold up—that which ye have seen me do.” ([[3 Nephi 18.24|3 Ne. 18:24]].)
+This people strives to follow the counsel of the resurrected Savior, who said, “Hold up your light … unto the world. Behold I am the light which ye shall hold up—that which ye have seen me do.” ([[3 Nephi 18.24|3 Ne. 18:24]].)
 
 Today I desire to hold up that light by testifying of Jesus Christ and what he has done according to what I know, have seen, felt, and heard in my life. This testimony involves my reason and my experience—the two limited but helping witnesses! Happily, there has been given to me the third witness of the Spirit—the unimpeachable and convincing witness!
 
-My only regret is that what follows is apt to be the verbal equivalent of a child’s enthusiastic finger painting—because my tongue cannot tell all I know. Even so …
+My only regret is that what follows is apt to be the verbal equivalent of a child’s enthusiastic finger painting—because my tongue cannot tell all I know. Even so …
 
 I testify that in our first estate Jesus was the incomparable individual among all our Father’s spirit children. He helped to prepare this planet for us and led—not pushed—us from our premortal post. I thank him for the untold things he did, across the ages of that first estate, to prepare perfectly for his unique role—while I was doing so very much less. I thank him, further, for not deserting those of us who are slow or stragglers.
 
@@ -57,6 +57,4 @@ Last of all, I witness that he lives—with all that those simple words imply. I
 
 
 
-
-
-#Atonement #Example #Jesus_Christ #Resurrection #Testimony
+#Atonement #Example #JesusChrist #Resurrection #Testimony

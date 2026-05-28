@@ -1,6 +1,6 @@
 # Tithing: An Opportunity to Prove Our Faithfulness
 
-By President Gordon B. Hinckley - *Counselor in the First Presidency*
+By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -16,11 +16,11 @@ That’s a great song (“The World Has Need of Willing Men”) and I’m sorry 
 
 Put your shoulder to the wheel in moving along the kingdom of God. I would like to talk about some of the aspects of that effort.
 
-I recall as a boy coming to these general conferences, as you young men have done tonight. On more than one occasion I heard President Heber J. Grant, his voice ringing with conviction, bear his witness concerning the sacred law of tithing and the marvelous promises which the Lord has made to those who are honest in paying their tithes and offerings. I was deeply impressed by what I heard.
+I recall as a boy coming to these general conferences, as you young men have done tonight. On more than one occasion I heard President Heber J. Grant, his voice ringing with conviction, bear his witness concerning the sacred law of tithing and the marvelous promises which the Lord has made to those who are honest in paying their tithes and offerings. I was deeply impressed by what I heard.
 
 I knew it was the Lord, the God of heaven, who made these promises. I knew that he was in a position to keep his promises, and I have come to know that he does so.
 
-I will always be grateful for a father and a mother who, as far back as I can remember, taught us to pay our tithing. In those days, in the ward in which we lived the bishop did not have an office in the meetinghouse. We went to his home for tithing settlement. I can still sense my feelings of trepidation as I walked into that home as a very small boy to settle my tithing with Bishop John C. Duncan. The amount may have been only twenty-five cents, since we did not have very much of an allowance in those lean times, but it was an honest 10 percent as we had figured it in our childish way, based on the little couplet that we would recite in Sunday School:
+I will always be grateful for a father and a mother who, as far back as I can remember, taught us to pay our tithing. In those days, in the ward in which we lived the bishop did not have an office in the meetinghouse. We went to his home for tithing settlement. I can still sense my feelings of trepidation as I walked into that home as a very small boy to settle my tithing with Bishop John C. Duncan. The amount may have been only twenty-five cents, since we did not have very much of an allowance in those lean times, but it was an honest 10 percent as we had figured it in our childish way, based on the little couplet that we would recite in Sunday School:
 
 >What is tithing? I will tell you every time.
 >Ten cents from a dollar, and a penny from a dime.
@@ -32,7 +32,7 @@ We did not do it with the expectation of material blessings, although we can tes
 
 Now, do not get me wrong. I am not here to say that if you pay an honest tithing you will realize your dream of a fine house, a Rolls Royce, and a condominium in Hawaii. *The Lord will open the windows of heaven according to our need, and not according to our greed.* If we are paying tithing to get rich, we are doing it for the wrong reason. The basic purpose for tithing is to provide the Church with the means needed to carry on His work. The blessing to the giver is an ancillary return, and that blessing may not be always in the form of financial or material benefit. In speaking of opening the windows of heaven, Malachi continues by saying:
 
-“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field. …
+“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field. …
 
 “And all nations shall call you blessed: for ye shall be a delightsome land, saith the Lord of hosts.” ([[Malachi 3.11|Mal. 3:11–12]][[Malachi 3.12|]].)
 
@@ -58,11 +58,11 @@ The stake president of course must be the spiritual anchor. He also must be able
 
 It is with us as it was with Samuel when he was sent to find a successor to Saul. When the first of Jesse’s sons passed by, a fine-looking man, Samuel was favorably impressed.
 
-“But the Lord said unto Samuel, Look not on his countenance, or on the height of his stature \[or I might add parenthetically, on his financial statement\]; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
+“But the Lord said unto Samuel, Look not on his countenance, or on the height of his stature \[or I might add parenthetically, on his financial statement\]; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
 
 I am confident that it is so, likewise, with stake presidents in nominating men to serve as bishops, and with others in the selection of various Church officers. If a chosen individual happens to be a man of substance honestly gained, so be it. He may then have more time and more resources to give to the work, and the work may be blessed by his superior management skills. But this will not be the reason for his selection. Personal worthiness is the key to fitness for office in the kingdom of God.
 
-“We believe that a man must be called of God, by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof.” ([[Articles of Faith 1.5|A of F 1:5]].)
+“We believe that a man must be called of God, by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof.” ([[Articles of Faith 1.5|A of F 1:5]].)
 
 It must always be so in this, the work of the Lord.
 
@@ -97,6 +97,4 @@ God bless you, my brethren of the priesthood, with faith and testimony and a lov
 
 
 
-
-
-#Leadership #Missionary_Work #Tithing
+#Leadership #MissionaryWork #Tithing

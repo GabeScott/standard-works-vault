@@ -1,6 +1,6 @@
 # Worship
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -26,7 +26,7 @@ Most important is what we do when we gather on the Lord’s day. Of course, we d
 
 At the most recent general conference, Elder Patrick Kearon reminded us that “we do not gather on the Sabbath simply to attend sacrament meeting and check it off the list. We come together to worship. There is a significant difference between the two. To *attend* means to be present at. But to *worship* is to intentionally praise and adore our God in a way that transforms us!”[^7]
 
-Devoting our Sabbaths to the Lord and His purposes is itself an act of worship. Some years ago, then-Elder Russell M. Nelson observed: “How do we *hallow* the Sabbath day? In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father \[see [[Exodus 31.13|Exodus 31:13]]; [[Ezekiel 20.12|Ezekiel 20:12, 20]][[Ezekiel 20.20|]]\]. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘What *sign* do I want to give to God?’”[^8]
+Devoting our Sabbaths to the Lord and His purposes is itself an act of worship. Some years ago, then-Elder Russell M. Nelson observed: “How do we *hallow* the Sabbath day? In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father \[see [[Exodus 31.13|Exodus 31:13]]; [[Ezekiel 20.12|Ezekiel 20:12, 20]][[Ezekiel 20.20|]]\]. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘What *sign* do I want to give to God?’”[^8]
 
 Worship on the Lord’s day is marked by a particular focus on the great atoning sacrifice of Jesus Christ. We appropriately and specially celebrate His Resurrection at Easter but also *every* week as we partake of the sacramental emblems of His Atonement, including His Resurrection. For the penitent, partaking of the sacrament is the highlight of Sabbath worship.
 
@@ -68,7 +68,7 @@ You will recall their bold answer:
 
 “But if not, be it known unto thee … that we will not serve thy gods, nor worship the golden image which thou hast set up.”[^21]
 
-The furnace was so hot that it killed those who threw them into it, but Shadrach, Meshach, and Abed-nego were unharmed. “Then Nebuchadnezzar spake, and said, Blessed be the God of Shadrach, Meshach, and Abed-nego, who hath … delivered his servants that trusted in him, … and yielded their bodies, that they might not serve nor worship any god, except their own God.”[^22] They trusted in Jehovah for deliverance, “but if not,” that is, even if God in His wisdom did not prevent their death, yet they would remain true to Him.
+The furnace was so hot that it killed those who threw them into it, but Shadrach, Meshach, and Abed-nego were unharmed. “Then Nebuchadnezzar spake, and said, Blessed be the God of Shadrach, Meshach, and Abed-nego, who hath … delivered his servants that trusted in him, … and yielded their bodies, that they might not serve nor worship any god, except their own God.”[^22] They trusted in Jehovah for deliverance, “but if not,” that is, even if God in His wisdom did not prevent their death, yet they would remain true to Him.
 
 Whatever takes precedence over worship of the Father and the Son becomes an idol. Those who reject God as the source of truth, or disavow any accountability to Him, in effect substitute *themselves* as their god. One who places loyalty to a party or cause ahead of divine direction worships a false god. Even those who purport to worship God but do not keep His commandments are walking in their own way: “They draw near to me with their lips, but their hearts are far from me.”[^23] The object of our worship is exclusively “the only true God, and Jesus Christ, whom \[He\] hast sent.”[^24]
 
@@ -80,7 +80,7 @@ This is the beauty of the covenant path—the path of worship, love, and loyalty
 
 There follow additional priesthood ordinances and covenants made in the house of the Lord that further sanctify us. The ceremonies and ordinances of the temple constitute an elevated form of worship.
 
-President Russell M. Nelson has emphasized that “every man and every woman who participates in priesthood ordinances and who makes and keeps covenants with God has direct access to the power of God.”[^26] This is not only a power we draw upon to serve and to bless. It is also the divine power that works in us to refine and purify us. As we walk the covenant path, the sanctifying “power of godliness is manifest”[^27] in us.
+President Russell M. Nelson has emphasized that “every man and every woman who participates in priesthood ordinances and who makes and keeps covenants with God has direct access to the power of God.”[^26] This is not only a power we draw upon to serve and to bless. It is also the divine power that works in us to refine and purify us. As we walk the covenant path, the sanctifying “power of godliness is manifest”[^27] in us.
 
 May we, as the ancient Nephites and Lamanites, “fall down at the feet of Jesus, and … worship him.”[^28] May we, as commanded by Jesus, “fall down and worship the Father in \[the\] name \[of the Son\].”[^29] May we receive the Holy Spirit and yield our hearts to God, have no other gods before Him, and as disciples of Jesus Christ, emulate His character in our own lives. I testify that as we do, we will experience joy in worship. In the name of Jesus Christ, amen.
 
@@ -101,11 +101,11 @@ May we, as the ancient Nephites and Lamanites, “fall down at the feet of Jesus
 
 [^7]: Patrick Kearon, “[[2024 October - Welcome to the Church of Joy.md|Welcome to the Church of Joy]],” *Liahona*, Nov. 2024, 36.
 
-[^8]: Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Liahona*, May 2015, 130.
+[^8]: Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Liahona*, May 2015, 130.
 
-[^9]: See, for example, [[1 Corinthians 12.12|1 Corinthians 12:12–27]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]].
+[^9]: See, for example, [[1 Corinthians 12.12|1 Corinthians 12:12–27]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]].
 
-[^10]: See “Stats for Sermons: Most Christians Have Entirely Private Spiritual Lives,” Barna Group, Feb. 21, 2025, barna.com/trends/stat-download-spiritual-lives.
+[^10]: See “Stats for Sermons: Most Christians Have Entirely Private Spiritual Lives,” Barna Group, Feb. 21, 2025, barna.com/trends/stat-download-spiritual-lives.
 
 [^11]: [[D&C 59.11|Doctrine and Covenants 59:11]].
 
@@ -121,7 +121,7 @@ May we, as the ancient Nephites and Lamanites, “fall down at the feet of Jesus
 
 [^17]: Jesus says simply, “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]).
 
-[^18]: See [[3 Nephi 9.20|3 Nephi 9:20]].
+[^18]: See [[3 Nephi 9.20|3 Nephi 9:20]].
 
 [^19]: [[D&C 1.15|Doctrine and Covenants 1:15–16]][[D&C 1.16|]].
 
@@ -135,16 +135,14 @@ May we, as the ancient Nephites and Lamanites, “fall down at the feet of Jesus
 
 [^24]: [[John 17.3|John 17:3]]; see also [[Exodus 20.2|Exodus 20:2–3]][[Exodus 20.3|]]; [[Mosiah 12.33|Mosiah 12:33–35]][[Mosiah 12.34|]][[Mosiah 12.35|]]; [[D&C 20.17|Doctrine and Covenants 20:17–19]][[D&C 20.18|]][[D&C 20.19|]].
 
-[^25]: See [[2 Nephi 31.17|2 Nephi 31:17]].
+[^25]: See [[2 Nephi 31.17|2 Nephi 31:17]].
 
-[^26]: Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p49#p49),” *Liahona*, Oct. 2022, 10.
+[^26]: Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p49#p49),” *Liahona*, Oct. 2022, 10.
 
 [^27]: See [[D&C 84.19|Doctrine and Covenants 84:19–21]][[D&C 84.20|]][[D&C 84.21|]].
 
-[^28]: [[3 Nephi 11.17|3 Nephi 11:17]].
+[^28]: [[3 Nephi 11.17|3 Nephi 11:17]].
 
 [^29]: [[D&C 18.40|Doctrine and Covenants 18:40]].
 
-
-
-#God_The_Father #Gratitude #Jesus_Christ #Sabbath #Worship
+#GodTheFather #Gratitude #JesusChrist #Sabbath #Worship

@@ -1,6 +1,5 @@
 # Plant
 
-
 *See also* [[Herb.md|Herb]]
 
 every *plant* of the field before it was in the earth, [[Genesis 2.5|Genesis 2:5]] ([[Moses 3.5|Moses 3:5]]; [[Abraham 5.5|Abraham 5:5]]).
@@ -9,7 +8,7 @@ Lord God *planted* a garden eastward in Eden, [[Genesis 2.8|Genesis 2:8]] ([[Mos
 
 Thou shalt bring them in, and *plant* them, [[Exodus 15.17|Exodus 15:17]].
 
-thou didst drive out the heathen ... and *plantedst* them, [[Psalms 44.2|Psalms 44:2]].
+thou didst drive out the heathen … and *plantedst* them, [[Psalms 44.2|Psalms 44:2]].
 
 vineyard which thy right hand hath *planted*, [[Psalms 80.15|Psalms 80:15]].
 
@@ -53,7 +52,7 @@ if ye give place, that a seed may be *planted* in your heart, [[Alma 32.28|Alma 
 
 ye have only exercised your faith to *plant* the seed, [[Alma 32.36|Alma 32:36]].
 
-desiring to know ... how they should *plant* the seed, [[Alma 33.1|Alma 33:1]] ([[Alma 33.23|Alma 33:23]]).
+desiring to know … how they should *plant* the seed, [[Alma 33.1|Alma 33:1]] ([[Alma 33.23|Alma 33:23]]).
 
 he shall *plant* in the hearts of the children the promises made to the fathers, [[D&C 2.2|D&C 2:2]].
 

@@ -8,7 +8,7 @@ By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 My beloved brethren and sisters, one hundred and fifty years ago the Prophet Joseph Smith organized the School of the Prophets. The purpose of this school was to prepare selected members of the priesthood to preach the gospel of Jesus Christ to all the world.
 
-In the absence of a temple, the first School of the Prophets was held in a small room in the home of Bishop Newel K. Whitney. Brigham Young was one of the early participants in this school, and he described a scene which frequently presented itself during meetings:
+In the absence of a temple, the first School of the Prophets was held in a small room in the home of Bishop Newel K. Whitney. Brigham Young was one of the early participants in this school, and he described a scene which frequently presented itself during meetings:
 
 “The brethren came to that place for hundreds of miles to attend school in a little room probably no larger than eleven by fourteen. When they assembled together in this room after breakfast, the first they did was to light their pipes, and, while smoking, talk about the great things of the kingdom, … and as soon as the pipe was out of their mouths a large chew of tobacco would then be taken. Often when the Prophet entered the room to give the school instructions he would find himself in a cloud of tobacco smoke. This, and the complaints of his wife at having to clean \[the\] floor, made the Prophet think upon the matter, and he inquired of the Lord relating to the conduct of the Elders in using tobacco.” (*Journal of Discourses,* 12:158.)
 
@@ -54,7 +54,7 @@ Those foods which are good for man are described in these words:
 
 “Flesh … of beasts and of the fowls of the air … are to be used sparingly;
 
-“All grain is ordained for the use of man … to be the staff of life. …
+“All grain is ordained for the use of man … to be the staff of life. …
 
 “All grain is good for the food of man; as also the fruit of the vine.” ([[D&C 89.10|D&C 89:10–12, 14, 16]][[D&C 89.11|]][[D&C 89.12|]][[D&C 89.14|]][[D&C 89.16|]].)
 
@@ -88,7 +88,7 @@ The Lord foresaw the situation of today when motives for money would cause men t
 
 My young brothers and sisters, in all love, we give you warning that Satan and his emissaries will strive to entice you to use harmful substances, because they well know if you partake, your spiritual powers will be inhibited and you will be in their evil power. Stay away from those places or people which would influence you to break the commandments of God. Keep the commandments of God and you will have the wisdom to know and discern that which is evil.
 
-This year marks the 150th anniversary of the Word of Wisdom in this dispensation. Marking this anniversary, the Church is restoring the Newel K. Whitney store in Kirtland, Ohio. The store is a most ordinary structure by any modern standard, but it is the place where sacred revelations of God were received. One hundred and fifty years have scientifically confirmed the Word of Wisdom as a formula for sound health. One hundred and fifty years’ experience with Saints living these laws has also confirmed that God fulfills His spiritual promises to His Saints.
+This year marks the 150th anniversary of the Word of Wisdom in this dispensation. Marking this anniversary, the Church is restoring the Newel K. Whitney store in Kirtland, Ohio. The store is a most ordinary structure by any modern standard, but it is the place where sacred revelations of God were received. One hundred and fifty years have scientifically confirmed the Word of Wisdom as a formula for sound health. One hundred and fifty years’ experience with Saints living these laws has also confirmed that God fulfills His spiritual promises to His Saints.
 
 May we as Saints of God keep all His commandments. May we be pure and holy so we can have the constant companionship of the Holy Ghost. Let us be distinctive as a people because of our obedience to God’s laws.
 
@@ -105,6 +105,4 @@ I further testify that obedience to all of God’s laws brings the precious prom
 
 
 
-
-
-#Obedience #Word_Of_Wisdom
+#Obedience #WordOfWisdom

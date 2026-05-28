@@ -24,11 +24,11 @@ John A. Widtsoe provides insight to an earth-life responsibility made in that pr
 
 Elder Widtsoe continues:
 
-“That places us in a very responsible attitude towards the human race. By that doctrine, with the Lord at the head, we become saviors on Mount Zion, all committed to the great plan of offering salvation to the untold numbers of spirits. To do this is the Lord’s self-imposed duty, this great labor his highest glory. Likewise, it is man’s duty, self-imposed, his pleasure and joy, his labor, and ultimately his glory” (“The Worth of Souls,” *The Utah Genealogical and Historical Magazine,* Oct. 1934, p. 189).
+“That places us in a very responsible attitude towards the human race. By that doctrine, with the Lord at the head, we become saviors on Mount Zion, all committed to the great plan of offering salvation to the untold numbers of spirits. To do this is the Lord’s self-imposed duty, this great labor his highest glory. Likewise, it is man’s duty, self-imposed, his pleasure and joy, his labor, and ultimately his glory” (“The Worth of Souls,” *The Utah Genealogical and Historical Magazine,* Oct. 1934, p. 189).
 
 Latter-day Saints are a chosen people, so appointed in the premortal world, to be in partnership with the Lord for the salvation of the living and the dead. The First Presidency has announced that one of the major responsibilities of the Church, and therefore of its members, is to redeem the dead.
 
-We learn by revelation from the Prophet Joseph Smith that “these … principles in relation to the dead and the living … cannot be lightly passed over, as pertaining to our salvation. For their salvation is necessary and essential to our salvation. …
+We learn by revelation from the Prophet Joseph Smith that “these … principles in relation to the dead and the living … cannot be lightly passed over, as pertaining to our salvation. For their salvation is necessary and essential to our salvation. …
 
 “For we without them cannot be made perfect; neither can they without us be made perfect” ([[D&C 128.15|D&C 128:15, 18]][[D&C 128.18|]]; see also [[Hebrews 11.39|Heb. 11:39–40]][[Hebrews 11.40|]]).
 
@@ -48,13 +48,13 @@ Third, neither did they have the power to persuade millions of people to turn th
 
 The Jewish people have looked forward to the return to the earth of Elijah as promised by Malachi. Each year in the spring the Paschal feast is observed in many Jewish homes, at which time a door is opened so that Elijah might come in and sit at the feast.
 
-“It was … on the third day of April, 1836,” said President Joseph Fielding Smith, “that the \[Jewish people\], in their homes at the Paschal feast, opened their doors for Elijah to enter. \[However,\] on that very day Elijah did enter—not in the home of the Jews to partake of the Passover with them, but he appeared in the House of the Lord … in Kirtland, and there bestowed his keys” (in Conference Report, Apr. 1936, p. 75).
+“It was … on the third day of April, 1836,” said President Joseph Fielding Smith, “that the \[Jewish people\], in their homes at the Paschal feast, opened their doors for Elijah to enter. \[However,\] on that very day Elijah did enter—not in the home of the Jews to partake of the Passover with them, but he appeared in the House of the Lord … in Kirtland, and there bestowed his keys” (in Conference Report, Apr. 1936, p. 75).
 
-The Prophet Joseph said the main object of the “gathering \[of\] the Jews, or the people of God in any age of the world … was to build unto the Lord a house whereby He could reveal unto His people the ordinances of His house and the glories of His kingdom, and teach the people the way of salvation” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], pp. 307–8).
+The Prophet Joseph said the main object of the “gathering \[of\] the Jews, or the people of God in any age of the world … was to build unto the Lord a house whereby He could reveal unto His people the ordinances of His house and the glories of His kingdom, and teach the people the way of salvation” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], pp. 307–8).
 
 Bible prophecies indicate that in the last dispensation of the gospel, there would be a restoration of all of the principles and practices of former dispensations, which includes temple building and the performing of ordinances therein (see [[Isaiah 2.2|Isa. 2:2–3]][[Isaiah 2.3|]]; [[Micah 4.1|Micah 4:1–2]][[Micah 4.2|]]; [[Acts 3.19|Acts 3:19–21]][[Acts 3.20|]][[Acts 3.21|]]; [[Ephesians 1.9|Eph. 1:9–10]][[Ephesians 1.10|]]).
 
-A latter-day Apostle wrote, “The history of Temples teaches us that the people of God have been strong, or weak, in proportion to the faithfulness with which they have attended to their sanctuaries” (Hyrum M. Smith and Janne M. Sjodahl, *Doctrine and Covenants Commentary* \[Salt Lake City: Deseret Book Co., 1951\], p. 612).
+A latter-day Apostle wrote, “The history of Temples teaches us that the people of God have been strong, or weak, in proportion to the faithfulness with which they have attended to their sanctuaries” (Hyrum M. Smith and Janne M. Sjodahl, *Doctrine and Covenants Commentary* \[Salt Lake City: Deseret Book Co., 1951\], p. 612).
 
 We would do well to follow the example of our beloved prophet, President Ezra Taft Benson. He and his sweet companion, Flora, have set aside time each Friday to regularly attend the house of the Lord, and they would join with me here this morning in declaring that members of the Church who absent themselves from temple attendance, where it is possible for them to attend, are denying themselves rich blessings.
 
@@ -86,7 +86,7 @@ The moment we step into the house of the Lord, the atmosphere changes from the w
 
 *Fourth, by receiving revelation.*
 
-John A. Widtsoe wrote: “I believe that the busy person on the farm, in the shop, in the office, or in the household, who has his worries and troubles, can solve his problems better and more quickly in the house of the Lord than anywhere else. If he will … \[do\] the temple work for himself and for his dead, he will confer a mighty blessing upon those who have gone before, and … a blessing will come to him, for at the most unexpected moments, in or out of the temple will come to him, as a revelation, the solution of the problems that vex his life. That is the gift that comes to those who enter the temple properly” (“Temple Worship,” *The Utah Genealogical and Historical Magazine,* Apr. 1921, pp. 63–64).
+John A. Widtsoe wrote: “I believe that the busy person on the farm, in the shop, in the office, or in the household, who has his worries and troubles, can solve his problems better and more quickly in the house of the Lord than anywhere else. If he will … \[do\] the temple work for himself and for his dead, he will confer a mighty blessing upon those who have gone before, and … a blessing will come to him, for at the most unexpected moments, in or out of the temple will come to him, as a revelation, the solution of the problems that vex his life. That is the gift that comes to those who enter the temple properly” (“Temple Worship,” *The Utah Genealogical and Historical Magazine,* Apr. 1921, pp. 63–64).
 
 Revelation also comes in receiving greater understanding of the endowment as one seeks to comprehend its meaning.
 
@@ -115,6 +115,4 @@ God our Father lives, as does His Son, Jesus the Christ, our Savior and Redeemer
 
 
 
-
-
-#Family_History #Plan_Of_Salvation #Premortal_Existence #Spirituality #Temple_Work #Temples
+#FamilyHistory #PlanOfSalvation #PremortalExistence #Spirituality #Temples #TempleWork

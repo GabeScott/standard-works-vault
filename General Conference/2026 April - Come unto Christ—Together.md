@@ -1,6 +1,6 @@
 # Come unto Christ—Together
 
-By Elder Taniela B. Wakolo - *Of the Seventy*
+By Elder Taniela B. Wakolo - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -24,13 +24,13 @@ In the book of Moses, we read of a sacred experience. Moses beheld the earth and
 
 Overwhelmed by this vision, Moses asked two profound questions to God: Why? And by what means?[^4] In other words, he wanted to understand the purpose.
 
-The Lord answered, “For mine own purpose have I made these things … to bring to pass the immortality and eternal life of man.”[^5] The prophet Nephi later testified, “For … he denieth none that come unto him … ; and all are alike unto God.”[^6] How is this purpose fulfilled? Because of Jesus Christ, all can receive the gift of eternal life—which includes living in God’s presence eternally as families.
+The Lord answered, “For mine own purpose have I made these things … to bring to pass the immortality and eternal life of man.”[^5] The prophet Nephi later testified, “For … he denieth none that come unto him … ; and all are alike unto God.”[^6] How is this purpose fulfilled? Because of Jesus Christ, all can receive the gift of eternal life—which includes living in God’s presence eternally as families.
 
-Six months ago, our prophet, President Dallin H. Oaks, taught:
+Six months ago, our prophet, President Dallin H. Oaks, taught:
 
-“The doctrine of The Church of Jesus Christ of Latter-day Saints centers on the family. Essential to our doctrine on the family is the temple. The ordinances received there enable us to return as eternal families to the presence of our Heavenly Father. …
+“The doctrine of The Church of Jesus Christ of Latter-day Saints centers on the family. Essential to our doctrine on the family is the temple. The ordinances received there enable us to return as eternal families to the presence of our Heavenly Father. …
 
-“ … The gospel plan … is implemented through our mortal families, and its intended destiny is to exalt the children of God in eternal families.”[^7]
+“ … The gospel plan … is implemented through our mortal families, and its intended destiny is to exalt the children of God in eternal families.”[^7]
 
 The Lord has also declared that “marriage is ordained of God … that the earth might answer the end of its creation,”[^8] and without the sealing authority needed to enter these eternal covenants that unite families forever, “the whole earth would be utterly wasted at his coming.”[^9]
 
@@ -89,15 +89,16 @@ This month, as we celebrate and remember the Resurrection of our Savior, I invit
 
 [^5]: See [[Moses 1.31|Moses 1:31–33, 39]][[Moses 1.32|]][[Moses 1.33|]][[Moses 1.39|]].
 
-[^6]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^6]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^7]: Dallin H. Oaks, “[[2025 October - The Family-Centered Gospel of Jesus Christ.md|The Family-Centered Gospel of Jesus Christ]],” *Liahona*, Nov. 2025, 120, 121.
+[^7]: Dallin H. Oaks, “[[2025 October - The Family-Centered Gospel of Jesus Christ.md|The Family-Centered Gospel of Jesus Christ]],” *Liahona*, Nov. 2025, 120, 121.
 
-[^8]: See [[D&C 49.15|Doctrine and Covenants 49:15–17]][[D&C 49.16|]][[D&C 49.17|]]; see also “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
+[^8]: See [[D&C 49.15|Doctrine and Covenants 49:15–17]][[D&C 49.16|]][[D&C 49.17|]]; see also “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
 [^9]: [[D&C 2.3|Doctrine and Covenants 2:3]].
 
 [^10]: See [[Exodus 3.6|Exodus 3:6, 15]][[Exodus 3.15|]]; [[Matthew 22.32|Matthew 22:32]].
 
-[^11]: See Gerrit W. Gong, “[[2025 October - No One Sits Alone.md|No One Sits Alone]],” *Liahona*, Nov. 2025, 40–43.
+[^11]: See Gerrit W. Gong, “[[2025 October - No One Sits Alone.md|No One Sits Alone]],” *Liahona*, Nov. 2025, 40–43.
 
+#Faith #Family #Patience #Sealings #Temples

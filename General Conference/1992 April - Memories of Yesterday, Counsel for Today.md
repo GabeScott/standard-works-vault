@@ -18,11 +18,11 @@ Reminiscing of boyhood days, President Benson recalls:
 
 “Mother was Relief Society president in the ward, a small but solid country ward. I remember how important Father considered her work in that assignment.
 
-“Father gave to me, as the oldest \[child\], the responsibility of harnessing the horse and getting the buggy ready for Mother’s … weekly Relief Society meetings. …
+“Father gave to me, as the oldest \[child\], the responsibility of harnessing the horse and getting the buggy ready for Mother’s … weekly Relief Society meetings. …
 
 “At that time I was not tall enough to buckle the collar or put the bridle on the horse without getting on the fence or \[standing on\] a box.
 
-“In addition, I was to take half a bushel of wheat from our granary and put it in the back of the buggy. In those days the Relief Society sisters were building up a storage of wheat against a time of need. …
+“In addition, I was to take half a bushel of wheat from our granary and put it in the back of the buggy. In those days the Relief Society sisters were building up a storage of wheat against a time of need. …
 
 “When Mother was called to visit the sick in the ward or to help mothers with new babies, it was always by horse and buggy. As the buggy rolled down the dirt road, the circling wheels left a track that stayed even after the buggy had disappeared. Mother’s influence has also stayed—in my life and in the countless lives she blessed through compassionate service and example.”[^2]
 
@@ -36,7 +36,7 @@ Thinking of the example of his own mother and that of his beloved and faithful w
 
 2. Take time to be a real friend to your children.
 
-3. Take time to read to your children. Remember what the poet wrote:You may have tangible wealth untold;Caskets of jewels and coffers of gold.Richer than I you can never be—I had a mother who read to me.[^4]
+3. Take time to read to your children. Remember what the poet wrote:
 
 4. Take time to pray with your children.
 
@@ -62,7 +62,7 @@ Brothers and sisters, “make it a family objective to all be together in the ce
 >Father, mother, sister, brother,
 >All who hold each other dear.
 >Each chair is filled—
->We’re all at home. …
+>We’re all at home. …
 >We’re all—all here.[^6]
 >
 
@@ -71,18 +71,16 @@ God bless you, President Benson, in the name of Jesus Christ, amen.
 
 
 
-[^1]: Ezra Taft Benson, “To the Elect Women of God,” in *Woman* (Salt Lake City: Deseret Book Co., 1979), p. 74.
+[^1]: Ezra Taft Benson, “To the Elect Women of God,” in *Woman* (Salt Lake City: Deseret Book Co., 1979), p. 74.
 
-[^2]: “To the Elect Women,” pp. 74–75.
+[^2]: “To the Elect Women,” pp. 74–75.
 
-[^3]: “To the Elect Women,” p. 75.
+[^3]: “To the Elect Women,” p. 75.
 
 [^4]: Strickland Gillilan, “The Reading Mother.”
 
-[^5]: Ezra Taft Benson, *To the Mothers in Zion* (pamphlet, 1987), pp. 8–12; see also Ezra Taft Benson, *Come, Listen to a Prophet’s Voice* (Salt Lake City: Deseret Book Co., 1990), pp. 32–36.
+[^5]: Ezra Taft Benson, *To the Mothers in Zion* (pamphlet, 1987), pp. 8–12; see also Ezra Taft Benson, *Come, Listen to a Prophet’s Voice* (Salt Lake City: Deseret Book Co., 1990), pp. 32–36.
 
-[^6]: “The Honored Place of Woman,” *Ensign,* Nov. 1981, p. 107; poem quoted from *The Writings of Charles Sprague* (New York: Charles S. Francis, 1841), p. 73.
+[^6]: “The Honored Place of Woman,” *Ensign,* Nov. 1981, p. 107; poem quoted from *The Writings of Charles Sprague* (New York: Charles S. Francis, 1841), p. 73.
 
-
-
-#Family #Parents #Prophets #Relief_Society #Service
+#Family #Parents #Prophets #ReliefSociety #Service

@@ -4,6 +4,3 @@
 
 [JST Exodus 4:21](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-ex/4?lang=eng)
 
-
-
-

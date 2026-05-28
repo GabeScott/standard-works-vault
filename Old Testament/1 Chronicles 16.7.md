@@ -5,5 +5,5 @@
 [1 Chronicles 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.7?lang=eng#p7)
 
 
-[^a]: [[2 Samuel 22.1|2 Sam. 22:1]].
-[^b]: [[Thanksgiving|TG Thanksgiving]].
+[^a]: [[2 Samuel 22.1|2 Sam. 22:1]].  
+[^b]: [[Thanksgiving|TG Thanksgiving]].  

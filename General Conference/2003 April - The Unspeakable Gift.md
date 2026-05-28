@@ -95,23 +95,23 @@ Our Heavenly Father lives! Jesus is the Christ! Through the Prophet Joseph Smith
 
 [^8]: See [[John 14.26|John 14:26]].
 
-[^9]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^9]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
-[^10]: In Conference Report, Apr. 1989, 41; or *Ensign,* May 1989, 32.
+[^10]: In Conference Report, Apr. 1989, [[1989 April - The Gift of the Holy Ghost—A Sure Compass.md|41]]; or *Ensign,* May 1989, 32.
 
 [^11]: *Teachings of Gordon B. Hinckley* (1997), 259.
 
-[^12]: [[Genesis 6.3|Genesis 6:3]]; see also [[2 Nephi 26.11|2 Nephi 26:11]]; [[D&C 1.33|D&C 1:33]]; [[Moses 8.17|Moses 8:17]].
+[^12]: [[Genesis 6.3|Genesis 6:3]]; see also [[2 Nephi 26.11|2 Nephi 26:11]]; [[D&C 1.33|D&C 1:33]]; [[Moses 8.17|Moses 8:17]].
 
 [^13]: *Live the Good Life* (1988), 59.
 
-[^14]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^14]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^15]: See Brigham Young, *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 32.
 
 [^16]: *Manuscript History of Brigham Young 1846–1847,* comp. Elden J. Watson (1971), 529.
 
-[^17]: In Conference Report, Apr. 2000, 8; or *Ensign,* May 2000, 8; *Liahona,* July 2000, 9.
+[^17]: In Conference Report, Apr. 2000, [[2000 April - The Cloven Tongues of Fire.md|8]]; or *Ensign,* May 2000, 8; *Liahona,* July 2000, 9.
 
 [^18]: *Manuscript History of Brigham Young,* 529.
 
@@ -119,6 +119,4 @@ Our Heavenly Father lives! Jesus is the Christ! Through the Prophet Joseph Smith
 
 [^20]: [[Moroni 10.4|Moroni 10:4]].
 
-
-
-#Conscience #Faith #Holy_Ghost #Joy #Peace #Spirituality
+#Conscience #Faith #HolyGhost #Joy #Peace #Spirituality

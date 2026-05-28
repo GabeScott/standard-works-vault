@@ -1,6 +1,6 @@
 # Scriptures
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -12,7 +12,7 @@ I must tell you of a work that has moved quietly forward in the Church virtually
 
 The sticks, of course, are records or books. In ancient Israel records were written upon tablets of wood or scrolls rolled upon sticks. The record of Judah and the record of Ephraim, according to the prophecy, were to become one in our hands. Two events connected with the fulfillment of the prophecy were centered in print shops.
 
-The first began on the second floor of a building on Main Street in the village of Palmyra, New York. In June of 1829 Joseph Smith and Martin Harris called upon Mr. Egbert B. Grandin, the proprietor, to discuss the publication of a new book of scripture. Mr. Grandin, then twenty-three, was three months younger than Joseph Smith. Only three months earlier he had advertised his intention to print books, a very ambitious undertaking for so small a shop with only a hand-operated, cast-iron press.
+The first began on the second floor of a building on Main Street in the village of Palmyra, New York. In June of 1829 Joseph Smith and Martin Harris called upon Mr. Egbert B. Grandin, the proprietor, to discuss the publication of a new book of scripture. Mr. Grandin, then twenty-three, was three months younger than Joseph Smith. Only three months earlier he had advertised his intention to print books, a very ambitious undertaking for so small a shop with only a hand-operated, cast-iron press.
 
 Others had refused to print the book, and young Mr. Grandin, a religious man, was very skeptical himself. But as the contract was secured by a mortgage on the farm of Martin Harris, it was signed and printing commenced in August of 1829.
 
@@ -24,7 +24,7 @@ An epoch of scriptural history had begun. The Prophet Joseph Smith and his succe
 
 One hundred forty-eight years later, in June 1977, again in a print shop, another step in the coming together of these two sticks occurred.
 
-James Mortimer, long experienced in publishing scriptures, and Dr. Ellis T. Rasmussen, recently dean of Religious Instruction at Brigham Young University, called at the Cambridge University Press in Cambridge, England. Bibles had been printed at this prestigious press for 293 years before Egbert Grandin opened his print shop in Palmyra.
+James Mortimer, long experienced in publishing scriptures, and Dr. Ellis T. Rasmussen, recently dean of Religious Instruction at Brigham Young University, called at the Cambridge University Press in Cambridge, England. Bibles had been printed at this prestigious press for 293 years before Egbert Grandin opened his print shop in Palmyra.
 
 They met with Mr. Roger Coleman, director of religious publishing, to discuss the publication of a most unusual edition of the King James Bible. The printers were quite as skeptical about this proposal as Egbert Grandin had been nearly 150 years before.
 
@@ -66,7 +66,7 @@ The older generation has been raised without them, but there is another generati
 
 Without the inspired help of hundreds of dedicated workers it would have been impossible! Among them were scholars in Hebrew, Greek, Latin, Old and New Testament studies. More than this, they are worthy men and women in whose lives the gospel of Jesus Christ is the dominating influence. Their work, if they only knew it, may well be their greatest contribution in mortality.
 
-As the generations roll on, this will be regarded, in the perspective of history, as the crowning achievement in the administration of President Spencer W. Kimball.
+As the generations roll on, this will be regarded, in the perspective of history, as the crowning achievement in the administration of President Spencer W. Kimball.
 
 As a very direct outgrowth of the scripture project, two new revelations were added to the Doctrine and Covenants. That had not occurred in over a hundred years. And before the books were closed, there came the glorious revelation on the priesthood, just in time to be bound with all else that the Lord has revealed to His Saints in this, the dispensation of the fulness of times.
 
@@ -86,7 +86,7 @@ The work affirms an acceptance of, a reverence for, and a testimony of the Lord 
 
 I began by quoting Ezekiel, prophet of Judah. Two of those Old Testament verses show ten footnotes. One of the ten leads us to the Book of Mormon, which is another testament of Jesus Christ, where half a world away the prophet Lehi, of the lineage of Joseph, quoted this prophecy:
 
-“Wherefore, the fruit of thy loins shall write; and the fruit of the loins of Judah shall write; and that which shall be written by the fruit of thy loins, and also that which shall be written by the fruit of the loins of Judah, shall grow together, unto the confounding of false doctrines and laying down of contentions, and establishing peace among the fruit of thy loins, and bringing them to the knowledge of their fathers in the latter days, and also to the knowledge of my covenants, saith the Lord.” ([[2 Nephi 3.12|2 Ne. 3:12]].)
+“Wherefore, the fruit of thy loins shall write; and the fruit of the loins of Judah shall write; and that which shall be written by the fruit of thy loins, and also that which shall be written by the fruit of the loins of Judah, shall grow together, unto the confounding of false doctrines and laying down of contentions, and establishing peace among the fruit of thy loins, and bringing them to the knowledge of their fathers in the latter days, and also to the knowledge of my covenants, saith the Lord.” ([[2 Nephi 3.12|2 Ne. 3:12]].)
 
 One footnote may seem a flimsy thread to tie the two together, but five of the ten footnotes lead us to headings in the Topical Guide where 611 other references broaden our knowledge of this one subject and speak as voices from the dust.
 
@@ -103,6 +103,4 @@ He lives. He is our Savior, our Redeemer, our Lord. Of Him I bear an apostolic w
 
 
 
-
-
-#Book_Of_Mormon #Scriptures
+#BookOfMormon #Scriptures

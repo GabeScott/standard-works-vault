@@ -1,6 +1,6 @@
 # Feed the Flock
 
-By Elder David B. Haight - *Assistant to the Council of the Twelve*
+By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -12,7 +12,7 @@ We had stopped at an Army post exchange. Soldiers were milling around, and one o
 
 Eugene Till, our mission president in Seoul, Korea, and Brent Anderson, one of our Latter-day Saint chaplains, were my companions as we traveled from the demilitarized zone to Pusan to visit our military bases. Meeting after meeting we talked to our servicemen, looked into their faces, shook their hands, and listened to their comments about their homes, their loved ones, and their home wards. Increasingly I began to feel some of the loneliness in their hearts. As I asked, “Are you hearing from your elders quorum? Does your family write often and encourage you to live the principles of the gospel?” the disappointment on their faces—and sometimes a cynical smile—gave me my answer. To the question “Does your bishop know you are here?” the reply was, “I don’t even think he cares. He is too busy to be concerned about me.” Of all those who attended our meetings—can you imagine—*only one* said he knew his ward leaders did care.
 
-As we drove from base to base, a kaleidoscope of these disappointed faces kept crossing my mind. “Feed the flock of God which is among you,” Peter admonished. ([[1 Peter 5.2|1 Pet. 5:2]].) A clear impression came to me that I was witnessing a needless neglect and that I must tell this story. This lack of interest at home for these young men is not the Lord’s plan, not the way he has taught us. Many of us are not responding to the Church direction, not responding to our charge to “\[teach\] them to observe all things whatsoever I have commanded you.” ([[Matthew 28.20|Matt. 28:20]].) This responsibility to teach and to encourage does not cease because they are out of sight; in fact, our interest must be intensified. Our concern is not for the career military Church member who, with his family, adds great strength to local Church units, but for the young men—mostly single, lonely, exposed to the evil enticements and temptations that can be part of military life.
+As we drove from base to base, a kaleidoscope of these disappointed faces kept crossing my mind. “Feed the flock of God which is among you,” Peter admonished. ([[1 Peter 5.2|1 Pet. 5:2]].) A clear impression came to me that I was witnessing a needless neglect and that I must tell this story. This lack of interest at home for these young men is not the Lord’s plan, not the way he has taught us. Many of us are not responding to the Church direction, not responding to our charge to “\[teach\] them to observe all things whatsoever I have commanded you.” ([[Matthew 28.20|Matt. 28:20]].) This responsibility to teach and to encourage does not cease because they are out of sight; in fact, our interest must be intensified. Our concern is not for the career military Church member who, with his family, adds great strength to local Church units, but for the young men—mostly single, lonely, exposed to the evil enticements and temptations that can be part of military life.
 
 There is a growing number without benefit of a mission or college disappearing into the military. The Selective Service has been discontinued. However, the armed forces are successful in recruiting. Your stake reports indicate we now have more in the military than in the mission field. Nearly 20,000 of your sons—and some daughters—are in the military service. President Kimball is asking for more full-time missionaries. Why shouldn’t parents, bishops, and elders presidents treat these 20,000 in the military as missionaries? You know they are—whether for good or not. You are their Church leaders and should be continually encouraging them. What a glorious opportunity. But you might say, “Oh, there is a difference!” Do you recall a modern prophet saying, “Every member a missionary”? Shouldn’t you give your son in the military this same attention? You have the obligation. Many thrilling missionary stories have involved our men in the military. At a base in Thailand, out of 18 members at our meeting, 11 had recently joined the Church, and two had converted their wives back home. These stories go on and on. Unfortunately, there are two sides.
 
@@ -30,7 +30,7 @@ A Latter-day Saint chaplain, whose office was near the mailroom, reported, “Da
 
 Another serviceman said, “During my 13 months in Southeast Asia, I heard from my sweetheart every day. During her busy days caring for our five children and attending school, she completed every day by writing me a letter. Think of it! Almost 400 days without a single miss!”
 
-One of your sons, who had received a tape from home, wrote, “I was holding my one-man sacrament meeting as usual—out under a tree—listening to Church tapes. Bruce R. McConkie’s voice was never this interesting back home. I’ve played him 50 times.”
+One of your sons, who had received a tape from home, wrote, “I was holding my one-man sacrament meeting as usual—out under a tree—listening to Church tapes. Bruce R. McConkie’s voice was never this interesting back home. I’ve played him 50 times.”
 
 We challenge parents, home teachers, elders quorum presidents, and bishops that from today you show your concern for these young people. Flood them with affection, letters, tapes, cards, packages, birthday and holiday greetings of all types. Give your Young Adults, teenagers, and others in your ward a stimulating project. Sixteen-year-old Debbie Trujillo wrote a serviceman, “Hi. My name is Debbie Trujillo, and I’ve just been baptized in the Church. I don’t know much about you, but our class is doing this project, and I think it’s neat.” The serviceman said, “I hope my reply can be as sweet and uplifting as her letter.”
 
@@ -43,8 +43,6 @@ He follows this parable with a similar one, “the Lost Coin.” Whereas the she
 Members of your family can be part of a real “lost battalion” *in urgent need of our help.* They hunger for what only you can give them. When you don’t supply it, they accept some devastating substitutes.
 
 I pray that as you close the drapes on each day, you will rest peacefully knowing, “The wind still whips the leaves, but the roots are down.” In the name of Jesus Christ. Amen.
-
-
 
 
 

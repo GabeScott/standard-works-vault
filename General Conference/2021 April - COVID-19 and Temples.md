@@ -1,6 +1,6 @@
 # COVID-19 and Temples
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -12,13 +12,13 @@ My beloved brothers and sisters, we have truly had a spiritual feast. How gratef
 
 Early last year, because of the COVID-19 pandemic and our desire to be good global citizens, we made the difficult decision to close all temples temporarily. During the ensuing months, we have felt inspired to reopen temples gradually through a very cautious approach. Temples are now being opened in four phases, adhering strictly to local government regulations and safety protocols.
 
-For temples in phase 1, qualified couples who have previously received their own endowments can be sealed as husband and wife.
+For temples in phase 1, qualified couples who have previously received their own endowments can be sealed as husband and wife.
 
-For temples in phase 2, all ordinances for the living are performed, including one’s own endowment, the sealing of husband and wife, and the sealing of children to parents. We have recently amended provisions of phase 2 and allow our youth, new members, and others with a limited-use recommend to participate in proxy baptisms for their ancestors.
+For temples in phase 2, all ordinances for the living are performed, including one’s own endowment, the sealing of husband and wife, and the sealing of children to parents. We have recently amended provisions of phase 2 and allow our youth, new members, and others with a limited-use recommend to participate in proxy baptisms for their ancestors.
 
-For temples in phase 3, those with scheduled appointments may participate not only in ordinances for the living but also in all proxy ordinances for deceased ancestors.
+For temples in phase 3, those with scheduled appointments may participate not only in ordinances for the living but also in all proxy ordinances for deceased ancestors.
 
-Phase 4 is a return to full, regular temple activity.
+Phase 4 is a return to full, regular temple activity.
 
 We are grateful for your patience and devoted service during this changing and challenging period. I pray that your desire to worship and serve in the temple burns more brightly now than ever.
 
@@ -39,6 +39,4 @@ As we close this conference, we again express our love for you. We pray that God
 
 
 
-
-
-#Blessings #Covenants #Temple_Work #Temples
+#Blessings #Covenants #Temples #TempleWork

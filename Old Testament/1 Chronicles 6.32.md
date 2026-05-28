@@ -5,7 +5,7 @@
 [1 Chronicles 6:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/6.32?lang=eng#p32)
 
 
-[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  
 [^b]: [[Ezekiel 40.44|Ezek. 40:44]].  
 [^c]: [[D&C 94.6|D&C 94:6]].  
 [^d]: [[Order|TG Order]].  

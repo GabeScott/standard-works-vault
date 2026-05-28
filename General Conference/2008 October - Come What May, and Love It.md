@@ -111,5 +111,6 @@ As we look for humor, seek for the eternal perspective, understand the principle
 
 [^2]: [[John 3.16|John 3:16]].
 
+[^3]: See [[Ether 12.27|Ether 12:27]].
 
 #Adversity #Humor #Joy #Justice #Perspective #Trust

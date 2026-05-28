@@ -76,11 +76,11 @@ Now is the time to adjust your lives to be able to have a temple recommend and u
 
 There are some who believe that because they have made mistakes, they can no longer fully partake of the blessings of the gospel. How little they understand the purposes of the Lord. One of the great blessings of living the gospel is that it refines us and helps us learn from our mistakes. We “all have sinned, and come short of the glory of God,”[^11] yet the Atonement of Jesus Christ has the power to make us whole when we repent.
 
-Our beloved friend Elder Joseph B. Wirthlin taught us this principle with clarity when he said:
+Our beloved friend Elder Joseph B. Wirthlin taught us this principle with clarity when he said:
 
 “Oh, it is wonderful to know that our Heavenly Father loves us—even with all our flaws! His love is such that even should we give up on ourselves, He never will.
 
-“We \[might\] see ourselves in terms of yesterday and today. Our Heavenly Father sees us in terms of forever. …
+“We \[might\] see ourselves in terms of yesterday and today. Our Heavenly Father sees us in terms of forever. …
 
 “The gospel of Jesus Christ is a gospel of transformation. It takes us as men and women of the earth and refines us into men and women for the eternities.”[^12]
 
@@ -119,8 +119,6 @@ I bear my solemn witness that Jesus the Christ lives. He is the Savior and Redee
 
 [^11]: [[Romans 3.23|Romans 3:23]].
 
-[^12]: Joseph B. Wirthlin, in Conference Report, Oct. 2007, 29; or *Ensign,* Nov. 2007, 29–30.
+[^12]: Joseph B. Wirthlin, in Conference Report, Oct. 2007, [[2007 October - The Great Commandment.md|29]]; or *Ensign,* Nov. 2007, 29–30.
 
-
-
-#Discipleship #Hope #Jesus_Christ #Patience
+#Discipleship #Hope #JesusChrist #Patience

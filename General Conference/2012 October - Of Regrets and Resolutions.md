@@ -1,6 +1,6 @@
 # Of Regrets and Resolutions
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -110,7 +110,7 @@ Do we listen to beautiful music waiting for the final note to fade before we all
 
 Do we say our prayers with only the “amen” or the end in mind? Of course not. We pray to be close to our Heavenly Father, to receive His Spirit and feel His love.
 
-We shouldn’t wait to be happy until we reach some future point, only to discover that happiness was already available—all the time! Life is not meant to be appreciated only in retrospect. “This is the day which the Lord hath made … ,” the Psalmist wrote. “Rejoice and be glad in it.”[^6]
+We shouldn’t wait to be happy until we reach some future point, only to discover that happiness was already available—all the time! Life is not meant to be appreciated only in retrospect. “This is the day which the Lord hath made … ,” the Psalmist wrote. “Rejoice and be glad in it.”[^6]
 
 Brothers and sisters, no matter our circumstances, no matter our challenges or trials, there is something in each day to embrace and cherish. There is something in each day that can bring gratitude and joy if only we will see and appreciate it.
 
@@ -147,7 +147,7 @@ The path toward fulfilling our divine destiny as sons and daughters of God is an
 
 [^1]: [[Alma 40.11|Alma 40:11]].
 
-[^2]: See Susie Steiner, “Top Five Regrets of the Dying,” *Guardian,* Feb. 1, 2012, www.guardian.co.uk/lifeandstyle/2012/feb/01/top-five-regrets-of-the-dying.
+[^2]: See Susie Steiner, “Top Five Regrets of the Dying,” *Guardian,* Feb. 1, 2012, www.guardian.co.uk/lifeandstyle/2012/feb/01/top-five-regrets-of-the-dying.
 
 [^3]: Bronnie Ware, in Steiner, “Top Five Regrets of the Dying.”
 
@@ -171,8 +171,6 @@ The path toward fulfilling our divine destiny as sons and daughters of God is an
 
 [^13]: See [[Psalms 24.4|Psalm 24:4]].
 
-[^14]: [[Mosiah 16.8|Mosiah 16:8]]; see also [[1 Corinthians 15.54|1 Corinthians 15:54]].
-
-
+[^14]: [[Mosiah 16.8|Mosiah 16:8]]; see also [[1 Corinthians 15.54|1 Corinthians 15:54]].
 
 #Discipleship #Joy #Priorities

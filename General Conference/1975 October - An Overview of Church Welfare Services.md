@@ -1,6 +1,6 @@
 # An Overview of Church Welfare Services
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -12,13 +12,13 @@ As you are aware, the Lord has established some type of welfare program in every
 
 In the October 1936 semiannual conference of the Church, the First Presidency announced the Church security plan. The name was later changed to the Church welfare plan. Since that time, the Church Welfare Department has developed and assigned to the stakes of the Church an annual commodity budget, supervised the production and distribution of commodities, encouraged the establishment of local production projects and bishops storehouses, supervised Church employment centers, and established Deseret Industries. In the course of these activities, members of the General Church Welfare Committee traveled to stakes and regions teaching the basic principles of Church welfare. President Romney did this for many years.
 
-During this period and even earlier, the Church continued to develop a variety of other services. In 1919, foster care and adoption were introduced under President Joseph F. Smith through the Relief Society. Indian student placement was introduced through President David O. McKay and Elder Spencer W. Kimball. It began in 1953. Services for those who had emotional and mental problems have been provided for many years and were formally organized in 1960. In 1969 these various programs were brought together under the direction of Elders Marion G. Romney and Marvin J. Ashton. In 1970, the Health Services Corporation was organized to administer a system of hospitals the Church had developed over many years. The Health Services Corporation was also given responsibility for the worldwide health needs of Church members. During these few years of consolidation, the Welfare Department continued basically unchanged.
+During this period and even earlier, the Church continued to develop a variety of other services. In 1919, foster care and adoption were introduced under President Joseph F. Smith through the Relief Society. Indian student placement was introduced through President David O. McKay and Elder Spencer W. Kimball. It began in 1953. Services for those who had emotional and mental problems have been provided for many years and were formally organized in 1960. In 1969 these various programs were brought together under the direction of Elders Marion G. Romney and Marvin J. Ashton. In 1970, the Health Services Corporation was organized to administer a system of hospitals the Church had developed over many years. The Health Services Corporation was also given responsibility for the worldwide health needs of Church members. During these few years of consolidation, the Welfare Department continued basically unchanged.
 
-In 1973 these three areas—Welfare Department, Social Services, and Health Services—were brought together in one organization. The First Presidency appointed the Presiding Bishopric to serve as chairmen of the General Welfare Services Committee. To more clearly describe the functions assigned to each of these departments, departmental names were modified. What was known as *the* Welfare Department is now called the Welfare Production-Distribution Department, headed by Brother R. Quinn Gardner. This department continues to be responsible for many of the economic aspects of Welfare Services.
+In 1973 these three areas—Welfare Department, Social Services, and Health Services—were brought together in one organization. The First Presidency appointed the Presiding Bishopric to serve as chairmen of the General Welfare Services Committee. To more clearly describe the functions assigned to each of these departments, departmental names were modified. What was known as *the* Welfare Department is now called the Welfare Production-Distribution Department, headed by Brother R. Quinn Gardner. This department continues to be responsible for many of the economic aspects of Welfare Services.
 
 Social Services is now part of Personal Welfare Services, with Brother Victor Brown, Jr., as director. This department is responsible essentially for the social-emotional aspects and for employment centers. Legally licensed agencies related to Personal Welfare Services continue to carry the name LDS Social Services.
 
-Health Services is now absorbed by Developing Welfare Services. This department is directed by Brother James O. Mason. Now that the Church no longer owns or operates hospitals, this department focuses attention on health needs worldwide; however, its major responsibility is to help priesthood and Relief Society leaders in developing areas of the world understand and prepare for the full Welfare Services program of the Church.
+Health Services is now absorbed by Developing Welfare Services. This department is directed by Brother James O. Mason. Now that the Church no longer owns or operates hospitals, this department focuses attention on health needs worldwide; however, its major responsibility is to help priesthood and Relief Society leaders in developing areas of the world understand and prepare for the full Welfare Services program of the Church.
 
 These, then, are the three departments that comprise Welfare Services: Production-Distribution, Personal Welfare, and Developing Welfare. The Presiding Bishopric, these three department heads, and the General Presidency of the Relief Society constitute the General Welfare Services Committee of the Church. We serve under the direction of the First Presidency.
 
@@ -64,7 +64,7 @@ Surely the personal welfare needs in this representative ward would be a stagger
 
 It is for this reason that we speak of family preparedness and ward preparedness. Family preparedness is the key to self-respect and self-reliance in personal welfare matters.
 
-In the Welfare Services session of conference held last April, Bishop H. Burke Peterson described family preparedness this way: “When we speak of family preparedness, we should speak of foreseen, anticipated, almost expected needs which can be met through wise preparation. Even true emergencies can be modified by good planning.” (*Welfare Services Meeting,* April 5, 1975, p. 5.)
+In the Welfare Services session of conference held last April, Bishop H. Burke Peterson described family preparedness this way: “When we speak of family preparedness, we should speak of foreseen, anticipated, almost expected needs which can be met through wise preparation. Even true emergencies can be modified by good planning.” (*Welfare Services Meeting,* April 5, 1975, p. 5.)
 
 Family preparedness is the key to meeting personal welfare needs for the members of the family. Every other aspect of Welfare Services, such as ward preparedness, is designed to support family preparedness.
 
@@ -72,7 +72,7 @@ As a part of family preparedness we would hope to see each individual and each f
 
 *Career development.* In the prepared family, the breadwinner has prepared himself for his chosen occupation. His children are preparing themselves for a satisfying and adequate vocation.
 
-*Financial management.* In the prepared family, the parents know and use the fundamentals of budgeting and financial management. Their children are being taught through practical experience these basic skills. May we refer you to Elder Marvin J. Ashton’s address on this subject given in last April’s Welfare Services meeting. (See “One for the Money,” *Ensign,* July 1975, p. 72.)
+*Financial management.* In the prepared family, the parents know and use the fundamentals of budgeting and financial management. Their children are being taught through practical experience these basic skills. May we refer you to Elder Marvin J. Ashton’s address on this subject given in last April’s Welfare Services meeting. (See “One for the Money,” *Ensign,* July 1975, p. 72.)
 
 *Home production and storage.* The prepared family has sufficient stores to take care of basic needs for a minimum of one year. Further, they are, where possible, actively involved in the growing, canning, and sewing, and production of their year’s supply.
 
@@ -121,6 +121,4 @@ I bear my witness that this is the gospel of Jesus Christ; that we have a stewar
 
 
 
-
-
-#Self-Reliance #Welfare
+#Self-reliance #Welfare

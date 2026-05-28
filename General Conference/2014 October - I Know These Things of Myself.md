@@ -1,6 +1,6 @@
 # I Know These Things of Myself
 
-By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
+By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -8,9 +8,9 @@ By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/i-know-these-things-of-myself?lang=eng)
 
-My dear brethren, we are continually inspired by the personal example and priesthood service of President Thomas S. Monson. Recently, several deacons were asked, “What do you admire most about President Monson?” One deacon recalled how President Monson, as a child, gave his toys to needy friends. Another mentioned how President Monson cared for the many widows in his ward. A third noted that he was called as an Apostle at a very young age and has blessed people all around the world. Then one young man said, “The thing I admire most about President Monson is his strong testimony.”
+My dear brethren, we are continually inspired by the personal example and priesthood service of President Thomas S. Monson. Recently, several deacons were asked, “What do you admire most about President Monson?” One deacon recalled how President Monson, as a child, gave his toys to needy friends. Another mentioned how President Monson cared for the many widows in his ward. A third noted that he was called as an Apostle at a very young age and has blessed people all around the world. Then one young man said, “The thing I admire most about President Monson is his strong testimony.”
 
-Indeed, we have all felt our prophet’s special witness of the Savior Jesus Christ and his commitment to always follow the promptings of the Spirit. With each experience he shares, President Monson invites us to live the gospel more fully and to seek for and strengthen our own personal testimonies. Remember what he said from this pulpit just a few conferences ago: “In order for us to be strong and to withstand all the forces pulling us in the wrong direction … , we must have our own testimony. Whether you are 12 or 112—or anywhere in between—you can know for yourself that the gospel of Jesus Christ is true.”[^1]
+Indeed, we have all felt our prophet’s special witness of the Savior Jesus Christ and his commitment to always follow the promptings of the Spirit. With each experience he shares, President Monson invites us to live the gospel more fully and to seek for and strengthen our own personal testimonies. Remember what he said from this pulpit just a few conferences ago: “In order for us to be strong and to withstand all the forces pulling us in the wrong direction … , we must have our own testimony. Whether you are 12 or 112—or anywhere in between—you can know for yourself that the gospel of Jesus Christ is true.”[^1]
 
 Although my message tonight is directed to those who are closer to 12 than 112, the principles I share apply to everyone. In response to President Monson’s statement, I would ask: Does each of us know for ourselves that the gospel is true? Can we say with confidence that our testimonies are truly our own? To quote President Monson again: “I maintain that a strong testimony of our Savior and of His gospel will … protect you from the sin and evil around you. … If you do not already have a testimony of these things, do that which is necessary to obtain one. It is essential for you to have your own testimony, for the testimonies of others will carry you only so far.”[^2]
 
@@ -59,9 +59,9 @@ Like the young deacon I spoke of earlier, I admire President Monson for his test
 
 
 
-[^1]: Thomas S. Monson, “Dare to Stand Alone,” *Ensign* or *Liahona,* Nov. 2011, 62.
+[^1]: Thomas S. Monson, “Dare to Stand Alone,” *Ensign* or *Liahona,* Nov. 2011, 62.
 
-[^2]: Thomas S. Monson, “Priesthood Power,” *Ensign* or *Liahona,* May 2011, 66.
+[^2]: Thomas S. Monson, “Priesthood Power,” *Ensign* or *Liahona,* May 2011, 66.
 
 [^3]: [[Alma 56.48|Alma 56:48]].
 
@@ -69,13 +69,13 @@ Like the young deacon I spoke of earlier, I admire President Monson for his test
 
 [^5]: [[Alma 5.45|Alma 5:45–46]][[Alma 5.46|]].
 
-[^6]: [[1 Nephi 2.16|1 Nephi 2:16]].
+[^6]: [[1 Nephi 2.16|1 Nephi 2:16]].
 
-[^7]: [[1 Nephi 10.17|1 Nephi 10:17]].
+[^7]: [[1 Nephi 10.17|1 Nephi 10:17]].
 
-[^8]: [[1 Nephi 11.1|1 Nephi 11:1–3]][[1 Nephi 11.2|]][[1 Nephi 11.3|]].
+[^8]: [[1 Nephi 11.1|1 Nephi 11:1–3]][[1 Nephi 11.2|]][[1 Nephi 11.3|]].
 
-[^9]: See [[1 Nephi 11.1|1 Nephi 11–14]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].
+[^9]: See [[1 Nephi 11.1|1 Nephi 11–14]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].
 
 [^10]: See [[Joseph Smith History 1.8|Joseph Smith—History 1:8–10]][[Joseph Smith History 1.9|]][[Joseph Smith History 1.10|]].
 
@@ -87,8 +87,6 @@ Like the young deacon I spoke of earlier, I admire President Monson for his test
 
 [^14]: [[Alma 32.41|Alma 32:41]].
 
-[^15]: Thomas S. Monson, *Ensign* or *Liahona,* Nov. 2011, 67.
+[^15]: Thomas S. Monson, *Ensign* or *Liahona,* Nov. 2011, 67.
 
-
-
-#Joseph_Smith #Testimony
+#JosephSmith #Testimony

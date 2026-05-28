@@ -18,7 +18,7 @@ I think of the many wonderful, faithful women who never have an opportunity to m
 
 I would like to use my own family as an illustration of what I have in mind. Mother and I were filling a mission together over in Holland when we had a little girl born to us, and after we had been home a few years she passed away. When she was born, my wife has told me over and over again that she felt she saw an angel bring that spirit to her. And yet she is gone. Then I think of her four sisters. You voted here today to sustain one of them as a counselor in the general presidency of the Relief Society. Her other three sisters are just as noble and wonderful, although their talents may be just a little different.
 
-When I think of this little one that we laid away when she was three-and-a-half years old, I thank God I have the faith to believe that God reigns in the heavens above and in the earth beneath and that this little one will ultimately enter into her glory and be equal to any of her four sisters who have tarried here upon this earth and raised their families. I thank God for the statement of the apostle Paul when he said that “If in this life only we have hope in Christ, we are of all men most miserable.” ([[1 Corinthians 15.19|1 Cor. 15:19]].) In this brief period of mortality, it would not be possible for God to accomplish for all of his children all that he has in mind for them, the ones that are true and faithful.
+When I think of this little one that we laid away when she was three-and-a-half years old, I thank God I have the faith to believe that God reigns in the heavens above and in the earth beneath and that this little one will ultimately enter into her glory and be equal to any of her four sisters who have tarried here upon this earth and raised their families. I thank God for the statement of the apostle Paul when he said that “If in this life only we have hope in Christ, we are of all men most miserable.” ([[1 Corinthians 15.19|1 Cor. 15:19]].) In this brief period of mortality, it would not be possible for God to accomplish for all of his children all that he has in mind for them, the ones that are true and faithful.
 
 I think of the statement of Moses as recorded in the Pearl of Great Price: “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) I wonder sometimes if we ever stop to analyze that statement. I think we can understand what “to bring to pass immortality” is, that we will never die after we come forth in the resurrection, as President Romney pointed out this morning. But what about eternal life? As I interpret this, I find in it the feeling that all that God has ultimately planned for his children who are faithful and true shall come to them in his own due time.
 
@@ -26,7 +26,7 @@ We read in the Book of Mormon that we are not all born at the same time (and tha
 
 Then I think of the statement of the Lord to the Prophet Joseph Smith when he said: “The works, and the designs, and the purposes of God cannot be frustrated, neither can they come to naught.” ([[D&C 3.1|D&C 3:1]].) In other words, no one can stand in the way of God achieving what he has decreed for his children. Then a further statement in the Doctrine & Covenants where the Lord said: “His purposes fail not, neither are there any who can stay his hand. From eternity to eternity he is the same.” ([[D&C 76.3|D&C 76:3–4]][[D&C 76.4|]].)
 
-Then there are the words of the Lord to the prophet Nephi when he said: “For my work is not yet finished; neither shall it be until the end of man, neither from that time henceforth and forever.” ([[2 Nephi 29.9|2 Ne. 29:9]].) Now that should enable us to comprehend and realize that there will never be a time when God will cease to do his work to bring to pass, as we read in the Pearl of Great Price, the glory that will be added upon their heads forever and ever.
+Then there are the words of the Lord to the prophet Nephi when he said: “For my work is not yet finished; neither shall it be until the end of man, neither from that time henceforth and forever.” ([[2 Nephi 29.9|2 Ne. 29:9]].) Now that should enable us to comprehend and realize that there will never be a time when God will cease to do his work to bring to pass, as we read in the Pearl of Great Price, the glory that will be added upon their heads forever and ever.
 
 Coming back to our family, we had four daughters before we got a boy and he grew into beautiful young manhood; we lost him in an accident down at the beach in California while I was the president of the stake there. He was just turning 16 and he stood as tall as his father, and to think now of his own brothers who are here: they have their families, and one of them has just been serving as one of the Regional Representatives of the Twelve. I can’t believe that boy will come out any less exalted in the eternities that are to come than his brothers who have lived here in mortality. When he died, the principal of the high school came to our home (and he was not a member of the Church) and told Sister Richards that our son was the best boy he had ever had in his school, and we felt that, too, as he grew into manhood.
 
@@ -44,7 +44,7 @@ Coming back, then, to the family, I think of my wife’s sister who died here a 
 
 So I thank God for the thousand years of the millennial reign. My, what a lot of work needs to be done during that period! I can’t take time to tell you much about that, but I think of the words of Isaiah. He had a glimpse of it. He saw the day when we would have a new heaven and a new earth, when the wolf and the lion would lie down together, and the lion would eat straw like the ox. His people should build houses and inhabit them, and should plant vineyards and eat the fruit thereof. They should not build and another inhabit. They should not plant and another eat, for every man would enjoy the work of his own hands. (See [[Isaiah 65.17|Isa. 65:17–25]][[Isaiah 65.18|]][[Isaiah 65.19|]][[Isaiah 65.20|]][[Isaiah 65.21|]][[Isaiah 65.22|]][[Isaiah 65.23|]][[Isaiah 65.24|]][[Isaiah 65.25|]] and [[Isaiah 11.6|11:6–9]][[Isaiah 11.7|]][[Isaiah 11.8|]][[Isaiah 11.9|]].) Then he adds: “For they are the seed of the blessed of the Lord, and their offspring with them.” ([[Isaiah 65.23|Isa. 65:23]].) That sounds like a continuation of the family, doesn’t it?
 
-Then I thank God for the statement of the apostle Paul when he said: “Neither is the man without the woman, neither the woman without the man, in the Lord.” ([[1 Corinthians 11.11|1 Cor. 11:11]].) That being true, the Lord must have a plan so that these children can ultimately enjoy that great blessing.
+Then I thank God for the statement of the apostle Paul when he said: “Neither is the man without the woman, neither the woman without the man, in the Lord.” ([[1 Corinthians 11.11|1 Cor. 11:11]].) That being true, the Lord must have a plan so that these children can ultimately enjoy that great blessing.
 
 I will now read you a statement from the Lord regarding this millennial reign. He said:
 
@@ -62,7 +62,7 @@ I want to read you one more statement of the Lord to the Prophet Joseph:
 
 “For the Lord shall be in their midst, and his glory shall be upon them, and he will be their king and their lawgiver.” ([[D&C 45.58|D&C 45:58–59]][[D&C 45.59|]].)
 
-Then I think of the revelation concerning those who will inherit the celestial kingdom, and the Lord said: “… which glory shall be a fulness and a continuation of the seeds forever and ever.” ([[D&C 132.19|D&C 132:19]].)
+Then I think of the revelation concerning those who will inherit the celestial kingdom, and the Lord said: “… which glory shall be a fulness and a continuation of the seeds forever and ever.” ([[D&C 132.19|D&C 132:19]].)
 
 And so I expect some day to see the bride that my son has selected over there in the spirit world. If he can find one as noble as his little niece I have mentioned (my granddaughter), just think what a glorious day that will be. In order to properly understand this, I would like to read a couple of statements: one from President Brigham Young about what will happen during the Millennium, and one from President Wilford Woodruff.
 
@@ -70,11 +70,9 @@ President Young said: “To accomplish this work there will have to be not only 
 
 Then the Prophet Wilford Woodruff said: “When the Savior comes, a thousand years will be devoted to this work of redemption and temples will appear all over this land of Joseph—North and South America—and also in Europe and elsewhere.” (*JD* 19:230.)
 
-I close my remarks today with my faith that the Lord knows what he is doing and he has prepared a plan so that those who have gone before will not suffer. I therefore conclude with the words of the apostle Paul, who was caught up into the third heaven and paradise of God, and he saw things he was not permitted to write. But he did say: “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].) That is my faith in my God, and I leave you my blessing in the name of the Lord, Jesus Christ. Amen.
+I close my remarks today with my faith that the Lord knows what he is doing and he has prepared a plan so that those who have gone before will not suffer. I therefore conclude with the words of the apostle Paul, who was caught up into the third heaven and paradise of God, and he saw things he was not permitted to write. But he did say: “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].) That is my faith in my God, and I leave you my blessing in the name of the Lord, Jesus Christ. Amen.
 
 
 
 
-
-
-#Death #Jesus_Christ
+#Death #JesusChrist

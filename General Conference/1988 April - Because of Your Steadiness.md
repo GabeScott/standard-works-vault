@@ -34,7 +34,7 @@ Let’s agree that we’ll both prepare the lesson. But I think they have such r
 
 First, the Holy Ghost can’t be with us unless we’re clean. I admire the way you try to watch what you say and do, even what you think. I guess when the Lord tells us to watch over the Church, that means watching over ourselves too. Let’s read this quotation from President George Q. Cannon I keep handy. And let’s agree that we’ll try to follow it:
 
-“Some people have an idea that because they have entered the waters of baptism and repented of their sins then that is an end of it. What a mistake! We need to have this spirit of repentance continually; we need to pray to God to show us our conduct every day. Every night before we retire to rest we should review the thoughts, words, and acts of the day and then repent of everything we have done that is wrong or that has grieved the Holy Spirit. Live this way every day and endeavor to progress every day” (*Gospel Truth,* Jerreld L. Newquist, ed., Salt Lake City: Deseret Book Co., 1987, p. 129).
+“Some people have an idea that because they have entered the waters of baptism and repented of their sins then that is an end of it. What a mistake! We need to have this spirit of repentance continually; we need to pray to God to show us our conduct every day. Every night before we retire to rest we should review the thoughts, words, and acts of the day and then repent of everything we have done that is wrong or that has grieved the Holy Spirit. Live this way every day and endeavor to progress every day” (*Gospel Truth,* Jerreld L. Newquist, ed., Salt Lake City: Deseret Book Co., 1987, p. 129).
 
 Second, let’s pray both for forgiveness and to get answers about what to do for the family. It would help if, when we go, we tell them that the Holy Ghost can guide them; it has already guided us to do something for them. If we pray and then feel that prompting and act on it, what we do may be more important than anything we say. Maybe our finding out how to help them will lead them to find out what more they can do for their son.
 
@@ -67,6 +67,4 @@ I bear testimony that in time and in eternity God will bless our steadiness as w
 
 
 
-
-
-#Dedication #Home_Teaching
+#Dedication #HomeTeaching

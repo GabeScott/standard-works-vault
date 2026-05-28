@@ -1,4 +1,3 @@
 # Obstacles
 
-
-*See* [[Adversity.md|Adversity]]; [[Opposition.md|Opposition]]
+*See also* [[Adversity.md|Adversity]]; [[Opposition.md|Opposition]]

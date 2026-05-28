@@ -1,11 +1,10 @@
 # Mocking, Mock, Mocker, Mockery
 
-
-*See also* [[Persecution, Persecute.md|Persecution]]; [[Profanity.md|Profanity]]
+*See also* [[Persecution.md|Persecution]]; [[Profanity.md|Profanity]]
 
 he seemed as one that *mocked* unto his sons in law, [[Genesis 19.14|Genesis 19:14]].
 
-Sarah saw the son of Hagar ... *mocking*, [[Genesis 21.9|Genesis 21:9]].
+Sarah saw the son of Hagar … *mocking*, [[Genesis 21.9|Genesis 21:9]].
 
 he hath brought in an Hebrew unto us to *mock* us, [[Genesis 39.14|Genesis 39:14]].
 
@@ -39,13 +38,13 @@ the chief priests *mocking* him, [[Matthew 27.41|Matthew 27:41]] ([[Mark 15.31|M
 
 they shall *mock* him, [[Mark 10.34|Mark 10:34]] ([[Luke 18.32|Luke 18:32]]; [[1 Nephi 1.19|1 Nephi 1:19]]).
 
-they had *mocked* him ... and led him out to crucify him, [[Mark 15.20|Mark 15:20]].
+they had *mocked* him … and led him out to crucify him, [[Mark 15.20|Mark 15:20]].
 
-Lest ... all that behold it begin to *mock* him, [[Luke 14.29|Luke 14:29]].
+Lest … all that behold it begin to *mock* him, [[Luke 14.29|Luke 14:29]].
 
 men that held Jesus *mocked* him, [[Luke 22.63|Luke 22:63]].
 
-Herod with his men of war ... *mocked* him, [[Luke 23.11|Luke 23:11]].
+Herod with his men of war … *mocked* him, [[Luke 23.11|Luke 23:11]].
 
 soldiers also *mocked* him, [[Luke 23.36|Luke 23:36]].
 
@@ -81,4 +80,4 @@ calamity shall cover the *mocker*, [[D&C 45.50|D&C 45:50]].
 
 Lord, am not to be *mocked* in the last days, [[D&C 63.58|D&C 63:58]] ([[D&C 104.6|D&C 104:6]]).
 
-Lord ... cannot be *mocked* in any of these things, [[D&C 124.71|D&C 124:71]].
+Lord … cannot be *mocked* in any of these things, [[D&C 124.71|D&C 124:71]].

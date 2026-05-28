@@ -1,6 +1,6 @@
 # A Child’s Guiding Gift
 
-By Mary R. Durham - *Recently Released Second Counselor in the Primary General Presidency*
+By Mary R. Durham - *Recently Released Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -28,15 +28,15 @@ An answer comes when we recognize this divine source of strength. It is a source
 
 At age eight, children can experience baptism. They learn about and make a covenant with God. Those they love surround them as they are immersed and come out of the font with a feeling of great joy. Then they receive the unspeakable gift of the Holy Ghost, a gift that may guide them constantly as they live for that blessing.
 
-Elder David A. Bednar said: “The simplicity of \[confirmation\] may cause us to overlook its significance. These four words—‘Receive the Holy Ghost’—are not a passive pronouncement; rather, they constitute a priesthood injunction—an authoritative admonition to act and not simply to be acted upon.”[^3]
+Elder David A. Bednar said: “The simplicity of \[confirmation\] may cause us to overlook its significance. These four words—‘Receive the Holy Ghost’—are not a passive pronouncement; rather, they constitute a priesthood injunction—an authoritative admonition to act and not simply to be acted upon.”[^3]
 
 Children have a natural desire to do good and to be good. We can feel their innocence, their purity. They also have a great sensitivity to the still, small voice.
 
-In [[3 Nephi 26.1|3 Nephi 26]][[3 Nephi 26.2|]][[3 Nephi 26.3|]][[3 Nephi 26.4|]][[3 Nephi 26.5|]][[3 Nephi 26.6|]][[3 Nephi 26.7|]][[3 Nephi 26.8|]][[3 Nephi 26.9|]][[3 Nephi 26.10|]][[3 Nephi 26.11|]][[3 Nephi 26.12|]][[3 Nephi 26.13|]][[3 Nephi 26.14|]][[3 Nephi 26.15|]][[3 Nephi 26.16|]][[3 Nephi 26.17|]][[3 Nephi 26.18|]][[3 Nephi 26.19|]][[3 Nephi 26.20|]][[3 Nephi 26.21|]], the Savior showed us the spiritual capacity of children:
+In [[3 Nephi 26.1|3 Nephi 26]][[3 Nephi 26.2|]][[3 Nephi 26.3|]][[3 Nephi 26.4|]][[3 Nephi 26.5|]][[3 Nephi 26.6|]][[3 Nephi 26.7|]][[3 Nephi 26.8|]][[3 Nephi 26.9|]][[3 Nephi 26.10|]][[3 Nephi 26.11|]][[3 Nephi 26.12|]][[3 Nephi 26.13|]][[3 Nephi 26.14|]][[3 Nephi 26.15|]][[3 Nephi 26.16|]][[3 Nephi 26.17|]][[3 Nephi 26.18|]][[3 Nephi 26.19|]][[3 Nephi 26.20|]][[3 Nephi 26.21|]], the Savior showed us the spiritual capacity of children:
 
-“He did loose their tongues, and they did speak unto their fathers great and marvelous things, even greater than he had revealed unto the people. …
+“He did loose their tongues, and they did speak unto their fathers great and marvelous things, even greater than he had revealed unto the people. …
 
-“… They both saw and heard these children; yea, even babes did open their mouths and utter marvelous things.”[^4]
+“… They both saw and heard these children; yea, even babes did open their mouths and utter marvelous things.”[^4]
 
 How do we as parents increase the spiritual capacity of our little ones? How do we teach them to kick off worldly influences and trust the Spirit when we are not with them and they are alone in the deep waters of their lives?
 
@@ -62,35 +62,33 @@ Samuel was beginning to feel, recognize, and hearken to the Lord’s voice. But 
 
 Another mother shared an experience of helping her children learn to recognize the Spirit. “Sometimes,” she wrote, “\[children\] don’t realize that a recurring thought, a feeling of comfort after they cry, or remembering something at just the right time are all ways that the Holy Ghost communicates \[with them\].” She continues, “I’m teaching my \[children\] to focus on what they feel \[and act on it\].”[^10]
 
-Feeling and recognizing the Spirit will bring spiritual capacity into our children’s lives, and the voice they come to know will become clearer and clearer to them. It will be as Elder Richard G. Scott said: “As you gain experience and success in being guided by the Spirit, your confidence in the impressions you feel can become more certain than your dependence on what you see or hear.”[^11]
+Feeling and recognizing the Spirit will bring spiritual capacity into our children’s lives, and the voice they come to know will become clearer and clearer to them. It will be as Elder Richard G. Scott said: “As you gain experience and success in being guided by the Spirit, your confidence in the impressions you feel can become more certain than your dependence on what you see or hear.”[^11]
 
 We need not fear as we see our children enter the waters of life, for we have helped them rid themselves of worldly weight. We have taught them to live for the guiding gift of the Spirit. This gift will continue to lighten the weight they carry and lead them back to their heavenly home if they live for it and follow its promptings. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Joseph B. Wirthlin, “[[2003 April - The Unspeakable Gift.md|The Unspeakable Gift]],” *Ensign* or *Liahona,* May 2003, 27.
+[^1]: Joseph B. Wirthlin, “[[2003 April - The Unspeakable Gift.md|The Unspeakable Gift]],” *Ensign* or *Liahona,* May 2003, 27.
 
 [^2]: [[Hebrews 12.1|Hebrews 12:1]].
 
-[^3]: David A. Bednar, “[[2010 October - Receive the Holy Ghost.md|Receive the Holy Ghost]],” *Ensign* or *Liahona,* Nov. 2010, 95.
+[^3]: David A. Bednar, “[[2010 October - Receive the Holy Ghost.md|Receive the Holy Ghost]],” *Ensign* or *Liahona,* Nov. 2010, 95.
 
-[^4]: [[3 Nephi 26.14|3 Nephi 26:14, 16]][[3 Nephi 26.16|]].
+[^4]: [[3 Nephi 26.14|3 Nephi 26:14, 16]][[3 Nephi 26.16|]].
 
-[^5]: See [[1 Samuel 3.4|1 Samuel 3:4–10]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]].
+[^5]: See [[1 Samuel 3.4|1 Samuel 3:4–10]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]].
 
-[^6]: C. Terry and Susan L. Warner, “[Helping Children Hear the Still, Small Voice](https://churchofjesuschrist.org/study/ensign/1994/03/helping-children-hear-the-still-small-voice?lang=eng),” *Ensign,* Mar. 1994, 19; *Tambuli,* Aug. 1994, 27.
+[^6]: C. Terry and Susan L. Warner, “[Helping Children Hear the Still, Small Voice](https://www.churchofjesuschrist.org/study/ensign/1994/03/helping-children-hear-the-still-small-voice?lang=eng),” *Ensign,* Mar. 1994, 19; *Tambuli,* Aug. 1994, 27.
 
 [^7]: [[Deuteronomy 6.7|Deuteronomy 6:7]].
 
 [^8]: Joseph Smith, in *History of the Church,* 3:392.
 
-[^9]: See Merrilee Browne Boyack, “[Helping Children Recognize the Holy Ghost](https://churchofjesuschrist.org/study/liahona/2013/12/helping-children-recognize-the-holy-ghost?lang=eng),” *Ensign* or *Liahona,* Dec. 2013, 10–12.
+[^9]: See Merrilee Browne Boyack, “[Helping Children Recognize the Holy Ghost](https://www.churchofjesuschrist.org/study/liahona/2013/12/helping-children-recognize-the-holy-ghost?lang=eng),” *Ensign* or *Liahona,* Dec. 2013, 10–12.
 
-[^10]: Irinna Danielson, “[How to Answer the Toughest ‘Whys’ of Life](https://www.lds.org/blog/how-to-answer-the-toughest-whys-of-life),” Oct. 30, 2015, lds.org/blog.
+[^10]: Irinna Danielson, “[How to Answer the Toughest ‘Whys’ of Life](https://www.lds.org/blog/how-to-answer-the-toughest-whys-of-life),” Oct. 30, 2015, lds.org/blog.
 
-[^11]: Richard G. Scott, “[[2009 October - To Acquire Spiritual Guidance.md|To Acquire Spiritual Guidance]],” *Ensign* or *Liahona,* Nov. 2009, 7.
+[^11]: Richard G. Scott, “[[2009 October - To Acquire Spiritual Guidance.md|To Acquire Spiritual Guidance]],” *Ensign* or *Liahona,* Nov. 2009, 7.
 
-
-
-#Baptism #Children #Covenants #Holy_Ghost #Teaching
+#Baptism #Children #Covenants #HolyGhost #Teaching

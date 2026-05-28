@@ -163,5 +163,6 @@ It was an appropriate season of the year for our visit together, when all Christ
 
 [^10]: [[Luke 15.32|Luke 15:32]].
 
+[^11]: [[Ecclesiastes 11.1|Eccl. 11:1]].
 
-#Activation #Endurance #Missionary_Work #Service
+#Activation #Endurance #MissionaryWork #Service

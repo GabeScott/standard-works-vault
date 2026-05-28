@@ -2,7 +2,7 @@
 
 ([[John 17.3|John 17:3]])
 
-By Elder Jonathan S. Schmitt - *Of the Seventy*
+By Elder Jonathan S. Schmitt - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -24,7 +24,7 @@ In some cases, Jesus gave His disciples new names that were indicative of their 
 
 Just as Jesus knows each of us by name, one way we can come to better know Jesus is by learning His many names. Like the names of Israel and Peter, many of Jesus’s names are titles that help us understand His mission, purpose, character, and attributes. As we come to know Jesus’s many names, we will come to better understand His divine mission and His selfless character. Knowing His many names also inspires us to become more like Him—to develop Christlike attributes that bring joy and purpose to our lives.
 
-A few years ago, President Russell M. Nelson studied all the scriptures concerning Jesus Christ in the Topical Guide.[^10] He then invited young adults to study these same scriptures. Concerning Jesus’s many names, President Nelson said, “Study everything Jesus Christ *is* by prayerfully and vigorously seeking to understand what each of His various titles and names means *personally* for you.”[^11]
+A few years ago, President Russell M. Nelson studied all the scriptures concerning Jesus Christ in the Topical Guide.[^10] He then invited young adults to study these same scriptures. Concerning Jesus’s many names, President Nelson said, “Study everything Jesus Christ *is* by prayerfully and vigorously seeking to understand what each of His various titles and names means *personally* for you.”[^11]
 
 Following President Nelson’s invitation, I began developing my own list of Jesus’s many names. My personal list now has over 300 names, and I’m sure there are many more that I haven’t discovered yet.
 
@@ -51,7 +51,7 @@ With all my heart, I bear witness of Jesus Christ—that He lives, that He loves
 
 [^1]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^2]: [[John 17.3|John 17:3]]; emphasis added. Concerning this prayer, President David O. McKay taught: “This text is taken from one of the most glorious prayers—I suppose the greatest prayer—ever uttered in this world, not excepting the Lord’s Prayer. This was Christ’s prayer uttered just before he entered the Garden of Gethsemane on the night of his betrayal. … I know of no more important chapter in the Bible” (in Conference Report, Oct. 1967, 5).
+[^2]: [[John 17.3|John 17:3]]; emphasis added. Concerning this prayer, President David O. McKay taught: “This text is taken from one of the most glorious prayers—I suppose the greatest prayer—ever uttered in this world, not excepting the Lord’s Prayer. This was Christ’s prayer uttered just before he entered the Garden of Gethsemane on the night of his betrayal. … I know of no more important chapter in the Bible” (in Conference Report, Oct. 1967, 5).
 
 [^3]: Dale Carnegie, *How to Win Friends and Influence People*, rev. ed. (1981), 83.
 
@@ -61,19 +61,19 @@ With all my heart, I bear witness of Jesus Christ—that He lives, that He loves
 
 [^6]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-[^7]: Bible Dictionary, “[Israel](https://churchofjesuschrist.org/study/scriptures/bd/israel?lang=eng).”
+[^7]: Bible Dictionary, “[[BD Israel|Israel]].”
 
 [^8]: [[Mark 3.17|Mark 3:17]].
 
 [^9]: See [[Luke 6.14|Luke 6:14]]; [[John 1.42|John 1:42]].
 
-[^10]: See Russell M. Nelson, “[I Studied More Than 2,200 Scriptures about the Savior in Six Weeks: Here Is a Little of What I Learned](https://www.churchofjesuschrist.org/inspiration/i-studied-more-than-2-200-scriptures-about-the-savior-in-six-weeks-here-is-a-little-of-what-i-learned),” *Inspiration* (blog), Feb. 28, 2017, ChurchofJesusChrist.org. Following this experience, President Nelson exclaimed, “I am a different man!” (“[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 39).
+[^10]: See Russell M. Nelson, “[I Studied More Than 2,200 Scriptures about the Savior in Six Weeks: Here Is a Little of What I Learned](https://www.churchofjesuschrist.org/inspiration/i-studied-more-than-2-200-scriptures-about-the-savior-in-six-weeks-here-is-a-little-of-what-i-learned),” *Inspiration* (blog), Feb. 28, 2017, ChurchofJesusChrist.org. Following this experience, President Nelson exclaimed, “I am a different man!” (“[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 39).
 
-[^11]: Russell M. Nelson, “[Prophets, Leadership, and Divine Law](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults-an-evening-with-president-nelson/2017/01/prophets-leadership-and-divine-law?lang=eng&id=p49#p49)” (worldwide devotional for young adults, Jan. 8, 2017), broadcasts.ChurchofJesusChrist.org.
+[^11]: Russell M. Nelson, “[Prophets, Leadership, and Divine Law](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults-an-evening-with-president-nelson/2017/01/prophets-leadership-and-divine-law?lang=eng&id=p49#p49)” (worldwide devotional for young adults, Jan. 8, 2017), broadcasts.ChurchofJesusChrist.org.
 
 [^12]: For example, Jesus is Messiah, the Christ, Great Jehovah, the Firstborn from the Dead, and the Only Begotten Son of God.
 
-[^13]: In addition to President Nelson’s invitation to study the scriptures concerning Jesus in the Topical Guide, you can also study Jesus’s many names by referring to the Bible Dictionary under “[Christ, names of](https://churchofjesuschrist.org/study/scriptures/bd/christ-names-of?lang=eng).” You may also wish to study Elder Jeffrey R. Holland’s book *Witness for His Names* (2019) and a devotional talk by Elder Ronald A. Rasband titled “[Name above All Names](https://speeches.byuh.edu/devotionals/name-above-all-names)” (Brigham Young University–Hawaii devotional, Oct. 20, 2020), speeches.byuh.edu.
+[^13]: In addition to President Nelson’s invitation to study the scriptures concerning Jesus in the Topical Guide, you can also study Jesus’s many names by referring to the Bible Dictionary under “[[BD Christ Names Of|Christ, names of]].” You may also wish to study Elder Jeffrey R. Holland’s book *Witness for His Names* (2019) and a devotional talk by Elder Ronald A. Rasband titled “[Name above All Names](https://speeches.byuh.edu/devotionals/name-above-all-names)” (Brigham Young University–Hawaii devotional, Oct. 20, 2020), speeches.byuh.edu.
 
 [^14]: See [[John 10.11|John 10:11]].
 
@@ -81,43 +81,43 @@ With all my heart, I bear witness of Jesus Christ—that He lives, that He loves
 
 [^16]: [[John 10.3|John 10:3]].
 
-[^17]: See [[John 10.11|John 10:11–15]][[John 10.12|]][[John 10.13|]][[John 10.14|]][[John 10.15|]]; [[1 Nephi 11.31|1 Nephi 11:31–33]][[1 Nephi 11.32|]][[1 Nephi 11.33|]].
+[^17]: See [[John 10.11|John 10:11–15]][[John 10.12|]][[John 10.13|]][[John 10.14|]][[John 10.15|]]; [[1 Nephi 11.31|1 Nephi 11:31–33]][[1 Nephi 11.32|]][[1 Nephi 11.33|]].
 
 [^18]: See [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].
 
 [^19]: I particularly like the Joseph Smith Translation of [[Luke 15.4|Luke 15:4]], which reads, “What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine *and go into the wilderness after that which is lost*, until he find it?” (in [[Luke 15.4|Luke 15:4]], footnote *a*, emphasis added).
 
-[^20]: As Elder David A. Bednar observed: “Everybody thinks a text is enough \[for ministering\]. There are occasions where you need to be in the home and you need to look the people in the eyes, because you’re going to receive impressions and inspiration in the home that you’ll never get any other way” (“[An Evening with Elder David A. Bednar](https://churchofjesuschrist.org/study/broadcasts/an-evening-with-the-general-authorities/2020/02/bednar-full?lang=eng)” \[broadcast for religious educators\], Feb. 7, 2020\], broadcasts.ChurchofJesusChrist.org).
+[^20]: As Elder David A. Bednar observed: “Everybody thinks a text is enough \[for ministering\]. There are occasions where you need to be in the home and you need to look the people in the eyes, because you’re going to receive impressions and inspiration in the home that you’ll never get any other way” (“[An Evening with Elder David A. Bednar](https://www.churchofjesuschrist.org/study/broadcasts/an-evening-with-the-general-authorities/2020/02/bednar-full?lang=eng)” \[broadcast for religious educators\], Feb. 7, 2020\], broadcasts.ChurchofJesusChrist.org).
 
 [^21]: See [[Hebrews 9.11|Hebrews 9:11]].
 
 [^22]: [[John 16.33|John 16:33]].
 
-[^23]: See Jeffrey R. Holland, “[‘Remember Lot’s Wife’: Faith Is for the Future](https://speeches.byu.edu/talks/jeffrey-r-holland/remember-lots-wife)” (Brigham Young University devotional, Jan. 13, 2009), 2, speeches.byu.edu. “*Faith is always pointed toward the future.* Faith always has to do with blessings and truths and events that will *yet* be efficacious in our lives.”
+[^23]: See Jeffrey R. Holland, “[‘Remember Lot’s Wife’: Faith Is for the Future](https://speeches.byu.edu/talks/jeffrey-r-holland/remember-lots-wife)” (Brigham Young University devotional, Jan. 13, 2009), 2, speeches.byu.edu. “*Faith is always pointed toward the future.* Faith always has to do with blessings and truths and events that will *yet* be efficacious in our lives.”
 
-[^24]: See [[Matthew 9.2|Matthew 9:2]]; [[Mark 6.50|Mark 6:50]]; [[John 16.33|John 16:33]]; [[3 Nephi 1.13|3 Nephi 1:13]]; [[D&C 61.36|Doctrine and Covenants 61:36]].
+[^24]: See [[Matthew 9.2|Matthew 9:2]]; [[Mark 6.50|Mark 6:50]]; [[John 16.33|John 16:33]]; [[3 Nephi 1.13|3 Nephi 1:13]]; [[D&C 61.36|Doctrine and Covenants 61:36]].
 
-[^25]: See [[Hebrews 13.8|Hebrews 13:8]]; see also Bible Dictionary, “[Christ, names of](https://churchofjesuschrist.org/study/scriptures/bd/christ-names-of?lang=eng).”
+[^25]: See [[Hebrews 13.8|Hebrews 13:8]]; see also Bible Dictionary, “[[BD Christ Names Of|Christ, names of]].”
 
 [^26]: See [[John 8.29|John 8:29]].
 
-[^27]: See [[Alma 5.33|Alma 5:33]]; [[Alma 19.36|19:36]]; [[3 Nephi 9.14|3 Nephi 9:14]].
+[^27]: See [[Alma 5.33|Alma 5:33]]; [[Alma 19.36|19:36]]; [[3 Nephi 9.14|3 Nephi 9:14]].
 
-[^28]: See, for example, David A. Bednar, “[[2009 October - More Diligent and Concerned at Home.md|More Diligent and Concerned at Home]],” *Ensign* or *Liahona*, Nov. 2009, 20: “Consistency is a key principle as we lay the foundation of a great work in our individual lives. … We need to be and become more consistent.”
+[^28]: See, for example, David A. Bednar, “[[2009 October - More Diligent and Concerned at Home.md|More Diligent and Concerned at Home]],” *Ensign* or *Liahona*, Nov. 2009, 20: “Consistency is a key principle as we lay the foundation of a great work in our individual lives. … We need to be and become more consistent.”
 
 [^29]: See [[Ephesians 4.14|Ephesians 4:14]].
 
 [^30]: See [[Mosiah 5.15|Mosiah 5:15]].
 
-[^31]: Russell M. Nelson, “[[2021 October - Make Time for the Lord.md|Make Time for the Lord]],” *Liahona*, Nov. 2021, 120.
+[^31]: Russell M. Nelson, “[[2021 October - Make Time for the Lord.md|Make Time for the Lord]],” *Liahona*, Nov. 2021, 120.
 
 [^32]: See [[Alma 37.6|Alma 37:6]].
 
-[^33]: This is a phrase that President Dallin H. Oaks has repeated several times in his ministry. See, for example, “[YSA Face to Face with Elder Oaks and Elder Ballard](https://www.churchofjesuschrist.org/media/video/2017-10-2000-ysa-face-to-face-with-elder-oaks-and-elder-ballard)” (broadcast for young single adults, Nov. 19, 2017), ChurchofJesusChrist.org.
+[^33]: This is a phrase that President Dallin H. Oaks has repeated several times in his ministry. See, for example, “[YSA Face to Face with Elder Oaks and Elder Ballard](https://www.churchofjesuschrist.org/media/video/2017-10-2000-ysa-face-to-face-with-elder-oaks-and-elder-ballard)” (broadcast for young single adults, Nov. 19, 2017), ChurchofJesusChrist.org.
 
-[^34]: See [[2 Nephi 9.18|2 Nephi 9:18–19, 41]][[2 Nephi 9.19|]][[2 Nephi 9.41|]].
+[^34]: See [[2 Nephi 9.18|2 Nephi 9:18–19, 41]][[2 Nephi 9.19|]][[2 Nephi 9.41|]].
 
-[^35]: In a recent worldwide devotional for young adults, Sister Wendy Nelson posed a question that she said could change lives, increase confidence and decrease anxiety, motivate, increase gratitude and decrease stress, help resist temptation, and bring joy, comfort, love, and peace. That question was “What would a holy young adult do?” She then encouraged application of this question in just one situation each day for three successive days. See “[One Question That Can Change Your Life](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/11nelson?lang=eng&id=p20#p20)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
+[^35]: In a recent worldwide devotional for young adults, Sister Wendy Nelson posed a question that she said could change lives, increase confidence and decrease anxiety, motivate, increase gratitude and decrease stress, help resist temptation, and bring joy, comfort, love, and peace. That question was “What would a holy young adult do?” She then encouraged application of this question in just one situation each day for three successive days. See “[One Question That Can Change Your Life](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/11nelson?lang=eng&id=p20#p20)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
 [^36]: See [[D&C 109.12|Doctrine and Covenants 109:12–13, 22]][[D&C 109.13|]][[D&C 109.22|]].
 
@@ -129,25 +129,25 @@ With all my heart, I bear witness of Jesus Christ—that He lives, that He loves
 
 [^40]: [[D&C 6.36|Doctrine and Covenants 6:36]].
 
-[^41]: Elder Jeffrey R. Holland once noted that, in Spanish, the English phrase “abide in me” is translated as “permaneced en mi.” He continued: “The sense of this then is ‘stay﻿—but stay *forever.*’ … Come permanently, for your sake and the sake of all the generations who must follow you, and we will help each other be strong to the very end” (“[[2004 April - “Abide in Me”.md|Abide in Me]],” *Ensign* or *Liahona*, May 2004, 32).
+[^41]: Elder Jeffrey R. Holland once noted that, in Spanish, the English phrase “abide in me” is translated as “permaneced en mi.” He continued: “The sense of this then is ‘stay﻿—but stay *forever.*’ … Come permanently, for your sake and the sake of all the generations who must follow you, and we will help each other be strong to the very end” (“[[2004 April - “Abide in Me”.md|Abide in Me]],” *Ensign* or *Liahona*, May 2004, 32).
 
-[^42]: See [[2 Nephi 31.21|2 Nephi 31:21]].
+[^42]: See [[2 Nephi 31.21|2 Nephi 31:21]].
 
 [^43]: See [[John 14.6|John 14:6]].
 
-[^44]: [[Matthew 11.28|Matthew 11:28]]; [[3 Nephi 9.14|3 Nephi 9:14, 22]][[3 Nephi 9.22|]].
+[^44]: [[Matthew 11.28|Matthew 11:28]]; [[3 Nephi 9.14|3 Nephi 9:14, 22]][[3 Nephi 9.22|]].
 
-[^45]: [[Matthew 16.24|Matthew 16:24]]; [[Luke 18.22|Luke 18:22]]; [[John 21.19|John 21:19]]; see also [[2 Nephi 31.10|2 Nephi 31:10]].
+[^45]: [[Matthew 16.24|Matthew 16:24]]; [[Luke 18.22|Luke 18:22]]; [[John 21.19|John 21:19]]; see also [[2 Nephi 31.10|2 Nephi 31:10]].
 
 [^46]: [[Revelation 3.4|Revelation 3:4]]; [[Moses 6.34|Moses 6:34]].
 
 [^47]: [[Matthew 11.29|Matthew 11:29]]; [[D&C 19.23|Doctrine and Covenants 19:23]].
 
-[^48]: See [[3 Nephi 9.15|3 Nephi 9:15]].
+[^48]: See [[3 Nephi 9.15|3 Nephi 9:15]].
 
 [^49]: See [[John 1.14|John 1:14]]; [[Alma 5.48|Alma 5:48]].
 
-[^50]: See [[2 Samuel 22.2|2 Samuel 22:2–3]][[2 Samuel 22.3|]].
+[^50]: See [[2 Samuel 22.2|2 Samuel 22:2–3]][[2 Samuel 22.3|]].
 
 [^51]: See [[D&C 6.21|Doctrine and Covenants 6:21]].
 
@@ -157,6 +157,4 @@ With all my heart, I bear witness of Jesus Christ—that He lives, that He loves
 
 [^54]: See [[John 11.25|John 11:25]].
 
-
-
-#Discipleship #Holiness #Hope #Jesus_Christ
+#Discipleship #Holiness #Hope #JesusChrist

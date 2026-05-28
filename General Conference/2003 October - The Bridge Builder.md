@@ -74,7 +74,7 @@ The second bridge provided by the Master for us to cross is the **Bridge of Serv
 
 In the 25th chapter of the book of Matthew, the Savior tells us this concerning the faithful who will be on His right hand at His triumphal return:
 
-“Then shall the King say unto them … , Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:
+“Then shall the King say unto them … , Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:
 
 “For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in:
 
@@ -161,7 +161,7 @@ That we may have the wisdom and determination to cross the bridges the Savior bu
 
 [^8]: [[Matthew 4.10|Matthew 4:10]].
 
-[^9]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^9]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 [^10]: Duke University commencement speech, 10 May 1987.
 
@@ -177,8 +177,6 @@ That we may have the wisdom and determination to cross the bridges the Savior bu
 
 [^16]: [[John 19.30|John 19:30]].
 
-[^17]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
+[^17]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
 
-
-
-#Jesus_Christ #Obedience #Prayer #Service
+#JesusChrist #Obedience #Prayer #Service

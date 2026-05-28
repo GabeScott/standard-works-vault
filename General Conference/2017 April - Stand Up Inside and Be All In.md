@@ -1,6 +1,6 @@
 # Stand Up Inside and Be All In
 
-By Elder Gary B. Sabin - *Of the Seventy*
+By Elder Gary B. Sabin - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -76,7 +76,7 @@ When he was in the navy during World War II, there were those in the great and s
 
 Their positive impression of my father did not match what they had been taught about the Mormons, and my father was able to teach and baptize both shipmates. Dale’s parents were very upset and warned him that if he joined the Church he would lose his sweetheart, Mary Olive, but she met with the missionaries at his request and was also baptized.
 
-Near the end of the war, President Heber J. Grant called for missionaries, including some married men. In 1946, Dale and his wife, Mary Olive, decided Dale should serve even though they were expecting their first child. They eventually had nine children—three boys and six girls. All nine served missions, followed by Dale and Mary Olive, who served three missions of their own. Dozens of grandchildren have also served. Two of their sons, John and Matthew Maddox, are currently members of the Tabernacle Choir, as is Matthew’s son-in-law Ryan. The Maddox family now numbers 144 and are wonderful examples of being “all in.”
+Near the end of the war, President Heber J. Grant called for missionaries, including some married men. In 1946, Dale and his wife, Mary Olive, decided Dale should serve even though they were expecting their first child. They eventually had nine children—three boys and six girls. All nine served missions, followed by Dale and Mary Olive, who served three missions of their own. Dozens of grandchildren have also served. Two of their sons, John and Matthew Maddox, are currently members of the Tabernacle Choir, as is Matthew’s son-in-law Ryan. The Maddox family now numbers 144 and are wonderful examples of being “all in.”
 
 In going through my dad’s papers, we came across a letter from Jennifer Richards, one of the five daughters of the other shipmate, Don Davidson. She wrote: “Your righteousness changed our lives. It is hard to comprehend what our lives would be like without the Church. My dad died loving the gospel and trying to live it to the end.”[^22]
 
@@ -97,7 +97,7 @@ Brothers and sisters, no one has sinned tomorrow. May we recalculate our route i
 
 [^1]: [[Ezekiel 18.21|Ezekiel 18:21–22]][[Ezekiel 18.22|]].
 
-[^2]: See, for example, Roy B. Zuck, comp., *The Speaker’s Quote Book: Over 5,000 Illustrations and Quotations for All Occasions* (2009), 107–8.
+[^2]: See, for example, Roy B. Zuck, comp., *The Speaker’s Quote Book: Over 5,000 Illustrations and Quotations for All Occasions* (2009), 107–8.
 
 [^3]: See [[D&C 64.34|Doctrine and Covenants 64:34]].
 
@@ -113,9 +113,9 @@ Brothers and sisters, no one has sinned tomorrow. May we recalculate our route i
 
 [^9]: [[Isaiah 57.20|Isaiah 57:20–21]][[Isaiah 57.21|]].
 
-[^10]: [[3 Nephi 9.22|3 Nephi 9:22]].
+[^10]: [[3 Nephi 9.22|3 Nephi 9:22]].
 
-[^11]: See [[3 Nephi 11.37|3 Nephi 11:37–38]][[3 Nephi 11.38|]].
+[^11]: See [[3 Nephi 11.37|3 Nephi 11:37–38]][[3 Nephi 11.38|]].
 
 [^12]: [[Job 17.9|Job 17:9]].
 
@@ -123,9 +123,9 @@ Brothers and sisters, no one has sinned tomorrow. May we recalculate our route i
 
 [^14]: [[D&C 87.8|Doctrine and Covenants 87:8]].
 
-[^15]: See Joseph B. Wirthlin, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” *Ensign* or *Liahona,* Nov. 2008, 26–28.
+[^15]: See Joseph B. Wirthlin, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” *Ensign* or *Liahona,* Nov. 2008, 26–28.
 
-[^16]: See [[2 Corinthians 12.7|2 Corinthians 12:7]].
+[^16]: See [[2 Corinthians 12.7|2 Corinthians 12:7]].
 
 [^17]: See [[Isaiah 5.20|Isaiah 5:20]].
 
@@ -135,21 +135,22 @@ Brothers and sisters, no one has sinned tomorrow. May we recalculate our route i
 
 [^20]: See [[Job 38.7|Job 38:7]].
 
-[^21]: See [[1 Nephi 8.26|1 Nephi 8:26]].
+[^21]: See [[1 Nephi 8.26|1 Nephi 8:26]].
 
-[^22]: Jennifer Richards, letter to Marvin Sabin, July 5, 2009.
+[^22]: Jennifer Richards, letter to Marvin Sabin, July 5, 2009.
 
-[^23]: See [[1 Nephi 8.27|1 Nephi 8:27, 33]][[1 Nephi 8.33|]].
+[^23]: See [[1 Nephi 8.27|1 Nephi 8:27, 33]][[1 Nephi 8.33|]].
 
-[^24]: [[1 Timothy 1.6|1 Timothy 1:6]].
+[^24]: [[1 Timothy 1.6|1 Timothy 1:6]].
 
-[^25]: See [[1 Nephi 8.26|1 Nephi 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].
+[^25]: See [[1 Nephi 8.26|1 Nephi 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].
 
 [^26]: [[Romans 8.28|Romans 8:28]].
 
 [^27]: See Bangambiki Habyarinmana, *Inspirational Quotes for All Occasions* (2013).
 
-[^28]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^28]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
+[^29]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
-#Adversity #Commitment #Plan_Of_Salvation #Repentance
+#Adversity #Commitment #PlanOfSalvation #Repentance

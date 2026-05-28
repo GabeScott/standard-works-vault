@@ -1,4 +1,3 @@
 # Abigail
 
-
-*See* [BD Abigail](https://www.churchofjesuschrist.org/study/scriptures/bd/abigail?lang=eng)
+*See also* [[BD Abigail.md|BD Abigail]]

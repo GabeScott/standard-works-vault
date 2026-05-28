@@ -22,7 +22,7 @@ May we each develop our humility by submitting to the will of the Lord in all th
 
 ## Call upon the Lord Daily
 
-Prayer is one of the greatest blessings we have while here on earth. Through prayer we can communicate with our Heavenly Father and seek His guidance daily. Jesus taught, “Ye must always pray unto the Father in my name” ([[3 Nephi 18.19|3 Ne. 18:19]]). We should pray each day that we will have the power to resist temptation. Amulek teaches us that we should pray “morning, mid-day, and evening” and that our hearts should “be full, drawn out in prayer unto \[God\] continually” ([[Alma 34.21|Alma 34:21, 27]][[Alma 34.27|]]). Our daily prayers influence our thoughts, our words, and our actions. In order to retain a remission of our sins, it is essential that we ask our Heavenly Father each day for strength to stay in the straight and narrow way.
+Prayer is one of the greatest blessings we have while here on earth. Through prayer we can communicate with our Heavenly Father and seek His guidance daily. Jesus taught, “Ye must always pray unto the Father in my name” ([[3 Nephi 18.19|3 Ne. 18:19]]). We should pray each day that we will have the power to resist temptation. Amulek teaches us that we should pray “morning, mid-day, and evening” and that our hearts should “be full, drawn out in prayer unto \[God\] continually” ([[Alma 34.21|Alma 34:21, 27]][[Alma 34.27|]]). Our daily prayers influence our thoughts, our words, and our actions. In order to retain a remission of our sins, it is essential that we ask our Heavenly Father each day for strength to stay in the straight and narrow way.
 
 In the general conference of last April, President James E. Faust taught that “to sustain faith, each of us must be humble and compassionate, kind and generous to the poor and the needy. Faith is further sustained by daily doses of spirituality that come to us as we kneel in prayer.”[^3]
 
@@ -49,12 +49,10 @@ May God grant that we, too, may retain a remission of our sins. I testify that G
 
 [^2]: *Gospel Principles* (1997), 4.
 
-[^3]: In Conference Report, Apr. 2000, 21; or *Ensign,* May 2000, 18.
+[^3]: In Conference Report, Apr. 2000, [[2000 April - The Shield of Faith.md|21]]; or *Ensign,* May 2000, 18.
 
-[^4]: In Conference Report, Oct. 1996, 3; or *Ensign,* Nov. 1996, 4.
+[^4]: In Conference Report, Oct. 1996, [[1996 October - Listen by the Power of the Spirit.md|3]]; or *Ensign,* Nov. 1996, 4.
 
 [^5]: “The Living Christ: The Testimony of the Apostles,” *Ensign,* Apr. 2000, 2–3.
 
-
-
-#Children #Conscience #Faith #Forgiveness #Humility #Jesus_Christ #Missionary_Work #Obedience #Peace #Plan_Of_Salvation #Prayer #Repentance #Sin #Spirituality #Temptation #Testimony
+#Children #Conscience #Faith #Forgiveness #Humility #JesusChrist #MissionaryWork #Obedience #Peace #PlanOfSalvation #Prayer #Repentance #Sin #Spirituality #Temptation #Testimony

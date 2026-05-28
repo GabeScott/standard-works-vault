@@ -1,6 +1,6 @@
 # Guided Safely Home
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -10,9 +10,9 @@ By President Thomas S. Monson - *President of the Church*
 
 Brethren, we are assembled as a mighty body of the priesthood, both here in the Conference Center and in locations throughout the world. I am honored yet humbled by the responsibility which is mine to address a few remarks to you. I pray for the Spirit of the Lord to attend me as I do so.
 
-Seventy-five years ago, on February 14, 1939, in Hamburg, Germany, a public holiday was celebrated. Amid fervent speeches, cheering throngs, and the playing of patriotic anthems, the new battleship *Bismarck* was put to sea via the River Elbe. This, the most powerful vessel afloat, was a breathtaking spectacle of armor and machinery. Construction required more than 57,000 blueprints for the 380-millimeter, radar-controlled, double-gun turrets. The vessel featured 28,000 miles (45,000 km) of electrical circuits. It weighed over 35,000 tons, and armor plate provided maximum safety. Majestic in appearance, gigantic in size, awesome in firepower, the mighty colossus was considered unsinkable.
+Seventy-five years ago, on February 14, 1939, in Hamburg, Germany, a public holiday was celebrated. Amid fervent speeches, cheering throngs, and the playing of patriotic anthems, the new battleship *Bismarck* was put to sea via the River Elbe. This, the most powerful vessel afloat, was a breathtaking spectacle of armor and machinery. Construction required more than 57,000 blueprints for the 380-millimeter, radar-controlled, double-gun turrets. The vessel featured 28,000 miles (45,000 km) of electrical circuits. It weighed over 35,000 tons, and armor plate provided maximum safety. Majestic in appearance, gigantic in size, awesome in firepower, the mighty colossus was considered unsinkable.
 
-The *Bismarck*’s appointment with destiny came more than two years later, when on May 24, 1941, the two most powerful warships in the British Navy, the *Prince of Wales* and the *Hood,* engaged in battle the *Bismarck* and the German cruiser *Prinz Eugen.* Within five minutes the *Bismarck* had sent to the depths of the Atlantic the *Hood* and all but three men of a crew of over 1,400. The other British battleship, the *Prince of Wales,* had suffered heavy damage and turned away.
+The *Bismarck*’s appointment with destiny came more than two years later, when on May 24, 1941, the two most powerful warships in the British Navy, the *Prince of Wales* and the *Hood,* engaged in battle the *Bismarck* and the German cruiser *Prinz Eugen.* Within five minutes the *Bismarck* had sent to the depths of the Atlantic the *Hood* and all but three men of a crew of over 1,400. The other British battleship, the *Prince of Wales,* had suffered heavy damage and turned away.
 
 Over the next three days the *Bismarck* was engaged again and again by British warships and aircraft. In all, the British concentrated the strength of five battleships, two aircraft carriers, 11 cruisers, and 21 destroyers in an effort to find and to sink the mighty *Bismarck.*
 
@@ -34,7 +34,7 @@ Ours is the responsibility to be worthy of all the glorious blessings our Father
 
 We who have been ordained to the priesthood of God can make a difference. When we maintain our personal purity and honor our priesthood, we become righteous examples for others to follow. The Apostle Paul admonished, “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.”[^3] He also wrote that the followers of Christ should be “as lights in the world.”[^4] Providing an example of righteousness can help to illuminate an increasingly dark world.
 
-Many of you will remember President N. Eldon Tanner, who served as a counselor to four Presidents of the Church. He provided an undeviating example of righteousness throughout his career in industry, during service in the government in Canada, and as an Apostle of Jesus Christ. He gave us this inspired counsel: “Nothing will bring greater joy and success than to live according to the teachings of the gospel. Be an example; be an influence for good.”
+Many of you will remember President N. Eldon Tanner, who served as a counselor to four Presidents of the Church. He provided an undeviating example of righteousness throughout his career in industry, during service in the government in Canada, and as an Apostle of Jesus Christ. He gave us this inspired counsel: “Nothing will bring greater joy and success than to live according to the teachings of the gospel. Be an example; be an influence for good.”
 
 He continued: “Every one of us has been foreordained for some work as \[God’s\] chosen servant on whom he has seen fit to confer the priesthood and power to act in his name. Always remember that people are looking to you for leadership and you are influencing the lives of individuals either for good or for bad, which influence will be felt for generations to come.”[^5]
 
@@ -59,18 +59,16 @@ With the rudder of faith guiding our passage, brethren, we too will find our way
 
 [^2]: [[Luke 18.22|Luke 18:22]].
 
-[^3]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^3]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^4]: [[Philippians 2.15|Philippians 2:15]].
 
-[^5]: N. Eldon Tanner, “For They Loved the Praise of Men More Than the Praise of God,” *Ensign,* Nov. 1975, 74.
+[^5]: N. Eldon Tanner, “For They Loved the Praise of Men More Than the Praise of God,” *Ensign,* Nov. 1975, 74.
 
 [^6]: [[Daniel 5.17|Daniel 5:17]].
 
 [^7]: [[Daniel 6.23|Daniel 6:23]].
 
 [^8]: [[Jacob 7.5|Jacob 7:5]].
-
-
 
 #Example #Priesthood #Worthiness

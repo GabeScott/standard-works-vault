@@ -1,6 +1,5 @@
 # Priesthood, Magnifying Callings within
 
-
 *See also* [[Priesthood, Oath and Covenant.md|Priesthood, Oath and Covenant]]
 
 them that *honour* me I will honour, [[1 Samuel 2.30|1 Samuel 2:30]].
@@ -33,7 +32,7 @@ follow after *righteousness*, godliness, [[1 Timothy 6.11|1 Timothy 6:11]].
 
 Flee also youthful lusts: but follow *righteousness*, [[2 Timothy 2.22|2 Timothy 2:22]].
 
-such an high priest ... made *higher* than the heavens, [[Hebrews 7.26|Hebrews 7:26]].
+such an high priest … made *higher* than the heavens, [[Hebrews 7.26|Hebrews 7:26]].
 
 holy priesthood, to offer up *spiritual* sacrifices, [[1 Peter 2.5|1 Peter 2:5]].
 
@@ -75,13 +74,13 @@ men should be anxiously *engaged* in a good cause, [[D&C 58.27|D&C 58:27]].
 
 Thou shalt not *idle* away thy time, [[D&C 60.13|D&C 60:13]].
 
-priesthoods ... *magnifying* their calling, are sanctified, [[D&C 84.33|D&C 84:33]].
+priesthoods … *magnifying* their calling, are sanctified, [[D&C 84.33|D&C 84:33]].
 
 *testimony* may go from you into all the world, [[D&C 84.62|D&C 84:62]].
 
 from you it must be *preached* unto them, [[D&C 84.76|D&C 84:76]].
 
-let every man ... *labor* in his own calling, [[D&C 84.109|D&C 84:109]].
+let every man … *labor* in his own calling, [[D&C 84.109|D&C 84:109]].
 
 if your eye be *single* to my glory, [[D&C 88.67|D&C 88:67]].
 
@@ -91,11 +90,11 @@ it becometh every man who hath been warned to *warn* his neighbor, [[D&C 88.81|D
 
 *cease* from all your light speeches, [[D&C 88.121|D&C 88:121]].
 
-decisions of these quorums ... to be made in all *righteousness*, [[D&C 107.30|D&C 107:30]].
+decisions of these quorums … to be made in all *righteousness*, [[D&C 107.30|D&C 107:30]].
 
 let every man learn his *duty*, [[D&C 107.99|D&C 107:99]].
 
-*controlled* ... only upon the principles of righteousness, [[D&C 121.36|D&C 121:36]].
+*controlled* … only upon the principles of righteousness, [[D&C 121.36|D&C 121:36]].
 
 *priesthood*, only by persuasion, by long-suffering, [[D&C 121.41|D&C 121:41]].
 

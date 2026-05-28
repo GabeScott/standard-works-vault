@@ -1,7 +1,6 @@
 # Hearer
 
-
-*See also* [[Hear, Heard.md|Hear]]
+*See also* [[Hear.md|Hear]]
 
 not the *hearers* of the law are just before God, [[Romans 2.13|Romans 2:13]].
 

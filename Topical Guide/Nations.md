@@ -1,9 +1,8 @@
 # Nations
 
-
 *See also* [[Country.md|Country]]; [[Gentiles.md|Gentiles]]; [[Governments.md|Governments]]; [[Heathen.md|Heathen]]; [[Israel, Blessings of.md|Israel, Blessings of]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Land.md|Land]]; [[People.md|People]]
 
-sons of Noah ... of them was the whole *earth* overspread, [[Genesis 9.19|Genesis 9:19]].
+sons of Noah … of them was the whole *earth* overspread, [[Genesis 9.19|Genesis 9:19]].
 
 divided in their *lands*; every one after his tongue, [[Genesis 10.5|Genesis 10:5]].
 
@@ -33,9 +32,9 @@ take him a *nation* from the midst of another *nation*, [[Deuteronomy 4.34|Deute
 
 will make of thee a *nation* mightier and greater, [[Deuteronomy 9.14|Deuteronomy 9:14]].
 
-to be a peculiar people ... above all the *nations*, [[Deuteronomy 14.2|Deuteronomy 14:2]].
+to be a peculiar people … above all the *nations*, [[Deuteronomy 14.2|Deuteronomy 14:2]].
 
-most High divided to the *nations* ... according to the number of the children of Israel, [[Deuteronomy 32.8|Deuteronomy 32:8]].
+most High divided to the *nations* … according to the number of the children of Israel, [[Deuteronomy 32.8|Deuteronomy 32:8]].
 
 king to judge us like all the *nations*, [[1 Samuel 8.5|1 Samuel 8:5]].
 
@@ -45,23 +44,23 @@ All *nations* whom thou hast made shall come and worship, [[Psalms 86.9|Psalms 8
 
 Righteousness exalteth a *nation*, [[Proverbs 14.34|Proverbs 14:34]].
 
-Lord's house ... all *nations* shall flow unto it, [[Isaiah 2.2|Isaiah 2:2]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.2|2 Nephi 12:2]]).
+Lord’s house … all *nations* shall flow unto it, [[Isaiah 2.2|Isaiah 2:2]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.2|2 Nephi 12:2]]).
 
 set up an ensign for the *nations*, [[Isaiah 11.12|Isaiah 11:12]] ([[2 Nephi 21.12|2 Nephi 21:12]]).
 
-Lucifer ... which didst weaken the *nations*, [[Isaiah 14.12|Isaiah 14:12]] ([[2 Nephi 24.12|2 Nephi 24:12]]).
+Lucifer … which didst weaken the *nations*, [[Isaiah 14.12|Isaiah 14:12]] ([[2 Nephi 24.12|2 Nephi 24:12]]).
 
 *nations* are as a drop of a bucket, [[Isaiah 40.15|Isaiah 40:15]].
 
 shalt call a *nation* that thou knowest not, [[Isaiah 55.5|Isaiah 55:5]].
 
-*nation* ... that will not serve thee shall perish, [[Isaiah 60.12|Isaiah 60:12]].
+*nation* … that will not serve thee shall perish, [[Isaiah 60.12|Isaiah 60:12]].
 
 shall a *nation* be born at once, [[Isaiah 66.8|Isaiah 66:8]].
 
 ordained thee a prophet unto the *nations*, [[Jeremiah 1.5|Jeremiah 1:5]].
 
-Jerusalem ... all the *nations* shall be gathered unto it, [[Jeremiah 3.17|Jeremiah 3:17]].
+Jerusalem … all the *nations* shall be gathered unto it, [[Jeremiah 3.17|Jeremiah 3:17]].
 
 all *nations* shall serve him, and his son, [[Jeremiah 27.7|Jeremiah 27:7]].
 
@@ -101,7 +100,7 @@ midst of a crooked and perverse *nation*, [[Philippians 2.15|Philippians 2:15]].
 
 to him will I give power over the *nations*, [[Revelation 2.26|Revelation 2:26]].
 
-the everlasting gospel to preach ... to every *nation*, [[Revelation 14.6|Revelation 14:6]] ([[Mosiah 3.13|Mosiah 3:13]]; [[D&C 42.58|D&C 42:58]]).
+the everlasting gospel to preach … to every *nation*, [[Revelation 14.6|Revelation 14:6]] ([[Mosiah 3.13|Mosiah 3:13]]; [[D&C 42.58|D&C 42:58]]).
 
 he should deceive the *nations* no more, [[Revelation 20.3|Revelation 20:3]].
 
@@ -109,21 +108,21 @@ I behold many *nations* and kingdoms, [[1 Nephi 13.2|1 Nephi 13:2]].
 
 shall manifest himself unto all *nations*, [[1 Nephi 13.42|1 Nephi 13:42]].
 
-mother of abominations did gather ... among all the *nations* of the Gentiles, [[1 Nephi 14.13|1 Nephi 14:13]].
+mother of abominations did gather … among all the *nations* of the Gentiles, [[1 Nephi 14.13|1 Nephi 14:13]].
 
 shall be scattered among all *nations*, [[1 Nephi 22.5|1 Nephi 22:5]].
 
 this land should be kept as yet from the knowledge of other *nations*, [[2 Nephi 1.8|2 Nephi 1:8]].
 
-day of the Lord ... cometh upon all *nations*, [[2 Nephi 12.12|2 Nephi 12:12]].
+day of the Lord … cometh upon all *nations*, [[2 Nephi 12.12|2 Nephi 12:12]].
 
 Know ye not that there are more *nations* than one, [[2 Nephi 29.7|2 Nephi 29:7]].
 
-Lord ... doth declare it unto all *nations*, [[Alma 13.22|Alma 13:22]].
+Lord … doth declare it unto all *nations*, [[Alma 13.22|Alma 13:22]].
 
 Lord doth grant unto all *nations*, of their own *nation* and tongue, [[Alma 29.8|Alma 29:8]].
 
-whatsoever *nation* shall uphold such secret combinations ... shall be destroyed, [[Ether 8.22|Ether 8:22]].
+whatsoever *nation* shall uphold such secret combinations … shall be destroyed, [[Ether 8.22|Ether 8:22]].
 
 overthrow the freedom of all lands, *nations*, [[Ether 8.25|Ether 8:25]].
 
@@ -133,9 +132,9 @@ gathered unto it out of every *nation*, [[D&C 45.69|D&C 45:69]] ([[D&C 64.42|D&C
 
 *nations* of the earth shall bow to it, [[D&C 49.10|D&C 49:10]].
 
-Satan ... goeth forth deceiving the *nations*, [[D&C 52.14|D&C 52:14]].
+Satan … goeth forth deceiving the *nations*, [[D&C 52.14|D&C 52:14]].
 
-supper ... unto which all *nations* shall be invited, [[D&C 58.9|D&C 58:9]].
+supper … unto which all *nations* shall be invited, [[D&C 58.9|D&C 58:9]].
 
 war will be poured out upon all *nations*, [[D&C 87.2|D&C 87:2]].
 
@@ -147,12 +146,10 @@ Have mercy, O Lord, upon all the *nations*, [[D&C 109.54|D&C 109:54]].
 
 thy light may be a standard for the *nations*, [[D&C 115.5|D&C 115:5]].
 
-Send forth the elders ... unto the *nations*, [[D&C 133.8|D&C 133:8]].
+Send forth the elders … unto the *nations*, [[D&C 133.8|D&C 133:8]].
 
 Go ye out from among the *nations*, [[D&C 133.14|D&C 133:14]].
 
 little one become a strong *nation*, [[D&C 133.58|D&C 133:58]].
 
 bear this ministry and Priesthood unto all *nations*, [[Abraham 2.9|Abraham 2:9]].
-
-*See also* [[Isaiah 49.6|Isaiah 49:6]]; [[Daniel 2.31|Dan. 2:31-45]][[Daniel 2.32|]][[Daniel 2.33|]][[Daniel 2.34|]][[Daniel 2.35|]][[Daniel 2.36|]][[Daniel 2.37|]][[Daniel 2.38|]][[Daniel 2.39|]][[Daniel 2.40|]][[Daniel 2.41|]][[Daniel 2.42|]][[Daniel 2.43|]][[Daniel 2.44|]][[Daniel 2.45|]].

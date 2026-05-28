@@ -1,6 +1,6 @@
 # “Lord, Is It I?”
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -34,9 +34,9 @@ These thoughts totally occupied his mind as he walked toward his own home. He en
 
 Does this story remind us of the words of the Savior?
 
-“Why beholdest thou the mote that is in thy brother’s eye, but considerest not the beam that is in thine own eye? …
+“Why beholdest thou the mote that is in thy brother’s eye, but considerest not the beam that is in thine own eye? …
 
-“… First cast out the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother’s eye.”[^2]
+“… First cast out the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother’s eye.”[^2]
 
 This business of beams and motes seems to be closely related to our inability to see ourselves clearly. I’m not sure why we are able to diagnose and recommend remedies for other people’s ills so well, while we often have difficulty seeing our own.
 
@@ -119,15 +119,15 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 [^2]: [[Matthew 7.3|Matthew 7:3, 5]][[Matthew 7.5|]].
 
-[^3]: See Errol Morris, “The Anosognosic’s Dilemma: Something’s Wrong but You’ll Never Know What It Is,” *New York Times,* June 20, 2010; opinionator.blogs.nytimes.com/2010/06/20/the-anosognosics-dilemma-1.
+[^3]: See Errol Morris, “The Anosognosic’s Dilemma: Something’s Wrong but You’ll Never Know What It Is,” *New York Times,* June 20, 2010; opinionator.blogs.nytimes.com/2010/06/20/the-anosognosics-dilemma-1.
 
 [^4]: See Justin Kruger and David Dunning, “Unskilled and Unaware of It: How Difficulties in Recognizing One’s Own Incompetence Lead to Inflated Self-Assessments,” *Journal of Personality and Social Psychology,* Dec. 1999, 1121–34. “Across 4 studies, the authors found that participants scoring in the bottom quartile on tests of humor, grammar, and logic grossly overestimated their test performance and ability. Although their test scores put them in the 12th percentile, they estimated themselves to be in the 62nd” (from the abstract at psycnet.apa.org/?&fa=main.doiLanding&doi=10.1037/0022-3514.77.6.1121).
 
 [^5]: See Marshall Goldsmith, *What Got You Here Won’t Get You There* (2007), chapter 3. The researcher asked three partners to rate their own contributions to the success of the company. Their self-assessed contributions added up to 150 percent.
 
-[^6]: [[1 Timothy 1.11|1 Timothy 1:11]].
+[^6]: [[1 Timothy 1.11|1 Timothy 1:11]].
 
-[^7]: [[2 Corinthians 4.4|2 Corinthians 4:4]].
+[^7]: [[2 Corinthians 4.4|2 Corinthians 4:4]].
 
 [^8]: [[Luke 12.34|Luke 12:34]].
 
@@ -142,7 +142,5 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 [^13]: [[James 4.6|James 4:6, 10]][[James 4.10|]].
 
 [^14]: [[D&C 1.28|Doctrine and Covenants 1:28]].
-
-
 
 #Conversion #Discipleship #Perspective #Pride #Priorities

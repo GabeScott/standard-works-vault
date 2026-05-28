@@ -1,6 +1,6 @@
 # The Way Home
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -48,19 +48,19 @@ The long-awaited day of restoration did indeed come. But let us review that sign
 
 Describing his experience, Joseph said: “There was in the place where we lived an unusual excitement on the subject of religion. … It … became general … \[creating\] division amongst the people, some crying, ‘Lo, here!’ and others, ‘Lo, there!’
 
-“… I was one day reading the Epistle of James, first chapter and fifth verse, which reads: ‘If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.’
+“… I was one day reading the Epistle of James, first chapter and fifth verse, which reads: ‘If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.’
 
 “Never did any passage of scripture come with more power to the heart of man than this did at this time to mine. It seemed to enter with great force into every feeling of my heart. I reflected on it again and again, knowing that if any person needed wisdom from God, I did; for how to act I did not know, and unless I could get more wisdom than I then had, I would never know; for the teachers of religion … understood the same passages of scripture so differently as to destroy all confidence in settling the question by an appeal to the Bible.
 
-“At length I came to the conclusion that I must either remain in darkness and confusion, or else I must do as James directs, that is, ask of God. …
+“At length I came to the conclusion that I must either remain in darkness and confusion, or else I must do as James directs, that is, ask of God. …
 
 “So, in accordance with this, my determination to ask of God, I retired to the woods to make the attempt. It was on the morning of a beautiful, clear day, early in the spring of eighteen hundred and twenty.
 
-“… I kneeled down and began to offer up the desire of my heart to God. …
+“… I kneeled down and began to offer up the desire of my heart to God. …
 
 “I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me.
 
-“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.5|JS—H 1:5–17]][[Joseph Smith History 1.6|]][[Joseph Smith History 1.7|]][[Joseph Smith History 1.8|]][[Joseph Smith History 1.9|]][[Joseph Smith History 1.10|]][[Joseph Smith History 1.11|]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]].)
+“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.5|JS—H 1:5–17]][[Joseph Smith History 1.6|]][[Joseph Smith History 1.7|]][[Joseph Smith History 1.8|]][[Joseph Smith History 1.9|]][[Joseph Smith History 1.10|]][[Joseph Smith History 1.11|]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]].)
 
 The Father and the Son, Jesus Christ, had appeared to Joseph Smith. The morning of the dispensation of the fulness of times had come, dispelling the darkness of the long generations of spiritual night. As in the creation, light was to replace darkness; day was to follow night.
 
@@ -72,7 +72,7 @@ The restoration of the gospel dispels the gloom described in our time by the not
 
 Perhaps the famed Winston Churchill best declared the world’s pressing need. Said he: “I have lived perhaps longer experience than almost anyone, and I have never brooded over a situation which demanded more patience, composure, courage and perseverance than that which unfolds itself before us today: The need of a prophet.”
 
-Today we have heard God’s prophet speak—even President Spencer W. Kimball. Today there goes forth from this pulpit an invitation to people throughout the world: Come from your wandering way, weary traveler. Come to the gospel of Jesus Christ. Come to that heavenly haven called home. Here you will discover the truth. Here you will learn the reality of the Godhead, the comfort of the plan of salvation, the sanctity of the marriage covenant, the power of personal prayer. Come home!
+Today we have heard God’s prophet speak—even President Spencer W. Kimball. Today there goes forth from this pulpit an invitation to people throughout the world: Come from your wandering way, weary traveler. Come to the gospel of Jesus Christ. Come to that heavenly haven called home. Here you will discover the truth. Here you will learn the reality of the Godhead, the comfort of the plan of salvation, the sanctity of the marriage covenant, the power of personal prayer. Come home!
 
 From our youth many of us may remember the story of a very young boy who was abducted from his parents and home and taken to a village situated far away. Under these conditions the small boy grew to young manhood without a knowledge of his actual parents or earthly home. Within his heart there came a yearning to return to that village called home.
 
@@ -85,8 +85,6 @@ At length the weary young man stood one Sunday morning before a church of a typi
 Like the peal of a remembered bell will be the truth of the gospel of Jesus Christ to the soul of him who earnestly seeks. Many of you have traveled long in a personal quest for that which rings true. The Church of Jesus Christ of Latter-day Saints sends forth to you an earnest appeal. Open your doors to the missionaries. Open your minds to the word of God. Open your hearts, even your very souls, to the sound of that still, small voice which testifies of truth. As the prophet Isaiah promised: “Thine ears shall hear a word … saying, This is the way, walk ye in it.” ([[Isaiah 30.21|Isa. 30:21]].) Then, like the boy of whom I’ve spoken, you too will, on bended knee, say to your God and mine: “I’m home!”
 
 May such be the blessing of all, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

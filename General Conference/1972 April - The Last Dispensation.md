@@ -1,12 +1,12 @@
 # The Last Dispensation
 
-By Elder Alvin R. Dyer - *Assistant to the Council of the Twelve*
+By Elder Alvin R. Dyer - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/04/the-last-dispensation?lang=eng)
 
-I am both humbled and grateful, my brothers and sisters, for the confidence of the First Presidency and Council of the Twelve for the new assignment given me in the Historical Department of the Church. It is truly gratifying to be associated with men of the caliber of Leonard Arrington, the Church Historian; Earl Olson, the Church Archivist; and Donald T. Schmidt, Church Librarian; and the other brethren who have been called to assist.
+I am both humbled and grateful, my brothers and sisters, for the confidence of the First Presidency and Council of the Twelve for the new assignment given me in the Historical Department of the Church. It is truly gratifying to be associated with men of the caliber of Leonard Arrington, the Church Historian; Earl Olson, the Church Archivist; and Donald T. Schmidt, Church Librarian; and the other brethren who have been called to assist.
 
 These are men of great spiritual devotion who have great capability in their respective fields. We shall seek the guidance of the Spirit of the Lord, and the counsel and direction of the Brethren, in the important task that lies ahead of us.
 
@@ -42,7 +42,7 @@ The gospel of Jesus Christ will not flower or expand its influence under conditi
 
 From the dark ages, that period of time following the death of the apostles of the Lord in the meridian dispensation—which continued for about eleven hundred years, during which time there was no intelligent glorification of the individual—hardly a painted picture emerged that portrayed this important concept. Everything was lost in relentless subjection of the masses to the evil power of unrighteous dominion.
 
-Then came that period known as the Renaissance, which gave to men an inward longing for liberation of thought with the courage to face the evil forces that held them in subjection. Man again began to seek for freedom and truth. The Master of men had said many years before, “… ye shall know the truth, and the truth shall make you free.” ([[John 8.32|John 8:32]].) But this and other scripture, for many years, they had not even been privileged to read.
+Then came that period known as the Renaissance, which gave to men an inward longing for liberation of thought with the courage to face the evil forces that held them in subjection. Man again began to seek for freedom and truth. The Master of men had said many years before, “… ye shall know the truth, and the truth shall make you free.” ([[John 8.32|John 8:32]].) But this and other scripture, for many years, they had not even been privileged to read.
 
 But God began to work with men, and their hearts turned toward him; and whenever the spark of freedom was found, it was influenced and fed by the natural forces of agency. Soon the desire for freedom, matched with the courage to fight and die for it, spread among men.
 
@@ -75,8 +75,6 @@ The apostle Paul, writing unto the Ephesian saints, speaks also of this importan
 A dispensation of the gospel of Jesus Christ is now established with prophets, seers, and revelators. The church and kingdom of God has been established, and the inhabitants of the earth “may receive it, and be prepared for the days to come, in the which the Son of Man shall come down in heaven, clothed in the brightness of his glory, to meet the kingdom of God which is set up on the earth.” ([[D&C 65.5|D&C 65:5]].)
 
 Of these things I bear my personal witness as conveyed to me by the power of the Spirit, in the name of Jesus Christ. Amen.
-
-
 
 
 

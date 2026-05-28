@@ -1,6 +1,5 @@
 # Lawful
 
-
 *See also* [[Right.md|Right]]
 
 it shall not be *lawful* to impose toll, tribute, [[Ezra 7.24|Ezra 7:24]].
@@ -33,4 +32,4 @@ not *lawful* for man to utter, [[D&C 76.115|D&C 76:115]].
 
 ye are *lawful* heirs, [[D&C 86.9|D&C 86:9]].
 
-shall be *lawful* in me ... for him to receive all things, [[D&C 132.65|D&C 132:65]].
+shall be *lawful* in me … for him to receive all things, [[D&C 132.65|D&C 132:65]].

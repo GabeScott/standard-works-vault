@@ -1,4 +1,3 @@
 # Sunday
 
-
-*See* [[Sabbath.md|Sabbath]]
+*See also* [[Sabbath.md|Sabbath]]

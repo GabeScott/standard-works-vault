@@ -1,12 +1,12 @@
 # Constancy amid Change
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/10/constancy-amid-change?lang=eng)
 
-During World War II, a member of the Quorum of the Twelve, Elder Albert E. Bowen, wrote a book compiled from a series of radio addresses, which he entitled *Constancy amid Change* (Salt Lake City: Deseret News Press, 1944). The messages of these talks were very timely. We were a world in conflict, and people the world over needed a message of certainty, assurance, and stability.
+During World War II, a member of the Quorum of the Twelve, Elder Albert E. Bowen, wrote a book compiled from a series of radio addresses, which he entitled *Constancy amid Change* (Salt Lake City: Deseret News Press, 1944). The messages of these talks were very timely. We were a world in conflict, and people the world over needed a message of certainty, assurance, and stability.
 
 This present era seems very similar in many ways to those turbulent war years. Today we face many perplexing issues. In addition to significant international political problems, we are experiencing one of the most difficult economic periods we have faced in many decades—the problem of inflation and personal financial management.
 
@@ -26,7 +26,7 @@ I told him that the Lord gave the greatest success formula that I know of: “Se
 
 Some argue that some men prosper financially who do *not* seek the kingdom first. This is true. But the Lord is not promising us just material wealth if we seek first the kingdom. From my own experience I know this is not the case. In the words of Henrik Ibsen: “Money may be the husk of many things, but not the kernel. It brings you food, but not appetite; medicine, but not health; acquaintances, but not friends; servants, but not faithfulness; days of joy, but not peace or happiness” (In *The Forbes Scrapbook of Thoughts on the Business of Life,* New York: Forbes, Inc., 1968, p. 88).
 
-Material blessings are a part of the gospel if they are achieved in the proper way and for the right purpose. I am reminded of an experience of President Hugh B. Brown. As a young soldier in World War I, he was visiting an elderly friend in the hospital. This friend was a millionaire several times over who, at the age of eighty, was lying at death’s door. Neither his divorced wife nor any of his five children cared enough to come to the hospital to see him. As President Brown thought of the things his friend “had lost which money could not buy and noted his tragic situation and the depth of his misery,” he asked his friend how he would change the course of his life if he had it to live over again.
+Material blessings are a part of the gospel if they are achieved in the proper way and for the right purpose. I am reminded of an experience of President Hugh B. Brown. As a young soldier in World War I, he was visiting an elderly friend in the hospital. This friend was a millionaire several times over who, at the age of eighty, was lying at death’s door. Neither his divorced wife nor any of his five children cared enough to come to the hospital to see him. As President Brown thought of the things his friend “had lost which money could not buy and noted his tragic situation and the depth of his misery,” he asked his friend how he would change the course of his life if he had it to live over again.
 
 The old gentleman, who died a few days later, said: “‘As I think back over life the most important and valuable asset which I might have had but which I lost in the process of accumulating my millions, *was the simple faith my mother had in God* and in the immortality of the soul.
 
@@ -119,6 +119,4 @@ I hope that each of us may benefit from their application. I bear my witness tha
 
 
 
-
-
-#Financial_Management #Welfare
+#FinancialManagement #Welfare

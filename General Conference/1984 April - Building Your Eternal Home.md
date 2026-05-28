@@ -18,17 +18,17 @@ Such a house would meet the building code outlined in Matthew—even a house bui
 
 Some might question: “But that revelation was to provide guidance for the construction of a temple. Is it relevant today?”
 
-I would respond: “Did not the Apostle Paul declare, ‘Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?’” ([[1 Corinthians 3.16|1 Cor. 3:16]].)
+I would respond: “Did not the Apostle Paul declare, ‘Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?’” ([[1 Corinthians 3.16|1 Cor. 3:16]].)
 
 Perhaps if we consider these architectural guidelines on an individual basis, we can more readily appreciate this divine counsel from the Master Builder, the Creator of the world, our Lord and Savior, Jesus Christ.
 
 Our inspired blueprint first cautions that our house should be a *house of prayer.* The Master taught:
 
-“And when thou prayest, thou shalt not be as the hypocrites are: for they love to pray … , that they may be seen of men. …
+“And when thou prayest, thou shalt not be as the hypocrites are: for they love to pray … , that they may be seen of men. …
 
-“But thou, when thou prayest, … pray to thy Father which is in secret. …
+“But thou, when thou prayest, … pray to thy Father which is in secret. …
 
-“Use not vain repetitions. …
+“Use not vain repetitions. …
 
 “After this manner … pray ye: Our Father which art in heaven, Hallowed be thy name.
 
@@ -50,7 +50,7 @@ Our house should also be a *house of fasting.* This portion of the blueprint is 
 
 The reward is then announced: “Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the Lord shall be thy rereward.
 
-“Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. …
+“Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. …
 
 “And if thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness be as the noonday:
 
@@ -64,7 +64,7 @@ Our house is to be a *house of faith.* James recorded:
 
 “But let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed.” ([[James 1.5|James 1:5–6]][[James 1.6|]].)
 
-A practical application of such abiding faith is found in the spirit of Nephi and his stirring declaration: “I will go and do the things which the Lord hath commanded.” ([[1 Nephi 3.7|1 Ne. 3:7]].) He did not waver; he believed. Is there a counterpart application even today?
+A practical application of such abiding faith is found in the spirit of Nephi and his stirring declaration: “I will go and do the things which the Lord hath commanded.” ([[1 Nephi 3.7|1 Ne. 3:7]].) He did not waver; he believed. Is there a counterpart application even today?
 
 Some years ago I accompanied President Hugh B. Brown on a tour of the Samoan Mission. The members and missionaries in American Samoa had advised us that a severe drought had imperiled their water supply to the point that our chapels and our school would of necessity be closed if rain did not soon fall. They asked us to unite our faith with theirs.
 
@@ -82,9 +82,9 @@ Let our house be a *house of learning.*
 
 Our house is to be a *house of glory.* For our house to be such, we need to be square with God, fair with others, and honest with ourselves. One cannot be one person and pretend to be another. Samuel Clemens, better known as Mark Twain, had Huckleberry Finn teach us this vital lesson. Huckleberry Finn is talking:
 
-“It made me shiver. And I about made up my mind to pray, and see if I couldn’t try to quit being the kind of a boy I was and be better. So I kneeled down. But the words wouldn’t come. Why wouldn’t they? It warn’t no use to try and hide it from Him. … I knowed very well why they wouldn’t come. … It was because I was playing double. I was letting *on* to give up sin, but away inside of me I was holding on to the biggest one of all. I was trying to make my mouth *say* I would do the right thing and the clean thing, … but deep down in me I knowed it was a lie, and He knowed it. *You can’t pray a lie*—I found that out.” (*The Adventures of Huckleberry Finn,* New York: Washington Square Press, Pocket Books, 1973, pp. 271–72; italics added.)
+“It made me shiver. And I about made up my mind to pray, and see if I couldn’t try to quit being the kind of a boy I was and be better. So I kneeled down. But the words wouldn’t come. Why wouldn’t they? It warn’t no use to try and hide it from Him. … I knowed very well why they wouldn’t come. … It was because I was playing double. I was letting *on* to give up sin, but away inside of me I was holding on to the biggest one of all. I was trying to make my mouth *say* I would do the right thing and the clean thing, … but deep down in me I knowed it was a lie, and He knowed it. *You can’t pray a lie*—I found that out.” (*The Adventures of Huckleberry Finn,* New York: Washington Square Press, Pocket Books, 1973, pp. 271–72; italics added.)
 
-Someone once philosophized, “Consistency, thou art a jewel.” (*The Home Book of Quotations,* sel. Burton Stevenson, New York: Dodd, Mead, & Co., 1934, p. 304.) By being consistently good, we can ensure a *house of glory.*
+Someone once philosophized, “Consistency, thou art a jewel.” (*The Home Book of Quotations,* sel. Burton Stevenson, New York: Dodd, Mead, & Co., 1934, p. 304.) By being consistently good, we can ensure a *house of glory.*
 
 Our house is to be a *house of order.* “To every thing there is a season, and a time to every purpose under the heaven” ([[Ecclesiastes 3.1|Eccl. 3:1]]), advised Ecclesiastes, the Preacher. Such is true in our lives. Let us provide time for family, time for work, time for study, time for service, time for recreation, time for self—but above all, time for Christ.
 
@@ -112,15 +112,13 @@ The operation was a success. When I attempted to pay the doctor, he countered, �
 
 Such is a *house of God.*
 
-This, then, is our building project. We are master builders of eternal houses, even “temples of God.” (See [[1 Corinthians 3.16|1 Cor. 3:16]].)
+This, then, is our building project. We are master builders of eternal houses, even “temples of God.” (See [[1 Corinthians 3.16|1 Cor. 3:16]].)
 
 “Organize yourselves; prepare every needful thing; and establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God.” ([[D&C 88.119|D&C 88:119]].)
 
-Then the Lord, even our building inspector, may say to us, as He said when He appeared to Solomon, a builder of another day: “I have hallowed this house, which thou hast built, to put my name there for ever; and mine eyes and mine heart shall be there perpetually.” ([[1 Kings 9.3|1 Kgs. 9:3]].)
+Then the Lord, even our building inspector, may say to us, as He said when He appeared to Solomon, a builder of another day: “I have hallowed this house, which thou hast built, to put my name there for ever; and mine eyes and mine heart shall be there perpetually.” ([[1 Kings 9.3|1 Kgs. 9:3]].)
 
 May we follow this divinely provided blueprint. May we be successful builders of our eternal homes, is my prayer, in the name of Jesus Christ, amen.
-
-
 
 
 

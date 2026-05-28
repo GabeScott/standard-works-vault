@@ -40,7 +40,7 @@ What started out as a curiosity is now a problem, and sin is much the same. An i
 
 *Fourth checklist item: Education.* Make good use of your schooling. The scriptures tell us that there is a time for every purpose under heaven (see [[Ecclesiastes 3.1|Eccl. 3:1–8]][[Ecclesiastes 3.2|]][[Ecclesiastes 3.3|]][[Ecclesiastes 3.4|]][[Ecclesiastes 3.5|]][[Ecclesiastes 3.6|]][[Ecclesiastes 3.7|]][[Ecclesiastes 3.8|]]). Now is the time of your preparation. The direction you are flying as a young man will determine where you will land as an adult. Are you headed in the direction that you want to be flying?
 
-Those of us who are older remember that not all that goes on in school and work is pleasant, nor does it all seem useful and necessary. Yet most of what you learn is helpful. Be excited about your schooling and develop the habit of going the extra mile (see [[Matthew 5.41|Matt. 5:41]]; [[3 Nephi 12.41|3 Ne. 12:41]]). This habit will assist you in crossing continents successfully when you are older. Through study and hard work, you prepare for a life of spiritual, emotional, and economic self-reliance. Build a foundation now that will support your future (see [[Matthew 7.24|Matt. 7:24–25]][[Matthew 7.25|]]). Feel the excitement of accomplishing difficult tasks.
+Those of us who are older remember that not all that goes on in school and work is pleasant, nor does it all seem useful and necessary. Yet most of what you learn is helpful. Be excited about your schooling and develop the habit of going the extra mile (see [[Matthew 5.41|Matt. 5:41]]; [[3 Nephi 12.41|3 Ne. 12:41]]). This habit will assist you in crossing continents successfully when you are older. Through study and hard work, you prepare for a life of spiritual, emotional, and economic self-reliance. Build a foundation now that will support your future (see [[Matthew 7.24|Matt. 7:24–25]][[Matthew 7.25|]]). Feel the excitement of accomplishing difficult tasks.
 
 Hardworking young men of a few years ago are the productive and respected leaders of today. Many of them worked several jobs when they were young and saved part of their income for a mission and for their education. They have been blessing others ever since. Your parents are not obligated to provide everything you want. The Lord instructed us not to be idle! (see [[D&C 42.42|D&C 42:42]]; [[D&C 60.13|60:13]]; [[D&C 75.3|75:3]]; [[D&C 88.124|88:124]]).
 
@@ -49,8 +49,6 @@ Hardworking young men of a few years ago are the productive and respected leader
 The prophet has asked you young men to serve, the world desperately needs you to serve, and you need to feel the power and growth from serving and teaching others. And if for some unusual reason you are not called to serve a mission, there will be other opportunities to serve the Lord.
 
 So there you have it: a checklist that can keep you flying in the right direction. A pilot must have the support of a skilled ground crew to succeed, and your parents, bishops, quorum leaders, and solid friends all will help support your flight through these key years of your life. A wonderful future is yours if you stick to your personal checklist. We pray for you, care about you, and stand by to help you. To these truths I testify in the name of our Savior, Jesus Christ, amen.
-
-
 
 
 

@@ -1,7 +1,6 @@
 # Destroy
 
-
-*See also* [[Destruction.md|Destruction]]; [[Kill.md|Kill]]; [[Perish.md|Perish]]; [[Slay, Slew, Slain.md|Slay]]; [[Waste.md|Waste]]
+*See also* [[Destruction.md|Destruction]]; [[Kill.md|Kill]]; [[Perish.md|Perish]]; [[Slay.md|Slay]]; [[Waste.md|Waste]]
 
 Lord said, I will *destroy* man, [[Genesis 6.7|Genesis 6:7]].
 
@@ -15,11 +14,11 @@ knowest thou not yet that Egypt is *destroyed*, [[Exodus 10.7|Exodus 10:7]].
 
 *destroy* their altars, [[Exodus 34.13|Exodus 34:13]] ([[Deuteronomy 7.5|Deuteronomy 7:5]]).
 
-thou shalt ... utterly *destroy* them, [[Deuteronomy 7.2|Deuteronomy 7:2]].
+thou shalt … utterly *destroy* them, [[Deuteronomy 7.2|Deuteronomy 7:2]].
 
-Go ... lest I *destroy* you with them, [[1 Samuel 15.6|1 Samuel 15:6]].
+Go … lest I *destroy* you with them, [[1 Samuel 15.6|1 Samuel 15:6]].
 
-not afraid ... to *destroy* the Lord's anointed, [[2 Samuel 1.14|2 Samuel 1:14]].
+not afraid … to *destroy* the Lord’s anointed, [[2 Samuel 1.14|2 Samuel 1:14]].
 
 angel stretched out his hand upon Jerusalem to *destroy*, [[2 Samuel 24.16|2 Samuel 24:16]] ([[1 Chronicles 21.15|1 Chronicles 21:15]]).
 
@@ -37,7 +36,7 @@ he said that he would *destroy* them, [[Psalms 106.23|Psalms 106:23]].
 
 prosperity of fools shall *destroy* them, [[Proverbs 1.32|Proverbs 1:32]].
 
-adultery ... he that doeth it *destroyeth* his own soul, [[Proverbs 6.32|Proverbs 6:32]].
+adultery … he that doeth it *destroyeth* his own soul, [[Proverbs 6.32|Proverbs 6:32]].
 
 Whoso despiseth the word shall be *destroyed*, [[Proverbs 13.13|Proverbs 13:13]].
 
@@ -73,7 +72,7 @@ Think not that I am come to *destroy* the law, [[Matthew 5.17|Matthew 5:17]].
 
 fear him which is able to *destroy* both soul and body, [[Matthew 10.28|Matthew 10:28]].
 
-held a council ... how they might *destroy* him, [[Matthew 12.14|Matthew 12:14]] ([[Mark 3.6|Mark 3:6]]; [[Mark 11.18|Mark 11:18]]; [[Luke 19.47|Luke 19:47]]).
+held a council … how they might *destroy* him, [[Matthew 12.14|Matthew 12:14]] ([[Mark 3.6|Mark 3:6]]; [[Mark 11.18|Mark 11:18]]; [[Luke 19.47|Luke 19:47]]).
 
 *destroy* those wicked men, [[Matthew 21.41|Matthew 21:41]] ([[Mark 12.9|Mark 12:9]]; [[Luke 20.16|Luke 20:16]]).
 
@@ -85,7 +84,7 @@ Thou that *destroyest* the temple, [[Matthew 27.40|Matthew 27:40]] ([[Mark 15.29
 
 art thou come to *destroy* us, [[Mark 1.24|Mark 1:24]] ([[Luke 4.34|Luke 4:34]]).
 
-Son of man is not come to *destroy* men's lives, [[Luke 9.56|Luke 9:56]].
+Son of man is not come to *destroy* men’s lives, [[Luke 9.56|Luke 9:56]].
 
 *Destroy* this temple, and in three days, [[John 2.19|John 2:19]].
 
@@ -119,7 +118,7 @@ that he might *destroy* the works of the devil, [[1 John 3.8|1 John 3:8]].
 
 Jerusalem must be *destroyed*, [[1 Nephi 1.4|1 Nephi 1:4]] ([[1 Nephi 2.13|1 Nephi 2:13]]).
 
-become wicked ... must be *destroyed*, [[1 Nephi 17.43|1 Nephi 17:43]].
+become wicked … must be *destroyed*, [[1 Nephi 17.43|1 Nephi 17:43]].
 
 fight against Zion shall be *destroyed*, [[1 Nephi 22.14|1 Nephi 22:14]].
 
@@ -135,15 +134,15 @@ Jerusalem shall be *destroyed* again, [[2 Nephi 25.14|2 Nephi 25:14]].
 
 wicked will he *destroy*, [[2 Nephi 30.10|2 Nephi 30:10]].
 
-go about ... seeking to *destroy* the church, [[Mosiah 27.10|Mosiah 27:10]].
+go about … seeking to *destroy* the church, [[Mosiah 27.10|Mosiah 27:10]].
 
 to *destroy* the foundation of liberty, [[Alma 46.10|Alma 46:10]].
 
-if it were not for the righteous ... I would ... *destroy* it, [[Helaman 13.13|Helaman 13:13]].
+if it were not for the righteous … I would … *destroy* it, [[Helaman 13.13|Helaman 13:13]].
 
 be *destroyed* when they were ripened, [[Ether 9.20|Ether 9:20]].
 
-cunning plan ... to *destroy* the work of God, [[D&C 10.23|D&C 10:23]].
+cunning plan … to *destroy* the work of God, [[D&C 10.23|D&C 10:23]].
 
 even to the *destroying* of Satan, [[D&C 19.3|D&C 19:3]].
 

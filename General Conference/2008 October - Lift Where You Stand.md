@@ -8,7 +8,7 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/10/lift-where-you-stand?lang=eng)
 
-Beloved brethren, I am honored to be with you at this worldwide priesthood gathering. With you, I am so grateful to be in the presence of our beloved prophet, President Thomas S. Monson, and President Eyring. Brethren, we thank you for your faithfulness and moral strength. It is indeed a privilege and a joy to be part of this great brotherhood.
+Beloved brethren, I am honored to be with you at this worldwide priesthood gathering. With you, I am so grateful to be in the presence of our beloved prophet, President Thomas S. Monson, and President Eyring. Brethren, we thank you for your faithfulness and moral strength. It is indeed a privilege and a joy to be part of this great brotherhood.
 
 ## Lift Where You Stand
 
@@ -68,7 +68,7 @@ His hands carved the words “Holiness to the Lord” that stand today as a gold
 
 John did not do this for the praise of man. Neither did he shirk his duty, even though he had every reason to do so. He knew what the Lord expected him to do.
 
-Years later, John’s grandson Henry D. Moyle was called as a member of the Quorum of the Twelve and, eventually, served in the First Presidency of the Church. President Moyle’s service in these callings was honorable, but his grandfather John’s service, though somewhat less public, is just as pleasing to the Lord. John’s character, his legacy of sacrifice, serves as a banner of faithfulness and an ensign of duty to his family and to the Church. John Rowe Moyle understood the meaning of “lift where you stand.”
+Years later, John’s grandson Henry D. Moyle was called as a member of the Quorum of the Twelve and, eventually, served in the First Presidency of the Church. President Moyle’s service in these callings was honorable, but his grandfather John’s service, though somewhat less public, is just as pleasing to the Lord. John’s character, his legacy of sacrifice, serves as a banner of faithfulness and an ensign of duty to his family and to the Church. John Rowe Moyle understood the meaning of “lift where you stand.”
 
 ## The Example of Helaman’s 2,000 Warriors
 
@@ -119,8 +119,6 @@ For this I pray, and I leave you my blessing and my love in the name of Jesus Ch
 
 [^4]: See [[Luke 16.19|Luke 16:19–31]][[Luke 16.20|]][[Luke 16.21|]][[Luke 16.22|]][[Luke 16.23|]][[Luke 16.24|]][[Luke 16.25|]][[Luke 16.26|]][[Luke 16.27|]][[Luke 16.28|]][[Luke 16.29|]][[Luke 16.30|]][[Luke 16.31|]].
 
-[^5]: In Gene A. Sessions, ed., “Biographies and Reminiscences from the James Henry Moyle Collection,” typescript, Church Archives, The Church of Jesus Christ of Latter-day Saints, 203.
+[^5]: In Gene A. Sessions, ed., “Biographies and Reminiscences from the James Henry Moyle Collection,” typescript, Church Archives, The Church of Jesus Christ of Latter-day Saints, 203.
 
-
-
-#Church_Callings #Priesthood #Service
+#ChurchCallings #Priesthood #Service

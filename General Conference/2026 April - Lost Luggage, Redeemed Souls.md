@@ -1,6 +1,6 @@
 # Lost Luggage, Redeemed Souls
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -14,7 +14,7 @@ Have you ever stood at an empty airport luggage return carousel, as it circles e
 
 Today I will talk about lost luggage.
 
-An estimated 33 million bags were mishandled at airports in 2024.[^1] Although this happens to only a small percentage of travelers, no matter how infrequent, the thought of losing important belongings is a universal worry.
+An estimated 33 million bags were mishandled at airports in 2024.[^1] Although this happens to only a small percentage of travelers, no matter how infrequent, the thought of losing important belongings is a universal worry.
 
 Recently, while traveling for a weekend assignment, I realized my carry-on bag wouldn’t fit in the overhead space. I needed that bag. It contained important, essential material. Almost before I had a chance to react, an attendant took my bag, wrapped a tag around its handle, handed me a luggage claim ticket, and whisked my precious possession away.
 
@@ -22,7 +22,7 @@ Throughout that flight, I had an anxious feeling. I hoped someone was taking car
 
 My story had a happy ending; my bag and I were reunited. But the experience got me thinking.
 
-You may have heard a report from Osaka, Japan, about the Kansai International Airport’s world record—something almost unbelievable. After 30 years of operation and processing hundreds of millions of pieces of cargo, carry-ons, and cases, this airport has not lost one item of luggage.
+You may have heard a report from Osaka, Japan, about the Kansai International Airport’s world record—something almost unbelievable. After 30 years of operation and processing hundreds of millions of pieces of cargo, carry-ons, and cases, this airport has not lost one item of luggage.
 
 Not one single piece!
 
@@ -82,7 +82,7 @@ The second is the universal charge to strengthen and nurture the rising generati
 
 In the perilous times in which we live, the rising generation needs a defense and refuge from the storm.[^9] We can contribute to this effort by investing time and teaching. There is no greater need and no greater return on this investment than when it is made with Primary children, young men, young women, and young adults.
 
-President Dieter F. Uchtdorf has promised that as we do our part in teaching, nurturing, and then trusting in God to work His miracles, “the result will be more beautiful and more stunning and more joyful than anything you could accomplish just by yourself.”[^10]
+President Dieter F. Uchtdorf has promised that as we do our part in teaching, nurturing, and then trusting in God to work His miracles, “the result will be more beautiful and more stunning and more joyful than anything you could accomplish just by yourself.”[^10]
 
 How do we do this?
 
@@ -117,33 +117,34 @@ That we may fulfill that mission for ourselves and diligently care for others as
 
 [^1]: See “Baggage Handling Decoded: The Tech, Trends, and Insights Making Travel Flow,” SITA, sita.aero.
 
-[^2]: Tsuyoshi Habuta, in Kathryn Fink and William Troop, “This Japanese Airport Hasn’t Lost Luggage in Three Decades,” NPR, May 24, 2024, npr.org.
+[^2]: Tsuyoshi Habuta, in Kathryn Fink and William Troop, “This Japanese Airport Hasn’t Lost Luggage in Three Decades,” NPR, May 24, 2024, npr.org.
 
 [^3]: See [[Alma 40.11|Alma 40:11]].
 
 [^4]: [[Moroni 6.4|Moroni 6:4]].
 
-[^5]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [21.1](https://churchofjesuschrist.org/study/manual/general-handbook/21-ministering?lang=eng&id=p6#p6), Gospel Library.
+[^5]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [21.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/21-ministering?lang=eng&id=p6#p6), Gospel Library.
 
-[^6]: See *General Handbook*, [21.1](https://churchofjesuschrist.org/study/manual/general-handbook/21-ministering?lang=eng&id=p45#p45).
+[^6]: See *General Handbook*, [21.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/21-ministering?lang=eng&id=p45#p45).
 
-[^7]: First Presidency letter, Apr. 2, 2018.
+[^7]: First Presidency letter, Apr. 2, 2018.
 
 [^8]: [[D&C 93.40|Doctrine and Covenants 93:40]].
 
 [^9]: See [[D&C 115.6|Doctrine and Covenants 115:6]].
 
-[^10]: “What you can and must do for the rising generation is provide rich, nourishing soil with access to flowing heavenly water. Remove weeds and anything that would block heavenly sunlight. Create the best possible conditions for growth. Patiently allow the rising generation to make inspired choices, and let God work His miracle. The result will be more beautiful and more stunning and more joyful than anything you could accomplish just by yourself” (Dieter F. Uchtdorf, “[[2023 April - Jesus Christ Is the Strength of Parents.md|Jesus Christ Is the Strength of Parents]],” *Liahona*, May 2023, 58).
+[^10]: “What you can and must do for the rising generation is provide rich, nourishing soil with access to flowing heavenly water. Remove weeds and anything that would block heavenly sunlight. Create the best possible conditions for growth. Patiently allow the rising generation to make inspired choices, and let God work His miracle. The result will be more beautiful and more stunning and more joyful than anything you could accomplish just by yourself” (Dieter F. Uchtdorf, “[[2023 April - Jesus Christ Is the Strength of Parents.md|Jesus Christ Is the Strength of Parents]],” *Liahona*, May 2023, 58).
 
 [^11]: See [[Matthew 16.24|Matthew 16:24]]; [[Mark 8.34|Mark 8:34]]; [[D&C 112.14|Doctrine and Covenants 112:14]].
 
 [^12]: See [[D&C 20.69|Doctrine and Covenants 20:69]]; [[D&C 46.7|46:7]].
 
-[^13]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^13]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^14]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p9#p9)” (worldwide youth devotional, June 3, 2018), Gospel Library.
+[^14]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p9#p9)” (worldwide youth devotional, June 3, 2018), Gospel Library.
 
-[^15]: Dieter F. Uchtdorf, “[[2022 October - Jesus Christ Is the Strength of Youth.md|Jesus Christ Is the Strength of Youth]],” *Liahona*, Nov. 2022, 10.
+[^15]: Dieter F. Uchtdorf, “[[2022 October - Jesus Christ Is the Strength of Youth.md|Jesus Christ Is the Strength of Youth]],” *Liahona*, Nov. 2022, 10.
 
-[^16]: “God’s love is so great that, except for the few who deliberately become sons of perdition, He has provided a destiny of glory for all of His children (see [[D&C 76.43|Doctrine and Covenants 76:43]])” (Dallin H. Oaks, “[[2020 April - The Great Plan.md|The Great Plan]],” *Liahona*, May 2020, 95).
+[^16]: “God’s love is so great that, except for the few who deliberately become sons of perdition, He has provided a destiny of glory for all of His children (see [[D&C 76.43|Doctrine and Covenants 76:43]])” (Dallin H. Oaks, “[[2020 April - The Great Plan.md|The Great Plan]],” *Liahona*, May 2020, 95).
 
+#Children #Love #Ministering #Redemption #YoungAdults #Youth

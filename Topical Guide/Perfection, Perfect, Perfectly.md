@@ -1,7 +1,6 @@
 # Perfection, Perfect, Perfectly
 
-
-*See also* [[God, Perfection of.md|God, Perfection of]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Godliness, Godly.md|Godliness]]; [[Integrity.md|Integrity]]; [[Jesus Christ, Exemplar.md|Jesus Christ, Exemplar]]; [[Just.md|Just]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Whole.md|Whole]]
+*See also* [[God, Perfection of.md|God, Perfection of]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Godliness.md|Godliness]]; [[Integrity.md|Integrity]]; [[Jesus Christ, Exemplar.md|Jesus Christ, Exemplar]]; [[Just.md|Just]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Whole.md|Whole]]
 
 Noah was a just man and *perfect*, [[Genesis 6.9|Genesis 6:9]] ([[Moses 8.27|Moses 8:27]]).
 
@@ -23,7 +22,7 @@ house of the Lord was *perfected*, [[2 Chronicles 8.16|2 Chronicles 8:16]].
 
 them whose heart is *perfect* toward him, [[2 Chronicles 16.9|2 Chronicles 16:9]].
 
-Job ... was *perfect* and upright, [[Job 1.1|Job 1:1]] ([[Job 1.8|Job 1:8]]).
+Job … was *perfect* and upright, [[Job 1.1|Job 1:1]] ([[Job 1.8|Job 1:8]]).
 
 God, his way is *perfect*, [[Psalms 18.30|Psalms 18:30]].
 
@@ -31,7 +30,7 @@ law of the Lord is *perfect*, [[Psalms 19.7|Psalms 19:7]].
 
 Zion, the *perfection* of beauty, [[Psalms 50.2|Psalms 50:2]].
 
-shineth ... unto the *perfect* day, [[Proverbs 4.18|Proverbs 4:18]].
+shineth … unto the *perfect* day, [[Proverbs 4.18|Proverbs 4:18]].
 
 Be ye therefore *perfect*, even as your Father, [[Matthew 5.48|Matthew 5:48]] ([[3 Nephi 12.48|3 Nephi 12:48]]).
 
@@ -39,13 +38,13 @@ If thou wilt be *perfect*, go and sell that thou hast, [[Matthew 19.21|Matthew 1
 
 every one that is *perfect* shall be as his master, [[Luke 6.40|Luke 6:40]].
 
-choked with cares ... and bring no fruit to *perfection*, [[Luke 8.14|Luke 8:14]].
+choked with cares … and bring no fruit to *perfection*, [[Luke 8.14|Luke 8:14]].
 
 third day I shall be *perfected*, [[Luke 13.32|Luke 13:32]].
 
 that they may be made *perfect* in one, [[John 17.23|John 17:23]].
 
-they ... expounded unto him the way of God more *perfectly*, [[Acts 18.26|Acts 18:26]].
+they … expounded unto him the way of God more *perfectly*, [[Acts 18.26|Acts 18:26]].
 
 *perfectly* joined together in the same mind, [[1 Corinthians 1.10|1 Corinthians 1:10]].
 
@@ -55,13 +54,13 @@ when that which is *perfect* is come, [[1 Corinthians 13.10|1 Corinthians 13:10]
 
 *perfecting* holiness in the fear of God, [[2 Corinthians 7.1|2 Corinthians 7:1]].
 
-Be *perfect* ... and the God of love and peace shall be with you, [[2 Corinthians 13.11|2 Corinthians 13:11]].
+Be *perfect* … and the God of love and peace shall be with you, [[2 Corinthians 13.11|2 Corinthians 13:11]].
 
 are ye now made *perfect* by the flesh, [[Galatians 3.3|Galatians 3:3]].
 
 For the *perfecting* of the saints, [[Ephesians 4.12|Ephesians 4:12]].
 
-in the unity of the faith ... unto a *perfect* man, [[Ephesians 4.13|Ephesians 4:13]].
+in the unity of the faith … unto a *perfect* man, [[Ephesians 4.13|Ephesians 4:13]].
 
 Not as though I had already attained, either were already *perfect*, [[Philippians 3.12|Philippians 3:12]].
 
@@ -87,7 +86,7 @@ law made nothing *perfect*, [[Hebrews 7.19|Hebrews 7:19]].
 
 could not make him that did the service *perfect*, [[Hebrews 9.9|Hebrews 9:9]].
 
-law ... never ... make the comers thereunto *perfect*, [[Hebrews 10.1|Hebrews 10:1]].
+law … never … make the comers thereunto *perfect*, [[Hebrews 10.1|Hebrews 10:1]].
 
 they without us should not be made *perfect*, [[Hebrews 11.40|Hebrews 11:40]].
 
@@ -99,13 +98,13 @@ patience have her *perfect* work, that ye may be *perfect*, [[James 1.4|James 1:
 
 every *perfect* gift is from above, [[James 1.17|James 1:17]].
 
-whoso looketh into the *perfect* law of liberty ... blessed in his deed, [[James 1.25|James 1:25]].
+whoso looketh into the *perfect* law of liberty … blessed in his deed, [[James 1.25|James 1:25]].
 
 by works was faith made *perfect*, [[James 2.22|James 2:22]].
 
 offend not in word, the same is a *perfect* man, [[James 3.2|James 3:2]].
 
-God ... make you *perfect*, [[1 Peter 5.10|1 Peter 5:10]].
+God … make you *perfect*, [[1 Peter 5.10|1 Peter 5:10]].
 
 verily is the love of God *perfected*, [[1 John 2.5|1 John 2:5]].
 
@@ -115,13 +114,13 @@ his love is *perfected*, [[1 John 4.12|1 John 4:12]].
 
 having a *perfect* knowledge like unto us, [[2 Nephi 9.13|2 Nephi 9:13]].
 
-press forward ... having a *perfect* brightness of hope, [[2 Nephi 31.20|2 Nephi 31:20]].
+press forward … having a *perfect* brightness of hope, [[2 Nephi 31.20|2 Nephi 31:20]].
 
 attain to a *perfect* knowledge of him, [[Jacob 4.12|Jacob 4:12]].
 
 he had a *perfect* knowledge of the language, [[Jacob 7.4|Jacob 7:4]].
 
-having ... a *perfect* remembrance of all your wickedness, [[Alma 5.18|Alma 5:18]].
+having … a *perfect* remembrance of all your wickedness, [[Alma 5.18|Alma 5:18]].
 
 reunited again in its *perfect* form, [[Alma 11.43|Alma 11:43]] ([[Alma 40.23|Alma 40:23]]; [[D&C 138.17|D&C 138:17]]).
 
@@ -133,7 +132,7 @@ all things shall be restored to their proper and *perfect* frame, [[Alma 40.23|A
 
 that God might be a *perfect*, just God, [[Alma 42.15|Alma 42:15]].
 
-Moroni ... man of a *perfect* understanding, [[Alma 48.11|Alma 48:11]].
+Moroni … man of a *perfect* understanding, [[Alma 48.11|Alma 48:11]].
 
 filled the judgment-seat with *perfect* uprightness, [[Alma 50.37|Alma 50:37]].
 
@@ -157,16 +156,14 @@ continue in patience until ye are *perfected*, [[D&C 67.13|D&C 67:13]].
 
 just men made *perfect* through Jesus the mediator, [[D&C 76.69|D&C 76:69]].
 
-when Christ ... shall have *perfected* his work, [[D&C 76.106|D&C 76:106]].
+when Christ … shall have *perfected* his work, [[D&C 76.106|D&C 76:106]].
 
-body hath need of every member ... that the system may be kept *perfect*, [[D&C 84.110|D&C 84:110]].
+body hath need of every member … that the system may be kept *perfect*, [[D&C 84.110|D&C 84:110]].
 
-Teach ye diligently ... that you may be instructed more *perfectly*, [[D&C 88.78|D&C 88:78]].
+Teach ye diligently … that you may be instructed more *perfectly*, [[D&C 88.78|D&C 88:78]].
 
 that my people may be taught more *perfectly*, [[D&C 105.10|D&C 105:10]].
 
 he (Seth) was a *perfect* man, [[D&C 107.43|D&C 107:43]].
 
 for the work of the ministry and the *perfecting* of my saints, [[D&C 124.143|D&C 124:143]].
-
-*See also* [[3 Nephi 27.19|3 Nephi 27:19]]; [[D&C 93.13|D&C 93:13]]; [[D&C 132.37|D&C 132:37]]; [[D&C 135.4|D&C 135:4]].

@@ -5,4 +5,4 @@
 [Isaiah 47:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.5?lang=eng#p5)
 
 
-[^a]: IE You are going into exile.  
+[^a]: IE you are going into exile.  

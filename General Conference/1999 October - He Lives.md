@@ -20,9 +20,9 @@ That we may be led to make the correct choices, He has said:
 
 “I say unto thee, put your trust in that Spirit which leadeth to do good—yea, to do justly, to walk humbly, to judge righteously; and this is my Spirit.
 
-“… I will impart unto you of my Spirit, which shall enlighten your mind, which shall fill your soul with joy;
+“… I will impart unto you of my Spirit, which shall enlighten your mind, which shall fill your soul with joy;
 
-“… By this shall you know, all things whatsoever you desire of me, which are pertaining unto things of righteousness, in faith believing in me that you shall receive.”[^3]
+“… By this shall you know, all things whatsoever you desire of me, which are pertaining unto things of righteousness, in faith believing in me that you shall receive.”[^3]
 
 “Pray always, and I will pour out my Spirit upon you, and great shall be your blessing.”[^4]
 
@@ -36,7 +36,7 @@ I do not fully understand how it is done, but this divine current does not take 
 
 It is wondrously simple and so incomparably beautiful. As you continue to live righteously, you will always know what to do. Sometimes the discovery of that may require significant effort and trust on your part. Yet you will recognize what to do as you meet the conditions for such divine guidance in your life: obedience to the commandments of the Lord, trust in His plan, and the avoidance of anything that is contrary to it. The more closely you conform your life to the doctrine of the Lord, the more capacity you will have to do what the Spirit inspires you to do.[^6]
 
-I suggest that you memorize scriptures that touch your heart and fill your soul with understanding. When scriptures are used as the Lord has caused them to be recorded, they have intrinsic power that is not communicated when paraphrased. Sometimes when there is a significant need in my life, I review mentally scriptures that have given me strength. There is great solace, direction, and power that flow from the scriptures, especially the words of the Lord. These three examples will illustrate: “Therefore, let your hearts be comforted … ; for all flesh is in mine hands; be still and know that I am God.”[^7]
+I suggest that you memorize scriptures that touch your heart and fill your soul with understanding. When scriptures are used as the Lord has caused them to be recorded, they have intrinsic power that is not communicated when paraphrased. Sometimes when there is a significant need in my life, I review mentally scriptures that have given me strength. There is great solace, direction, and power that flow from the scriptures, especially the words of the Lord. These three examples will illustrate: “Therefore, let your hearts be comforted … ; for all flesh is in mine hands; be still and know that I am God.”[^7]
 
 “The works, and the designs, and the purposes of God cannot be frustrated, neither can they come to naught.
 
@@ -102,7 +102,7 @@ In closing, may I quote from Alma’s testimony as if it were my own, for I have
 
 “For I am called to speak after this manner, according to the holy order of God, which is in Christ Jesus; yea, I am commanded to stand and testify …
 
-“… that I do know that these things whereof I have spoken are true. …
+“… that I do know that these things whereof I have spoken are true. …
 
 “… They are made known unto me by the Holy Spirit of God. … I have fasted and prayed … that I might know these things of myself. And now I do know of myself that they are true; for the Lord God hath made them manifest unto me by his Holy Spirit.”[^24]
 
@@ -111,7 +111,7 @@ As one of His Apostles, authorized to bear witness of Him, I solemnly testify th
 
 
 
-[^1]: [[D&C 8.2|D&C 8:2]]; see also [[D&C 8.3|v. 3]].
+[^1]: [[D&C 8.2|D&C 8:2]]; see also [[D&C 8.3|v. 3]].
 
 [^2]: [[D&C 42.14|D&C 42:14]].
 
@@ -141,7 +141,7 @@ As one of His Apostles, authorized to bear witness of Him, I solemnly testify th
 
 [^15]: [[D&C 25.16|D&C 25:16]].
 
-[^16]: [[1 Nephi 19.23|1 Ne. 19:23]].
+[^16]: [[1 Nephi 19.23|1 Ne. 19:23]].
 
 [^17]: [[D&C 46.7|D&C 46:7]].
 
@@ -151,11 +151,12 @@ As one of His Apostles, authorized to bear witness of Him, I solemnly testify th
 
 [^20]: See [[D&C 42.15|D&C 42:15–16]][[D&C 42.16|]].
 
-[^21]: [[D&C 98.1|D&C 98:1]]; see also [[1 Thessalonians 5.16|1 Thes. 5:16]].
+[^21]: [[D&C 98.1|D&C 98:1]]; see also [[1 Thessalonians 5.16|1 Thes. 5:16]].
 
 [^22]: [[D&C 78.19|D&C 78:19]].
 
 [^23]: [[D&C 59.21|D&C 59:21]].
 
+[^24]: [[Alma 5.43|Alma 5:43–46]][[Alma 5.44|]][[Alma 5.45|]][[Alma 5.46|]].
 
-#Activation #Agency #Gratitude #Habits #Holy_Ghost #Jesus_Christ #Obedience #Plan_Of_Salvation #Repentance #Scripture_Study
+#Activation #Agency #Gratitude #Habits #HolyGhost #JesusChrist #Obedience #PlanOfSalvation #Repentance #ScriptureStudy

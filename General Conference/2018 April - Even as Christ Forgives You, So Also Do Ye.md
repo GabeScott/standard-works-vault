@@ -1,6 +1,6 @@
 # Even as Christ Forgives You, So Also Do Ye
 
-By Elder Larry J. Echo Hawk - *Of the Seventy*
+By Elder Larry J. Echo Hawk - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -52,7 +52,7 @@ The Apostle Paul counseled:
 
 “Put on therefore, as the elect of God, … bowels of mercies, kindness, humbleness of mind, meekness, longsuffering;
 
-“Forbearing one another, and forgiving one another … : *even as Christ forgave you, so also do ye.*”[^4]
+“Forbearing one another, and forgiving one another … : *even as Christ forgave you, so also do ye.*”[^4]
 
 The Lord Himself declared:
 
@@ -89,7 +89,7 @@ The tomb is empty. Christ lives. I know Him. I love Him. I am grateful for His g
 
 [^5]: [[D&C 64.9|Doctrine and Covenants 64:9–10]][[D&C 64.10|]].
 
-[^6]: See James E. Talmage, *The Articles of Faith,* 12th ed. (1924), 110.
+[^6]: See James E. Talmage, *The Articles of Faith,* 12th ed. (1924), 110.
 
 [^7]: [[D&C 58.42|Doctrine and Covenants 58:42]].
 
@@ -97,6 +97,4 @@ The tomb is empty. Christ lives. I know Him. I love Him. I am grateful for His g
 
 [^9]: [[John 14.27|John 14:27]].
 
-
-
-#Forgiveness #Jesus_Christ
+#Forgiveness #JesusChrist

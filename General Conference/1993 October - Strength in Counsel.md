@@ -14,9 +14,9 @@ We have missed the voices of President Benson, President Hunter, and Elder Ashto
 
 God called a grand council in the premortal world to present His glorious plan for our eternal welfare. The Lord’s church is organized with councils at every level, beginning with the Council of the First Presidency and the Quorum of the Twelve Apostles and extending to stake, ward, quorum, auxiliary, and family councils.
 
-President Stephen L Richards said: “The genius of our Church government is government through *councils.* … I have had enough experience to know the value of councils. Hardly a day passes but that I see … God’s wisdom, in creating councils … to govern his Kingdom. …
+President Stephen L Richards said: “The genius of our Church government is government through *councils.* … I have had enough experience to know the value of councils. Hardly a day passes but that I see … God’s wisdom, in creating councils … to govern his Kingdom. …
 
-“… I have no hesitancy in giving you the assurance, if you will confer in council as you are expected to do, God will give you solutions to the problems that confront you” (in Conference Report, Oct. 1953, p. 86).
+“… I have no hesitancy in giving you the assurance, if you will confer in council as you are expected to do, God will give you solutions to the problems that confront you” (in Conference Report, Oct. 1953, p. 86).
 
 As a member of the Twelve, I serve on several general Church councils and committees. I meet regularly with the leaders of the auxiliaries. Together we counsel, we search the scriptures, and pray for guidance as we strive to learn how the auxiliaries can more effectively bless and strengthen the members of the Church.
 
@@ -42,15 +42,15 @@ The Apostle Paul taught that the Savior organized the Church, complete with Apos
 
 “Till we all come in the unity of the faith” ([[Ephesians 4.12|Eph. 4:12–13]][[Ephesians 4.13|]]).
 
-Paul compared the members of the Church and their various responsibilities to the body: “For the body is not one member, but many. …
+Paul compared the members of the Church and their various responsibilities to the body: “For the body is not one member, but many. …
 
-“But now hath God set the members every one of them in the body, as it hath pleased him. …
+“But now hath God set the members every one of them in the body, as it hath pleased him. …
 
 “But now are they many members, yet but one body.
 
-“And the eye cannot say unto the hand, I have no need of thee: nor again the head to the feet, I have no need of you. …
+“And the eye cannot say unto the hand, I have no need of thee: nor again the head to the feet, I have no need of you. …
 
-“And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it” ([[1 Corinthians 12.14|1 Cor. 12:14, 18, 20–21, 26]][[1 Corinthians 12.18|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.26|]]).
+“And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it” ([[1 Corinthians 12.14|1 Cor. 12:14, 18, 20–21, 26]][[1 Corinthians 12.18|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.26|]]).
 
 The scriptures state clearly that while our respective callings may be different and may change from time to time, all callings are important to the operation of the Church. We need the priesthood quorums to assert themselves and fulfill their divinely mandated stewardship, just as we need the Relief Society, the Primary, the Young Women, the Sunday School, and the activities committees to perform their vital functions. And we need the officers and members of all of these inspired organizations to work together, assisting each other as needed for the benefit of individuals and families. This is not man’s work nor woman’s work; it is *all* God’s work, which is centered on the atonement of our Lord Jesus Christ. I have some specific suggestions that, if followed, I believe can help us be more effective with our families and in our Church callings.
 
@@ -66,11 +66,11 @@ President David O. McKay told of a meeting of the Council of the Twelve Apostles
 
 “While it was not wholly in harmony with what he had decided,” President McKay wrote, “the President of the Twelve … was the first on his feet to say, ‘Brethren, I move that that becomes the opinion and judgment of this Council.’
 
-“‘Second the motion,’ said another, and it was unanimous. Six months did not pass before the wisdom of that leader was demonstrated” (*Gospel Ideals* \[Salt Lake City: Improvement Era, 1953\], p. 264).
+“‘Second the motion,’ said another, and it was unanimous. Six months did not pass before the wisdom of that leader was demonstrated” (*Gospel Ideals* \[Salt Lake City: Improvement Era, 1953\], p. 264).
 
 When a council leader reaches a decision, the council members should sustain it wholeheartedly.
 
-*Fifth, lead with love.* Jesus taught that the first and greatest commandment in the law is to “love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. … And the second is like unto it, Thou shalt love thy neighbour as thyself” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]]).
+*Fifth, lead with love.* Jesus taught that the first and greatest commandment in the law is to “love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. … And the second is like unto it, Thou shalt love thy neighbour as thyself” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]]).
 
 Priesthood leaders are to lead with “persuasion, … long-suffering, … gentleness and meekness, … love unfeigned; … kindness, and pure knowledge” ([[D&C 121.41|D&C 121:41–42]][[D&C 121.42|]]). Those are the principles that should guide us in our relationships as neighbors in the Church of Jesus Christ.
 
@@ -83,8 +83,6 @@ Thankfully, most of our fathers and priesthood officers lead with love, just as 
 May God bless you, brothers and sisters, to find inspired consensus and unity as you counsel together in your service one to another. Only in so doing can the Church and our families begin to approach their full potential for doing good among the children of God on earth.
 
 I know God lives and Jesus is the Christ. I know we can accomplish their work better through unity and love as we sit in council one with another. May we be blessed to so do is my humble prayer in the name of Jesus Christ, amen.
-
-
 
 
 

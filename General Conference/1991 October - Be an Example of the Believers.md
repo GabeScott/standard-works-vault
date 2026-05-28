@@ -64,11 +64,11 @@ Now, my dear sisters, each one of you will be required repeatedly to ask the que
 
 “We are daughters of our Heavenly Father who loves us, and we love Him. We will ‘stand as witnesses of God at all times and in all things, and in all places …’ as we strive to live the Young Women values, which are: faith, divine nature, individual worth, knowledge, choice and accountability, good works and integrity.
 
-“We believe as we come to accept and act upon these values, we will be prepared to make and keep sacred covenants, receive the ordinances of the temple, and enjoy the blessings of exaltation.” (*Ensign,* Apr. 1989, p. 45.)
+“We believe as we come to accept and act upon these values, we will be prepared to make and keep sacred covenants, receive the ordinances of the temple, and enjoy the blessings of exaltation.” (*Ensign,* Apr. 1989, p. 45.)
 
 In my judgment, this is an inspired statement, and if understood and followed by all of our Father’s children, this would be a much better world. If you live by these truths, you will not be carried along with the stream of women who do not seem to know who they are, their reason for being, or their prominent role in the plan of salvation.
 
-In 1979, President Spencer W. Kimball addressed the women of the Church just as I am doing tonight. At that time, speaking as the prophet of God, using words that are truly prophetic, he proclaimed: “Much of the major growth that is coming to the Church in the last days will come because many of the good women of the world (in whom there is often such an inner sense of spirituality) will be drawn to the Church in large numbers. This will happen to the degree that the women of the Church reflect righteousness and articulateness in their lives. … Thus it will be that female exemplars of the Church will be a significant force in both the numerical and the spiritual growth of the Church in the last days.” (*Ensign,* Nov. 1979, pp. 1034.)
+In 1979, President Spencer W. Kimball addressed the women of the Church just as I am doing tonight. At that time, speaking as the prophet of God, using words that are truly prophetic, he proclaimed: “Much of the major growth that is coming to the Church in the last days will come because many of the good women of the world (in whom there is often such an inner sense of spirituality) will be drawn to the Church in large numbers. This will happen to the degree that the women of the Church reflect righteousness and articulateness in their lives. … Thus it will be that female exemplars of the Church will be a significant force in both the numerical and the spiritual growth of the Church in the last days.” (*Ensign,* Nov. 1979, pp. 1034.)
 
 What an ennobling phrase, my beloved sisters. *Female exemplars!* What a glorious promise—to know that you can strengthen all those around you.
 
@@ -79,8 +79,6 @@ Transgression of any kind is always accompanied by a loss of self-esteem. You yo
 May God bless you dear sisters that each one of you can be an example, a light to those around you. You are daughters of your Heavenly Father, who loves you. May each one of you manifest your love for Him through your righteous, exemplary life. Always know in your hearts, dear sisters, that the Church is true.
 
 I testify to you that Jesus Christ lives and that He presides over this Church. President Benson is the prophet of the Lord. Heavenly Father and His Beloved Son love the precious women of the Church, as do all of your leaders. May God bless you now and always is my humble prayer, in the name of Jesus Christ, amen.
-
-
 
 
 

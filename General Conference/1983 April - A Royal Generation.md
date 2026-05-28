@@ -1,6 +1,6 @@
 # A Royal Generation
 
-By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -30,13 +30,13 @@ Joel saw the period of time in which we live as a great battleground for the sou
 
 Joel saw that this great battle would not be regarded in a casual way. It would be no time for weakness nor weaklings.
 
-The Apostle Paul wrote to his young missionary companion, Timothy, “This know also, that in the last days perilous times shall come.” ([[2 Timothy 3.1|2 Tim. 3:1]].)
+The Apostle Paul wrote to his young missionary companion, Timothy, “This know also, that in the last days perilous times shall come.” ([[2 Timothy 3.1|2 Tim. 3:1]].)
 
 The challenging conditions we find in the world today should be no surprise to us. As we approach the time of the Savior’s return, wickedness will increase. There will be more temptations in our daily lives, and they will become more intense. It will become more acceptable in the world to break the laws of God or to disregard them altogether. The stigma attached to immoral, dishonest behavior will disappear.
 
 In this difficult environment we will be expected to steer our own course in an upward direction. As President Kimball has warned us, it will neither be acceptable nor safe to remain on the plateaus where our present conduct has kept us. Abrupt downward forces, represented by increasing wickedness in the world, can only be offset by forces that move correspondingly upward. Our lives must be better than they have ever been before. This simply means that we will become increasingly different from those around us whose lives follow the world’s way. It is not easy to be different. There are intense pressures that work against us. But we must clearly understand that it is not safe to move in the same direction the world is moving, even though we remain slightly behind the pace they set. Such a course will eventually lead us to the same problems and heartaches. It will not permit us to perform the work the Lord has chosen us to do. It would disqualify us from his blessing and his protecting care.
 
-The Lord has said that the time will come when there will be “an entire separation of the righteous and the wicked.” ([[D&C 63.54|D&C 63:54]].) Nephi, in the Book of Mormon, said, “For the time speedily cometh that the Lord God shall cause a great division among the people, and the wicked will he destroy.” ([[2 Nephi 30.10|2 Ne. 30:10]].)
+The Lord has said that the time will come when there will be “an entire separation of the righteous and the wicked.” ([[D&C 63.54|D&C 63:54]].) Nephi, in the Book of Mormon, said, “For the time speedily cometh that the Lord God shall cause a great division among the people, and the wicked will he destroy.” ([[2 Nephi 30.10|2 Ne. 30:10]].)
 
 As we consider these promises, we should not forget the warning given by the Lord to the Latter-day Saints. “Nevertheless, Zion shall escape if she observe to do all things whatsoever I have commanded her.
 
@@ -58,7 +58,7 @@ Several years ago I expressed the following thoughts in an article that was prin
 
 “If my experience with this young man had been an isolated one, it would not be worthy of note here; unfortunately, however, it is not unique. There appears to be an increasing tendency and temptation for young people to sample the forbidden things of the world, not with the intent to embrace them permanently, but with the knowing decision to indulge in them momentarily as though they held a value of some kind too important or exciting to pass by. It is one of the great tests of our time.
 
-“While many recover from these excursions into forbidden territory, an increasing number of tragedies are occurring that reach out to bring a blight and a despair to many lives and that have long-lasting consequences. There is no such thing as private sin. Although its commission can be calculated … , its effects cannot be regulated by the person guilty of the misbehavior. To believe otherwise is to become gullible to one of the most insidious lies ever perpetrated by the father of lies.
+“While many recover from these excursions into forbidden territory, an increasing number of tragedies are occurring that reach out to bring a blight and a despair to many lives and that have long-lasting consequences. There is no such thing as private sin. Although its commission can be calculated … , its effects cannot be regulated by the person guilty of the misbehavior. To believe otherwise is to become gullible to one of the most insidious lies ever perpetrated by the father of lies.
 
 “\[Not long ago\] I attended a graduation ceremony at a local high school. The students who had been invited to speak for their classmates expressed themselves in terms of the grand and noble challenges that lay before them as they stepped across the threshold into adult life. The adult speakers extolled the virtues and potential of today’s youth and spoke of the horizons to be conquered in future years, the new scientific frontiers to be opened by members of the graduating class, the dread diseases for which cures would be found, and the breakthroughs in diplomacy and human relations that would bring lasting peace to the earth. It was a stimulating, inspiring service.
 
@@ -68,13 +68,11 @@ Several years ago I expressed the following thoughts in an article that was prin
 
 Young men, remember who you are. Remember the purpose for which you have come to the earth—the service you have been chosen to give. Stay true to the divine trust that our Heavenly Father and his Son, Jesus Christ, have placed upon you. You can contribute as much to the spiritual environment of your homes as any member of your family, and you have an obligation to do so. Study the scriptures and encourage the other members of your family to do so. Say your prayers and do all you can to influence other members of your family to pray. Pay your tithes. Obey the Word of Wisdom. Be chaste. You may have a greater influence than you have thought possible, if you will do your own part.
 
-Remember these words of Edward W. Bok: “Once we are convinced … that we are put here for a purpose: that the seed of divine energy has been given us and that it is for us to cultivate it to its fullest bloom, the way will be shown us. It is our part to make the effort and to put the fullest force and integrity into that effort. It is the young man of little faith who says, ‘I am nothing.’ It is the young man of true conception who says, ‘I am everything,’ and then goes out to prove it.”
+Remember these words of Edward W. Bok: “Once we are convinced … that we are put here for a purpose: that the seed of divine energy has been given us and that it is for us to cultivate it to its fullest bloom, the way will be shown us. It is our part to make the effort and to put the fullest force and integrity into that effort. It is the young man of little faith who says, ‘I am nothing.’ It is the young man of true conception who says, ‘I am everything,’ and then goes out to prove it.”
 
 Young men, let us prove by the way we live and serve that we are everything the Lord expects us to be, I pray in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Last_Days #Obedience #Priesthood #Repentance
+#LastDays #Obedience #Priesthood #Repentance

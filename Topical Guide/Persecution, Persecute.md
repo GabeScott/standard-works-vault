@@ -1,13 +1,12 @@
 # Persecution, Persecute
 
-
-*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Apostasy of Israel.md|Apostasy of Israel]]; [[Chastening.md|Chastening]]; [[Cruelty, Cruel.md|Cruelty]]; [[Despise.md|Despise]]; [[Enemies, Enemy.md|Enemies]]; [[Hate.md|Hate]]; [[Malice.md|Malice]]; [[Oppression, Oppress.md|Oppression]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Reviling, Revile.md|Reviling]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]
+*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Apostasy of Israel.md|Apostasy of Israel]]; [[Chastening.md|Chastening]]; [[Cruelty.md|Cruelty]]; [[Despise.md|Despise]]; [[Enemies.md|Enemies]]; [[Hate.md|Hate]]; [[Malice.md|Malice]]; [[Oppression.md|Oppression]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Reviling.md|Reviling]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]
 
 The wicked in his pride doth *persecute* the poor, [[Psalms 10.2|Psalms 10:2]].
 
 brought as a lamb to the *slaughter*, [[Isaiah 53.7|Isaiah 53:7]] ([[Jeremiah 11.19|Jeremiah 11:19]]; [[Mosiah 14.7|Mosiah 14:7]]).
 
-they which are *persecuted* for righteousness' sake, [[Matthew 5.10|Matthew 5:10]] ([[3 Nephi 12.10|3 Nephi 12:10]]).
+they which are *persecuted* for righteousness’ sake, [[Matthew 5.10|Matthew 5:10]] ([[3 Nephi 12.10|3 Nephi 12:10]]).
 
 so *persecuted* they the prophets, [[Matthew 5.12|Matthew 5:12]] ([[3 Nephi 12.12|3 Nephi 12:12]]).
 
@@ -17,7 +16,7 @@ pray for them which despitefully use you, and *persecute* you, [[Matthew 5.44|Ma
 
 *persecute* them from city to city, [[Matthew 23.34|Matthew 23:34]] ([[Luke 11.49|Luke 11:49]]).
 
-men shall hate you ... *separate* you from their company, [[Luke 6.22|Luke 6:22]].
+men shall hate you … *separate* you from their company, [[Luke 6.22|Luke 6:22]].
 
 Jerusalem, which *killest* the prophets, [[Luke 13.34|Luke 13:34]].
 
@@ -41,11 +40,11 @@ scattered abroad upon the *persecution* that arose, [[Acts 11.19|Acts 11:19]].
 
 commanded that they should be put to *death*, [[Acts 12.19|Acts 12:19]].
 
-Jews stirred up ... *persecution* against Paul, [[Acts 13.50|Acts 13:50]].
+Jews stirred up … *persecution* against Paul, [[Acts 13.50|Acts 13:50]].
 
 having *stoned* Paul, drew him out of the city, [[Acts 14.19|Acts 14:19]].
 
-Who shall separate us from the love of Christ? shall ... *persecution*, [[Romans 8.35|Romans 8:35]].
+Who shall separate us from the love of Christ? shall … *persecution*, [[Romans 8.35|Romans 8:35]].
 
 Bless them which *persecute* you, [[Romans 12.14|Romans 12:14]].
 
@@ -55,7 +54,7 @@ being *persecuted*, we suffer it, [[1 Corinthians 4.12|1 Corinthians 4:12]].
 
 Thrice was I *beaten* with rods, [[2 Corinthians 11.25|2 Corinthians 11:25]].
 
-take pleasure ... in *persecutions*, [[2 Corinthians 12.10|2 Corinthians 12:10]].
+take pleasure … in *persecutions*, [[2 Corinthians 12.10|2 Corinthians 12:10]].
 
 he which *persecuted* us in times past now preacheth the faith, [[Galatians 1.23|Galatians 1:23]].
 
@@ -73,11 +72,11 @@ was cast unto the earth, he *persecuted* the woman, [[Revelation 12.13|Revelatio
 
 they did treat me with much *harshness*, [[1 Nephi 18.11|1 Nephi 18:11]].
 
-because they are rich ... they *persecute* the meek, [[2 Nephi 9.30|2 Nephi 9:30]] ([[2 Nephi 28.13|2 Nephi 28:13]]).
+because they are rich … they *persecute* the meek, [[2 Nephi 9.30|2 Nephi 9:30]] ([[2 Nephi 28.13|2 Nephi 28:13]]).
 
-steadfastness ... notwithstanding all *persecution*, [[2 Nephi 26.8|2 Nephi 26:8]].
+steadfastness … notwithstanding all *persecution*, [[2 Nephi 26.8|2 Nephi 26:8]].
 
-should not any unbeliever *persecute* any ... who belonged to the church, [[Mosiah 27.2|Mosiah 27:2]].
+should not any unbeliever *persecute* any … who belonged to the church, [[Mosiah 27.2|Mosiah 27:2]].
 
 why *persecutest* thou the church of God, [[Mosiah 27.13|Mosiah 27:13]].
 
@@ -89,7 +88,7 @@ lifted up in pride, even to the *persecution* of many of their brethren, [[Helam
 
 while others would receive railing and *persecution*, [[3 Nephi 6.13|3 Nephi 6:13]].
 
-they who are *persecuted* for my name's sake, [[3 Nephi 12.10|3 Nephi 12:10]] ([[Matthew 10.22|Matthew 10:22]]; [[D&C 101.35|D&C 101:35]]).
+they who are *persecuted* for my name’s sake, [[3 Nephi 12.10|3 Nephi 12:10]] ([[Matthew 10.22|Matthew 10:22]]; [[D&C 101.35|D&C 101:35]]).
 
 they did *persecute* the true church of Christ, [[4 Nephi 1.29|4 Nephi 1:29]].
 
@@ -101,16 +100,14 @@ that *persecuteth* the saints of God, [[D&C 88.94|D&C 88:94]].
 
 if men will *smite* you, or your families, [[D&C 98.23|D&C 98:23]].
 
-proclaim ... gospel ... in the midst of *persecution*, [[D&C 99.1|D&C 99:1]].
+proclaim … gospel … in the midst of *persecution*, [[D&C 99.1|D&C 99:1]].
 
 your brethren who have been afflicted, and *persecuted*, [[D&C 101.1|D&C 101:1]].
 
-left unto himself ... to *persecute* the saints, [[D&C 121.38|D&C 121:38]].
+left unto himself … to *persecute* the saints, [[D&C 121.38|D&C 121:38]].
 
-if thou shouldst be cast ... into the hands of *murderers* ... these things shall give thee experience, [[D&C 122.7|D&C 122:7]].
+if thou shouldst be cast … into the hands of *murderers* … these things shall give thee experience, [[D&C 122.7|D&C 122:7]].
 
 nation that has *driven* you out, [[D&C 136.34|D&C 136:34]].
 
 the most bitter *persecution* and reviling, [[Joseph Smith History 1.23|Joseph Smith History 1:23]].
-
-*See also* [[Acts 28.22|Acts 28:22]]; [[1 Nephi 8.33|1 Nephi 8:33]].

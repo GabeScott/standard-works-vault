@@ -1,6 +1,6 @@
 # Like a Broken Vessel
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -39,13 +39,13 @@ I testify of the holy Resurrection, that unspeakable cornerstone gift in the Ato
 
 
 
-[^1]: [[1 Peter 3.8|1 Peter 3:8]].
+[^1]: [[1 Peter 3.8|1 Peter 3:8]].
 
 [^2]: See [[Alma 26.27|Alma 26:27]]; see also [[Alma 56.16|Alma 56:16]].
 
 [^3]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 267.
 
-[^4]: Thomas S. Monson, “We Never Walk Alone,” *Ensign* or *Liahona,* Nov. 2013, 123, 124.
+[^4]: Thomas S. Monson, “We Never Walk Alone,” *Ensign* or *Liahona,* Nov. 2013, 123, 124.
 
 [^5]: See [[Matthew 26.39|Matthew 26:39]].
 
@@ -55,13 +55,14 @@ I testify of the holy Resurrection, that unspeakable cornerstone gift in the Ato
 
 [^8]: [[D&C 121.41|Doctrine and Covenants 121:41]].
 
-[^9]: [[1 Corinthians 13.4|1 Corinthians 13:4, 7–8]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]]; emphasis added; see also [[Moroni 7.45|Moroni 7:45–46]][[Moroni 7.46|]].
+[^9]: [[1 Corinthians 13.4|1 Corinthians 13:4, 7–8]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]]; emphasis added; see also [[Moroni 7.45|Moroni 7:45–46]][[Moroni 7.46|]].
 
 [^10]: [[Psalms 31.12|Psalm 31:12]].
 
-[^11]: See [[1 Corinthians 15.42|1 Corinthians 15:42–43]][[1 Corinthians 15.43|]].
+[^11]: See [[1 Corinthians 15.42|1 Corinthians 15:42–43]][[1 Corinthians 15.43|]].
 
-[^12]: “Free at Last,” in John W. Work, comp., *American Negro Songs: 230 Folk Songs and Spirituals, Religious and Secular* (1998), 197.
+[^12]: “Free at Last,” in John W. Work, comp., *American Negro Songs: 230 Folk Songs and Spirituals, Religious and Secular* (1998), 197.
 
+[^13]: [[1 Peter 3.8|1 Peter 3:8]].
 
 #Adversity #Compassion #Disabilities

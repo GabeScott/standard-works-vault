@@ -8,7 +8,7 @@ By Elder LeGrand R. Curtis - *Of the Seventy*
 
 A month ago we experienced an important event in our lives. Our oldest grandchild was married for time and eternity in the Salt Lake Temple. As that beautiful young lady knelt in the temple with a fine young man, many hopes and blessings were realized—for that young couple, the realization of the tremendous blessings of the temple ordinances; and for their parents, the fulfillment of years of teaching and loving. My wife, Patricia, and I felt many blessings as that group assembled, which included our eight children and their spouses.
 
-Since that day, we have reminisced and reviewed many teachings about what we see as the ideal home and family—which home and family, as to location, size, and makeup, are as diversified as our members. But these factors do not lessen the desire each of us has to achieve that ideal. President David O. McKay said, “It is possible to make home a bit of heaven; indeed, I picture heaven to be a continuation of the ideal home” (*Improvement Era,* Oct. 1948, p. 618). We hope that our children experience some of the following things in our home.
+Since that day, we have reminisced and reviewed many teachings about what we see as the ideal home and family—which home and family, as to location, size, and makeup, are as diversified as our members. But these factors do not lessen the desire each of us has to achieve that ideal. President David O. McKay said, “It is possible to make home a bit of heaven; indeed, I picture heaven to be a continuation of the ideal home” (*Improvement Era,* Oct. 1948, p. 618). We hope that our children experience some of the following things in our home.
 
 Perhaps the best gift parents can give their children is to love each other, to enjoy each other, and even to hold hands and demonstrate their love by the manner in which they talk to each other.
 
@@ -40,7 +40,7 @@ Mothers and fathers and children need the experience of bearing their testimonie
 
 Parents need to care enough to wait up for the children as they return from their dates, or go and find them if they are out too late. I remember reading many pages of scriptures as I sat at the kitchen table waiting for the teenagers to return.
 
-The kitchen table can provide a place for many valuable lessons and warm communications. We should not only partake of good food, but of love and friendship. Scriptures could be read around the kitchen table, and mothers and fathers could explain the teachings of the prophets. Nephi said, “For my soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children” ([[2 Nephi 4.15|2 Ne. 4:15]]). As we reflect on our years of rearing children, we can see how we and our loved ones have always needed the scriptures. What better could we discuss with our children than the scriptures and our love for them?
+The kitchen table can provide a place for many valuable lessons and warm communications. We should not only partake of good food, but of love and friendship. Scriptures could be read around the kitchen table, and mothers and fathers could explain the teachings of the prophets. Nephi said, “For my soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children” ([[2 Nephi 4.15|2 Ne. 4:15]]). As we reflect on our years of rearing children, we can see how we and our loved ones have always needed the scriptures. What better could we discuss with our children than the scriptures and our love for them?
 
 Children need to know that their parents love them enough to teach them the gospel. Monday evenings can be made special by family home evening—by the love present and by music, games, and valuable learning moments. We have found that the child who is rolling on the floor during family home evening listens and learns more than we think possible.
 
@@ -51,8 +51,6 @@ The things I have talked about today are some of the ideals, some of the things 
 I testify that I know the gospel of Jesus Christ and all that it gives us is meant for our happiness and for the happiness of those we love. Jesus Christ is the center of our lives. I know that he is close to his servants on this earth this day. He loves each of us, and we can honestly sing and proclaim, “I am a child of God” and mean it (*Hymns,* 1985, no. 301).
 
 I testify that Jesus is the Christ. I love him; my wife loves him; and we deeply desire that our children and grandchildren will love and obey our Lord and Savior. In the name of Jesus Christ, amen.
-
-
 
 
 

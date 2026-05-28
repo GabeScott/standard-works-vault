@@ -54,11 +54,11 @@ Then in the fall of 1848, he and his family made their way to Council Bluffs and
 
 “My name is Cowdery—Oliver Cowdery. In the history of the Church I stood … in her councils. Not because I was better than other men was I called … to fill the purposes of God. He called me to a high and holy calling. I wrote with my own pen the entire Book of Mormon (save a few pages) as it fell from the lips of the Prophet Joseph Smith, and he translated it by the power and gift of God, by means of the Urim and Thummim, or as it is called by that book, ‘Holy Interpreter.’
 
-“I beheld with my eyes and handled with my hands, the gold plates from which it was translated. … That book is true, Sidney Rigdon did not write it; Mr. Spaulding did not write it; I wrote it myself as it fell from the lips of the Prophet. …
+“I beheld with my eyes and handled with my hands, the gold plates from which it was translated. … That book is true, Sidney Rigdon did not write it; Mr. Spaulding did not write it; I wrote it myself as it fell from the lips of the Prophet. …
 
-“I was present with Joseph when an Holy Angel from Heaven came down and conferred upon us … the Aaronic Priesthood, and said to us, at the same time, that it should remain on earth while the earth stands. I was also present with Joseph when the Higher or Melchizedek Priesthood was conferred by the Holy Angels from on high. …
+“I was present with Joseph when an Holy Angel from Heaven came down and conferred upon us … the Aaronic Priesthood, and said to us, at the same time, that it should remain on earth while the earth stands. I was also present with Joseph when the Higher or Melchizedek Priesthood was conferred by the Holy Angels from on high. …
 
-“Brethren, for a number of years, I have been separated from you. I now desire to come back. I wish to come humble and be one in your midst. I seek no station. I only wish to be identified with you. I am out of the Church, but I wish to become a member. I wish to come in at the door: I know the door, I have not come here to seek precedence. I come humbly and throw myself upon the decision of the body, knowing as I do, that its decisions are right.” (In Stanley R. Gunn, *Oliver Cowdery: Second Elder and Scribe,* Salt Lake City: Bookcraft, 1962, pp. 203–4.)
+“Brethren, for a number of years, I have been separated from you. I now desire to come back. I wish to come humble and be one in your midst. I seek no station. I only wish to be identified with you. I am out of the Church, but I wish to become a member. I wish to come in at the door: I know the door, I have not come here to seek precedence. I come humbly and throw myself upon the decision of the body, knowing as I do, that its decisions are right.” (In Stanley R. Gunn, *Oliver Cowdery: Second Elder and Scribe,* Salt Lake City: Bookcraft, 1962, pp. 203–4.)
 
 He was accepted. He was baptized again. He longed to gather with the Saints in the valleys of the mountains, but he died March 3, 1850, without ever realizing that dream.
 
@@ -104,8 +104,6 @@ Strong words, those—but as true as the sunlight in the morning. I have seen su
 To each of us the Lord has said, “Magnify your calling.” It is not always easy. But it is always rewarding. It blesses him who holds this divine authority. On the other hand, looking through the wrong lens shrinks and shrivels our power and diminishes our contribution. In working from the opposite perspective, the true and the natural and the godly perspective, we enlarge and lift, we grow in strength and gladness, we bless the lives of others now and forever.
 
 My brethren, I bear witness and testimony of these things. I bear testimony of this divine power which you and I hold. It comes from God our Eternal Father and is exercised in the name of His Beloved Son. In the name of Jesus Christ, amen.
-
-
 
 
 

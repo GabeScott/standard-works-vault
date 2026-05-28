@@ -1,6 +1,5 @@
 # Lively
 
-
 received the *lively* oracles, [[Acts 7.38|Acts 7:38]].
 
 unto a *lively* hope by the resurrection, [[1 Peter 1.3|1 Peter 1:3]].

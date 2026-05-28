@@ -24,7 +24,7 @@ While the Prophet and his brethren were being held in a cold, unfinished courtho
 
 “… He stood erect in terrible majesty. Chained, and without a weapon; calm, unruffled and dignified as an angel.” The quaking guards shrank into a corner, dropped their weapons, “begged his pardon, and remained quiet till a change of guards.”
 
-Brother Pratt writes further: “I have seen the ministers of justice, clothed in magisterial robes … ; I have witnessed a Congress in solemn session … ; I have tried to conceive of kings, of royal courts, of thrones and crowns … ; but dignity and majesty have I seen but *once,* as it stood in chains, at midnight, in a dungeon in an obscure village of Missouri.”[^6]
+Brother Pratt writes further: “I have seen the ministers of justice, clothed in magisterial robes … ; I have witnessed a Congress in solemn session … ; I have tried to conceive of kings, of royal courts, of thrones and crowns … ; but dignity and majesty have I seen but *once,* as it stood in chains, at midnight, in a dungeon in an obscure village of Missouri.”[^6]
 
 Some weeks after that event, in another dark hour, Joseph implored the Lord for guidance. The Lord answered, “My son, peace be unto thy soul; thine adversity and thine afflictions shall be but a small moment.”[^7] Then the Lord said these intriguing words to the Prophet: “The ends of the earth shall inquire after thy name.”[^8]
 
@@ -81,7 +81,7 @@ I sorrow that a single drop of His blood was shed for me. I pray that someday I 
 
 [^4]: [[Mosiah 2.41|Mosiah 2:41]].
 
-[^5]: In Conference Report, Apr. 1978, 121; or *Ensign,* May 1978, 80.
+[^5]: In Conference Report, Apr. 1978, [[1978 April - Becoming the Pure in Heart.md|121]]; or *Ensign,* May 1978, 80.
 
 [^6]: *Autobiography of Parley P. Pratt* (1985), 180.
 
@@ -91,13 +91,13 @@ I sorrow that a single drop of His blood was shed for me. I pray that someday I 
 
 [^9]: [[D&C 135.4|D&C 135:4]].
 
-[^10]: Edwin Markham, “Lincoln, the Man of the People,” in *A Treasury of Great Poems, * comp. Louis Untermeyer (1955), 994–95.
+[^10]: Edwin Markham, “Lincoln, the Man of the People,” in *A Treasury of Great Poems,* comp. Louis Untermeyer (1955), 994–95.
 
-[^11]: In Conference Report, Oct. 1995, 30; or *Ensign,* Nov. 1995, 24.
+[^11]: In Conference Report, Oct. 1995, [[1995 October - “Swallowed Up in the Will of the Father”.md|30]]; or *Ensign,* Nov. 1995, 24.
 
 [^12]: [[D&C 64.34|D&C 64:34]].
 
-[^13]: [[3 Nephi 9.20|3 Nephi 9:20]].
+[^13]: [[3 Nephi 9.20|3 Nephi 9:20]].
 
 [^14]: *Hymns,* no. 29.
 
@@ -111,6 +111,4 @@ I sorrow that a single drop of His blood was shed for me. I pray that someday I 
 
 [^19]: “Come, Thou Fount of Every Blessing,” *Hymns* (1948), no. 70.
 
-
-
-#Atonement #Blessings #Jesus_Christ #Joseph_Smith #Sacrifice
+#Atonement #Blessings #JosephSmith #JesusChrist #Sacrifice

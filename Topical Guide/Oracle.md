@@ -1,6 +1,5 @@
 # Oracle
 
-
 as if a man had inquired at the *oracle* of God, [[2 Samuel 16.23|2 Samuel 16:23]].
 
 into the *oracle* of the house, [[1 Kings 8.6|1 Kings 8:6]] ([[2 Chronicles 5.7|2 Chronicles 5:7]]).

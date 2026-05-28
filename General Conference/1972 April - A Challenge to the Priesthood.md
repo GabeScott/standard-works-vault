@@ -1,6 +1,6 @@
 # A Challenge to the Priesthood
 
-By Bishop Vaughn J. Featherstone - *Of the Presiding Bishopric*
+By Bishop Vaughn J. Featherstone - *Of the Presiding Bishopric*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -36,13 +36,11 @@ In closing let me just quote to you the words of the prophet in the book of Alma
 
 “And it came to pass that when Aaron had said these words, the king did bow down before the Lord, upon his knees; yea, even he did prostrate himself upon the earth, and cried mightily, saying:
 
-“O God, Aaron hath told me that there is a God; and if there is a God, and if thou art God, wilt thou make thyself known unto me, and I will give away all my sins to know thee. …” ([[Alma 22.15|Alma 22:15–18]][[Alma 22.16|]][[Alma 22.17|]][[Alma 22.18|]].)
+“O God, Aaron hath told me that there is a God; and if there is a God, and if thou art God, wilt thou make thyself known unto me, and I will give away all my sins to know thee. …” ([[Alma 22.15|Alma 22:15–18]][[Alma 22.16|]][[Alma 22.17|]][[Alma 22.18|]].)
 
 There is a great host of Aaronic Priesthood bearers who would give away all their sins, they would give away all that the world would offer, and they would give away their riches, if they but knew that he was there. Our solemn responsibility today is to help these Aaronic Priesthood bearers understand and know the great callings, know that God does live, which I testify he does, and that we have living prophets upon the earth.
 
 During those twenty years I have watched our beloved prophet and the Council of the Twelve come in, I know these are inspired men, these are holy men; they are prophets. I so testify in the name of Jesus Christ. Amen.
-
-
 
 
 

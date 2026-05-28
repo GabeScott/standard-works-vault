@@ -112,7 +112,7 @@ Response: “We hope it will stay that way. I hope that it reflects, in some mea
 
 Mr. Wallace: “The Mormons, Mr. President, call you a ‘living Moses,’ a prophet who literally communicates with Jesus. How do you do that?”
 
-Reply: “Let me say first that there is a tremendous history behind this Church, a history of prophecy, a history of revelation, and … decisions which set the pattern of the Church so that there are not constant recurring problems that require any special dispensation. But there are occasionally things that arise where the will of the Lord \[is needed and\] is sought, and in those circumstances I think the best way I could describe the process is to liken it to the experience of Elijah as set forth in the book of First Kings. Elijah spoke to the Lord, and there was a wind, a great wind, and the Lord was not in the wind. And there was an earthquake, and the Lord was not in the earthquake. And there was a fire, and the Lord was not in the fire. And after the fire a still, small voice, which I describe as the whisperings of the Spirit. (See [[1 Kings 19.9|1 Kgs. 19:9–12]][[1 Kings 19.10|]][[1 Kings 19.11|]][[1 Kings 19.12|]].) Now, let me just say, categorically, that the things of God are understood by the Spirit of God, and one must have and seek and cultivate that Spirit, and there comes understanding and it is real. I can give testimony of that.”
+Reply: “Let me say first that there is a tremendous history behind this Church, a history of prophecy, a history of revelation, and … decisions which set the pattern of the Church so that there are not constant recurring problems that require any special dispensation. But there are occasionally things that arise where the will of the Lord \[is needed and\] is sought, and in those circumstances I think the best way I could describe the process is to liken it to the experience of Elijah as set forth in the book of First Kings. Elijah spoke to the Lord, and there was a wind, a great wind, and the Lord was not in the wind. And there was an earthquake, and the Lord was not in the earthquake. And there was a fire, and the Lord was not in the fire. And after the fire a still, small voice, which I describe as the whisperings of the Spirit. (See [[1 Kings 19.9|1 Kgs. 19:9–12]][[1 Kings 19.10|]][[1 Kings 19.11|]][[1 Kings 19.12|]].) Now, let me just say, categorically, that the things of God are understood by the Spirit of God, and one must have and seek and cultivate that Spirit, and there comes understanding and it is real. I can give testimony of that.”
 
 Question: “Why is your Church so aggressive about spreading the word, having missionaries knock on doors where they may not be welcome and where they’re obviously not invited?”
 
@@ -128,7 +128,7 @@ Reply: “Yes. To anybody who is not of this Church, I say we recognize all of t
 
 Mr. Wallace: “Tell me about Brigham Young.”
 
-Reply: “Brigham Young had a prophetic vision. Can anyone doubt it who looks around here today? No. And that’s the way it is with this Church. It has been led by revelation. ‘We believe all that God has revealed, all that He does now reveal, and … that He will yet reveal many great and important things pertaining to the Kingdom of God’ for the blessing of His sons and daughters wherever they may be found” ([[Articles of Faith 1.9|A of F 1:9]]).
+Reply: “Brigham Young had a prophetic vision. Can anyone doubt it who looks around here today? No. And that’s the way it is with this Church. It has been led by revelation. ‘We believe all that God has revealed, all that He does now reveal, and … that He will yet reveal many great and important things pertaining to the Kingdom of God’ for the blessing of His sons and daughters wherever they may be found” ([[Articles of Faith 1.9|A of F 1:9]]).
 
 Question: “As you know, some skeptics say that major changes in Church policy have come from political pressures, not necessarily as revelations from God. For example, the business of ending polygamy, say the skeptics, wasn’t because it was revelation but because Utah wanted to become a state.”
 
@@ -150,4 +150,5 @@ Well, brethren, that’s enough for this occasion. Needless to say, we were bles
 
 
 
-#Abuse #Agency #Example #Family #Home #Media #Missionary_Work #Morality #Parenthood #Prophets #Tithing #Welfare #Word_Of_Wisdom
+
+#Abuse #Agency #Example #Family #Home #Media #MissionaryWork #Morality #Parenthood #Prophets #Tithing #Welfare #WordOfWisdom

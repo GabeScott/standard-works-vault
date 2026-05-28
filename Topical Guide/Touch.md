@@ -1,6 +1,5 @@
 # Touch
 
-
 not eat of it, neither shall ye *touch* it, [[Genesis 3.3|Genesis 3:3]] ([[Moses 4.9|Moses 4:9]]).
 
 they shall not *touch* any holy thing, [[Numbers 4.15|Numbers 4:15]].
@@ -25,7 +24,7 @@ he *touched* her hand, and the fever left, [[Matthew 8.15|Matthew 8:15]].
 
 that they might only *touch* the hem of his garment, [[Matthew 14.36|Matthew 14:36]] ([[Mark 6.56|Mark 6:56]]).
 
-Jesus ... said, Who *touched* my clothes, [[Mark 5.30|Mark 5:30]] ([[Luke 8.45|Luke 8:45]]).
+Jesus … said, Who *touched* my clothes, [[Mark 5.30|Mark 5:30]] ([[Luke 8.45|Luke 8:45]]).
 
 brought young children to him, that he should *touch* them, [[Mark 10.13|Mark 10:13]] ([[Luke 18.15|Luke 18:15]]).
 
@@ -43,7 +42,7 @@ I command you that ye *touch* me not, [[1 Nephi 17.48|1 Nephi 17:48]] ([[Mosiah 
 
 *touch* not their unclean things, [[Alma 5.57|Alma 5:57]] ([[3 Nephi 20.41|3 Nephi 20:41]]).
 
-he *touched* ... disciples whom he had chosen, [[3 Nephi 18.36|3 Nephi 18:36]].
+he *touched* … disciples whom he had chosen, [[3 Nephi 18.36|3 Nephi 18:36]].
 
 *touch* these stones, O Lord, with thy finger, [[Ether 3.4|Ether 3:4]].
 

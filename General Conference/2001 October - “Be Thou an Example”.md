@@ -101,9 +101,9 @@ Dear sisters, you indeed are “examples of the believers.” May our Heavenly F
 
 
 
-[^1]: [[1 Timothy 4.1|1 Tim. 4:1–2]][[1 Timothy 4.2|]].
+[^1]: [[1 Timothy 4.1|1 Tim. 4:1–2]][[1 Timothy 4.2|]].
 
-[^2]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^2]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^3]: [[D&C 88.118|D&C 88:118]].
 
@@ -118,7 +118,5 @@ Dear sisters, you indeed are “examples of the believers.” May our Heavenly F
 [^8]: [[Psalms 121.2|Ps. 121:2]].
 
 [^9]: [[Matthew 25.21|Matt. 25:21]].
-
-
 
 #Death #Education #Example #Faith #Home #Love #Motherhood #Truth

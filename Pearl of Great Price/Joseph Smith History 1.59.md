@@ -5,7 +5,7 @@
 [Joseph Smith History 1:59](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.59?lang=eng#p59)
 
 
-[^a]: [[Isaiah 29.12|Isa. 29:12.]]
-[^b]: TG [[Dependability]]; [[Trustworthiness]].
-[^c]: JS—H 1:42.
-[^d]: TG [[Scriptures, Preservation of]].
+[^a]: [[Isaiah 29.12|Isa. 29:12]].  
+[^b]: [[Dependability|TG Dependability]]; [[Trustworthiness|Trustworthiness]].  
+[^c]: [[Joseph Smith History 1.42|JS—H 1:42]].  
+[^d]: [[Scriptures, Preservation of|TG Scriptures, Preservation of]].  

@@ -1,6 +1,5 @@
 # Wheel
 
-
 took off their chariot *wheels*, [[Exodus 14.25|Exodus 14:25]].
 
 my God, make them like a *wheel*, [[Psalms 83.13|Psalms 83:13]].

@@ -1,6 +1,5 @@
 # Alter
 
-
 *See also* [[Change.md|Change]]
 
 He shall not *alter* it, [[Leviticus 27.10|Leviticus 27:10]].

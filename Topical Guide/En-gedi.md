@@ -1,4 +1,3 @@
 # En-gedi
 
-
-*See* [BD En-gedi](https://www.churchofjesuschrist.org/study/scriptures/bd/en-gedi?lang=eng)
+*See also* [[BD En-gedi.md|BD En-gedi]]

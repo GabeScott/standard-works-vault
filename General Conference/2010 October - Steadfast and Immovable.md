@@ -66,9 +66,9 @@ Jesus Christ’s willingness to be the sacrificial lamb was an expression of His
 
 Isaiah describes the Savior’s suffering:
 
-“He hath borne our griefs, and carried our sorrows. …
+“He hath borne our griefs, and carried our sorrows. …
 
-“… He was wounded for our transgressions, he was bruised for our iniquities: … and with his stripes we are healed.”[^8]
+“… He was wounded for our transgressions, he was bruised for our iniquities: … and with his stripes we are healed.”[^8]
 
 The Lord Himself declared, “I, God, have suffered these things for all, that they might not suffer if they would repent.”[^9]
 
@@ -110,7 +110,7 @@ The Lord says, “If ye love me, keep my commandments.”[^12] Our faithful obed
 
 In the Doctrine and Covenants we are counseled:
 
-“Cleave unto the covenants which thou hast made. …
+“Cleave unto the covenants which thou hast made. …
 
 “Keep my commandments continually, and a crown of righteousness thou shalt receive.”[^13]
 
@@ -131,7 +131,7 @@ I know Heavenly Father loves each of His children perfectly, individually, and c
 
 [^3]: [[Moses 5.5|Moses 5:5]].
 
-[^4]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^4]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^5]: [[D&C 121.7|Doctrine and Covenants 121:7]].
 

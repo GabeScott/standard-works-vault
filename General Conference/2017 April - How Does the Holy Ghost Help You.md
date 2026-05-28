@@ -1,6 +1,6 @@
 # How Does the Holy Ghost Help You?
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -14,7 +14,7 @@ Following the opening song, prayer, and family business, the nine-year-old began
 
 Since then, I have continued to ask myself, “How does the Holy Ghost help you?”—a question especially relevant for Primary children turning eight and preparing for baptism and for those children who have recently been baptized and received the gift of the Holy Ghost. It is also relevant for the thousands of recent converts.
 
-I invite each of us, especially Primary children, to consider, “How does the Holy Ghost help you?” As I pondered this question, I immediately reflected upon an experience from my youth. This is a story I related to Elder Robert D. Hales shortly after my call to the Quorum of the Twelve Apostles and which he included in a Church magazine article he wrote about my life.[^1] Some of you may have heard this story, but many may not have.
+I invite each of us, especially Primary children, to consider, “How does the Holy Ghost help you?” As I pondered this question, I immediately reflected upon an experience from my youth. This is a story I related to Elder Robert D. Hales shortly after my call to the Quorum of the Twelve Apostles and which he included in a Church magazine article he wrote about my life.[^1] Some of you may have heard this story, but many may not have.
 
 When I was about 11 years old, my father and I went hiking on a hot summer day in the mountains near our home. As Dad hiked up the steep trail, I jumped from one large rock to another along the sides of the trail. Intending to climb one of the large rocks, I began to clamber to the top of it. As I did so, I was surprised when my dad grabbed me by my belt and quickly pulled me down, saying, “Don’t climb on that rock. Let’s just keep on the trail.”
 
@@ -44,7 +44,7 @@ As I described in my childhood experience, the Holy Ghost can help you by warnin
 
 During this time, I worked closely with President Reid Tateoka of the Japan Sendai Mission. As part of his usual mission routine, President Tateoka planned a meeting for missionary leaders in the southern portion of his mission. A few days prior to the meeting, President Tateoka had an impression, a feeling in his heart, to invite *all* missionaries of that zone to the leadership meeting, instead of the prescribed small number of elder and sister leaders.
 
-When he announced his intention, he was reminded that this meeting was not designed for all missionaries but only for mission leaders. However, setting convention aside in order to follow the prompting he had received, he invited all missionaries serving in several coastal cities, including the city of Fukushima, to the meeting. On the appointed day, March 11, 2011, the missionaries gathered together for the expanded mission meeting in the inland city of Koriyama.
+When he announced his intention, he was reminded that this meeting was not designed for all missionaries but only for mission leaders. However, setting convention aside in order to follow the prompting he had received, he invited all missionaries serving in several coastal cities, including the city of Fukushima, to the meeting. On the appointed day, March 11, 2011, the missionaries gathered together for the expanded mission meeting in the inland city of Koriyama.
 
 During this meeting a 9.0-magnitude earthquake and tsunami struck the region of Japan where the Japan Sendai Mission is located. Tragically, many coastal cities—including those from which the missionaries had been gathered—were devastated and suffered great loss of life. And the city of Fukushima suffered a subsequent nuclear event.
 
@@ -99,7 +99,7 @@ My dear brothers and sisters, old and young, I offer my witness of the glorious 
 
 
 
-[^1]: See Robert D. Hales, “[Elder Gary E. Stevenson: An Understanding Heart](https://churchofjesuschrist.org/study/liahona/2016/06/elder-gary-e-stevenson-an-understanding-heart?lang=eng),” *Ensign,* June 2016, 26; *Liahona,* June 2016, 14.
+[^1]: See Robert D. Hales, “[Elder Gary E. Stevenson: An Understanding Heart](https://www.churchofjesuschrist.org/study/liahona/2016/06/elder-gary-e-stevenson-an-understanding-heart?lang=eng),” *Ensign,* June 2016, 26; *Liahona,* June 2016, 14.
 
 [^2]: [[Articles of Faith 1.1|Articles of Faith 1:1]].
 
@@ -107,7 +107,7 @@ My dear brothers and sisters, old and young, I offer my witness of the glorious 
 
 [^4]: See [[Mosiah 18.13|Mosiah 18:13]]; [[Alma 5.46|Alma 5:46]]; [[Alma 9.21|9:21]]; [[D&C 88.3|Doctrine and Covenants 88:3]].
 
-[^5]: See [[1 Nephi 13.37|1 Nephi 13:37]]; [[2 Nephi 31.12|2 Nephi 31:12]]; [[D&C 121.46|Doctrine and Covenants 121:46]].
+[^5]: See [[1 Nephi 13.37|1 Nephi 13:37]]; [[2 Nephi 31.12|2 Nephi 31:12]]; [[D&C 121.46|Doctrine and Covenants 121:46]].
 
 [^6]: See [[D&C 138.33|Doctrine and Covenants 138:33]].
 
@@ -115,9 +115,10 @@ My dear brothers and sisters, old and young, I offer my witness of the glorious 
 
 [^8]: Personal correspondence, Dec. 18, 2016.
 
-[^9]: See [[Hebrews 10.15|Hebrews 10:15]]; [[2 Nephi 31.18|2 Nephi 31:18]]; [[Jacob 4.13|Jacob 4:13]].
+[^9]: See [[Hebrews 10.15|Hebrews 10:15]]; [[2 Nephi 31.18|2 Nephi 31:18]]; [[Jacob 4.13|Jacob 4:13]].
 
 [^10]: [[John 15.26|John 15:26]].
 
+[^11]: “The Still Small Voice,” *Children’s Songbook,* 107.
 
-#Adversity #Children #Holy_Ghost #Promptings #Worthiness
+#Adversity #Children #HolyGhost #Promptings #Worthiness

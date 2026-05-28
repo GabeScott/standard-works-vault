@@ -1,6 +1,6 @@
 # Teaching Our Children to Understand
 
-By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
+By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -20,7 +20,7 @@ In Psalms we read, “Give me understanding, and I shall keep thy law; yea, I sh
 
 Teaching our children to understand is more than just imparting information. It’s helping our children get the doctrine into their hearts in a way that it becomes part of their very being and is reflected in their attitudes and behavior throughout their lives.
 
-Nephi taught that the role of the Holy Ghost is to carry the truth “unto the hearts of the children of men” ([[2 Nephi 33.1|2 Nephi 33:1]]). Our role as parents is to do all we can to create an atmosphere where our children can feel the influence of the Spirit and then help them recognize what they are feeling.
+Nephi taught that the role of the Holy Ghost is to carry the truth “unto the hearts of the children of men” ([[2 Nephi 33.1|2 Nephi 33:1]]). Our role as parents is to do all we can to create an atmosphere where our children can feel the influence of the Spirit and then help them recognize what they are feeling.
 
 I’m reminded of a phone call I received several years ago from our daughter, Michelle. With tender emotion she said, “Mom, I just had the most incredible experience with Ashley.” Ashley is her daughter who was five years old at the time. Michelle described the morning as being one of constant squabbling between Ashley and three-year-old Andrew—one wouldn’t share and the other would hit. After helping them work things out, Michelle went to check the baby.
 
@@ -48,7 +48,7 @@ When his daughter recalled this experience after she was grown, she said: “I w
 
 Teaching for understanding takes determined and consistent effort. It requires teaching by precept and by example and especially by helping our children live what they learn.
 
-President Harold B. Lee taught, “Without experiencing a gospel principle in action, it is … more difficult to believe in that principle” (*Teachings of Presidents of the Church: Harold B. Lee* \[2000\], 121).
+President Harold B. Lee taught, “Without experiencing a gospel principle in action, it is … more difficult to believe in that principle” (*Teachings of Presidents of the Church: Harold B. Lee* \[2000\], 121).
 
 I first learned to pray by kneeling with my family in family prayer. I was taught the language of prayer as I listened to my parents pray and as they helped me say my first prayers. I learned that I could talk to Heavenly Father and ask for guidance.
 
@@ -56,9 +56,9 @@ Every morning without fail, my mother and father gathered us around the kitchen 
 
 Although there was much I didn’t understand about prayer as a child, it became such a part of my life that it stayed with me. I still continue to learn, and my understanding of the power of prayer still continues to grow.
 
-Elder Jeffrey R. Holland said, “We all understand that the success of the gospel message depends upon its being taught and then understood and then lived in such a way that its promise of happiness and salvation can be realized” (“Teaching and Learning in the Church” \[worldwide leadership training meeting, Feb. 10, 2007\], *Liahona,* June 2007, 57; *Ensign,* June 2007, 89).
+Elder Jeffrey R. Holland said, “We all understand that the success of the gospel message depends upon its being taught and then understood and then lived in such a way that its promise of happiness and salvation can be realized” (“Teaching and Learning in the Church” \[worldwide leadership training meeting, Feb. 10, 2007\], *Liahona,* June 2007, 57; *Ensign,* June 2007, 89).
 
-Learning to fully understand the doctrines of the gospel is a process of a lifetime and comes “line upon line, precept upon precept, here a little and there a little” ([[2 Nephi 28.30|2 Nephi 28:30]]). As children learn and act upon what they learn, their understanding is expanded, which leads to more learning, more action, and an even greater and more enduring understanding.
+Learning to fully understand the doctrines of the gospel is a process of a lifetime and comes “line upon line, precept upon precept, here a little and there a little” ([[2 Nephi 28.30|2 Nephi 28:30]]). As children learn and act upon what they learn, their understanding is expanded, which leads to more learning, more action, and an even greater and more enduring understanding.
 
 We can know our children are beginning to understand the doctrine when we see it revealed in their attitudes and actions without external threats or rewards. As our children learn to understand gospel doctrines, they become more self-reliant and more responsible. They become part of the solution to our family challenges and make a positive contribution to the environment of our home and the success of our family.
 
@@ -78,8 +78,6 @@ When we look into the eyes of a tiny infant, we are reminded of the song:
 >
 
 May we do so. In the name of Jesus Christ, amen.
-
-
 
 
 

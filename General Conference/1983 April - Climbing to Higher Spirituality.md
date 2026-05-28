@@ -79,6 +79,4 @@ The same is true for all of us! How do I know this? Because I know with all my h
 
 
 
-
-
 #Charity #Spirituality

@@ -18,7 +18,7 @@ Then two weeks ago, I was in southern Utah on the campus of Southern Utah Univer
 
 These are some of our young people of whom I am proud and concerning whom I have a great sense of gratitude and a compelling sense of optimism. In saying this, I do not wish to imply that all is well with all of them. There are many who have troubles and many who live far beneath the high expectations we have concerning them. There are also those who waver in their faith and who are troubled and frustrated within themselves. There are some, I regret to say, who step over the line of acceptable moral behavior and suffer great tragedies in their lives. But even considering these, I have great confidence in our young people as a whole. I regard you as the finest generation in the history of the Church. I compliment you, and I have in my heart a great feeling of love and respect and appreciation for you.
 
-Each time I have stood before such a group, there has come into my mind the great and prophetic statement made by Peter of old. Said he: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
+Each time I have stood before such a group, there has come into my mind the great and prophetic statement made by Peter of old. Said he: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 I know of no other statement which more aptly describes you nor which sets before you a higher ideal by which to shape and guide your lives.
 
@@ -32,11 +32,11 @@ He went on to say: “I have seen the parade of pathologies—they are unending 
 
 “Teen pregnancy has risen 621 percent since 1940. More than a million teenage girls get pregnant each year. Eighty-five percent of teenage boys who impregnate teenage girls eventually abandon them.
 
-“The teen homicide rate has increased 232 percent since 1950. Homicide is now the leading cause of death among fifteen- to nineteen-year-old minority youth. …
+“The teen homicide rate has increased 232 percent since 1950. Homicide is now the leading cause of death among fifteen- to nineteen-year-old minority youth. …
 
 “Every year substance abuse claims younger victims with harder drugs. A third of high school seniors get drunk once a week. The average age for first-time drug use is now thirteen years old.”
 
-The report reached a shocking conclusion. It said: “The challenges to the health and well-being of America’s youth are not primarily rooted in illness or economics. Unlike the past, the problem is not childhood disease or unsanitary slums. The most basic cause of suffering … is profoundly self-destructive *behavior.* Drinking. Drugs. Violence. Promiscuity. A crisis of behavior and belief. A crisis of character” (*Imprimis,* Sept. 1991, p. 1).
+The report reached a shocking conclusion. It said: “The challenges to the health and well-being of America’s youth are not primarily rooted in illness or economics. Unlike the past, the problem is not childhood disease or unsanitary slums. The most basic cause of suffering … is profoundly self-destructive *behavior.* Drinking. Drugs. Violence. Promiscuity. A crisis of behavior and belief. A crisis of character” (*Imprimis,* Sept. 1991, p. 1).
 
 When I read those statements, I said to myself, If that is the mainstream of American youth, then I want to do all in my power to persuade and encourage our young people to stay away from it.
 
@@ -104,4 +104,5 @@ God bless you, I humbly pray, as I bear witness and testimony of these things in
 
 
 
-#Accountability #Commandments #Joy #Morality #Obedience #Spirituality #Word_Of_Wisdom #Youth
+
+#Accountability #Commandments #Joy #Morality #Obedience #Spirituality #WordOfWisdom #Youth

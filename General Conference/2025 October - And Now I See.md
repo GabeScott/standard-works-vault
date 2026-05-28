@@ -1,6 +1,6 @@
 # And Now I See
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -8,11 +8,11 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/10/41holland?lang=eng)
 
-With love unfeigned we all echo President Oaks’s tribute to the passing of President Russell M. Nelson. And with equal love and deep mourning, we all acknowledge the tragedies in Michigan recently and almost daily around the world. We acknowledge these things with love and trust in the Lord Jesus Christ.
+With love unfeigned we all echo President Oaks’s tribute to the passing of President Russell M. Nelson. And with equal love and deep mourning, we all acknowledge the tragedies in Michigan recently and almost daily around the world. We acknowledge these things with love and trust in the Lord Jesus Christ.
 
 The [[John 9.1|ninth chapter of John]][[John 9.2|]][[John 9.3|]][[John 9.4|]][[John 9.5|]][[John 9.6|]][[John 9.7|]][[John 9.8|]][[John 9.9|]][[John 9.10|]][[John 9.11|]][[John 9.12|]][[John 9.13|]][[John 9.14|]][[John 9.15|]][[John 9.16|]][[John 9.17|]][[John 9.18|]][[John 9.19|]][[John 9.20|]][[John 9.21|]][[John 9.22|]][[John 9.23|]][[John 9.24|]][[John 9.25|]][[John 9.26|]][[John 9.27|]][[John 9.28|]][[John 9.29|]][[John 9.30|]][[John 9.31|]][[John 9.32|]][[John 9.33|]][[John 9.34|]][[John 9.35|]][[John 9.36|]][[John 9.37|]][[John 9.38|]][[John 9.39|]][[John 9.40|]][[John 9.41|]] records the experience of Jesus and His disciples passing near a beggar, blind from birth. This led the disciples to ask Jesus several complex religious questions regarding the origin and transmission of this man’s limitation. The Master responded by doing something very simple and very surprising. He spit into the dirt and stirred a small mixture of clay. He then applied this to the eyes of the man, instructing him to wash in the pool of Siloam. All this the sightless man obediently did and “came \[forth\] seeing,” the scripture says.[^1] How important evidence is, as opposed to wishes or argument or even malice in opposition to the truth.
 
-Well, afraid this miracle would again add to the threat Jesus already posed to their presumed authority, the enemies of the Savior confronted the newly sighted man and said in anger, “We know \[Jesus\] is a sinner.” The man listened for a moment, then said, “Whether he be a sinner … , I know not: \[but\] one thing I \[do\] know, … whereas I was blind, now I see.”[^2]
+Well, afraid this miracle would again add to the threat Jesus already posed to their presumed authority, the enemies of the Savior confronted the newly sighted man and said in anger, “We know \[Jesus\] is a sinner.” The man listened for a moment, then said, “Whether he be a sinner … , I know not: \[but\] one thing I \[do\] know, … whereas I was blind, now I see.”[^2]
 
 Jesus gave the first meaning to this exchange, telling His disciples that all this had happened “that the works of God should be made manifest.”[^3] Remember that twice in this narrative the Savior’s action was referred to as “anointing”[^4] the blind man’s eyes, an act to be completed by washing. This description of “the works of God \[being\] made manifest”[^5] could possibly suggest the unfolding of an ordinance.
 
@@ -51,13 +51,13 @@ In the name of Jesus Christ, amen.
 
 [^3]: [[John 9.3|John 9:3]].
 
-[^4]: See [[John 9.6|John 9:6, 11]][[John 9.11|]].
+[^4]: See [[John 9.6|John 9:6, 11]][[John 9.11|]].
 
 [^5]: [[John 9.3|John 9:3]].
 
-[^6]: See [[2 Kings 5.1|2 Kings 5:1–15]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]].
+[^6]: See [[2 Kings 5.1|2 Kings 5:1–15]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]].
 
-[^7]: See [[Numbers 21.4|Numbers 21:4–9]][[Numbers 21.5|]][[Numbers 21.6|]][[Numbers 21.7|]][[Numbers 21.8|]][[Numbers 21.9|]]; [[1 Nephi 17.41|1 Nephi 17:41]]; [[Alma 33.18|Alma 33:18–22]][[Alma 33.19|]][[Alma 33.20|]][[Alma 33.21|]][[Alma 33.22|]].
+[^7]: See [[Numbers 21.4|Numbers 21:4–9]][[Numbers 21.5|]][[Numbers 21.6|]][[Numbers 21.7|]][[Numbers 21.8|]][[Numbers 21.9|]]; [[1 Nephi 17.41|1 Nephi 17:41]]; [[Alma 33.18|Alma 33:18–22]][[Alma 33.19|]][[Alma 33.20|]][[Alma 33.21|]][[Alma 33.22|]].
 
 [^8]: [[Isaiah 53.2|Isaiah 53:2]].
 
@@ -67,8 +67,6 @@ In the name of Jesus Christ, amen.
 
 [^11]: [[John 9.23|John 9:23]].
 
-[^12]: “[Amazing Grace](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/amazing-grace?lang=eng&id=figure1_p1-figure1_p4#figure1_p1),” *Hymns—For Home and Church*, Gospel Library.
+[^12]: “[Amazing Grace](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/amazing-grace?lang=eng&id=figure1_p1-figure1_p4#figure1_p1),” *Hymns—For Home and Church*, Gospel Library.
 
-
-
-#Book_Of_Mormon #Priesthood_Authority #Testimony #Truth
+#BookOfMormon #PriesthoodAuthority #Testimony #Truth

@@ -4,7 +4,7 @@ By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2000 General Conference*
 
->*Will we listen to “Satan, the author of all lies … ? Or are we going to believe a loving Heavenly Father, who is the source of all truth and happiness?”*
+>*Will we listen to “Satan, the author of all lies … ? Or are we going to believe a loving Heavenly Father, who is the source of all truth and happiness?”*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2000/10/satans-bag-of-snipes?lang=eng)
 
@@ -18,9 +18,9 @@ When she did not return at the appointed time, we gloated and took delight in th
 
 Hoping she might have gone back to her dormitory, we returned and asked some young women to search for her there, but this also was to no avail. It was now turning dark, and our concern heightened. We enlisted all the young men we could from the boys’ dormitory and with flashlights continued the search deep into the woods. Well into the darkness of night—frightened, concerned, and hoarse from calling—we decided it was now time to report our ridiculous deed to the park rangers. While we were standing in front of the dorms, trying to determine which brave soul would have the privilege of reporting her disappearance, Jill suddenly appeared—not from her dormitory, but rather from that of a friend with whom she had enjoyed dinner (which we incidentally missed) and a comfortable evening with her friends. Her first words to us as she approached said it all: “How do you fellows like hunting *snipe hunters?*” Well, so much for big city naïveté, and so much for the ways of the real West. The joke was on us, and I have never had a desire for any more snipe hunting.
 
-But there is another “snipe hunt” going on all around us, and we may be the naive victims. It is not a practical joke, and it will not end with a good laugh and a little warm fellowship. Satan is the great deceiver, liar, and enemy to all that is good, including our happiness and our well-being. His great desire is to thwart our Heavenly Father’s plan of happiness and make us “miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]). Being the very author and perpetrator of deceit, he in effect would invite us to join him in his snipe hunt, to fill our bags with excitement, fun, popularity, and the so-called “good life.” But his promises are as illusionary as the nonexistent snipe. What he really offers are lies, misery, spiritual degradation, and loss of self-worth.
+But there is another “snipe hunt” going on all around us, and we may be the naive victims. It is not a practical joke, and it will not end with a good laugh and a little warm fellowship. Satan is the great deceiver, liar, and enemy to all that is good, including our happiness and our well-being. His great desire is to thwart our Heavenly Father’s plan of happiness and make us “miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]). Being the very author and perpetrator of deceit, he in effect would invite us to join him in his snipe hunt, to fill our bags with excitement, fun, popularity, and the so-called “good life.” But his promises are as illusionary as the nonexistent snipe. What he really offers are lies, misery, spiritual degradation, and loss of self-worth.
 
-Satan’s sales pitch as he sends us off to fill our bags is “Eat, drink, and be merry, for tomorrow we die” ([[2 Nephi 28.7|2 Ne. 28:7]]). His invitation may seem enticing and convincing. Nephi describes his sales techniques as pacifying, flattering, and lulling as he declares, “All is well” ([[2 Nephi 28.21|2 Ne. 28:21–22]][[2 Nephi 28.22|]]). Among other things Satan would have us put in our bags is immorality in all its forms, including pornography, language, dress, and behavior. But such evil deeds bring emotional distress, loss of spirituality, loss of self-respect, lost opportunity for a mission or temple marriage, and sometimes even unwanted pregnancy. Satan would enslave us by having us put drugs, alcohol, tobacco, and other addictive behaviors into our bags.
+Satan’s sales pitch as he sends us off to fill our bags is “Eat, drink, and be merry, for tomorrow we die” ([[2 Nephi 28.7|2 Ne. 28:7]]). His invitation may seem enticing and convincing. Nephi describes his sales techniques as pacifying, flattering, and lulling as he declares, “All is well” ([[2 Nephi 28.21|2 Ne. 28:21–22]][[2 Nephi 28.22|]]). Among other things Satan would have us put in our bags is immorality in all its forms, including pornography, language, dress, and behavior. But such evil deeds bring emotional distress, loss of spirituality, loss of self-respect, lost opportunity for a mission or temple marriage, and sometimes even unwanted pregnancy. Satan would enslave us by having us put drugs, alcohol, tobacco, and other addictive behaviors into our bags.
 
 Satan will tell us that these things are OK and that “everybody is doing it.” He will tell us that they bring popularity and acceptance. Satan’s lies can be very enticing, especially at that critical time in life when young people are craving acceptance and popularity.
 
@@ -44,7 +44,7 @@ When such justifications are given either outright by others or subtly by the wh
 
 God, our loving Father, the source of all truth, has warned us of Satan’s deceit. Listen to what the Lord has said through His prophets:
 
-- Paul taught the Saints in Corinth: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? If any man defile the temple of God, him shall God destroy; for the temple of God is holy” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
+- Paul taught the Saints in Corinth: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? If any man defile the temple of God, him shall God destroy; for the temple of God is holy” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
 
 - Jacob warned the Nephites of old: “But, wo, wo, unto you that are not pure in heart, that are filthy this day before God” ([[Jacob 3.3|Jacob 3:3]]).
 
@@ -61,6 +61,4 @@ Because of His priesthood, we are empowered. We are royalty. And we have the pow
 
 
 
-
-
-#Joy #Media #Morality #Priesthood #Prophets #Satan #Spirituality #Temptation #Truth #Word_Of_Wisdom
+#Joy #Media #Morality #Priesthood #Prophets #Satan #Spirituality #Temptation #Truth #WordOfWisdom

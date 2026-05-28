@@ -1,6 +1,6 @@
 # Revelation
 
-By Elder Henry D. Taylor - *Of the First Quorum of the Seventy*
+By Elder Henry D. Taylor - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -24,7 +24,7 @@ The Prophet received divine intelligence by open visions. Such is [[D&C 76.1|sec
 
 As we study the scriptures, we learn of the other different ways in which the Lord communicates with His children here upon the earth. Stephen, who was stoned to death, became filled with the Holy Ghost. He looked up steadfastly into heaven and beheld “Jesus standing on the right hand of God.” ([[Acts 7.55|Acts 7:55]].) Saul, who was present at the stoning, was active in persecuting Stephen and other followers of Jesus. Later, while on the road to Damascus, he beheld “a light from heaven.
 
-“… he fell to the earth, and heard a voice saying unto him, Saul, Saul, why persecutest thou me?
+“… he fell to the earth, and heard a voice saying unto him, Saul, Saul, why persecutest thou me?
 
 “And he said, Who art thou, Lord? And the Lord said, I am Jesus whom thou persecutest: it is hard for thee to kick against the pricks.” ([[Acts 9.3|Acts 9:3–5]][[Acts 9.4|]][[Acts 9.5|]].)
 
@@ -38,15 +38,13 @@ Pharaoh learned that there was a young man who had been unjustly cast into priso
 
 One of the best examples of the voice of the Lord coming into one’s mind is Enos. Enos was taught well by his father, but being young and immature, he was somewhat rebellious and committed some minor errors. Later he became aware of his misdeeds and the truth of his father’s teachings. He had a great desire to repent, to put his life in order, and to live righteously. Enos enjoyed hunting very much. One day as he went into the forest to hunt, the teachings of his father were strong in his mind. He had an intense desire to be forgiven of his past misdeeds. Kneeling down, he made earnest supplication to the Lord to forgive him. All day he pled in sincere prayer for forgiveness and continued his prayers into the night. Finally, a voice came unto him saying, “Enos, thy sins are forgiven thee.” Also, having concern for his brethren, he prayed for them. While he was thus struggling in the spirit, the voice of the Lord came into his mind, giving him certain assurances. (See [[Enos 1.1|Enos 1:1–17]][[Enos 1.2|]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]][[Enos 1.9|]][[Enos 1.10|]][[Enos 1.11|]][[Enos 1.12|]][[Enos 1.13|]][[Enos 1.14|]][[Enos 1.15|]][[Enos 1.16|]][[Enos 1.17|]].)
 
-While we know that designated leaders of the Church are sustained as prophets, seers, and revelators, and receive revelation in connection with their callings, we might ask, who else can receive revelation? President Brigham Young taught that every individual can receive revelation for himself. (See *Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book, 1941, p. 35.) Parents can receive revelation in connection with rearing their families.
+While we know that designated leaders of the Church are sustained as prophets, seers, and revelators, and receive revelation in connection with their callings, we might ask, who else can receive revelation? President Brigham Young taught that every individual can receive revelation for himself. (See *Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book, 1941, p. 35.) Parents can receive revelation in connection with rearing their families.
 
 It is my firm belief that the bishop of every ward and the president of every stake have the right to receive revelation as to what is best for their ward and stake members. Also, that every person who accepts a calling from the Lord has the right to receive revelation in connection with that calling if he is living righteously so that he is in tune with the Spirit of the Lord.
 
-But there is one thing that we must remember and keep clearly in mind. This doctrine was expressed by President J. Reuben Clark, Jr., many years ago in these words: The Lord has declared that “the Prophet, Seer, and Revelator for the Church … alone has the right to receive revelations for the Church, … or change in any way the existing doctrines of the Church.” No other member has any such right or authority. (“When Are Church Leaders’ Words Entitled to Claim of Scripture?” *Church News,* 31 July 1954, p. 2.)
+But there is one thing that we must remember and keep clearly in mind. This doctrine was expressed by President J. Reuben Clark, Jr., many years ago in these words: The Lord has declared that “the Prophet, Seer, and Revelator for the Church … alone has the right to receive revelations for the Church, … or change in any way the existing doctrines of the Church.” No other member has any such right or authority. (“When Are Church Leaders’ Words Entitled to Claim of Scripture?” *Church News,* 31 July 1954, p. 2.)
 
-The person that we look to today for revelation is President Spencer W. Kimball. I testify that he does receive revelation from the Lord for the guidance of this Church. May we hearken unto his counsel and have the wisdom and good judgment to follow that counsel, for which I pray in the name of the Lord Jesus Christ. Amen.
-
-
+The person that we look to today for revelation is President Spencer W. Kimball. I testify that he does receive revelation from the Lord for the guidance of this Church. May we hearken unto his counsel and have the wisdom and good judgment to follow that counsel, for which I pray in the name of the Lord Jesus Christ. Amen.
 
 
 

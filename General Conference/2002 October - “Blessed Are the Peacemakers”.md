@@ -36,7 +36,7 @@ This concept of treating others as one would like to be treated is easy to under
 
 Jesus taught the importance of reconciliation and resolution of dispute on a personal basis. He said:
 
-“Whosoever is angry with his brother … shall be in danger of the judgment. …
+“Whosoever is angry with his brother … shall be in danger of the judgment. …
 
 “Therefore if thou bring thy gift to the altar, and there rememberest that thy brother hath ought against thee;
 
@@ -68,7 +68,7 @@ Resolution of present political problems will require much patience and negotiat
 
 Isaiah prophesied of hope for our day. Speaking of the gathering of Israel and the Restoration of the Church through the Prophet Joseph Smith, Isaiah wrote:
 
-“It shall come to pass in that day, that the Lord shall set his hand again the second time to recover the remnant of his people. …
+“It shall come to pass in that day, that the Lord shall set his hand again the second time to recover the remnant of his people. …
 
 “And he shall set up an ensign for the nations, and shall assemble the outcasts of Israel, and gather together the dispersed of Judah from the four corners of the earth.”[^35]
 
@@ -87,7 +87,7 @@ Ours is His supernal cause. Ours is the cause of eternal glory for all humankind
 
 
 
-[^1]: [[Mormon 8.29|Mormon 8:29–31]][[Mormon 8.30|]][[Mormon 8.31|]]; see also [[2 Timothy 3.1|2 Timothy 3:1–7, 12–13]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]][[2 Timothy 3.12|]][[2 Timothy 3.13|]]; [[D&C 45.26|D&C 45:26–27]][[D&C 45.27|]].
+[^1]: [[Mormon 8.29|Mormon 8:29–31]][[Mormon 8.30|]][[Mormon 8.31|]]; see also [[2 Timothy 3.1|2 Timothy 3:1–7, 12–13]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]][[2 Timothy 3.12|]][[2 Timothy 3.13|]]; [[D&C 45.26|D&C 45:26–27]][[D&C 45.27|]].
 
 [^2]: Dating back to the time of Seth, son of Adam and Eve.
 
@@ -107,7 +107,7 @@ Ours is His supernal cause. Ours is the cause of eternal glory for all humankind
 
 [^10]: See [[Luke 2.14|Luke 2:14]].
 
-[^11]: [[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]]; Joseph Smith Translation, Matthew 5:11 (The Holy Scriptures: Inspired Version).
+[^11]: [[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]]; Joseph Smith Translation, Matthew 5:11 (The Holy Scriptures: Inspired Version).
 
 [^12]: [[Matthew 22.37|Matthew 22:37]].
 
@@ -115,7 +115,7 @@ Ours is His supernal cause. Ours is the cause of eternal glory for all humankind
 
 [^14]: [[Matthew 5.44|Matthew 5:44]].
 
-[^15]: [[Matthew 7.12|Matthew 7:12]]; see also [[Luke 6.31|Luke 6:31]]; [[3 Nephi 14.12|3 Nephi 14:12]].
+[^15]: [[Matthew 7.12|Matthew 7:12]]; see also [[Luke 6.31|Luke 6:31]]; [[3 Nephi 14.12|3 Nephi 14:12]].
 
 [^16]: See B. H. Roberts, *New Witnesses for God,* 3 vols. (1909–11), 3:492–93.
 
@@ -127,11 +127,11 @@ Ours is His supernal cause. Ours is the cause of eternal glory for all humankind
 
 [^20]: [[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]].
 
-[^21]: [[Matthew 5.22|Matthew 5:22–24]][[Matthew 5.23|]][[Matthew 5.24|]]; see also [[3 Nephi 12.22|3 Nephi 12:22–24]][[3 Nephi 12.23|]][[3 Nephi 12.24|]]; Joseph Smith Translation, Matthew 5:24–26 (The Holy Scriptures: Inspired Version).
+[^21]: [[Matthew 5.22|Matthew 5:22–24]][[Matthew 5.23|]][[Matthew 5.24|]]; see also [[3 Nephi 12.22|3 Nephi 12:22–24]][[3 Nephi 12.23|]][[3 Nephi 12.24|]]; Joseph Smith Translation, Matthew 5:24–26 (The Holy Scriptures: Inspired Version).
 
 [^22]: [[Mark 11.25|Mark 11:25–26]][[Mark 11.26|]]; see also Joseph Smith Translation, Mark 11:27–28 (The Holy Scriptures: Inspired Version).
 
-[^23]: See [[Matthew 12.36|Matthew 12:36]]; [[Romans 14.10|Romans 14:10–12]][[Romans 14.11|]][[Romans 14.12|]]; [[1 John 4.16|1 John 4:16–21]][[1 John 4.17|]][[1 John 4.18|]][[1 John 4.19|]][[1 John 4.20|]][[1 John 4.21|]]; [[Alma 41.3|Alma 41:3]]; [[3 Nephi 27.16|3 Nephi 27:16–22]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
+[^23]: See [[Matthew 12.36|Matthew 12:36]]; [[Romans 14.10|Romans 14:10–12]][[Romans 14.11|]][[Romans 14.12|]]; [[1 John 4.16|1 John 4:16–21]][[1 John 4.17|]][[1 John 4.18|]][[1 John 4.19|]][[1 John 4.20|]][[1 John 4.21|]]; [[Alma 41.3|Alma 41:3]]; [[3 Nephi 27.16|3 Nephi 27:16–22]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
 
 [^24]: See [[Alma 43.45|Alma 43:45–47]][[Alma 43.46|]][[Alma 43.47|]]; [[Alma 46.11|46:11–12, 19–20]][[Alma 46.12|]][[Alma 46.19|]][[Alma 46.20|]]; [[Alma 48.11|48:11–16]][[Alma 48.12|]][[Alma 48.13|]][[Alma 48.14|]][[Alma 48.15|]][[Alma 48.16|]].
 
@@ -145,11 +145,11 @@ Ours is His supernal cause. Ours is the cause of eternal glory for all humankind
 
 [^29]: [[Psalms 46.9|Psalm 46:9]].
 
-[^30]: [[James 2.23|James 2:23]]; see also [[2 Chronicles 20.7|2 Chronicles 20:7]]; [[Isaiah 41.8|Isaiah 41:8]]. Long ago our Creator made a covenant with Abraham which was to apply to “a thousand generations” ([[Deuteronomy 7.9|Deuteronomy 7:9]]; see also [[1 Chronicles 16.15|1 Chronicles 16:15]]; [[Psalms 105.8|Psalm 105:8]]). It is to be fulfilled in the latter days (see [[1 Nephi 15.13|1 Nephi 15:13, 18]][[1 Nephi 15.18|]]; [[D&C 124.58|D&C 124:58]]; [[D&C 132.30|132:30]]).
+[^30]: [[James 2.23|James 2:23]]; see also [[2 Chronicles 20.7|2 Chronicles 20:7]]; [[Isaiah 41.8|Isaiah 41:8]]. Long ago our Creator made a covenant with Abraham which was to apply to “a thousand generations” ([[Deuteronomy 7.9|Deuteronomy 7:9]]; see also [[1 Chronicles 16.15|1 Chronicles 16:15]]; [[Psalms 105.8|Psalm 105:8]]). It is to be fulfilled in the latter days (see [[1 Nephi 15.13|1 Nephi 15:13, 18]][[1 Nephi 15.18|]]; [[D&C 124.58|D&C 124:58]]; [[D&C 132.30|132:30]]).
 
 [^31]: [[Abraham 1.2|Abraham 1:2]].
 
-[^32]: See [[Genesis 25.9|Genesis 25:9]]. Abraham’s original name, Abram, means “exalted father” (see Bible Dictionary, “[Abraham](https://churchofjesuschrist.org/study/scriptures/bd/abraham?lang=eng),” 601).
+[^32]: See [[Genesis 25.9|Genesis 25:9]]. Abraham’s original name, Abram, means “exalted father” (see Bible Dictionary, “[[BD Abraham|Abraham]],” 601).
 
 [^33]: See [[Genesis 21.13|Genesis 21:13, 18]][[Genesis 21.18|]].
 
@@ -157,16 +157,14 @@ Ours is His supernal cause. Ours is the cause of eternal glory for all humankind
 
 [^35]: [[Isaiah 11.11|Isaiah 11:11–12]][[Isaiah 11.12|]]; see also [[Romans 15.12|Romans 15:12]].
 
-[^36]: See [[2 Chronicles 20.20|2 Chronicles 20:20]]; [[Matthew 6.24|Matthew 6:24–33]][[Matthew 6.25|]][[Matthew 6.26|]][[Matthew 6.27|]][[Matthew 6.28|]][[Matthew 6.29|]][[Matthew 6.30|]][[Matthew 6.31|]][[Matthew 6.32|]][[Matthew 6.33|]]; [[John 10.10|John 10:10]]; [[1 Nephi 2.20|1 Nephi 2:20]]; [[1 Nephi 4.14|4:14]]; [[2 Nephi 1.9|2 Nephi 1:9, 20]][[2 Nephi 1.20|]]; [[2 Nephi 4.4|4:4]]; [[Jarom 1.9|Jarom 1:9]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Mosiah 2.22|2:22, 31]][[Mosiah 2.31|]]; [[Alma 9.13|Alma 9:13]]; [[Alma 36.1|36:1, 30]][[Alma 36.30|]]; [[Alma 37.13|37:13]]; [[Alma 38.1|38:1]]; [[Alma 48.25|48:25]]; [[Alma 50.20|50:20]]; [[Helaman 3.20|Helaman 3:20]]; [[D&C 64.34|D&C 64:34]].
+[^36]: See [[2 Chronicles 20.20|2 Chronicles 20:20]]; [[Matthew 6.24|Matthew 6:24–33]][[Matthew 6.25|]][[Matthew 6.26|]][[Matthew 6.27|]][[Matthew 6.28|]][[Matthew 6.29|]][[Matthew 6.30|]][[Matthew 6.31|]][[Matthew 6.32|]][[Matthew 6.33|]]; [[John 10.10|John 10:10]]; [[1 Nephi 2.20|1 Nephi 2:20]]; [[1 Nephi 4.14|4:14]]; [[2 Nephi 1.9|2 Nephi 1:9, 20]][[2 Nephi 1.20|]]; [[2 Nephi 4.4|4:4]]; [[Jarom 1.9|Jarom 1:9]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Mosiah 2.22|2:22, 31]][[Mosiah 2.31|]]; [[Alma 9.13|Alma 9:13]]; [[Alma 36.1|36:1, 30]][[Alma 36.30|]]; [[Alma 37.13|37:13]]; [[Alma 38.1|38:1]]; [[Alma 48.25|48:25]]; [[Alma 50.20|50:20]]; [[Helaman 3.20|Helaman 3:20]]; [[D&C 64.34|D&C 64:34]].
 
 [^37]: [[D&C 98.16|D&C 98:16]].
 
 [^38]: [[Romans 14.19|Romans 14:19]].
 
-[^39]: See [[Ezekiel 37.16|Ezekiel 37:16–19]][[Ezekiel 37.17|]][[Ezekiel 37.18|]][[Ezekiel 37.19|]]; [[2 Nephi 3.12|2 Nephi 3:12]].
+[^39]: See [[Ezekiel 37.16|Ezekiel 37:16–19]][[Ezekiel 37.17|]][[Ezekiel 37.18|]][[Ezekiel 37.19|]]; [[2 Nephi 3.12|2 Nephi 3:12]].
 
 [^40]: [[Isaiah 41.10|Isaiah 41:10]].
-
-
 
 #Forgiveness #Love #Peace

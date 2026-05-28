@@ -1,6 +1,5 @@
 # Jesus Christ, Ascension of
 
-
 he was parted from them, and *carried* up into heaven, [[Luke 24.51|Luke 24:51]].
 
 no man hath *ascended* up to heaven, but he that came, [[John 3.13|John 3:13]].
@@ -17,10 +16,8 @@ same also that *ascended* up far above all heavens, [[Ephesians 4.10|Ephesians 4
 
 *received up* into glory, [[1 Timothy 3.16|1 Timothy 3:16]].
 
-Christ should show himself ... after his *ascension*, [[3 Nephi 11.12|3 Nephi 11:12]].
+Christ should show himself … after his *ascension*, [[3 Nephi 11.12|3 Nephi 11:12]].
 
 departed from them, and *ascended* into heaven, [[3 Nephi 18.39|3 Nephi 18:39]].
 
 *ascended* into heaven, to sit, [[D&C 20.24|D&C 20:24]].
-
-*See also* [[Mosiah 18.2|Mosiah 18:2]]; [[Alma 40.20|Alma 40:20]].

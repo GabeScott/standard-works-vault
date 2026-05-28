@@ -1,6 +1,6 @@
 # Priesthood Responsibilities
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -20,7 +20,7 @@ If the father will love God, love his wife, love his family, and honor his pries
 
 Keep the Sabbath day holy. Keep the Word of Wisdom strictly. Pray always, and be honest with one another and with your fellowmen. Study the gospel. Know what is expected of us, why we are here, that we are actually spirit children of God, and as such we must keep ourselves morally clean. And that is one thing, fathers, that we should teach our boys to do.
 
-I should like to give you, as I speak about the family and fathers, an example by reading what Sister McKay said about President David O. McKay: “I am very, very proud of my husband. He is just as lovely, just as courteous, just as polite, just as kind and just as sweet in our home as he is anywhere else, and I am very proud of him. And I am grateful for him. I cannot see anything wrong with him. I pray that our brethren will try to follow his example in every way, shape, and form.”
+I should like to give you, as I speak about the family and fathers, an example by reading what Sister McKay said about President David O. McKay: “I am very, very proud of my husband. He is just as lovely, just as courteous, just as polite, just as kind and just as sweet in our home as he is anywhere else, and I am very proud of him. And I am grateful for him. I cannot see anything wrong with him. I pray that our brethren will try to follow his example in every way, shape, and form.”
 
 And I can’t think of much better advice, brethren, for us to have.
 
@@ -79,8 +79,6 @@ If we would live each day so that we could look the bishop, branch president, th
 No young man guilty of serious transgression should apply for a temple recommend or expect to be called on a mission or wish to be advanced in the priesthood until he has repented and is worthy of such a call. I can think of no greater disappointment, sadness, or sorrow that can come to anyone than to have a missionary who is not worthy, not dedicated, and guilty of transgression, be sent home dishonorably released, disfellowshipped, or excommunicated. This is a great disappointment to his companion, and it makes the mission president’s heart bleed to have to deal with one of his missionaries who is guilty of transgression either before coming or while in the mission field, and then to have the difficult responsibility of sending him home. It distresses the parents and grieves the bishop and stake president and those with whom he has worked so closely. It is an affront to the Lord and seriously affects the life of the missionary.
 
 May the Lord help us to appreciate who we are and to live accordingly, realizing that we do hold the priesthood of God in the church of Jesus Christ, the only men in the world who hold the authority to speak in God’s name. Assembled here tonight in these different buildings, every priesthood office of the Church is represented, and the success and progress of this church depend on you as individuals who hold the priesthood. May we prove worthy, I humbly pray, in the name of Jesus Christ. Amen.
-
-
 
 
 

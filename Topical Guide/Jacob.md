@@ -1,4 +1,3 @@
 # Jacob
 
-
-*See* [BD Israel](https://www.churchofjesuschrist.org/study/scriptures/bd/israel?lang=eng); [Jacob](https://www.churchofjesuschrist.org/study/scriptures/bd/jacob?lang=eng)
+*See also* [[BD Israel.md|BD Israel]]; [[BD Jacob.md|BD Jacob]]

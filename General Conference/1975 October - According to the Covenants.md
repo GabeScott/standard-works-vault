@@ -1,6 +1,6 @@
 # According to the Covenants
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -18,17 +18,17 @@ In one who is wholly converted, desire for things inimical to the gospel of Jesu
 
 “Therefore we are buried with him by baptism into death: that like as Christ was raised up from the dead … even so we also should walk in newness of life.” ([[Romans 6.3|Rom. 6:3–4]][[Romans 6.4|]].)
 
-Peter taught that by walking in the newness of life one escapes “the corruption that is in the world through lust,” and by developing within himself faith, virtue, knowledge, temperance, patience, godliness, brotherly kindness, and charity, he becomes a partaker “of the divine nature.” (See [[2 Peter 1.4|2 Pet. 1:4–7]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]].)
+Peter taught that by walking in the newness of life one escapes “the corruption that is in the world through lust,” and by developing within himself faith, virtue, knowledge, temperance, patience, godliness, brotherly kindness, and charity, he becomes a partaker “of the divine nature.” (See [[2 Peter 1.4|2 Pet. 1:4–7]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]].)
 
-One who walks in newness of life is converted. On the other hand, says Peter, “he that lacketh these things is blind, and cannot see afar off, and hath forgotten that he was purged from his old sins.” ([[2 Peter 1.9|2 Pet. 1:9]].) Such a one is not converted, even though he may have been baptized.
+One who walks in newness of life is converted. On the other hand, says Peter, “he that lacketh these things is blind, and cannot see afar off, and hath forgotten that he was purged from his old sins.” ([[2 Peter 1.9|2 Pet. 1:9]].) Such a one is not converted, even though he may have been baptized.
 
 There is a striking example of the change wrought by conversion in Mormon’s account of King Benjamin’s farewell address. This sermon was so powerful that as Benjamin delivered it, the multitude fell to the earth, for “they … viewed themselves in their own carnal state. … And they all cried aloud … O have mercy, and apply the atoning blood of Christ that we may receive forgiveness of our sins, and our hearts may be purified; for we believe in Jesus Christ, the Son of God.” ([[Mosiah 4.2|Mosiah 4:2]].)
 
 Observing their humility, King Benjamin continued:
 
-“Believe in God; believe that he is, and that he created all things … ; believe that he has all wisdom, and all power, both in heaven and in earth. …
+“Believe in God; believe that he is, and that he created all things … ; believe that he has all wisdom, and all power, both in heaven and in earth. …
 
-“… believe that ye must repent of your sins and forsake them, and humble yourselves before God; and ask in sincerity of heart that he would forgive you; and now, if you believe all these things see that ye do them.” ([[Mosiah 4.9|Mosiah 4:9–10]][[Mosiah 4.10|]].)
+“… believe that ye must repent of your sins and forsake them, and humble yourselves before God; and ask in sincerity of heart that he would forgive you; and now, if you believe all these things see that ye do them.” ([[Mosiah 4.9|Mosiah 4:9–10]][[Mosiah 4.10|]].)
 
 When he had concluded, he inquired as to whether they believed his words.
 
@@ -121,8 +121,6 @@ The Lord has said it is, and I repeat, “the duty of the president over the off
 “He that is slothful shall not be counted worthy to stand, and he that learns not his duty and shows himself not approved shall not be counted worthy to stand.” ([[D&C 107.89|D&C 107:89, 99–100]][[D&C 107.99|]][[D&C 107.100|]].)
 
 God help us to live the covenants ourselves and to teach those the Lord has put under our charge and commanded us to teach, I pray, in the name of Jesus Christ, our Redeemer. Amen.
-
-
 
 
 

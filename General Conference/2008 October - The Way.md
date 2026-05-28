@@ -10,7 +10,7 @@ By Elder Lawrence E. Corbridge - *Of the Seventy*
 
 ## Jesus Christ, Alpha and Omega, the Beginning and the End
 
-“In the beginning was the Word, and the Word was with God, and the Word was God. …
+“In the beginning was the Word, and the Word was with God, and the Word was God. …
 
 “In him was life; and the life was the light of men.”[^1]
 
@@ -115,7 +115,7 @@ May we have the good sense to follow Him. In His holy name, even Jesus Christ, a
 
 [^13]: See [[D&C 132.7|D&C 132:7, 19]][[D&C 132.19|]].
 
-[^14]: See [[2 Nephi 26.13|2 Nephi 26:13]].
+[^14]: See [[2 Nephi 26.13|2 Nephi 26:13]].
 
 [^15]: [[D&C 20.77|D&C 20:77]].
 
@@ -123,18 +123,16 @@ May we have the good sense to follow Him. In His holy name, even Jesus Christ, a
 
 [^17]: [[Mark 8.34|Mark 8:34]].
 
-[^18]: [[3 Nephi 27.27|3 Nephi 27:27]].
+[^18]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
 [^19]: [[Moses 1.39|Moses 1:39]].
 
 [^20]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
-[^21]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^21]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^22]: See [[Moroni 7.15|Moroni 7:15–17]][[Moroni 7.16|]][[Moroni 7.17|]].
 
 [^23]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-
-
-#Holy_Ghost #Jesus_Christ #Obedience
+#HolyGhost #JesusChrist #Obedience

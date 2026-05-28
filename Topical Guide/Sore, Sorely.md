@@ -1,6 +1,5 @@
 # Sore, Sorely
 
-
 whatsoever *sore* or whatsoever sickness there be, [[2 Chronicles 6.28|2 Chronicles 6:28]].
 
 smote Job with *sore* boils, [[Job 2.7|Job 2:7]].
@@ -9,7 +8,7 @@ began to be *sore* amazed, [[Mark 14.33|Mark 14:33]].
 
 they were *sore* afraid, [[Luke 2.9|Luke 2:9]].
 
-beggar named Lazarus ... full of *sores*, [[Luke 16.20|Luke 16:20]].
+beggar named Lazarus … full of *sores*, [[Luke 16.20|Luke 16:20]].
 
 there fell a noisome and grievous *sore* upon the men, [[Revelation 16.2|Revelation 16:2]].
 

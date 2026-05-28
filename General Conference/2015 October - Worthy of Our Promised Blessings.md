@@ -1,6 +1,6 @@
 # Worthy of Our Promised Blessings
 
-By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
+By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -14,17 +14,17 @@ Have we all, including you dear younger sisters in Primary and Young Women, had 
 
 Our bodies are sacred gifts from our Heavenly Father. They are personal temples. As we keep them clean and pure, we can be worthy to help our Heavenly Father create bodies for His beloved spirit children.
 
-In President Boyd K. Packer’s final general conference talk, which you may remember as “a cookie and a kiss,” he testified that “the commandment to multiply and replenish the earth … is essential … and is the source of human happiness. Through the righteous exercise of this \[creative\] power, we may come close to our Father in Heaven and experience a fulness of joy, even godhood. The power of procreation is not an incidental part of the plan; it is the plan.”
+In President Boyd K. Packer’s final general conference talk, which you may remember as “a cookie and a kiss,” he testified that “the commandment to multiply and replenish the earth … is essential … and is the source of human happiness. Through the righteous exercise of this \[creative\] power, we may come close to our Father in Heaven and experience a fulness of joy, even godhood. The power of procreation is not an incidental part of the plan; it is the plan.”
 
 He continued:
 
-“True love requires reserving until after marriage the sharing of that affection which unlocks those sacred powers … \[by\] avoiding situations where physical desire might take control. …
+“True love requires reserving until after marriage the sharing of that affection which unlocks those sacred powers … \[by\] avoiding situations where physical desire might take control. …
 
-“… Our happiness in mortal life, our joy and exaltation are dependent upon how we respond to these persistent, compelling physical desires.”[^1]
+“… Our happiness in mortal life, our joy and exaltation are dependent upon how we respond to these persistent, compelling physical desires.”[^1]
 
 My dear sisters, both young and not so young, I have felt a great anxiety as I have prepared this talk. As Alma the Younger expressed, “I wish from the inmost part of my heart … that ye would … call on his holy name, and watch and pray continually, that ye may not be tempted above that which ye can bear, … that ye may be lifted up at the last day.”[^2]
 
-Later, Mormon also testified that in Alma’s day, Korihor, the anti-Christ, “did preach … , leading away the hearts of … many women.”[^3]
+Later, Mormon also testified that in Alma’s day, Korihor, the anti-Christ, “did preach … , leading away the hearts of … many women.”[^3]
 
 Sisters, Satan has raised a Korihor-like banner in our day with increasing success. What are some of his tools? Seductive romance novels, TV soap operas, married women and old boyfriends connecting on social media, and pornography. We must be so careful, dear sisters! We cannot play with Satan’s fiery darts and not get burned. I know of nothing that will qualify us for the constant companionship of the Holy Ghost as much as virtue.
 
@@ -34,9 +34,9 @@ When we are involved in watching, reading, or experiencing anything that is belo
 
 None of us is perfect, but when we have sinned, President Packer reminded us:
 
-“The promise is: ‘Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more’ ([[D&C 58.42|D&C 58:42]]). …
+“The promise is: ‘Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more’ ([[D&C 58.42|D&C 58:42]]). …
 
-“… The Atonement, which can reclaim each one of us, bears no scars. That means that no matter what we have done or where we have been or how something happened, if we truly repent, He has promised that He would atone. And when He atoned, that settled that. There are so many of us who are thrashing around … with feelings of guilt, not knowing quite how to escape. You escape by accepting the Atonement of Christ, and all that was heartache can turn to beauty and love and eternity.”[^5]
+“… The Atonement, which can reclaim each one of us, bears no scars. That means that no matter what we have done or where we have been or how something happened, if we truly repent, He has promised that He would atone. And when He atoned, that settled that. There are so many of us who are thrashing around … with feelings of guilt, not knowing quite how to escape. You escape by accepting the Atonement of Christ, and all that was heartache can turn to beauty and love and eternity.”[^5]
 
 Besides repentance, what helps or tools have we been given to help us stay clean and virtuous? Our Primary children and young women all know and sing the song “Scripture Power.”[^6] Can we expand it to “Prayer Power,” “Temple Power,” “Covenants Power,” “Sabbath Day Power,” “Prophet Power,” and “Virtue Power”?
 
@@ -55,7 +55,7 @@ I testify that our bodies are sacred gifts from our Heavenly Father and that as 
 
 
 
-[^1]: Boyd K. Packer, “The Plan of Happiness,” *Ensign* or *Liahona,* May 2015, 26–27.
+[^1]: Boyd K. Packer, “The Plan of Happiness,” *Ensign* or *Liahona,* May 2015, 26–27.
 
 [^2]: [[Alma 13.27|Alma 13:27–29]][[Alma 13.28|]][[Alma 13.29|]].
 
@@ -63,7 +63,7 @@ I testify that our bodies are sacred gifts from our Heavenly Father and that as 
 
 [^4]: [[Jacob 4.13|Jacob 4:13]].
 
-[^5]: Boyd K. Packer, *Ensign* or *Liahona,* May 2015, 28.
+[^5]: Boyd K. Packer, *Ensign* or *Liahona,* May 2015, 28.
 
 [^6]: Clive Romney, “Scripture Power,” [lds.org/callings/primary/sharing-time-music](https://www.churchofjesuschrist.org/media/music/songs/scripture-power).
 
@@ -71,11 +71,13 @@ I testify that our bodies are sacred gifts from our Heavenly Father and that as 
 
 [^8]: [[Alma 34.32|Alma 34:32]].
 
-[^9]: Boyd K. Packer, “The Play and the Plan” (Church Educational System fireside for young adults, May 7, 1995), 2,  
+[^9]: Boyd K. Packer, “The Play and the Plan” (Church Educational System fireside for young adults, May 7, 1995), 2, 
 
 
 
-si.lds.org  
+
+si.lds.org 
+
 
 
 
@@ -83,5 +85,6 @@ si.lds.org
 
 [^10]: [[Ether 6.12|Ether 6:12]].
 
+[^11]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-#Adversity #Children #Covenants #Morality #Plan_Of_Salvation #Repentance #Standards
+#Adversity #Children #Covenants #Morality #PlanOfSalvation #Repentance #Standards

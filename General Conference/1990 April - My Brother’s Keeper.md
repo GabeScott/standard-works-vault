@@ -16,11 +16,11 @@ These two significant questions are asked, then answered, in themes taught throu
 
 After the years of plenty, there followed the years of famine. In the midst of this latter period, when the brothers of Joseph came to Egypt to buy corn, they were blessed by this favored man in Egypt—even their own brother. Joseph could have dealt harshly with his brethren for the callous and cruel treatment he had earlier received from them. However, he was kind and gracious to his brethren and won their favor and support with these words and actions:
 
-“Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life. …
+“Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life. …
 
 “And God sent me before you to preserve you a posterity in the earth, and to save your lives by a great deliverance.
 
-“So now it was not you that sent me hither, but God. …
+“So now it was not you that sent me hither, but God. …
 
 “Moreover \[Joseph\] kissed all his brethren, and wept upon them: and after that his brethren talked with him” ([[Genesis 45.5|Gen. 45:5, 7–8, 15]][[Genesis 45.7|]][[Genesis 45.8|]][[Genesis 45.15|]]).
 
@@ -36,7 +36,7 @@ Let us for a moment join Captain Edward Martin and the handcart company he led. 
 
 “The handcarts moved on November 3 and reached the river, filled with floating ice. To cross would require more courage and fortitude, it seemed, than human nature could muster. Women shrank back and men wept. Some pushed through, but others were unequal to the ordeal.
 
-“Three eighteen-year-old boys belonging to the relief party came to the rescue; and to the astonishment of all who saw, carried nearly every member of that ill-fated handcart company across the snow-bound stream. The strain was so terrible, the exposure so great, that in later years all the boys died from the effects of it. When President Brigham Young heard of this heroic act, he wept like a child, and later declared publicly, ‘That act alone will ensure C. Allen Huntington, George W. Grant, and David P. Kimball an everlasting salvation in the Celestial Kingdom of God, worlds without end’” (LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion* \[Glendale, California: The Arthur H. Clark Company, 1960\], pp. 132–33).
+“Three eighteen-year-old boys belonging to the relief party came to the rescue; and to the astonishment of all who saw, carried nearly every member of that ill-fated handcart company across the snow-bound stream. The strain was so terrible, the exposure so great, that in later years all the boys died from the effects of it. When President Brigham Young heard of this heroic act, he wept like a child, and later declared publicly, ‘That act alone will ensure C. Allen Huntington, George W. Grant, and David P. Kimball an everlasting salvation in the Celestial Kingdom of God, worlds without end’” (LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion* \[Glendale, California: The Arthur H. Clark Company, 1960\], pp. 132–33).
 
 Our service to others may not be so dramatic, but we can bolster human spirits, clothe cold bodies, feed hungry people, comfort grieving hearts, and lift to new heights precious souls.
 
@@ -80,7 +80,7 @@ What a touching account. There comes to mind the experience of Jesus, when ten l
 
 “And one of them, when he saw that he was healed, turned back, and with a loud voice glorified God,
 
-“And fell down on his face at his feet. …
+“And fell down on his face at his feet. …
 
 “And \[Jesus\] said unto him, Arise, go thy way: thy faith hath made thee whole” ([[Luke 17.15|Luke 17:15–16, 19]][[Luke 17.16|]][[Luke 17.19|]]).
 
@@ -99,8 +99,6 @@ He that was lost was found. A 26-year mission, marked by love and pursued with d
 Were the Lord to say to Gil Warner today, as He said to Adam’s son long years ago, “Where is Douglas, thy brother?” Bishop Warner could reply, “I am my brother’s keeper, Lord. Behold Douglas, Thy son.”
 
 May all of us who hold the priesthood of God demonstrate by our lives that we are our brothers’ keepers, I pray, in the name of Jesus Christ, amen.
-
-
 
 
 

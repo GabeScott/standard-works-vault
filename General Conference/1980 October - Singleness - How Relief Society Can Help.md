@@ -41,6 +41,4 @@ My prayer is that each one of us can have and extend faith, hope, and charity by
 
 
 
-
-
-#Relief_Society #Single_Members
+#ReliefSociety #SingleMembers

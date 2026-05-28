@@ -20,7 +20,7 @@ We know that the purpose of Relief Society as established by the Lord is to prep
 
 The history, purpose, and work of Relief Society are unique among all women’s organizations. In 1942, for the centennial of the Relief Society, the First Presidency of the Church said:
 
-“No other woman’s organization in all the earth has had such a birth. …
+“No other woman’s organization in all the earth has had such a birth. …
 
 “Members \[of Relief Society\] should permit neither hostile nor competitive interests of any kind to detract from the duties and obligations, the privileges and honors, the opportunities and achievements of membership in this great Society.”[^2]
 
@@ -28,17 +28,17 @@ If our membership in Relief Society is so important, we need to know what sets u
 
 Relief Society is unique because it was organized after the “pattern of the priesthood”[^3] and we operate on a general and local level under the direction of priesthood leaders. We work in partnership with priesthood leaders, who hold keys which give them authority to preside in the name of the Lord. We operate in the manner of the priesthood—which means that we seek, receive, and act on revelation; make decisions in councils; and concern ourselves with caring for individuals one by one. Ours is the priesthood purpose to prepare ourselves for the blessings of eternal life by making and keeping covenants. Therefore, like our brethren who hold the priesthood, ours is a work of salvation, service, and becoming a holy people.
 
-President Boyd K. Packer has taught that “the Relief Society has very broad responsibilities.
+President Boyd K. Packer has taught that “the Relief Society has very broad responsibilities.
 
 “Attendance at the Sunday meeting is but a small part of your duty. Some of you have not understood this and have set aside much of what Relief Society has meant over the years—the sisterhood, the charitable and practical parts of it.”
 
 He explained:
 
-“The Relief Society, the Prophet \[Joseph\] told us, is organized after the pattern of the priesthood. When a man holds the priesthood, … it requires full dedication and loyalty. …
+“The Relief Society, the Prophet \[Joseph\] told us, is organized after the pattern of the priesthood. When a man holds the priesthood, … it requires full dedication and loyalty. …
 
-“Membership in the priesthood magnifies the man and the boy. Wherever he is, whatever he does, no matter with whom he associates, he is expected to honor his priesthood. …
+“Membership in the priesthood magnifies the man and the boy. Wherever he is, whatever he does, no matter with whom he associates, he is expected to honor his priesthood. …
 
-“If you sisters follow after that pattern, … you will serve your organization, your cause—the Relief Society. …
+“If you sisters follow after that pattern, … you will serve your organization, your cause—the Relief Society. …
 
 “Service in the Relief Society magnifies and sanctifies each individual sister. Your membership in Relief Society should be ever with you.”[^4]
 
@@ -46,7 +46,7 @@ He explained:
 
 When our purpose is clear, it naturally follows that there is an appropriate way to carry out our responsibilities. Let us review how the faith-based work of Relief Society is to be administered. One of the most precious commodities we all have is time. Most women have many responsibilities and never have sufficient time to do everything their hearts and minds want to do. We show respect for the Lord and the sisters when we use Relief Society time in an inspired way.
 
-President Dieter F. Uchtdorf taught: “A wise man once distinguished between ‘the noble art of getting things done’ and ‘a nobler art of leaving things undone.’ True ‘wisdom in life,’ he taught, consists of ‘the elimination of non-essentials.’” President Uchtdorf then asked: “What are the nonessential things that clutter your days and steal your time? What are the habits you may have developed that do not serve a useful purpose? What are the unfinished or unstarted things that could add vigor, meaning, and joy to your life?”[^5] We can apply his questions to all Relief Society meetings and work.
+President Dieter F. Uchtdorf taught: “A wise man once distinguished between ‘the noble art of getting things done’ and ‘a nobler art of leaving things undone.’ True ‘wisdom in life,’ he taught, consists of ‘the elimination of non-essentials.’” President Uchtdorf then asked: “What are the nonessential things that clutter your days and steal your time? What are the habits you may have developed that do not serve a useful purpose? What are the unfinished or unstarted things that could add vigor, meaning, and joy to your life?”[^5] We can apply his questions to all Relief Society meetings and work.
 
 ## Relief Society Sunday Meetings
 
@@ -102,7 +102,7 @@ How grateful I am for all of my visiting teachers who, over the years, have demo
 
 ## Welfare and Compassionate Service
 
-Our compassionate service and assistance with the welfare needs of individuals and families are an outgrowth of visiting teaching. A Relief Society president learns of the needs of people in her ward through visiting teachers and her own visits to ward members. Sometimes she organizes us to help others, and at other times we serve “according to \[our\] natures,”[^10] following the promptings of the Holy Ghost. Many years ago I learned from Sister Camilla Kimball, wife of President Spencer W. Kimball, to “never suppress a generous thought.” By following her counsel, we can know with certainty that our Father in Heaven knows us personally because He sends us to be His hands and heart to those in need. As we do so, our faith in Him is strengthened.
+Our compassionate service and assistance with the welfare needs of individuals and families are an outgrowth of visiting teaching. A Relief Society president learns of the needs of people in her ward through visiting teachers and her own visits to ward members. Sometimes she organizes us to help others, and at other times we serve “according to \[our\] natures,”[^10] following the promptings of the Holy Ghost. Many years ago I learned from Sister Camilla Kimball, wife of President Spencer W. Kimball, to “never suppress a generous thought.” By following her counsel, we can know with certainty that our Father in Heaven knows us personally because He sends us to be His hands and heart to those in need. As we do so, our faith in Him is strengthened.
 
 ## Conclusion
 
@@ -113,15 +113,15 @@ I rejoice to know that the Lord loves us enough to guide us in this work through
 
 
 
-[^1]: See Julie B. Beck, “Fulfilling the Purpose of Relief Society,” *Liahona* and *Ensign,* Nov. 2008, 108–11; “What Latter-day Saint Women Do Best: Stand Strong and Immovable,” *Liahona* and *Ensign,* Nov. 2007, 109–12.
+[^1]: See Julie B. Beck, “Fulfilling the Purpose of Relief Society,” *Liahona* and *Ensign,* Nov. 2008, 108–11; “What Latter-day Saint Women Do Best: Stand Strong and Immovable,” *Liahona* and *Ensign,* Nov. 2007, 109–12.
 
 [^2]: First Presidency, “To the Presidency, Officers, and Members of the Relief Society,” in *A Centenary of Relief Society, 1842–1942* (1942), 7.
 
-[^3]: Joseph Smith, quoted in Sarah M. Kimball, “Auto-biography,” *Woman’s Exponent,* Sept. 1, 1883, 51.
+[^3]: Joseph Smith, quoted in Sarah M. Kimball, “Auto-biography,” *Woman’s Exponent,* Sept. 1, 1883, 51.
 
-[^4]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 109–10.
+[^4]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 109–10.
 
-[^5]: Dieter F. Uchtdorf, “As You Embark upon This New Era,” in *Brigham Young University 2008–2009 Speeches* (2009), 2; see also Lin Yutang, *The Importance of Living* (1937), 162, 10.
+[^5]: Dieter F. Uchtdorf, “As You Embark upon This New Era,” in *Brigham Young University 2008–2009 Speeches* (2009), 2; see also Lin Yutang, *The Importance of Living* (1937), 162, 10.
 
 [^6]: [[D&C 50.22|D&C 50:22]].
 
@@ -135,6 +135,4 @@ I rejoice to know that the Lord loves us enough to guide us in this work through
 
 [^11]: *Teachings: Joseph Smith,* 144.
 
-
-
-#Faith #Relief_Society #Service #Visiting_Teaching
+#Faith #ReliefSociety #Service #VisitingTeaching

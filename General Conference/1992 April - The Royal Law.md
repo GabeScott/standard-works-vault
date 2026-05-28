@@ -14,9 +14,9 @@ That invitation is the central mission of The Church of Jesus Christ of Latter-d
 
 My testimony is that Jesus Christ is the Son of God, the Only Begotten in the flesh, the Good Shepherd, our Exemplar; that he is our Advocate with the Father, our Redeemer, and our Savior.
 
-With John of old we testify that “the Father sent the Son to be the Saviour of the world” ([[1 John 4.14|1 Jn. 4:14]]).
+With John of old we testify that “the Father sent the Son to be the Saviour of the world” ([[1 John 4.14|1 Jn. 4:14]]).
 
-We rejoice in the wonderful welding in his life of principle and performance. The Savior taught precepts of spiritual perfection, and he *practiced* and *applied* them with perfection. He could with authority declare that he was the light and example the people should follow: “I have set an example for you. … I am the light which ye shall hold up—that which ye have seen me do” ([[3 Nephi 18.16|3 Ne. 18:16, 24]][[3 Nephi 18.24|]]).
+We rejoice in the wonderful welding in his life of principle and performance. The Savior taught precepts of spiritual perfection, and he *practiced* and *applied* them with perfection. He could with authority declare that he was the light and example the people should follow: “I have set an example for you. … I am the light which ye shall hold up—that which ye have seen me do” ([[3 Nephi 18.16|3 Ne. 18:16, 24]][[3 Nephi 18.24|]]).
 
 What he *did,* as we read in a splendid verse in the book of Matthew, was to go “about all Galilee, teaching … and preaching the gospel of the kingdom, and healing all manner of … disease” ([[Matthew 4.23|Matt. 4:23]]). Matthew also recorded that, as he approached the final events of his earthly ministry, Jesus taught his followers the parable of the sheep and the goats, representing the judgment to come, in which he clearly identified those who will inherit “life eternal” and those who will “go away into everlasting punishment” ([[Matthew 25.46|Matt. 25:46]]). The key difference was that those who should inherit the kingdom with him had developed the habit of helping, had experienced the joy of giving and the satisfaction of serving—they had responded to the needs of the hungry, thirsty, homeless, the naked, the sick, and those in prison. Well known are his words, the words of comfort to them: “Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.40|Matt. 25:40]]), while to those who were condemned to “everlasting punishment” he made the sad pronouncement, “Inasmuch as ye did it *not* to one of the least of these, ye did it not to me” ([[Matthew 25.45|Matt. 25:45]]; italics added).
 
@@ -24,7 +24,7 @@ Nothing would seem more clear than the high premium the Savior put upon selfless
 
 Only recently I came upon a significant statement made by President Clark at this pulpit fifty-five years ago concerning these matters:
 
-“When the Savior came upon the earth he had two great missions; one was to work out the Messiahship, the atonement for the fall, and the fulfilment of the law; the other was the work which he did among his brethren and sisters in the flesh by way of relieving their sufferings. … He left as a heritage to those who should come after him in his Church the carrying on of those two great things—work for the relief of the ills and the sufferings of humanity, and the teaching of the spiritual truths which should bring us back into the presence of our Heavenly Father” (J. Reuben Clark, Jr., in Conference Report, Apr. 1937, p. 22).
+“When the Savior came upon the earth he had two great missions; one was to work out the Messiahship, the atonement for the fall, and the fulfilment of the law; the other was the work which he did among his brethren and sisters in the flesh by way of relieving their sufferings. … He left as a heritage to those who should come after him in his Church the carrying on of those two great things—work for the relief of the ills and the sufferings of humanity, and the teaching of the spiritual truths which should bring us back into the presence of our Heavenly Father” (J. Reuben Clark, Jr., in Conference Report, Apr. 1937, p. 22).
 
 His divine messiahship is the matter of first magnitude for us. It is the center of our considerations at this conference, of our religion, of our lives. The Book of Mormon declares plainly that “it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation” ([[Helaman 5.12|Hel. 5:12]]).
 
@@ -48,7 +48,7 @@ The parable of the good Samaritan supplied the answer to the lawyer’s next que
 
 In the challenging times in which we live, remarkable evidence of man’s humanity yet abounds. It is seen in help being offered in compassionate service in every ward and stake in the Church through our Relief Society ladies, Young Women’s and children’s groups, priesthood quorums, home and visiting teachers, Boy Scouts; in the fact that every missionary across the earth, as part of his calling, is committed to regular community service—Christian service. It is seen in the great work of our young representatives in the refugee camps. The Church itself has responded to large-scale needs locally and nationally and internationally, and as Christian individuals and families we are striving to understand and carry out our heaven-mandated responsibilities to “walk uprightly before God, imparting to one another … according to … needs and … wants” ([[Mosiah 18.29|Mosiah 18:29]]).
 
-Shortly before his death Joseph Smith wrote these words: “\[We are\] to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other, or in no church at all, wherever \[we find\] them” (*Times and Seasons,* 16 Mar. 1842, p. 732).
+Shortly before his death Joseph Smith wrote these words: “\[We are\] to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other, or in no church at all, wherever \[we find\] them” (*Times and Seasons,* 16 Mar. 1842, p. 732).
 
 In recent days we have had the honor of having again in our home as a guest a noble, quiet man from Mali, West Africa, an elder in the Church, who has taught his people how to dig wells for themselves and how to use the water on gardens which miraculously produce fresh vegetables and grain that grow on land which heretofore has grudgingly yielded only meager crops of millet. Literacy and health programs have been introduced.
 
@@ -68,13 +68,11 @@ Some of the children made fun of Philip. “But, teacher,” he said, “teacher
 
 A newspaper article announcing Philip’s death a few months later noted that at the conclusion of the funeral eight children marched forward and put a large empty egg on the small casket. On it was a banner that said, “The tomb was empty.”
 
-With John of old, we bear especial witness and testify that “the Father sent the Son to be the Saviour of the world” ([[1 John 4.14|1 Jn. 4:14]]) and that a major purpose of his sacred mission was to teach us how to love and serve one another.
+With John of old, we bear especial witness and testify that “the Father sent the Son to be the Saviour of the world” ([[1 John 4.14|1 Jn. 4:14]]) and that a major purpose of his sacred mission was to teach us how to love and serve one another.
 
 I thank God for the Holy Savior, for the compassionate Christ, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Jesus_Christ #Love #Service
+#JesusChrist #Love #Service

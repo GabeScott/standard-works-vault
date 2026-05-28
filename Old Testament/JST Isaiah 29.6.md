@@ -4,6 +4,3 @@
 
 [JST Isaiah 29:6](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-isa/29?lang=eng)
 
-
-
-

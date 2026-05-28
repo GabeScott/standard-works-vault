@@ -8,13 +8,13 @@ By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/salvation-and-exaltation?lang=eng)
 
-Gratefully we welcome Elder D. Todd Christofferson to the Quorum of the Twelve Apostles. Wholeheartedly we sustain this wonderful First Presidency and all who have been called.
+Gratefully we welcome Elder D. Todd Christofferson to the Quorum of the Twelve Apostles. Wholeheartedly we sustain this wonderful First Presidency and all who have been called.
 
-Brethren and sisters, when we received the news that President Gordon B. Hinckley had passed away, each of us immediately felt a deep sense of loss. Knowing that his destiny was in the hands of the Lord, however, we have felt our mood shift from grief to gratitude. We are very grateful for what we have learned from this great prophet of God.
+Brethren and sisters, when we received the news that President Gordon B. Hinckley had passed away, each of us immediately felt a deep sense of loss. Knowing that his destiny was in the hands of the Lord, however, we have felt our mood shift from grief to gratitude. We are very grateful for what we have learned from this great prophet of God.
 
 Today, at this solemn assembly, we have complied with the will of the Lord, who said that “it shall not be given to any one to go forth to preach my gospel, or to build up my church, except he be ordained by … one who has authority, and *it is known to the church* that he has authority and has been regularly ordained by the heads of the church.”[^1] This law of common consent[^2] has been invoked, and the Church will move forward on its prescribed course.
 
-Members throughout the world sustain President Thomas S. Monson and his able counselors. We are “no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God;
+Members throughout the world sustain President Thomas S. Monson and his able counselors. We are “no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God;
 
 “And are built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone.”[^3]
 
@@ -82,7 +82,7 @@ What about those who are not able to marry in this life or those who cannot be s
 
 We as children of the covenant are highly favored. In our hearts have been planted the promises made to Fathers Abraham, Isaac, and Jacob. The Lord has said:
 
-“Ye are lawful heirs, according to the flesh, and have been hid from the world with Christ in God. …
+“Ye are lawful heirs, according to the flesh, and have been hid from the world with Christ in God. …
 
 “Therefore, blessed are ye if ye continue in my goodness, a light unto the Gentiles, and through this priesthood, a savior unto my people Israel.”[^25]
 
@@ -103,7 +103,7 @@ In those responsible roles, may we go forward in faith, led by Jesus Christ, who
 
 [^4]: [[Ephesians 4.11|Ephesians 4:11–13]][[Ephesians 4.12|]][[Ephesians 4.13|]].
 
-[^5]: [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Ether 12.11|Ether 12:11]].
+[^5]: [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Ether 12.11|Ether 12:11]].
 
 [^6]: See [[Alma 34.32|Alma 34:32–33]][[Alma 34.33|]].
 
@@ -119,7 +119,7 @@ In those responsible roles, may we go forward in faith, led by Jesus Christ, who
 
 [^12]: [[Moses 1.39|Moses 1:39]].
 
-[^13]: [[D&C 14.7|D&C 14:7]]; see also [[3 Nephi 15.9|3 Nephi 15:9]]. The Book of Mormon further explains the conditional nature of this great gift. It states that “ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, *if* ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added).
+[^13]: [[D&C 14.7|D&C 14:7]]; see also [[3 Nephi 15.9|3 Nephi 15:9]]. The Book of Mormon further explains the conditional nature of this great gift. It states that “ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, *if* ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added).
 
 [^14]: See [[D&C 131.1|D&C 131:1–3]][[D&C 131.2|]][[D&C 131.3|]].
 
@@ -129,7 +129,7 @@ In those responsible roles, may we go forward in faith, led by Jesus Christ, who
 
 [^17]: [[D&C 93.40|D&C 93:40]]. The Lord also said, “Teach \[your\] children to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]).
 
-[^18]: So taught Paul to Timothy: “Continue thou in the things which thou hast learned and hast been assured of, knowing of whom thou hast learned them. … From a child thou hast known the holy scriptures, which are able to make thee wise unto salvation through faith which is in Christ Jesus” ([[2 Timothy 3.14|2 Timothy 3:14–15]][[2 Timothy 3.15|]]).
+[^18]: So taught Paul to Timothy: “Continue thou in the things which thou hast learned and hast been assured of, knowing of whom thou hast learned them. … From a child thou hast known the holy scriptures, which are able to make thee wise unto salvation through faith which is in Christ Jesus” ([[2 Timothy 3.14|2 Timothy 3:14–15]][[2 Timothy 3.15|]]).
 
 [^19]: [[Exodus 20.12|Exodus 20:12]]. Remember that parental proverb: “Train up a child in the way he should go: and when he is old, he will not depart from it” ([[Proverbs 22.6|Proverbs 22:6]]).
 
@@ -141,12 +141,10 @@ In those responsible roles, may we go forward in faith, led by Jesus Christ, who
 
 [^23]: See [[D&C 137.9|D&C 137:9]].
 
-[^24]: See [[D&C 130.20|D&C 130:20–21]][[D&C 130.21|]]; see also Rudger Clawson, in Conference Report, Oct. 1917, 29; Joseph F. Smith, in *Deseret News,* May 1, 1878, 2; Richard G. Scott, in Conference Report, Oct. 1996, 102; or *Ensign,* Nov. 1996, 75.
+[^24]: See [[D&C 130.20|D&C 130:20–21]][[D&C 130.21|]]; see also Rudger Clawson, in Conference Report, Oct. 1917, 29; Joseph F. Smith, in *Deseret News,* May 1, 1878, 2; Richard G. Scott, in Conference Report, Oct. 1996, [[1996 October - The Joy of Living the Great Plan of Happiness.md|102]]; or *Ensign,* Nov. 1996, 75.
 
 [^25]: [[D&C 86.9|D&C 86:9, 11]][[D&C 86.11|]].
 
 [^26]: See [[Alma 12.24|Alma 12:24]].
 
-
-
-#Family #Plan_Of_Salvation
+#Family #PlanOfSalvation

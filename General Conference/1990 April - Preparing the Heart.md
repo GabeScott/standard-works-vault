@@ -52,7 +52,7 @@ Finally, love is spoken in prayer. In your home, do children hear their parents 
 
 Following the marvelous words of instruction by King Benjamin, as they are recorded in the first few chapters of Mosiah, we learn that “he sent among them, desiring to know of his people, if they believed the words which he had spoken unto them” ([[Mosiah 5.1|Mosiah 5:1]]). At the conclusion of this marvelous two days of general conference, I would hope, if we were asked, our response to such a question would be as was theirs in that day, for they said:
 
-“Yea, we believe all the words which thou hast spoken unto us; and also, we know of their surety and truth, because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually. …
+“Yea, we believe all the words which thou hast spoken unto us; and also, we know of their surety and truth, because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually. …
 
 “And we are willing to enter into a covenant with our God to do his will, and to be obedient to his commandments” ([[Mosiah 5.2|Mosiah 5:2, 5]][[Mosiah 5.5|]]).
 
@@ -63,8 +63,6 @@ And King Benjamin said unto them:
 “And under this head ye are made free. … I would that ye should take upon you the name of Christ … that ye should be obedient unto the end of your lives” ([[Mosiah 5.7|Mosiah 5:7–8]][[Mosiah 5.8|]]; italics added).
 
 To this, brothers and sisters, I add my testimony of the divinity of the Lord Jesus Christ. He is our Savior, and he is our Redeemer, and he lives. In the name of Jesus Christ, amen.
-
-
 
 
 

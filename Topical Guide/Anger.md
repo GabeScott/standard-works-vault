@@ -1,17 +1,16 @@
 # Anger
 
+*See also* [[God, Indignation of.md|God, Indignation of]]; [[Indignation.md|Indignation]]; [[Provoking.md|Provoking]]; [[Rage.md|Rage]]; [[Wrath.md|Wrath]]
 
-*See also* [[God, Indignation of.md|God, Indignation of]]; [[Indignation.md|Indignation]]; [[Provoking, Provoke.md|Provoking]]; [[Rage.md|Rage]]; [[Wrath.md|Wrath]]
-
-Until thy brother's *anger* turn away, [[Genesis 27.45|Genesis 27:45]].
+Until thy brother’s *anger* turn away, [[Genesis 27.45|Genesis 27:45]].
 
 Cursed be their *anger*, [[Genesis 49.7|Genesis 49:7]].
 
 went out from Pharaoh in a great *anger*, [[Exodus 11.8|Exodus 11:8]].
 
-Moses' *anger* waxed hot, [[Exodus 32.19|Exodus 32:19]].
+Moses’ *anger* waxed hot, [[Exodus 32.19|Exodus 32:19]].
 
-Saul's *anger* was kindled against Jonathan, [[1 Samuel 20.30|1 Samuel 20:30]].
+Saul’s *anger* was kindled against Jonathan, [[1 Samuel 20.30|1 Samuel 20:30]].
 
 Cease from *anger*, and forsake wrath, [[Psalms 37.8|Psalms 37:8]].
 
@@ -35,13 +34,13 @@ Wrath is cruel, and *anger* is outrageous, [[Proverbs 27.4|Proverbs 27:4]].
 
 is not easily *provoked*, [[1 Corinthians 13.5|1 Corinthians 13:5]].
 
-bitterness ... and *anger* ... be put away, [[Ephesians 4.31|Ephesians 4:31]].
+bitterness … and *anger* … be put away, [[Ephesians 4.31|Ephesians 4:31]].
 
 put off all these; *anger*, wrath, malice, [[Colossians 3.8|Colossians 3:8]].
 
 provoke not your children to *anger*, [[Colossians 3.21|Colossians 3:21]].
 
-a bishop ... not soon *angry*, [[Titus 1.7|Titus 1:7]].
+a bishop … not soon *angry*, [[Titus 1.7|Titus 1:7]].
 
 stir up their hearts to *anger*, [[1 Nephi 16.38|1 Nephi 16:38]].
 
@@ -49,18 +48,16 @@ stir up their hearts to *anger*, [[1 Nephi 16.38|1 Nephi 16:38]].
 
 not *anger* again because of mine enemies, [[2 Nephi 4.29|2 Nephi 4:29]].
 
-stir them up to *anger* against ... good, [[2 Nephi 28.20|2 Nephi 28:20]].
+stir them up to *anger* against … good, [[2 Nephi 28.20|2 Nephi 28:20]].
 
 *angry* because of the truth, [[2 Nephi 28.28|2 Nephi 28:28]].
 
 no man will be *angry*, [[2 Nephi 33.5|2 Nephi 33:5]].
 
-to stir up ... men with *anger*, [[3 Nephi 11.30|3 Nephi 11:30]].
+to stir up … men with *anger*, [[3 Nephi 11.30|3 Nephi 11:30]].
 
 continually to *anger* one with another, [[Moroni 9.3|Moroni 9:3]].
 
 mine *anger* is kindled, [[D&C 5.8|D&C 5:8]].
 
 he stirreth up their hearts to *anger*, [[D&C 10.24|D&C 10:24]].
-
-*See also* [[Exodus 4.14|Exodus 4:14]]; [[Deuteronomy 1.37|Deuteronomy 1:37]]; [[Deuteronomy 4.25|Deuteronomy 4:25]]; [[Deuteronomy 9.18|Deuteronomy 9:18]]; [[Judges 2.12|Judges 2:12]]; [[1 Kings 15.30|1 Kings 15:30]]; [[Nehemiah 9.17|Nehemiah 9:17]]; [[Psalms 85.4|Psalms 85:4]]; [[Psalms 103.8|Psalms 103:8]]; [[Isaiah 1.4|Isaiah 1:4]]; [[Isaiah 48.9|Isaiah 48:9]]; [[Isaiah 65.3|Isaiah 65:3]]; [[Jeremiah 8.19|Jeremiah 8:19]]; [[Jeremiah 32.30|Jeremiah 32:30]]; [[Jonah 4.9|Jonah 4:9]]; [[D&C 1.13|D&C 1:13]]; [[D&C 60.2|D&C 60:2]]; [[D&C 63.11|D&C 63:11]], [[D&C 63.32|D&C 63:32]]; [[D&C 84.24|D&C 84:24]]; [[Moses 8.15|Moses 8:15]].

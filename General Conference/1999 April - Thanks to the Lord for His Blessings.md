@@ -18,7 +18,7 @@ But in a larger sense this has been the best of all centuries. In the long histo
 
 And above all of these marvelous gifts is the Restoration of the gospel of Jesus Christ with all of the wonderful authority and blessings that have come therewith. This is verily the dispensation of the fulness of times, bringing with it that which will never again be taken from the earth.
 
-I believe that Peter was speaking of us when he said, “But ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
+I believe that Peter was speaking of us when he said, “But ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 Now, brethren and sisters, let us return to our homes with resolution in our hearts to do a little better than we have done in the past. We can all be a little kinder, a little more generous, a little more thoughtful of one another. We can be a little more tolerant and friendly to those not of our faith, going out of our way to show our respect for them. We cannot afford to be arrogant or self-righteous. It is our obligation to reach out in helpfulness, not only to our own but to all others as well. Their interest in and respect for this Church will increase as we do so.
 
@@ -39,6 +39,4 @@ I repeat what I have said before. I love you. I leave my blessing and my testimo
 
 
 
-
-
-#Family #General_Conference #Restoration #Temples
+#Family #GeneralConference #Restoration #Temples

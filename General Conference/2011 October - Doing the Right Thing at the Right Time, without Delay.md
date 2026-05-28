@@ -1,6 +1,6 @@
 # Doing the Right Thing at the Right Time, without Delay
 
-By Elder José L. Alonso - *Of the Seventy*
+By Elder José L. Alonso - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -14,7 +14,7 @@ His was a life of service. When we serve our neighbor, we help those who are in 
 
 King Benjamin spoke of the value of service, saying that when we are “in the service of \[our\] fellow beings \[we\] are only in the service of \[our\] God.”[^1] Everyone has opportunities to give service and show love.
 
-President Thomas S. Monson has asked us to go “to the rescue” and serve others. He said: “We will discover that those whom we serve, who have felt through our labors the touch of the Master’s hand, somehow cannot explain the change which comes into their lives. There is a desire to serve faithfully, to walk humbly, and to live more like the Savior. Having received their spiritual eyesight and glimpsed the promises of eternity, they echo the words of the blind man to whom Jesus restored sight, who said, ‘One thing I know, that, whereas I was blind, now I see.’”[^2]
+President Thomas S. Monson has asked us to go “to the rescue” and serve others. He said: “We will discover that those whom we serve, who have felt through our labors the touch of the Master’s hand, somehow cannot explain the change which comes into their lives. There is a desire to serve faithfully, to walk humbly, and to live more like the Savior. Having received their spiritual eyesight and glimpsed the promises of eternity, they echo the words of the blind man to whom Jesus restored sight, who said, ‘One thing I know, that, whereas I was blind, now I see.’”[^2]
 
 Each day we have the opportunity to give help and service—doing the right thing at the right time, without delay. Think of the many people who have a difficult time obtaining a job or who are ill, who feel lonely, who even think that they have lost everything. What can you do to help? Imagine that a neighbor, caught out in the rain with his car broken down, calls you for assistance. What is the right thing to do for him? When is the right time to do it?
 
@@ -40,20 +40,21 @@ I know that our Heavenly Father is loving, understanding, and patient. His Son, 
 
 We have a responsibility and a great opportunity. There are many who need to once again experience the sweet savor of happiness and joy through activity in the Church. That happiness comes from receiving the ordinances, making sacred covenants, and keeping them. The Lord needs us to help them. Let us do the right thing at the right time, without delay.
 
-I testify that God lives and is our Father. Jesus Christ lives and has given His life so that we may return to the presence of our Heavenly Father. I know that He is our Savior. I know that Their infinite kindness is continually made manifest. I bear witness that President Thomas S. Monson is Their prophet and that this is the only true Church upon the face of the earth. I know that the Prophet Joseph Smith is the prophet of the Restoration. I testify that the Book of Mormon is the word of God. It gives us guidance and models to follow in order to become more like God and His Beloved Son. I so declare in the name of our Lord Jesus Christ, amen.
+I testify that God lives and is our Father. Jesus Christ lives and has given His life so that we may return to the presence of our Heavenly Father. I know that He is our Savior. I know that Their infinite kindness is continually made manifest. I bear witness that President Thomas S. Monson is Their prophet and that this is the only true Church upon the face of the earth. I know that the Prophet Joseph Smith is the prophet of the Restoration. I testify that the Book of Mormon is the word of God. It gives us guidance and models to follow in order to become more like God and His Beloved Son. I so declare in the name of our Lord Jesus Christ, amen.
 
 
 
 
 [^1]: [[Mosiah 2.17|Mosiah 2:17]].
 
-[^2]: Thomas S. Monson, in Conference Report, Apr. 2001, 63, 64; or *Ensign,* May 2001, 48, 49.
+[^2]: Thomas S. Monson, in Conference Report, Apr. 2001, [[2001 April - To the Rescue.md|63, 64]]; or *Ensign,* May 2001, 48, 49.
 
-[^3]: See [[3 Nephi 17.1|3 Nephi 17:1–3]][[3 Nephi 17.2|]][[3 Nephi 17.3|]].
+[^3]: See [[3 Nephi 17.1|3 Nephi 17:1–3]][[3 Nephi 17.2|]][[3 Nephi 17.3|]].
 
-[^4]: [[3 Nephi 17.6|3 Nephi 17:6–7]][[3 Nephi 17.7|]]; see also [[3 Nephi 17.6|verse 5]][[3 Nephi 17.7|]].
+[^4]: [[3 Nephi 17.6|3 Nephi 17:6–7]][[3 Nephi 17.7|]]; see also [[3 Nephi 17.6|verse 5]][[3 Nephi 17.7|]].
 
-[^5]: See [[3 Nephi 17.9|3 Nephi 17:9–12, 21]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.21|]].
+[^5]: See [[3 Nephi 17.9|3 Nephi 17:9–12, 21]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.21|]].
 
+[^6]: Thomas S. Monson, in Conference Report, Apr. 2001, [[2001 April - To the Rescue.md|64]]; or *Ensign,* May 2001, 49.
 
 #Activation #Service

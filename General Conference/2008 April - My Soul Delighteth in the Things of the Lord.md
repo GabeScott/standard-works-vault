@@ -8,13 +8,13 @@ By Susan W. Tanner - *Recently Released Young Women General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/my-soul-delighteth-in-the-things-of-the-lord?lang=eng)
 
-In the Book of Mormon, Nephi speaks often of delight. He delights “in the things of the Lord,” “in the scriptures,” and “in the great and eternal plan” of our Father in Heaven (see [[2 Nephi 4.15|2 Nephi 4:15–16]][[2 Nephi 4.16|]]; [[2 Nephi 11.2|11:2–8]][[2 Nephi 11.3|]][[2 Nephi 11.4|]][[2 Nephi 11.5|]][[2 Nephi 11.6|]][[2 Nephi 11.7|]][[2 Nephi 11.8|]]). Notably, Nephi often remembers his sources of delight in the midst of affliction, serving to lift and focus his spirit on eternal blessings.
+In the Book of Mormon, Nephi speaks often of delight. He delights “in the things of the Lord,” “in the scriptures,” and “in the great and eternal plan” of our Father in Heaven (see [[2 Nephi 4.15|2 Nephi 4:15–16]][[2 Nephi 4.16|]]; [[2 Nephi 11.2|11:2–8]][[2 Nephi 11.3|]][[2 Nephi 11.4|]][[2 Nephi 11.5|]][[2 Nephi 11.6|]][[2 Nephi 11.7|]][[2 Nephi 11.8|]]). Notably, Nephi often remembers his sources of delight in the midst of affliction, serving to lift and focus his spirit on eternal blessings.
 
-We too should delight in the things of the Lord, for it will “lift” our hearts and give us cause to “rejoice” ([[2 Nephi 11.8|2 Nephi 11:8]]). Let me mention a few of the things I delight in.
+We too should delight in the things of the Lord, for it will “lift” our hearts and give us cause to “rejoice” ([[2 Nephi 11.8|2 Nephi 11:8]]). Let me mention a few of the things I delight in.
 
-I delight in our Savior, Jesus Christ. Like Nephi, “I glory in my Jesus” ([[2 Nephi 33.6|2 Nephi 33:6]]), in His ministering and saving roles upon the earth. He provides light and hope and has given us the Holy Ghost for further guidance and comfort along the pathway we should go. It is only through Him that we can return to our Father. “Salvation can come unto the children of men, only in and through the name of Christ” ([[Mosiah 3.17|Mosiah 3:17]]).
+I delight in our Savior, Jesus Christ. Like Nephi, “I glory in my Jesus” ([[2 Nephi 33.6|2 Nephi 33:6]]), in His ministering and saving roles upon the earth. He provides light and hope and has given us the Holy Ghost for further guidance and comfort along the pathway we should go. It is only through Him that we can return to our Father. “Salvation can come unto the children of men, only in and through the name of Christ” ([[Mosiah 3.17|Mosiah 3:17]]).
 
-I delight in the restored gospel of Jesus Christ, built upon the foundation of apostles and prophets with whom I have had the blessed opportunity to serve. I testify that President Thomas S. Monson is the Lord’s prophet on the earth today. I delight that he is truly a Christlike minister to the one, reaching out in warmth and love to each individual.
+I delight in the restored gospel of Jesus Christ, built upon the foundation of apostles and prophets with whom I have had the blessed opportunity to serve. I testify that President Thomas S. Monson is the Lord’s prophet on the earth today. I delight that he is truly a Christlike minister to the one, reaching out in warmth and love to each individual.
 
 I delight in priesthood keys and temples that dot the earth, making available to each of us eternal ordinances and covenants. Some of my most celestial days recently have been my own children’s temple marriages, with my father performing that holy ordinance.
 
@@ -40,9 +40,7 @@ Right now I am exerting my faith and prayers and watching for miracles in behalf
 
 Finally, I delight in, more than I can express, the eternal love and constant help of my husband and the prayers and support of my children and parents during these years of my service as Young Women general president.
 
-“My soul delighteth in the things of the Lord” ([[2 Nephi 4.16|2 Nephi 4:16]])—His law, His life, His love. To delight in Him is to acknowledge His hand in our lives. Our gospel duty is to do what is right and to love and delight in what is right. When we delight to serve Him, our Father in Heaven delights to bless us. “I, the Lord, … delight to honor those who serve me in righteousness and in truth unto the end” ([[D&C 76.5|D&C 76:5]]). I want to be worthy always of His delight. “I love the Lord. In Him my soul delights” (John Tanner, “I Love the Lord” \[Jackman Music Corp., 2000\], 2). In the name of Jesus Christ, amen.
-
-
+“My soul delighteth in the things of the Lord” ([[2 Nephi 4.16|2 Nephi 4:16]])—His law, His life, His love. To delight in Him is to acknowledge His hand in our lives. Our gospel duty is to do what is right and to love and delight in what is right. When we delight to serve Him, our Father in Heaven delights to bless us. “I, the Lord, … delight to honor those who serve me in righteousness and in truth unto the end” ([[D&C 76.5|D&C 76:5]]). I want to be worthy always of His delight. “I love the Lord. In Him my soul delights” (John Tanner, “I Love the Lord” \[Jackman Music Corp., 2000\], 2). In the name of Jesus Christ, amen.
 
 
 

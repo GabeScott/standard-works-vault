@@ -14,7 +14,7 @@ My brothers and sisters, I would like to recall to your minds the statement of i
 
 “To all such we reach out in love. We are anxious to forgive in the spirit of Him who said: ‘I, the Lord, will forgive whom I will forgive, but of you it is required to forgive all men’ ([[D&C 64.10|D&C 64:10]]).
 
-“We encourage Church members to forgive those who may have wronged them. To those who have ceased *activity* and to those who have become critical, we say, ‘Come back. Come back and feast at the table of the Lord, and taste again the sweet and satisfying fruits of fellowship with the saints’” (“An Invitation to Come Back,” *Church News,* 22 Dec. 1985, p. 3; italics added).
+“We encourage Church members to forgive those who may have wronged them. To those who have ceased *activity* and to those who have become critical, we say, ‘Come back. Come back and feast at the table of the Lord, and taste again the sweet and satisfying fruits of fellowship with the saints’” (“An Invitation to Come Back,” *Church News,* 22 Dec. 1985, p. 3; italics added).
 
 While most of us in the Church may think of activities as primarily fun and games, there is a part that *activities* play in the Church that reaches far beyond this shallow perception.
 
@@ -62,16 +62,17 @@ We need to be reminded that activities sponsored by the Church are not new. In e
 
 In closing, I would like to continue quoting from the First Presidency’s Christmas message: “We are confident that many have longed to return, but have felt awkward about doing so. We assure you that you will find open arms to receive you and willing hands to assist you.
 
-“This is the Christmas season when we honor the birth of the Lord who gave His life for the sins of all. We know there are many who carry heavy burdens of guilt and bitterness. To such we say, ‘Set them aside and give heed to the words of the Savior: “Come unto me, all ye that labour and are heavy laden, and I will give you rest. … For my yoke is easy, and my burden is light.”’ ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]])” (“An Invitation to Come Back,” p. 3).
+“This is the Christmas season when we honor the birth of the Lord who gave His life for the sins of all. We know there are many who carry heavy burdens of guilt and bitterness. To such we say, ‘Set them aside and give heed to the words of the Savior: “Come unto me, all ye that labour and are heavy laden, and I will give you rest. … For my yoke is easy, and my burden is light.”’ ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]])” (“An Invitation to Come Back,” p. 3).
 
 The First Presidency continues by saying:
 
 “We plead with you. We pray for you. We invite and welcome you with love and appreciation.
 
-“Sincerely your brethren, The First Presidency” (p. 3).
+“Sincerely your brethren, The First Presidency” (p. 3).
 
 May I invite all to come unto Christ. Come back and partake of His joy. In the name of Jesus Christ, amen.
 
 
 
-#Activation #Fellowshipping #Forgiveness
+
+#Activation #Forgiveness #Fellowshipping

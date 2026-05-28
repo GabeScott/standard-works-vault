@@ -1,20 +1,20 @@
 # The Meaning of Maturity
 
-By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
+By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/10/the-meaning-of-maturity?lang=eng)
 
-“In Gibeon the Lord appeared to Solomon in a dream by night: and God said, Ask what I shall give thee.” ([[1 Kings 3.5|1 Kgs. 3:5]].) Before King Solomon replied, he reflected on what was his greatest need. Was it power and influence? Was it wealth and riches? Was it fame and glory?
+“In Gibeon the Lord appeared to Solomon in a dream by night: and God said, Ask what I shall give thee.” ([[1 Kings 3.5|1 Kgs. 3:5]].) Before King Solomon replied, he reflected on what was his greatest need. Was it power and influence? Was it wealth and riches? Was it fame and glory?
 
 Let us ponder carefully Solomon’s answer:
 
-“And now, O Lord my God, thou hast made thy servant king instead of David my father: and I am but a little child: I know not how to go out or come in. …
+“And now, O Lord my God, thou hast made thy servant king instead of David my father: and I am but a little child: I know not how to go out or come in. …
 
-“Give therefore thy servant an understanding heart to judge thy people, that I may discern between good and bad.” ([[1 Kings 3.7|1 Kgs. 3:7, 9]][[1 Kings 3.9|]].)
+“Give therefore thy servant an understanding heart to judge thy people, that I may discern between good and bad.” ([[1 Kings 3.7|1 Kgs. 3:7, 9]][[1 Kings 3.9|]].)
 
-“And God gave Solomon wisdom and understanding exceeding much, and largeness of heart, even as the sand that is on the sea shore.” ([[1 Kings 4.29|1 Kgs. 4:29]].)
+“And God gave Solomon wisdom and understanding exceeding much, and largeness of heart, even as the sand that is on the sea shore.” ([[1 Kings 4.29|1 Kgs. 4:29]].)
 
 Wisdom, understanding, largeness of heart are signs of maturity. When Solomon acquired these qualities, he was no longer “but a little child.”
 
@@ -28,7 +28,7 @@ We live in a world where men have largely turned away from righteousness and are
 
 All over the world, people of different races and cultures are overcoming traditions to accept the truth and submit themselves humbly to baptism. How inspiring to see them overcome hardship and affliction. I remember interviewing a fine young Shona man, a Church member in Zimbabwe, to be the first missionary from his nation. Although permanently on crutches because of polio, Elder Peter Chaya submitted happily to the call to serve.
 
-Third, *simplicity.* A child is uncomplicated and expresses himself without becoming devious. The Apostle Paul counseled the Saints at Corinth: “But I fear, lest by any means, as the serpent beguiled Eve through his subtilty, so your minds should be corrupted from the simplicity that is in Christ.” ([[2 Corinthians 11.3|2 Cor. 11:3]].) I have always been impressed that, although Paul was a very learned man, after his conversion he declared: “For I determined not to know any thing among you, save Jesus Christ, and him crucified.” ([[1 Corinthians 2.2|1 Cor. 2:2]].) These thoughts came to mind when, on a recent visit to Ghana, I heard Dr. Emmanuel Kissi, a prominent surgeon and now the district president, teach the simple truths of the gospel in the district conference meetings.
+Third, *simplicity.* A child is uncomplicated and expresses himself without becoming devious. The Apostle Paul counseled the Saints at Corinth: “But I fear, lest by any means, as the serpent beguiled Eve through his subtilty, so your minds should be corrupted from the simplicity that is in Christ.” ([[2 Corinthians 11.3|2 Cor. 11:3]].) I have always been impressed that, although Paul was a very learned man, after his conversion he declared: “For I determined not to know any thing among you, save Jesus Christ, and him crucified.” ([[1 Corinthians 2.2|1 Cor. 2:2]].) These thoughts came to mind when, on a recent visit to Ghana, I heard Dr. Emmanuel Kissi, a prominent surgeon and now the district president, teach the simple truths of the gospel in the district conference meetings.
 
 Yes, we need to strive for the simplicity of a child, and raise our own children to have simple, unshakable testimonies of Jesus Christ. Then they will not fall prey to those temptations which would divert them from the strait and narrow way. As Elder Matthew Cowley used to say, “Life should be beautifully simple. And then it will be simply beautiful.” (“Learn to Live,” address delivered at Brigham Young University, 19 June 1953.)
 
@@ -38,7 +38,7 @@ Oh, for the faith of a child, to “dream the impossible dream” and “reach t
 
 The fifth childlike quality is *love,* unquestioning love, freely given. What father can resist the little upturned face saying, “I love you, daddy”? What mother does not feel an inward glow on finding a little note on her pillow: “I love you, mummy”? It has been my privilege in many lands to hear the sweet voices of children echo the words of the Savior: “As I have loved you, … love one another.” ([[John 13.34|John 13:34]].)
 
-Jesus exemplified innocence, humility, simplicity, and faith. He showed his great love for us by taking upon himself our sins, by laying down his precious life, and by raising himself from the grave. “God is love; and he that dwelleth in love dwelleth in God, and God in him.” ([[1 John 4.16|1 Jn. 4:16]].) Throughout the world, our missionaries are going two by two, preaching faith in the Lord Jesus Christ and repentance. There may be few who have retained all of the five qualities mentioned, but all can regain them through repentance and change.
+Jesus exemplified innocence, humility, simplicity, and faith. He showed his great love for us by taking upon himself our sins, by laying down his precious life, and by raising himself from the grave. “God is love; and he that dwelleth in love dwelleth in God, and God in him.” ([[1 John 4.16|1 Jn. 4:16]].) Throughout the world, our missionaries are going two by two, preaching faith in the Lord Jesus Christ and repentance. There may be few who have retained all of the five qualities mentioned, but all can regain them through repentance and change.
 
 Once we have made the necessary changes in our lives, we must add to these five basic qualities five more in order to achieve maturity in the Lord.
 
@@ -62,13 +62,11 @@ During the Savior’s ministry he taught this principle, even as to the words we
 
 Ninth, we will consider *dependability.* As children, we laugh one minute and cry the next. We change friends quickly and change our view of the world according to circumstance and surroundings. As we mature, we become more dependable and stable. Paul the Apostle expressed the hope that “we henceforth be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive.” ([[Ephesians 4.14|Eph. 4:14]].)
 
-We need to warn and teach, protect and safeguard, so that our little ones are not led away either physically or spiritually. There are so many voices, so many doctrines which are not of the Lord. However, as we “press forward with a steadfastness in Christ, … and endure to the end” ([[2 Nephi 31.20|2 Ne. 31:20]]), we shall achieve the maturity of dependability, consistency, and spiritual endurance. I am very grateful for our beloved President Kimball who exemplifies these qualities. He has been a significant help to me, and I am sure to many of us, in the quest for spiritual maturity.
+We need to warn and teach, protect and safeguard, so that our little ones are not led away either physically or spiritually. There are so many voices, so many doctrines which are not of the Lord. However, as we “press forward with a steadfastness in Christ, … and endure to the end” ([[2 Nephi 31.20|2 Ne. 31:20]]), we shall achieve the maturity of dependability, consistency, and spiritual endurance. I am very grateful for our beloved President Kimball who exemplifies these qualities. He has been a significant help to me, and I am sure to many of us, in the quest for spiritual maturity.
 
 This has been particularly so with regard to the tenth quality, that of *self-mastery.* The Nephite prophet Alma counseled, “See that ye bridle all your passions, that ye may be filled with love.” ([[Alma 38.12|Alma 38:12]].) Jesus Christ, the Son of God, became our Savior and Redeemer because he overcame the world. When Satan tempted him, he did not succumb; when he was ridiculed and reviled, he did not compromise. When death faced him, he did not waver. His maturity was full.
 
 May we, like him, be innocent and humble, simple, and full of faith and love. May we become wise and dependable, leading others by first mastering ourselves. May we become mature enough to give an acceptable accounting before the Lord when he comes. He is the living Christ. This is his living Church. He speaks through a living prophet, of which I bear joyful testimony, in the name of our Lord and Savior, Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # What Will the Church Do for You, a Man?
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -62,7 +62,7 @@ Blessed is the man who prays with the assurance that prayers are heard and answe
 
 When King Belshazzar gathered about him his friends in a night of feasting and revelry, the fingers of a man’s hand appeared and wrote upon the wall. The astrologers and the soothsayers were called to interpret the writing, and they could not, and the king was greatly troubled.
 
-And the queen said, “There is a man in thy kingdom, in whom is the spirit of the holy gods; and in the days of thy father light and understanding and wisdom, like the wisdom of the gods, was found in him. …” ([[Daniel 5.11|Dan. 5:11]].)
+And the queen said, “There is a man in thy kingdom, in whom is the spirit of the holy gods; and in the days of thy father light and understanding and wisdom, like the wisdom of the gods, was found in him. …” ([[Daniel 5.11|Dan. 5:11]].)
 
 Daniel was brought before the king, and by virtue of the power in him he interpreted the writing on the wall.
 
@@ -88,7 +88,7 @@ No other relationship in life is so sacred, so satisfying, so important in its c
 
 As certainly as there has been a joining together in marriage with such a ceremony, there also has been decreed a separation and cancellation of family relationships in death. To think of eternal life without eternal love is to construct a paradox, a contradiction.
 
-A loving Eternal Father, with concern for his children, has made possible a continuation of those sacred relationships. Declared the Lord to his chosen Twelve, “And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven. …” ([[Matthew 16.19|Matt. 16:19]].)
+A loving Eternal Father, with concern for his children, has made possible a continuation of those sacred relationships. Declared the Lord to his chosen Twelve, “And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven. …” ([[Matthew 16.19|Matt. 16:19]].)
 
 That same power, to bind in heaven what is bound on earth, is in this church today. It is exercised in holy temples, and there, under the authority of the priesthood of God, father and mother and children are sealed together under a covenant and in a relationship that time cannot break and death cannot destroy.
 
@@ -103,8 +103,6 @@ To our brethren everywhere, to those who have become careless and who have drift
 My brethren, the door is open. You will be warmly welcomed, and you will find many good men anxious to help you. Furthermore, as a servant of the Lord, I do not hesitate to promise that you will come to know a joy that you have never previously experienced.
 
 I bear witness of these things in soberness and with appreciation, in the name of Jesus Christ. Amen.
-
-
 
 
 

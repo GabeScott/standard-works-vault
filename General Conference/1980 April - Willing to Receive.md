@@ -1,18 +1,18 @@
 # Willing to Receive
 
-By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
+By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1980/04/willing-to-receive?lang=eng)
 
-In that same chapter of the book of Moses to which Brother Busche has just referred, there is a conversation recorded that is for me one of the most instructive and tender in all literature. Enoch had “built a city that was called the City of Holiness, even Zion,” which “in process of time, was taken up into heaven. …
+In that same chapter of the book of Moses to which Brother Busche has just referred, there is a conversation recorded that is for me one of the most instructive and tender in all literature. Enoch had “built a city that was called the City of Holiness, even Zion,” which “in process of time, was taken up into heaven. …
 
 “And … the God of heaven looked upon the residue of the people \[that is, upon those who had not been taken up\], and he wept” ([[Moses 7.19|Moses 7:19, 21, 28]][[Moses 7.21|]][[Moses 7.28|]]).
 
 Then Enoch said to the Lord: “How is it that the heavens weep, and shed forth their tears as the rain upon the mountains?
 
-“… How is it that thou canst weep, seeing thou art holy, and from all eternity to all eternity?” ([[Moses 7.28|Moses 7:28–29]][[Moses 7.29|]]).
+“… How is it that thou canst weep, seeing thou art holy, and from all eternity to all eternity?” ([[Moses 7.28|Moses 7:28–29]][[Moses 7.29|]]).
 
 Enoch then reminded God of the limitlessness and ongoing nature of his creations, and of his holy perfections and glory and accomplishments, and said: “Naught but peace, justice, and truth is the habitation of thy throne; and mercy shall go before thy face and have no end; *how is it thou canst weep?*
 
@@ -20,7 +20,7 @@ Enoch then reminded God of the limitlessness and ongoing nature of his creations
 
 “And unto thy brethren have I said, and also given commandment, that they should *love one another,* and that they should *choose me,* their Father; but behold, they are without affection, and they hate their own blood.
 
-“… and the whole heavens shall weep over them, even all the workmanship of mine hands; wherefore should not the heavens weep, seeing these shall suffer?” ([[Moses 7.31|Moses 7:31–33, 37]][[Moses 7.32|]][[Moses 7.33|]][[Moses 7.37|]]; italics added).
+“… and the whole heavens shall weep over them, even all the workmanship of mine hands; wherefore should not the heavens weep, seeing these shall suffer?” ([[Moses 7.31|Moses 7:31–33, 37]][[Moses 7.32|]][[Moses 7.33|]][[Moses 7.37|]]; italics added).
 
 God, from whom all blessings come, asked of his children only that they should love each other and choose him, their Father.
 
@@ -44,7 +44,7 @@ The third traveler came into the presence of his host with an overwhelming sense
 
 In the scripture it is written:
 
-“O … my beloved brethren, … the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name” ([[2 Nephi 9.41|2 Ne. 9:41]]).
+“O … my beloved brethren, … the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name” ([[2 Nephi 9.41|2 Ne. 9:41]]).
 
 Salvation and exaltation, I believe, are not matters of heavenly bookkeeping, but of the qualifying of the soul that comes with knowing the Lord.
 
@@ -92,7 +92,7 @@ A little girl living in a place for homeless children earned displeasure from an
 
 God’s children need to be loved, and to have someone to love.
 
-But it is written, “let us not love in word, neither in tongue; but in deed and in truth” ([[1 John 3.18|1 Jn. 3:18]]).
+But it is written, “let us not love in word, neither in tongue; but in deed and in truth” ([[1 John 3.18|1 Jn. 3:18]]).
 
 “Not with eyeservice, as menpleasers; but as the servants of Christ, doing the will of God from the heart” ([[Ephesians 6.6|Eph. 6:6]]).
 
@@ -102,7 +102,10 @@ In the sermon Amulek preached, to which Brother Busche has referred, encouraging
 
 The poet expressed it another way:
 
-Love is not all: it is not meat nor drinkNor slumber nor a roof against the rain;Nor yet a floating spar to men that sink.(Edna St. Vincent Millay, *Collected Poems,* ed. Norma Millay, New York: Harper and Row, 1956, p. 659).
+>Love is not all: it is not meat nor drink
+>Nor slumber nor a roof against the rain;
+>Nor yet a floating spar to men that sink.
+>
 
 We speak of the love of Christ that is greater than faith, greater than hope; that expresses itself in sacrifice, in service, in giving.
 
@@ -123,8 +126,6 @@ We have two great challenges, you and I, and the challenge never ends as long as
 “And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away” ([[Revelation 21.3|Rev. 21:3–4]][[Revelation 21.4|]]).
 
 God bless us that we may meet the test, in the name of Jesus Christ, amen.
-
-
 
 
 

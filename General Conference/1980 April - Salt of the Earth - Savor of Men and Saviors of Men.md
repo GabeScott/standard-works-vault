@@ -1,6 +1,6 @@
 # Salt of the Earth: Savor of Men and Saviors of Men
 
-By Elder Carlos E. Asay - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Carlos E. Asay - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -12,9 +12,9 @@ This white substance occupies an important place in our lives. It is essential t
 
 According to the historians, “Salt at one time had religious significance, and was a symbol of purity. … Among many peoples, salt is still used as a sign of honor, friendship and hospitality. The Arabs say ‘there is salt between us,’ meaning ‘we have eaten together, and are friends’” (*The World Book Encyclopedia,* 1978, 17:69).
 
-The Organizer and Creator of this world understood perfectly the nature and importance of salt. More than thirty-five references to this substance are found in the scriptures. In the Old Testament mention is made of a “covenant of salt” (see [[Leviticus 2.13|Lev. 2:13]]; [[Numbers 18.19|Num. 18:19]]; [[2 Chronicles 13.5|2 Chr. 13:5]]). In the New Testament the Savior referred to his disciples as the “salt of the earth,” and charged them to retain their savor ([[Matthew 5.13|Matt. 5:13]]). He repeated this charge to his chosen disciples on the American continent:
+The Organizer and Creator of this world understood perfectly the nature and importance of salt. More than thirty-five references to this substance are found in the scriptures. In the Old Testament mention is made of a “covenant of salt” (see [[Leviticus 2.13|Lev. 2:13]]; [[Numbers 18.19|Num. 18:19]]; [[2 Chronicles 13.5|2 Chr. 13:5]]). In the New Testament the Savior referred to his disciples as the “salt of the earth,” and charged them to retain their savor ([[Matthew 5.13|Matt. 5:13]]). He repeated this charge to his chosen disciples on the American continent:
 
-“Verily, verily, I say unto you, I give unto you to be the salt of the earth; but if the salt shall lose its savor, wherewith shall the earth be salted? The salt shall be thenceforth good for nothing, but to be cast out and to be trodden under foot of men” ([[3 Nephi 12.13|3 Ne. 12:13]]).
+“Verily, verily, I say unto you, I give unto you to be the salt of the earth; but if the salt shall lose its savor, wherewith shall the earth be salted? The salt shall be thenceforth good for nothing, but to be cast out and to be trodden under foot of men” ([[3 Nephi 12.13|3 Ne. 12:13]]).
 
 How many times have we read, or heard others read, this scripture? Yet, do we understand fully the “salt of the earth” message? Are we conversant with the analogy? Are we responding properly to its implications?
 
@@ -44,9 +44,9 @@ When one of us follows the crowd and becomes involved in immoral acts and the us
 
 Flavor and quality flee a man when he contaminates his mind with unclean thoughts, desecrates his mouth by speaking less than the truth, and misapplies his strength in performing evil acts. King Benjamin cautioned, “Watch yourselves, and your thoughts, and your words, and your deeds, and observe the commandments of God” ([[Mosiah 4.30|Mosiah 4:30]]).
 
-I would offer these simple guidelines, especially to the young men, as the means to preserve one’s savor: If it is not *clean,* do not think it; if it is not *true,* do not speak it; if it is not *good,* do not do it (see Marcus Aurelius, “The Meditations of Marcus Aurelius,” in *The Harvard Classics,* Charles W. Eliot, ed., New York: P. F. Collier and Son, 1909, p. 211).
+I would offer these simple guidelines, especially to the young men, as the means to preserve one’s savor: If it is not *clean,* do not think it; if it is not *true,* do not speak it; if it is not *good,* do not do it (see Marcus Aurelius, “The Meditations of Marcus Aurelius,” in *The Harvard Classics,* Charles W. Eliot, ed., New York: P. F. Collier and Son, 1909, p. 211).
 
-Cleanliness, truth, and goodness have always been and will ever be the watchwords of men with savor. It is said that sixty-five percent or more of our communications are non verbal. If this is so, who we are and what we are is most important. A living prophet has declared: “No greater service can be given to the missionary calling of the Church than to exemplify positive Christian virtues in our lives” (Spencer W. Kimball, *Ensign,* Nov. 1978, p. 6).
+Cleanliness, truth, and goodness have always been and will ever be the watchwords of men with savor. It is said that sixty-five percent or more of our communications are non verbal. If this is so, who we are and what we are is most important. A living prophet has declared: “No greater service can be given to the missionary calling of the Church than to exemplify positive Christian virtues in our lives” (Spencer W. Kimball, *Ensign,* Nov. 1978, p. 6).
 
 We must fight daily to retain our savor, our purity. We must press forward, clinging to our standards of holiness, remembering all the while that we are called to be the savor of men.
 
@@ -58,11 +58,11 @@ The Prophet Joseph Smith received these instructions from the Lord:
 
 “And inasmuch as they are not the saviors of men, they are as salt that has lost its savor” ([[D&C 103.9|D&C 103:9–10]][[D&C 103.10|]]; italics added).
 
-One is impressed with the depth of meaning associated with the words “saviors of men,” when they are studied in companionship with a complete definition of the priesthood: “The priesthood is the power and authority of God delegated to man on earth to act in all things pertaining to the salvation of men. It is the means whereby the Lord acts through men to save souls” (Spencer W. Kimball, *Ensign,* June 1975, p. 3).
+One is impressed with the depth of meaning associated with the words “saviors of men,” when they are studied in companionship with a complete definition of the priesthood: “The priesthood is the power and authority of God delegated to man on earth to act in all things pertaining to the salvation of men. It is the means whereby the Lord acts through men to save souls” (Spencer W. Kimball, *Ensign,* June 1975, p. 3).
 
 Priesthood is God’s power. It is to be used in saving souls. It is not shared with young men or older men simply to sit on or to hold in name only. It is shared with the expectation that the receiver will exercise it in behalf of himself and others. The priesthood is to be honored, and callings within the priesthood are to be magnified.
 
-One of the grandest concepts in the gospel of Jesus Christ is the concept that men can and should be more than passive observers in the cause of saving souls. One Church leader taught: “In our preexistent state … we made a certain agreement with the Almighty. … We agreed … to be not only saviors for ourselves but measurably, saviors for the whole human family. We went into a partnership with the Lord. The working out of the plan became then not merely the Father’s work, and the Savior’s work, but also our work” (John A. Widtsoe, *Utah Genealogical and Historical Magazine,* Oct. 1934, p. 189).
+One of the grandest concepts in the gospel of Jesus Christ is the concept that men can and should be more than passive observers in the cause of saving souls. One Church leader taught: “In our preexistent state … we made a certain agreement with the Almighty. … We agreed … to be not only saviors for ourselves but measurably, saviors for the whole human family. We went into a partnership with the Lord. The working out of the plan became then not merely the Father’s work, and the Savior’s work, but also our work” (John A. Widtsoe, *Utah Genealogical and Historical Magazine,* Oct. 1934, p. 189).
 
 I know of a young priest who was asked by his bishop to fellowship an inactive quorum member. The bishop indicated that others had failed in their attempts to recover the boy. The final words of the bishop’s commission were: “Please save _________.” After many tries and failures, the miracle was wrought—the inactive returned to full activity in the quorum. It was thrilling for me to hear the hero in this experience bear testimony of the joy which he received as a result of his soul-saving efforts.
 
@@ -70,7 +70,7 @@ Less than a month ago, two missionaries visited a widowed lady who had expressed
 
 One of our priesthood brothers tells of how he was guided by the Spirit in locating thousands of names on one of his father’s ancestral lines. When the necessary research was completed, he and his wife and others completed the appropriate temple ordinances. In summarizing his experience, he said:
 
-“It taught me that if a person will put forth the effort to search, the way will be opened up and he will obtain the spirit of Elijah. …
+“It taught me that if a person will put forth the effort to search, the way will be opened up and he will obtain the spirit of Elijah. …
 
 “I firmly believe that in the preexistence we made a commitment … to be a savior to these people, doing all the necessary research and having the temple work done for them” (Jacob Suess, “Twice Rescued,” in *Links of Forever,* comp. by Connie Rector and Diane Deputy, Salt Lake City: Bookcraft, 1977, p. 120).
 
@@ -87,6 +87,4 @@ I testify that an abiding and exalting relationship with the Master is establish
 
 
 
-
-
-#Missionary_Work #Priesthood #Worthiness
+#MissionaryWork #Priesthood #Worthiness

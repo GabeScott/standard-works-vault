@@ -1,6 +1,6 @@
 # The Importance of a Personal Testimony
 
-By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
+By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -42,11 +42,11 @@ A second great testimony was given by Peter of Christ.
 
 In a day when churches are generally losing members and declining in popularity, many wonder what the secret is in the growth and stability of The Church of Jesus Christ of Latter-day Saints.
 
-President McKay answered it: “The secret lies in the testimony, possessed by each individual who is faithful in the Church, that the Gospel consists of correct principles. …
+President McKay answered it: “The secret lies in the testimony, possessed by each individual who is faithful in the Church, that the Gospel consists of correct principles. …
 
 “This testimony has been revealed to every sincere man and woman who has conformed to the principles of the Gospel of Jesus Christ, who has obeyed the ordinances, and has become entitled to and has received the Spirit of God, the Holy Ghost, to guide him.” (*Pathways to Happiness* \[Bookcraft, 1957\], pp. 314–15.)
 
-In an editorial in the *Impact* magazine, Brother William E. Barrett expressed well the great influence of the Holy Spirit in guiding and uniting the Church today:
+In an editorial in the *Impact* magazine, Brother William E. Barrett expressed well the great influence of the Holy Spirit in guiding and uniting the Church today:
 
 “The great miracle of our day is that Spirit which unites the members of The Church of Jesus Christ of Latter-day Saints with those multitudinous authorities appointed to lead them. For those appointed thus to lead speak a diversity of tongues, belong to a variety of races and cultures, and live in many different lands. Yet there is a unity which manifests itself in the obedience to Church calls, in the acceptance of basic doctrines, and in the belief that we are led by a living prophet of God.
 
@@ -74,11 +74,11 @@ And again the Lord told the Prophet:
 
 The Twelve Apostles are special witnesses of the Savior. I don’t know how many of them have actually seen a personage. They don’t talk about it. But they don’t have to, to receive their special witness that can come by the Holy Ghost.
 
-President Harold B. Lee said to a group of young people, “Not many have seen the Savior face to face here in mortality, but there is no one of you who has been blessed to receive the gift of the Holy Ghost after baptism but that may have a perfect assurance of his existence as though you had seen.” (*Youth and the Church* \[Deseret Book, 1970\], p. 51.)
+President Harold B. Lee said to a group of young people, “Not many have seen the Savior face to face here in mortality, but there is no one of you who has been blessed to receive the gift of the Holy Ghost after baptism but that may have a perfect assurance of his existence as though you had seen.” (*Youth and the Church* \[Deseret Book, 1970\], p. 51.)
 
 The impact of the witness of the Spirit in our lives has been made clear by President Joseph Fielding Smith when he said:
 
-“… the Lord has taught that there is a stronger witness than seeing a personage, even of the Son of God, in a vision. … The Savior said:
+“… the Lord has taught that there is a stronger witness than seeing a personage, even of the Son of God, in a vision. … The Savior said:
 
 “‘Wherefore I say unto you, All manner of sin and blasphemy shall be forgiven unto men: but the blasphemy against the Holy Ghost shall not be forgiven unto men.
 
@@ -92,11 +92,11 @@ The impact of the witness of the Spirit in our lives has been made clear by Pres
 
 “‘If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put him to an open shame.’ \[[[Hebrews 6.4|Heb. 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]].\]”
 
-President Smith concludes: “… the impressions on the soul that come from the Holy Ghost are far more significant than a vision. It is where Spirit speaks to spirit, and the imprint upon the soul is far more difficult to erase. Every member of the Church should have the impressions on his soul made by the Holy Ghost that Jesus is the Son of God indelibly pictured so that they cannot be forgotten.” (*Seek Ye Earnestly* \[Deseret Book, 1970\], pp. 213–14.)
+President Smith concludes: “… the impressions on the soul that come from the Holy Ghost are far more significant than a vision. It is where Spirit speaks to spirit, and the imprint upon the soul is far more difficult to erase. Every member of the Church should have the impressions on his soul made by the Holy Ghost that Jesus is the Son of God indelibly pictured so that they cannot be forgotten.” (*Seek Ye Earnestly* \[Deseret Book, 1970\], pp. 213–14.)
 
 In our search for truth and in our pursuit of eternal life, the Lord has not left us without guidance. He said:
 
-“Oliver Cowdery, verily, verily, I say unto you, that assuredly as the Lord liveth, who is your God and your Redeemer, even so surely shall you receive a knowledge of whatsoever things you shall ask in faith, with an honest heart, believing that you shall receive. …
+“Oliver Cowdery, verily, verily, I say unto you, that assuredly as the Lord liveth, who is your God and your Redeemer, even so surely shall you receive a knowledge of whatsoever things you shall ask in faith, with an honest heart, believing that you shall receive. …
 
 “Yea, behold, I will tell you in your mind and in your heart, by the Holy Ghost, which shall come upon you and which shall dwell in your heart.
 
@@ -104,7 +104,7 @@ In our search for truth and in our pursuit of eternal life, the Lord has not lef
 
 We need the companionship of the Spirit in our lives to continually confirm to us the divinity of the gospel plan. Two things are vital to the assurance of the companionship of the Spirit:
 
-1. Our lives must be in conformity to the gospel standards. “… the Spirit of the Lord doth not dwell in unholy temples.” ([[Helaman 4.24|Hel. 4:24]].)
+1. Our lives must be in conformity to the gospel standards. “… the Spirit of the Lord doth not dwell in unholy temples.” ([[Helaman 4.24|Hel. 4:24]].)
 
 2. We must be engaged in the work. As the Pharisees listened to the bold teachings of the Savior, they said: “How knoweth this man letters, having never learned?” He answered them: “If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” ([[John 7.15|John 7:15, 17]][[John 7.17|]].)
 
@@ -131,6 +131,4 @@ I bear testimony that by the witness of the Spirit one can come to know of the d
 
 
 
-
-
-#Holy_Ghost #Testimony
+#HolyGhost #Testimony

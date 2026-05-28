@@ -1,4 +1,3 @@
 # Nought
 
-
-*See* [[Naught, Nought.md|Naught]]
+*See also* [[Naught.md|Naught]]

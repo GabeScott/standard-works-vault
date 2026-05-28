@@ -7,4 +7,4 @@
 
 [^a]: [[Hardheartedness, Harden, Hardness|TG Hardheartedness]].  
 [^b]: [[Alma 40.13|Alma 40:13]].  
-[^c]: IE the “gods,” as illustrated in [[Abraham fac-1.1|Abr., fac. 1]].  
+[^c]: IE the “gods,” as illustrated in [Abr., fac. 1](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/fac-1?lang=eng).  

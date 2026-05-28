@@ -1,6 +1,6 @@
 # Defenders of the Family Proclamation
 
-By Bonnie L. Oscarson - *Young Women General President*
+By Bonnie L. Oscarson - *Young Women General President*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -18,7 +18,7 @@ Can’t you just picture that brave young woman, the same age as many of you, st
 
 Sisters, few of us will ever have to face an angry mob, but there is a war going on in this world in which our most cherished and basic doctrines are under attack. I am speaking specifically of the doctrine of the family. The sanctity of the home and the essential purposes of the family are being questioned, criticized, and assaulted on every front.
 
-When President Gordon B. Hinckley first read “The Family: A Proclamation to the World” 20 years ago this year, we were grateful for and valued the clarity, simplicity, and truth of this revelatory document. Little did we realize then how very desperately we would need these basic declarations in today’s world as the criteria by which we could judge each new wind of worldly dogma coming at us from the media, the Internet, scholars, TV and films, and even legislators. The proclamation on the family has become our benchmark for judging the philosophies of the world, and I testify that the principles set forth within this statement are as true today as they were when they were given to us by a prophet of God nearly 20 years ago.
+When President Gordon B. Hinckley first read “The Family: A Proclamation to the World” 20 years ago this year, we were grateful for and valued the clarity, simplicity, and truth of this revelatory document. Little did we realize then how very desperately we would need these basic declarations in today’s world as the criteria by which we could judge each new wind of worldly dogma coming at us from the media, the Internet, scholars, TV and films, and even legislators. The proclamation on the family has become our benchmark for judging the philosophies of the world, and I testify that the principles set forth within this statement are as true today as they were when they were given to us by a prophet of God nearly 20 years ago.
 
 May I point out something obvious? Life rarely goes exactly according to plan for anyone, and we are very aware that not all women are experiencing what the proclamation describes. It is still important to understand and teach the Lord’s pattern and strive for the realization of that pattern the best we can.
 
@@ -28,7 +28,7 @@ During this 20th anniversary year of the family proclamation, I would like to is
 
 There are three principles taught in the proclamation which I think are especially in need of steadfast defenders. The first is marriage between a man and a woman. We are taught in the scriptures, “Nevertheless neither is the man without the woman, neither the woman without the man, in the Lord.”[^2] For anyone to attain the fulness of priesthood blessings, there must be a husband and a wife sealed in the house of the Lord, working together in righteousness and remaining faithful to their covenants. This is the Lord’s plan for His children, and no amount of public discourse or criticism will change what the Lord has declared. We need to continue to model righteous marriages, seek for that blessing in our lives, and have faith if it is slow in coming. Let us be defenders of marriage as the Lord has ordained it while continuing to show love and compassion for those with differing views.
 
-The next principle which calls for our defending voices is elevating the divine roles of mothers and fathers. We eagerly teach our children to aim high in this life. We want to make sure that our daughters know that they have the potential to achieve and be whatever they can imagine. We hope they will love learning, be educated, talented, and maybe even become the next Marie Curie or Eliza R. Snow.
+The next principle which calls for our defending voices is elevating the divine roles of mothers and fathers. We eagerly teach our children to aim high in this life. We want to make sure that our daughters know that they have the potential to achieve and be whatever they can imagine. We hope they will love learning, be educated, talented, and maybe even become the next Marie Curie or Eliza R. Snow.
 
 Do we also teach our sons and daughters there is no greater honor, no more elevated title, and no more important role in this life than that of mother or father? I would hope that as we encourage our children to reach for the very best in this life that we also teach them to honor and exalt the roles that mothers and fathers play in Heavenly Father’s plan.
 
@@ -38,7 +38,7 @@ In her very fun presentation to the children, Abby taught them, among other thin
 
 Abby has said of her experience: “I feel like it could be easy in this world for a child to get the sense that being a parent is a secondary job or even sometimes a necessary inconvenience. I want every child to feel like they are the most important priority to their parent, and maybe telling them how important being a parent is to me will help them realize all that their parents do for them and why.”
 
-Our beloved prophet, President Thomas S. Monson, is a wonderful example of honoring women and motherhood, especially his own mother. In reference to our earthly mothers, he has said: “May each of us treasure this truth; one cannot forget mother and remember God. One cannot remember mother and forget God. Why? Because these two sacred persons, God and \[our earthly\] mother, partners in creation, in love, in sacrifice, in service, are as one.”[^3]
+Our beloved prophet, President Thomas S. Monson, is a wonderful example of honoring women and motherhood, especially his own mother. In reference to our earthly mothers, he has said: “May each of us treasure this truth; one cannot forget mother and remember God. One cannot remember mother and forget God. Why? Because these two sacred persons, God and \[our earthly\] mother, partners in creation, in love, in sacrifice, in service, are as one.”[^3]
 
 The last principle we need to stand and defend is the sanctity of the home. We need to take a term which is sometimes spoken of with derision and elevate it. It is the term *homemaker.* All of us—women, men, youth, and children, single or married—can work at being homemakers. We should “make our homes” places of order, refuge, holiness, and safety. Our homes should be places where the Spirit of the Lord is felt in rich abundance and where the scriptures and the gospel are studied, taught, and lived. What a difference it would make in the world if all people would see themselves as makers of righteous homes. Let us defend the home as a place which is second only to the temple in holiness.
 
@@ -49,12 +49,10 @@ I bear witness that Heavenly Father lives and loves each of us. His Son, Jesus C
 
 
 
-[^1]: See Marie Madeline Cardon Guild, “Marie Madeline Cardon Guild: An Autobiography,” cardonfamilies.org/Histories/MarieMadelineCardonGuild.html; see also Marie C. Guild autobiography, circa 1909, Church History Library, Salt Lake City, Utah.
+[^1]: See Marie Madeline Cardon Guild, “Marie Madeline Cardon Guild: An Autobiography,” cardonfamilies.org/Histories/MarieMadelineCardonGuild.html; see also Marie C. Guild autobiography, circa 1909, Church History Library, Salt Lake City, Utah.
 
-[^2]: [[1 Corinthians 11.11|1 Corinthians 11:11]].
+[^2]: [[1 Corinthians 11.11|1 Corinthians 11:11]].
 
-[^3]: Thomas S. Monson, “[Behold Thy Mother](https://churchofjesuschrist.org/study/ensign/1974/01/behold-thy-mother?lang=eng),” *Ensign,* Jan. 1974, 32.
-
-
+[^3]: Thomas S. Monson, “[Behold Thy Mother](https://www.churchofjesuschrist.org/study/ensign/1974/01/behold-thy-mother?lang=eng),” *Ensign,* Jan. 1974, 32.
 
 #Courage #Family #Home #Marriage #Motherhood

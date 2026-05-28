@@ -1,6 +1,5 @@
 # Stumblingblock
 
-
 *See also* [[Stumble.md|Stumble]]; [[Stumblingstone.md|Stumblingstone]]
 
 nor put a *stumblingblock* before the blind, [[Leviticus 19.14|Leviticus 19:14]].
@@ -11,15 +10,15 @@ I will lay *stumblingblocks* before this people, [[Jeremiah 6.21|Jeremiah 6:21]]
 
 *stumblingblock* of their iniquity, [[Ezekiel 7.19|Ezekiel 7:19]] ([[Ezekiel 14.3|Ezekiel 14:3]]).
 
-I will consume ... the *stumblingblocks* with the wicked, [[Zephaniah 1.3|Zephaniah 1:3]].
+I will consume … the *stumblingblocks* with the wicked, [[Zephaniah 1.3|Zephaniah 1:3]].
 
-Let their table be ... a *stumblingblock*, [[Romans 11.9|Romans 11:9]].
+Let their table be … a *stumblingblock*, [[Romans 11.9|Romans 11:9]].
 
-that no man put a *stumblingblock* ... in his brother's way, [[Romans 14.13|Romans 14:13]].
+that no man put a *stumblingblock* … in his brother’s way, [[Romans 14.13|Romans 14:13]].
 
 we preach Christ crucified, unto the Jews a *stumblingblock*, [[1 Corinthians 1.23|1 Corinthians 1:23]].
 
-this liberty ... a *stumblingblock* to them that are weak, [[1 Corinthians 8.9|1 Corinthians 8:9]].
+this liberty … a *stumblingblock* to them that are weak, [[1 Corinthians 8.9|1 Corinthians 8:9]].
 
 to cast a *stumblingblock* before the children of Israel, [[Revelation 2.14|Revelation 2:14]].
 

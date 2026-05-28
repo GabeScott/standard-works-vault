@@ -1,7 +1,6 @@
 # Corn
 
-
-*See also* [BD Corn](https://www.churchofjesuschrist.org/study/scriptures/bd/corn?lang=eng)
+*See also* [[BD Corn.md|BD Corn]]
 
 fatness of the earth, and plenty of *corn*, [[Genesis 27.28|Genesis 27:28]].
 

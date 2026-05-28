@@ -1,13 +1,12 @@
 # Stiffnecked, Stiffneckedness
 
-
-*See also* [[Hardheartedness, Harden, Hardness.md|Hardheartedness]]; [[Rebellion, Rebel.md|Rebellion]]; [[Stubbornness, Stubborn.md|Stubbornness]]
+*See also* [[Hardheartedness.md|Hardheartedness]]; [[Rebellion.md|Rebellion]]; [[Stubbornness.md|Stubbornness]]
 
 it is a *stiffnecked* people, [[Exodus 32.9|Exodus 32:9]] ([[Exodus 34.9|Exodus 34:9]]).
 
 Ye are a *stiffnecked* people, [[Exodus 33.5|Exodus 33:5]] ([[Deuteronomy 9.6|Deuteronomy 9:6]]; [[2 Nephi 25.28|2 Nephi 25:28]]; [[Mosiah 3.14|Mosiah 3:14]]; [[Helaman 5.3|Helaman 5:3]]; [[Helaman 9.21|Helaman 9:21]]; [[Helaman 13.29|Helaman 13:29]]).
 
-Circumcise ... your heart, and be no more *stiffnecked*, [[Deuteronomy 10.16|Deuteronomy 10:16]].
+Circumcise … your heart, and be no more *stiffnecked*, [[Deuteronomy 10.16|Deuteronomy 10:16]].
 
 I know thy rebellion, and thy *stiff* neck, [[Deuteronomy 31.27|Deuteronomy 31:27]].
 
@@ -27,13 +26,13 @@ Ye *stiffnecked* and uncircumcised in heart, [[Acts 7.51|Acts 7:51]].
 
 because of the *stiffneckedness* of Laman, [[1 Nephi 2.11|1 Nephi 2:11]].
 
-after they have ... *stiffened* their necks, [[2 Nephi 6.10|2 Nephi 6:10]].
+after they have … *stiffened* their necks, [[2 Nephi 6.10|2 Nephi 6:10]].
 
 they at Jerusalem will *stiffen* their necks against him, [[2 Nephi 10.5|2 Nephi 10:5]].
 
 They wear *stiff* necks and high heads, [[2 Nephi 28.14|2 Nephi 28:14]] ([[Jacob 2.13|Jacob 2:13]]).
 
-mourn because of the ... *stiffneckedness* of men, [[2 Nephi 32.7|2 Nephi 32:7]].
+mourn because of the … *stiffneckedness* of men, [[2 Nephi 32.7|2 Nephi 32:7]].
 
 Jews were a *stiffnecked* people, [[Jacob 4.14|Jacob 4:14]].
 
@@ -63,6 +62,4 @@ this unbelieving and *stiffnecked* generation, [[D&C 5.8|D&C 5:8]].
 
 *stiffneckedness* of my people which are in Thompson, [[D&C 56.6|D&C 56:6]].
 
-if they ... *stiffen* not their necks against me, [[D&C 112.13|D&C 112:13]].
-
-*See also* [[Numbers 22.32|Numbers 22:32]].
+if they … *stiffen* not their necks against me, [[D&C 112.13|D&C 112:13]].

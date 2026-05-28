@@ -1,6 +1,5 @@
 # Impossible
 
-
 nothing shall be *impossible* unto you, [[Matthew 17.20|Matthew 17:20]].
 
 With men this is *impossible*, [[Matthew 19.26|Matthew 19:26]] ([[Mark 10.27|Mark 10:27]]; [[Luke 18.27|Luke 18:27]]).

@@ -1,6 +1,6 @@
 # Power over Satan
 
-By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
+By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -28,13 +28,13 @@ Now, God said also (and this is most important to you and to me):
 
 Now, the truth is that Satan lives! Indeed, some have seen his satanic majesty in spirit form.
 
-President Harold B. Lee warned us to “make no mistake about his reality as a personality, even though he does not possess a physical body. Since the beginning of time, he, with his hosts … have waged relentless war to destroy the free agency of man.” Those who teach that there is no devil or who declare him to be a figment of the imagination used only to frighten people are either ignorant of the facts or they themselves are deceived.
+President Harold B. Lee warned us to “make no mistake about his reality as a personality, even though he does not possess a physical body. Since the beginning of time, he, with his hosts … have waged relentless war to destroy the free agency of man.” Those who teach that there is no devil or who declare him to be a figment of the imagination used only to frighten people are either ignorant of the facts or they themselves are deceived.
 
 How does Satan operate? What are his tactics? Using his superior knowledge, his unique powers of persuasion, half-truths, and complete lies, the evil one uses the spirit children who followed him (which were many), plus mortal beings who have yielded to his evil ways, to wage war against Jehovah and his followers; and they will, if they can, influence us to become critical and to rebel against God and his work. Thus he destroys the souls of men.
 
 The scriptures tell us: “Satan stirreth them up, that he may lead their souls to destruction.” ([[D&C 10.22|D&C 10:22]].)
 
-“Yea, he saith unto them: Deceive and lie in wait to catch, that ye may destroy; behold, this is no harm. …
+“Yea, he saith unto them: Deceive and lie in wait to catch, that ye may destroy; behold, this is no harm. …
 
 “And thus he flattereth them, and leadeth them along until he draggeth their souls down to hell; and thus he causeth them to catch themselves in their own snare.
 
@@ -50,13 +50,11 @@ How, then, may we resist the evil one? In all his evil doings, the adversary can
 
 I tremble when I realize how the children of God are being tempted today, especially the youth; yet we have confidence in them. They are choice spirits. But they must realize that Jesus, not Satan, is their best friend; that happiness can come only through obedience to the commandments of God. We must help them prepare for and achieve their divine destiny. Nevertheless, if they fall into the snares of Satan, parents, priesthood leaders, and teachers must lead them out of the pitfalls and on to higher ground through the process of repentance.
 
-Recently our beloved president, Spencer W. Kimball, speaking to a multitude of youth, assured them that an awareness of the existence, the power, and the plans of Satan—together with a compelling and vibrant testimony of God and of the gospel and of the plans of our Father given through Jesus Christ, his Son, and the living prophets—can help them achieve unprecedented accomplishments, which may affect their lives eternally.
+Recently our beloved president, Spencer W. Kimball, speaking to a multitude of youth, assured them that an awareness of the existence, the power, and the plans of Satan—together with a compelling and vibrant testimony of God and of the gospel and of the plans of our Father given through Jesus Christ, his Son, and the living prophets—can help them achieve unprecedented accomplishments, which may affect their lives eternally.
 
 Yes, brothers and sisters, Satan lives. He is real. He is cunning. But you may be assured that God, our Heavenly Father, reigns over all and is merciful and forgiving to those who truly seek him.
 
 And every man receiveth wages of him whom he listeth to obey. (See [[D&C 29.45|D&C 29:45]].) To this I testify in the name of Jesus Christ. Amen.
-
-
 
 
 

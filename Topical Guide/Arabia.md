@@ -1,4 +1,3 @@
 # Arabia
 
-
-*See* [BD Arabia](https://www.churchofjesuschrist.org/study/scriptures/bd/arabia?lang=eng)
+*See also* [[BD Arabia.md|BD Arabia]]

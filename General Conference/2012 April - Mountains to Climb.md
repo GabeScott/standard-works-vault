@@ -1,6 +1,6 @@
 # Mountains to Climb
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -8,7 +8,7 @@ By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/04/mountains-to-climb?lang=eng)
 
-I heard President Spencer W. Kimball, in a session of conference, ask that God would give him mountains to climb. He said: “There are great challenges ahead of us, giant opportunities to be met. I welcome that exciting prospect and feel to say to the Lord, humbly, ‘Give me this mountain,’ give me these challenges.”[^1]
+I heard President Spencer W. Kimball, in a session of conference, ask that God would give him mountains to climb. He said: “There are great challenges ahead of us, giant opportunities to be met. I welcome that exciting prospect and feel to say to the Lord, humbly, ‘Give me this mountain,’ give me these challenges.”[^1]
 
 My heart was stirred, knowing, as I did, some of the challenges and adversity he had already faced. I felt a desire to be more like him, a valiant servant of God. So one night I prayed for a test to prove my courage. I can remember it vividly. In the evening I knelt in my bedroom with a faith that seemed almost to fill my heart to bursting.
 
@@ -38,7 +38,7 @@ You remember His words when He counseled that we should, out of faith in Him, re
 
 “Nevertheless, glory be to the Father, and I partook and finished my preparations unto the children of men.”[^3]
 
-You and I have faith that the way to rise through and above trials is to believe that there is a “balm in Gilead”[^4] and that the Lord has promised, “I will not … forsake thee.”[^5] That is what President Thomas S. Monson has taught us to help us and those we serve in what seem lonely and overwhelming trials.[^6]
+You and I have faith that the way to rise through and above trials is to believe that there is a “balm in Gilead”[^4] and that the Lord has promised, “I will not … forsake thee.”[^5] That is what President Thomas S. Monson has taught us to help us and those we serve in what seem lonely and overwhelming trials.[^6]
 
 But President Monson has also wisely taught that a foundation of faith in the reality of those promises takes time to build. You may have seen the need for that foundation, as I have, at the bedside of someone ready to give up the fight to endure to the end. If the foundation of faith is not embedded in our hearts, the power to endure will crumble.
 
@@ -96,16 +96,16 @@ My mother fought cancer for nearly 10 years. Treatments and surgeries and finall
 
 I remember my father saying as he watched her take her last breath, “A little girl has gone home to rest.”
 
-One of the speakers at her funeral was President Spencer W. Kimball. Among the tributes he paid, I remember one that went something like this: “Some of you may have thought that Mildred suffered so long and so much because of something she had done wrong that required the trials.” He then said, “No, it was that God just wanted her to be polished a little more.” I remember at the time thinking, “If a woman that good needed that much polishing, what is ahead for me?”
+One of the speakers at her funeral was President Spencer W. Kimball. Among the tributes he paid, I remember one that went something like this: “Some of you may have thought that Mildred suffered so long and so much because of something she had done wrong that required the trials.” He then said, “No, it was that God just wanted her to be polished a little more.” I remember at the time thinking, “If a woman that good needed that much polishing, what is ahead for me?”
 
 If we have faith in Jesus Christ, the hardest as well as the easiest times in life can be a blessing. In all conditions, we can choose the right with the guidance of the Spirit. We have the gospel of Jesus Christ to shape and guide our lives if we choose it. And with prophets revealing to us our place in the plan of salvation, we can live with perfect hope and a feeling of peace. We never need to feel that we are alone or unloved in the Lord’s service because we never are. We can feel the love of God. The Savior has promised angels on our left and our right to bear us up.[^10] And He always keeps His word.
 
-I testify that God the Father lives and that His Beloved Son is our Redeemer. The Holy Ghost has confirmed truth in this conference and will again as you seek it, as you listen, and as you later study the messages of the Lord’s authorized servants, who are here. President Thomas S. Monson is the Lord’s prophet to the entire world. The Lord watches over you. God the Father lives. His Beloved Son, Jesus Christ, is our Redeemer. His love is unfailing. I so testify in the name of Jesus Christ, amen.
+I testify that God the Father lives and that His Beloved Son is our Redeemer. The Holy Ghost has confirmed truth in this conference and will again as you seek it, as you listen, and as you later study the messages of the Lord’s authorized servants, who are here. President Thomas S. Monson is the Lord’s prophet to the entire world. The Lord watches over you. God the Father lives. His Beloved Son, Jesus Christ, is our Redeemer. His love is unfailing. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Spencer W. Kimball, “Give Me This Mountain,” *Ensign,* Nov. 1979, 79.
+[^1]: Spencer W. Kimball, “Give Me This Mountain,” *Ensign,* Nov. 1979, 79.
 
 [^2]: [[D&C 122.7|Doctrine and Covenants 122:7–9]][[D&C 122.8|]][[D&C 122.9|]].
 
@@ -115,13 +115,14 @@ I testify that God the Father lives and that His Beloved Son is our Redeemer. Th
 
 [^5]: [[Joshua 1.5|Joshua 1:5]].
 
-[^6]: See Thomas S. Monson, “Look to God and Live,” *Ensign,* May 1998, 52–54.
+[^6]: See Thomas S. Monson, “Look to God and Live,” *Ensign,* May 1998, 52–54.
 
 [^7]: [[Ether 12.6|Ether 12:6–9]][[Ether 12.7|]][[Ether 12.8|]][[Ether 12.9|]].
 
 [^8]: [[Ether 12.18|Ether 12:18]].
 
-[^9]: “I Know That My Redeemer Lives,” *Hymns,* no. 136.
+[^9]: “I Know That My Redeemer Lives,” *Hymns,* no. 136.
 
+[^10]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-#Adversity #Faith #Jesus_Christ
+#Adversity #Faith #JesusChrist

@@ -1,15 +1,14 @@
 # Hearing
 
+*See also* [[Hear.md|Hear]]
 
-*See also* [[Hear, Heard.md|Hear]]
-
-a famine ... of *hearing* the words of the Lord, [[Amos 8.11|Amos 8:11]].
+a famine … of *hearing* the words of the Lord, [[Amos 8.11|Amos 8:11]].
 
 ears are dull of *hearing*, [[Matthew 13.15|Matthew 13:15]] ([[Moses 6.27|Moses 6:27]]).
 
 faith cometh by *hearing*, and *hearing* by the word, [[Romans 10.17|Romans 10:17]].
 
-Received ye the Spirit ... by the *hearing* of faith, [[Galatians 3.2|Galatians 3:2]].
+Received ye the Spirit … by the *hearing* of faith, [[Galatians 3.2|Galatians 3:2]].
 
 seeing ye are dull of *hearing*, [[Hebrews 5.11|Hebrews 5:11]].
 

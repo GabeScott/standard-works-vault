@@ -1,6 +1,5 @@
 # Mightily
 
-
 Spirit of the Lord came *mightily* upon him, [[Judges 14.6|Judges 14:6]].
 
 *mightily* grew the word of God and prevailed, [[Acts 19.20|Acts 19:20]].

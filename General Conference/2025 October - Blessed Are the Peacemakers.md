@@ -1,6 +1,6 @@
 # Blessed Are the Peacemakers
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -78,7 +78,7 @@ In time, true bonds of friendship were formed, lifting everyone. To be peacemake
 
 ## Peacemaking in Our Communities
 
-Third, peacemaking in our communities. In the troubled years of World War II, Elder John A. Widtsoe taught: “The only way to build a peaceful community is to build men and women who are lovers and makers of peace. Each individual, by that doctrine of Christ … holds in his hands the peace of the \[whole\] world.”[^14]
+Third, peacemaking in our communities. In the troubled years of World War II, Elder John A. Widtsoe taught: “The only way to build a peaceful community is to build men and women who are lovers and makers of peace. Each individual, by that doctrine of Christ … holds in his hands the peace of the \[whole\] world.”[^14]
 
 The following story beautifully illustrates that precept.
 
@@ -117,32 +117,30 @@ We fulfill our divine role as children of a loving Heavenly Father as we strive 
 
 [^3]: See [[Matthew 5.10|Matthew 5:10, 16]][[Matthew 5.16|]].
 
-[^4]: See [[Matthew 5.16|Matthew 5:16]]; [[3 Nephi 12.16|3 Nephi 12:16]]; [[D&C 115.5|Doctrine and Covenants 115:5]].
+[^4]: See [[Matthew 5.16|Matthew 5:16]]; [[3 Nephi 12.16|3 Nephi 12:16]]; [[D&C 115.5|Doctrine and Covenants 115:5]].
 
-[^5]: See [[Matthew 5.10|Matthew 5:10–12]][[Matthew 5.11|]][[Matthew 5.12|]]; [[1 Peter 3.14|1 Peter 3:14]]; [[Mosiah 24.14|Mosiah 24:14]]; [[3 Nephi 12.10|3 Nephi 12:10]].
+[^5]: See [[Matthew 5.10|Matthew 5:10–12]][[Matthew 5.11|]][[Matthew 5.12|]]; [[1 Peter 3.14|1 Peter 3:14]]; [[Mosiah 24.14|Mosiah 24:14]]; [[3 Nephi 12.10|3 Nephi 12:10]].
 
-[^6]: See [[Matthew 5.44|Matthew 5:44]]; [[Luke 6.27|Luke 6:27]]; [[3 Nephi 12.44|3 Nephi 12:44]].
+[^6]: See [[Matthew 5.44|Matthew 5:44]]; [[Luke 6.27|Luke 6:27]]; [[3 Nephi 12.44|3 Nephi 12:44]].
 
-[^7]: See Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98–101.
+[^7]: See Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98–101.
 
-[^8]: See Dallin H. Oaks, “[[2014 October - Loving Others and Living with Differences.md|Loving Others and Living with Differences]],” *Ensign* or *Liahona*, Nov. 2014, 25–28.
+[^8]: See Dallin H. Oaks, “[[2014 October - Loving Others and Living with Differences.md|Loving Others and Living with Differences]],” *Ensign* or *Liahona*, Nov. 2014, 25–28.
 
-[^9]: See Dieter F. Uchtdorf, “[[2012 April - The Merciful Obtain Mercy.md|The Merciful Obtain Mercy]],” *Ensign* or *Liahona*, May 2012, 70, 75–77.
+[^9]: See Dieter F. Uchtdorf, “[[2012 April - The Merciful Obtain Mercy.md|The Merciful Obtain Mercy]],” *Ensign* or *Liahona*, May 2012, 70, 75–77.
 
-[^10]: See Russell M. Nelson, Facebook, June 1, 2018, facebook.com/russell.m.nelson.
+[^10]: See Russell M. Nelson, Facebook, June 1, 2018, facebook.com/russell.m.nelson.
 
-[^11]: [[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]].
+[^11]: [[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]].
 
 [^12]: [[John 14.27|John 14:27]].
 
 [^13]: See [[D&C 121.41|Doctrine and Covenants 121:41]].
 
-[^14]: John A. Widtsoe, in Conference Report, Oct. 1943, 113.
+[^14]: John A. Widtsoe, in Conference Report, Oct. 1943, 113.
 
 [^15]: See Tanenbaum Center for Interreligious Understanding, tanenbaum.org.
 
 [^16]: [[Mosiah 4.13|Mosiah 4:13]].
-
-
 
 #Contention #Forgiveness #Kindness #Love #Peace #Peacemaking

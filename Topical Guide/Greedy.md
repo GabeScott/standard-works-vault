@@ -1,6 +1,5 @@
 # Greedy
 
-
 as a lion that is *greedy* of his prey, [[Psalms 17.12|Psalms 17:12]].
 
 that is *greedy* of gain troubleth his own house, [[Proverbs 15.27|Proverbs 15:27]].

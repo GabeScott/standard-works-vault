@@ -1,6 +1,6 @@
 # Warnings from the Past
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -64,7 +64,7 @@ Then the great emancipator added this:
 
 “We have grown in numbers, wealth and power. … But we have forgotten God. … It behooves us then to humble ourselves before the offended Power, to confess our national sins, and to pray for clemency and forgiveness.”
 
-It was George Washington, our first president, who said: “… we ought to be no less persuaded that the propitious smiles of Heaven can never be expected on a nation that disregards the eternal rules of order and right which Heaven itself has ordained. …” (First inaugural address, April 30, 1789.)
+It was George Washington, our first president, who said: “… we ought to be no less persuaded that the propitious smiles of Heaven can never be expected on a nation that disregards the eternal rules of order and right which Heaven itself has ordained. …” (First inaugural address, April 30, 1789.)
 
 One of the most stern of all warnings came from the great statesman Daniel Webster when he said: “If we and our posterity reject religious instruction and authority, violate the rules of eternal justice, trifle with the injunctions of morality and recklessly destroy the political constitution which holds us together, no one can tell how sudden a catastrophe may overwhelm us, that shall bury all our glory in profound obscurity.”
 
@@ -88,31 +88,31 @@ The extinct civilizations of the past now speak to us out of the dust of the age
 
 Listen to what they say!
 
-The ancient prophets who lived in America among those destroyed civilizations saw us of today through the eye of revelation. They referred to us as gentiles, and one of these prophets said: “… O ye Gentiles, how can ye stand before the power of God, except ye shall repent and turn from your evil ways?
+The ancient prophets who lived in America among those destroyed civilizations saw us of today through the eye of revelation. They referred to us as gentiles, and one of these prophets said: “… O ye Gentiles, how can ye stand before the power of God, except ye shall repent and turn from your evil ways?
 
 “Know ye not that ye are in the hands of God? Know ye not that he hath all power, and at his great command the earth shall be rolled together as a scroll?
 
-“Therefore, repent ye, and humble yourselves before him, lest he shall come out in justice against you. …” ([[Mormon 5.22|Morm. 5:22–24]][[Mormon 5.23|]][[Mormon 5.24|]].)
+“Therefore, repent ye, and humble yourselves before him, lest he shall come out in justice against you. …” ([[Mormon 5.22|Morm. 5:22–24]][[Mormon 5.23|]][[Mormon 5.24|]].)
 
 Another ancient American prophet, long since dead and now speaking to us out of the dust, said:
 
-“… behold, this is a land which is choice above all other lands; wherefore he that doth possess it shall serve God or shall be swept off; for it is the everlasting decree of God. And it is not until the fulness of iniquity among the children of the land, that they are swept off.
+“… behold, this is a land which is choice above all other lands; wherefore he that doth possess it shall serve God or shall be swept off; for it is the everlasting decree of God. And it is not until the fulness of iniquity among the children of the land, that they are swept off.
 
 “And this cometh unto you, O ye Gentiles, that ye may know the decrees of God—that ye may repent, and not continue in your iniquities until the fulness come, that ye may not bring down the fulness of the wrath of God upon you as the inhabitants of the land have hitherto done.” ([[Ether 2.10|Ether 2:10–11]][[Ether 2.11|]].)
 
 An ancient prophet named Mormon, who lived here in America fifteen hundred years ago, said: “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing.
 
-“And I know that ye do walk in the pride of your hearts; and there are none save a few only who do not lift themselves up in the pride of their hearts, unto the wearing of very fine apparel, unto envying, and strifes, and malice, and persecutions, and all manner of iniquities. …” ([[Mormon 8.35|Morm. 8:35–36]][[Mormon 8.36|]].)
+“And I know that ye do walk in the pride of your hearts; and there are none save a few only who do not lift themselves up in the pride of their hearts, unto the wearing of very fine apparel, unto envying, and strifes, and malice, and persecutions, and all manner of iniquities. …” ([[Mormon 8.35|Morm. 8:35–36]][[Mormon 8.36|]].)
 
 There are many people on this Western Hemisphere who have in their veins the blood of some of the tribes of Israel. To them this prophet said: “Know ye that ye are of the house of Israel.
 
 “Know ye that ye must come unto repentance, or ye cannot be saved.
 
-“Know ye that ye must come to the knowledge of your fathers, and repent of all your sins and iniquities, and believe in Jesus Christ, that he is the Son of God. …” ([[Mormon 7.2|Morm. 7:2–3, 5]][[Mormon 7.3|]][[Mormon 7.5|]].)
+“Know ye that ye must come to the knowledge of your fathers, and repent of all your sins and iniquities, and believe in Jesus Christ, that he is the Son of God. …” ([[Mormon 7.2|Morm. 7:2–3, 5]][[Mormon 7.3|]][[Mormon 7.5|]].)
 
-And then we have this, also pertaining to us who live today, and coming from another ancient American prophet who speaks out of the dust to us today: “… these things doth the Spirit manifest unto me; therefore I write unto you all. And for this cause I write unto you, that ye may know that ye must all stand before the judgment-seat of Christ, yea, every soul who belongs to the whole human family of Adam; and ye must stand to be judged of your works, whether they be good or evil;
+And then we have this, also pertaining to us who live today, and coming from another ancient American prophet who speaks out of the dust to us today: “… these things doth the Spirit manifest unto me; therefore I write unto you all. And for this cause I write unto you, that ye may know that ye must all stand before the judgment-seat of Christ, yea, every soul who belongs to the whole human family of Adam; and ye must stand to be judged of your works, whether they be good or evil;
 
-“And also that ye may believe the gospel of Jesus Christ, which ye shall have among you. …” ([[Mormon 3.20|Morm. 3:20–21]][[Mormon 3.21|]].)
+“And also that ye may believe the gospel of Jesus Christ, which ye shall have among you. …” ([[Mormon 3.20|Morm. 3:20–21]][[Mormon 3.21|]].)
 
 And finally, one of the greatest of all the prophets who lived in ancient America spoke this to you and to me who live today:
 
@@ -122,7 +122,7 @@ And finally, one of the greatest of all the prophets who lived in ancient Americ
 
 “And again I would exhort you that ye would come unto Christ, and lay hold upon every good gift, and touch not the evil gift, nor the unclean thing.” ([[Moroni 10.27|Moro. 10:27, 29–30]][[Moroni 10.29|]][[Moroni 10.30|]].)
 
-If the modern nations of the Americas will repent and serve the Lord, great blessings will be theirs, for the prophet has said: “… this is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ. …” ([[Ether 2.12|Ether 2:12]].)
+If the modern nations of the Americas will repent and serve the Lord, great blessings will be theirs, for the prophet has said: “… this is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ. …” ([[Ether 2.12|Ether 2:12]].)
 
 How long will the Almighty be patient as we ignore or defy him?
 
@@ -133,8 +133,6 @@ We testify to you that God does live, that he is the eternal judge of all mankin
 Jesus Christ does live. He is the God of this land. It is his gospel, and only his gospel, which can save us from destruction.
 
 God grant that we may awaken to our plight and change our course while there is yet time, is my humble prayer, in the name of Jesus Christ. Amen.
-
-
 
 
 

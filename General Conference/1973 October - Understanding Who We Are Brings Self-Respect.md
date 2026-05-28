@@ -1,6 +1,6 @@
 # Understanding Who We Are Brings Self-Respect
 
-By President Harold B. Lee - *President of the Church*
+By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -18,7 +18,7 @@ To some it may seem old-fashioned to speak of virtue and chastity, honesty, mora
 
 To those who fail to heed the warnings of those who are striving to teach these principles and choose to go in the opposite course, they will eventually find themselves in the pitiable state which you are witnessing so often among us. The prophet Isaiah described the tragic result most dramatically when he repeated the words of God which came to him as he sought to fortify his people against the wickedness of the world, and I quote his words:
 
-“… Peace, peace to him that is far off, and to him that is near, saith the Lord; and I will heal him. But the wicked are like the troubled sea, when it cannot rest, whose waters cast up mire and dirt. There is no peace, saith my God, to the wicked.” ([[Isaiah 57.19|Isa. 57:19–21]][[Isaiah 57.20|]][[Isaiah 57.21|]].)
+“… Peace, peace to him that is far off, and to him that is near, saith the Lord; and I will heal him. But the wicked are like the troubled sea, when it cannot rest, whose waters cast up mire and dirt. There is no peace, saith my God, to the wicked.” ([[Isaiah 57.19|Isa. 57:19–21]][[Isaiah 57.20|]][[Isaiah 57.21|]].)
 
 Other prophets have declared likewise, so forcibly as to not be misunderstood, that “wickedness never was happiness.” ([[Alma 41.10|Alma 41:10]].)
 
@@ -64,7 +64,7 @@ The apostle Paul wrote: “Furthermore we have had fathers of our flesh which co
 
 This suggests that all who live upon the earth, who have fathers on earth, likewise have a father of their spirits. So did Moses and Aaron, as they fell upon their faces, cry out: “O God, the God of the spirits of all flesh, shall one man sin, and wilt thou be wroth with all the congregation?” ([[Numbers 16.22|Num. 16:22]].)
 
-Note how they addressed the Lord, “… the God \[Father\] of the spirits of all flesh \[mankind\]. …”
+Note how they addressed the Lord, “… the God \[Father\] of the spirits of all flesh \[mankind\]. …”
 
 From the revelations through Abraham, we get a glimpse of who and what the spirit is:
 
@@ -76,7 +76,7 @@ There we are told that the Lord promised that those who were faithful in that pr
 
 Now, there are several precious truths in that scripture. First, we have a definition of what a spirit is, as it relates to our physical body. What did it look like in that premortal world (if we could see it apart from our mortal body)? A modern Latter-day prophet gives us an inspired answer:
 
-“… that which is spiritual being in the likeness of that which is temporal; and that which is temporal in the likeness of that which is spiritual; the spirit of man in the likeness of his person, as also the spirit of the beast, and every other creature which God has created.” ([[D&C 77.2|D&C 77:2]].)
+“… that which is spiritual being in the likeness of that which is temporal; and that which is temporal in the likeness of that which is spiritual; the spirit of man in the likeness of his person, as also the spirit of the beast, and every other creature which God has created.” ([[D&C 77.2|D&C 77:2]].)
 
 The next truth we learn from this scripture is that you and I, having been spirits and now having bodies, were among those who passed that first test and were given the privilege of coming to earth as mortal individuals. If we hadn’t passed that test, we wouldn’t be here with mortal bodies, but would have been denied this privilege and would have followed Satan or Lucifer, as he came to be known, as did one-third of the spirits created in that premortal existence who were deprived of the privilege of having mortal bodies. These are now among us, but only in their spiritual form, to make a further attempt to thwart the plan of salvation by which all who would obey would have the great glory of returning to God our Father who gave us life.
 
@@ -86,11 +86,11 @@ Obviously we could not return to a place where we had never been, so we are talk
 
 A further truth is clearly set forth in that scripture \[[[Abraham 3.22|Abr. 3:22–23]][[Abraham 3.23|]]\], that many were chosen, as was Abraham, before they were born, as the Lord told Moses and also Jeremiah. This was made still more meaningful by the Latter-day prophet, Joseph Smith, who declared, “I believe that every person who is called to do an important work in the kingdom of God, was called to that work and foreordained to that work before the world was.” Then he added this, “I believe that I was foreordained to the work that I am called to do.” (See *Documentary History of the Church,* vol. 6, p. 364.)
 
-But now there is a warning: Despite that calling which is spoken of in the scriptures as “foreordination,” we have another inspired declaration: “Behold, there are many called, but few are chosen. …” ([[D&C 121.34|D&C 121:34]].)
+But now there is a warning: Despite that calling which is spoken of in the scriptures as “foreordination,” we have another inspired declaration: “Behold, there are many called, but few are chosen. …” ([[D&C 121.34|D&C 121:34]].)
 
-This suggests that even though we have our free agency here, there are many who were foreordained before the world was, to a greater state than they have prepared themselves for here. Even though they might have been among the noble and great, from among whom the Father declared he would make his chosen leaders, they may fail of that calling here in mortality. Then the Lord poses this question: “… and why are they not chosen?” ([[D&C 121.34|D&C 121:34]].)
+This suggests that even though we have our free agency here, there are many who were foreordained before the world was, to a greater state than they have prepared themselves for here. Even though they might have been among the noble and great, from among whom the Father declared he would make his chosen leaders, they may fail of that calling here in mortality. Then the Lord poses this question: “… and why are they not chosen?” ([[D&C 121.34|D&C 121:34]].)
 
-Two answers were given—First, “Because their hearts are set so much upon the things of this world. …” And second, they “… aspire to the honors of men.” ([[D&C 121.35|D&C 121:35]].)
+Two answers were given—First, “Because their hearts are set so much upon the things of this world. …” And second, they “… aspire to the honors of men.” ([[D&C 121.35|D&C 121:35]].)
 
 Now then, to make a summary of what I have just read, may I ask each of you again the question, “Who are you?” You are all the sons and daughters of God. Your spirits were created and lived as organized intelligences before the world was. You have been blessed to have a physical body because of your obedience to certain commandments in that premortal state. You are now born into a family to which you have come, into the nations through which you have come, as a reward for the kind of lives you lived before you came here and at a time in the world’s history, as the apostle Paul taught the men of Athens and as the Lord revealed to Moses, determined by the faithfulness of each of those who lived before this world was created.
 
@@ -116,11 +116,11 @@ All these rewards were seemingly promised, or foreordained, before the world was
 
 Now there is another important understanding that we have from the scriptures. We are all free agents, which means to some people who manifest a spirit of rebellion that they are free to do anything they please, but that is not the correct meaning of free agency as the prophets have declared in the scriptures where free agency has been defined. I quote:
 
-“Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great mediation of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself.” ([[2 Nephi 2.27|2 Ne. 2:27]].)
+“Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great mediation of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself.” ([[2 Nephi 2.27|2 Ne. 2:27]].)
 
-The apostle Paul impressed the sacredness of our individual bodies in this statement: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
+The apostle Paul impressed the sacredness of our individual bodies in this statement: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
 
-And, again, he said further to those who had been baptized members of the church that they had received the gift of a special endowment known as the Holy Ghost. This was his teaching: “What? know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own? … therefore glorify God in your body, and in your spirit, which are God’s.” ([[1 Corinthians 6.19|1 Cor. 6:19–20]][[1 Corinthians 6.20|]].)
+And, again, he said further to those who had been baptized members of the church that they had received the gift of a special endowment known as the Holy Ghost. This was his teaching: “What? know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own? … therefore glorify God in your body, and in your spirit, which are God’s.” ([[1 Corinthians 6.19|1 Cor. 6:19–20]][[1 Corinthians 6.20|]].)
 
 If we can get a person to think what those words mean, then we can begin to understand the significance of the words of the renowned psychologist, MacDougall, from whom I have previously quoted, “The first thing to be done to help a man to moral regeneration is to restore, if possible, his self-respect.” How better may that self-respect be restored than to help him to fully understand the answer to that question, “Who am I?”
 
@@ -136,7 +136,7 @@ Such could be the awful state of those described by the Master in a parable with
 
 The Lord’s eternal purpose with respect to his plan of salvation was declared to Moses: “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
-The first goal in that eternal plan was for each of us to come to earth and gain a physical body, and then, after death and the resurrection which would follow, the spirit and the resurrected body would not thereafter be subject to death. All of this was a free gift to every living soul as Paul declared: “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
+The first goal in that eternal plan was for each of us to come to earth and gain a physical body, and then, after death and the resurrection which would follow, the spirit and the resurrected body would not thereafter be subject to death. All of this was a free gift to every living soul as Paul declared: “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
 
 What this means to one dying with a malignant malady or to a mother bereft of a child may be illustrated by the expressions of a young mother whom I visited in the hospital some years ago. She said to me, “I have thought all this through. It doesn’t make any difference whether I go now or whether I live to 70, 80, or 90. The sooner I can get to a place where I can be active and doing things that will bring me eternal joy the better for all concerned.” She was comforted by the thought that she had lived such a life as to be worthy to enter into the presence of God, which is to enjoy eternal life.
 
@@ -185,6 +185,4 @@ In the name of our Lord and Master, Jesus, the Christ, the Savior of the world, 
 
 
 
-
-
-#Agency #Morality #Self-Esteem #Spirituality #Standards #Truth
+#Agency #Morality #Self-esteem #Standards #Spirituality #Truth

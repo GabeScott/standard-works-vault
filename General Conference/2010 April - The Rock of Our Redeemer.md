@@ -26,9 +26,9 @@ Though the faithful Haitian Saints have suffered greatly, they are filled with h
 
 The prophet Mormon, himself no stranger to difficult circumstances, understood and clearly taught this doctrine:
 
-“And again, my beloved brethren, I would speak unto you concerning hope. …
+“And again, my beloved brethren, I would speak unto you concerning hope. …
 
-“… Behold I say unto you that ye shall have hope through the atonement of Christ … , and this because of your faith in him according to the promise.
+“… Behold I say unto you that ye shall have hope through the atonement of Christ … , and this because of your faith in him according to the promise.
 
 “Wherefore, if a man have faith he must needs have hope; for without faith there cannot be any hope.”[^2]
 
@@ -63,13 +63,14 @@ I testify of Him, that He has overcome the world, that He will never forget or a
 
 [^4]: See [[James 2.19|James 2:19]].
 
-[^5]: Bible Dictionary, [“Faith.”](https://churchofjesuschrist.org/study/scriptures/bd/faith?lang=eng)
+[^5]: Bible Dictionary, “[[BD Faith|Faith]].”
 
 [^6]: “Come, Come, Ye Saints,” *Hymns,* no. 30.
 
 [^7]: [[Helaman 5.12|Helaman 5:12]].
 
-[^8]: See [[1 Nephi 21.16|1 Nephi 21:16]].
+[^8]: See [[1 Nephi 21.16|1 Nephi 21:16]].
 
+[^9]: See [[Philippians 4.7|Philippians 4:7]].
 
-#Adversity #Faith #Hope #Jesus_Christ
+#Adversity #Faith #Hope #JesusChrist

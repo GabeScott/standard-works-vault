@@ -1,6 +1,6 @@
 # Transfusion
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -78,8 +78,6 @@ And transfusion number nine, “Revelation,” comes from the great first prophe
 And finally, number ten, “Success,” comes to us from the greatest man who ever lived, who gave us in just two words our most magnificent success formula when he said, “Follow me.” (See [[Matthew 4.19|Matt. 4:19]].) And may God help us that we may follow him. We can follow him in his faith, we can follow him in his doctrines, we can follow him in his godliness. And we may eventually become even as he is.
 
 And may God help us so to do and so to become, I sincerely pray in the name of Jesus Christ. Amen.
-
-
 
 
 

@@ -28,11 +28,11 @@ In 1875 the first seven missionaries were called to Mexico, and the work there f
 
 The faith of the Saints was tested in every footstep as Brigham Young led them to build temples and establish more than 350 colonies in the West. By the time Brigham Young died in 1877, worldwide Church membership had grown to more than 115,000. Despite all of the persecution, the truth of God was indeed going forth boldly and nobly.
 
-Time does not allow a detailed review of the growth of the Church during the next few decades. But it should be noted that during the 40-year period from 1890 to 1930, while the Church and its doctrine were still under public attack, Elder Reed Smoot was elected to the United States Congress and had to fight to be seated. A great deal was said of the Church and its teachings during that time—much of it hurtful and directed toward President Joseph F. Smith and other Church leaders. However, some newspaper articles began to speak of members of the Church as contributing citizens and good people.
+Time does not allow a detailed review of the growth of the Church during the next few decades. But it should be noted that during the 40-year period from 1890 to 1930, while the Church and its doctrine were still under public attack, Elder Reed Smoot was elected to the United States Congress and had to fight to be seated. A great deal was said of the Church and its teachings during that time—much of it hurtful and directed toward President Joseph F. Smith and other Church leaders. However, some newspaper articles began to speak of members of the Church as contributing citizens and good people.
 
-On September 3, 1925, President Heber J. Grant announced that the Church would begin missionary work in South America. Following the Lord’s pattern for taking the restored gospel to all nations, a member of the Quorum of the Twelve Apostles—my paternal grandfather, Elder Melvin J. Ballard—was sent, with others, to South America to dedicate the land for the preaching of the gospel.
+On September 3, 1925, President Heber J. Grant announced that the Church would begin missionary work in South America. Following the Lord’s pattern for taking the restored gospel to all nations, a member of the Quorum of the Twelve Apostles—my paternal grandfather, Elder Melvin J. Ballard—was sent, with others, to South America to dedicate the land for the preaching of the gospel.
 
-On Christmas morning of 1925 in Argentina, Elder Ballard dedicated the South American countries and started missionary work. Before leaving the following July, he prophesied: “The work of the Lord will grow slowly for a time here just as an oak grows slowly from an acorn. It will not shoot up in a day as does the sunflower that grows quickly and then dies. But thousands will join the Church here. It will be divided into more than one mission and will be one of the strongest in the Church. The work here is the smallest that it will ever be” (in Melvin R. Ballard, *Melvin J. Ballard: Crusader for Righteousness* \[1966\], 84).
+On Christmas morning of 1925 in Argentina, Elder Ballard dedicated the South American countries and started missionary work. Before leaving the following July, he prophesied: “The work of the Lord will grow slowly for a time here just as an oak grows slowly from an acorn. It will not shoot up in a day as does the sunflower that grows quickly and then dies. But thousands will join the Church here. It will be divided into more than one mission and will be one of the strongest in the Church. The work here is the smallest that it will ever be” (in Melvin R. Ballard, *Melvin J. Ballard: Crusader for Righteousness* \[1966\], 84).
 
 Anyone familiar with the growth of the Church in South America knows the fulfillment of that prophecy. Today, Brazil alone has over one million members.
 
@@ -40,7 +40,7 @@ During the four decades from 1930 to 1970, more than 106,000 missionaries were c
 
 None of this was easy. Challenges, obstacles, and persecution accompanied every attempt to take “the truth of God” into every continent and country so that it could “\[sound\] in every ear.” Still, we moved forward in faith; challenges were met, and obstacles were overcome.
 
-President Spencer W. Kimball asked members of the Church to lengthen their stride in spreading the gospel and sharing gospel truth. He asked every stake in the world to increase the number of missionaries, and he led the Church into using media to help convey our message to hundreds of millions of people throughout the earth.
+President Spencer W. Kimball asked members of the Church to lengthen their stride in spreading the gospel and sharing gospel truth. He asked every stake in the world to increase the number of missionaries, and he led the Church into using media to help convey our message to hundreds of millions of people throughout the earth.
 
 During his 12 years as President of the Church, nearly 200,000 missionaries served full-time missions. Worldwide Church membership almost doubled, and the number of stakes nearly tripled. Missionary work was opened or reopened in many countries, and the miracle of conversion was happening in many lands despite every adversarial attempt to thwart the Lord’s work or discourage the Lord’s workers.
 
@@ -56,7 +56,7 @@ Now, my brothers and sisters, my purpose in this brief review of Joseph’s prop
 
 “Remember … that it is not the work of God that is frustrated, but the work of men” ([[D&C 3.1|D&C 3:1–3]][[D&C 3.2|]][[D&C 3.3|]]).
 
-God has spoken through His prophet and announced to the world that “the Standard of Truth has been erected” and that “no unhallowed hand can stop the work from progressing.” That is undeniably and indisputably true. We have seen it for ourselves, in decade after decade, from the time of the Prophet Joseph Smith to the time of President Thomas S. Monson. Persecutions have raged. Calumny and lies and misrepresentation have attempted to defame. But in every decade from the time of the Restoration forward, the truth of God has gone “forth boldly, nobly, and independent.” The little Church that started in 1830 with just a handful of members has now grown to more than 13 million Latter-day Saints in many different nations around the world, and we are well on our way to penetrating every continent, visiting every clime, sweeping every country, and sounding in every ear.
+God has spoken through His prophet and announced to the world that “the Standard of Truth has been erected” and that “no unhallowed hand can stop the work from progressing.” That is undeniably and indisputably true. We have seen it for ourselves, in decade after decade, from the time of the Prophet Joseph Smith to the time of President Thomas S. Monson. Persecutions have raged. Calumny and lies and misrepresentation have attempted to defame. But in every decade from the time of the Restoration forward, the truth of God has gone “forth boldly, nobly, and independent.” The little Church that started in 1830 with just a handful of members has now grown to more than 13 million Latter-day Saints in many different nations around the world, and we are well on our way to penetrating every continent, visiting every clime, sweeping every country, and sounding in every ear.
 
 This is God’s work, and God’s work will not be frustrated. But there is still much to be done before the Great Jehovah can announce that the work is done. While we praise and honor those faithful Saints who have brought us to this point of public prominence, we cannot afford, my brothers and sisters, to be comfortable or content.
 
@@ -71,6 +71,4 @@ This is a great time to live, brothers and sisters, and it is up to us to carry 
 
 
 
-
-
-#Church_Growth #Church_History #Missionary_Work
+#ChurchHistory #ChurchGrowth #MissionaryWork

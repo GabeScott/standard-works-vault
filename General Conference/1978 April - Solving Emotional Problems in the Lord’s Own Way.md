@@ -1,6 +1,6 @@
 # Solving Emotional Problems in the Lord’s Own Way
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -256,11 +256,11 @@ Now, from the Book of Mormon, this closing thought: The prophet Alma faced a wei
 
 Mosiah wisely turned the problem back to him, saying:
 
-“… Behold, I judge them not; therefore I deliver them into thy hands to be judged.
+“… Behold, I judge them not; therefore I deliver them into thy hands to be judged.
 
 “And now the spirit of Alma was again troubled; and he went and inquired of the Lord what he should do concerning this matter, for he feared that he should do wrong in the sight of God.
 
-“And it came to pass that after he had poured out his whole soul to God, the voice of the Lord came to him. …” ([[Mosiah 26.12|Mosiah 26:12–14]][[Mosiah 26.13|]][[Mosiah 26.14|]].)
+“And it came to pass that after he had poured out his whole soul to God, the voice of the Lord came to him. …” ([[Mosiah 26.12|Mosiah 26:12–14]][[Mosiah 26.13|]][[Mosiah 26.14|]].)
 
 That voice will speak to you, bishop. That is your privilege. I bear witness of that, for I know that He lives.
 
@@ -271,6 +271,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Health #Self-Reliance #Social_Services
+#Health #Self-reliance #SocialServices

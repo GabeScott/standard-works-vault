@@ -5,6 +5,6 @@
 [Judges 8:26](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/8.26?lang=eng#p26)
 
 
-[^a]: [[Exodus 32.2|Ex. 32:2]].
-[^b]: Hebrew for “shekels” implied but not expressed here.
-[^c]: HEB crescents and pendants.
+[^a]: [[Exodus 32.2|Ex. 32:2]].  
+[^b]: Hebrew for “shekels” implied but not expressed here.  
+[^c]: HEB crescents and pendants.  

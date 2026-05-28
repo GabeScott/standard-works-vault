@@ -1,6 +1,6 @@
 # God Loves All His Children
 
-By Elder Gregorio E. Casillas - *Of the Seventy*
+By Elder Gregorio E. Casillas - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Gregorio E. Casillas - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/10/17casillas?lang=eng)
 
-What does our Heavenly Father desire from you? Do you understand that when you were in your premortal existence, Heavenly Father was preparing you for your life on earth? Speaking to youth, President Russell M. Nelson taught, “Our Heavenly Father has reserved many of His most noble spirits—perhaps … His finest team﻿—for this final phase.”[^1] Because we have been reserved for these latter days, it is crucial for us to learn to be disciples of Jesus Christ.
+What does our Heavenly Father desire from you? Do you understand that when you were in your premortal existence, Heavenly Father was preparing you for your life on earth? Speaking to youth, President Russell M. Nelson taught, “Our Heavenly Father has reserved many of His most noble spirits—perhaps … His finest team﻿—for this final phase.”[^1] Because we have been reserved for these latter days, it is crucial for us to learn to be disciples of Jesus Christ.
 
 The Lord Jesus Christ is the Good Shepherd, and He knows His flock, and the flock knows its Shepherd because “he calleth his own sheep by name.”[^2] He is always calling upon us, and He uses us, His ordinary servants, to help bring His children to Him.
 
@@ -36,23 +36,21 @@ Please remember that the Lord Jesus Christ is your Savior and understands you pe
 
 My dear brothers and sisters, on that day when a priesthood leader felt impressed for us to visit a mother and a son that we did not have on our agenda, I proclaim that God knew they needed us. And at the end, I was the one who was ministered to. On that day, I received one of the greatest lessons of the Savior’s love for us.
 
-I testify that Jesus Christ is the Savior of the world, that He lives, that He lived and died for you and me, and that He was resurrected for you and me so that we can aspire to celestial reunions full of joy with those who are already on the other side of the veil. I know that He understands you and me perfectly. He understands each of our difficult moments, and He has the power to help us in those moments when we feel most vulnerable. I know that the Lord Jesus Christ and our Heavenly Father appeared to Joseph Smith to restore the gospel in these days. I know that our dear prophet, President Russell M. Nelson, is a prophet of the Lord, and I testify of these things in the name of Jesus Christ, amen.
+I testify that Jesus Christ is the Savior of the world, that He lives, that He lived and died for you and me, and that He was resurrected for you and me so that we can aspire to celestial reunions full of joy with those who are already on the other side of the veil. I know that He understands you and me perfectly. He understands each of our difficult moments, and He has the power to help us in those moments when we feel most vulnerable. I know that the Lord Jesus Christ and our Heavenly Father appeared to Joseph Smith to restore the gospel in these days. I know that our dear prophet, President Russell M. Nelson, is a prophet of the Lord, and I testify of these things in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p66#p66)” (worldwide youth devotional, June 3, 2018), Gospel Library.
+[^1]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p66#p66)” (worldwide youth devotional, June 3, 2018), Gospel Library.
 
 [^2]: See [[John 10.2|John 10:2–4]][[John 10.3|]][[John 10.4|]].
 
-[^3]: “Avoid comparing yourself to other missionaries and measuring the outward results of your efforts with theirs” ([Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/03-chapter-1?lang=eng&id=p106#p106) \[2023\], 13).
+[^3]: “Avoid comparing yourself to other missionaries and measuring the outward results of your efforts with theirs” ([Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/03-chapter-1?lang=eng&id=p106#p106) \[2023\], 13).
 
-[^4]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95.
+[^4]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95.
 
 [^5]: [[Moroni 6.8|Moroni 6:8]].
 
 [^6]: See [[Alma 56.47|Alma 56:47]]; [[Alma 57.26|57:26]].
-
-
 
 #Discipleship #Love #Ministering

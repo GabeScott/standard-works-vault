@@ -1,4 +1,3 @@
 # Character
 
-
-*See* [[Honesty.md|Honesty]]; [[Honor.md|Honor]]; [[Integrity.md|Integrity]]
+*See also* [[Honesty.md|Honesty]]; [[Honor.md|Honor]]; [[Integrity.md|Integrity]]

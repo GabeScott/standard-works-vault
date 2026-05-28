@@ -1,22 +1,22 @@
 # The Fullness of the Gospel in Each Man’s Language
 
-By Elder J. Thomas Fyans - *Director of Internal Communications*
+By Elder J. Thomas Fyans - *Director of Internal Communications*
 
 *Given in the April session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/04/the-fullness-of-the-gospel-in-each-mans-language?lang=eng)
 
-In the 64th section of the Doctrine and Covenants, verse 34, we are told, “Behold, the Lord requireth the heart and a willing mind. …” There are many such people, both on a church-service basis and some giving their full time, who are responding to the challenge of getting the materials to you on time.
+In the 64th section of the Doctrine and Covenants, verse 34, we are told, “Behold, the Lord requireth the heart and a willing mind. …” There are many such people, both on a church-service basis and some giving their full time, who are responding to the challenge of getting the materials to you on time.
 
-Under the direction of the First Presidency and the Council of the Twelve, a Department of Internal Communications has been organized. Three members of the Council of the Twelve are advisers to this organization. They are Elder Gordon B. Hinckley, Elder Thomas S. Monson, and Elder Boyd K. Packer. We are grateful to them for their continuous inspiration.
+Under the direction of the First Presidency and the Council of the Twelve, a Department of Internal Communications has been organized. Three members of the Council of the Twelve are advisers to this organization. They are Elder Gordon B. Hinckley, Elder Thomas S. Monson, and Elder Boyd K. Packer. We are grateful to them for their continuous inspiration.
 
 The Department of Internal Communications has assignments in four major areas: instructional materials, magazines, administrative services, and distribution and translation.
 
-The director of instructional materials, Daniel H. Ludlow, and all who work at his side have the responsibility to coordinate curriculum planning, to supervise the writing of curriculum materials, and to direct the correlation of these materials. Meetings are held with representatives of all of the priesthood committees and the executives of the auxiliary organizations that influence the lives of the members of the Church. These are top-level planning meetings, and there are beyond these meetings innumerable hours, days, weeks, months spent in the actual creation and correlation of these materials that are produced under the direction of these committees and organizations.
+The director of instructional materials, Daniel H. Ludlow, and all who work at his side have the responsibility to coordinate curriculum planning, to supervise the writing of curriculum materials, and to direct the correlation of these materials. Meetings are held with representatives of all of the priesthood committees and the executives of the auxiliary organizations that influence the lives of the members of the Church. These are top-level planning meetings, and there are beyond these meetings innumerable hours, days, weeks, months spent in the actual creation and correlation of these materials that are produced under the direction of these committees and organizations.
 
-The director of magazines, Doyle L. Green, and those who assist him have the responsibility to supervise the publication of the *Ensign,* the *New Era,* the *Friend,* and the non-English magazines.
+The director of magazines, Doyle L. Green, and those who assist him have the responsibility to supervise the publication of the *Ensign,* the *New Era,* the *Friend,* and the non-English magazines.
 
-Let us look within the covers of the April *Ensign* and accompany President Harold B. Lee as he “walked today where Jesus walked.” He begins by saying, “For three glorious days we walked on sacred ground and felt the influence of the greatest person who ever lived upon this earth, Jesus the Christ, the very Son of the living God.”
+Let us look within the covers of the April *Ensign* and accompany President Harold B. Lee as he “walked today where Jesus walked.” He begins by saying, “For three glorious days we walked on sacred ground and felt the influence of the greatest person who ever lived upon this earth, Jesus the Christ, the very Son of the living God.”
 
 May we visit with President Lee the Church of the Nativity in Bethlehem and hear him tell us, “There seemed to be in this place a kind of spiritual assurance that this was indeed a hallowed spot.”
 
@@ -26,11 +26,11 @@ This we find within the covers of the April issue of the *Ensign.* What a tool f
 
 The magazines will become more and more vital because they will be interwoven into the curriculum of the Church. There will be a discernible move of the magazines into a role of aiding the family in family home evenings.
 
-The director of administrative services, James M. Paramore, and his associates supervise the budgeting within our organization. Their responsibility is to assure that we utilize these sacred funds with the deference they are due. They are charged with production coordination as well and will keep us informed of any item that is falling behind the predetermined schedule so that corrective action can be taken immediately.
+The director of administrative services, James M. Paramore, and his associates supervise the budgeting within our organization. Their responsibility is to assure that we utilize these sacred funds with the deference they are due. They are charged with production coordination as well and will keep us informed of any item that is falling behind the predetermined schedule so that corrective action can be taken immediately.
 
 The first publication of this dispensation was the Book of Mormon, the result of a translation of ancient records given to Joseph Smith by Moroni, who had hid them for the coming forth in our day. The first distribution—namely, the Book of Mormon—was when the Prophet Joseph Smith’s brother Samuel went forth to declare that the Lord had spoken again and that the book he had was the evidence of the fulfillment of prophecy. This was prior to the organization of the Church just 142 years ago this past Thursday.
 
-The translation and distribution in our day are directed by John E. Carr. He and his able assistants have charge of warehousing and distributing all of the English materials as well as having the responsibility of translating, printing, warehousing, and distributing the non-English materials of the Church throughout the world. To accomplish this task of bringing these hundreds of items to those who require them, members of the Church are working in twenty-eight languages that reach sixty countries.
+The translation and distribution in our day are directed by John E. Carr. He and his able assistants have charge of warehousing and distributing all of the English materials as well as having the responsibility of translating, printing, warehousing, and distributing the non-English materials of the Church throughout the world. To accomplish this task of bringing these hundreds of items to those who require them, members of the Church are working in twenty-eight languages that reach sixty countries.
 
 By tonight catalogs of the 1972–73 materials together with pre-printed order forms have been mailed to you who are in the United States and Canada. A similar procedure is being followed by the distribution centers in all parts of the world.
 
@@ -48,7 +48,7 @@ Let me indicate to you the magnitude of handling just one item. The *Family Home
 
 This is just one item, brethren, of the hundreds of items in the catalog. For weeks we will be shipping many truckloads of material every day.
 
-Within moments of the public announcement of this organization on January 3 of this year, President Harold B. Lee was giving me counsel. His first words penetrated to the very core. You judge their motivational impact. These words were, “Tom, are you prepared to be shot at sunrise?”
+Within moments of the public announcement of this organization on January 3 of this year, President Harold B. Lee was giving me counsel. His first words penetrated to the very core. You judge their motivational impact. These words were, “Tom, are you prepared to be shot at sunrise?”
 
 We have learned that this execution date is at daybreak Friday, September 1, 1972. As we have distributed this message to our organization throughout the world, one small three-letter word has been added. “Are you prepared NOT to be shot at sunrise?” This is our international slogan.
 
@@ -59,8 +59,6 @@ In the [[D&C 90.11|90th section of the Doctrine and Covenants, verse 11]], we re
 The inspiration of the First Presidency in bringing together in one organization the responsibilities of internal communications has made possible the progress reported tonight and an important move toward the fulfillment of this scripture.
 
 I sustain the First Presidency and the Council of the Twelve with all my heart—and bear witness that they are in very deed prophets, seers, and revelators, in the name of Jesus Christ. Amen.
-
-
 
 
 

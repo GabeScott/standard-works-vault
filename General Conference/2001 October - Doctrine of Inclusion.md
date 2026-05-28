@@ -38,15 +38,15 @@ Every time I read this parable I am impressed with its power and its simplicity.
 
 His deliberate use of Jews and Samaritans clearly teaches that we are all neighbors and that we should love, esteem, respect, and serve one another despite our deepest differences—including religious, political, and cultural differences.
 
-That instruction continues today to be part of the teachings of The Church of Jesus Christ of Latter-day Saints. In enumerating the key doctrines of the restored Church, Joseph Smith said that while “we claim the privilege of worshiping Almighty God according to the dictates of our own conscience,” we also “allow all men the same privilege, let them worship how, where, or what they may” ([[Articles of Faith 1.11|A of F 1:11]]).
+That instruction continues today to be part of the teachings of The Church of Jesus Christ of Latter-day Saints. In enumerating the key doctrines of the restored Church, Joseph Smith said that while “we claim the privilege of worshiping Almighty God according to the dictates of our own conscience,” we also “allow all men the same privilege, let them worship how, where, or what they may” ([[Articles of Faith 1.11|A of F 1:11]]).
 
 Thankfully, many of our members understand this doctrine and live it during the course of their daily lives. I recently read a news account of a tragic death in a community here in Utah. A grieving young widow was quoted: “We’ve been overwhelmed by support. We’re not Mormon, but the local ward here has been all over us with meals and help and words of comfort. It’s been a total outpouring of love, and we appreciate it” (quoted in Dick Harmon, “Former Ute’s Death Leaves Wife Coping, Wondering,” *Daily Herald* \[Provo, Utah\], 11 Aug. 2001, A3).
 
 That’s just as it should be. If we are truly disciples of the Lord Jesus Christ, we will reach out with love and understanding to all of our neighbors at all times, particularly in times of need. A recent *Church News* carried a story of two women who are dear friends, a “Jewish physician from New York and \[a\] stay-at-home \[Latter-day Saint\] mom of six from Utah, both a long way from home in Dallas \[Texas\].”
 
-Our member reported: “If our friendship had been put through a computer matching service, I doubt we would have made it past the first hurdle. …
+Our member reported: “If our friendship had been put through a computer matching service, I doubt we would have made it past the first hurdle. …
 
-“… A woman with a busy medical practice, I assumed, would have little desire to discuss the color of the hospitality napkins for PTA.
+“… A woman with a busy medical practice, I assumed, would have little desire to discuss the color of the hospitality napkins for PTA.
 
 “Funny thing about assumptions—they can cut away the very roots of something that could flourish and grow if given a chance. I am forever grateful that assumptions were cast aside” (Shauna Erickson, “Unlikely Friends Sharing a Lifetime,” *Church News,* 18 Aug. 2001, 10).
 
@@ -62,7 +62,7 @@ While it is true we declare to the world that the fulness of the gospel of Jesus
 
 “We must work harder to build mutual respect, an attitude of forbearance, with tolerance one for another regardless of the doctrines and philosophies which we may espouse. Concerning these you and I may disagree. But we can do so with respect and civility” (*Teachings of Gordon B. Hinckley,* 665).
 
-As members of The Church of Jesus Christ of Latter-day Saints, we understand that we are perceived by some to be “a peculiar people” ([[1 Peter 2.9|1 Pet. 2:9]]). Our doctrines and beliefs are important to us. We embrace them and cherish them. I am not suggesting for a moment that we shouldn’t. On the contrary, our peculiarity and the uniqueness of the message of the restored gospel of Jesus Christ are indispensable elements in offering the people of the world a clear choice. Neither am I suggesting that we should associate in any relationship that would place us or our families at spiritual risk. We must understand, however, that not everyone is going to accept our doctrine of the Restoration of the gospel of Jesus Christ. For the most part, our neighbors not of our faith are good, honorable people—every bit as good and honorable as we strive to be. They care about their families, just like we do. They want to make the world a better place, just like we do. They are kind and loving and generous and faithful, just like we seek to be. Nearly 25 years ago, the First Presidency declared: “Our message … is one of special love and concern for the eternal welfare of all men and women, regardless of religious belief, race, or nationality, knowing that we are truly brothers and sisters because we are sons and daughters of the same Eternal Father” (First Presidency statement, 15 Feb. 1978).
+As members of The Church of Jesus Christ of Latter-day Saints, we understand that we are perceived by some to be “a peculiar people” ([[1 Peter 2.9|1 Pet. 2:9]]). Our doctrines and beliefs are important to us. We embrace them and cherish them. I am not suggesting for a moment that we shouldn’t. On the contrary, our peculiarity and the uniqueness of the message of the restored gospel of Jesus Christ are indispensable elements in offering the people of the world a clear choice. Neither am I suggesting that we should associate in any relationship that would place us or our families at spiritual risk. We must understand, however, that not everyone is going to accept our doctrine of the Restoration of the gospel of Jesus Christ. For the most part, our neighbors not of our faith are good, honorable people—every bit as good and honorable as we strive to be. They care about their families, just like we do. They want to make the world a better place, just like we do. They are kind and loving and generous and faithful, just like we seek to be. Nearly 25 years ago, the First Presidency declared: “Our message … is one of special love and concern for the eternal welfare of all men and women, regardless of religious belief, race, or nationality, knowing that we are truly brothers and sisters because we are sons and daughters of the same Eternal Father” (First Presidency statement, 15 Feb. 1978).
 
 That is our doctrine—a doctrine of inclusion. That is what we believe. That is what we have been taught. Of all people on this earth, we should be the most loving, the kindest, and the most tolerant because of that doctrine.
 
@@ -85,6 +85,4 @@ That is what Jesus taught His disciples, including “a certain lawyer,” throu
 
 
 
-
-
-#Adversity #Church_History #Friendship #God_The_Father #Kindness #Love #Neighbors #Nonmembers #Religious_Freedom #Respect #Service #Tolerance #Unity
+#Adversity #ChurchHistory #Friendship #GodTheFather #Kindness #Love #Neighbors #Nonmembers #ReligiousFreedom #Respect #Service #Tolerance #Unity

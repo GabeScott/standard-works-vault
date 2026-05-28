@@ -1,6 +1,6 @@
 # Stand Strong in Holy Places
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -46,9 +46,9 @@ In addition, use your agency to develop yourself personally. As you discover you
 
 Along the way, be sure to participate in family, quorum, class, and combined Mutual activities. Enjoy wholesome fun together. Through these experiences you will come to respect and appreciate one another’s spiritual gifts and the eternal, complementary natures of the sons and daughters of God.
 
-Above all, have faith in the Savior! Fear not! As we diligently live the gospel, we become strong in the Lord. With His strength we are able to reject the anti-Christ who says, “Eat, drink, and be merry,” for God “will justify \[you\] in committing a little sin; … there is no harm in this … , for tomorrow we die.”[^7] In the strength of the Lord we are able to stand against any philosophy or creed that denies the Savior and contradicts the great, eternal plan of happiness for all of God’s children.
+Above all, have faith in the Savior! Fear not! As we diligently live the gospel, we become strong in the Lord. With His strength we are able to reject the anti-Christ who says, “Eat, drink, and be merry,” for God “will justify \[you\] in committing a little sin; … there is no harm in this … , for tomorrow we die.”[^7] In the strength of the Lord we are able to stand against any philosophy or creed that denies the Savior and contradicts the great, eternal plan of happiness for all of God’s children.
 
-We are not authorized to negotiate the conditions of that eternal plan. Remember Nehemiah, who was charged with building a wall to protect Jerusalem. Some wanted him to come down and compromise his position, but Nehemiah refused. He was not intolerant of others; he simply explained, “I am doing a great work, so that I cannot come down: why should the work cease … ?”[^8]
+We are not authorized to negotiate the conditions of that eternal plan. Remember Nehemiah, who was charged with building a wall to protect Jerusalem. Some wanted him to come down and compromise his position, but Nehemiah refused. He was not intolerant of others; he simply explained, “I am doing a great work, so that I cannot come down: why should the work cease … ?”[^8]
 
 Sometimes we become the lightning rod, and we must “take the heat” for holding fast to God’s standards and doing His work. I testify that we need not be afraid if we are grounded in His doctrine. We may experience misunderstanding, criticism, and even false accusation, but we are never alone. Our Savior was “despised and rejected of men.”[^9] It is our sacred privilege to stand with Him!
 
@@ -81,19 +81,19 @@ My beloved priesthood brethren young and old, let us glorify God’s name by sta
 
 
 
-[^1]: [[2 Timothy 3.1|2 Timothy 3:1]].
+[^1]: [[2 Timothy 3.1|2 Timothy 3:1]].
 
 [^2]: [[Ephesians 6.13|Ephesians 6:13–17]][[Ephesians 6.14|]][[Ephesians 6.15|]][[Ephesians 6.16|]][[Ephesians 6.17|]]; emphasis added.
 
 [^3]: [[Moses 5.23|Moses 5:23]].
 
-[^4]: Robert D. Hales, “This Is the Way; and There Is None Other Way,” in *Brigham Young University 1981–82 Speeches* (1982), 3–4; available at [speeches.byu.edu](https://speeches.byu.edu).
+[^4]: Robert D. Hales, “This Is the Way; and There Is None Other Way,” in *Brigham Young University 1981–82 Speeches* (1982), 3–4; available at [speeches.byu.edu](https://speeches.byu.edu).
 
 [^5]: [[D&C 1.39|Doctrine and Covenants 1:39]]; emphasis added.
 
-[^6]: [[2 Timothy 3.5|2 Timothy 3:5]].
+[^6]: [[2 Timothy 3.5|2 Timothy 3:5]].
 
-[^7]: [[2 Nephi 28.8|2 Nephi 28:8]].
+[^7]: [[2 Nephi 28.8|2 Nephi 28:8]].
 
 [^8]: [[Nehemiah 6.3|Nehemiah 6:3]].
 
@@ -103,9 +103,9 @@ My beloved priesthood brethren young and old, let us glorify God’s name by sta
 
 [^11]: See [[Genesis 39.7|Genesis 39:7–12]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]].
 
-[^12]: See [[1 Nephi 2.1|1 Nephi 2]][[1 Nephi 2.2|]][[1 Nephi 2.3|]][[1 Nephi 2.4|]][[1 Nephi 2.5|]][[1 Nephi 2.6|]][[1 Nephi 2.7|]][[1 Nephi 2.8|]][[1 Nephi 2.9|]][[1 Nephi 2.10|]][[1 Nephi 2.11|]][[1 Nephi 2.12|]][[1 Nephi 2.13|]][[1 Nephi 2.14|]][[1 Nephi 2.15|]][[1 Nephi 2.16|]][[1 Nephi 2.17|]][[1 Nephi 2.18|]][[1 Nephi 2.19|]][[1 Nephi 2.20|]][[1 Nephi 2.21|]][[1 Nephi 2.22|]][[1 Nephi 2.23|]][[1 Nephi 2.24|]].
+[^12]: See [[1 Nephi 2.1|1 Nephi 2]][[1 Nephi 2.2|]][[1 Nephi 2.3|]][[1 Nephi 2.4|]][[1 Nephi 2.5|]][[1 Nephi 2.6|]][[1 Nephi 2.7|]][[1 Nephi 2.8|]][[1 Nephi 2.9|]][[1 Nephi 2.10|]][[1 Nephi 2.11|]][[1 Nephi 2.12|]][[1 Nephi 2.13|]][[1 Nephi 2.14|]][[1 Nephi 2.15|]][[1 Nephi 2.16|]][[1 Nephi 2.17|]][[1 Nephi 2.18|]][[1 Nephi 2.19|]][[1 Nephi 2.20|]][[1 Nephi 2.21|]][[1 Nephi 2.22|]][[1 Nephi 2.23|]][[1 Nephi 2.24|]].
 
-[^13]: See, for example, [[1 Nephi 18.1|1 Nephi 18]][[1 Nephi 18.2|]][[1 Nephi 18.3|]][[1 Nephi 18.4|]][[1 Nephi 18.5|]][[1 Nephi 18.6|]][[1 Nephi 18.7|]][[1 Nephi 18.8|]][[1 Nephi 18.9|]][[1 Nephi 18.10|]][[1 Nephi 18.11|]][[1 Nephi 18.12|]][[1 Nephi 18.13|]][[1 Nephi 18.14|]][[1 Nephi 18.15|]][[1 Nephi 18.16|]][[1 Nephi 18.17|]][[1 Nephi 18.18|]][[1 Nephi 18.19|]][[1 Nephi 18.20|]][[1 Nephi 18.21|]][[1 Nephi 18.22|]][[1 Nephi 18.23|]][[1 Nephi 18.24|]][[1 Nephi 18.25|]].
+[^13]: See, for example, [[1 Nephi 18.1|1 Nephi 18]][[1 Nephi 18.2|]][[1 Nephi 18.3|]][[1 Nephi 18.4|]][[1 Nephi 18.5|]][[1 Nephi 18.6|]][[1 Nephi 18.7|]][[1 Nephi 18.8|]][[1 Nephi 18.9|]][[1 Nephi 18.10|]][[1 Nephi 18.11|]][[1 Nephi 18.12|]][[1 Nephi 18.13|]][[1 Nephi 18.14|]][[1 Nephi 18.15|]][[1 Nephi 18.16|]][[1 Nephi 18.17|]][[1 Nephi 18.18|]][[1 Nephi 18.19|]][[1 Nephi 18.20|]][[1 Nephi 18.21|]][[1 Nephi 18.22|]][[1 Nephi 18.23|]][[1 Nephi 18.24|]][[1 Nephi 18.25|]].
 
 [^14]: See [[Mosiah 11.1|Mosiah 11–17]][[Mosiah 11.2|]][[Mosiah 11.3|]][[Mosiah 11.4|]][[Mosiah 11.5|]][[Mosiah 11.6|]][[Mosiah 11.7|]][[Mosiah 11.8|]][[Mosiah 11.9|]][[Mosiah 11.10|]][[Mosiah 11.11|]][[Mosiah 11.12|]][[Mosiah 11.13|]][[Mosiah 11.14|]][[Mosiah 11.15|]][[Mosiah 11.16|]][[Mosiah 11.17|]][[Mosiah 11.18|]][[Mosiah 11.19|]][[Mosiah 11.20|]][[Mosiah 11.21|]][[Mosiah 11.22|]][[Mosiah 11.23|]][[Mosiah 11.24|]][[Mosiah 11.25|]][[Mosiah 11.26|]][[Mosiah 11.27|]][[Mosiah 11.28|]][[Mosiah 11.29|]].
 
@@ -127,14 +127,12 @@ My beloved priesthood brethren young and old, let us glorify God’s name by sta
 
 [^23]: [[John 19.30|John 19:30]].
 
-[^24]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^24]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
-[^25]: [[Alma 13.3|Alma 13:3]]; see also [[2 Timothy 1.9|2 Timothy 1:9]].
+[^25]: [[Alma 13.3|Alma 13:3]]; see also [[2 Timothy 1.9|2 Timothy 1:9]].
 
 [^26]: [[D&C 87.8|Doctrine and Covenants 87:8]].
 
-[^27]: [[1 Corinthians 16.13|1 Corinthians 16:13]].
+[^27]: [[1 Corinthians 16.13|1 Corinthians 16:13]].
 
-
-
-#Jesus_Christ #Obedience #Standards
+#JesusChrist #Obedience #Standards

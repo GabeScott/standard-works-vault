@@ -1,6 +1,6 @@
 # Why Is My Boy Wandering Tonight?
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -8,7 +8,7 @@ By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 As I speak to you this beautiful Sabbath morning, I humbly pray that the Spirit and blessings of the Lord will attend us and be with us always.
 
-I well remember, and some of you may also remember, singing the song “Where Is My Wandering Boy Tonight?” Our beloved president and prophet, Spencer W. Kimball, used to sing this song with such great feeling that many were moved to tears. Let me read the words:
+I well remember, and some of you may also remember, singing the song “Where Is My Wandering Boy Tonight?” Our beloved president and prophet, Spencer W. Kimball, used to sing this song with such great feeling that many were moved to tears. Let me read the words:
 
 >Where is my wandering boy tonight, the boy of my tend’rest care:
 >The boy that was once my joy and light, the child of my love and prayer?
@@ -39,7 +39,7 @@ Some wander because they do not understand and refuse to learn the teachings and
 
 “But there were false prophets also among the people, even as there shall be false teachers among you, who privily shall bring in damnable heresies, even denying the Lord that bought them, and bring upon themselves swift destruction.
 
-“And many shall follow their pernicious ways; by reason of whom the way of truth shall be evil spoken of.” ([[2 Peter 2.1|2 Pet. 2:1–2]][[2 Peter 2.2|]].)
+“And many shall follow their pernicious ways; by reason of whom the way of truth shall be evil spoken of.” ([[2 Peter 2.1|2 Pet. 2:1–2]][[2 Peter 2.2|]].)
 
 Some are wandering into forbidden paths because they are seeking popularity with their peers, even to the extent of doing things they know are wrong. They cannot stand criticism or ridicule and will not take a firm stand against wrongdoing. Then there are always great pressures by some peers and wandering adults, and also by evil and designing men who work full time promoting the cunning ways of Satan.
 
@@ -53,7 +53,7 @@ They wander because of weakness of character. The spirit is willing, but the fle
 
 Then we have the wilderness of hypocrisy which claims many victims. Hypocrites, by professing one thing and doing another, are themselves wandering away from the straight and narrow path, and taking with them many young and innocent souls who, seeing such dishonesty and distrust rampant in the world, are inclined to lose their faith in mankind and wonder where to turn.
 
-We should read often the 23rd chapter of Matthew, which is the Savior’s denouncement of the scribes and Pharisees as hypocrites. We read in [[Matthew 23.13|verse 13]]:
+We should read often the 23rd chapter of Matthew, which is the Savior’s denouncement of the scribes and Pharisees as hypocrites. We read in [[Matthew 23.13|verse 13]]:
 
 “But woe unto you, scribes and Pharisees, hypocrites! for ye shut up the kingdom of heaven against men: for ye neither go in yourselves, neither suffer ye them that are entering to go in.”
 
@@ -132,8 +132,6 @@ Knowing and understanding and keeping the commandments, and learning and living 
 To all wanderers who are seeking to find their way out of the trackless wilderness and into the flowering, sunlit gardens, where the path is straight and the way leads to life eternal, I would plead that you look to the source of all light and knowledge, even God and his Son Jesus Christ; learn of them and keep their commandments which they have given; for I testify that they live, that their word is the truth, and there is no other way to happiness and eternal life than through them.
 
 I also bear my solemn witness that Jesus Christ has reestablished his church with the gospel in its fullness here upon the earth today with a prophet of God as its president. It offers us a sure way out of the wilderness and into the light. We invite all men everywhere to investigate and join with others in his church, which offers eternal life. I humbly pray, in the name of Jesus Christ. Amen.
-
-
 
 
 

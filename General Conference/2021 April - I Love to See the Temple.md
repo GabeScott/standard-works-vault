@@ -1,6 +1,6 @@
 # I Love to See the Temple
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -20,7 +20,7 @@ On the outside of our temples, we place the words “Holiness to the Lord.” I 
 
 Later that first day I again felt the same Spirit. The temple ceremony includes some words that brought a feeling of burning in my heart, confirming that what was being portrayed was true. What I felt was personal to me regarding my future, and it became a reality 40 years later through a call to serve from the Lord.
 
-I experienced the same feeling when I was married in the Logan Utah Temple. President Spencer W. Kimball performed the sealing. In the few words he spoke, he gave this counsel: “Hal and Kathy, live so that when the call comes, you can walk away easily.”
+I experienced the same feeling when I was married in the Logan Utah Temple. President Spencer W. Kimball performed the sealing. In the few words he spoke, he gave this counsel: “Hal and Kathy, live so that when the call comes, you can walk away easily.”
 
 As he said those few words, I saw clearly in my mind, in full color, a steep hill and a road leading up to the top. A white fence ran on the left side of the road and disappeared into a row of trees at the top of the hill. A white house was barely visible through the trees.
 
@@ -28,7 +28,7 @@ One year later, I recognized that hill as my father-in-law drove us up that road
 
 When we got to the top of the hill, my father-in-law stopped by the white house. He told us that he and his wife were buying the property and that he wanted his daughter and me to live in the guesthouse. They would live in the main house, just a few feet away. So, during the 10 years we lived in that lovely family setting, my wife and I would say almost every day, “We had better enjoy this because we aren’t going to be here long.”
 
-A call came from the Church commissioner of education, Neal A. Maxwell. The warning given by President Kimball to be able to “walk away easily” became a reality. It was a call to leave what seemed an idyllic family situation to serve in an assignment in a place that I knew nothing about. Our family was ready to leave that blessed time and place because a prophet, in a holy temple, a place of revelation, saw a future event for which we then were prepared.
+A call came from the Church commissioner of education, Neal A. Maxwell. The warning given by President Kimball to be able to “walk away easily” became a reality. It was a call to leave what seemed an idyllic family situation to serve in an assignment in a place that I knew nothing about. Our family was ready to leave that blessed time and place because a prophet, in a holy temple, a place of revelation, saw a future event for which we then were prepared.
 
 I know that temples of the Lord are holy places. My purpose today in speaking of temples is to increase your desire and mine to be worthy and ready for the increased opportunities for temple experiences that are coming for us.
 
@@ -40,7 +40,7 @@ For me, the greatest motivation to be worthy of temple experiences is what the L
 
 “But if it be defiled I will not come into it, and my glory shall not be there; for I will not come into unholy temples.”[^1]
 
-President Russell M. Nelson made clear for us that we can “see” the Savior in the temple in the sense that He becomes no longer unknown to us. President Nelson said this: “We understand Him. We comprehend His work and His glory. And we begin to feel the infinite impact of His matchless life.”[^2]
+President Russell M. Nelson made clear for us that we can “see” the Savior in the temple in the sense that He becomes no longer unknown to us. President Nelson said this: “We understand Him. We comprehend His work and His glory. And we begin to feel the infinite impact of His matchless life.”[^2]
 
 If you or I should go to the temple insufficiently pure, we would not be able to see, by the power of the Holy Ghost, the spiritual teaching about the Savior that we can receive in the temple.
 
@@ -80,19 +80,17 @@ These words can be ours:
 >This is my sacred duty.[^4]
 >
 
-I bear solemn testimony that we are children of a loving Heavenly Father. He chose His Beloved Son, Jesus Christ, to be our Savior and Redeemer. The only way to return to live with Them and with our family is through the ordinances of the holy temple. I testify that President Russell M. Nelson holds and exercises all the keys of the priesthood that make eternal life possible for all of God’s children. I so testify in the sacred name of Jesus Christ, amen.
+I bear solemn testimony that we are children of a loving Heavenly Father. He chose His Beloved Son, Jesus Christ, to be our Savior and Redeemer. The only way to return to live with Them and with our family is through the ordinances of the holy temple. I testify that President Russell M. Nelson holds and exercises all the keys of the priesthood that make eternal life possible for all of God’s children. I so testify in the sacred name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[D&C 97.15|Doctrine and Covenants 97:15–17]][[D&C 97.16|]][[D&C 97.17|]].
 
-[^2]: *Teachings of Russell M. Nelson* (2018), 369.
+[^2]: *Teachings of Russell M. Nelson* (2018), 369.
 
 [^3]: See [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
 [^4]: “I Love to See the Temple,” *Children’s Songbook*, 95.
 
-
-
-#Family #Ordinances #Temple_Work #Temples #Worthiness
+#Family #Ordinances #Temples #TempleWork #Worthiness

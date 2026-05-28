@@ -1,9 +1,8 @@
 # Plenty
 
-
 *See also* [[Abundance.md|Abundance]]; [[Fulness.md|Fulness]]
 
-God give thee ... *plenty* of corn and wine, [[Genesis 27.28|Genesis 27:28]].
+God give thee … *plenty* of corn and wine, [[Genesis 27.28|Genesis 27:28]].
 
 there come seven years of great *plenty*, [[Genesis 41.29|Genesis 41:29]].
 

@@ -96,7 +96,7 @@ A poet set to verse the sorrow of opportunities forever lost:
 >But to-morrow comes—and to-morrow goes,
 >And the distance between us grows and grows.
 >
->Around the corner!—yet miles away …
+>Around the corner!—yet miles away …
 >“Here’s a telegram, sir,”
 >*“Jim died to-day.”*
 >
@@ -142,7 +142,7 @@ There are indeed other worlds in which to sing. Our Lord and Savior brought to e
 
 If we truly seek our Lord and Savior, we shall surely find Him. He may come to us as one unknown, without a name, as of old by the lakeside He came to those men who knew Him not. He speaks to us the same words, “Follow thou me,”[^20] and sets us to the tasks which He has to fulfill for our time. He commands, and to those who obey Him, whether they be wise or simple, He will reveal Himself in the toils, the conflicts, the sufferings which they shall pass through in His fellowship, and they shall learn in their own experience who He is.
 
-On this Easter Sabbath, we remember loved ones who have gone from our midst. Cherished memories of happy days, followed by lonely nights, long years, and pensive thoughts, turn our hearts to Him who promised: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”[^21] “In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you … ; that where I am, there ye may be also.”[^22]
+On this Easter Sabbath, we remember loved ones who have gone from our midst. Cherished memories of happy days, followed by lonely nights, long years, and pensive thoughts, turn our hearts to Him who promised: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”[^21] “In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you … ; that where I am, there ye may be also.”[^22]
 
 He who taught us to love the Lord our God with all our hearts, and with all our souls, and with all our strength, and with all our minds, and our neighbors as ourselves, is a Teacher of truth—but He is more than a teacher. He is the Exemplar of the perfect life—but He is more than an exemplar. He is the Great Physician—but He is more than a physician. He is the literal Savior of the world, the Son of God, the Prince of Peace, the Holy One of Israel, even the risen Lord, who declared: “Behold, I am Jesus Christ, whom the prophets testified shall come into the world. … I am the light and the life of the world.”[^23] “I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.”[^24]
 
@@ -157,9 +157,9 @@ This Easter morning, as His witness, I testify to you that He lives and that thr
 
 [^3]: [[Luke 18.22|Luke 18:22]].
 
-[^4]: [[3 Nephi 18.16|3 Ne. 18:16]].
+[^4]: [[3 Nephi 18.16|3 Ne. 18:16]].
 
-[^5]: [[3 Nephi 18.24|3 Ne. 18:24]].
+[^5]: [[3 Nephi 18.24|3 Ne. 18:24]].
 
 [^6]: [[Luke 2.52|Luke 2:52]].
 
@@ -195,10 +195,8 @@ This Easter morning, as His witness, I testify to you that He lives and that thr
 
 [^22]: [[John 14.2|John 14:2–3]][[John 14.3|]].
 
-[^23]: [[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].
+[^23]: [[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].
 
 [^24]: [[D&C 110.4|D&C 110:4]].
 
-
-
-#Atonement #Commandments #Compassion #Jesus_Christ #Love #Neighbors #Service
+#Atonement #Commandments #Compassion #JesusChrist #Love #Neighbors #Service

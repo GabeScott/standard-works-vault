@@ -1,4 +1,3 @@
 # Decisions
 
-
-*See* [[Accountability.md|Accountability]]; [[Agency.md|Agency]]
+*See also* [[Accountability.md|Accountability]]; [[Agency.md|Agency]]

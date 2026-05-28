@@ -28,13 +28,11 @@ There is the patient woman whose husband is a good man but has not yet shared he
 
 As the Swiss movers were packing our household belongings preparatory to our return to America, the doorbell rang. A special-delivery mailman had a package for us. When opened, it revealed a green pillow with an embroidered message of love on it, the handiwork of Sister Alice Rusterholz. Our hearts and feelings swelled as we thought of this wonderful older sister. For four years she had graced our Sunday dinner table with her sweet spirit and lively sense of humor. For many years as a single, unmarried sister and the only member of the Church from her family, she struggled to come to church. Early Sunday morning she would leave her humble second-floor apartment. With great effort due to a crippled leg, she would walk down the outside stairway and on to the Küsnacht train station, beginning her journey of one hour and 15 minutes by train, tram, bus, and a final walk to our meetinghouse. What a blessing it had been for us in that beautiful land to pick up Sister Rusterholz every Sunday morning, accompany her to church, and conclude with dinner in our home before returning her to her apartment.
 
-There are many sweet, faithful daughters of our Heavenly Father who bless our lives. May we better understand them and be as sensitive to their needs as was the Savior when He instinctively sensed the touching of the hem of His garment and the faith of a long-diseased woman behind Him. As Jesus said to her, so may our actions affirm to our noble sisters: “Daughter, be of good comfort” ([[Matthew 9.22|Matt. 9:22]]; see also [[Matthew 9.20|vv. 20–22]][[Matthew 9.21|]][[Matthew 9.22|]]).
+There are many sweet, faithful daughters of our Heavenly Father who bless our lives. May we better understand them and be as sensitive to their needs as was the Savior when He instinctively sensed the touching of the hem of His garment and the faith of a long-diseased woman behind Him. As Jesus said to her, so may our actions affirm to our noble sisters: “Daughter, be of good comfort” ([[Matthew 9.22|Matt. 9:22]]; see also [[Matthew 9.20|vv. 20–22]][[Matthew 9.21|]][[Matthew 9.22|]]).
 
 Of Him and His invitation to love one another as He loves us, I do testify in His name, even Jesus Christ, amen.
 
 
 
 
-
-
-#Blessings #Children #Jesus_Christ #Testimony #Women
+#Blessings #Children #JesusChrist #Testimony #Women

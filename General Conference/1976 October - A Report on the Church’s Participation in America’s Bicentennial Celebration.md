@@ -1,6 +1,6 @@
 # A Report on the Church’s Participation in America’s Bicentennial Celebration
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -38,15 +38,13 @@ The scrapbook is too full to mention all of the organizations and events which h
 
 This report could not be concluded without a special tribute to the great Tabernacle Choir. I knew before this summer that no one could stir the heartbeat of this land with patriotic music more than this organization. This summer I was privileged to see a different side of you. I was with you for six days and nights as you toured Philadelphia, Boston, New York, and Washington, D.C. I watched 350 people, 1,400 pieces of luggage go through a tight and rigid schedule of pack, move, unpack, rehearse, and perform over and over again with a spirit I’ve never before witnessed. You were happy even when weary; considerate even under pressure; dedicated, determined, and anxious to always be at your best. This was not for personal gain, but for the contribution you could make in building the Lord’s kingdom—with anthems, hymns, and songs. I have discovered your greatness. We know of your artistic talent, which is abundant; but in your spirit I find no equal. May God’s blessings continue to be with you in bringing heavenly music to a troubled world.
 
-It was during one of your performances that I found the real spirit of the Bicentennial. On the evening of July third, with the Tabernacle Choir centerstage, surrounded by noted personalities from sports, politics, stage, screen, radio, and television, and in the presence of our prophet and the president of our country, seated side by side (which seemed so significant and appropriate on the eve of our 200th birthday celebration), I witnessed a performance I will never forget. Down the right aisle came a patriot soldier to tell us of the faith and courage required of him to give birth to the land of the free. Down the left aisle came a Mormon pioneer woman announcing herself to be Eliza R. Snow. She told of the industry and sacrifice required of her in building a nation.
+It was during one of your performances that I found the real spirit of the Bicentennial. On the evening of July third, with the Tabernacle Choir centerstage, surrounded by noted personalities from sports, politics, stage, screen, radio, and television, and in the presence of our prophet and the president of our country, seated side by side (which seemed so significant and appropriate on the eve of our 200th birthday celebration), I witnessed a performance I will never forget. Down the right aisle came a patriot soldier to tell us of the faith and courage required of him to give birth to the land of the free. Down the left aisle came a Mormon pioneer woman announcing herself to be Eliza R. Snow. She told of the industry and sacrifice required of her in building a nation.
 
 The theme had been forged to guide us through the next hundred years of glorious history. First, to exercise faith in God our Eternal Father and to place our trust in Him as a foundation for all things; second, to have courage to uphold righteousness and be a part of preserving it; third, to be industrious and build for the future; fourth, to learn to sacrifice willingly for a brother or sister in need.
 
 Now for a brief moment the pen is in our hand to mark the pages of history. Let us remember the spirit of this glorious celebration with renewed determination to perpetuate the gift of our great heritage. From the dust of an ancient record we hear again the Lord’s declaration to His children: “And now we can behold the decrees of God concerning this land, that it is a land of promise; and whatsoever nation shall possess it shall serve God, or they shall be swept off when the fulness of his wrath shall come upon them. … \[For this\] is the everlasting decree of God.” ([[Ether 2.9|Ether 2:9–10]][[Ether 2.10|]].)
 
 As we start a new century, may it be a new beginning of governing with righteousness based on the eternal laws of God, I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

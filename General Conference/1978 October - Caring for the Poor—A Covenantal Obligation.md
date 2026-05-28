@@ -1,6 +1,6 @@
 # Caring for the Poor—A Covenantal Obligation
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -10,7 +10,7 @@ Brothers and sisters, I have enjoyed this meeting very much, and I pray the Lord
 
 A covenant, says Webster, is a contract, “a binding and solemn agreement made by two or more individuals … to do or keep from doing a specified thing.”
 
-As I began to consider whether caring for the poor is a covenantal obligation, I remembered a conference address I heard here in this building in 1936, given by Rulon S. Wells. That was forty-two and a half years ago. In that talk, Brother Wells explained that “between individuals we draw up an instrument and we sign it, and have it signed, sealed and delivered in the presence of witnesses, and then go before a notary public or a justice of the peace and make oath in order to make it binding, and in order that it may be still more so, laws are passed imposing penalties for breach of contract. These are in the nature of covenants which men make with their fellowmen.” (In Conference Report, Apr. 1936, p. 41.)
+As I began to consider whether caring for the poor is a covenantal obligation, I remembered a conference address I heard here in this building in 1936, given by Rulon S. Wells. That was forty-two and a half years ago. In that talk, Brother Wells explained that “between individuals we draw up an instrument and we sign it, and have it signed, sealed and delivered in the presence of witnesses, and then go before a notary public or a justice of the peace and make oath in order to make it binding, and in order that it may be still more so, laws are passed imposing penalties for breach of contract. These are in the nature of covenants which men make with their fellowmen.” (In Conference Report, Apr. 1936, p. 41.)
 
 With respect to Church covenants, he said:
 
@@ -50,9 +50,9 @@ In December 1830, the very year in which the Church was organized, he decreed th
 
 And just a few days later, on January 2, 1831, he gave the Prophet Joseph the revelation recorded in the thirty-eighth section of the Doctrine and Covenants, in which he dramatically illustrated our obligation to provide for the poor.
 
-He says, “For your salvation,”—that’s a pretty good reason—“For your salvation I give unto you a commandment. …
+He says, “For your salvation,”—that’s a pretty good reason—“For your salvation I give unto you a commandment. …
 
-“Wherefore, hear my voice and follow me. …”
+“Wherefore, hear my voice and follow me. …”
 
 (Now this was before the Church was a year old.)
 
@@ -62,7 +62,7 @@ He says, “For your salvation,”—that’s a pretty good reason—“For your
 
 “For what man among you having twelve sons, and is no respecter of them, and they serve him obediently, and he saith unto the one: Be thou clothed in robes and sit thou here; and to the other: Be thou clothed in rags and sit thou there—and looketh upon his sons and saith I am just?
 
-“Behold, this I have given unto you as a parable, and it is even as I am. I say unto you \[he’s talking to the members of the Church\], be one; and if ye are not one ye are not mine. …
+“Behold, this I have given unto you as a parable, and it is even as I am. I say unto you \[he’s talking to the members of the Church\], be one; and if ye are not one ye are not mine. …
 
 “And now,” he continued, “I give unto the church in these parts a commandment, that certain men among them shall be appointed, and they shall be appointed by the voice of the church;
 
@@ -151,8 +151,6 @@ This incisive statement is in harmony with the following prediction Jesus gave c
 In conclusion, brothers and sisters, it seems to me that the scriptures clearly establish the fact that caring for the poor is a covenantal obligation.
 
 That each of us will fully discharge our obligation under that covenant, I humbly pray, and leave my blessing with you, in the name of Jesus Christ. Amen.
-
-
 
 
 

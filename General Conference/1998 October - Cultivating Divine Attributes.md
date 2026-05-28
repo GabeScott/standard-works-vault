@@ -52,7 +52,7 @@ We strive to keep the commandments of God with faith that obedience will help us
 
 Mormon asked the Saints of his day, “And what is it that ye shall hope for?” He gave them this answer: “Behold I say unto you that ye shall have hope through the atonement of Christ and the power of his resurrection, to be raised unto life eternal, and this because of your faith in him according to the promise.”[^22] In Ether we learn that “whoso believeth in God might with surety hope for a better world, yea, even a place at the right hand of God, which hope cometh of faith, \[and\] maketh an anchor to the souls of men.”[^23]
 
-Even when the winds of adversity blow, our Father keeps us anchored to our hope. The Lord has promised, “I will not leave you comfortless,”[^24] and He will “consecrate \[our\] afflictions for \[our\] gain.”[^25] Even when our trials seem overwhelming, we can draw strength and hope from the sure promise of the Lord: “Be not afraid nor dismayed … ; for the battle is not yours, but God’s.”[^26]
+Even when the winds of adversity blow, our Father keeps us anchored to our hope. The Lord has promised, “I will not leave you comfortless,”[^24] and He will “consecrate \[our\] afflictions for \[our\] gain.”[^25] Even when our trials seem overwhelming, we can draw strength and hope from the sure promise of the Lord: “Be not afraid nor dismayed … ; for the battle is not yours, but God’s.”[^26]
 
 ## Charity
 
@@ -85,13 +85,13 @@ I testify to you as a special witness that Jesus is the Christ and that through 
 
 [^3]: [[D&C 49.7|D&C 49:7]].
 
-[^4]: [[Articles of Faith 1.10|A of F 1:10]].
+[^4]: [[Articles of Faith 1.10|A of F 1:10]].
 
 [^5]: [[D&C 43.28|D&C 43:28, 30]][[D&C 43.30|]].
 
-[^6]: [[Articles of Faith 1.13|A of F 1:13]].
+[^6]: [[Articles of Faith 1.13|A of F 1:13]].
 
-[^7]: [[1 Corinthians 13.13|1 Cor. 13:13]].
+[^7]: [[1 Corinthians 13.13|1 Cor. 13:13]].
 
 [^8]: [[Moroni 7.46|Moro. 7:46–47]][[Moroni 7.47|]].
 
@@ -99,13 +99,13 @@ I testify to you as a special witness that Jesus is the Christ and that through 
 
 [^10]: [[D&C 121.45|D&C 121:45]].
 
-[^11]: [[1 Peter 1.19|1 Pet. 1:19]].
+[^11]: [[1 Peter 1.19|1 Pet. 1:19]].
 
 [^12]: [[Moroni 10.20|Moro. 10:20]].
 
 [^13]: [[Moroni 10.21|Moro. 10:21]].
 
-[^14]: [[1 Corinthians 13.8|1 Cor. 13:8]].
+[^14]: [[1 Corinthians 13.8|1 Cor. 13:8]].
 
 [^15]: [[Ether 12.28|Ether 12:28]].
 
@@ -113,13 +113,13 @@ I testify to you as a special witness that Jesus is the Christ and that through 
 
 [^17]: [[Moroni 7.47|Moro. 7:47–48]][[Moroni 7.48|]].
 
-[^18]: [[Articles of Faith 1.4|A of F 1:4]].
+[^18]: [[Articles of Faith 1.4|A of F 1:4]].
 
 [^19]: [[Hebrews 11.1|Heb. 11:1]]; emphasis added.
 
 [^20]: [[Alma 32.21|Alma 32:21]].
 
-[^21]: [[Alma 32.27|Alma 32:27]]; see also [[Alma 32.28|vv. 28–43]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
+[^21]: [[Alma 32.27|Alma 32:27]]; see also [[Alma 32.28|vv. 28–43]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
 [^22]: [[Moroni 7.41|Moro. 7:41]].
 
@@ -127,19 +127,19 @@ I testify to you as a special witness that Jesus is the Christ and that through 
 
 [^24]: [[John 14.18|John 14:18]].
 
-[^25]: [[2 Nephi 2.2|2 Ne. 2:2]].
+[^25]: [[2 Nephi 2.2|2 Ne. 2:2]].
 
-[^26]: [[2 Chronicles 20.15|2 Chr. 20:15]].
+[^26]: [[2 Chronicles 20.15|2 Chr. 20:15]].
 
 [^27]: See [[Alma 5.14|Alma 5:14]].
 
 [^28]: [[Alma 5.26|Alma 5:26]].
 
-[^29]: [[1 Nephi 11.22|1 Ne. 11:22–23]][[1 Nephi 11.23|]].
+[^29]: [[1 Nephi 11.22|1 Ne. 11:22–23]][[1 Nephi 11.23|]].
 
 [^30]: *Ensign,* Nov. 1995, 102.
 
-[^31]: In Conference Report, Apr. 1998, 116; or *Ensign,* May 1998, 88.
+[^31]: In Conference Report, Apr. 1998, [[1998 April - New Temples to Provide “Crowning Blessings” of the Gospel.md|116]]; or *Ensign,* May 1998, 88.
 
 [^32]: [[D&C 95.8|D&C 95:8]].
 
@@ -147,6 +147,4 @@ I testify to you as a special witness that Jesus is the Christ and that through 
 
 [^34]: See [[John 14.27|John 14:27]].
 
-
-
-#Atonement #Charity #Faith #Family #Hope #Jesus_Christ #Love #Parenthood #Repentance #Temples
+#Atonement #Charity #Faith #Family #Hope #JesusChrist #Love #Parenthood #Repentance #Temples

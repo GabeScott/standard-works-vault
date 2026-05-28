@@ -1,6 +1,6 @@
 # It Was a Miracle!
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -44,7 +44,7 @@ The book was of metal having the appearance of gold. It consisted of metallic pa
 
 I pause here to ask if at that time there was any known parallel to such a record which could be pointed to for corroboration. The answer is no. There was none. But what of today, now, in 1977? The answer is yes—a resounding yes.
 
-For example, archaeologists have now found the engraved gold and silver records of King Sargon II of Assyria, dating to about 750 b.c., buried in the ground in a stone box. The same thing is true of the gold plates of King Darius, who put Daniel in the lions’ den. Both sets of ancient records have been translated and published.
+For example, archaeologists have now found the engraved gold and silver records of King Sargon II of Assyria, dating to about 750 b.c., buried in the ground in a stone box. The same thing is true of the gold plates of King Darius, who put Daniel in the lions’ den. Both sets of ancient records have been translated and published.
 
 Another similar set of metal plates, bound together like a book, has been found in Korea and may be seen in the museum at Seoul, and still another has been found in Italy. So, you see, it was not unusual that ancient records were preserved in this way.
 
@@ -101,6 +101,4 @@ To this I bear my humble but solemn testimony in the sacred name of the Lord Jes
 
 
 
-
-
-#Book_Of_Mormon
+#BookOfMormon

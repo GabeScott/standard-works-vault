@@ -1,17 +1,16 @@
 # Fiery
 
-
-*See also* [BD Fiery serpents](https://www.churchofjesuschrist.org/study/scriptures/bd/fiery-serpents?lang=eng)
+*See also* [[BD Fiery serpents.md|BD Fiery serpents]]
 
 Lord said unto Moses, Make thee a *fiery* serpent, [[Numbers 21.8|Numbers 21:8]].
 
 as a *fiery* oven in the time of thine anger, [[Psalms 21.9|Psalms 21:9]].
 
-cast into the midst of a burning *fiery* furnace, [[Daniel 3.6|Daniel 3:6]] ([[Daniel 3.11|Daniel 3:11]], [[Daniel 3.15|Daniel 3:15]]).
+cast into the midst of a burning *fiery* furnace, [[Daniel 3.6|Daniel 3:6]] ([[Daniel 3.11|Daniel 3:11]]; [[Daniel 3.15|Daniel 3:15]]).
 
 *fiery* stream issued and came forth, [[Daniel 7.10|Daniel 7:10]].
 
-shield of faith ... quench all the *fiery* darts of the wicked, [[Ephesians 6.16|Ephesians 6:16]] ([[D&C 3.8|D&C 3:8]]; [[D&C 27.17|D&C 27:17]]).
+shield of faith … quench all the *fiery* darts of the wicked, [[Ephesians 6.16|Ephesians 6:16]] ([[D&C 3.8|D&C 3:8]]; [[D&C 27.17|D&C 27:17]]).
 
 *fiery* darts of the adversary overpower them, [[1 Nephi 15.24|1 Nephi 15:24]].
 

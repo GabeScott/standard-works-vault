@@ -4,6 +4,3 @@
 
 [JST Amos 7:3](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-amos/7?lang=eng)
 
-
-
-

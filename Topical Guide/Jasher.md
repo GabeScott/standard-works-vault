@@ -1,4 +1,3 @@
 # Jasher
 
-
-*See* [BD Jasher, book of](https://www.churchofjesuschrist.org/study/scriptures/bd/jasher-book-of?lang=eng)
+*See also* [[BD Jasher, book of.md|BD Jasher, book of]]

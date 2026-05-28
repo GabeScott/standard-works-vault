@@ -1,4 +1,3 @@
 # Babel
 
-
-*See* [BD Babylon](https://www.churchofjesuschrist.org/study/scriptures/bd/babylon?lang=eng)
+*See also* [[BD Babylon.md|BD Babylon]]

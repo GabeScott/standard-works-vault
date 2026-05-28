@@ -1,6 +1,6 @@
 # Remembering in Whom We Have Trusted
 
-By Elder Allen D. Haynie - *Of the Seventy*
+By Elder Allen D. Haynie - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -32,7 +32,7 @@ What does matter is that Jesus Christ, the Son of God, suffered “pains and aff
 
 I testify that the Savior will never turn away from us when we humbly seek Him in order to repent; will never consider us to be a lost cause; will never say, “Oh no, not you again”; will never reject us because of a failure to understand how hard it is to avoid sin. He understands it all perfectly, including the sense of sorrow, shame, and frustration that is the inevitable consequence of sin.
 
-Repentance is real and it works. It is not a fictional experience or the product “of a frenzied mind.”[^17] It has the power to lift burdens and replace them with hope. It can lead to a mighty change of heart that results in our having “no more disposition to do evil, but to do good continually.”[^18] Repentance, of necessity, is not easy. Things of eternal significance rarely are. But the result is worth it. As President Boyd K. Packer testified in his last address to the Seventy of the Church: “The thought is this: the Atonement leaves no tracks, no traces. What it fixes is fixed. … The Atonement leaves no traces, no tracks. It just heals, and what it heals stays healed.”[^19]
+Repentance is real and it works. It is not a fictional experience or the product “of a frenzied mind.”[^17] It has the power to lift burdens and replace them with hope. It can lead to a mighty change of heart that results in our having “no more disposition to do evil, but to do good continually.”[^18] Repentance, of necessity, is not easy. Things of eternal significance rarely are. But the result is worth it. As President Boyd K. Packer testified in his last address to the Seventy of the Church: “The thought is this: the Atonement leaves no tracks, no traces. What it fixes is fixed. … The Atonement leaves no traces, no tracks. It just heals, and what it heals stays healed.”[^19]
 
 And so it is that our hope to live again with the Father depends on the Atonement of Jesus Christ, upon the willingness of the one sinless Being to take upon Himself, notwithstanding the fact that justice had no claim on Him, the collective weight of the transgressions of all mankind, including those sins that some sons and daughters of God unnecessarily choose to suffer for on their own.
 
@@ -45,7 +45,7 @@ Brothers and sisters, if you feel discouraged or wonder if you can ever get out 
 
 
 
-[^1]: [[3 Nephi 27.19|3 Nephi 27:19]].
+[^1]: [[3 Nephi 27.19|3 Nephi 27:19]].
 
 [^2]: See [[Moses 4.1|Moses 4:1–4]][[Moses 4.2|]][[Moses 4.3|]][[Moses 4.4|]]; [[Abraham 3.22|Abraham 3:22–28]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]][[Abraham 3.28|]]; *Teachings of Presidents of the Church: Joseph Smith* (2007), 209.
 
@@ -61,17 +61,17 @@ Brothers and sisters, if you feel discouraged or wonder if you can ever get out 
 
 [^8]: See [[D&C 19.16|Doctrine and Covenants 19:16, 20]][[D&C 19.20|]].
 
-[^9]: [[2 Nephi 4.18|2 Nephi 4:18]].
+[^9]: [[2 Nephi 4.18|2 Nephi 4:18]].
 
 [^10]: See [[Genesis 25.29|Genesis 25:29–33]][[Genesis 25.30|]][[Genesis 25.31|]][[Genesis 25.32|]][[Genesis 25.33|]].
 
 [^11]: [[Alma 7.11|Alma 7:11, 12]][[Alma 7.12|]].
 
-[^12]: See [[1 Nephi 11.16|1 Nephi 11:16, 26]][[1 Nephi 11.26|]].
+[^12]: See [[1 Nephi 11.16|1 Nephi 11:16, 26]][[1 Nephi 11.26|]].
 
 [^13]: [[D&C 88.6|Doctrine and Covenants 88:6]]; see also [[D&C 122.8|Doctrine and Covenants 122:8]].
 
-[^14]: *Lectures on Faith,* 59.
+[^14]: *Lectures on Faith,* 59.
 
 [^15]: [[D&C 45.4|Doctrine and Covenants 45:4–5]][[D&C 45.5|]].
 
@@ -81,7 +81,7 @@ Brothers and sisters, if you feel discouraged or wonder if you can ever get out 
 
 [^18]: [[Mosiah 5.2|Mosiah 5:2]].
 
-[^19]: Boyd K. Packer, general conference training meeting, Apr. 7, 2015.
+[^19]: Boyd K. Packer, general conference training meeting, Apr. 7, 2015.
 
 [^20]: See [[Romans 8.17|Romans 8:17]].
 
@@ -89,16 +89,14 @@ Brothers and sisters, if you feel discouraged or wonder if you can ever get out 
 
 [^22]: [[Matthew 5.48|Matthew 5:48]].
 
-[^23]: [[2 Nephi 9.15|2 Nephi 9:15]].
+[^23]: [[2 Nephi 9.15|2 Nephi 9:15]].
 
 [^24]: [[John 5.22|John 5:22]].
 
 [^25]: [[Mosiah 15.9|Mosiah 15:9]].
 
-[^26]: [[2 Nephi 4.19|2 Nephi 4:19]].
+[^26]: [[2 Nephi 4.19|2 Nephi 4:19]].
 
-[^27]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^27]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-#Jesus_Christ #Plan_Of_Salvation #Repentance #Trust
+#JesusChrist #PlanOfSalvation #Repentance #Trust

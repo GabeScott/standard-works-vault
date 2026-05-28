@@ -1,6 +1,6 @@
 # Address Given by President Marion G. Romney at the Welfare Services Meeting Saturday, April 6, 1974
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -20,11 +20,11 @@ Now let us turn our attention to the obligation of the Church to take care of th
 
 “And I have made the earth rich, and behold it is my footstool, wherefore, again I will stand upon it.
 
-“And I hold forth and deign to give unto you greater riches, even a land of promise, a land flowing with milk and honey, …
+“And I hold forth and deign to give unto you greater riches, even a land of promise, a land flowing with milk and honey, …
 
 “And I will give it unto you for the land of your inheritance, if you seek it with all your hearts.
 
-“Wherefore, hear my voice and follow me, …
+“Wherefore, hear my voice and follow me, …
 
 “And let every man esteem his brother as himself, and practise virtue and holiness before me.
 
@@ -115,8 +115,6 @@ I agree, however, with President Clark’s statement,
 No stone must be left unturned to find work for the unemployed to do in exchange for the relief granted to them. Every possible effort must be made to preserve the moral stamina of our people.
 
 God bless you, I pray in Jesus’ name. Amen.
-
-
 
 
 

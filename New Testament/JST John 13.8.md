@@ -4,6 +4,3 @@
 
 [JST John 13:8](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-john/13?lang=eng)
 
-
-
-

@@ -1,6 +1,6 @@
 # The Welfare Production-Distribution Department
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -8,7 +8,7 @@ By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 The traditional Welfare Department was the forerunner of the Production-Distribution Department of Welfare Services. As in the past, efforts today in Welfare Production-Distribution are directed toward assisting priesthood officers and Relief Society leaders and the members of this worldwide church to fulfill the sacred obligation to care for the poor, the needy, the distressed, and those among us who are unable to care for themselves because of handicaps or other reasons, such as age.
 
-* * * * * *
+* * * * * *
 
 Now to establish a perspective I would like to begin by reviewing the mission of the Welfare Production-Distribution Department and how it relates to total Welfare Services. Its mission is to foster the economic self-sufficiency of the Saints, thereby helping to erase poverty and need from among Latter-day Saint families. This will contribute to developing a Zion society like that of Enoch. Quoting from Moses, we read: “And the Lord called his people Zion, because they were of one heart and one mind, and dwelt in righteousness; and there was no poor among them.” ([[Moses 7.18|Moses 7:18]].)
 
@@ -36,7 +36,7 @@ We have considerable work to do before we reach full ward preparedness, however.
 
 In summary, with regard to production projects, the Church is (1) maintaining sufficient production capacity to assist the poor and the needy under the current usage level; (2) fostering more production projects so that every ward will have access to and be involved in a project; and (3) encouraging families and each Church unit to be as self-sufficient as possible.
 
-In the last several years, the amount given in fast offerings increased about 15 percent a year over previous years. In response to the call of priesthood leaders, 1975 fast offering donations are up 47 percent over a similar eight-month period last year. You leaders might check the progress of your own units. It is our hope that this trend will continue and that our members everywhere will be encouraged to increase their fast offerings manyfold. Of fast offerings, President Kimball has said, “I think that when we are affluent, as many of us are, that we ought to be more generous. Instead of the amount saved by our two or more meals of fasting, perhaps much more—seven times more \[should be given\]—when we are in a position to do it.” (Filmstrip: *Principles of Welfare Services, “… in Mine Own Way.”*)
+In the last several years, the amount given in fast offerings increased about 15 percent a year over previous years. In response to the call of priesthood leaders, 1975 fast offering donations are up 47 percent over a similar eight-month period last year. You leaders might check the progress of your own units. It is our hope that this trend will continue and that our members everywhere will be encouraged to increase their fast offerings manyfold. Of fast offerings, President Kimball has said, “I think that when we are affluent, as many of us are, that we ought to be more generous. Instead of the amount saved by our two or more meals of fasting, perhaps much more—seven times more \[should be given\]—when we are in a position to do it.” (Filmstrip: *Principles of Welfare Services, “… in Mine Own Way.”*)
 
 From fast offerings and the Commodity Production Budget, certain reserves of both commodities and fuel have been established to meet the needs of the poor and needy among us. We have on hand one year’s supply of commodities in the distribution system for the poor and the needy. However, this supply would be quickly depleted by a major increase in demand. This fact further underscores the need for family preparedness.
 
@@ -60,7 +60,5 @@ Brothers and Sisters, I testify that though we do all else and yet do not care f
 
 
 [^*]: (*excerpts only*)
-
-
 
 #Welfare

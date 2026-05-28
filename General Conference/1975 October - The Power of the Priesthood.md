@@ -1,6 +1,6 @@
 # The Power of the Priesthood
 
-By Elder W. Grant Bangerter - *Assistant to the Council of the Twelve*
+By Elder W. Grant Bangerter - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -12,7 +12,7 @@ Without presuming to be an authority on the subject of the priesthood, I have ne
 
 In the Church, testimonies are often expressed in general terms. For example, we speak of our knowledge that God lives, that Jesus is the Christ, and that this is the true Church. There are times, however, when we do not always show the same faith in more specific parts of the gospel.
 
-I have heard some say that they believe in everything but the welfare plan or everything except tithing. Some people used to say they could follow the Prophet Joseph Smith or David O. McKay, but not Brigham Young or Heber J. Grant. Now such selectivity is simply not consistent.
+I have heard some say that they believe in everything but the welfare plan or everything except tithing. Some people used to say they could follow the Prophet Joseph Smith or David O. McKay, but not Brigham Young or Heber J. Grant. Now such selectivity is simply not consistent.
 
 I would like to ask tonight, “What kind of a testimony do you have concerning the power of the priesthood?”
 
@@ -24,7 +24,7 @@ Seriously, these expressions indicate either a lack of faith in or lack of under
 
 I went to a conference in President Rex Reeve’s stake. He took me through the building and showed me 2,000 chairs prepared for the people. I asked him how he knew there would be 2,000 people present, and he answered, “We sent the home teachers out to invite everyone to come, and they have given us their report. They have informed us that 2,000 people will be here tomorrow.” Evidently the word got out that I would be one of the speakers because seventy-five of those 2,000 didn’t show up. But they had an attendance of 49 percent and it has since grown much higher.
 
-For several years I had the privilege of sitting at the feet of President Marion G. Romney, who taught us about the “constitution of the Church”—meaning that revelation given on the occasion of the organization of the Church wherein the Lord outlined the procedures by which it should be governed. The elders, it says in section 20 of the Doctrine and Covenants, assisted by the lesser priesthood, are to “watch over the Church.” ([[D&C 20.42|D&C 20:42, 53]][[D&C 20.53|]].) A part of that “watching over” is done by visiting the houses of the members and in instructing them to do their duty. In another revelation the elders quorum is specifically mentioned as a body of “standing ministers.” ([[D&C 124.137|D&C 124:137]].) Those who hold the Aaronic Priesthood are also called “standing ministers.” ([[D&C 84.111|D&C 84:111]].)
+For several years I had the privilege of sitting at the feet of President Marion G. Romney, who taught us about the “constitution of the Church”—meaning that revelation given on the occasion of the organization of the Church wherein the Lord outlined the procedures by which it should be governed. The elders, it says in section 20 of the Doctrine and Covenants, assisted by the lesser priesthood, are to “watch over the Church.” ([[D&C 20.42|D&C 20:42, 53]][[D&C 20.53|]].) A part of that “watching over” is done by visiting the houses of the members and in instructing them to do their duty. In another revelation the elders quorum is specifically mentioned as a body of “standing ministers.” ([[D&C 124.137|D&C 124:137]].) Those who hold the Aaronic Priesthood are also called “standing ministers.” ([[D&C 84.111|D&C 84:111]].)
 
 Five years ago if you had asked, “Who’s the ‘minister’ of your Church?” most of us would have answered, “Oh, the bishop.” Today we can’t give that simple answer because we know that many of the duties have now been shifted over to the elders, where the revelations say they rightfully belong. Now a ward should have at least fifty “ministers” in place of the one we thought of a few years ago.
 
@@ -59,8 +59,6 @@ The stake president continued: “Brother Pedersen has committed himself to qual
 Think of the potential if all who bear the priesthood were deeply involved in the work of the Lord. Compared to what is available, we have been running on only one or two cylinders.
 
 In missionary work some stakes have raised their sights so much that each ward is going to bring in as many new members as the entire stake used to. In temple work I have seen stakes, who worked through priesthood power, make yearly increases that were greater than the total performance of average stakes nearby. In every activity in which the priesthood is involved, I become excited when I see how far we can go if we have faith enough to mobilize the great army of men of the priesthood. Not a testimony like Laman and Lemuel. And I know some say, “He doesn’t understand how tough it is in our quorum.” Well, Nephi didn’t either; but Nephi had a testimony. In the name of Jesus Christ. Amen.
-
-
 
 
 

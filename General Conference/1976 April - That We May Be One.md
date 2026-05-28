@@ -1,6 +1,6 @@
 # That We May Be One
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -20,15 +20,15 @@ More than monuments and festivals are needed, however, for us to succeed in rein
 
 However great the need may be for unity within nations, there is even greater need for harmony and interdependence within the worldwide Church of Jesus Christ of Latter-day Saints. As this great conference draws near its close, may I read from what a modern-day prophet referred to as “the greatest prayer ever uttered in this world”? It is recorded by John in impressive detail as he heard it fall from the lips of the Son of God at the close of the evening, after he and his apostles had dined together for the last time:
 
-“Father, the hour is come; glorify thy Son, that thy Son also may glorify thee. …
+“Father, the hour is come; glorify thy Son, that thy Son also may glorify thee. …
 
-“I have manifested thy name unto the men which thou gavest me out of the world: thine they were, and thou gavest them me; and they have kept thy word. …
+“I have manifested thy name unto the men which thou gavest me out of the world: thine they were, and thou gavest them me; and they have kept thy word. …
 
-“I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine. …
+“I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine. …
 
-“Holy Father, keep through thine own name those whom thou hast given me, that they may be one, as we are. …
+“Holy Father, keep through thine own name those whom thou hast given me, that they may be one, as we are. …
 
-“As thou has sent me into the world, even so have I also sent them into the world. …
+“As thou has sent me into the world, even so have I also sent them into the world. …
 
 “Neither pray I for these alone, but for them also which shall believe on me through their word;
 
@@ -36,9 +36,9 @@ However great the need may be for unity within nations, there is even greater ne
 
 “And the glory which thou gavest me I have given them; that they may be one, even as we are one.” (See [[John 17.1|John 17]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.7|]][[John 17.8|]][[John 17.9|]][[John 17.10|]][[John 17.11|]][[John 17.12|]][[John 17.13|]][[John 17.14|]][[John 17.15|]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.19|]][[John 17.20|]][[John 17.21|]][[John 17.22|]][[John 17.23|]][[John 17.24|]][[John 17.25|]][[John 17.26|]].)
 
-Within this Church there is a constant need for unity, for if we are not one, we are not his. (See [[D&C 38.27|D&C 38:27]].) We are truly dependent on each other, “and the eye cannot say unto the hand, I have no need of thee: nor again the head to the feet, I have no need of you.” ([[1 Corinthians 12.21|1 Cor. 12:21]].) Nor can the North Americans say to the Asians, nor the Europeans to the islanders of the sea, “I have no need of thee.” No, in this church we have need of every member, and we pray, as did Paul when he wrote to the church in Corinth, “that there should be no schism in the body; but that the members should have the same care one for another.
+Within this Church there is a constant need for unity, for if we are not one, we are not his. (See [[D&C 38.27|D&C 38:27]].) We are truly dependent on each other, “and the eye cannot say unto the hand, I have no need of thee: nor again the head to the feet, I have no need of you.” ([[1 Corinthians 12.21|1 Cor. 12:21]].) Nor can the North Americans say to the Asians, nor the Europeans to the islanders of the sea, “I have no need of thee.” No, in this church we have need of every member, and we pray, as did Paul when he wrote to the church in Corinth, “that there should be no schism in the body; but that the members should have the same care one for another.
 
-“And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it.” ([[1 Corinthians 12.25|1 Cor. 12:25–26]][[1 Corinthians 12.26|]].)
+“And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it.” ([[1 Corinthians 12.25|1 Cor. 12:25–26]][[1 Corinthians 12.26|]].)
 
 Paul’s words are as applicable to us today as they were to the saints at Corinth.
 
@@ -52,15 +52,13 @@ By the same token, I know of no stronger weapons in the hands of the adversary a
 
 Of course, the key to a unified church is a unified soul—one that is at peace with itself and not given to inner conflicts and tensions. So much in our world is calculated to destroy that personal peace through sins and temptations of a thousand kinds. We pray that the lives of the Saints will be lived in harmony with the ideal set before us by Jesus of Nazareth.
 
-We pray that Satan’s efforts will be thwarted, that personal lives can be peaceful and calm, that families can be close and concerned with every member, that wards and stakes, branches and districts can form the great body of Christ, meeting every need, soothing every hurt, healing every wound until the whole world, as Nephi pleaded, will “press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. …
+We pray that Satan’s efforts will be thwarted, that personal lives can be peaceful and calm, that families can be close and concerned with every member, that wards and stakes, branches and districts can form the great body of Christ, meeting every need, soothing every hurt, healing every wound until the whole world, as Nephi pleaded, will “press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. …
 
-“My beloved brethren,” continued Nephi, “this is the way; and there is none other way.” ([[2 Nephi 31.20|2 Ne. 31:20–21]][[2 Nephi 31.21|]].)
+“My beloved brethren,” continued Nephi, “this is the way; and there is none other way.” ([[2 Nephi 31.20|2 Ne. 31:20–21]][[2 Nephi 31.21|]].)
 
 For the entire worldwide Church, for the great body of Saints to the east and to the west, to the north and to the south, we pray that we may be one.
 
 This has been a glorious conference. There has been a good spirit, and because we have been united under the direction of a prophet of God, upholding and sustaining him, the Lord has blessed us. I bear witness that God lives and will continue to bless us if we remain as one and follow his commandments. That we may do so is my humble prayer, in the name of our Savior and Master, Jesus Christ. Amen.
-
-
 
 
 

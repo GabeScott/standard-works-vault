@@ -76,7 +76,7 @@ Alma felt the agony and guilt and said: “As I was thus racked with torment, wh
 
 “And oh, what joy, and what marvelous light I did behold; yea, my soul was filled with joy as exceeding as was my pain!
 
-“Yea, I say unto you, my son, that there could be nothing so exquisite and so bitter as were my pains. Yea, and again I say unto you, my son, that on the other hand, there can be nothing so exquisite and sweet as was my joy. …
+“Yea, I say unto you, my son, that there could be nothing so exquisite and so bitter as were my pains. Yea, and again I say unto you, my son, that on the other hand, there can be nothing so exquisite and sweet as was my joy. …
 
 “Yea, and from that time even until now, I have labored without ceasing, that I might bring souls unto repentance; that I might bring them to taste of the exceeding joy of which I did taste; that they might also be born of God, and be filled with the Holy Ghost” ([[Alma 36.17|Alma 36:17–21, 24]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.24|]]).
 
@@ -116,21 +116,19 @@ The angels of the devil convince some that they are born to a life from which th
 
 “For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of all men, that all men might repent and come unto him” ([[D&C 18.11|D&C 18:11]]).
 
-Christ is the Creator, the Healer. What He made, He can fix. The gospel of Jesus Christ is the gospel of repentance and forgiveness (see [[2 Nephi 1.13|2 Nephi 1:13]]; [[2 Nephi 9.45|9:45]]; [[Jacob 3.11|Jacob 3:11]]; [[Alma 26.13|Alma 26:13–14]][[Alma 26.14|]]; [[Moroni 7.17|Moroni 7:17–19]][[Moroni 7.18|]][[Moroni 7.19|]]).
+Christ is the Creator, the Healer. What He made, He can fix. The gospel of Jesus Christ is the gospel of repentance and forgiveness (see [[2 Nephi 1.13|2 Nephi 1:13]]; [[2 Nephi 9.45|9:45]]; [[Jacob 3.11|Jacob 3:11]]; [[Alma 26.13|Alma 26:13–14]][[Alma 26.14|]]; [[Moroni 7.17|Moroni 7:17–19]][[Moroni 7.18|]][[Moroni 7.19|]]).
 
 “Remember the worth of souls is great in the sight of God” ([[D&C 18.10|D&C 18:10]]).
 
 The account of this loving father and a wayward son, drawn from the Book of Mormon: Another Testament of Jesus Christ, is a type, a pattern, an example.
 
-Each of us has a loving Father in Heaven. Through the Father’s redeeming plan, those who may stumble and fall “are not cast off forever” (Book of Mormon [title page](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng)).
+Each of us has a loving Father in Heaven. Through the Father’s redeeming plan, those who may stumble and fall “are not cast off forever” (Book of Mormon [title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng)).
 
 “And how great is his joy in the soul that repenteth!” ([[D&C 18.13|D&C 18:13]]).
 
 “The Lord cannot look upon sin with the least degree of allowance; nevertheless” ([[D&C 1.31|D&C 1:31–32]][[D&C 1.32|]]), the Lord said, “he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more” ([[D&C 58.42|D&C 58:42]]).
 
 Could there be any more sweeter or more consoling words, more filled with hope, than those words from the scriptures? “I, the Lord, remember \[their sins\] no more” ([[D&C 58.42|D&C 58:42]]). That is the testimony of the Book of Mormon, and that is my testimony to you, in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,4 +1,3 @@
 # Planet
 
-
-*See* [[Astronomy.md|Astronomy]]; [[Heaven.md|Heaven]]
+*See also* [[Astronomy.md|Astronomy]]; [[Heaven.md|Heaven]]

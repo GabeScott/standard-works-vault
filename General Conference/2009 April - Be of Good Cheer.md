@@ -44,7 +44,7 @@ He rose to his feet and, smiling, thanked us for providing the blessing. He then
 
 My brothers and sisters, each of us has that light in his or her life. We are not left to walk alone, no matter how dark our pathway.
 
-I love the words penned by M. Louise Haskins:
+I love the words penned by M. Louise Haskins:
 
 >And I said to the man who stood at the gate of the year:
 >“Give me a light, that I may tread safely into the unknown!”
@@ -55,7 +55,7 @@ I love the words penned by M. Louise Haskins:
 
 The setting for my final example of one who persevered and ultimately prevailed, despite overwhelmingly difficult circumstances, begins in East Prussia following World War II.
 
-In about March 1946, less than a year after the end of the war, Ezra Taft Benson, then a member of the Quorum of the Twelve, accompanied by Frederick W. Babbel, was assigned a special postwar tour of Europe for the express purpose of meeting with the Saints, assessing their needs, and providing assistance to them. Elder Benson and Brother Babbel later recounted, from a testimony they heard, the experience of a Church member who found herself in an area no longer controlled by the government under which she had resided.
+In about March 1946, less than a year after the end of the war, Ezra Taft Benson, then a member of the Quorum of the Twelve, accompanied by Frederick W. Babbel, was assigned a special postwar tour of Europe for the express purpose of meeting with the Saints, assessing their needs, and providing assistance to them. Elder Benson and Brother Babbel later recounted, from a testimony they heard, the experience of a Church member who found herself in an area no longer controlled by the government under which she had resided.
 
 She and her husband had lived an idyllic life in East Prussia. Then had come the second great world war within their lifetimes. Her beloved young husband was killed during the final days of the frightful battles in their homeland, leaving her alone to care for their four children.
 
@@ -94,13 +94,13 @@ I declare that God lives and that He hears and answers our prayers. His Son, Jes
 
 
 
-[^1]: [[2 Timothy 1.7|2 Timothy 1:7]].
+[^1]: [[2 Timothy 1.7|2 Timothy 1:7]].
 
-[^2]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^2]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^3]: [[D&C 68.6|D&C 68:6]].
 
-[^4]: Adapted from Thomas A. Condie, “History of Gibson and Cecelia Sharp Condie” (1937); unpublished.
+[^4]: Adapted from Thomas A. Condie, “History of Gibson and Cecelia Sharp Condie” (1937); unpublished.
 
 [^5]: [[John 16.33|John 16:33]].
 
@@ -108,7 +108,8 @@ I declare that God lives and that He hears and answers our prayers. His Son, Jes
 
 [^7]: From “The Gate of the Year,” in James Dalton Morrison, ed., *Masterpieces of Religious Verse* (1948), 92.
 
-[^8]: From personal conversations and from Frederick W. Babbel, *On Wings of Faith* (1972), 40–42.
+[^8]: From personal conversations and from Frederick W. Babbel, *On Wings of Faith* (1972), 40–42.
 
+[^9]: [[2 Nephi 9.18|2 Nephi 9:18]].
 
 #Adversity #Dedication #Hope #Joy

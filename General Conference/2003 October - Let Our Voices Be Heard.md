@@ -20,7 +20,7 @@ To these warnings, ancient as the Old Testament and current as the proclamation 
 
 Because of its sheer size, media today presents vast and sharply contrasting options. Opposite from its harmful and permissive side, media offers much that is positive and productive. Television offers history channels, discovery channels, education channels. One can still find movies and TV comedies and dramas that entertain and uplift and accurately depict the consequences of right and wrong. The Internet can be a fabulous tool of information and communication, and there is an unlimited supply of good music in the world. Thus our biggest challenge is to choose wisely what we listen to and what we watch.
 
-As the prophet Lehi said, because of Christ and His Atonement, we are “free forever, knowing good from evil,” able to act for ourselves rather than be acted upon, “free to choose liberty and eternal life … or to choose captivity and death” ([[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]]).
+As the prophet Lehi said, because of Christ and His Atonement, we are “free forever, knowing good from evil,” able to act for ourselves rather than be acted upon, “free to choose liberty and eternal life … or to choose captivity and death” ([[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]]).
 
 The choices we make in media can be symbolic of the choices we make in life. Choosing the trendy, the titillating, the tawdry in the TV programs or movies we watch can cause us to end up, if we’re not careful, choosing the same things in the lives we live.
 
@@ -28,7 +28,7 @@ If we do not make good choices, the media can devastate our families and pull ou
 
 To be strong and happy, families need to be nourished by the truths depicted in the [[Articles of Faith 1.13|thirteenth article of faith]]—by a belief “in being honest, true, chaste, benevolent, virtuous, and in doing good to all men.” Gratefully, there are many like-minded men and women of all cultures and faiths who also seek that which is “virtuous, lovely, or of good report or praiseworthy.”
 
-But we live in the “perilous times” to which the Apostle Paul referred when he warned about our day as one when “men shall be lovers of their own selves, covetous, boasters, proud, blasphemers, disobedient to parents, unthankful, unholy, without natural affection, … false accusers, … despisers of those that are good, … heady, highminded, lovers of pleasures more than lovers of God” ([[2 Timothy 3.1|2 Timothy 3:1–4]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]]).
+But we live in the “perilous times” to which the Apostle Paul referred when he warned about our day as one when “men shall be lovers of their own selves, covetous, boasters, proud, blasphemers, disobedient to parents, unthankful, unholy, without natural affection, … false accusers, … despisers of those that are good, … heady, highminded, lovers of pleasures more than lovers of God” ([[2 Timothy 3.1|2 Timothy 3:1–4]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]]).
 
 Conspiring men and women, intent on gain rather than goodness, “stir up the people” to “all manner of … wickedness” ([[Alma 11.20|Alma 11:20]]), preventing the noble uses to which the media could be employed.
 
@@ -50,7 +50,7 @@ We need to remember Edmund Burke’s statement: “The only thing necessary for 
 
 Of course the most basic way to protest negative-impact media is simply not to watch it, see it, read it, or play it. We should teach our family members to follow the First Presidency’s counsel to young people. From the *For the Strength of Youth* pamphlet, their instruction regarding entertainment and the media is very clear:
 
-“Do not attend, view, or participate in entertainment that is vulgar, immoral, violent, or pornographic in any way. Do not participate in entertainment that in any way presents immorality or violent behavior as acceptable. …
+“Do not attend, view, or participate in entertainment that is vulgar, immoral, violent, or pornographic in any way. Do not participate in entertainment that in any way presents immorality or violent behavior as acceptable. …
 
 “Have the courage to walk out of a movie or video party, turn off a computer or television, change a radio station, or put down a magazine if what is being presented does not meet Heavenly Father’s standards. Do these things even if others do not.”[^7]
 
@@ -90,7 +90,5 @@ May God bless us with courage and wisdom in doing what each one of us can to hel
 [^6]: Attributed in John Bartlett, comp., *Familiar Quotations,* 15th ed. (1980), ix.
 
 [^7]: *For the Strength of Youth* (2001), 17, 19.
-
-
 
 #Agency #Family #Media #Morality

@@ -1,15 +1,14 @@
 # Reproach
 
-
-*See also* [[Punish, Punishment.md|Punish]]; [[Shame.md|Shame]]
+*See also* [[Punish.md|Punish]]; [[Shame.md|Shame]]
 
 God hath taken away my *reproach*, [[Genesis 30.23|Genesis 30:23]].
 
-master hath sent to *reproach* the living God, [[2 Kings 19.4|2 Kings 19:4]] ([[Isaiah 37.4|Isaiah 37:4]], [[Isaiah 37.17|Isaiah 37:17]]).
+master hath sent to *reproach* the living God, [[2 Kings 19.4|2 Kings 19:4]] ([[Isaiah 37.4|Isaiah 37:4]]; [[Isaiah 37.17|Isaiah 37:17]]).
 
 smitten me upon the cheek *reproachfully*, [[Job 16.10|Job 16:10]].
 
-I am a worm ... a *reproach* of men, [[Psalms 22.6|Psalms 22:6]].
+I am a worm … a *reproach* of men, [[Psalms 22.6|Psalms 22:6]].
 
 Thou makest us a *reproach*, [[Psalms 44.13|Psalms 44:13]].
 
@@ -33,7 +32,7 @@ to be a *reproach* and a proverb, [[Jeremiah 24.9|Jeremiah 24:9]].
 
 he is filled full with *reproach*, [[Lamentations 3.30|Lamentations 3:30]].
 
-I will make thee ... a *reproach* among the nations, [[Ezekiel 5.14|Ezekiel 5:14]].
+I will make thee … a *reproach* among the nations, [[Ezekiel 5.14|Ezekiel 5:14]].
 
 it shall be a *reproach* and a taunt, [[Ezekiel 5.15|Ezekiel 5:15]].
 
@@ -47,7 +46,7 @@ ye shall bear the *reproach* of my people, [[Micah 6.16|Micah 6:16]].
 
 looked on me, to take away my *reproach*, [[Luke 1.25|Luke 1:25]].
 
-Blessed are ye, when men ... shall *reproach* you, [[Luke 6.22|Luke 6:22]].
+Blessed are ye, when men … shall *reproach* you, [[Luke 6.22|Luke 6:22]].
 
 thou *reproachest* us also, [[Luke 11.45|Luke 11:45]].
 
@@ -57,7 +56,7 @@ suffer *reproach*, because we trust, [[1 Timothy 4.10|1 Timothy 4:10]].
 
 Esteeming the *reproach* of Christ greater riches, [[Hebrews 11.26|Hebrews 11:26]].
 
-Let us go forth ... bearing his *reproach*, [[Hebrews 13.13|Hebrews 13:13]].
+Let us go forth … bearing his *reproach*, [[Hebrews 13.13|Hebrews 13:13]].
 
 If ye be *reproached* for the name of Christ, [[1 Peter 4.14|1 Peter 4:14]].
 

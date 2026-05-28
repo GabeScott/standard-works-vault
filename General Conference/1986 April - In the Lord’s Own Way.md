@@ -26,11 +26,11 @@ The Book of Mormon repeatedly declares this doctrine. From it we learn that care
 
 “Ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 
-“Yea, and \[ye\] are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, … even until death, …
+“Yea, and \[ye\] are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, … even until death, …
 
 “Serve him and keep his commandments.” ([[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]].)
 
-Every person so baptized who receives the gift of the Holy Ghost, which seals the ordinance, is under solemn covenant with the Lord to obey his commandments. *Caring for the poor is one of those commandments.* Surely, in Book of Mormon times, members of the Church had a sacred obligation to care for the poor. (See [[2 Nephi 9.30|2 Ne. 9:30]]; [[Mosiah 4.16|Mosiah 4:16–27]][[Mosiah 4.17|]][[Mosiah 4.18|]][[Mosiah 4.19|]][[Mosiah 4.20|]][[Mosiah 4.21|]][[Mosiah 4.22|]][[Mosiah 4.23|]][[Mosiah 4.24|]][[Mosiah 4.25|]][[Mosiah 4.26|]][[Mosiah 4.27|]]; [[Alma 1.29|Alma 1:29–31]][[Alma 1.30|]][[Alma 1.31|]]; [[Alma 32.2|32:2–6]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]]; [[Alma 34.28|34:28]]; [[Helaman 4.11|Hel. 4:11–12]][[Helaman 4.12|]]; [[Mormon 8.35|Morm. 8:35–39]][[Mormon 8.36|]][[Mormon 8.37|]][[Mormon 8.38|]][[Mormon 8.39|]].)
+Every person so baptized who receives the gift of the Holy Ghost, which seals the ordinance, is under solemn covenant with the Lord to obey his commandments. *Caring for the poor is one of those commandments.* Surely, in Book of Mormon times, members of the Church had a sacred obligation to care for the poor. (See [[2 Nephi 9.30|2 Ne. 9:30]]; [[Mosiah 4.16|Mosiah 4:16–27]][[Mosiah 4.17|]][[Mosiah 4.18|]][[Mosiah 4.19|]][[Mosiah 4.20|]][[Mosiah 4.21|]][[Mosiah 4.22|]][[Mosiah 4.23|]][[Mosiah 4.24|]][[Mosiah 4.25|]][[Mosiah 4.26|]][[Mosiah 4.27|]]; [[Alma 1.29|Alma 1:29–31]][[Alma 1.30|]][[Alma 1.31|]]; [[Alma 32.2|32:2–6]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]]; [[Alma 34.28|34:28]]; [[Helaman 4.11|Hel. 4:11–12]][[Helaman 4.12|]]; [[Mormon 8.35|Morm. 8:35–39]][[Mormon 8.36|]][[Mormon 8.37|]][[Mormon 8.38|]][[Mormon 8.39|]].)
 
 Few, if any, of the Lord’s instructions are stated more often, or given greater emphasis, than the commandment to care for the poor and the needy. Our dispensation is no exception.
 
@@ -74,13 +74,13 @@ Now, some may ask, “What about those who are poor because they are idle and un
 
 “Wo unto you poor men … who will not labor with your own hands!” ([[D&C 56.17|D&C 56:17]].)
 
-Judgment of worthiness is made by the bishop, and ultimately by the Lord, as taught by Nephi: “With righteousness shall the Lord God judge the poor, and reprove with equity for the meek of the earth.” ([[2 Nephi 30.9|2 Ne. 30:9]].)
+Judgment of worthiness is made by the bishop, and ultimately by the Lord, as taught by Nephi: “With righteousness shall the Lord God judge the poor, and reprove with equity for the meek of the earth.” ([[2 Nephi 30.9|2 Ne. 30:9]].)
 
 Ours is not to judge; ours is a covenantal obligation to care for the poor and the needy, to prepare for their rejoicing when the Messiah shall come again. (See [[D&C 56.18|D&C 56:18–19]][[D&C 56.19|]].)
 
 The Lord’s “own way” includes, first, reliance on self, then on the family. As parents care for their children, they, in turn, may reciprocate when parents become less able. Family pride promotes solicitude for each member, taking priority over other assistance.
 
-If one’s family can’t help, the Lord’s “own way” includes the Church organization. The bishop is assisted by priesthood quorums and good sisters of the Relief Society, organized to look “to the wants of the poor, searching after objects of charity and … administering to their wants.” (*Handbook of the Relief Society,* 1931, p. 22.)
+If one’s family can’t help, the Lord’s “own way” includes the Church organization. The bishop is assisted by priesthood quorums and good sisters of the Relief Society, organized to look “to the wants of the poor, searching after objects of charity and … administering to their wants.” (*Handbook of the Relief Society,* 1931, p. 22.)
 
 Members of priesthood quorums and groups have a duty to rehabilitate, spiritually and temporally, their erring or unfortunate brethren. While a bishop extends aid to one temporarily out of work, the quorum arranges for his employment until fully self-supporting again.
 
@@ -106,13 +106,11 @@ Concluding, he said: “These songs express our feelings of deep gratitude. Befo
 
 While wiping tears from our moistened cheeks, Sister Nelson and I looked at each other, comprehending that the gospel brings spiritual wealth which may bear little relation, at first, to tangible abundance. Conversely, people with plenty can be spiritually poor. Yet the Lord is concerned for them all!
 
-Missionary work throughout the world is part of his plan. It brings the light of the gospel to those who embrace the truth. Then, as Saints learn and obey the commandments of God, they will prosper. This promise has been recorded by prophets throughout time and in diverse places. (See [[Joshua 1.7|Josh. 1:7]]; [[1 Kings 2.3|1 Kgs. 2:3]]; [[2 Chronicles 24.20|2 Chr. 24:20]]; [[2 Chronicles 31.21|31:21]]; [[Ezra 6.14|Ezra 6:14]]; [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 4.14|4:14]]; [[2 Nephi 1.9|2 Ne. 1:9, 20]][[2 Nephi 1.20|]]; [[2 Nephi 4.4|4:4]]; [[Jarom 1.9|Jarom 1:9]]; [[Omni 1.6|Omni 1:6]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Mosiah 2.22|2:22, 31]][[Mosiah 2.31|]]; [[Alma 9.13|Alma 9:13]]; [[Alma 36.1|36:1, 30]][[Alma 36.30|]]; [[Alma 37.13|37:13]]; [[Alma 38.1|38:1]]; [[Alma 48.15|48:15, 25]][[Alma 48.25|]].)
+Missionary work throughout the world is part of his plan. It brings the light of the gospel to those who embrace the truth. Then, as Saints learn and obey the commandments of God, they will prosper. This promise has been recorded by prophets throughout time and in diverse places. (See [[Joshua 1.7|Josh. 1:7]]; [[1 Kings 2.3|1 Kgs. 2:3]]; [[2 Chronicles 24.20|2 Chr. 24:20]]; [[2 Chronicles 31.21|31:21]]; [[Ezra 6.14|Ezra 6:14]]; [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 4.14|4:14]]; [[2 Nephi 1.9|2 Ne. 1:9, 20]][[2 Nephi 1.20|]]; [[2 Nephi 4.4|4:4]]; [[Jarom 1.9|Jarom 1:9]]; [[Omni 1.6|Omni 1:6]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Mosiah 2.22|2:22, 31]][[Mosiah 2.31|]]; [[Alma 9.13|Alma 9:13]]; [[Alma 36.1|36:1, 30]][[Alma 36.30|]]; [[Alma 37.13|37:13]]; [[Alma 38.1|38:1]]; [[Alma 48.15|48:15, 25]][[Alma 48.25|]].)
 
 Working with a will, Saints gain a new appreciation of who they are and of their eternal worth. Righteousness, independence, thrift, industry, and self-reliance become personal goals. These qualities transform lives. In time, in the Lord’s “own way,” the poor will no longer be poor.
 
 The Church of Jesus Christ has been restored to the earth. The power of God is among men. Angelic ministrants communicate to legal administrators once again. A living prophet, the everlasting priesthood, covenant people, and the Lord’s “own way” are upon the earth to bless mankind, all races, in every clime—yes, all people, young and old, wealthy and poor, now and forevermore. This I testify, in the name of Jesus Christ, amen.
-
-
 
 
 

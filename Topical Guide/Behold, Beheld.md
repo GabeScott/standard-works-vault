@@ -1,7 +1,6 @@
 # Behold, Beheld
 
-
-*See also* [[Look.md|Look]]; [[Observe.md|Observe]]; [[See, Saw, Seen.md|See]]
+*See also* [[Look.md|Look]]; [[Observe.md|Observe]]; [[See.md|See]]
 
 when he *beheld* the serpent of brass, he lived, [[Numbers 21.9|Numbers 21:9]].
 
@@ -27,7 +26,7 @@ we *beheld* his glory, [[John 1.14|John 1:14]].
 
 that they may *behold* my glory, [[John 17.24|John 17:24]].
 
-Pilate saith ... *Behold* the man, [[John 19.5|John 19:5]].
+Pilate saith … *Behold* the man, [[John 19.5|John 19:5]].
 
 saith unto the Jews, *Behold* your King, [[John 19.14|John 19:14]].
 

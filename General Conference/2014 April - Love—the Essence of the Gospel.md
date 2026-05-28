@@ -1,6 +1,6 @@
 # Love—the Essence of the Gospel
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -46,7 +46,7 @@ With this one act of loving kindness, Bernice and Arlene became lifelong friends
 
 As a result of the compassion shown by Bernice as she went out of her way to help one whom she didn’t know but who was in distress and needed assistance, countless individuals, both living and dead, now enjoy the saving ordinances of the gospel.
 
-Every day of our lives we are given opportunities to show love and kindness to those around us. Said President Spencer W. Kimball: “We must remember that those mortals we meet in parking lots, offices, elevators, and elsewhere are that portion of mankind God has given us to love and to serve. It will do us little good to speak of the general brotherhood of mankind if we cannot regard those who are all around us as our brothers and sisters.”[^6]
+Every day of our lives we are given opportunities to show love and kindness to those around us. Said President Spencer W. Kimball: “We must remember that those mortals we meet in parking lots, offices, elevators, and elsewhere are that portion of mankind God has given us to love and to serve. It will do us little good to speak of the general brotherhood of mankind if we cannot regard those who are all around us as our brothers and sisters.”[^6]
 
 Often our opportunities to show our love come unexpectedly. An example of such an opportunity appeared in a newspaper article in October 1981. So impressed was I with the love and compassion related therein that I have kept the clipping in my files for over 30 years.
 
@@ -60,7 +60,7 @@ As the flight was about to land in Seattle, the passengers broke into a cheer wh
 
 To my mind come the words of the scripture: “Charity is the pure love of Christ, … and whoso is found possessed of it at the last day, it shall be well with him.”[^8]
 
-Brothers and sisters, some of our greatest opportunities to demonstrate our love will be within the walls of our own homes. Love should be the very heart of family life, and yet sometimes it is not. There can be too much impatience, too much arguing, too many fights, too many tears. Lamented President Gordon B. Hinckley: “Why is it that the \[ones\] we love \[most\] become so frequently the targets of our harsh words? Why is it that \[we\] sometimes speak as if with daggers that cut to the quick?”[^9] The answers to these questions may be different for each of us, and yet the bottom line is that the reasons do not matter. If we would keep the commandment to love one another, we must treat each other with kindness and respect.
+Brothers and sisters, some of our greatest opportunities to demonstrate our love will be within the walls of our own homes. Love should be the very heart of family life, and yet sometimes it is not. There can be too much impatience, too much arguing, too many fights, too many tears. Lamented President Gordon B. Hinckley: “Why is it that the \[ones\] we love \[most\] become so frequently the targets of our harsh words? Why is it that \[we\] sometimes speak as if with daggers that cut to the quick?”[^9] The answers to these questions may be different for each of us, and yet the bottom line is that the reasons do not matter. If we would keep the commandment to love one another, we must treat each other with kindness and respect.
 
 Of course there will be times when discipline needs to be meted out. Let us remember, however, the counsel found in the Doctrine and Covenants—namely, that when it is necessary for us to reprove another, we afterward show forth an increase of love.[^10]
 
@@ -87,26 +87,24 @@ Beyond comprehension, my brothers and sisters, is the love of God for us. Becaus
 
 [^2]: [[Mark 12.31|Mark 12:31]].
 
-[^3]: [[1 John 4.21|1 John 4:21]].
+[^3]: [[1 John 4.21|1 John 4:21]].
 
 [^4]: [[Luke 23.34|Luke 23:34]].
 
-[^5]: Author unknown, in Richard L. Evans, “The Quality of Kindness,” *Improvement Era,* May 1960, 340.
+[^5]: Author unknown, in Richard L. Evans, “The Quality of Kindness,” *Improvement Era,* May 1960, 340.
 
-[^6]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 483.
+[^6]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 483.
 
-[^7]: See “Injured Boy Flown to Safety,” *Daily Sitka Sentinel* (Alaska), Oct. 22, 1981.
+[^7]: See “Injured Boy Flown to Safety,” *Daily Sitka Sentinel* (Alaska), Oct. 22, 1981.
 
 [^8]: [[Moroni 7.47|Moroni 7:47]].
 
-[^9]: Gordon B. Hinckley, “Let Love Be the Lodestar of Your Life,” *Ensign,* May 1989, 67.
+[^9]: Gordon B. Hinckley, “Let Love Be the Lodestar of Your Life,” *Ensign,* May 1989, 67.
 
 [^10]: See [[D&C 121.43|Doctrine and Covenants 121:43]].
 
 [^11]: “Maud Muller,” in *The Complete Poetical Works of John Greenleaf Whittier* (1878), 206; emphasis added.
 
 [^12]: Dale Carnegie, in, for example, Larry Chang, *Wisdom for the Soul* (2006), 54.
-
-
 
 #Forgiveness #Kindness #Love

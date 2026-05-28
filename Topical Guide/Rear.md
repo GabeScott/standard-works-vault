@@ -1,6 +1,5 @@
 # Rear
 
-
 *See also* [[Raise.md|Raise]]
 
 thou shalt *rear* up the tabernacle, [[Exodus 26.30|Exodus 26:30]] ([[Exodus 40.17|Exodus 40:17]]).

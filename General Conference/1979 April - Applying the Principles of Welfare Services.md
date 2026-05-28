@@ -1,6 +1,6 @@
 # Applying the Principles of Welfare Services
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -26,7 +26,7 @@ We see that the Twelve Apostles officiate in the name of the Lord under the dire
 
 In order that the priesthood administration of his church might be complete, the Lord has set forth how “to manage … all things pertaining to the \[presiding\] bishopric” and the manner in which the temporal work of the kingdom is to be accomplished ([[D&C 82.12|D&C 82:12]]). Again from section 107 I quote the following:
 
-“The office of a bishop is in administering all temporal things; …
+“The office of a bishop is in administering all temporal things; …
 
 “Nevertheless, a high priest, that is, after the order of Melchizedek, may be set apart unto the ministering of temporal things, having a knowledge of them by the Spirit of truth;
 
@@ -40,7 +40,7 @@ It should be understood, brothers and sisters, that the establishment of these r
 
 We hope you wonderful stake presidents realize that part of the reason for this step is to lift some of the load from your shoulders. These responsibilities will now largely be shifted to our Regional Representatives so that you can give full attention to the affairs of your own stake. Recognizing this, I would like to speak somewhat on the duties and the privileges of stake presidents as they preside over and conduct the activities of the Church, including the welfare services.
 
-My first impressions of the labor of a stake president came from observing my own father, Andrew Kimball. Father served from 1898 to 1924 as president of the St. Joseph Stake of Zion for twenty-six and a half years. This stake was named in honor of the martyred prophet. Though we as a family lived modestly, Father seemed to find a way not only to teach bishops how to care for the very poor, but on many occasions found it in his heart to help many a downtrodden soul himself. I believe that father so ministered to his people that he fulfilled a blessing given him by President Joseph F. Smith, who promised that the people of the Gila Valley would “seek unto him as children to a parent.” Although I am sure I did not then fully appreciate his example, the standard he set was one worthy of any stake president.
+My first impressions of the labor of a stake president came from observing my own father, Andrew Kimball. Father served from 1898 to 1924 as president of the St. Joseph Stake of Zion for twenty-six and a half years. This stake was named in honor of the martyred prophet. Though we as a family lived modestly, Father seemed to find a way not only to teach bishops how to care for the very poor, but on many occasions found it in his heart to help many a downtrodden soul himself. I believe that father so ministered to his people that he fulfilled a blessing given him by President Joseph F. Smith, who promised that the people of the Gila Valley would “seek unto him as children to a parent.” Although I am sure I did not then fully appreciate his example, the standard he set was one worthy of any stake president.
 
 My father practiced what he preached. He didn’t just tell others to be self-reliant; we were taught to exemplify it as a family. We raised almost all of our own food. He always wanted a garden—he wanted a garden to eat from and a garden to smell. I used to pump the water by hand to water the garden, and also I learned to milk the cows, prune the fruit trees, mend the fences, and all the rest. I had two older brothers, who, I was convinced, took all the easy jobs and left me all the hard ones. But I don’t complain; it made me strong.
 
@@ -80,7 +80,7 @@ There are so many opportunities for service, so many needs to be met. Implementi
 
 After all, this great plan is to bless both giver and receiver, the *givers* knowing that “inasmuch as ye do it unto the least of these, ye \[have done\] it unto me” ([[D&C 42.38|D&C 42:38]]), and the *receiver* knowing that the Lord makes good his promise “to provide for my saints, for all things are mine” ([[D&C 104.15|D&C 104:15]]).
 
-The Church has always been concerned for all the Lord’s children. I recall an intense famine in China in 1907. A resolution was presented to the general conference by President John R. Winder to send twenty tons of flour to the suffering people. Brother B. H. Roberts seconded the resolution with these remarks:
+The Church has always been concerned for all the Lord’s children. I recall an intense famine in China in 1907. A resolution was presented to the general conference by President John R. Winder to send twenty tons of flour to the suffering people. Brother B. H. Roberts seconded the resolution with these remarks:
 
 “No calamity can fall upon any of our Father’s children but what our hearts go out in sympathy to them. I trust also that this movement, which I believe will be unanimously endorsed by this conference, may bear witness to the wisdom that exists in our methods of collecting means for charitable and religious purposes. Thank God, there is an institution in the earth whose charities are constantly accumulating, that in the very moment of need there is a means of ministering unto the children of men—a circumstance that speaks loudly for the divine wisdom that has made these provisions in the Church of Christ. With all my heart I second the resolution of President Winder.” (In Conference Report, Apr. 1907, p. 59.)
 
@@ -102,9 +102,9 @@ We are glad to receive reports regarding the construction of new storehouses, ca
 
 Here is what the Lord counseled the first Presiding Bishop of the Church:
 
-“And again, let the bishop appoint a storehouse unto this church; and let all things both in money and in meat, which are more than is needful for the wants of this people, be kept in the hands of the bishop. …
+“And again, let the bishop appoint a storehouse unto this church; and let all things both in money and in meat, which are more than is needful for the wants of this people, be kept in the hands of the bishop. …
 
-“And thus I grant unto this people a privilege of organizing themselves according to my laws. …
+“And thus I grant unto this people a privilege of organizing themselves according to my laws. …
 
 “Behold, this shall be an example unto my servant Edward Partridge, in other places, in all churches.” ([[D&C 51.13|D&C 51:13, 15, 18]][[D&C 51.15|]][[D&C 51.18|]].)
 
@@ -114,15 +114,13 @@ May I conclude by once again reminding us that we are not about *our* work or *a
 
 “And Zion cannot be built up unless it is by the principles of the law of the celestial kingdom; otherwise I cannot receive her unto myself.
 
-“And my people must needs be chastened until they learn obedience, if it must needs be, by the things which they suffer. …
+“And my people must needs be chastened until they learn obedience, if it must needs be, by the things which they suffer. …
 
-“… Therefore, let us become subject unto her laws.” ([[D&C 105.5|D&C 105:5–6, 32]][[D&C 105.6|]][[D&C 105.32|]].)
+“… Therefore, let us become subject unto her laws.” ([[D&C 105.5|D&C 105:5–6, 32]][[D&C 105.6|]][[D&C 105.32|]].)
 
 Again we express to all of you here our deep gratitude for all that is being done.
 
 I know that God lives, I know this is his work, and I ask him to continue to bless us with inspiration and judgment. In the name of Jesus Christ, amen.
-
-
 
 
 

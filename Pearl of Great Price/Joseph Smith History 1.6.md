@@ -5,5 +5,5 @@
 [Joseph Smith History 1:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.6?lang=eng#p6)
 
 
-[^a]: [[1 Peter 1.22|1 Pet. 1:22.]]
-[^b]: TG [[Guile]]; [[Hypocrisy, Hypocrite]].
+[^a]: [[1 Peter 1.22|1 Pet. 1:22]].  
+[^b]: [[Guile|TG Guile]]; [[Hypocrisy, Hypocrite|Hypocrisy]].  

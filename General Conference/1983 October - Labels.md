@@ -1,6 +1,6 @@
 # Labels
 
-By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -14,7 +14,7 @@ During a recent visit to the National Gallery, I was surprised to see displayed 
 
 “The information on labels on paintings can often affect, half-unconsciously, our estimate of them; and here labeling has been deliberately subordinate in the hope that visitors will read only after they have looked and made their own assessment of each work.”
 
-Like the labels on paintings are the outward appearances of some men—often misleading. The Master declared to one group: “Woe unto you, scribes and Pharisees, hypocrites! for ye are like unto whited sepulchres, which indeed appear beautiful outward, but are within full of dead men’s bones, and of all uncleanness. …
+Like the labels on paintings are the outward appearances of some men—often misleading. The Master declared to one group: “Woe unto you, scribes and Pharisees, hypocrites! for ye are like unto whited sepulchres, which indeed appear beautiful outward, but are within full of dead men’s bones, and of all uncleanness. …
 
 “Ye … outwardly appear righteous unto men, but within ye are full of hypocrisy and iniquity.” ([[Matthew 23.27|Matt. 23:27–28]][[Matthew 23.28|]].)
 
@@ -28,11 +28,11 @@ As the poet expressed:
 >A boy once used to be.
 >
 
-At another time, and in a distant place, the boy Samuel must have appeared like any lad his age as he ministered unto the Lord before Eli. As Samuel lay down to sleep and heard the voice of the Lord calling him, Samuel mistakenly thought it was aged Eli calling and responded, “Here am I.” ([[1 Samuel 3.4|1 Sam. 3:4]].) However, after Eli had listened to the boy’s account and told him it was of the Lord, Samuel followed Eli’s counsel and subsequently responded to the Lord’s call with the memorable reply, “Speak; for thy servant heareth.” ([[1 Samuel 3.10|1 Sam. 3:10]].) The record then reveals that “Samuel grew, and the Lord was with him. …
+At another time, and in a distant place, the boy Samuel must have appeared like any lad his age as he ministered unto the Lord before Eli. As Samuel lay down to sleep and heard the voice of the Lord calling him, Samuel mistakenly thought it was aged Eli calling and responded, “Here am I.” ([[1 Samuel 3.4|1 Sam. 3:4]].) However, after Eli had listened to the boy’s account and told him it was of the Lord, Samuel followed Eli’s counsel and subsequently responded to the Lord’s call with the memorable reply, “Speak; for thy servant heareth.” ([[1 Samuel 3.10|1 Sam. 3:10]].) The record then reveals that “Samuel grew, and the Lord was with him. …
 
-“And all Israel from Dan even to Beer-sheba knew that Samuel was established to be a prophet of the Lord.” ([[1 Samuel 3.19|1 Sam. 3:19–20]][[1 Samuel 3.20|]].)
+“And all Israel from Dan even to Beer-sheba knew that Samuel was established to be a prophet of the Lord.” ([[1 Samuel 3.19|1 Sam. 3:19–20]][[1 Samuel 3.20|]].)
 
-The years rolled by, as they relentlessly do, and prophecy came to fulfillment when a lowly manger cradled a newborn child. No label could describe this event. With the birth of the babe in Bethlehem, there emerged a great endowment, a power stronger than weapons, a wealth more lasting than the coins of Caesar. This child, born in such primitive circumstances, was to be the “King of kings and Lord of lords” ([[1 Timothy 6.15|1 Tim. 6:15]]), the promised Messiah—even Jesus Christ, the Son of God.
+The years rolled by, as they relentlessly do, and prophecy came to fulfillment when a lowly manger cradled a newborn child. No label could describe this event. With the birth of the babe in Bethlehem, there emerged a great endowment, a power stronger than weapons, a wealth more lasting than the coins of Caesar. This child, born in such primitive circumstances, was to be the “King of kings and Lord of lords” ([[1 Timothy 6.15|1 Tim. 6:15]]), the promised Messiah—even Jesus Christ, the Son of God.
 
 As a boy, Jesus was found in the temple, “sitting in the midst of the doctors, both hearing them, and asking them questions.
 
@@ -62,11 +62,11 @@ I first met Gustav Wacker when I noticed that his tithing paid was far in excess
 
 Gustav and Margarete Wacker established a home that was a heaven. They were not blessed with children but mothered and fathered their many Church visitors. A sophisticated and learned leader from Ottawa told me, “I like to visit President Wacker. I come away refreshed in spirit and determined to ever live close to the Lord.”
 
-Did our Heavenly Father honor such abiding faith? The branch prospered. The membership outgrew the rented Slovakian Hall and moved into a modern and lovely chapel of their own. President and Sister Wacker had their prayers answered by serving a proselyting mission to their native Germany and later a temple mission to the beautiful temple in Washington, D.C. Then, just three months ago, his mission in mortality concluded, Gustav Wacker passed away peacefully while being held in the loving arms of his eternal companion. Only one label appears fitting for such an obedient and faithful servant: “Who honors God, God honors.” (See [[1 Samuel 2.30|1 Sam. 2:30]].)
+Did our Heavenly Father honor such abiding faith? The branch prospered. The membership outgrew the rented Slovakian Hall and moved into a modern and lovely chapel of their own. President and Sister Wacker had their prayers answered by serving a proselyting mission to their native Germany and later a temple mission to the beautiful temple in Washington, D.C. Then, just three months ago, his mission in mortality concluded, Gustav Wacker passed away peacefully while being held in the loving arms of his eternal companion. Only one label appears fitting for such an obedient and faithful servant: “Who honors God, God honors.” (See [[1 Samuel 2.30|1 Sam. 2:30]].)
 
 A label frequently seen and grudgingly borne is one which reads: “Handicapped.”
 
-Years ago, President Spencer W. Kimball shared with President Gordon B. Hinckley, Elder Bruce R. McConkie, and me an experience he had in the appointment of a patriarch for the Shreveport Louisiana Stake of the Church. President Kimball described how he interviewed, how he searched, and how he prayed, that he might learn the Lord’s will concerning the selection. For some reason, none of the suggested candidates was the man for this assignment at this particular time.
+Years ago, President Spencer W. Kimball shared with President Gordon B. Hinckley, Elder Bruce R. McConkie, and me an experience he had in the appointment of a patriarch for the Shreveport Louisiana Stake of the Church. President Kimball described how he interviewed, how he searched, and how he prayed, that he might learn the Lord’s will concerning the selection. For some reason, none of the suggested candidates was the man for this assignment at this particular time.
 
 The day wore on. The evening meetings began. Suddenly President Kimball turned to the stake president and asked him to identify a particular man seated perhaps two-thirds of the way back from the front of the chapel. The stake president replied that the individual was James Womack, whereupon President Kimball said, “He is the man the Lord has selected to be your stake patriarch. Please have him meet with me in the high council room following the meeting.”
 
@@ -80,13 +80,11 @@ Brother Kimball, in his kind and patient manner, invited Brother Womack to make 
 
 President Kimball reported to us that when the name of James Womack was presented to the stake conference, “the hands of the members shot heavenward in an enthusiastic vote of approval.”
 
-The word of the Lord to the prophet Samuel at the time David was designated to be a future king of Israel provided a fitting label for the occasion. It certainly was the thought of each faithful member: “Man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
+The word of the Lord to the prophet Samuel at the time David was designated to be a future king of Israel provided a fitting label for the occasion. It certainly was the thought of each faithful member: “Man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
 
 Like a golden thread woven through the tapestry of life is the message on the label of a humble heart. It was true of the boy Samuel, it was the experience of Jesus, it was the testimony of Gustav Wacker, it marked the calling of James Womack. May it ever be the label which identifies each of us: “Lord, here am I.” In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Attitude #Disabilities #Faith #Humility #Jesus_Christ #Judging #Service #Spirituality
+#Attitude #Disabilities #Faith #Humility #Judging #JesusChrist #Service #Spirituality

@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:50](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.50?lang=eng#p50)
 
 
-[^a]: TG [[Millennium, Preparing a People for]].
+[^a]: [[Millennium, Preparing a People for|TG Millennium, Preparing a People for]].  

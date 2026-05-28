@@ -1,9 +1,8 @@
 # Slack
 
-
 he will not be *slack* to him that hateth him, [[Deuteronomy 7.10|Deuteronomy 7:10]].
 
-vow ... thou shalt not *slack* to pay it, [[Deuteronomy 23.21|Deuteronomy 23:21]].
+vow … thou shalt not *slack* to pay it, [[Deuteronomy 23.21|Deuteronomy 23:21]].
 
 How long are ye *slack* to go to possess the land, [[Joshua 18.3|Joshua 18:3]].
 

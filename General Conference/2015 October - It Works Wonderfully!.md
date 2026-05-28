@@ -1,6 +1,6 @@
 # It Works Wonderfully!
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -147,13 +147,13 @@ This is my hope, my prayer, my testimony, and my blessing in the name of Jesus C
 
 [^5]: See [[Judges 6.12|Judges 6:12–16]][[Judges 6.13|]][[Judges 6.14|]][[Judges 6.15|]][[Judges 6.16|]].
 
-[^6]: See [[1 Samuel 9.21|1 Samuel 9:21]].
+[^6]: See [[1 Samuel 9.21|1 Samuel 9:21]].
 
-[^7]: [[1 Samuel 9.2|1 Samuel 9:2]].
+[^7]: [[1 Samuel 9.2|1 Samuel 9:2]].
 
 [^8]: See [[Numbers 11.14|Numbers 11:14–15]][[Numbers 11.15|]].
 
-[^9]: See [[1 John 3.1|1 John 3:1–3]][[1 John 3.2|]][[1 John 3.3|]].
+[^9]: See [[1 John 3.1|1 John 3:1–3]][[1 John 3.2|]][[1 John 3.3|]].
 
 [^10]: [[Ether 12.27|Ether 12:27]].
 
@@ -167,12 +167,10 @@ This is my hope, my prayer, my testimony, and my blessing in the name of Jesus C
 
 [^15]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-[^16]: See [[1 Samuel 10.9|1 Samuel 10:9]].
+[^16]: See [[1 Samuel 10.9|1 Samuel 10:9]].
 
 [^17]: See [[Matthew 6.22|Matthew 6:22]].
 
-[^18]: [[2 Corinthians 11.3|2 Corinthians 11:3]].
+[^18]: [[2 Corinthians 11.3|2 Corinthians 11:3]].
 
-
-
-#Church_Membership #Discipleship #Divine_Nature #Grace #Plan_Of_Salvation #Truth
+#ChurchMembership #Discipleship #DivineNature #Grace #PlanOfSalvation #Truth

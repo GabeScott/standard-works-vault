@@ -30,13 +30,13 @@ At one point in the king’s sermon, when he had just borne witness to the peopl
 
 And that is because the Spirit cannot be restrained when pure testimony of Christ is borne. Thus, King Benjamin’s people were so inspired by his testimony that their lives were changed right there, on the spot, and they became as new people.
 
-Remember also Abinadi and Alma. Abinadi infuriated wicked King Noah with his courageous testimony of the Lord Jesus Christ. Eventually this great missionary offered the ultimate sacrifice for his witness and faith but not before his pure testimony touched one believing heart. Alma, one of King Noah’s priests, “repented of his sins … , \[accepted Jesus as the Christ,\] and went about privately among the people, and began to teach the words of Abinadi” ([[Mosiah 18.1|Mosiah 18:1]]). Many were converted to the gospel of Jesus Christ as a direct result of Abinadi’s powerfully borne testimony of the Savior, believed by one soul—Alma.
+Remember also Abinadi and Alma. Abinadi infuriated wicked King Noah with his courageous testimony of the Lord Jesus Christ. Eventually this great missionary offered the ultimate sacrifice for his witness and faith but not before his pure testimony touched one believing heart. Alma, one of King Noah’s priests, “repented of his sins … , \[accepted Jesus as the Christ,\] and went about privately among the people, and began to teach the words of Abinadi” ([[Mosiah 18.1|Mosiah 18:1]]). Many were converted to the gospel of Jesus Christ as a direct result of Abinadi’s powerfully borne testimony of the Savior, believed by one soul—Alma.
 
 The Apostle Paul also bore fervent testimony of Christ and converted many through his missionary labors. He did not shrink in bearing his testimony before King Agrippa. So mighty were his words that even this influential representative of the Roman Empire was moved to exclaim, “Almost thou persuadest me to be a Christian” ([[Acts 26.28|Acts 26:28]]).
 
 The lesson, I believe, is clear: having a testimony alone is not enough. In fact, when we are truly converted, we cannot be restrained from testifying. And as it was with Apostles and faithful members of old, so is it also our privilege, our duty, and our solemn obligation to “declare the things which \[we\] know to be true” ([[D&C 80.4|D&C 80:4]]).
 
-Again, please keep in mind that we are talking about sharing real testimony, not just speaking generally about the things we are thankful for. While it is always good to express love and gratitude, such expressions do not constitute the kind of testimony that will ignite a fire of belief in the lives of others. To bear testimony is “to bear witness by the power of the Holy Ghost; to make a solemn declaration of truth based on personal knowledge or belief” (Guide to the Scriptures, “Testify,” 241). Clear declaration of truth makes a difference in people’s lives. That is what changes hearts. That is what the Holy Ghost can confirm in the hearts of God’s children.
+Again, please keep in mind that we are talking about sharing real testimony, not just speaking generally about the things we are thankful for. While it is always good to express love and gratitude, such expressions do not constitute the kind of testimony that will ignite a fire of belief in the lives of others. To bear testimony is “to bear witness by the power of the Holy Ghost; to make a solemn declaration of truth based on personal knowledge or belief” (Guide to the Scriptures, “[Testify](https://www.churchofjesuschrist.org/study/scriptures/gs/testify?lang=eng&id=p1#p1),” 241). Clear declaration of truth makes a difference in people’s lives. That is what changes hearts. That is what the Holy Ghost can confirm in the hearts of God’s children.
 
 Although we can have testimonies of many things as members of the Church, there are basic truths we need to constantly teach one another and share with those not of our faith. Testify that God is our Father and Jesus is the Christ. The plan of salvation is centered on the Savior’s Atonement. Joseph Smith restored the fulness of the everlasting gospel of Jesus Christ, and the Book of Mormon is evidence that our testimony is true.
 
@@ -61,6 +61,4 @@ May the Lord bless you as you continue to nurture your testimonies through your 
 
 
 
-
-
-#Holy_Ghost #Jesus_Christ #Missionary_Work #Restoration #Testimony
+#HolyGhost #JesusChrist #MissionaryWork #Restoration #Testimony

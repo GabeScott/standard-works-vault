@@ -104,7 +104,7 @@ Every child, with few possible exceptions, is the product of a home, be it good,
 
 I speak to fathers and mothers everywhere with a plea to put harshness behind us, to bridle our anger, to lower our voices, and to deal with mercy and love and respect one toward another in our homes.
 
-As Elder James E. Talmage once wrote: “Religion without morality, professions of godliness without charity, church-membership without adequate responsibility as to individual conduct in daily life, are but as sounding brass and tinkling cymbals. … ‘Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.’ Honesty of purpose, integrity of soul, individual purity, \[absolute\] freedom of conscience, willingness to do good to all men even enemies, pure benevolence—these are some of the fruits by which the religion of Christ may be known, far exceeding in importance and value the promulgation of dogmas and the enunciation of theories” (*Articles of Faith,* 12th ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924\], p. 429).
+As Elder James E. Talmage once wrote: “Religion without morality, professions of godliness without charity, church-membership without adequate responsibility as to individual conduct in daily life, are but as sounding brass and tinkling cymbals. … ‘Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.’ Honesty of purpose, integrity of soul, individual purity, \[absolute\] freedom of conscience, willingness to do good to all men even enemies, pure benevolence—these are some of the fruits by which the religion of Christ may be known, far exceeding in importance and value the promulgation of dogmas and the enunciation of theories” (*Articles of Faith,* 12th ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924\], p. 429).
 
 In that same vein the Lord in modern revelation has enjoined us, “Succor the weak, lift up the hands which hang down, and strengthen the feeble knees” ([[D&C 81.5|D&C 81:5]]).
 
@@ -129,8 +129,6 @@ I am confident that a time will come for each of us when, whether because of sic
 “Great shall be their reward and eternal shall be their glory” ([[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]]; italics added).
 
 Of these things I bear witness as I testify that God our Eternal Father lives, that He is a God of mercy, that His Son gave His life in a great merciful atonement for each of us, and that we shall be the beneficiaries of that mercy as we extend it to others, in the name of Jesus Christ, amen.
-
-
 
 
 

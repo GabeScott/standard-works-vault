@@ -24,7 +24,7 @@ When you feel you can do no more, temporarily lay your challenges at His feet. T
 
 Submitting “cheerfully and with patience” to all His will lets you learn precious if difficult lessons and eternal truths that will yield blessings.[^5] The example of Alma and Amulek is enlightening. While striving to do good among the people of Ammonihah, they were taken captive. Amulek trusted his more seasoned companion, Alma, who led him to greater confidence in the Lord. Forced to observe women and children consumed by fire, Amulek said, “Perhaps they will burn us also.” Alma answered, *“Be it according to the will of the Lord”*—a vital principle. “But … our work is not finished; therefore they burn us not.”[^6]
 
-The chief judge and others over many days smote, spit upon, starved, questioned, and harassed them with mocking words and threats. Though commanded to speak, they withstood, bound and naked, in silence waiting patiently for the Lord to inspire them to act. Then “the power of God was upon Alma and Amulek, and they rose.” Alma cried, “Give us strength *according to our faith which is in Christ, even unto deliverance.* And they broke the cords with which they were bound.”[^7] The earth shook; the prison walls were rent. All who smote Alma and Amulek were slain, and they were freed. On another occasion Alma prayed, “O Lord … , have mercy on this man, and heal him *according to his faith which is in Christ.”*[^8]
+The chief judge and others over many days smote, spit upon, starved, questioned, and harassed them with mocking words and threats. Though commanded to speak, they withstood, bound and naked, in silence waiting patiently for the Lord to inspire them to act. Then “the power of God was upon Alma and Amulek, and they rose.” Alma cried, “Give us strength *according to our faith which is in Christ, even unto deliverance.* And they broke the cords with which they were bound.”[^7] The earth shook; the prison walls were rent. All who smote Alma and Amulek were slain, and they were freed. On another occasion Alma prayed, “O Lord … , have mercy on this man, and heal him *according to his faith which is in Christ.”*[^8]
 
 These two examples give the essential key to healing. The Lord will give relief with divine power when you seek deliverance in humility and *faith in Jesus Christ.*
 
@@ -61,9 +61,9 @@ If you are caught on a plateau of spiritual healing and don’t seem to be makin
 
 
 
-[^1]: [[Malachi 4.2|Mal. 4:2]]; [[2 Nephi 25.13|2 Ne. 25:13]].
+[^1]: [[Malachi 4.2|Mal. 4:2]]; [[2 Nephi 25.13|2 Ne. 25:13]].
 
-[^2]: [[2 Corinthians 12.7|2 Cor. 12:7–9]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]].
+[^2]: [[2 Corinthians 12.7|2 Cor. 12:7–9]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]].
 
 [^3]: [[Matthew 11.29|Matt. 11:29–30]][[Matthew 11.30|]].
 
@@ -73,48 +73,46 @@ If you are caught on a plateau of spiritual healing and don’t seem to be makin
 
 [^6]: [[Alma 14.12|Alma 14:12–13]][[Alma 14.13|]]; emphasis added.
 
-[^7]: [[Alma 14.15|Alma 14:26]][[Alma 14.19|]][[Alma 14.24|]][[Alma 14.25|]][[Alma 14.26|]]; emphasis added; see [[Alma 14.15|vv. 15–26.]][[Alma 14.16|]][[Alma 14.17|]][[Alma 14.18|]][[Alma 14.19|]][[Alma 14.20|]][[Alma 14.21|]][[Alma 14.22|]][[Alma 14.23|]][[Alma 14.24|]][[Alma 14.25|]][[Alma 14.26|]]
+[^7]: [[Alma 14.15|Alma 14:26]][[Alma 14.19|]][[Alma 14.24|]][[Alma 14.25|]][[Alma 14.26|]]; emphasis added; see [[Alma 14.15|vv. 15–26.]][[Alma 14.16|]][[Alma 14.17|]][[Alma 14.18|]][[Alma 14.19|]][[Alma 14.20|]][[Alma 14.21|]][[Alma 14.22|]][[Alma 14.23|]][[Alma 14.24|]][[Alma 14.25|]][[Alma 14.26|]]
 
 [^8]: [[Alma 15.10|Alma 15:10]]; emphasis added.
 
-[^9]: See Harold B. Lee, *Stand Ye in Holy Places* (Salt Lake City: Deseret Book Co., 1974), pp. 241–42.
+[^9]: See Harold B. Lee, *Stand Ye in Holy Places* (Salt Lake City: Deseret Book Co., 1974), pp. 241–42.
 
 [^10]: See [[Enos 1.15|Enos 1:15–18]][[Enos 1.16|]][[Enos 1.17|]][[Enos 1.18|]].
 
-[^11]: See Marion G. Romney, in Conference Report, Oct. 1969, pp. 57–60; or *Improvement Era,* Dec. 1969, pp. 66–69.
+[^11]: See Marion G. Romney, in Conference Report, Oct. 1969, pp. 57–60; or *Improvement Era,* Dec. 1969, pp. 66–69.
 
 [^12]: See [[Helaman 3.35|Hel. 3:35]].
 
 [^13]: See [[Ether 12.27|Ether 12:27–31]][[Ether 12.28|]][[Ether 12.29|]][[Ether 12.30|]][[Ether 12.31|]].
 
-[^14]: See [[2 Timothy 3.14|2 Tim. 3:14–17]][[2 Timothy 3.15|]][[2 Timothy 3.16|]][[2 Timothy 3.17|]].
+[^14]: See [[2 Timothy 3.14|2 Tim. 3:14–17]][[2 Timothy 3.15|]][[2 Timothy 3.16|]][[2 Timothy 3.17|]].
 
-[^15]: [[3 Nephi 17.8|3 Ne. 17:8]].
+[^15]: [[3 Nephi 17.8|3 Ne. 17:8]].
 
-[^16]: [[3 Nephi 18.32|3 Ne. 18:32]].
+[^16]: [[3 Nephi 18.32|3 Ne. 18:32]].
 
-[^17]: [[3 Nephi 9.13|3 Ne. 9:13]]; see also [[D&C 112.13|D&C 112:13]].
+[^17]: [[3 Nephi 9.13|3 Ne. 9:13]]; see also [[D&C 112.13|D&C 112:13]].
 
 [^18]: [[Mosiah 7.33|Mosiah 7:33]].
 
 [^19]: See Bruce R. McConkie, *The Mortal Messiah,* 4 vols. (Salt Lake City: Deseret Book Co., 1979–81), 3:28–29.
 
-[^20]: See *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), pp. 510–11.
+[^20]: See *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), pp. 510–11.
 
-[^21]: See James E. Talmage, *The Articles of Faith,* 12th ed. (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924), p. 226.
+[^21]: See James E. Talmage, *The Articles of Faith,* 12th ed. (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924), p. 226.
 
-[^22]: See *Discourses of Brigham Young,* sel. John A. Widtsoe (Salt Lake City: Deseret Book Co., 1941), p. 163.
+[^22]: See *Discourses of Brigham Young,* sel. John A. Widtsoe (Salt Lake City: Deseret Book Co., 1941), p. 163.
 
 [^23]: [[D&C 10.43|D&C 10:43]].
 
 [^24]: [[Galatians 6.2|Gal. 6:2]].
 
-[^25]: *The Teachings of Spencer W. Kimball,* p. 252.
+[^25]: *The Teachings of Spencer W. Kimball,* p. 252.
 
-[^26]: See Richard G. Scott, in Conference Report, Apr. 1992, pp. 43–46; or *Ensign,* May 1992, pp. 31–33.
+[^26]: See Richard G. Scott, in Conference Report, Apr. 1992, [[1992 April - Healing the Tragic Scars of Abuse.md|pp. 43–46]]; or *Ensign,* May 1992, pp. 31–33.
 
 [^27]: [[Mosiah 24.15|Mosiah 24:15]].
 
-
-
-#Adversity #Atonement #Charity #Faith #Forgiveness #Healing #Jesus_Christ #Love #Miracles #Patience #Satan
+#Adversity #Atonement #Charity #Faith #Forgiveness #Healing #JesusChrist #Love #Miracles #Patience #Satan

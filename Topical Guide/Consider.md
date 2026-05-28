@@ -1,7 +1,6 @@
 # Consider
 
-
-priest shall *consider* ... if the leprosy, [[Leviticus 13.13|Leviticus 13:13]].
+priest shall *consider* … if the leprosy, [[Leviticus 13.13|Leviticus 13:13]].
 
 they would *consider* their latter end, [[Deuteronomy 32.29|Deuteronomy 32:29]].
 

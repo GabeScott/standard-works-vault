@@ -14,11 +14,11 @@ We visited the Saints in New Zealand and felt the same sweet spirit. Our spirits
 
 We felt the spirit of missionary work as we literally watched the prophecies unfold that the gospel of Jesus Christ should be taken to every nation, kindred, tongue, and people. (See [[Mosiah 15.28|Mosiah 15:28]].) I am grateful for the spirit of the gospel, the spirit of missionary work, and the spiritual leadership of great latter-day leaders. I support and sustain them with all my heart.
 
-I have observed from many years of activity in the Church that there are some underlying principles of leadership that cause men to become great. There is a certain spiritual ingredient necessary in all areas of activity if we are to reach the pinnacle of performance. George Washington, father of our country, was on his knees at Valley Forge, seeking the spirit and the direction of God. Abraham Lincoln, as he stood on the platform of the train as it left Springfield, Illinois, for Washington, D.C., where he was to be President of the United States, said this: “Without the assistance of that Divine Being … , I cannot succeed. With that assistance, I cannot fail.” (Ida M. Tarbell, ed., *Selections from the Letters, Speeches, and State Papers of Abraham Lincoln,* Boston: Ginn and Co., 1911, p. 63.)
+I have observed from many years of activity in the Church that there are some underlying principles of leadership that cause men to become great. There is a certain spiritual ingredient necessary in all areas of activity if we are to reach the pinnacle of performance. George Washington, father of our country, was on his knees at Valley Forge, seeking the spirit and the direction of God. Abraham Lincoln, as he stood on the platform of the train as it left Springfield, Illinois, for Washington, D.C., where he was to be President of the United States, said this: “Without the assistance of that Divine Being … , I cannot succeed. With that assistance, I cannot fail.” (Ida M. Tarbell, ed., *Selections from the Letters, Speeches, and State Papers of Abraham Lincoln,* Boston: Ginn and Co., 1911, p. 63.)
 
 These same principles of spiritual leadership caused Moses, Nephi, Abraham, and Enoch to become giants in the land. What powers of the spirit did David use as he walked out on the battlefield to meet Goliath? He said, “Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied.
 
-“This day will the Lord deliver thee into mine hand.” ([[1 Samuel 17.45|1 Sam. 17:45–46]][[1 Samuel 17.46|]].)
+“This day will the Lord deliver thee into mine hand.” ([[1 Samuel 17.45|1 Sam. 17:45–46]][[1 Samuel 17.46|]].)
 
 What source of power did Moses use as he stretched his arm toward the Red Sea and caused the waters to roll back and his people to cross on dry land?
 
@@ -39,8 +39,6 @@ As President Romney once said, “May we recognize that prayer is the instrument
 I bear my witness that God lives, that the gospel of Jesus Christ is true, that a prophet of God leads this Church today, that life is eternal. I believe that man was “overbuilt” for this world. Have you ever seen a man who was totally satisfied with what he has here? There seems to be a yearning, a longing, a reaching up for something not had here. I think a wise man of old described it best when he said, “Surely God has planted the seeds of eternity into the souls of men.”
 
 I bear witness he has planted those seeds, and I pledge all that I have for the building of the kingdom of God in this work in these latter days, and I confirm this witness and this pledge in the name of Jesus Christ, amen.
-
-
 
 
 

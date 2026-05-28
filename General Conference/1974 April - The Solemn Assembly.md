@@ -1,6 +1,6 @@
 # The Solemn Assembly
 
-By Presented by President N. Eldon Tanner - *First Counselor in the First Presidency*
+By Presented by President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -136,43 +136,19 @@ President Kimball, so far as noted, the last vote and all the other votes preced
 
 We shall next vote to sustain the president of the Quorum of the Twelve and then to sustain all the members of the Quorum.
 
-The *First Presidency* will please arise.
-
 It is proposed that we sustain *Ezra Taft Benson* as president of the Quorum of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints.
 
-Those in favor will raise their right hands; those opposed will manifest it by the same sign.
-
-It is proposed that we sustain as members of the Quorum of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints: Ezra Taft Benson, Mark E. Petersen, Delbert L. Stapley, LeGrand Richards, Hugh B. Brown, Howard W. Hunter, Gordon B. Hinckley, Thomas S. Monson, Boyd K. Packer, Marvin J. Ashton, Bruce R. McConkie, and L. Tom Perry.
-
-The First Presidency will please be seated.
-
-The *Quorum of the Twelve* will please arise.
+It is proposed that we sustain as members of the Quorum of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints: Ezra Taft Benson, Mark E. Petersen, Delbert L. Stapley, LeGrand Richards, Hugh B. Brown, Howard W. Hunter, Gordon B. Hinckley, Thomas S. Monson, Boyd K. Packer, Marvin J. Ashton, Bruce R. McConkie, and L. Tom Perry.
 
 The Quorum of the Twelve will please be seated.
 
-The *patriarchs of the Church* here assembled, including the Patriarch to the Church, will please arise.
-
-The patriarchs of the Church will please be seated.
-
 The *high priests of the Church* here assembled, including the Assistants to the Twelve, Regional Representatives of the Twelve, Mission Representatives of the Twelve and First Council of the Seventy, the presidents of stakes and their counselors, the high councilors, the presidencies of quorums, the quorum members, the Presiding Bishopric, and ward bishoprics, will please arise.
-
-The high priests of the Church will please be seated.
 
 The *seventies of the Church* here assembled, including the Presidents of the First Council of the Seventy, the presidencies of other quorums, and quorum members, will please arise.
 
-The seventies of the Church will please be seated.
-
-The *elders of the Church* here assembled, including the presidencies of quorums and quorum members, will please arise.
-
-The elders of the Church will please be seated.
-
 The *Aaronic Priesthood of the Church* here assembled, including the presidencies of teachers and deacons quorums, and members of priests, teachers, and deacons quorums will please arise.
 
-The Aaronic Priesthood of the Church will please be seated.
-
 The *entire congregation* of the Church here assembled, all the members of the Church, those bearing the priesthood, and those not bearing it, will pelase arise. Again we suggest that those seated in the Assembly Hall, and those listening by radio or viewing these services on television, arise and join in this voting.
-
-The congregation will please be seated.
 
 So far as observed, this voting was unanimous in the affirmative.
 
@@ -180,41 +156,15 @@ So far as observed, this voting was unanimous in the affirmative.
 
 We shall next vote to sustain the Patriarch to the Church.
 
-The *First Presidency* will please arise.
-
-It is proposed that we sustain *Eldred G. Smith* as Patriarch to the Church.
-
-Those in favor will raise their right hands; those opposed will manifest it by the same sign.
-
-The First Presidency will please be seated.
+It is proposed that we sustain *Eldred G. Smith* as Patriarch to the Church.
 
 The *Quorum of the Twelve* will please arise:
 
-The Quorum of the Twelve will please be seated.
-
-The *patriarchs of the Church* here assembled, including the Patriarch to the Church, will please arise.
-
-The patriarchs of the Church will please be seated.
-
 The *high priests of the Church* here assembled, including the Assistants to the Twelve, the Regional Representatives of the Twelve, the Mission Representatives of the Twelve and First Council of the Seventy, the presidents of stakes and their counselors, the high councilors, the presidencies of quorums, the quorum members, the Presiding Bishopric and ward bishoprics will please arise.
-
-The high priests of the Church will please be seated.
-
-The *seventies of the Church* here assembled, including the Presidents of the First Council of the Seventy, the presidencies of other quorums, and quorum members, will please arise.
-
-The seventies of the Church will please be seated.
-
-The *elders of the Church* here assembled, including the presidencies of quorums and quorum members, will please arise.
-
-The elders of the Church will please be seated.
 
 The *Aaronic Priesthood* of the Church here assembled, including the presidencies of teachers and deacons quorums, and members of priests, teachers, and deacons quorums, will please arise.
 
-The Aaronic Priesthood of the Church will please be seated.
-
 The *entire congregation of the Church* here assembled, all the members of the Church, those bearing the priesthood and those not bearing it, will please arise. Again will those in the Assembly Hall, and those listening by radio or viewing these services on television, arise and join in the voting.
-
-The congregation will please be seated.
 
 This vote was likewise unanimous in the affirmative.
 
@@ -222,41 +172,11 @@ This vote was likewise unanimous in the affirmative.
 
 We shall next vote to sustain the prophets, seers, and revelators to the Church.
 
-The *First Presidency* will please arise.
-
 It is proposed that we sustain the counselors in the First Presidency, the Twelve Apostles, and the Patriarch to the Church, as prophets, seers, and revelators.
-
-Those in favor will raise their right hands; those opposed will manifest it by the same sign.
-
-The First Presidency will please be seated.
-
-The *Quorum of the Twelve* will please arise.
-
-The Quorum of the Twelve will please be seated.
-
-The *patriarchs of the Church* here assembled, including the Patriarch to the Church, will please arise.
-
-The patriarchs of the Church will please be seated.
 
 The *high priests of the Church* here assembled, including the Assistants to the Twelve, the Regional Representatives of the Twelve, the Mission Representatives of the Twelve and First Council of the Seventy, the presidents of stakes and their counselors, the high councilors, the presidencies of quorums, the quorum members, the Presiding Bishopric, and ward bishoprics, will please arise.
 
-The high priests of the Church will please be seated.
-
-The *seventies of the Church* here assembled, including the Presidents of the First Council of the Seventy, the presidencies of other quorums, and quorum members, will please arise.
-
-The seventies of the Church will please be seated.
-
-The *elders of the Church* here assembled, including the presidencies of quorums and quorum members, will please arise.
-
-The elders of the Church will please be seated.
-
-The *Aaronic Priesthood of the Church* here assembled, including the presidencies of teachers and deacons quorums, and members of priests, teachers, and deacons quorums, will please arise.
-
-The Aaronic Priesthood of the Church will please be seated.
-
 The *entire congregation of the Church* here assembled, all the members of the Church, those bearing the priesthood, and those not bearing it, will please arise. Once more we suggest that those in the Assembly Hall, and those listening by radio or viewing these services on television, also arise and join in the voting.
-
-The congregation will please be seated.
 
 President Kimball, so far as observed, the voting on this proposal was unanimous in the affirmative.
 
@@ -266,41 +186,41 @@ It is proposed that we sustain as the Assistants to the Twelve:
 
 - Alma Sonne
 
-- ElRay L. Christiansen
+- ElRay L. Christiansen
 
-- Sterling W. Sill
+- Sterling W. Sill
 
-- Henry D. Taylor
+- Henry D. Taylor
 
-- Alvin R. Dyer
+- Alvin R. Dyer
 
-- Franklin D. Richards
+- Franklin D. Richards
 
-- Theodore M. Burton
+- Theodore M. Burton
 
-- Bernard P. Brockbank
+- Bernard P. Brockbank
 
-- James A. Cullimore
+- James A. Cullimore
 
-- Marion D. Hanks
+- Marion D. Hanks
 
 - Joseph Anderson
 
-- David B. Haight
+- David B. Haight
 
-- William H. Bennett
+- William H. Bennett
 
-- John H. Vandenberg
+- John H. Vandenberg
 
-- Robert L. Simpson
+- Robert L. Simpson
 
-- O. Leslie Stone
+- O. Leslie Stone
 
-- James E. Faust
+- James E. Faust
 
-- J. Thomas Fyans
+- J. Thomas Fyans
 
-- Neal A. Maxwell
+- Neal A. Maxwell
 
 It is proposed that we sustain *Spencer Woolley Kimball* as Trustee-in-Trust for The Church of Jesus Christ of Latter-day Saints.
 
@@ -308,25 +228,25 @@ It is proposed that we sustain as The First Council of the Seventy:
 
 - Seymour Dilworth Young
 
-- Milton R. Hunter
+- Milton R. Hunter
 
 - Albert Theodore Tuttle
 
-- Paul H. Dunn
+- Paul H. Dunn
 
 - Hartman Rector, Jr.
 
-- Loren C. Dunn
+- Loren C. Dunn
 
-- Rex D. Pinegar
+- Rex D. Pinegar
 
 It is proposed that we sustain as the Presiding Bishopric of the Church:
 
-- Victor L. Brown, Presiding Bishop
+- Victor L. Brown, Presiding Bishop
 
-- H. Burke Peterson, First Counselor
+- H. Burke Peterson, First Counselor
 
-- Vaughn J. Featherstone, Second Counselor
+- Vaughn J. Featherstone, Second Counselor
 
 It is proposed that we sustain all Regional Representatives of the Quorum of the Twelve Apostles and all Mission Representatives of the Quorum of the Twelve and First Council of the Seventy as they are at present constituted.
 
@@ -334,173 +254,153 @@ It is proposed that we sustain the named individuals in the following department
 
 ### Historical Department
 
-- Howard W. Hunter and Bruce R. McConkie, Advisers
+- Howard W. Hunter and Bruce R. McConkie, Advisers
 
-- Alvin R. Dyer, Managing Director
+- Alvin R. Dyer, Managing Director
 
 - Joseph Anderson, Associate Managing Director
 
-- Earl E. Olson, Assistant Managing Director
+- Earl E. Olson, Assistant Managing Director
 
-- Leonard J. Arrington, Church Historian
+- Leonard J. Arrington, Church Historian
 
-- Donald T. Schmidt, Church Librarian-Archivist
+- Donald T. Schmidt, Church Librarian-Archivist
 
 ### Welfare Services Department
 
-- Marvin J. Ashton, Adviser
+- Marvin J. Ashton, Adviser
 
-- Victor L. Brown, Chairman
+- Victor L. Brown, Chairman
 
-- Robert L. Simpson, Managing Director, Social Services
+- Robert L. Simpson, Managing Director, Social Services
 
 - Junior Wright Child, Managing Director, Church Welfare
 
-- Dr. James O. Mason, Commissioner of Health Services
+- Dr. James O. Mason, Commissioner of Health Services
 
 ### Family Home Evening Committee
 
-- Boyd K. Packer, Adviser
+- Boyd K. Packer, Adviser
 
-- James A. Cullimore, Managing Director
+- James A. Cullimore, Managing Director
 
 ### Priesthood Missionary Committee
 
 - Ezra Taft Benson, Chairman of Executive Committee
 
-- Gordon B. Hinckley, Thomas S. Monson, and Bruce R. McConkie, Vice-Chairmen
+- Gordon B. Hinckley, Thomas S. Monson, and Bruce R. McConkie, Vice-Chairmen
 
-- Loren C. Dunn, Managing Director
+- Loren C. Dunn, Managing Director
 
 ### Melchizedek Priesthood Committee
 
-- Thomas S. Monson
+- Thomas S. Monson
 
-- Boyd K. Packer
+- Boyd K. Packer
 
-- Marvin J. Ashton
+- Marvin J. Ashton
 
-- Bruce R. McConkie
+- Bruce R. McConkie
 
 ### Military Relations Committee
 
-- Boyd K. Packer, Adviser
-
-- David B. Haight, Managing Director
+- David B. Haight, Managing Director
 
 ### Priesthood Genealogical Committee
 
-- Mark E. Petersen and Howard W. Hunter, Advisers
+- Mark E. Petersen and Howard W. Hunter, Advisers
 
-- Theodore M. Burton, Managing Director
+- Theodore M. Burton, Managing Director
 
 ### Music Department
 
-- Mark E. Petersen and Boyd K. Packer, Advisers
+- Mark E. Petersen and Boyd K. Packer, Advisers
 
-- O. Leslie Stone, Managing Director
+- O. Leslie Stone, Managing Director
 
 ### Tabernacle Choir
 
-- Isaac M. Stewart, President
+- Isaac M. Stewart, President
 
-- Richard P. Condie, Conductor
+- Richard P. Condie, Conductor
 
-- Jay E. Welch, Assistant Conductor
+- Jay E. Welch, Assistant Conductor
 
 - Alexander Schreiner, Chief Tabernacle Organist
 
-- Robert N. Cundick, Tabernacle Organist
+- Robert N. Cundick, Tabernacle Organist
 
-- Roy M. Darley, Tabernacle Organist
+- Roy M. Darley, Tabernacle Organist
 
 ### Physical Facilities Department
 
-- Marvin J. Ashton, Adviser
-
-- John H. Vandenberg, Managing Director
+- John H. Vandenberg, Managing Director
 
 ### Division of Internal Communications
 
-- Thomas S. Monson, Boyd K. Packer, Marvin J. Ashton, and Bruce R. McConkie, Advisers
+- Thomas S. Monson, Boyd K. Packer, Marvin J. Ashton, and Bruce R. McConkie, Advisers
 
-- J. Thomas Fyans, Managing Director
+- J. Thomas Fyans, Managing Director
 
 ### Department of Public Communications
 
-- Mark E. Petersen and Gordon B. Hinckley, Advisers
+- Mark E. Petersen and Gordon B. Hinckley, Advisers
 
-- Wendell J. Ashton, Managing Director
+- Wendell J. Ashton, Managing Director
 
 ### Church Board of Education
 
-- Spencer W. Kimball
+- Spencer W. Kimball
 
 - Nathan Eldon Tanner
 
-- Marion G. Romney
+- Marion G. Romney
 
 - Ezra Taft Benson
 
-- Mark E. Petersen
+- Mark E. Petersen
 
-- Delbert L. Stapley
+- Delbert L. Stapley
 
 - LeGrand Richards
 
-- Hugh B. Brown
+- Hugh B. Brown
 
-- Howard W. Hunter
+- Howard W. Hunter
 
-- Gordon B. Hinckley
+- Gordon B. Hinckley
 
-- Thomas S. Monson
+- L. Tom Perry
 
-- Boyd K. Packer
+- A. Theodore Tuttle
 
-- Marvin J. Ashton
+- Victor L. Brown
 
-- Bruce R. McConkie
+- Belle S. Spafford
 
-- L. Tom Perry
-
-- Alvin R. Dyer
-
-- Marion D. Hanks
-
-- A. Theodore Tuttle
-
-- Paul H. Dunn
-
-- Victor L. Brown
-
-- Belle S. Spafford
-
-- Neal A. Maxwell, Commissioner, Church Educational System
+- Neal A. Maxwell, Commissioner, Church Educational System
 
 ### Church Finance Committee:
 
-- Wilford G. Edling
+- Wilford G. Edling
 
-- Harold H. Bennett
+- Harold H. Bennett
 
-- Weston E. Hamilton
+- Weston E. Hamilton
 
-- Lee S. Bickmore
+- Lee S. Bickmore
 
-- David M. Kennedy
+- David M. Kennedy
 
-- Warren E. Pugh
+- Warren E. Pugh
 
-- James A. Norberg, Church Auditor
+- James A. Norberg, Church Auditor
 
 ### Melchizedek Priesthood MIA
 
-- Thomas S. Monson, Boyd K. Packer, Marvin J. Ashton, and Bruce R. McConkie, Advisers
+- James E. Faust, Managing Director
 
-- James E. Faust, Managing Director
-
-- Marion D. Hanks, Associate Managing Director
+- Marion D. Hanks, Associate Managing Director
 
 - with all members of the board as at present constituted.
 
@@ -508,27 +408,23 @@ It is proposed that we sustain the named individuals in the following department
 
 - Under the direction of the Presiding Bishopric:
 
-- Victor L. Brown, H. Burke Peterson, and Vaughn J. Featherstone
+- Victor L. Brown, H. Burke Peterson, and Vaughn J. Featherstone
 
 ### Aaronic Priesthood MIA (YM)
 
-- Robert L. Backman, Young Men’s General President
+- Robert L. Backman, Young Men’s General President
 
-- LeGrand R. Curtis, First Counselor
+- LeGrand R. Curtis, First Counselor
 
-- Jack H Goaslind, Jr., Second Counselor
-
-- with all members of the board as at present constituted.
+- Jack H Goaslind, Jr., Second Counselor
 
 ### Aaronic Priesthood MIA (YW)
 
 - Ruth Hardy Funk, Young Women’s General President
 
-- Hortense H. Child, First Counselor
+- Hortense H. Child, First Counselor
 
-- Ardeth G. Kapp, Second Counselor
-
-- with all members of the board as at present constituted.
+- Ardeth G. Kapp, Second Counselor
 
 ### Relief Society
 
@@ -538,17 +434,13 @@ It is proposed that we sustain the named individuals in the following department
 
 - Louise Wallace Madsen, Second Counselor
 
-- with all members of the board as at present constituted.
-
 ### Sunday School
 
-- Russell M. Nelson, General President
+- Russell M. Nelson, General President
 
-- Joseph B. Wirthlin, First Counselor
+- Joseph B. Wirthlin, First Counselor
 
-- Richard L. Warner, Second Counselor
-
-- with all members of the board as at present constituted.
+- Richard L. Warner, Second Counselor
 
 ### Primary Association
 
@@ -557,8 +449,6 @@ It is proposed that we sustain the named individuals in the following department
 - Naomi Ward Randall, First Counselor
 
 - Florence Reece Lane, Second Counselor
-
-- with all members of the board as at present constituted.
 
 Those in favor please raise their right hands; those opposed will manifest it by the same sign.
 

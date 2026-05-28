@@ -1,7 +1,6 @@
 # Heat
 
-
-cold and *heat* ... shall not cease, [[Genesis 8.22|Genesis 8:22]].
+cold and *heat* … shall not cease, [[Genesis 8.22|Genesis 8:22]].
 
 shadow in the daytime from the *heat*, [[Isaiah 4.6|Isaiah 4:6]] ([[2 Nephi 14.6|2 Nephi 14:6]]).
 

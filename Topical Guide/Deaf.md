@@ -1,6 +1,5 @@
 # Deaf
 
-
 who maketh the dumb, or *deaf*, [[Exodus 4.11|Exodus 4:11]].
 
 Thou shalt not curse the *deaf*, [[Leviticus 19.14|Leviticus 19:14]].

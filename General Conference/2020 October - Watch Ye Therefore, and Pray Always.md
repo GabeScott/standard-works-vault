@@ -1,6 +1,6 @@
 # Watch Ye Therefore, and Pray Always
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -103,13 +103,13 @@ How great is the power of prayer, and how needed are our prayers of faith in God
 
 [^3]: [[D&C 88.91|Doctrine and Covenants 88:91]]; emphasis added.
 
-[^4]: M. Russell Ballard, in Sarah Jane Weaver, “President Ballard Pleads with Latter-day Saints to ‘Pray for This Country’ as United States Is at ‘Another Crossroad,’” *Church News,* Oct. 21, 2019, thechurchnews.com.
+[^4]: M. Russell Ballard, in Sarah Jane Weaver, “President Ballard Pleads with Latter-day Saints to ‘Pray for This Country’ as United States Is at ‘Another Crossroad,’” *Church News,* Oct. 21, 2019, thechurchnews.com.
 
 [^5]: See Weaver, “President Ballard Pleads with Latter-day Saints.”
 
-[^6]: [[Matthew 6.9|Matthew 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]]. Notice that the Joseph Smith Translation clarifies verse 13: “And *suffer* \[permit\] us not *to be led* into temptation, but deliver us from evil” (Joseph Smith Translation, Matthew 6:14 \[in Matthew 6:13, footnote *a*\]).
+[^6]: [[Matthew 6.9|Matthew 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]]. Notice that the Joseph Smith Translation clarifies verse 13: “And *suffer* \[permit\] us not *to be led* into temptation, but deliver us from evil” (Joseph Smith Translation, Matthew 6:14 \[in Matthew 6:13, footnote *a*\]).
 
-[^7]: See [[Luke 18.1|Luke 18:1–8]][[Luke 18.2|]][[Luke 18.3|]][[Luke 18.4|]][[Luke 18.5|]][[Luke 18.6|]][[Luke 18.7|]][[Luke 18.8|]]; [[Luke 21.36|21:36]]; [[Ephesians 6.18|Ephesians 6:18]]; [[2 Nephi 32.9|2 Nephi 32:9]]; [[3 Nephi 18.15|3 Nephi 18:15, 18–21]][[3 Nephi 18.18|]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]]; [[D&C 10.5|Doctrine and Covenants 10:5]]; [[D&C 19.38|19:38]]; [[D&C 33.17|33:17]]; [[D&C 61.39|61:39]]; [[D&C 88.126|88:126]]; [[D&C 90.24|90:24]].
+[^7]: See [[Luke 18.1|Luke 18:1–8]][[Luke 18.2|]][[Luke 18.3|]][[Luke 18.4|]][[Luke 18.5|]][[Luke 18.6|]][[Luke 18.7|]][[Luke 18.8|]]; [[Luke 21.36|21:36]]; [[Ephesians 6.18|Ephesians 6:18]]; [[2 Nephi 32.9|2 Nephi 32:9]]; [[3 Nephi 18.15|3 Nephi 18:15, 18–21]][[3 Nephi 18.18|]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]]; [[D&C 10.5|Doctrine and Covenants 10:5]]; [[D&C 19.38|19:38]]; [[D&C 33.17|33:17]]; [[D&C 61.39|61:39]]; [[D&C 88.126|88:126]]; [[D&C 90.24|90:24]].
 
 [^8]: [[Matthew 5.44|Matthew 5:44]].
 
@@ -117,11 +117,12 @@ How great is the power of prayer, and how needed are our prayers of faith in God
 
 [^10]: See [[Alma 34.27|Alma 34:27–29]][[Alma 34.28|]][[Alma 34.29|]].
 
-[^11]: Sharon J. Harris, *Enos, Jarom, Omni: A Brief Theological Introduction* (2020), 18.
+[^11]: Sharon J. Harris, *Enos, Jarom, Omni: A Brief Theological Introduction* (2020), 18.
 
 [^12]: See [[Alma 33.3|Alma 33:3–11]][[Alma 33.4|]][[Alma 33.5|]][[Alma 33.6|]][[Alma 33.7|]][[Alma 33.8|]][[Alma 33.9|]][[Alma 33.10|]][[Alma 33.11|]]; [[Alma 34.17|34:17–27]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]].
 
 [^13]: [[Acts 10.38|Acts 10:38]].
 
+[^14]: [[Luke 21.36|Luke 21:36]], emphasis added; see also [[3 Nephi 18.15|3 Nephi 18:15]].
 
 #Adversity #Prayer

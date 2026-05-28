@@ -26,7 +26,7 @@ A few years ago a high-ranking official from China visited Salt Lake City, toure
 
 Fasting and giving the value of the meals not eaten to help the poor captured his attention. At the conclusion of his visit to Welfare Square, he handed the manager a small red envelope—a “red pocket.” In China a “red pocket” is given as a gesture of love, blessing, and a wish for good fortune. “It does not contain much,” the visitor said, “but it represents the money I have saved from missing breakfast the last two mornings. I would like to give my fast offering to the Welfare program of the Church.”[^10]
 
-The Church welfare plan is God-inspired. Its tenets are fundamental to the salvation of man.[^11] It is an ensign for service, a witness to the world that the Church of Jesus Christ has been restored. It is heaven’s help in practical ways. President Thomas S. Monson has said: “Welfare principles … do not change. They will not change. They are revealed truths.”[^12]
+The Church welfare plan is God-inspired. Its tenets are fundamental to the salvation of man.[^11] It is an ensign for service, a witness to the world that the Church of Jesus Christ has been restored. It is heaven’s help in practical ways. President Thomas S. Monson has said: “Welfare principles … do not change. They will not change. They are revealed truths.”[^12]
 
 Another essential way to receive God’s help is through prayer. We are commanded to pray to God, our Father, in the name of Jesus Christ. The admonition is, “Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened.”[^13] Heavenly Father answers all sincere prayers.
 
@@ -36,7 +36,7 @@ In the face of some needs, we turn to a form of prayer available only under the 
 
 When one is sick or deeply troubled, “call for the elders of the church; and let them pray over him, anointing him with oil in the name of the Lord: and the prayer of faith shall save the sick, and the Lord shall raise him up.”[^17] Faithful elders are commissioned to do what the Lord would do if He were present.[^18]
 
-If records had been kept of prayers answered, the world could not contain the many volumes. From Elder Glen L. Rudd, an emeritus General Authority and beloved associate, comes this treasured testimonial:
+If records had been kept of prayers answered, the world could not contain the many volumes. From Elder Glen L. Rudd, an emeritus General Authority and beloved associate, comes this treasured testimonial:
 
 “I received a phone call informing me that a family member, a 12-year-old girl named Janice, was in the hospital with critical injuries. Her mother wanted her to receive a priesthood blessing.
 
@@ -81,21 +81,21 @@ He is our Lawgiver and Judge, the Redeemer of the world. At His Second Coming, �
 
 [^6]: *History of the Church,* 4:227.
 
-[^7]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^7]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^8]: See [[D&C 56.16|D&C 56:16–18]][[D&C 56.17|]][[D&C 56.18|]]; [[D&C 78.13|78:13–14]][[D&C 78.14|]]; [[D&C 104.13|104:13–18]][[D&C 104.14|]][[D&C 104.15|]][[D&C 104.16|]][[D&C 104.17|]][[D&C 104.18|]].
 
 [^9]: See [[Genesis 3.19|Genesis 3:19]]; [[Exodus 23.10|Exodus 23:10–11]][[Exodus 23.11|]]; [[Leviticus 19.9|Leviticus 19:9–10]][[Leviticus 19.10|]]; [[Matthew 25.40|Matthew 25:40]]; [[Mosiah 4.16|Mosiah 4:16–27]][[Mosiah 4.17|]][[Mosiah 4.18|]][[Mosiah 4.19|]][[Mosiah 4.20|]][[Mosiah 4.21|]][[Mosiah 4.22|]][[Mosiah 4.23|]][[Mosiah 4.24|]][[Mosiah 4.25|]][[Mosiah 4.26|]][[Mosiah 4.27|]]; [[Moses 4.25|Moses 4:25]]; [[Moses 5.1|5:1]].
 
-[^10]: In Neil K. Newell, “The Red Pocket” (unpublished manuscript, 1999), 1.
+[^10]: In Neil K. Newell, “The Red Pocket” (unpublished manuscript, 1999), 1.
 
 [^11]: See [[Mosiah 4.16|Mosiah 4:16–27]][[Mosiah 4.17|]][[Mosiah 4.18|]][[Mosiah 4.19|]][[Mosiah 4.20|]][[Mosiah 4.21|]][[Mosiah 4.22|]][[Mosiah 4.23|]][[Mosiah 4.24|]][[Mosiah 4.25|]][[Mosiah 4.26|]][[Mosiah 4.27|]].
 
-[^12]: Thomas S. Monson, “Guiding Principles of Personal and Family Welfare,” *Tambuli,* Feb. 1987, 2; *Ensign,* Sept. 1986, 3.
+[^12]: Thomas S. Monson, “Guiding Principles of Personal and Family Welfare,” *Tambuli,* Feb. 1987, 2; *Ensign,* Sept. 1986, 3.
 
 [^13]: [[Matthew 7.7|Matthew 7:7]]; see also [[Matthew 7.8|v. 8]].
 
-[^14]: Thomas S. Monson, in Conference Report, Apr. 2008, 89; or *Ensign,* May 2008, 90.
+[^14]: Thomas S. Monson, in Conference Report, Apr. 2008, [[2008 April - Looking Back and Moving Forward.md|89]]; or *Ensign,* May 2008, 90.
 
 [^15]: [[Mosiah 3.5|Mosiah 3:5]].
 
@@ -103,9 +103,9 @@ He is our Lawgiver and Judge, the Redeemer of the world. At His Second Coming, �
 
 [^17]: [[James 5.14|James 5:14–15]][[James 5.15|]].
 
-[^18]: See [[John 14.11|John 14:11–14]][[John 14.12|]][[John 14.13|]][[John 14.14|]]; [[Articles of Faith 1.7|Articles of Faith 1:7]]; Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (1966), 345.
+[^18]: See [[John 14.11|John 14:11–14]][[John 14.12|]][[John 14.13|]][[John 14.14|]]; [[Articles of Faith 1.7|Articles of Faith 1:7]]; Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (1966), 345.
 
-[^19]: From a conversation with Glen L. Rudd; see also Glen L. Rudd, *Treasured Experiences of Glen L. Rudd* (self-published manuscript, 1995), Church Archives, The Church of Jesus Christ of Latter-day Saints, 270–72.
+[^19]: From a conversation with Glen L. Rudd; see also Glen L. Rudd, *Treasured Experiences of Glen L. Rudd* (self-published manuscript, 1995), Church Archives, The Church of Jesus Christ of Latter-day Saints, 270–72.
 
 [^20]: [[John 3.16|John 3:16]].
 
@@ -115,8 +115,6 @@ He is our Lawgiver and Judge, the Redeemer of the world. At His Second Coming, �
 
 [^23]: [[John 11.25|John 11:25–26]][[John 11.26|]].
 
-[^24]: [[2 Nephi 19.6|2 Nephi 19:6]]; see also [[Isaiah 9.6|Isaiah 9:6]].
+[^24]: [[2 Nephi 19.6|2 Nephi 19:6]]; see also [[Isaiah 9.6|Isaiah 9:6]].
 
-
-
-#Blessings #Fasting #Jesus_Christ #Prayer #Service #Welfare
+#Blessings #Fasting #JesusChrist #Prayer #Service #Welfare

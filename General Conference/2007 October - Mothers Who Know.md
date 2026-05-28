@@ -16,7 +16,7 @@ The responsibility mothers have today has never required more vigilance. More th
 
 Mothers who know desire to bear children. Whereas in many cultures in the world children are “becoming less valued,”[^2] in the culture of the gospel we still believe in having children. Prophets, seers, and revelators who were sustained at this conference have declared that “God’s commandment for His children to multiply and replenish the earth remains in force.”[^3] President Ezra Taft Benson taught that young couples should not postpone having children and that “in the eternal perspective, children—not possessions, not position, not prestige—are our greatest jewels.”[^4]
 
-Faithful daughters of God desire children. In the scriptures we read of Eve (see [[Moses 4.26|Moses 4:26]]), Sarah (see [[Genesis 17.16|Genesis 17:16]]), Rebekah (see [[Genesis 24.60|Genesis 24:60]]), and Mary (see [[1 Nephi 11.13|1 Nephi 11:13–20]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]]), who were foreordained to be mothers before children were born to them. Some women are not given the responsibility of bearing children in mortality, but just as Hannah of the Old Testament prayed fervently for her child (see [[1 Samuel 1.11|1 Samuel 1:11]]), the value women place on motherhood in this life and the attributes of motherhood they attain here will rise with them in the Resurrection (see [[D&C 130.18|D&C 130:18]]). Women who desire and work toward that blessing in this life are promised they will receive it for all eternity, and eternity is much, much longer than mortality. There is eternal influence and power in motherhood.
+Faithful daughters of God desire children. In the scriptures we read of Eve (see [[Moses 4.26|Moses 4:26]]), Sarah (see [[Genesis 17.16|Genesis 17:16]]), Rebekah (see [[Genesis 24.60|Genesis 24:60]]), and Mary (see [[1 Nephi 11.13|1 Nephi 11:13–20]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]]), who were foreordained to be mothers before children were born to them. Some women are not given the responsibility of bearing children in mortality, but just as Hannah of the Old Testament prayed fervently for her child (see [[1 Samuel 1.11|1 Samuel 1:11]]), the value women place on motherhood in this life and the attributes of motherhood they attain here will rise with them in the Resurrection (see [[D&C 130.18|D&C 130:18]]). Women who desire and work toward that blessing in this life are promised they will receive it for all eternity, and eternity is much, much longer than mortality. There is eternal influence and power in motherhood.
 
 ## Mothers Who Know Honor Sacred Ordinances and Covenants
 
@@ -58,7 +58,5 @@ Who will prepare this righteous generation of sons and daughters? Latter-day Sai
 [^6]: Gordon B. Hinckley, *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20.
 
 [^7]: Gordon B. Hinckley, *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20.
-
-
 
 #Children #Family #Motherhood #Teaching

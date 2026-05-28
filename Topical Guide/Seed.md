@@ -1,17 +1,16 @@
 # Seed
 
-
 *See also* [[Heir.md|Heir]]; [[Offspring.md|Offspring]]; [[Posterity.md|Posterity]]
 
 bring forth grass, the herb yielding *seed*, [[Genesis 1.11|Genesis 1:11]] ([[Moses 2.11|Moses 2:11]]; [[Abraham 4.11|Abraham 4:11]]).
 
-I will put enmity ... between thy *seed* and her *seed*, [[Genesis 3.15|Genesis 3:15]] ([[Moses 4.21|Moses 4:21]]).
+I will put enmity … between thy *seed* and her *seed*, [[Genesis 3.15|Genesis 3:15]] ([[Moses 4.21|Moses 4:21]]).
 
-keep *seed* alive upon ... all the earth, [[Genesis 7.3|Genesis 7:3]].
+keep *seed* alive upon … all the earth, [[Genesis 7.3|Genesis 7:3]].
 
 Manna: and it was like coriander *seed*, [[Exodus 16.31|Exodus 16:31]].
 
-not sow ... with mingled *seed*, [[Leviticus 19.19|Leviticus 19:19]] ([[Deuteronomy 22.9|Deuteronomy 22:9]]).
+not sow … with mingled *seed*, [[Leviticus 19.19|Leviticus 19:19]] ([[Deuteronomy 22.9|Deuteronomy 22:9]]).
 
 Thou shalt carry much *seed* out into the field, [[Deuteronomy 28.38|Deuteronomy 28:38]].
 
@@ -41,7 +40,7 @@ I had planted thee a noble vine, wholly a right *seed*, [[Jeremiah 2.21|Jeremiah
 
 Neither shall ye build house, nor sow *seed*, [[Jeremiah 35.7|Jeremiah 35:7]].
 
-bring certain of the children of Israel, and of the king's *seed*, [[Daniel 1.3|Daniel 1:3]].
+bring certain of the children of Israel, and of the king’s *seed*, [[Daniel 1.3|Daniel 1:3]].
 
 That he might seek a godly *seed*, [[Malachi 2.15|Malachi 2:15]].
 
@@ -61,11 +60,11 @@ The *seed* is the word of God, [[Luke 8.11|Luke 8:11]].
 
 Christ cometh of the *seed* of David, [[John 7.42|John 7:42]] ([[Romans 1.3|Romans 1:3]]; [[2 Timothy 2.8|2 Timothy 2:8]]).
 
-Of this man's *seed* hath God ... raised ... Jesus, [[Acts 13.23|Acts 13:23]].
+Of this man’s *seed* hath God … raised … Jesus, [[Acts 13.23|Acts 13:23]].
 
-Except the Lord ... had left us a *seed*, we had been as Sodoma, [[Romans 9.29|Romans 9:29]].
+Except the Lord … had left us a *seed*, we had been as Sodoma, [[Romans 9.29|Romans 9:29]].
 
-God giveth ... to every *seed* his own body, [[1 Corinthians 15.38|1 Corinthians 15:38]].
+God giveth … to every *seed* his own body, [[1 Corinthians 15.38|1 Corinthians 15:38]].
 
 born again, not of corruptible *seed*, [[1 Peter 1.23|1 Peter 1:23]].
 
@@ -79,9 +78,9 @@ I will manifest myself unto thy *seed*, [[1 Nephi 13.35|1 Nephi 13:35]].
 
 thy *seed* shall not utterly be destroyed, [[2 Nephi 3.3|2 Nephi 3:3]].
 
-if I will ... raise up *seed* unto me, I will command my people, [[Jacob 2.30|Jacob 2:30]].
+if I will … raise up *seed* unto me, I will command my people, [[Jacob 2.30|Jacob 2:30]].
 
-began to till the ground ... with all manner of *seeds*, [[Mosiah 9.9|Mosiah 9:9]].
+began to till the ground … with all manner of *seeds*, [[Mosiah 9.9|Mosiah 9:9]].
 
 who shall be his *seed*, [[Mosiah 15.10|Mosiah 15:10]].
 
@@ -97,7 +96,7 @@ we are a remnant of the *seed* of Joseph, [[Alma 46.23|Alma 46:23]].
 
 *seed* of Zedekiah are with us, [[Helaman 8.21|Helaman 8:21]].
 
-gather ... all the remnant of the *seed* of Jacob, [[3 Nephi 5.24|3 Nephi 5:24]].
+gather … all the remnant of the *seed* of Jacob, [[3 Nephi 5.24|3 Nephi 5:24]].
 
 ye are a remnant of the *seed* of Jacob, [[Mormon 7.10|Mormon 7:10]].
 
@@ -115,4 +114,4 @@ Were it not for our transgression we never should have had *seed*, [[Moses 5.11|
 
 remnant of his *seed* should always be found, [[Moses 7.52|Moses 7:52]].
 
-this right shall continue in thee, and in thy *seed* ... the literal *seed*, or the *seed* of the body, [[Abraham 2.11|Abraham 2:11]].
+this right shall continue in thee, and in thy *seed* … the literal *seed*, or the *seed* of the body, [[Abraham 2.11|Abraham 2:11]].

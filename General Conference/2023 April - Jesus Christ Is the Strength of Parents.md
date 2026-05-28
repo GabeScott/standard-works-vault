@@ -1,6 +1,6 @@
 # Jesus Christ Is the Strength of Parents
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -129,31 +129,31 @@ Of this I testify in the name of Jesus Christ, amen.
 
 
 
-[^1]: “Innate in almost every parent is the desire to teach his or her children moral virtues. This is part of the miracle of Heavenly Father’s plan. He wants His children to come to earth, following the eternal pattern of families that exists in heaven. Families are the basic organizational unit of the eternal realms, and so He intends for them also to be the basic unit on earth. Though earthly families are far from perfect, they give God’s children the best chance to be welcomed to the world with the only love on earth that comes close to what we felt in heaven—parental love. Families are also the best way to preserve and pass on moral virtues and true principles that are most likely to lead us back to God’s presence” (Henry B. Eyring, “[[2017 April - Gathering the Family of God.md|Gathering the Family of God]],” *Ensign* or *Liahona*, May 2017, 20).
+[^1]: “Innate in almost every parent is the desire to teach his or her children moral virtues. This is part of the miracle of Heavenly Father’s plan. He wants His children to come to earth, following the eternal pattern of families that exists in heaven. Families are the basic organizational unit of the eternal realms, and so He intends for them also to be the basic unit on earth. Though earthly families are far from perfect, they give God’s children the best chance to be welcomed to the world with the only love on earth that comes close to what we felt in heaven—parental love. Families are also the best way to preserve and pass on moral virtues and true principles that are most likely to lead us back to God’s presence” (Henry B. Eyring, “[[2017 April - Gathering the Family of God.md|Gathering the Family of God]],” *Ensign* or *Liahona*, May 2017, 20).
 
 [^2]: Of course, we know that God’s will is not always accomplished “in earth, as it is in heaven” ([[Matthew 6.10|Matthew 6:10]]). Mortal parenthood certainly pales in comparison to God’s ideal. He surely sees that. He must weep over all the sorrows and heartache in family relationships. And yet He has not given up on the family. And He will not, because God has a glorious plan for the eternal destiny of His children. And at the center of that plan is the family.
 
 [^3]: See [[Matthew 18.1|Matthew 18:1–5]][[Matthew 18.2|]][[Matthew 18.3|]][[Matthew 18.4|]][[Matthew 18.5|]]; [[Mosiah 3.19|Mosiah 3:19]].
 
-[^4]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p6#p6),” ChurchofJesusChrist.org; see also [[D&C 68.25|Doctrine and Covenants 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]].
+[^4]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p6#p6),” ChurchofJesusChrist.org; see also [[D&C 68.25|Doctrine and Covenants 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]].
 
-[^5]: See “[Learning at Home Is Founded on Relationships](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title4#title4),” *Teaching in the Savior’s Way: For All Who Teach in the Home and in the Church* (2022), 30–31; see also [[D&C 109.8|Doctrine and Covenants 109:8]].
+[^5]: See “[Learning at Home Is Founded on Relationships](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title4#title4),” *Teaching in the Savior’s Way: For All Who Teach in the Home and in the Church* (2022), 30–31; see also [[D&C 109.8|Doctrine and Covenants 109:8]].
 
 [^6]: [[Moroni 7.48|Moroni 7:48]].
 
-[^7]: [[1 Nephi 16.29|1 Nephi 16:29]]; see also [[Alma 37.6|Alma 37:6–7]][[Alma 37.7|]].
+[^7]: [[1 Nephi 16.29|1 Nephi 16:29]]; see also [[Alma 37.6|Alma 37:6–7]][[Alma 37.7|]].
 
-[^8]: See “[Learning at Home Consists of Small, Simple, Consistent Efforts](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title6#title6),” *Teaching in the Savior’s Way*, 31. President David O. McKay taught: “Let us not think that, because some \[things\] … seem small and trivial, \[that\] they are unimportant. Life, after all, is made up of little things. Our life, our being, physically, is made up of little heart beats. Let that little heart stop beating, and life in this world ceases. The great sun is a mighty force in the universe, but we receive the blessings of \[its\] rays because they come to us as little beams, which, taken in the aggregate, fill the whole world with sunlight. The dark night is made pleasant by the glimmer of what seem to be little stars; and so the true Christian life is made up of little Christ-like acts performed this hour, this minute—in the home” (*Teachings of Presidents of the Church: David O. McKay* \[2003\], 219).
+[^8]: See “[Learning at Home Consists of Small, Simple, Consistent Efforts](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title6#title6),” *Teaching in the Savior’s Way*, 31. President David O. McKay taught: “Let us not think that, because some \[things\] … seem small and trivial, \[that\] they are unimportant. Life, after all, is made up of little things. Our life, our being, physically, is made up of little heart beats. Let that little heart stop beating, and life in this world ceases. The great sun is a mighty force in the universe, but we receive the blessings of \[its\] rays because they come to us as little beams, which, taken in the aggregate, fill the whole world with sunlight. The dark night is made pleasant by the glimmer of what seem to be little stars; and so the true Christian life is made up of little Christ-like acts performed this hour, this minute—in the home” (*[Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-23?lang=eng&id=p23#p23)* \[2003\], 219).
 
 [^9]: See [[Helaman 5.30|Helaman 5:30]].
 
-[^10]: See [[2 Kings 5.9|2 Kings 5:9–14]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
+[^10]: See [[2 Kings 5.9|2 Kings 5:9–14]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
 
-[^11]: See [[Exodus 16.1|Exodus 16]][[Exodus 16.2|]][[Exodus 16.3|]][[Exodus 16.4|]][[Exodus 16.5|]][[Exodus 16.6|]][[Exodus 16.7|]][[Exodus 16.8|]][[Exodus 16.9|]][[Exodus 16.10|]][[Exodus 16.11|]][[Exodus 16.12|]][[Exodus 16.13|]][[Exodus 16.14|]][[Exodus 16.15|]][[Exodus 16.16|]][[Exodus 16.17|]][[Exodus 16.18|]][[Exodus 16.19|]][[Exodus 16.20|]][[Exodus 16.21|]][[Exodus 16.22|]][[Exodus 16.23|]][[Exodus 16.24|]][[Exodus 16.25|]][[Exodus 16.26|]][[Exodus 16.27|]][[Exodus 16.28|]][[Exodus 16.29|]][[Exodus 16.30|]][[Exodus 16.31|]][[Exodus 16.32|]][[Exodus 16.33|]][[Exodus 16.34|]][[Exodus 16.35|]][[Exodus 16.36|]].
+[^11]: See [[Exodus 16.1|Exodus 16]][[Exodus 16.2|]][[Exodus 16.3|]][[Exodus 16.4|]][[Exodus 16.5|]][[Exodus 16.6|]][[Exodus 16.7|]][[Exodus 16.8|]][[Exodus 16.9|]][[Exodus 16.10|]][[Exodus 16.11|]][[Exodus 16.12|]][[Exodus 16.13|]][[Exodus 16.14|]][[Exodus 16.15|]][[Exodus 16.16|]][[Exodus 16.17|]][[Exodus 16.18|]][[Exodus 16.19|]][[Exodus 16.20|]][[Exodus 16.21|]][[Exodus 16.22|]][[Exodus 16.23|]][[Exodus 16.24|]][[Exodus 16.25|]][[Exodus 16.26|]][[Exodus 16.27|]][[Exodus 16.28|]][[Exodus 16.29|]][[Exodus 16.30|]][[Exodus 16.31|]][[Exodus 16.32|]][[Exodus 16.33|]][[Exodus 16.34|]][[Exodus 16.35|]][[Exodus 16.36|]].
 
-[^12]: See “[Preparing Your Children for a Lifetime on God’s Covenant Path](https://churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2023/54-appendix?lang=eng),” *Come, Follow Me—For Individuals and Families: New Testament 2023*, appendix (digital only).
+[^12]: See “[Preparing Your Children for a Lifetime on God’s Covenant Path](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2023/54-appendix?lang=eng),” *Come, Follow Me—For Individuals and Families: New Testament 2023*, appendix (digital only).
 
-[^13]: See “[Learning at Home Can Be Planned but Also Spontaneous](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title5#title5),” *Teaching in the Savior’s Way*, 31; [[1 Peter 3.15|1 Peter 3:15]].
+[^13]: See “[Learning at Home Can Be Planned but Also Spontaneous](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title5#title5),” *Teaching in the Savior’s Way*, 31; [[1 Peter 3.15|1 Peter 3:15]].
 
 [^14]: [[D&C 64.32|Doctrine and Covenants 64:32–33]][[D&C 64.33|]].
 
@@ -161,20 +161,18 @@ Of this I testify in the name of Jesus Christ, amen.
 
 [^16]: See [[Alma 40.1|Alma 40:1]]; [[Alma 41.1|41:1]]; [[Alma 42.1|42:1]].
 
-[^17]: See [[1 Samuel 16.7|1 Samuel 16:7]].
+[^17]: See [[1 Samuel 16.7|1 Samuel 16:7]].
 
-[^18]: See [[1 Nephi 15.8|1 Nephi 15:8]].
+[^18]: See [[1 Nephi 15.8|1 Nephi 15:8]].
 
 [^19]: [[Alma 5.13|Alma 5:13]].
 
-[^20]: See “Love One Another,” *Hymns*, no. 308.
+[^20]: See “Love One Another,” *Hymns*, no. 308.
 
 [^21]: See [[Ether 12.27|Ether 12:27]].
 
-[^22]: “In the case of children, the responsibility of giving moral guidance rests with the parents. They know the disposition, understanding, and intelligence of each child. Parents spend a lifetime seeking to establish and maintain good communications with each of their children. They are in the best position to make the ultimate moral decisions as to the welfare and well-being of their offspring” (James E. Faust, “[[1997 October - The Weightier Matters of the Law - Judgment, Mercy, and Faith.md|The Weightier Matters of the Law: Judgment, Mercy, and Faith]],” *Ensign*, Nov. 1997, 54).
+[^22]: “In the case of children, the responsibility of giving moral guidance rests with the parents. They know the disposition, understanding, and intelligence of each child. Parents spend a lifetime seeking to establish and maintain good communications with each of their children. They are in the best position to make the ultimate moral decisions as to the welfare and well-being of their offspring” (James E. Faust, “[[1997 October - The Weightier Matters of the Law - Judgment, Mercy, and Faith.md|The Weightier Matters of the Law: Judgment, Mercy, and Faith]],” *Ensign*, Nov. 1997, 54).
 
-[^23]: Two other resources worth mentioning: The digital version of this year’s *Come, Follow Me* resource includes a new section titled “[Preparing Your Children for a Lifetime on God’s Covenant Path](https://churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2023/54-appendix?lang=eng).” It suggests simple, home-centered ideas for helping children prepare for baptism and other covenants and ordinances. And the newly revised *Teaching in the Savior’s Way* has a section titled “[Home and Family](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title2#title2)” that describes how the principles of Christlike teaching apply to the home (see pages 30–31).
+[^23]: Two other resources worth mentioning: The digital version of this year’s *Come, Follow Me* resource includes a new section titled “[Preparing Your Children for a Lifetime on God’s Covenant Path](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2023/54-appendix?lang=eng).” It suggests simple, home-centered ideas for helping children prepare for baptism and other covenants and ordinances. And the newly revised *Teaching in the Savior’s Way* has a section titled “[Home and Family](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title2#title2)” that describes how the principles of Christlike teaching apply to the home (see pages 30–31).
 
-
-
-#Children #Faith #Family #Jesus_Christ #Love #Parents #Revelation #Teaching
+#Children #Faith #Family #JesusChrist #Love #Parents #Revelation #Teaching

@@ -24,7 +24,7 @@ Sometimes Satan’s influences are more subtle. I have asked myself these questi
 
 Statistics and news reports tell us that there are children who have been tragically deserted. Happily, that is not the plight of all children. I have visited homes where love abounds, the gospel is taught, and children’s souls are well cared for. I have witnessed single parents who are magnificent in their faith and dedication. I know single adults who are involving themselves in the lives of families and strengthening both the parents and the children. I know teachers and leaders and other caring adults who touch the lives of children and youth, who care for their souls.
 
-The blessings of parenting and helping to care for children are many. President Hinckley said: “Of all the joys of life, none other equals that of happy parenthood. Of all the responsibilities with which we struggle, none other is so serious. To rear children in an atmosphere of love, security, and faith is the most rewarding of all challenges. The good result from such efforts becomes life’s most satisfying compensation” (in Conference Report, Oct. 1994, 74; or *Ensign,* Nov. 1994, 54).
+The blessings of parenting and helping to care for children are many. President Hinckley said: “Of all the joys of life, none other equals that of happy parenthood. Of all the responsibilities with which we struggle, none other is so serious. To rear children in an atmosphere of love, security, and faith is the most rewarding of all challenges. The good result from such efforts becomes life’s most satisfying compensation” (in Conference Report, Oct. 1994, [[1994 October - Save the Children.md|74]]; or *Ensign,* Nov. 1994, 54).
 
 Parenting is a godly responsibility necessary for the salvation of Father’s children and important for our preparation for eternal blessings. Rejoice in your opportunities to love and care for the souls of children. Our Father has blessings and eternal rewards available for each of His children, whether they are married or single, parents or childless. Our circumstances may be different, our opportunities may be varied, but the end result of our righteousness can be the same—eternal parenthood, eternal lives. Helping to care for the souls of children will help each of us prepare for this eternal blessing.
 
@@ -36,7 +36,7 @@ In preparation for this talk and in search of answers to how we can better care 
 
 Work toward being temple worthy, and obtain a temple recommend even if the temple is too far away to attend very often. Great blessings will come to you and your children because of your personal righteousness. If you now have a temple recommend, study and pray and attend the temple often to increase your understanding of the covenants you have made.
 
-Each parent also needs to follow this counsel from President Hinckley: “You need more than your own wisdom in rearing \[your children\]. You need the help of the Lord. Pray for that help and follow the inspiration which you receive” (in Conference Report, Oct. 1995, 120; or *Ensign,* Nov. 1995, 89).
+Each parent also needs to follow this counsel from President Hinckley: “You need more than your own wisdom in rearing \[your children\]. You need the help of the Lord. Pray for that help and follow the inspiration which you receive” (in Conference Report, Oct. 1995, [[1995 October - The Fabric of Faith and Testimony.md|120]]; or *Ensign,* Nov. 1995, 89).
 
 As we become more righteous by keeping our covenants and by more closely following the counsel in the scriptures and from our living prophets, we will truly be blessed with the daily guidance that we need from our Father and Savior to raise our children in righteousness.
 
@@ -53,6 +53,4 @@ My prayer, my brothers and sisters, is that all of us will rejoice in the opport
 
 
 
-
-
-#Children #Commandments #Councils #Covenants #Family #God_The_Father #Holy_Ghost #Home #Jesus_Christ #Joy #Love #Parenthood #Satan #Temples
+#Children #Commandments #Councils #Covenants #Family #GodTheFather #HolyGhost #Home #Joy #JesusChrist #Love #Parenthood #Satan #Temples

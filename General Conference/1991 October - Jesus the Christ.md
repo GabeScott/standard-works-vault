@@ -6,7 +6,7 @@ By Elder Robert L. Backman - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1991/10/jesus-the-christ?lang=eng)
 
-While abridging the records of the Nephites, Mormon wrote: “Behold, I am a disciple of Jesus Christ, the Son of God. I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]). This humble yet straightforward declaration ought to express the feelings of all Latter-day Saints—disciples of Christ, called to minister in his cause.
+While abridging the records of the Nephites, Mormon wrote: “Behold, I am a disciple of Jesus Christ, the Son of God. I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]). This humble yet straightforward declaration ought to express the feelings of all Latter-day Saints—disciples of Christ, called to minister in his cause.
 
 ## Christ: More than a King
 
@@ -16,9 +16,9 @@ In Lloyd Douglas’s book *The Robe* is an imaginative account of the entry of C
 
 “See him—close up?” \[asked the uncouth Athenian\].
 
-“Demetrius nodded; … turning away. …
+“Demetrius nodded; … turning away. …
 
-“Crazy?” persisted the Athenian. …
+“Crazy?” persisted the Athenian. …
 
 “No.”
 
@@ -26,15 +26,15 @@ In Lloyd Douglas’s book *The Robe* is an imaginative account of the entry of C
 
 “No,” muttered Demetrius, … “not a king.”
 
-“What is he, then?” …
+“What is he, then?” …
 
-“I don’t know,” mumbled Demetrius, … “but—he is something more important than a king” (*The Robe* \[Boston: Houghton Mifflin Co., 1947\], p. 74).
+“I don’t know,” mumbled Demetrius, … “but—he is something more important than a king” (*The Robe* \[Boston: Houghton Mifflin Co., 1947\], p. 74).
 
 Jesus Christ is indeed more than a king; he is the Son of God, our Savior, our Redeemer, the Author and Finisher of our faith, King of kings, Lord of lords, Wonderful, Counselor, the Mighty God, the Everlasting Father, the Prince of Peace (see [[Isaiah 9.6|Isa. 9:6]]; [[Hebrews 12.2|Heb. 12:2]]; [[Revelation 17.14|Rev. 17:14]]).
 
-That is what the gospel is all about. Without him, without his intervention in our behalf, we would be helpless in the face of Adam’s transgression. We are indeed saved by grace “through faith” ([[Ephesians 2.8|Eph. 2:8]]), or as Nephi wrote, “It is by grace that we are saved, after all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]).
+That is what the gospel is all about. Without him, without his intervention in our behalf, we would be helpless in the face of Adam’s transgression. We are indeed saved by grace “through faith” ([[Ephesians 2.8|Eph. 2:8]]), or as Nephi wrote, “It is by grace that we are saved, after all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]).
 
-“All other things which pertain to our religion are only appendages” to the testimony of Jesus—his death, burial, resurrection, and ascension into heaven (Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 121).
+“All other things which pertain to our religion are only appendages” to the testimony of Jesus—his death, burial, resurrection, and ascension into heaven (Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 121).
 
 A little girl, misquoting the twenty-third Psalm, put everything in perspective. She said: “The Lord is my shepherd. That’s all I want!” What more could anyone want? What could be more desirable than to “look unto \[Jesus\] in every thought”? ([[D&C 6.36|D&C 6:36]]).
 
@@ -68,7 +68,7 @@ Mary expressed similar feelings: “If thou hadst been here, my brother had not 
 
 ## Disciple of the Living Christ
 
-I exult with Paul: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]]). Christ has won the victory. Death is conquered; life—eternal life—reigns triumphant. We are disciples of the living Christ. Though his body was laid in a borrowed sepulcher, he was resurrected on the third day, appearing to many.
+I exult with Paul: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]]). Christ has won the victory. Death is conquered; life—eternal life—reigns triumphant. We are disciples of the living Christ. Though his body was laid in a borrowed sepulcher, he was resurrected on the third day, appearing to many.
 
 Imagine yourself in the company of the disciples and other believers on the day of the Resurrection. Mere hours have passed since you witnessed the horrifying crucifixion of the gentle Nazarene. You have shared hopeless moments of profound sorrow. Confused, knowing not where to turn, how to act, your minds are clouded with mists of despair. Then two disciples join you with word that they have conversed with the Lord on the road to Emmaus. Dare you believe those who report, “The Lord is risen indeed, and hath appeared to Simon”? ([[Luke 24.34|Luke 24:34]]).
 
@@ -92,15 +92,15 @@ Jesus took upon himself the sins of all of us in Gethsemane and on the cross. He
 
 “Wherefore, redemption cometh in and through the Holy Messiah; for he is full of grace and truth.
 
-“Behold, he offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered” ([[2 Nephi 2.6|2 Ne. 2:6–7]][[2 Nephi 2.7|]]).
+“Behold, he offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered” ([[2 Nephi 2.6|2 Ne. 2:6–7]][[2 Nephi 2.7|]]).
 
 His was a “great and last sacrifice,” an “infinite and eternal sacrifice,” which none but the sinless Son of God could effect ([[Alma 34.10|Alma 34:10]]).
 
-The way to eternal life has been cleared by the “way, the truth, and the life” ([[John 14.6|John 14:6]]). Why should we not accept the invitation to salvation as phrased by Peter, “casting all your care upon him; for he careth for you” ([[1 Peter 5.7|1 Pet. 5:7]]).
+The way to eternal life has been cleared by the “way, the truth, and the life” ([[John 14.6|John 14:6]]). Why should we not accept the invitation to salvation as phrased by Peter, “casting all your care upon him; for he careth for you” ([[1 Peter 5.7|1 Pet. 5:7]]).
 
 ## His Commission
 
-“Wherefore, how great the importance to make these things known unto the inhabitants of the earth” ([[2 Nephi 2.8|2 Ne. 2:8]]). Jesus displayed a missionary zeal, a fervent desire that all the children of God enjoy the blessings of his gospel. Isn’t it interesting that the last chapter of each of the Gospels contains an appeal from the risen Lord to spread the gospel.
+“Wherefore, how great the importance to make these things known unto the inhabitants of the earth” ([[2 Nephi 2.8|2 Ne. 2:8]]). Jesus displayed a missionary zeal, a fervent desire that all the children of God enjoy the blessings of his gospel. Isn’t it interesting that the last chapter of each of the Gospels contains an appeal from the risen Lord to spread the gospel.
 
 On the wall of the main floor of the Church Office Building in Salt Lake City is a magnificent mural depicting Jesus Christ as a resurrected being standing among his eleven Apostles as he gives them a stirring charge to be missionaries to all the world:
 
@@ -110,13 +110,13 @@ On the wall of the main floor of the Church Office Building in Salt Lake City is
 
 The Apostles who there stood with the Son of God responded to this call with faith, boldness, and power. We read that they were “all filled with the Holy Ghost, and they spake the word of God with boldness” ([[Acts 4.31|Acts 4:31]]). They had seen a resurrected being, had eaten with him, had felt his hands and feet. They knew, and knowing, they testified: “For we cannot but speak the things which we have seen and heard” ([[Acts 4.20|Acts 4:20]]).
 
-Does that commission extend to us as his disciples? Perhaps we have not seen, in person, the risen Lord. But the testimony of his chosen witnesses is etched into our hearts by the Holy Spirit. We know, and knowing, we too must testify. Is there any question in the mind of any of us that this is one of the chief responsibilities we enjoy by reason of our membership in his Church? I began with Mormon’s declaration, “I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]). Such is the calling of each of us.
+Does that commission extend to us as his disciples? Perhaps we have not seen, in person, the risen Lord. But the testimony of his chosen witnesses is etched into our hearts by the Holy Spirit. We know, and knowing, we too must testify. Is there any question in the mind of any of us that this is one of the chief responsibilities we enjoy by reason of our membership in his Church? I began with Mormon’s declaration, “I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]). Such is the calling of each of us.
 
 ## Give Yourself to Christ
 
 What Christ desires from each of us is surrender, complete and total—a voluntary gift of trust, faith, and love. C. S. Lewis captured the spirit of this surrender:
 
-“Christ says, ‘Give me All. I don’t want so much of your time and so much of your money and so much of your work: I want You. I have not come to torment your natural self, but to kill it. No half-measures are any good. I don’t want to cut off a branch here and a branch there, I want to have the whole tree down. … Hand over the whole natural self, all the desires which you think innocent as well as the ones you think wicked—the whole outfit. I will give you a new self instead. In fact, I will give you Myself: my own will shall become yours’” (*Mere Christianity* \[New York: Macmillan Publishing Co., 1943\], p. 167).
+“Christ says, ‘Give me All. I don’t want so much of your time and so much of your money and so much of your work: I want You. I have not come to torment your natural self, but to kill it. No half-measures are any good. I don’t want to cut off a branch here and a branch there, I want to have the whole tree down. … Hand over the whole natural self, all the desires which you think innocent as well as the ones you think wicked—the whole outfit. I will give you a new self instead. In fact, I will give you Myself: my own will shall become yours’” (*Mere Christianity* \[New York: Macmillan Publishing Co., 1943\], p. 167).
 
 ## I Know That My Redeemer Lives
 
@@ -129,6 +129,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Jesus_Christ #Missionary_Work #Resurrection
+#JesusChrist #MissionaryWork #Resurrection

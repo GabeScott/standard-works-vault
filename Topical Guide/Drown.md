@@ -1,6 +1,5 @@
 # Drown
 
-
 captains also are *drowned* in the Red sea, [[Exodus 15.4|Exodus 15:4]].
 
 millstone were hanged about his neck, and that he were *drowned*, [[Matthew 18.6|Matthew 18:6]].

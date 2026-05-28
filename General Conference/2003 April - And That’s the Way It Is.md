@@ -53,10 +53,8 @@ May our Father in Heaven bless each one of you. I testify to one and all that Je
 
 [^2]: Kira Albin, “That’s the Way It Is … with Walter Cronkite,” *Grand Times,* Internet, www.grandtimes.com/cronkite.html.
 
-[^3]: In Conference Report, Oct. 2002, 63; or *Ensign,* Nov. 2002, 57.
+[^3]: In Conference Report, Oct. 2002, [[2002 October - To Men of the Priesthood.md|63]]; or *Ensign,* Nov. 2002, 57.
 
 [^4]: *History of the Church,* 2:170.
-
-
 
 #Commandments #Obedience #Worthiness

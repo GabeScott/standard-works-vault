@@ -1,6 +1,6 @@
 # The Role of a Bishop in the Church Welfare Program
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -24,11 +24,11 @@ Fourth, the bishop was to act as an agent for the Church doing whatever temporal
 
 As the Church grew and the Saints gained experience, the Lord distinguished between the responsibilities of the Presiding Bishop and local, or ward, bishops as they have come to be known. Today, in the various handbooks of the priesthood, you will find four major categories of duties appointed unto the ward bishop. Except for those duties which are unique to the Presiding Bishopric of the Church and those which were made inoperative at the time the formal law of consecration was suspended, the role of the bishop today is essentially the same as was defined in these early revelations. Bishops have been given added responsibilities for the youth and as presiding high priest of the ward. However, of all of the bishop’s assignments, as important as each one is, none is more important than care for the poor.
 
-There is only one common judge in each ward, only one man authorized to perceive the needs of the people, only one priesthood holder acting as the Lord’s representative to succor the feeble knees and hands that hang down (see [[D&C 81.5|D&C 81:5]]). Perhaps the most pointed and clear summary of the bishop’s assignment to care for the poor was given by President J. Reuben Clark when he said:
+There is only one common judge in each ward, only one man authorized to perceive the needs of the people, only one priesthood holder acting as the Lord’s representative to succor the feeble knees and hands that hang down (see [[D&C 81.5|D&C 81:5]]). Perhaps the most pointed and clear summary of the bishop’s assignment to care for the poor was given by President J. Reuben Clark when he said:
 
 “To the bishop is given all the powers, and responsibilities which the Lord has specifically prescribed in the Doctrine and Covenants for the caring of the poor, to him go the funds necessary therefor, and to him are given the gifts and functions necessary for carrying on this work. No one else is charged with this duty and responsibility, no one else is endowed with the power and functions necessary for this work.
 
-“… Thus ‘by the word of the Lord the sole mandate to care for and the *sole discretion in caring for, the poor of the Church is lodged in the bishop,*’ and short of actual transgression no one can call his action into question. ‘It is his duty and his only to determine to whom, when, how, and how much shall be given to any member of his ward from Church funds and as ward help.
+“… Thus ‘by the word of the Lord the sole mandate to care for and the *sole discretion in caring for, the poor of the Church is lodged in the bishop,*’ and short of actual transgression no one can call his action into question. ‘It is his duty and his only to determine to whom, when, how, and how much shall be given to any member of his ward from Church funds and as ward help.
 
 “‘This is his high and solemn obligation, imposed by the Lord Himself. The bishop cannot escape this duty; he cannot shirk it; he cannot pass it on to someone else, and so relieve himself. Whatever help he calls in, he is still responsible’” (Unpublished article, Church Historical Department, Salt Lake City, 9 July 1941 pp. 3–4; italics added).
 
@@ -72,7 +72,7 @@ Having resolved the immediate problem, the bishop, in conjunction with the ward 
 
 As noted in several successive welfare handbooks: “In his temporal administrations the bishop looks at every able-bodied needy person as a purely temporary problem, caring for him until he can help himself. The priesthood quorum must look at its needy member as a continuing problem until not alone his temporal needs are met but his spiritual ones also. As a concrete example,—a bishop extends help while the artisan or craftsman is out of work and in want; a priesthood quorum assists in establishing him in work and tries to see that he becomes fully self-supporting and active in his priesthood duties. In Church welfare work, the rehabilitation of quorum members and their families spiritually is the primary responsibility of quorums functioning as quorums” (*Welfare Plan of The Church of Jesus Christ of Latter-day Saints: Handbook of Instructions,* 1952, p. 20).
 
-All bishops should realize that they will be truly successful in lifting lives only if they apply these principles in the spirit in which they are given. As President Clark so often reminded us, “The rule of the bishop in all these matters, is the rule of the priesthood,—a rule of kindness, charity, love, \[and\] righteousness” (J. Reuben Clark, Jr., unpublished article, Church Historical Department, 9 July 1941, p. 13).
+All bishops should realize that they will be truly successful in lifting lives only if they apply these principles in the spirit in which they are given. As President Clark so often reminded us, “The rule of the bishop in all these matters, is the rule of the priesthood,—a rule of kindness, charity, love, \[and\] righteousness” (J. Reuben Clark, Jr., unpublished article, Church Historical Department, 9 July 1941, p. 13).
 
 If bishops approach welfare problems and challenges with prayerful hearts, guided by the spirit of kindness and generosity, truly willing to give all that is needed, I am firmly convinced that this spirit will be transferred to those who are the recipients and that they as receivers will feel of the same spirit. They will know that what they receive has been given to them under the inspiration of the Lord. I am thoroughly convinced that the Lord will touch their hearts that they might be worthy receivers and that their desires may be to do all that they can to truly earn those things that are given to them. I believe that it is not too much to believe that bishops can have in their hearts a desire to give all that is really needed, even sometimes more, and at the same time, our people can have the true Christian spirit that would want them to accept less than their good bishop is willing to give. This is not an idle statement. I honestly believe it is true.
 
@@ -95,8 +95,6 @@ Concerning the obligation of Church members to assist our bishops and branch pre
 “This order I have appointed to be an everlasting order unto you, and unto your successors, inasmuch as you sin not” ([[D&C 82.14|D&C 82:14–20]][[D&C 82.15|]][[D&C 82.16|]][[D&C 82.17|]][[D&C 82.18|]][[D&C 82.19|]][[D&C 82.20|]]).
 
 That we may move forward to this consummation, I humbly pray in the name of Jesus Christ, amen.
-
-
 
 
 

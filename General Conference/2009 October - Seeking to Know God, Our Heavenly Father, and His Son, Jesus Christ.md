@@ -42,15 +42,15 @@ No testimony is more significant to us in our time than the witness of Joseph Sm
 
 As a 14-year-old boy, he sought to know which church he should join. Then, after pondering on the matter, he turned to the Bible, where he read:
 
-“If any of you lack wisdom, let him \[or her\] ask of God, that giveth to all men liberally … ; and it shall be given him.
+“If any of you lack wisdom, let him \[or her\] ask of God, that giveth to all men liberally … ; and it shall be given him.
 
 “But let him ask in faith, nothing wavering.”[^14]
 
 Believing those prophetic words and with unwavering, childlike faith, Joseph went to a grove of trees near his home and there knelt and prayed. Later he recorded:
 
-“I saw a pillar of light exactly over my head. …
+“I saw a pillar of light exactly over my head. …
 
-“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air.”[^15]
+“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air.”[^15]
 
 Looking up at these two beings, even Joseph could not have known who They were—for he had not yet witnessed and learned the true nature of God and Christ. But then, he records, “one of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^16]
 
@@ -133,7 +133,7 @@ As a special witness of the Only Begotten Son of our loving Heavenly Father, eve
 
 [^20]: [[John 14.26|John 14:26]].
 
-[^21]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^21]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^22]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -145,6 +145,4 @@ As a special witness of the Only Begotten Son of our loving Heavenly Father, eve
 
 [^26]: [[John 5.39|John 5:39]].
 
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Prophets #Testimony
+#GodTheFather #HolyGhost #JesusChrist #Prophets #Testimony

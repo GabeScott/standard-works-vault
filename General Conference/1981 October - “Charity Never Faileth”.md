@@ -1,6 +1,6 @@
 # “Charity Never Faileth”
 
-By President Gordon B. Hinckley - *Counselor in the First Presidency*
+By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -10,7 +10,7 @@ My beloved sisters, I speak to you a few words by assignment of President Tanner
 
 I had occasion the other evening to do a little research on the Willie and Martin handcart companies of 1856. There were more than a thousand in those companies, converts to the Church from Scandinavia and the British Isles. They were late in arriving in the States, and dangerously late in leaving Iowa City to begin the long walk to this valley. They became trapped in the snows of Wyoming. Fortunately they were passed on the way by several missionaries who were returning from England and who, when they saw the plight of the handcart Saints, pushed on to this valley and reported to President Brigham Young. That was on the Saturday of the October conference of 1856. The next morning, Sunday, he stood before the people in the old tabernacle that stood on this square, and said in the morning session:
 
-“I will now give this people the subject and the text for the Elders who may speak to-day and during the conference,” he announced. “It is this. … Many of our brethren and sister are on the plains with handcarts, and probably many are now seven hundred miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’ …
+“I will now give this people the subject and the text for the Elders who may speak to-day and during the conference,” he announced. “It is this. … Many of our brethren and sister are on the plains with handcarts, and probably many are now seven hundred miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’ …
 
 “That is my religion; that is the dictation of the Holy Ghost that I possess. It is to save the people.”
 
@@ -20,11 +20,11 @@ He called for teams and wagons and drivers, and then said:
 
 That was on Sunday. On Tuesday morning, two days later, sixteen wagonloads of food and supplies began moving out of this city drawn by sixteen strong four-mule teams, handled by twenty-seven young men.
 
-This was the beginning, and other wagonloads followed as the men responded with their teams and wagons, and the women from their own meager stores gathered in food, clothing, blankets, and other necessities. (See LeRoy R. Hafen, *Handcarts to Zion,* Glendale, California: Arthur H. Clark Company, 1960, pp. 119–26.)
+This was the beginning, and other wagonloads followed as the men responded with their teams and wagons, and the women from their own meager stores gathered in food, clothing, blankets, and other necessities. (See LeRoy R. Hafen, *Handcarts to Zion,* Glendale, California: Arthur H. Clark Company, 1960, pp. 119–26.)
 
 There is no more heroic episode in all of our history. As these poor people, many of them with badly frozen hands and feet, some of them nearer death than life, arrived in the valley, the women who were here opened their homes to them, nurtured them, dressed their wounds, fed them and encouraged and blessed them through that long, bitter winter.
 
-“Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.” ([[1 Corinthians 13.1|1 Cor. 13:1]].)
+“Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.” ([[1 Corinthians 13.1|1 Cor. 13:1]].)
 
 God bless the women of the Relief Society who, now as then, have succored the needy, have befriended the lonely, have fed the hungry, and nursed the sick. “Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].) So said the Lord.
 
@@ -36,7 +36,7 @@ I think of two women, once the closest of friends. The one, through an accident 
 
 Moroni taught that “charity is the pure love of Christ.” ([[Moroni 7.47|Moro. 7:47]].) It was the suffering Redeemer who said, as he hung on Calvary’s cross and looked down upon those who had so brutally crucified him, “Father, forgive them; for they know not what they do.” ([[Luke 23.34|Luke 23:34]].)
 
-If there be any within the sound of my voice who have harbored grudges, who have let hatred develop in their hearts one toward another, I ask you to make the effort to turn around. Hatred always fails and bitterness always destroys, but “charity never faileth.” ([[1 Corinthians 13.8|1 Cor. 13:8]].)
+If there be any within the sound of my voice who have harbored grudges, who have let hatred develop in their hearts one toward another, I ask you to make the effort to turn around. Hatred always fails and bitterness always destroys, but “charity never faileth.” ([[1 Corinthians 13.8|1 Cor. 13:8]].)
 
 There is another aspect of this matter. There is rampant among us a spirit of criticism. Perhaps it is a part of the age in which we live. We are constantly exposed to the writings of newspaper columnists and the opinions of radio and television commentators. Their major objective, it seems to me, is to find fault. They are critical, sometimes viciously so. They are critical of political figures. They are critical of church leaders. None of us is perfect; all of us occasionally make mistakes. There was only one perfect individual who ever walked the earth. Men and women who carry heavy responsibility do not need criticism, they need encouragement. One can disagree with policy without being disagreeable concerning the policymaker.
 
@@ -57,8 +57,6 @@ I commend her example to you. I invoke the blessings of the Lord upon her and he
 “Charity never faileth.” It is the “pure love of Christ, and it endureth forever.” ([[Moroni 7.46|Moro. 7:46–47]][[Moroni 7.47|]].)
 
 God bless you each one, I humbly pray in the name of Jesus Christ, amen.
-
-
 
 
 

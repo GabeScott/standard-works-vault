@@ -44,11 +44,11 @@ When our son Matthew was five, he fell from the top of the high diving board at 
 
 We must be ready at any time. As we say in Scouting, “Be prepared.”
 
-Surely we want to avoid priestcraft. But the Apostle Paul warned us of another danger. He warned that in our day there will be those “having a form of godliness, but denying the power thereof” ([[2 Timothy 3.5|2 Timothy 3:5]]).
+Surely we want to avoid priestcraft. But the Apostle Paul warned us of another danger. He warned that in our day there will be those “having a form of godliness, but denying the power thereof” ([[2 Timothy 3.5|2 Timothy 3:5]]).
 
 How can we as priesthood holders have a form of godliness but deny the power thereof? Could it be that we hold the priesthood but do not exercise it? visit our families rather than home teach them? pray for someone in an ordinance or ordination instead of blessing them? do the Lord’s work the best way we know how without first pleading to know and do His will in His way?
 
-Remember the Lord’s counsel to us through Nephi that we “must not perform any thing unto the Lord save in the first place \[we\] shall pray” ([[2 Nephi 32.9|2 Nephi 32:9]]).
+Remember the Lord’s counsel to us through Nephi that we “must not perform any thing unto the Lord save in the first place \[we\] shall pray” ([[2 Nephi 32.9|2 Nephi 32:9]]).
 
 Years ago I was called to serve as a counselor in the Houston Texas North Stake presidency. I was studying the parable of the talents. You remember the story. A man needed to go away, so he entrusted his servants with his goods. One received five talents, another two, and the last received one. Upon his return, he asked for an accounting.
 
@@ -61,8 +61,6 @@ Thankfully, the Lord teaches us how to be fruitful, how to make a difference. �
 My dear brethren of the priesthood, the Lord Jesus Christ, our Savior and Redeemer, lives! He knows us; He loves us. He placed His trust in us by giving us His priesthood power and authority. I am a witness of this truth. May we use His power and authority to do His will in His way is my prayer.
 
 As we hear from President Hinckley, President Monson, and President Faust, I bear my personal witness that each is a prophet, seer, and revelator. I am anxious to hear their counsel. In the name of Jesus Christ, amen.
-
-
 
 
 

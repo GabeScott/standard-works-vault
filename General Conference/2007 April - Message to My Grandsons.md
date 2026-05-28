@@ -12,7 +12,7 @@ Brethren, tonight I would like to talk to you as I would to my grandsons. I hope
 
 Priesthood is the authority delegated to man to minister in the name of God. It is a power that no one can assume on his own initiative. As Paul said, “No man taketh this honour unto himself, but he that is called of God, as was Aaron.”[^1] It is an authority beyond all human power to create.
 
-Peter, a young priest, wrote of an experience that taught him that priesthood power is very real. A young convert in his ward in Ontario, Canada, was sustained as a teacher in the Aaronic Priesthood, and Peter was asked to be the “voice” in the ordination. Peter wrote: “I had never laid my hands on anybody’s head before, and I felt so inadequate. But then the Spirit reassured me that it would be fine for me to do it. …
+Peter, a young priest, wrote of an experience that taught him that priesthood power is very real. A young convert in his ward in Ontario, Canada, was sustained as a teacher in the Aaronic Priesthood, and Peter was asked to be the “voice” in the ordination. Peter wrote: “I had never laid my hands on anybody’s head before, and I felt so inadequate. But then the Spirit reassured me that it would be fine for me to do it. …
 
 “The young man to be ordained sat down in the chair, and I stood directly behind him. \[Our Young Men president\] guided me through the ordinance prayer and I repeated every word he said. After we had finished the ordination and said, ‘… and we wish to pronounce a blessing on your head at this time …’ \[the Young Men president\] looked at me and indicated that I was on my own.
 
@@ -63,7 +63,7 @@ Now, my dear grandsons and all special young men within the sound of my voice, g
 
 [^4]: [[D&C 64.29|D&C 64:29]].
 
-[^5]: [[1 Timothy 6.11|1 Timothy 6:11]].
+[^5]: [[1 Timothy 6.11|1 Timothy 6:11]].
 
 [^6]: [[Alma 41.11|Alma 41:11]].
 
@@ -82,7 +82,5 @@ Now, my dear grandsons and all special young men within the sound of my voice, g
 [^13]: [[Matthew 6.33|Matthew 6:33]].
 
 [^14]: *The Teachings of Howard W. Hunter,* ed. Clyde J. Williams (1997), 117.
-
-
 
 #Education #Family #Obedience #Priesthood #Responsibility #Testimony

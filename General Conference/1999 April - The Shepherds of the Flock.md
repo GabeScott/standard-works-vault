@@ -66,7 +66,7 @@ The requirements of their office are today as they were in the days of Paul, who
 
 “A bishop then must be blameless, the husband of one wife, vigilant, sober, of good behaviour, given to hospitality, apt to teach;
 
-“Not given to wine, no striker \[that is, not a bully or a violent person\], … not a brawler, not covetous” ([[1 Timothy 3.2|1 Tim. 3:2–3]][[1 Timothy 3.3|]]).
+“Not given to wine, no striker \[that is, not a bully or a violent person\], … not a brawler, not covetous” ([[1 Timothy 3.2|1 Tim. 3:2–3]][[1 Timothy 3.3|]]).
 
 In his letter to Titus, Paul adds that “a bishop must be blameless, as the steward of God; …
 
@@ -99,8 +99,6 @@ My brethren, I invoke the blessings of the Almighty upon you in the great respon
 I thank the Lord for each of you. I love you for what you do. I pray for you, every one of you, wherever you may be. I plead with you to shield yourselves from the darts of the adversary. I counsel you to put on the whole armor of God.
 
 May the blessings of heaven come down upon your wives and your children. Someday you will be released. That will be a day of sadness. The memories of your people will remain throughout your life. They will sanctify your days and bring peace and rest and gladness. God bless you my beloved brethren, I humbly pray, in the name of Jesus Christ, amen.
-
-
 
 
 

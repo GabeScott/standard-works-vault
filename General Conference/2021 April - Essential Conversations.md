@@ -1,6 +1,6 @@
 # Essential Conversations
 
-By Joy D. Jones - *Recently Released Primary General President*
+By Joy D. Jones - *Recently Released Primary General President*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -26,7 +26,7 @@ It is about this “getting far enough in” that I would like to speak this mor
 
 There is a uniquely special time in children’s lives when they are protected from Satan’s influence. It is a time when they are innocent and sin free.[^3] It is a sacred time for parent and child. Children are to be taught, by word and example, before and after they have “arrived unto the years of accountability before God.”[^4]
 
-President Henry B. Eyring taught: “We have the greatest opportunity with the young. The best time to teach is early, while children are still immune to the temptations of \[the\] mortal enemy, and long before the words of truth may be harder for them to hear in the noise of their personal struggles.”[^5] Such teaching will help them realize their divine identity, their purpose, and the rich blessings that await them as they make sacred covenants and receive ordinances along the covenant path.
+President Henry B. Eyring taught: “We have the greatest opportunity with the young. The best time to teach is early, while children are still immune to the temptations of \[the\] mortal enemy, and long before the words of truth may be harder for them to hear in the noise of their personal struggles.”[^5] Such teaching will help them realize their divine identity, their purpose, and the rich blessings that await them as they make sacred covenants and receive ordinances along the covenant path.
 
 We cannot wait for conversion to simply happen to our children. Accidental conversion is *not* a principle of the gospel of Jesus Christ. Becoming like our Savior will not happen randomly. Being intentional in loving, teaching, and testifying can help children begin at a young age to feel the influence of the Holy Ghost. The Holy Ghost is essential to our children’s testimony of and conversion to Jesus Christ; we desire them to “always remember him, that they may have his Spirit to be with them.”[^6]
 
@@ -50,7 +50,7 @@ The Savior urged, “Therefore I give unto you a commandment, to teach these thi
 
 3. The importance of being born again[^11]
 
-Elder D. Todd Christofferson said, “Certainly the adversary is pleased when parents neglect to teach and train their children to have faith in Christ and be spiritually born again.”[^12]
+Elder D. Todd Christofferson said, “Certainly the adversary is pleased when parents neglect to teach and train their children to have faith in Christ and be spiritually born again.”[^12]
 
 In contrast, the Savior would have us help children “put \[their\] trust in that Spirit which leadeth to do good.”[^13] To do so, we can assist children in recognizing when they are feeling the Spirit and in discerning what actions cause the Spirit to leave. Thus they learn to repent and return to the light through the Atonement of Jesus Christ. This helps encourage spiritual resilience.
 
@@ -95,15 +95,15 @@ I testify that He is always the answer. In the sacred name of Jesus Christ, amen
 
 
 
-[^1]: See [[3 Nephi 17.23|3 Nephi 17:23–24]][[3 Nephi 17.24|]].
+[^1]: See [[3 Nephi 17.23|3 Nephi 17:23–24]][[3 Nephi 17.24|]].
 
-[^2]: See Michaelene P. Grassli, “[[1992 October - “Behold Your Little Ones”.md|Behold Your Little Ones]],” *Ensign*, Nov. 1992, 93: “To me, the word *behold* is significant. It implies more than just ‘look and see.’ When the Lord instructed the Nephites to *behold* their little ones, I believe he told them to give attention to their children, to contemplate them, to look beyond the present and see their eternal possibilities.”
+[^2]: See Michaelene P. Grassli, “[[1992 October - “Behold Your Little Ones”.md|Behold Your Little Ones]],” *Ensign*, Nov. 1992, 93: “To me, the word *behold* is significant. It implies more than just ‘look and see.’ When the Lord instructed the Nephites to *behold* their little ones, I believe he told them to give attention to their children, to contemplate them, to look beyond the present and see their eternal possibilities.”
 
 [^3]: See [[D&C 29.46|Doctrine and Covenants 29:46–47]][[D&C 29.47|]].
 
 [^4]: [[D&C 20.71|Doctrine and Covenants 20:71]].
 
-[^5]: Henry B. Eyring, “[[1999 April - The Power of Teaching Doctrine.md|The Power of Teaching Doctrine]],” *Ensign*, May 1999, 74;  *Liahona*, July 1999, 87.
+[^5]: Henry B. Eyring, “[[1999 April - The Power of Teaching Doctrine.md|The Power of Teaching Doctrine]],” *Ensign*, May 1999, 74;  *Liahona*, July 1999, 87.
 
 [^6]: [[D&C 20.79|Doctrine and Covenants 20:79]].
 
@@ -117,24 +117,22 @@ I testify that He is always the answer. In the sacred name of Jesus Christ, amen
 
 [^11]: See [[Moses 6.59|Moses 6:59]]; see also [[D&C 20.29|Doctrine and Covenants 20:29–31]][[D&C 20.30|]][[D&C 20.31|]].
 
-[^12]: D. Todd Christofferson, “[[2015 April - Why Marriage, Why Family.md|Why Marriage, Why Family?]],” *Ensign* or *Liahona*, May 2015, 52.
+[^12]: D. Todd Christofferson, “[[2015 April - Why Marriage, Why Family.md|Why Marriage, Why Family?]],” *Ensign* or *Liahona*, May 2015, 52.
 
 [^13]: See [[D&C 11.12|Doctrine and Covenants 11:12–13]][[D&C 11.13|]]; see also [[D&C 93.1|Doctrine and Covenants 93]][[D&C 93.2|]][[D&C 93.3|]][[D&C 93.4|]][[D&C 93.5|]][[D&C 93.6|]][[D&C 93.7|]][[D&C 93.8|]][[D&C 93.9|]][[D&C 93.10|]][[D&C 93.11|]][[D&C 93.12|]][[D&C 93.13|]][[D&C 93.14|]][[D&C 93.15|]][[D&C 93.16|]][[D&C 93.17|]][[D&C 93.18|]][[D&C 93.19|]][[D&C 93.20|]][[D&C 93.21|]][[D&C 93.22|]][[D&C 93.23|]][[D&C 93.24|]][[D&C 93.25|]][[D&C 93.26|]][[D&C 93.27|]][[D&C 93.28|]][[D&C 93.29|]][[D&C 93.30|]][[D&C 93.31|]][[D&C 93.32|]][[D&C 93.33|]][[D&C 93.34|]][[D&C 93.35|]][[D&C 93.36|]][[D&C 93.37|]][[D&C 93.38|]][[D&C 93.39|]][[D&C 93.40|]][[D&C 93.41|]][[D&C 93.42|]][[D&C 93.43|]][[D&C 93.44|]][[D&C 93.45|]][[D&C 93.46|]][[D&C 93.47|]][[D&C 93.48|]][[D&C 93.49|]][[D&C 93.50|]][[D&C 93.51|]][[D&C 93.52|]][[D&C 93.53|]].
 
-[^14]: [[D&C 27.17|Doctrine and Covenants 27:17]]; emphasis added; see also Marion G. Romney, “Home Teaching and Family Home Evening,” *Improvement Era*, June 1969, 97: “Satan, our enemy, is making an all-out assault upon righteousness. His well-marshaled forces are legion. Our children and youth are the targets of his main thrust. They are everywhere subjected to wicked and vicious propaganda. Every place they turn, they are buffeted with evil, cunningly devised to deceive and to destroy every sacred thing and every righteous principle. … If our children are to be sufficiently strengthened to stand against this satanic onslaught, they must be taught and trained in the home, as the Lord has directed.”
+[^14]: [[D&C 27.17|Doctrine and Covenants 27:17]]; emphasis added; see also Marion G. Romney, “Home Teaching and Family Home Evening,” *Improvement Era*, June 1969, 97: “Satan, our enemy, is making an all-out assault upon righteousness. His well-marshaled forces are legion. Our children and youth are the targets of his main thrust. They are everywhere subjected to wicked and vicious propaganda. Every place they turn, they are buffeted with evil, cunningly devised to deceive and to destroy every sacred thing and every righteous principle. … If our children are to be sufficiently strengthened to stand against this satanic onslaught, they must be taught and trained in the home, as the Lord has directed.”
 
-[^15]: See Russell M. Nelson, “[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign*, May 1995, 32:
+[^15]: See Russell M. Nelson, “[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign*, May 1995, 32:
 
-[^16]: [[2 Nephi 6.3|2 Nephi 6:3]].
+[^16]: [[2 Nephi 6.3|2 Nephi 6:3]].
 
 [^17]: [[Alma 39.16|Alma 39:16]].
 
-[^18]: [[2 Nephi 10.23|2 Nephi 10:23]].
+[^18]: [[2 Nephi 10.23|2 Nephi 10:23]].
 
 [^19]: [[Moses 6.59|Moses 6:59]]; emphasis added.
 
-[^20]: [[2 Nephi 31.20|2 Nephi 31:20]].
-
-
+[^20]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 #Children #Faith #Gospel #Teaching

@@ -1,6 +1,6 @@
 # My Heart Pondereth Them Continually
 
-By Devin G. Durrant - *First Counselor in the Sunday School General Presidency*
+By Devin G. Durrant - *First Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -96,7 +96,7 @@ In review, I hope you will decide to save money each week. Exercise your faith, 
 
 Unlike my first *money-saving* invitation, all the benefits of my second *soul-saving* invitation will be yours to keep forever—free from the moths and rust of this world.[^16]
 
-Elder D. Todd Christofferson offered this clear counsel and promise: “Study the scriptures carefully, deliberately. Ponder and pray over them. Scriptures are revelation, and they will bring added revelation.”[^17]
+Elder D. Todd Christofferson offered this clear counsel and promise: “Study the scriptures carefully, deliberately. Ponder and pray over them. Scriptures are revelation, and they will bring added revelation.”[^17]
 
 ## Conclusion
 
@@ -107,29 +107,29 @@ Remember the words of Jesus Christ when He said, “Do the things which ye have 
 
 
 
-[^1]: See [[3 Nephi 5.13|3 Nephi 5:13]].
+[^1]: See [[3 Nephi 5.13|3 Nephi 5:13]].
 
 [^2]: See [[Alma 37.6|Alma 37:6]]; [[D&C 64.33|Doctrine and Covenants 64:33]].
 
 [^3]: I use *meditizar* in Spanish, which is a combination of *meditar* (to ponder) and *memorizar* (to memorize).
 
-[^4]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^4]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
 [^5]: [[D&C 84.85|Doctrine and Covenants 84:85]]; emphasis added.
 
-[^6]: [[2 Nephi 4.15|2 Nephi 4:15]]; see also [[Deuteronomy 6.7|Deuteronomy 6:7]]; [[2 Nephi 4.16|2 Nephi 4:16]].
+[^6]: [[2 Nephi 4.15|2 Nephi 4:15]]; see also [[Deuteronomy 6.7|Deuteronomy 6:7]]; [[2 Nephi 4.16|2 Nephi 4:16]].
 
 [^7]: [[D&C 6.36|Doctrine and Covenants 6:36]].
 
 [^8]: See [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
 
-[^9]: [[3 Nephi 17.3|3 Nephi 17:3]]; see also [[Moroni 10.3|Moroni 10:3]].
+[^9]: [[3 Nephi 17.3|3 Nephi 17:3]]; see also [[Moroni 10.3|Moroni 10:3]].
 
-[^10]: See [[Matthew 16.25|Matthew 16:25]]; [[1 Nephi 2.20|1 Nephi 2:20]]; [[D&C 14.7|Doctrine and Covenants 14:7]].
+[^10]: See [[Matthew 16.25|Matthew 16:25]]; [[1 Nephi 2.20|1 Nephi 2:20]]; [[D&C 14.7|Doctrine and Covenants 14:7]].
 
 [^11]: [[D&C 121.45|Doctrine and Covenants 121:45]]; emphasis added.
 
-[^12]: [[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added.
+[^12]: [[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added.
 
 [^13]: See [[Luke 2.42|Luke 2:42, 46–47]][[Luke 2.46|]][[Luke 2.47|]].
 
@@ -139,10 +139,8 @@ Remember the words of Jesus Christ when He said, “Do the things which ye have 
 
 [^16]: See [[Matthew 6.19|Matthew 6:19–20]][[Matthew 6.20|]].
 
-[^17]: D. Todd Christofferson, “The Blessing of Scripture,” *Ensign* or *Liahona,* May 2010, 35.
+[^17]: D. Todd Christofferson, “The Blessing of Scripture,” *Ensign* or *Liahona,* May 2010, 35.
 
-[^18]: [[2 Nephi 31.12|2 Nephi 31:12]]; see also [[3 Nephi 27.21|3 Nephi 27:21]].
+[^18]: [[2 Nephi 31.12|2 Nephi 31:12]]; see also [[3 Nephi 27.21|3 Nephi 27:21]].
 
-
-
-#Financial_Management #Scripture_Study #Scriptures
+#FinancialManagement #ScriptureStudy #Scriptures

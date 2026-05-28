@@ -32,7 +32,7 @@ Over the last several years, I have witnessed the suffering of many people, incl
 
 “O then, my beloved brethren, come unto the Lord, the Holy One. Remember that his paths are righteous. Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name.
 
-“And whoso knocketh, to him will he open” ([[2 Nephi 9.41|2 Nephi 9:41–42]][[2 Nephi 9.42|]]).
+“And whoso knocketh, to him will he open” ([[2 Nephi 9.41|2 Nephi 9:41–42]][[2 Nephi 9.42|]]).
 
 It does not matter the circumstances, trials, or challenges that might surround us; an understanding of the doctrine of Christ and His Atonement will be the source of our strength and peace—yes, brothers and sisters, that internal tranquility that is born of the Spirit and which the Lord gives to His faithful Saints. He nourishes us, saying: “Peace I leave with you. … Let not your heart be troubled, neither let it be afraid” ([[John 14.27|John 14:27]]).
 
@@ -42,8 +42,9 @@ Even though our understanding of the gospel may not be as deep as is our testimo
 
 My dear brothers and sisters, how blessed we are to have been brought into this fellowship of the Latter-day Saints! How blessed we are that our testimonies of the Savior are found alongside those of past and modern prophets!
 
-I testify that our Lord, the Holy One of Israel, lives and that He directs His Church, The Church of Jesus Christ of Latter-day Saints, through our beloved prophet, Thomas S. Monson. In the name of our Lord, Jesus Christ, amen.
+I testify that our Lord, the Holy One of Israel, lives and that He directs His Church, The Church of Jesus Christ of Latter-day Saints, through our beloved prophet, Thomas S. Monson. In the name of our Lord, Jesus Christ, amen.
 
 
 
-#Adversity #Atonement #Church_Membership #Faith
+
+#Adversity #Atonement #ChurchMembership #Faith

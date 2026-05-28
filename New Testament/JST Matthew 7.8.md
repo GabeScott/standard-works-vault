@@ -4,6 +4,3 @@
 
 [JST Matthew 7:8](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/7?lang=eng)
 
-
-
-

@@ -28,13 +28,13 @@ For more than one hundred years that same feeling has entered the hearts of vast
 
 But even more majestic than the temple itself is the vision of the purpose of temples which guided the builders. That purpose is to redeem all mankind who are obedient to the laws and commandments of God.
 
-The gospel in its fulness was revealed to Adam, and undoubtedly all religious practices are derived from the remnants of the truth given to Adam. Some religious practices given in those early days have, no doubt, been corrupted as they have been handed down through the ages. But faithful members who understand the eternal nature of the gospel—of God’s holy purpose to bring to pass the eternal life of man—understand clearly why the history of man seems to revolve around the building and use of temples (see John A. Widtsoe, “Temple Worship,” *Utah Genealogical and Historical Quarterly,* Apr. 1921, pp. 53–54).
+The gospel in its fulness was revealed to Adam, and undoubtedly all religious practices are derived from the remnants of the truth given to Adam. Some religious practices given in those early days have, no doubt, been corrupted as they have been handed down through the ages. But faithful members who understand the eternal nature of the gospel—of God’s holy purpose to bring to pass the eternal life of man—understand clearly why the history of man seems to revolve around the building and use of temples (see John A. Widtsoe, “Temple Worship,” *Utah Genealogical and Historical Quarterly,* Apr. 1921, pp. 53–54).
 
-Saints of all ages have had temples in one form or another. There is evidence that temple worship was customary from Adam to Noah and that after the Flood the holy priesthood was continued; therefore, we have every reason to believe the ordinances of the temple were available to those entitled to receive them (see Widtsoe, “Temple Worship,” p. 52).
+Saints of all ages have had temples in one form or another. There is evidence that temple worship was customary from Adam to Noah and that after the Flood the holy priesthood was continued; therefore, we have every reason to believe the ordinances of the temple were available to those entitled to receive them (see Widtsoe, “Temple Worship,” p. 52).
 
 The Lord “commanded Moses that he should build a tabernacle, that they should bear it with them in the wilderness, … that those ordinances might be revealed which had been hid from before the world was” ([[D&C 124.38|D&C 124:38]]).
 
-In Exodus the Lord instructed Moses in meticulous detail regarding the specifications and requirements for the building of the tabernacle. “Though this was but a tent it was elaborately furnished and appointed, the choicest possessions of the people being used in its construction” (James E. Talmage, *Articles of Faith,* 12th ed. \[Salt Lake City: Deseret Book Co., 1924\], p. 153).
+In Exodus the Lord instructed Moses in meticulous detail regarding the specifications and requirements for the building of the tabernacle. “Though this was but a tent it was elaborately furnished and appointed, the choicest possessions of the people being used in its construction” (James E. Talmage, *Articles of Faith,* 12th ed. \[Salt Lake City: Deseret Book Co., 1924\], p. 153).
 
 It was to be portable and movable throughout the wanderings of the Israelites and served their spiritual needs for more than five hundred years. Utility and sublime grandeur were blended in the construction of this unique edifice. This was also true of Solomon’s temple, which superseded the tabernacle as the permanent sanctuary of the Lord, and of temples built by His authority today.
 
@@ -78,17 +78,15 @@ I believe that when you diligently seek after your ancestors—in faith—needed
 
 Our labor for our ancestors is part of the divine plan of our Heavenly Father. It is a momentous assignment given to His Church, which we *will* complete because He has ordained it. This work is a powerful witness of the divine mission of Joseph Smith, through whom it was revealed.
 
-Elder John A. Widtsoe made this remarkable statement: “When the history of human thought shall be written from the point of view of temple worship, it may well be found that temples and the work done in them have been the dominating influence in shaping human thought from the beginning of the race. Even today,” he continued, “political controversies are as nothing in determining the temper of a people, as compared with religious sentiments and convictions, especially as practiced in the temples of the people” (“Temple Worship,” p. 52).
+Elder John A. Widtsoe made this remarkable statement: “When the history of human thought shall be written from the point of view of temple worship, it may well be found that temples and the work done in them have been the dominating influence in shaping human thought from the beginning of the race. Even today,” he continued, “political controversies are as nothing in determining the temper of a people, as compared with religious sentiments and convictions, especially as practiced in the temples of the people” (“Temple Worship,” p. 52).
 
 The salvation of our Heavenly Father’s children from Adam and Eve to the present generation is the most important work in time and eternity. Our joy—or our disappointment—in the eternities may hinge on our willing participation in this great latter-day work.
 
-President Spencer W. Kimball said, “The more clearly we see eternity, the more obvious it becomes that the Lord’s work … is one vast and grand work with striking similarities on each side of the veil” (“The Things of Eternity—Stand We in Jeopardy?” *Ensign,* Jan. 1977, p. 3).
+President Spencer W. Kimball said, “The more clearly we see eternity, the more obvious it becomes that the Lord’s work … is one vast and grand work with striking similarities on each side of the veil” (“The Things of Eternity—Stand We in Jeopardy?” *Ensign,* Jan. 1977, p. 3).
 
 God bless us to love our ancestors and to be worthy of temple participation. I declare this work is true. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Family_History #Temple_Work #Temples
+#FamilyHistory #Temples #TempleWork

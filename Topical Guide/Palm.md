@@ -1,6 +1,5 @@
 # Palm
 
-
 *See also* [[Tree.md|Tree]]
 
 Jericho, the city of *palm* trees, [[Deuteronomy 34.3|Deuteronomy 34:3]] ([[2 Chronicles 28.15|2 Chronicles 28:15]]).

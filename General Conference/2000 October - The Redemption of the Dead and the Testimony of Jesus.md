@@ -10,7 +10,7 @@ By Elder D. Todd Christofferson - *Of the Presidency of the Seventy*
 
 Christian theologians have long wrestled with the question, What is the destiny of the countless billions who have lived and died with no knowledge of Jesus?[^1] With the Restoration of the gospel of Jesus Christ has come the understanding of how the unbaptized dead are redeemed and how God can be “a perfect, just God, and a merciful God also.”[^2]
 
-While yet in life, Jesus prophesied that He would also preach to the dead.[^3] Peter tells us this happened in the interval between the Savior’s Crucifixion and Resurrection.[^4] President Joseph F. Smith witnessed in vision that the Savior visited the spirit world and “from among the righteous \[spirits\] … organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth and carry the light of the gospel to them that were in darkness. …
+While yet in life, Jesus prophesied that He would also preach to the dead.[^3] Peter tells us this happened in the interval between the Savior’s Crucifixion and Resurrection.[^4] President Joseph F. Smith witnessed in vision that the Savior visited the spirit world and “from among the righteous \[spirits\] … organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth and carry the light of the gospel to them that were in darkness. …
 
 “These were taught faith in God, repentance from sin, vicarious baptism for the remission of sins, \[and\] the gift of the Holy Ghost by the laying on of hands.”[^5]
 
@@ -26,7 +26,7 @@ Our anxiety to redeem the dead, and the time and resources we put behind that co
 
 As regards the Resurrection, Paul asked, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?”[^13] We are baptized for the dead because we know that they will rise. “The soul shall be restored to the body, and the body to the soul; yea, and every limb and joint shall be restored to its body; yea, even a hair of the head shall not be lost; but all things shall be restored to their proper and perfect frame.”[^14] “For to this end Christ both died, and rose, and revived, that he might be Lord both of the dead and living.”[^15]
 
-It matters tremendously what we do in relation to those who have gone before, because they live today as spirits and shall live again as immortal souls, and that because of Jesus Christ. We believe His words when He said, “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.”[^16] By the baptisms we perform in behalf of the dead, we testify that “as in Adam all die, even so in Christ shall all be made alive. …
+It matters tremendously what we do in relation to those who have gone before, because they live today as spirits and shall live again as immortal souls, and that because of Jesus Christ. We believe His words when He said, “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.”[^16] By the baptisms we perform in behalf of the dead, we testify that “as in Adam all die, even so in Christ shall all be made alive. …
 
 “For he must reign, till he hath put all enemies under his feet.
 
@@ -87,7 +87,7 @@ Our charge extends as far and as deep as the love of God to encompass His childr
 
 [^3]: See [[John 5.25|John 5:25]].
 
-[^4]: See [[1 Peter 3.18|1 Pet. 3:18–19]][[1 Peter 3.19|]].
+[^4]: See [[1 Peter 3.18|1 Pet. 3:18–19]][[1 Peter 3.19|]].
 
 [^5]: [[D&C 138.30|D&C 138:30, 33]][[D&C 138.33|]].
 
@@ -105,7 +105,7 @@ Our charge extends as far and as deep as the love of God to encompass His childr
 
 [^12]: [[D&C 138.58|D&C 138:58]].
 
-[^13]: [[1 Corinthians 15.29|1 Cor. 15:29]].
+[^13]: [[1 Corinthians 15.29|1 Cor. 15:29]].
 
 [^14]: [[Alma 40.23|Alma 40:23]].
 
@@ -113,25 +113,25 @@ Our charge extends as far and as deep as the love of God to encompass His childr
 
 [^16]: [[John 11.25|John 11:25]].
 
-[^17]: [[1 Corinthians 15.22|1 Cor. 15:22, 25–26]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]].
+[^17]: [[1 Corinthians 15.22|1 Cor. 15:22, 25–26]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]].
 
-[^18]: [[2 Corinthians 5.15|2 Cor. 5:15]].
+[^18]: [[2 Corinthians 5.15|2 Cor. 5:15]].
 
-[^19]: [[1 John 2.2|1 Jn. 2:2]].
+[^19]: [[1 John 2.2|1 Jn. 2:2]].
 
 [^20]: [[Acts 10.34|Acts 10:34–35]][[Acts 10.35|]].
 
-[^21]: [[2 Nephi 26.25|2 Ne. 26:25]].
+[^21]: [[2 Nephi 26.25|2 Ne. 26:25]].
 
-[^22]: [[2 Nephi 26.33|2 Ne. 26:33]].
+[^22]: [[2 Nephi 26.33|2 Ne. 26:33]].
 
 [^23]: [[Romans 8.38|Rom. 8:38–39]][[Romans 8.39|]].
 
 [^24]: [[John 14.6|John 14:6]].
 
-[^25]: [[Acts 4.12|Acts 4:12]]; see also [[2 Nephi 25.20|2 Ne. 25:20]]; [[Mosiah 5.8|Mosiah 5:8]].
+[^25]: [[Acts 4.12|Acts 4:12]]; see also [[2 Nephi 25.20|2 Ne. 25:20]]; [[Mosiah 5.8|Mosiah 5:8]].
 
-[^26]: [[1 Timothy 2.5|1 Tim. 2:5]].
+[^26]: [[1 Timothy 2.5|1 Tim. 2:5]].
 
 [^27]: [[Ephesians 4.5|Eph. 4:5]]. See, for example, John Hick, “Jesus and the World Religions,” in John Hick, ed., *The Myth of God Incarnate* (1977).
 
@@ -141,15 +141,15 @@ Our charge extends as far and as deep as the love of God to encompass His childr
 
 [^30]: [[Acts 2.38|Acts 2:38]].
 
-[^31]: [[2 Nephi 31.7|2 Ne. 31:7]]; see also [[Matthew 3.13|Matt. 3:13–17]][[Matthew 3.14|]][[Matthew 3.15|]][[Matthew 3.16|]][[Matthew 3.17|]]; [[Mark 1.9|Mark 1:9–11]][[Mark 1.10|]][[Mark 1.11|]]; [[Luke 3.21|Luke 3:21–22]][[Luke 3.22|]]; [[John 1.29|John 1:29–34]][[John 1.30|]][[John 1.31|]][[John 1.32|]][[John 1.33|]][[John 1.34|]].
+[^31]: [[2 Nephi 31.7|2 Ne. 31:7]]; see also [[Matthew 3.13|Matt. 3:13–17]][[Matthew 3.14|]][[Matthew 3.15|]][[Matthew 3.16|]][[Matthew 3.17|]]; [[Mark 1.9|Mark 1:9–11]][[Mark 1.10|]][[Mark 1.11|]]; [[Luke 3.21|Luke 3:21–22]][[Luke 3.22|]]; [[John 1.29|John 1:29–34]][[John 1.30|]][[John 1.31|]][[John 1.32|]][[John 1.33|]][[John 1.34|]].
 
-[^32]: [[2 Nephi 31.9|2 Ne. 31:9, 12]][[2 Nephi 31.12|]].
+[^32]: [[2 Nephi 31.9|2 Ne. 31:9, 12]][[2 Nephi 31.12|]].
 
 [^33]: [[D&C 20.26|D&C 20:26]].
 
-[^34]: [[1 Peter 4.6|1 Pet. 4:6]].
+[^34]: [[1 Peter 4.6|1 Pet. 4:6]].
 
-[^35]: [[Malachi 4.5|Mal. 4:5–6]][[Malachi 4.6|]]; see also [[3 Nephi 25.5|3 Ne. 25:5–6]][[3 Nephi 25.6|]]; [[D&C 2.1|D&C 2:1–3]][[D&C 2.2|]][[D&C 2.3|]].
+[^35]: [[Malachi 4.5|Mal. 4:5–6]][[Malachi 4.6|]]; see also [[3 Nephi 25.5|3 Ne. 25:5–6]][[3 Nephi 25.6|]]; [[D&C 2.1|D&C 2:1–3]][[D&C 2.2|]][[D&C 2.3|]].
 
 [^36]: [[D&C 128.18|D&C 128:18]].
 
@@ -159,10 +159,8 @@ Our charge extends as far and as deep as the love of God to encompass His childr
 
 [^39]: [[D&C 110.16|D&C 110:16]].
 
-[^40]: See [[Isaiah 24.22|Isa. 24:22]]; [[1 Peter 3.19|1 Pet. 3:19]]; [[Alma 40.12|Alma 40:12–13]][[Alma 40.13|]]; [[D&C 38.5|D&C 38:5]]; [[D&C 138.22|D&C 138:22, 30]][[D&C 138.30|]]. Even the righteous spirits are spoken of as faithful “captives” awaiting deliverance from the bands of death (see [[D&C 138.18|D&C 138:18–19]][[D&C 138.19|]]).
+[^40]: See [[Isaiah 24.22|Isa. 24:22]]; [[1 Peter 3.19|1 Pet. 3:19]]; [[Alma 40.12|Alma 40:12–13]][[Alma 40.13|]]; [[D&C 38.5|D&C 38:5]]; [[D&C 138.22|D&C 138:22, 30]][[D&C 138.30|]]. Even the righteous spirits are spoken of as faithful “captives” awaiting deliverance from the bands of death (see [[D&C 138.18|D&C 138:18–19]][[D&C 138.19|]]).
 
 [^41]: [[D&C 128.22|D&C 128:22]].
 
-
-
-#Agency #Atonement #Death #Family_History #Jesus_Christ #Obedience #Ordinances #Plan_Of_Salvation #Priesthood #Repentance #Service #Temple_Work #Temples #Testimony
+#Agency #Atonement #Death #FamilyHistory #JesusChrist #Obedience #Ordinances #PlanOfSalvation #Priesthood #Repentance #Service #Temples #TempleWork #Testimony

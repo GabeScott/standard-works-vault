@@ -1,6 +1,5 @@
 # Provide
 
-
 *See also* [[Furnish.md|Furnish]]; [[Provision.md|Provision]]
 
 My son, God will *provide* himself a lamb for a burnt offering, [[Genesis 22.8|Genesis 22:8]].
@@ -9,7 +8,7 @@ My son, God will *provide* himself a lamb for a burnt offering, [[Genesis 22.8|G
 
 *Provide* things honest in the sight of all men, [[Romans 12.17|Romans 12:17]].
 
-if any *provide* not for his own ... he hath denied the faith, [[1 Timothy 5.8|1 Timothy 5:8]].
+if any *provide* not for his own … he hath denied the faith, [[1 Timothy 5.8|1 Timothy 5:8]].
 
 God having *provided* some better thing for us, [[Hebrews 11.40|Hebrews 11:40]].
 

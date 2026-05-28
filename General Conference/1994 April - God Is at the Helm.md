@@ -96,7 +96,7 @@ As surely as this is the work of the Lord, there will be opposition. There will 
 
 Meanwhile, we shall go forward, regardless of their criticism, aware of but undeterred by their statements and actions. Said the Lord even before the Church was organized:
 
-“Therefore, fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. …
+“Therefore, fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. …
 
 “Look unto me in every thought; doubt not, fear not.
 
@@ -109,6 +109,4 @@ I leave you my blessing and love and my testimony of these things in the name of
 
 
 
-
-
-#Authority #Church_Organization #Covenants #First_Presidency #Jesus_Christ #Priesthood #Unity
+#Authority #ChurchOrganization #Covenants #FirstPresidency #JesusChrist #Priesthood #Unity

@@ -41,7 +41,7 @@ The duke ordered, “Stand firm!”
 
 “Stand firm!” was the duke’s order; victory was the result. In these two words of direction—stand firm—I take courage and counsel. Today, sisters, we are engaged in a fierce battle for the minds, hearts, and even the souls of our children, grandchildren, and other family members. But in this fight we have much more powerful weaponry and armor than did the Duke of Wellington’s troops. For we have available to us the strength that comes from faith in the Lord Jesus Christ and the power of the gospel’s ordinances. To be victorious we must arm ourselves with faith in the Lord Jesus Christ and stand firm in our convictions.
 
-In the Book of Mormon we read of the Lamanites “who were converted unto the true faith; and they would not depart from it, for they were firm, and steadfast, and immovable, willing with all diligence to keep the commandments of the Lord” ([[3 Nephi 6.14|3 Ne. 6:14]]).
+In the Book of Mormon we read of the Lamanites “who were converted unto the true faith; and they would not depart from it, for they were firm, and steadfast, and immovable, willing with all diligence to keep the commandments of the Lord” ([[3 Nephi 6.14|3 Ne. 6:14]]).
 
 Your strong and unwavering faith in and knowledge of the gospel of Jesus Christ and His plan for you and your family will be a great protection against conflicting viewpoints and evil influences. Your obedience and faithfulness to eternal covenants and commandments can bring peace and, yes, even happiness amid the chaos of this world. Armed with faith, you can stand firm and you can create a home worthy of Heavenly Father’s children.
 
@@ -80,6 +80,4 @@ May the Lord bless you in your efforts to stand firm in defense of home and fami
 
 
 
-
-
-#Contention #Covenants #Evil #Example #Faith #Family #Fasting #Home #Jesus_Christ #Ordinances #Peace #Plan_Of_Salvation #Prayer #Spirituality #Truth #Women
+#Contention #Covenants #Evil #Example #Faith #Family #Fasting #Home #JesusChrist #Ordinances #Peace #PlanOfSalvation #Prayer #Spirituality #Truth #Women

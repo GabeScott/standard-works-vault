@@ -1,6 +1,6 @@
 # Rendering Service to Others
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -41,8 +41,6 @@ This is a matter of grave importance. In these days of inflation and emotional a
 Let us as individuals, as families, and as wards and stakes learn to live within our means. There is strength and salvation in this principle. Someone has said that we are rich in proportion to that with which we can do without. As families and as a Church, we can and should provide that which is *truly essential* for our people, but we must be careful not to extend beyond that which is essential or for purposes which are not directly related to our families’ welfare and the basic mission of the Church.
 
 I love you, my brethren, young and old, and I am grateful for your faith and your devotion to the cause of the Master. I express my affection for you and leave my blessing with you. And I pray our Heavenly Father to bless you and your families, your homes, and your work. God bless you, peace be with you, in the name of Jesus Christ, amen.
-
-
 
 
 

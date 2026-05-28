@@ -5,4 +5,4 @@
 [Joseph Smith History 1:62](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.62?lang=eng#p62)
 
 
-[^a]: TG [[Urim and Thummim]].
+[^a]: [[Urim and Thummim|TG Urim and Thummim]].  

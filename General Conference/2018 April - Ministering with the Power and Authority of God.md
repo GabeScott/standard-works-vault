@@ -1,6 +1,6 @@
 # Ministering with the Power and Authority of God
 
-By President Russell M. Nelson - *President of the Church*
+By President Russell M. Nelson - *President of the Church*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -10,7 +10,7 @@ By President Russell M. Nelson - *President of the Church*
 
 My beloved brethren, thank you for your devotion to the Lord and His holy work. It is truly a joy to be with you. As a new First Presidency, we thank you for your prayers and for your sustaining efforts. We are grateful for your lives and for your service to the Lord. Your devotion to duty and your selfless service are just as important in your callings as ours are in our callings. Through a lifetime of service in this Church, I have learned that it really doesn’t matter *where* one serves. What the Lord cares about is *how* one serves.
 
-I express deep gratitude for President Thomas S. Monson, who was an example to me for more than 50 years. And for his counselors, President Henry B. Eyring and President Dieter F. Uchtdorf, I express profound admiration. I commend them for their service to the Lord and His prophets. Both of these devoted servants have received new assignments. They continue to serve with vigor and commitment. I honor and love them both.
+I express deep gratitude for President Thomas S. Monson, who was an example to me for more than 50 years. And for his counselors, President Henry B. Eyring and President Dieter F. Uchtdorf, I express profound admiration. I commend them for their service to the Lord and His prophets. Both of these devoted servants have received new assignments. They continue to serve with vigor and commitment. I honor and love them both.
 
 It is a remarkable blessing to serve in the Lord’s true and living Church with His authority and power. The restoration of the priesthood of God, including the keys of the priesthood, opens to worthy Latter-day Saints the greatest of all spiritual blessings. We see those blessings flowing to women, men, and children throughout the world.
 
@@ -59,21 +59,21 @@ Now, brethren, will you please remain standing and join with our chorus in singi
 
 
 
-[^1]: See Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96.
+[^1]: See Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96.
 
-[^2]: See Russell M. Nelson, “[[2016 April - The Price of Priesthood Power.md|The Price of Priesthood Power]],” *Ensign* or *Liahona,* May 2016, 66–69; see also [[Alma 13.7|Alma 13:7–8]][[Alma 13.8|]]; [[D&C 84.17|Doctrine and Covenants 84:17–20, 35–38]][[D&C 84.18|]][[D&C 84.19|]][[D&C 84.20|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]].
+[^2]: See Russell M. Nelson, “[[2016 April - The Price of Priesthood Power.md|The Price of Priesthood Power]],” *Ensign* or *Liahona,* May 2016, 66–69; see also [[Alma 13.7|Alma 13:7–8]][[Alma 13.8|]]; [[D&C 84.17|Doctrine and Covenants 84:17–20, 35–38]][[D&C 84.18|]][[D&C 84.19|]][[D&C 84.20|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]].
 
 [^3]: See [[D&C 84.19|Doctrine and Covenants 84:19–22]][[D&C 84.20|]][[D&C 84.21|]][[D&C 84.22|]]; [[D&C 107.18|107:18–19]][[D&C 107.19|]]; Joseph Smith Translation, Genesis 14:30–31 (in the Bible appendix).
 
 [^4]: [[D&C 132.47|Doctrine and Covenants 132:47]].
 
-[^5]: The connection between the power of the priesthood and personal righteousness is developed more fully in Russell M. Nelson, “[[2016 April - The Price of Priesthood Power.md|The Price of Priesthood Power]],” 66–69; see also [[D&C 121.34|Doctrine and Covenants 121:34–37, 41–44]][[D&C 121.35|]][[D&C 121.36|]][[D&C 121.37|]][[D&C 121.41|]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]].
+[^5]: The connection between the power of the priesthood and personal righteousness is developed more fully in Russell M. Nelson, “[[2016 April - The Price of Priesthood Power.md|The Price of Priesthood Power]],” 66–69; see also [[D&C 121.34|Doctrine and Covenants 121:34–37, 41–44]][[D&C 121.35|]][[D&C 121.36|]][[D&C 121.37|]][[D&C 121.41|]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]].
 
 [^6]: The essential role of an organized, directed effort to minister to individuals and families is evident wherever and whenever the Church of Jesus Christ has been established. See, for example, [[Luke 10.1|Luke 10:1–20]][[Luke 10.2|]][[Luke 10.3|]][[Luke 10.4|]][[Luke 10.5|]][[Luke 10.6|]][[Luke 10.7|]][[Luke 10.8|]][[Luke 10.9|]][[Luke 10.10|]][[Luke 10.11|]][[Luke 10.12|]][[Luke 10.13|]][[Luke 10.14|]][[Luke 10.15|]][[Luke 10.16|]][[Luke 10.17|]][[Luke 10.18|]][[Luke 10.19|]][[Luke 10.20|]]; [[Acts 6.1|Acts 6:1–6]][[Acts 6.2|]][[Acts 6.3|]][[Acts 6.4|]][[Acts 6.5|]][[Acts 6.6|]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[Mosiah 18.9|Mosiah 18:9, 18–19, 27–29]][[Mosiah 18.18|]][[Mosiah 18.19|]][[Mosiah 18.27|]][[Mosiah 18.28|]][[Mosiah 18.29|]]; [[D&C 20.42|Doctrine and Covenants 20:42, 51, 57]][[D&C 20.51|]][[D&C 20.57|]].
 
-[^7]: See [[3 Nephi 17.9|3 Nephi 17:9–10, 20–21]][[3 Nephi 17.10|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]].
+[^7]: See [[3 Nephi 17.9|3 Nephi 17:9–10, 20–21]][[3 Nephi 17.10|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]].
 
-[^8]: Manti Utah Temple, June 15, 1937.
+[^8]: Manti Utah Temple, June 15, 1937.
 
 [^9]: Leonora’s fasting and praying every Monday for years surely had a powerful influence for good.
 
@@ -83,5 +83,6 @@ Now, brethren, will you please remain standing and join with our chorus in singi
 
 [^12]: [[Alma 13.3|Alma 13:3]].
 
+[^13]: “Rise Up, O Men of God,” *Hymns,* no. 324.
 
-#Activation #Ministering #Priesthood #Priesthood_Blessings #Service
+#Activation #Ministering #PriesthoodBlessings #Priesthood #Service

@@ -1,6 +1,5 @@
 # Eye
 
-
 eat thereof, then your *eyes* shall be opened, [[Genesis 3.5|Genesis 3:5]] ([[Moses 4.11|Moses 4:11]]).
 
 *Eye* for *eye*, [[Exodus 21.24|Exodus 21:24]] ([[Leviticus 24.20|Leviticus 24:20]]; [[Deuteronomy 19.21|Deuteronomy 19:21]]; [[Matthew 5.38|Matthew 5:38]]; [[3 Nephi 12.38|3 Nephi 12:38]]).
@@ -29,7 +28,7 @@ Mine *eyes* are ever toward the Lord, [[Psalms 25.15|Psalms 25:15]].
 
 *eyes* of the Lord are upon the righteous, [[Psalms 34.15|Psalms 34:15]] ([[1 Peter 3.12|1 Peter 3:12]]).
 
-light of mine *eyes* ... is gone from me, [[Psalms 38.10|Psalms 38:10]].
+light of mine *eyes* … is gone from me, [[Psalms 38.10|Psalms 38:10]].
 
 he that formed the *eye*, shall he not see, [[Psalms 94.9|Psalms 94:9]].
 
@@ -47,7 +46,7 @@ ways of a man are clean in his own *eyes*, [[Proverbs 16.2|Proverbs 16:2]].
 
 a generation that are pure in their own *eyes*, [[Proverbs 30.12|Proverbs 30:12]].
 
-wise man's *eyes* are in his head, [[Ecclesiastes 2.14|Ecclesiastes 2:14]].
+wise man’s *eyes* are in his head, [[Ecclesiastes 2.14|Ecclesiastes 2:14]].
 
 Woe unto them that are wise in their own *eyes*, [[Isaiah 5.21|Isaiah 5:21]] ([[2 Nephi 15.21|2 Nephi 15:21]]).
 
@@ -59,7 +58,7 @@ sleep, and hath closed your *eyes*, [[Isaiah 29.10|Isaiah 29:10]] ([[Romans 11.8
 
 they shall see *eye* to *eye*, [[Isaiah 52.8|Isaiah 52:8]].
 
-neither hath the *eye* seen ... what he hath prepared, [[Isaiah 64.4|Isaiah 64:4]] ([[1 Corinthians 2.9|1 Corinthians 2:9]]; [[D&C 76.10|D&C 76:10]]).
+neither hath the *eye* seen … what he hath prepared, [[Isaiah 64.4|Isaiah 64:4]] ([[1 Corinthians 2.9|1 Corinthians 2:9]]; [[D&C 76.10|D&C 76:10]]).
 
 which have *eyes*, and see not, [[Jeremiah 5.21|Jeremiah 5:21]] ([[Ezekiel 12.2|Ezekiel 12:2]]).
 
@@ -69,7 +68,7 @@ which have *eyes*, and see not, [[Jeremiah 5.21|Jeremiah 5:21]] ([[Ezekiel 12.2|
 
 light of the body is the *eye*, [[Matthew 6.22|Matthew 6:22]] ([[Luke 11.34|Luke 11:34]]; [[3 Nephi 13.22|3 Nephi 13:22]]; [[D&C 88.67|D&C 88:67]]).
 
-mote that is in thy brother's *eye*, [[Matthew 7.3|Matthew 7:3]] ([[Luke 6.41|Luke 6:41]]; [[3 Nephi 14.3|3 Nephi 14:3]]).
+mote that is in thy brother’s *eye*, [[Matthew 7.3|Matthew 7:3]] ([[Luke 6.41|Luke 6:41]]; [[3 Nephi 14.3|3 Nephi 14:3]]).
 
 their *eyes* were opened, [[Matthew 9.30|Matthew 9:30]].
 
@@ -95,7 +94,7 @@ ye would have plucked out your own *eyes*, [[Galatians 4.15|Galatians 4:15]].
 
 *eyes* of your understanding, [[Ephesians 1.18|Ephesians 1:18]].
 
-all things are ... opened unto the *eyes* of him, [[Hebrews 4.13|Hebrews 4:13]].
+all things are … opened unto the *eyes* of him, [[Hebrews 4.13|Hebrews 4:13]].
 
 Having *eyes* full of adultery, [[2 Peter 2.14|2 Peter 2:14]].
 
@@ -111,7 +110,7 @@ piercing *eye* of the Almighty God, [[Jacob 2.10|Jacob 2:10]].
 
 with an *eye* single to his glory, [[Mormon 8.15|Mormon 8:15]] ([[D&C 4.5|D&C 4:5]]; [[D&C 59.1|D&C 59:1]]; [[D&C 82.19|D&C 82:19]]).
 
-saw with their *eyes* the things ... beheld with an *eye* of faith, [[Ether 12.19|Ether 12:19]].
+saw with their *eyes* the things … beheld with an *eye* of faith, [[Ether 12.19|Ether 12:19]].
 
 whose *eyes* are upon all men, [[D&C 1.1|D&C 1:1]] ([[D&C 38.7|D&C 38:7]]; [[D&C 67.2|D&C 67:2]]).
 

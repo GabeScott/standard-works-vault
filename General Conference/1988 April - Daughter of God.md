@@ -36,9 +36,9 @@ Truly, “marriage is ordained of God” ([[D&C 49.15|D&C 49:15]]). “Marriage 
 
 ## Abraham’s Commitment
 
-When the Lord told Abraham to offer his only son, Isaac, on Mount Moriah, Abraham took Isaac, two servants, and a donkey and built an altar (see [[Genesis 22.2|Gen. 22:2–3]][[Genesis 22.3|]]). On the way, Isaac asked, “Where is the lamb for a burnt offering?” Though Father Abraham knew that Isaac was the one, he said, “My son, God will provide” ([[Genesis 22.7|vs. 7–8]][[Genesis 22.8|]]).
+When the Lord told Abraham to offer his only son, Isaac, on Mount Moriah, Abraham took Isaac, two servants, and a donkey and built an altar (see [[Genesis 22.2|Gen. 22:2–3]][[Genesis 22.3|]]). On the way, Isaac asked, “Where is the lamb for a burnt offering?” Though Father Abraham knew that Isaac was the one, he said, “My son, God will provide” ([[Genesis 22.7|vs. 7–8]][[Genesis 22.8|]]).
 
-When the time came, Abraham was willing to offer Isaac, and Isaac did not run away (see [[Genesis 22.9|vs. 9–11]][[Genesis 22.10|]][[Genesis 22.11|]]). Brothers and sisters, in our marriages, we need both the commitment of Abraham and also the spirit of Isaac.
+When the time came, Abraham was willing to offer Isaac, and Isaac did not run away (see [[Genesis 22.9|vs. 9–11]][[Genesis 22.10|]][[Genesis 22.11|]]). Brothers and sisters, in our marriages, we need both the commitment of Abraham and also the spirit of Isaac.
 
 ## Behold Thy Mother
 
@@ -66,13 +66,11 @@ Because his wife had to go to Kalaupapa, the leper colony, Jonathon, too, wanted
 
 Oh, how much do I love my wife? Oh, do I love her as a daughter of God, as Jonathon loved his wife? Would I be willing to go to a place like that to be with her? Would you be willing to demonstrate your pure love like Jonathon? Brethren, are we honoring our companions? Are we caring? Are we thoughtful? We must be, because God has joined us together (see [[Mark 10.9|Mark 10:9]]).
 
-History records that this valiant and giant man of God worked in the leper colony and fought to obtain government assistance for the lepers to have a more comfortable place to live. He was a giant in the pure love of Christ for his own people. Oh, I can almost hear the words of Paul to the Corinthians when he said, “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal” ([[1 Corinthians 13.1|1 Cor. 13:1]]).
+History records that this valiant and giant man of God worked in the leper colony and fought to obtain government assistance for the lepers to have a more comfortable place to live. He was a giant in the pure love of Christ for his own people. Oh, I can almost hear the words of Paul to the Corinthians when he said, “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal” ([[1 Corinthians 13.1|1 Cor. 13:1]]).
 
 This good brother later contracted that same disease and died even before his wife passed away. She followed him two years later. Husbands, do you love your wife as a daughter of God? Oh, “husbands, love your wives” as daughters of God, “even as Christ also loved the church and gave himself for it” ([[Ephesians 5.25|Eph. 5:25]]).
 
 I know that God lives! This is his church. I know that the Savior lives! I know that Joseph Smith was a prophet of God, who restored this church. I know that our beloved prophet, even President Ezra Taft Benson, is the living oracle of God and an example to us. The Book of Mormon is true. In the name of Jesus Christ, amen.
-
-
 
 
 

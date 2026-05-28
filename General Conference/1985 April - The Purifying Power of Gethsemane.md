@@ -125,6 +125,4 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-#Atonement #Jesus_Christ #Resurrection
+#Atonement #JesusChrist #Resurrection

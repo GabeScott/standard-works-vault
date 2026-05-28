@@ -1,6 +1,6 @@
 # God among Us
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -132,7 +132,7 @@ As we seek to follow Jesus Christ and walk the path of discipleship, line upon l
 
 My beloved friends, your Heavenly Father loves you with a perfect love. He has proven His love in endless ways, but above all by giving His Only Begotten Son as a sacrifice and as a gift to His children to make the return to our heavenly parents a reality.
 
-I bear witness that our Heavenly Father lives, that Jesus Christ leads His Church, that President Russell M. Nelson is His prophet.
+I bear witness that our Heavenly Father lives, that Jesus Christ leads His Church, that President Russell M. Nelson is His prophet.
 
 I extend to you my love and blessing at this joyful Easter season. Open your hearts to our Savior and Redeemer, no matter your circumstances, trials, sufferings, or mistakes; you can know that He lives, that He loves you, and that because of Him, you will never be alone.
 
@@ -147,7 +147,7 @@ Of this I testify and bear witness in the sacred name of Jesus Christ, amen.
 
 [^2]: [[Romans 8.17|Romans 8:17]]; see also [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-[^3]: See [[3 Nephi 28.10|3 Nephi 28:10]].
+[^3]: See [[3 Nephi 28.10|3 Nephi 28:10]].
 
 [^4]: [[D&C 132.19|Doctrine and Covenants 132:19]].
 
@@ -159,11 +159,11 @@ Of this I testify and bear witness in the sacred name of Jesus Christ, amen.
 
 [^8]: See [[Alma 36.17|Alma 36:17–20]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]].
 
-[^9]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^9]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
 [^10]: See [[D&C 50.24|Doctrine and Covenants 50:24]].
 
-[^11]: [[1 John 3.2|1 John 3:2]].
+[^11]: [[1 John 3.2|1 John 3:2]].
 
 [^12]: See [[Mormon 7.7|Mormon 7:7]].
 
@@ -181,7 +181,7 @@ Of this I testify and bear witness in the sacred name of Jesus Christ, amen.
 
 [^19]: See [[D&C 81.5|Doctrine and Covenants 81:5]].
 
-[^20]: [[1 John 3.18|1 John 3:18]].
+[^20]: [[1 John 3.18|1 John 3:18]].
 
 [^21]: What qualifies someone to preach the gospel? The Savior answers, “Whosoever will thrust in his sickle and reap, the same is called of God” ([[D&C 11.4|Doctrine and Covenants 11:4]]). Ultimately, it is our desires that qualify us for the work of proclaiming the word of God (see [[D&C 4.3|Doctrine and Covenants 4:3]]).
 
@@ -201,7 +201,8 @@ Of this I testify and bear witness in the sacred name of Jesus Christ, amen.
 
 [^29]: See [[Proverbs 3.5|Proverbs 3:5]].
 
-[^30]: See [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 20.37|Doctrine and Covenants 20:37]].
+[^30]: See [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 20.37|Doctrine and Covenants 20:37]].
 
+[^31]: See [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-#Adversity #God_The_Father #Hope #Jesus_Christ #Love #Plan_Of_Salvation #Repentance
+#Adversity #GodTheFather #Hope #JesusChrist #Love #PlanOfSalvation #Repentance

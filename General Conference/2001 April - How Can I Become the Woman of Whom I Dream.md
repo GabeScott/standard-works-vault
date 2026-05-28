@@ -76,7 +76,7 @@ There is nothing in all this world as magnificent as virtue. It glows without ta
 
 You young women spend a lot of time thinking of the boys. You can have a good time with them, but never overstep the line of virtue. Any young man who invites or encourages you or demands that you indulge in any kind of sexual behavior is unworthy of your company. Get him out of your life before both yours and his are blighted. If you can thus discipline yourselves, you will be grateful for as long as you live. Most of you will marry, and your marriage will be much the happier for your earlier restraint. You will be worthy to go to the house of the Lord. There is no adequate substitute for this marvelous blessing. The Lord has given a wonderful mandate. He has said, “Let virtue garnish thy thoughts unceasingly” ([[D&C 121.45|D&C 121:45]]). This becomes a commandment to be observed with diligence and discipline. And there is attached to it the promise of marvelous and wonderful blessings. He has said to those who live with virtue:
 
-“Then shall thy confidence wax strong in the presence of God. …
+“Then shall thy confidence wax strong in the presence of God. …
 
 “The Holy Ghost”—of which we have spoken tonight—“shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever” ([[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]]).
 
@@ -112,6 +112,4 @@ Look to the positive. Know that He is watching over you, that He hears your pray
 
 
 
-
-
-#Education #Forgiveness #Friendship #Goals #Morality #Peace #Prayer #Respect #Service #Sin #Success #Talents #Temptation #Work #Young_Women
+#Education #Forgiveness #Friendship #Goals #Morality #Peace #Prayer #Respect #Service #Sin #Success #Talents #Temptation #Work #YoungWomen

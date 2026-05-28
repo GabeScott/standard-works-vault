@@ -1,6 +1,6 @@
 # The Prayer of Faith
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -14,7 +14,7 @@ Upon returning to Salt Lake City, I enlisted the help of then-President LaVern P
 
 Years later, while attending the stake conference of the Brisbane Australia Stake, I happened to mention in a priesthood session the plight of this faithful woman and her children. I said, “Someday I hope to learn if that home Primary succeeded and meet the nonmember husband and father of that choice family.” One of the brethren in the meeting stood and said, “Brother Monson, I am Richard Louden, the husband of that good woman and the father of those precious children. Prayer and Primary brought me into the Church.”
 
-The power of prayer again came to mind this past winter. I was on assignment many thousands of miles to the south in the beautiful city of Buenos Aires, Argentina. I paused by the historic Palermo Park, which graces the downtown area, and realized that this was sacred ground, for here on Christmas Day in 1925 Elder Melvin J. Ballard, an apostle of the Lord, dedicated all of South America for the preaching of the gospel. What a fulfillment to an inspired prayer is evident today as the growth of the Church in that land exceeds all expectations.
+The power of prayer again came to mind this past winter. I was on assignment many thousands of miles to the south in the beautiful city of Buenos Aires, Argentina. I paused by the historic Palermo Park, which graces the downtown area, and realized that this was sacred ground, for here on Christmas Day in 1925 Elder Melvin J. Ballard, an apostle of the Lord, dedicated all of South America for the preaching of the gospel. What a fulfillment to an inspired prayer is evident today as the growth of the Church in that land exceeds all expectations.
 
 In that same park is a large statue of George Washington, the father of the United States and its first president. As I observed the statue, my thoughts returned to another historic place where prayer played a vital role—even Valley Forge. It was at Valley Forge that this same Washington led his badly battered, ill-fed, and scantily clad troops to winter quarters.
 
@@ -28,7 +28,7 @@ The birth of the babe in Bethlehem was transcendent in its beauty and singular i
 
 More than any prophet or leader, He showed us how to pray. Who can fail to remember His agony in Gethsemane and that fervent prayer: “O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.” ([[Matthew 26.39|Matt. 26:39]].) And His injunction: “Watch and pray, that ye enter not into temptation.” ([[Matthew 26.41|Matt. 26:41]].)
 
-We remember His counsel: “When thou prayest, thou shalt not be as the hypocrites are: for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. …
+We remember His counsel: “When thou prayest, thou shalt not be as the hypocrites are: for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. …
 
 “But thou, when thou prayest, … pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.” ([[Matthew 6.5|Matt. 6:5–6]][[Matthew 6.6|]].)
 
@@ -88,7 +88,7 @@ Todd
 
 That plea, that prayer of faith, was heard and answered. A night I shall ever treasure and long remember was when this entire family assembled in a sacred room in the beautiful temple which graces this square. Father was there. Mother was there. Every child was there. Ordinances eternal in their significance were performed. A humble prayer of gratitude brought to a close this long-awaited evening.
 
-May we ever remember …
+May we ever remember …
 
 >Prayer is the soul’s sincere desire,
 >Uttered or unexpressed,
@@ -102,8 +102,6 @@ May we ever remember …
 >
 
 He has taught us how to pray. That each of us will learn and live this lesson is my earnest plea and sincere prayer, in the name of Jesus Christ. Amen.
-
-
 
 
 

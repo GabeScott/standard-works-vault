@@ -1,6 +1,6 @@
 # Prepare Now for Your Mission
 
-By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
+By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -8,7 +8,7 @@ By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Sevent
 
 Young men, I should like to talk to you about your progress toward the eternities. One of the greatest opportunities of this life is the refining influence that comes into your soul as you make preparations to touch hearts when you are on His sacred errand as a missionary. May I suggest six things you might do:
 
-1. Pray fervently to your Father in heaven at least twice each day—perhaps appropriate times would be as the day begins and as it closes. This will build a close personal relationship with him. Listen to these thoughts titled, “Proof”:If radio’s slim fingers can pluck a melodyFrom night—and toss it over a continent or sea;If the petalled white notes of a violinAre blown across the mountains or the city’s din;If songs, like crimson roses, are culled from thin blue air—Why should mortals wonder if God hears prayer?(Ethel Romig Fuller, “Proof,” in *Masterpieces of Religious Verse,* ed. James Dalton Morrison, New York: Harper and Bros., 1948, p. 407.)
+1. Pray fervently to your Father in heaven at least twice each day—perhaps appropriate times would be as the day begins and as it closes. This will build a close personal relationship with him. Listen to these thoughts titled, “Proof”:
 
 2. Have your own personal copies of the scriptures. Young men, will you put forth sufficient effort to secure them?
 
@@ -68,13 +68,11 @@ Do you understand what has happened in the past few minutes? Will you imagine yo
 
 6. I’ll be grateful for the blessings of family home evening.
 
-Now, young man, get up from that reclining position by the fence and move! What will be the result? You will be a better missionary. When our prophet-leader, President Spencer W. Kimball, says, “Every young man on a mission,” he is looking far beyond the months spent in the mission field. Upon your return you will be a better bishop and a better stake president, a better husband, a better father, and a better whatever you will be both in this life and the one to come.
+Now, young man, get up from that reclining position by the fence and move! What will be the result? You will be a better missionary. When our prophet-leader, President Spencer W. Kimball, says, “Every young man on a mission,” he is looking far beyond the months spent in the mission field. Upon your return you will be a better bishop and a better stake president, a better husband, a better father, and a better whatever you will be both in this life and the one to come.
 
 As you make your decision, will you remember this? The Lord lives. Jesus is the Christ. This is His work in which we are engaged. In the final analysis, you must stand on your own decision. This decision will be a test of your character and obedience. May you be blessed to decide affirmatively and then prepare courageously and serve magnificently, I pray in the name of the Lord Jesus Christ. Amen.
 
 
 
 
-
-
-#Missionary_Work #Preparation
+#MissionaryWork #Preparation

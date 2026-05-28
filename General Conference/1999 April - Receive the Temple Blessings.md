@@ -47,6 +47,4 @@ I testify that with unimaginable suffering and agony at an incalculable price, t
 
 
 
-
-
-#Atonement #Dating #God_The_Father #Jesus_Christ #Marriage #Ordinances #Single_Members #Temple_Work #Temples #Worthiness
+#Atonement #Dating #GodTheFather #JesusChrist #Marriage #Ordinances #SingleMembers #Temples #TempleWork #Worthiness

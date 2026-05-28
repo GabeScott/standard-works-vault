@@ -21,6 +21,4 @@ Young women all over the world, I *challenge* each of you to listen to the proph
 
 
 
-
-
-#Prophets #Scripture_Study
+#Prophets #ScriptureStudy

@@ -10,11 +10,11 @@ How many of you parents have had an experience similar to this: You are relaxing
 
 Just as earthly parents have issued warnings, the Lord has warned His children. “And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days” ([[D&C 1.4|D&C 1:4]]).
 
-And after their testimonies “cometh the testimony of earthquakes, that shall cause groanings in the midst of \[the earth\]. …
+And after their testimonies “cometh the testimony of earthquakes, that shall cause groanings in the midst of \[the earth\]. …
 
 “And also cometh the testimony of the voice of thunderings, … lightnings, … tempests, and … waves of the sea heaving themselves beyond their bounds” ([[D&C 88.89|D&C 88:89–90]][[D&C 88.90|]]).
 
-“And in that day shall be heard of wars and rumors of wars. …
+“And in that day shall be heard of wars and rumors of wars. …
 
 “And the love of men shall wax cold, and iniquity shall abound” ([[D&C 45.26|D&C 45:26–27]][[D&C 45.27|]]).
 
@@ -26,7 +26,7 @@ It may be an understatement to say the Lord’s warnings have begun. How are we 
 
 Prior to discussing how we should respond, I would like to suggest, in today’s vernacular, two attitude adjustments. First, we need to overcome fatalism. We know the prophecies of the future. We know the final outcome. We know the world collectively will not repent, and, consequently, the last days will be filled with much pain and suffering. Therefore, we could throw up our hands and do nothing but pray for the end to come so the millennial reign could begin. To do so would forfeit our right to participate in the grand event we are all awaiting. We must all become players in the winding-up scene, not spectators. We must do all we can to prevent calamities and then do everything possible to assist and comfort the victims of tragedies that do occur.
 
-Lehi set an excellent example for us in the way he handled his knowledge relative to the future of Laman and Lemuel. Early in their lives, Lehi had a vision that disclosed Laman and Lemuel would not partake of the fruit of the tree of life. Immediately after the vision, however, “he did exhort them … with all the feeling of a tender parent, that they would hearken to his words, that perhaps the Lord would be merciful to them” ([[1 Nephi 8.37|1 Ne. 8:37]]). During the remainder of Lehi’s life, Laman and Lemuel’s actions gave him little hope that they would repent. However, he never gave up but labored with them and loved them even with his dying breath (see [[2 Nephi 1.21|2 Ne. 1:21]]).
+Lehi set an excellent example for us in the way he handled his knowledge relative to the future of Laman and Lemuel. Early in their lives, Lehi had a vision that disclosed Laman and Lemuel would not partake of the fruit of the tree of life. Immediately after the vision, however, “he did exhort them … with all the feeling of a tender parent, that they would hearken to his words, that perhaps the Lord would be merciful to them” ([[1 Nephi 8.37|1 Ne. 8:37]]). During the remainder of Lehi’s life, Laman and Lemuel’s actions gave him little hope that they would repent. However, he never gave up but labored with them and loved them even with his dying breath (see [[2 Nephi 1.21|2 Ne. 1:21]]).
 
 The great prophet Mormon set another example worthy of emulation. He lived at a time that was hopeless. Imagine this: “There were no gifts from the Lord, and the Holy Ghost did not come upon any, because of their wickedness and unbelief” ([[Mormon 1.14|Morm. 1:14]]).
 
@@ -64,9 +64,9 @@ Our numbers are few. For every member of the Church in the world, there are appr
 
 The Brethren closely monitor the multitude of crises throughout the world and give assistance to a wide range of countries. The assistance is given where the need seems to be the greatest, without consideration to the political or religious ideologies that exist in each country.
 
-On this subject, Joseph Smith, in response to the question “What is required to constitute good \[Church\] membership?” said, among other things, “He is to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other, or in no church at all, wherever he finds them” (*Times and Seasons,* 15 Mar. 1842, p. 732).
+On this subject, Joseph Smith, in response to the question “What is required to constitute good \[Church\] membership?” said, among other things, “He is to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other, or in no church at all, wherever he finds them” (*Times and Seasons,* 15 Mar. 1842, p. 732).
 
-More recently President Hinckley said, “Where there is stark hunger, regardless of the cause, I will not let political considerations dull my sense of mercy or thwart my responsibility to the sons and daughters of God, wherever they may be or whatever their circumstances” (in Conference Report, Apr. 1985, p. 72; or *Ensign,* May 1985, p. 54).
+More recently President Hinckley said, “Where there is stark hunger, regardless of the cause, I will not let political considerations dull my sense of mercy or thwart my responsibility to the sons and daughters of God, wherever they may be or whatever their circumstances” (in Conference Report, Apr. 1985, [[1985 April - The Victory over Death.md|p. 72]]; or *Ensign,* May 1985, p. 54).
 
 As Church members read accounts or see graphic pictures of human suffering, they are touched and ask, “What can we do?” Most of us will not be in a position to help on a person-to-person basis when the need is many miles away. However, every member of the Church can pray for peace throughout the world and for the well-being of all its inhabitants. Also, members may fast and increase their fast offerings when they are able and thus enable the Church to do more.
 
@@ -85,6 +85,4 @@ As the last days unfold, we will see all the prophecies fulfilled. We will see t
 
 
 
-
-
-#Compassion #Missionary_Work #Prophets #Service
+#Compassion #MissionaryWork #Prophets #Service

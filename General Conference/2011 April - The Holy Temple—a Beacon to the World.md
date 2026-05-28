@@ -1,6 +1,6 @@
 # The Holy Temple—a Beacon to the World
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -18,11 +18,11 @@ I declare that the welfare program of The Church of Jesus Christ of Latter-day S
 
 Now, my brothers and sisters, this conference marks three years since I was sustained as President of the Church. Of course they have been busy years, filled with many challenges but also with countless blessings. The opportunity I have had to dedicate and rededicate temples has been among the most enjoyable and sacred of these blessings, and it is concerning the temple that I wish to speak to you today.
 
-During the October general conference in 1902, Church President Joseph F. Smith expressed in his opening address the hope that one day we would “have temples built in the various parts of the \[world\] where they are needed for the convenience of the people.”[^1]
+During the October general conference in 1902, Church President Joseph F. Smith expressed in his opening address the hope that one day we would “have temples built in the various parts of the \[world\] where they are needed for the convenience of the people.”[^1]
 
 During the first 150 years following the organization of the Church, from 1830 to 1980, 21 temples were built, including the temples in Kirtland, Ohio, and Nauvoo, Illinois. Contrast that with the 30 years since 1980, during which 115 temples were built and dedicated. With the announcement yesterday of 3 new temples, there are additionally 26 temples either under construction or in preconstruction stages. These numbers will continue to grow.
 
-The goal President Joseph F. Smith hoped for in 1902 is becoming a reality. Our desire is to make the temple as accessible as possible to our members.
+The goal President Joseph F. Smith hoped for in 1902 is becoming a reality. Our desire is to make the temple as accessible as possible to our members.
 
 One of the temples currently under construction is in Manaus, Brazil. Many years ago I read of a group of over a hundred members who left Manaus, located in the heart of the Amazon rain forest, to travel to what was then the closest temple, located in São Paulo, Brazil—nearly 2,500 miles (4,000 km) from Manaus. Those faithful Saints journeyed by boat for four days on the Amazon River and its tributaries. After completing this journey by water, they boarded buses for another three days of travel—over bumpy roads, with very little to eat, and with nowhere comfortable to sleep. After seven days and nights, they arrived at the temple in São Paulo, where ordinances eternal in nature were performed. Of course their return journey was just as difficult. However, they had received the ordinances and blessings of the temple, and although their purses were empty, they themselves were filled with the spirit of the temple and with gratitude for the blessings they had received.[^2] Now, many years later, our members in Manaus are rejoicing as they watch their own temple take shape on the banks of the Rio Negro. Temples bring joy to our faithful members wherever they are built.
 
@@ -42,7 +42,7 @@ In their later years Brother and Sister Mou Tham desired to serve in the temple.
 
 My brothers and sisters, temples are more than stone and mortar. They are filled with faith and fasting. They are built of trials and testimonies. They are sanctified by sacrifice and service.
 
-The first temple to be built in this dispensation was the temple at Kirtland, Ohio. The Saints at the time were impoverished, and yet the Lord had commanded that a temple be built, so build it they did. Wrote Elder Heber C. Kimball of the experience, “The Lord only knows the scenes of poverty, tribulation and distress which we passed through to accomplish it.”[^4] And then, after all that had been painstakingly completed, the Saints were forced to leave Ohio and their beloved temple. They eventually found refuge—although it would be temporary—on the banks of the Mississippi River in the state of Illinois. They named their settlement Nauvoo, and willing to give their all once again and with their faith intact, they erected another temple to their God. Persecutions raged, however, and with the Nauvoo Temple barely completed, they were driven from their homes once again, seeking refuge in a desert.
+The first temple to be built in this dispensation was the temple at Kirtland, Ohio. The Saints at the time were impoverished, and yet the Lord had commanded that a temple be built, so build it they did. Wrote Elder Heber C. Kimball of the experience, “The Lord only knows the scenes of poverty, tribulation and distress which we passed through to accomplish it.”[^4] And then, after all that had been painstakingly completed, the Saints were forced to leave Ohio and their beloved temple. They eventually found refuge—although it would be temporary—on the banks of the Mississippi River in the state of Illinois. They named their settlement Nauvoo, and willing to give their all once again and with their faith intact, they erected another temple to their God. Persecutions raged, however, and with the Nauvoo Temple barely completed, they were driven from their homes once again, seeking refuge in a desert.
 
 The struggle and the sacrifice began once again as they labored for 40 years to erect the Salt Lake Temple, which stands majestically on the block just south of those of us who are here today in the Conference Center.
 
@@ -52,7 +52,7 @@ Why are so many willing to give so much in order to receive the blessings of the
 
 Today most of us do not have to suffer great hardships in order to attend the temple. Eighty-five percent of the membership of the Church now live within 200 miles (320 km) of a temple, and for a great many of us, that distance is much shorter.
 
-If you have been to the temple for yourselves and if you live within relatively close proximity to a temple, your sacrifice could be setting aside the time in your busy lives to visit the temple regularly. There is much to be done in our temples in behalf of those who wait beyond the veil. As we do the work for them, we will know that we have accomplished what they cannot do for themselves. President Joseph F. Smith, in a mighty declaration, stated, “Through our efforts in their behalf their chains of bondage will fall from them, and the darkness surrounding them will clear away, that light may shine upon them and they shall hear in the spirit world of the work that has been done for them by their children here, and will rejoice with you in your performance of these duties.”[^5] My brothers and sisters, the work is ours to do.
+If you have been to the temple for yourselves and if you live within relatively close proximity to a temple, your sacrifice could be setting aside the time in your busy lives to visit the temple regularly. There is much to be done in our temples in behalf of those who wait beyond the veil. As we do the work for them, we will know that we have accomplished what they cannot do for themselves. President Joseph F. Smith, in a mighty declaration, stated, “Through our efforts in their behalf their chains of bondage will fall from them, and the darkness surrounding them will clear away, that light may shine upon them and they shall hear in the spirit world of the work that has been done for them by their children here, and will rejoice with you in your performance of these duties.”[^5] My brothers and sisters, the work is ours to do.
 
 In my own family, some of our most sacred and treasured experiences have occurred when we have joined together in the temple to perform sealing ordinances for our deceased ancestors.
 
@@ -62,7 +62,7 @@ Until you have entered the house of the Lord and have received all the blessings
 
 Now, my young friends who are in your teenage years, always have the temple in your sights. Do nothing which will keep you from entering its doors and partaking of the sacred and eternal blessings there. I commend those of you who already go to the temple regularly to perform baptisms for the dead, arising in the very early hours of the morning so you can participate in such baptisms before school begins. I can think of no better way to start a day.
 
-To you parents of young children, may I share with you some sage advice from President Spencer W. Kimball. Said he: “It would be a fine thing if … parents would have in every bedroom in their house a picture of the temple so \[their children\] from the time \[they are\] infant\[s\] could look at the picture every day \[until\] it becomes a part of \[their lives\]. When \[they reach\] the age that \[they need\] to make \[the\] very important decision \[concerning going to the temple\], it will have already been made.”[^6]
+To you parents of young children, may I share with you some sage advice from President Spencer W. Kimball. Said he: “It would be a fine thing if … parents would have in every bedroom in their house a picture of the temple so \[their children\] from the time \[they are\] infant\[s\] could look at the picture every day \[until\] it becomes a part of \[their lives\]. When \[they reach\] the age that \[they need\] to make \[the\] very important decision \[concerning going to the temple\], it will have already been made.”[^6]
 
 Our children sing in Primary:
 
@@ -93,20 +93,18 @@ My beloved brothers and sisters, may we make whatever sacrifices are necessary t
 
 
 
-[^1]: Joseph F. Smith, in Conference Report, Oct. 1902, 3.
+[^1]: Joseph F. Smith, in Conference Report, Oct. 1902, 3.
 
 [^2]: See Uilson Felipe Santiago and Linda Ritchie Archibald, “From Amazon Basin to Temple,” *Church News,* Mar. 13, 1993, 6.
 
-[^3]: See C. Jay Larson, “Temple Moments: Impossible Desire,” *Church News,* Mar. 16, 1996, 16.
+[^3]: See C. Jay Larson, “Temple Moments: Impossible Desire,” *Church News,* Mar. 16, 1996, 16.
 
-[^4]: Heber C. Kimball, in Orson F. Whitney, *Life of Heber C. Kimball* (1945), 67.
+[^4]: Heber C. Kimball, in Orson F. Whitney, *Life of Heber C. Kimball* (1945), 67.
 
-[^5]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 247.
+[^5]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 247.
 
-[^6]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 301.
+[^6]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 301.
 
 [^7]: Janice Kapp Perry, “I Love to See the Temple,” *Children’s Songbook,* 95.
 
-
-
-#Covenants #Sacrifice #Temple_Work #Temples
+#Covenants #Sacrifice #Temples #TempleWork

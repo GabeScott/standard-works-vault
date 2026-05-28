@@ -24,7 +24,7 @@ Yes, Ruth, precious Ruth, was a pioneer.
 
 Other faithful women also qualify, such as Mary, the mother of Jesus; Mary Magdalene; Esther; and Elisabeth. Let us not overlook Abraham, Isaac, and Jacob, nor fail to include Isaiah, Jeremiah, Ezekiel, and some from a later period.
 
-We remember John the Baptist. His clothing was simple, his life spartan, his message brief: faith, repentance, baptism by immersion, and the bestowal of the Holy Ghost by an authority greater than that possessed by himself. He declared, “I am not the Christ, but … I am sent before him.”[^4] “I indeed baptize you with water; but one mightier than I cometh … : he shall baptize you with the Holy Ghost and with fire.”[^5]
+We remember John the Baptist. His clothing was simple, his life spartan, his message brief: faith, repentance, baptism by immersion, and the bestowal of the Holy Ghost by an authority greater than that possessed by himself. He declared, “I am not the Christ, but … I am sent before him.”[^4] “I indeed baptize you with water; but one mightier than I cometh … : he shall baptize you with the Holy Ghost and with fire.”[^5]
 
 The River Jordan marked the historic meeting place when Jesus came down from Galilee to be baptized of John. At first John pleaded with the Master: “I have need to be baptized of thee, and comest thou to me?”[^6] Came the response: “It becometh us to fulfil all righteousness. … And Jesus, when he was baptized, went up straightway out of the water: and, lo, the heavens were opened unto him, and he saw the Spirit of God descending like a dove, and lighting upon him: “And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased.”[^7]
 
@@ -56,11 +56,11 @@ The long-awaited day of restoration did indeed come. But let us review that sign
 
 Describing his experience, Joseph said: “I was one day reading the Epistle of James, first chapter and fifth verse, … *If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.*”[^17]
 
-“At length I came to the conclusion that I must either remain in darkness and confusion, or else I must do as James directs, that is, ask of God. …
+“At length I came to the conclusion that I must either remain in darkness and confusion, or else I must do as James directs, that is, ask of God. …
 
-“… I retired to the woods to make the attempt. It was on the morning of a beautiful, clear day, early in the spring of eighteen hundred and twenty. …
+“… I retired to the woods to make the attempt. It was on the morning of a beautiful, clear day, early in the spring of eighteen hundred and twenty. …
 
-“… I kneeled down and began to offer up the desires of my heart to God. …
+“… I kneeled down and began to offer up the desires of my heart to God. …
 
 “… I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me.
 
@@ -173,6 +173,4 @@ His mission, His ministry among men, His teachings of truth, His acts of mercy, 
 
 [^34]: [[D&C 76.22|D&C 76:22–23]][[D&C 76.23|]].
 
-
-
-#Apostasy #Atonement #Bible #Book_Of_Mormon #God_The_Father #Jesus_Christ #Joseph_Smith #Pioneers #Restoration
+#Apostasy #Atonement #Bible #BookOfMormon #GodTheFather #JosephSmith #JesusChrist #Pioneers #Restoration

@@ -1,9 +1,8 @@
 # Renown
 
-
 mighty men which were of old, men of *renown*, [[Genesis 6.4|Genesis 6:4]] ([[Moses 8.21|Moses 8:21]]).
 
-two hundred and fifty princes ... men of *renown*, [[Numbers 16.2|Numbers 16:2]].
+two hundred and fifty princes … men of *renown*, [[Numbers 16.2|Numbers 16:2]].
 
 thy *renown* went forth among the heathen, [[Ezekiel 16.14|Ezekiel 16:14]].
 

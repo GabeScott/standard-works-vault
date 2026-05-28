@@ -1,6 +1,5 @@
 # Young, Younger, Youngest
 
-
 firstborn said unto the *younger*, Our father is old, [[Genesis 19.31|Genesis 19:31]].
 
 elder shall serve the *younger*, [[Genesis 25.23|Genesis 25:23]] ([[Romans 9.12|Romans 9:12]]).
@@ -11,7 +10,7 @@ his *younger* brother shall be greater than he, [[Genesis 48.19|Genesis 48:19]].
 
 David was the *youngest*, [[1 Samuel 17.14|1 Samuel 17:14]].
 
-he ... consulted with the *young* men, [[1 Kings 12.8|1 Kings 12:8]] ([[2 Chronicles 10.8|2 Chronicles 10:8]]).
+he … consulted with the *young* men, [[1 Kings 12.8|1 Kings 12:8]] ([[2 Chronicles 10.8|2 Chronicles 10:8]]).
 
 their *young* ones shall lie down together, [[Isaiah 11.7|Isaiah 11:7]] ([[2 Nephi 21.7|2 Nephi 21:7]]).
 
@@ -27,7 +26,7 @@ they saw a *young* man sitting on the right side, [[Mark 16.5|Mark 16:5]].
 
 *younger* of them said to his father, [[Luke 15.12|Luke 15:12]].
 
-entreat ... the *younger* men as brethren, [[1 Timothy 5.1|1 Timothy 5:1]].
+entreat … the *younger* men as brethren, [[1 Timothy 5.1|1 Timothy 5:1]].
 
 *younger* widows refuse, [[1 Timothy 5.11|1 Timothy 5:11]].
 
@@ -37,7 +36,7 @@ ye *younger*, submit yourselves unto the elder, [[1 Peter 5.5|1 Peter 5:5]].
 
 ye have need that I, your *younger* brother, should speak unto you, [[1 Nephi 7.8|1 Nephi 7:8]].
 
-pitched their tents ... from the eldest down to the *youngest*, [[Mosiah 2.5|Mosiah 2:5]].
+pitched their tents … from the eldest down to the *youngest*, [[Mosiah 2.5|Mosiah 2:5]].
 
 two thousand of those *young* men, [[Alma 53.18|Alma 53:18]].
 

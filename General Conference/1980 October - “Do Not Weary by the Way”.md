@@ -1,6 +1,6 @@
 # “Do Not Weary by the Way”
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -35,8 +35,6 @@ The Lord lives, God lives, and Jesus is the Christ. He is the Only Begotten Son,
 The Lord bless you, my dear brethren and sisters. I hope that you will go forward now with a new spring in your walk and that you may be able to carry forward the things that you have planned all your life to do. I hope that you will do them well and do them better than they have ever been done before. And I hope that you will give to the numerous people who need the Lord’s blessings that which they need so much: the assurance that the Gospel is here, that the Lord is God, that Jesus Christ is the Redeemer, and that we can depend on him totally in our work.
 
 We pray that the Lord may continue to bless you, and we would be glad if you take back to your homes and to your people our sincere and deep love. God bless you, in the name of Jesus Christ, amen.
-
-
 
 
 

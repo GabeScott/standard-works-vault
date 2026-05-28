@@ -36,7 +36,7 @@ In his letter to the Philippians, Paul wrote, “Not that I speak in respect of 
 
 Alma instructed his son Helaman, giving him counsel that all fathers should teach their children: “Counsel with the Lord in all thy doings, and he will direct thee for good; yea, when thou liest down at night lie down unto the Lord, that he may watch over you in your sleep; and when thou risest in the morning let thy heart be full of thanks unto God; and if ye do these things, ye shall be lifted up at the last day” ([[Alma 37.37|Alma 37:37]]).
 
-Alma says, “Let thy heart be full of thanks unto God.” The Lord desires that we give thanks. In Thessalonians we read, “In every thing give thanks: for this is the will of God in Christ Jesus concerning you” ([[1 Thessalonians 5.18|1 Thes. 5:18]]).
+Alma says, “Let thy heart be full of thanks unto God.” The Lord desires that we give thanks. In Thessalonians we read, “In every thing give thanks: for this is the will of God in Christ Jesus concerning you” ([[1 Thessalonians 5.18|1 Thes. 5:18]]).
 
 As holders of the priesthood we should constantly strive to increase our gratitude. Gratitude may be increased by constantly reflecting on our blessings and giving thanks for them in our daily prayers.
 
@@ -53,8 +53,6 @@ In October of 1879 a group of 237 Latter-day Saints from several small southwest
 One hundred and twenty years later, our family climbed Comb Ridge on a bright spring day. The ridge is steep and treacherous. It was difficult to imagine that wagons, teams, men, women, and children could make such an ascent. But beneath our feet were the scars from the wagon wheels, left as evidence of their struggles so long ago. How did they feel after enduring so much? Were they bitter after the many months of toil and privation? Did they criticize their leaders for sending them on such an arduous journey, asking them to give up so much? Our questions were answered as we reached the top of Comb Ridge. There inscribed in the red sandstone so long ago were the words, “We thank Thee, O God.”
 
 Brethren, I pray that we might keep our hearts full of thanks and appreciation for what we have and not dwell on what is not ours. As holders of the priesthood, let us adopt an attitude of gratitude in all we do is my prayer in the name of Jesus Christ, amen.
-
-
 
 
 

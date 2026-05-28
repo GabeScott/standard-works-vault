@@ -4,7 +4,7 @@ By Janette Hales Beckham - *Young Women General President*
 
 *Given in the April session of the 1996 General Conference*
 
-[Link](https://www.churchofjesuschrist.org/study/general-conference/1996/04/sustaining-the-living-prophets)
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1996/04/sustaining-the-living-prophets?lang=eng)
 
 There is always a feeling of excitement for me as I know young women are gathering for our annual Young Women meeting. Tonight my excitement feels more like a whisper—the witness of the Holy Ghost whispering to me that a prophet of God has a message just for young women.
 
@@ -37,8 +37,6 @@ Fortunately, in this day of satellites and modern technology we can see and hear
 Tonight, as President Gordon B. Hinckley has a message for each one of us, we as young women, mothers, and leaders want him to know that we have a message for him and his counselors, President Monson and President Faust. *We* sustain you. We know what it means to sustain: we will abide by the direction and counsel you give us. We will uphold you by our confidence, faith, and prayers. In general conference next week, as we young women and leaders raise our hands to sustain the living prophets, we understand that we are making a solemn covenant. We know as we follow the counsel and direction of the living prophets, we will be better prepared to “make and keep sacred covenants, receive the ordinances of the temple, and enjoy the blessings of exaltation” (*Personal Progress,* 6).
 
 It is my prayer that we will show by our behavior that we are a covenant people, that we sustain the living prophets. In the name of Jesus Christ, amen.
-
-
 
 
 

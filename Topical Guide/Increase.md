@@ -1,7 +1,6 @@
 # Increase
 
-
-*See also* [[Blessing.md|Blessing]]; [[Enlarge.md|Enlarge]]; [[Flourish.md|Flourish]]; [[Grow, Grew, Grown.md|Grow]]; [[Multiply.md|Multiply]]; [[Reward.md|Reward]]; [[Tithing.md|Tithing]]; [[Wages.md|Wages]]
+*See also* [[Blessing.md|Blessing]]; [[Enlarge.md|Enlarge]]; [[Flourish.md|Flourish]]; [[Grow.md|Grow]]; [[Multiply.md|Multiply]]; [[Reward.md|Reward]]; [[Tithing.md|Tithing]]; [[Wages.md|Wages]]
 
 *increase*, that ye shall give the fifth part, [[Genesis 47.24|Genesis 47:24]].
 
@@ -43,7 +42,7 @@ Lord make you to *increase* and abound in love, [[1 Thessalonians 3.12|1 Thessal
 
 thou sayest, I am rich, and *increased* with goods, [[Revelation 3.17|Revelation 3:17]].
 
-Thou hast ... *increased* the joy, [[2 Nephi 19.3|2 Nephi 19:3]].
+Thou hast … *increased* the joy, [[2 Nephi 19.3|2 Nephi 19:3]].
 
 would not this *increase* your faith, [[Alma 32.29|Alma 32:29]].
 

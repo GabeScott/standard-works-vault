@@ -1,11 +1,10 @@
 # God, the Standard of Righteousness
 
-
 *See also* [[God, Perfection of.md|God, Perfection of]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]
 
 Ye shall be holy: for I the Lord your God am *holy*, [[Leviticus 19.2|Leviticus 19:2]].
 
-lips ... that deal *truly* are his delight, [[Proverbs 12.22|Proverbs 12:22]].
+lips … that deal *truly* are his delight, [[Proverbs 12.22|Proverbs 12:22]].
 
 Woe unto them that call evil *good*, and good evil, [[Isaiah 5.20|Isaiah 5:20]] ([[2 Nephi 15.20|2 Nephi 15:20]]).
 
@@ -25,13 +24,13 @@ therein is the *righteousness* of God revealed, [[Romans 1.17|Romans 1:17]].
 
 *righteousness* of God without the law is manifested, [[Romans 3.21|Romans 3:21]].
 
-they being ignorant of God's *righteousness*, [[Romans 10.3|Romans 10:3]].
+they being ignorant of God’s *righteousness*, [[Romans 10.3|Romans 10:3]].
 
 Be ye therefore *followers* of God, [[Ephesians 5.1|Ephesians 5:1]].
 
 Lord, the *righteous* judge, [[2 Timothy 4.8|2 Timothy 4:8]].
 
-obtained like ... faith with us through the *righteousness* of God, [[2 Peter 1.1|2 Peter 1:1]].
+obtained like … faith with us through the *righteousness* of God, [[2 Peter 1.1|2 Peter 1:1]].
 
 *love* of God, that we keep his commandments, [[1 John 5.3|1 John 5:3]].
 
@@ -49,8 +48,6 @@ following the *example* of our Savior, [[Mormon 7.10|Mormon 7:10]].
 
 my soul *delighteth* in the song of the heart, [[D&C 25.12|D&C 25:12]].
 
-Lord ... delight to *honor* those who serve me, [[D&C 76.5|D&C 76:5]].
+Lord … delight to *honor* those who serve me, [[D&C 76.5|D&C 76:5]].
 
 Father, thy *will* be done, and the glory be thine, [[Moses 4.2|Moses 4:2]].
-
-*See also* [[Ether 12.28|Ether 12:28]].

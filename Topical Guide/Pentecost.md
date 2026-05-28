@@ -1,11 +1,10 @@
 # Pentecost
 
-
-*See also* [BD Feasts](https://www.churchofjesuschrist.org/study/scriptures/bd/feasts?lang=eng)
+*See also* [[BD Feasts.md|BD Feasts]]
 
 when the day of *Pentecost* was fully come, [[Acts 2.1|Acts 2:1]].
 
-he hasted ... to be at Jerusalem the day of *Pentecost*, [[Acts 20.16|Acts 20:16]].
+he hasted … to be at Jerusalem the day of *Pentecost*, [[Acts 20.16|Acts 20:16]].
 
 I will tarry at Ephesus until *Pentecost*, [[1 Corinthians 16.8|1 Corinthians 16:8]].
 

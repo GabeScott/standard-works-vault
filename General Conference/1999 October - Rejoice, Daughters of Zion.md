@@ -56,7 +56,7 @@ In an effort to respond to the inquiries from outside the Church, and to remind 
 
 *Rejoice in the blessings of the temple, understand our divine destiny, and strive for exaltation.*
 
-We as a presidency rejoice in this declaration, approved and endorsed by the First Presidency and Quorum of the Twelve, which clearly sets forth principles of attitude and action that will lead each of us back into the presence of our Heavenly Father. As we individually apply these teachings, we will, as Father Lehi hoped, reach the tree of life. In 1 Nephi 8:12 \[[[1 Nephi 8.12|1 Ne. 8:12]]\] we read, “And as I partook of the fruit … it filled my soul with … joy; wherefore, I began to be desirous that my family should partake of it also; for I knew that it was desirable above all other fruit.”
+We as a presidency rejoice in this declaration, approved and endorsed by the First Presidency and Quorum of the Twelve, which clearly sets forth principles of attitude and action that will lead each of us back into the presence of our Heavenly Father. As we individually apply these teachings, we will, as Father Lehi hoped, reach the tree of life. In 1 Nephi 8:12 \[[[1 Nephi 8.12|1 Ne. 8:12]]\] we read, “And as I partook of the fruit … it filled my soul with … joy; wherefore, I began to be desirous that my family should partake of it also; for I knew that it was desirable above all other fruit.”
 
 We, like Father Lehi, have a hope that as we journey along our path of life, we will partake of the fruit found in this gospel of Jesus Christ in a personal way and experience joy that will fill our souls with greater faith, hope, and charity. Together let’s examine some of those qualities and how they can affect our lives.
 
@@ -66,7 +66,7 @@ We declare to the world that it is not by chance that we have embraced the gospe
 
 We know we have and always will exist. We know we have been sent to earth to gain experience and prove ourselves. The decisions we make are vital if we are to gain eternal life and exaltation. We know that this estate is important, and this understanding gives meaning, purpose, and direction in our lives. Ultimately all of us want to learn our lessons well and return home to our loving Heavenly Father.
 
-We accept the Savior as the Only Begotten Son of our Heavenly Father. We know that through Him we will be redeemed and resurrected. Therefore, “we talk of Christ, we rejoice in Christ, we preach of Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]).
+We accept the Savior as the Only Begotten Son of our Heavenly Father. We know that through Him we will be redeemed and resurrected. Therefore, “we talk of Christ, we rejoice in Christ, we preach of Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]).
 
 ## We have faith, virtue, vision, and charity.
 
@@ -115,6 +115,4 @@ It is my humble prayer that each of us will leave this meeting determined to dev
 
 
 
-
-
-#Family #Family_Home_Evening #Home #Joy #Literacy #Love #Marriage #Plan_Of_Salvation #Priesthood #Relief_Society #Temptation #Testimony #Women
+#FamilyHomeEvening #Family #Home #Joy #Literacy #Love #Marriage #PlanOfSalvation #Priesthood #ReliefSociety #Temptation #Testimony #Women

@@ -1,6 +1,5 @@
 # Hiss, Hissing
 
-
 every one that passeth by it shall be astonished, and shall *hiss*, [[1 Kings 9.8|1 Kings 9:8]].
 
 will *hiss* unto them from the end of the earth, [[Isaiah 5.26|Isaiah 5:26]] ([[2 Nephi 15.26|2 Nephi 15:26]]).

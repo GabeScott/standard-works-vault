@@ -1,6 +1,6 @@
 # Finding Joy in Christ
 
-By Steven J. Lund - *Young Men General President*
+By Steven J. Lund - *Young Men General President*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -42,7 +42,7 @@ All of the sacramental symbols point us to that gift. We contemplate the bread t
 
 Fortunately, young men and women do not have to get sick to discover joy and purpose in serving the Savior.
 
-Elder David A. Bednar has taught that to grow and become as missionaries *are,* we should do what missionaries *do,* and then, “line upon line and precept upon precept, … \[we\] can gradually become the missionary … the Savior expects.”[^2]
+Elder David A. Bednar has taught that to grow and become as missionaries *are,* we should do what missionaries *do,* and then, “line upon line and precept upon precept, … \[we\] can gradually become the missionary … the Savior expects.”[^2]
 
 Likewise, if we desire “to be like Jesus,”[^3] we should do what Jesus does, and in one astonishing sentence, the Lord explains what it is that He does: He said, “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.”[^4]
 
@@ -79,7 +79,7 @@ May you help prepare the world for the Savior’s return by inviting all to come
 
 [^1]: [[Luke 22.19|Luke 22:19]].
 
-[^2]: David A. Bednar, “[[2005 October - Becoming a Missionary.md|Becoming a Missionary]],” *Ensign* or *Liahona,* Nov. 2005, 46.
+[^2]: David A. Bednar, “[[2005 October - Becoming a Missionary.md|Becoming a Missionary]],” *Ensign* or *Liahona,* Nov. 2005, 46.
 
 [^3]: “I’m trying to be like Jesus; I’m following in his ways. I’m trying to love as he did, in all that I do and say” (“I’m Trying to Be like Jesus,” *Children’s Songbook,* 78–79).
 
@@ -87,6 +87,4 @@ May you help prepare the world for the Savior’s return by inviting all to come
 
 [^5]: I personally express appreciation to the dedicated parents and leaders throughout our history who have so valiantly helped young people experience growth. I acknowledge that the new Children and Youth effort owes much to each activity and achievement program that preceded it.
 
-
-
-#Jesus_Christ #Joy #Sacrament #Service
+#Joy #JesusChrist #Sacrament #Service

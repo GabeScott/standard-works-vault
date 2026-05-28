@@ -20,7 +20,7 @@ But we are not left comfortless! We have the scriptures, which contain enduring 
 
 In addition to those words of a loving Father in Heaven, we have the Savior, of whom Alma recorded:
 
-“And he shall go forth, suffering pains and afflictions and temptations of every kind. …
+“And he shall go forth, suffering pains and afflictions and temptations of every kind. …
 
 “And he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people according to their infirmities” ([[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]).
 
@@ -30,7 +30,7 @@ He restored the dead son to his mother, the daughter of Jairus to her parents, a
 
 Is there any reason to think that he cares any less about women today? Before his ascension, he promised his disciples: “I will pray the Father, and he shall give you another Comforter. … I will not leave you comfortless” ([[John 14.16|John 14:16, 18]][[John 14.18|]]). As daughters of our Heavenly Father, you also are privileged to have been given that other Comforter as well, the gift of the Holy Ghost.
 
-As our Lord and Savior looked to the women of his time for a comforting hand, a listening ear, a believing heart, a kind look, an encouraging word, loyalty—even in his hour of humiliation, agony, and death—it seems to me that there is a great need to rally the women of the Church today to stand with and for the Brethren in stemming the tide of evil that surrounds us and in moving forward the work of our Savior. Together we must stand firm in the faith against greater numbers of other-minded people. Nephi said, “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men” ([[2 Nephi 31.20|2 Ne. 31:20]]). When we are obedient to God, we are a majority. But only together can we accomplish the work he has given us to do and be prepared for the day when we shall see him.
+As our Lord and Savior looked to the women of his time for a comforting hand, a listening ear, a believing heart, a kind look, an encouraging word, loyalty—even in his hour of humiliation, agony, and death—it seems to me that there is a great need to rally the women of the Church today to stand with and for the Brethren in stemming the tide of evil that surrounds us and in moving forward the work of our Savior. Together we must stand firm in the faith against greater numbers of other-minded people. Nephi said, “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men” ([[2 Nephi 31.20|2 Ne. 31:20]]). When we are obedient to God, we are a majority. But only together can we accomplish the work he has given us to do and be prepared for the day when we shall see him.
 
 As we labor with our might to minister to needs in the same caring way that our Lord did among the women of his day, so we entreat you to minister with your powerful influence for good in strengthening our families, our church, and our communities. As you are anxiously engaged in good causes, you can show others that by taking Christ into their lives and accepting his gospel, with its saving ordinances and covenants, they can reach their true potential in this life and in the hereafter.
 
@@ -38,7 +38,7 @@ Those who follow Christ seek to follow his example. His suffering in behalf of o
 
 In a previous general meeting of the women of the Church, President Spencer W. Kimball counseled:
 
-“Bear in mind, dear sisters, that the eternal blessings which are yours through membership in The Church of Jesus Christ of Latter-day Saints are far, far greater than any other blessings you could possibly receive. No greater recognition can come to you in this world than to be known as a woman of God” (*Ensign,* Nov. 1979, p. 102).
+“Bear in mind, dear sisters, that the eternal blessings which are yours through membership in The Church of Jesus Christ of Latter-day Saints are far, far greater than any other blessings you could possibly receive. No greater recognition can come to you in this world than to be known as a woman of God” (*Ensign,* Nov. 1979, p. 102).
 
 You are chosen to be faithful women of God in our day, to stand above pettiness, gossip, selfishness, lewdness, and all other forms of ungodliness.
 
@@ -51,6 +51,4 @@ May the Lord bless you as you stand firm in the faith, I humbly pray in the name
 
 
 
-
-
-#Church_Membership #Holy_Ghost #Jesus_Christ #Scriptures #Service #Women
+#ChurchMembership #HolyGhost #JesusChrist #Scriptures #Service #Women

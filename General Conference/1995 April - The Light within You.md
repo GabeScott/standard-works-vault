@@ -35,6 +35,4 @@ I thank you for the goodness of your lives, for the desire within your hearts to
 
 
 
-
-
-#God_The_Father #Individual_Worth #Love #Scripture_Study #Self-Esteem #Talents
+#GodTheFather #IndividualWorth #Love #ScriptureStudy #Self-esteem #Talents

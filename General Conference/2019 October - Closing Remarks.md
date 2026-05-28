@@ -1,6 +1,6 @@
 # Closing Remarks
 
-By President Russell M. Nelson
+By President Russell M. Nelson
 
 *Given in the October session of the 2019 General Conference*
 
@@ -18,7 +18,7 @@ An open house will be held prior to the dedication of each new and renovated tem
 
 As members of the Church, we need to be prepared to answer their questions. We can explain that the blessings of the temple are available to any and all people who will prepare themselves. But before they can enter a dedicated temple, they need to qualify. The Lord wants all His children to partake of the eternal blessings available in His temple. He has directed what each person must do to qualify to enter His holy house.
 
-A good place for us to begin such a teaching opportunity is to call attention to the words etched on the temple’s exterior: “Holiness to the Lord: The House of the Lord.” President Henry B. Eyring’s message today and many others have inspired us to become more holy. Each temple is a holy place; each temple patron strives to become more holy.
+A good place for us to begin such a teaching opportunity is to call attention to the words etched on the temple’s exterior: “Holiness to the Lord: The House of the Lord.” President Henry B. Eyring’s message today and many others have inspired us to become more holy. Each temple is a holy place; each temple patron strives to become more holy.
 
 All requirements to enter the temple relate to personal holiness. To assess that readiness, each person who wants to enjoy the blessings of the temple will have two interviews: first with a bishop, bishopric counselor, or branch president; second with a stake or mission president or one of his counselors. In those interviews, several questions will be asked.
 
@@ -30,9 +30,17 @@ Some of those questions have recently been edited for clarity. I would like to r
 
 3. Do you have a testimony of the Restoration of the gospel of Jesus Christ?
 
-4. Do you sustain the President of The Church of Jesus Christ of Latter-day Saints as the prophet, seer, and revelator and as the only person on the earth authorized to exercise all priesthood keys?Do you sustain the members of the First Presidency and the Quorum of the Twelve Apostles as prophets, seers, and revelators?Do you sustain the other General Authorities and local leaders of the Church?
+4. Do you sustain the President of The Church of Jesus Christ of Latter-day Saints as the prophet, seer, and revelator and as the only person on the earth authorized to exercise all priesthood keys?
 
-5. The Lord has said that all things are to be “done in cleanliness” before Him ([[D&C 42.41|Doctrine and Covenants 42:41]]).Do you strive for moral cleanliness in your thoughts and behavior?Do you obey the law of chastity?
+Do you sustain the members of the First Presidency and the Quorum of the Twelve Apostles as prophets, seers, and revelators?
+
+Do you sustain the other General Authorities and local leaders of the Church?
+
+5. The Lord has said that all things are to be “done in cleanliness” before Him ([[D&C 42.41|Doctrine and Covenants 42:41]]).
+
+Do you strive for moral cleanliness in your thoughts and behavior?
+
+Do you obey the law of chastity?
 
 6. Do you follow the teachings of the Church of Jesus Christ in your private and public behavior with members of your family and others?
 
@@ -46,7 +54,9 @@ Some of those questions have recently been edited for clarity. I would like to r
 
 11. Do you understand and obey the Word of Wisdom?
 
-12. Do you have any financial or other obligations to a former spouse or to children?If yes, are you current in meeting those obligations?
+12. Do you have any financial or other obligations to a former spouse or to children?
+
+If yes, are you current in meeting those obligations?
 
 13. Do you keep the covenants that you made in the temple, including wearing the temple garment as instructed in the endowment?
 
@@ -89,8 +99,6 @@ I so bless you, reaffirming my love for you, with my testimony that God lives! J
 
 [^2]: See [[Isaiah 2.2|Isaiah 2:2]]; [[Isaiah 29.1|29]][[Isaiah 29.2|]][[Isaiah 29.3|]][[Isaiah 29.4|]][[Isaiah 29.5|]][[Isaiah 29.6|]][[Isaiah 29.7|]][[Isaiah 29.8|]][[Isaiah 29.9|]][[Isaiah 29.10|]][[Isaiah 29.11|]][[Isaiah 29.12|]][[Isaiah 29.13|]][[Isaiah 29.14|]][[Isaiah 29.15|]][[Isaiah 29.16|]][[Isaiah 29.17|]][[Isaiah 29.18|]][[Isaiah 29.19|]][[Isaiah 29.20|]][[Isaiah 29.21|]][[Isaiah 29.22|]][[Isaiah 29.23|]][[Isaiah 29.24|]]; [[Ezekiel 37.15|Ezekiel 37:15–20, 26–28]][[Ezekiel 37.16|]][[Ezekiel 37.17|]][[Ezekiel 37.18|]][[Ezekiel 37.19|]][[Ezekiel 37.20|]][[Ezekiel 37.26|]][[Ezekiel 37.27|]][[Ezekiel 37.28|]]; [[Daniel 2.44|Daniel 2:44]]; [[Amos 3.7|Amos 3:7]]; [[Acts 3.21|Acts 3:21]]; [[Ephesians 1.10|Ephesians 1:10]]; [[Revelation 14.6|Revelation 14:6]].
 
-[^3]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng&id=p23#p23) (2007), 142.
+[^3]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng&id=p23#p23) (2007), 142.
 
-
-
-#First_Vision #Restoration #Temples
+#FirstVision #Restoration #Temples

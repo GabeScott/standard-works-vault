@@ -1,6 +1,6 @@
 # The Household of Faith
 
-By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -48,7 +48,7 @@ In section 101 of the Doctrine and Covenants, the Lord reminds us that when the 
 
 “In the day of their peace,” he explains, “they esteemed lightly my counsel; but, in the day of their trouble, of necessity they feel after me.” ([[D&C 101.7|D&C 101:7–8]][[D&C 101.8|]].)
 
-Later in this same revelation a very powerful lesson is taught in the parable of the husbandmen. You will recall that husbandmen were hired to plant twelve olive trees in the vineyard, to build a hedge around it, to build a tower, and to set a watchman thereon. As they counseled together, however, they couldn’t understand why the Lord would have need for a tower, “seeing this is a time of peace” ([[D&C 101.48|D&C 101:48]]). While they held a committee meeting, contending, “at variance one with another they became very slothful. …
+Later in this same revelation a very powerful lesson is taught in the parable of the husbandmen. You will recall that husbandmen were hired to plant twelve olive trees in the vineyard, to build a hedge around it, to build a tower, and to set a watchman thereon. As they counseled together, however, they couldn’t understand why the Lord would have need for a tower, “seeing this is a time of peace” ([[D&C 101.48|D&C 101:48]]). While they held a committee meeting, contending, “at variance one with another they became very slothful. …
 
 “And the enemy came by night, and broke down the hedge,” scattered the frightened servants, and “destroyed their works, and broke down the olive trees.” ([[D&C 101.50|D&C 101:50–51]][[D&C 101.51|]].) It was a terrible way to learn the consequences of disobedience. How much better just to follow the simple instruction of the Master.
 
@@ -58,13 +58,13 @@ Each gospel dispensation produces a number of valiant, faithful Saints—the tru
 
 “As for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]).
 
-“I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]).
+“I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]).
 
 “Behold the handmaid of the Lord; be it unto me according to thy word” ([[Luke 1.38|Luke 1:38]]).
 
-“I … feel to say to the Lord, humbly, ‘Give me this mountain’ ([[Joshua 14.12|Josh. 14:12]]), give me these challenges. …
+“I … feel to say to the Lord, humbly, ‘Give me this mountain’ ([[Joshua 14.12|Josh. 14:12]]), give me these challenges. …
 
-“I will ‘wholly follow the Lord my God’ (see [[Joshua 14.8|Josh. 14:8]]) to the fullest extent of my energy and ability.” (Spencer W. Kimball, in Conference Report, Oct. 1979, p. 115.)
+“I will ‘wholly follow the Lord my God’ (see [[Joshua 14.8|Josh. 14:8]]) to the fullest extent of my energy and ability.” (Spencer W. Kimball, in Conference Report, Oct. 1979, [[1979 October - “Give Me This Mountain”.md|p. 115]].)
 
 Brothers and sisters, we do not always know why the Lord commands us to do certain things. His ways are not man’s ways. But this much we do know—his paths are straight. They are not the crooked paths of men. We accept faith as the first principle of the gospel; but do we trust the Lord enough to act first and receive confirmation later? Some may call this blind obedience. An Idaho bishop used to say, “Any kind of obedience is better than any kind of disobedience.” Faith is not blind. However, we will often receive no witness until *after* a trial of our faith. If we have been disobedient in the past, let us commit today to repent and to put our house in order.
 
@@ -111,8 +111,6 @@ Most important of all, brothers and sisters, with all our storing, let us store 
 “And all that call upon the name of the Lord, and keep his commandments, shall be saved.” ([[D&C 100.15|D&C 100:15–17]][[D&C 100.16|]][[D&C 100.17|]].)
 
 Such a people will be known as the “household of faith” ([[D&C 121.45|D&C 121:45]]). That we may be found in their midst is my prayer, in the name of Jesus Christ, amen.
-
-
 
 
 

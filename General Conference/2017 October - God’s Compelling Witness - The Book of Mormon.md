@@ -1,6 +1,6 @@
 # God’s Compelling Witness: The Book of Mormon
 
-By Tad R. Callister - *Sunday School General President*
+By Tad R. Callister - *Sunday School General President*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -20,15 +20,15 @@ But there is more. These arguments account only for the book’s historical cont
 
 For example, the Book of Mormon teaches, contrary to most Christian beliefs, that the Fall of Adam was a positive step forward. It reveals the covenants made at baptism, which are not addressed in the Bible.
 
-In addition, one might ask: where did Joseph get the powerful insight that because of Christ’s Atonement, He can not only cleanse us but also perfect us? Where did he get the stunning sermon on faith in [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]]? Or King Benjamin’s sermon on the Savior’s Atonement, perhaps the most remarkable sermon on this subject in all scripture? Or the allegory of the olive tree with all its complexity and doctrinal richness? When I read this allegory, I have to map it out to follow its intricacies. Are we now supposed to believe that Joseph Smith just dictated these sermons off the top of his head with no notes whatsoever?
+In addition, one might ask: where did Joseph get the powerful insight that because of Christ’s Atonement, He can not only cleanse us but also perfect us? Where did he get the stunning sermon on faith in [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]]? Or King Benjamin’s sermon on the Savior’s Atonement, perhaps the most remarkable sermon on this subject in all scripture? Or the allegory of the olive tree with all its complexity and doctrinal richness? When I read this allegory, I have to map it out to follow its intricacies. Are we now supposed to believe that Joseph Smith just dictated these sermons off the top of his head with no notes whatsoever?
 
 Contrary to such a conclusion, God’s fingerprints are all over the Book of Mormon, as evidenced by its majestic doctrinal truths, particularly its masterful sermons on the Atonement of Jesus Christ.
 
 If Joseph were not a prophet, then in order to account for these and many other remarkable doctrinal insights, the critics must make the argument that he was also a theological genius. But if that were the case, one might ask: why was Joseph the only one in the 1,800 years following Christ’s ministry to produce such a breadth of unique and clarifying doctrines? Because it was revelation, not brilliance, that was the source of this book.
 
-But even if we suppose that Joseph were a creative and theological genius with a photographic memory—these talents alone do not make him a skilled writer. To explain the Book of Mormon’s existence, the critics must also make the claim that Joseph was a naturally gifted writer at age 23. Otherwise, how did he interweave scores of names, places, and events into a harmonious whole without inconsistencies? How did he pen detailed war strategies, compose eloquent sermons, and coin phrases that are highlighted, memorized, quoted, and placed on refrigerator doors by millions of people, phrases such as, “When ye are in the service of your fellow beings ye are only in the service of your God” ([[Mosiah 2.17|Mosiah 2:17]]) or “Men are, that they might have joy” ([[2 Nephi 2.25|2 Nephi 2:25]]). These are messages with a heartbeat—messages that live and breathe and inspire. To suggest that Joseph Smith at age 23 possessed the skills necessary to write this monumental work in a single draft in approximately 65 working days is simply counter to the realities of life.
+But even if we suppose that Joseph were a creative and theological genius with a photographic memory—these talents alone do not make him a skilled writer. To explain the Book of Mormon’s existence, the critics must also make the claim that Joseph was a naturally gifted writer at age 23. Otherwise, how did he interweave scores of names, places, and events into a harmonious whole without inconsistencies? How did he pen detailed war strategies, compose eloquent sermons, and coin phrases that are highlighted, memorized, quoted, and placed on refrigerator doors by millions of people, phrases such as, “When ye are in the service of your fellow beings ye are only in the service of your God” ([[Mosiah 2.17|Mosiah 2:17]]) or “Men are, that they might have joy” ([[2 Nephi 2.25|2 Nephi 2:25]]). These are messages with a heartbeat—messages that live and breathe and inspire. To suggest that Joseph Smith at age 23 possessed the skills necessary to write this monumental work in a single draft in approximately 65 working days is simply counter to the realities of life.
 
-President Russell M. Nelson, an experienced and skilled writer, shared that he had over 40 rewrites of a recent general conference talk. Are we now to believe that Joseph Smith, on his own, dictated the entire Book of Mormon in a single draft with mainly minor grammatical changes made thereafter?
+President Russell M. Nelson, an experienced and skilled writer, shared that he had over 40 rewrites of a recent general conference talk. Are we now to believe that Joseph Smith, on his own, dictated the entire Book of Mormon in a single draft with mainly minor grammatical changes made thereafter?
 
 Joseph’s wife Emma confirmed the impossibility of such an undertaking: “Joseph Smith \[as a young man\] could neither write nor dictate a coherent and well-worded letter; let alone dictat\[e\] a book like the Book of Mormon.”[^2]
 
@@ -36,7 +36,7 @@ And finally, even if one accepts all of the foregoing arguments, dubious as they
 
 When all is said and done, one might wonder how someone could believe that all these alleged factors and forces, as proposed by the critics, fortuitously combined in such a way that enabled Joseph to write the Book of Mormon and thus foster a satanic hoax. But how does this make sense? In direct opposition to such an assertion, this book has inspired millions to reject Satan and to live more Christlike lives.
 
-While someone might choose to believe the critics’ line of reasoning, it is, for me, an intellectual and spiritual dead end. To believe such, I would have to accept one unproven assumption after another. In addition, I would have to disregard the testimony of every one of the 11 witnesses,[^3] even though each remained true to his testimony to the very end; I would have to reject the divine doctrine that fills page after page of this sacred book with its supernal truths; I would have to ignore the fact that multitudes, including myself, have come closer to God by reading this book than any other; and above all, I would have to deny the confirming whisperings of the Holy Spirit. This would be contrary to everything I know to be true.
+While someone might choose to believe the critics’ line of reasoning, it is, for me, an intellectual and spiritual dead end. To believe such, I would have to accept one unproven assumption after another. In addition, I would have to disregard the testimony of every one of the 11 witnesses,[^3] even though each remained true to his testimony to the very end; I would have to reject the divine doctrine that fills page after page of this sacred book with its supernal truths; I would have to ignore the fact that multitudes, including myself, have come closer to God by reading this book than any other; and above all, I would have to deny the confirming whisperings of the Holy Spirit. This would be contrary to everything I know to be true.
 
 One of my good and bright friends left the Church for a time. He recently wrote to me of his return: “Initially, I wanted the Book of Mormon to be proven to me historically, geographically, linguistically, and culturally. But when I changed my focus to what it teaches about the gospel of Jesus Christ and His saving mission, I began to gain a testimony of its truthfulness. One day while reading the Book of Mormon in my room, I paused, knelt down, and gave a heartfelt prayer and felt resoundingly that Heavenly Father whispered to my spirit that the Church and the Book of Mormon were definitely true. My three-and-a-half-year period of reinvestigating the Church led me back wholeheartedly and convincingly to its truthfulness.”
 
@@ -49,12 +49,10 @@ I bear my solemn testimony that the Book of Mormon was translated by the gift an
 
 
 
-[^1]: Emma Smith, in “Last Testimony of Sister Emma,” *Saints’ Herald,* Oct. 1, 1879, 289, 290.
+[^1]: Emma Smith, in “Last Testimony of Sister Emma,” *Saints’ Herald,* Oct. 1, 1879, 289, 290.
 
 [^2]: Emma Smith, in “Last Testimony of Sister Emma,” 290.
 
 [^3]: See “The Testimony of Three Witnesses” and “The Testimony of Eight Witnesses,” Book of Mormon.
 
-
-
-#Book_Of_Mormon #Joseph_Smith #Testimony
+#BookOfMormon #JosephSmith #Testimony

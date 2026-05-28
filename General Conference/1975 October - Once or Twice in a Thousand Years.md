@@ -1,6 +1,6 @@
 # Once or Twice in a Thousand Years
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -121,6 +121,4 @@ These things I know and of them I testify. In the name of the Lord Jesus Christ,
 
 
 
-
-
-#Apostasy #Joseph_Smith #Restoration
+#Apostasy #JosephSmith #Restoration

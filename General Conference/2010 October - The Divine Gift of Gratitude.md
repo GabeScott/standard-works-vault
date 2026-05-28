@@ -48,7 +48,7 @@ Through divine intervention, those who were lepers were spared from a cruel, lin
 
 My brothers and sisters, do we remember to give thanks for the blessings we receive? Sincerely giving thanks not only helps us recognize our blessings, but it also unlocks the doors of heaven and helps us feel God’s love.
 
-My beloved friend President Gordon B. Hinckley said, “When you walk with gratitude, you do not walk with arrogance and conceit and egotism, you walk with a spirit of thanksgiving that is becoming to you and will bless your lives.”[^3]
+My beloved friend President Gordon B. Hinckley said, “When you walk with gratitude, you do not walk with arrogance and conceit and egotism, you walk with a spirit of thanksgiving that is becoming to you and will bless your lives.”[^3]
 
 In the book of Matthew in the Bible, we have another account of gratitude, this time as an expression from the Savior. As He traveled in the wilderness for three days, more than 4,000 people followed and traveled with Him. He took compassion on them, for they may not have eaten during the entire three days. His disciples, however, questioned, “Whence should we have so much bread in the wilderness, as to fill so great a multitude?” Like many of us, the disciples saw only what was lacking.
 
@@ -64,7 +64,7 @@ We have all experienced times when our focus is on what we lack rather than on o
 
 Gratitude is a divine principle. The Lord declared through a revelation given to the Prophet Joseph Smith:
 
-“Thou shalt thank the Lord thy God in all things. …
+“Thou shalt thank the Lord thy God in all things. …
 
 “And in nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things.”[^6]
 
@@ -76,7 +76,7 @@ This is a wonderful time to be on earth. While there is much that is wrong in th
 
 We can lift ourselves and others as well when we refuse to remain in the realm of negative thought and cultivate within our hearts an attitude of gratitude. If ingratitude be numbered among the serious sins, then gratitude takes its place among the noblest of virtues. Someone has said that “gratitude is not only the greatest of virtues, but the parent of all the others.”[^8]
 
-How can we cultivate within our hearts an attitude of gratitude? President Joseph F. Smith, sixth President of the Church, provided an answer. Said he: “The grateful man sees so much in the world to be thankful for, and with him the good outweighs the evil. Love overpowers jealousy, and light drives darkness out of his life.” He continued: “Pride destroys our gratitude and sets up selfishness in its place. How much happier we are in the presence of a grateful and loving soul, and how careful we should be to cultivate, through the medium of a prayerful life, a thankful attitude toward God and man!”[^9]
+How can we cultivate within our hearts an attitude of gratitude? President Joseph F. Smith, sixth President of the Church, provided an answer. Said he: “The grateful man sees so much in the world to be thankful for, and with him the good outweighs the evil. Love overpowers jealousy, and light drives darkness out of his life.” He continued: “Pride destroys our gratitude and sets up selfishness in its place. How much happier we are in the presence of a grateful and loving soul, and how careful we should be to cultivate, through the medium of a prayerful life, a thankful attitude toward God and man!”[^9]
 
 President Smith is telling us that a prayerful life is the key to possessing gratitude.
 
@@ -114,11 +114,11 @@ On Thanksgiving morning, however, Gordon’s father showed up with a jackrabbit 
 
 The food was blessed, and everyone ate. When dinner was over, they all sat quietly. Wrote Gordon:
 
-“In the humble dimness of the old lamp we were beginning to see clearly again. …
+“In the humble dimness of the old lamp we were beginning to see clearly again. …
 
-“It \[was\] a lovely meal. The jack rabbit tasted like turkey and the turnips were the mildest we could recall. …
+“It \[was\] a lovely meal. The jack rabbit tasted like turkey and the turnips were the mildest we could recall. …
 
-“… \[Our\] home … , for all its want, was so rich \[to\] us.”[^13]
+“… \[Our\] home … , for all its want, was so rich \[to\] us.”[^13]
 
 My brothers and sisters, to express gratitude is gracious and honorable, to enact gratitude is generous and noble, but to live with gratitude ever in our hearts is to touch heaven.
 
@@ -141,7 +141,7 @@ My sincere, heartfelt prayer is that we may in our individual lives reflect that
 
 [^2]: [[Luke 17.11|Luke 17:11–19]][[Luke 17.12|]][[Luke 17.13|]][[Luke 17.14|]][[Luke 17.15|]][[Luke 17.16|]][[Luke 17.17|]][[Luke 17.18|]][[Luke 17.19|]].
 
-[^3]: *Teachings of Gordon B. Hinckley* (1997), 250.
+[^3]: *Teachings of Gordon B. Hinckley* (1997), 250.
 
 [^4]: See [[Matthew 15.32|Matthew 15:32–38]][[Matthew 15.33|]][[Matthew 15.34|]][[Matthew 15.35|]][[Matthew 15.36|]][[Matthew 15.37|]][[Matthew 15.38|]]; emphasis added.
 
@@ -151,17 +151,17 @@ My sincere, heartfelt prayer is that we may in our individual lives reflect that
 
 [^7]: [[Alma 34.38|Alma 34:38]].
 
-[^8]: Cicero, in *A New Dictionary of Quotations on Historical Principles,* sel. H. L. Mencken (1942), 491.
+[^8]: Cicero, in *A New Dictionary of Quotations on Historical Principles,* sel. H. L. Mencken (1942), 491.
 
-[^9]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 263.
+[^9]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 263.
 
 [^10]: Aldous Huxley, *Themes and Variations* (1954), 66.
 
-[^11]: William H. Davies, *The Autobiography of a Super-Tramp* (1908), 4.
+[^11]: William H. Davies, *The Autobiography of a Super-Tramp* (1908), 4.
 
 [^12]: William Arthur Ward, in Allen Klein, comp., *Change Your Life!* (2010), 15.
 
-[^13]: Adapted from H. Gordon Green, “The Thanksgiving I Don’t Forget,” *Reader’s Digest,* Nov. 1956, 69–71.
+[^13]: Adapted from H. Gordon Green, “The Thanksgiving I Don’t Forget,” *Reader’s Digest,* Nov. 1956, 69–71.
 
 [^14]: [[Luke 23.34|Luke 23:34]].
 
@@ -174,7 +174,5 @@ My sincere, heartfelt prayer is that we may in our individual lives reflect that
 [^18]: [[Luke 10.37|Luke 10:37]].
 
 [^19]: [[John 14.15|John 14:15]].
-
-
 
 #Gratitude

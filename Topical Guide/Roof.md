@@ -1,6 +1,5 @@
 # Roof
 
-
 came they under the shadow of my *roof*, [[Genesis 19.8|Genesis 19:8]].
 
 she had brought them up to the *roof*, [[Joshua 2.6|Joshua 2:6]].

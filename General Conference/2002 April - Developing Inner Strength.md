@@ -40,7 +40,7 @@ Sisters, take a close look at the suggested topics for home, family, and persona
 
 Another way we can develop inner strength is by striving for unity in our families, stakes, wards, and presidencies. The Lord Himself taught, “If ye are not one ye are not mine.”[^2]
 
-Unity of purpose, thought, and feeling are exalting qualities. When we can put aside our differences and value each other’s strengths, great things happen. The Prophet Joseph Smith admonished: “Don’t be limited in your views with regard to your neighbor’s virtue … ; you must enlarge your souls towards each other.”[^3] Such generosity of spirit invites greater unity.
+Unity of purpose, thought, and feeling are exalting qualities. When we can put aside our differences and value each other’s strengths, great things happen. The Prophet Joseph Smith admonished: “Don’t be limited in your views with regard to your neighbor’s virtue … ; you must enlarge your souls towards each other.”[^3] Such generosity of spirit invites greater unity.
 
 I have visited stakes and wards that are united. The auxiliary presidencies are supporting each other and coordinating their efforts; they are sustaining their priesthood leaders and together striving to bring families to Christ. As the kingdom of God rolls forth, we must unite our efforts in saving souls.
 
@@ -65,7 +65,7 @@ I am here today to witness to you that such women are all around the world in th
 
 [^4]: See General Relief Society Presidency, “For Such a Time as This,” *Ensign,* Jan. 2002, 64–66.
 
-[^5]: See [[1 Corinthians 11.28|1 Cor. 11:28]].
+[^5]: See [[1 Corinthians 11.28|1 Cor. 11:28]].
 
 [^6]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 189.
 
@@ -73,6 +73,4 @@ I am here today to witness to you that such women are all around the world in th
 
 [^8]: [[Ether 12.27|Ether 12:27]].
 
-
-
-#Character #Relief_Society #Service #Unity
+#Character #ReliefSociety #Service #Unity

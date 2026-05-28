@@ -22,7 +22,7 @@ The greatest scriptural examples of patience are found in the life of Jesus Chri
 
 While nailed to the cross on Calvary, Christ continued in His perfect example of patience as He uttered the singular words, “Father, forgive them; for they know not what they do” ([[Luke 23.34|Luke 23:34]]).
 
-These examples of patience have greater meaning for us when we consider the admonition found in 3 Nephi: “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Nephi 27:27]]).
+These examples of patience have greater meaning for us when we consider the admonition found in 3 Nephi: “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Nephi 27:27]]).
 
 Several scriptures highlight the importance of patience. Let me mention a few:
 
@@ -54,7 +54,7 @@ Since impatience is so natural, how do we develop the divine virtue of patience?
 
 First, we must understand that to do so is necessary, if we desire to fully enjoy the blessings of the restored gospel. Such an understanding might motivate us to:
 
-1. Read each of the scriptures in the Topical Guide listed under the topic “patience” and then ponder Christ’s patient examples.
+1. Read each of the scriptures in the Topical Guide listed under the topic “[[Patience, Patient, Patiently|Patience]]” and then ponder Christ’s patient examples.
 
 2. Evaluate ourselves to determine where we stand on the patience continuum. How much more patience do we need to become more Christlike? This self-assessment is difficult. We might ask our spouse or another family member to help us.
 
@@ -69,6 +69,4 @@ I testify that Jesus is the Christ and that He stands at the head of this Church
 
 
 
-
-
-#Charity #Jesus_Christ #Patience
+#Charity #JesusChrist #Patience

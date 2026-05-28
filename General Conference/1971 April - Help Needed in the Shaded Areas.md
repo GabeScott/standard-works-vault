@@ -1,6 +1,6 @@
 # Help Needed in the Shaded Areas
 
-By Elder William H. Bennett - *Assistant to the Council of the Twelve*
+By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -44,7 +44,7 @@ In the [[Romans 1.16|Epistle of Paul to the Romans, chapter 1, verses 16 and 17]
 
 In [[2 Corinthians 5.7|Second Corinthians, chapter 5, verse 7]], we read: “For we walk by faith, not by sight.”
 
-From the Book of Mormon, in [[Alma 26.22|Alma, chapter 26, verse 22]], these words spoken by Ammon: “Yea, he that repenteth and exerciseth faith, and bringeth forth good works, and prayeth continually without ceasing—unto such it is given to know the mysteries of God; yea, unto such it shall be given to reveal things which never have been revealed. …”
+From the Book of Mormon, in [[Alma 26.22|Alma, chapter 26, verse 22]], these words spoken by Ammon: “Yea, he that repenteth and exerciseth faith, and bringeth forth good works, and prayeth continually without ceasing—unto such it is given to know the mysteries of God; yea, unto such it shall be given to reveal things which never have been revealed. …”
 
 From the Doctrine and Covenants we read in [[D&C 88.63|section 88, verse 63]]: “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you.”
 
@@ -71,6 +71,4 @@ I testify to you that God lives, that the gospel is true, that this is the true 
 
 
 
-
-
-#Holy_Ghost #Spirituality #Youth
+#HolyGhost #Spirituality #Youth

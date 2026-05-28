@@ -1,6 +1,6 @@
 # The Power of Godliness
 
-By Elder Kent F. Richards - *Of the Seventy*
+By Elder Kent F. Richards - *Of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -18,13 +18,13 @@ Our responsibility is to “receive” that which our Father offers.[^4] “For 
 
 Nephi saw our day in his great vision: “I, Nephi, beheld the *power* of the Lamb of God, that it descended upon the saints of the church of the Lamb, and upon the *covenant people* of the Lord, who were scattered upon all the face of the earth; and they were *armed with righteousness and with the power of God in great glory.*”[^11]
 
-I had the privilege recently of being in a temple open house with President Russell M. Nelson and his family as he gathered them around the sealing altar and explained to them that everything we do in the Church—every meeting, activity, lesson, and service—is to prepare each of us to come to the temple and kneel at the altar to receive all the Father’s promised blessings for eternity.[^12]
+I had the privilege recently of being in a temple open house with President Russell M. Nelson and his family as he gathered them around the sealing altar and explained to them that everything we do in the Church—every meeting, activity, lesson, and service—is to prepare each of us to come to the temple and kneel at the altar to receive all the Father’s promised blessings for eternity.[^12]
 
 As we feel the blessings of the temple in our own lives, our hearts turn to our families, both living and dead.
 
 Recently, I witnessed a three-generation family participate in baptisms together for their ancestors. Even the grandmother participated—though she had some trepidation about going under the water herself. As she emerged from the water and hugged her husband, she had tears of joy. The grandfather and father then baptized each other and many of the grandchildren. What greater joy could a family experience together? Each temple has a family priority time to allow you as a family to schedule time in the baptistry.
 
-Shortly before his death, President Joseph F. Smith received the vision of the redemption of the dead. He taught that those who are in the spirit world are fully dependent upon the ordinances that we receive on their behalf. The scripture reads, “The dead who repent will be redeemed, through obedience to the ordinances of the house of God.”[^13] We receive the ordinances in their behalf, but they make and are held accountable for each covenant associated with each ordinance. Surely, the veil is thin for us and parts completely for them in the temple.
+Shortly before his death, President Joseph F. Smith received the vision of the redemption of the dead. He taught that those who are in the spirit world are fully dependent upon the ordinances that we receive on their behalf. The scripture reads, “The dead who repent will be redeemed, through obedience to the ordinances of the house of God.”[^13] We receive the ordinances in their behalf, but they make and are held accountable for each covenant associated with each ordinance. Surely, the veil is thin for us and parts completely for them in the temple.
 
 What then is our personal responsibility to be engaged in this work, both as patrons and as workers? The Prophet Joseph Smith taught the Saints in 1840 that “considerable exertion must be made, and means will be required—and as the work \[to build the temple\] must be hastened in righteousness, it behooves the Saints to weigh the importance of these things, in their minds, … and then take such steps as are necessary to carry them into operation; and arming themselves with courage, resolve to do all they can, and feel themselves as much interested as though the whole labor depended on themselves alone.”[^14]
 
@@ -38,9 +38,9 @@ In the book of Revelation we read:
 
 Can’t you just see in your mind’s eye those who serve in the temple today?
 
-There are more than 120,000 ordinance workers in the 150 operating temples around the world. Yet there is opportunity for even more to have this sweet experience. When President Gordon B. Hinckley announced the concept of many smaller temples throughout the world, he taught that “all ordinance workers would be local people who would serve in other capacities in their wards and stakes.”[^16] Normally, workers are called to serve for two to three years, with the possibility of extending beyond. It is not intended that once you are called, you will stay as long as you are able. Many long-serving workers carry their love for the temple with them as they are released and allow other, new workers to serve.
+There are more than 120,000 ordinance workers in the 150 operating temples around the world. Yet there is opportunity for even more to have this sweet experience. When President Gordon B. Hinckley announced the concept of many smaller temples throughout the world, he taught that “all ordinance workers would be local people who would serve in other capacities in their wards and stakes.”[^16] Normally, workers are called to serve for two to three years, with the possibility of extending beyond. It is not intended that once you are called, you will stay as long as you are able. Many long-serving workers carry their love for the temple with them as they are released and allow other, new workers to serve.
 
-Nearly 100 years ago, Apostle John A. Widtsoe taught: “We need more workers to accomplish \[this\] wonderful work. … We need more converts to temple work, drawn from all ages. … The time has come, … in this new temple movement, to bring into active service all the people, of all ages. … Temple work is … of as much benefit to the young and the active, as it is to the aged, who have laid behind them many of the burdens of life. The young man needs his place in the temple even more than his father and his grandfather, who are steadied by a life of experience; and the young girl just entering life, needs the spirit, influence and direction that come from participation in the temple ordinances.”[^17]
+Nearly 100 years ago, Apostle John A. Widtsoe taught: “We need more workers to accomplish \[this\] wonderful work. … We need more converts to temple work, drawn from all ages. … The time has come, … in this new temple movement, to bring into active service all the people, of all ages. … Temple work is … of as much benefit to the young and the active, as it is to the aged, who have laid behind them many of the burdens of life. The young man needs his place in the temple even more than his father and his grandfather, who are steadied by a life of experience; and the young girl just entering life, needs the spirit, influence and direction that come from participation in the temple ordinances.”[^17]
 
 In many temples, temple presidents are welcoming newly called and endowed missionaries, young men and women, to serve for just a short time as ordinance workers before going to the MTC. These young people are not only blessed to serve, but “they enhance the beauty and spirit for all serving in the temple.”[^18]
 
@@ -80,7 +80,7 @@ He also said:
 
 “This is worth all you or I can sacrifice \[during\] the few years we have to spend here in the flesh.”[^23]
 
-President Thomas S. Monson recently reminded us that “the blessings of the temple are priceless.”[^24] “No sacrifice is too great.”[^25]
+President Thomas S. Monson recently reminded us that “the blessings of the temple are priceless.”[^24] “No sacrifice is too great.”[^25]
 
 Come to the temple. Come often. Come with and for your family. Come, and help others to come too.
 
@@ -109,36 +109,34 @@ Come to the temple. Come often. Come with and for your family. Come, and help ot
 
 [^10]: [[D&C 29.30|Doctrine and Covenants 29:30]].
 
-[^11]: [[1 Nephi 14.14|1 Nephi 14:14]]; emphasis added.
+[^11]: [[1 Nephi 14.14|1 Nephi 14:14]]; emphasis added.
 
-[^12]: See Russell M. Nelson, “[[2001 April - Personal Preparation for Temple Blessings.md|Personal Preparation for Temple Blessings]],” *Ensign,* May 2001, 32; *Liahona,* July 2001, 37.
+[^12]: See Russell M. Nelson, “[[2001 April - Personal Preparation for Temple Blessings.md|Personal Preparation for Temple Blessings]],” *Ensign,* May 2001, 32; *Liahona,* July 2001, 37.
 
-[^13]: [[D&C 138.58|Doctrine and Covenants 138:58]]; see also [[D&C 138.53|verses 53–54]][[D&C 138.54|]].
+[^13]: [[D&C 138.58|Doctrine and Covenants 138:58]]; see also [[D&C 138.53|verses 53–54]][[D&C 138.54|]].
 
 [^14]: *Teachings: Joseph Smith,* 415.
 
 [^15]: [[Revelation 7.13|Revelation 7:13–15]][[Revelation 7.14|]][[Revelation 7.15|]].
 
-[^16]: Gordon B. Hinckley, “[[1997 October - Some Thoughts on Temples, Retention of Converts, and Missionary Service.md|Some Thoughts on Temples, Retention of Converts, and Missionary Service]],” *Ensign,* Nov. 1997, 49.
+[^16]: Gordon B. Hinckley, “[[1997 October - Some Thoughts on Temples, Retention of Converts, and Missionary Service.md|Some Thoughts on Temples, Retention of Converts, and Missionary Service]],” *Ensign,* Nov. 1997, 49.
 
-[^17]: John A. Widtsoe, “Temple Worship,” *Utah Genealogical and Historical Magazine,* Apr. 1921, 51–52.
+[^17]: John A. Widtsoe, “Temple Worship,” *Utah Genealogical and Historical Magazine,* Apr. 1921, 51–52.
 
 [^18]: Personal correspondence from President Brent Belliston, Boise Idaho Temple.
 
 [^19]: Personal correspondence.
 
-[^20]: Russell M. Nelson, “[[1994 October - The Spirit of Elijah.md|The Spirit of Elijah]],” *Ensign,* Nov. 1994, 86.
+[^20]: Russell M. Nelson, “[[1994 October - The Spirit of Elijah.md|The Spirit of Elijah]],” *Ensign,* Nov. 1994, 86.
 
-[^21]: “Discourse by President Wilford Woodruff,” *Millennial Star,* May 14, 1896, 307.
+[^21]: “Discourse by President Wilford Woodruff,” *Millennial Star,* May 14, 1896, 307.
 
 [^22]: *Teachings of Presidents of the Church: Wilford Woodruff* (2004), xxx.
 
 [^23]: *Teachings: Wilford Woodruff,* 177.
 
-[^24]: Thomas S. Monson, “[[2015 April - Blessings of the Temple.md|Blessings of the Temple]],” *Ensign* or *Liahona,* May 2015, 93.
+[^24]: Thomas S. Monson, “[[2015 April - Blessings of the Temple.md|Blessings of the Temple]],” *Ensign* or *Liahona,* May 2015, 93.
 
-[^25]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 92.
+[^25]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 92.
 
-
-
-#Covenants #Ordinances #Service #Temple_Work
+#Covenants #Ordinances #Service #TempleWork

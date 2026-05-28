@@ -27,6 +27,4 @@ As one final word I would say that I came to the position of secretary to the Fi
 
 
 
-
-
-#Church_Callings #Prophets
+#ChurchCallings #Prophets

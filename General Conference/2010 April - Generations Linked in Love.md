@@ -28,7 +28,7 @@ He also provided a way for them to be part of an eternal family. Every human bei
 
 Consider the spiritual connections that are formed when a young woman helps her grandmother enter family information into a computer or when a young man sees the name of his great-grandfather on a census record. When our hearts turn to our ancestors, something changes inside us. We feel part of something greater than ourselves. Our inborn yearnings for family connections are fulfilled when we are linked to our ancestors through sacred ordinances of the temple.
 
-Because of the importance of this work, the Church has built temples closer to the people,[^5] and family history research is being facilitated as never before. Methods to find and prepare names for temple ordinances are also improving. At the October 2005 conference, President Gordon B. Hinckley announced an exciting step forward in family history and temple work. He said: “One of the most troublesome aspects of our temple activity is that as we get more and more temples … across the earth there is duplication of effort in proxy work. … We, therefore, have been engaged for some time in a very difficult undertaking. … The solution lies in complex computer technology.”[^6]
+Because of the importance of this work, the Church has built temples closer to the people,[^5] and family history research is being facilitated as never before. Methods to find and prepare names for temple ordinances are also improving. At the October 2005 conference, President Gordon B. Hinckley announced an exciting step forward in family history and temple work. He said: “One of the most troublesome aspects of our temple activity is that as we get more and more temples … across the earth there is duplication of effort in proxy work. … We, therefore, have been engaged for some time in a very difficult undertaking. … The solution lies in complex computer technology.”[^6]
 
 Since then, not only has duplication been reduced, but procedures have been simplified so that virtually every member of the Church can participate in temple and family history work. Gone are the days when this sacred work was done only by specialists. No matter your situation, you can make family history a part of your life right now. Primary children can draw a family tree. Youth can participate in proxy baptisms. They can also help the older generation work with computers. Parents can relate stories of their lives to their posterity. Worthy adult members can hold a temple recommend and perform temple ordinances for their own kin.
 
@@ -40,13 +40,13 @@ Then you print out a Family Ordinance Request. This document provides the inform
 
 From the Family Ordinance Request, ordinance cards are printed at the temple. After an ordinance is performed, it is recorded and entered into new FamilySearch on that very day.
 
-Now, what about those of you who have no access to a computer or prefer not to use this technology? Don’t worry! Take one step at a time. Start at home. Begin with an empty cardboard box, as suggested by President Boyd K. Packer.[^11] Put in that box important information about you and your family. Add data gathered from others of your family. Then avail yourself of assistance from your ward or branch family history consultant. The new FamilySearch system enables a consultant to perform all needed computer functions for you, including preparing names for the temple. About 60,000 consultants serve throughout the world. One in your ward or branch can be very helpful to you.
+Now, what about those of you who have no access to a computer or prefer not to use this technology? Don’t worry! Take one step at a time. Start at home. Begin with an empty cardboard box, as suggested by President Boyd K. Packer.[^11] Put in that box important information about you and your family. Add data gathered from others of your family. Then avail yourself of assistance from your ward or branch family history consultant. The new FamilySearch system enables a consultant to perform all needed computer functions for you, including preparing names for the temple. About 60,000 consultants serve throughout the world. One in your ward or branch can be very helpful to you.
 
 The new FamilySearch system changes the dynamics of family history work by facilitating the creation of one common pedigree. In the past, a person worked separately, keeping his or her own family records. One often worked without knowing what other family members were doing. Now each person can contribute information while coordinating with others in developing their family tree.
 
 While the new FamilySearch is a giant step forward, it is still just a step. There is more work ahead. Because the system facilitates access to information submitted to the Church over many decades from many sources, new FamilySearch may expose duplicate entries or errors that had not previously been recognized. This feature is especially useful for those with early pioneer ancestry. Duplications and errors need correction, and no one can do it better than each individual for his or her own family.
 
-You may be frustrated as you work through these challenges. Please be assured that your concerns are well understood. The Church, under the inspired leadership of President Thomas S. Monson, is working diligently to assist you in solving these problems. Together we are striving to organize the family tree for all of God’s children. This is an enormous endeavor with enormous rewards.
+You may be frustrated as you work through these challenges. Please be assured that your concerns are well understood. The Church, under the inspired leadership of President Thomas S. Monson, is working diligently to assist you in solving these problems. Together we are striving to organize the family tree for all of God’s children. This is an enormous endeavor with enormous rewards.
 
 This is joyful work. Look at this photograph of new converts doing temple work for their own kin. These dear Saints are from the San Salvador El Salvador Ilopango Stake and are attending the Guatemala City Temple for the first time. They are holding their temple cards, each with the name of a deceased relative for whom they have performed a vicarious baptism.
 
@@ -63,7 +63,7 @@ Our children, grandchildren, “Dear Ruby,” and all our great-grandchildren ar
 
 
 
-[^1]: See [[1 Corinthians 12.13|1 Corinthians 12:13]]; [[Galatians 3.28|Galatians 3:28]]; [[2 Nephi 26.33|2 Nephi 26:33]].
+[^1]: See [[1 Corinthians 12.13|1 Corinthians 12:13]]; [[Galatians 3.28|Galatians 3:28]]; [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^2]: See [[Moses 1.39|Moses 1:39]].
 
@@ -71,9 +71,9 @@ Our children, grandchildren, “Dear Ruby,” and all our great-grandchildren ar
 
 [^4]: See [[D&C 124.33|Doctrine and Covenants 124:33]].
 
-[^5]: President Thomas S. Monson said recently that 83 percent of Church members throughout the world now live within 200 miles (320 km) of a temple (see Conference Report, Oct. 2009, 3; or *Ensign,* Nov. 2009, 4).
+[^5]: President Thomas S. Monson said recently that 83 percent of Church members throughout the world now live within 200 miles (320 km) of a temple (see Conference Report, Oct. 2009, [[2009 October - Welcome to Conference.md|3]]; or *Ensign,* Nov. 2009, 4).
 
-[^6]: Gordon B. Hinckley, in Conference Report, Oct. 2005, 3; or *Ensign,* Nov. 2005, 5–6.
+[^6]: Gordon B. Hinckley, in Conference Report, Oct. 2005, [[2005 October - Opening Remarks.md|3]]; or *Ensign,* Nov. 2005, 5–6.
 
 [^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 475.
 
@@ -83,7 +83,7 @@ Our children, grandchildren, “Dear Ruby,” and all our great-grandchildren ar
 
 [^10]: If you have access to a computer, go to [new.familysearch.org](https://www.familysearch.org). To register for the first time, you will need your membership number and your birth date. You can obtain your membership number from your ward or branch clerk. Once logged into the system, you can verify that your ancestors’ information is in the system and what temple ordinances are needed. You can identify ancestors who are not now known to you and add them to your family tree. Print out a Family Ordinance Request form to take to the temple and thus open the way for needed ordinances to be performed.
 
-[^11]: See Boyd K. Packer, “Your Family History: Getting Started,” *Liahona* and *Ensign,* Aug. 2003, 12–17.
+[^11]: See Boyd K. Packer, “Your Family History: Getting Started,” *Liahona* and *Ensign,* Aug. 2003, 12–17.
 
 [^12]: Under the direction of the stake presidency, one or more assigned high councilors oversee temple and family history work in the stake. On the ward or branch level, the high priests group leader or elders quorum president leads the way. Many resources, printed and online, are available to help family history consultants and priesthood leaders fulfill their duties.
 
@@ -95,6 +95,4 @@ Our children, grandchildren, “Dear Ruby,” and all our great-grandchildren ar
 
 [^16]: See [[D&C 128.18|Doctrine and Covenants 128:18]].
 
-
-
-#Family #Family_History #Temple_Work
+#Family #FamilyHistory #TempleWork

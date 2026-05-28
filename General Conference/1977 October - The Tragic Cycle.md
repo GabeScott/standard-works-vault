@@ -1,6 +1,6 @@
 # The Tragic Cycle
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -26,23 +26,23 @@ For centuries the posterity of Adam was repeatedly called to repentance by the p
 
 To the residue, the prophet “Noah … taught the things of God, even as it was in the beginning.” But they would not hearken.
 
-“And the Lord said unto Noah: My Spirit shall not always strive with man, … yet his days shall be an hundred and twenty years; and if men do not repent, I will send in the floods upon them. …
+“And the Lord said unto Noah: My Spirit shall not always strive with man, … yet his days shall be an hundred and twenty years; and if men do not repent, I will send in the floods upon them. …
 
-“Noah called upon the children of men that they should repent; but they hearkened not. …
+“Noah called upon the children of men that they should repent; but they hearkened not. …
 
 “Every man was lifted up in the imagination of the thoughts of his heart, being only evil continually.” ([[Moses 8.16|Moses 8:16–17, 20, 22]][[Moses 8.17|]][[Moses 8.20|]][[Moses 8.22|]].)
 
 But Noah continued his preaching, saying:
 
-“Believe and repent of your sins and be baptized in the name of Jesus Christ, the Son of God, … and ye shall receive the Holy Ghost, … and if ye do not this, the floods will come in upon you; nevertheless they hearkened not. …
+“Believe and repent of your sins and be baptized in the name of Jesus Christ, the Son of God, … and ye shall receive the Holy Ghost, … and if ye do not this, the floods will come in upon you; nevertheless they hearkened not. …
 
-“And God looked upon the earth, and … it was corrupt. …
+“And God looked upon the earth, and … it was corrupt. …
 
 “And God said unto Noah: The end of all flesh is come before me, for the earth is filled with violence, and behold I will destroy all flesh from off the earth.” ([[Moses 8.24|Moses 8:24, 29–30]][[Moses 8.29|]][[Moses 8.30|]].)
 
 And this He did. Noah and his family were the sole survivors.
 
-The people of Sodom and Gomorrah went through a similar cycle. They were warned and heeded not. For their iniquities “the Lord rained upon \[them\] brimstone and fire. …
+The people of Sodom and Gomorrah went through a similar cycle. They were warned and heeded not. For their iniquities “the Lord rained upon \[them\] brimstone and fire. …
 
 “He overthrew those cities, and all the plain, and all the inhabitants of the cities, and that which grew upon the ground.” ([[Genesis 19.24|Gen. 19:24–25]][[Genesis 19.25|]].)
 
@@ -78,7 +78,7 @@ In November 1831, the Lord, through His modern prophet, Joseph Smith, Jr., said:
 
 May I remind you that the elders of Israel are some of those disciples.
 
-“And they shall go forth and none shall stay them, for I the Lord have commanded them. …
+“And they shall go forth and none shall stay them, for I the Lord have commanded them. …
 
 “Wherefore the voice of the Lord is unto the ends of the earth, that all that will hear may hear:
 
@@ -106,9 +106,9 @@ Among the things to be proclaimed unto the world were certain impending disaster
 
 Later, He called upon Joseph Smith the Prophet and said, in part:
 
-“Listen to the voice of Jesus Christ, your Redeemer. …
+“Listen to the voice of Jesus Christ, your Redeemer. …
 
-“Ye are called to bring to pass the gathering of mine elect …
+“Ye are called to bring to pass the gathering of mine elect …
 
 “To prepare their hearts and be prepared in all things against the day when tribulation and desolation are sent forth upon the wicked.
 
@@ -116,7 +116,7 @@ Later, He called upon Joseph Smith the Prophet and said, in part:
 
 “For the hour is nigh, and that which was spoken by mine apostles must be fulfilled; for as they spoke so shall it come to pass;
 
-“For I will reveal myself from heaven with power and great glory, with all the hosts thereof, and dwell in righteousness with men on earth a thousand years, and the wicked shall not stand. …
+“For I will reveal myself from heaven with power and great glory, with all the hosts thereof, and dwell in righteousness with men on earth a thousand years, and the wicked shall not stand. …
 
 “But, behold, I say unto you that before this great day shall come the sun shall be darkened, and the moon shall be turned into blood, and the stars shall fall from heaven, and there shall be greater signs in heaven above and in the earth beneath;
 
@@ -146,15 +146,15 @@ These commandments are not arbitrary edicts of a vindictive tyrant. They but set
 
 The closing of the tragic cycle by the coming of the foreboding calamities can be averted if the inhabitants of the earth will repent, believe, and have faith in God as our Heavenly Father, in His Son Jesus Christ as our Redeemer, and will conform to their teachings. A good beginning would be to obey the commandments God gave to the children of Israel through Moses, the ones President Kimball has already quoted from this pulpit this day. The Lord said then and it is still true:
 
-“I am the Lord thy God. …
+“I am the Lord thy God. …
 
-“Thou shalt have no other gods before me. …
+“Thou shalt have no other gods before me. …
 
-“Thou shalt not take the name of the Lord thy God in vain. …
+“Thou shalt not take the name of the Lord thy God in vain. …
 
-“Remember the sabbath day, to keep it holy. …
+“Remember the sabbath day, to keep it holy. …
 
-“Honour thy father and thy mother. …
+“Honour thy father and thy mother. …
 
 “Thou shalt not kill.
 
@@ -171,8 +171,6 @@ If the inhabitants of the earth will obey these commandments and, in addition, s
 That it will be so I do not say. I do know, and I say, that as there was a Zion in the days of Enoch in which those who complied with God’s laws were saved, so there shall be a Zion in this last dispensation in which all those who live God’s revealed laws will be saved.
 
 To all of these things which the Lord has spoken, I bear my solemn witness in the name of Jesus Christ. Amen.
-
-
 
 
 

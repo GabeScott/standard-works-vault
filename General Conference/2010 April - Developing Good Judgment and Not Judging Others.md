@@ -14,7 +14,7 @@ We may often find ourselves making quick judgments about people, which can chang
 
 By way of illustration, the story is often told of the time when Jesus visited the home of Mary and Martha, who lived in Bethany with their brother, Lazarus. It was a welcome place for the Master, where He could rest and enjoy the surroundings of a righteous home. During one of His visits, Martha was busy preparing a meal and Mary elected to sit at the Master’s feet to receive His instruction.
 
-“But Martha was cumbered about much serving, and came to him, and said, Lord, dost thou not care that my sister hath left me to serve alone? …
+“But Martha was cumbered about much serving, and came to him, and said, Lord, dost thou not care that my sister hath left me to serve alone? …
 
 “And Jesus answered and said unto her, Martha, Martha, thou art careful and troubled about many things:
 
@@ -42,15 +42,15 @@ Good judgment is needed not only in understanding people but also in facing deci
 
 There are many characteristics of people who have developed good judgment. I would offer four guides for developing such judgment in making important decisions.
 
-**First, put your own personal standards in alignment with the gospel of Jesus Christ.** A person can never be a good judge without the gospel of Jesus Christ as a reference. The gospel has a long and successful record of guiding people to happiness. Some of the world’s ideas leave mankind adrift to try to define their own standards. Because of this, we hear phrases like “a new morality.” This phrase is deceptive! The standards of morality are eternal and have not changed; neither should we try to discover a new interpretation of them. For the youth these standards are written in the pamphlet *For the Strength of Youth.* These standards are clearly aligned with the gospel of Jesus Christ and are intended to continue through adult life. Perhaps it would be good for us as adults to study and apply this pamphlet to our lives.
+***First, put your own personal standards in alignment with the gospel of Jesus Christ.*** A person can never be a good judge without the gospel of Jesus Christ as a reference. The gospel has a long and successful record of guiding people to happiness. Some of the world’s ideas leave mankind adrift to try to define their own standards. Because of this, we hear phrases like “a new morality.” This phrase is deceptive! The standards of morality are eternal and have not changed; neither should we try to discover a new interpretation of them. For the youth these standards are written in the pamphlet *For the Strength of Youth.* These standards are clearly aligned with the gospel of Jesus Christ and are intended to continue through adult life. Perhaps it would be good for us as adults to study and apply this pamphlet to our lives.
 
-**Second, listen to the messages of the living prophet.** How many poor financial judgments would have been avoided had we listened to the years of advice given through our prophets about avoiding risky speculation and following a careful budget to avoid consumer debt? How many marriages would have been saved by using good judgment in avoiding media that lead to pornographic addiction and heartache? Each general conference and Church magazine contains advice from the prophets which, if applied, will lead us to good judgment. We are left without excuse when we ignore them.
+***Second, listen to the messages of the living prophet.*** How many poor financial judgments would have been avoided had we listened to the years of advice given through our prophets about avoiding risky speculation and following a careful budget to avoid consumer debt? How many marriages would have been saved by using good judgment in avoiding media that lead to pornographic addiction and heartache? Each general conference and Church magazine contains advice from the prophets which, if applied, will lead us to good judgment. We are left without excuse when we ignore them.
 
-**Third, cultivate with the Holy Spirit a relationship of listening.** We are given the gift of the Holy Ghost after our baptism, but often we leave this gift on the shelf, forgetting that He will help us in the most important judgments of our lives. The Lord gave us this gift, knowing we would face difficult decisions in life. Listening to this voice is vital in developing good judgment. A relationship of listening often requires a quiet environment in which we can take time to ponder and hear the still, small voice. This peaceful environment is both external and internal. Therefore, it is more than shutting off the music of the world or the blare of other media; it is also shutting off the noise of sin that is internal to our soul. This will open the communication with the Spirit, which is so badly needed.
+***Third, cultivate with the Holy Spirit a relationship of listening.*** We are given the gift of the Holy Ghost after our baptism, but often we leave this gift on the shelf, forgetting that He will help us in the most important judgments of our lives. The Lord gave us this gift, knowing we would face difficult decisions in life. Listening to this voice is vital in developing good judgment. A relationship of listening often requires a quiet environment in which we can take time to ponder and hear the still, small voice. This peaceful environment is both external and internal. Therefore, it is more than shutting off the music of the world or the blare of other media; it is also shutting off the noise of sin that is internal to our soul. This will open the communication with the Spirit, which is so badly needed.
 
 Christ said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”[^4] The peace that comes from listening to the Holy Spirit removes the fear of making a poor judgment in life.
 
-**Fourth, keep the commandments.** The willingness to keep God’s commandments opens to us many promised blessings. The Book of Mormon, in addition to being another testament of Jesus Christ, is a book about the results of keeping and not keeping commandments. The Lord said to Nephi in the second chapter of his first book, “Inasmuch as ye shall keep my commandments, ye shall prosper.”[^5]
+***Fourth, keep the commandments.*** The willingness to keep God’s commandments opens to us many promised blessings. The Book of Mormon, in addition to being another testament of Jesus Christ, is a book about the results of keeping and not keeping commandments. The Lord said to Nephi in the second chapter of his first book, “Inasmuch as ye shall keep my commandments, ye shall prosper.”[^5]
 
 This same promise was repeated by almost every major prophet in the Book of Mormon. A thousand years of history is then recorded which bears witness that these things are true. And the same message applies to us today. Good judgment is best learned and practiced within the bounds the Lord sets by giving us commandments.
 
@@ -59,7 +59,7 @@ I testify that when we face difficult decisions and follow these guidelines, we 
 
 
 
-[^1]: [[Matthew 7.1|Matthew 7:1]]. See also [[Matthew 7.note1a|Matthew 7:1, footnote a, from Joseph Smith Translation]], where the Savior commands us to “judge not unrighteously.”
+[^1]: [[Matthew 7.1|Matthew 7:1]]. See also [Matthew 7:1, footnote a, from Joseph Smith Translation](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7?lang=eng&id=note1a#note1a), where the Savior commands us to “judge not unrighteously.”
 
 [^2]: [[Luke 10.40|Luke 10:40–42]][[Luke 10.41|]][[Luke 10.42|]].
 
@@ -67,8 +67,6 @@ I testify that when we face difficult decisions and follow these guidelines, we 
 
 [^4]: [[John 14.27|John 14:27]].
 
-[^5]: [[1 Nephi 2.20|1 Nephi 2:20]].
+[^5]: [[1 Nephi 2.20|1 Nephi 2:20]].
 
-
-
-#Holy_Ghost #Judging #Obedience
+#HolyGhost #Judging #Obedience

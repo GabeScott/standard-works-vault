@@ -1,6 +1,6 @@
 # The Voice of Warning
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -8,7 +8,7 @@ By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/the-voice-of-warning?lang=eng)
 
-The prophet Ezekiel was born about two decades before Lehi and his family left Jerusalem. In 597 BC, at age 25, Ezekiel was one of the many carried captive to Babylon by Nebuchadnezzar, and as best we can tell, he spent the rest of his life there.[^1] He was of the Aaronic priestly lineage, and when he was 30, he became a prophet.[^2]
+The prophet Ezekiel was born about two decades before Lehi and his family left Jerusalem. In 597 BC, at age 25, Ezekiel was one of the many carried captive to Babylon by Nebuchadnezzar, and as best we can tell, he spent the rest of his life there.[^1] He was of the Aaronic priestly lineage, and when he was 30, he became a prophet.[^2]
 
 In commissioning Ezekiel, Jehovah used the metaphor of a watchman.
 
@@ -24,7 +24,7 @@ Then speaking directly to Ezekiel, Jehovah declared, “So thou, O son of man, I
 
 “Nevertheless, if thou warn the wicked of his way to turn from it; if he do not turn from his way, he shall die in his iniquity; but thou hast delivered thy soul. …
 
-“Again, when I say unto the wicked, Thou shalt surely die; if he turn from his sin, and do that which is lawful and right; …
+“Again, when I say unto the wicked, Thou shalt surely die; if he turn from his sin, and do that which is lawful and right; …
 
 “None of his sins that he hath committed shall be mentioned unto him: he hath done that which is lawful and right; he shall surely live.”[^6]
 
@@ -36,7 +36,7 @@ Far from being anxious to condemn, our Heavenly Father and our Savior seek our h
 
 While the duty to warn is felt especially keenly by prophets, it is a duty shared by others as well. In fact, “it becometh every man who hath been warned to warn his neighbor.”[^11] We who have received a knowledge of the great plan of happiness—and its implementing commandments—should feel a desire to share that knowledge since it makes all the difference here and in eternity. And if we ask, “Who is my neighbor that I should warn?” surely the answer will be found in a parable that begins, “A certain man went down from Jerusalem to Jericho, and fell among thieves,”[^12] and so forth.
 
-Considering the parable of the good Samaritan in this context reminds us that the question “Who is my neighbor?” was tied to the two great commandments: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy strength, and with all thy mind; and thy neighbour as thyself.”[^13] The motivation for raising the warning voice is love—love of God and love of fellowman. To warn is to care. The Lord instructs that it is to be done “in mildness and in meekness”[^14] and “by persuasion, by long-suffering, by gentleness … , and by love unfeigned.”[^15] It can be urgent, as when we warn a child not to put his or her hand in a fire. It must be clear and sometimes firm. On occasion, warning may take the form of reproof “when moved upon by the Holy Ghost,”[^16] but always it is rooted in love. Witness, for example, the love that motivates the service and sacrifices of our missionaries.
+Considering the parable of the good Samaritan in this context reminds us that the question “Who is my neighbor?” was tied to the two great commandments: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy strength, and with all thy mind; and thy neighbour as thyself.”[^13] The motivation for raising the warning voice is love—love of God and love of fellowman. To warn is to care. The Lord instructs that it is to be done “in mildness and in meekness”[^14] and “by persuasion, by long-suffering, by gentleness … , and by love unfeigned.”[^15] It can be urgent, as when we warn a child not to put his or her hand in a fire. It must be clear and sometimes firm. On occasion, warning may take the form of reproof “when moved upon by the Holy Ghost,”[^16] but always it is rooted in love. Witness, for example, the love that motivates the service and sacrifices of our missionaries.
 
 Surely love would compel parents to warn their closest “neighbors”—their own children. This means teaching and testifying of gospel truths. It means teaching children the doctrine of Christ: faith, repentance, baptism, and the gift of the Holy Ghost.[^17] The Lord reminds parents, “I have commanded you to bring up your children in light and truth.”[^18]
 
@@ -109,7 +109,7 @@ May we each be able to say to the Lord with David: “I have not hid thy righteo
 
 [^9]: [[Alma 41.10|Alma 41:10]].
 
-[^10]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^10]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^11]: [[D&C 88.81|Doctrine and Covenants 88:81]].
 
@@ -127,7 +127,7 @@ May we each be able to say to the Lord with David: “I have not hid thy righteo
 
 [^18]: [[D&C 93.40|Doctrine and Covenants 93:40]].
 
-[^19]: [[Enos 1.3|Enos 1:3–4]][[Enos 1.4|]]; emphasis added. As President Russell M. Nelson expressed it in general conference six months ago: “My dear brothers and sisters, the joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives. … Joy comes from and because of \[Jesus Christ\]. He is the source of all joy” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82).
+[^19]: [[Enos 1.3|Enos 1:3–4]][[Enos 1.4|]]; emphasis added. As President Russell M. Nelson expressed it in general conference six months ago: “My dear brothers and sisters, the joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives. … Joy comes from and because of \[Jesus Christ\]. He is the source of all joy” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82).
 
 [^20]: [[Matthew 4.17|Matthew 4:17]].
 
@@ -139,7 +139,7 @@ May we each be able to say to the Lord with David: “I have not hid thy righteo
 
 [^24]: Chris Stefanick, *Absolute Relativism: The New Dictatorship and What to Do about It* (2011), 33.
 
-[^25]: David Brooks, “The Shame Culture,” *New York Times,* Mar. 15, 2016, A29.
+[^25]: David Brooks, “The Shame Culture,” *New York Times,* Mar. 15, 2016, A29.
 
 [^26]: [[Helaman 5.12|Helaman 5:12]].
 
@@ -147,19 +147,20 @@ May we each be able to say to the Lord with David: “I have not hid thy righteo
 
 [^28]: [[D&C 1.4|Doctrine and Covenants 1:4]]; see also [[D&C 1.5|Doctrine and Covenants 1:5]].
 
-[^29]: [[1 Corinthians 12.31|1 Corinthians 12:31]].
+[^29]: [[1 Corinthians 12.31|1 Corinthians 12:31]].
 
 [^30]: [[Ezekiel 33.6|Ezekiel 33:6]].
 
 [^31]: [[Psalms 66.1|Psalm 66:1]]; [[Psalms 98.4|98:4]].
 
-[^32]: Hal Boyd, “Hey Progressive Elites! It’s Time to Preach What You Practice,” *Deseret News,* Oct. 20, 2016, deseretnews.com. He is also quoting University of Virginia sociologist W. Bradford Wilcox.
+[^32]: Hal Boyd, “Hey Progressive Elites! It’s Time to Preach What You Practice,” *Deseret News,* Oct. 20, 2016, deseretnews.com. He is also quoting University of Virginia sociologist W. Bradford Wilcox.
 
 [^33]: [[Matthew 5.11|Matthew 5:11–12]][[Matthew 5.12|]].
 
-[^34]: [[3 Nephi 27.14|3 Nephi 27:14]].
+[^34]: [[3 Nephi 27.14|3 Nephi 27:14]].
 
 [^35]: [[Alma 13.27|Alma 13:27–29]][[Alma 13.28|]][[Alma 13.29|]].
 
+[^36]: [[Psalms 40.10|Psalm 40:10–11]][[Psalms 40.11|]].
 
-#Accountability #Jesus_Christ #Love #Parenthood #Prophets #Standards
+#Accountability #JesusChrist #Love #Parenthood #Prophets #Standards

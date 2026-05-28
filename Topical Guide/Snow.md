@@ -1,7 +1,6 @@
 # Snow
 
-
-slew a lion ... in time of *snow*, [[2 Samuel 23.20|2 Samuel 23:20]].
+slew a lion … in time of *snow*, [[2 Samuel 23.20|2 Samuel 23:20]].
 
 wash me, and I shall be whiter than *snow*, [[Psalms 51.7|Psalms 51:7]].
 
@@ -13,7 +12,7 @@ sins be as scarlet, they shall be as white as *snow*, [[Isaiah 1.18|Isaiah 1:18]
 
 his raiment white as *snow*, [[Matthew 28.3|Matthew 28:3]] ([[Mark 9.3|Mark 9:3]]).
 
-a tree ... the whiteness thereof did exceed the whiteness of the driven *snow*, [[1 Nephi 11.8|1 Nephi 11:8]].
+a tree … the whiteness thereof did exceed the whiteness of the driven *snow*, [[1 Nephi 11.8|1 Nephi 11:8]].
 
 hair of his head was white like the pure *snow*, [[D&C 110.3|D&C 110:3]].
 

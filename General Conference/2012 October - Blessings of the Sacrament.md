@@ -1,6 +1,6 @@
 # Blessings of the Sacrament
 
-By Elder Don R. Clarke - *Of the Seventy*
+By Elder Don R. Clarke - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -22,7 +22,7 @@ In the New Testament we read of the time that the Savior and His Apostles met in
 
 Jesus also instituted the ordinance of the sacrament during His visit to the Nephites.[^2] I have come to know the importance of these two events.
 
-President David O. McKay said, “I feel impressed to emphasize what the Lord has designated as the most important meeting in the Church, and that is the sacrament meeting.”[^3] If we properly prepare for the sacrament, we can transform our lives. I would like to suggest five principles that can bless our lives as we partake of the sacrament worthily.
+President David O. McKay said, “I feel impressed to emphasize what the Lord has designated as the most important meeting in the Church, and that is the sacrament meeting.”[^3] If we properly prepare for the sacrament, we can transform our lives. I would like to suggest five principles that can bless our lives as we partake of the sacrament worthily.
 
 ## I. Have a Feeling of Gratitude for the Atonement of Jesus Christ
 
@@ -38,7 +38,7 @@ Brother Schmidt had communicated with heaven, and heaven had communicated with h
 
 The second principle is to remember that we are renewing our baptismal covenants as we partake of the sacrament. Some of the promises that we make, as recorded in the scriptures, include:
 
-“Come into the fold of God, and to be called his people, … to bear one another’s burdens, … to mourn with those that mourn … , and to stand as witnesses of God.”[^5]
+“Come into the fold of God, and to be called his people, … to bear one another’s burdens, … to mourn with those that mourn … , and to stand as witnesses of God.”[^5]
 
 “Come forth with broken hearts and contrite spirits, … willing to take upon them the name of Jesus Christ, having a determination to serve him to the end,”[^6] and to keep His commandments and always remember Him.[^7]
 
@@ -46,11 +46,11 @@ The sacramental prayers are a reminder of these covenants. When we partake of th
 
 ## III. During the Sacrament We Can Feel Forgiven of Our Sins
 
-Thirdly, during the sacrament we can feel forgiven of our sins. If we have spent time before sacrament meeting repenting of our sins, we can leave sacrament meeting feeling clean and pure. President Boyd K. Packer said: “The sacrament renews the process of forgiveness. Every Sunday when the sacrament is served, that is a ceremony to renew the process of forgiveness. … Every Sunday you cleanse yourself so that, in due time, when you die your spirit will be clean.”[^8] Partaking of the sacrament worthily can help us feel like the people of King Benjamin, who “were *filled with joy,* having received a *remission of their sins, and having peace of conscience.*”[^9]
+Thirdly, during the sacrament we can feel forgiven of our sins. If we have spent time before sacrament meeting repenting of our sins, we can leave sacrament meeting feeling clean and pure. President Boyd K. Packer said: “The sacrament renews the process of forgiveness. Every Sunday when the sacrament is served, that is a ceremony to renew the process of forgiveness. … Every Sunday you cleanse yourself so that, in due time, when you die your spirit will be clean.”[^8] Partaking of the sacrament worthily can help us feel like the people of King Benjamin, who “were *filled with joy,* having received a *remission of their sins, and having peace of conscience.*”[^9]
 
 ## IV. We Can Receive Inspiration for Solutions to Our Problems
 
-The fourth principle is that we can receive inspiration for solutions to our problems during sacrament meeting. When I was a mission president in Bolivia, my wife, Mary Anne, and I had the blessing of attending a mission presidents’ seminar with President Henry B. Eyring. In that meeting he taught that there are three important ways to prepare to benefit from a meeting. We should come with our problems, humble as children ready to learn, and with the desire to help God’s children.
+The fourth principle is that we can receive inspiration for solutions to our problems during sacrament meeting. When I was a mission president in Bolivia, my wife, Mary Anne, and I had the blessing of attending a mission presidents’ seminar with President Henry B. Eyring. In that meeting he taught that there are three important ways to prepare to benefit from a meeting. We should come with our problems, humble as children ready to learn, and with the desire to help God’s children.
 
 As we humbly come to sacrament meeting, we can be blessed to feel impressions for solutions to our daily problems. We must come prepared, be willing to listen, and not be distracted. In the scriptures we read, “But, behold, I say unto you, that you must *study it out* in your mind; then you must *ask me if it be right,* and if it is right I will cause that your *bosom shall burn* within you; therefore, *you shall feel that it is right.*”[^10] We can know what we should do to solve our problems.
 
@@ -58,7 +58,7 @@ As we humbly come to sacrament meeting, we can be blessed to feel impressions fo
 
 The fifth principle, partaking of the sacrament worthily, will help us be filled with the Holy Ghost. Upon instituting the sacrament during His visit to the Nephites, Jesus stated, “He that eateth this bread eateth of my body to his soul; and he that drinketh of this wine drinketh of my blood to his soul; and his soul shall never hunger nor thirst, but shall be filled.”[^11] They had been promised that if they hungered and thirsted after righteousness, they would be filled with the Holy Ghost. The sacramental prayer also promises that if we live up to our covenants, we will always have His Spirit to be with us.[^12]
 
-Elder Melvin J. Ballard said: “I am a witness that there is a spirit attending the administration of the sacrament that warms the soul from head to foot; you feel the wounds of the spirit being healed, and the load being lifted. Comfort and happiness come to the soul that is worthy and truly desirous of partaking of this spiritual food.”[^13]
+Elder Melvin J. Ballard said: “I am a witness that there is a spirit attending the administration of the sacrament that warms the soul from head to foot; you feel the wounds of the spirit being healed, and the load being lifted. Comfort and happiness come to the soul that is worthy and truly desirous of partaking of this spiritual food.”[^13]
 
 We will be blessed as we feel gratitude for the Atonement of Jesus Christ, renew our baptismal covenants, feel forgiveness, and receive inspiration from the Holy Ghost as we partake of the sacrament each week. It will always be a great sacrament meeting if the sacrament is the center of our worship. I express my gratitude for the Atonement of Jesus Christ. I know He lives. In the name of Jesus Christ, amen.
 
@@ -67,9 +67,9 @@ We will be blessed as we feel gratitude for the Atonement of Jesus Christ, renew
 
 [^1]: [[Luke 22.19|Luke 22:19–20]][[Luke 22.20|]]; emphasis added.
 
-[^2]: See [[3 Nephi 18.1|3 Nephi 18]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]][[3 Nephi 18.15|]][[3 Nephi 18.16|]][[3 Nephi 18.17|]][[3 Nephi 18.18|]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]][[3 Nephi 18.22|]][[3 Nephi 18.23|]][[3 Nephi 18.24|]][[3 Nephi 18.25|]][[3 Nephi 18.26|]][[3 Nephi 18.27|]][[3 Nephi 18.28|]][[3 Nephi 18.29|]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]][[3 Nephi 18.33|]][[3 Nephi 18.34|]][[3 Nephi 18.35|]][[3 Nephi 18.36|]][[3 Nephi 18.37|]][[3 Nephi 18.38|]][[3 Nephi 18.39|]].
+[^2]: See [[3 Nephi 18.1|3 Nephi 18]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]][[3 Nephi 18.15|]][[3 Nephi 18.16|]][[3 Nephi 18.17|]][[3 Nephi 18.18|]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]][[3 Nephi 18.22|]][[3 Nephi 18.23|]][[3 Nephi 18.24|]][[3 Nephi 18.25|]][[3 Nephi 18.26|]][[3 Nephi 18.27|]][[3 Nephi 18.28|]][[3 Nephi 18.29|]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]][[3 Nephi 18.33|]][[3 Nephi 18.34|]][[3 Nephi 18.35|]][[3 Nephi 18.36|]][[3 Nephi 18.37|]][[3 Nephi 18.38|]][[3 Nephi 18.39|]].
 
-[^3]: David O. McKay, in Conference Report, Oct. 1929, 11.
+[^3]: David O. McKay, in Conference Report, Oct. 1929, 11.
 
 [^4]: *Book of Mormon Student Manual* (Church Educational System manual, 1979), 417.
 
@@ -79,18 +79,16 @@ We will be blessed as we feel gratitude for the Atonement of Jesus Christ, renew
 
 [^7]: See [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^8]: Boyd K. Packer, *Mine Errand from the Lord* (2008), 196.
+[^8]: Boyd K. Packer, *Mine Errand from the Lord* (2008), 196.
 
 [^9]: [[Mosiah 4.3|Mosiah 4:3]]; emphasis added.
 
 [^10]: [[D&C 9.8|Doctrine and Covenants 9:8]]; emphasis added.
 
-[^11]: [[3 Nephi 20.8|3 Nephi 20:8]].
+[^11]: [[3 Nephi 20.8|3 Nephi 20:8]].
 
 [^12]: See [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^13]: Melvin J. Ballard, in Bryant S. Hinckley, *Sermons and Missionary Services of Melvin Joseph Ballard* (1949), 149.
-
-
+[^13]: Melvin J. Ballard, in Bryant S. Hinckley, *Sermons and Missionary Services of Melvin Joseph Ballard* (1949), 149.
 
 #Atonement #Sacrament

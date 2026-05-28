@@ -1,7 +1,6 @@
 # Bold
 
-
-*See also* [[Courage, Courageous.md|Courage]]
+*See also* [[Courage.md|Courage]]
 
 righteous are *bold* as a lion, [[Proverbs 28.1|Proverbs 28:1]].
 

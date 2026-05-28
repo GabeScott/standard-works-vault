@@ -1,6 +1,6 @@
 # Birth
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -84,6 +84,4 @@ And that is the purpose of our lives, that by keeping His commandments the offsp
 
 
 
-
-
-#Plan_Of_Salvation
+#PlanOfSalvation

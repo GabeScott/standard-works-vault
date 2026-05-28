@@ -46,7 +46,7 @@ This is how Joseph Smith’s First Vision blesses our own personal lives, the li
 
 And there were many other ancient prophets who also bore powerful testimony of Christ. All of these manifestations, ancient and modern, lead those who believe to the divine source of all righteousness and hope—to God, our Heavenly Father, and to His Son, Jesus Christ.
 
-God has spoken to Joseph Smith for the purpose of blessing all of God’s children with His mercy and love, even in times of uncertainties and insecurities, of wars and rumors of wars, of natural and personal disasters. The Savior said, “Behold, mine arm of mercy is extended towards you, and whosoever will come, him will I receive” ([[3 Nephi 9.14|3 Nephi 9:14]]). And all who accept this invitation will be “encircled about with the matchless bounty of his love” ([[Alma 26.15|Alma 26:15]]).
+God has spoken to Joseph Smith for the purpose of blessing all of God’s children with His mercy and love, even in times of uncertainties and insecurities, of wars and rumors of wars, of natural and personal disasters. The Savior said, “Behold, mine arm of mercy is extended towards you, and whosoever will come, him will I receive” ([[3 Nephi 9.14|3 Nephi 9:14]]). And all who accept this invitation will be “encircled about with the matchless bounty of his love” ([[Alma 26.15|Alma 26:15]]).
 
 Through our faith in the personal witness of the Prophet Joseph and the reality of the First Vision, through study and prayer, deep and sincere, we will be blessed with a firm faith in the Savior of the world, who spoke to Joseph “on the morning of a beautiful, clear day, early in the spring of eighteen hundred and twenty” ([[Joseph Smith History 1.14|Joseph Smith—History 1:14]]).
 
@@ -65,6 +65,4 @@ I so testify in the name of Jesus Christ, amen.
 
 
 
-
-
-#Church_History #Holy_Ghost #Joseph_Smith #Testimony
+#ChurchHistory #HolyGhost #JosephSmith #Testimony

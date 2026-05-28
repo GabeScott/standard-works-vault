@@ -1,6 +1,6 @@
 # The Second Great Commandment
 
-By President Russell M. Nelson
+By President Russell M. Nelson
 
 *Given in the October session of the 2019 General Conference*
 
@@ -12,13 +12,13 @@ My dear brothers and sisters, thank you for all you are doing to help gather Isr
 
 During the last six months, Sister Nelson and I have met thousands of Saints as we have traveled to Central and South America, the islands of the Pacific, and various cities in the United States. As we travel, our hope is to build *your* faith. Yet we always return having had *our* faith strengthened by the members and friends we meet. May I share three meaningful moments from our recent experiences?
 
-In May, Sister Nelson and I traveled with Elder Gerrit W. and Sister Susan Gong to the South Pacific. While in Auckland, New Zealand, we had the honor of meeting with imams from two mosques in Christchurch, New Zealand, where just two months earlier, innocent worshippers had been gunned down in an act of horrible violence.
+In May, Sister Nelson and I traveled with Elder Gerrit W. and Sister Susan Gong to the South Pacific. While in Auckland, New Zealand, we had the honor of meeting with imams from two mosques in Christchurch, New Zealand, where just two months earlier, innocent worshippers had been gunned down in an act of horrible violence.
 
 We extended our sympathy to these brothers of another faith and reaffirmed our mutual commitment to religious freedom.
 
 We also offered volunteer labor and modest financial assistance to rebuild their mosques. Our meeting with these Muslim leaders was filled with tender expressions of brotherhood.
 
-In August, along with Elder Quentin L. and Sister Mary Cook, Sister Nelson and I met individuals in Buenos Aires, Argentina—most of them not of our faith—whose lives have been changed by wheelchairs provided to them through our Latter-day Saint Charities. We were inspired as they expressed joy-filled gratitude for their newfound mobility.
+In August, along with Elder Quentin L. and Sister Mary Cook, Sister Nelson and I met individuals in Buenos Aires, Argentina—most of them not of our faith—whose lives have been changed by wheelchairs provided to them through our Latter-day Saint Charities. We were inspired as they expressed joy-filled gratitude for their newfound mobility.
 
 A third precious moment occurred just a few weeks ago here in Salt Lake City. It came from a unique letter I received on my birthday from a young woman I will call Mary—age 14.
 
@@ -34,7 +34,7 @@ It would be impossible to calculate the amount of service that Latter-day Saints
 
 The Church’s humanitarian outreach was launched in 1984. Then a Churchwide fast was held to raise funds to assist those afflicted by a devastating drought in eastern Africa. Church members donated $6.4 million on that *single* fast day.
 
-Then-Elder M. Russell Ballard and Brother Glenn L. Pace were dispatched to Ethiopia to assess how those consecrated funds could best be used. This effort proved to be the beginning of what would later be known as Latter-day Saint Charities.
+Then-Elder M. Russell Ballard and Brother Glenn L. Pace were dispatched to Ethiopia to assess how those consecrated funds could best be used. This effort proved to be the beginning of what would later be known as Latter-day Saint Charities.
 
 Since that time, Latter-day Saint Charities has provided more than *two billion* dollars in aid to assist those in need throughout the world. This assistance is offered to recipients regardless of their church affiliation, nationality, race, sexual orientation, gender, or political persuasion.
 
@@ -50,9 +50,9 @@ We also strive to live the teachings of the Lord Jesus Christ as recorded in [[M
 
 “For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in:
 
-“Naked, and ye clothed me: I was sick, and ye visited me. …
+“Naked, and ye clothed me: I was sick, and ye visited me. …
 
-“… Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.”[^7]
+“… Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.”[^7]
 
 Let me cite just a few examples of how the Church follows these teachings of the Savior.
 
@@ -113,12 +113,10 @@ I know that God lives. Jesus is the Christ. His Church has been restored in thes
 
 [^8]: See Food and Agriculture Organization of the United Nations and others, *The State of Food Security and Nutrition in the World 2019,* 6, fao.org/3/ca5162en/ca5162en.pdf.
 
-[^9]: See “Worldwide Displacement Tops 70 Million, UN Refugee Chief Urges Greater Solidarity in Response,” United Nations High Commissioner for Refugees website, June 19, 2019, unhcr.org/en-us.
+[^9]: See “Worldwide Displacement Tops 70 Million, UN Refugee Chief Urges Greater Solidarity in Response,” United Nations High Commissioner for Refugees website, June 19, 2019, unhcr.org/en-us.
 
-[^10]: For additional information on the Church’s charitable efforts, please see [ChurchofJesusChrist.org/topics/welfare](https://www.churchofjesuschrist.org/topics/welfare); [LatterDaySaintCharities.org](https://www.LatterDaySaintCharities.org); [facebook.com/LatterDaySaintCharities](http://www.facebook.com/LatterDaySaintCharities); [JustServe.org](https://www.JustServe.org).
+[^10]: For additional information on the Church’s charitable efforts, please see [ChurchofJesusChrist.org/topics/welfare](https://www.churchofjesuschrist.org/topics/welfare); [LatterDaySaintCharities.org](https://www.LatterDaySaintCharities.org); [facebook.com/LatterDaySaintCharities](https://www.facebook.com/LatterDaySaintCharities); [JustServe.org](https://www.JustServe.org).
 
-[^11]: “The most effective tract we will carry will be the goodness of our own lives and example” (Gordon B. Hinckley, “[[1999 April - Find the Lambs, Feed the Sheep.md|Find the Lambs, Feed the Sheep]],” *Ensign,* May 1999, 107; *Liahona,* July 1999, 121).
+[^11]: “The most effective tract we will carry will be the goodness of our own lives and example” (Gordon B. Hinckley, “[[1999 April - Find the Lambs, Feed the Sheep.md|Find the Lambs, Feed the Sheep]],” *Ensign,* May 1999, 107; *Liahona,* July 1999, 121).
 
-
-
-#Humanitarian_Aid #Love #Service
+#HumanitarianAid #Love #Service

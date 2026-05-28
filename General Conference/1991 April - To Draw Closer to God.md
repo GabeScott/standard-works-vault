@@ -12,11 +12,11 @@ I told her that I admired her devotion to her father. She said, quietly, that sh
 
 She needed to hear the words you have heard spoken here: Jesus Christ, the fall of Adam, the Atonement, the Resurrection, repentance, eternal life, and the pure love of God. But I realized those words would not touch her. I remembered and understood the power of what Elder Spencer W. Kimball wrote in the beginning of his book *The Miracle of Forgiveness.* You may recall this warning:
 
-“This book presupposes a belief in God and in life’s high purpose. Without God, repentance would have little meaning, and forgiveness would be both unnecessary and unreal. If there were no God, life would indeed be meaningless; … we might find justification in an urge to live only for today, to ‘eat, drink and be merry,’ to dissipate, to satisfy every worldly desire. If there were no God there would be no redemption, no resurrection, no eternities to anticipate, and consequently no hope” (*The Miracle of Forgiveness* \[Salt Lake City: Bookcraft, 1969\], pp. 3–4).
+“This book presupposes a belief in God and in life’s high purpose. Without God, repentance would have little meaning, and forgiveness would be both unnecessary and unreal. If there were no God, life would indeed be meaningless; … we might find justification in an urge to live only for today, to ‘eat, drink and be merry,’ to dissipate, to satisfy every worldly desire. If there were no God there would be no redemption, no resurrection, no eternities to anticipate, and consequently no hope” (*The Miracle of Forgiveness* \[Salt Lake City: Bookcraft, 1969\], pp. 3–4).
 
 President Kimball’s words made me think not how different that woman was from me, but how much we were alike. God is our ancestor, not distant but close. He is the Father of our spirits; we are his children. But like that woman, we all at times feel far removed from him. Like her, if we are to have the words of the gospel of Jesus Christ touch us, then we must believe in God. We must want to be with him. And we must sense our need to be purified to be with him again.
 
-The day will come when we will see him again. President Benson described it this way: “Nothing is going to startle us more when we pass through the veil to the other side than to realize how well we know our Father and how familiar his face is to us” (“Jesus Christ—Gifts and Expectations,” in *Speeches of the Year, 1974* \[Provo: Brigham Young University Press, 1975\], p. 313).
+The day will come when we will see him again. President Benson described it this way: “Nothing is going to startle us more when we pass through the veil to the other side than to realize how well we know our Father and how familiar his face is to us” (“Jesus Christ—Gifts and Expectations,” in *Speeches of the Year, 1974* \[Provo: Brigham Young University Press, 1975\], p. 313).
 
 While what President Benson said will be true in the future, we need to feel now that God knows us and loves us as individuals. There are times you have felt the closeness of God, your Father, and that you are his child. Those times can come more often. There is a simple way to think about it.
 
@@ -42,7 +42,7 @@ In that scripture, and in others, it is clear how often we should speak to God: 
 
 “Verily, verily, I say unto you, ye must watch and pray always, lest ye be tempted by the devil, and ye be led away captive by him.
 
-“And as I have prayed among you even so shall ye pray in my church, among my people who do repent and are baptized in my name. Behold I am the light; I have set an example for you” ([[3 Nephi 18.14|3 Ne. 18:14–16]][[3 Nephi 18.15|]][[3 Nephi 18.16|]]).
+“And as I have prayed among you even so shall ye pray in my church, among my people who do repent and are baptized in my name. Behold I am the light; I have set an example for you” ([[3 Nephi 18.14|3 Ne. 18:14–16]][[3 Nephi 18.15|]][[3 Nephi 18.16|]]).
 
 Now, you and I need to listen with great care. When you heard the scripture I just recited, you heard the words of Christ. I testify that is true. Jesus Christ speaks the words of the Father. You can read the scriptures, listen, and then hear God’s answers to you.
 
@@ -87,6 +87,4 @@ I pray that we will. In the name of Jesus Christ, amen.
 
 
 
-
-
-#Holy_Ghost #Obedience #Prayer #Prophets #Scripture_Study #Spirituality
+#HolyGhost #Obedience #Prayer #Prophets #ScriptureStudy #Spirituality

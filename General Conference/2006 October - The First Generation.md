@@ -37,12 +37,10 @@ Their legacy can be yours as fellow members of the first generation. Be faithful
 
 [^1]: See [[Articles of Faith 1.4|Articles of Faith 1:4]]; [[D&C 20.37|D&C 20:37]].
 
-[^2]: See [[1 Peter 2.9|1 Peter 2:9]].
+[^2]: See [[1 Peter 2.9|1 Peter 2:9]].
 
 [^3]: According to the Church’s Member and Statistical Records Division, first-generation members made up 64 percent of total Church membership as of July 2006.
 
 [^4]: *History of Heinrich Friedrich Christian Pieper and Emma Frieda Alber and Their Family* (1987), 29.
-
-
 
 #Example #Obedience #Ordinances

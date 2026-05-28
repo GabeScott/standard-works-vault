@@ -4,6 +4,3 @@
 
 [JST Matthew 18:11](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/18?lang=eng)
 
-
-
-

@@ -68,7 +68,15 @@ In rendering service to others, which way do we face? From the right or the left
 
 If we are called to positions of leadership, we are accountable to the Savior for the acts we perform in that office. Those actions are shaped by attitudes, and attitudes are elevated while lowering our heads in humble prayer. So state words in the hymn “Before Thee, Lord, I Bow My Head”:
 
-Look up, my soul; be not cast down.Keep not thine eyes upon the ground.Break off the shackles of the earth.Receive, my soul, the spirit’s birth.And now as I go forth againTo mingle with my fellowmen,Stay thou nearby, my steps to guide,That I may in thy love abide.[^27]
+>Look up, my soul; be not cast down.
+>Keep not thine eyes upon the ground.
+>Break off the shackles of the earth.
+>Receive, my soul, the spirit’s birth.
+>And now as I go forth again
+>To mingle with my fellowmen,
+>Stay thou nearby, my steps to guide,
+>That I may in thy love abide.[^27]
+>
 
 Praying helps us to face trials in life. Prayer centers our attitudes precisely. With that focus, we do not wander to the right or left through land mined with traps of temptation. Disciples do not flirt with danger at the jagged edge of disaster. Experienced mountain climbers do not lean toward the dangerous edge but toward safety, with ropes and other safeguards to secure them to those they trust. So it is with us. When we climb mountainous challenges of life, we should lean toward our Master and be yoked with him, clinging tightly to the iron rod of the gospel, to family, and to trusted friends.
 
@@ -89,11 +97,11 @@ Brothers and sisters, race, nationality, occupation, or other interests need not
 
 [^3]: See [[Ephesians 2.19|Eph. 2:19]].
 
-[^4]: [[Matthew 6.note33a|JST, Matt. 6:38]].
+[^4]: [JST, Matt. 6:38](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a).
 
 [^5]: See [[Joel 3.14|Joel 3:14]].
 
-[^6]: [[Articles of Faith 1.5|A of F 1:5]].
+[^6]: [[Articles of Faith 1.5|A of F 1:5]].
 
 [^7]: [[D&C 107.25|D&C 107:25]].
 
@@ -101,11 +109,11 @@ Brothers and sisters, race, nationality, occupation, or other interests need not
 
 [^9]: Among the many, see [[Exodus 20.8|Ex. 20:8]]; [[Exodus 31.15|31:15]]; [[Exodus 35.2|35:2]]; [[Leviticus 23.3|Lev. 23:3]]; [[Jarom 1.5|Jarom 1:5]]; [[Mosiah 13.16|Mosiah 13:16]]; [[Mosiah 18.23|18:23]]; [[D&C 68.29|D&C 68:29]].
 
-[^10]: See [[1 Kings 18.21|1 Kgs. 18:21]].
+[^10]: See [[1 Kings 18.21|1 Kgs. 18:21]].
 
 [^11]: [[Isaiah 58.13|Isa. 58:13–14]][[Isaiah 58.14|]].
 
-[^12]: Some of the many are [[Exodus 20.14|Ex. 20:14]]; [[Leviticus 18.22|Lev. 18:22]]; [[Matthew 5.28|Matt. 5:28]]; [[1 Corinthians 6.9|1 Cor. 6:9]]; [[3 Nephi 12.28|3 Ne. 12:28]]; [[D&C 42.24|D&C 42:24]]; [[D&C 59.6|59:6]].
+[^12]: Some of the many are [[Exodus 20.14|Ex. 20:14]]; [[Leviticus 18.22|Lev. 18:22]]; [[Matthew 5.28|Matt. 5:28]]; [[1 Corinthians 6.9|1 Cor. 6:9]]; [[3 Nephi 12.28|3 Ne. 12:28]]; [[D&C 42.24|D&C 42:24]]; [[D&C 59.6|59:6]].
 
 [^13]: Report of the Ramsey Colloquium, *Wall Street Journal,* 24 Feb. 1994, A-18.
 
@@ -147,6 +155,4 @@ Brothers and sisters, race, nationality, occupation, or other interests need not
 
 [^32]: [[D&C 93.1|D&C 93:1]].
 
-
-
-#Agency #Church_Callings #Commandments #Covenants #Faith #Family #Honesty #Jesus_Christ #Kingdom_Of_God #Morality #Neighbors #Prayer #Priorities #Service #Truth
+#Agency #ChurchCallings #Commandments #Covenants #Faith #Family #Honesty #JesusChrist #KingdomOfGod #Morality #Neighbors #Prayer #Priorities #Service #Truth

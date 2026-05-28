@@ -1,16 +1,16 @@
 # Pondering Strengthens the Spiritual Life
 
-By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
+By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/04/pondering-strengthens-the-spiritual-life?lang=eng)
 
-In a revelation given to President Joseph F. Smith, which has recently been added to the Doctrine and Covenants as section 138, there is an important message for all of us.
+In a revelation given to President Joseph F. Smith, which has recently been added to the Doctrine and Covenants as section 138, there is an important message for all of us.
 
 “On the third of October,” writes President Smith, “in the year nineteen hundred and eighteen, I sat in my room pondering over the scriptures;
 
-“And reflecting upon the great atoning sacrifice that was made by the Son of God, for the redemption of the world. …
+“And reflecting upon the great atoning sacrifice that was made by the Son of God, for the redemption of the world. …
 
 “As I pondered over these things which are written, the eyes of my understanding were opened, and the Spirit of the Lord rested upon me.” ([[D&C 138.1|Verses 1–2, 11]][[D&C 138.2|]][[D&C 138.11|]].)
 
@@ -18,7 +18,7 @@ It is about pondering and what can be gained therefrom that I should like to add
 
 Pondering, which means to weigh mentally, to deliberate, to meditate, can achieve the opening of the spiritual eyes of one’s understanding. Also, the Spirit of the Lord may rest upon the ponderer as described by President Smith.
 
-And Jesus admonished the Nephites, “Therefore, go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand.” ([[3 Nephi 17.3|3 Ne. 17:3]].)
+And Jesus admonished the Nephites, “Therefore, go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand.” ([[3 Nephi 17.3|3 Ne. 17:3]].)
 
 We are constantly reminded through the scriptures that we should give the things of God much more than usual superficial consideration. We must ponder them and reach into the very essence of what we are and what we may become.
 
@@ -46,9 +46,9 @@ All evils to which so many become addicted begin in the mind and in the way one 
 
 In his widely acclaimed essay *As a Man Thinketh,* James Allen reinforced what Jesus so beautifully proclaimed. Mr. Allen wrote:
 
-“Man is made or unmade by himself; in the armoury of thought he forges the weapons by which he destroys himself; he also fashions the tools with which he builds for himself heavenly mansions of joy and strength and peace. By the right choice and true application of thought, man ascends to the Divine Perfection; by the abuse and wrong application of thought, he descends below the level of the beast. Between these two extremes are all the grades of character, and man is their maker and master. …
+“Man is made or unmade by himself; in the armoury of thought he forges the weapons by which he destroys himself; he also fashions the tools with which he builds for himself heavenly mansions of joy and strength and peace. By the right choice and true application of thought, man ascends to the Divine Perfection; by the abuse and wrong application of thought, he descends below the level of the beast. Between these two extremes are all the grades of character, and man is their maker and master. …
 
-“All that a man achieves and all that he fails to achieve is the direct result of his own thoughts.” (New York: Thomas Y. Crowell Co., n. d., pp. 8–9, 34.)
+“All that a man achieves and all that he fails to achieve is the direct result of his own thoughts.” (New York: Thomas Y. Crowell Co., n. d., pp. 8–9, 34.)
 
 The insidious process of transforming a person from goodness to evil is a subtle, usually undeliberate one. It is a process of pondering the wrong thoughts, of planting evil seeds in the heart. The word *seeds* is a graphic description of what begins the process and is so well described by Alma:
 
@@ -58,9 +58,9 @@ To soundly plant good seeds in your heart requires prolonged, intense, unremitti
 
 Nearly a hundred years ago Stanford University had a most distinguished president, David Starr Jordan. These thoughts from *The Strength of Being Clean* by President Jordan will, I believe, summarize my convictions on this critical subject:
 
-“Vulgarity \[now known as pornography\] is an expression of arrested development in matters of good taste or good character. … Vulgarity weakens the mind, and thus brings all other weakness in its train. … It is vulgar to like poor music, to read weak books, to feed on sensational newspapers \[or debasing TV\], … to find amusement in trashy novels, to enjoy vulgar theatres, to find pleasure in cheap jokes, to tolerate coarseness and looseness in any of its myriad forms. …
+“Vulgarity \[now known as pornography\] is an expression of arrested development in matters of good taste or good character. … Vulgarity weakens the mind, and thus brings all other weakness in its train. … It is vulgar to like poor music, to read weak books, to feed on sensational newspapers \[or debasing TV\], … to find amusement in trashy novels, to enjoy vulgar theatres, to find pleasure in cheap jokes, to tolerate coarseness and looseness in any of its myriad forms. …
 
-“… \[For\] the basis of intemperance is the effort to secure through \[thoughts first and then\] drugs the feeling of happiness when happiness does not exist. Men destroy their nervous system for the tingling pleasures they feel as its structures are torn apart.” (New York: H. M. Caldwell Co., 1900, pp. 24–25, 27.)
+“… \[For\] the basis of intemperance is the effort to secure through \[thoughts first and then\] drugs the feeling of happiness when happiness does not exist. Men destroy their nervous system for the tingling pleasures they feel as its structures are torn apart.” (New York: H. M. Caldwell Co., 1900, pp. 24–25, 27.)
 
 Parents should ponder over their family home evenings and their responsibility to teach the gospel to their family. All members should ponder over the instructions received in sacrament and priesthood meetings, in Relief Society, and in messages from home teachers. Priesthood bearers should ponder over their responsibility to honor their priesthood, to be examples of righteousness. Quorum leaders should ponder over their responsibilities to serve, teach, and strengthen their quorum members and to lead in love and kindness. Young people should ponder over problems that might confront them and be prepared to cope with them in a way that their parents, their leaders, and their Heavenly Father would have them cope that they might keep themselves clean and pure.
 
@@ -70,13 +70,11 @@ In striving to be the best by God’s standards, King Benjamin, a great Book of 
 
 Jesus counseled, “For where your treasure is, there will your heart be also.” ([[Matthew 6.21|Matt. 6:21]].)
 
-President Spencer W. Kimball is a model, a great example to us of a prophet, seer, and revelator who does ponder, and who prays, and who receives revelations for the kingdom.
+President Spencer W. Kimball is a model, a great example to us of a prophet, seer, and revelator who does ponder, and who prays, and who receives revelations for the kingdom.
 
 In our quest for pure hearts, may we ponder on righteous acts and thoughts, and may we be faithful and diligent.
 
 I bear earnest and sincere testimony to the mighty transforming power of these noble ideals in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,15 +1,14 @@
 # Reserve
 
-
-*See also* [[Keep, Kept.md|Keep]]
+*See also* [[Keep.md|Keep]]
 
 Hast thou not *reserved* a blessing for me, [[Genesis 27.36|Genesis 27:36]].
 
 wicked is *reserved* to the day of destruction, [[Job 21.30|Job 21:30]].
 
-inheritance ... *reserved* in heaven for you, [[1 Peter 1.4|1 Peter 1:4]].
+inheritance … *reserved* in heaven for you, [[1 Peter 1.4|1 Peter 1:4]].
 
-angels that sinned ... *reserved* unto judgment, [[2 Peter 2.4|2 Peter 2:4]].
+angels that sinned … *reserved* unto judgment, [[2 Peter 2.4|2 Peter 2:4]].
 
 to *reserve* the unjust unto the day of judgment, [[2 Peter 2.9|2 Peter 2:9]].
 

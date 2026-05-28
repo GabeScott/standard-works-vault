@@ -14,7 +14,7 @@ Nolan will likely be elected to the Baseball Hall of Fame the first year he is e
 
 A successful baseball pitcher is able to hurl the ball with velocity and accuracy. His pitches are disguised in order to deceive the batter. A pitcher, by changing his grip on the ball or the way he releases it from his hand, makes the ball curve, slide, drop, wobble, or slow down as it approaches the batter. In baseball, good pitchers, like Nolan Ryan, are masters at deceiving batters.
 
-In life, he who is the greatest deceiver of all has tremendous influence. He has many names but is best known as Satan, or the devil. And he knows that “ye are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]).
+In life, he who is the greatest deceiver of all has tremendous influence. He has many names but is best known as Satan, or the devil. And he knows that “ye are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 Make no mistake about it, my young brethren, Satan is the commander in chief of deception. He is not satisfied with just taking prisoners; he wants the souls of men. One of his insidious strategies is to progressively soften our senses regarding what is right and wrong. Satan would have us convinced it is fashionable to lie and cheat. He encourages us to view pornography by suggesting that it prepares us for the real world. He would have us believe immorality is an attractive way of life and that obedience to the commandments of our Father in Heaven is old-fashioned. Satan constantly bombards us with deceptive propaganda desirably packaged and carefully disguised. Satan creates false heroes who, if emulated, will lead us to the depths of sin.
 
@@ -57,6 +57,4 @@ I know that our Father in Heaven lives and that His Son is our Savior and Redeem
 
 
 
-
-
-#Example #Heroes #Holy_Ghost
+#Example #Heroes #HolyGhost

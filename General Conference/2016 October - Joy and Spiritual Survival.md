@@ -1,6 +1,6 @@
 # Joy and Spiritual Survival
 
-By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
+By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -22,7 +22,7 @@ Life is filled with detours and dead ends, trials and challenges of every kind. 
 
 Yes! The answer is a resounding yes! But how is that possible? And what must we do to claim the joy that Heavenly Father has in store for us?
 
-Eliza R. Snow, second General President of the Relief Society, offered a riveting answer. Because of Missouri’s infamous extermination order, issued at the onset of the grueling winter of 1838,[^7] she and other Saints were forced to flee the state that very winter. One evening, Eliza’s family spent the night in a small log cabin used by refugee Saints. Much of the chinking between the logs had been extracted and burned for firewood by those who preceded them, so there were holes between the logs large enough for a cat to crawl through. It was bitter cold, and their food was frozen solid.
+Eliza R. Snow, second General President of the Relief Society, offered a riveting answer. Because of Missouri’s infamous extermination order, issued at the onset of the grueling winter of 1838,[^7] she and other Saints were forced to flee the state that very winter. One evening, Eliza’s family spent the night in a small log cabin used by refugee Saints. Much of the chinking between the logs had been extracted and burned for firewood by those who preceded them, so there were holes between the logs large enough for a cat to crawl through. It was bitter cold, and their food was frozen solid.
 
 That night some 80 people huddled inside that small cabin, only 20 feet square (6.1 meters square). Most sat or stood all night trying to keep warm. Outside, a group of men spent the night gathered around a roaring fire, with some singing hymns and others roasting frozen potatoes. Eliza recorded: “Not a complaint was heard—all were cheerful, and judging from appearances, strangers would have taken us to be pleasure excursionists rather than a band of gubernatorial exiles.”
 
@@ -32,7 +32,7 @@ That’s it! Saints can be happy under every circumstance. We can feel joy even 
 
 My dear brothers and sisters, the joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.
 
-When the focus of our lives is on God’s plan of salvation, which President Thomas S. Monson just taught us, and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him. He is the source of all joy. We feel it at Christmastime when we sing, “Joy to the world, the Lord is come.”[^9] And we can feel it all year round. For Latter-day Saints, Jesus Christ is joy!
+When the focus of our lives is on God’s plan of salvation, which President Thomas S. Monson just taught us, and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him. He is the source of all joy. We feel it at Christmastime when we sing, “Joy to the world, the Lord is come.”[^9] And we can feel it all year round. For Latter-day Saints, Jesus Christ is joy!
 
 That is why our missionaries leave their homes to preach His gospel. Their goal is not to increase the number of Church members. Rather, our missionaries teach and baptize[^10] to bring joy to the people of the world![^11]
 
@@ -71,21 +71,21 @@ Heed these words of the Psalmist: “I have set the Lord always before me: becau
 
 
 
-[^1]: See [[2 Timothy 3.1|2 Timothy 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].
+[^1]: See [[2 Timothy 3.1|2 Timothy 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].
 
 [^2]: See [[D&C 45.26|Doctrine and Covenants 45:26]]; [[D&C 88.91|88:91]].
 
-[^3]: [[2 Timothy 3.2|2 Timothy 3:2–4]][[2 Timothy 3.3|]][[2 Timothy 3.4|]].
+[^3]: [[2 Timothy 3.2|2 Timothy 3:2–4]][[2 Timothy 3.3|]][[2 Timothy 3.4|]].
 
 [^4]: See [[D&C 10.5|Doctrine and Covenants 10:5]].
 
 [^5]: [[Ephesians 6.12|Ephesians 6:12]].
 
-[^6]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^6]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
-[^7]: Governor Lilburn W. Boggs of Missouri issued the order of Mormon extermination on October 27, 1838 (see *Teachings of Presidents of the Church: Joseph Smith* \[2007\], 349).
+[^7]: Governor Lilburn W. Boggs of Missouri issued the order of Mormon extermination on October 27, 1838 (see *Teachings of Presidents of the Church: Joseph Smith* \[2007\], 349).
 
-[^8]: See Eliza R. Snow, in Edward W. Tullidge, *The Women of Mormondom* (1877), 145–46.
+[^8]: See Eliza R. Snow, in Edward W. Tullidge, *The Women of Mormondom* (1877), 145–46.
 
 [^9]: “Joy to the World,” *Hymns,* no. 201.
 
@@ -97,7 +97,7 @@ Heed these words of the Psalmist: “I have set the Lord always before me: becau
 
 [^13]: [[D&C 121.7|Doctrine and Covenants 121:7]].
 
-[^14]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^14]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
 [^15]: [[Hebrews 12.2|Hebrews 12:2]].
 
@@ -127,15 +127,16 @@ Heed these words of the Psalmist: “I have set the Lord always before me: becau
 
 [^28]: Not in this world or in the world to come.
 
-[^29]: Righteous Saints “who have endured the crosses of the world … shall inherit the kingdom of God, … and their joy shall be full forever” ([[2 Nephi 9.18|2 Nephi 9:18]]).
+[^29]: Righteous Saints “who have endured the crosses of the world … shall inherit the kingdom of God, … and their joy shall be full forever” ([[2 Nephi 9.18|2 Nephi 9:18]]).
 
-[^30]: For examples, see [[2 Nephi 27.30|2 Nephi 27:30]]; [[Alma 27.16|Alma 27:16–18]][[Alma 27.17|]][[Alma 27.18|]].
+[^30]: For examples, see [[2 Nephi 27.30|2 Nephi 27:30]]; [[Alma 27.16|Alma 27:16–18]][[Alma 27.17|]][[Alma 27.18|]].
 
-[^31]: See [[1 Nephi 17.40|1 Nephi 17:40]].
+[^31]: See [[1 Nephi 17.40|1 Nephi 17:40]].
 
 [^32]: See [[Mosiah 4.2|Mosiah 4:2–3]][[Mosiah 4.3|]].
 
 [^33]: [[Psalms 16.8|Psalm 16:8, 11]][[Psalms 16.11|]].
 
+[^34]: See [[Isaiah 35.10|Isaiah 35:10]]; [[2 Nephi 8.3|2 Nephi 8:3]].
 
-#Adversity #Jesus_Christ #Joy #Plan_Of_Salvation
+#Adversity #Joy #JesusChrist #PlanOfSalvation

@@ -1,6 +1,6 @@
 # Joseph Smith—The Mighty Prophet of the Restoration
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -78,7 +78,7 @@ He was tarred and feathered, beaten, driven, hated, cast out, “persecuted for 
 
 “Sir:—You will take Joseph Smith and the other prisoners into the public square at Far West, and shoot them at 9 o’clock tomorrow morning.”
 
-“\[Signed\] Samuel D. Lucas,”
+“\[Signed\] Samuel D. Lucas,”
 
 “Major General Commanding.”
 
@@ -116,7 +116,7 @@ All men may well ask themselves where they stand with reference to Joseph Smith 
 
 As for me and my house, we shall seek counsel and authority and blessing constantly from him and from those who now wear his prophetic mantle.
 
-Now, let there be no misunderstanding. We are witnesses of Christ. He is our Savior. He is the door. He stands at the gate; “and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name.” ([[2 Nephi 9.41|2 Ne. 9:41]].)
+Now, let there be no misunderstanding. We are witnesses of Christ. He is our Savior. He is the door. He stands at the gate; “and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name.” ([[2 Nephi 9.41|2 Ne. 9:41]].)
 
 But we are also witnesses of Joseph Smith, by whom we know of Christ, and who is the legal administrator to whom power was given to bind on earth and seal in heaven, that all men from his day forward might be heirs of salvation.
 
@@ -125,6 +125,4 @@ We link the names of Jesus Christ and Joseph Smith in our testimonies. And we no
 
 
 
-
-
-#Joseph_Smith
+#JosephSmith

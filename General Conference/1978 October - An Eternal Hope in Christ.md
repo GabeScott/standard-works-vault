@@ -1,6 +1,6 @@
 # An Eternal Hope in Christ
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -14,15 +14,15 @@ I hope we will go forth now, believing the doctrines that have been preached, ta
 
 Let us conclude in a tone of testimony and in the spirit of gratitude and thanksgiving to him whose we are, who has given us all that we have, and in whose work we are engaged.
 
-Our beloved brother Paul, after acclaiming “that Christ died for our sins …
+Our beloved brother Paul, after acclaiming “that Christ died for our sins …
 
 “And that he was buried, and that he rose again the third day according to the scriptures,” then said:
 
-“If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.3|1 Cor. 15:3–4, 19]][[1 Corinthians 15.4|]][[1 Corinthians 15.19|]]).
+“If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.3|1 Cor. 15:3–4, 19]][[1 Corinthians 15.4|]][[1 Corinthians 15.19|]]).
 
 Then he taught and testified that even as Christ is risen from the dead, so will all men come forth from the grave; each will then be judged according to his works, and each will receive his appointed place in the mansions which are prepared.
 
-In that resurrected state, Paul said, there are “celestial bodies, and bodies terrestrial, and bodies telestial; but the glory of the celestial, one; and the terrestrial, another; and the telestial, another” ([[JST 1 Corinthians 15.40|JST, 1 Cor. 15:40]]).
+In that resurrected state, Paul said, there are “celestial bodies, and bodies terrestrial, and bodies telestial; but the glory of the celestial, one; and the terrestrial, another; and the telestial, another” ([[JST 1 Corinthians 15.40|JST, 1 Cor. 15:40]]).
 
 Now this system of revealed religion which has come to us by revelation is a very practical religion. It deals with flocks and herds and properties; it teaches us how to get along with each other here and now; it is a way of life that turns a dreary and drab mortal existence into a glorious and exhilarating experience.
 
@@ -36,17 +36,17 @@ We have a hope in Christ here and now. He died for our sins. Because of him and 
 
 By living the laws of his gospel, we gain temporal prosperity and maintain health of body and strength of mind. The gospel blesses us today.
 
-But today is just a grain of sand in the Sahara of eternity. We have also a hope in Christ for the eternity that lies ahead; otherwise, as Paul said, we would be “of all men most miserable” ([[1 Corinthians 15.19|1 Cor. 15:19]]).
+But today is just a grain of sand in the Sahara of eternity. We have also a hope in Christ for the eternity that lies ahead; otherwise, as Paul said, we would be “of all men most miserable” ([[1 Corinthians 15.19|1 Cor. 15:19]]).
 
 How great would be our sorrow—and justly so—if there were no resurrection! How miserable we would be if there were no hope of life eternal! If our hope of salvation and eternal reward should fade away, we would certainly be more miserable than those who never had such an expectancy.
 
-“But now is Christ risen from the dead, and become the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]).
+“But now is Christ risen from the dead, and become the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]).
 
-Now the effects of his resurrection shall pass upon all men, “for as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
+Now the effects of his resurrection shall pass upon all men, “for as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
 
-Now “as we have borne the image of the earthy, we shall also bear the image of the heavenly” ([[1 Corinthians 15.49|1 Cor. 15:49]]).
+Now “as we have borne the image of the earthy, we shall also bear the image of the heavenly” ([[1 Corinthians 15.49|1 Cor. 15:49]]).
 
-Now provision has been made whereby “this corruptible shall … put on incorruption, and this mortal shall … put on immortality, then shall be brought to pass the saying that is written, Death is swallowed up in victory” ([[1 Corinthians 15.54|1 Cor. 15:54]]).
+Now provision has been made whereby “this corruptible shall … put on incorruption, and this mortal shall … put on immortality, then shall be brought to pass the saying that is written, Death is swallowed up in victory” ([[1 Corinthians 15.54|1 Cor. 15:54]]).
 
 Then shall all men stand before the bar of the great Jehovah to be judged according to the deeds done in the flesh.
 
@@ -56,13 +56,13 @@ Those who have been decent and upright and who have lived respectable and good l
 
 Those who have believed in Christ, who have forsaken the world, who have taken the Holy Spirit for their guide and been willing to lay their all on the altar, those who have kept the commandments of God—they shall go to a celestial kingdom whose glory is as the sun.
 
-“O death, where is thy sting? O grave, where is thy victory?” Paul asks ([[1 Corinthians 15.55|1 Cor. 15:55]]).
+“O death, where is thy sting? O grave, where is thy victory?” Paul asks ([[1 Corinthians 15.55|1 Cor. 15:55]]).
 
 There is no victory in the grave, for death is replaced with life. Immortality is a free gift for all men through the atoning ransom paid by the Son of God.
 
-But, Paul says, “The sting of death is sin,” meaning that if men die in their sins, they will suffer the prescribed penalty and gain a lesser glory in the realms ahead ([[1 Corinthians 15.56|1 Cor. 15:56]]).
+But, Paul says, “The sting of death is sin,” meaning that if men die in their sins, they will suffer the prescribed penalty and gain a lesser glory in the realms ahead ([[1 Corinthians 15.56|1 Cor. 15:56]]).
 
-“But thanks be to God,” the ancient apostle continues, “which giveth us the victory through our Lord Jesus Christ” ([[1 Corinthians 15.57|1 Cor. 15:57]]).
+“But thanks be to God,” the ancient apostle continues, “which giveth us the victory through our Lord Jesus Christ” ([[1 Corinthians 15.57|1 Cor. 15:57]]).
 
 If we are true and faithful, we shall rise, not alone in immortality but unto eternal life. Immortality is to live forever in an assigned kingdom. Eternal life is to gain exaltation in the highest heaven and live in the family unit.
 
@@ -70,7 +70,7 @@ And so Paul exhorts the Saints:
 
 “Therefore, my beloved brethren, be ye steadfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.
 
-“Watch ye, stand fast in the faith, quit you like men, be strong.” ([[1 Corinthians 15.58|1 Cor. 15:58]]; [[1 Corinthians 16.13|16:13]].)
+“Watch ye, stand fast in the faith, quit you like men, be strong.” ([[1 Corinthians 15.58|1 Cor. 15:58]]; [[1 Corinthians 16.13|16:13]].)
 
 We have an eternal hope in Christ. We know this life is given us to prepare for eternity, “and that same sociality which exists among us here will exist among us there, only it will be coupled with eternal glory, which glory we do not now enjoy” ([[D&C 130.2|D&C 130:2]]).
 
@@ -80,11 +80,11 @@ We *know,* and it is our testimony, and we also proclaim it to the world that to
 
 Thus, with Nephi, “we labor diligently to write, to persuade our children, and also our brethren, to believe in Christ, and to be reconciled to God; for we know that it is by grace that we are saved, after all *we* can do.
 
-“And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins.” ([[2 Nephi 25.23|2 Ne. 25:23, 26]][[2 Nephi 25.26|]]; italics added.)
+“And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins.” ([[2 Nephi 25.23|2 Ne. 25:23, 26]][[2 Nephi 25.26|]]; italics added.)
 
 Also, with Nephi, we know the course all men must pursue to gain an eternal hope.
 
-“The right way,” he said, “is to believe in Christ, and deny him not; and Christ is the Holy One of Israel; wherefore ye must bow down before him, and worship him with all your might, mind, and strength, and your whole soul; and if ye do this ye shall in nowise be cast out” ([[2 Nephi 25.29|2 Ne. 25:29]]).
+“The right way,” he said, “is to believe in Christ, and deny him not; and Christ is the Holy One of Israel; wherefore ye must bow down before him, and worship him with all your might, mind, and strength, and your whole soul; and if ye do this ye shall in nowise be cast out” ([[2 Nephi 25.29|2 Ne. 25:29]]).
 
 We glory with Paul in these words spoken of our beloved Lord: in him “we have redemption through his blood, even the forgiveness of sins:
 
@@ -137,6 +137,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Atonement #Plan_Of_Salvation
+#Atonement #PlanOfSalvation

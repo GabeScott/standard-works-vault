@@ -1,6 +1,5 @@
 # Straiten
 
-
 *See also* [[Strait.md|Strait]]
 
 he enlargeth the nations, and *straiteneth* them, [[Job 12.23|Job 12:23]].

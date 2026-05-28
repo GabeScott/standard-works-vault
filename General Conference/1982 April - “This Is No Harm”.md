@@ -1,6 +1,6 @@
 # “This Is No Harm”
 
-By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -12,11 +12,11 @@ When I compare this definition with that found in the dictionary, which states, 
 
 After having us go through this daily ritual, this wonderful lady, who never married but who had such a motherly influence over many of us, would teach with few words the importance of communicating truth under all circumstances. Often she simply said, “Don’t tell lies. Don’t share lies. Don’t participate in lies.”
 
-How serious is lying? We have a clue when we read all through the scriptures that Satan is the father of lies. His method of teaching this evil practice is illustrated in the tenth section of the Doctrine and Covenants: “Yea, he \[Satan\] saith unto them: Deceive and lie … ; behold, this is no harm. And thus he … telleth them that it is no sin to lie. … And thus he … causeth them to catch themselves in their own snare.” ([[D&C 10.25|D&C 10:25–26]][[D&C 10.26|]].)
+How serious is lying? We have a clue when we read all through the scriptures that Satan is the father of lies. His method of teaching this evil practice is illustrated in the tenth section of the Doctrine and Covenants: “Yea, he \[Satan\] saith unto them: Deceive and lie … ; behold, this is no harm. And thus he … telleth them that it is no sin to lie. … And thus he … causeth them to catch themselves in their own snare.” ([[D&C 10.25|D&C 10:25–26]][[D&C 10.26|]].)
 
 Yet we can’t hide behind the father of lies and say, “Satan made me do it.” All he does is tell us, “This is no harm,” and then he lets us catch ourselves in our own snare.
 
-It is a sin to lie. It is a tragedy to be the victim of lies. Being trapped in the snares of dishonesty and misrepresentation does not happen instantaneously. One little lie or dishonest act leads to another until the perpetrator is caught in the web of deceit. As Samuel Johnson wrote, “The chains of habit are generally too small to be felt until they are too strong to be broken.” (*The International Dictionary of Thoughts,* comp. John P. Bradley, Leo F. Daniels, Thomas C. Jones, Chicago: J. G. Ferguson Publishing Co., 1969, p. 348.) Those who become victims of this entrapment often struggle through life bearing their heavy burden because they are unwilling to acknowledge their problem and make the effort to change. Many are unwilling to pay the price to be free from the chains of lies. Some individuals may be very aware of the value of honesty and yet be unable to come up with the down payment.
+It is a sin to lie. It is a tragedy to be the victim of lies. Being trapped in the snares of dishonesty and misrepresentation does not happen instantaneously. One little lie or dishonest act leads to another until the perpetrator is caught in the web of deceit. As Samuel Johnson wrote, “The chains of habit are generally too small to be felt until they are too strong to be broken.” (*The International Dictionary of Thoughts,* comp. John P. Bradley, Leo F. Daniels, Thomas C. Jones, Chicago: J. G. Ferguson Publishing Co., 1969, p. 348.) Those who become victims of this entrapment often struggle through life bearing their heavy burden because they are unwilling to acknowledge their problem and make the effort to change. Many are unwilling to pay the price to be free from the chains of lies. Some individuals may be very aware of the value of honesty and yet be unable to come up with the down payment.
 
 Perhaps if we analyze some of the reasons people lie, we can avoid or overcome this vicious snare.
 
@@ -54,9 +54,9 @@ Fortunately, or unfortunately, the business climate is always good for those who
 
 More often than not, those who can least afford to go into debt to provide funds for scheming money managers are those hurt the most when the day of final accounting arrives. It is true, getting into debt is a tanglesome web.
 
-Samuel Johnson also said, “Do not accustom yourself to consider debt only as an inconvenience; you will find it a calamity.” (*The International Dictionary of Thoughts,* p. 196.) We encourage all to avoid going into debt for speculation purposes. “The love of money is the root of all evil.” ([[1 Timothy 6.10|1 Tim. 6:10]].) A proper balance in our money management skills should be the continuing goal of all who would be free of financial bondage.
+Samuel Johnson also said, “Do not accustom yourself to consider debt only as an inconvenience; you will find it a calamity.” (*The International Dictionary of Thoughts,* p. 196.) We encourage all to avoid going into debt for speculation purposes. “The love of money is the root of all evil.” ([[1 Timothy 6.10|1 Tim. 6:10]].) A proper balance in our money management skills should be the continuing goal of all who would be free of financial bondage.
 
-President N. Eldon Tanner wisely suggests, “The choice to serve God, worthily made, does not necessarily preclude a home or sufficient money or income, or the things of this world which bring joy and happiness, but it does require that we must *not* turn away from God and the teachings of Jesus Christ while in the pursuit of our temporal needs.” (*Ensign,* June 1971, p. 14.)
+President N. Eldon Tanner wisely suggests, “The choice to serve God, worthily made, does not necessarily preclude a home or sufficient money or income, or the things of this world which bring joy and happiness, but it does require that we must *not* turn away from God and the teachings of Jesus Christ while in the pursuit of our temporal needs.” (*Ensign,* June 1971, p. 14.)
 
 It should be the goal of every Latter-day Saint to become the kind of person of whom it can be said, “His word is his bond.” In all of our words and deeds we should ask ourselves, “Is it right? Is it true?” not “Is it expedient, satisfactory, convenient, or profitable?” Just, “Is it right?” The wise will consider, “What is right?”; the greedy, “What will it pay?”
 
@@ -83,8 +83,6 @@ If a lie is any communication given to another with the intent to deceive, we wi
 May we constantly remind ourselves to “seek not for riches but for wisdom; and, behold, the mysteries of God shall be unfolded unto you, and then shall you be made rich. Behold, he that hath eternal life is rich.” ([[D&C 11.7|D&C 11:7]].)
 
 God grant to all of us the power and strength to be people of integrity, and the insight and wisdom to avoid being led into the snares of the dishonest, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

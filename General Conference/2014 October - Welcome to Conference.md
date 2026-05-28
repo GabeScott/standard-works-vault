@@ -1,6 +1,6 @@
 # Welcome to Conference
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -14,7 +14,7 @@ This conference marks the 90-year anniversary of radio broadcasts of general con
 
 We acknowledge the blessings of modern media in allowing millions of members of the Church to watch or listen to general conference. The sessions of this weekend are being broadcast via television, radio, cable, satellite transmission, and the Internet, including on mobile devices.
 
-During the past six months since we last met, one new temple has been dedicated and one rededicated. In May, President Dieter F. Uchtdorf dedicated the Fort Lauderdale Florida Temple. A wonderful youth cultural celebration was presented the day prior to the dedication. The following day, on Sunday, May 4, the temple was dedicated in three sessions.
+During the past six months since we last met, one new temple has been dedicated and one rededicated. In May, President Dieter F. Uchtdorf dedicated the Fort Lauderdale Florida Temple. A wonderful youth cultural celebration was presented the day prior to the dedication. The following day, on Sunday, May 4, the temple was dedicated in three sessions.
 
 Just two weeks ago it was my privilege to rededicate the Ogden Utah Temple, originally dedicated in 1972 by President Joseph Fielding Smith. A grand cultural celebration took place the day before the rededication, with so many youth participating that two separate performances were presented, with a different cast for each. In all, 16,000 youth participated. The rededication services took place the following day, with many of the Brethren participating, along with the auxiliary leaders and the temple president, his counselors, and their wives.
 
@@ -29,6 +29,4 @@ Now I invite you to give your attention to the brethren and sisters who will par
 
 
 
-
-
-#Church_Growth #Missionary_Work #Temples
+#ChurchGrowth #MissionaryWork #Temples

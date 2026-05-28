@@ -6,7 +6,7 @@ By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1984/04/the-practice-of-truth?lang=eng)
 
-In the book of John, we read the famous dialogue between Pontius Pilate and Jesus of Nazareth. The Savior was an enigma to the Roman. He asked, “Art thou a king …” Jesus answered, “To this end was I born, and for this cause came I into the world, that I should bear witness unto the truth.” ([[John 18.37|John 18:37]].)
+In the book of John, we read the famous dialogue between Pontius Pilate and Jesus of Nazareth. The Savior was an enigma to the Roman. He asked, “Art thou a king …” Jesus answered, “To this end was I born, and for this cause came I into the world, that I should bear witness unto the truth.” ([[John 18.37|John 18:37]].)
 
 Pilate turned away, asking the question of the ages, “What is truth?” ([[John 18.38|John 18:38]].) He did not wait for an answer. I doubt he expected one. Pilate was aware that “truth” had been a favorite subject for debate by Roman and Greek philosophers for centuries, and remained the quest of philosophy.
 
@@ -16,7 +16,7 @@ As William George Jordan taught:
 
 “Truth … as loyalty to the right as we see it; it is courageous living of our lives in harmony with our ideals; it is always—power.
 
-“Truth … defies full definition. Like electricity it can only be explained by noting its manifestation. It is the compass of the soul, the guardian of conscience, the final touchstone of right. Truth is the revelation of the ideal; but it is also an inspiration to realize that ideal, a constant impulse to live it.” (*Power of Truth,* Salt Lake City: Deseret Book Co., 1935, p. 3.)
+“Truth … defies full definition. Like electricity it can only be explained by noting its manifestation. It is the compass of the soul, the guardian of conscience, the final touchstone of right. Truth is the revelation of the ideal; but it is also an inspiration to realize that ideal, a constant impulse to live it.” (*Power of Truth,* Salt Lake City: Deseret Book Co., 1935, p. 3.)
 
 As Latter-day Saints, we are committed to the principles of truth. We seek the truth; we believe the truth; and we know the “truth will make us free.” (See [[John 8.32|John 8:32]].) To be genuine disciples, we must have harmony between the principles that we profess and the truths we practice.
 
@@ -26,7 +26,7 @@ Our souls must be more than “whited sepulchres,” which appear praiseworthy b
 
 The practice of truth, the acid test of our commitment, is known by many terms—for example, *honesty, integrity, uprightness,* and *probity.* I especially like *probity.* It is taken from the Latin *probus,* meaning good, and *probare*—to prove, signifying tried and confirmed integrity. A person who has mastered probity by discipline, until it has become part of his very nature, is like a moral compass which automatically points “true north” under all circumstances. This individual strives for instinctive honesty, acting on impulse toward the right, without having to weigh the merits of advantage or disadvantage.
 
-“\[One\] who makes Truth his watchword,” wrote Jordan, “is careful in his words, he seeks to be accurate, neither understating nor over-coloring. … What he says has the ring of sincerity, the hallmark of pure gold. … His promise counts for something, you accept it as being as good as his bond, you know that no matter how much it may cost him to verify and fulfil his word by his deed, he will do it.” (*Power of Truth,* p. 5.)
+“\[One\] who makes Truth his watchword,” wrote Jordan, “is careful in his words, he seeks to be accurate, neither understating nor over-coloring. … What he says has the ring of sincerity, the hallmark of pure gold. … His promise counts for something, you accept it as being as good as his bond, you know that no matter how much it may cost him to verify and fulfil his word by his deed, he will do it.” (*Power of Truth,* p. 5.)
 
 Perhaps you remember the story told by President N. Eldon Tanner. A young fellow came to him and said, “I made an agreement with a man that requires me to make certain payments each year. I am in arrears, and I can’t make those payments, for if I do, it is going to cause me to lose my home. What shall I do?”
 
@@ -34,7 +34,7 @@ President Tanner looked at him and said, “Keep your agreement.”
 
 “Even if it costs me my home?” the man asked.
 
-President Tanner replied, “I am not talking about your home. I am talking about your agreement; and I think your wife would rather have a husband who would keep his word, meet his obligations, keep his pledges or his covenants, and have to rent a home, than to have a home with a husband who will not keep his covenants and his pledges.” (In Conference Report, Oct. 1966, p. 99.)
+President Tanner replied, “I am not talking about your home. I am talking about your agreement; and I think your wife would rather have a husband who would keep his word, meet his obligations, keep his pledges or his covenants, and have to rent a home, than to have a home with a husband who will not keep his covenants and his pledges.” (In Conference Report, Oct. 1966, p. 99.)
 
 I had an interesting experience a few years ago while attending general conference. I went to purchase some merchandise at ZCMI and to cash a check. Being from out of state, I was sent to the cashier. She asked for some identification. I reached into my wallet and took out some credit cards. Inadvertently, my temple recommend came out. The cashier said, “I’ll accept that.” I said, “You’ll accept what?” She said, “Your temple recommend. It’s current, isn’t it?” I said, “Yes, it’s current.” She said, “That will do.”
 
@@ -64,7 +64,7 @@ Brother Holland begins:
 
 “I held her in my arms as that little nine-year-old body shook with the pain of sin being expelled. She said, ‘I can’t sleep and I can’t eat and I can’t say my prayers. What will I do? I won’t ever get it out of my mind.’
 
-“Well, Mother joined us and we talked quite a while that night. We told her that we were very, very proud of her honesty … and we would have been disappointed if she had been able to eat or sleep very well. I told her … the compact probably wouldn’t cost *too* much, and that we would go back to the store manager, tell him of the problem, and, between the two of us, cover the cost. If the compact was still there, \[perhaps we could\] buy it for Mom. That little cracked mirror could be a reminder for as long as she owned it that her little girl was unfailingly honest and spiritually sensitive. …
+“Well, Mother joined us and we talked quite a while that night. We told her that we were very, very proud of her honesty … and we would have been disappointed if she had been able to eat or sleep very well. I told her … the compact probably wouldn’t cost *too* much, and that we would go back to the store manager, tell him of the problem, and, between the two of us, cover the cost. If the compact was still there, \[perhaps we could\] buy it for Mom. That little cracked mirror could be a reminder for as long as she owned it that her little girl was unfailingly honest and spiritually sensitive. …
 
 “The tears gradually stopped, her little body began to relax, and Mary said, ‘I think now I can say my prayers.’” (“The Excellence of the Actors,” unpublished manuscript, BYU faculty assembly, 1978.)
 
@@ -81,8 +81,6 @@ The Psalmist posed the question: “Lord, who shall abide in thy tabernacle? who
 The answer: “He that walketh uprightly, and worketh righteousness, and speaketh the truth in his heart.” ([[Psalms 15.2|Ps. 15:2]].)
 
 In the name of Jesus Christ, amen.
-
-
 
 
 

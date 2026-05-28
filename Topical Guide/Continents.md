@@ -1,4 +1,3 @@
 # Continents
 
-
-*See* [[Earth, Dividing of.md|Earth, Dividing of]]
+*See also* [[Earth, Dividing of.md|Earth, Dividing of]]

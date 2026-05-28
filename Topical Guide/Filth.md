@@ -1,6 +1,5 @@
 # Filth
 
-
 washed away the *filth* of the daughters of Zion, [[Isaiah 4.4|Isaiah 4:4]] ([[2 Nephi 14.4|2 Nephi 14:4]]).
 
 we are made as the *filth* of the world, [[1 Corinthians 4.13|1 Corinthians 4:13]].

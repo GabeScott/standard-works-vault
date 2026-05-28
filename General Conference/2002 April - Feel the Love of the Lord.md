@@ -31,6 +31,4 @@ I give testimony of the power of a prophet of God, President Gordon B. Hinckley,
 
 [^1]: *The Gathering of Zion: The Story of the Mormon Trail* (1964), 13.
 
-
-
-#Gratitude #Relief_Society #Testimony
+#Gratitude #ReliefSociety #Testimony

@@ -1,4 +1,3 @@
 # Blessings, Patriarchal
 
-
-*See* [[Patriarch.md|Patriarch]]; [[Patriarchal Blessings.md|Patriarchal Blessings]]
+*See also* [[Patriarch.md|Patriarch]]; [[Patriarchal Blessings.md|Patriarchal Blessings]]

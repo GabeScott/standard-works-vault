@@ -10,11 +10,11 @@ By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 Today, I speak by way of reminder and admonition to those of us who are members of The Church of Jesus Christ of Latter-day Saints. I pray for and invite the Holy Ghost to now assist me and you as we learn together.
 
-Baptism by immersion for the remission of sins “is the introductory ordinance of the gospel” of Jesus Christ and must be preceded by faith in the Savior and by sincere and complete repentance. “Baptism in water … must be followed by baptism of the Spirit in order to be complete” (see Bible Dictionary, “Baptism,” 618). As the Savior taught Nicodemus, “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God” ([[John 3.5|John 3:5]]). My message this afternoon focuses on the baptism of the Spirit and the blessings that flow from the companionship of the Holy Ghost.
+Baptism by immersion for the remission of sins “is the introductory ordinance of the gospel” of Jesus Christ and must be preceded by faith in the Savior and by sincere and complete repentance. “Baptism in water … must be followed by baptism of the Spirit in order to be complete” (see Bible Dictionary, “[[BD Baptism|Baptism]],” 618). As the Savior taught Nicodemus, “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God” ([[John 3.5|John 3:5]]). My message this afternoon focuses on the baptism of the Spirit and the blessings that flow from the companionship of the Holy Ghost.
 
 ## The Ordinance of and Covenant Associated with Baptism
 
-As each of us was baptized, we entered into a solemn covenant with our Heavenly Father. A covenant is an agreement between God and His children upon the earth, and it is important to understand that God determines the conditions of all gospel covenants. You and I do not decide the nature or elements of a covenant. Rather, exercising our moral agency, we accept the terms and requirements of a covenant as our Eternal Father has established them (see Bible Dictionary, “Covenant,” 651).
+As each of us was baptized, we entered into a solemn covenant with our Heavenly Father. A covenant is an agreement between God and His children upon the earth, and it is important to understand that God determines the conditions of all gospel covenants. You and I do not decide the nature or elements of a covenant. Rather, exercising our moral agency, we accept the terms and requirements of a covenant as our Eternal Father has established them (see Bible Dictionary, “[[BD Covenant|Covenant]],” 651).
 
 The saving ordinance of baptism must be administered by one who has proper authority from God. The fundamental conditions of the covenant into which we entered in the waters of baptism are these: we witnessed that we were willing to take upon ourselves the name of Jesus Christ, that we would always remember Him, and that we would keep His commandments. The promised blessing for honoring this covenant is *that we may always have His Spirit to be with us* (see [[D&C 20.77|D&C 20:77]]). In other words, baptism by water leads to the authorized opportunity for the constant companionship of the third member of the Godhead.
 
@@ -22,11 +22,11 @@ The saving ordinance of baptism must be administered by one who has proper autho
 
 Following our baptism, each of us had hands placed upon our head by those with priesthood authority and was confirmed a member of The Church of Jesus Christ of Latter-day Saints, and the Holy Ghost was conferred upon us (see [[D&C 49.14|D&C 49:14]]). The statement “receive the Holy Ghost” in our confirmation was a directive to strive for the baptism of the Spirit.
 
-The Prophet Joseph Smith taught: “You might as well baptize a bag of sand as a man, if not done in view of the remission of sins and getting of the Holy Ghost. Baptism by water is but half a baptism, and is good for nothing without the other half—that is, the baptism of the Holy Ghost” (*History of the Church,* 5:499). We were baptized by immersion in water for the remission of sins. We must also be baptized by and immersed in the Spirit of the Lord, “and then cometh a remission of your sins by fire and by the Holy Ghost” ([[2 Nephi 31.17|2 Nephi 31:17]]).
+The Prophet Joseph Smith taught: “You might as well baptize a bag of sand as a man, if not done in view of the remission of sins and getting of the Holy Ghost. Baptism by water is but half a baptism, and is good for nothing without the other half—that is, the baptism of the Holy Ghost” (*History of the Church,* 5:499). We were baptized by immersion in water for the remission of sins. We must also be baptized by and immersed in the Spirit of the Lord, “and then cometh a remission of your sins by fire and by the Holy Ghost” ([[2 Nephi 31.17|2 Nephi 31:17]]).
 
-As we gain experience with the Holy Ghost, we learn that the intensity with which we feel the Spirit’s influence is not always the same. Strong, dramatic spiritual impressions do not come to us frequently. Even as we strive to be faithful and obedient, there simply are times when the direction, assurance, and peace of the Spirit are not readily recognizable in our lives. In fact, the Book of Mormon describes faithful Lamanites who “were baptized with fire and with the Holy Ghost, and they knew it not” ([[3 Nephi 9.20|3 Nephi 9:20]]).
+As we gain experience with the Holy Ghost, we learn that the intensity with which we feel the Spirit’s influence is not always the same. Strong, dramatic spiritual impressions do not come to us frequently. Even as we strive to be faithful and obedient, there simply are times when the direction, assurance, and peace of the Spirit are not readily recognizable in our lives. In fact, the Book of Mormon describes faithful Lamanites who “were baptized with fire and with the Holy Ghost, and they knew it not” ([[3 Nephi 9.20|3 Nephi 9:20]]).
 
-The influence of the Holy Ghost is described in the scriptures as “a still small voice” ([[1 Kings 19.12|1 Kings 19:12]]; see also [[3 Nephi 11.3|3 Nephi 11:3]]) and a “voice of perfect mildness” ([[Helaman 5.30|Helaman 5:30]]). Thus, the Spirit of the Lord usually communicates with us in ways that are quiet, delicate, and subtle.
+The influence of the Holy Ghost is described in the scriptures as “a still small voice” ([[1 Kings 19.12|1 Kings 19:12]]; see also [[3 Nephi 11.3|3 Nephi 11:3]]) and a “voice of perfect mildness” ([[Helaman 5.30|Helaman 5:30]]). Thus, the Spirit of the Lord usually communicates with us in ways that are quiet, delicate, and subtle.
 
 ## Withdrawing Ourselves from the Spirit of the Lord
 
@@ -50,17 +50,17 @@ As we strive to align our attitudes and actions with righteousness, then the Hol
 
 As we study and ponder the purposes of the Liahona and the principles by which it operated, I testify that we will receive inspiration suited to our individual and family circumstances and needs. We can and will be blessed with ongoing direction from the Holy Ghost.
 
-The Liahona was prepared by the Lord and given to Lehi and his family after they left Jerusalem and were traveling in the wilderness (see [[Alma 37.38|Alma 37:38]]; [[D&C 17.1|D&C 17:1]]). This compass or director pointed the way that Lehi and his caravan should go (see [[1 Nephi 16.10|1 Nephi 16:10]]), even “a straight course to the promised land” ([[Alma 37.44|Alma 37:44]]). The pointers in the Liahona operated “according to the faith and diligence and heed” ([[1 Nephi 16.28|1 Nephi 16:28]]) of the travelers and failed to work when family members were contentious, rude, slothful, or forgetful (see [[1 Nephi 18.12|1 Nephi 18:12, 21]][[1 Nephi 18.21|]]; [[Alma 37.41|Alma 37:41, 43]][[Alma 37.43|]]).
+The Liahona was prepared by the Lord and given to Lehi and his family after they left Jerusalem and were traveling in the wilderness (see [[Alma 37.38|Alma 37:38]]; [[D&C 17.1|D&C 17:1]]). This compass or director pointed the way that Lehi and his caravan should go (see [[1 Nephi 16.10|1 Nephi 16:10]]), even “a straight course to the promised land” ([[Alma 37.44|Alma 37:44]]). The pointers in the Liahona operated “according to the faith and diligence and heed” ([[1 Nephi 16.28|1 Nephi 16:28]]) of the travelers and failed to work when family members were contentious, rude, slothful, or forgetful (see [[1 Nephi 18.12|1 Nephi 18:12, 21]][[1 Nephi 18.21|]]; [[Alma 37.41|Alma 37:41, 43]][[Alma 37.43|]]).
 
-The compass also provided a means whereby Lehi and his family could obtain greater “understanding concerning the ways of the Lord” ([[1 Nephi 16.29|1 Nephi 16:29]]). Thus, the primary purposes of the Liahona were to provide both direction and instruction during a long and demanding journey. The director was a physical instrument that served as an outward indicator of their inner spiritual standing before God. It worked according to the principles of faith and diligence.
+The compass also provided a means whereby Lehi and his family could obtain greater “understanding concerning the ways of the Lord” ([[1 Nephi 16.29|1 Nephi 16:29]]). Thus, the primary purposes of the Liahona were to provide both direction and instruction during a long and demanding journey. The director was a physical instrument that served as an outward indicator of their inner spiritual standing before God. It worked according to the principles of faith and diligence.
 
 Just as Lehi was blessed in ancient times, each of us in this day has been given a spiritual compass that can direct and instruct us during our mortal journey. The Holy Ghost was conferred upon you and me as we came out of the world and into the Savior’s Church through baptism and confirmation. By the authority of the holy priesthood we were confirmed as members of the Church and admonished to seek for the constant companionship of “the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you” ([[John 14.17|John 14:17]]).
 
-As we each press forward along the pathway of life, we receive direction from the Holy Ghost just as Lehi was directed through the Liahona. “For behold, again I say unto you that if ye will enter in by the way, and receive the Holy Ghost, it will show unto you all things what ye should do” ([[2 Nephi 32.5|2 Nephi 32:5]]).
+As we each press forward along the pathway of life, we receive direction from the Holy Ghost just as Lehi was directed through the Liahona. “For behold, again I say unto you that if ye will enter in by the way, and receive the Holy Ghost, it will show unto you all things what ye should do” ([[2 Nephi 32.5|2 Nephi 32:5]]).
 
 The Holy Ghost operates in our lives precisely as the Liahona did for Lehi and his family, according to our faith and diligence and heed.
 
-“Let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God. …
+“Let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God. …
 
 “The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth” ([[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]]).
 
@@ -79,6 +79,4 @@ My beloved brothers and sisters, I testify of the living reality of God the Eter
 
 
 
-
-
-#Covenants #Holy_Ghost #Ordinances #Sacrament
+#Covenants #HolyGhost #Ordinances #Sacrament

@@ -24,7 +24,7 @@ Please notice the requirement to ask in faith, which I understand to mean the ne
 
 Pondering this biblical text led Joseph to retire to a grove of trees near his home to pray and to seek spiritual knowledge. Note the questions that guided Joseph’s thinking and supplicating.
 
-“In the midst of this war of words and tumult of opinions, I often said to myself: What is to be done? Who of all these parties are right; or, are they all wrong together? If any one of them be right, which is it, and how shall I know it? …
+“In the midst of this war of words and tumult of opinions, I often said to myself: What is to be done? Who of all these parties are right; or, are they all wrong together? If any one of them be right, which is it, and how shall I know it? …
 
 “My object in going to inquire of the Lord was to know which of all the sects was right, that I might know which to join” ([[Joseph Smith History 1.10|Joseph Smith—History 1:10, 18]][[Joseph Smith History 1.18|]]).
 
@@ -34,7 +34,7 @@ True faith is focused in and on the Lord Jesus Christ and always leads to righte
 
 The Prophet Joseph further explained that “faith is not only the principle of action, but of power also, in all intelligent beings, whether in heaven or on earth” (*Lectures on Faith,* 3). Thus, faith in Christ leads to righteous action, which increases our spiritual capacity and power. Understanding that faith is a principle of action and of power inspires us to exercise our moral agency in compliance with gospel truth, invites the redeeming and strengthening *powers* of the Savior’s Atonement into our lives, and enlarges the *power* within us whereby we are agents unto ourselves (see [[D&C 58.28|D&C 58:28]]).
 
-I long have been impressed with the truth that meaningful prayer requires both holy communication and consecrated work. Blessings require some effort on our part before we can obtain them, and prayer, as “a form of work, … is an appointed means for obtaining the highest of all blessings” (Bible Dictionary, “Prayer,” 753). We press forward and persevere in the consecrated work of prayer, after we say “amen,” by acting upon the things we have expressed to Heavenly Father.
+I long have been impressed with the truth that meaningful prayer requires both holy communication and consecrated work. Blessings require some effort on our part before we can obtain them, and prayer, as “a form of work, … is an appointed means for obtaining the highest of all blessings” (Bible Dictionary, “[[BD Prayer|Prayer]],” 753). We press forward and persevere in the consecrated work of prayer, after we say “amen,” by acting upon the things we have expressed to Heavenly Father.
 
 Asking in faith requires honesty, effort, commitment, and persistence. Let me provide an illustration of what I mean and extend to you an invitation.
 
@@ -78,19 +78,17 @@ My third example highlights the importance of recognizing and accepting the will
 
 One day without warning their little four-year-old daughter became critically ill and was hospitalized. In desperation and for the first time in many years, the father was found on his knees in prayer, asking that the life of his daughter be spared. Yet her condition worsened. Gradually this father sensed that his little girl would not live, and slowly his prayers changed; he no longer prayed for healing but rather for understanding. “Let Thy will be done” was now the manner of his pleadings.
 
-Soon his daughter was in a coma, and the father knew her hours on earth were few. Fortified with understanding, trust, and power beyond their own, the young parents prayed again, asking for the opportunity to hold her close once more while she was awake. The daughter’s eyes opened, and her frail arms reached out to her parents for one final embrace. And then she was gone. This father knew their prayers had been answered—a kind, compassionate Father in Heaven had comforted their hearts. God’s will had been done, and they had gained understanding. (Adapted from H. Burke Peterson, “Adversity and Prayer,” *Ensign,* Jan. 1974, 18.)
+Soon his daughter was in a coma, and the father knew her hours on earth were few. Fortified with understanding, trust, and power beyond their own, the young parents prayed again, asking for the opportunity to hold her close once more while she was awake. The daughter’s eyes opened, and her frail arms reached out to her parents for one final embrace. And then she was gone. This father knew their prayers had been answered—a kind, compassionate Father in Heaven had comforted their hearts. God’s will had been done, and they had gained understanding. (Adapted from H. Burke Peterson, “Adversity and Prayer,” *Ensign,* Jan. 1974, 18.)
 
 Discerning and accepting the will of God in our lives are fundamental elements of asking in faith in meaningful prayer. However, simply saying the words “Thy will be done” is not enough. Each of us needs God’s help in surrendering our will to Him.
 
-“Prayer is the act by which the will of the Father and the will of the child are brought into correspondence with each other” (Bible Dictionary, “Prayer,” 752–53). Humble, earnest, and persistent prayer enables us to recognize and align ourselves with the will of our Heavenly Father. And in this the Savior provided the perfect example as He prayed in the Garden of Gethsemane, “saying, Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done. … And being in an agony he prayed more earnestly” ([[Luke 22.42|Luke 22:42, 44]][[Luke 22.44|]]).
+“Prayer is the act by which the will of the Father and the will of the child are brought into correspondence with each other” (Bible Dictionary, “[[BD Prayer|Prayer]],” 752–53). Humble, earnest, and persistent prayer enables us to recognize and align ourselves with the will of our Heavenly Father. And in this the Savior provided the perfect example as He prayed in the Garden of Gethsemane, “saying, Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done. … And being in an agony he prayed more earnestly” ([[Luke 22.42|Luke 22:42, 44]][[Luke 22.44|]]).
 
 The object of our prayers should not be to present a wish list or a series of requests but to secure for ourselves and for others blessings that God is eager to bestow, according to His will and timing. Every sincere prayer is heard and answered by our Heavenly Father, but the answers we receive may not be what we expect or come to us when we want or in the way we anticipate. This truth is evident in the three examples I have presented today.
 
 Prayer is a privilege and the soul’s sincere desire. We can move beyond routine and “checklist” prayers and engage in meaningful prayer as we appropriately ask in faith and act, as we patiently persevere through the trial of our faith, and as we humbly acknowledge and accept “not my will, but thine, be done.”
 
 I witness the reality and divinity of our Eternal Father, of His Only Begotten Son, the Lord Jesus Christ, and of the Holy Ghost. I testify that our Father hears and answers our prayers. May each of us strive with greater resolve to ask in faith and thereby make our prayers truly meaningful. I so pray in the sacred name of the Lord Jesus Christ, amen.
-
-
 
 
 

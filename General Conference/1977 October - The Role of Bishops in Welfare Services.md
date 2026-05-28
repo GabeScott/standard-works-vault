@@ -1,12 +1,12 @@
 # The Role of Bishops in Welfare Services
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1977/10/the-role-of-bishops-in-welfare-services?lang=eng)
 
-My beloved brethren and sisters, I invite you to join in a prayer with me that while I speak we will all enjoy the Spirit of the Lord. What I have to say I was taught between thirty and forty years ago, principally by President J. Reuben Clark. Much of what I say will be in his language, and much else, while not directly quoted, will be the substance of his teachings.
+My beloved brethren and sisters, I invite you to join in a prayer with me that while I speak we will all enjoy the Spirit of the Lord. What I have to say I was taught between thirty and forty years ago, principally by President J. Reuben Clark. Much of what I say will be in his language, and much else, while not directly quoted, will be the substance of his teachings.
 
 In these remarks I shall emphasize three things concerning Welfare Services: first, the bishop’s role; second, the responsibility of priesthood quorums; and third, the distinction between Church welfare and other types of welfare.
 
@@ -16,13 +16,13 @@ In December of 1831, before the Church was two years old, the Lord said that it 
 
 Ten months later He added that it is the duty of the bishops to search “after the poor \[and\] administer to their wants by humbling the rich and the proud.” ([[D&C 84.112|D&C 84:112]].)
 
-President Clark thus summarized the bishop’s role: “To the bishops is to be paid the tithing.” He is “to administer all temporal things. … In his calling he is to be endowed with the spirit of discernment to detect those ‘professing and yet be not of God’; he is to ‘receive the funds of the church’, and to ‘administer to the … poor and needy’; he is to search ‘after the poor to administer to their wants.’ …
+President Clark thus summarized the bishop’s role: “To the bishops is to be paid the tithing.” He is “to administer all temporal things. … In his calling he is to be endowed with the spirit of discernment to detect those ‘professing and yet be not of God’; he is to ‘receive the funds of the church’, and to ‘administer to the … poor and needy’; he is to search ‘after the poor to administer to their wants.’ …
 
-“To the bishop is given all the powers and responsibilities which the Lord has specifically prescribed in the Doctrine and Covenants for the caring of the poor. … No one else is charged with this duty and responsibility, no one else is endowed with the power and functions necessary for this work. …
+“To the bishop is given all the powers and responsibilities which the Lord has specifically prescribed in the Doctrine and Covenants for the caring of the poor. … No one else is charged with this duty and responsibility, no one else is endowed with the power and functions necessary for this work. …
 
 “By the word of the Lord the sole mandate to care for and the sole discretion in caring for, the poor of the Church is lodged in the bishop. … It is his duty and his only to determine to whom, when, how, and how much shall be given to any member of his ward from Church funds and as ward help.
 
-“This is his high and solemn obligation, imposed by the Lord Himself. The bishop cannot escape this duty; he cannot shirk it; he cannot pass it on to someone else, and so relieve himself. Whatever help he calls in, he is still responsible.” (“Bishops and Relief Society,” J. Reuben Clark, July 9, 1941.)
+“This is his high and solemn obligation, imposed by the Lord Himself. The bishop cannot escape this duty; he cannot shirk it; he cannot pass it on to someone else, and so relieve himself. Whatever help he calls in, he is still responsible.” (“Bishops and Relief Society,” J. Reuben Clark, July 9, 1941.)
 
 Now a whole generation has passed, as President Kimball has said, since these instructions were given. But in our current handbooks and other literature they are taught. In the *Bishops Guide* the duties of the bishop are outlined under five major categories; one of these is entitled “Director of Welfare Services.” On pages 24 to 26 of this guide, the specific duties of bishops are listed. They, together with the instructions in the *Welfare Services Handbook,* should be read, studied, and implemented by every bishop.
 
@@ -70,11 +70,11 @@ In the next place, the standard of care has been indicated. The bishop has been 
 
 To the Church the Lord gave this law:
 
-“Women have claim on their husbands for their maintenance. …
+“Women have claim on their husbands for their maintenance. …
 
-“Children have claim upon their parents for their maintenance. …
+“Children have claim upon their parents for their maintenance. …
 
-“And after that, they have claim upon the church, or in other words upon the Lord’s storehouse. …
+“And after that, they have claim upon the church, or in other words upon the Lord’s storehouse. …
 
 “And the storehouse shall be kept by the consecrations of the church; and widows and orphans shall be provided for, as also the poor.” ([[D&C 83.2|D&C 83:2, 4–6]][[D&C 83.4|]][[D&C 83.5|]][[D&C 83.6|]].)
 
@@ -111,8 +111,6 @@ Thus, the bishop is to “visit the poor and the needy and administer to their r
 These things cannot be achieved by dollars and cents; therefore all cannot be brought to the same living standards; more help must be given here and less there, to fit the needs of those in want; and all must be measured by the ultimate spiritual uplift.
 
 It is my prayer that all bishops and stake presidents will thoroughly inform themselves of their duty and carry this great work to its ultimate achievement in the redemption of Zion in preparation for the second advent of the Lord. This is my prayer, in the name of Jesus Christ. Amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Parents and Children
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,7 +8,7 @@ By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/parents-and-children?lang=eng)
 
-My dear sisters, how wonderful to have this new general conference session of women of the Church eight years and older. We have heard inspiring messages from the sister leaders and from President Henry B. Eyring. President Eyring and I love working under the direction of President Russell M. Nelson, and we look forward to his prophetic address.
+My dear sisters, how wonderful to have this new general conference session of women of the Church eight years and older. We have heard inspiring messages from the sister leaders and from President Henry B. Eyring. President Eyring and I love working under the direction of President Russell M. Nelson, and we look forward to his prophetic address.
 
 ## I.
 
@@ -16,13 +16,13 @@ Children are our most precious gift from God—our eternal increase. Yet we live
 
 ## II.
 
-Latter-day Saint women understand that being a mother is their highest priority, their ultimate joy. President Gordon B. Hinckley said: “Women for the most part see their greatest fulfillment, their greatest happiness in home and family. God planted within women something divine that expresses itself in quiet strength, in refinement, in peace, in goodness, in virtue, in truth, in love. And all of these remarkable qualities find their truest and most satisfying expression in motherhood.”
+Latter-day Saint women understand that being a mother is their highest priority, their ultimate joy. President Gordon B. Hinckley said: “Women for the most part see their greatest fulfillment, their greatest happiness in home and family. God planted within women something divine that expresses itself in quiet strength, in refinement, in peace, in goodness, in virtue, in truth, in love. And all of these remarkable qualities find their truest and most satisfying expression in motherhood.”
 
 He continued: “The greatest job that any woman will ever do will be in nurturing and teaching and living and encouraging and rearing her children in righteousness and truth. There is no other thing that will compare with that, regardless of what she does.”[^2]
 
 Mothers, beloved sisters, we love you for who you are and what you do for all of us.
 
-In his important 2015 address titled “A Plea to My Sisters,” President Russell M. Nelson said:
+In his important 2015 address titled “A Plea to My Sisters,” President Russell M. Nelson said:
 
 “The kingdom of God is not and cannot be complete without women who make sacred covenants and then keep them, women who can speak with the power and authority of God!
 
@@ -40,7 +40,11 @@ Why do you cope best with the difficulties of growing up? Young women, it is bec
 
 Another reason why you are most effective is that you understand that you are children of a Heavenly Father who loves you. I am sure you are familiar with our great hymn “Dearest Children, God Is Near You.” Here is the first verse we all have sung and believed:
 
-Dearest children, God is near you,Watching o’er you day and night,And delights to own and bless you,If you strive to do what’s right.[^5]
+>Dearest children, God is near you,
+>Watching o’er you day and night,
+>And delights to own and bless you,
+>If you strive to do what’s right.[^5]
+>
 
 There are two teachings in that verse: First, our Heavenly Father is near us and watches over us day and night. Think of it! God loves us, He is near to us, and He watches over us. Second, He delights to bless us as we “strive to do what’s right.” What comfort in the midst of our anxieties and difficulties!
 
@@ -60,7 +64,7 @@ When I heard that story, I compared it with what our prophet, President Nelson, 
 
 The youth battalion President Nelson invited you to join will not be *mean* to one another. They will follow the Savior’s teaching to reach out and be loving and considerate of others, even to turn the other cheek when we feel someone has wronged us.
 
-In a general conference address about the time many of you were born, President Gordon B. Hinckley praised “beautiful young women who are striving to live the gospel.” He described them, just as I feel to describe you:
+In a general conference address about the time many of you were born, President Gordon B. Hinckley praised “beautiful young women who are striving to live the gospel.” He described them, just as I feel to describe you:
 
 “They are generous toward one another. They seek to strengthen one another. They are a credit to their parents and the homes from which they come. They are approaching womanhood and will carry throughout their lives the ideals which presently motivate them.”[^8]
 
@@ -71,22 +75,20 @@ My dear sisters, if you participate in any meanness or pettiness—individually 
 
 
 
-[^1]: See Sara Berg, “Nation’s Latest Challenge: Too Few Children,” AMA Wire, June 18, 2018, wire.ama-assn.org.
+[^1]: See Sara Berg, “Nation’s Latest Challenge: Too Few Children,” AMA Wire, June 18, 2018, wire.ama-assn.org.
 
-[^2]: *Teachings of Gordon B. Hinckley* (1997), 387, 390; see also M. Russell Ballard, “[[2010 April - Mothers and Daughters.md|Mothers and Daughters]],” *Ensign* or *Liahona,* May 2010, 18 (in *Daughters in My Kingdom: The History and Work of Relief Society* \[2011\], 156).
+[^2]: *Teachings of Gordon B. Hinckley* (1997), 387, 390; see also M. Russell Ballard, “[[2010 April - Mothers and Daughters.md|Mothers and Daughters]],” *Ensign* or *Liahona,* May 2010, 18 (in *[Daughters in My Kingdom: The History and Work of Relief Society](https://www.churchofjesuschrist.org/study/manual/daughters-in-my-kingdom-the-history-and-work-of-relief-society/guardians-of-the-hearth-establishing-nurturing-and-defending-the-family?lang=eng)* \[2011\], 156).
 
-[^3]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96; see also Russell M. Nelson, “[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign*, May 1995, 33.
+[^3]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96; see also Russell M. Nelson, “[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign*, May 1995, 33.
 
 [^4]: The study was published by the Oxford University Press as Christian Smith and Melinda Lundquist Denton, *Soul Searching: The Religious and Spiritual Lives of American Teenagers* (2005).
 
 [^5]: “Dearest Children, God Is Near You,” *Hymns,* no. 96.
 
-[^6]: See “In Our Opinion: You Don’t Need to Be Captured by Screen Time,” *Deseret News,* Aug. 31, 2018, deseretnews.com.
+[^6]: See “In Our Opinion: You Don’t Need to Be Captured by Screen Time,” *Deseret News,* Aug. 31, 2018, deseretnews.com.
 
-[^7]: Russell M. Nelson, “[Hope of Israel](https://www.lds.org/languages/eng/content/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.lds.org.
+[^7]: Russell M. Nelson, “[Hope of Israel](https://www.lds.org/languages/eng/content/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.lds.org.
 
-[^8]: Gordon B. Hinckley, “[[2006 April - The Need for Greater Kindness.md|The Need for Greater Kindness]],” *Ensign* or *Liahona,* May 2006, 60–61.
+[^8]: Gordon B. Hinckley, “[[2006 April - The Need for Greater Kindness.md|The Need for Greater Kindness]],” *Ensign* or *Liahona,* May 2006, 60–61.
 
-
-
-#Children #Kindness #Motherhood #Parenthood #Plan_Of_Salvation #Technology
+#Children #Kindness #Motherhood #Parenthood #PlanOfSalvation #Technology

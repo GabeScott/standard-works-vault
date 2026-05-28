@@ -28,11 +28,11 @@ Joseph Smith the Prophet was the chosen instrument through which the Restoration
 
 Joseph who was sold into Egypt prophesied of him—he even knew his name and his father’s name.
 
-“For Joseph truly testified, saying: A seer shall the Lord my God raise up. …
+“For Joseph truly testified, saying: A seer shall the Lord my God raise up. …
 
 “Behold, that seer will the Lord bless; …
 
-“And his name shall be called after me; and it shall be after the name of his father. And he shall be like unto me; for the thing, which the Lord shall bring forth by his hand, by the power of the Lord shall bring my people unto salvation.” ([[2 Nephi 3.6|2 Ne. 3:6, 14–15]][[2 Nephi 3.14|]][[2 Nephi 3.15|]].)
+“And his name shall be called after me; and it shall be after the name of his father. And he shall be like unto me; for the thing, which the Lord shall bring forth by his hand, by the power of the Lord shall bring my people unto salvation.” ([[2 Nephi 3.6|2 Ne. 3:6, 14–15]][[2 Nephi 3.14|]][[2 Nephi 3.15|]].)
 
 When the Lord wants to change the world, he doesn’t send armies or use powerful groups.
 
@@ -46,9 +46,9 @@ He was born of noble, God-fearing parents who loved the Lord.
 
 His paternal grandfather, Asael Smith, stated years before Joseph was born (and I quote):
 
-“It has been borne in upon my soul that one of my descendants will promulgate a work to revolutionize the world of religious faith.” (In Joseph Fielding Smith, *Essentials in Church History,* Classics in Mormon Literature, Salt Lake City: Deseret Book Co., 1979, p. 25.)
+“It has been borne in upon my soul that one of my descendants will promulgate a work to revolutionize the world of religious faith.” (In Joseph Fielding Smith, *Essentials in Church History,* Classics in Mormon Literature, Salt Lake City: Deseret Book Co., 1979, p. 25.)
 
-Joseph Smith said: “Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was. I suppose I was ordained to this very office in that Grand Council.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 365.)
+Joseph Smith said: “Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was. I suppose I was ordained to this very office in that Grand Council.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 365.)
 
 I testify to you he *was* and he *is* a prophet of God and did restore the gospel of Jesus Christ in our day, together with the power and keys of authority to administer therein.
 
@@ -100,11 +100,11 @@ Following the dedication of this first temple, which was a glorious occasion, th
 
 “His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, even the voice of Jehovah, saying:
 
-“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father. …
+“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father. …
 
 “Let the hearts of your brethren rejoice, and let the hearts of all my people rejoice, who have, with their might, built this house to my name.
 
-“For behold, I have accepted this house, and my name shall be here; and I will manifest myself to my people in mercy in this house. …
+“For behold, I have accepted this house, and my name shall be here; and I will manifest myself to my people in mercy in this house. …
 
 “And the fame of this house shall spread to foreign lands; and this is the beginning of the blessing which shall be poured out upon the heads of my people. Even so. Amen.” ([[D&C 110.1|D&C 110:1–4, 6–7, 10]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.10|]].)
 
@@ -133,6 +133,4 @@ Of this I testify, in the name of Jesus Christ, the Lord, amen.
 
 
 
-
-
-#Joseph_Smith #Restoration
+#JosephSmith #Restoration

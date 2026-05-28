@@ -1,6 +1,6 @@
 # Share the Unsearchable Riches of Christ
 
-By President Rex D. Pinegar - *Of the First Council of the Seventy*
+By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -10,7 +10,7 @@ My dear brothers and sisters: It is a great privilege to be here with you on thi
 
 The blessing of sharing the gospel message is overwhelming. I am often filled with the feelings I think Paul may have had when he wrote to the saints at Ephesus, regarding his call to serve the Lord:
 
-“Whereof I was made a minister, according to the gift of the grace of God given unto me …
+“Whereof I was made a minister, according to the gift of the grace of God given unto me …
 
 “Unto me, who am less than the least of all saints, is this grace given, that I should preach among the Gentiles the unsearchable riches of Christ;
 
@@ -26,7 +26,7 @@ The Lord has spoken clearly regarding this sacred responsibility and the condemn
 
 “And this revelation unto you, and commandment, is in force from this very hour upon all the world, and the gospel is unto all who have not received it.
 
-“But, verily I say unto all those to whom the kingdom has been given—from you it must be preached unto them. …” ([[D&C 84.75|D&C 84:75–76]][[D&C 84.76|]].)
+“But, verily I say unto all those to whom the kingdom has been given—from you it must be preached unto them. …” ([[D&C 84.75|D&C 84:75–76]][[D&C 84.76|]].)
 
 Joseph Smith has said that the greatest and most important duty we have is to teach others the gospel. He declared the same thing about doing the work for the dead. Each of these activities makes available to others the blessings of membership in the kingdom of God.
 
@@ -78,13 +78,11 @@ We invite all men everywhere to join with us that we might receive the blessing 
 
 “Now unto him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us,
 
-“Unto him be glory in the church by Christ Jesus throughout all ages, world without end. …” ([[Ephesians 3.16|Eph. 3:16–21]][[Ephesians 3.17|]][[Ephesians 3.18|]][[Ephesians 3.19|]][[Ephesians 3.20|]][[Ephesians 3.21|]].)
+“Unto him be glory in the church by Christ Jesus throughout all ages, world without end. …” ([[Ephesians 3.16|Eph. 3:16–21]][[Ephesians 3.17|]][[Ephesians 3.18|]][[Ephesians 3.19|]][[Ephesians 3.20|]][[Ephesians 3.21|]].)
 
-I solemnly declare my witness to you that Jesus is the Christ, that this is his church, and that President Harold B. Lee is his anointed prophet and seer today, in the name of Jesus Christ. Amen.
-
-
+I solemnly declare my witness to you that Jesus is the Christ, that this is his church, and that President Harold B. Lee is his anointed prophet and seer today, in the name of Jesus Christ. Amen.
 
 
 
 
-#Missionary_Work
+#MissionaryWork

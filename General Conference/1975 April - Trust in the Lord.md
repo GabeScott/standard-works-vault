@@ -1,6 +1,6 @@
 # Trust in the Lord
 
-By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 The motivation for my preparation this morning came from a recent brief excursion through the pages of the day’s newspapers. There, mingled with the ordinary reports of trouble, were several heart-warming accounts of human concern and unselfishness: a high school group giving hard-earned vacation money to an ill classmate; two workmen suffering serious injury to save the life of a colleague; blood donations oversubscribed for a stricken mother; a noble young follower of Christ giving his life attempting to rescue a companion.
 
-These particular events were reported because they were exceptional. The news media, like history, often emphasizes that which is unusual or sensational. But it was a historian who reminded us that “history as usually written is quite different from history as usually lived. …” If the whole story were told, “we should have a duller but juster view of the past and of man.” Behind what he called “the red facade of war and politics, misfortune and poverty, adultery and divorce, murder and suicide, were millions of orderly homes, devoted marriages,” strong, loving families, and inspiring examples of goodness, courage, and kindness. In our own communities—in our own neighborhoods there are many such instances, unsung and unreported.
+These particular events were reported because they were exceptional. The news media, like history, often emphasizes that which is unusual or sensational. But it was a historian who reminded us that “history as usually written is quite different from history as usually lived. …” If the whole story were told, “we should have a duller but juster view of the past and of man.” Behind what he called “the red facade of war and politics, misfortune and poverty, adultery and divorce, murder and suicide, were millions of orderly homes, devoted marriages,” strong, loving families, and inspiring examples of goodness, courage, and kindness. In our own communities—in our own neighborhoods there are many such instances, unsung and unreported.
 
 An invalid quietly suffers through weeks and months, through recurring birthdays, with vital energy limited, and still radiates confidence in the love and purposes of God, lifts those who come to lift, helps those who come to help, and brings joy and light to the world around her.
 
@@ -20,7 +20,7 @@ What motivates people to unselfish, courageous actions? Are there wellsprings of
 
 The scriptures answer:
 
-“I say unto you that whatsoever is good cometh from God. …
+“I say unto you that whatsoever is good cometh from God. …
 
 “If a man bringeth forth good works he hearkeneth unto the voice of the good shepherd, and he doth follow him.” ([[Alma 5.40|Alma 5:40–41]][[Alma 5.41|]].)
 
@@ -32,7 +32,7 @@ Christ came that men might have life abundant and life eternal, and he declared 
 
 And that knowledge, I testify, is the most important treasure one can possess or seek. From Hosea comes the word of the Lord:
 
-“The Lord hath a controversy with the inhabitants of the land, because there is no truth, nor mercy, nor knowledge of God in the land. …
+“The Lord hath a controversy with the inhabitants of the land, because there is no truth, nor mercy, nor knowledge of God in the land. …
 
 “For I desired mercy, and not sacrifice; and the knowledge of God more than burnt offerings.” ([[Hosea 4.1|Hosea 4:1]]; [[Hosea 6.6|6:6]].)
 
@@ -81,8 +81,6 @@ Habakkuk declared:
 “The Lord God is my strength, and he will make my feet … to walk upon mine high places.” ([[Habakkuk 3.17|Hab. 3:17–19]][[Habakkuk 3.18|]][[Habakkuk 3.19|]].)
 
 Our religion is “not weight, it is wings.” It can carry us through the dark times, the bitter cup. It will be with us in the fiery furnace and the deep pit. It will accompany us to the hospital room and to the place of bereavement. It can guarantee us the presence of a Captain on the rough voyage. It is, in short, not the path to easy disposition of problems, but the comforting assurance of the eternal light, by which we may see, and the eternal warmth, which we may feel. “The Lord is good: Blessed is the man that trusteth in him.” ([[Psalms 34.8|Ps. 34:8]].) In the name of Jesus Christ. Amen.
-
-
 
 
 

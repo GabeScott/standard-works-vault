@@ -1,6 +1,6 @@
 # Obedience to Law Is Liberty
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -8,7 +8,7 @@ By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/04/obedience-to-law-is-liberty?lang=eng)
 
-I received a special gift last Christmas that brought with it many memories. My niece gave it to me. It had been among the things I had left in our old family home when I moved out after I was married. The gift was this little brown book I hold in my hand. It is a book that was given to LDS servicemen who entered the armed forces during World War II. I personally viewed the book as a gift from President Heber J. Grant and his counselors, J. Reuben Clark Jr. and David O. McKay.
+I received a special gift last Christmas that brought with it many memories. My niece gave it to me. It had been among the things I had left in our old family home when I moved out after I was married. The gift was this little brown book I hold in my hand. It is a book that was given to LDS servicemen who entered the armed forces during World War II. I personally viewed the book as a gift from President Heber J. Grant and his counselors, J. Reuben Clark Jr. and David O. McKay.
 
 In the front of the book, these three prophets of God wrote: “The incidents of the armed service do not permit our keeping in constant personal touch with you, either directly or by personal representation. Our next best course is to put in your hands such portions of modern revelation and of explanations of the principles of the Gospel as shall bring to you, wherever you may be, renewed hope and faith, as likewise comfort, consolation, and peace of spirit.”[^1]
 
@@ -22,11 +22,11 @@ The final words of the note focus on obedience to God’s law: “If you wish to
 
 Why did the phrase “obedience to law is liberty” ring so true to me at the time? Why does it ring true to all of us now?
 
-Perhaps it is because we have a revealed knowledge of our premortal history. We recognize that when God the Eternal Father presented His plan to us at the beginning of time, Satan wanted to alter the plan. He said he would redeem all mankind. Not one soul would be lost, and Satan was confident he could deliver on his proposal. But there was an unacceptable cost—the destruction of man’s agency, which was and is a gift given by God (see [[Moses 4.1|Moses 4:1–3]][[Moses 4.2|]][[Moses 4.3|]]). About this gift, President Harold B. Lee said, “Next to life itself, free agency is God’s greatest gift to mankind.”[^3] Then it was no small thing for Satan to disregard man’s agency. In fact, it became the principal issue over which the War in Heaven was fought. Victory in the War in Heaven was a victory for man’s agency.
+Perhaps it is because we have a revealed knowledge of our premortal history. We recognize that when God the Eternal Father presented His plan to us at the beginning of time, Satan wanted to alter the plan. He said he would redeem all mankind. Not one soul would be lost, and Satan was confident he could deliver on his proposal. But there was an unacceptable cost—the destruction of man’s agency, which was and is a gift given by God (see [[Moses 4.1|Moses 4:1–3]][[Moses 4.2|]][[Moses 4.3|]]). About this gift, President Harold B. Lee said, “Next to life itself, free agency is God’s greatest gift to mankind.”[^3] Then it was no small thing for Satan to disregard man’s agency. In fact, it became the principal issue over which the War in Heaven was fought. Victory in the War in Heaven was a victory for man’s agency.
 
-Satan, however, was not done. His backup plan—the plan he has been executing since the time of Adam and Eve—was to tempt men and women, essentially to prove we are undeserving of the God-given gift of agency. Satan has many reasons for doing what he does. Perhaps the most powerful is the motive of revenge, but he also wants to make men and women miserable like he is miserable. None of us should ever underestimate how driven Satan is to succeed. His role in God’s eternal plan creates “opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]) and tests our agency. Each choice you and I make is a test of our agency—whether we choose to be obedient or disobedient to the commandments of God is actually a choice between “liberty and eternal life” and “captivity and death.”
+Satan, however, was not done. His backup plan—the plan he has been executing since the time of Adam and Eve—was to tempt men and women, essentially to prove we are undeserving of the God-given gift of agency. Satan has many reasons for doing what he does. Perhaps the most powerful is the motive of revenge, but he also wants to make men and women miserable like he is miserable. None of us should ever underestimate how driven Satan is to succeed. His role in God’s eternal plan creates “opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]) and tests our agency. Each choice you and I make is a test of our agency—whether we choose to be obedient or disobedient to the commandments of God is actually a choice between “liberty and eternal life” and “captivity and death.”
 
-This fundamental doctrine is clearly taught in 2 Nephi, the second chapter: “Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]).
+This fundamental doctrine is clearly taught in 2 Nephi, the second chapter: “Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]).
 
 In many respects, this world has always been at war. I believe that when the First Presidency sent me my little brown book, they were more concerned about a greater war than World War II. I also believe they hoped the book would be a shield of faith against Satan and his armies in this greater war—the war against sin—and serve as a reminder to me to live the commandments of God.
 
@@ -52,7 +52,7 @@ Prophets from all dispensations have consistently warned against violations of t
 
 The main effects of these depreciating attitudes about the sanctity of marriage are the consequences to families—the strength of families is deteriorating at an alarming rate. This deterioration is causing widespread damage to society. I see direct cause and effect. As we give up commitment and fidelity to our marriage partners, we remove the glue that holds our society together.
 
-A useful way to think about the commandments is they are loving counsel from a wise, all-knowing Heavenly Father. His goal is our eternal happiness, and His commandments are the road map He has given us to return to Him, which is the only way we will be eternally happy. How significant are the home and the family to our eternal happiness? On page 141 of my little brown book, it states, “Indeed our heaven is little more than a projection of our homes into eternity.”[^4]
+A useful way to think about the commandments is they are loving counsel from a wise, all-knowing Heavenly Father. His goal is our eternal happiness, and His commandments are the road map He has given us to return to Him, which is the only way we will be eternally happy. How significant are the home and the family to our eternal happiness? On page 141 of my little brown book, it states, “Indeed our heaven is little more than a projection of our homes into eternity.”[^4]
 
 The doctrine of the family and the home was recently reiterated with great clarity and forcefulness in “The Family: A Proclamation to the World.” It declared the eternal nature of families and then explained the connection to temple worship. The proclamation also declared the law upon which the eternal happiness of families is predicated, namely, “The sacred powers of procreation are to be employed only between man and woman, lawfully wedded as husband and wife.”[^5]
 
@@ -79,12 +79,10 @@ May we ever be a light on the hill, an example in keeping the commandments, whic
 
 [^2]: *Principles of the Gospel,* v, vii, viii.
 
-[^3]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 4.
+[^3]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 4.
 
 [^4]: Stephen L Richards, in *Principles of the Gospel,* 141.
 
 [^5]: “The Family: A Proclamation to the World,” *Ensign* or *Liahona,* Nov. 2010, 129.
-
-
 
 #Agency #Commandments #Obedience

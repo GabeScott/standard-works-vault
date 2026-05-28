@@ -69,6 +69,4 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-#Adversity #Jesus_Christ #Obedience #Plan_Of_Salvation
+#Adversity #JesusChrist #Obedience #PlanOfSalvation

@@ -1,6 +1,6 @@
 # To Heal the World
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -36,17 +36,17 @@ The Prophet Joseph Smith also stated:
 
 “It is a love of liberty \[that\] inspires my soul—civil and religious liberty to the whole of the human race.”[^5]
 
-Still, early Church members were attacked and driven thousands of miles, from New York to Ohio to Missouri, where the governor issued an order that members of the Church “must be treated as enemies and must be exterminated or driven from the state.”[^6] They fled to Illinois, but the torment continued. A mob murdered the Prophet Joseph, thinking that killing him would destroy the Church and scatter the believers. But the faithful held firm. Joseph’s successor, Brigham Young, led thousands in a forced exodus 1,300 miles (2,100 km) west to what is now the state of Utah.[^7] My own ancestors were amongst those early pioneer settlers.
+Still, early Church members were attacked and driven thousands of miles, from New York to Ohio to Missouri, where the governor issued an order that members of the Church “must be treated as enemies and must be exterminated or driven from the state.”[^6] They fled to Illinois, but the torment continued. A mob murdered the Prophet Joseph, thinking that killing him would destroy the Church and scatter the believers. But the faithful held firm. Joseph’s successor, Brigham Young, led thousands in a forced exodus 1,300 miles (2,100 km) west to what is now the state of Utah.[^7] My own ancestors were amongst those early pioneer settlers.
 
 From those days of intense persecution, the Lord’s Church has grown steadily to nearly 17 million members, with well over half living outside the United States.[^8]
 
 In April 2020 our Church celebrated the 200th anniversary of the Restoration of the gospel with a proclamation to the world, prepared by our First Presidency and Quorum of the Twelve Apostles. It begins, “We solemnly proclaim that God loves His children in every nation of the world.”[^9]
 
-Our beloved prophet, Russell M. Nelson, has further expressed:
+Our beloved prophet, Russell M. Nelson, has further expressed:
 
 “We believe in freedom, kindness, and fairness for all of God’s children.
 
-“We are all brothers and sisters, each one a child of a loving Father in Heaven. His Son, the Lord Jesus Christ, invites all to come to Him, ‘black and white, bond and free, male and female’ ([[2 Nephi 26.33|2 Nephi 26:33]]).”[^10]
+“We are all brothers and sisters, each one a child of a loving Father in Heaven. His Son, the Lord Jesus Christ, invites all to come to Him, ‘black and white, bond and free, male and female’ ([[2 Nephi 26.33|2 Nephi 26:33]]).”[^10]
 
 Consider with me four ways that society and individuals benefit from religious freedom.
 
@@ -96,12 +96,12 @@ I invite you to champion the cause of religious freedom. It is an expression of 
 
 Religious freedom brings balance to competing philosophies. The good of religion, its reach, and the daily acts of love which religion inspires only multiply when we protect the freedom to express and act on core beliefs.
 
-I witness that Russell M. Nelson is God’s living prophet. I testify that Jesus Christ leads and guides this Church. He atoned for our sins, was crucified on a cross, and was resurrected on the third day.[^28] Because of Him, we can live again for all eternity; and those who so desire can be with our Father in Heaven. This truth I proclaim to all the world. I am grateful for the freedom to do so. In the name of Jesus Christ, amen.
+I witness that Russell M. Nelson is God’s living prophet. I testify that Jesus Christ leads and guides this Church. He atoned for our sins, was crucified on a cross, and was resurrected on the third day.[^28] Because of Him, we can live again for all eternity; and those who so desire can be with our Father in Heaven. This truth I proclaim to all the world. I am grateful for the freedom to do so. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[Mormon 8.29|Mormon 8:29–31]][[Mormon 8.30|]][[Mormon 8.31|]]; see also [[2 Timothy 3.1|2 Timothy 3:1–7, 12–13]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]][[2 Timothy 3.12|]][[2 Timothy 3.13|]]; [[D&C 45.26|Doctrine and Covenants 45:26–27]][[D&C 45.27|]].
+[^1]: [[Mormon 8.29|Mormon 8:29–31]][[Mormon 8.30|]][[Mormon 8.31|]]; see also [[2 Timothy 3.1|2 Timothy 3:1–7, 12–13]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]][[2 Timothy 3.12|]][[2 Timothy 3.13|]]; [[D&C 45.26|Doctrine and Covenants 45:26–27]][[D&C 45.27|]].
 
 [^2]: [[D&C 87.6|Doctrine and Covenants 87:6]].
 
@@ -109,17 +109,17 @@ I witness that Russell M. Nelson is God’s living prophet. I testify that Jesu
 
 [^4]: [[Articles of Faith 1.11|Articles of Faith 1:11]].
 
-[^5]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-29?lang=eng&id=p35#p35) (2007), 345.
+[^5]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-29?lang=eng&id=p35#p35) (2007), 345.
 
-[^6]: Lilburn W. Boggs letter to John B. Clark, Oct. 27, 1838, Mormon War Papers, Missouri State Archives, Jefferson City, Missouri, sos.mo.gov/archives/resources/Mormon.
+[^6]: Lilburn W. Boggs letter to John B. Clark, Oct. 27, 1838, Mormon War Papers, Missouri State Archives, Jefferson City, Missouri, sos.mo.gov/archives/resources/Mormon.
 
-[^7]: See *Saints: The Story of the Church of Jesus Christ in the Latter Days*, vol. 2, [No Unhallowed Hand, 1846–1893](https://churchofjesuschrist.org/study/history/saints-v2/part-1/01-gather-up-a-company?lang=eng) (2020), 3–68.
+[^7]: See *Saints: The Story of the Church of Jesus Christ in the Latter Days*, vol. 2, [No Unhallowed Hand, 1846–1893](https://www.churchofjesuschrist.org/study/history/saints-v2/part-1/01-gather-up-a-company?lang=eng) (2020), 3–68.
 
 [^8]: Member and Statistical Records Department figures for 2021 year-end: 16.8 million total members; US and Canada: 7 million members; outside the US and Canada: 9.8 million members.
 
-[^9]: “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” ChurchofJesusChrist.org; read by President Russell M. Nelson as part of his Sunday morning message at the 190th Annual General Conference, Apr. 5, 2020.
+[^9]: “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” ChurchofJesusChrist.org; read by President Russell M. Nelson as part of his Sunday morning message at the 190th Annual General Conference, Apr. 5, 2020.
 
-[^10]: Russell M. Nelson, “[Jesus Said Love Everyone](https://churchofjesuschrist.org/study/friend/2021/04/love-for-all-of-gods-children?lang=eng),” *Friend*, Apr. 2021, 2.
+[^10]: Russell M. Nelson, “[Jesus Said Love Everyone](https://www.churchofjesuschrist.org/study/friend/2021/04/love-for-all-of-gods-children?lang=eng),” *Friend*, Apr. 2021, 2.
 
 [^11]: [[Matthew 22.37|Matthew 22:37]].
 
@@ -139,11 +139,11 @@ I witness that Russell M. Nelson is God’s living prophet. I testify that Jesu
 
 [^19]: [[Acts 10.38|Acts 10:38]].
 
-[^20]: See Mary Richards, “How the Church Is Helping with Humanitarian Aid in Eastern Europe,” *Church News*, Mar. 3, 2022, thechurchnews.com.
+[^20]: See Mary Richards, “How the Church Is Helping with Humanitarian Aid in Eastern Europe,” *Church News*, Mar. 3, 2022, thechurchnews.com.
 
-[^21]: See Sarah Ferguson, “Wild Polio Eliminated in Africa: A Giant Step Closer to Eradication,” UNICEF, Oct. 22, 2020, unicefusa.org.
+[^21]: See Sarah Ferguson, “Wild Polio Eliminated in Africa: A Giant Step Closer to Eradication,” UNICEF, Oct. 22, 2020, unicefusa.org.
 
-[^22]: See Peggy Fletcher Stack, “LDS Church Kicks In $20M toward Global COVID Vaccination Push,” *Salt Lake Tribune*, Feb. 26, 2021, sltrib.com.
+[^22]: See Peggy Fletcher Stack, “LDS Church Kicks In $20M toward Global COVID Vaccination Push,” *Salt Lake Tribune*, Feb. 26, 2021, sltrib.com.
 
 [^23]: [[Luke 7.13|Luke 7:13]].
 
@@ -155,8 +155,6 @@ I witness that Russell M. Nelson is God’s living prophet. I testify that Jesu
 
 [^27]: [[Luke 10.37|Luke 10:37]].
 
-[^28]: See [[1 Corinthians 15.4|1 Corinthians 15:4]].
+[^28]: See [[1 Corinthians 15.4|1 Corinthians 15:4]].
 
-
-
-#Healing #Humanitarian_Aid #Jesus_Christ #Joseph_Smith #Religious_Freedom #Service
+#Healing #HumanitarianAid #JosephSmith #JesusChrist #ReligiousFreedom #Service

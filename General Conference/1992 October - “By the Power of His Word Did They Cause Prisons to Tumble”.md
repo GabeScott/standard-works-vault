@@ -20,7 +20,7 @@ I remember how I felt forty-one years ago when I was taken from a train in Europ
 
 I then was led to think of Him who really delivers us from various types of prisons into forgiveness, a newness of life, of spirit, of change, and of opportunity, and how the souls of men find such relief, fulfillment, and safety when this occurs. I thought of the Son of God and His greatest freewill offering to each of us, given at the expense of His own life and under excruciating pain. I thought of how our Father in Heaven loves each one of us. And though we sometimes walk into prisons of our own making, He is there with keys to unlock the doors that bind us. I thought of those who help along the way, who share in turning those keys which deliver others, and who care so deeply sometimes that they rebuild the trust of others—like the two men of God in the novels helped to free Jean Valjean and Bob Merrick from their prisons into magnificent new freedoms promised by the Lord.
 
-As difficult as a physical captivity or prison is, there are other captivities or prisons even more devastating. They are very subtle and take various forms in life, like (1) taking advantage of another; (2) bearing false witness to get gain; (3) knowing things to be true and not defending them; (4) stealing the morality of another; (5) destroying the innocence of a little child; (6) being captive to alcohol or drugs; or (7) financially digging a pit for another, causing hardship and destroying his ability to take care of his needs and so on. There are many prisons which come from our sins or the sins of others “according to the captivity and power of the devil” ([[2 Nephi 2.27|2 Ne. 2:27]]), who leads us away.
+As difficult as a physical captivity or prison is, there are other captivities or prisons even more devastating. They are very subtle and take various forms in life, like (1) taking advantage of another; (2) bearing false witness to get gain; (3) knowing things to be true and not defending them; (4) stealing the morality of another; (5) destroying the innocence of a little child; (6) being captive to alcohol or drugs; or (7) financially digging a pit for another, causing hardship and destroying his ability to take care of his needs and so on. There are many prisons which come from our sins or the sins of others “according to the captivity and power of the devil” ([[2 Nephi 2.27|2 Ne. 2:27]]), who leads us away.
 
 Let me take an example to illustrate the point of these prisons. The prophet Job counseled us not to “dig a pit for your friend” ([[Job 6.27|Job 6:27]]). I understand that could mean a business associate, a neighbor, a member of the Church. How could this happen?
 
@@ -32,7 +32,7 @@ Did not the Savior teach through the prophet Moses, “If a man shall cause a fi
 
 These types of prisons often cause the offended to lose faith, hope, and even the ability to care for their own, as was the case with my young friend. But these prisons should not happen. They often cause years of anguish. They cause those involved to wonder about justice and mercy. Sometimes these people find it impossible to resolve their own personal affairs honorably.
 
-The lessons taught by the Savior differ widely from these actions. For He taught, in effect, Do unto others as ye would have them do unto you (see [[Matthew 7.12|Matt. 7:12]]; [[3 Nephi 14.12|3 Ne. 14:12]]). He taught, “Behold it is my will that you shall pay all your debts” ([[D&C 104.78|D&C 104:78]]). Yes, even if it takes years, pay your debts.
+The lessons taught by the Savior differ widely from these actions. For He taught, in effect, Do unto others as ye would have them do unto you (see [[Matthew 7.12|Matt. 7:12]]; [[3 Nephi 14.12|3 Ne. 14:12]]). He taught, “Behold it is my will that you shall pay all your debts” ([[D&C 104.78|D&C 104:78]]). Yes, even if it takes years, pay your debts.
 
 No Christian should ever be a challenge to another Christian. Many widows, single mothers, and older couples are victimized by those who take advantage of them, who do not honor their commitments and then put them into a type of prison. Those affected find themselves pleading for someone to open their prison doors, often while babies cry for bare necessities.
 
@@ -54,13 +54,11 @@ We know it works, for listen to the words which record what happened to the Sain
 
 “… And there were no contentions and disputations among them, and every man *did deal justly* one with another.
 
-“And they had all things common among them; therefore there were not rich and poor, bond and free, but they *were all made free.* …
+“And they had all things common among them; therefore there were not rich and poor, bond and free, but they *were all made free.* …
 
-“And surely there could not be a *happier people* among all the people who had been created by the hand of God” ([[4 Nephi 1.1|4 Ne. 1:1–3, 16]][[4 Nephi 1.2|]][[4 Nephi 1.3|]][[4 Nephi 1.16|]]; emphasis added).
+“And surely there could not be a *happier people* among all the people who had been created by the hand of God” ([[4 Nephi 1.1|4 Ne. 1:1–3, 16]][[4 Nephi 1.2|]][[4 Nephi 1.3|]][[4 Nephi 1.16|]]; emphasis added).
 
 Yes, “by the power of his word did they cause prisons to tumble” ([[Mormon 8.24|Morm. 8:24]]). May we live our lives so we will all be free with no prisons for ourselves or others, only a magnificent obsession filled with freedoms and blessings ahead, in the name of Jesus Christ, amen.
-
-
 
 
 

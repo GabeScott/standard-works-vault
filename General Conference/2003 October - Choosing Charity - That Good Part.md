@@ -42,7 +42,7 @@ The story of Mary and Martha also illustrates how the gift of charity can be dim
 
 Do we judge one another? Do we criticize each other for individual choices, thinking we know better, when in fact we rarely understand another’s unique circumstance or individual inspiration? Have we ever said, “She works outside the home.” Or, “Her son didn’t serve a mission.” Or, “She’s too old for a calling.” Or, “She can’t—she’s single.” Such judgments, and so many others like them, rob us of the good part, that pure love of Christ.
 
-We also lose sight of that good part when we compare ourselves to others. Her hair is cuter, my legs are fatter, her children are more talented, or her garden’s more productive—sisters, you know the drill. We just can’t do that. We cannot allow ourselves to feel inadequate by focusing on who we *aren’t* instead of on who we are! We are *all* sisters in Relief Society. We simply cannot criticize, gossip, or judge *and* keep the pure love of Christ. Can’t you hear the Lord’s sweet injunction: “Martha, Martha … ?”
+We also lose sight of that good part when we compare ourselves to others. Her hair is cuter, my legs are fatter, her children are more talented, or her garden’s more productive—sisters, you know the drill. We just can’t do that. We cannot allow ourselves to feel inadequate by focusing on who we *aren’t* instead of on who we are! We are *all* sisters in Relief Society. We simply cannot criticize, gossip, or judge *and* keep the pure love of Christ. Can’t you hear the Lord’s sweet injunction: “Martha, Martha … ?”
 
 Elder Marvin J. Ashton beautifully observed: “Perhaps the greatest charity comes when we are kind to each other, when we don’t judge or categorize someone else, when we simply give each other the benefit of the doubt or remain quiet. Charity is accepting someone’s differences, weaknesses, and shortcomings; having patience with someone who has let us down; or resisting the impulse to become offended when someone doesn’t handle something the way we might have hoped. Charity is refusing to take advantage of another’s weakness and being willing to forgive someone who has hurt us. Charity is expecting the best of each other.”[^14]
 
@@ -83,7 +83,7 @@ For this I pray, in the name of Jesus Christ, amen.
 
 [^8]: [[Luke 10.41|Luke 10:41–42]][[Luke 10.42|]].
 
-[^9]: [[2 Nephi 2.28|2 Nephi 2:28]].
+[^9]: [[2 Nephi 2.28|2 Nephi 2:28]].
 
 [^10]: [[Moroni 7.47|Moro. 7:47]].
 
@@ -97,10 +97,8 @@ For this I pray, in the name of Jesus Christ, amen.
 
 [^15]: [[Moroni 7.46|Moro. 7:46]].
 
-[^16]: [[1 John 4.19|1 John 4:19]].
+[^16]: [[1 John 4.19|1 John 4:19]].
 
 [^17]: [[Moroni 7.48|Moro. 7:48]]; emphasis added.
-
-
 
 #Agency #Charity #Judging #Love #Service

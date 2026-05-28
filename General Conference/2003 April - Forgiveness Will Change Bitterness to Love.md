@@ -55,7 +55,7 @@ May the seeds of unforgivingness that haunted my neighbors never be allowed to t
 
 [^1]: [[Matthew 5.25|Matthew 5:25]].
 
-[^2]: As reported in Marion D. Hanks, in Conference Report, Oct. 1973, 16; or *Ensign,* Jan. 1974, 21.
+[^2]: As reported in Marion D. Hanks, in Conference Report, Oct. 1973, [[1973 October - Forgiveness - The Ultimate Form of Love.md|16]]; or *Ensign,* Jan. 1974, 21.
 
 [^3]: [[Genesis 45.4|Genesis 45:4–5, 7–8]][[Genesis 45.5|]][[Genesis 45.7|]][[Genesis 45.8|]].
 
@@ -64,7 +64,5 @@ May the seeds of unforgivingness that haunted my neighbors never be allowed to t
 [^5]: [[D&C 64.9|D&C 64:9]].
 
 [^6]: [[Colossians 3.13|Colossians 3:13]].
-
-
 
 #Anger #Criticism #Family #Forgiveness #Love

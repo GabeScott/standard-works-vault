@@ -1,6 +1,5 @@
 # Sons and Daughters of God
 
-
 *See also* [[Adoption.md|Adoption]]; [[Children.md|Children]]; [[Children of Light.md|Children of Light]]
 
 *sons* of God saw the *daughters* of men, [[Genesis 6.2|Genesis 6:2]].
@@ -9,9 +8,9 @@
 
 all the *sons* of God shouted for joy, [[Job 38.7|Job 38:7]] ([[D&C 128.23|D&C 128:23]]).
 
-Ye are gods ... *children* of the most High, [[Psalms 82.6|Psalms 82:6]].
+Ye are gods … *children* of the most High, [[Psalms 82.6|Psalms 82:6]].
 
-saith the Lord ... Ask me ... concerning my *sons*, [[Isaiah 45.11|Isaiah 45:11]].
+saith the Lord … Ask me … concerning my *sons*, [[Isaiah 45.11|Isaiah 45:11]].
 
 Ye are the *sons* of the living God, [[Hosea 1.10|Hosea 1:10]].
 
@@ -29,7 +28,7 @@ thou art no more a servant, but a *son*, [[Galatians 4.7|Galatians 4:7]].
 
 blameless and harmless, the *sons* of God, [[Philippians 2.15|Philippians 2:15]].
 
-God dealeth with you as with *sons*, [[Hebrews 12.7|Hebrews 12:7]] ([[Hebrews 12.5|12:5-9]][[Hebrews 12.6|]][[Hebrews 12.7|]][[Hebrews 12.8|]][[Hebrews 12.9|]]).
+God dealeth with you as with *sons*, [[Hebrews 12.7|Hebrews 12:7]].
 
 now are we the *sons* of God, [[1 John 3.2|1 John 3:2]].
 
@@ -60,5 +59,3 @@ thus may all become my *sons*, [[Moses 6.68|Moses 6:68]].
 many have believed and become the *sons* of God, [[Moses 7.1|Moses 7:1]].
 
 gave heed, and they were called the *sons* of God, [[Moses 8.13|Moses 8:13]].
-
-*See also* [[Deuteronomy 14.1|Deuteronomy 14:1]]; [[Isaiah 53.10|Isaiah 53:10]]; [[Matthew 5.9|Matthew 5:9]], [[Matthew 5.45|Matthew 5:45]]; [[Luke 20.36|Luke 20:36]]; [[John 11.52|John 11:52]]; [[Romans 9.8|Romans 9:8]], [[Romans 9.26|Romans 9:26]]; [[Galatians 3.26|Galatians 3:26]]; [[Ephesians 2.19|Ephesians 2:19]]; [[1 John 5.2|1 John 5:2]]; [[Mosiah 15.13|Mosiah 15:13]]; [[D&C 46.26|D&C 46:26]]; [[D&C 50.41|D&C 50:41]]; [[D&C 58.17|D&C 58:17]]; [[D&C 138.39|D&C 138:39]]; [[Moses 6.8|Moses 6:8]].

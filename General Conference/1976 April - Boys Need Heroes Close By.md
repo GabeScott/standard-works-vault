@@ -1,6 +1,6 @@
 # Boys Need Heroes Close By
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -87,17 +87,15 @@ Do you know of someone who has been convicted of a felony? If so, he should get 
 
 The youth of the Church should realize that they do not need to be old men, long experienced, to receive the blessings of the Church. Joseph Smith was only 14 when he had the Vision, 25 when the Church was organized, 18 when he met Moroni, 24 when he got the plates, and 39 when he was martyred.
 
-Thomas B. Marsh was 31, David W. Patten 30, about the time they became apostles. These were all young men, so to speak.
+Thomas B. Marsh was 31, David W. Patten 30, about the time they became apostles. These were all young men, so to speak.
 
-Brigham Young was 28, Heber C. Kimball 28, Orson Hyde only 25, William E. McLellin 24, Parley P. Pratt 23, Luke Johnson 22, William Smith 19, Orson Pratt 18, John F. Boynton 18, and Lyman E. Johnson 18, when the Church was organized on April 6, 1830. And these men, many of them, were of the apostleship in 1835 when the Council of the Twelve was organized. All were still young men when they were deprived of Joseph.
+Brigham Young was 28, Heber C. Kimball 28, Orson Hyde only 25, William E. McLellin 24, Parley P. Pratt 23, Luke Johnson 22, William Smith 19, Orson Pratt 18, John F. Boynton 18, and Lyman E. Johnson 18, when the Church was organized on April 6, 1830. And these men, many of them, were of the apostleship in 1835 when the Council of the Twelve was organized. All were still young men when they were deprived of Joseph.
 
 They were able to inspire boys. They became great missionaries. You young boys need not wait to be great. You can be superior missionaries, strong young men, great companions, and happy, trusted Church leaders. You need not wait until tomorrow.
 
 The Lord bless you as you grow year by year to receive the inspiration of the Lord to be able to pass on the glorious blessings of the gospel.
 
 And this, my dear beloved brethren, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

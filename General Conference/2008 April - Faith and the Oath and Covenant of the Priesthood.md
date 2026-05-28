@@ -56,11 +56,11 @@ And with that promise the Lord has honored you by saying of you, “Ye are they 
 
 There is another wonderful blessing that will encourage you as you keep your priesthood covenants. Priesthood service will prepare you for living in eternal families. It will change your feelings about what it means to be a husband or a father or a son or a brother. That change in your heart will come as you feel your faith grow and the promise of eternal life through the Melchizedek Priesthood becomes real to you.
 
-That happened to Parley P. Pratt when the Prophet Joseph Smith first taught him the doctrine of eternal families. Parley P. Pratt wrote:
+That happened to Parley P. Pratt when the Prophet Joseph Smith first taught him the doctrine of eternal families. Parley P. Pratt wrote:
 
-“It was at this time that I received from him the first idea of eternal family organization, and the eternal union of the sexes in those inexpressibly endearing relationships which none but the highly intellectual, the refined and pure in heart, know how to prize, and which are at the very foundation of everything worthy to be called happiness. …
+“It was at this time that I received from him the first idea of eternal family organization, and the eternal union of the sexes in those inexpressibly endearing relationships which none but the highly intellectual, the refined and pure in heart, know how to prize, and which are at the very foundation of everything worthy to be called happiness. …
 
-“It was from him that I learned that the wife of my bosom might be secured to me for time and all eternity; and that the refined sympathies and affections which endeared us to each other emanated from the fountain of divine eternal love. It was from him that I learned that we might cultivate these affections, and grow and increase in the same to all eternity; while the result of our endless union would be an offspring as numerous as the stars of heaven, or the sands of the sea shore. …
+“It was from him that I learned that the wife of my bosom might be secured to me for time and all eternity; and that the refined sympathies and affections which endeared us to each other emanated from the fountain of divine eternal love. It was from him that I learned that we might cultivate these affections, and grow and increase in the same to all eternity; while the result of our endless union would be an offspring as numerous as the stars of heaven, or the sands of the sea shore. …
 
 “I had loved before, but I knew not why. But now I loved—with a pureness—an intensity of elevated, exalted feeling. … I felt that God was my heavenly Father indeed; that Jesus was my brother, and that the wife of my bosom was an immortal, eternal companion; a kind ministering angel, given to me as a comfort, and a crown of glory for ever and ever.”[^6]
 
@@ -68,7 +68,7 @@ I am a personal witness that priesthood service pursued in faith has such an eff
 
 In the same way, faith in the oath and covenant will lead us to develop the feelings of charity essential to an eternal family. One of the promises we make as we accept the priesthood is to care for others.
 
-I have seen the miracle of that growth in charity in the hearts of priesthood holders. So have many of you. And so have many outside the Church. I was in the office of President Gordon B. Hinckley when he was asked to take a phone call. He spoke briefly on the phone and then returned to our conversation. But he took a moment to explain. He said that the call was from the president of the United States, who was flying over Utah in Air Force One on his way to Washington. The president of the United States had called to thank President Hinckley for what priesthood holders had done in the aftermath of a hurricane. The president of the United States had said that it was a miracle that we were able to get so many people, so quickly, working together so well. He praised our people by saying that we knew how to do things.
+I have seen the miracle of that growth in charity in the hearts of priesthood holders. So have many of you. And so have many outside the Church. I was in the office of President Gordon B. Hinckley when he was asked to take a phone call. He spoke briefly on the phone and then returned to our conversation. But he took a moment to explain. He said that the call was from the president of the United States, who was flying over Utah in Air Force One on his way to Washington. The president of the United States had called to thank President Hinckley for what priesthood holders had done in the aftermath of a hurricane. The president of the United States had said that it was a miracle that we were able to get so many people, so quickly, working together so well. He praised our people by saying that we knew how to do things.
 
 Perhaps the president of the United States was impressed with what he thought were our great organizational skills. That was part of the miracle. But the greater reason for the miracle was that hundreds and perhaps thousands of priesthood holders had such faith in the oath and covenant of the priesthood. It was not how they were organized that made the difference: faith in the oath and covenant of the priesthood impelled them to go long distances, stay long hours, and endure hardship as representatives of the Lord Jesus Christ in caring for those in great need.
 
@@ -103,10 +103,8 @@ I testify that God the Father lives. You have made covenants with Him. He offers
 
 [^5]: [[D&C 84.63|D&C 84:63]].
 
-[^6]: *Autobiography of Parley P. Pratt,* ed. Parley P. Pratt Jr. (1938), 259–60.
+[^6]: *Autobiography of Parley P. Pratt,* ed. Parley P. Pratt Jr. (1938), 259–60.
 
 [^7]: [[Alma 13.12|Alma 13:12–13]][[Alma 13.13|]].
-
-
 
 #Covenants #Family #Priesthood #Service

@@ -1,6 +1,6 @@
 # Try, Try, Try
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -24,7 +24,7 @@ You remember that the Lord said to His servants:
 
 “Wherefore, I am in your midst, and I am the good shepherd, and the stone of Israel. He that buildeth upon this rock shall never fall.”[^4]
 
-Our prophet, President Russell M. Nelson, has also given that same assurance. Moreover, he described a way we might build upon that rock and put the Lord’s name upon our hearts to guide us through our trials.
+Our prophet, President Russell M. Nelson, has also given that same assurance. Moreover, he described a way we might build upon that rock and put the Lord’s name upon our hearts to guide us through our trials.
 
 He said: “You who may be momentarily disheartened, remember, life is not meant to be easy. Trials must be borne and grief endured along the way. As you remember that ‘with God nothing shall be impossible’ ([[Luke 1.37|Luke 1:37]]), know that He is your Father. You are a son or daughter created in His image, entitled through your worthiness to receive revelation to help with your righteous endeavors. You may take upon you the holy name of the Lord. You can qualify to speak in the sacred name of God (see [[D&C 1.20|D&C 1:20]]).”[^5]
 
@@ -36,7 +36,7 @@ Each time we say the word *amen* when that prayer is offered on our behalf, we p
 
 As I have pondered the covenant words and corresponding blessings promised, I have wondered what it means to be willing to take upon us the name of Jesus Christ.
 
-President Dallin H. Oaks explains: “It is significant that when we partake of the sacrament we do not witness that we *take upon us* the name of Jesus Christ. We witness that we are *willing* to do so. (See [[D&C 20.77|D&C 20:77]].) The fact that we only witness to our willingness suggests that something else must happen before we actually take that sacred name upon us in the most important sense.”[^7]
+President Dallin H. Oaks explains: “It is significant that when we partake of the sacrament we do not witness that we *take upon us* the name of Jesus Christ. We witness that we are *willing* to do so. (See [[D&C 20.77|D&C 20:77]].) The fact that we only witness to our willingness suggests that something else must happen before we actually take that sacred name upon us in the most important sense.”[^7]
 
 The statement that we are “willing to take upon \[us\]” His name tells us that while we first took the Savior’s name when we were baptized, taking His name is not finished at baptism. We must work continually to take His name throughout our lives, including when we renew covenants at the sacrament table and make covenants in the Lord’s holy temples.
 
@@ -99,11 +99,11 @@ I bear you my witness that the Savior knows and loves you. He knows your name as
 
 [^4]: [[D&C 50.43|Doctrine and Covenants 50:43–44]][[D&C 50.44|]].
 
-[^5]: Russell M. Nelson, “[[1988 April - “With God Nothing Shall Be Impossible”.md|With God Nothing Shall Be Impossible]],” *Ensign,* May 1988, 35.
+[^5]: Russell M. Nelson, “[[1988 April - “With God Nothing Shall Be Impossible”.md|With God Nothing Shall Be Impossible]],” *Ensign,* May 1988, 35.
 
 [^6]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^7]: Dallin H. Oaks, “[[1985 April - Taking upon Us the Name of Jesus Christ.md|Taking upon Us the Name of Jesus Christ]],” *Ensign,* May 1985, 81.
+[^7]: Dallin H. Oaks, “[[1985 April - Taking upon Us the Name of Jesus Christ.md|Taking upon Us the Name of Jesus Christ]],” *Ensign,* May 1985, 81.
 
 [^8]: [[Mosiah 5.13|Mosiah 5:13]].
 
@@ -111,5 +111,6 @@ I bear you my witness that the Savior knows and loves you. He knows your name as
 
 [^10]: [[Moroni 7.39|Moroni 7:39–44, 47–48]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.47|]][[Moroni 7.48|]].
 
+[^11]: See “I’m Trying to Be like Jesus,” *Children’s Songbook,* 78–79.
 
-#Adversity #Charity #Jesus_Christ #Love #Service
+#Adversity #Charity #JesusChrist #Love #Service

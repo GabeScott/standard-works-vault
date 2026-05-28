@@ -38,7 +38,7 @@ As President Hinckley instructed the brethren last night, there is no peace in s
 
 At one time or another I believe everyone yearns for the “peace of God, which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]). That peace for our troubled hearts only comes to us as we follow the Light of Christ, which is “given to every man, that he may know good from evil” ([[Moroni 7.16|Moro. 7:16]]), as it leads us to repent of sins and seek forgiveness. For all there is a hunger to know “the peaceable things of the kingdom” ([[D&C 36.2|D&C 36:2]]) and to taste “the fruit\[s\] of righteousness,” which are “sown in peace of them that make peace” ([[James 3.18|James 3:18]]). In every home, neighborhood, and community, we ought to strive for peace and never be party to stirring up contention or division.
 
-Throughout scriptural history, the Lord has promised peace to His followers. The Psalmist wrote, “The Lord will give strength unto his people; the Lord will bless his people with peace” ([[Psalms 29.11|Ps. 29:11]]). Isaiah referred to the Savior as “The Prince of Peace” ([[Isaiah 9.6|Isa. 9:6]]). And Nephi foresaw the day among his descendants when “the Son of righteousness shall appear unto them; and he shall heal them, and they shall have peace with him” ([[2 Nephi 26.9|2 Ne. 26:9]]).
+Throughout scriptural history, the Lord has promised peace to His followers. The Psalmist wrote, “The Lord will give strength unto his people; the Lord will bless his people with peace” ([[Psalms 29.11|Ps. 29:11]]). Isaiah referred to the Savior as “The Prince of Peace” ([[Isaiah 9.6|Isa. 9:6]]). And Nephi foresaw the day among his descendants when “the Son of righteousness shall appear unto them; and he shall heal them, and they shall have peace with him” ([[2 Nephi 26.9|2 Ne. 26:9]]).
 
 Just hours before He was to begin that glorious yet awful process of the Atonement, the Lord Jesus Christ made this significant promise to His Apostles: “Peace I leave with you, my peace I give unto you” ([[John 14.27|John 14:27]]).
 
@@ -102,13 +102,11 @@ On more than one occasion, the Lord urged His followers to be “peacemakers,”
 
 Those are but a few of the scriptural instructions clearly indicating that God’s peace is not to be hoarded. Rather, it is to be shared liberally with our families, our friends, and our communities. It is to be shared with the Church as well as those who are not members of our Church. While those around us may not choose to taste the sweetness and peace of the fulness of the restored gospel for themselves, surely they will be blessed by seeing it in our lives and feeling the peace of the gospel in our presence. The message of peace will grow and expand through our example.
 
-“Live in peace,” said the Apostle Paul, “and the God of love and peace shall be with you” ([[2 Corinthians 13.11|2 Cor. 13:11]]).
+“Live in peace,” said the Apostle Paul, “and the God of love and peace shall be with you” ([[2 Corinthians 13.11|2 Cor. 13:11]]).
 
 I am grateful that I can witness to you that Jesus is the Christ, and He is the Son of God. By following Him in faith and trust, all may find the sweet inner peace the gospel offers to us as it has been taught to us so beautifully during this conference. To this I humbly testify in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Conscience #Forgiveness #Jesus_Christ #Peace
+#Conscience #Forgiveness #JesusChrist #Peace

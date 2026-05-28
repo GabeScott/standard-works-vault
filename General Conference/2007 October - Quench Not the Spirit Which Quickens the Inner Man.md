@@ -8,7 +8,7 @@ By Elder Keith K. Hilbig - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2007/10/quench-not-the-spirit-which-quickens-the-inner-man?lang=eng)
 
-In 1 Thessalonians chapter 5, Paul admonished the members to act in a manner as becometh Saints. He proceeded to list appropriate attributes and behaviors. In verse [[1 Thessalonians 5.19|19]] Paul counseled with these four simple words: “Quench not the Spirit.”
+In 1 Thessalonians chapter 5, Paul admonished the members to act in a manner as becometh Saints. He proceeded to list appropriate attributes and behaviors. In verse [[1 Thessalonians 5.19|19]] Paul counseled with these four simple words: “Quench not the Spirit.”
 
 Interestingly, some 500 years *before* Paul’s writings, a Book of Mormon prophet named Jacob sought to teach the gospel of Jesus Christ to a resistant people. He boldly inquired of them as follows: “Will ye reject the words of the prophets; and will ye … deny the good word of Christ, … and the gift of the Holy Ghost, and quench the Holy Spirit?”[^1]
 
@@ -83,6 +83,4 @@ If we undertake this effort and quench not the Spirit, our inner being is quicke
 
 [^6]: [[Galatians 5.25|Galatians 5:25]].
 
-
-
-#Commitment #Holy_Ghost #Temples
+#Commitment #HolyGhost #Temples

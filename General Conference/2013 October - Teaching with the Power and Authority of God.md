@@ -1,6 +1,6 @@
 # Teaching with the Power and Authority of God
 
-By David M. McConkie - *First Counselor in the Sunday School General Presidency*
+By David M. McConkie - *First Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -44,17 +44,17 @@ Alma understood these principles when he rejoiced in the sons of Mosiah and how 
 
 “But this is not all; they had given themselves to much prayer, and fasting; therefore they had … the spirit of revelation.”[^7]
 
-Next, you must learn to listen. Elder Jeffrey R. Holland taught this principle to missionaries. I will quote from Elder Holland’s remarks but have taken the liberty of replacing the terms *missionaries* and *investigators* with the terms *teachers* and *students* respectively: “Second only to the responsibility \[teachers\] have to listen to the Spirit, is the responsibility they have to listen to the \[student\]. … If we’ll listen with spiritual ears, … *\[our students\] will tell us* what lessons they need to hear!”
+Next, you must learn to listen. Elder Jeffrey R. Holland taught this principle to missionaries. I will quote from Elder Holland’s remarks but have taken the liberty of replacing the terms *missionaries* and *investigators* with the terms *teachers* and *students* respectively: “Second only to the responsibility \[teachers\] have to listen to the Spirit, is the responsibility they have to listen to the \[student\]. … If we’ll listen with spiritual ears, … *\[our students\] will tell us* what lessons they need to hear!”
 
 Elder Holland continued: “The fact of the matter is \[teachers\] are still too focused on delivering comfortable, repetitious lesson content rather than focusing on their \[students\] as individuals.”[^8]
 
 After you have prepared yourself and your lesson to the very best of your ability, you must be willing to let go. When the quiet promptings of the Holy Ghost come, you must have the courage to set aside your outlines and your notes and go where those promptings take you. When you do this, the lesson you deliver is no longer your lesson, but it becomes the Savior’s lesson.
 
-As you dedicate yourself to living the gospel with greater purpose than ever before and search the scriptures, treasuring them up in your heart, the same Holy Ghost, who revealed these words to apostles and prophets anciently, will testify to you of their truthfulness. In essence, the Holy Ghost will reveal them anew to you. When this happens, the words that you read are no longer only the words of Nephi or Paul or Alma, but they become your words. Then, as you teach, the Holy Ghost will be able to bring all things to your remembrance. Indeed, “it shall be given you in the very hour, yea, in the very moment, what ye shall say.”[^9] When this happens, you will find yourself saying something that you did not plan to say. Then, if you will pay attention, you will learn something from the things that you say when you teach. President Marion G. Romney said, “I always know when I am speaking under the inspiration of the Holy Ghost because I always learn something from what I’ve said.”[^10] Remember, a teacher is also a student.
+As you dedicate yourself to living the gospel with greater purpose than ever before and search the scriptures, treasuring them up in your heart, the same Holy Ghost, who revealed these words to apostles and prophets anciently, will testify to you of their truthfulness. In essence, the Holy Ghost will reveal them anew to you. When this happens, the words that you read are no longer only the words of Nephi or Paul or Alma, but they become your words. Then, as you teach, the Holy Ghost will be able to bring all things to your remembrance. Indeed, “it shall be given you in the very hour, yea, in the very moment, what ye shall say.”[^9] When this happens, you will find yourself saying something that you did not plan to say. Then, if you will pay attention, you will learn something from the things that you say when you teach. President Marion G. Romney said, “I always know when I am speaking under the inspiration of the Holy Ghost because I always learn something from what I’ve said.”[^10] Remember, a teacher is also a student.
 
 Finally, you must stand as an independent witness of the things you teach and not just be an echo of the words in a manual or the thoughts of others. As you feast upon the words of Christ and strive to live the gospel with greater purpose than ever before, the Holy Ghost will manifest unto you that the things you are teaching are true. This is the spirit of revelation, and this same spirit will carry your message into the hearts of those who desire and are willing to receive it.
 
-Let us now end where we started—in the Sacred Grove. Because of what took place on that beautiful spring morning not so long ago, you are entitled to teach with the power and authority of God. Of this I bear my solemn and independent witness in the name of Jesus Christ, amen.
+Let us now end where we started—in the Sacred Grove. Because of what took place on that beautiful spring morning not so long ago, you are entitled to teach with the power and authority of God. Of this I bear my solemn and independent witness in the name of Jesus Christ, amen.
 
 
 
@@ -69,16 +69,14 @@ Let us now end where we started—in the Sacred Grove. Because of what took plac
 
 [^5]: See [[D&C 11.21|Doctrine and Covenants 11:21]].
 
-[^6]: See [[1 Thessalonians 1.5|1 Thessalonians 1:5]].
+[^6]: See [[1 Thessalonians 1.5|1 Thessalonians 1:5]].
 
 [^7]: [[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]].
 
-[^8]: Jeffrey R. Holland, “The Divine Companionship” (address given at the seminar for new mission presidents, June 26, 2009), 7, 8, Church History Library, Salt Lake City; emphasis in original.
+[^8]: Jeffrey R. Holland, “The Divine Companionship” (address given at the seminar for new mission presidents, June 26, 2009), 7, 8, Church History Library, Salt Lake City; emphasis in original.
 
 [^9]: [[D&C 100.6|Doctrine and Covenants 100:6]].
 
-[^10]: Marion G. Romney, in Boyd K. Packer, *Teach Ye Diligently* (1975), 304.
+[^10]: Marion G. Romney, in Boyd K. Packer, *Teach Ye Diligently* (1975), 304.
 
-
-
-#Holy_Ghost #Teaching
+#HolyGhost #Teaching

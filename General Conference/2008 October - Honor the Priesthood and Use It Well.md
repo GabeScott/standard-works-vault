@@ -54,19 +54,17 @@ Often the real value of something is not recognized until it is taken from us. T
 
 I know the immense joy and happiness that come from loving, cherishing, and respecting my precious wife with all my heart and soul. May your use of the priesthood and treatment of the important women in your life bring you the same satisfaction.
 
-As one of the 15 Apostles of the Lord Jesus Christ on earth, I express my own feelings regarding the priesthood as it has been captured perfectly by this statement of President Howard W. Hunter: “As special witnesses of our Savior, we have been given the awesome assignment to administer the affairs of his church and kingdom and to minister to his daughters and his sons wherever they are on the face of the earth. By reason of our call to testify, govern, and minister, it is required of us that despite age, infirmity, exhaustion, and feelings of inadequacy, we do the work he has given us to do, to the last breath of our lives.”[^3]
+As one of the 15 Apostles of the Lord Jesus Christ on earth, I express my own feelings regarding the priesthood as it has been captured perfectly by this statement of President Howard W. Hunter: “As special witnesses of our Savior, we have been given the awesome assignment to administer the affairs of his church and kingdom and to minister to his daughters and his sons wherever they are on the face of the earth. By reason of our call to testify, govern, and minister, it is required of us that despite age, infirmity, exhaustion, and feelings of inadequacy, we do the work he has given us to do, to the last breath of our lives.”[^3]
 
 God will hold us accountable for how we treat His precious daughters. Therefore, let us treat them as He would wish to have them treated. I pray that the Lord will guide us to be more inspired, sensitive, and productive with the priesthood we hold, especially with His daughters. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Gordon B. Hinckley, “Our Responsibility to Our Young Women,” *Ensign,* Sept. 1988, 11.
+[^1]: Gordon B. Hinckley, “Our Responsibility to Our Young Women,” *Ensign,* Sept. 1988, 11.
 
 [^2]: See [[Moses 4.17|Moses 4:17–19]][[Moses 4.18|]][[Moses 4.19|]]; [[Moses 5.10|5:10–11]][[Moses 5.11|]].
 
-[^3]: Howard W. Hunter, “To the Women of the Church,” *Ensign,* Nov. 1992, 96.
-
-
+[^3]: Howard W. Hunter, “To the Women of the Church,” *Ensign,* Nov. 1992, 96.
 
 #Marriage #Priesthood #Women #Worthiness

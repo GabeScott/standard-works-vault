@@ -24,7 +24,7 @@ I made hundreds and hundreds of such visits. Each individual, each family, each 
 
 “I did not agree with the counsel the bishop gave me. I will not step foot in that building again as long as he is serving in that position.”
 
-Many other causes of offense were cited—from doctrinal differences among adults to taunting, teasing, and excluding by youth. But the recurring theme was, “I was offended by …”
+Many other causes of offense were cited—from doctrinal differences among adults to taunting, teasing, and excluding by youth. But the recurring theme was, “I was offended by …”
 
 The bishop and I would listen intently and sincerely. One of us might next ask about their conversion to and testimony of the restored gospel. As we talked, eyes often were moist with tears as these good people recalled the confirming witness of the Holy Ghost and described their prior spiritual experiences. Most of the “less-active” people I have ever visited had a discernible and tender testimony of the truthfulness of the restored gospel. However, they were not presently participating in Church activities and meetings.
 
@@ -36,7 +36,7 @@ The bishop and I would then extend an invitation: “Dear friend, we are here to
 
 When we believe or say that we have been offended, we usually mean we feel insulted, mistreated, snubbed, or disrespected. And certainly clumsy, embarrassing, unprincipled, and mean-spirited things do occur in our interactions with other people that would allow us to take offense. However, it ultimately is impossible for another person to offend you or to offend me. Indeed, believing that another person offended us is fundamentally false. To be offended is a *choice* we make; it is not a *condition* inflicted or imposed upon us by someone or something else.
 
-In the grand division of all of God’s creations, there are things to act and things to be acted upon (see [[2 Nephi 2.13|2 Nephi 2:13–14]][[2 Nephi 2.14|]]). As sons and daughters of our Heavenly Father, we have been blessed with the gift of moral agency, the capacity for independent action and choice. Endowed with agency, you and I are agents, and we primarily are to act and not just be acted upon. To believe that someone or something can *make* us feel offended, angry, hurt, or bitter diminishes our moral agency and transforms us into objects to be acted upon. As agents, however, you and I have the power to act and to choose how we will respond to an offensive or hurtful situation.
+In the grand division of all of God’s creations, there are things to act and things to be acted upon (see [[2 Nephi 2.13|2 Nephi 2:13–14]][[2 Nephi 2.14|]]). As sons and daughters of our Heavenly Father, we have been blessed with the gift of moral agency, the capacity for independent action and choice. Endowed with agency, you and I are agents, and we primarily are to act and not just be acted upon. To believe that someone or something can *make* us feel offended, angry, hurt, or bitter diminishes our moral agency and transforms us into objects to be acted upon. As agents, however, you and I have the power to act and to choose how we will respond to an offensive or hurtful situation.
 
 Thomas B. Marsh, the first President of the Quorum of the Twelve Apostles in this dispensation, elected to take offense over an issue as inconsequential as milk strippings (see *Deseret News,* Apr. 16, 1856, 44). Brigham Young, on the other hand, was severely and publicly rebuked by the Prophet Joseph Smith, but he chose not to take offense (see Truman G. Madsen, “Hugh B. Brown—Youthful Veteran,” *New Era,* Apr. 1976, 16).
 
@@ -44,7 +44,7 @@ In many instances, choosing to be offended is a symptom of a much deeper and mor
 
 The Savior is the greatest example of how we should respond to potentially offensive events or situations.
 
-“And the world, because of their iniquity, shall judge him to be a thing of naught; wherefore they scourge him, and he suffereth it; and they smite him, and he suffereth it. Yea, they spit upon him, and he suffereth it, because of his loving kindness and his long-suffering towards the children of men” ([[1 Nephi 19.9|1 Nephi 19:9]]).
+“And the world, because of their iniquity, shall judge him to be a thing of naught; wherefore they scourge him, and he suffereth it; and they smite him, and he suffereth it. Yea, they spit upon him, and he suffereth it, because of his loving kindness and his long-suffering towards the children of men” ([[1 Nephi 19.9|1 Nephi 19:9]]).
 
 Through the strengthening power of the Atonement of Jesus Christ, you and I can be blessed to avoid and triumph over offense. “Great peace have they which love thy law: and nothing shall offend them” ([[Psalms 119.165|Psalm 119:165]]).
 
@@ -56,7 +56,7 @@ Paul taught the Saints in Ephesus that the Savior established His Church “for 
 
 “Till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ” ([[Ephesians 4.12|Ephesians 4:12–13]][[Ephesians 4.13|]]).
 
-Please note the use of the active word *perfecting.* As described by Elder Neal A. Maxwell, the Church is not “a well-provisioned rest home for the already perfected” (in Conference Report, Apr. 1982, 57; or *Ensign,* May 1982, 38). Rather, the Church is a learning laboratory and a workshop in which we gain experience as we practice on each other in the ongoing process of “perfecting the Saints.”
+Please note the use of the active word *perfecting.* As described by Elder Neal A. Maxwell, the Church is not “a well-provisioned rest home for the already perfected” (in Conference Report, Apr. 1982, [[1982 April - “A Brother Offended”.md|57]]; or *Ensign,* May 1982, 38). Rather, the Church is a learning laboratory and a workshop in which we gain experience as we practice on each other in the ongoing process of “perfecting the Saints.”
 
 Elder Maxwell also insightfully explained that in this latter-day learning laboratory known as the restored Church, the members constitute the “clinical material” (see “Jesus, the Perfect Mentor,” *Ensign,* Feb. 2001, 13) that is essential for growth and development. A visiting teacher learns her duty as she serves and loves her Relief Society sisters. An inexperienced teacher learns valuable lessons as he teaches both supportive and inattentive learners and thereby becomes a more effective teacher. And a new bishop learns how to be a bishop through inspiration and by working with ward members who wholeheartedly sustain him, even while recognizing his human frailties.
 
@@ -72,11 +72,11 @@ One of the greatest indicators of our own spiritual maturity is revealed in how 
 
 I conclude my message with two invitations.
 
-**Invitation number 1.** I invite you to learn about and apply the Savior’s teachings about interactions and episodes that can be construed as offensive.
+***Invitation number 1.*** I invite you to learn about and apply the Savior’s teachings about interactions and episodes that can be construed as offensive.
 
 “Ye have heard that it hath been said, Thou shalt love thy neighbour, and hate thine enemy.
 
-“But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you. …
+“But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you. …
 
 “For if ye love them which love you, what reward have ye? do not even the publicans the same?
 
@@ -86,15 +86,13 @@ I conclude my message with two invitations.
 
 Interestingly, the admonition to “be ye therefore perfect” is immediately preceded by counsel about how we should act in response to wrongdoing and offense. Clearly, the rigorous requirements that lead to the perfecting of the Saints include assignments that test and challenge us. If a person says or does something that we consider offensive, our first obligation is to refuse to take offense and then communicate privately, honestly, and directly with that individual. Such an approach invites inspiration from the Holy Ghost and permits misperceptions to be clarified and true intent to be understood.
 
-**Invitation number 2.** Many of the individuals and families who most need to hear this message about choosing not to be offended are probably not participating with us in conference today. I suspect all of us are acquainted with members who are staying away from church because they have chosen to take offense—and who would be blessed by coming back.
+***Invitation number 2.*** Many of the individuals and families who most need to hear this message about choosing not to be offended are probably not participating with us in conference today. I suspect all of us are acquainted with members who are staying away from church because they have chosen to take offense—and who would be blessed by coming back.
 
 Will you please prayerfully identify a person with whom you will visit and extend the invitation to once again worship with us? Perhaps you could share a copy of this talk with her or him, or you may prefer to discuss the principles we have reviewed today. And please remember that such a request should be conveyed lovingly and in meekness—and not in a spirit of self-righteous superiority and pride.
 
 As we respond to this invitation with faith in the Savior, I testify and promise that doors will open, our mouths will be filled, the Holy Ghost will bear witness of eternal truth, and the fire of testimony will be rekindled.
 
 As His servant, I echo the words of the Master when He declared, “These things have I spoken unto you, that ye should not be offended” ([[John 16.1|John 16:1]]). I witness the reality and divinity of a living Savior and of His power to help us avoid and overcome offense. In the sacred name of Jesus Christ, amen.
-
-
 
 
 

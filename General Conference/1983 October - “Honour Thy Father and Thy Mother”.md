@@ -1,6 +1,6 @@
 # “Honour Thy Father and Thy Mother”
 
-By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
+By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -115,8 +115,6 @@ The final question, I suppose, then, ought to be: “How are we going to accompl
 Let us take advantage of having grandfathers, grandmothers, great-grandparents, friends, and neighbors around us. May we in our own special way reach out to them—not with pity, but with love. Consider again, brothers and sisters, this counsel from the Lord: “*Honour* thy father and thy mother,” that their days—and ours—might be long upon the earth. (See [[Exodus 20.12|Ex. 20:12]]; italics added.)
 
 Finally, may we do unto the aged what we would want to have done to us. Remember: our time is coming. In the name of Jesus Christ, amen.
-
-
 
 
 

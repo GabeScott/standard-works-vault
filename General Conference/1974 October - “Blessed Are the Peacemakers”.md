@@ -1,12 +1,12 @@
 # “Blessed Are the Peacemakers”
 
-By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1974/10/blessed-are-the-peacemakers?lang=eng)
 
-One of the most important teachings of Jesus Christ is his statement: “Blessed are all the peacemakers, for they shall be called the children of God.” ([[3 Nephi 12.9|3 Ne. 12:9]].)
+One of the most important teachings of Jesus Christ is his statement: “Blessed are all the peacemakers, for they shall be called the children of God.” ([[3 Nephi 12.9|3 Ne. 12:9]].)
 
 It is impossible to pick up a newspaper or listen to a news broadcast without learning of some new quarrel among nations, some new argument among politicians, some new expression of prejudice against a race or a people, or some new outburst against a person or an idea. When I read or hear of these continuing disputes, I am aware of their negative nature. People nowadays seem to be continually against something or somebody. We appear to live in a negative era. What could have brought all this about?
 
@@ -58,9 +58,9 @@ That is a perfect way to achieve peace and harmony in our lives. If we would onl
 
 “There shall be no disputations among you, as there have hitherto been; neither shall there be disputations among you concerning the points of my doctrine, as there have hitherto been.
 
-“For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who … stirreth up the hearts of men to contend with anger, one with another. …
+“For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who … stirreth up the hearts of men to contend with anger, one with another. …
 
-“But this is my doctrine, that such things \[quarreling and arguing\] should be done away.” ([[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].)
+“But this is my doctrine, that such things \[quarreling and arguing\] should be done away.” ([[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].)
 
 God, who knows all things from the beginning, knew that in the last days Satan would exert every effort to destroy the work of God. The closer we approach the second coming of Jesus Christ, the greater will be Satan’s efforts. He will try to influence men as never before to destroy one another by dissension, opposition, selfishness, wars, riots, and destructions. If he can get people to quarrel with one another, they will inevitably destroy themselves.
 
@@ -75,8 +75,6 @@ Thus, from the beginning of creation, God planned to have leaders available in t
 “Blessed are the peacemakers: for they shall be called the children of God.” ([[Matthew 5.9|Matt. 5:9]].)
 
 May God bless us to follow the instructions and examples of the holy prophet he has sent to live among us, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

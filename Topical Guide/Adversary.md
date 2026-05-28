@@ -1,7 +1,6 @@
 # Adversary
 
-
-*See also* [[Adversity.md|Adversity]]; [[Devil.md|Devil]]; [[Enemies, Enemy.md|Enemies]]; [[Foe.md|Foe]]
+*See also* [[Adversity.md|Adversity]]; [[Devil.md|Devil]]; [[Enemies.md|Enemies]]; [[Foe.md|Foe]]
 
 the Lord stirred up an *adversary* unto Solomon, [[1 Kings 11.14|1 Kings 11:14]].
 
@@ -11,7 +10,7 @@ that render evil for good are mine *adversaries*, [[Psalms 38.20|Psalms 38:20]].
 
 O God, how long shall the *adversary* reproach, [[Psalms 74.10|Psalms 74:10]].
 
-who is mine *adversary* ? let him come near to me, [[Isaiah 50.8|Isaiah 50:8]].
+who is mine *adversary*? let him come near to me, [[Isaiah 50.8|Isaiah 50:8]].
 
 hand shall be lifted up upon thine *adversaries*, [[Micah 5.9|Micah 5:9]].
 
@@ -23,7 +22,7 @@ give none occasion to the *adversary* to speak, [[1 Timothy 5.14|1 Timothy 5:14]
 
 your *adversary* the devil, as a roaring lion, [[1 Peter 5.8|1 Peter 5:8]].
 
-neither could ... the fiery darts of the *adversary* overpower them, [[1 Nephi 15.24|1 Nephi 15:24]].
+neither could … the fiery darts of the *adversary* overpower them, [[1 Nephi 15.24|1 Nephi 15:24]].
 
 Now this was a plan of thine *adversary*, [[Alma 12.5|Alma 12:5]].
 

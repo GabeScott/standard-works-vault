@@ -1,9 +1,8 @@
 # Divination
 
+*See also* [[Sorcery.md|Sorcery]]; [[Superstitions.md|Superstitions]]; [[BD Divination.md|BD Divination]]
 
-*See also* [[Sorcery.md|Sorcery]]; [[Superstitions.md|Superstitions]]; [BD Divination](https://www.churchofjesuschrist.org/study/scriptures/bd/divination?lang=eng)
-
-not be found ... any one ... that useth *divination*, [[Deuteronomy 18.10|Deuteronomy 18:10]].
+not be found … any one … that useth *divination*, [[Deuteronomy 18.10|Deuteronomy 18:10]].
 
 shall be no more any vain vision nor flattering *divination*, [[Ezekiel 12.24|Ezekiel 12:24]].
 

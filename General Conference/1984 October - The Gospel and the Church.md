@@ -65,6 +65,4 @@ In the words of the Nephite leader Pahoran “May \[we\] rejoice in the great pr
 
 
 
-
-
-#Church_Growth #Church_Organization #Truth
+#ChurchGrowth #ChurchOrganization #Truth

@@ -48,7 +48,7 @@ Paul taught well on this subject. Said he to the Corinthians, speaking of the bo
 
 Some faithful women have been denied that which is at the very center of their souls. In the eternal plan, no blessing will be kept from the faithful. No woman should question how the Savior values womanhood. The grieving Mary Magdalene was the first to visit the sepulchre after the Crucifixion, and when she saw that the stone had been rolled away and that the tomb was empty, she ran to tell Peter and John. The two Apostles came to see and then went away sorrowing. But Mary stayed. She had stood near the cross.[^17] She had been at the burial.[^18] And now she stood weeping by the empty sepulchre.[^19] There she was honored to be the first mortal to see the risen Lord. After He said, “Woman, why weepest thou?” she was instructed by Him, “Go to my brethren, and say unto them, I ascend unto my Father, and your Father; and to my God, and your God.”[^20]
 
-During His mortal ministry, Jesus left Judea to go to Galilee. He arrived at Jacob’s well thirsty and weary from traveling. A woman of Samaria came to draw water. Jewish convention at the time forbade dealings with Samaritans. Yet “Jesus saith unto her, Give me to drink. …
+During His mortal ministry, Jesus left Judea to go to Galilee. He arrived at Jacob’s well thirsty and weary from traveling. A woman of Samaria came to draw water. Jewish convention at the time forbade dealings with Samaritans. Yet “Jesus saith unto her, Give me to drink. …
 
 “Then saith the woman of Samaria unto him, How is it that thou, being a Jew, askest drink of me, which am a woman of Samaria? …
 
@@ -109,7 +109,7 @@ I pray, as did King Benjamin, that we shall “be steadfast and immovable, alway
 
 [^15]: [[D&C 81.5|D&C 81:5]].
 
-[^16]: [[1 Corinthians 12.25|1 Cor. 12:25–27]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]].
+[^16]: [[1 Corinthians 12.25|1 Cor. 12:25–27]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]].
 
 [^17]: See [[Matthew 27.55|Matt. 27:55–56]][[Matthew 27.56|]]; [[Mark 15.40|Mark 15:40]]; [[John 19.25|John 19:25]].
 
@@ -127,6 +127,4 @@ I pray, as did King Benjamin, that we shall “be steadfast and immovable, alway
 
 [^24]: [[Mosiah 5.15|Mosiah 5:15]].
 
-
-
-#Adversity #Atonement #Evil #Jesus_Christ #Peace #Repentance #Service #Women
+#Adversity #Atonement #Evil #JesusChrist #Peace #Repentance #Service #Women

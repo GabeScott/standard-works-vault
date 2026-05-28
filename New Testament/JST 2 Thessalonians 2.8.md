@@ -4,6 +4,3 @@
 
 [JST 2 Thessalonians 2:8](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-2-thes/2?lang=eng)
 
-
-
-

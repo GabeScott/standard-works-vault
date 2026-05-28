@@ -81,7 +81,7 @@ Brethren, may each of us be obedient to the easily remembered couplet: “Do you
 
 [^1]: [[D&C 107.99|D&C 107:99]].
 
-[^2]: [[1 Nephi 3.7|1 Ne. 3:7]].
+[^2]: [[1 Nephi 3.7|1 Ne. 3:7]].
 
 [^3]: [[D&C 84.88|D&C 84:88]].
 
@@ -89,8 +89,6 @@ Brethren, may each of us be obedient to the easily remembered couplet: “Do you
 
 [^5]: *Deseret News: Semi-Weekly,* 6 Aug. 1878, 1.
 
-[^6]: [[1 Peter 3.15|1 Pet. 3:15]].
-
-
+[^6]: [[1 Peter 3.15|1 Pet. 3:15]].
 
 #Commandments #Duty #Joy

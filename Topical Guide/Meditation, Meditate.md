@@ -1,15 +1,14 @@
 # Meditation, Meditate
 
-
-*See also* [[Consider.md|Consider]]; [[Ponder.md|Ponder]]; [[Prayer, Pray.md|Prayer]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Think, Thought.md|Think]]
+*See also* [[Consider.md|Consider]]; [[Ponder.md|Ponder]]; [[Prayer.md|Prayer]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Think.md|Think]]
 
 Isaac went out to *meditate* in the field, [[Genesis 24.63|Genesis 24:63]].
 
-book of the law ... thou shalt *meditate* therein, [[Joshua 1.8|Joshua 1:8]] ([[Psalms 1.2|Psalms 1:2]]).
+book of the law … thou shalt *meditate* therein, [[Joshua 1.8|Joshua 1:8]] ([[Psalms 1.2|Psalms 1:2]]).
 
 Lord, consider my *meditation*, [[Psalms 5.1|Psalms 5:1]].
 
-Let ... the *meditation* of my heart, be acceptable, [[Psalms 19.14|Psalms 19:14]].
+Let … the *meditation* of my heart, be acceptable, [[Psalms 19.14|Psalms 19:14]].
 
 *meditate* on thee in the night, [[Psalms 63.6|Psalms 63:6]].
 

@@ -1,6 +1,6 @@
 # Peace
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -48,7 +48,7 @@ Then when he stood before Pilate, under the pressure of rigid questioning, Pilat
 
 After he was crucified and then resurrected, his first message to his disciples was, “Peace be unto you.” ([[John 20.21|John 20:21]].)
 
-How is it that we have not discovered the secret of peace when we have been looking for it all through the ages? I’ll tell you. We are looking for someone to create it for us—to bring it to us. Edna St. Vincent Millay said: “There is no peace on earth today, save the peace in the heart at home with God. … No man can be at peace with his neighbor who is not at peace with himself. …” (“Conversations at Midnight,” *Collected Poems,* Harper & Row, Copyright 1937 and 1964.)
+How is it that we have not discovered the secret of peace when we have been looking for it all through the ages? I’ll tell you. We are looking for someone to create it for us—to bring it to us. Edna St. Vincent Millay said: “There is no peace on earth today, save the peace in the heart at home with God. … No man can be at peace with his neighbor who is not at peace with himself. …” (“Conversations at Midnight,” *Collected Poems,* Harper & Row, Copyright 1937 and 1964.)
 
 Have you experienced that peace within you because you helped your neighbor rake his lawn or mow his lawn? Have you felt that peace within because you helped your neighbor pick his fruit or harvest his crops? Have you witnessed that peace within because you shoveled the snow off your neighbor’s walks? Have you felt that peace which came because you helped someone solve a problem and get a new lease on life? Have you “cheered up the sad, and made someone feel glad”?
 
@@ -68,7 +68,7 @@ Peace, then, comes from service.
 
 The Lord has said: “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
-Is this not the ultimate of service? To become as God is, then, we must eliminate enmity, greed, and selfishness, and all our efforts must be in service to others. The Lord said: “… he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.” ([[D&C 59.23|D&C 59:23]].)
+Is this not the ultimate of service? To become as God is, then, we must eliminate enmity, greed, and selfishness, and all our efforts must be in service to others. The Lord said: “… he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.” ([[D&C 59.23|D&C 59:23]].)
 
 Joseph Smith was an example of utmost peace in the face of tribulation. Though he had been arrested and acquitted thirty-seven times, he knew this time he would not return. On the way from Nauvoo to Carthage, Joseph Smith said:
 
@@ -80,7 +80,7 @@ Isaiah says: “And the work of righteousness shall be peace; and the effect of 
 
 Our guide on a recent tour in the Holy Land, who is a Jordanian Arab and a Greek Orthodox Catholic by the name of Sari Rabadi, taught us a little Arabian song: *“Havano, shalo, malechem,”* which translated means: “We bring you peace.”
 
-Yes, Sari, we say to you and to all the world, we bring you peace. We bring you the peace of the gospel, that peace which Christ meant when he said, “… my peace I give unto you: not as the world giveth, give I unto you. …” ([[John 14.27|John 14:27]].)
+Yes, Sari, we say to you and to all the world, we bring you peace. We bring you the peace of the gospel, that peace which Christ meant when he said, “… my peace I give unto you: not as the world giveth, give I unto you. …” ([[John 14.27|John 14:27]].)
 
 If each person would have peace within his soul, then there would be peace in the family. If there is peace in each family, then there is peace in the nation. If there is peace in the nations, there is peace in the world.
 
@@ -91,8 +91,6 @@ When the Savior comes again—and he will come—he will bring peace only as we 
 That angel which John saw “fly in the midst of heaven, having the everlasting gospel to preach unto them that dwell on the earth” ([[Revelation 14.6|Rev. 14:6]]) has already come. The gospel of Jesus Christ has been established on the earth, never again to be taken from the earth.
 
 His kingdom is already here on earth and is growing rapidly to prepare for his coming. Yes, he shall surely come and bring peace to the earth, but only as we are willing to follow his teachings. This is his work, and his kingdom, which is the only way to world peace and eternal peace. I so testify in the name of Jesus Christ. Amen.
-
-
 
 
 

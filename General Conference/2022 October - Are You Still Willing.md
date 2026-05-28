@@ -1,6 +1,6 @@
 # Are You Still Willing?
 
-By Elder Kevin W. Pearson - *Of the Seventy*
+By Elder Kevin W. Pearson - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -12,7 +12,7 @@ One Sunday, while I was preparing to partake of the sacrament after several week
 
 As the priest began offering the blessing on the bread, words I had heard so many times before pressed forcefully upon my mind and heart. “And *witness unto thee*, O God, the Eternal Father, that *they are willing* to *take upon them the name of thy Son*, and *always remember him* and *keep his commandments* which he has given them; that they *may always have his Spirit to be with them*.”[^1] How many times have we witnessed unto God that we are willing?
 
-As I pondered the significance of those sacred words, the word *willing* impressed me as never before. A flood of sweet and sacred experiences filled my mind and heart with love and gratitude for the atoning sacrifice of the Savior and His crucial role in the Father’s plan of redemption for my family and me. Then I heard and felt the penetrating words of the prayer on the water: “That they may witness unto thee … that they do always remember him.”[^2] I understood clearly in that moment that keeping my covenants must be more than good intentions.
+As I pondered the significance of those sacred words, the word *willing* impressed me as never before. A flood of sweet and sacred experiences filled my mind and heart with love and gratitude for the atoning sacrifice of the Savior and His crucial role in the Father’s plan of redemption for my family and me. Then I heard and felt the penetrating words of the prayer on the water: “That they may witness unto thee … that they do always remember him.”[^2] I understood clearly in that moment that keeping my covenants must be more than good intentions.
 
 Partaking of the sacrament is not a passive religious ritual implying our mere consent. It is a powerful reminder of the reality of the Savior’s infinite Atonement and the need to always remember Him and keep His commandments. Willingness to focus on the Savior is so crucial it is the central message of the two most quoted scriptures in the Church: the sacrament prayers. Understanding the truth of what Heavenly Father so willingly offers each of us through His Only Begotten Son should evoke our utmost efforts to always be willing in return.
 
@@ -44,7 +44,7 @@ We live in unprecedented times long foretold by ancient prophets, a day when Sat
 
 The most powerful spiritual influence in the life of a child is the righteous example of loving parents and grandparents who faithfully keep their own sacred covenants. Intentional parents teach their children faith in the Lord Jesus Christ so that they too “may know to what source they may look for a remission of their sins.”[^15] Casual and inconsistent covenant keeping leads to spiritual casualty. The spiritual damage is often greatest on our children and grandchildren. Parents and grandparents, are we still willing?
 
-President Russell M. Nelson has warned that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^16] This is a clear and unmistakable warning to trim our lamps and increase our spiritual oil reserves. Are we still willing to follow the living prophets? What is the level of spiritual oil in your lamp? What changes in your personal life would enable you to have the influence of the Holy Ghost more constantly?
+President Russell M. Nelson has warned that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^16] This is a clear and unmistakable warning to trim our lamps and increase our spiritual oil reserves. Are we still willing to follow the living prophets? What is the level of spiritual oil in your lamp? What changes in your personal life would enable you to have the influence of the Holy Ghost more constantly?
 
 Today, as in the times of Jesus, there will be those who will turn back, unwilling to accept the price of discipleship. As harsh and hateful criticism is increasingly leveled at the Savior’s Church and those who follow Him, our discipleship will require a greater willingness to straighten and strengthen our spiritual spines and heed them not.[^17]
 
@@ -65,7 +65,7 @@ May we always be willing. In the sacred name of the Lord Jesus Christ, amen.
 
 [^4]: [[Alma 32.27|Alma 32:27]].
 
-[^5]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^5]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^6]: Ezra Taft Benson, “[[1988 April - The Great Commandment—Love the Lord.md|The Great Commandment—Love the Lord]],” *Ensign*, May 1988, 4.
 
@@ -75,24 +75,22 @@ May we always be willing. In the sacred name of the Lord Jesus Christ, amen.
 
 [^9]: [[Matthew 25.8|Matthew 25:8]].
 
-[^10]: [[2 Nephi 28.21|2 Nephi 28:21]].
+[^10]: [[2 Nephi 28.21|2 Nephi 28:21]].
 
 [^11]: [[Jacob 4.13|Jacob 4:13]].
 
 [^12]: [[Moroni 10.5|Moroni 10:5]].
 
-[^13]: See Boyd K. Packer, “[[1983 April - Agency and Control.md|Agency and Control]],” *Ensign*, May 1983, 66.
+[^13]: See Boyd K. Packer, “[[1983 April - Agency and Control.md|Agency and Control]],” *Ensign*, May 1983, 66.
 
-[^14]: [[2 Nephi 28.20|2 Nephi 28:20]].
+[^14]: [[2 Nephi 28.20|2 Nephi 28:20]].
 
-[^15]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^15]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^16]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93.
+[^16]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93.
 
-[^17]: See [[1 Nephi 8.26|1 Nephi 8:26–27, 33]][[1 Nephi 8.27|]][[1 Nephi 8.33|]].
+[^17]: See [[1 Nephi 8.26|1 Nephi 8:26–27, 33]][[1 Nephi 8.27|]][[1 Nephi 8.33|]].
 
 [^18]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 
-
-
-#Discipleship #Holy_Ghost #Jesus_Christ #Sacrament
+#Discipleship #HolyGhost #JesusChrist #Sacrament

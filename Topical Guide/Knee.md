@@ -1,6 +1,5 @@
 # Knee
 
-
 *knees* which have not bowed unto Baal, [[1 Kings 19.18|1 Kings 19:18]] ([[Romans 11.4|Romans 11:4]]).
 
 every *knee* shall bow, every tongue shall swear, [[Isaiah 45.23|Isaiah 45:23]] ([[Romans 14.11|Romans 14:11]]; [[Mosiah 27.31|Mosiah 27:31]]; [[D&C 88.104|D&C 88:104]]).

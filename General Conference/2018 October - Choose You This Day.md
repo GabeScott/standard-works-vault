@@ -1,6 +1,6 @@
 # Choose You This Day
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/choose-you-this-day?lang=eng)
 
-The fictional character Mary Poppins is a typical English nanny—who happens to be magical.[^1] She blows in on the east wind to help the troubled Banks family of Number 17, Cherry Tree Lane, in Edwardian London. She is given charge of the children, Jane and Michael. In a firm but kind manner, she begins to teach them valuable lessons with an enchanting touch.
+The fictional character Mary Poppins is a typical English nanny—who happens to be magical.[^1] She blows in on the east wind to help the troubled Banks family of Number 17, Cherry Tree Lane, in Edwardian London. She is given charge of the children, Jane and Michael. In a firm but kind manner, she begins to teach them valuable lessons with an enchanting touch.
 
 Jane and Michael make considerable progress, but Mary decides that it is time for her to move on. In the stage production, Mary’s chimney sweep friend, Bert, tries to dissuade her from leaving. He argues, “But they’re good kids, Mary.”
 
@@ -62,7 +62,7 @@ As the Book of Mormon prophet Jacob said, I say with him:
 
 “Therefore, cheer up your hearts, and remember that ye are free to act for yourselves—to choose the way of everlasting death or the way of eternal life.
 
-“Wherefore, my beloved brethren \[and sisters\], reconcile yourselves to the will of God, and not to the will of the devil … ; and remember, after ye are reconciled unto God, that it is only in and through the grace of God that ye are saved.”[^27]
+“Wherefore, my beloved brethren \[and sisters\], reconcile yourselves to the will of God, and not to the will of the devil … ; and remember, after ye are reconciled unto God, that it is only in and through the grace of God that ye are saved.”[^27]
 
 So, choose faith in Christ; choose repentance; choose to be baptized and receive the Holy Ghost; choose to conscientiously prepare for and worthily partake of the sacrament; choose to make covenants in the temple; and choose to serve the living God and His children. Our choices determine who we are and who we will become.
 
@@ -71,62 +71,60 @@ I conclude with the rest of Jacob’s blessing: “Wherefore, may God raise you 
 
 
 
-[^1]: The fictional character Mary Poppins was brought to life through the writings of P. L. Travers. Her books provided the basis for a 1964 musical-fantasy movie, produced by Walt Disney, and for a later stage adaptation of the movie.
+[^1]: The fictional character Mary Poppins was brought to life through the writings of P. L. Travers. Her books provided the basis for a 1964 musical-fantasy movie, produced by Walt Disney, and for a later stage adaptation of the movie.
 
 [^2]: The stage play contains the scene described. See *Libretto to Mary Poppins: The Broadway Musical,* 70.
 
-[^3]: See Spencer W. Kimball, in Brisbane Area Conference 1976, 19. President Kimball conjectured: “The very first thing before beginning our world here, the Lord said, ‘I’m going to give you your free agency. I want men and women that are strong because it is right to be strong. I don’t want weaklings who are righteous only because they have to be righteous.’”
+[^3]: See Spencer W. Kimball, in Brisbane Area Conference 1976, 19. President Kimball conjectured: “The very first thing before beginning our world here, the Lord said, ‘I’m going to give you your free agency. I want men and women that are strong because it is right to be strong. I don’t want weaklings who are righteous only because they have to be righteous.’”
 
-[^4]: See, for instance, Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7. The covenant path is also referred to as a plan of happiness (see [[Alma 42.8|Alma 42:8, 16]][[Alma 42.16|]]) and a plan of redemption (see [[Alma 12.25|Alma 12:25–35]][[Alma 12.26|]][[Alma 12.27|]][[Alma 12.28|]][[Alma 12.29|]][[Alma 12.30|]][[Alma 12.31|]][[Alma 12.32|]][[Alma 12.33|]][[Alma 12.34|]][[Alma 12.35|]]).
+[^4]: See, for instance, Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7. The covenant path is also referred to as a plan of happiness (see [[Alma 42.8|Alma 42:8, 16]][[Alma 42.16|]]) and a plan of redemption (see [[Alma 12.25|Alma 12:25–35]][[Alma 12.26|]][[Alma 12.27|]][[Alma 12.28|]][[Alma 12.29|]][[Alma 12.30|]][[Alma 12.31|]][[Alma 12.32|]][[Alma 12.33|]][[Alma 12.34|]][[Alma 12.35|]]).
 
-[^5]: [[2 Nephi 2.16|2 Nephi 2:16]].
+[^5]: [[2 Nephi 2.16|2 Nephi 2:16]].
 
 [^6]: See [[Moses 4.3|Moses 4:3]].
 
-[^7]: [[1 John 2.1|1 John 2:1]]; see also Joseph Smith Translation, 1 John 2:1 (in 1 John 2:1, footnote *a*).
+[^7]: [[1 John 2.1|1 John 2:1]]; see also Joseph Smith Translation, 1 John 2:1 (in 1 John 2:1, footnote *a*).
 
 [^8]: [[Moroni 7.27|Moroni 7:27, 28]][[Moroni 7.28|]].
 
 [^9]: See [[Mosiah 15.7|Mosiah 15:7]].
 
-[^10]: See [[1 John 2.2|1 John 2:2]].
+[^10]: See [[1 John 2.2|1 John 2:2]].
 
-[^11]: See [[2 Corinthians 5.16|2 Corinthians 5:16–21]][[2 Corinthians 5.17|]][[2 Corinthians 5.18|]][[2 Corinthians 5.19|]][[2 Corinthians 5.20|]][[2 Corinthians 5.21|]]; [[Colossians 1.19|Colossians 1:19–23]][[Colossians 1.20|]][[Colossians 1.21|]][[Colossians 1.22|]][[Colossians 1.23|]]; [[2 Nephi 10.24|2 Nephi 10:24]].
+[^11]: See [[2 Corinthians 5.16|2 Corinthians 5:16–21]][[2 Corinthians 5.17|]][[2 Corinthians 5.18|]][[2 Corinthians 5.19|]][[2 Corinthians 5.20|]][[2 Corinthians 5.21|]]; [[Colossians 1.19|Colossians 1:19–23]][[Colossians 1.20|]][[Colossians 1.21|]][[Colossians 1.22|]][[Colossians 1.23|]]; [[2 Nephi 10.24|2 Nephi 10:24]].
 
-[^12]: The Greek word for advocate (*paraklētŏs*) means intercessor, helper, comforter, or consoler (see [[1 John 2.1|1 John 2:1]], footnote *b*; *The New Strong’s Expanded Exhaustive Concordance of the Bible* \[1984\], Greek dictionary section, 55; [[2 Nephi 10.23|2 Nephi 10:23–25]][[2 Nephi 10.24|]][[2 Nephi 10.25|]]; [[D&C 45.3|Doctrine and Covenants 45:3–5]][[D&C 45.4|]][[D&C 45.5|]]).
+[^12]: The Greek word for advocate (*paraklētŏs*) means intercessor, helper, comforter, or consoler (see [[1 John 2.1|1 John 2:1]], footnote *b*; *The New Strong’s Expanded Exhaustive Concordance of the Bible* \[1984\], Greek dictionary section, 55; [[2 Nephi 10.23|2 Nephi 10:23–25]][[2 Nephi 10.24|]][[2 Nephi 10.25|]]; [[D&C 45.3|Doctrine and Covenants 45:3–5]][[D&C 45.4|]][[D&C 45.5|]]).
 
 [^13]: [[Revelation 12.10|Revelation 12:10–11]][[Revelation 12.11|]].
 
 [^14]: See [[Ether 8.25|Ether 8:25]].
 
-[^15]: [[2 Nephi 2.27|2 Nephi 2:27]]; see also [[2 Nephi 2.6|2 Nephi 2:6–8, 16, 26]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.16|]][[2 Nephi 2.26|]].
+[^15]: [[2 Nephi 2.27|2 Nephi 2:27]]; see also [[2 Nephi 2.6|2 Nephi 2:6–8, 16, 26]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.16|]][[2 Nephi 2.26|]].
 
 [^16]: See Fiona and Terryl Givens, *The Christ Who Heals* (2017), 29, 124. For original citation, see Anthony Zimmerman, *Evolution and the Sin in Eden* (1998), 160, citing Denis Minns, *Irenaeus* (2010), 61.
 
 [^17]: [[Alma 12.32|Alma 12:32]].
 
-[^18]: [[2 Nephi 2.26|2 Nephi 2:26]]; see also [[2 Nephi 2.16|2 Nephi 2:16]].
+[^18]: [[2 Nephi 2.26|2 Nephi 2:26]]; see also [[2 Nephi 2.16|2 Nephi 2:16]].
 
 [^19]: [[D&C 88.32|Doctrine and Covenants 88:32]].
 
 [^20]: See [[Alma 34.31|Alma 34:31]].
 
-[^21]: See [[2 Nephi 31.20|2 Nephi 31:20]]; [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]]; [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]]; Boyd K. Packer, “[[2015 April - The Plan of Happiness.md|The Plan of Happiness]],” *Ensign* or *Liahona,* May 2015, 28. President Packer said, “When the repentance process is complete, no scars remain because of the Atonement of Jesus Christ.”
+[^21]: See [[2 Nephi 31.20|2 Nephi 31:20]]; [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]]; [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]]; Boyd K. Packer, “[[2015 April - The Plan of Happiness.md|The Plan of Happiness]],” *Ensign* or *Liahona,* May 2015, 28. President Packer said, “When the repentance process is complete, no scars remain because of the Atonement of Jesus Christ.”
 
-[^22]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^22]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^23]: See [[Joshua 24.15|Joshua 24:15]].
 
-[^24]: Julie B. Beck, “[[2010 April - “And upon the Handmaids in Those Days Will I Pour Out My Spirit”.md|And upon the Handmaids in Those Days Will I Pour Out My Spirit]],” *Ensign* or *Liahona,* May 2010, 12; Sister Beck was quoting Eliza R. Snow, address to Lehi Ward Relief Society, Oct. 27, 1869, Lehi Ward, Alpine (Utah) Stake, in Relief Society, Minute Book, 1868–79, Church History Library, Salt Lake City, 26–27.
+[^24]: Julie B. Beck, “[[2010 April - “And upon the Handmaids in Those Days Will I Pour Out My Spirit”.md|And upon the Handmaids in Those Days Will I Pour Out My Spirit]],” *Ensign* or *Liahona,* May 2010, 12; Sister Beck was quoting Eliza R. Snow, address to Lehi Ward Relief Society, Oct. 27, 1869, Lehi Ward, Alpine (Utah) Stake, in Relief Society, Minute Book, 1868–79, Church History Library, Salt Lake City, 26–27.
 
-[^25]: See [[2 Nephi 4.35|2 Nephi 4:35]]; [[Helaman 10.5|Helaman 10:5]].
+[^25]: See [[2 Nephi 4.35|2 Nephi 4:35]]; [[Helaman 10.5|Helaman 10:5]].
 
-[^26]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
+[^26]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
-[^27]: [[2 Nephi 10.23|2 Nephi 10:23–24]][[2 Nephi 10.24|]].
+[^27]: [[2 Nephi 10.23|2 Nephi 10:23–24]][[2 Nephi 10.24|]].
 
-[^28]: [[2 Nephi 10.25|2 Nephi 10:25]].
+[^28]: [[2 Nephi 10.25|2 Nephi 10:25]].
 
-
-
-#Agency #Jesus_Christ #Plan_Of_Salvation #Repentance
+#Agency #JesusChrist #PlanOfSalvation #Repentance

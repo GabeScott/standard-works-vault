@@ -1,4 +1,3 @@
 # Cana
 
-
-*See* [BD Cana of Galilee](https://www.churchofjesuschrist.org/study/scriptures/bd/cana-of-galilee?lang=eng)
+*See also* [[BD Cana of Galilee.md|BD Cana of Galilee]]

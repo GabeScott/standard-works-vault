@@ -1,6 +1,6 @@
 # We, The Church of Jesus Christ of Latter-day Saints
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -10,7 +10,7 @@ My beloved brothers and sisters and, particularly, nonmember friends, you are li
 
 The nickname *Mormon* is associated with the Church and its members because we accept as scripture a book titled the Book of Mormon. This book is a translation of an ancient record inscribed on gold plates which, in September 1827, were delivered by an angel to Joseph Smith, a twenty-one-year-old youth.
 
-When the angel first advised Joseph concerning the plates, he said, to quote Joseph, “that he was a messenger sent from the presence of God to me, and that his name was Moroni; that … there was a book deposited, written upon gold plates, giving an account of the former inhabitants of this continent, and the source from whence they sprang. He also said that the fulness of the everlasting Gospel was contained in \[the record\]. …
+When the angel first advised Joseph concerning the plates, he said, to quote Joseph, “that he was a messenger sent from the presence of God to me, and that his name was Moroni; that … there was a book deposited, written upon gold plates, giving an account of the former inhabitants of this continent, and the source from whence they sprang. He also said that the fulness of the everlasting Gospel was contained in \[the record\]. …
 
 “Also, that there were two stones in silver bows—and these stones, fastened to a breastplate, constituted what is called the Urim and Thummim—deposited with the plates; and the possession and use of these stones were what constituted ‘seers’ in ancient or former times; and that God had prepared them for the purpose of translating the book.” ([[Joseph Smith History 1.33|JS—H 1:33–35]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]].)
 
@@ -66,7 +66,7 @@ This declaration by the Lord is reminiscent of the account the Book of Mormon gi
 
 “And no unclean thing can enter into his kingdom; therefore nothing entereth into his rest save it be those who have washed their garments in my blood, because of their faith, and the repentance of all their sins, and their faithfulness unto the end.
 
-“Now this is the commandment \[by the risen Redeemer to the ancient Americans, and it is still his commandment\]: Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day.” ([[3 Nephi 27.1|3 Ne. 27:1–20]][[3 Nephi 27.2|]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]][[3 Nephi 27.9|]][[3 Nephi 27.10|]][[3 Nephi 27.11|]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]].)
+“Now this is the commandment \[by the risen Redeemer to the ancient Americans, and it is still his commandment\]: Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day.” ([[3 Nephi 27.1|3 Ne. 27:1–20]][[3 Nephi 27.2|]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]][[3 Nephi 27.9|]][[3 Nephi 27.10|]][[3 Nephi 27.11|]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]].)
 
 Such is the name and such are the basic doctrines taught by the Church sometimes referred to as the Mormon Church.
 
@@ -74,7 +74,7 @@ Not only did the Redeemer personally name his Church, “The Church of Jesus Chr
 
 The background for this declaration was as follows:
 
-“Through a period of more than six years prior to \[April 6th, 1830, when the Church was organized\] Joseph Smith, the Prophet, had received at intervals Divine revelations and commandments. …
+“Through a period of more than six years prior to \[April 6th, 1830, when the Church was organized\] Joseph Smith, the Prophet, had received at intervals Divine revelations and commandments. …
 
 “As early as the summer of 1830, the Prophet, acting under Divine commandment, was engaged in copying and arranging the revelations received up to that time, evidently with a view to their publication in book form. On November 1, 1831, at a conference of the Elders of the Church held at Hiram, Ohio, definite action relating to the publication of the revelations \[which the Prophet had received and compiled\] was taken, and the compilation was called the *Book of Commandments.* The Lord’s acceptance of the undertaking was made manifest by the giving of the revelation … appearing as Section 1 \[of our Doctrine and Covenants\] … known as the *Preface.*” (D&C, Explanatory Introduction, iii; see also *History of the Church,* 1:222 and the introductory note to [[D&C 1.1|D&C 1]][[D&C 1.2|]][[D&C 1.3|]][[D&C 1.4|]][[D&C 1.5|]][[D&C 1.6|]][[D&C 1.7|]][[D&C 1.8|]][[D&C 1.9|]][[D&C 1.10|]][[D&C 1.11|]][[D&C 1.12|]][[D&C 1.13|]][[D&C 1.14|]][[D&C 1.15|]][[D&C 1.16|]][[D&C 1.17|]][[D&C 1.18|]][[D&C 1.19|]][[D&C 1.20|]][[D&C 1.21|]][[D&C 1.22|]][[D&C 1.23|]][[D&C 1.24|]][[D&C 1.25|]][[D&C 1.26|]][[D&C 1.27|]][[D&C 1.28|]][[D&C 1.29|]][[D&C 1.30|]][[D&C 1.31|]][[D&C 1.32|]][[D&C 1.33|]][[D&C 1.34|]][[D&C 1.35|]][[D&C 1.36|]][[D&C 1.37|]][[D&C 1.38|]][[D&C 1.39|]].)
 
@@ -92,7 +92,7 @@ Because of the universal importance of the content of this revelation, I shall c
 
 “Behold, this is mine authority, and the authority of my servants, and my preface unto the book of my commandments, which I have given them to publish unto you, O inhabitants of the earth.
 
-“Wherefore, fear and tremble, O ye people, for what I the Lord have decreed in them shall be fulfilled. …
+“Wherefore, fear and tremble, O ye people, for what I the Lord have decreed in them shall be fulfilled. …
 
 “Wherefore the voice of the Lord is unto the ends of the earth, that all that will hear may hear:
 
@@ -108,9 +108,9 @@ Because of the universal importance of the content of this revelation, I shall c
 
 “Wherefore, I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments;
 
-“And also gave commandments to others, that they should proclaim these things unto the world. …
+“And also gave commandments to others, that they should proclaim these things unto the world. …
 
-“Behold, I am God and have spoken it; these commandments are of me, and were given unto my servants in their weakness, after the manner of their language, that they might come to understanding. …
+“Behold, I am God and have spoken it; these commandments are of me, and were given unto my servants in their weakness, after the manner of their language, that they might come to understanding. …
 
 “And after having received the record of the Nephites, yea, even my servant Joseph Smith, Jun., might have power to translate through the mercy of God, by the power of God, the Book of Mormon.
 
@@ -139,6 +139,4 @@ To the truth of these great revelations, I bear my personal witness. In the name
 
 
 
-
-
-#Name_Of_Church
+#NameOfChurch

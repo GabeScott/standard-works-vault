@@ -4,6 +4,3 @@
 
 [JST Mark 12:32](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-mark/12?lang=eng)
 
-
-
-

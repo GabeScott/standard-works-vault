@@ -1,12 +1,12 @@
 # Principles of Welfare
 
-By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
+By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1976/10/principles-of-welfare?lang=eng)
 
-I would be ungrateful this morning if I didn’t express my appreciation for walking in the shadow of two great and holy men, Bishop Brown and Bishop Peterson, and for letting you know that I have a personal witness that J. Richard Clarke is a suited companion for these great men.
+I would be ungrateful this morning if I didn’t express my appreciation for walking in the shadow of two great and holy men, Bishop Brown and Bishop Peterson, and for letting you know that I have a personal witness that J. Richard Clarke is a suited companion for these great men.
 
 This morning I have the assignment from Bishop Brown to discuss employment responsibilities. Six months ago Bishop Peterson discussed employment.
 
@@ -80,7 +80,7 @@ VI. There may be occasions that warrant the quorum members’ assisting while th
 
 The great blessing of the quorum and the ward is that instead of one person feeling lost and alone, he will feel that there are a hundred people or more working to help him find a job. The ward welfare services committee discusses the needs of the individual. Each member of the quorum or group presidency immediately involves quorum or group members to help locate employment. Thus the entire priesthood unit becomes involved by assisting in trying to locate job openings.
 
-In 1937, Elder Harold B. Lee said, “It must surely be apparent to all that every step the unemployed person takes away from the circle of his quorum carries him that much further from possible employment.”
+In 1937, Elder Harold B. Lee said, “It must surely be apparent to all that every step the unemployed person takes away from the circle of his quorum carries him that much further from possible employment.”
 
 When necessary, get the entire ward involved. When we do, we have 100 times more exposure, we have 100 times more chance for success. It is one thing to talk about a problem and another thing to actually contribute to the solution. Ward welfare services committees are organized to get results. A quorum and ward totally united in fasting, prayer, and works on behalf of one individual in need of work will produce miracles.
 
@@ -100,9 +100,7 @@ There is a holy brotherhood in a good quorum that draws the members together wit
 
 The bishop, through his counselor responsible for personal welfare matters, has the duty to correlate employment-finding activities outside the quorums.
 
-God bless you, our beloved leaders, to have charity for the unfortunate, which charity is the true love of Christ. “For now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.13|1 Cor. 13:13]].) In the name of Jesus Christ. Amen.
-
-
+God bless you, our beloved leaders, to have charity for the unfortunate, which charity is the true love of Christ. “For now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.13|1 Cor. 13:13]].) In the name of Jesus Christ. Amen.
 
 
 

@@ -1,6 +1,6 @@
 # Trust in That Spirit Which Leadeth to Do Good
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -36,7 +36,7 @@ The third feeling you have had tonight is that you want to be closer to the Savi
 
 So, with those feelings, the first thing you must commit to do is to go and serve, knowing that you do not go alone. When you go to comfort and serve anyone for the Savior, He prepares the way before you. Now, as the returned missionaries here tonight will tell you, that doesn’t mean that every person behind every door is prepared to welcome you or that every person you try to serve will thank you. But the Lord will go before your face to prepare the way.
 
-Time and again President Thomas S. Monson has said he knows the reality of the Lord’s promise: “And whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|D&C 84:88]]).
+Time and again President Thomas S. Monson has said he knows the reality of the Lord’s promise: “And whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|D&C 84:88]]).
 
 One of the ways He goes before your face is to prepare the heart of a person He has asked you to serve. He will prepare your heart as well.
 
@@ -50,7 +50,7 @@ You will also smile as you remember this verse: “And the King shall answer and
 
 The second thing you must do is remember the Lord as you go in service for Him. The Lord not only goes before our faces and sends angels to serve with us, but He also feels the comfort we give others as if we had given it to Him.
 
-Every daughter of God who hears and believes the messages of this meeting will ask, “What will the Lord have me do to help Him give succor to those in need?” Each sister’s situation is unique. That is true for my little band of daughters, daughters-in-law, granddaughters, and great-granddaughters. To them, and to all of Heavenly Father’s daughters, I repeat the wise counsel of Sister Linda K. Burton.
+Every daughter of God who hears and believes the messages of this meeting will ask, “What will the Lord have me do to help Him give succor to those in need?” Each sister’s situation is unique. That is true for my little band of daughters, daughters-in-law, granddaughters, and great-granddaughters. To them, and to all of Heavenly Father’s daughters, I repeat the wise counsel of Sister Linda K. Burton.
 
 She has asked you to pray in faith to know what the Lord would have you do in your circumstances. And then she spoke of the promise of the sweet comfort the Lord Himself gave to the woman who was criticized for having anointed His head with expensive oil when it might have been sold to help the poor.
 
@@ -76,7 +76,7 @@ And then He said:
 
 My prayer for the sisters in the kingdom, wherever they may be or in whatever circumstances, is that their faith in the Savior and gratitude for His Atonement will lead them to do all they can for those God asks them to serve. As they do, I promise that they will move up the path to become holy women whom the Savior and our Heavenly Father will welcome warmly and reward openly.
 
-I testify that this is the Church of the resurrected Jesus Christ. He is risen. He paid the price for all of our sins. I know that because of Him we will be resurrected and can have eternal life. President Thomas S. Monson is His living prophet. Heavenly Father hears and answers our prayers. I witness that we grow closer to the Savior as we, out of pure love, serve others for Him. I so leave you that sure witness in the name of Jesus Christ, amen.
+I testify that this is the Church of the resurrected Jesus Christ. He is risen. He paid the price for all of our sins. I know that because of Him we will be resurrected and can have eternal life. President Thomas S. Monson is His living prophet. Heavenly Father hears and answers our prayers. I witness that we grow closer to the Savior as we, out of pure love, serve others for Him. I so leave you that sure witness in the name of Jesus Christ, amen.
 
 
 
@@ -87,6 +87,4 @@ I testify that this is the Church of the resurrected Jesus Christ. He is risen. 
 
 [^3]: “Sweet Is the Work,” *Hymns,* no. 147.
 
-
-
-#Holy_Ghost #Humility #Jesus_Christ #Love #Service
+#HolyGhost #Humility #JesusChrist #Love #Service

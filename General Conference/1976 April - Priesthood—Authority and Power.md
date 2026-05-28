@@ -1,6 +1,6 @@
 # Priesthood—Authority and Power
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -48,17 +48,17 @@ Many are the brethren who do not understand what these sacred words mean:
 
 - We must not become puffed up in pride.
 
-I would like to say something about the power of the priesthood as it can bless the lives of women. Elder John A. Widtsoe said, “The Priesthood is not bestowed on the basis of mental power but is given to good men. … Woman has her gift of equal magnitude. … A wiser power than any on earth understands why a spirit in the far off beginning was male or female.” (John A. Widtsoe, *Priesthood and Church Government,* Deseret Book Co., 1954, p. 90.)
+I would like to say something about the power of the priesthood as it can bless the lives of women. Elder John A. Widtsoe said, “The Priesthood is not bestowed on the basis of mental power but is given to good men. … Woman has her gift of equal magnitude. … A wiser power than any on earth understands why a spirit in the far off beginning was male or female.” (John A. Widtsoe, *Priesthood and Church Government,* Deseret Book Co., 1954, p. 90.)
 
 Men are not superior to women. However, by the very nature of some of the things we do, we imply this. The fact that a man holds the priesthood and is the presiding officer in the home, as well as in Church organizations, does not in any way make him a superior being. The priesthood is a divinely given authority and responsibility which will receive its ultimate fulfillment only when there is a devoted and happy wife at his side. Note “happy” is the description of the wife.
 
 No man will ever be exalted by himself, no matter how great his works on the earth.
 
-Brethren, we would do well to understand that many of the finest ideas, useful in the proper management of a family, can come from openly discussing with, and seeking counsel from, our wives. Women have a spirit and mental ability that is absolutely essential in strengthening the family relationship. It must be nurtured, however, and drawn upon by the presiding priesthood authority in that home. We should be gladdened, not threatened, by our wives’ good qualities. Elder Neal A. Maxwell once said, “I am grateful for \[my wife’s\] traits and qualities that excel my own in some critical dimensions of our partnership.” (BYU Twelve-Stake Fireside, Jan. 4, 1976.)
+Brethren, we would do well to understand that many of the finest ideas, useful in the proper management of a family, can come from openly discussing with, and seeking counsel from, our wives. Women have a spirit and mental ability that is absolutely essential in strengthening the family relationship. It must be nurtured, however, and drawn upon by the presiding priesthood authority in that home. We should be gladdened, not threatened, by our wives’ good qualities. Elder Neal A. Maxwell once said, “I am grateful for \[my wife’s\] traits and qualities that excel my own in some critical dimensions of our partnership.” (BYU Twelve-Stake Fireside, Jan. 4, 1976.)
 
 May I also suggest to you that it is important for the brethren to develop the same concern for the training of girls as they have for the training of the priesthood boys. We need only refer to the experience of the 2,000 Ammonite sons of Helaman for an insight into one measure of the capacity of the women. I quote from Alma:
 
-“Now behold, there were two thousand of those young men, who entered into this covenant and took their weapons of war to defend their country. …
+“Now behold, there were two thousand of those young men, who entered into this covenant and took their weapons of war to defend their country. …
 
 “And they were all young men, and they were exceedingly valiant for courage, and also for strength and activity; but behold, this was not all—they were men who were true at all times in whatsoever thing they were entrusted.
 
@@ -89,8 +89,6 @@ And now, my brethren, in conclusion, may I continue in the Doctrine and Covenant
 What a beautiful promise! Blessed is the family that can look to you brethren as the vital conduit joining heaven and home.
 
 I testify to you that I know that He lives, that Jesus is the Christ, in the name of Jesus Christ. Amen.
-
-
 
 
 

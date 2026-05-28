@@ -1,6 +1,6 @@
 # Ocean Currents and Family Influences
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -77,8 +77,6 @@ As this conference concludes, we bless you, and we bring to you the blessings of
 I know that the Lord lives—that God who was with Adam, that God who came to the banks of the Jordan River to say, “This is my beloved Son, in whom I am well pleased” ([[Matthew 3.17|Matt. 3:17]]), to introduce his Son to a world that was to depend so completely on him. I know that was the God that we worship, who came on the Mount of Transfiguration and said again to those servants, Peter, James, and John, who were to carry on the work of the Lord even in their imperfections: “This is my beloved Son, in whom I am well pleased” ([[Matthew 17.5|Matt. 17:5]]), the same God—we know he lives and exists—who came in the state of New York and said those same things that he had already said to the Nephites—and now said to a world that had been traveling in darkness for a long, long time—“This is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|JS—H 1:17]].)
 
 I know that Jesus is the Christ, the Son of the living God. I know that. I know that the gospel which we teach is the gospel of Jesus Christ and the church to which we belong is the church of Jesus Christ; it teaches his doctrines and his policies and his programs. I know that if all of us will live the program as he has given it and will continue to give it, that all the blessings promised will be ours. Now God bless you, and we leave his blessings with you with our affection, our appreciation for you, in the name of his Son, Jesus Christ. Amen.
-
-
 
 
 

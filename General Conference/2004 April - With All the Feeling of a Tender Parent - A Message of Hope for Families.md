@@ -103,15 +103,15 @@ May we gather our loved ones around us, “gird up \[our\] loins; \[and\] fresh 
 
 
 
-[^1]: [[2 Timothy 3.1|2 Timothy 3:1]].
+[^1]: [[2 Timothy 3.1|2 Timothy 3:1]].
 
-[^2]: [[3 Nephi 2.3|3 Nephi 2:3]].
+[^2]: [[3 Nephi 2.3|3 Nephi 2:3]].
 
 [^3]: “Come, Come, Ye Saints,” *Hymns,* no. 30.
 
-[^4]: [[1 Nephi 8.35|1 Nephi 8:35–36]][[1 Nephi 8.36|]].
+[^4]: [[1 Nephi 8.35|1 Nephi 8:35–36]][[1 Nephi 8.36|]].
 
-[^5]: [[1 Nephi 8.37|1 Nephi 8:37–38]][[1 Nephi 8.38|]].
+[^5]: [[1 Nephi 8.37|1 Nephi 8:37–38]][[1 Nephi 8.38|]].
 
 [^6]: [[D&C 93.42|D&C 93:42–43, 50]][[D&C 93.43|]][[D&C 93.50|]].
 
@@ -129,17 +129,17 @@ May we gather our loved ones around us, “gird up \[our\] loins; \[and\] fresh 
 
 [^13]: [[Luke 15.20|Luke 15:20]].
 
-[^14]: [[1 Nephi 19.23|1 Nephi 19:23]].
+[^14]: [[1 Nephi 19.23|1 Nephi 19:23]].
 
 [^15]: [[Mosiah 27.14|Mosiah 27:14]].
 
-[^16]: [[1 Peter 2.25|1 Peter 2:25]].
+[^16]: [[1 Peter 2.25|1 Peter 2:25]].
 
 [^17]: [[Isaiah 40.11|Isaiah 40:11]].
 
 [^18]: See [[Ephesians 6.11|Ephesians 6:11, 13]][[Ephesians 6.13|]]; see also [[D&C 27.15|D&C 27:15]].
 
-[^19]: [[1 Nephi 15.24|1 Nephi 15:24]]; [[D&C 3.8|D&C 3:8]]; see also [[Ephesians 6.16|Ephesians 6:16]].
+[^19]: [[1 Nephi 15.24|1 Nephi 15:24]]; [[D&C 3.8|D&C 3:8]]; see also [[Ephesians 6.16|Ephesians 6:16]].
 
 [^20]: [[Ephesians 6.16|Ephesians 6:16]]; [[D&C 27.17|D&C 27:17]].
 
@@ -147,6 +147,4 @@ May we gather our loved ones around us, “gird up \[our\] loins; \[and\] fresh 
 
 [^22]: In Conference Report, Apr. 1929, 110.
 
-
-
-#Children #Faith #Family #Parenthood #Scripture_Study #Teaching
+#Children #Faith #Family #Parenthood #ScriptureStudy #Teaching

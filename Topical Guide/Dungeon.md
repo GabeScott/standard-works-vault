@@ -1,6 +1,5 @@
 # Dungeon
 
-
 *See also* [[Prison.md|Prison]]
 
 they brought him hastily out of the *dungeon*, [[Genesis 41.14|Genesis 41:14]].

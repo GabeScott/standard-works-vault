@@ -21,6 +21,4 @@ I conclude with a testimony I heard this past week from three recent converts wh
 
 
 
-
-
-#Book_Of_Mormon #God_The_Father #Love #Prophets #Service
+#BookOfMormon #GodTheFather #Love #Prophets #Service

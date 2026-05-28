@@ -1,6 +1,6 @@
 # The Eye of Faith
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -56,7 +56,7 @@ The scriptures, our prayers, our own experiences, modern prophets, and the gift 
 
 Let’s look at the proclamation on the family through the eye of faith.
 
-President Gordon B. Hinckley introduced “The Family: A Proclamation to the World” with this statement: “With so much of sophistry that is passed off as truth, with so much of deception concerning standards and values, with so much of allurement and enticement to take on the slow stain of the world, we have felt to warn \[you\].”[^11]
+President Gordon B. Hinckley introduced “The Family: A Proclamation to the World” with this statement: “With so much of sophistry that is passed off as truth, with so much of deception concerning standards and values, with so much of allurement and enticement to take on the slow stain of the world, we have felt to warn \[you\].”[^11]
 
 The proclamation begins: “All human beings—male and female—are created in the image of God. Each is a beloved spirit son or daughter of heavenly parents, and, as such, each has a divine nature and destiny.”
 
@@ -76,7 +76,7 @@ If we pick and choose what we accept in the proclamation, we cloud our eternal v
 
 Should we really be surprised when the Lord’s prophets declare His will and, for some, questions remain? Of course, some reject the voice of the prophets immediately,[^17] but others prayerfully ponder their honest questions—questions that will be settled with patience and an eye of faith. If the proclamation had been revealed in a different century, there would still have been questions, just different questions than those of today. One purpose of prophets is to help us in resolving sincere questions.[^18]
 
-Prior to being the President of the Church, President Russell M. Nelson said: “Prophets see ahead. They see the harrowing dangers the adversary has placed or will yet place in our path. Prophets also foresee the grand possibilities and privileges awaiting those who listen *with the intent to obey.*”[^19]
+Prior to being the President of the Church, President Russell M. Nelson said: “Prophets see ahead. They see the harrowing dangers the adversary has placed or will yet place in our path. Prophets also foresee the grand possibilities and privileges awaiting those who listen *with the intent to obey.*”[^19]
 
 I testify to the truth and spiritual power of the united voice of the First Presidency and the Quorum of the Twelve.
 
@@ -119,7 +119,7 @@ I know the Savior lives. I witness that He is the source of all truth that reall
 
 [^1]: [[John 18.33|John 18:33, 36–38]][[John 18.36|]][[John 18.37|]][[John 18.38|]].
 
-[^2]: William S. Sahakian and Mabel Lewis Sahakian, *Ideas of the Great Philosophers* (1966), 28.
+[^2]: William S. Sahakian and Mabel Lewis Sahakian, *Ideas of the Great Philosophers* (1966), 28.
 
 [^3]: [[D&C 93.24|Doctrine and Covenants 93:24]].
 
@@ -133,27 +133,27 @@ I know the Savior lives. I witness that He is the source of all truth that reall
 
 [^8]: [[Moroni 10.5|Moroni 10:5]].
 
-[^9]: Joseph Smith Translation, 1 Corinthians 2:11 (in [[1 Corinthians 2.11|1 Corinthians 2:11]], footnote *c*); [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^9]: Joseph Smith Translation, 1 Corinthians 2:11 (in [[1 Corinthians 2.11|1 Corinthians 2:11]], footnote *c*); [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
-[^10]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^10]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
-[^11]: Gordon B. Hinckley, “[[1995 October - Stand Strong against the Wiles of the World.md|Stand Strong against the Wiles of the World]],” *Ensign,* Nov. 1995, 100. President Russell M. Nelson recently explained some of the history of the proclamation, as summarized by Sheri Dew in *Insights from a Prophet’s Life: Russell M. Nelson* (2019), 208:
+[^11]: Gordon B. Hinckley, “[[1995 October - Stand Strong against the Wiles of the World.md|Stand Strong against the Wiles of the World]],” *Ensign,* Nov. 1995, 100. President Russell M. Nelson recently explained some of the history of the proclamation, as summarized by Sheri Dew in *Insights from a Prophet’s Life: Russell M. Nelson* (2019), 208:
 
-[^12]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
+[^12]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
-[^13]: President Dallin H. Oaks said: “All of the myriads of mortals who have been born on this earth chose the Father’s plan and fought for it. Many of us also made covenants with the Father concerning what we would do in mortality. In ways that have not been revealed, our actions in the spirit world influence us in mortality” (“[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign,* Nov. 1993, 72).
+[^13]: President Dallin H. Oaks said: “All of the myriads of mortals who have been born on this earth chose the Father’s plan and fought for it. Many of us also made covenants with the Father concerning what we would do in mortality. In ways that have not been revealed, our actions in the spirit world influence us in mortality” (“[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign,* Nov. 1993, 72).
 
-[^14]: See Dallin H. Oaks, “[[2018 October - Truth and the Plan.md|Truth and the Plan]],” *Ensign* or *Liahona,* Nov. 2018, 25–28.
+[^14]: See Dallin H. Oaks, “[[2018 October - Truth and the Plan.md|Truth and the Plan]],” *Ensign* or *Liahona,* Nov. 2018, 25–28.
 
 [^15]: [[Abraham 3.26|Abraham 3:26]].
 
-[^16]: President Dallin H. Oaks has said:
+[^16]: President Dallin H. Oaks has said:
 
-[^17]: President Russell M. Nelson has said: “There are those who label us \[as\] bigots, but the bigots are those who don’t allow us to feel as we feel but want us to allow them to feel as they feel. Our stand ultimately boils down to the law of chastity. The Ten Commandments are still valid. They’ve never been revoked. … It is not our prerogative to change laws that God has decreed” (in Dew, *Insights from a Prophet’s Life,* 212).
+[^17]: President Russell M. Nelson has said: “There are those who label us \[as\] bigots, but the bigots are those who don’t allow us to feel as we feel but want us to allow them to feel as they feel. Our stand ultimately boils down to the law of chastity. The Ten Commandments are still valid. They’ve never been revoked. … It is not our prerogative to change laws that God has decreed” (in Dew, *Insights from a Prophet’s Life,* 212).
 
 [^18]: “While the family is under attack across the entire world, the truths of the family proclamation will fortify you.
 
-[^19]: Russell M. Nelson, “[Stand as True Millennials](https://churchofjesuschrist.org/study/liahona/2016/10/young-adults/stand-as-true-millennials?lang=eng),” *Ensign,* Oct. 2016, 31; *Liahona,* Oct. 2016, 53.
+[^19]: Russell M. Nelson, “[Stand as True Millennials](https://www.churchofjesuschrist.org/study/liahona/2016/10/young-adults/stand-as-true-millennials?lang=eng),” *Ensign,* Oct. 2016, 31; *Liahona,* Oct. 2016, 53.
 
 [^20]: President Nelson has said: “Civil governments are heavily influenced by social trends and secular philosophies as they write, rewrite, and enforce laws. Regardless of what civil legislation may be enacted, the doctrine of the Lord regarding marriage and morality *cannot be changed.* Remember: sin, even if legalized by man, is still sin in the eyes of God!” (“[[2013 October - Decisions for Eternity.md|Decisions for Eternity]],” *Ensign* or *Liahona,* Nov. 2013, 108).
 
@@ -163,6 +163,4 @@ I know the Savior lives. I witness that He is the source of all truth that reall
 
 [^23]: See [[Alma 7.12|Alma 7:12]]; Jesus Christ suffered not only for our sins but for our infirmities as well: “He will take upon him death, that he may loose the bands of death which bind his people; and he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people according to their infirmities.” (Synonyms for *infirmities* would be *sickness, weakness, affliction, deficiency.*) See [[D&C 88.6|Doctrine and Covenants 88:6]]: “He descended below all things, in that he comprehended all things, that he might be in all and through all things, the light of truth.”
 
-
-
-#Faith #Family #Holy_Ghost #Marriage #Truth
+#Faith #Family #HolyGhost #Marriage #Truth

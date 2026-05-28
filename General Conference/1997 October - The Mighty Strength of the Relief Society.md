@@ -68,7 +68,7 @@ In such a house will be found happy, smiling children who have been taught, by p
 
 Years pass, and children become more independent. They move away from mother’s protective care, but they are ever influenced by mother’s teachings, mother’s example, and mother’s love. Some appear by their actions to have forgotten this influence. However far from the hearth of home the wanderer travels, the word *mother* mentally and emotionally brings him or her homeward once again. And mother, as always, stands with welcoming arms.
 
-President Stephen L Richards declared: “The various organizations of the Church … however much of good they may accomplish, can in no sense take the place of the home. They cannot be proxy for parents. …
+President Stephen L Richards declared: “The various organizations of the Church … however much of good they may accomplish, can in no sense take the place of the home. They cannot be proxy for parents. …
 
 “I believe in the home as the foundation of society, as the cornerstone of the nation, and as the primary institution of the Church. I cannot conceive of a great people without great, good homes. I believe that the first calling of man and woman is to form a good home.”[^12]
 
@@ -157,6 +157,4 @@ Sisters, may we gain knowledge through study. May we make home a heaven. May we 
 
 [^17]: [[D&C 1.30|D&C 1:30]].
 
-
-
-#Blessings #Children #Curriculum #Family #Home #Joy #Motherhood #Priesthood #Relief_Society #Service #Women
+#Blessings #Children #Curriculum #Family #Home #Joy #Motherhood #Priesthood #ReliefSociety #Service #Women

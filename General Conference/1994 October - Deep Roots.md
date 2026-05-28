@@ -44,7 +44,7 @@ Just as real is one who would prevent us from becoming rooted to God and his tru
 
 From that time forward, Satan has led the forces of evil in a battle for the souls of men in his attempt to frustrate the plan of salvation. We learn from the Book of Mormon prophet Moroni that “all things which are good cometh of God; and that which is evil cometh of the devil; for the devil is an enemy unto God, and fighteth against him continually, and inviteth and enticeth to sin, and to do that which is evil continually.
 
-“But behold, that which is of God inviteth and enticeth to do good continually; wherefore, … to love God, and to serve him, is inspired of God. …
+“But behold, that which is of God inviteth and enticeth to do good continually; wherefore, … to love God, and to serve him, is inspired of God. …
 
 “… The Spirit of Christ is given to every man, that he may know good from evil; … every thing which inviteth to do good, and to persuade to believe in Christ, is sent forth by the power and gift of Christ; …
 
@@ -83,7 +83,7 @@ I bear testimony that we can find peace, security, and joy and happiness in the 
 
 
 
-[^1]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 354.
+[^1]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 354.
 
 [^2]: [[Moses 4.2|Moses 4:2]].
 
@@ -101,7 +101,7 @@ I bear testimony that we can find peace, security, and joy and happiness in the 
 
 [^9]: [[Moroni 7.12|Moro. 7:12–13, 16–17]][[Moroni 7.13|]][[Moroni 7.16|]][[Moroni 7.17|]].
 
-[^10]: *The Teachings of Ezra Taft Benson* (Salt Lake City: Bookcraft, 1988), p. 277.
+[^10]: *The Teachings of Ezra Taft Benson* (Salt Lake City: Bookcraft, 1988), p. 277.
 
 [^11]: [[D&C 59.6|D&C 59:6]].
 
@@ -111,7 +111,7 @@ I bear testimony that we can find peace, security, and joy and happiness in the 
 
 [^14]: [[D&C 123.12|D&C 123:12]].
 
-[^15]: [[Articles of Faith 1.11|A of F 1:11]].
+[^15]: [[Articles of Faith 1.11|A of F 1:11]].
 
 [^16]: [[D&C 42.58|D&C 42:58]].
 
@@ -121,6 +121,4 @@ I bear testimony that we can find peace, security, and joy and happiness in the 
 
 [^19]: [[Ether 2.7|Ether 2:7, 9]][[Ether 2.9|]].
 
-
-
-#Adversity #Holy_Ghost #Jesus_Christ #Missionary_Work #Morality #Resurrection #Satan #Self-Control #Spirituality #Word_Of_Wisdom
+#Adversity #HolyGhost #JesusChrist #MissionaryWork #Morality #Resurrection #Satan #Self-control #Spirituality #WordOfWisdom

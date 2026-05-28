@@ -54,7 +54,7 @@ With some prompting, Brother Salas opened his eyes, and a wan smile graced his l
 
 I asked if a blessing would be desired, and the unanimous answer from the family members was affirmative. Since the son-in-law did not hold the priesthood, I proceeded by myself to provide a priesthood blessing. The words seemed to flow freely under the direction of the Spirit of the Lord. I included the Savior’s words found in the Doctrine and Covenants, section 84, verse 88: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.” Following the blessing, I offered a few words of comfort to the grieving family members. I spoke carefully so they could understand my English. And then, with my limited Spanish language ability, I let them know that I loved them and that our Heavenly Father would bless them.
 
-I asked for the family Bible and directed their attention to 3 John, verse 4: “I have no greater joy than to hear that my children walk in truth.” I said to them, “This is what your husband and father would have you remember as he prepares to depart this earthly existence.”
+I asked for the family Bible and directed their attention to 3 John, verse 4: “I have no greater joy than to hear that my children walk in truth.” I said to them, “This is what your husband and father would have you remember as he prepares to depart this earthly existence.”
 
 With tears streaming down her face, Brother Salas’s sweet wife then asked if I would write down the references for the two scriptures I had shared with them so that the family might read them again. Not having anything handy on which I could write, Sister Salas reached into her purse and drew from it a slip of paper. As I took it from her, I noticed it was a tithing receipt. My heart was touched as I realized that, despite the extremely humble circumstances in which the family lived, they were faithful in paying their tithes.
 
@@ -69,7 +69,7 @@ May we each have the courage to do so, I pray in the name of Jesus Christ, amen.
 
 
 
-[^1]: [[1 Peter 2.9|1 Peter 2:9]].
+[^1]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^2]: *Gospel Doctrine,* 5th ed. (1939), 139–40.
 
@@ -82,7 +82,5 @@ May we each have the courage to do so, I pray in the name of Jesus Christ, amen.
 [^6]: [[Luke 18.22|Luke 18:22]].
 
 [^7]: [[D&C 107.99|D&C 107:99]].
-
-
 
 #Courage #Gratitude #Priesthood #Tithing #Worthiness

@@ -1,11 +1,10 @@
 # Israel, Scattering of
 
-
 *See also* [[Apostasy of Israel.md|Apostasy of Israel]]; [[Israel, Remnant of.md|Israel, Remnant of]]; [[Israel, Restoration of.md|Israel, Restoration of]]
 
 thou shalt *spread abroad*, [[Genesis 28.14|Genesis 28:14]].
 
-Joseph is ... a fruitful bough by a well; whose branches *run* over the wall, [[Genesis 49.22|Genesis 49:22]].
+Joseph is … a fruitful bough by a well; whose branches *run* over the wall, [[Genesis 49.22|Genesis 49:22]].
 
 I will *scatter* you among the heathen, [[Leviticus 26.33|Leviticus 26:33]] ([[Psalms 44.11|Psalms 44:11]]; [[Jeremiah 9.16|Jeremiah 9:16]]; [[Ezekiel 20.23|Ezekiel 20:23]]; [[Ezekiel 22.15|Ezekiel 22:15]]).
 
@@ -13,13 +12,13 @@ Lord shall *scatter* you among the nations, [[Deuteronomy 4.27|Deuteronomy 4:27]
 
 Lord shall *scatter* thee among all people, [[Deuteronomy 28.64|Deuteronomy 28:64]].
 
-I saw all Israel *scattered* ... as sheep, [[1 Kings 22.17|1 Kings 22:17]].
+I saw all Israel *scattered* … as sheep, [[1 Kings 22.17|1 Kings 22:17]].
 
 *carried* them captive to Assyria, [[2 Kings 15.29|2 Kings 15:29]].
 
 king of Assyria took Samaria, and *carried* Israel away, [[2 Kings 17.6|2 Kings 17:6]] ([[2 Nephi 18.4|2 Nephi 18:4]]).
 
-Zedekiah ... and *carried* him to Babylon, [[2 Kings 25.7|2 Kings 25:7]].
+Zedekiah … and *carried* him to Babylon, [[2 Kings 25.7|2 Kings 25:7]].
 
 every city shall be *forsaken*, and not a man dwell therein, [[Jeremiah 4.29|Jeremiah 4:29]].
 
@@ -61,13 +60,13 @@ because of unbelief they were *broken* off, [[Romans 11.20|Romans 11:20]].
 
 many be carried away *captive* into Babylon, [[1 Nephi 10.3|1 Nephi 10:3]].
 
-Israel ... like unto an olive tree, whose branches ... *scattered*, [[1 Nephi 10.12|1 Nephi 10:12]].
+Israel … like unto an olive tree, whose branches … *scattered*, [[1 Nephi 10.12|1 Nephi 10:12]].
 
 they were *scattered* before the Gentiles, [[1 Nephi 13.14|1 Nephi 13:14]].
 
 *scattered* upon all the face of the earth, [[1 Nephi 22.3|1 Nephi 22:3]].
 
-tribes ... are *scattered* ... upon the isles of the sea, [[1 Nephi 22.4|1 Nephi 22:4]].
+tribes … are *scattered* … upon the isles of the sea, [[1 Nephi 22.4|1 Nephi 22:4]].
 
 a branch which was to be *broken* off, [[2 Nephi 3.5|2 Nephi 3:5]].
 
@@ -75,11 +74,11 @@ Lord God has *led* away from time to time, [[2 Nephi 10.22|2 Nephi 10:22]].
 
 Jews shall be *scattered* among all nations, [[2 Nephi 25.15|2 Nephi 25:15]].
 
-I take *away* many of these ... branches, [[Jacob 5.8|Jacob 5:8]].
+I take *away* many of these … branches, [[Jacob 5.8|Jacob 5:8]].
 
 people of *Zarahemla* came out from Jerusalem, [[Omni 1.15|Omni 1:15]] ([[Mosiah 25.2|Mosiah 25:2]]).
 
-*Mulek* ... driven out of the land of Jerusalem, [[Helaman 8.21|Helaman 8:21]].
+*Mulek* … driven out of the land of Jerusalem, [[Helaman 8.21|Helaman 8:21]].
 
 have *scattered* my people who are of the house of Israel, [[3 Nephi 16.8|3 Nephi 16:8]].
 
@@ -90,5 +89,3 @@ they shall minister unto all the *scattered* tribes of Israel, [[3 Nephi 28.29|3
 Lord brought a *remnant* of the seed of Joseph out, [[Ether 13.7|Ether 13:7]].
 
 *scattered* remnants are exhorted to return, [[D&C 113.10|D&C 113:10]].
-
-*See also* [[Isaiah 1.7|Isaiah 1:7]]; [[Isaiah 36.1|Isaiah 36:1]]; [[Helaman 6.10|Helaman 6:10]].

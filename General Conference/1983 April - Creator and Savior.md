@@ -1,6 +1,6 @@
 # Creator and Savior
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -76,9 +76,9 @@ Christ also taught that He Himself was the Creator. Said He to the Prophet Josep
 
 One of our most touching and impressive revelations of the Savior is provided in the Book of Ether, where the appearance of the Lord to the brother of Jared is recorded. I quote briefly from it. Said the Savior to the brother of Jared:
 
-“Behold, I am he who was prepared from the foundation of the world to redeem my people. Behold, I am Jesus Christ. …
+“Behold, I am he who was prepared from the foundation of the world to redeem my people. Behold, I am Jesus Christ. …
 
-“Never have I shown myself unto man whom I created, for never has man believed in me as thou hast. Seest thou that ye are created after mine own image? Yea, even all men were created in the beginning after mine own image. …
+“Never have I shown myself unto man whom I created, for never has man believed in me as thou hast. Seest thou that ye are created after mine own image? Yea, even all men were created in the beginning after mine own image. …
 
 “This body, which ye now behold, is the body of my spirit; and *man have I created* after the body of my spirit; and even as I appear unto thee to be in the spirit will I appear unto my people in the flesh.” ([[Ether 3.14|Ether 3:14–16]][[Ether 3.15|]][[Ether 3.16|]]; italics added.)
 
@@ -112,7 +112,7 @@ The Father repeatedly expressed His satisfaction with the ministry of His Son. D
 
 Did He not repeat it on the Mount of Transfiguration? “This is my beloved Son, *in whom I am well pleased.*” ([[Matthew 17.5|Matt. 17:5]]; italics added.)
 
-Did He not introduce the Savior to the Nephites with the same expression? “Behold my Beloved Son, *in whom I am well pleased.*” ([[3 Nephi 11.7|3 Ne. 11:7]]; italics added.)
+Did He not introduce the Savior to the Nephites with the same expression? “Behold my Beloved Son, *in whom I am well pleased.*” ([[3 Nephi 11.7|3 Ne. 11:7]]; italics added.)
 
 And when He appeared to the boy Joseph Smith, did He not give His Beloved Son another positive endorsement?
 
@@ -149,6 +149,4 @@ Yes, today is Easter, and to us Easter means Christ—the resurrected Christ, th
 
 
 
-
-
-#Atonement #Jesus_Christ #Resurrection
+#Atonement #JesusChrist #Resurrection

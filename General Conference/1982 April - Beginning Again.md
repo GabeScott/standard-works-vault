@@ -1,6 +1,6 @@
 # Beginning Again
 
-By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
+By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -86,15 +86,13 @@ We recall with clarity these words of the Master: “Seek ye first to build up t
 
 *Seventh,* be open and candid in your relationships with others. So many of life’s difficulties are brought about by being double-minded. Let us learn to say it as it is. Think of Peter’s extreme discomfort when the Master addressed him after Peter had been teaching a false concept: “Thou art an offence unto me: for thou savourest not the things that be of God, but those that be of man.” ([[Matthew 16.23|Matt. 16:23]].) From that moment, Peter was a greater disciple. The person who is open and honest will be vindicated. Time is his friend. Trust is his reward.
 
-*Last,* and perhaps the hardest of all, forgive. Paul said, “To whom ye forgive any thing, I forgive also.” ([[2 Corinthians 2.10|2 Cor. 2:10]].) Certainly part of beginning again is to “love your enemies, do good to them which hate you, Bless them that curse you, and pray for them which despitefully use you.” ([[Luke 6.27|Luke 6:27–28]][[Luke 6.28|]].) Paul reinforced this admonition when he said, “See that none render evil for evil unto any man; but ever follow that which is good, both among yourselves, and to all men.” ([[1 Thessalonians 5.15|1 Thes. 5:15]].) Revenge has no place in the life of a person who has found the “Land of Beginning Again.”
+*Last,* and perhaps the hardest of all, forgive. Paul said, “To whom ye forgive any thing, I forgive also.” ([[2 Corinthians 2.10|2 Cor. 2:10]].) Certainly part of beginning again is to “love your enemies, do good to them which hate you, Bless them that curse you, and pray for them which despitefully use you.” ([[Luke 6.27|Luke 6:27–28]][[Luke 6.28|]].) Paul reinforced this admonition when he said, “See that none render evil for evil unto any man; but ever follow that which is good, both among yourselves, and to all men.” ([[1 Thessalonians 5.15|1 Thes. 5:15]].) Revenge has no place in the life of a person who has found the “Land of Beginning Again.”
 
 Think how young Joseph had been wronged by jealous brothers anciently. They sold him into slavery. He had every reason to seek revenge. But when circumstances joined them together again in Egypt, Joseph said, “But as for you, ye thought evil against me; but God meant it unto good, … to save much people.” ([[Genesis 50.20|Gen. 50:20]].)
 
 Yes, so much of heartache and grief eventually become blessings, our earthly instructions, and condition us spiritually. Even if we cannot understand the “whys” of our tribulations, we can still turn to God and rededicate our lives to his safekeeping. Yes, “he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.” ([[D&C 59.23|D&C 59:23]].)
 
 May each of us, where necessary, Begin Again. I testify that the gospel of Jesus Christ has been restored and that we are to live its principles and precepts, and by so doing will be exalted. And this I say humbly in the worthy name of Jesus Christ, our Master, amen.
-
-
 
 
 

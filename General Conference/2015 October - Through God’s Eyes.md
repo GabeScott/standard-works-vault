@@ -1,6 +1,6 @@
 # Through God’s Eyes
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -20,7 +20,7 @@ In 1986 a young man named Chad developed heart failure and received a heart tran
 
 One evening, he was brought to the hospital’s emergency department in full cardiac arrest. My associates and I worked for a long time to restore his circulation. Finally, it became clear that Chad could not be revived. We stopped our futile efforts, and I declared him dead. Although sad and disappointed, I maintained a professional attitude. I thought to myself, “Chad has had good care. He has had many more years of life than he otherwise would have had.” That emotional distance soon shattered as his parents came into the emergency room bay and saw their deceased son lying on a stretcher. In that moment, I saw Chad through his mother’s and father’s eyes. I saw the great hopes and expectations they had had for him, the desire they had had that he would live just a little bit longer and a little bit better. With this realization, I began to weep. In an ironic reversal of roles and in an act of kindness I will never forget, Chad’s parents comforted me.
 
-I now realize that in the Church, to effectively serve others we must see them through a parent’s eyes, through Heavenly Father’s eyes. Only then can we begin to comprehend the true worth of a soul. Only then can we sense the love that Heavenly Father has for all of His children. Only then can we sense the Savior’s caring concern for them. We cannot completely fulfill our covenant obligation to mourn with those who mourn and comfort those who stand in need of comfort unless we see them through God’s eyes.[^3] This expanded perspective will open our hearts to the disappointments, fears, and heartaches of others. But Heavenly Father will aid and comfort us, just as Chad’s parents comforted me years ago. We need to have eyes that see, ears that hear, and hearts that know and feel if we are to accomplish the rescue so frequently encouraged by President Thomas S. Monson.[^4]
+I now realize that in the Church, to effectively serve others we must see them through a parent’s eyes, through Heavenly Father’s eyes. Only then can we begin to comprehend the true worth of a soul. Only then can we sense the love that Heavenly Father has for all of His children. Only then can we sense the Savior’s caring concern for them. We cannot completely fulfill our covenant obligation to mourn with those who mourn and comfort those who stand in need of comfort unless we see them through God’s eyes.[^3] This expanded perspective will open our hearts to the disappointments, fears, and heartaches of others. But Heavenly Father will aid and comfort us, just as Chad’s parents comforted me years ago. We need to have eyes that see, ears that hear, and hearts that know and feel if we are to accomplish the rescue so frequently encouraged by President Thomas S. Monson.[^4]
 
 Only when we see through Heavenly Father’s eyes can we be filled with “the pure love of Christ.”[^5] Every day we should plead with God for this love. Mormon admonished, “Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ.”[^6]
 
@@ -33,11 +33,11 @@ I testify that on a day in 1820 in a grove in upstate New York, the risen Lord a
 
 [^1]: [[D&C 1.23|Doctrine and Covenants 1:23]].
 
-[^2]: “The Family: A Proclamation to the World,” *Ensign* or *Liahona,* Nov. 2010, 129; it was first read by President Gordon B. Hinckley as part of his message at the general Relief Society meeting held on September 23, 1995, in Salt Lake City, Utah.
+[^2]: “The Family: A Proclamation to the World,” *Ensign* or *Liahona,* Nov. 2010, 129; it was first read by President Gordon B. Hinckley as part of his message at the general Relief Society meeting held on September 23, 1995, in Salt Lake City, Utah.
 
 [^3]: See [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]].
 
-[^4]: See, for example, Thomas S. Monson, [“To the Rescue,”](https://churchofjesuschrist.org/study/ensign/2001/05/to-the-rescue?lang=eng) *Ensign,* May 2001, 48–50; *Liahona,* July 2001, 57–60; [“Our Responsibility to Rescue,”](https://churchofjesuschrist.org/study/ensign/2013/10/our-responsibility-to-rescue?lang=eng) *Ensign* or *Liahona,* Oct. 2013, 4–5. President Monson reiterated these concepts in his message to General Authorities on September 30, 2015, reminding those assembled that he was reemphasizing the message he gave to General Authorities and Area Seventies in training meetings at the April 2009 general conference.
+[^4]: See, for example, Thomas S. Monson, “[To the Rescue](https://www.churchofjesuschrist.org/study/ensign/2001/05/to-the-rescue?lang=eng),” *Ensign,* May 2001, 48–50; *Liahona,* July 2001, 57–60; “[Our Responsibility to Rescue](https://www.churchofjesuschrist.org/study/ensign/2013/10/our-responsibility-to-rescue?lang=eng),” *Ensign* or *Liahona,* Oct. 2013, 4–5. President Monson reiterated these concepts in his message to General Authorities on September 30, 2015, reminding those assembled that he was reemphasizing the message he gave to General Authorities and Area Seventies in training meetings at the April 2009 general conference.
 
 [^5]: [[Moroni 7.47|Moroni 7:47]].
 
@@ -47,6 +47,4 @@ I testify that on a day in 1820 in a grove in upstate New York, the risen Lord a
 
 [^8]: “The Living Christ: The Testimony of the Apostles,” *Ensign* or *Liahona,* Apr. 2000, 3. In citing this here, I figuratively add my signature to the document, witnessing to the selfsame testimony provided by those Apostles.
 
-
-
-#Church_Callings #Divine_Nature #Jesus_Christ #Service
+#ChurchCallings #DivineNature #JesusChrist #Service

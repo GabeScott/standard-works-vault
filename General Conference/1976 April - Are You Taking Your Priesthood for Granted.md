@@ -1,6 +1,6 @@
 # Are You Taking Your Priesthood for Granted?
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -42,7 +42,7 @@ Regardless of the priesthood we hold, if we keep ourselves clean and pure and in
 
 “For whoso is *faithful* unto the obtaining these two priesthoods of which I have spoken, and the *magnifying their calling,* are sanctified by the Spirit unto the renewing of their bodies.
 
-“They become the sons of Moses and of Aaron and the seed of Abraham, and the church and kingdom, and the elect of God. …
+“They become the sons of Moses and of Aaron and the seed of Abraham, and the church and kingdom, and the elect of God. …
 
 “And I now give unto you a commandment to beware concerning yourselves, to give diligent heed to the words of eternal life.
 
@@ -78,7 +78,7 @@ In all my experience, brethren, I have never found a time when living the standa
 
 Now, regarding chastity. Immorality is so common in the world that it is even affecting some of our priesthood holders, which makes me very sad. The Lord has told us definitely: “Thou shalt not commit adultery.” ([[Exodus 20.14|Ex. 20:14]].)
 
-Paul, in speaking to the Corinthians, said: “Know ye not that the unrighteous shall not inherit the kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind.” ([[1 Corinthians 6.9|1 Cor. 6:9]].)
+Paul, in speaking to the Corinthians, said: “Know ye not that the unrighteous shall not inherit the kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind.” ([[1 Corinthians 6.9|1 Cor. 6:9]].)
 
 Helaman, speaking to his people, warned them in these words: “Yea, even at this time ye are ripening, because of your murders and your fornication and wickedness, for everlasting destruction; yea, and except ye repent it will come unto you soon.” ([[Helaman 8.26|Hel. 8:26]].)
 
@@ -96,13 +96,13 @@ If any of you are guilty of serious sin or transgression, I would urge you to go
 
 I am very sorry to report that we have cases where people, both men and women, have lied to go to the temple and to go on missions. The Lord has said that no unclean thing shall enter the temple of God. (See, e.g., [[D&C 97.15|D&C 97:15]].) When one is being interviewed for a temple recommend or for a mission, he should realize that the bishop and stake president are representing the Lord and that their answers are to the Lord and their commitments to the Lord. The Lord knows and will not be mocked.
 
-We have cases where people have gone to the temple unworthily and have had a guilty conscience for years, wondering whether the ordinance will be binding or effective, and they have come to the President of the Church heartbroken to ask forgiveness and to get the matter cleared up. Let us be honest, true, chaste, benevolent, and virtuous. (See [[Articles of Faith 1.13|A of F 1:13]].)
+We have cases where people have gone to the temple unworthily and have had a guilty conscience for years, wondering whether the ordinance will be binding or effective, and they have come to the President of the Church heartbroken to ask forgiveness and to get the matter cleared up. Let us be honest, true, chaste, benevolent, and virtuous. (See [[Articles of Faith 1.13|A of F 1:13]].)
 
 Prospective missionaries should realize that the Lord wants somebody in whom he can place every confidence, one who is clean and worthy in every way to represent him in the mission field. If you are not worthy, don’t accept a call, don’t lie to get there, but through repentance prepare yourself to go. It is so much better to wait a year or so than to go unworthily. Have the courage and manhood, stamina and determination to face the facts, to tell the truth, to prepare yourselves in every way to do what the Lord would want you to do.
 
-Let us listen to and always remember this profound statement made by the late Richard L. Evans:
+Let us listen to and always remember this profound statement made by the late Richard L. Evans:
 
-“Sometimes and under some conditions it is possible to escape from many things—from prison walls, from false friends, from bad company, from boring people, from old environments—but never from ourselves. When we lie down at night, we are there with our own thoughts—whether we like them or not. When we wake in the morning, we are still there—whether we like us or not. The most persistent thing in life (and, we have no doubt, in death also) is our own consciousness of ourselves. This being so, there is no more pitiable person than he who is uncomfortable in his own company—no matter where he runs or how fast, or how far.” (Richard L. Evans, *Richard Evans’ Quote Book,* Salt Lake City: Publishers Press, 1971, p. 214.)
+“Sometimes and under some conditions it is possible to escape from many things—from prison walls, from false friends, from bad company, from boring people, from old environments—but never from ourselves. When we lie down at night, we are there with our own thoughts—whether we like them or not. When we wake in the morning, we are still there—whether we like us or not. The most persistent thing in life (and, we have no doubt, in death also) is our own consciousness of ourselves. This being so, there is no more pitiable person than he who is uncomfortable in his own company—no matter where he runs or how fast, or how far.” (Richard L. Evans, *Richard Evans’ Quote Book,* Salt Lake City: Publishers Press, 1971, p. 214.)
 
 The Lord has provided a way by which one can be released from such a condition. He said:
 
@@ -110,13 +110,11 @@ The Lord has provided a way by which one can be released from such a condition. 
 
 “By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.” ([[D&C 58.42|D&C 58:42–43]][[D&C 58.43|]].)
 
-Let us always remember that we priesthood holders are the royal army of God. We are all volunteers. We are waging war against the devil and evil of all kinds. This is a struggle of right or wrong, life or death, for eternal life. Jesus Christ is our leader—our general. Spencer W. Kimball is our commanding officer. The priesthood is our strength, and we must not weaken our army by breaking the Word of Wisdom, by being immoral, by being dishonest or undependable. We must remain strong and follow the orders of our commanding officer.
+Let us always remember that we priesthood holders are the royal army of God. We are all volunteers. We are waging war against the devil and evil of all kinds. This is a struggle of right or wrong, life or death, for eternal life. Jesus Christ is our leader—our general. Spencer W. Kimball is our commanding officer. The priesthood is our strength, and we must not weaken our army by breaking the Word of Wisdom, by being immoral, by being dishonest or undependable. We must remain strong and follow the orders of our commanding officer.
 
 If we are to win, we cannot have soldiers AWOL. We must not have deserters. We need and must have a loyal, devoted, dedicated, united front. We cannot lose if we remain clean, obedient, and true to the faith.
 
-Let us remember also that every disloyal person weakens our army, and pray that we will not be that person. This is the work of the Lord in which we are engaged. This is his church and kingdom here upon the earth. We are being led by the Lord through our president and prophet, Spencer W. Kimball. May we follow our leader, honor the priesthood, magnify the callings which we have been given, and prove ourselves worthy in every way, I humbly pray in the name of Jesus Christ. Amen.
-
-
+Let us remember also that every disloyal person weakens our army, and pray that we will not be that person. This is the work of the Lord in which we are engaged. This is his church and kingdom here upon the earth. We are being led by the Lord through our president and prophet, Spencer W. Kimball. May we follow our leader, honor the priesthood, magnify the callings which we have been given, and prove ourselves worthy in every way, I humbly pray in the name of Jesus Christ. Amen.
 
 
 

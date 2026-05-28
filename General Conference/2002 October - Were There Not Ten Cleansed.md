@@ -35,6 +35,4 @@ God lives. He is our Father. I testify to you that Jesus is the Christ, the Son 
 
 
 
-
-
-#Blessings #Gratitude #Jesus_Christ #Testimony
+#Blessings #Gratitude #JesusChrist #Testimony

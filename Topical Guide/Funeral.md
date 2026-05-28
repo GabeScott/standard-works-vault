@@ -1,4 +1,3 @@
 # Funeral
 
-
-*See* [[Death.md|Death]]; [[Resurrection.md|Resurrection]]
+*See also* [[Death.md|Death]]; [[Resurrection.md|Resurrection]]

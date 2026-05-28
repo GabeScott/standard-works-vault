@@ -1,4 +1,3 @@
 # Financial Bondage
 
-
-*See* [[Debt.md|Debt]]
+*See also* [[Debt.md|Debt]]

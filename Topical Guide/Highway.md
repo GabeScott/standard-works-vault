@@ -1,6 +1,5 @@
 # Highway
 
-
 *See also* [[Way.md|Way]]
 
 your *high ways* shall be desolate, [[Leviticus 26.22|Leviticus 26:22]].
@@ -23,7 +22,7 @@ cast up the *highway*, [[Isaiah 62.10|Isaiah 62:10]].
 
 Go ye therefore into the *highways*, [[Matthew 22.9|Matthew 22:9]] ([[Luke 14.23|Luke 14:23]]).
 
-Bartimæus ... sat by the *highway* side begging, [[Mark 10.46|Mark 10:46]].
+Bartimæus … sat by the *highway* side begging, [[Mark 10.46|Mark 10:46]].
 
 many *highways* shall be broken up, [[Helaman 14.24|Helaman 14:24]].
 

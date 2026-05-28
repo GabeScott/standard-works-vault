@@ -1,9 +1,8 @@
 # Apparel
 
-
 *See also* [[Clothing.md|Clothing]]
 
-sewed fig leaves ... made themselves *aprons*, [[Genesis 3.7|Genesis 3:7]] ([[Moses 4.13|Moses 4:13]]).
+sewed fig leaves … made themselves *aprons*, [[Genesis 3.7|Genesis 3:7]] ([[Moses 4.13|Moses 4:13]]).
 
 coats of skins, and *clothed* them, [[Genesis 3.21|Genesis 3:21]] ([[Moses 4.27|Moses 4:27]]).
 
@@ -17,7 +16,7 @@ let it not be that outward *adorning*, [[1 Peter 3.3|1 Peter 3:3]].
 
 because of the costliness of your *apparel*, [[Jacob 2.13|Jacob 2:13]].
 
-began ... to wear very costly *apparel*, [[Alma 1.6|Alma 1:6]] ([[Alma 4.6|Alma 4:6]]).
+began … to wear very costly *apparel*, [[Alma 1.6|Alma 1:6]] ([[Alma 4.6|Alma 4:6]]).
 
 they did not wear costly *apparel*, [[Alma 1.27|Alma 1:27]].
 
@@ -27,6 +26,4 @@ pride of their hearts, unto the wearing of very fine *apparel*, [[Mormon 8.36|Mo
 
 let all thy *garments* be plain, [[D&C 42.40|D&C 42:40]].
 
-God ... clothed in his glorious *apparel*, [[D&C 133.46|D&C 133:46]] ([[D&C 133.48|D&C 133:48]]).
-
-*See also* [[Leviticus 6.10|Leviticus 6:10]]; [[Judges 17.10|Judges 17:10]]; [[2 Samuel 1.24|2 Samuel 1:24]]; [[2 Samuel 12.20|2 Samuel 12:20]]; [[2 Chronicles 5.12|2 Chronicles 5:12]]; [[Psalms 45.13|Psalms 45:13]]; [[Proverbs 31.22|Proverbs 31:22]]; [[Isaiah 3.22|Isaiah 3:22]]; [[Isaiah 32.11|Isaiah 32:11]]; [[Jeremiah 6.26|Jeremiah 6:26]]; [[Daniel 9.3|Daniel 9:3]]; [[1 Thessalonians 5.22|1 Thessalonians 5:22]]; [[Revelation 6.11|Revelation 6:11]]; [[Revelation 19.8|Revelation 19:8]].
+God … clothed in his glorious *apparel*, [[D&C 133.46|D&C 133:46]] ([[D&C 133.48|D&C 133:48]]).

@@ -1,6 +1,5 @@
 # Plain
 
-
 *See also* [[Plainly.md|Plainly]]; [[Plainness.md|Plainness]]
 
 Jacob was a *plain* man, [[Genesis 25.27|Genesis 25:27]].
@@ -25,11 +24,11 @@ ye have murmured because he hath been *plain* unto you, [[2 Nephi 1.26|2 Nephi 1
 
 that I may be strict in the *plain* road, [[2 Nephi 4.32|2 Nephi 4:32]].
 
-words of Isaiah are not *plain* unto you, nevertheless they are *plain* unto all ... filled with the spirit of prophecy, [[2 Nephi 25.4|2 Nephi 25:4]].
+words of Isaiah are not *plain* unto you, nevertheless they are *plain* unto all … filled with the spirit of prophecy, [[2 Nephi 25.4|2 Nephi 25:4]].
 
 even as *plain* as word can be, [[2 Nephi 32.7|2 Nephi 32:7]].
 
-way to judge is as *plain* ... as the daylight is from the dark night, [[Moroni 7.15|Moroni 7:15]].
+way to judge is as *plain* … as the daylight is from the dark night, [[Moroni 7.15|Moroni 7:15]].
 
 let all thy garments be *plain*, [[D&C 42.40|D&C 42:40]].
 

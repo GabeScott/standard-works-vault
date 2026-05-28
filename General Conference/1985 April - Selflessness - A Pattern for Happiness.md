@@ -60,7 +60,7 @@ When I was told of the experience, I recalled the words of King Benjamin when, i
 
 It is my feeling that, after all is said and done, it will be the intent of the heart by which we shall be judged. However, let us be careful that we do not fill our hearts with *unjustified* excuses. Being selfless does not come naturally to most of us. Often it is easier to say, “I can’t,” or “I’m made differently,” or “I don’t have time,” than it is to become involved in making life happier and more pleasant for others. Let us remember the words from the scriptures:
 
-“Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world. …
+“Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world. …
 
 “Then shall the righteous answer him, saying, Lord, when saw we thee an hungred, and fed thee? or thirsty, and gave thee drink?
 
@@ -75,8 +75,6 @@ It is my feeling that, after all is said and done, it will be the intent of the 
 I testify of the selflessness of the Savior. I testify that through his life, his atoning sacrifice, and his resurrection, he has made possible resurrection for all mankind, and eternal life for the obedient. I know that he lives!
 
 In the name of Jesus Christ, amen.
-
-
 
 
 

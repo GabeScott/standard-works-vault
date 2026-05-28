@@ -1,6 +1,5 @@
 # Inherit
 
-
 *See also* [[Inheritance.md|Inheritance]]; [[Possess.md|Possess]]
 
 give thee this land to *inherit*, [[Genesis 15.7|Genesis 15:7]].
@@ -25,7 +24,7 @@ to cause to *inherit* the desolate heritages, [[Isaiah 49.8|Isaiah 49:8]] ([[1 N
 
 thy seed shall *inherit* the Gentiles, [[Isaiah 54.3|Isaiah 54:3]] ([[3 Nephi 22.3|3 Nephi 22:3]]).
 
-putteth his trust in me ... shall *inherit* my holy mountain, [[Isaiah 57.13|Isaiah 57:13]].
+putteth his trust in me … shall *inherit* my holy mountain, [[Isaiah 57.13|Isaiah 57:13]].
 
 mine elect shall *inherit* it, [[Isaiah 65.9|Isaiah 65:9]].
 
@@ -47,11 +46,11 @@ called, that ye should *inherit* a blessing, [[1 Peter 3.9|1 Peter 3:9]].
 
 He that overcometh shall *inherit* all things, [[Revelation 21.7|Revelation 21:7]].
 
-saints ... shall *inherit* the kingdom of God, [[2 Nephi 9.18|2 Nephi 9:18]] ([[3 Nephi 11.33|3 Nephi 11:33]]).
+saints … shall *inherit* the kingdom of God, [[2 Nephi 9.18|2 Nephi 9:18]] ([[3 Nephi 11.33|3 Nephi 11:33]]).
 
-new creatures; and unless they do this ... nowise *inherit* the kingdom of God, [[Mosiah 27.26|Mosiah 27:26]] ([[Alma 9.12|Alma 9:12]]; [[3 Nephi 11.38|3 Nephi 11:38]]; [[Moses 6.57|Moses 6:57]]).
+new creatures; and unless they do this … nowise *inherit* the kingdom of God, [[Mosiah 27.26|Mosiah 27:26]] ([[Alma 9.12|Alma 9:12]]; [[3 Nephi 11.38|3 Nephi 11:38]]; [[Moses 6.57|Moses 6:57]]).
 
-except ye repent ... nowise *inherit* the kingdom of heaven, [[Alma 5.51|Alma 5:51]].
+except ye repent … nowise *inherit* the kingdom of heaven, [[Alma 5.51|Alma 5:51]].
 
 endless happiness to *inherit* the kingdom of God, [[Alma 41.4|Alma 41:4]].
 
@@ -69,4 +68,4 @@ shall build, and another shall not *inherit* it, [[D&C 101.101|D&C 101:101]].
 
 shall *inherit* thrones, kingdoms, [[D&C 132.19|D&C 132:19]].
 
-David's wives and concubines ... he shall not *inherit* them, [[D&C 132.39|D&C 132:39]].
+David’s wives and concubines … he shall not *inherit* them, [[D&C 132.39|D&C 132:39]].

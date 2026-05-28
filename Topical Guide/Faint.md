@@ -1,6 +1,5 @@
 # Faint
 
-
 Esau came from the field, and he was *faint*, [[Genesis 25.29|Genesis 25:29]].
 
 If thou *faint* in the day of adversity, [[Proverbs 24.10|Proverbs 24:10]].

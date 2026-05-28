@@ -1,6 +1,6 @@
 # The Gospel Restored
 
-By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
+By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -51,8 +51,6 @@ Third, serve the Master. Manifest our testimonies through our words and works.
 Fourth, walk in holiness and live the commandments.
 
 May each of us, as part of this great jubilee year and sesquicentennial celebration, conform our lives in building, loving, forgiving, and healing ways to express gratitude for all we have, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

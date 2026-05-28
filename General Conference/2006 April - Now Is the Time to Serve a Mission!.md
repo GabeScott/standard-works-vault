@@ -20,7 +20,7 @@ Exciting fields of labor the world over allow the inspiration of the Lord to cal
 
 Elder M. Russell Ballard has spoken about creating a gospel-sharing home. I will discuss how to prepare to be a full-time missionary as an elder, a sister, or a couple.
 
-The process begins in the home long before missionary age when parents instill in the minds and hearts of every young boy the concept of “when I go on a mission,” not “if I go on a mission.” Children are best taught gospel truths in the home where instruction can be adapted to the age and capacity of each child. In the home the whole armor of truth is tailor fit to the individual characteristics of each child. Parental teaching qualifies children for life and prepares worthy young men for the joy of missionary service. In the home a young girl can understand that her primary role is to be a wife and mother. Yet as that preparation unfolds there may be an opportunity to serve a full-time mission, provided recent counsel of the First Presidency is followed: “Worthy single women ages twenty-one and older … may be recommended to serve full-time missions. … These sisters can make a valuable contribution … , but they should not be pressured to serve. Bishops should not recommend them for missionary service if it will interfere with imminent marriage prospects.”[^1]
+The process begins in the home long before missionary age when parents instill in the minds and hearts of every young boy the concept of “when I go on a mission,” not “if I go on a mission.” Children are best taught gospel truths in the home where instruction can be adapted to the age and capacity of each child. In the home the whole armor of truth is tailor fit to the individual characteristics of each child. Parental teaching qualifies children for life and prepares worthy young men for the joy of missionary service. In the home a young girl can understand that her primary role is to be a wife and mother. Yet as that preparation unfolds there may be an opportunity to serve a full-time mission, provided recent counsel of the First Presidency is followed: “Worthy single women ages twenty-one and older … may be recommended to serve full-time missions. … These sisters can make a valuable contribution … , but they should not be pressured to serve. Bishops should not recommend them for missionary service if it will interfere with imminent marriage prospects.”[^1]
 
 Many parents are using parts of the guide *Preach My Gospel* to stress the concepts that will bear fruit as their children’s testimonies mature while they are nurtured in the home. As a young boy you can learn how to fulfill your duty as a future priesthood bearer. You will be helped to understand and apply important teachings of the Lord. You will be strengthened to live worthily to be able to receive sacred temple ordinances and to serve a full-time mission. Such experiences will develop a foundation for the later blessing of your being a strong husband and father.
 
@@ -55,6 +55,4 @@ I know that Jesus is the Christ, that His Church and the fulness of His gospel h
 
 [^1]: Communication from the First Presidency, unpublished.
 
-
-
-#Missionary_Work #Preparation #Testimony
+#MissionaryWork #Preparation #Testimony

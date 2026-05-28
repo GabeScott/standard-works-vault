@@ -1,6 +1,5 @@
 # Rod
 
-
 Jacob took him *rods*, [[Genesis 30.37|Genesis 30:37]].
 
 Moses took the *rod* of God in his hand, [[Exodus 4.20|Exodus 4:20]].
@@ -25,7 +24,7 @@ He that spareth his *rod* hateth his son, [[Proverbs 13.24|Proverbs 13:24]].
 
 *rod* of correction shall drive it far from him, [[Proverbs 22.15|Proverbs 22:15]].
 
-*rod* for the fool's back, [[Proverbs 26.3|Proverbs 26:3]].
+*rod* for the fool’s back, [[Proverbs 26.3|Proverbs 26:3]].
 
 *rod* and reproof give wisdom, [[Proverbs 29.15|Proverbs 29:15]].
 
@@ -45,9 +44,9 @@ he shall rule them with a *rod* of iron, [[Revelation 2.27|Revelation 2:27]] ([[
 
 I beheld a *rod* of iron, [[1 Nephi 8.19|1 Nephi 8:19]].
 
-*rod* of iron ... was the word of God, [[1 Nephi 11.25|1 Nephi 11:25]] ([[1 Nephi 15.23|1 Nephi 15:23]]).
+*rod* of iron … was the word of God, [[1 Nephi 11.25|1 Nephi 11:25]] ([[1 Nephi 15.23|1 Nephi 15:23]]).
 
-he did straiten them ... with his *rod*, [[1 Nephi 17.41|1 Nephi 17:41]].
+he did straiten them … with his *rod*, [[1 Nephi 17.41|1 Nephi 17:41]].
 
 I will give power unto him in a *rod*, [[2 Nephi 3.17|2 Nephi 3:17]].
 

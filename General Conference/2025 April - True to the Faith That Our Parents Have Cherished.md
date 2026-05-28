@@ -1,6 +1,6 @@
 # True to the Faith That Our Parents Have Cherished
 
-By Elder Hans T. Boom - *Of the Seventy*
+By Elder Hans T. Boom - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -69,7 +69,7 @@ Or what do we feel when we sing the hymn “True to the Faith”?
 
 To those of the rising generation wherever you are and in whatever situation you may find yourself, please learn and receive strength from the faith and testimonies of those who came before you. It will help you understand that in order to gain or grow a testimony, sacrifices will have to be made and that “sacrifice brings forth the blessings of heaven.”[^8]
 
-Thinking about a sacrifice that will truly bless your life, please consider and pray about the invitation of our beloved prophet, President Russell M. Nelson, when he asked “*every* worthy, able young man to prepare for and serve a mission. For Latter-day Saint young men, missionary service is a priesthood responsibility. …
+Thinking about a sacrifice that will truly bless your life, please consider and pray about the invitation of our beloved prophet, President Russell M. Nelson, when he asked “*every* worthy, able young man to prepare for and serve a mission. For Latter-day Saint young men, missionary service is a priesthood responsibility. …
 
 “For … young and able sisters, a mission is also a powerful, but *optional*, opportunity.”[^9]
 
@@ -98,18 +98,16 @@ Let us be “true to the faith that our parents have cherished, true to truth fo
 
 [^6]: *Children’s Songbook*, 172–73.
 
-[^7]: “True to the Faith,” *Hymns*, no. 254.
+[^7]: “True to the Faith,” *Hymns*, no. 254.
 
-[^8]: “Praise to the Man,” *Hymns*, no. 27.
+[^8]: “Praise to the Man,” *Hymns*, no. 27.
 
-[^9]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
+[^9]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
 
 [^10]: [[Mosiah 5.13|Mosiah 5:13]].
 
 [^11]: See [[Helaman 5.12|Helaman 5:12]].
 
-[^12]: *Hymns*, no. 254.
+[^12]: *Hymns*, no. 254.
 
-
-
-#Endurance #Faith #Family #Missionary_Service #Parents #Sacrifice #Testimony
+#Endurance #Faith #Family #MissionaryService #Parents #Sacrifice #Testimony

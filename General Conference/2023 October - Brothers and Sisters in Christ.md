@@ -10,7 +10,7 @@ By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 My dear friends, we have had marvelous conference sessions today. We have all felt the Spirit of the Lord and His love through the wonderful messages shared by our leaders. I feel privileged to address you this evening as the concluding speaker of this session. I pray that the Spirit of the Lord continues with us as we rejoice together as true brothers and sisters in Christ.
 
-Our dear prophet, Russell M. Nelson, declared: “I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice. I plead with you to promote respect for all of God’s children.”[^1] As a global and ever-growing Church, following this invitation from our prophet is a vital prerequisite for building the Savior’s kingdom in every nation of the world.
+Our dear prophet, Russell M. Nelson, declared: “I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice. I plead with you to promote respect for all of God’s children.”[^1] As a global and ever-growing Church, following this invitation from our prophet is a vital prerequisite for building the Savior’s kingdom in every nation of the world.
 
 The gospel of Jesus Christ teaches that we are all begotten spirit sons and daughters of heavenly parents who truly love us[^2] and that we lived as a family in God’s presence before we were born on this earth. The gospel also teaches that we were all created in the image and likeness of God.[^3] Therefore, we are equal before Him,[^4] for He “hath made of one blood all nations of men \[and women\].”[^5] Therefore, we all have divine nature, heritage, and potential, for there is “one God and Father of all, who is above all, and through all, and in \[us\] all.”[^6]
 
@@ -65,13 +65,13 @@ I testify to you that as we continue to flow this way during our mortal life, a 
 
 
 
-[^1]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94; see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [38.6.14](https://churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title227#title227), Gospel Library.
+[^1]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94; see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [38.6.14](https://www.churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title227#title227), Gospel Library.
 
 [^2]: See [[D&C 76.24|Doctrine and Covenants 76:24]].
 
 [^3]: See [[Genesis 1.26|Genesis 1:26–27]][[Genesis 1.27|]]; [[Mosiah 7.27|Mosiah 7:27]]; [[Ether 3.14|Ether 3:14–17]][[Ether 3.15|]][[Ether 3.16|]][[Ether 3.17|]]; [[Moses 2.26|Moses 2:26–28]][[Moses 2.27|]][[Moses 2.28|]]; [[Moses 6.9|6:9–10]][[Moses 6.10|]].
 
-[^4]: See [[2 Nephi 26.33|2 Nephi 26:33]]; see also M. Russell Ballard, “[[2021 April - Hope in Christ.md|Hope in Christ]],” *Liahona*, May 2021, 53.
+[^4]: See [[2 Nephi 26.33|2 Nephi 26:33]]; see also M. Russell Ballard, “[[2021 April - Hope in Christ.md|Hope in Christ]],” *Liahona*, May 2021, 53.
 
 [^5]: [[Acts 17.26|Acts 17:26]]; see also [[D&C 93.33|Doctrine and Covenants 93:33–35]][[D&C 93.34|]][[D&C 93.35|]].
 
@@ -79,21 +79,21 @@ I testify to you that as we continue to flow this way during our mortal life, a 
 
 [^7]: See [[Mosiah 18.21|Mosiah 18:21]].
 
-[^8]: [[4 Nephi 1.16|4 Nephi 1:16–18]][[4 Nephi 1.17|]][[4 Nephi 1.18|]].
+[^8]: [[4 Nephi 1.16|4 Nephi 1:16–18]][[4 Nephi 1.17|]][[4 Nephi 1.18|]].
 
-[^9]: Russell M. Nelson, “[We Are All Children of God](https://www.churchofjesuschrist.org/inspiration/we-are-all-children-of-god),” *Inspiration* (blog), May 25, 2021, ChurchofJesusChrist.org.
+[^9]: Russell M. Nelson, “[We Are All Children of God](https://www.churchofjesuschrist.org/inspiration/we-are-all-children-of-god),” *Inspiration* (blog), May 25, 2021, ChurchofJesusChrist.org.
 
 [^10]: See “Punta del Este Declaration on Human Dignity for Everyone Everywhere,” 2018.
 
-[^11]: See “[President Nelson Shares Social Post about Racism and Calls for Respect for Human Dignity](https://newsroom.churchofjesuschrist.org/article/president-nelson-shares-social-post-encouraging-understanding-and-civility)” (news release, June 1, 2020), newsroom.ChurchofJesusChrist.org.
+[^11]: See “[President Nelson Shares Social Post about Racism and Calls for Respect for Human Dignity](https://newsroom.churchofjesuschrist.org/article/president-nelson-shares-social-post-encouraging-understanding-and-civility)” (news release, June 1, 2020), newsroom.ChurchofJesusChrist.org.
 
 [^12]: See [[Ephesians 4.2|Ephesians 4:2–3]][[Ephesians 4.3|]].
 
-[^13]: See Boyd Matheson, “How You Know When a New Day Has Dawned in 2020,” *Deseret News*, Dec. 30, 2019, deseret.com.
+[^13]: See Boyd Matheson, “How You Know When a New Day Has Dawned in 2020,” *Deseret News*, Dec. 30, 2019, deseret.com.
 
 [^14]: [[Acts 10.38|Acts 10:38]].
 
-[^15]: See [[2 Nephi 26.33|2 Nephi 26:33]].
+[^15]: See [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^16]: See [[John 4.4|John 4:4]].
 
@@ -105,24 +105,22 @@ I testify to you that as we continue to flow this way during our mortal life, a 
 
 [^20]: [[John 4.29|John 4:29]]; see also [[John 4.6|John 4:6–30]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]][[John 4.27|]][[John 4.28|]][[John 4.29|]][[John 4.30|]].
 
-[^21]: See [[2 Nephi 26.14|2 Nephi 26:14–30]][[2 Nephi 26.15|]][[2 Nephi 26.16|]][[2 Nephi 26.17|]][[2 Nephi 26.18|]][[2 Nephi 26.19|]][[2 Nephi 26.20|]][[2 Nephi 26.21|]][[2 Nephi 26.22|]][[2 Nephi 26.23|]][[2 Nephi 26.24|]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]][[2 Nephi 26.29|]][[2 Nephi 26.30|]].
+[^21]: See [[2 Nephi 26.14|2 Nephi 26:14–30]][[2 Nephi 26.15|]][[2 Nephi 26.16|]][[2 Nephi 26.17|]][[2 Nephi 26.18|]][[2 Nephi 26.19|]][[2 Nephi 26.20|]][[2 Nephi 26.21|]][[2 Nephi 26.22|]][[2 Nephi 26.23|]][[2 Nephi 26.24|]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]][[2 Nephi 26.29|]][[2 Nephi 26.30|]].
 
-[^22]: See Guide to the Scriptures, “[Natural Man](https://churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng),” Gospel Library; see also [[1 Corinthians 2.14|1 Corinthians 2:14]]; [[Mosiah 16.5|Mosiah 16:5]]; [[Alma 42.7|Alma 42:7–24]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]].
+[^22]: See Guide to the Scriptures, “[Natural Man](https://www.churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng),” Gospel Library; see also [[1 Corinthians 2.14|1 Corinthians 2:14]]; [[Mosiah 16.5|Mosiah 16:5]]; [[Alma 42.7|Alma 42:7–24]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]].
 
-[^23]: See “[Seek Christlike Attributes](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng),” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 123–38; see also Guide to the Scriptures, “[Disciple](https://churchofjesuschrist.org/study/scriptures/gs/disciple?lang=eng),” Gospel Library.
+[^23]: See “[Seek Christlike Attributes](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng),” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 123–38; see also Guide to the Scriptures, “[Disciple](https://www.churchofjesuschrist.org/study/scriptures/gs/disciple?lang=eng),” Gospel Library.
 
-[^24]: See [[1 Samuel 16.7|1 Samuel 16:7]].
+[^24]: See [[1 Samuel 16.7|1 Samuel 16:7]].
 
-[^25]: Abraham Lincoln, “Second Inaugural Address,” Mar. 4, 1865, loc.gov.
+[^25]: Abraham Lincoln, “Second Inaugural Address,” Mar. 4, 1865, loc.gov.
 
-[^26]: See [[4 Nephi 1.17|4 Nephi 1:17]]; see also Guide to the Scriptures, “[Children of Christ](https://churchofjesuschrist.org/study/scriptures/gs/children-of-christ?lang=eng),” Gospel Library.
+[^26]: See [[4 Nephi 1.17|4 Nephi 1:17]]; see also Guide to the Scriptures, “[Children of Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/children-of-christ?lang=eng),” Gospel Library.
 
-[^27]: See Martin Luther King Jr., “Facing the Challenge of a New Age,” speech given Dec. 3, 1956.
+[^27]: See Martin Luther King Jr., “Facing the Challenge of a New Age,” speech given Dec. 3, 1956.
 
-[^28]: [[4 Nephi 1.17|4 Nephi 1:17]].
+[^28]: [[4 Nephi 1.17|4 Nephi 1:17]].
 
 [^29]: See [[Acts 17.26|Acts 17:26]].
 
-
-
-#Divine_Nature #Love #Prejudice #Respect #Unity
+#DivineNature #Love #Prejudice #Respect #Unity

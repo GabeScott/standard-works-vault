@@ -1,12 +1,12 @@
 # My Heritage Is Choice
 
-By Elder George P. Lee - *Of the First Quorum of the Seventy*
+By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/my-heritage-is-choice?lang=eng)
 
-Brothers and sisters, I finally realized how General Custer must have felt. …
+Brothers and sisters, I finally realized how General Custer must have felt. …
 
 I want you to know that it is a great honor and privilege to be in your presence today, and in the presence of our Prophet, and all those that assist him in the kingdom of God.
 
@@ -45,6 +45,4 @@ God lives. Jesus Christ lives, brothers and sisters. In the name of Jesus Christ
 
 
 
-
-
-#Jesus_Christ #Native_Americans
+#JesusChrist #NativeAmericans

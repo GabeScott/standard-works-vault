@@ -1,6 +1,5 @@
 # Forty
 
-
 I will cause it to rain upon the earth *forty* days and *forty* nights, [[Genesis 7.4|Genesis 7:4]].
 
 children of Israel did eat manna *forty* years, [[Exodus 16.35|Exodus 16:35]].

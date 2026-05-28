@@ -1,6 +1,6 @@
 # Choose to Believe
 
-By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
+By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -61,15 +61,16 @@ I testify that Jesus Christ is the source of light and hope for all of us. I pra
 
 
 
-[^1]: See Lindsey Bever, “How 7-Year-Old Sailor Gutzler Survived a Plane Crash,” *Washington Post,* Jan. 5, 2015, washingtonpost.com; “Girl Who Survived Plane Crash Hoped Family ‘Was Just Sleeping,’” Jan. 4, 2015, myfox8.com; “Kentucky Plane Crash: Four Killed, Little Girl Survives,” Jan. 4, 2015, news.com.au; Associated Press, “Young Girl, Sole Survivor of Kentucky Plane Crash,” Jan. 3, 2015, jems.com.
+[^1]: See Lindsey Bever, “How 7-Year-Old Sailor Gutzler Survived a Plane Crash,” *Washington Post,* Jan. 5, 2015, washingtonpost.com; “Girl Who Survived Plane Crash Hoped Family ‘Was Just Sleeping,’” Jan. 4, 2015, myfox8.com; “Kentucky Plane Crash: Four Killed, Little Girl Survives,” Jan. 4, 2015, news.com.au; Associated Press, “Young Girl, Sole Survivor of Kentucky Plane Crash,” Jan. 3, 2015, jems.com.
 
 [^2]: [[Alma 32.27|Alma 32:27]]; emphasis added.
 
-[^3]: [[3 Nephi 14.8|3 Nephi 14:8]]; see also [[3 Nephi 14.7|verse 7]].
+[^3]: [[3 Nephi 14.8|3 Nephi 14:8]]; see also [[3 Nephi 14.7|verse 7]].
 
 [^4]: [[John 10.37|John 10:37–38]][[John 10.38|]].
 
-[^5]: [[3 Nephi 11.32|3 Nephi 11:32]].
+[^5]: [[3 Nephi 11.32|3 Nephi 11:32]].
 
+[^6]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-#Adversity #Agency #Faith #Hope #Jesus_Christ
+#Agency #Adversity #Faith #Hope #JesusChrist

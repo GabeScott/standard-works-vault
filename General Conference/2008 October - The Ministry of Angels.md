@@ -30,7 +30,7 @@ In the course of life all of us spend time in “dark and dreary” places, wild
 
 I ask everyone within the sound of my voice to take heart, be filled with faith, and remember the Lord has said He “would fight \[*our*\] battles, \[our\] children’s battles, and \[the battles of our\] children’s children.”[^10] And what do we do to merit such a defense? We are to “search diligently, pray always, and be believing, and \[then\] all things shall work together for \[our\] good, if \[we\] walk uprightly and remember the covenant wherewith \[we\] have covenanted.”[^11] The latter days are *not* a time to fear and tremble. They *are* a time to be believing and remember our covenants.
 
-I have spoken here of heavenly help, of angels dispatched to bless us in time of need. But when we speak of those who are instruments in the hand of God, we are reminded that not all angels are from the other side of the veil. Some of them we walk with and talk with—here, now, every day. Some of them reside in our own neighborhoods. Some of them gave birth to us, and in my case, one of them consented to marry me. Indeed heaven never seems closer than when we see the love of God manifested in the kindness and devotion of people so good and so pure that *angelic* is the only word that comes to mind. Elder James Dunn, from this pulpit just moments ago, used that word in his invocation to describe this Primary choir—and why not? With the spirit, faces, and voices of those children in our mind and before our eyes, may I share with you an account by my friend and BYU colleague, the late Clyn D. Barrus. I do so with the permission of his wife, Marilyn, and their family.
+I have spoken here of heavenly help, of angels dispatched to bless us in time of need. But when we speak of those who are instruments in the hand of God, we are reminded that not all angels are from the other side of the veil. Some of them we walk with and talk with—here, now, every day. Some of them reside in our own neighborhoods. Some of them gave birth to us, and in my case, one of them consented to marry me. Indeed heaven never seems closer than when we see the love of God manifested in the kindness and devotion of people so good and so pure that *angelic* is the only word that comes to mind. Elder James Dunn, from this pulpit just moments ago, used that word in his invocation to describe this Primary choir—and why not? With the spirit, faces, and voices of those children in our mind and before our eyes, may I share with you an account by my friend and BYU colleague, the late Clyn D. Barrus. I do so with the permission of his wife, Marilyn, and their family.
 
 Referring to his childhood on a large Idaho farm, Brother Barrus spoke of his nightly assignment to round up the cows at milking time. Because the cows pastured in a field bordered by the occasionally treacherous Teton River, the strict rule in the Barrus household was that during the spring flood season, the children were *never* to go after any cows who ventured across the river. They were always to return home and seek mature help.
 
@@ -69,7 +69,7 @@ May we all believe more readily in, and have more gratitude for, the Lord’s pr
 
 [^6]: See [[Matthew 2.19|Matthew 2:19–23]][[Matthew 2.20|]][[Matthew 2.21|]][[Matthew 2.22|]][[Matthew 2.23|]].
 
-[^7]: [[1 Nephi 8.7|1 Nephi 8:7, 5–6]][[1 Nephi 8.5|]][[1 Nephi 8.6|]].
+[^7]: [[1 Nephi 8.7|1 Nephi 8:7, 5–6]][[1 Nephi 8.5|]][[1 Nephi 8.6|]].
 
 [^8]: [[Matthew 4.11|Matthew 4:11]].
 
@@ -79,14 +79,12 @@ May we all believe more readily in, and have more gratitude for, the Lord’s pr
 
 [^11]: [[D&C 90.24|D&C 90:24]].
 
-[^12]: See Clyn D. Barrus, “Coming Home,” *Liahona,* Nov. 1995, F5–F7; *Friend,* Apr. 1995, 2–4.
+[^12]: See Clyn D. Barrus, “Coming Home,” *Liahona,* Nov. 1995, F5–F7; *Friend,* Apr. 1995, 2–4.
 
 [^13]: [[Moroni 7.36|Moroni 7:36]].
 
 [^14]: [[D&C 84.88|D&C 84:88]].
 
 [^15]: [[D&C 90.24|D&C 90:24]].
-
-
 
 #Angels #Peace #Safety #Service

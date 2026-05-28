@@ -1,17 +1,16 @@
 # Prosper
 
-
 *See also* [[Prosperity.md|Prosperity]]; [[Prosperous.md|Prosperous]]
 
 Lord made all that he did to *prosper* in his hand, [[Genesis 39.3|Genesis 39:3]].
 
 thou shalt not *prosper* in thy ways, [[Deuteronomy 28.29|Deuteronomy 28:29]].
 
-Keep therefore the words of this covenant ... that ye may *prosper*, [[Deuteronomy 29.9|Deuteronomy 29:9]].
+Keep therefore the words of this covenant … that ye may *prosper*, [[Deuteronomy 29.9|Deuteronomy 29:9]].
 
 believe his prophets, so shall ye *prosper*, [[2 Chronicles 20.20|2 Chronicles 20:20]].
 
-transgress ye the commandments ... that ye cannot *prosper*, [[2 Chronicles 24.20|2 Chronicles 24:20]].
+transgress ye the commandments … that ye cannot *prosper*, [[2 Chronicles 24.20|2 Chronicles 24:20]].
 
 as he sought the Lord, God made him to *prosper*, [[2 Chronicles 26.5|2 Chronicles 26:5]].
 

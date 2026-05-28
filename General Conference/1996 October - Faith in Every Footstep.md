@@ -40,7 +40,7 @@ Jens arrived at Rock Creek, 11 miles beyond Rocky Ridge, with both feet frozen. 
 
 A cow helped provide necessary nourishment on the trail for the family of my great-grandmother Margaret McNeil as she came to Zion from Scotland. As a 12-year-old, it was Margaret’s task to arise early and get breakfast for the family and milk her cow. She would then drive the cow on ahead of the company to let it feed in the grassy places. She wrote:
 
-“The cow furnished us with milk, our chief source of food. … Had it not been for the milk, we would have starved. …
+“The cow furnished us with milk, our chief source of food. … Had it not been for the milk, we would have starved. …
 
 “One night our cow ran away from \[the\] camp, and I was sent to bring her back. I was not watching where I was going and was barefooted. All of a sudden I began to feel I was walking on something soft. I looked down to see what it could be, and to my horror found that I was standing in a bed of snakes, large ones and small ones. At the sight of them I became so weak I could scarcely move; all I could think of was to pray, and in some way I jumped out of them. The Lord blessed and cared for me.
 
@@ -92,7 +92,5 @@ Brothers and sisters, join with us and begin now to prepare for a spiritual jour
 [^17]: Joseph F. Smith, in Nibley, *Faith Promoting Stories,* 83; see also *Utah Genealogical and Historical Magazine,* 1917, 159.
 
 [^18]: In Conference Report, Oct. 1919, 7.
-
-
 
 #Faith #Pioneers #Prophecy

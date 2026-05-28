@@ -1,9 +1,8 @@
 # Sign Seekers
 
-
 *See also* [[Signs.md|Signs]]
 
-Pharaoh ... saying, Shew a *miracle*, [[Exodus 7.9|Exodus 7:9]].
+Pharaoh … saying, Shew a *miracle*, [[Exodus 7.9|Exodus 7:9]].
 
 evil and adulterous generation seeketh after a *sign*, [[Matthew 12.39|Matthew 12:39]] ([[Matthew 16.4|Matthew 16:4]]; [[Luke 11.29|Luke 11:29]]).
 
@@ -28,5 +27,3 @@ receive no *witness* until after the trial of your faith, [[Ether 12.6|Ether 12:
 Require not *miracles*, except I shall command, [[D&C 24.13|D&C 24:13]].
 
 he that seeketh *signs* shall see *signs*, but not unto salvation, [[D&C 63.7|D&C 63:7]].
-
-*See also* [[Isaiah 5.19|Isaiah 5:19]]; [[Isaiah 7.10|7:10-12]][[Isaiah 7.11|]][[Isaiah 7.12|]]; [[Jeremiah 17.15|Jeremiah 17:15]].

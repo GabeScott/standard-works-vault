@@ -1,6 +1,6 @@
 # Inspired Ministering
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -8,7 +8,7 @@ By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/04/inspired-ministering?lang=eng)
 
-My beloved brethren, I am grateful for the privilege of speaking to you in this historic general conference. We have sustained President Russell M. Nelson as the 17th President of The Church of Jesus Christ of Latter-day Saints. As I have had the blessing of working with him each day, I have felt a confirmation of the Spirit that President Nelson is called of God to lead the Lord’s true Church.
+My beloved brethren, I am grateful for the privilege of speaking to you in this historic general conference. We have sustained President Russell M. Nelson as the 17th President of The Church of Jesus Christ of Latter-day Saints. As I have had the blessing of working with him each day, I have felt a confirmation of the Spirit that President Nelson is called of God to lead the Lord’s true Church.
 
 It is also my witness that the Lord has called Elder Gerrit W. Gong and Elder Ulisses Soares to serve as members of the Quorum of the Twelve Apostles. I love and sustain them. They will, by their ministry, bless lives across the world and across generations.
 
@@ -50,7 +50,7 @@ He went on to say:
 
 “When a teacher chooses to set the right example by being a good home teacher, greeting the members at church, preparing the sacrament, helping at home, and being a peacemaker, he’s choosing to honor his priesthood and fulfill his calling.
 
-“Being a good teacher doesn’t only mean being responsible when we are at church or at Church activities. The Apostle Paul taught, ‘Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity’ ([[1 Timothy 4.12|1 Timothy 4:12]]).”
+“Being a good teacher doesn’t only mean being responsible when we are at church or at Church activities. The Apostle Paul taught, ‘Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity’ ([[1 Timothy 4.12|1 Timothy 4:12]]).”
 
 Then the young man said:
 
@@ -64,7 +64,7 @@ Then the young man said:
 
 “Some service like passing the sacrament is something people see and they thank us for doing it, but other service like preparing the sacrament is usually done without anyone noticing. It *isn’t* important if people *see* us serving; what’s important is that the Lord knows we have served Him.
 
-“As teachers, we should always try to strengthen the Church, our friends, and our family by fulfilling our priesthood responsibilities. It’s not always easy, but the Lord gives no commandments to us ‘save he shall prepare a way for \[us to\] accomplish the thing which he commandeth’ ([[1 Nephi 3.7|1 Nephi 3:7]]).”
+“As teachers, we should always try to strengthen the Church, our friends, and our family by fulfilling our priesthood responsibilities. It’s not always easy, but the Lord gives no commandments to us ‘save he shall prepare a way for \[us to\] accomplish the thing which he commandeth’ ([[1 Nephi 3.7|1 Nephi 3:7]]).”
 
 As that young man concluded, I continued to be amazed at his maturity and wisdom. He summarized by saying, “I know we will become better if we choose to follow \[Jesus Christ\].”
 
@@ -111,6 +111,4 @@ I bear you my witness that the Lord has already begun a great step forward in Hi
 
 [^2]: Name has been changed.
 
-
-
-#Charity #Ministering #Priesthood_Quorums #Service
+#Charity #Ministering #PriesthoodQuorums #Service

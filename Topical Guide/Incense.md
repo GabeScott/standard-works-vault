@@ -1,15 +1,14 @@
 # Incense
 
+*See also* [[BD Incense.md|BD Incense]]
 
-*See also* [BD Incense](https://www.churchofjesuschrist.org/study/scriptures/bd/incense?lang=eng)
-
-spices ... for sweet *incense*, [[Exodus 25.6|Exodus 25:6]].
+spices … for sweet *incense*, [[Exodus 25.6|Exodus 25:6]].
 
 an altar to burn *incense* upon, [[Exodus 30.1|Exodus 30:1]].
 
 offer no strange *incense*, [[Exodus 30.9|Exodus 30:9]].
 
-*incense* upon the fire ... may cover the mercy seat, [[Leviticus 16.13|Leviticus 16:13]].
+*incense* upon the fire … may cover the mercy seat, [[Leviticus 16.13|Leviticus 16:13]].
 
 my prayer be set forth before thee as *incense*, [[Psalms 141.2|Psalms 141:2]].
 

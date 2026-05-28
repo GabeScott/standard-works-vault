@@ -1,4 +1,3 @@
 # Thummim
 
-
-*See* [[Urim and Thummim.md|Urim and Thummim]]
+*See also* [[Urim and Thummim.md|Urim and Thummim]]

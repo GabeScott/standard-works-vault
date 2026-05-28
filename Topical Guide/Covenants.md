@@ -1,13 +1,12 @@
 # Covenants
 
-
 *See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Priesthood, Oath and Covenant.md|Priesthood, Oath and Covenant]]; [[Promise.md|Promise]]
 
 with thee will I establish my *covenant*, [[Genesis 6.18|Genesis 6:18]].
 
 I will remember my *covenant*, [[Genesis 9.15|Genesis 9:15]].
 
-Lord made a *covenant* with Abram, [[Genesis 15.18|Genesis 15:18]] ([[1 Chronicles 16.16|1 Chronicles 16:16]]; [[Psalms 105.7|Ps. 105:7-11]][[Psalms 105.8|]][[Psalms 105.9|]][[Psalms 105.10|]][[Psalms 105.11|]]; [[1 Nephi 15.18|1 Nephi 15:18]]).
+Lord made a *covenant* with Abram, [[Genesis 15.18|Genesis 15:18]] ([[1 Chronicles 16.16|1 Chronicles 16:16]]; [[1 Nephi 15.18|1 Nephi 15:18]]).
 
 This is my *covenant*, which ye shall keep, [[Genesis 17.10|Genesis 17:10]].
 
@@ -21,11 +20,11 @@ make no *covenant* with them, nor with their gods, [[Exodus 23.32|Exodus 23:32]]
 
 blood of the *covenant*, [[Exodus 24.8|Exodus 24:8]] ([[Zechariah 9.11|Zechariah 9:11]]).
 
-keep the sabbath ... for a perpetual *covenant*, [[Exodus 31.16|Exodus 31:16]].
+keep the sabbath … for a perpetual *covenant*, [[Exodus 31.16|Exodus 31:16]].
 
 wrote upon the tables the words of the *covenant*, [[Exodus 34.28|Exodus 34:28]].
 
-Then will I remember my *covenant* with Jacob, [[Leviticus 26.42|Leviticus 26:42]] ([[Leviticus 26.42|26:42-45]][[Leviticus 26.43|]][[Leviticus 26.44|]][[Leviticus 26.45|]]).
+Then will I remember my *covenant* with Jacob, [[Leviticus 26.42|Leviticus 26:42]].
 
 *covenant* of an everlasting priesthood, [[Numbers 25.13|Numbers 25:13]].
 
@@ -45,7 +44,7 @@ Jonathan and David made a *covenant*, [[1 Samuel 18.3|1 Samuel 18:3]].
 
 thou hast not kept my *covenant* and my statutes, [[1 Kings 11.11|1 Kings 11:11]].
 
-*covenant* before the Lord, to walk after the Lord, [[2 Kings 23.3|2 Kings 23:3]] ([[2 Chronicles 34.29|2 Chr. 34:29-33]][[2 Chronicles 34.30|]][[2 Chronicles 34.31|]][[2 Chronicles 34.32|]][[2 Chronicles 34.33|]]).
+*covenant* before the Lord, to walk after the Lord, [[2 Kings 23.3|2 Kings 23:3]].
 
 have made a *covenant* with me by sacrifice, [[Psalms 50.5|Psalms 50:5]] ([[D&C 97.8|D&C 97:8]]).
 
@@ -97,7 +96,7 @@ my soul delighteth in the *covenants*, [[2 Nephi 11.5|2 Nephi 11:5]].
 
 ye have entered into a *covenant* to serve him, [[Mosiah 18.13|Mosiah 18:13]].
 
-*covenanting* ... rather than shed the blood, [[Alma 24.18|Alma 24:18]].
+*covenanting* … rather than shed the blood, [[Alma 24.18|Alma 24:18]].
 
 retain all their oaths, and their *covenants*, [[Alma 37.27|Alma 37:27]].
 
@@ -135,9 +134,9 @@ receive this oath and *covenant*, [[D&C 84.40|D&C 84:40]].
 
 remember the new *covenant*, even the Book of Mormon, [[D&C 84.57|D&C 84:57]].
 
-I salute you ... in token or remembrance of the everlasting *covenant*, [[D&C 88.133|D&C 88:133]].
+I salute you … in token or remembrance of the everlasting *covenant*, [[D&C 88.133|D&C 88:133]].
 
-I will prove ... whether you will abide in my *covenant*, [[D&C 98.14|D&C 98:14]].
+I will prove … whether you will abide in my *covenant*, [[D&C 98.14|D&C 98:14]].
 
 *covenants* being broken through transgression, [[D&C 104.52|D&C 104:52]].
 
@@ -145,8 +144,6 @@ how he has *covenanted* with Jehovah, [[D&C 109.68|D&C 109:68]].
 
 meaning the new and everlasting *covenant* of marriage, [[D&C 131.2|D&C 131:2]] ([[D&C 132.19|D&C 132:19]]).
 
-our *covenant* —that we will walk in all the ordinances, [[D&C 136.4|D&C 136:4]].
+our *covenant*—that we will walk in all the ordinances, [[D&C 136.4|D&C 136:4]].
 
 he *covenanted* with Enoch, and sware unto him, [[Moses 7.51|Moses 7:51]].
-
-*See also* [[Hebrews 6.17|Hebrews 6:17]].

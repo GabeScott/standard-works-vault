@@ -1,6 +1,5 @@
 # Profit
 
-
 *See also* [[Advantage.md|Advantage]]; [[Gain.md|Gain]]; [[Profitable.md|Profitable]]
 
 what *profit* shall this birthright do to me, [[Genesis 25.32|Genesis 25:32]].
@@ -29,7 +28,7 @@ what is a man *profited*, if he shall gain the whole world, [[Matthew 16.26|Matt
 
 the flesh *profiteth* nothing, [[John 6.63|John 6:63]].
 
-circumcision ... *profiteth*, if thou keep the law, [[Romans 2.25|Romans 2:25]].
+circumcision … *profiteth*, if thou keep the law, [[Romans 2.25|Romans 2:25]].
 
 what *profit* is there of circumcision, [[Romans 3.1|Romans 3:1]].
 
@@ -39,7 +38,7 @@ not seeking mine own *profit*, but the *profit* of many, [[1 Corinthians 10.33|1
 
 Spirit is given to every man to *profit*, [[1 Corinthians 12.7|1 Corinthians 12:7]].
 
-*profited* in the Jews' religion above many, [[Galatians 1.14|Galatians 1:14]].
+*profited* in the Jews’ religion above many, [[Galatians 1.14|Galatians 1:14]].
 
 if ye be circumcised, Christ shall *profit* you nothing, [[Galatians 5.2|Galatians 5:2]].
 
@@ -51,14 +50,14 @@ they strive not about words to no *profit*, [[2 Timothy 2.14|2 Timothy 2:14]].
 
 word preached did not *profit* them, [[Hebrews 4.2|Hebrews 4:2]].
 
-What doth it *profit* ... though a man say he hath faith, and have not works, [[James 2.14|James 2:14]].
+What doth it *profit* … though a man say he hath faith, and have not works, [[James 2.14|James 2:14]].
 
 that it might be for our *profit* and learning, [[1 Nephi 19.23|1 Nephi 19:23]] ([[2 Nephi 2.14|2 Nephi 2:14]]; [[2 Nephi 4.15|2 Nephi 4:15]]; [[D&C 46.16|D&C 46:16]]).
 
 what doth it *profit* us to labor in the church, [[Alma 30.34|Alma 30:34]].
 
-except ... with real intent it *profiteth* him nothing, [[Moroni 7.6|Moroni 7:6]] ([[Moroni 7.9|Moroni 7:9]]).
+except … with real intent it *profiteth* him nothing, [[Moroni 7.6|Moroni 7:6]] ([[Moroni 7.9|Moroni 7:9]]).
 
-given ... of God unto men, to *profit* them, [[Moroni 10.8|Moroni 10:8]].
+given … of God unto men, to *profit* them, [[Moroni 10.8|Moroni 10:8]].
 
 in order that every member may be *profited*, [[D&C 46.29|D&C 46:29]].

@@ -12,7 +12,7 @@ My dear brethren of the priesthood, how honored I am to be with you this evening
 
 In a message from the First Presidency, included in the *For the Strength of Youth* booklet, we read:
 
-“Our beloved young men … , we have great confidence in you. You are choice spirits who have come forth in this day when the responsibilities and opportunities, as well as the temptations, are the greatest. You are at the beginning of your journey through this mortal life. Your Heavenly Father wants your life to be joyful and to lead you back into His presence. The decisions you make now will determine much of what will follow during your life and throughout eternity.”[^1]
+“Our beloved young men … , we have great confidence in you. You are choice spirits who have come forth in this day when the responsibilities and opportunities, as well as the temptations, are the greatest. You are at the beginning of your journey through this mortal life. Your Heavenly Father wants your life to be joyful and to lead you back into His presence. The decisions you make now will determine much of what will follow during your life and throughout eternity.”[^1]
 
 You live in a world of great uncertainty. There are many voices. There are many paths. Not all lead to our Heavenly Father. How will you know to whom to listen or where to go?
 
@@ -108,7 +108,5 @@ May you be blessed as you keep the standards of the Church. In the name of Jesus
 [^8]: [[D&C 45.31|D&C 45:31]].
 
 [^9]: [[D&C 45.32|D&C 45:32]].
-
-
 
 #Endurance #Standards #Youth

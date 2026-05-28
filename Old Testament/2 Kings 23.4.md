@@ -5,5 +5,5 @@
 [2 Kings 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.4?lang=eng#p4)
 
 
-[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  
 [^b]: [[2 Kings 25.18|2 Kgs. 25:18]].  

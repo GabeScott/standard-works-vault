@@ -1,6 +1,5 @@
 # Send, Sent
 
-
 he *sent* forth a raven, [[Genesis 8.7|Genesis 8:7]].
 
 he shall *send* his angel before thee, [[Genesis 24.7|Genesis 24:7]].
@@ -19,13 +18,13 @@ he *sent* prophets to them, [[2 Chronicles 24.19|2 Chronicles 24:19]].
 
 He *sent* a man before them, even Joseph, [[Psalms 105.17|Psalms 105:17]].
 
-Whom shall I *send*, ... Here am I; *send* me, [[Isaiah 6.8|Isaiah 6:8]] ([[2 Nephi 16.8|2 Nephi 16:8]]; [[Moses 4.1|Moses 4:1]]; [[Abraham 3.27|Abraham 3:27]]).
+Whom shall I *send*, … Here am I; *send* me, [[Isaiah 6.8|Isaiah 6:8]] ([[2 Nephi 16.8|2 Nephi 16:8]]; [[Moses 4.1|Moses 4:1]]; [[Abraham 3.27|Abraham 3:27]]).
 
 he shall *send* them a saviour, [[Isaiah 19.20|Isaiah 19:20]].
 
 Lord God, and his Spirit, hath *sent* me, [[Isaiah 48.16|Isaiah 48:16]].
 
-God ... hath *sent* me to bind up the brokenhearted, [[Isaiah 61.1|Isaiah 61:1]] ([[Luke 4.18|Luke 4:18]]).
+God … hath *sent* me to bind up the brokenhearted, [[Isaiah 61.1|Isaiah 61:1]] ([[Luke 4.18|Luke 4:18]]).
 
 thou shalt go to all that I shall *send* thee, [[Jeremiah 1.7|Jeremiah 1:7]].
 
@@ -39,7 +38,7 @@ Lord *sent* me to prophesy against this house, [[Jeremiah 26.12|Jeremiah 26:12]]
 
 I will *send* my messenger, and he shall prepare the way, [[Malachi 3.1|Malachi 3:1]] ([[Matthew 11.10|Matthew 11:10]]; [[Mark 1.2|Mark 1:2]]; [[Luke 7.27|Luke 7:27]]; [[3 Nephi 24.1|3 Nephi 24:1]]).
 
-I will *send* you Elijah the prophet, [[Malachi 4.5|Malachi 4:5]] ([[3 Nephi 24.5|3 Nephi 24:5]]; [[D&C 128.17|D&C 128:17]]).
+I will *send* you Elijah the prophet, [[Malachi 4.5|Malachi 4:5]] ([[3 Nephi 25.5|3 Nephi 25:5]]; [[D&C 128.17|D&C 128:17]]).
 
 will *send* forth labourers into his harvest, [[Matthew 9.38|Matthew 9:38]] ([[Luke 10.2|Luke 10:2]]).
 
@@ -51,13 +50,13 @@ I came not to *send* peace, but a sword, [[Matthew 10.34|Matthew 10:34]].
 
 he that receiveth me receiveth him that *sent* me, [[Matthew 10.40|Matthew 10:40]] ([[Luke 9.48|Luke 9:48]]; [[John 13.20|John 13:20]]).
 
-John ... *sent* two of his disciples, [[Matthew 11.2|Matthew 11:2]] ([[Luke 7.19|Luke 7:19]]).
+John … *sent* two of his disciples, [[Matthew 11.2|Matthew 11:2]] ([[Luke 7.19|Luke 7:19]]).
 
 Son of man shall *send* forth his angels, [[Matthew 13.41|Matthew 13:41]].
 
 I am not *sent* but unto the lost sheep of the house of Israel, [[Matthew 15.24|Matthew 15:24]].
 
-ordained twelve ... that he might *send* them forth to preach, [[Mark 3.14|Mark 3:14]].
+ordained twelve … that he might *send* them forth to preach, [[Mark 3.14|Mark 3:14]].
 
 devils besought him, saying, *Send* us into the swine, [[Mark 5.12|Mark 5:12]].
 
@@ -65,7 +64,7 @@ began to *send* them forth by two and two, [[Mark 6.7|Mark 6:7]].
 
 receiveth not me, but him that *sent* me, [[Mark 9.37|Mark 9:37]].
 
-preach the kingdom ... therefore am I *sent*, [[Luke 4.43|Luke 4:43]].
+preach the kingdom … therefore am I *sent*, [[Luke 4.43|Luke 4:43]].
 
 I *send* the promise of my Father upon you, [[Luke 24.49|Luke 24:49]].
 
@@ -79,7 +78,7 @@ As the living Father hath *sent* me, [[John 6.57|John 6:57]].
 
 doctrine is not mine, but his that *sent* me, [[John 7.16|John 7:16]].
 
-know him: for ... he hath *sent* me, [[John 7.29|John 7:29]] ([[John 10.36|John 10:36]]).
+know him: for … he hath *sent* me, [[John 7.29|John 7:29]] ([[John 10.36|John 10:36]]).
 
 he that *sent* me is with me, [[John 8.29|John 8:29]].
 
@@ -87,7 +86,7 @@ neither came I of myself, but he *sent* me, [[John 8.42|John 8:42]].
 
 that they may believe that thou hast *sent* me, [[John 11.42|John 11:42]] ([[John 12.49|John 12:49]]).
 
-Comforter ... if I depart, I will *send* him unto you, [[John 16.7|John 16:7]].
+Comforter … if I depart, I will *send* him unto you, [[John 16.7|John 16:7]].
 
 Jesus Christ, whom thou hast *sent*, [[John 17.3|John 17:3]].
 
@@ -97,7 +96,7 @@ As thou hast *sent* me into the world, even so, [[John 17.18|John 17:18]].
 
 as my Father hath *sent* me, even so *send* I you, [[John 20.21|John 20:21]].
 
-Jesus ... hath *sent* me, [[Acts 9.17|Acts 9:17]].
+Jesus … hath *sent* me, [[Acts 9.17|Acts 9:17]].
 
 they, being *sent* forth by the Holy Ghost, departed, [[Acts 13.4|Acts 13:4]].
 
@@ -121,17 +120,17 @@ God hath *sent* his holy prophets among all the children of men, [[Mosiah 3.13|M
 
 I will *send* forth hail among them, [[Mosiah 12.6|Mosiah 12:6]].
 
-Lamoni said ... Art thou *sent* from God, [[Alma 18.33|Alma 18:33]].
+Lamoni said … Art thou *sent* from God, [[Alma 18.33|Alma 18:33]].
 
 when the devil shall *send* forth his mighty winds, [[Helaman 5.12|Helaman 5:12]].
 
 *send* forth rain upon the face of the earth, [[Helaman 11.13|Helaman 11:13]] ([[Ether 9.35|Ether 9:35]]).
 
-Father having raised me up ... and *sent* me to bless you, [[3 Nephi 20.26|3 Nephi 20:26]].
+Father having raised me up … and *sent* me to bless you, [[3 Nephi 20.26|3 Nephi 20:26]].
 
 will of my Father, because my Father *sent* me, [[3 Nephi 27.13|3 Nephi 27:13]].
 
-not hearken unto ... them whom he hath chosen and *sent* among them, [[3 Nephi 28.34|3 Nephi 28:34]].
+not hearken unto … them whom he hath chosen and *sent* among them, [[3 Nephi 28.34|3 Nephi 28:34]].
 
 rains and the floods have I *sent* forth, [[Ether 2.24|Ether 2:24]].
 
@@ -155,9 +154,9 @@ lesser priesthood, and *send* them before you to make appointments, [[D&C 84.107
 
 God, will *send* one mighty and strong, [[D&C 85.7|D&C 85:7]].
 
-angels ... ready and waiting to be *sent* forth to reap, [[D&C 86.5|D&C 86:5]].
+angels … ready and waiting to be *sent* forth to reap, [[D&C 86.5|D&C 86:5]].
 
-The Twelve being *sent* out ... to open the door, [[D&C 107.35|D&C 107:35]].
+The Twelve being *sent* out … to open the door, [[D&C 107.35|D&C 107:35]].
 
 judgments which thou wilt *send* upon them, [[D&C 109.30|D&C 109:30]].
 

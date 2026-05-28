@@ -1,6 +1,6 @@
 # Prepare Every Needful Thing
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -22,7 +22,7 @@ Thumbing through the Doctrine and Covenants to the eighty-eighth section, we fin
 
 “And as all have not faith, seek ye diligently and teach one another words of wisdom; yea, seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].)
 
-After this injunction to teach one another, to seek wisdom out of the best books, and to seek learning, the Lord gave further instructions and suggested in very few words that programs be established to carry out these responsibilities. This is how he said it should be done: “Organize yourselves; prepare every needful thing. …” ([[D&C 88.119|D&C 88:119]].)
+After this injunction to teach one another, to seek wisdom out of the best books, and to seek learning, the Lord gave further instructions and suggested in very few words that programs be established to carry out these responsibilities. This is how he said it should be done: “Organize yourselves; prepare every needful thing. …” ([[D&C 88.119|D&C 88:119]].)
 
 If we are to teach one another, if we are to seek wisdom and learning by study and by faith, we must organize and prepare every needful thing. These words form the basis upon which the idea of the meetinghouse library is conceived—to “prepare every needful thing” for more effective teaching.
 
@@ -61,8 +61,6 @@ The *Instructional Materials Catalog* is in loose-leaf form so it can be expande
 This is an exciting program, one that will give teachers the much-needed helps to make their teaching effective. The well-organized, adequately stocked, and competently staffed library will become the nerve center of the ward or branch for more excellence in teaching. You can now see why it is important to move forward in every meetinghouse to “prepare every needful thing,” as stated in the revelation from the Lord, for Churchwide uniformity in teaching assistance to all priesthood and auxiliary organizations. We encourage each member of the priesthood to make use of the meetinghouse library. Its purpose is to provide you, as well as the sisters who have teaching functions within the Church, with the materials and equipment to increase the quality of teaching.
 
 I testify to you that the meetinghouse library program is divinely inspired. It is guided by the hand of our Heavenly Father to make teaching in the Church more effective. It has the immediate promise to increase the activity of the entire membership of the Church through making the messages of the gospel more vital in our lives. I pray we may be successful in this effort to “prepare every needful thing,” in the name of Jesus Christ. Amen.
-
-
 
 
 

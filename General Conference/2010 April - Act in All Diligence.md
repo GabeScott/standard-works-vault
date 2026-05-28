@@ -10,7 +10,7 @@ By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 Brethren, I am grateful to be with you tonight. And I am humbled by what I know of your faithful priesthood service. I speak to you tonight of diligence in the Lord’s service. Recent experiences led me to that choice.
 
-One was my careful study of the remarkable new booklet for the Aaronic Priesthood, about which Brother David L. Beck spoke. It is entitled *Fulfilling My Duty to God.* As I read and pondered what it expects young men to do and to become, I realized that it was describing what President Brigham Young promised to the priesthood holder who is diligent over a lifetime: “An individual who holds a share in the Priesthood, and continues faithful to his calling, who delights himself continually in doing the things God requires at his hands, and continues through life in the performance of every duty will secure to himself not only the privilege of receiving, but the knowledge \[of\] how to receive the things of God, that he may know the mind of God continually.”[^1]
+One was my careful study of the remarkable new booklet for the Aaronic Priesthood, about which Brother David L. Beck spoke. It is entitled *Fulfilling My Duty to God.* As I read and pondered what it expects young men to do and to become, I realized that it was describing what President Brigham Young promised to the priesthood holder who is diligent over a lifetime: “An individual who holds a share in the Priesthood, and continues faithful to his calling, who delights himself continually in doing the things God requires at his hands, and continues through life in the performance of every duty will secure to himself not only the privilege of receiving, but the knowledge \[of\] how to receive the things of God, that he may know the mind of God continually.”[^1]
 
 Just a few weeks ago, I saw a new deacon start on that path of diligence. His father showed me a diagram his son had created that showed every row in their chapel, a number for each deacon who would be assigned to pass the sacrament, and their route through the chapel to serve the sacrament to the members. The father and I smiled to think that a boy, without being asked to do it, would make a plan to be sure he would succeed in his priesthood service.
 
@@ -102,7 +102,7 @@ I walked out into the night grateful to have witnessed the Lord’s kindness to 
 
 I close now with this counsel to the Lord’s priesthood servants. Ponder deeply and diligently in the scriptures and in the words of living prophets. Persist in prayer for the Holy Ghost to reveal to you the nature of God the Father and His Beloved Son. Plead that the Spirit will show you what the Lord wants you to do. Plan to do it. Promise Him to obey. Act with determination until you have done what He asked. And then pray to give thanks for the opportunity to serve and to know what you might do next.
 
-I testify that our Heavenly Father and Jesus Christ live. They are resurrected and glorified beings who love us and watch over us. The keys of the priesthood were restored by heavenly messengers to the Prophet Joseph Smith. They have been passed in an unbroken line to President Thomas S. Monson. Those keys are held by each of the living Apostles.
+I testify that our Heavenly Father and Jesus Christ live. They are resurrected and glorified beings who love us and watch over us. The keys of the priesthood were restored by heavenly messengers to the Prophet Joseph Smith. They have been passed in an unbroken line to President Thomas S. Monson. Those keys are held by each of the living Apostles.
 
 I leave you my blessing that you may come to feel by the Spirit the magnitude of the trust and promises you have received as ordained priesthood servants in the Lord’s true Church, in the sacred name of Jesus Christ, amen.
 
@@ -119,7 +119,7 @@ I leave you my blessing that you may come to feel by the Spirit the magnitude of
 
 [^5]: See [[D&C 13.1|Doctrine and Covenants 13]].
 
-[^6]: See [[3 Nephi 20.3|3 Nephi 20:3–9]][[3 Nephi 20.4|]][[3 Nephi 20.5|]][[3 Nephi 20.6|]][[3 Nephi 20.7|]][[3 Nephi 20.8|]][[3 Nephi 20.9|]].
+[^6]: See [[3 Nephi 20.3|3 Nephi 20:3–9]][[3 Nephi 20.4|]][[3 Nephi 20.5|]][[3 Nephi 20.6|]][[3 Nephi 20.7|]][[3 Nephi 20.8|]][[3 Nephi 20.9|]].
 
 [^7]: [[D&C 107.3|Doctrine and Covenants 107:3]]; see also [[Alma 13.1|Alma 13:1–9]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]].
 
@@ -132,7 +132,5 @@ I leave you my blessing that you may come to feel by the Spirit the magnitude of
 [^11]: [[John 19.30|John 19:30]].
 
 [^12]: [[D&C 138.30|Doctrine and Covenants 138:30–31]][[D&C 138.31|]]
-
-
 
 #Dedication #Duty #Priesthood

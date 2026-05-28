@@ -1,7 +1,6 @@
 # Hem
 
-
-*See also* [BD Hem of garment](https://www.churchofjesuschrist.org/study/scriptures/bd/hem-of-garment?lang=eng)
+*See also* [[BD Hem of garment.md|BD Hem of garment]]
 
 touched the *hem* of his garment, [[Matthew 9.20|Matthew 9:20]].
 

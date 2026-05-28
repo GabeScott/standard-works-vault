@@ -1,6 +1,6 @@
 # Teachings of Jesus
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 “What think ye of Christ?” ([[Matthew 22.42|Matthew 22:42]]). With those words Jesus confounded the Pharisees of His day. With those same words I ask my fellow Latter-day Saints and other Christians what you really believe about Jesus Christ and what you are doing because of that belief.
 
-Most of my scriptural quotations will come from the Bible because it is familiar to most Christians. My interpretations will of course draw on what modern scripture, notably the Book of Mormon, teaches us about the meaning of Bible scriptures so ambiguous that different Christians disagree on their meaning. I address believers but others as well. As Elder Tad R. Callister taught us this morning, some who call themselves Christians praise Jesus as a great teacher but refrain from affirming His divinity. To address them, I have used the words of Jesus Himself. We should all consider what He Himself taught about who He is and what He was sent to earth to do.
+Most of my scriptural quotations will come from the Bible because it is familiar to most Christians. My interpretations will of course draw on what modern scripture, notably the Book of Mormon, teaches us about the meaning of Bible scriptures so ambiguous that different Christians disagree on their meaning. I address believers but others as well. As Elder Tad R. Callister taught us this morning, some who call themselves Christians praise Jesus as a great teacher but refrain from affirming His divinity. To address them, I have used the words of Jesus Himself. We should all consider what He Himself taught about who He is and what He was sent to earth to do.
 
 ## Only Begotten Son
 
@@ -30,7 +30,7 @@ Jesus also taught that His appearance was the same as His Father’s. To His Apo
 
 “Jesus saith unto him, Have I been so long time with you, and yet hast thou not known me, Philip? he that hath seen me hath seen the Father” ([[John 14.7|John 14:7–9]][[John 14.8|]][[John 14.9|]]).
 
-Later the Apostle Paul described the Son as being “the express image of \[God the Father’s\] person” ([[Hebrews 1.3|Hebrews 1:3]]; see also [[2 Corinthians 4.4|2 Corinthians 4:4]]).
+Later the Apostle Paul described the Son as being “the express image of \[God the Father’s\] person” ([[Hebrews 1.3|Hebrews 1:3]]; see also [[2 Corinthians 4.4|2 Corinthians 4:4]]).
 
 ## Creator
 
@@ -40,9 +40,9 @@ The Apostle John wrote that Jesus, whom he called “the Word,” “was in the 
 
 During His ministry to His people in Palestine, Jesus taught that He was Jehovah, the Lord God of Israel (see [[John 8.58|John 8:58]]). Later, as the risen Lord, He ministered to His people on the American continent. There He declared:
 
-“Behold, I am Jesus Christ, whom the prophets testified shall come into the world. …
+“Behold, I am Jesus Christ, whom the prophets testified shall come into the world. …
 
-“… I am the God of Israel, and the God of the whole earth” ([[3 Nephi 11.10|3 Nephi 11:10, 14]][[3 Nephi 11.14|]]).
+“… I am the God of Israel, and the God of the whole earth” ([[3 Nephi 11.10|3 Nephi 11:10, 14]][[3 Nephi 11.14|]]).
 
 ## What He Has Done for Us
 
@@ -50,7 +50,7 @@ At a stake conference many years ago, I met a woman who said she had been asked 
 
 ## Life of the World
 
-The Bible records Jesus’s teaching: “I am come that they might have life, and that they might have it more abundantly” ([[John 10.10|John 10:10]]). Later, in the New World, He declared, “I am the light and the life of the world” ([[3 Nephi 11.11|3 Nephi 11:11]]). He is the “life of the world” because He is our Creator and because, through His Resurrection, we are all assured that we will live again. And the life He gives us is not merely mortal life. He taught, “I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand” ([[John 10.28|John 10:28]]; see also [[John 17.2|John 17:2]]).
+The Bible records Jesus’s teaching: “I am come that they might have life, and that they might have it more abundantly” ([[John 10.10|John 10:10]]). Later, in the New World, He declared, “I am the light and the life of the world” ([[3 Nephi 11.11|3 Nephi 11:11]]). He is the “life of the world” because He is our Creator and because, through His Resurrection, we are all assured that we will live again. And the life He gives us is not merely mortal life. He taught, “I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand” ([[John 10.28|John 10:28]]; see also [[John 17.2|John 17:2]]).
 
 ## Light of the World
 
@@ -88,7 +88,7 @@ He also guides us by His commandments. Thus He commanded the Nephites that they 
 
 “He that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
-“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away” ([[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]]).
+“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away” ([[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]]).
 
 ## Focus on Eternal Life
 
@@ -100,33 +100,31 @@ Some of His disciples said this was “an hard saying,” and from that time man
 
 The culmination of our Savior’s mortal ministry was His Resurrection and His Atonement for the sins of the world. John the Baptist prophesied this when he said, “Behold the Lamb of God, which taketh away the sin of the world” ([[John 1.29|John 1:29]]). Later Jesus taught that “the Son of man came … to minister, and to give his life a ransom for many” ([[Matthew 20.28|Matthew 20:28]]). At the Last Supper, Jesus explained, according to the account in Matthew, that the wine He had blessed was “my blood of the new testament, which is shed for many for the remission of sins” ([[Matthew 26.28|Matthew 26:28]]).
 
-Appearing to the Nephites, the risen Lord invited them to come forward to feel the wound in His side and the prints of the nails in His hands and His feet. He did this, He explained, “that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world” ([[3 Nephi 11.14|3 Nephi 11:14]]). And, the account continues, the multitude fell “down at the feet of Jesus, and did worship him” ([[3 Nephi 11.17|verse 17]]). For this, the whole world will ultimately worship Him.
+Appearing to the Nephites, the risen Lord invited them to come forward to feel the wound in His side and the prints of the nails in His hands and His feet. He did this, He explained, “that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world” ([[3 Nephi 11.14|3 Nephi 11:14]]). And, the account continues, the multitude fell “down at the feet of Jesus, and did worship him” ([[3 Nephi 11.17|verse 17]]). For this, the whole world will ultimately worship Him.
 
 Jesus taught further precious truths about His Atonement. The Book of Mormon, which elaborates the Savior’s teachings and gives the best explanation of His mission, reports this teaching:
 
-“My Father sent me that I might be lifted up upon the cross … , that I might draw all men unto me, …
+“My Father sent me that I might be lifted up upon the cross … , that I might draw all men unto me, …
 
-“… that they may be judged according to their works.
+“… that they may be judged according to their works.
 
-“And … whoso repenteth and is baptized in my name shall be filled; and if he endureth to the end, behold, him will I hold guiltless before my Father at that day when I shall stand to judge the world. …
+“And … whoso repenteth and is baptized in my name shall be filled; and if he endureth to the end, behold, him will I hold guiltless before my Father at that day when I shall stand to judge the world. …
 
-“And no unclean thing can enter into \[the Father’s\] kingdom; therefore nothing entereth into his rest save it be those who have washed their garments in my blood, because of their faith, and the repentance of all their sins, and their faithfulness unto the end” ([[3 Nephi 27.14|3 Nephi 27:14–16, 19]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.19|]]).
+“And no unclean thing can enter into \[the Father’s\] kingdom; therefore nothing entereth into his rest save it be those who have washed their garments in my blood, because of their faith, and the repentance of all their sins, and their faithfulness unto the end” ([[3 Nephi 27.14|3 Nephi 27:14–16, 19]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.19|]]).
 
 And so we understand that the Atonement of Jesus Christ gives us the opportunity to overcome the spiritual death that results from sin and, through making and keeping sacred covenants, to have the blessings of eternal life.
 
 ## Challenge and Testimony
 
-Jesus issued the challenge “What think ye of Christ?” ([[Matthew 22.42|Matthew 22:42]]). The Apostle Paul challenged the Corinthians to “examine yourselves, whether ye be in the faith” ([[2 Corinthians 13.5|2 Corinthians 13:5]]). All of us should answer these challenges for ourselves. Where is our ultimate loyalty? Are we like the Christians in Elder Neal A. Maxwell’s memorable description who have moved their residence to Zion but still try to keep a second residence in Babylon?[^1]
+Jesus issued the challenge “What think ye of Christ?” ([[Matthew 22.42|Matthew 22:42]]). The Apostle Paul challenged the Corinthians to “examine yourselves, whether ye be in the faith” ([[2 Corinthians 13.5|2 Corinthians 13:5]]). All of us should answer these challenges for ourselves. Where is our ultimate loyalty? Are we like the Christians in Elder Neal A. Maxwell’s memorable description who have moved their residence to Zion but still try to keep a second residence in Babylon?[^1]
 
-There is no middle ground. We are followers of Jesus Christ. Our citizenship is in His Church and His gospel, and we should not use a visa to visit Babylon or act like one of its citizens. We should honor His name, keep His commandments, and “seek not the things of this world but seek … first to build up the kingdom of God, and to establish his righteousness” ([[Matthew 6.note33a|Matthew 6:33, footnote a]]; from [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]]).
+There is no middle ground. We are followers of Jesus Christ. Our citizenship is in His Church and His gospel, and we should not use a visa to visit Babylon or act like one of its citizens. We should honor His name, keep His commandments, and “seek not the things of this world but seek … first to build up the kingdom of God, and to establish his righteousness” ([Matthew 6:33, footnote a](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a); from [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]]).
 
 Jesus Christ *is* the Only Begotten and Beloved Son of God. He *is* our Creator. He *is* the Light of the World. He *is* our Savior from sin and death. This is the most important knowledge on earth, and you can know this for yourself, as I know it for myself. The Holy Ghost, who testifies of the Father and the Son and leads us into truth, has revealed these truths to me, and He will reveal them to you. The way is desire and obedience. As to desire, Jesus taught, “Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you” ([[Matthew 7.7|Matthew 7:7]]). As to obedience, He taught, “If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself” ([[John 7.17|John 7:17]]). I testify of the truth of these things in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See Neal A. Maxwell, *A Wonderful Flood of Light* (1990), 47.
+[^1]: See Neal A. Maxwell, *A Wonderful Flood of Light* (1990), 47.
 
-
-
-#Atonement #Jesus_Christ #Obedience
+#Atonement #JesusChrist #Obedience

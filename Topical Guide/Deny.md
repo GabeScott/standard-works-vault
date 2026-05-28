@@ -1,6 +1,5 @@
 # Deny
 
-
 *See also* [[Renounce.md|Renounce]]
 
 a witness unto you, lest ye *deny* your God, [[Joshua 24.27|Joshua 24:27]].
@@ -11,7 +10,7 @@ shall *deny* me before men, him will I also *deny*, [[Matthew 10.33|Matthew 10:3
 
 let him *deny* himself, [[Matthew 16.24|Matthew 16:24]] ([[Mark 8.34|Mark 8:34]]; [[Luke 9.23|Luke 9:23]]).
 
-cock crow, thou shalt *deny* me thrice, [[Matthew 26.34|Matthew 26:34]] ([[Matthew 26.75|Matthew 26:75]]; [[Mark 14.30|Mark 14:30]], [[Mark 14.72|Mark 14:72]]; [[Luke 22.34|Luke 22:34]], [[Luke 22.61|Luke 22:61]]; [[John 13.38|John 13:38]]).
+cock crow, thou shalt *deny* me thrice, [[Matthew 26.34|Matthew 26:34]] ([[Matthew 26.75|Matthew 26:75]]; [[Mark 14.30|Mark 14:30]]; [[Mark 14.72|Mark 14:72]]; [[Luke 22.34|Luke 22:34]]; [[Luke 22.61|Luke 22:61]]; [[John 13.38|John 13:38]]).
 
 he *denied* before them all, [[Matthew 26.70|Matthew 26:70]] ([[Mark 14.68|Mark 14:68]]; [[Luke 22.57|Luke 22:57]]).
 
@@ -33,7 +32,7 @@ in damnable heresies, even *denying* the Lord, [[2 Peter 2.1|2 Peter 2:1]].
 
 antichrist, that *denieth* the Father and the Son, [[1 John 2.22|1 John 2:22]].
 
-ungodly men ... *denying* the only Lord, [[Jude 1.4|Jude 1:4]].
+ungodly men … *denying* the only Lord, [[Jude 1.4|Jude 1:4]].
 
 hast not *denied* my faith, [[Revelation 2.13|Revelation 2:13]].
 
@@ -51,7 +50,7 @@ they did *deny* the more parts of his gospel, [[4 Nephi 1.27|4 Nephi 1:27]].
 
 in a day when the power of God shall be *denied*, [[Mormon 8.28|Mormon 8:28]].
 
-revelation ... wo unto him that *denieth* these, [[D&C 11.25|D&C 11:25]].
+revelation … wo unto him that *denieth* these, [[D&C 11.25|D&C 11:25]].
 
 I cannot *deny* my word, [[D&C 39.16|D&C 39:16]].
 
@@ -59,4 +58,4 @@ not endure chastening, but *deny* me, [[D&C 101.5|D&C 101:5]].
 
 those among you who *deny* my name, [[D&C 114.2|D&C 114:2]].
 
-since ... I created them, have they ... *denied* me, [[Moses 6.28|Moses 6:28]].
+since … I created them, have they … *denied* me, [[Moses 6.28|Moses 6:28]].

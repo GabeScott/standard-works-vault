@@ -40,13 +40,13 @@ The more I study the Book of Mormon, the more I appreciate the spirit of kindnes
 
 “And behold, ye shall meet together oft; and ye shall not forbid any man from coming unto you when ye shall meet together, but suffer them that they may come unto you and forbid them not;
 
-“But ye shall pray for them, and shall not cast them out; and if it so be that they come unto you oft ye shall pray for them unto the Father, in my name.” ([[3 Nephi 18.22|3 Ne. 18:22–23]][[3 Nephi 18.23|]].)
+“But ye shall pray for them, and shall not cast them out; and if it so be that they come unto you oft ye shall pray for them unto the Father, in my name.” ([[3 Nephi 18.22|3 Ne. 18:22–23]][[3 Nephi 18.23|]].)
 
-Unworthy persons are not to partake of the sacrament that they may not mock that holy ordinance in which we covenant to obey and keep the laws of God. The Savior then continues: “Nevertheless, ye shall not cast him out from among you, but ye shall minister unto him and shall pray for him unto the Father, in my name.” ([[3 Nephi 18.30|3 Ne. 18:30]].)
+Unworthy persons are not to partake of the sacrament that they may not mock that holy ordinance in which we covenant to obey and keep the laws of God. The Savior then continues: “Nevertheless, ye shall not cast him out from among you, but ye shall minister unto him and shall pray for him unto the Father, in my name.” ([[3 Nephi 18.30|3 Ne. 18:30]].)
 
 I understand that to “minister” means we should teach, befriend, and help that person to understand, repent, and return to God. If that person then repents and is baptized, that is good. But if that person refuses to repent, he or she is not yet ready to be numbered among the members of the Church of Christ. The Savior then instructs us how to treat those who have not yet repented:
 
-“Nevertheless, ye shall not cast him out of your synagogues, or your places of worship, for unto such shall ye continue to minister; for ye know not but what they will return and repent, and come unto me with full purpose of heart, and I shall heal them; and ye shall be the means of bringing salvation unto them.” ([[3 Nephi 18.32|3 Ne. 18:32]].)
+“Nevertheless, ye shall not cast him out of your synagogues, or your places of worship, for unto such shall ye continue to minister; for ye know not but what they will return and repent, and come unto me with full purpose of heart, and I shall heal them; and ye shall be the means of bringing salvation unto them.” ([[3 Nephi 18.32|3 Ne. 18:32]].)
 
 I urge you especially to consider the problems which families of transgressors have to face. When a person has to be disciplined, remember the impact this has on his or her family. That family is already crushed by what has occurred. The family has been betrayed and abused, and individual family members often feel the taint of that transgression upon them even though they may be personally innocent. Do not abandon them in their hour of need. Never will they need friends more than at that moment. Never will they need acceptance, kindness, and understanding more than in those first few months after their betrayal. Do not widen the breach. Do not further condemn the offender in the minds of family members. That will only delay the healing process and make forgiveness more difficult. Put yourself in their place. They need strength and encouragement and often financial or physical aid. A spouse left alone finds it difficult to cope with the many changes that have to be made. I ask you just to *be* there—a pillar of friendship on which they can lean, a comforter and protector of the children within that family.
 
@@ -55,8 +55,6 @@ Thus, as one of the General Authorities, and in fulfilling part of my present du
 “By this shall all men know that ye are my disciples, if ye have love one to another.” ([[John 13.34|John 13:34–35]][[John 13.35|]].)
 
 That we may do so I pray in the name of Jesus Christ, amen.
-
-
 
 
 

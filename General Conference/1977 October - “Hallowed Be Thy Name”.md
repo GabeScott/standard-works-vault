@@ -1,6 +1,6 @@
 # “Hallowed Be Thy Name”
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -24,7 +24,7 @@ Jesus looked up throughout the course of his ministry. He prayed constantly and 
 
 Reverence and adoration were frequently declared in prayer by the Master and were beautifully expressed in the Sermon on the Mount when he gave this counsel: “After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.” ([[Matthew 6.9|Matt. 6:9]].)
 
-“Probably no other words in the Lord’s Prayer have been so frequently slurred and overlooked as ‘Hallowed be thy name.’ They lie … ,” as one writer said, “in the valley between the great name of God and the glorious Kingdom for which we are looking and waiting. We slide over them as though they were only a parenthesis and hasten on to ask for bread and deliverance from our greatest foe.” (Charles Edward Jefferson, *Character of Jesus,* Salt Lake City: Parliament Publishers, 1968, pp. 313–14.)
+“Probably no other words in the Lord’s Prayer have been so frequently slurred and overlooked as ‘Hallowed be thy name.’ They lie … ,” as one writer said, “in the valley between the great name of God and the glorious Kingdom for which we are looking and waiting. We slide over them as though they were only a parenthesis and hasten on to ask for bread and deliverance from our greatest foe.” (Charles Edward Jefferson, *Character of Jesus,* Salt Lake City: Parliament Publishers, 1968, pp. 313–14.)
 
 Jesus was careful to place the petition “Hallowed be thy name” at the very forefront of his prayer. Unless that reverent, prayerful, honorable attitude toward God is uppermost in our hearts, we are not fully prepared to pray. If our first thought is of ourselves and not of God, we are not praying as Jesus taught. It was his supreme hope that our Father’s name and station would be kept beautiful and holy. Living always with an eye single to the glory of God, he urged men everywhere to so speak, and act, and live, that others seeing their good works might glorify their Father in heaven.
 
@@ -42,17 +42,15 @@ Unfortunately we sometimes find this lack of reverence even within the Church. O
 
 Dr. Alexis Carrel, recipient of the Nobel Prize in physiology and medicine, once said, “Today as never before, prayer is a binding necessity in the lives of men and nations. The lack of emphasis on the religious sense has brought the world to an age of destruction. Our deepest source of power and perfection has been left miserably undeveloped.” (*Reader’s Digest,* March 1941, p. 36.)
 
-If men are no longer awed by the thought of a holy God and are, as Mormon said of the people of his day, “without principle, and past feeling” ([[Moroni 9.20|Moro. 9:20]]), then we face a fearful time. A number of years ago, President David O. McKay made this statement: “We are living in a troublous age. Many people in the Church, as millions in the world, are stirred with anxiety; hearts are heavy with feelings of foreboding. For the third time in half a century lowering war clouds threaten world peace. O foolish man! Will he never profit by the experiences of the past! … It is the duty of the members of the Church to hold aloft true spiritual standards. Then we shall be better prepared for any eventuality.” (*Conference Report,* April 1948, pp. 64–65.)
+If men are no longer awed by the thought of a holy God and are, as Mormon said of the people of his day, “without principle, and past feeling” ([[Moroni 9.20|Moro. 9:20]]), then we face a fearful time. A number of years ago, President David O. McKay made this statement: “We are living in a troublous age. Many people in the Church, as millions in the world, are stirred with anxiety; hearts are heavy with feelings of foreboding. For the third time in half a century lowering war clouds threaten world peace. O foolish man! Will he never profit by the experiences of the past! … It is the duty of the members of the Church to hold aloft true spiritual standards. Then we shall be better prepared for any eventuality.” (*Conference Report,* April 1948, pp. 64–65.)
 
-Prayer, reverence, worship, devotion, respect for the holy—these are basic exercises of our spirit and must be actively practiced in our lives or they will be lost. One of our LDS chaplains once wrote to a Church leader about the need for reverential faith, or the need to keep looking up. “In combat,” he said, “I learned that a chaplain, if he will, can be the spark plug in the nerve center of a group of men who suddenly realize that they need something from above and beyond. A word here, a word there, a nod there, a prayer with this man, a story with that one, a smile and a comforting arm—all work wonders in teaching men sanity and stability where insanity and instability are the order of the day.” (Harold B. Lee, “Prayer,” Address to Seminary and Institute Faculty, Brigham Young University, Provo, Utah, July 6, 1956, p. 19.)
+Prayer, reverence, worship, devotion, respect for the holy—these are basic exercises of our spirit and must be actively practiced in our lives or they will be lost. One of our LDS chaplains once wrote to a Church leader about the need for reverential faith, or the need to keep looking up. “In combat,” he said, “I learned that a chaplain, if he will, can be the spark plug in the nerve center of a group of men who suddenly realize that they need something from above and beyond. A word here, a word there, a nod there, a prayer with this man, a story with that one, a smile and a comforting arm—all work wonders in teaching men sanity and stability where insanity and instability are the order of the day.” (Harold B. Lee, “Prayer,” Address to Seminary and Institute Faculty, Brigham Young University, Provo, Utah, July 6, 1956, p. 19.)
 
 The Lord gave to Moses a code of laws often referred to as the Holiness Code of Behavior. There is an instruction in that code that is fitting to this occasion today. The Lord said, “Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy: for I the Lord your God am holy.” ([[Leviticus 19.2|Lev. 19:2]].)
 
 “It is not well for man to pray cream and live skim milk.” It is worse yet to pray skim milk and live *that* not at all. We must look up, be prayerful, and like Christ, understand the true meaning of “Hallowed be thy name.”
 
 May the Lord bless us to be reverent, prayerful, full of worship and devotion, until we re-enter the holy presence of him who is our Father, I pray in the name of his son, the Lord Jesus Christ. Amen.
-
-
 
 
 

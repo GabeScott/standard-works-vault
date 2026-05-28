@@ -1,11 +1,10 @@
 # Roll
 
-
-*See also* [BD Roll](https://www.churchofjesuschrist.org/study/scriptures/bd/roll?lang=eng)
+*See also* [[BD Roll.md|BD Roll]]
 
 This day have I *rolled* away the reproach, [[Joshua 5.9|Joshua 5:9]].
 
-there was found ... a *roll*, and therein was a record, [[Ezra 6.2|Ezra 6:2]] ([[Ezekiel 2.9|Ezekiel 2:9]]).
+there was found … a *roll*, and therein was a record, [[Ezra 6.2|Ezra 6:2]] ([[Ezekiel 2.9|Ezekiel 2:9]]).
 
 Take thee a great *roll*, and write in it, [[Isaiah 8.1|Isaiah 8:1]] ([[Jeremiah 36.2|Jeremiah 36:2]]; [[2 Nephi 18.1|2 Nephi 18:1]]).
 
@@ -17,7 +16,7 @@ behold a flying *roll*, [[Zechariah 5.1|Zechariah 5:1]].
 
 he *rolled* a great stone to the door, [[Matthew 27.60|Matthew 27:60]] ([[Mark 15.46|Mark 15:46]]).
 
-angel ... came and *rolled* back the stone, [[Matthew 28.2|Matthew 28:2]].
+angel … came and *rolled* back the stone, [[Matthew 28.2|Matthew 28:2]].
 
 Who shall *roll* us away the stone, [[Mark 16.3|Mark 16:3]].
 

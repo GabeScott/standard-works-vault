@@ -1,15 +1,14 @@
 # Harvest
 
+*See also* [[Good Works.md|Good Works]]; [[Missionary Work.md|Missionary Work]]; [[Reap.md|Reap]]; [[Sow.md|Sow]]
 
-*See also* [[Good Works.md|Good Works]]; [[Missionary Work.md|Missionary Work]]; [[Reap.md|Reap]]; [[Sow, Sown.md|Sow]]
-
-seedtime and *harvest* ... shall not cease, [[Genesis 8.22|Genesis 8:22]].
+seedtime and *harvest* … shall not cease, [[Genesis 8.22|Genesis 8:22]].
 
 the feast of *harvest*, [[Exodus 23.16|Exodus 23:16]].
 
 when ye reap the *harvest*, [[Leviticus 19.9|Leviticus 19:9]].
 
-Jordan overfloweth ... all the time of *harvest*, [[Joshua 3.15|Joshua 3:15]].
+Jordan overfloweth … all the time of *harvest*, [[Joshua 3.15|Joshua 3:15]].
 
 cold of snow in the time of *harvest*, [[Proverbs 25.13|Proverbs 25:13]].
 
@@ -19,11 +18,11 @@ he that regardeth the clouds shall not *reap*, [[Ecclesiastes 11.4|Ecclesiastes 
 
 *harvest* is past, the summer is ended, and we are not saved, [[Jeremiah 8.20|Jeremiah 8:20]] ([[D&C 56.16|D&C 56:16]]).
 
-Babylon ... the time of her *harvest* shall come, [[Jeremiah 51.33|Jeremiah 51:33]].
+Babylon … the time of her *harvest* shall come, [[Jeremiah 51.33|Jeremiah 51:33]].
 
 *harvest* is ripe, [[Joel 3.13|Joel 3:13]] ([[Revelation 14.15|Revelation 14:15]]).
 
-The *harvest* ... is plenteous, but the labourers are few, [[Matthew 9.37|Matthew 9:37]].
+The *harvest* … is plenteous, but the labourers are few, [[Matthew 9.37|Matthew 9:37]].
 
 Let both grow together until the *harvest*, [[Matthew 13.30|Matthew 13:30]].
 
@@ -41,4 +40,4 @@ field is white already to *harvest*, [[D&C 4.4|D&C 4:4]].
 
 *harvest* ended, and your souls not saved, [[D&C 45.2|D&C 45:2]].
 
-gathering together of my saints ... for the time of *harvest* is come, [[D&C 101.64|D&C 101:64]].
+gathering together of my saints … for the time of *harvest* is come, [[D&C 101.64|D&C 101:64]].

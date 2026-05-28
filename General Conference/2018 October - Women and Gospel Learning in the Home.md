@@ -1,6 +1,6 @@
 # Women and Gospel Learning in the Home
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -60,7 +60,7 @@ Also, a grandmother here tonight may feel heartache caused by the strains and di
 
 From the time of Eve and Adam, through Father Israel, and on to every family in the Book of Mormon, there is one sure lesson about what to do about the sorrows of unresponsive children: never stop loving.
 
-We have the encouraging example of the Savior as He nourished the rebellious spirit children of His Heavenly Father. Even when they and we cause pain, the Savior’s hand is still outstretched.[^8] He spoke in 3 Nephi of His spiritual sisters and brothers whom He had tried unsuccessfully to nurture: “O ye people … who are of the house of Israel, how oft have I gathered you as a hen gathereth her chickens under her wings, and have nourished you.”[^9]
+We have the encouraging example of the Savior as He nourished the rebellious spirit children of His Heavenly Father. Even when they and we cause pain, the Savior’s hand is still outstretched.[^8] He spoke in 3 Nephi of His spiritual sisters and brothers whom He had tried unsuccessfully to nurture: “O ye people … who are of the house of Israel, how oft have I gathered you as a hen gathereth her chickens under her wings, and have nourished you.”[^9]
 
 For sisters in every stage of life’s journey, in every family situation, and across every culture, the Savior is your perfect example of how you will play a major part in His move to place greater emphasis on gospel learning in the home and family.
 
@@ -77,9 +77,9 @@ You will each find ways to contribute to the outpouring of truth upon your famil
 
 [^1]: [[D&C 121.33|Doctrine and Covenants 121:33]].
 
-[^2]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
+[^2]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
-[^3]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” 145.
+[^3]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” 145.
 
 [^4]: [[Alma 56.47|Alma 56:47–48]][[Alma 56.48|]].
 
@@ -89,10 +89,8 @@ You will each find ways to contribute to the outpouring of truth upon your famil
 
 [^7]: [[D&C 64.33|Doctrine and Covenants 64:33–34]][[D&C 64.34|]].
 
-[^8]: See [[2 Nephi 19.12|2 Nephi 19:12, 21]][[2 Nephi 19.21|]].
+[^8]: See [[2 Nephi 19.12|2 Nephi 19:12, 21]][[2 Nephi 19.21|]].
 
-[^9]: [[3 Nephi 10.4|3 Nephi 10:4]].
-
-
+[^9]: [[3 Nephi 10.4|3 Nephi 10:4]].
 
 #Charity #Family #Home #Learning #Love #Motherhood #Teaching

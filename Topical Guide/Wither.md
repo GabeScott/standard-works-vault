@@ -1,6 +1,5 @@
 # Wither
 
-
 grass *withereth*, the flower fadeth, [[Isaiah 40.7|Isaiah 40:7]] ([[1 Peter 1.24|1 Peter 1:24]]).
 
 man which had his hand *withered*, [[Matthew 12.10|Matthew 12:10]] ([[Mark 3.1|Mark 3:1]]; [[Luke 6.6|Luke 6:6]]).
@@ -19,6 +18,6 @@ branch had *withered* away and died, [[Jacob 5.40|Jacob 5:40]] ([[Jacob 5.45|Jac
 
 because it hath no root it *withers* away, [[Alma 32.38|Alma 32:38]].
 
-Have ye any that are lame ... or that are *withered*, [[3 Nephi 17.7|3 Nephi 17:7]].
+Have ye any that are lame … or that are *withered*, [[3 Nephi 17.7|3 Nephi 17:7]].
 
 I should have *withered* and died in his presence, [[Moses 1.11|Moses 1:11]].

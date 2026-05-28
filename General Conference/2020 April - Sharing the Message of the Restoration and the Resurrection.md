@@ -1,6 +1,6 @@
 # Sharing the Message of the Restoration and the Resurrection
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -16,7 +16,7 @@ But the Restoration is not only for those of us who rejoice in it today. The rev
 
 From the day that the Prophet’s brother Samuel Smith filled his satchel with freshly printed copies of the Book of Mormon and set out on foot to share the new scripture, the Saints have labored without ceasing “to make these things known unto the inhabitants of the earth.”
 
-In 1920, then-Elder David O. McKay of the Quorum of the Twelve Apostles began a yearlong tour of the missions of the Church. By May 1921, he was standing in a small cemetery in Fagali‘i, Samoa, before the well-tended graves of three small children, the daughter and two sons of Thomas and Sarah Hilton. These little ones—the oldest was two—died during the time Thomas and Sarah served as a young missionary couple in the late 1800s.
+In 1920, then-Elder David O. McKay of the Quorum of the Twelve Apostles began a yearlong tour of the missions of the Church. By May 1921, he was standing in a small cemetery in Fagali‘i, Samoa, before the well-tended graves of three small children, the daughter and two sons of Thomas and Sarah Hilton. These little ones—the oldest was two—died during the time Thomas and Sarah served as a young missionary couple in the late 1800s.
 
 Before he left Utah, Elder McKay promised Sarah, now a widow, that he would visit her children’s graves in Samoa as she had never been able to return there. Elder McKay wrote back to her, “Your three little ones, Sister Hilton, in silence most eloquent … carry on your noble missionary work begun nearly thirty years ago.” Then he added a verse of his own composition:
 
@@ -73,30 +73,28 @@ Joseph Smith, the great prophet of the Restoration, offers the overarching testi
 
 [^3]: [[James 1.5|James 1:5]].
 
-[^4]: [[2 Nephi 2.8|2 Nephi 2:8]].
+[^4]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
-[^5]: David O. McKay, letter to Sarah M. Hilton, June 3, 1921, Church History Library, Salt Lake City; see also Reid L. Neilson and Scott D. Marianno, “‘The Little Head Stones Became Monuments’: Death in the Early Samoan Mission and the Creation of the Fagali‘i Cemetery,” *BYU Studies Quarterly,* vol. 56, no. 1 (2017), 56–59, 67–73.
+[^5]: David O. McKay, letter to Sarah M. Hilton, June 3, 1921, Church History Library, Salt Lake City; see also Reid L. Neilson and Scott D. Marianno, “‘The Little Head Stones Became Monuments’: Death in the Early Samoan Mission and the Creation of the Fagali‘i Cemetery,” *BYU Studies Quarterly,* vol. 56, no. 1 (2017), 56–59, 67–73.
 
 [^6]: [[John 1.46|John 1:46]].
 
-[^7]: See [[1 John 4.18|1 John 4:18]].
+[^7]: See [[1 John 4.18|1 John 4:18]].
 
 [^8]: [[Moroni 7.48|Moroni 7:48]].
 
-[^9]: President David O. McKay observed: “Every person who lives in this world wields an influence, whether for good or for evil. It is not what he says alone, it is not alone what he does. It is what he is. Every man, every person radiates what he or she is” (*Teachings of Presidents of the Church: David O. McKay* \[2003\], 227).
+[^9]: President David O. McKay observed: “Every person who lives in this world wields an influence, whether for good or for evil. It is not what he says alone, it is not alone what he does. It is what he is. Every man, every person radiates what he or she is” (*[Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-24?lang=eng&id=p11#p11)* \[2003\], 227).
 
 [^10]: See [[John 1.9|John 1:9]]; [[D&C 88.6|Doctrine and Covenants 88:6–13]][[D&C 88.7|]][[D&C 88.8|]][[D&C 88.9|]][[D&C 88.10|]][[D&C 88.11|]][[D&C 88.12|]][[D&C 88.13|]]; [[D&C 93.2|93:2]].
 
-[^11]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^11]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^12]: See [[Matthew 16.19|Matthew 16:19]]; [[Matthew 18.18|18:18]]; [[D&C 110.14|Doctrine and Covenants 110:14–16]][[D&C 110.15|]][[D&C 110.16|]]; [[D&C 132.19|132:19, 46]][[D&C 132.46|]].
 
-[^13]: Gordon B. Hinckley, “As One Who Loves the Prophet,” in Susan Easton Black and Charles D. Tate Jr., eds., *Joseph Smith: The Prophet, the Man* (1993), 6.
+[^13]: Gordon B. Hinckley, “As One Who Loves the Prophet,” in Susan Easton Black and Charles D. Tate Jr., eds., *Joseph Smith: The Prophet, the Man* (1993), 6.
 
 [^14]: See [[D&C 76.22|Doctrine and Covenants 76:22–24]][[D&C 76.23|]][[D&C 76.24|]].
 
-[^15]: “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” Apr. 5, 2020, in Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 91–92.
+[^15]: “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” Apr. 5, 2020, in Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 91–92.
 
-
-
-#Book_Of_Mormon #Missionary_Work #Restoration #Resurrection
+#BookOfMormon #MissionaryWork #Restoration #Resurrection

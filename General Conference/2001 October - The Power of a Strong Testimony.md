@@ -30,11 +30,11 @@ Alma showed how fasting and prayer can strengthen your testimony. He stated:
 
 “I testify unto you that I do know that these things whereof I have spoken are true. And how do ye suppose that I know of their surety?
 
-“… Behold, I have fasted and prayed many days that I might know these things of myself. And now I do know of myself that they are true; for the Lord God hath made them manifest unto me by his Holy Spirit.”[^7]
+“… Behold, I have fasted and prayed many days that I might know these things of myself. And now I do know of myself that they are true; for the Lord God hath made them manifest unto me by his Holy Spirit.”[^7]
 
 President Romney taught of the testimony-strengthening power of scriptures with this personal example:
 
-“I urge you to get acquainted with \[the Book of Mormon\]. Read it to your children; they are not too young to understand it. I remember reading it with one of my lads when he was very young. … I lay in the lower bunk and he in the upper bunk. We were each reading aloud alternate paragraphs of those last three marvelous chapters of Second Nephi. I heard his voice breaking and thought he had a cold. … As we finished he said … , ‘Daddy, do you ever cry when you read the Book of Mormon?’
+“I urge you to get acquainted with \[the Book of Mormon\]. Read it to your children; they are not too young to understand it. I remember reading it with one of my lads when he was very young. … I lay in the lower bunk and he in the upper bunk. We were each reading aloud alternate paragraphs of those last three marvelous chapters of Second Nephi. I heard his voice breaking and thought he had a cold. … As we finished he said … , ‘Daddy, do you ever cry when you read the Book of Mormon?’
 
 “‘Yes, Son, … Sometimes the Spirit of the Lord so witnesses to my soul that the Book of Mormon is true that I do cry.’
 
@@ -81,6 +81,4 @@ As one of His Apostles authorized to bear witness of Him, I solemnly testify tha
 
 [^11]: See [[D&C 43.16|D&C 43:16]].
 
-
-
-#Courage #Death #Faith #Fasting #God_The_Father #Holy_Ghost #Love #Obedience #Peace #Prayer #Satan #Spirituality #Testimony #Truth
+#Courage #Death #Faith #Fasting #GodTheFather #HolyGhost #Love #Obedience #Peace #Prayer #Satan #Spirituality #Testimony #Truth

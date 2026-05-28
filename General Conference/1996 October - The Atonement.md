@@ -34,7 +34,7 @@ That brings us to the Atonement. Paul said, “As in Adam all die, even so in Ch
 
 With this background in mind, let us now ponder the deep meaning of the word *atonement.* In the English language, the components are *at-one-ment,* suggesting that a person is at one with another. Other languages[^18] employ words that connote either *expiation* or *reconciliation. Expiation* means “to atone for.” *Reconciliation* comes from Latin roots *re,* meaning “again”; *con,* meaning “with”; and *sella,* meaning “seat.” *Reconciliation,* therefore, literally means “to sit again with.”
 
-Rich meaning is found in study of the word *atonement* in the Semitic languages of Old Testament times. In Hebrew, the basic word for atonement is *kaphar,* a verb that means “to cover” or “to forgive.”[^19] Closely related is the Aramaic and Arabic word *kafat,* meaning “a close embrace”—no doubt related to the Egyptian ritual embrace. References to that embrace are evident in the Book of Mormon. One states that “the Lord hath redeemed my soul … ; I have beheld his glory, and I am encircled about eternally in the arms of his love.”[^20] Another proffers the glorious hope of our being “clasped in the arms of Jesus.”[^21]
+Rich meaning is found in study of the word *atonement* in the Semitic languages of Old Testament times. In Hebrew, the basic word for atonement is *kaphar,* a verb that means “to cover” or “to forgive.”[^19] Closely related is the Aramaic and Arabic word *kafat,* meaning “a close embrace”—no doubt related to the Egyptian ritual embrace. References to that embrace are evident in the Book of Mormon. One states that “the Lord hath redeemed my soul … ; I have beheld his glory, and I am encircled about eternally in the arms of his love.”[^20] Another proffers the glorious hope of our being “clasped in the arms of Jesus.”[^21]
 
 I weep for joy when I contemplate the significance of it all. To be redeemed is to be atoned—received in the close embrace of God with an expression not only of His forgiveness but of our oneness of heart and mind. What a privilege! And what a comfort to those of us with loved ones who have already passed from our family circle through the gateway we call death!
 
@@ -91,11 +91,11 @@ As one of the “special witnesses of the name of Christ in all the world,”[^4
 
 [^4]: See [[Alma 12.21|Alma 12:21–23]][[Alma 12.22|]][[Alma 12.23|]].
 
-[^5]: [[2 Nephi 2.23|2 Ne. 2:23]].
+[^5]: [[2 Nephi 2.23|2 Ne. 2:23]].
 
 [^6]: See [[Genesis 1.28|Gen. 1:28]]; [[Moses 2.28|Moses 2:28]].
 
-[^7]: [[2 Nephi 2.25|2 Ne. 2:25]].
+[^7]: [[2 Nephi 2.25|2 Ne. 2:25]].
 
 [^8]: We should remember that God forgave Adam and Eve their transgression (see [[Moses 6.53|Moses 6:53]]).
 
@@ -109,19 +109,19 @@ As one of the “special witnesses of the name of Christ in all the world,”[^4
 
 [^13]: [[Alma 42.8|Alma 42:8]].
 
-[^14]: [[1 Corinthians 15.22|1 Cor. 15:22]]; see also [[Mosiah 16.7|Mosiah 16:7–8]][[Mosiah 16.8|]].
+[^14]: [[1 Corinthians 15.22|1 Cor. 15:22]]; see also [[Mosiah 16.7|Mosiah 16:7–8]][[Mosiah 16.8|]].
 
-[^15]: See [[2 Nephi 2.7|2 Ne. 2:7]]; also “Behold the Great Redeemer Die,” *Hymns,* no. 191.
+[^15]: See [[2 Nephi 2.7|2 Ne. 2:7]]; also “Behold the Great Redeemer Die,” *Hymns,* no. 191.
 
 [^16]: See [[Luke 13.32|Luke 13:32]].
 
-[^17]: [[1 Corinthians 15.50|1 Cor. 15:50–53]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]].
+[^17]: [[1 Corinthians 15.50|1 Cor. 15:50–53]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]].
 
 [^18]: Such as Spanish, Portuguese, French, Italian, and German.
 
 [^19]: We might even surmise that if an individual qualifies for the blessings of the Atonement (through obedience to the principles and ordinances of the gospel), Jesus will “cover” our past transgressions from the Father.
 
-[^20]: [[2 Nephi 1.15|2 Ne. 1:15]].
+[^20]: [[2 Nephi 1.15|2 Ne. 1:15]].
 
 [^21]: [[Mormon 5.11|Morm. 5:11]]; additional examples are in [[Alma 5.33|Alma 5:33]]; [[Alma 34.16|34:16]].
 
@@ -139,7 +139,7 @@ As one of the “special witnesses of the name of Christ in all the world,”[^4
 
 [^28]: *Atonement*=24; plus *atone, atoning,* or *atoned*=8; plus *atoneth*=3; total 35 times.
 
-[^29]: See [[2 Nephi 9.7|2 Ne. 9:7]]; [[2 Nephi 25.16|25:16]]; [[Alma 34.10|Alma 34:10, 12, 14]][[Alma 34.12|]][[Alma 34.14|]].
+[^29]: See [[2 Nephi 9.7|2 Ne. 9:7]]; [[2 Nephi 25.16|25:16]]; [[Alma 34.10|Alma 34:10, 12, 14]][[Alma 34.12|]][[Alma 34.14|]].
 
 [^30]: See [[Hebrews 10.10|Heb. 10:10]].
 
@@ -153,7 +153,7 @@ As one of the “special witnesses of the name of Christ in all the world,”[^4
 
 [^35]: See [[Matthew 27.29|Matt. 27:29]]; [[Mark 15.17|Mark 15:17]]; [[John 19.2|John 19:2, 5]][[John 19.5|]].
 
-[^36]: [[3 Nephi 9.16|3 Ne. 9:16]]; see also [[D&C 6.21|D&C 6:21]]; [[D&C 10.57|10:57]]; [[D&C 11.29|11:29]]; [[D&C 39.3|39:3]]; [[D&C 45.8|45:8]]; [[D&C 133.66|133:66]].
+[^36]: [[3 Nephi 9.16|3 Ne. 9:16]]; see also [[D&C 6.21|D&C 6:21]]; [[D&C 10.57|10:57]]; [[D&C 11.29|11:29]]; [[D&C 39.3|39:3]]; [[D&C 45.8|45:8]]; [[D&C 133.66|133:66]].
 
 [^37]: [[John 19.28|John 19:28]].
 
@@ -169,6 +169,4 @@ As one of the “special witnesses of the name of Christ in all the world,”[^4
 
 [^43]: [[D&C 107.23|D&C 107:23]].
 
-
-
-#Atonement #Creation #Fall #Healing #Jesus_Christ #Plan_Of_Salvation
+#Atonement #Creation #Fall #Healing #JesusChrist #PlanOfSalvation

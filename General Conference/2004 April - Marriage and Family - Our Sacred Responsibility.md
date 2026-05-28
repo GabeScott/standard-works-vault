@@ -30,7 +30,7 @@ John Gunther, a father who lost his young son to brain cancer, urged those who s
 
 President Harold B. Lee told of a great educator, Horace Mann, who “was the speaker at the dedication of a … boys’ school. … In his talk he said, ‘This school has cost hundreds of thousands of dollars; but if this school is able to save one boy, it is worth all that it cost.’ One of his friends came up to \[Mr. Mann\] at the close of the meeting and said, ‘You let your enthusiasm get away with you, didn’t you? You … said that if this school, costing hundreds of thousands of dollars, were to save just one boy, it was worth all that it cost? You surely don’t mean that.’
 
-“Horace Mann looked at him and said, ‘Yes, my friend. It would be worth it if that one boy were my son; it would be worth it’” (in Conference Report, Apr. 1971, 64–65; or *Ensign,* June 1971, 61).
+“Horace Mann looked at him and said, ‘Yes, my friend. It would be worth it if that one boy were my son; it would be worth it’” (in Conference Report, Apr. 1971, [[1971 April - Today’s Young People.md|64–65]]; or *Ensign,* June 1971, 61).
 
 Loving, protecting, and nurturing our children are among the most sacred and eternally important things we will do. Worldly belongings will vanish, today’s number-one movie or song will be irrelevant tomorrow, but a son or a daughter is eternal.
 
@@ -47,6 +47,4 @@ Although the adversary seeks to destroy the key elements necessary for a happy m
 
 
 
-
-
-#Family #Family_Home_Evening #Love #Marriage #Parenthood
+#FamilyHomeEvening #Family #Love #Marriage #Parenthood

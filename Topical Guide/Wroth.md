@@ -1,6 +1,5 @@
 # Wroth
 
-
 *See also* [[Anger.md|Anger]]
 
 Cain was very *wroth*, [[Genesis 4.5|Genesis 4:5]] ([[Moses 5.21|Moses 5:21]]).

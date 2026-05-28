@@ -49,6 +49,4 @@ God bless you, my beloved associates, I pray in the name of Jesus Christ, amen.
 
 
 
-
-
-#Church_Growth #Education #Faith #Gratitude #Missionary_Work #Obedience #Temples #Tolerance #Welfare
+#ChurchGrowth #Education #Faith #Gratitude #MissionaryWork #Obedience #Temples #Tolerance #Welfare

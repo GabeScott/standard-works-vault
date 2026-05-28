@@ -1,6 +1,5 @@
 # Purple
 
-
 blue, and *purple*, and scarlet, [[Exodus 25.4|Exodus 25:4]] ([[Exodus 28.5|Exodus 28:5]]; [[Exodus 35.6|Exodus 35:6]]; [[Exodus 39.1|Exodus 39:1]]).
 
 spread a *purple* cloth thereon, [[Numbers 4.13|Numbers 4:13]].

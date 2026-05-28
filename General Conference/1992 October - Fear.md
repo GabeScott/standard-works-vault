@@ -52,35 +52,33 @@ Are there things you don’t know how to do yet, that you are doing anyway? What
 
 I’ve just finished reading Eleanor Roosevelt’s biography. She was the wife of a president of the United States, but her influence went far beyond politics and position. Her life stands as a beacon to all women as someone who magnificently developed her own gifts through her service to others. This was a woman whose early life was ruled by fear and self-doubt. She described herself as an awkward adolescent, unattractively tall, with protruding teeth, dressed inappropriately, and so ill at ease with others her own age that parties and dances were dreaded occasions. How did she move from that to the kind of confidence that allowed her to contribute so widely?
 
-She said, “You gain strength, courage, and confidence by every experience in which you really stop to look fear in the face. You must do the thing which you think you cannot do.” (Karen McAuley, *Eleanor Roosevelt,* New York: Chelsea House Publishers, 1987, p. 105.)
+She said, “You gain strength, courage, and confidence by every experience in which you really stop to look fear in the face. You must do the thing which you think you cannot do.” (Karen McAuley, *Eleanor Roosevelt,* New York: Chelsea House Publishers, 1987, p. 105.)
 
 As we concentrate on pleasing the Lord rather than others and continue to work hard, doing the things we don’t know how to do yet, we will experience personal growth. We will increase our confidence in Heavenly Father and his Son, Jesus Christ. This faith assures us that in the end, we will not only survive but we will know great joy and happiness.
 
-After the death of Christ, Paul was converted and became a great missionary. He had a junior companion, whom he loved as a father loves his own son. When we pick up their story in 2 Timothy, they are separated in their service. Timothy is lonely and afraid—being a missionary can be a fearful business. Paul is in prison in Rome. He writes Timothy a letter: “To Timothy, my dearly beloved son. …
+After the death of Christ, Paul was converted and became a great missionary. He had a junior companion, whom he loved as a father loves his own son. When we pick up their story in 2 Timothy, they are separated in their service. Timothy is lonely and afraid—being a missionary can be a fearful business. Paul is in prison in Rome. He writes Timothy a letter: “To Timothy, my dearly beloved son. …
 
 “I thank God … that without ceasing I have remembrance of thee in my prayers night and day;
 
-“Greatly desiring to see thee, being mindful of thy tears.” ([[2 Timothy 1.2|2 Tim. 1:2–4]][[2 Timothy 1.3|]][[2 Timothy 1.4|]].)
+“Greatly desiring to see thee, being mindful of thy tears.” ([[2 Timothy 1.2|2 Tim. 1:2–4]][[2 Timothy 1.3|]][[2 Timothy 1.4|]].)
 
 Isn’t that a tender letter? Pretend it is coming to you from one who is mindful of *your* tears.
 
-Paul then goes on to remind Timothy of his strengths: “I call to remembrance the unfeigned faith that is in thee.” ([[2 Timothy 1.5|2 Tim. 1:5]].) He reminds Timothy that both his grandmother and his mother were women of faith.
+Paul then goes on to remind Timothy of his strengths: “I call to remembrance the unfeigned faith that is in thee.” ([[2 Timothy 1.5|2 Tim. 1:5]].) He reminds Timothy that both his grandmother and his mother were women of faith.
 
 Think of some of the strengths that your grandmothers and mother have passed on to you.
 
-Then Paul asks Timothy to remember to use the gift of the Holy Ghost: “I put thee in remembrance that thou stir up the gift of God, which is in thee by the putting on of my hands.” ([[2 Timothy 1.6|2 Tim. 1:6]].)
+Then Paul asks Timothy to remember to use the gift of the Holy Ghost: “I put thee in remembrance that thou stir up the gift of God, which is in thee by the putting on of my hands.” ([[2 Timothy 1.6|2 Tim. 1:6]].)
 
 Are you remembering that you have had hands laid on your head—that you have been given a gift? Use that gift to conquer your fears!
 
-And then my favorite part of the letter: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.7|2 Tim. 1:7]].)
+And then my favorite part of the letter: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.7|2 Tim. 1:7]].)
 
 Are those just the things you want when you are fearful—power, love, the ability to think clearly?
 
 Paul ends one of his letters: “All that are with me salute thee. Greet them that love us in the faith. Grace be with you all. Amen.” ([[Titus 3.15|Titus 3:15]].)
 
 All that are with me salute you. We love you and are aware of your fears and your faith. I bear you my witness that Jesus Christ is our Savior, that he loves me, that he loves each of you, and that he will help us to replace our fears with faith. I say these things in his name, amen.
-
-
 
 
 

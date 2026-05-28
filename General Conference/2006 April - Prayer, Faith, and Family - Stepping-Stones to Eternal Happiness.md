@@ -95,22 +95,20 @@ I sincerely pray that we will use the stepping-stones of prayer, faith, and our 
 
 [^2]: [[James 1.5|James 1:5–6]][[James 1.6|]].
 
-[^3]: In Conference Report, Oct. 1976, 83; or *Ensign,* Nov. 1976, 58.
+[^3]: In Conference Report, Oct. 1976, [[1976 October - A Personal Relationship with the Savior.md|83]]; or *Ensign,* Nov. 1976, 58.
 
-[^4]: [[3 Nephi 18.20|3 Nephi 18:20]].
+[^4]: [[3 Nephi 18.20|3 Nephi 18:20]].
 
 [^5]: [[Moroni 7.33|Moroni 7:33]].
 
-[^6]: In Conference Report, Apr. 2003, 79; or *Ensign,* May 2003, 76.
+[^6]: In Conference Report, Apr. 2003, [[2003 April - The Sustaining Power of Faith in Times of Uncertainty and Testing.md|79]]; or *Ensign,* May 2003, 76.
 
-[^7]: In Conference Report, Oct. 2004, 75; or *Ensign,* Nov. 2004, 73.
+[^7]: In Conference Report, Oct. 2004, [[2004 October - Finding Faith in the Lord Jesus Christ.md|75]]; or *Ensign,* Nov. 2004, 73.
 
 [^8]: In Conference Report, Apr. 1964, 130; or *Improvement Era,* June 1964, 509.
 
 [^9]: *Teachings of Gordon B. Hinckley* (1997), 206.
 
 [^10]: *Teachings of Gordon B. Hinckley,* 205.
-
-
 
 #Faith #Family #Prayer

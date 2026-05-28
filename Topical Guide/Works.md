@@ -1,6 +1,5 @@
 # Works
 
-
 *See also* [[God, Works of.md|God, Works of]]; [[Good Works.md|Good Works]]; [[Work.md|Work]]; [[Work, Value of.md|Work, Value of]]
 
 Remember his marvellous *works* that he hath done, [[1 Chronicles 16.12|1 Chronicles 16:12]] ([[1 Chronicles 16.24|1 Chronicles 16:24]]; [[Jacob 4.8|Jacob 4:8]]; [[Mormon 9.16|Mormon 9:16]]).
@@ -19,7 +18,7 @@ forsake not the *works* of thine own hands, [[Psalms 138.8|Psalms 138:8]].
 
 All thy *works* shall praise thee, [[Psalms 145.10|Psalms 145:10]].
 
-Lord possessed me in the beginning ... before his *works*, [[Proverbs 8.22|Proverbs 8:22]].
+Lord possessed me in the beginning … before his *works*, [[Proverbs 8.22|Proverbs 8:22]].
 
 Commit thy *works* unto the Lord, [[Proverbs 16.3|Proverbs 16:3]].
 
@@ -49,21 +48,21 @@ all their *works* they do for to be seen of men, [[Matthew 23.5|Matthew 23:5]].
 
 *works* of God should be made manifest in him, [[John 9.3|John 9:3]].
 
-*works* that I do ... bear witness of me, [[John 10.25|John 10:25]].
+*works* that I do … bear witness of me, [[John 10.25|John 10:25]].
 
 though ye believe not me, believe the *works*, [[John 10.38|John 10:38]].
 
 *works* that I do shall he do also; and greater *works*, [[John 14.12|John 14:12]].
 
-By what law? of *works* ? Nay: but by the law of faith, [[Romans 3.27|Romans 3:27]].
+By what law? of *works*? Nay: but by the law of faith, [[Romans 3.27|Romans 3:27]].
 
 God imputeth righteousness without *works*, [[Romans 4.6|Romans 4:6]].
 
-election ... not of *works*, but of him that calleth, [[Romans 9.11|Romans 9:11]].
+election … not of *works*, but of him that calleth, [[Romans 9.11|Romans 9:11]].
 
 if by grace, then is it no more of *works*, [[Romans 11.6|Romans 11:6]].
 
-let us ... cast off the *works* of darkness, [[Romans 13.12|Romans 13:12]].
+let us … cast off the *works* of darkness, [[Romans 13.12|Romans 13:12]].
 
 man is not justified by the *works* of the law, [[Galatians 2.16|Galatians 2:16]].
 
@@ -97,13 +96,13 @@ Great and marvelous are thy *works*, O Lord, [[1 Nephi 1.14|1 Nephi 1:14]].
 
 they must be judged of their *works*, [[1 Nephi 15.32|1 Nephi 15:32]].
 
-devil ... founder of all ... *works* of darkness, [[2 Nephi 26.22|2 Nephi 26:22]].
+devil … founder of all … *works* of darkness, [[2 Nephi 26.22|2 Nephi 26:22]].
 
 their *works* are in the dark, [[2 Nephi 27.27|2 Nephi 27:27]].
 
 judged, every man according to his *works*, [[Mosiah 3.24|Mosiah 3:24]].
 
-voice of the Lord, saying ... your *works* have been the *works* of righteousness, [[Alma 5.16|Alma 5:16]].
+voice of the Lord, saying … your *works* have been the *works* of righteousness, [[Alma 5.16|Alma 5:16]].
 
 all men shall reap a reward of their *works*, [[Alma 9.28|Alma 9:28]].
 
@@ -123,7 +122,7 @@ by their *works* ye shall know them, [[Moroni 7.5|Moroni 7:5]] ([[D&C 18.38|D&C 
 
 putting trust in dead *works*, [[Moroni 8.23|Moroni 8:23]].
 
-*works* ... of God cannot be frustrated, [[D&C 3.1|D&C 3:1]].
+*works* … of God cannot be frustrated, [[D&C 3.1|D&C 3:1]].
 
 truly manifest by their *works* that they have received of the Spirit, [[D&C 20.37|D&C 20:37]].
 
@@ -139,4 +138,4 @@ my *works* are without end, [[Moses 1.4|Moses 1:4]].
 
 no man can behold all my *works*, [[Moses 1.5|Moses 1:5]].
 
-Satan had great dominion ... because of secret *works*, [[Moses 6.15|Moses 6:15]].
+Satan had great dominion … because of secret *works*, [[Moses 6.15|Moses 6:15]].

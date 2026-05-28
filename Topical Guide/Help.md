@@ -1,13 +1,12 @@
 # Help
 
-
-*See also* [[Charity.md|Charity]]; [[Deliver, Deliverance.md|Deliver]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Service.md|Service]]; [[Succor.md|Succor]]; [[Welfare.md|Welfare]]
+*See also* [[Charity.md|Charity]]; [[Deliver.md|Deliver]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Service.md|Service]]; [[Succor.md|Succor]]; [[Welfare.md|Welfare]]
 
 will make him an *help* meet for him, [[Genesis 2.18|Genesis 2:18]] ([[Moses 3.18|Moses 3:18]]; [[Abraham 5.14|Abraham 5:14]]).
 
 Moses stood up and *helped* them, [[Exodus 2.17|Exodus 2:17]].
 
-him that hateth thee ... thou shalt surely *help* with him, [[Exodus 23.5|Exodus 23:5]].
+him that hateth thee … thou shalt surely *help* with him, [[Exodus 23.5|Exodus 23:5]].
 
 thou shalt surely *help* him to lift them up, [[Deuteronomy 22.4|Deuteronomy 22:4]].
 

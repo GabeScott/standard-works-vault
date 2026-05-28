@@ -1,6 +1,6 @@
 # To Bear the Priesthood Worthily
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -14,7 +14,7 @@ I will read for you the words of the prophets and the President of the Church in
 
 “Furthermore, I have heard of some Bishops who have been seeking to cover up the iniquities of men; I tell them, in the name of God, they will have to bear them themselves, and meet that judgment; and I tell you that any man who tampers with iniquity, he will have to bear that iniquity, and if any of you want to partake of the sins of men, or uphold them, you will have to bear them. Do you hear it, you Bishops and you Presidents? God will require it at your hands. You are not placed in position to tamper with principles of righteousness, nor to cover up the infamies and corruptions of men.” (*Conference Report,* April 1880, p. 78.)
 
-I read further from George Q. Cannon, who was also in the First Presidency:
+I read further from George Q. Cannon, who was also in the First Presidency:
 
 “The Spirit of God would undoubtedly be so grieved that it would forsake not only those who are guilty of these acts, but it would withdraw itself from those who would suffer them to be done in our midst unchecked and unrebuked; and from the President of the Church down, throughout the entire ranks of the Priesthood, there would be a loss of the Spirit of God, a withdrawal of His gifts and blessing and His power, because of their not taking the proper measures to check and to expose their iniquity.” (*Journal of Discourses,* 26:139.)
 
@@ -88,7 +88,7 @@ The leader of a big concern in this country answered the question propounded to 
 
 “Honor your Creator. God is the source of all good. The ideals on which the nation is founded stem from him who is the author of Liberty. You can express appreciation for your priceless heritage best by living according to the code of ‘Duty, Honor, Country, and God.’
 
-“If you do these, and in all things do your best, the mind and heart and soul you develop will one day be those of a real man.” (J. Edgar Hoover, source unknown.)
+“If you do these, and in all things do your best, the mind and heart and soul you develop will one day be those of a real man.” (J. Edgar Hoover, source unknown.)
 
 It is the stance that counts. When one wants to be tall, he starts by stretching himself heavenward. If he wants to be noble, he puts on his noble garments. If he wants to fly, he must get wings. If one wants to be righteous, he needs to put on the cloak of righteousness.
 
@@ -155,8 +155,6 @@ Perhaps I have time to read a few lines here from an article which I thought mig
 Brethren, I wonder if any of you have ever sung in a male chorus as beautiful as the one this night of 212 male voices. It’s been wonderful to meet with you. It’s glorious to serve the Lord in this capacity. How privileged we are to hold this precious priesthood, which is greater than that held by kings and emperors. How wonderful it is for every boy to have this privilege with his brothers and father. May God bless you all that the things which have been said this night in this meeting may sink deep into our hearts and that all of us may profit by them.
 
 This is the work of the Lord. I want you boys and you men to know. This is the work of the Lord, and I know it, and I want you to know that I know it. And I think *you* know it, and together we will go forward to meet our great destiny. God bless you in the name of Jesus Christ. Amen.
-
-
 
 
 

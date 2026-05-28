@@ -4,7 +4,7 @@ By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2003 General Conference*
 
->*Faith, the spiritual ability to be persuaded of promises that are seen “afar off” … , is a sure measure of those who truly believe.*
+>*Faith, the spiritual ability to be persuaded of promises that are seen “afar off” … , is a sure measure of those who truly believe.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2003/10/seeing-the-promises-afar-off?lang=eng)
 
@@ -55,7 +55,7 @@ Just as surely as the sisters knew—who walked along that sandy jungle trail—
 
 [^3]: [[Hebrews 12.2|Hebrews 12:2]].
 
-[^4]: See [[1 Corinthians 16.13|1 Corinthians 16:13]]; [[James 1.6|James 1:6]].
+[^4]: See [[1 Corinthians 16.13|1 Corinthians 16:13]]; [[James 1.6|James 1:6]].
 
 [^5]: [[Hebrews 11.1|Hebrews 11:1]].
 
@@ -67,16 +67,14 @@ Just as surely as the sisters knew—who walked along that sandy jungle trail—
 
 [^9]: *A New Witness for the Articles of Faith* (1985), 187.
 
-[^10]: [[1 Corinthians 16.13|1 Corinthians 16:13]].
+[^10]: [[1 Corinthians 16.13|1 Corinthians 16:13]].
 
 [^11]: “Now Let Us Rejoice,” *Hymns,* no. 3.
 
-[^12]: In Conference Report, Apr. 2000, 111; or *Ensign,* May 2000, 88.
+[^12]: In Conference Report, Apr. 2000, [[2000 April - A Time of New Beginnings.md|111]]; or *Ensign,* May 2000, 88.
 
-[^13]: Bible Dictionary, “Faith,” 669.
+[^13]: Bible Dictionary, “[[BD Faith|Faith]],” 669.
 
 [^14]: [[D&C 123.17|D&C 123:17]].
 
-
-
-#Dedication #Faith #Hope #Temple_Work
+#Dedication #Faith #Hope #TempleWork

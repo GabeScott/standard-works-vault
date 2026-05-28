@@ -1,6 +1,6 @@
 # Shipshape and Bristol Fashion: Be Temple Worthy—in Good Times and Bad Times
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -42,9 +42,9 @@ How, then, do we prepare in such a difficult time? In addition to being temple w
 
 I believe that sometimes our loving Father in Heaven must view us with the amusement we feel when we watch our own small children as they learn and grow. We all stumble and fall as we gain experience.
 
-I appreciated the conference address President Dieter F. Uchtdorf gave in 2010[^15] about the famous marshmallow experiment conducted at Stanford University in the 1960s. You will remember that four-year-olds were given a single marshmallow. If they could wait for 15 or 20 minutes without eating it, they would receive a second marshmallow. Videos have been produced showing the contortions that many children used to avoid eating the marshmallow. Some did not succeed.[^16]
+I appreciated the conference address President Dieter F. Uchtdorf gave in 2010[^15] about the famous marshmallow experiment conducted at Stanford University in the 1960s. You will remember that four-year-olds were given a single marshmallow. If they could wait for 15 or 20 minutes without eating it, they would receive a second marshmallow. Videos have been produced showing the contortions that many children used to avoid eating the marshmallow. Some did not succeed.[^16]
 
-Last year the professor who conducted the original experiment, Dr. Walter Mischel, wrote a book in which he said the study grew in part out of his concerns about self-control and his own addiction to smoking. He was particularly concerned after the U.S. Surgeon General’s report of 1964 concluded that smoking caused lung cancer.[^17] After years of study, one of his professional colleagues reported that “self-control is like a muscle: the more you use it, the stronger it gets. Avoiding something tempting once will help you develop the ability to resist other temptations in the future.”[^18]
+Last year the professor who conducted the original experiment, Dr. Walter Mischel, wrote a book in which he said the study grew in part out of his concerns about self-control and his own addiction to smoking. He was particularly concerned after the U.S. Surgeon General’s report of 1964 concluded that smoking caused lung cancer.[^17] After years of study, one of his professional colleagues reported that “self-control is like a muscle: the more you use it, the stronger it gets. Avoiding something tempting once will help you develop the ability to resist other temptations in the future.”[^18]
 
 A principle of eternal progression is that exercising self-control and living righteously strengthen our ability to resist temptation. This is true both in the spiritual realm and in temporal matters.
 
@@ -64,7 +64,7 @@ The overwhelming impression from this wonderful evening was of family love, devo
 
 For members of The Church of Jesus Christ of Latter-day Saints, honoring the Sabbath is a form of righteousness that will bless and strengthen families, connect us with our Creator, and increase happiness. The Sabbath can help separate us from that which is frivolous, inappropriate, or immoral. It allows us to be in the world but not of the world.
 
-In the last six months, a most remarkable change has occurred in the Church. This has been in the response of the members to renewed emphasis on the Sabbath by the First Presidency and Quorum of the Twelve and to President Russell M. Nelson’s challenge to make the Sabbath a delight.[^27] Many members understand that truly keeping the Sabbath day holy is a refuge from the storms of this life. It is also a sign of our devotion to our Father in Heaven and an increased understanding of the sacredness of sacrament meeting. Still, we have a long way to go, but we have a wonderful beginning. I challenge all of us to continue to embrace this counsel and improve our Sabbath worship.
+In the last six months, a most remarkable change has occurred in the Church. This has been in the response of the members to renewed emphasis on the Sabbath by the First Presidency and Quorum of the Twelve and to President Russell M. Nelson’s challenge to make the Sabbath a delight.[^27] Many members understand that truly keeping the Sabbath day holy is a refuge from the storms of this life. It is also a sign of our devotion to our Father in Heaven and an increased understanding of the sacredness of sacrament meeting. Still, we have a long way to go, but we have a wonderful beginning. I challenge all of us to continue to embrace this counsel and improve our Sabbath worship.
 
 ## Third: Divine Protections Are Provided When We Are Righteous
 
@@ -77,11 +77,11 @@ My dear brothers and sisters, life is not easy, nor was it meant to be. It is a 
 
 
 
-[^1]: [[2 Nephi 2.13|2 Nephi 2:13]]. This scripture is part of a parallelism in the Book of Mormon. It is interesting that many of the prophets whose writings and sermons are included in the Book of Mormon used this literary approach to emphasize important doctrinal concepts. See, for example, [[2 Nephi 9.25|2 Nephi 9:25]] (Jacob) and [[2 Nephi 11.7|2 Nephi 11:7]] (Nephi).
+[^1]: [[2 Nephi 2.13|2 Nephi 2:13]]. This scripture is part of a parallelism in the Book of Mormon. It is interesting that many of the prophets whose writings and sermons are included in the Book of Mormon used this literary approach to emphasize important doctrinal concepts. See, for example, [[2 Nephi 9.25|2 Nephi 9:25]] (Jacob) and [[2 Nephi 11.7|2 Nephi 11:7]] (Nephi).
 
-[^2]: See [[2 Nephi 28.1|2 Nephi 28]][[2 Nephi 28.2|]][[2 Nephi 28.3|]][[2 Nephi 28.4|]][[2 Nephi 28.5|]][[2 Nephi 28.6|]][[2 Nephi 28.7|]][[2 Nephi 28.8|]][[2 Nephi 28.9|]][[2 Nephi 28.10|]][[2 Nephi 28.11|]][[2 Nephi 28.12|]][[2 Nephi 28.13|]][[2 Nephi 28.14|]][[2 Nephi 28.15|]][[2 Nephi 28.16|]][[2 Nephi 28.17|]][[2 Nephi 28.18|]][[2 Nephi 28.19|]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.24|]][[2 Nephi 28.25|]][[2 Nephi 28.26|]][[2 Nephi 28.27|]][[2 Nephi 28.28|]][[2 Nephi 28.29|]][[2 Nephi 28.30|]][[2 Nephi 28.31|]][[2 Nephi 28.32|]].
+[^2]: See [[2 Nephi 28.1|2 Nephi 28]][[2 Nephi 28.2|]][[2 Nephi 28.3|]][[2 Nephi 28.4|]][[2 Nephi 28.5|]][[2 Nephi 28.6|]][[2 Nephi 28.7|]][[2 Nephi 28.8|]][[2 Nephi 28.9|]][[2 Nephi 28.10|]][[2 Nephi 28.11|]][[2 Nephi 28.12|]][[2 Nephi 28.13|]][[2 Nephi 28.14|]][[2 Nephi 28.15|]][[2 Nephi 28.16|]][[2 Nephi 28.17|]][[2 Nephi 28.18|]][[2 Nephi 28.19|]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.24|]][[2 Nephi 28.25|]][[2 Nephi 28.26|]][[2 Nephi 28.27|]][[2 Nephi 28.28|]][[2 Nephi 28.29|]][[2 Nephi 28.30|]][[2 Nephi 28.31|]][[2 Nephi 28.32|]].
 
-[^3]: See [[4 Nephi 1.15|4 Nephi 1:15–17]][[4 Nephi 1.16|]][[4 Nephi 1.17|]].
+[^3]: See [[4 Nephi 1.15|4 Nephi 1:15–17]][[4 Nephi 1.16|]][[4 Nephi 1.17|]].
 
 [^4]: See [[D&C 59.23|Doctrine and Covenants 59:23]].
 
@@ -93,31 +93,31 @@ My dear brothers and sisters, life is not easy, nor was it meant to be. It is a 
 
 [^8]: See [[Matthew 5.1|Matthew 5]][[Matthew 5.2|]][[Matthew 5.3|]][[Matthew 5.4|]][[Matthew 5.5|]][[Matthew 5.6|]][[Matthew 5.7|]][[Matthew 5.8|]][[Matthew 5.9|]][[Matthew 5.10|]][[Matthew 5.11|]][[Matthew 5.12|]][[Matthew 5.13|]][[Matthew 5.14|]][[Matthew 5.15|]][[Matthew 5.16|]][[Matthew 5.17|]][[Matthew 5.18|]][[Matthew 5.19|]][[Matthew 5.20|]][[Matthew 5.21|]][[Matthew 5.22|]][[Matthew 5.23|]][[Matthew 5.24|]][[Matthew 5.25|]][[Matthew 5.26|]][[Matthew 5.27|]][[Matthew 5.28|]][[Matthew 5.29|]][[Matthew 5.30|]][[Matthew 5.31|]][[Matthew 5.32|]][[Matthew 5.33|]][[Matthew 5.34|]][[Matthew 5.35|]][[Matthew 5.36|]][[Matthew 5.37|]][[Matthew 5.38|]][[Matthew 5.39|]][[Matthew 5.40|]][[Matthew 5.41|]][[Matthew 5.42|]][[Matthew 5.43|]][[Matthew 5.44|]][[Matthew 5.45|]][[Matthew 5.46|]][[Matthew 5.47|]][[Matthew 5.48|]], chapter summary.
 
-[^9]: See Carl Cederstrom, “The Dangers of Happiness,” *New York Times,* July 19, 2015, Sunday Review section, 8.
+[^9]: See Carl Cederstrom, “The Dangers of Happiness,” *New York Times,* July 19, 2015, Sunday Review section, 8.
 
-[^10]: [[2 Nephi 15.20|2 Nephi 15:20]].
+[^10]: [[2 Nephi 15.20|2 Nephi 15:20]].
 
-[^11]: Ross Douthat, “Gay Conservatism and Straight Liberation,” *New York Times,* June 28, 2015, Sunday Review section, 11.
+[^11]: Ross Douthat, “Gay Conservatism and Straight Liberation,” *New York Times,* June 28, 2015, Sunday Review section, 11.
 
-[^12]: See [[2 Nephi 2.1|2 Nephi 2]][[2 Nephi 2.2|]][[2 Nephi 2.3|]][[2 Nephi 2.4|]][[2 Nephi 2.5|]][[2 Nephi 2.6|]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]][[2 Nephi 2.11|]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]][[2 Nephi 2.19|]][[2 Nephi 2.20|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]][[2 Nephi 2.29|]][[2 Nephi 2.30|]].
+[^12]: See [[2 Nephi 2.1|2 Nephi 2]][[2 Nephi 2.2|]][[2 Nephi 2.3|]][[2 Nephi 2.4|]][[2 Nephi 2.5|]][[2 Nephi 2.6|]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]][[2 Nephi 2.11|]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]][[2 Nephi 2.19|]][[2 Nephi 2.20|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]][[2 Nephi 2.29|]][[2 Nephi 2.30|]].
 
 [^13]: See [[Matthew 25.1|Matthew 25:1–30]][[Matthew 25.2|]][[Matthew 25.3|]][[Matthew 25.4|]][[Matthew 25.5|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]][[Matthew 25.11|]][[Matthew 25.12|]][[Matthew 25.13|]][[Matthew 25.14|]][[Matthew 25.15|]][[Matthew 25.16|]][[Matthew 25.17|]][[Matthew 25.18|]][[Matthew 25.19|]][[Matthew 25.20|]][[Matthew 25.21|]][[Matthew 25.22|]][[Matthew 25.23|]][[Matthew 25.24|]][[Matthew 25.25|]][[Matthew 25.26|]][[Matthew 25.27|]][[Matthew 25.28|]][[Matthew 25.29|]][[Matthew 25.30|]].
 
 [^14]: [[Alma 41.10|Alma 41:10]].
 
-[^15]: See Dieter F. Uchtdorf, [“Continue in Patience,”](https://churchofjesuschrist.org/study/ensign/2010/05/general-priesthood-session/continue-in-patience?lang=eng) *Ensign* or *Liahona,* May 2010, 56.
+[^15]: See Dieter F. Uchtdorf, “[Continue in Patience](https://www.churchofjesuschrist.org/study/ensign/2010/05/general-priesthood-session/continue-in-patience?lang=eng),” *Ensign* or *Liahona,* May 2010, 56.
 
 [^16]: See Walter Mischel, *The Marshmallow Test: Mastering Self-Control* (2014); see also Jacoba Urist, “What the Marshmallow Test Really Teaches about Self-Control,” *Atlantic,* Sept. 24, 2014, theatlantic.com.
 
 [^17]: See Mischel, *The Marshmallow Test,* 136–38.
 
-[^18]: Maria Konnikova, “The Struggles of a Psychologist Studying Self-Control,” *New Yorker,* Oct. 9, 2014, newyorker.com, citing Roy Baumeister, a professor of psychology at Florida State University who studies willpower and self-control.
+[^18]: Maria Konnikova, “The Struggles of a Psychologist Studying Self-Control,” *New Yorker,* Oct. 9, 2014, newyorker.com, citing Roy Baumeister, a professor of psychology at Florida State University who studies willpower and self-control.
 
-[^19]: See Malia Wollan, “How to Proselytize,” *New York Times Magazine,* July 19, 2015, 21. She quotes Mario Dias of the Brazil Missionary Training Center.
+[^19]: See Malia Wollan, “How to Proselytize,” *New York Times Magazine,* July 19, 2015, 21. She quotes Mario Dias of the Brazil Missionary Training Center.
 
-[^20]: See Bible Dictionary, [“Sabbath.”](https://churchofjesuschrist.org/study/scriptures/bd/sabbath?lang=eng)
+[^20]: See Bible Dictionary, “[[BD Sabbath|Sabbath]].”
 
-[^21]: Elder Von G. Keetch and his wife, Bernice, and John Taylor and his wife, Jan, joined my wife and me for a delightful Shabbat with Robert Abrams and his wife, Diane, on May 8, 2015. Mr. Abrams has served four terms as attorney general for the state of New York and has been a friend of the Church for many years. Mr. Abrams had also invited two of his Jewish colleagues and their wives.
+[^21]: Elder Von G. Keetch and his wife, Bernice, and John Taylor and his wife, Jan, joined my wife and me for a delightful Shabbat with Robert Abrams and his wife, Diane, on May 8, 2015. Mr. Abrams has served four terms as attorney general for the state of New York and has been a friend of the Church for many years. Mr. Abrams had also invited two of his Jewish colleagues and their wives.
 
 [^22]: The Sabbath table hymn *Shalom Aleichem* (“Peace upon You”) was sung.
 
@@ -129,12 +129,10 @@ My dear brothers and sisters, life is not easy, nor was it meant to be. It is a 
 
 [^26]: See Joe Lieberman, *The Gift of Rest: Rediscovering the Beauty of the Sabbath* (2011). Senator Lieberman’s delightful book describes the Jewish Shabbat and provides inspirational insights.
 
-[^27]: See [[Isaiah 58.13|Isaiah 58:13–14]][[Isaiah 58.14|]]; see also Russell M. Nelson, [“The Sabbath Is a Delight,”](https://churchofjesuschrist.org/study/ensign/2015/05/sunday-afternoon-session/the-sabbath-is-a-delight?lang=eng) *Ensign* or *Liahona,* May 2015, 129–32.
+[^27]: See [[Isaiah 58.13|Isaiah 58:13–14]][[Isaiah 58.14|]]; see also Russell M. Nelson, “[The Sabbath Is a Delight](https://www.churchofjesuschrist.org/study/ensign/2015/05/sunday-afternoon-session/the-sabbath-is-a-delight?lang=eng),” *Ensign* or *Liahona,* May 2015, 129–32.
 
-[^28]: Bible Dictionary, [“Holy Ghost.”](https://churchofjesuschrist.org/study/scriptures/bd/holy-ghost?lang=eng)
+[^28]: Bible Dictionary, “[[BD Holy Ghost|Holy Ghost]].”
 
 [^29]: [[Galatians 5.22|Galatians 5:22]].
 
-
-
-#Agency #Holy_Ghost #Joy #Righteousness #Sabbath #Self-Control #Worthiness
+#Agency #HolyGhost #Joy #Righteousness #Sabbath #Self-control #Worthiness

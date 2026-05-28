@@ -8,7 +8,7 @@ By Susan W. Tanner - *Young Women General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/04/i-am-the-light-which-ye-shall-hold-up?lang=eng)
 
-I remember a simple sampler that I cross-stitched as a young Primary girl. It said, “I will bring the light of the gospel into my home.” I wondered, “What is that light?” Jesus Christ Himself explained it best when He was teaching the Nephites. He said, “Therefore, hold up your light that it may shine unto the world.” Then He explained, “*I* am the light which ye shall hold up—that which ye have seen me do” ([[3 Nephi 18.24|3 Nephi 18:24]]; emphasis added).
+I remember a simple sampler that I cross-stitched as a young Primary girl. It said, “I will bring the light of the gospel into my home.” I wondered, “What is that light?” Jesus Christ Himself explained it best when He was teaching the Nephites. He said, “Therefore, hold up your light that it may shine unto the world.” Then He explained, “*I* am the light which ye shall hold up—that which ye have seen me do” ([[3 Nephi 18.24|3 Nephi 18:24]]; emphasis added).
 
 What had the Nephites seen Him do, and could I possibly do those things in my home? When the people desired for Him to tarry with them a little longer, He had compassion upon them and lingered with them. Then He healed them, prayed with them, taught them, wept with them, blessed their little children one by one, fed them, and administered and shared the sacrament that they might covenant to always remember Him. His ministry among them was about teaching and caring for each individual, and about completing the work His Father had commanded Him to do. There was no thought for Himself. As I learned this, there began for me a lifelong quest to bring His light into my home through selfless, Christlike acts.
 
@@ -22,7 +22,7 @@ In these preparatory years, you young women spend much of your time in schools o
 
 Homes are also private places, so unfortunately, we often let down. In our homes and with our families we sometimes become our worst selves with the people who matter the most in our lives. I distinctly remember one morning when I was 14 years old. Before I left for school, I was cross and unkind with my parents and my brothers. After I left the house, I was polite with the bus driver and friendly to my peers. I felt the discrepancy of my actions, and a huge feeling of remorse came over me. I asked the teacher if I could be excused for a few minutes to call home. I apologized to my mother for my behavior and told her how much I loved and appreciated her and promised to do better at showing it.
 
-It is difficult for most of us to live even one day in our homes with no contention. The Nephite nation had a perfect society for 200 years with “no contention in the land. … And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God” ([[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]]).
+It is difficult for most of us to live even one day in our homes with no contention. The Nephite nation had a perfect society for 200 years with “no contention in the land. … And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God” ([[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]]).
 
 Some of us are born into families with very difficult problems. And even good families have many challenges. We must try to do in our homes what Christ did with the Nephites. As the proclamation on the family teaches, “Happiness in family life is most likely to be achieved when founded upon the teachings of the Lord Jesus Christ” (*Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102). We must be the light to help our families overcome sin, anger, envy, and fighting. We can pray together, weep for each other, heal each other’s wounds, and selflessly love and serve one another.
 
@@ -52,8 +52,6 @@ Each of you has light. As I look into your faces here tonight and as I remember 
 As you share your light, others will find greater light too. Is there anyone who needs your light as much as your families? I see you remarkable young women with your glowing countenances as the strength of the present and the hope of the future in your homes and in the Church.
 
 Jesus Christ is the light that we must hold up. “He is the light, the life, and the hope of the world. His way is the path that leads to happiness in this life and eternal life in the world to come” (“The Living Christ: The Testimony of the Apostles,” *Liahona* and *Ensign,* Apr. 2000, 2–3). May we each shine on with His light, in the name of Jesus Christ, amen.
-
-
 
 
 

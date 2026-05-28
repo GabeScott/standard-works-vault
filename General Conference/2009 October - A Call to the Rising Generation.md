@@ -10,7 +10,7 @@ By Elder Brent H. Nielson - *Of the Seventy*
 
 As the Savior’s earthly ministry drew to a close, He appeared as a resurrected being to His Apostles. His charge to them is the same call He extends to you of the rising generation today: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost” ([[Matthew 28.19|Matthew 28:19]]).
 
-On April 6, 1974, the Church sustained a new prophet, President Spencer W. Kimball. That same day I received my call to serve as a full-time missionary in Finland. I wasn’t aware at the time that President Kimball had just delivered a landmark address that week to the General Authorities and regional representatives of the Church. Later I learned that in that address President Kimball prophetically outlined his vision as to how we as a church would accomplish the Savior’s charge to “teach all nations.” In his address, President Kimball invited the members of the Church to lengthen their stride and enlarge their vision. He asked that every worthy young man prepare to serve an honorable full-time mission. He encouraged the members in each country to prepare to supply their own missionaries, and he called upon “able men to assist the Twelve \[Apostles\] to move out into the world and to open the doors of every nation” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, 10).
+On April 6, 1974, the Church sustained a new prophet, President Spencer W. Kimball. That same day I received my call to serve as a full-time missionary in Finland. I wasn’t aware at the time that President Kimball had just delivered a landmark address that week to the General Authorities and regional representatives of the Church. Later I learned that in that address President Kimball prophetically outlined his vision as to how we as a church would accomplish the Savior’s charge to “teach all nations.” In his address, President Kimball invited the members of the Church to lengthen their stride and enlarge their vision. He asked that every worthy young man prepare to serve an honorable full-time mission. He encouraged the members in each country to prepare to supply their own missionaries, and he called upon “able men to assist the Twelve \[Apostles\] to move out into the world and to open the doors of every nation” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, 10).
 
 President Kimball also said in his 1974 address that there were 3.3 million members of the Church, 18,600 full-time missionaries, and 633 stakes. He challenged us to do better and asked us to change our sights and raise our vision (see “When the World Will Be Converted,” 7–8).
 
@@ -28,9 +28,9 @@ I did not realize those many years ago, as we prayed for the borders to open and
 
 Since President Kimball’s prophetic instruction 35 years ago, Church membership has grown to 13.5 million members. There are now 52,000 missionaries and over 2,800 stakes of Zion. Who are the laborers in the vineyard who have assisted in bringing to pass this marvelous work and a wonder? They are certainly the prophets and apostles seated before us today. They are also the wonderful stake presidents and bishops who have served so faithfully. But they are also your parents—the mothers and fathers—aunts and uncles, and brothers and sisters who sit beside you, the rising generation today. Most critical, however, is the fact that as we strive to take the gospel to all nations, we have just begun to scratch the surface.
 
-And so the torch is passed to a new generation. The Savior, through His prophet today, President Thomas S. Monson, has renewed the call as he declared:
+And so the torch is passed to a new generation. The Savior, through His prophet today, President Thomas S. Monson, has renewed the call as he declared:
 
-“Our keynote was sounded by our Lord and our Savior, who stands at the head of the great army of missionaries worldwide. After His Resurrection, He appeared to His 11 disciples. He could have given them any counsel, any expression, any warning that He chose to give. But what did He say? It’s recorded in [[Matthew 28.18|Matthew 28:18–20]][[Matthew 28.19|]][[Matthew 28.20|]]. He said as follows: …
+“Our keynote was sounded by our Lord and our Savior, who stands at the head of the great army of missionaries worldwide. After His Resurrection, He appeared to His 11 disciples. He could have given them any counsel, any expression, any warning that He chose to give. But what did He say? It’s recorded in [[Matthew 28.18|Matthew 28:18–20]][[Matthew 28.19|]][[Matthew 28.20|]]. He said as follows: …
 
 “‘Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost:
 
@@ -55,6 +55,4 @@ I pray that you of this rising generation will stand up for truth and righteousn
 
 
 
-
-
-#Missionary_Work #Prophecy #Worthiness #Youth
+#MissionaryWork #Prophecy #Worthiness #Youth

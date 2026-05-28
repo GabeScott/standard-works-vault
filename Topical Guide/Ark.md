@@ -1,7 +1,6 @@
 # Ark
 
-
-*See also* [[Ark of the Covenant.md|Ark of the Covenant]]; [BD Ark](https://www.churchofjesuschrist.org/study/scriptures/bd/ark?lang=eng)
+*See also* [[Ark of the Covenant.md|Ark of the Covenant]]; [[BD Ark.md|BD Ark]]
 
 Make thee an *ark* of gopher wood, [[Genesis 6.14|Genesis 6:14]].
 

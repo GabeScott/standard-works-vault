@@ -20,7 +20,7 @@ First, to the newly called: Confidence depends on your seeing the call for what 
 
 An inspired prophet saw service as the way we come to want what the Lord wants. He wrote, “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” ([[Mosiah 5.13|Mosiah 5:13]]).
 
-Because you are called by Jesus Christ to His service, you may go forward with great confidence. First, you may be assured that He knows you and your capacity to grow. He has prepared you. Calls will stretch you, often at the start and always over their course, but He will give you the Holy Ghost to be your companion. The Holy Ghost will tell you what to do when your own abilities and efforts are not enough (see [[John 14.26|John 14:26]]). The Holy Ghost will prompt you to bear testimony with conviction. The Savior will let you feel the love He feels for those you serve. The call is an invitation to become like Him (see [[3 Nephi 27.27|3 Ne. 27:27]]).
+Because you are called by Jesus Christ to His service, you may go forward with great confidence. First, you may be assured that He knows you and your capacity to grow. He has prepared you. Calls will stretch you, often at the start and always over their course, but He will give you the Holy Ghost to be your companion. The Holy Ghost will tell you what to do when your own abilities and efforts are not enough (see [[John 14.26|John 14:26]]). The Holy Ghost will prompt you to bear testimony with conviction. The Savior will let you feel the love He feels for those you serve. The call is an invitation to become like Him (see [[3 Nephi 27.27|3 Ne. 27:27]]).
 
 You might well ask, “How will seeing my call that way make me more confident of success?” The answer is that seeing it in that lofty way will make it more likely that you will go for help to the only source that is never-failing.
 
@@ -30,9 +30,9 @@ He was humbled when he heard the call. His wife through tears said to the servan
 
 “Many of you that know me know I am a man of few words. I must have gotten that from my father. As I called him yesterday to let him know that I was being called as a stake president, his one response to me was, ‘Well, you better do a lot of praying.’ That was his counsel to me. What better counsel could he give?”
 
-His father couldn’t have done much better. And you can see why. The Lord is his only hope for success. Most of the help will come through the ministrations of the Holy Ghost. The Lord’s servants cannot succeed without it. We can only have the Holy Ghost as a companion if we plead for it and if we qualify for it. And both require a lot of praying, praying with real faith in our Heavenly Father and in His Beloved Son and in the Holy Ghost (see [[D&C 90.24|D&C 90:24]]; [[Articles of Faith 1.1|A of F 1:1]]).
+His father couldn’t have done much better. And you can see why. The Lord is his only hope for success. Most of the help will come through the ministrations of the Holy Ghost. The Lord’s servants cannot succeed without it. We can only have the Holy Ghost as a companion if we plead for it and if we qualify for it. And both require a lot of praying, praying with real faith in our Heavenly Father and in His Beloved Son and in the Holy Ghost (see [[D&C 90.24|D&C 90:24]]; [[Articles of Faith 1.1|A of F 1:1]]).
 
-To have the companionship of the Holy Ghost, we must be cleansed of sin (see [[D&C 50.29|D&C 50:29]]). That only comes through faith enough in Jesus Christ to repent and qualify for forgiveness (see [[D&C 3.20|D&C 3:20]]). And then we have to stay away from sin. That takes prayer, both frequent and fervent (see [[3 Nephi 18.18|3 Ne. 18:18]]).
+To have the companionship of the Holy Ghost, we must be cleansed of sin (see [[D&C 50.29|D&C 50:29]]). That only comes through faith enough in Jesus Christ to repent and qualify for forgiveness (see [[D&C 3.20|D&C 3:20]]). And then we have to stay away from sin. That takes prayer, both frequent and fervent (see [[3 Nephi 18.18|3 Ne. 18:18]]).
 
 “You better do a lot of praying” is good counsel for all of the Lord’s servants, new or seasoned. It is what His wise servants do. They pray.
 
@@ -40,7 +40,7 @@ The disciples of Jesus Christ when He lived on the earth noticed that about Him.
 
 “And it came to pass, that, as \[Jesus\] was praying in a certain place, when he ceased, one of his disciples said unto him, Lord, teach us to pray, as John also taught his disciples.
 
-“And he said unto them, When ye pray, say, Our Father which art in heaven, Hallowed be thy name. Thy kingdom come. Thy will be done, as in heaven, so in earth. …
+“And he said unto them, When ye pray, say, Our Father which art in heaven, Hallowed be thy name. Thy kingdom come. Thy will be done, as in heaven, so in earth. …
 
 “And forgive us our sins; for we also forgive every one that is indebted to us. And lead us not into temptation; but deliver us from evil” ([[Luke 11.1|Luke 11:1–2, 4]][[Luke 11.2|]][[Luke 11.4|]]; see also [[Matthew 6.9|Matt. 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]]).
 
@@ -50,13 +50,13 @@ Think of that prayer as a standard of service. The prayer begins with reverence 
 
 The Savior Himself exemplified the standard set by these next words of the prayer: “Thy will be done, as in heaven, so in earth” ([[Luke 11.2|Luke 11:2]]). That was His prayer in the extremity of offering the Atonement for all mankind and all the world (see [[Matthew 26.42|Matt. 26:42]]). The faithful servant prays that even the apparently smallest task will be done as God would have it done. It makes all the difference to work and to pray for His success more than for our own.
 
-Then the Savior set for us this standard of personal purity: “And forgive us our sins; for we also forgive every one that is indebted to us. And lead us not into temptation; but deliver us from evil” ([[Luke 11.4|Luke 11:4]]). The strengthening we are to give those we watch over comes from the Savior. We and they must forgive to be forgiven by Him (see [[Matthew 6.14|Matt. 6:14]]). We and they can hope to remain clean only with His protection and with the change in our hearts that His Atonement makes possible. We need that change to have the constant companionship of the Holy Ghost. Such a gift might seem too lofty and too distant for us and for those we serve. But a prophet of the Lord named Samuel called and anointed a young man named Saul. On that very day, Samuel promised Saul, “And the Spirit of the Lord will come upon thee, and thou shalt prophesy … , and shalt be turned into another man” ([[1 Samuel 10.6|1 Sam. 10:6]]).
+Then the Savior set for us this standard of personal purity: “And forgive us our sins; for we also forgive every one that is indebted to us. And lead us not into temptation; but deliver us from evil” ([[Luke 11.4|Luke 11:4]]). The strengthening we are to give those we watch over comes from the Savior. We and they must forgive to be forgiven by Him (see [[Matthew 6.14|Matt. 6:14]]). We and they can hope to remain clean only with His protection and with the change in our hearts that His Atonement makes possible. We need that change to have the constant companionship of the Holy Ghost. Such a gift might seem too lofty and too distant for us and for those we serve. But a prophet of the Lord named Samuel called and anointed a young man named Saul. On that very day, Samuel promised Saul, “And the Spirit of the Lord will come upon thee, and thou shalt prophesy … , and shalt be turned into another man” ([[1 Samuel 10.6|1 Sam. 10:6]]).
 
-That promise was fulfilled, not after many years or months or even days. Listen to the account in 1 Samuel, the 10th chapter:
+That promise was fulfilled, not after many years or months or even days. Listen to the account in 1 Samuel, the 10th chapter:
 
 “And it was so, that when he had turned his back to go from Samuel, God gave him another heart: and all those signs came to pass that day.
 
-“And when they came thither to the hill, behold, a company of prophets met him; and the Spirit of God came upon him, and he prophesied among them” ([[1 Samuel 10.9|1 Sam. 10:9–10]][[1 Samuel 10.10|]]).
+“And when they came thither to the hill, behold, a company of prophets met him; and the Spirit of God came upon him, and he prophesied among them” ([[1 Samuel 10.9|1 Sam. 10:9–10]][[1 Samuel 10.10|]]).
 
 You may have confidence in the Lord’s service. The Savior will help you do what He has called you to do, be it for a time as a worker in the Church or forever as a parent. You may pray for help enough to do the work and know that it will come.
 
@@ -73,6 +73,4 @@ I know that God the Father lives. He hears and answers our prayers. I testify th
 
 
 
-
-
-#Church_Callings #Faith #Holy_Ghost #Miracles #Morality #Prayer #Responsibility #Service #Sin #Spirituality #Trust
+#ChurchCallings #Faith #HolyGhost #Miracles #Morality #Prayer #Responsibility #Service #Sin #Spirituality #Trust

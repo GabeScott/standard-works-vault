@@ -75,7 +75,7 @@ We must not delay or wait longer for this great day of fulfillment. Each of you 
 
 
 
-[^1]: Les Goates, quoted by Vaughn J. Featherstone, in Conference Report, Apr. 1973, 46–48; or *Ensign,* July 1973, 36–37.
+[^1]: Les Goates, quoted by Vaughn J. Featherstone, in Conference Report, Apr. 1973, [[1973 April - “Now Abideth Faith, Hope, and Charity”.md|46–48]]; or *Ensign,* July 1973, 36–37.
 
 [^2]: *A Royal Priesthood* (Melchizedek Priesthood personal study guide, 1975–76), 131.
 
@@ -101,7 +101,7 @@ We must not delay or wait longer for this great day of fulfillment. Each of you 
 
 [^13]: William Hartley, “The Priesthood Reform Movement, 1908–1922,” *BYU Studies,* winter 1973, 138.
 
-[^14]: In Conference Report, Oct. 1982, 53–54; or *Ensign,* Nov. 1982, 38.
+[^14]: In Conference Report, Oct. 1982, [[1982 October - Revitalizing Aaronic Priesthood Quorums.md|53–54]]; or *Ensign,* Nov. 1982, 38.
 
 [^15]: In Conference Report, Oct. 1968, 84; or *Improvement Era,* Dec. 1968, 84.
 
@@ -109,6 +109,4 @@ We must not delay or wait longer for this great day of fulfillment. Each of you 
 
 [^17]: “Welfare Responsibilities of the Priesthood Quorums,” *Ensign,* Nov. 1977, 86.
 
-
-
-#Curriculum #Example #Fellowshipping #Jesus_Christ #Priesthood #Service #Testimony
+#Curriculum #Example #Fellowshipping #JesusChrist #Priesthood #Service #Testimony

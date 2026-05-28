@@ -1,6 +1,6 @@
 # A Yearning for Home
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -12,13 +12,13 @@ Recently, as we met with President Thomas S. Monson, he expressed, with great so
 
 ## Bobbie the Wonder Dog
 
-Nearly a century ago, a family from Oregon was vacationing in Indiana—over 2,000 miles (3,200 km) away—when they lost their beloved dog, Bobbie. The frantic family searched for the dog everywhere but to no avail. Bobbie could not be found.
+Nearly a century ago, a family from Oregon was vacationing in Indiana—over 2,000 miles (3,200 km) away—when they lost their beloved dog, Bobbie. The frantic family searched for the dog everywhere but to no avail. Bobbie could not be found.
 
 Heartbroken, they made the trip home, each mile taking them farther away from their cherished pet.
 
 Six months later, the family was stunned to find Bobbie on their doorstep in Oregon. “Mangy, scrawny, feet worn to the bone—\[he\] appeared to have walked the entire distance … by himself.”[^1] Bobbie’s story captured the imagination of people across the United States, and he became known as Bobbie the Wonder Dog.
 
-Bobbie is not the only animal who has baffled scientists with an amazing sense of direction and instinct for home. Some monarch butterfly populations migrate 3,000 miles (4,800 km) each year to climes better suited for their survival. Leatherback turtles travel across the Pacific Ocean from Indonesia to the coasts of California. Humpback whales swim from the cold waters of the North and South Poles toward the equator and back. Perhaps even more incredibly, the arctic tern flies from the Arctic Circle to Antarctica and back every year, some 60,000 miles (97,000 km).
+Bobbie is not the only animal who has baffled scientists with an amazing sense of direction and instinct for home. Some monarch butterfly populations migrate 3,000 miles (4,800 km) each year to climes better suited for their survival. Leatherback turtles travel across the Pacific Ocean from Indonesia to the coasts of California. Humpback whales swim from the cold waters of the North and South Poles toward the equator and back. Perhaps even more incredibly, the arctic tern flies from the Arctic Circle to Antarctica and back every year, some 60,000 miles (97,000 km).
 
 When scientists study this fascinating behavior, they ask questions such as “How do they know where to go?” and “How does each successive generation learn this behavior?”
 
@@ -44,7 +44,7 @@ If you will hear Him, He will speak to you this very day.
 
 When you walk the path of discipleship—when you move toward Heavenly Father—there is something within you that will confirm that you have heard the call of the Savior and set your heart toward the light. It will tell you that you are on the right path and that you are returning home.
 
-Since the beginning of time, God’s prophets have urged the people of their day to “hearken unto the voice of the Lord thy God, … keep his commandments and his statutes … , \[and\] turn unto \[Him\] with all thine heart, and with all thy soul.”[^3]
+Since the beginning of time, God’s prophets have urged the people of their day to “hearken unto the voice of the Lord thy God, … keep his commandments and his statutes … , \[and\] turn unto \[Him\] with all thine heart, and with all thy soul.”[^3]
 
 The scriptures teach us a thousand reasons why we should do this.
 
@@ -98,9 +98,9 @@ His work has always advanced on this important principle: “Out of small things
 
 When writing to the Saints in Corinth, the Apostle Paul observed that not many of them would be considered wise by worldly standards. But that didn’t matter, because “God hath chosen the weak things of the world to confound the things which are mighty.”[^12]
 
-The history of God’s work is filled with people who considered themselves inadequate. But they humbly served, relying on the grace of God and His promise: “Their arm shall be my arm, and I will be their shield … , and they shall fight manfully for me; and … I \[will\] preserve them.”[^13]
+The history of God’s work is filled with people who considered themselves inadequate. But they humbly served, relying on the grace of God and His promise: “Their arm shall be my arm, and I will be their shield … , and they shall fight manfully for me; and … I \[will\] preserve them.”[^13]
 
-This past summer our family had a wonderful opportunity to visit some early Church history sites in the eastern United States. In a special way, we relived the history of that time. People I had read so much about—people like Martin Harris, Oliver Cowdery, and Thomas B. Marsh—became more real to me as we walked where they walked and pondered the sacrifices they made to build the kingdom of God.
+This past summer our family had a wonderful opportunity to visit some early Church history sites in the eastern United States. In a special way, we relived the history of that time. People I had read so much about—people like Martin Harris, Oliver Cowdery, and Thomas B. Marsh—became more real to me as we walked where they walked and pondered the sacrifices they made to build the kingdom of God.
 
 They had many great traits that allowed them to make significant contributions to the Restoration of the Church of Jesus Christ. But they were also human, weak, and fallible—just as you and I are. Some found themselves at variance with the Prophet Joseph Smith and fell away from the Church. Later, many of the same people had a change of heart, humbled themselves, and once again sought and found fellowship with the Saints.
 
@@ -171,9 +171,10 @@ As we embrace the gospel in faith and deed, each day and every hour, we will dra
 
 [^11]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-[^12]: [[1 Corinthians 1.27|1 Corinthians 1:27]].
+[^12]: [[1 Corinthians 1.27|1 Corinthians 1:27]].
 
 [^13]: [[D&C 35.14|Doctrine and Covenants 35:14]].
 
+[^14]: [[Hebrews 11.13|Hebrews 11:13]]; [[1 Peter 2.11|1 Peter 2:11]].
 
-#Adversity #Discipleship #Home #Jesus_Christ #Joy #Light_Of_Christ #Service
+#Adversity #Discipleship #Home #Joy #JesusChrist #LightOfChrist #Service

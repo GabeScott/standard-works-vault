@@ -1,6 +1,6 @@
 # Miracles among the Lamanites
 
-By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
+By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -20,11 +20,11 @@ Why should that be so? Why are changes in that people occurring so dramatically?
 
 The promises were not exclusively given to the Lamanites but to all nations who would possess these lands. The land was blessed: “And thus they did leave a blessing upon this land in their prayers, that whosoever should believe in this gospel in this land might have eternal life” (see [[D&C 10.49|D&C 10:49, 50]][[D&C 10.50|]]).
 
-“And the gospel of Jesus Christ shall be declared among them; …
+“And the gospel of Jesus Christ shall be declared among them; …
 
-“And then shall they rejoice; for they shall know that it is a blessing unto them from the hand of God; and their scales of darkness shall begin to fall from their eyes.” ([[2 Nephi 30.5|2 Ne. 30:5–6]][[2 Nephi 30.6|]].)
+“And then shall they rejoice; for they shall know that it is a blessing unto them from the hand of God; and their scales of darkness shall begin to fall from their eyes.” ([[2 Nephi 30.5|2 Ne. 30:5–6]][[2 Nephi 30.6|]].)
 
-There is even direction to us in our day from President Kimball and the scriptures: “Go unto the Lamanites and preach my gospel unto them; and inasmuch as they receive thy teachings thou shalt cause my church to be established among them” ([[D&C 28.8|D&C 28:8]]). Our living prophet has also said, “It is a people who … call for assistance from those who can push and lift and open doors. It is a people who pray for mercy, for forgiveness, and beg for membership in the kingdom with its opportunities to learn and do.” (Spencer W. Kimball, in Conference Report, Apr. 1954, p. 107.)
+There is even direction to us in our day from President Kimball and the scriptures: “Go unto the Lamanites and preach my gospel unto them; and inasmuch as they receive thy teachings thou shalt cause my church to be established among them” ([[D&C 28.8|D&C 28:8]]). Our living prophet has also said, “It is a people who … call for assistance from those who can push and lift and open doors. It is a people who pray for mercy, for forgiveness, and beg for membership in the kingdom with its opportunities to learn and do.” (Spencer W. Kimball, in Conference Report, Apr. 1954, p. 107.)
 
 How the Lord has blessed his people, this remnant of the house of Jacob. His words have been fulfilled. Where there was once a barren field, today they stand strong and truly “blossom as the rose” ([[D&C 49.24|D&C 49:24]]).
 
@@ -58,15 +58,13 @@ None of us would ever boast in our own strength nor in our own wisdom, but as Am
 
 “\[Our\] joy is full … and \[we\] will rejoice in \[our\] God.
 
-“… For in his strength \[we\] can do all things; …
+“… For in his strength \[we\] can do all things; …
 
-“… Behold, who can glory too much in the Lord? Yea, who can say too much of his great power, and of his mercy, and of his long-suffering towards the children of men? Behold, \[we\] say unto you, \[we\] cannot say the smallest part which \[we\] feel.” ([[Alma 26.11|Alma 26:11–12, 16]][[Alma 26.12|]][[Alma 26.16|]].)
+“… Behold, who can glory too much in the Lord? Yea, who can say too much of his great power, and of his mercy, and of his long-suffering towards the children of men? Behold, \[we\] say unto you, \[we\] cannot say the smallest part which \[we\] feel.” ([[Alma 26.11|Alma 26:11–12, 16]][[Alma 26.12|]][[Alma 26.16|]].)
 
 My brothers and sisters, we must do all that we have been counseled to do here in this conference. Let us not forget the simple truths—those godly traits, the weightier matters of the law, that have been described (see [[Matthew 23.23|Matt. 23:23]]). They are the very basics, the essence of the gospel, and possession of them in great abundance by Latter-day Saints will be in the end the greatest miracle of all. Yes, miracles have not ceased. Today is a day of miracles. We believe in miracles. The Latter-day Saints may expect miracles according to their faith in Jesus Christ, the only being under heaven whereby we and all mankind may be saved (see [[D&C 18.23|D&C 18:23]]), in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Missionary_Work #Native_Americans
+#MissionaryWork #NativeAmericans

@@ -1,6 +1,6 @@
 # Your Mission Preparation
 
-By President A. Theodore Tuttle - *Of the First Council of the Seventy*
+By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -52,11 +52,9 @@ Imagine standing in the baptismal font with *your* convert, raising your right a
 
 You may make the winning touchdown, cross the finish line first, swish down the mountain on perfect powder, drive “a beauty” to the left-field stands, or pitch a no-hitter. You may do and thrill to many things. But you will experience few feelings equal to the quiet, even tearful moment when you record in your diary: “Today we baptized Mr. and Mrs. Brown and all their children. They are a fantastic family!”
 
-I know that God lives. I know that Jesus is the Christ. I know that Joseph Smith was a prophet. I know that President Spencer W. Kimball is the living prophet on the earth today, in the name of Jesus Christ. Amen.
+I know that God lives. I know that Jesus is the Christ. I know that Joseph Smith was a prophet. I know that President Spencer W. Kimball is the living prophet on the earth today, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Missionary_Work #Preparation
+#MissionaryWork #Preparation

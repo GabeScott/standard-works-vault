@@ -36,19 +36,17 @@ Yes, the Restoration has brought to earth again the true doctrines and ordinance
 
 “Wherefore,” the prophet Nephi says, “ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.
 
-“And now, behold, my beloved brethren, this is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God” ([[2 Nephi 31.20|2 Ne. 31:20–21]][[2 Nephi 31.21|]]).
+“And now, behold, my beloved brethren, this is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God” ([[2 Nephi 31.20|2 Ne. 31:20–21]][[2 Nephi 31.21|]]).
 
 Part of our mortal training is to walk by faith, repent of our sins, and call upon the Lord in daily prayer. We rejoice in the moments when promptings by the Holy Ghost are kindly given, and we are urged along the proper path of life. But each of us faces many difficult times here in mortality. All sorts of voices are screaming at us from the stadiums of public opinion. Our course will never be the popular way of the world. There are obstacles strewn in our path upon which we may sprain an ankle or stub a toe. But we must keep going. We move on in the strength of the Lord, each accountable for our own performance at the end of our mortal race. We must be able to declare with Paul:
 
 “I have fought a good fight, I have finished my course, I have kept the faith:
 
-“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing” ([[2 Timothy 4.7|2 Tim. 4:7–8]][[2 Timothy 4.8|]]).
+“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing” ([[2 Timothy 4.7|2 Tim. 4:7–8]][[2 Timothy 4.8|]]).
 
 I am so grateful for my eternal companion and for the second generation of Latter-day Saints in our family who have also taken up the cause of Christ. May God help all of us to partake of the fulness of the restoration of this sacred gospel, I pray humbly in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Conversion #Jesus_Christ #Prophets #Testimony
+#Conversion #JesusChrist #Prophets #Testimony

@@ -1,6 +1,5 @@
 # Blow
 
-
 Thou didst *blow* with thy wind, [[Exodus 15.10|Exodus 15:10]].
 
 priests that *blew* with the trumpets, [[Joshua 6.9|Joshua 6:9]].

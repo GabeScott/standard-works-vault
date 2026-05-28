@@ -1,4 +1,3 @@
 # Nahor
 
-
-*See* [BD Nahor](https://www.churchofjesuschrist.org/study/scriptures/bd/nahor?lang=eng)
+*See also* [[BD Nahor.md|BD Nahor]]

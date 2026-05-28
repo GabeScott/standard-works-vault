@@ -1,4 +1,3 @@
 # Compensation
 
-
-*See* [[Reward.md|Reward]]; [[Wages.md|Wages]]
+*See also* [[Reward.md|Reward]]; [[Wages.md|Wages]]

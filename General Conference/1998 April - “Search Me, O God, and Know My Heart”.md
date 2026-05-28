@@ -70,7 +70,7 @@ The breakdown of parental authority erodes the most indispensable institution of
 
 Paul spoke of those in his day who demonstrated that “the work of the law \[was\] written in their hearts, their conscience also bearing witness.”[^14] For members of this Church to enjoy the blessings of a covenant people, the law of the Lord must be written in their hearts. How can they do this when so many voices tell our children and grandchildren that evil is good and good is evil? We would hope that all fathers and mothers, grandfathers and grandmothers, would be better examples in keeping the commandments of God. We ask husbands and wives to try a little harder to be loving and kind with each other. If both parents will insulate their family as far as they can from the many influences that prey upon us, their children are more likely to be safeguarded. Daily scripture study, daily prayer, regular family home evening, obedience to priesthood authority in the home and in the Church constitute a great insurance policy against spiritual deterioration.
 
-Joshua spoke unequivocally when he said: “But as for me and my house, we will serve the Lord. …
+Joshua spoke unequivocally when he said: “But as for me and my house, we will serve the Lord. …
 
 “And the people said unto Joshua, The Lord our God will we serve, and his voice will we obey.”[^15]
 
@@ -115,7 +115,7 @@ Faithful members of the Church who are true to their covenants with the Master d
 
 [^11]: William Wordsworth, “The World.”
 
-[^12]: In Conference Report, Oct. 1997, 94; or *Ensign,* Nov. 1997, 69.
+[^12]: In Conference Report, Oct. 1997, [[1997 October - Look to the Future.md|94]]; or *Ensign,* Nov. 1997, 69.
 
 [^13]: *Ensign,* Nov. 1995, 102.
 
@@ -123,7 +123,7 @@ Faithful members of the Church who are true to their covenants with the Master d
 
 [^15]: [[Joshua 24.15|Josh. 24:15, 24]][[Joshua 24.24|]].
 
-[^16]: [[John 10.4|John 10:4–5]][[John 10.5|]]; see also [[John 10.11|vv. 11, 14–15, 27]][[John 10.14|]][[John 10.15|]][[John 10.27|]].
+[^16]: [[John 10.4|John 10:4–5]][[John 10.5|]]; see also [[John 10.11|vv. 11, 14–15, 27]][[John 10.14|]][[John 10.15|]][[John 10.27|]].
 
 [^17]: [[Moses 5.13|Moses 5:13]].
 
@@ -135,6 +135,4 @@ Faithful members of the Church who are true to their covenants with the Master d
 
 [^21]: [[Psalms 139.23|Ps. 139:23]].
 
-
-
-#Agency #Character #Commandments #Covenants #Evil #Family #Fasting #Holy_Ghost #Joy #Love #Marriage #Morality #Ordinances #Prayer #Sacrament #Satan #Service #Temples #Truth
+#Agency #Character #Commandments #Covenants #Evil #Family #Fasting #HolyGhost #Joy #Love #Marriage #Morality #Ordinances #Prayer #Sacrament #Satan #Service #Temples #Truth

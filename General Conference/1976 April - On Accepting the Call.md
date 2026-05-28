@@ -1,6 +1,6 @@
 # On Accepting the Call
 
-By Elder John H. Groberg - *Of the First Quorum of the Seventy*
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -29,8 +29,6 @@ But I can’t say in words my appreciation for my wife and my children. Maybe ju
 Lastly, I would like to bear my testimony that I know that our Father in heaven lives, and, maybe more importantly, I know that he loves us as his children. I know that Jesus is the Savior of the world. I know that he loves us. He is our friend, with all that that implies. He loves everyone. My particular experience has been more with the people of the islands. I would just like to say to the quiet, sweet-spirited people of the islands, my particular *Ofa Atu* (heartfelt love). You have softened my soul, saved my life, showed me the meaning of sacrifice and love, and given the incomparable blessing of faith.
 
 I know that Joseph Smith is a prophet of God, that President Kimball is a prophet of God. I bear this testimony in the name of Jesus Christ. Amen.
-
-
 
 
 

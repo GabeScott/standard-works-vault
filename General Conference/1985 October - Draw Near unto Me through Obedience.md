@@ -28,7 +28,7 @@ After being a member of the Church for five months, the young mother decided tha
 
 Heavenly Father truly looked after their needs as they exercised great faith to be obedient.
 
-In 1 Nephi we read, “If it so be that the children of men keep the commandments of God he doth nourish them, and strengthen them, and provide means whereby they can accomplish the thing which he has commanded them.” ([[1 Nephi 17.3|1 Ne. 17:3]].)
+In 1 Nephi we read, “If it so be that the children of men keep the commandments of God he doth nourish them, and strengthen them, and provide means whereby they can accomplish the thing which he has commanded them.” ([[1 Nephi 17.3|1 Ne. 17:3]].)
 
 Again, listen to the words of King Benjamin: “I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven, that thereby they may dwell with God in a state of never-ending happiness. O remember, remember that these things are true.” ([[Mosiah 2.41|Mosiah 2:41]].)
 
@@ -50,7 +50,7 @@ The Lord said, “Keep my commandments, and *assist* to bring forth my work.” 
 
 Sisters, as women in the Church, each of us has an important role to fill in building His kingdom on earth. The way to do this is clear. We have been commanded to sanctify ourselves that our minds may become single to God so that we can stand firm in the faith, without wavering, until our work is completed. As we keep a time for regular scripture study and quiet time for prayers, we receive knowledge and inspiration. Then, through obedience, we put that information into action. We are sanctifying ourselves one step at a time as we accept personal responsibility for our actions and honor the covenants we make at baptism, in the temple, and as we take the sacrament each Sunday. We progress by living worthy to receive the blessings available to us, responding to those promptings to serve others, by loving one another, and by trying to obey the prophet’s voice in all things.
 
-Elder Heber J. Grant said, “If we are striving, if we are working, if we are trying, to the best of our ability, to improve day by day, *then we are in the line of our duty.”* (In Conference Report, Apr. 1909, p. 111.)
+Elder Heber J. Grant said, “If we are striving, if we are working, if we are trying, to the best of our ability, to improve day by day, *then we are in the line of our duty.”* (In Conference Report, Apr. 1909, p. 111.)
 
 From a Thai refugee camp, Mary Ellen Edmunds expressed it well for all of us when she said, “For me I feel close to the Savior when I can do in a small way for someone else, what He would do if He were there. In a way, that’s what being an instrument is all about … to make it possible for His love to reach more of His children.”
 
@@ -61,9 +61,4 @@ I know these things to be true and say them in the name of Jesus Christ, amen.
 
 
 
-
-
 #Obedience #Service
-
-
-#Spirituality

@@ -1,6 +1,6 @@
 # Three Days in the Tomb
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -14,29 +14,29 @@ We are told there was great destruction in Jerusalem; the veil of the temple was
 
 “Behold, I am Jesus Christ the Son of God. I created the heavens and the earth, and all things that in them are. I was with the Father from the beginning. I am in the Father, and the Father in me; and in me hath the Father glorified his name.
 
-“I came unto my own, and my own received me not. And the scriptures concerning my coming are fulfilled.” ([[3 Nephi 9.15|3 Ne. 9:15–16]][[3 Nephi 9.16|]].)
+“I came unto my own, and my own received me not. And the scriptures concerning my coming are fulfilled.” ([[3 Nephi 9.15|3 Ne. 9:15–16]][[3 Nephi 9.16|]].)
 
 He told them the destruction had been because of their wickedness, and that only the more righteous had been spared. Possibly preparing them for his visit after his resurrection, he told them to repent and he would receive them.
 
 The voice told them that the Law of Moses had been fulfilled by him. “And ye shall offer up unto me no more the shedding of blood; yea, your sacrifices and your burnt offerings shall be done away, for I will accept none of your sacrifices and your burnt offerings.
 
-“And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. …” ([[3 Nephi 9.19|3 Ne. 9:19–20]][[3 Nephi 9.20|]].)
+“And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. …” ([[3 Nephi 9.19|3 Ne. 9:19–20]][[3 Nephi 9.20|]].)
 
-On two separate occasions during his ministry he had said, “… I will have mercy, and not sacrifice. …” ([[Matthew 9.13|Matt. 9:13]] and [[Matthew 12.7|12:7]].)
+On two separate occasions during his ministry he had said, “… I will have mercy, and not sacrifice. …” ([[Matthew 9.13|Matt. 9:13]] and [[Matthew 12.7|12:7]].)
 
 Another main activity, while his body lay in the tomb, was to visit the spirits of those who had died. He said on one occasion, “Verily, verily, I say unto you, The hour is coming, and now is, when the dead shall hear the voice of the Son of God: and they that hear shall live.” ([[John 5.25|John 5:25]].)
 
-While on the cross, to the condemned, believing thief, he said, “… Verily I say unto thee, To day shalt thou be with me in paradise.” ([[Luke 23.43|Luke 23:43]].)
+While on the cross, to the condemned, believing thief, he said, “… Verily I say unto thee, To day shalt thou be with me in paradise.” ([[Luke 23.43|Luke 23:43]].)
 
 Peter tells us, “For Christ also hath once suffered for sins, the just for the unjust, that he might bring us to God, being put to death in the flesh, but quickened by the Spirit:
 
 “By which also he went and preached unto the spirits in prison;
 
-“Which sometime were disobedient, when once the long-suffering of God waited in the days of Noah, while the ark was a preparing, wherein few, that is, eight souls were saved by water.” ([[1 Peter 3.18|1 Pet. 3:18–20]][[1 Peter 3.19|]][[1 Peter 3.20|]].)
+“Which sometime were disobedient, when once the long-suffering of God waited in the days of Noah, while the ark was a preparing, wherein few, that is, eight souls were saved by water.” ([[1 Peter 3.18|1 Pet. 3:18–20]][[1 Peter 3.19|]][[1 Peter 3.20|]].)
 
 This is a great principle of the gospel. This gives all mankind an opportunity to hear and receive the gospel, and to make further progress after death.
 
-Peter also tells us that, “for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.” ([[1 Peter 4.6|1 Pet. 4:6]].)
+Peter also tells us that, “for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.” ([[1 Peter 4.6|1 Pet. 4:6]].)
 
 So two great and marvelous things transpired while the body of Christ lay in the tomb. One, his voice was heard by the people on this continent preaching to them, declaring that sacrifices are no longer accepted. Remember, he was not yet resurrected. He returned after his resurrection and showed himself and taught the people. Two, he preached to the spirits in prison.
 
@@ -70,7 +70,7 @@ He not only appeared to his disciples on several occasions and to 500 in Galilee
 
 As we wandered in the garden, Jeanne and I were alone. We walked into the tomb. There we witnessed a spirit of peace, as he had said, “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” ([[John 14.27|John 14:27]].)
 
-We received a witness there, and then, as he said to Martha, “… I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.” ([[John 11.25|John 11:25]].)
+We received a witness there, and then, as he said to Martha, “… I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.” ([[John 11.25|John 11:25]].)
 
 Through his resurrection, eternal progress for all mankind has been made possible. He opened the way that we may go on and on and on forever.
 
@@ -79,8 +79,6 @@ I had the same feeling come over me when I first visited the Sacred Grove in wes
 Truly he lives and has again established his kingdom upon the earth to prepare for his coming in glory to reign upon the earth.
 
 May God give us knowledge and understanding to know his will and give us the desire and strength to abide by his teachings, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

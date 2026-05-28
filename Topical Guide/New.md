@@ -1,6 +1,5 @@
 # New
 
-
 *See also* [[Jerusalem, New.md|Jerusalem, New]]; [[New and Everlasting Covenant.md|New and Everlasting Covenant]]; [[Newness.md|Newness]]
 
 *new* king over Egypt, which knew not Joseph, [[Exodus 1.8|Exodus 1:8]].

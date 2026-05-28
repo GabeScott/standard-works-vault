@@ -1,6 +1,6 @@
 # Holiness and the Plan of Happiness
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -88,7 +88,7 @@ After Job repented and so became more holy, the Lord blessed him beyond all he h
 
 Greater holiness will not come simply by asking for it. It will come by doing what is needed for God to change us.
 
-President Russell M. Nelson has given what seems to me the best counsel of how to move along the covenant path to greater holiness. He pointed the way when he urged:
+President Russell M. Nelson has given what seems to me the best counsel of how to move along the covenant path to greater holiness. He pointed the way when he urged:
 
 “Experience the strengthening power of daily repentance—of doing and being a little better each day.
 
@@ -96,7 +96,7 @@ President Russell M. Nelson has given what seems to me the best counsel of how 
 
 President Nelson went on to give us this encouragement in our efforts to become holier: “The Lord does not expect perfection from us at this point. … But He does expect us to become increasingly pure. Daily repentance is the pathway to purity.”[^15]
 
-President Dallin H. Oaks, in an earlier conference address, also helped me see more clearly how we grow in holiness and how we can know we are moving toward it. He said: “How do we achieve spirituality? How do we attain that degree of holiness where we can have the constant companionship of the Holy Ghost? How do we come to view and evaluate things of this world with the perspective of eternity?”[^16]
+President Dallin H. Oaks, in an earlier conference address, also helped me see more clearly how we grow in holiness and how we can know we are moving toward it. He said: “How do we achieve spirituality? How do we attain that degree of holiness where we can have the constant companionship of the Holy Ghost? How do we come to view and evaluate things of this world with the perspective of eternity?”[^16]
 
 President Oaks’s answer begins with greater faith in Jesus Christ as our loving Savior. That leads us to seek forgiveness every day and to remember Him every day by keeping His commandments. That greater faith in Jesus Christ comes as we feast daily on His word.
 
@@ -114,7 +114,7 @@ The hymn “More Holiness Give Me” suggests a way to pray for help in becoming
 
 Whatever our personal circumstance, wherever we may be on the covenant path home, may our prayers for greater holiness be answered. I know that as our petition is granted, our happiness will increase. It may come slowly, but it will come. I have that assurance from a loving Heavenly Father and His Beloved Son, Jesus Christ.
 
-I testify that Joseph Smith was a prophet of God, that President Russell M. Nelson is our living prophet today. God the Father lives and loves us. He wants us to come home to Him in families. Our loving Savior invites us to follow Him on our journey there. They have prepared the way. In the sacred name of Jesus Christ, amen.
+I testify that Joseph Smith was a prophet of God, that President Russell M. Nelson is our living prophet today. God the Father lives and loves us. He wants us to come home to Him in families. Our loving Savior invites us to follow Him on our journey there. They have prepared the way. In the sacred name of Jesus Christ, amen.
 
 
 
@@ -127,7 +127,7 @@ I testify that Joseph Smith was a prophet of God, that President Russell M. Nel
 
 [^4]: See [[D&C 88.34|Doctrine and Covenants 88:34]].
 
-[^5]: See [[3 Nephi 27.19|3 Nephi 27:19–20]][[3 Nephi 27.20|]].
+[^5]: See [[3 Nephi 27.19|3 Nephi 27:19–20]][[3 Nephi 27.20|]].
 
 [^6]: See [[D&C 132.50|Doctrine and Covenants 132:50]].
 
@@ -137,7 +137,7 @@ I testify that Joseph Smith was a prophet of God, that President Russell M. Nel
 
 [^9]: See [[D&C 101.1|Doctrine and Covenants 101:1–5]][[D&C 101.2|]][[D&C 101.3|]][[D&C 101.4|]][[D&C 101.5|]].
 
-[^10]: See [[1 John 3.2|1 John 3:2–3]][[1 John 3.3|]]; [[D&C 112.13|Doctrine and Covenants 112:13]].
+[^10]: See [[1 John 3.2|1 John 3:2–3]][[1 John 3.3|]]; [[D&C 112.13|Doctrine and Covenants 112:13]].
 
 [^11]: [[D&C 122.7|Doctrine and Covenants 122:7–9]][[D&C 122.8|]][[D&C 122.9|]].
 
@@ -147,9 +147,10 @@ I testify that Joseph Smith was a prophet of God, that President Russell M. Nel
 
 [^14]: [[Job 42.1|Job 42:1–6]][[Job 42.2|]][[Job 42.3|]][[Job 42.4|]][[Job 42.5|]][[Job 42.6|]].
 
-[^15]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67, 68.
+[^15]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67, 68.
 
-[^16]: Dallin H. Oaks, “[[1985 October - Spirituality.md|Spirituality]],” *Ensign,* Nov. 1985, 63.
+[^16]: Dallin H. Oaks, “[[1985 October - Spirituality.md|Spirituality]],” *Ensign,* Nov. 1985, 63.
 
+[^17]: “More Holiness Give Me,” *Hymns,* no. 131.
 
-#Adversity #Atonement #Holiness #Jesus_Christ #Joy #Plan_Of_Salvation #Repentance
+#Adversity #Atonement #Holiness #Joy #JesusChrist #PlanOfSalvation #Repentance

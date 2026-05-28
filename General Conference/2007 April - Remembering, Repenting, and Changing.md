@@ -28,11 +28,11 @@ One day I gave her a Personal Progress book and said, “This book will help you
 
 So what were some lessons I learned from these stories about remembering, repenting, and changing?
 
-**The first lesson is that everyone makes mistakes.**[^6] Not long ago I was with an eight-year-old girl on the day of her baptism. At the end of the day she said with all confidence, “I have been baptized for a whole day, and I haven’t sinned once!” But her perfect day did not last forever, and I am sure she is learning by now, like we all learn, that as hard as we try, we do not always avoid every bad situation, every wrong choice, or control ourselves as we should. I often hear about the chosen, royal generation of this dispensation, but I have never heard it called the perfect generation. Teenagers are especially vulnerable because the power of Satan is real, and they are making their first big, independent choices. Consequently, they are also making their first big mistakes.
+***The first lesson is that everyone makes mistakes.***[^6] Not long ago I was with an eight-year-old girl on the day of her baptism. At the end of the day she said with all confidence, “I have been baptized for a whole day, and I haven’t sinned once!” But her perfect day did not last forever, and I am sure she is learning by now, like we all learn, that as hard as we try, we do not always avoid every bad situation, every wrong choice, or control ourselves as we should. I often hear about the chosen, royal generation of this dispensation, but I have never heard it called the perfect generation. Teenagers are especially vulnerable because the power of Satan is real, and they are making their first big, independent choices. Consequently, they are also making their first big mistakes.
 
 This is what happened to Corianton in the Book of Mormon. Corianton was supposed to be serving a faithful mission, but he thought he was strong enough and smart enough to handle risky situations and bad company, and he got himself into big trouble and big sin when he started going to the wrong places, with the wrong people, doing the wrong things.[^7]
 
-**My second lesson is that repentance isn’t optional.** We are commanded to repent.[^8] The Savior taught that unless we repent and “become as a little child, … \[we\] can in nowise inherit the kingdom of God.”[^9] We must not let one little cup of coffee, one bad habit, one bad choice, one wrong decision derail us for a lifetime.
+***My second lesson is that repentance isn’t optional.*** We are commanded to repent.[^8] The Savior taught that unless we repent and “become as a little child, … \[we\] can in nowise inherit the kingdom of God.”[^9] We must not let one little cup of coffee, one bad habit, one bad choice, one wrong decision derail us for a lifetime.
 
 Sometimes people get casual about repenting. I have heard some people say that repenting is too hard. Others say they are tired of feeling guilty or have been offended by a leader who was helping them repent. Sometimes people give up when they have made mistakes and come to believe that there is no hope for them. Some people imagine that they will feel better about themselves if they just leave the restored gospel and go away.
 
@@ -44,13 +44,13 @@ It is Satan who puts hopeless thoughts into the hearts of those who have made mi
 
 The easiest, quickest path to happiness and peace is to repent and change as soon as we can.
 
-**Lesson three is that we don’t do it alone.** It is not possible to make real change all by ourselves. Our own willpower and our own good intentions are not enough. When we make mistakes or choose poorly, we must have the help of our Savior to get back on track. We partake of the sacrament week after week to show our faith in His power to change us. We confess our sins and promise to forsake them.[^11]
+***Lesson three is that we don’t do it alone.*** It is not possible to make real change all by ourselves. Our own willpower and our own good intentions are not enough. When we make mistakes or choose poorly, we must have the help of our Savior to get back on track. We partake of the sacrament week after week to show our faith in His power to change us. We confess our sins and promise to forsake them.[^11]
 
 When our best efforts are not quite enough, it is through His grace that we receive the strength to keep trying.[^12] The Lord says: “If men come unto me I will show unto them their weakness. I give unto men weakness that they may be humble; and my grace is sufficient for all men that humble themselves before me; for if they humble themselves before me, and have faith in me, then will I make weak things become strong unto them.”[^13]
 
 When we seek the Lord’s help to change us, then we have this promise: “He who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.”[^14] The Lord does not give up on us. He says, “Come unto me, all ye that labour and are heavy laden, and I will give you rest.”[^15] The joy and peace we receive when we know we have been forgiven is a divine blessing. That peace comes in the Lord’s time and in His way, but it does come.
 
-**My last lesson is that we can change.** Every day is a new opportunity to remember our Savior and follow His example. Without repenting, we cannot progress.[^16] That is why repentance is the second principle of the gospel.[^17]
+***My last lesson is that we can change.*** Every day is a new opportunity to remember our Savior and follow His example. Without repenting, we cannot progress.[^16] That is why repentance is the second principle of the gospel.[^17]
 
 Instead of making excuses for a weakness, we work each day to develop good habits and Christlike qualities. President Spencer W. Kimball said, “The cultivation of Christlike qualities is a demanding and relentless task—it is not for the seasonal worker or for those who will not stretch themselves, again and again.”[^18] I learned from Christina that developing Christlike qualities in our lives is a sign that we are changing.
 
@@ -73,19 +73,19 @@ It is through repenting that I have come to know the Savior, and it is as I seek
 
 [^5]: In *Keepers of the Flame,* 49.
 
-[^6]: See Bible Dictionary, “Repentance,” 761.
+[^6]: See Bible Dictionary, “[[BD Repentance|Repentance]],” 761.
 
 [^7]: See [[Alma 39.1|Alma 39:1–9]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]].
 
 [^8]: See [[D&C 19.15|D&C 19:15]].
 
-[^9]: [[3 Nephi 11.38|3 Nephi 11:38]].
+[^9]: [[3 Nephi 11.38|3 Nephi 11:38]].
 
 [^10]: [[D&C 3.9|D&C 3:9–10]][[D&C 3.10|]].
 
 [^11]: See [[D&C 58.43|D&C 58:43]].
 
-[^12]: See Bible Dictionary, “Grace,” 697.
+[^12]: See Bible Dictionary, “[[BD Grace|Grace]],” 697.
 
 [^13]: [[Ether 12.27|Ether 12:27]].
 
@@ -93,7 +93,7 @@ It is through repenting that I have come to know the Savior, and it is as I seek
 
 [^15]: [[Matthew 11.28|Matthew 11:28]].
 
-[^16]: See Bible Dictionary, “Repentance,” 760–61.
+[^16]: See Bible Dictionary, “[[BD Repentance|Repentance]],” 760–61.
 
 [^17]: See [[Articles of Faith 1.4|Articles of Faith 1:4]].
 
@@ -101,5 +101,6 @@ It is through repenting that I have come to know the Savior, and it is as I seek
 
 [^19]: In *Keepers of the Flame,* 49.
 
+[^20]: [[3 Nephi 27.16|3 Nephi 27:16]].
 
-#Activation #Example #Faith #Jesus_Christ #Repentance #Sacrifice #Young_Women
+#Activation #Example #Faith #JesusChrist #Repentance #Sacrifice #YoungWomen

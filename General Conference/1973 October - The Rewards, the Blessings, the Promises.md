@@ -1,6 +1,6 @@
 # The Rewards, the Blessings, the Promises
 
-By President Spencer W. Kimball - *President of the Council of the Twelve*
+By President Spencer W. Kimball - *President of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -14,7 +14,7 @@ Again we meet in a glorious conference.
 
 In the sessions of this impressive conference we have had exhortation, instructions, and warning. The sermons were each mighty and sobering. We were instructed quite fully in the ways of the Lord. Very prominent in the sermons were the words like this: *Walk uprightly. Keep my commandments. Live my laws.* We were reminded about marriage—proper marriage—about repentance and forgiveness, about building self-esteem, and walking in the ways of righteousness. We have heard of the “troubled seas” and that “wickedness is never happiness.”
 
-A story is written by Roy H. Stetler, publisher of a religious journal in the East:
+A story is written by Roy H. Stetler, publisher of a religious journal in the East:
 
 “It occurred outside the Crimean Castle of Livadia. The castle was aglow with lights. A soldier was pacing in carefully measured steps back and forth, guarding the castle, which, at the moment, housed within its walls a most momentous conference of world men. The soldier appeared proud of his task, for what soldier would not like to tell his children, and grandchildren, that he had once done guard duty for the momentous meeting of the ‘Big Three.’
 
@@ -56,7 +56,7 @@ And two others, James and John, the sons of Zebedee, followed him.
 
 And two sets of brothers became apostles of the Lord Jesus Christ.
 
-And I assure you that is one of the greatest blessings of all blessings that can come to any man, and honor, too. Exactly 30 years ago today, October 7, 1943, almost to the hour, I knelt at the feet of President Heber J. Grant and I was ordained an apostle of Jesus Christ.
+And I assure you that is one of the greatest blessings of all blessings that can come to any man, and honor, too. Exactly 30 years ago today, October 7, 1943, almost to the hour, I knelt at the feet of President Heber J. Grant and I was ordained an apostle of Jesus Christ.
 
 In the 76th revelation called The Vision, blessings are promised:
 
@@ -84,9 +84,9 @@ In the 76th revelation called The Vision, blessings are promised:
 
 “These are they who are just men made perfect through Jesus the mediator of the new covenant, who wrought out this perfect atonement through the shedding of his own blood.” ([[D&C 76.62|D&C 76:62, 65, 69]][[D&C 76.65|]][[D&C 76.69|]].)
 
-“Jesus went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom and healing …
+“Jesus went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom and healing …
 
-“And there followed him great multitudes of people from Galilee. …” ([[Matthew 4.23|Matt. 4:23, 25]][[Matthew 4.25|]]), and other places,
+“And there followed him great multitudes of people from Galilee. …” ([[Matthew 4.23|Matt. 4:23, 25]][[Matthew 4.25|]]), and other places,
 
 “And seeing the multitudes he went up into a mountain … his disciples came unto him: And he opened his mouth and taught them, saying:
 
@@ -108,7 +108,7 @@ In the 76th revelation called The Vision, blessings are promised:
 
 “Blessed are ye, when men shall revile you, and persecute you, and shall say all manner of evil against you falsely, for my sake.
 
-“Rejoice, and be exceeding glad: for great is your reward in heaven. …” ([[Matthew 5.1|Matt. 5:1–12]][[Matthew 5.2|]][[Matthew 5.3|]][[Matthew 5.4|]][[Matthew 5.5|]][[Matthew 5.6|]][[Matthew 5.7|]][[Matthew 5.8|]][[Matthew 5.9|]][[Matthew 5.10|]][[Matthew 5.11|]][[Matthew 5.12|]].)
+“Rejoice, and be exceeding glad: for great is your reward in heaven. …” ([[Matthew 5.1|Matt. 5:1–12]][[Matthew 5.2|]][[Matthew 5.3|]][[Matthew 5.4|]][[Matthew 5.5|]][[Matthew 5.6|]][[Matthew 5.7|]][[Matthew 5.8|]][[Matthew 5.9|]][[Matthew 5.10|]][[Matthew 5.11|]][[Matthew 5.12|]].)
 
 It seems that Jesus’ heart was always filled with blessings.
 
@@ -166,7 +166,7 @@ Certainly nothing is impossible with the Lord. His promises are fulfilled.
 
 In 1833 the Lord made promises which we should never take lightly:
 
-He said, “… the destroying angel shall pass by them … and not slay them,” bringing back to our memory the days of Egypt.
+He said, “… the destroying angel shall pass by them … and not slay them,” bringing back to our memory the days of Egypt.
 
 They shall have good health, he said, and strength and power with marrow in their bones and health in their navel.
 
@@ -182,7 +182,7 @@ There are so many beautiful promises. To read the scriptures and turn the pages,
 
 And another solemn promise came from the Lord:
 
-“And \[he that liveth in righteousness\] shall be changed in the twinkling of an eye. …” ([[D&C 101.31|D&C 101:31]].)
+“And \[he that liveth in righteousness\] shall be changed in the twinkling of an eye. …” ([[D&C 101.31|D&C 101:31]].)
 
 “Hearken ye to these words. Behold, I am Jesus Christ, the Savior of the world. Treasure these things up in your hearts, and let the solemnities of eternity rest upon your minds.
 
@@ -194,7 +194,7 @@ Another blessing promised:
 
 From the Psalms we have this promised blessing. He said:
 
-“The earth is the Lord’s, and the fulness thereof; the world, and they that dwell therein. …
+“The earth is the Lord’s, and the fulness thereof; the world, and they that dwell therein. …
 
 “Who shall ascend into the hill of the Lord? or who shall stand in his holy place?
 
@@ -206,11 +206,11 @@ Then in our own dispensation comes this great reward:
 
 Then he speaks about the blessings of eternity. He said of those who keep the commandments and live worthily:
 
-“… and they shall pass by the angels, and the gods which are set there, to their exaltation and glory in all things, as hath been sealed upon their heads, which glory shall be a fulness and a continuation of the seeds forever and ever.
+“… and they shall pass by the angels, and the gods which are set there, to their exaltation and glory in all things, as hath been sealed upon their heads, which glory shall be a fulness and a continuation of the seeds forever and ever.
 
-“Then shall they be gods, because they have no end … then shall they be gods, because they have all power, and the angels are subject unto them …
+“Then shall they be gods, because they have no end … then shall they be gods, because they have all power, and the angels are subject unto them …
 
-“… if ye receive me in the world, then shall ye know me, and shall receive your exaltation; that where I am ye shall be also.” ([[D&C 132.19|D&C 132:19, 20, 23]][[D&C 132.20|]][[D&C 132.23|]].)
+“… if ye receive me in the world, then shall ye know me, and shall receive your exaltation; that where I am ye shall be also.” ([[D&C 132.19|D&C 132:19, 20, 23]][[D&C 132.20|]][[D&C 132.23|]].)
 
 To the children of Israel he spoke. He promises this to us today.
 
@@ -228,9 +228,7 @@ And as he left them, he promised:
 
 All this—what more could be desired or asked for? All these blessings and numerous others to every one of us who is willing to live the commandments and be truthful and honorable in our dealings.
 
-I bear witness that God has given us conditionally all these and thousands of other good things. He has organized his true church upon the earth. This is his church. He has given us the total program which will carry us forward toward perfection; and he has given us prophets to lead and guide us. And President Harold B. Lee today is the leader of this kingdom and this people, and he is a prophet of God. This I know. To this I bear solemn witness in the name of Jesus Christ. Amen.
-
-
+I bear witness that God has given us conditionally all these and thousands of other good things. He has organized his true church upon the earth. This is his church. He has given us the total program which will carry us forward toward perfection; and he has given us prophets to lead and guide us. And President Harold B. Lee today is the leader of this kingdom and this people, and he is a prophet of God. This I know. To this I bear solemn witness in the name of Jesus Christ. Amen.
 
 
 

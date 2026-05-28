@@ -1,6 +1,6 @@
 # The Aaronic Priesthood—A Sure Foundation
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -14,7 +14,7 @@ I do this because I know that God lives. I know that his Son, Jesus Christ, the 
 
 I also know I have been called by the Lord through his prophets, as President Smith announced, and that if I will repent of my sins, He will bless me and strengthen me for the tasks ahead. If I did not know these things to be true, I would not have the courage nor the temerity to accept such a call. Even knowing this, it is frightening to contemplate assuming such a sacred trust.
 
-The last ten and one-half years under the direction of a great leader, Bishop John H. Vandenberg, have been wonderful indeed. I have been associated with him as a member of my stake presidency when I served as bishop of the Denver Fourth Ward, as a fellow counselor in the Denver Stake presidency, and now for more than ten years as one of his counselors in the Presiding Bishopric. I want him and you to know that I love and appreciate him. He is a man of great ability. I am deeply grateful for having had the privilege of being his counselor.
+The last ten and one-half years under the direction of a great leader, Bishop John H. Vandenberg, have been wonderful indeed. I have been associated with him as a member of my stake presidency when I served as bishop of the Denver Fourth Ward, as a fellow counselor in the Denver Stake presidency, and now for more than ten years as one of his counselors in the Presiding Bishopric. I want him and you to know that I love and appreciate him. He is a man of great ability. I am deeply grateful for having had the privilege of being his counselor.
 
 Bishop Simpson, as first counselor in the Presiding Bishopric, has made a great contribution to the Church, as evidenced by the love the people everywhere have for him. He is a man without guile.
 
@@ -81,8 +81,6 @@ Bishops, you are the presidents of the priests quorums, and with your counselors
 If you will take the time to become involved with these young people and see that they become involved with you, you can become saviors on Mount Zion to many. You are the ones, along with the other leaders in the wards and branches, who make the difference.
 
 We want you to know of our love and support for you. We are grateful to the Lord for each of you and pray our Heavenly Father’s blessings upon us all that, through our united and devoted leadership, we may help every young man in this church honor his priesthood so that not one of these precious children of God will be lost. I pray this humbly in the name of Jesus Christ. Amen.
-
-
 
 
 

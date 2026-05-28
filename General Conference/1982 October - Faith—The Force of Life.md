@@ -1,6 +1,6 @@
 # Faith—The Force of Life
 
-By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
+By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -46,7 +46,7 @@ The prince interpreted life to be an evil trick because no matter what a man did
 
 Perhaps some of us feel about life the way the young prince in this fable did. We may feel that life is cruel and unfair to us, that we would like to retreat into our own shelter and never have to venture forth into the world. To do so, however, would be to deny ourselves the opportunities for growth which life and its experiences are designed to bring to us.
 
-The Lord has made available to us a power which will turn these challenges into opportunities, a power which will enable us to understand the Apostle Peter’s declaration that such trials of our faith are indeed more precious than gold. (See [[1 Peter 1.7|1 Pet. 1:7]].)
+The Lord has made available to us a power which will turn these challenges into opportunities, a power which will enable us to understand the Apostle Peter’s declaration that such trials of our faith are indeed more precious than gold. (See [[1 Peter 1.7|1 Pet. 1:7]].)
 
 When I was teaching an early-morning seminary class a number of years ago, we paused at the end of the year to review some principles we had learned from our study of the Book of Mormon. One young lady held up an illustration in her Book of Mormon, painted by Arnold Friberg. It depicted the two thousand sons of Helaman known as the “stripling soldiers.” (See [[Alma 53.22|Alma 53:22]].) Then in all seriousness she asked, “Tell me, Brother Pinegar, why aren’t our young men built like this today?”
 
@@ -56,7 +56,7 @@ Those of you who have read the Book of Mormon are familiar with the story of the
 
 A prophet-general described these young men by saying, “They were exceedingly valiant for courage, and also for strength and activity; but behold, this was not all—they were men who were *true at all times in whatsoever thing they were entrusted. …*
 
-“Yea, they had been taught by their mothers, that if they did not doubt, God would deliver them. …
+“Yea, they had been taught by their mothers, that if they did not doubt, God would deliver them. …
 
 “And they … fought as if with the strength of God; yea, never were men known to have fought with such miraculous strength; and with such mighty power.” ([[Alma 53.20|Alma 53:20]]; [[Alma 56.47|56:47, 56]][[Alma 56.56|]]; italics added.)
 
@@ -85,8 +85,6 @@ Where did Laurie Polk gain his strength to overcome such darkness and despair? T
 From my own experience with life’s hardships I have learned that faith in God develops a personal love for Him which is reciprocated through his blessings to us in times of need. To my daughter and to all others who are meeting new or challenging times, I say: Do not fear the challenges of life, but approach them patiently, with faith in God. He will reward your faith with power not only to endure, but also to overcome hardships, disappointments, trials, and struggles of daily living. Through diligently striving to live the law of God and with faith in Him, we will not be diverted from our eternal course either by the ways or the praise of the world.
 
 May each of us develop faith in God sufficient to fight the battles of life victoriously “with the strength of God; yea, … with \[His\] miraculous strength; and … mighty power.” ([[Alma 56.56|Alma 56:56]].) We will then find the happiness we so much desire in our lives. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -51,10 +51,8 @@ Jacob said, “O how great the plan of our God!”[^3] The Savior has “marked 
 
 [^2]: [[Alma 24.14|Alma 24:14]].
 
-[^3]: [[2 Nephi 9.13|2 Nephi 9:13]].
+[^3]: [[2 Nephi 9.13|2 Nephi 9:13]].
 
-[^4]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
+[^4]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-
-
-#Children #Example #Plan_Of_Salvation #Prayer #Scripture_Study
+#Children #Example #PlanOfSalvation #Prayer #ScriptureStudy

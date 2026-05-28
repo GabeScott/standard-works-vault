@@ -24,9 +24,9 @@ See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saint
 
 ## Instructions for Singing Time
 
-*5 minutes (Primary presidency): Opening prayer, scripture or article of faith, and one talk*
+*5 minutes (Primary presidency): Opening prayer, scripture or article of faith, and one talk*
 
-*20 minutes (music leader): Singing time*
+*20 minutes (music leader): Singing time*
 
 The Primary presidency and music leader select songs for each month to reinforce principles the children are learning in their classes and at home. A list of songs that reinforce these principles is included in this guide.
 
@@ -50,57 +50,57 @@ The *Children’s Songbook* is the basic resource for music in Primary. Hymns fr
 
 ### March
 
-- “[Kindness Begins with Me](https://churchofjesuschrist.org/study/manual/childrens-songbook/kindness-begins-with-me?lang=eng),” *Children’s Songbook*, 145
+- “[Kindness Begins with Me](https://churchofjesuschrist.org/study/manual/childrens-songbook/kindness-begins-with-me?lang=eng),” *Children’s Songbook*, 145
 
-- “[I Need Thee Every Hour](https://churchofjesuschrist.org/study/manual/hymns/i-need-thee-every-hour?lang=eng),” *Hymns*, no. 98
+- “[I Need Thee Every Hour](https://churchofjesuschrist.org/study/manual/hymns/i-need-thee-every-hour?lang=eng),” *Hymns*, no. 98
 
 ### April
 
 - “[Gethsemane](https://churchofjesuschrist.org/study/liahona/2018/03/children/gethsemane?lang=eng),” Gospel Library
 
-- “[Keep the Commandments](https://churchofjesuschrist.org/study/manual/childrens-songbook/keep-the-commandments?lang=eng),” *Children’s Songbook*, 146
+- “[Keep the Commandments](https://churchofjesuschrist.org/study/manual/childrens-songbook/keep-the-commandments?lang=eng),” *Children’s Songbook*, 146
 
 ### May
 
 - “Holy Places,” Gospel Library
 
-- “[As I Search the Holy Scriptures](https://churchofjesuschrist.org/study/manual/hymns/as-i-search-the-holy-scriptures?lang=eng),” *Hymns*, no. 277
+- “[As I Search the Holy Scriptures](https://churchofjesuschrist.org/study/manual/hymns/as-i-search-the-holy-scriptures?lang=eng),” *Hymns*, no. 277
 
 ### June
 
-- “[I Will Be Valiant](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-will-be-valiant?lang=eng),” *Children’s Songbook*, 162
+- “[I Will Be Valiant](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-will-be-valiant?lang=eng),” *Children’s Songbook*, 162
 
-- “[Love One Another](https://churchofjesuschrist.org/study/manual/childrens-songbook/love-one-another?lang=eng),” *Children’s Songbook*, 136
+- “[Love One Another](https://churchofjesuschrist.org/study/manual/childrens-songbook/love-one-another?lang=eng),” *Children’s Songbook*, 136
 
 ### July
 
-- “[Search, Ponder, and Pray](https://churchofjesuschrist.org/study/manual/childrens-songbook/search-ponder-and-pray?lang=eng),” *Children’s Songbook*, 109
+- “[Search, Ponder, and Pray](https://churchofjesuschrist.org/study/manual/childrens-songbook/search-ponder-and-pray?lang=eng),” *Children’s Songbook*, 109
 
-- “[I Pray in Faith](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-pray-in-faith?lang=eng),” *Children’s Songbook*, 14
+- “[I Pray in Faith](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-pray-in-faith?lang=eng),” *Children’s Songbook*, 14
 
 ### August
 
-- “[Dare to Do Right](https://churchofjesuschrist.org/study/manual/childrens-songbook/dare-to-do-right?lang=eng),” *Children’s Songbook*, 158
+- “[Dare to Do Right](https://churchofjesuschrist.org/study/manual/childrens-songbook/dare-to-do-right?lang=eng),” *Children’s Songbook*, 158
 
 - “[I Feel My Savior’s Love](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-feel-my-saviors-love?lang=eng),” *Children’s Songbook*, 74–75
 
 ### September
 
-- “[Teach Me to Walk in the Light](https://churchofjesuschrist.org/study/manual/childrens-songbook/teach-me-to-walk-in-the-light?lang=eng),” *Children’s Songbook*, 177
+- “[Teach Me to Walk in the Light](https://churchofjesuschrist.org/study/manual/childrens-songbook/teach-me-to-walk-in-the-light?lang=eng),” *Children’s Songbook*, 177
 
 - “[Love Is Spoken Here](https://churchofjesuschrist.org/study/manual/childrens-songbook/love-is-spoken-here?lang=eng),” *Children’s Songbook*, 190–91
 
 ### October
 
-- “[Seek the Lord Early](https://churchofjesuschrist.org/study/manual/childrens-songbook/seek-the-lord-early?lang=eng),” *Children’s Songbook*, 108
+- “[Seek the Lord Early](https://churchofjesuschrist.org/study/manual/childrens-songbook/seek-the-lord-early?lang=eng),” *Children’s Songbook*, 108
 
-- “[I Lived in Heaven](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-lived-in-heaven?lang=eng),” *Children’s Songbook*, 4
+- “[I Lived in Heaven](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-lived-in-heaven?lang=eng),” *Children’s Songbook*, 4
 
 ### November
 
-- “[Families Can Be Together Forever](https://churchofjesuschrist.org/study/manual/childrens-songbook/families-can-be-together-forever?lang=eng),” *Children’s Songbook*, 188
+- “[Families Can Be Together Forever](https://churchofjesuschrist.org/study/manual/childrens-songbook/families-can-be-together-forever?lang=eng),” *Children’s Songbook*, 188
 
-- “[Choose the Right](https://churchofjesuschrist.org/study/manual/hymns/choose-the-right?lang=eng),” *Hymns*, no. 239
+- “[Choose the Right](https://churchofjesuschrist.org/study/manual/hymns/choose-the-right?lang=eng),” *Hymns*, no. 239
 
 ### December
 
@@ -124,7 +124,7 @@ Singing time is intended to help the children learn the truths of the gospel. Th
 
 **Share an object lesson.** You could use an object to inspire discussion about a song. For example, when singing the song “[My Heavenly Father Loves Me](https://churchofjesuschrist.org/study/manual/childrens-songbook/my-heavenly-father-loves-me?lang=eng)” (*Children’s Songbook*, 228–29), you could show the children a picture of things like a bird, rain, or flowers. This could lead to a discussion about how we can find signs of Heavenly Father’s love all around us.
 
-**Invite sharing of personal experiences.** Help the children connect the principles taught in the song with experiences they have had with these principles. For example, before singing “[I Love to See the Temple](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-love-to-see-the-temple?lang=eng)” (*Children’s Songbook*, 95), you could ask the children to raise their hands if they have seen a temple. Invite them, as they sing, to think about how they feel when they see a temple.
+**Invite sharing of personal experiences.** Help the children connect the principles taught in the song with experiences they have had with these principles. For example, before singing “[I Love to See the Temple](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-love-to-see-the-temple?lang=eng)” (*Children’s Songbook*, 95), you could ask the children to raise their hands if they have seen a temple. Invite them, as they sing, to think about how they feel when they see a temple.
 
 **Ask questions.** There are many questions you can ask as you sing songs. For example, you can ask the children what they learn from each verse in the song. You can also ask them to think of questions that the song answers. This can lead to a discussion about the truths taught in the song.
 

@@ -1,4 +1,3 @@
 # Tidings
 
-
-*See* [[Gospel.md|Gospel]]
+*See also* [[Gospel.md|Gospel]]

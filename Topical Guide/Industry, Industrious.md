@@ -1,6 +1,5 @@
 # Industry, Industrious
 
-
 *See also* [[Initiative.md|Initiative]]; [[Labor.md|Labor]]; [[Work.md|Work]]; [[Work, Value of.md|Work, Value of]]
 
 In the *sweat* of thy face shalt thou eat bread, [[Genesis 3.19|Genesis 3:19]].
@@ -63,7 +62,7 @@ they were exceedingly *industrious*, [[Ether 10.22|Ether 10:22]].
 
 receive the reward of the *laborer*, [[D&C 23.7|D&C 23:7]].
 
-be devoted ... to performing your *labors*, [[D&C 26.1|D&C 26:1]].
+be devoted … to performing your *labors*, [[D&C 26.1|D&C 26:1]].
 
 *laborer* is worthy of his hire, [[D&C 31.5|D&C 31:5]].
 
@@ -93,4 +92,4 @@ maintenance by his daily *labor*, [[Joseph Smith History 1.23|Joseph Smith Histo
 
 necessity of *laboring* with our hands, [[Joseph Smith History 1.55|Joseph Smith History 1:55]].
 
-went to my father's, and *farmed* with him that season, [[Joseph Smith History 1.58|Joseph Smith History 1:58]].
+went to my father’s, and *farmed* with him that season, [[Joseph Smith History 1.58|Joseph Smith History 1:58]].

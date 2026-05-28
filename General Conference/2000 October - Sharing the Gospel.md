@@ -69,9 +69,10 @@ I testify that God, our Eternal Father, and His Only Begotten Son, Jesus Christ,
 
 [^1]: In Conference Report, Apr. 1959, 122.
 
-[^2]: In Conference Report, Apr. 1978, 4; or *Ensign,* May 1978, 4.
+[^2]: In Conference Report, Apr. 1978, [[1978 April - The True Way of Life and Salvation.md|4]]; or *Ensign,* May 1978, 4.
 
 [^3]: “Always a Convert Church,” *Ensign,* Sept. 1975, 3.
 
+[^4]: In Conference Report, Oct. 1988, [[1988 October - Flooding the Earth with the Book of Mormon.md|4]]; or *Ensign,* Nov. 1988, 5.
 
-#Activation #Couple_Missionaries #Friendship #Missionary_Work #Priesthood #Restoration #Service #Spirituality
+#Activation #CoupleMissionaries #Friendship #MissionaryWork #Priesthood #Restoration #Service #Spirituality

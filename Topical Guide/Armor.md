@@ -1,6 +1,5 @@
 # Armor
 
-
 Saul armed David with his *armour*, [[1 Samuel 17.38|1 Samuel 17:38]].
 
 taketh from him all his *armour* wherein he trusted, [[Luke 11.22|Luke 11:22]].
@@ -14,5 +13,3 @@ Put on the whole *armour* of God, [[Ephesians 6.11|Ephesians 6:11]].
 put on the *armor* of righteousness, [[2 Nephi 1.23|2 Nephi 1:23]].
 
 take upon you my whole *armor*, [[D&C 27.15|D&C 27:15]].
-
-*See also* [[1 Thessalonians 5.8|1 Thessalonians 5:8]].

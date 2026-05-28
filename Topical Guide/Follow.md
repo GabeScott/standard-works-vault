@@ -1,9 +1,8 @@
 # Follow
 
-
 Thou shalt not *follow* a multitude to do evil, [[Exodus 23.2|Exodus 23:2]].
 
-Caleb ... and Joshua ... have wholly *followed* the Lord, [[Numbers 32.12|Numbers 32:12]] ([[Numbers 14.34|Numbers 14:34]]; [[Joshua 14.8|Joshua 14:8]]).
+Caleb … and Joshua … have wholly *followed* the Lord, [[Numbers 32.12|Numbers 32:12]] ([[Numbers 14.34|Numbers 14:34]]; [[Joshua 14.8|Joshua 14:8]]).
 
 return from *following* after thee, [[Ruth 1.16|Ruth 1:16]].
 
@@ -29,7 +28,7 @@ taketh not his cross, and *followeth* after me, is not worthy, [[Matthew 10.38|M
 
 take up his cross, and *follow* me, [[Matthew 16.24|Matthew 16:24]] ([[Mark 8.34|Mark 8:34]]; [[Luke 9.23|Luke 9:23]]).
 
-sell ... and come and *follow* me, [[Matthew 19.21|Matthew 19:21]] ([[Mark 10.21|Mark 10:21]]; [[Luke 18.22|Luke 18:22]]).
+sell … and come and *follow* me, [[Matthew 19.21|Matthew 19:21]] ([[Mark 10.21|Mark 10:21]]; [[Luke 18.22|Luke 18:22]]).
 
 we have forsaken all, and *followed* thee, [[Matthew 19.27|Matthew 19:27]] ([[Mark 10.28|Mark 10:28]]; [[Luke 18.28|Luke 18:28]]).
 
@@ -45,7 +44,7 @@ signs shall *follow* them that believe, [[Mark 16.17|Mark 16:17]].
 
 they forsook all, and *followed* him, [[Luke 5.11|Luke 5:11]].
 
-man said unto him, Lord, I will *follow* thee, [[Luke 9.57|Luke 9:57]] ([[Luke 9.59|9:59-61]][[Luke 9.60|]][[Luke 9.61|]]).
+man said unto him, Lord, I will *follow* thee, [[Luke 9.57|Luke 9:57]].
 
 heard John speak, and *followed* him, was Andrew, [[John 1.40|John 1:40]].
 
@@ -55,7 +54,7 @@ he that *followeth* me shall not walk in darkness, [[John 8.12|John 8:12]].
 
 a stranger will they not *follow*, but will flee, [[John 10.5|John 10:5]].
 
-sheep hear my voice ... and they *follow* me, [[John 10.27|John 10:27]].
+sheep hear my voice … and they *follow* me, [[John 10.27|John 10:27]].
 
 If any man serve me, let him *follow* me, [[John 12.26|John 12:26]].
 
@@ -93,7 +92,7 @@ are gone astray, *following* the way of Balaam, [[2 Peter 2.15|2 Peter 2:15]].
 
 *follow* not that which is evil, [[3 John 1.11|3 John 1:11]].
 
-virgins ... are they which *follow* the Lamb, [[Revelation 14.4|Revelation 14:4]].
+virgins … are they which *follow* the Lamb, [[Revelation 14.4|Revelation 14:4]].
 
 their works do *follow* them, [[Revelation 14.13|Revelation 14:13]].
 

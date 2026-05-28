@@ -46,7 +46,7 @@ Young men, take full advantage of the Church programs. Set your goals to attain 
 
 Regularly attend seminary and be a seminary graduate. Seminary instruction is one of the most significant spiritual experiences a young man can have.
 
-May I now speak with you about missionary service in the kingdom. I feel very deeply about this. I pray that you will understand the yearnings of my heart. The Prophet Joseph Smith declared, “After all that has been said, \[our\] greatest and most important duty is to preach the Gospel.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 113.)
+May I now speak with you about missionary service in the kingdom. I feel very deeply about this. I pray that you will understand the yearnings of my heart. The Prophet Joseph Smith declared, “After all that has been said, \[our\] greatest and most important duty is to preach the Gospel.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 113.)
 
 The Lord wants every young man to serve a full-time mission. Currently, only a fifth of the eligible young men in the Church are serving full-time missions. This is not pleasing to the Lord. We can do better. We *must* do better.
 
@@ -62,7 +62,7 @@ Another vital ingredient in preparation for your mission is to always live a cle
 
 Yes, one can repent of moral transgression. The miracle of forgiveness is real, and true repentance is accepted of the Lord. But it is not pleasing to the Lord prior to a mission, or at any time, to sow one’s wild oats, to engage in sexual transgression of any nature, and then to expect that planned confession and quick repentance will satisfy the Lord.
 
-President Kimball was emphatic on this point. In his marvelous book *The Miracle of Forgiveness,* he stated: “That man who resists temptation and lives without sin is far better off than the man who has fallen, no matter how repentant the latter may be. … How much better it is never to have committed sin!” (Salt Lake City: Bookcraft, 1969, p. 357.)
+President Kimball was emphatic on this point. In his marvelous book *The Miracle of Forgiveness,* he stated: “That man who resists temptation and lives without sin is far better off than the man who has fallen, no matter how repentant the latter may be. … How much better it is never to have committed sin!” (Salt Lake City: Bookcraft, 1969, p. 357.)
 
 One of our fine stake presidents shared with us the following experience:
 
@@ -74,11 +74,11 @@ One of our fine stake presidents shared with us the following experience:
 
 Adultery, or anything like unto it, is abominable in the sight of the Lord. President Kimball also wisely observed:
 
-“Among the most common sexual sins our young people commit are necking and petting. Not only do these improper relations often lead to fornication, pregnancy, and abortions—all ugly sins—but in and of themselves they are pernicious evils, and it is often difficult for youth to distinguish where one ends and another begins. …
+“Among the most common sexual sins our young people commit are necking and petting. Not only do these improper relations often lead to fornication, pregnancy, and abortions—all ugly sins—but in and of themselves they are pernicious evils, and it is often difficult for youth to distinguish where one ends and another begins. …
 
-“Too often, young people dismiss their petting with a shrug of their shoulders as a *little* indiscretion, while admitting that fornication is a base transgression. Too many of them are shocked, or feign to be, when told that what they have done in the name of petting was in reality \[a form of\] fornication.” (*Miracle of Forgiveness,* pp. 65–66.)
+“Too often, young people dismiss their petting with a shrug of their shoulders as a *little* indiscretion, while admitting that fornication is a base transgression. Too many of them are shocked, or feign to be, when told that what they have done in the name of petting was in reality \[a form of\] fornication.” (*Miracle of Forgiveness,* pp. 65–66.)
 
-Young men of the Aaronic Priesthood, remember the scriptural injunction “Be ye clean who bear the vessels of the Lord.” ([[3 Nephi 20.41|3 Ne. 20:41]]; [[D&C 38.42|D&C 38:42]]; see also [[Isaiah 52.11|Isa. 52:11]].) Remember the story of Joseph in Egypt, who hearkened not to the wife of Potiphar and maintained his purity and virtue. (See [[Genesis 39.6|Gen. 39:6–20]][[Genesis 39.7|]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]][[Genesis 39.13|]][[Genesis 39.14|]][[Genesis 39.15|]][[Genesis 39.16|]][[Genesis 39.17|]][[Genesis 39.18|]][[Genesis 39.19|]][[Genesis 39.20|]].)
+Young men of the Aaronic Priesthood, remember the scriptural injunction “Be ye clean who bear the vessels of the Lord.” ([[3 Nephi 20.41|3 Ne. 20:41]]; [[D&C 38.42|D&C 38:42]]; see also [[Isaiah 52.11|Isa. 52:11]].) Remember the story of Joseph in Egypt, who hearkened not to the wife of Potiphar and maintained his purity and virtue. (See [[Genesis 39.6|Gen. 39:6–20]][[Genesis 39.7|]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]][[Genesis 39.13|]][[Genesis 39.14|]][[Genesis 39.15|]][[Genesis 39.16|]][[Genesis 39.17|]][[Genesis 39.18|]][[Genesis 39.19|]][[Genesis 39.20|]].)
 
 Consider carefully the words of the prophet Alma to his errant son, Corianton, “Forsake your sins, and go no more after the lusts of your eyes.” ([[Alma 39.9|Alma 39:9]].)
 
@@ -90,17 +90,17 @@ Magazines and books that are obscene and pornographic.
 
 We counsel you, young men, not to pollute your minds with such degrading matter, for the mind through which this filth passes is never the same afterwards. Don’t see R-rated movies or vulgar videos or participate in any entertainment that is immoral, suggestive, or pornographic. Don’t listen to music that is degrading.
 
-Remember Elder Boyd K. Packer’s statement: “Music, once … innocent, now is often used for wicked purposes. …
+Remember Elder Boyd K. Packer’s statement: “Music, once … innocent, now is often used for wicked purposes. …
 
-“In our day music itself has been corrupted. Music can, by its tempo, by its beat, by its intensity \[and I would add by its lyrics\], dull the spiritual sensitivity of men. …
+“In our day music itself has been corrupted. Music can, by its tempo, by its beat, by its intensity \[and I would add by its lyrics\], dull the spiritual sensitivity of men. …
 
-“Young people,” Elder Packer goes on to say, “you cannot afford to fill your mind with the unworthy hard music of our day.” (In Conference Report, Oct. 1973, pp. 21, 25; or *Ensign,* Jan. 1974, pp. 25, 28.)
+“Young people,” Elder Packer goes on to say, “you cannot afford to fill your mind with the unworthy hard music of our day.” (In Conference Report, Oct. 1973, [[1973 October - Inspiring Music—Worthy Thoughts.md|pp. 21, 25]]; or *Ensign,* Jan. 1974, pp. 25, 28.)
 
 Instead, we encourage you to listen to uplifting music, both popular and classical, that builds the spirit. Learn some favorite hymns from our new hymnbook that build faith and spirituality. Attend dances where the music and the lighting and the dance movements are conducive to the Spirit. Watch those shows and entertainment that lift the spirit and promote clean thoughts and actions. Read books and magazines that do the same.
 
 And remember, young men, the importance of proper dating. President Kimball gave some wise counsel on this subject:
 
-“Clearly, right marriage begins with right dating. … Therefore, this warning comes with great emphasis. Do not take the chance of dating nonmembers, or members who are untrained and faithless. \[You\] may say, ‘Oh I do not intend to marry this person. It is just a “fun” date.’ But one cannot afford to take a chance on falling in love with someone who may never accept the gospel.” (*Miracle of Forgiveness,* pp. 241–42.)
+“Clearly, right marriage begins with right dating. … Therefore, this warning comes with great emphasis. Do not take the chance of dating nonmembers, or members who are untrained and faithless. \[You\] may say, ‘Oh I do not intend to marry this person. It is just a “fun” date.’ But one cannot afford to take a chance on falling in love with someone who may never accept the gospel.” (*Miracle of Forgiveness,* pp. 241–42.)
 
 Our Heavenly Father wants you to date young women who are faithful members of the Church, who encourage you to serve a full-time mission and to magnify your priesthood.
 
@@ -133,6 +133,4 @@ Live up to your godly potential. Remember who you are and the priesthood that yo
 
 
 
-
-
-#Missionary_Work #Morality #Priesthood
+#MissionaryWork #Morality #Priesthood

@@ -64,7 +64,7 @@ He went on to say, “They and their wicked inhabitants were annihilated. We see
 
 I do not know how much more our prophet has to say for us to consider ourselves warned.
 
-In a recent conference talk, Elder Dallin H. Oaks stated: “These signs of the Second Coming are all around us and seem to be increasing in frequency and intensity. … While we are powerless to alter the fact of the Second Coming and unable to know its exact time, we can accelerate our own preparation and try to influence the preparation of those around us. … We need to make both temporal and spiritual preparation for the events prophesied at the time of the Second Coming” (in Conference Report, Apr. 2004, 5–7; or *Ensign,* May 2004, 7–9).
+In a recent conference talk, Elder Dallin H. Oaks stated: “These signs of the Second Coming are all around us and seem to be increasing in frequency and intensity. … While we are powerless to alter the fact of the Second Coming and unable to know its exact time, we can accelerate our own preparation and try to influence the preparation of those around us. … We need to make both temporal and spiritual preparation for the events prophesied at the time of the Second Coming” (in Conference Report, Apr. 2004, [[2004 April - Preparation for the Second Coming.md|5–7]]; or *Ensign,* May 2004, 7–9).
 
 And these statements of warning came well before a season of unprecedented hurricane destruction in the Caribbean area and the tsunami devastation in East Asia.
 
@@ -77,8 +77,6 @@ Now is the time to review the covenants we have made with the Lord at the waters
 Now is indeed the time to show we are on the Lord’s side.
 
 Brethren, this is His work. The gospel of Jesus Christ has been restored in its fulness in these last days through the Prophet Joseph Smith. Christ stands at the head of this Church, leading it forward through His living prophet, Gordon B. Hinckley. Christ will return to the earth to rule and reign, and we will each, one day, stand before Him to be judged on our thoughts, our deeds, and the desires of our hearts. He is our Savior and our Redeemer, and I so testify in His holy name, amen.
-
-
 
 
 

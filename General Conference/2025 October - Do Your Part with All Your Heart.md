@@ -1,6 +1,6 @@
 # Do Your Part with All Your Heart
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -70,7 +70,7 @@ In the Doctrine and Covenants, God declared:
 
 Some of our gifts are listed in the scriptures. Many are not.
 
-As the prophet Moroni said, “Deny not the gifts of God, for they are many; and they come from the same God.” They might manifest themselves in “different ways … ; but it is the same God who worketh all in all.”[^10]
+As the prophet Moroni said, “Deny not the gifts of God, for they are many; and they come from the same God.” They might manifest themselves in “different ways … ; but it is the same God who worketh all in all.”[^10]
 
 It may be true that our spiritual gifts are not always flashy, but that does not mean they are less important. May I share with you some spiritual gifts that I have noticed in so many members across the world? Contemplate whether you have been blessed with one or more gifts like:
 
@@ -139,11 +139,11 @@ I urge and bless every member of the Church, and all who desire to be part of it
 
 [^1]: Airline captains are required to undergo a simulator check flight every six months to maintain their skills and renew their license. This rigorous training is a regulatory requirement set by aviation authorities like the FAA.
 
-[^2]: See [[1 Corinthians 12.9|1 Corinthians 12:9]].
+[^2]: See [[1 Corinthians 12.9|1 Corinthians 12:9]].
 
 [^3]: [[Moroni 10.32|Moroni 10:32]].
 
-[^4]: “Just as our physical muscles cannot be developed or maintained without straining against the law of gravity, so mortal growth requires us to strain against Satan’s temptations and other mortal opposition” (Dallin H. Oaks, “[[2025 April - Divine Helps for Mortality.md|Divine Helps for Mortality]],” *Liahona*, May 2025, 104).
+[^4]: “Just as our physical muscles cannot be developed or maintained without straining against the law of gravity, so mortal growth requires us to strain against Satan’s temptations and other mortal opposition” (Dallin H. Oaks, “[[2025 April - Divine Helps for Mortality.md|Divine Helps for Mortality]],” *Liahona*, May 2025, 104).
 
 [^5]: See [[Alma 32.37|Alma 32:37–43]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
@@ -157,7 +157,7 @@ I urge and bless every member of the Church, and all who desire to be part of it
 
 [^10]: [[Moroni 10.8|Moroni 10:8]].
 
-[^11]: Years ago, Elder Marvin J. Ashton of the Quorum of the Twelve Apostles gave a landmark message about some of the less obvious gifts (see “[[1987 October - “There Are Many Gifts”.md|There Are Many Gifts]],” *Ensign*, Nov. 1987, 20–23).
+[^11]: Years ago, Elder Marvin J. Ashton of the Quorum of the Twelve Apostles gave a landmark message about some of the less obvious gifts (see “[[1987 October - “There Are Many Gifts”.md|There Are Many Gifts]],” *Ensign*, Nov. 1987, 20–23).
 
 [^12]: [[Alma 37.6|Alma 37:6]].
 
@@ -165,10 +165,8 @@ I urge and bless every member of the Church, and all who desire to be part of it
 
 [^14]: See [[D&C 50.24|Doctrine and Covenants 50:24]].
 
-[^15]: See Guide to the Scriptures, “[Agency](https://churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng).”
+[^15]: See Guide to the Scriptures, “[Agency](https://www.churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng).”
 
 [^16]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-
-
-#Discipleship #Divine_Nature #Gifts_Of_The_Spirit #Talents
+#Discipleship #DivineNature #GiftsOfTheSpirit #Talents

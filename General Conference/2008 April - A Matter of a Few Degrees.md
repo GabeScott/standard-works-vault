@@ -10,7 +10,7 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 My dear brethren, I feel your strength and goodness as we assemble as the priesthood of God. I love you; I admire you. Thank you for your faith, your prayers, and your willingness to serve the Lord.
 
-It is now two months since President Thomas S. Monson called me to serve as Second Counselor in the First Presidency of the Church. I am sure this came as a surprise to many, and it caught me off guard as well. In fact, I would say I may have been the second most surprised person on earth, the first being my wife.
+It is now two months since President Thomas S. Monson called me to serve as Second Counselor in the First Presidency of the Church. I am sure this came as a surprise to many, and it caught me off guard as well. In fact, I would say I may have been the second most surprised person on earth, the first being my wife.
 
 On the day the Quorum of the Twelve met in the temple to sustain President Monson and ordain and set him apart as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, I felt overjoyed to have the opportunity to raise my hand in support of my beloved friend and leader.
 
@@ -96,34 +96,34 @@ It may not be an easy path, and it requires self-discipline and determination, b
 
 My dear brethren, you are truly choice and precious sons of Heavenly Father. He has entrusted you with the sacred power of the priesthood. Please do not drift off course, not even a few degrees. Hearken unto the Lord your God, and He will do for you what He promised to do for Saul: He will give you a new heart, make of you a new man, and always be with you.
 
-I testify of our Heavenly Father, who knows and loves you. I bear witness of Jesus Christ, our Savior, who is the head of this Church. President Thomas S. Monson is the prophet of God today. I express my love and gratitude for you, my dear friends and brethren of the priesthood. In the name of Jesus Christ, amen.
+I testify of our Heavenly Father, who knows and loves you. I bear witness of Jesus Christ, our Savior, who is the head of this Church. President Thomas S. Monson is the prophet of God today. I express my love and gratitude for you, my dear friends and brethren of the priesthood. In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: See Arthur Marcel, “Mount Erebus Plane Crash,” www.abc.net.au/rn/ockhamsrazor/stories/2007/1814952.htm.
 
-[^2]: [[1 Samuel 9.2|1 Samuel 9:2]].
+[^2]: [[1 Samuel 9.2|1 Samuel 9:2]].
 
-[^3]: See [[1 Samuel 9.17|1 Samuel 9:17]].
+[^3]: See [[1 Samuel 9.17|1 Samuel 9:17]].
 
-[^4]: See [[1 Samuel 10.23|1 Samuel 10:23]].
+[^4]: See [[1 Samuel 10.23|1 Samuel 10:23]].
 
-[^5]: See [[1 Samuel 9.1|1 Samuel 9:1]].
+[^5]: See [[1 Samuel 9.1|1 Samuel 9:1]].
 
-[^6]: See [[1 Samuel 10.7|1 Samuel 10:7]].
+[^6]: See [[1 Samuel 10.7|1 Samuel 10:7]].
 
-[^7]: See [[1 Samuel 10.9|1 Samuel 10:9]].
+[^7]: See [[1 Samuel 10.9|1 Samuel 10:9]].
 
-[^8]: See [[1 Samuel 10.6|1 Samuel 10:6]].
+[^8]: See [[1 Samuel 10.6|1 Samuel 10:6]].
 
-[^9]: See [[1 Samuel 11.11|1 Samuel 11:11]].
+[^9]: See [[1 Samuel 11.11|1 Samuel 11:11]].
 
-[^10]: [[1 Samuel 13.5|1 Samuel 13:5]].
+[^10]: [[1 Samuel 13.5|1 Samuel 13:5]].
 
-[^11]: [[1 Samuel 13.6|1 Samuel 13:6]].
+[^11]: [[1 Samuel 13.6|1 Samuel 13:6]].
 
-[^12]: [[1 Samuel 13.13|1 Samuel 13:13–14]][[1 Samuel 13.14|]].
+[^12]: [[1 Samuel 13.13|1 Samuel 13:13–14]][[1 Samuel 13.14|]].
 
 [^13]: [[D&C 84.26|D&C 84:26]].
 
@@ -141,10 +141,8 @@ I testify of our Heavenly Father, who knows and loves you. I bear witness of Jes
 
 [^20]: [[John 3.16|John 3:16]].
 
-[^21]: See [[1 John 1.9|1 John 1:9]].
+[^21]: See [[1 John 1.9|1 John 1:9]].
 
 [^22]: [[Isaiah 1.18|Isaiah 1:18]].
 
-
-
-#Holy_Ghost #Prophets #Repentance #Truth
+#HolyGhost #Prophets #Repentance #Truth

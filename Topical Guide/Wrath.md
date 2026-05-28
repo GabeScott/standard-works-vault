@@ -1,9 +1,8 @@
 # Wrath
 
-
 *See also* [[Anger.md|Anger]]; [[Fury.md|Fury]]; [[God, Indignation of.md|God, Indignation of]]; [[Indignation.md|Indignation]]; [[Rage.md|Rage]]
 
-Cursed be ... their *wrath*, [[Genesis 49.7|Genesis 49:7]].
+Cursed be … their *wrath*, [[Genesis 49.7|Genesis 49:7]].
 
 my *wrath* shall wax hot, [[Exodus 22.24|Exodus 22:24]] ([[Exodus 32.10|Exodus 32:10]]).
 
@@ -21,7 +20,7 @@ then was Haman full of *wrath*, [[Esther 3.5|Esther 3:5]].
 
 I sware in my *wrath* that they should not enter, [[Psalms 95.11|Psalms 95:11]] ([[Hebrews 3.11|Hebrews 3:11]]).
 
-Lord ... shall strike through kings in the day of his *wrath*, [[Psalms 110.5|Psalms 110:5]].
+Lord … shall strike through kings in the day of his *wrath*, [[Psalms 110.5|Psalms 110:5]].
 
 Riches profit not in the day of *wrath*, [[Proverbs 11.4|Proverbs 11:4]].
 
@@ -35,11 +34,11 @@ soft answer turneth away *wrath*, [[Proverbs 15.1|Proverbs 15:1]].
 
 *wrath* of a king is as messengers of death, [[Proverbs 16.14|Proverbs 16:14]].
 
-king's *wrath* is as the roaring of a lion, [[Proverbs 19.12|Proverbs 19:12]].
+king’s *wrath* is as the roaring of a lion, [[Proverbs 19.12|Proverbs 19:12]].
 
 man of great *wrath* shall suffer punishment, [[Proverbs 19.19|Proverbs 19:19]].
 
-fool's *wrath* is heavier than them both, [[Proverbs 27.3|Proverbs 27:3]].
+fool’s *wrath* is heavier than them both, [[Proverbs 27.3|Proverbs 27:3]].
 
 *Wrath* is cruel, and anger is outrageous, [[Proverbs 27.4|Proverbs 27:4]].
 
@@ -65,11 +64,11 @@ Because the law worketh *wrath*, [[Romans 4.15|Romans 4:15]].
 
 we shall be saved from *wrath* through him, [[Romans 5.9|Romans 5:9]].
 
-endured ... the vessels of *wrath*, [[Romans 9.22|Romans 9:22]].
+endured … the vessels of *wrath*, [[Romans 9.22|Romans 9:22]].
 
 variance, emulations, *wrath*, [[Galatians 5.20|Galatians 5:20]].
 
-we ... were by nature the children of *wrath*, [[Ephesians 2.3|Ephesians 2:3]].
+we … were by nature the children of *wrath*, [[Ephesians 2.3|Ephesians 2:3]].
 
 let not the sun go down upon your *wrath*, [[Ephesians 4.26|Ephesians 4:26]].
 
@@ -83,11 +82,11 @@ Jesus, which delivered us from the *wrath* to come, [[1 Thessalonians 1.10|1 The
 
 God hath not appointed us to *wrath*, [[1 Thessalonians 5.9|1 Thessalonians 5:9]].
 
-pray ... lifting up holy hands, without *wrath*, [[1 Timothy 2.8|1 Timothy 2:8]].
+pray … lifting up holy hands, without *wrath*, [[1 Timothy 2.8|1 Timothy 2:8]].
 
 he forsook Egypt, not fearing the *wrath* of the king, [[Hebrews 11.27|Hebrews 11:27]].
 
-let every man be ... slow to *wrath*, [[James 1.19|James 1:19]].
+let every man be … slow to *wrath*, [[James 1.19|James 1:19]].
 
 *wrath* of man worketh not the righteousness of God, [[James 1.20|James 1:20]].
 
@@ -107,13 +106,13 @@ his *wrath* shall come upon them, [[Ether 2.9|Ether 2:9]].
 
 *wrath* of God shall be poured out upon the wicked, [[D&C 1.9|D&C 1:9]].
 
-Babylon ... has made all nations drink of the wine of the *wrath* of her fornication, [[D&C 35.11|D&C 35:11]] ([[D&C 88.94|D&C 88:94]], [[D&C 88.105|D&C 88:105]]).
+Babylon … has made all nations drink of the wine of the *wrath* of her fornication, [[D&C 35.11|D&C 35:11]] ([[D&C 88.94|D&C 88:94]]; [[D&C 88.105|D&C 88:105]]).
 
 cup of the *wrath* of mine indignation is full, [[D&C 43.26|D&C 43:26]].
 
 his *wrath* kindled, save those who confess not his hand, [[D&C 59.21|D&C 59:21]].
 
-proclaiming my word ... not in haste, neither in *wrath*, [[D&C 60.14|D&C 60:14]].
+proclaiming my word … not in haste, neither in *wrath*, [[D&C 60.14|D&C 60:14]].
 
 day of *wrath* shall come upon them, [[D&C 63.6|D&C 63:6]].
 
@@ -121,7 +120,7 @@ they who suffer the *wrath* of God on earth, [[D&C 76.104|D&C 76:104]].
 
 Lord in his *wrath*, for his anger was kindled, [[D&C 84.24|D&C 84:24]].
 
-inhabitants of the earth be made to feel the *wrath* ... of an Almighty God, [[D&C 87.6|D&C 87:6]].
+inhabitants of the earth be made to feel the *wrath* … of an Almighty God, [[D&C 87.6|D&C 87:6]].
 
 after your testimony cometh *wrath*, [[D&C 88.88|D&C 88:88]].
 
@@ -129,6 +128,6 @@ Lord, will turn away all *wrath* and indignation, [[D&C 98.22|D&C 98:22]].
 
 in the day of *wrath* I will remember mercy, [[D&C 101.9|D&C 101:9]].
 
-vengeance cometh ... a day of *wrath*, [[D&C 112.24|D&C 112:24]].
+vengeance cometh … a day of *wrath*, [[D&C 112.24|D&C 112:24]].
 
-looking forth ... for the fiery indignation of the *wrath* of God, [[Moses 7.1|Moses 7:1]].
+looking forth … for the fiery indignation of the *wrath* of God, [[Moses 7.1|Moses 7:1]].

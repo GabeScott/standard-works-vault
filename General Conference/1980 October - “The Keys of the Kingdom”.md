@@ -1,6 +1,6 @@
 # “The Keys of the Kingdom”
 
-By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -44,31 +44,31 @@ The revelation reads: “Peter, and James, and John … I have sent unto you, by
 
 The keys of the kingdom were bestowed upon Joseph Smith and Oliver Cowdery by these three ancient Apostles to whom Jesus had given authority following his resurrection and after he had ministered among them.
 
-When the Lord called Frederick G. Williams, by revelation, as a counselor to Joseph Smith, He instructed, “Hearken to the calling wherewith you are called, even to be a high priest in my church, and a counselor unto my servant Joseph Smith, Jun.;
+When the Lord called Frederick G. Williams, by revelation, as a counselor to Joseph Smith, He instructed, “Hearken to the calling wherewith you are called, even to be a high priest in my church, and a counselor unto my servant Joseph Smith, Jun.;
 
 “Unto whom I have given the keys of the kingdom, which belong always unto the Presidency of the High Priesthood” ([[D&C 81.1|D&C 81:1–2]][[D&C 81.2|]]).
 
 On April 3, 1836, in the Kirtland Temple, the same heavenly beings that appeared to the Savior and his three Apostles on the Mount, appeared and conferred additional priesthood authority and keys upon the Prophet Joseph Smith and Oliver Cowdery for the building up of the Church preparatory to the coming of Christ to rule and reign on the earth forever. Moses appeared and conferred the keys of the gathering of Israel. Elias restored the covenants and authority given to Abraham. Elijah bestowed the keys and power of turning the hearts of the fathers to the children and of the children to their fathers. (See [[D&C 110.11|D&C 110:11–16]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].)
 
-These same keys of the kingdom held by Peter, James, and John, who served in the First Presidency in the dispensation of the meridian of time, and conferred upon Joseph Smith and all subsequent Presidents of the Church, are now held by President Spencer W. Kimball today. He holds this supreme authority. He holds the right of revelation and decision for the priesthood and for the Church.
+These same keys of the kingdom held by Peter, James, and John, who served in the First Presidency in the dispensation of the meridian of time, and conferred upon Joseph Smith and all subsequent Presidents of the Church, are now held by President Spencer W. Kimball today. He holds this supreme authority. He holds the right of revelation and decision for the priesthood and for the Church.
 
 In President Kimball is concentrated the governing power of the priesthood. He possesses the keys pertaining to the dispensation of the fulness of times, including all the keys of former dispensations (see [[D&C 112.30|D&C 112:30–32]][[D&C 112.31|]][[D&C 112.32|]]). There is never but one on the earth at a time on whom these keys and powers are conferred. President Kimball, who will speak to us in a few moments, is God’s prophet.
 
-News reporters listened intently for a possible dramatic story that might indicate new direction to the Church when Spencer W. Kimball became President of the Church and held his first press interview. But he reaffirmed the ageless advice that would come from a prophet when he said, “Keep the commandments of God. Follow the pathway of the Lord. Walk in his footsteps.”
+News reporters listened intently for a possible dramatic story that might indicate new direction to the Church when Spencer W. Kimball became President of the Church and held his first press interview. But he reaffirmed the ageless advice that would come from a prophet when he said, “Keep the commandments of God. Follow the pathway of the Lord. Walk in his footsteps.”
 
 To associate closely with President Kimball, to be near him, is to feel of his love for the Lord and his love for people—people everywhere. The Lord has preserved him to preside over His church at this critical period of the history of the Church and of the world. It is for him to decide the course we follow. We are witnesses of his inspired decisions and directions, which give to us a feeling of assurance and calmness. We can follow his direction with utmost confidence and trust, for God has placed a holy man, His servant, to guide His people.
 
 William Fowler, a British convert of 1849, was so moved by the very thought of a prophet of God living among the people that he wrote those stirring words: *We thank thee, O God, for a prophet to guide us in these latter days* (*Hymns,* no. 196).
 
-As you listen to President Kimball’s admonitions given with love to us all, pray about them in your homes, and I promise you that you will be inspired to stand by the tried and proven counsel of lofty principles that come from divine direction. In a revelation to Joseph Smith a few months after the Church was organized, the Lord gave careful instructions and counsel to the new leaders. He said, “Ask of God, … and that which the Spirit testifies unto you … do in all holiness of heart. …
+As you listen to President Kimball’s admonitions given with love to us all, pray about them in your homes, and I promise you that you will be inspired to stand by the tried and proven counsel of lofty principles that come from divine direction. In a revelation to Joseph Smith a few months after the Church was organized, the Lord gave careful instructions and counsel to the new leaders. He said, “Ask of God, … and that which the Spirit testifies unto you … do in all holiness of heart. …
 
-“… Seek ye earnestly the best gifts, always remembering for what they are given;
+“… Seek ye earnestly the best gifts, always remembering for what they are given;
 
-“… they are given for the benefit of those who love me and keep all my commandments.” ([[D&C 46.7|D&C 46:7–9]][[D&C 46.8|]][[D&C 46.9|]].)
+“… they are given for the benefit of those who love me and keep all my commandments.” ([[D&C 46.7|D&C 46:7–9]][[D&C 46.8|]][[D&C 46.9|]].)
 
 That revelation continues: “All have not every gift \[but\] … every man is given a gift by the Spirit of God.
 
-“To some it is given by the Holy Ghost to know that Jesus Christ is the Son of God. …
+“To some it is given by the Holy Ghost to know that Jesus Christ is the Son of God. …
 
 “To others it is given to believe on their words.” ([[D&C 46.11|D&C 46:11, 13–14]][[D&C 46.13|]][[D&C 46.14|]].)
 
@@ -93,8 +93,6 @@ This is the Church of Jesus Christ—reestablished by the Savior and his ancient
 We are witnesses that President Kimball is God’s prophet, and that he is leading us in teaching the world the true gospel of Christ.
 
 God, our Eternal Father, lives, as does his Only Begotten Son, the Savior of us all, in whose holy name I testify, amen.
-
-
 
 
 

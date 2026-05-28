@@ -20,7 +20,7 @@ In a year when we are celebrating the faith and valor of those who made that exa
 
 In speaking of mothers I do not neglect the crucial, urgent role of fathers, particularly as fatherlessness in contemporary homes is considered by some to be “the central social problem of our time.”[^3] Indeed, fatherlessness can be a problem even in a home where the father is present—eating and sleeping, so to speak, “by remote.” But that is a priesthood message for another day. Today I wish to praise those motherly hands that have rocked the infant’s cradle and, through the righteousness taught to their children there, are at the very center of the Lord’s purposes for us in mortality.
 
-In so speaking I echo Paul, who wrote in praise of Timothy’s “unfeigned faith … , which dwelt first,” he said, “in thy grandmother Lois, and \[in\] thy mother Eunice.”[^4] “From \[the days when thou wert\] a child,” Paul said, “thou hast known the holy scriptures.”[^5] We give thanks for all the mothers and grandmothers from whom such truths have been learned at such early ages.
+In so speaking I echo Paul, who wrote in praise of Timothy’s “unfeigned faith … , which dwelt first,” he said, “in thy grandmother Lois, and \[in\] thy mother Eunice.”[^4] “From \[the days when thou wert\] a child,” Paul said, “thou hast known the holy scriptures.”[^5] We give thanks for all the mothers and grandmothers from whom such truths have been learned at such early ages.
 
 In speaking of mothers generally, I especially wish to praise and encourage *young* mothers. The work of a mother is hard, too often unheralded work. The young years are often those when either husband or wife—or both—may still be in school or in those earliest and leanest stages of developing the husband’s breadwinning capacities. Finances fluctuate daily between low and nonexistent. The apartment is usually decorated in one of two smart designs—Deseret Industries provincial or early Mother Hubbard. The car, if there is one, runs on smooth tires and an empty tank. But with night feedings and night teethings, often the greatest challenge of all for a young mother is simply fatigue. Through these years, mothers go longer on less sleep and give more to others with less personal renewal for themselves than any other group I know at any other time in life. It is not surprising when the shadows under their eyes sometimes vaguely resemble the state of Rhode Island.
 
@@ -55,15 +55,15 @@ In the sacred and holy name of the Lord Jesus Christ, amen.
 
 
 
-[^1]: “Redeemer of Israel,” *Hymns,* no. 6; see also [[3 Nephi 22.1|3 Ne. 22:1]].
+[^1]: “Redeemer of Israel,” *Hymns,* no. 6; see also [[3 Nephi 22.1|3 Ne. 22:1]].
 
-[^2]: See Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 2:76; Harold B. Lee, *Ye Are the Light of the World: Selected Sermons and Writings of President Harold B. Lee* (1974), 292; and Gordon B. Hinckley, in Conference Report, Apr. 1991, 94.
+[^2]: See Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 2:76; Harold B. Lee, *Ye Are the Light of the World: Selected Sermons and Writings of President Harold B. Lee* (1974), 292; and Gordon B. Hinckley, in Conference Report, Apr. 1991, [[1991 April - What God Hath Joined Together.md|94]].
 
 [^3]: Tom Lowe, “Fatherlessness: The Central Social Problem of Our Time,” Claremont Institute Home Page Editorial, Jan. 1996.
 
-[^4]: [[2 Timothy 1.5|2 Tim. 1:5]].
+[^4]: [[2 Timothy 1.5|2 Tim. 1:5]].
 
-[^5]: [[2 Timothy 3.15|2 Tim. 3:15]].
+[^5]: [[2 Timothy 3.15|2 Tim. 3:15]].
 
 [^6]: [[Ecclesiastes 3.1|Eccl. 3:1]].
 
@@ -71,14 +71,12 @@ In the sacred and holy name of the Lord Jesus Christ, amen.
 
 [^8]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 462.
 
-[^9]: [[2 Nephi 2.25|2 Ne. 2:25]].
+[^9]: [[2 Nephi 2.25|2 Ne. 2:25]].
 
-[^10]: [[2 Nephi 31.19|2 Ne. 31:19]].
+[^10]: [[2 Nephi 31.19|2 Ne. 31:19]].
 
-[^11]: [[2 Nephi 31.20|2 Ne. 31:20]].
+[^11]: [[2 Nephi 31.20|2 Ne. 31:20]].
 
 [^12]: [[Matthew 9.22|Matt. 9:22]].
 
-
-
-#Atonement #Children #Family #Fatherhood #Holy_Ghost #Jesus_Christ #Motherhood #Pioneers #Prayer
+#Atonement #Children #Family #Fatherhood #HolyGhost #JesusChrist #Motherhood #Pioneers #Prayer

@@ -22,7 +22,7 @@ Truly the people of Mexico and other Latin American countries are among the desc
 
 After His Resurrection, Jesus Christ descended out of heaven, clothed in a white robe, and stood in the midst of their ancestors here in the Americas. He stretched forth His hand and said: “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“… I am the light and the life of the world.”[^2]
+“… I am the light and the life of the world.”[^2]
 
 “Therefore, hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up.”[^3]
 
@@ -63,20 +63,18 @@ I testify that Joseph Smith is the prophet of the Restoration. The Book of Mormo
 
 
 
-[^1]: [[1 Nephi 15.14|1 Nephi 15:14]]; emphasis added.
+[^1]: [[1 Nephi 15.14|1 Nephi 15:14]]; emphasis added.
 
-[^2]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
+[^2]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
-[^3]: [[3 Nephi 18.24|3 Nephi 18:24]].
+[^3]: [[3 Nephi 18.24|3 Nephi 18:24]].
 
 [^4]: [[D&C 115.5|D&C 115:5]].
 
-[^5]: Book of Mormon [introduction](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
+[^5]: Book of Mormon [introduction](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
 
 [^6]: [[Joseph Smith History 1.33|Joseph Smith—History 1:33]].
 
-[^7]: [[3 Nephi 21.7|3 Nephi 21:7]]; emphasis added.
+[^7]: [[3 Nephi 21.7|3 Nephi 21:7]]; emphasis added.
 
-
-
-#Book_Of_Mormon #Covenants #Example #Missionary_Work #Testimony
+#BookOfMormon #Covenants #Example #MissionaryWork #Testimony

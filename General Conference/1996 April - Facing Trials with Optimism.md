@@ -29,6 +29,4 @@ I am grateful for a living prophet who taught me to let go of feeling sorry for 
 
 
 
-
-
 #Adversity #Attitude #Prophets

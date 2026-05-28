@@ -1,12 +1,12 @@
 # Successful Parenthood—A Noteworthy Accomplishment
 
-By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
+By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/04/successful-parenthood-a-noteworthy-accomplishment?lang=eng)
 
-First of all, my brothers and sisters, let me assure you that as far as ElRay L. Christiansen is concerned, God lives, and he is a compassionate, understanding Father; and his Son, Jesus Christ, came to earth, as the Bible tells us, and offered himself and actually gave his life that we might be redeemed from the grave and might have eternal life, salvation, which to us means exaltation in the celestial world.
+First of all, my brothers and sisters, let me assure you that as far as ElRay L. Christiansen is concerned, God lives, and he is a compassionate, understanding Father; and his Son, Jesus Christ, came to earth, as the Bible tells us, and offered himself and actually gave his life that we might be redeemed from the grave and might have eternal life, salvation, which to us means exaltation in the celestial world.
 
 I testify that Joseph Smith was selected by God and Jesus Christ to restore the gospel in this day and that Joseph Fielding Smith, whom we appreciate, is one of a succession of modern-day prophets, seers, and revelators.
 
@@ -28,7 +28,7 @@ To help us develop desirable qualities in our children, we are provided with div
 
 Parenthood is a sacred trust. It is an approach to the divine—a God-given privilege that, with its never-ending responsibilities, brings rich and lasting rewards.
 
-President Joseph F. Smith made this significant statement: “The man, and the woman who are the agents, in the providence of God, to bring living souls into the world, are made before God and the heavens, as responsible for these acts as is God himself responsible for the works of his own hands. …” (*Gospel Doctrine,* p. 342.)
+President Joseph F. Smith made this significant statement: “The man, and the woman who are the agents, in the providence of God, to bring living souls into the world, are made before God and the heavens, as responsible for these acts as is God himself responsible for the works of his own hands. …” (*Gospel Doctrine,* p. 342.)
 
 A home approved of God is not merely a place where children are born, but where their coming is received with joy and gladness by parents who strive with all their abilities to help their children develop such attributes as—
 
@@ -98,8 +98,6 @@ In *The Scouter’s Minute* \[YMMIA, 1969\] I found these lines:
 >
 
 To this I testify in the name of Jesus Christ, the Lord. Amen.
-
-
 
 
 

@@ -4,6 +4,3 @@
 
 [JST Luke 16:16](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/16?lang=eng)
 
-
-
-

@@ -67,7 +67,7 @@ May our individual covenants that bind us to our loving Heavenly Father guide us
 
 [^2]: Quoted in Edward W. Tullidge, *The Women of Mormondom* (1877), 287; see also 285–86, 288.
 
-[^3]: [[3 Nephi 27.21|3 Nephi 27:21]].
+[^3]: [[3 Nephi 27.21|3 Nephi 27:21]].
 
 [^4]: [[D&C 20.77|D&C 20:77, 79]][[D&C 20.79|]].
 
@@ -82,7 +82,5 @@ May our individual covenants that bind us to our loving Heavenly Father guide us
 [^9]: “More Holiness Give Me,” *Hymns,* no. 131.
 
 [^10]: Tullidge, *Women of Mormondom,* 288.
-
-
 
 #Covenants #Home #Kindness #Love #Obedience

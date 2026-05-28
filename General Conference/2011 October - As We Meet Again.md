@@ -1,6 +1,6 @@
 # As We Meet Again
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -10,17 +10,17 @@ By President Thomas S. Monson - *President of the Church*
 
 It is good, brothers and sisters, to welcome you to the 181st Semiannual General Conference of The Church of Jesus Christ of Latter-day Saints.
 
-This conference marks 48 years—think of it, 48 years—since I was called to the Quorum of the Twelve Apostles by President David O. McKay. That was in October of 1963. It seems impossible that so many years have come and gone since then.
+This conference marks 48 years—think of it, 48 years—since I was called to the Quorum of the Twelve Apostles by President David O. McKay. That was in October of 1963. It seems impossible that so many years have come and gone since then.
 
-When we’re busy, time seems to pass far too quickly, and the past six months have been no exception for me. One of the highlights during that period was the opportunity I had to rededicate the Atlanta Georgia Temple on May 1. I was accompanied by Elder and Sister M. Russell Ballard, Elder and Sister Walter F. González, and Elder and Sister William R. Walker.
+When we’re busy, time seems to pass far too quickly, and the past six months have been no exception for me. One of the highlights during that period was the opportunity I had to rededicate the Atlanta Georgia Temple on May 1. I was accompanied by Elder and Sister M. Russell Ballard, Elder and Sister Walter F. González, and Elder and Sister William R. Walker.
 
 During the cultural celebration entitled “Southern Lights,” held the evening prior to the rededication, 2,700 young men and young women from throughout the temple district performed. It was one of the most outstanding programs I have seen and had the audience on its feet several times for standing ovations.
 
 The following day the temple was rededicated in two sessions, where the Spirit of the Lord was with us in rich abundance.
 
-During the latter part of August, President Henry B. Eyring dedicated the San Salvador El Salvador Temple. He was accompanied by Sister Eyring and by Elder and Sister D. Todd Christofferson, Elder and Sister William R. Walker, and Sister Silvia H. Allred of the Relief Society general presidency and her husband, Jeffry. President Eyring reported that it was a most spiritual event.
+During the latter part of August, President Henry B. Eyring dedicated the San Salvador El Salvador Temple. He was accompanied by Sister Eyring and by Elder and Sister D. Todd Christofferson, Elder and Sister William R. Walker, and Sister Silvia H. Allred of the Relief Society general presidency and her husband, Jeffry. President Eyring reported that it was a most spiritual event.
 
-In the latter part of this year, President Dieter F. Uchtdorf and Sister Uchtdorf will travel with other General Authorities to Quetzaltenango, Guatemala, where he will dedicate our temple there.
+In the latter part of this year, President Dieter F. Uchtdorf and Sister Uchtdorf will travel with other General Authorities to Quetzaltenango, Guatemala, where he will dedicate our temple there.
 
 The building of temples continues uninterrupted, brothers and sisters. Today it is my privilege to announce several new temples.
 
@@ -39,6 +39,4 @@ Now, brothers and sisters, it is my prayer that we may be filled with the Spirit
 
 
 
-
-
-#General_Conference #Temple_Work #Temples
+#GeneralConference #Temples #TempleWork

@@ -53,6 +53,4 @@ I also bear witness that Jesus Christ is the author and proponent of the gospel.
 
 
 
-
-
-#Holy_Ghost #Jesus_Christ #Joy #Peace
+#HolyGhost #Joy #JesusChrist #Peace

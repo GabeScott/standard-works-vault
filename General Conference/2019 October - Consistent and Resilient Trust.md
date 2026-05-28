@@ -1,6 +1,6 @@
 # Consistent and Resilient Trust
 
-By Elder L. Todd Budge - *Of the Seventy*
+By Elder L. Todd Budge - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -12,7 +12,7 @@ Our son Dan got very sick on his mission in Africa and was taken to a medical fa
 
 As my wife and I read these words, we were overcome with emotion. *Consistently and resiliently happy.* We had never heard happiness described that way, but his words rang true. We knew that the happiness he described was not simply pleasure or an elevated mood but a peace and joy that come when we surrender ourselves to God and put our trust in Him in *all things.*[^1] We too had had those times in our lives when God spoke peace to our souls and caused us to have hope in Christ even when life was hard and uncertain.[^2]
 
-Lehi teaches that if Adam and Eve had not fallen, “they would have remained in a state of innocence, having no joy, for they knew no misery; …
+Lehi teaches that if Adam and Eve had not fallen, “they would have remained in a state of innocence, having no joy, for they knew no misery; …
 
 “But behold, *all things* have been done in the wisdom of him who knoweth *all things.*
 
@@ -42,7 +42,7 @@ The Lord made it clear that ultimately the Jaredites could not make it to the pr
 
 Notice how his prayers changed from questions and concerns to expressions of faith and trust:
 
-“I know, O Lord, that thou hast all power, and can do whatsoever thou wilt for the benefit of man; …
+“I know, O Lord, that thou hast all power, and can do whatsoever thou wilt for the benefit of man; …
 
 “Behold, O Lord, thou canst do this. We know that thou art able to show forth great power, which looks small unto the understanding of men.”[^15]
 
@@ -73,15 +73,15 @@ I witness that Jesus is the Christ. He is the source of all joy.[^27] His grace 
 
 [^2]: See [[Alma 58.11|Alma 58:11]].
 
-[^3]: [[2 Nephi 2.23|2 Nephi 2:23–25]][[2 Nephi 2.24|]][[2 Nephi 2.25|]]; emphasis added.
+[^3]: [[2 Nephi 2.23|2 Nephi 2:23–25]][[2 Nephi 2.24|]][[2 Nephi 2.25|]]; emphasis added.
 
-[^4]: See *The Mathnawi of Jalalu’ddin Rumi* (1925–40), trans. Reynold A. Nicholson, vol. 5, 132.
+[^4]: See *The Mathnawi of Jalalu’ddin Rumi* (1925–40), trans. Reynold A. Nicholson, vol. 5, 132.
 
 [^5]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82.
 
-[^6]: See Neal A. Maxwell, “[[2001 April - “Plow in Hope”.md|Plow in Hope]],” *Ensign,* May 2001, 60; *Liahona,* July 2001, 73: “Redeeming Jesus also ‘poured out his soul unto death.’ … As we on occasion ‘pour’ out our souls in personal pleadings, we are thus emptied, making room for more joy!”
+[^6]: See Neal A. Maxwell, “[[2001 April - “Plow in Hope”.md|Plow in Hope]],” *Ensign,* May 2001, 60; *Liahona,* July 2001, 73: “Redeeming Jesus also ‘poured out his soul unto death.’ … As we on occasion ‘pour’ out our souls in personal pleadings, we are thus emptied, making room for more joy!”
 
-[^7]: [[Alma 31.38|Alma 31:38]]; see also Neal A. Maxwell, “[Brim with Joy](http://speeches.byu.edu/talks/neal-a-maxwell/brim-joy)” (Brigham Young University devotional, Jan. 23, 1996), speeches.byu.edu: “When we reach a point of consecration, our afflictions will be swallowed up in the joy of Christ. It does not mean we won’t have afflictions, but they will be put in a perspective that permits us to deal with them. With our steady pursuit of joy and with each increasing measure of righteousness, we will experience one more drop of delight—one drop after another—until, in the words of a prophet, our hearts are ‘brim with joy’ ([[Alma 26.11|Alma 26:11]]). At last, the soul’s cup finally runs over!”
+[^7]: [[Alma 31.38|Alma 31:38]]; see also Neal A. Maxwell, “[Brim with Joy](https://speeches.byu.edu/talks/neal-a-maxwell/brim-joy)” (Brigham Young University devotional, Jan. 23, 1996), speeches.byu.edu: “When we reach a point of consecration, our afflictions will be swallowed up in the joy of Christ. It does not mean we won’t have afflictions, but they will be put in a perspective that permits us to deal with them. With our steady pursuit of joy and with each increasing measure of righteousness, we will experience one more drop of delight—one drop after another—until, in the words of a prophet, our hearts are ‘brim with joy’ ([[Alma 26.11|Alma 26:11]]). At last, the soul’s cup finally runs over!”
 
 [^8]: [[John 16.33|John 16:33]].
 
@@ -103,13 +103,13 @@ I witness that Jesus is the Christ. He is the source of all joy.[^27] His grace 
 
 [^17]: [[Ether 6.6|Ether 6:6]].
 
-[^18]: [[Ether 6.8|Ether 6:8]]; emphasis added; see also [[1 Nephi 18.8|1 Nephi 18:8]].
+[^18]: [[Ether 6.8|Ether 6:8]]; emphasis added; see also [[1 Nephi 18.8|1 Nephi 18:8]].
 
 [^19]: [[Ether 6.10|Ether 6:10]].
 
-[^20]: [[Ether 6.9|Ether 6:9]]; see also [[1 Nephi 18.16|1 Nephi 18:16]].
+[^20]: [[Ether 6.9|Ether 6:9]]; see also [[1 Nephi 18.16|1 Nephi 18:16]].
 
-[^21]: Compare [[1 Nephi 5.5|1 Nephi 5:5]]. Though still in the wilderness, Lehi rejoiced in the promised blessing.
+[^21]: Compare [[1 Nephi 5.5|1 Nephi 5:5]]. Though still in the wilderness, Lehi rejoiced in the promised blessing.
 
 [^22]: See [[Ether 6.11|Ether 6:11]].
 
@@ -117,15 +117,16 @@ I witness that Jesus is the Christ. He is the source of all joy.[^27] His grace 
 
 [^24]: [[Ether 6.12|Ether 6:12]].
 
-[^25]: See [[1 Nephi 1.20|1 Nephi 1:20]]; [[1 Nephi 8.8|8:8]]; [[Alma 33.16|Alma 33:16]].
+[^25]: See [[1 Nephi 1.20|1 Nephi 1:20]]; [[1 Nephi 8.8|8:8]]; [[Alma 33.16|Alma 33:16]].
 
 [^26]: [[Alma 58.11|Alma 58:11]].
 
-[^27]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82.
+[^27]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82.
 
-[^28]: See [[2 Nephi 31.19|2 Nephi 31:19]]; [[Alma 34.18|Alma 34:18]]; [[Moroni 10.32|Moroni 10:32]].
+[^28]: See [[2 Nephi 31.19|2 Nephi 31:19]]; [[Alma 34.18|Alma 34:18]]; [[Moroni 10.32|Moroni 10:32]].
 
-[^29]: See “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* May 2017, inside front cover.
+[^29]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* May 2017, inside front cover.
 
+[^30]: See [[1 Nephi 1.14|1 Nephi 1:14]].
 
-#Adversity #Book_Of_Mormon #Trust
+#Adversity #BookOfMormon #Trust

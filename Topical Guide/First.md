@@ -1,7 +1,6 @@
 # First
 
-
-*See also* [[Beginning.md|Beginning]]; [[Creation, Create.md|Creation]]
+*See also* [[Beginning.md|Beginning]]; [[Creation.md|Creation]]
 
 evening and the morning were the *first* day, [[Genesis 1.5|Genesis 1:5]].
 
@@ -11,13 +10,13 @@ tables of stone like unto the *first*, [[Exodus 34.1|Exodus 34:1]] ([[Deuteronom
 
 He that is *first* in his own cause seemeth just, [[Proverbs 18.17|Proverbs 18:17]].
 
-I am the *first*, and I am the last, [[Isaiah 44.6|Isaiah 44:6]] ([[Isaiah 48.12|Isaiah 48:12]]; [[Revelation 1.11|Revelation 1:11]], [[Revelation 1.17|Revelation 1:17]]; [[Revelation 22.13|Revelation 22:13]]; [[1 Nephi 20.12|1 Nephi 20:12]]; [[D&C 110.4|D&C 110:4]]).
+I am the *first*, and I am the last, [[Isaiah 44.6|Isaiah 44:6]] ([[Isaiah 48.12|Isaiah 48:12]]; [[Revelation 1.11|Revelation 1:11]]; [[Revelation 1.17|Revelation 1:17]]; [[Revelation 22.13|Revelation 22:13]]; [[1 Nephi 20.12|1 Nephi 20:12]]; [[D&C 110.4|D&C 110:4]]).
 
 three presidents; of whom Daniel was *first*, [[Daniel 6.2|Daniel 6:2]].
 
 seek ye *first* the kingdom of God, [[Matthew 6.33|Matthew 6:33]] ([[3 Nephi 13.33|3 Nephi 13:33]]).
 
-last state ... is worse than the *first*, [[Matthew 12.45|Matthew 12:45]] ([[Luke 11.26|Luke 11:26]]).
+last state … is worse than the *first*, [[Matthew 12.45|Matthew 12:45]] ([[Luke 11.26|Luke 11:26]]).
 
 Elias must *first* come, [[Matthew 17.10|Matthew 17:10]] ([[Mark 9.11|Mark 9:11]]).
 
@@ -29,7 +28,7 @@ last shall be *first*, and the *first* last, [[Matthew 20.16|Matthew 20:16]] ([[
 
 last error shall be worse than the *first*, [[Matthew 27.64|Matthew 27:64]].
 
-*first* day of the week, [[Matthew 28.1|Matthew 28:1]] ([[Mark 16.2|Mark 16:2]]; [[Luke 24.1|Luke 24:1]]; [[John 20.1|John 20:1]], [[John 20.19|John 20:19]]; [[Acts 20.7|Acts 20:7]]; [[1 Corinthians 16.2|1 Corinthians 16:2]]).
+*first* day of the week, [[Matthew 28.1|Matthew 28:1]] ([[Mark 16.2|Mark 16:2]]; [[Luke 24.1|Luke 24:1]]; [[John 20.1|John 20:1]]; [[John 20.19|John 20:19]]; [[Acts 20.7|Acts 20:7]]; [[1 Corinthians 16.2|1 Corinthians 16:2]]).
 
 desire to be *first*, the same shall be last, [[Mark 9.35|Mark 9:35]].
 
@@ -37,9 +36,9 @@ without sin among you, let him *first* cast a stone, [[John 8.7|John 8:7]].
 
 disciples were called Christians *first* in Antioch, [[Acts 11.26|Acts 11:26]].
 
-Christ ... *first* that should rise from the dead, [[Acts 26.23|Acts 26:23]].
+Christ … *first* that should rise from the dead, [[Acts 26.23|Acts 26:23]].
 
-Jew *first*, and also to the Greek, [[Romans 1.16|Romans 1:16]] ([[Romans 2.9|2:9-10]][[Romans 2.10|]]).
+Jew *first*, and also to the Greek, [[Romans 1.16|Romans 1:16]].
 
 *first* man Adam was made a living soul, [[1 Corinthians 15.45|1 Corinthians 15:45]].
 
@@ -83,7 +82,7 @@ Adam, who was the *first* man, [[D&C 84.16|D&C 84:16]].
 
 come forth in the *first* resurrection, [[D&C 132.19|D&C 132:19]].
 
-*first* man ... I called Adam, [[Moses 1.34|Moses 1:34]] ([[Abraham 1.3|Abraham 1:3]]).
+*first* man … I called Adam, [[Moses 1.34|Moses 1:34]] ([[Abraham 1.3|Abraham 1:3]]).
 
 *first* of all women, [[Moses 4.26|Moses 4:26]].
 

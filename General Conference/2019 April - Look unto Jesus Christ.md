@@ -1,6 +1,6 @@
 # Look unto Jesus Christ
 
-By Elder Kim B. Clark - *Of the Seventy*
+By Elder Kim B. Clark - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -46,7 +46,7 @@ When the Lord calls the elders in Israel to “look unto me in every thought” 
 
 Brethren, if we look unto Jesus Christ, He will bless us to be *His* elders in Israel—humble, meek, submissive, full of His love.[^24] And we will bring the joy and blessings of His gospel and His Church to our families and our brothers and sisters on both sides of the veil.
 
-President Russell M. Nelson has called us to look unto Jesus Christ in just this way: “There is nothing easy or automatic about becoming such powerful disciples. Our focus must be riveted on the Savior and His gospel. It is mentally rigorous to strive to look unto Him in *every* thought. But when we do, our doubts and fears flee.”[^25]
+President Russell M. Nelson has called us to look unto Jesus Christ in just this way: “There is nothing easy or automatic about becoming such powerful disciples. Our focus must be riveted on the Savior and His gospel. It is mentally rigorous to strive to look unto Him in *every* thought. But when we do, our doubts and fears flee.”[^25]
 
 *Rivet* is a great word. It means to fasten firmly, to attract and hold completely.[^26] We rivet our focus on Jesus Christ and His gospel by living our covenants.
 
@@ -79,7 +79,7 @@ I close with this prayer from my heart, that all of us, every one, will look unt
 
 
 
-[^1]: James E. Talmage places Jesus in “the vicinity of Capernaum” when this healing occurred (see *Jesus the Christ* \[1916\], 313).
+[^1]: James E. Talmage places Jesus in “the vicinity of Capernaum” when this healing occurred (see *Jesus the Christ* \[1916\], 313).
 
 [^2]: See [[Luke 8.43|Luke 8:43–44]][[Luke 8.44|]]; see also [[Matthew 9.20|Matthew 9:20–21]][[Matthew 9.21|]]; [[Mark 5.25|Mark 5:25–29]][[Mark 5.26|]][[Mark 5.27|]][[Mark 5.28|]][[Mark 5.29|]].
 
@@ -95,13 +95,13 @@ I close with this prayer from my heart, that all of us, every one, will look unt
 
 [^8]: [[Luke 8.48|Luke 8:48]].
 
-[^9]: James E. Talmage wrote that of greater worth to the woman than the physical healing was the assurance that the Savior had granted the desire of her heart and that her faith was accepted of Him (see *Jesus the Christ,* 318). Jesus healed her physically and spiritually and opened to her the way to salvation.
+[^9]: James E. Talmage wrote that of greater worth to the woman than the physical healing was the assurance that the Savior had granted the desire of her heart and that her faith was accepted of Him (see *Jesus the Christ,* 318). Jesus healed her physically and spiritually and opened to her the way to salvation.
 
 [^10]: It is instructive that Jairus, a ruler of the synagogue, was with Jesus when this healing occurred. Jesus was on the way to the house of Jairus, where He would raise Jairus’s daughter from the dead. The woman that Jesus healed had likely been cast out of the synagogue because of her affliction. When Jesus healed her, He also made clear to all who were there, including Jairus, that she was a beloved daughter, a woman of faith, and whole in body and spirit.
 
-[^11]: See D. Todd Christofferson, “[[2018 April - The Elders Quorum.md|The Elders Quorum]]” (*Ensign* or *Liahona,* May 2018, 55–58) for a discussion of the adjustments to create one Melchizedek Priesthood quorum in a ward. The purpose of that change was described this way in the Frequently Asked Questions section of the Ministering website: “Having one Melchizedek Priesthood quorum in a ward unifies priesthood holders to accomplish all aspects of the work of salvation, including temple and family history work previously coordinated by the high priests group leader” (“[This Is Ministering: Frequently Asked Questions](https://www.lds.org/ministering/ministering-faq?lang=eng),” question 8, ministering.ChurchofJesusChrist.org).
+[^11]: See D. Todd Christofferson, “[[2018 April - The Elders Quorum.md|The Elders Quorum]]” (*Ensign* or *Liahona,* May 2018, 55–58) for a discussion of the adjustments to create one Melchizedek Priesthood quorum in a ward. The purpose of that change was described this way in the Frequently Asked Questions section of the Ministering website: “Having one Melchizedek Priesthood quorum in a ward unifies priesthood holders to accomplish all aspects of the work of salvation, including temple and family history work previously coordinated by the high priests group leader” (“[This Is Ministering: Frequently Asked Questions](https://www.lds.org/ministering/ministering-faq?lang=eng),” question 8, ministering.ChurchofJesusChrist.org).
 
-[^12]: See Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118–19; Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona,* Nov. 2018, 113–14; Quentin L. Cook, “[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2018, 8–12.
+[^12]: See Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118–19; Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona,* Nov. 2018, 113–14; Quentin L. Cook, “[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2018, 8–12.
 
 [^13]: The Father sent Jesus Christ into the world (see [[John 17.18|John 17:18]]).
 
@@ -113,7 +113,7 @@ I close with this prayer from my heart, that all of us, every one, will look unt
 
 [^17]: [[Moses 4.2|Moses 4:2]].
 
-[^18]: There are numerous references in the scriptures that record statements Jesus made about doing His Father’s work and teaching His Father’s doctrine. See, for example, [[John 5.19|John 5:19]] (Jesus does what He sees the Father do); [[John 5.36|John 5:36]] (the Father gave His Son work to do); [[John 8.26|John 8:26]] (Jesus taught what He had received from His Father); [[John 14.28|John 14:28]] (Jesus declared, “My Father is greater than I”); [[3 Nephi 11.32|3 Nephi 11:32]] (His doctrine is the doctrine His Father gave Him).
+[^18]: There are numerous references in the scriptures that record statements Jesus made about doing His Father’s work and teaching His Father’s doctrine. See, for example, [[John 5.19|John 5:19]] (Jesus does what He sees the Father do); [[John 5.36|John 5:36]] (the Father gave His Son work to do); [[John 8.26|John 8:26]] (Jesus taught what He had received from His Father); [[John 14.28|John 14:28]] (Jesus declared, “My Father is greater than I”); [[3 Nephi 11.32|3 Nephi 11:32]] (His doctrine is the doctrine His Father gave Him).
 
 [^19]: [[John 14.31|John 14:31]].
 
@@ -127,34 +127,32 @@ I close with this prayer from my heart, that all of us, every one, will look unt
 
 [^24]: See [[D&C 121.41|Doctrine and Covenants 121:41–42]][[D&C 121.42|]]. The Christlike attributes mentioned in the scripture are gifts of the Spirit that come through the mercy and grace of Jesus Christ. They are what make the elders in Israel *His* elders.
 
-[^25]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona,* May 2017, 41.
+[^25]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona,* May 2017, 41.
 
 [^26]: See merriam-webster.com, “rivet.”
 
-[^27]: For a discussion of the concept of a covenant life, see Donald L. Hallstrom, “[Living a Covenant Life](https://churchofjesuschrist.org/study/ensign/2013/06/living-a-covenant-life?lang=eng),” *Ensign,* June 2013, 46–49. This article was adapted from a longer talk given at Brigham Young University–Idaho in May 2011. For the longer version, see Donald L. Hallstrom, “[A Covenant Life](http://www.byui.edu/devotionals/elder-donald-l-hallstrom)” (Brigham Young University–Idaho devotional, May 10, 2011), byui.edu.
+[^27]: For a discussion of the concept of a covenant life, see Donald L. Hallstrom, “[Living a Covenant Life](https://www.churchofjesuschrist.org/study/ensign/2013/06/living-a-covenant-life?lang=eng),” *Ensign,* June 2013, 46–49. This article was adapted from a longer talk given at Brigham Young University–Idaho in May 2011. For the longer version, see Donald L. Hallstrom, “[A Covenant Life](https://www.byui.edu/devotionals/elder-donald-l-hallstrom)” (Brigham Young University–Idaho devotional, May 10, 2011), byui.edu.
 
-[^28]: See [[Jeremiah 31.31|Jeremiah 31:31–33]][[Jeremiah 31.32|]][[Jeremiah 31.33|]], where the Lord declares that He will make a new covenant with the house of Israel written in their hearts. This image of covenants written in our hearts, or covenants that come alive in our hearts, is also found in the writings of Paul (see [[2 Corinthians 3.3|2 Corinthians 3:3]]; [[Hebrews 8.10|Hebrews 8:10]]). For a discussion of conversion and the heart, see David A. Bednar, “[[2012 October - Converted unto the Lord.md|Converted unto the Lord]],” *Ensign* or *Liahona,* Nov. 2012, 106–9.
+[^28]: See [[Jeremiah 31.31|Jeremiah 31:31–33]][[Jeremiah 31.32|]][[Jeremiah 31.33|]], where the Lord declares that He will make a new covenant with the house of Israel written in their hearts. This image of covenants written in our hearts, or covenants that come alive in our hearts, is also found in the writings of Paul (see [[2 Corinthians 3.3|2 Corinthians 3:3]]; [[Hebrews 8.10|Hebrews 8:10]]). For a discussion of conversion and the heart, see David A. Bednar, “[[2012 October - Converted unto the Lord.md|Converted unto the Lord]],” *Ensign* or *Liahona,* Nov. 2012, 106–9.
 
 [^29]: The sacramental prayer on the bread expresses beautifully the nature of our covenant relationship with our Heavenly Father. In the Father’s plan of salvation, we make covenants with our Heavenly Father, but the purposes of the covenants are realized and we qualify for the blessings promised through the Lord Jesus Christ; He is the Mediator. In the sacramental ordinance, we witness to the Father (in effect, making a covenant with Him anew) that we are willing to take upon ourselves the name of Jesus Christ, always remember Him, and keep His commandments, that we might always have His Spirit (the Holy Ghost) to be with us.
 
-[^30]: President Ezra Taft Benson captured the impact of this change in attitude and orientation when he said, “When obedience ceases to be an irritant and becomes our quest, in that moment God will endow us with power” (in Donald L. Staheli, “[[1998 April - Obedience—Life’s Great Challenge.md|Obedience—Life’s Great Challenge]],” *Ensign,* May 1998, 82).
+[^30]: President Ezra Taft Benson captured the impact of this change in attitude and orientation when he said, “When obedience ceases to be an irritant and becomes our quest, in that moment God will endow us with power” (in Donald L. Staheli, “[[1998 April - Obedience—Life’s Great Challenge.md|Obedience—Life’s Great Challenge]],” *Ensign,* May 1998, 82).
 
 [^31]: [[John 16.32|John 16:32]].
 
-[^32]: For additional discussion of the fact of the Father’s and the Son’s concern for, interest in, love for, and involvement in our lives, see Jeffrey R. Holland, “[[2003 October - The Grandeur of God.md|The Grandeur of God]],” *Ensign* or *Liahona,* Nov. 2003, 70–73; Henry B. Eyring, “[[2017 April - “Walk with Me”.md|Walk with Me]],” *Ensign* or *Liahona,* May 2017, 82–85. See also [[Matthew 18.20|Matthew 18:20]]; [[Matthew 28.20|28:20]]; [[D&C 6.32|Doctrine and Covenants 6:32]]; [[D&C 29.5|29:5]]; [[D&C 38.7|38:7]]; [[D&C 61.36|61:36]]; [[D&C 84.88|84:88]].
+[^32]: For additional discussion of the fact of the Father’s and the Son’s concern for, interest in, love for, and involvement in our lives, see Jeffrey R. Holland, “[[2003 October - The Grandeur of God.md|The Grandeur of God]],” *Ensign* or *Liahona,* Nov. 2003, 70–73; Henry B. Eyring, “[[2017 April - “Walk with Me”.md|Walk with Me]],” *Ensign* or *Liahona,* May 2017, 82–85. See also [[Matthew 18.20|Matthew 18:20]]; [[Matthew 28.20|28:20]]; [[D&C 6.32|Doctrine and Covenants 6:32]]; [[D&C 29.5|29:5]]; [[D&C 38.7|38:7]]; [[D&C 61.36|61:36]]; [[D&C 84.88|84:88]].
 
-[^33]: See [[Romans 8.35|Romans 8:35–39]][[Romans 8.36|]][[Romans 8.37|]][[Romans 8.38|]][[Romans 8.39|]]; [[1 Corinthians 13.1|1 Corinthians 13:1–8]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]]; [[Moroni 7.46|Moroni 7:46–47]][[Moroni 7.47|]].
+[^33]: See [[Romans 8.35|Romans 8:35–39]][[Romans 8.36|]][[Romans 8.37|]][[Romans 8.38|]][[Romans 8.39|]]; [[1 Corinthians 13.1|1 Corinthians 13:1–8]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]]; [[Moroni 7.46|Moroni 7:46–47]][[Moroni 7.47|]].
 
 [^34]: [[D&C 50.27|Doctrine and Covenants 50:27]]. Note that the Lord gives to each who is ordained and sent forth this promise that pertains to, and is circumscribed by, the specific assignment given him:
 
-[^35]: See [[1 Samuel 16.7|1 Samuel 16:7]]; [[1 Corinthians 2.14|1 Corinthians 2:14]]. For an example of this blessing of seeing as Jesus does, see President Henry B. Eyring’s account of his experience as the bishop of a young man who had committed a crime. The Lord said to then-Bishop Eyring, “I’m going to let you see him as I see him” (“[[2017 April - “Walk with Me”.md|Walk with Me]],” 84).
+[^35]: See [[1 Samuel 16.7|1 Samuel 16:7]]; [[1 Corinthians 2.14|1 Corinthians 2:14]]. For an example of this blessing of seeing as Jesus does, see President Henry B. Eyring’s account of his experience as the bishop of a young man who had committed a crime. The Lord said to then-Bishop Eyring, “I’m going to let you see him as I see him” (“[[2017 April - “Walk with Me”.md|Walk with Me]],” 84).
 
-[^36]: This is the promise and the charge the Savior gave the people at the temple at Bountiful. He commanded them to so live that His light and His example would be in them, so that they could hold Him up as the light to the world in their lives and in their invitations to others to come unto Him. As His followers so lived and so invited, others would feel Him and see Him in the Lord’s servants. (See [[3 Nephi 18.24|3 Nephi 18:24–25]][[3 Nephi 18.25|]].)
+[^36]: This is the promise and the charge the Savior gave the people at the temple at Bountiful. He commanded them to so live that His light and His example would be in them, so that they could hold Him up as the light to the world in their lives and in their invitations to others to come unto Him. As His followers so lived and so invited, others would feel Him and see Him in the Lord’s servants. (See [[3 Nephi 18.24|3 Nephi 18:24–25]][[3 Nephi 18.25|]].)
 
-[^37]: See Russell M. Nelson, “[[2016 April - The Price of Priesthood Power.md|The Price of Priesthood Power]],” *Ensign* or *Liahona,* May 2016, 68.
+[^37]: See Russell M. Nelson, “[[2016 April - The Price of Priesthood Power.md|The Price of Priesthood Power]],” *Ensign* or *Liahona,* May 2016, 68.
 
 [^38]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-
-
-#Covenants #God_The_Father #Jesus_Christ #Ministering #Priesthood
+#Covenants #GodTheFather #JesusChrist #Ministering #Priesthood

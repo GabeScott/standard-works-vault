@@ -1,6 +1,5 @@
 # Prophetess
 
-
 Miriam the *prophetess*, [[Exodus 15.20|Exodus 15:20]].
 
 Deborah, a *prophetess*, [[Judges 4.4|Judges 4:4]].
@@ -12,5 +11,3 @@ I went unto the *prophetess*; and she conceived, and bare a son, [[Isaiah 8.3|Is
 Anna, a *prophetess*, [[Luke 2.36|Luke 2:36]].
 
 Jezebel, which calleth herself a *prophetess*, [[Revelation 2.20|Revelation 2:20]].
-
-*See also* [[Nehemiah 6.14|Nehemiah 6:14]]; [[Acts 21.9|Acts 21:9]].

@@ -1,7 +1,6 @@
 # Peace
 
-
-*See also* [[Comfort.md|Comfort]]; [[Contentment.md|Contentment]]; [[Order.md|Order]]; [[Peacemakers.md|Peacemakers]]; [[Peace of God.md|Peace of God]]; [[Silence, Silent.md|Silence]]
+*See also* [[Comfort.md|Comfort]]; [[Contentment.md|Contentment]]; [[Order.md|Order]]; [[Peacemakers.md|Peacemakers]]; [[Peace of God.md|Peace of God]]; [[Silence.md|Silence]]
 
 speak *peace* to their neighbours, [[Psalms 28.3|Psalms 28:3]].
 
@@ -9,7 +8,7 @@ Lord will bless his people with *peace*, [[Psalms 29.11|Psalms 29:11]].
 
 do good; seek *peace*, [[Psalms 34.14|Psalms 34:14]].
 
-perfect man ... end of that man is *peace*, [[Psalms 37.37|Psalms 37:37]].
+perfect man … end of that man is *peace*, [[Psalms 37.37|Psalms 37:37]].
 
 He maketh *wars* to cease, [[Psalms 46.9|Psalms 46:9]].
 
@@ -27,11 +26,11 @@ everlasting Father, The Prince of *Peace*, [[Isaiah 9.6|Isaiah 9:6]] ([[2 Nephi 
 
 work of righteousness shall be *peace*, [[Isaiah 32.17|Isaiah 32:17]].
 
-There is no *peace* ... unto the wicked, [[Isaiah 48.22|Isaiah 48:22]] ([[Isaiah 57.21|Isaiah 57:21]]; [[1 Nephi 20.22|1 Nephi 20:22]]).
+There is no *peace* … unto the wicked, [[Isaiah 48.22|Isaiah 48:22]] ([[Isaiah 57.21|Isaiah 57:21]]; [[1 Nephi 20.22|1 Nephi 20:22]]).
 
-saying, *Peace*, *peace*; when there is no *peace*, [[Jeremiah 6.14|Jeremiah 6:14]] ([[Jeremiah 8.11|Jeremiah 8:11]]; [[Ezekiel 13.10|Ezekiel 13:10]], [[Ezekiel 13.16|Ezekiel 13:16]]).
+saying, *Peace*, *peace*; when there is no *peace*, [[Jeremiah 6.14|Jeremiah 6:14]] ([[Jeremiah 8.11|Jeremiah 8:11]]; [[Ezekiel 13.10|Ezekiel 13:10]]; [[Ezekiel 13.16|Ezekiel 13:16]]).
 
-prophets ... that bite with their teeth, and cry, *Peace*, [[Micah 3.5|Micah 3:5]].
+prophets … that bite with their teeth, and cry, *Peace*, [[Micah 3.5|Micah 3:5]].
 
 in this place will I give *peace*, [[Haggai 2.9|Haggai 2:9]].
 
@@ -67,25 +66,25 @@ follow righteousness, faith, charity, *peace*, [[2 Timothy 2.22|2 Timothy 2:22]]
 
 yieldeth the *peaceable* fruit of righteousness, [[Hebrews 12.11|Hebrews 12:11]].
 
-power was given to him ... to take *peace*, [[Revelation 6.4|Revelation 6:4]].
+power was given to him … to take *peace*, [[Revelation 6.4|Revelation 6:4]].
 
 whoso shall publish *peace*, [[1 Nephi 13.37|1 Nephi 13:37]].
 
 had thy *peace* been as a river, [[1 Nephi 20.18|1 Nephi 20:18]].
 
-that which shall be written ... establishing *peace* among the fruit of thy loins, [[2 Nephi 3.12|2 Nephi 3:12]].
+that which shall be written … establishing *peace* among the fruit of thy loins, [[2 Nephi 3.12|2 Nephi 3:12]].
 
-why should I give way to temptations, that the evil one ... destroy my *peace*, [[2 Nephi 4.27|2 Nephi 4:27]].
+why should I give way to temptations, that the evil one … destroy my *peace*, [[2 Nephi 4.27|2 Nephi 4:27]].
 
 have *peace* with him, until three generations, [[2 Nephi 26.9|2 Nephi 26:9]].
 
-by laboring ... did once more establish *peace*, [[Words of Mormon 1.18|Words of Mormon 1:18]] ([[Mosiah 29.14|Mosiah 29:14]]; [[4 Nephi 1.4|4 Nephi 1:4]]).
+by laboring … did once more establish *peace*, [[Words of Mormon 1.18|Words of Mormon 1:18]] ([[Mosiah 29.14|Mosiah 29:14]]; [[4 Nephi 1.4|4 Nephi 1:4]]).
 
 having *peace* of conscience, [[Mosiah 4.3|Mosiah 4:3]].
 
 not have a mind to injure one another, but to live *peaceably*, [[Mosiah 4.13|Mosiah 4:13]].
 
-founder of *peace* ... the Lord, [[Mosiah 15.18|Mosiah 15:18]].
+founder of *peace* … the Lord, [[Mosiah 15.18|Mosiah 15:18]].
 
 let no pride nor haughtiness disturb their *peace*, [[Mosiah 27.4|Mosiah 27:4]].
 
@@ -95,7 +94,7 @@ buried the weapons of war, for *peace*, [[Alma 24.19|Alma 24:19]].
 
 deliver up your weapons of war and depart with a covenant of *peace*, [[Alma 44.14|Alma 44:14]].
 
-In memory of our God ... and our *peace*, [[Alma 46.12|Alma 46:12]].
+In memory of our God … and our *peace*, [[Alma 46.12|Alma 46:12]].
 
 no contention in the land, because of the *love* of God, [[4 Nephi 1.15|4 Nephi 1:15]].
 
@@ -107,7 +106,7 @@ New Jerusalem, a land of *peace*, [[D&C 45.66|D&C 45:66]].
 
 *peace* in this world, and eternal life in the world to come, [[D&C 59.23|D&C 59:23]].
 
-charity ... which is the bond of perfectness and *peace*, [[D&C 88.125|D&C 88:125]].
+charity … which is the bond of perfectness and *peace*, [[D&C 88.125|D&C 88:125]].
 
 renounce war and proclaim *peace*, [[D&C 98.16|D&C 98:16]].
 
@@ -116,5 +115,3 @@ lift a standard of *peace*, [[D&C 98.34|D&C 98:34]] ([[D&C 105.39|D&C 105:39]]).
 no government can exist in *peace*, except, [[D&C 134.2|D&C 134:2]].
 
 for the public *peace* and tranquility all men, [[D&C 134.8|D&C 134:8]].
-
-*See also* [[Isaiah 11.1|Isa. 11:1-9]][[Isaiah 11.2|]][[Isaiah 11.3|]][[Isaiah 11.4|]][[Isaiah 11.5|]][[Isaiah 11.6|]][[Isaiah 11.7|]][[Isaiah 11.8|]][[Isaiah 11.9|]]; [[Isaiah 65.25|Isaiah 65:25]]; [[Hosea 2.18|Hosea 2:18]]; [[D&C 101.26|D&C 101:26]].

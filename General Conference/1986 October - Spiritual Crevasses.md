@@ -38,7 +38,7 @@ He wasted $18,000 buying “crack,” lost his job, underwent a personality chan
 
 His mind is seriously affected. He is still somewhat dependent on some drugs. The hope and prayer of his family is that he will be able to hold on to the lifeline.
 
-When Satan was cast down to earth with his innumerable hosts, he became “the father of all lies, to deceive and to blind men, and to lead them captive … , even as many as would not hearken unto my voice” ([[Moses 4.4|Moses 4:4]]).
+When Satan was cast down to earth with his innumerable hosts, he became “the father of all lies, to deceive and to blind men, and to lead them captive … , even as many as would not hearken unto my voice” ([[Moses 4.4|Moses 4:4]]).
 
 One of Satan’s methods is to distract and entice us so that we will take our eyes off the dangerous crevasses. He has succeeded to such an extent that many no longer recognize sin as sin. Movies, television, and magazines have glorified sin into what they think is an acceptable life-style: “\[fornication\], adultery, incest, … serial marriages, drug abuse, violence and double-dealing of every imaginable variety, \[that is\] often portrayed as \[normal\] behavior; where people who do good are not … rewarded and those who do evil are not punished.” So stated a *Los Angeles Times* writer (Mark I. Pinsky, “Why Don’t Moral Crusaders Get into a Lather about Sleazy Soaps?” *Salt Lake Tribune,* 9 Aug. 1986, p. C7).
 
@@ -54,13 +54,13 @@ Everyone is *not* doing it. You don’t! And you influence your friends. And oth
 
 Young men, you are a royal brotherhood—not because you’re better than anyone else—but because the Lord has blessed you with special privileges and responsibilities.
 
-You were foreordained to come to earth at a time when the fulness of the gospel was on the earth. You were foreordained to receive his priesthood. The Prophet Joseph Smith said, “Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Company, 1977, p. 365).
+You were foreordained to come to earth at a time when the fulness of the gospel was on the earth. You were foreordained to receive his priesthood. The Prophet Joseph Smith said, “Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Company, 1977, p. 365).
 
 You are the Lord’s special resource for teaching the gospel to all his other children. You are different from other teenagers who have neither your understanding nor your responsibilities.
 
 You are one of his spirit sons, singled out with a special calling. And we know that he loves you. You have the gift of the Holy Ghost. You can discern good from evil. And with the power of the priesthood, you have the authority to represent your Heavenly Father.
 
-Now, my brethren, let us who have been given this most precious responsibility of the holy priesthood “arise,” as father Lehi declared, and “put on the armor of righteousness” ([[2 Nephi 21.1|2 Ne. 21–23]][[2 Nephi 21.2|]][[2 Nephi 21.3|]][[2 Nephi 21.4|]][[2 Nephi 21.5|]][[2 Nephi 21.6|]][[2 Nephi 21.7|]][[2 Nephi 21.8|]][[2 Nephi 21.9|]][[2 Nephi 21.10|]][[2 Nephi 21.11|]][[2 Nephi 21.12|]][[2 Nephi 21.13|]][[2 Nephi 21.14|]][[2 Nephi 21.15|]][[2 Nephi 21.16|]]).
+Now, my brethren, let us who have been given this most precious responsibility of the holy priesthood “arise,” as father Lehi declared, and “put on the armor of righteousness” ([[2 Nephi 21.1|2 Ne. 21–23]][[2 Nephi 21.2|]][[2 Nephi 21.3|]][[2 Nephi 21.4|]][[2 Nephi 21.5|]][[2 Nephi 21.6|]][[2 Nephi 21.7|]][[2 Nephi 21.8|]][[2 Nephi 21.9|]][[2 Nephi 21.10|]][[2 Nephi 21.11|]][[2 Nephi 21.12|]][[2 Nephi 21.13|]][[2 Nephi 21.14|]][[2 Nephi 21.15|]][[2 Nephi 21.16|]]).
 
 To help each of us avoid the pitfalls and crevasses in life, the Lord has provided the lifeline of the precious truths in the scriptures, which, if held on to, will allow us to escape both physical and spiritual danger.
 
@@ -68,11 +68,11 @@ The Word of Wisdom was given so that we might have clear minds and healthy bodie
 
 I urge each of you to develop a personal companionship with the scriptures.
 
-President Spencer W. Kimball read the Bible when he was fourteen years old—all 66 books and 1,519 pages. “If I could do it by coal-oil light,” he said, “you can do it by electric light” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, p. 131).
+President Spencer W. Kimball read the Bible when he was fourteen years old—all 66 books and 1,519 pages. “If I could do it by coal-oil light,” he said, “you can do it by electric light” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, p. 131).
 
 President Kimball was a very special teacher for all of us. He didn’t have a car or a bicycle, but he did have nine cows to milk every morning and night.
 
-He said, “I thought, ‘What a waste of time, to sit on a three-legged stool. Maybe there is something else I could do while I am milking.’” He placed a copy of the Articles of Faith on the ground beside him and went through them, over and over, until he had memorized them. Then he repeated the Ten Commandments over and over until he learned them. He memorized important scriptures that would help him on his mission—all while he milked the cows. He didn’t have time to waste; he had things to do with his life (see *The Teachings of Spencer W. Kimball,* p. 131).
+He said, “I thought, ‘What a waste of time, to sit on a three-legged stool. Maybe there is something else I could do while I am milking.’” He placed a copy of the Articles of Faith on the ground beside him and went through them, over and over, until he had memorized them. Then he repeated the Ten Commandments over and over until he learned them. He memorized important scriptures that would help him on his mission—all while he milked the cows. He didn’t have time to waste; he had things to do with his life (see *The Teachings of Spencer W. Kimball,* p. 131).
 
 It would be a wonderful thing for you young men to use your time wisely by learning of God’s ways.
 
@@ -99,6 +99,4 @@ May the Lord bless each of you with your life’s opportunities. Put your trust 
 
 
 
-
-
-#Adversity #Priesthood #Satan #Word_Of_Wisdom #Youth
+#Adversity #Priesthood #Satan #WordOfWisdom #Youth

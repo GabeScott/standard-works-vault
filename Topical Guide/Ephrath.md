@@ -1,4 +1,3 @@
 # Ephrath
 
-
-*See* [BD Ephrath](https://www.churchofjesuschrist.org/study/scriptures/bd/ephrath?lang=eng)
+*See also* [[BD Ephrath.md|BD Ephrath]]

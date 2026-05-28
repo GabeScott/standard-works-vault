@@ -1,6 +1,6 @@
 # “Behold I Am the Light Which Ye Shall Hold Up”
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 To the many testimonies at this conference, I add my apostolic witness that Jesus Christ is the Son of God, our Lord and Savior, the Redeemer of all of our Father’s children. By His Atonement, Jesus Christ made it possible for us, if we are worthy, to return to the presence of our Father in Heaven and be with our families for eternity.
 
-The Savior is not absent from our mortal journeys. For the past two days we have heard Him speak through His chosen leaders that we might draw closer to Him.[^1] Time and again, with His pure love and mercy, He sustains us as we face the drama of life. Nephi describes: “My God hath been my support; he hath led me through mine afflictions. … He hath filled me with his love.”[^2]
+The Savior is not absent from our mortal journeys. For the past two days we have heard Him speak through His chosen leaders that we might draw closer to Him.[^1] Time and again, with His pure love and mercy, He sustains us as we face the drama of life. Nephi describes: “My God hath been my support; he hath led me through mine afflictions. … He hath filled me with his love.”[^2]
 
 That love is evident when we sustain one another in His work.
 
@@ -22,13 +22,13 @@ The concept to *hold up* is rooted in scripture. At the Waters of Mormon, the ne
 
 To the Nephites, Jesus said: “*Hold up* your light that it may shine unto the world. *Behold I am the light which ye shall hold up*.”[^6] We *hold up* the Lord’s light when we hold fast to our covenants and when we support our living prophet as he speaks the words of God.
 
-President Russell M. Nelson said, when serving in the Quorum of the Twelve Apostles, “Our sustaining of prophets is a personal commitment that we will do our utmost to uphold their prophetic priorities.”[^7]
+President Russell M. Nelson said, when serving in the Quorum of the Twelve Apostles, “Our sustaining of prophets is a personal commitment that we will do our utmost to uphold their prophetic priorities.”[^7]
 
 To *hold up* the prophet is a sacred work. We do not sit quietly by but actively defend him, follow his counsel, teach his words, and pray for him.
 
 King Benjamin, in the Book of Mormon, said to the people, “I am like as yourselves, subject to all manner of infirmities in body and mind; yet I have been chosen … and was suffered by the hand of the Lord … and have been kept and preserved by his matchless power, to serve you with all the might, mind and strength which the Lord hath granted unto me.”[^8]
 
-Likewise, at age 100, President Nelson has been kept and preserved by the Lord. President Harold B. Lee, at the time a member of the First Presidency, cited the example of Moses standing atop the hill at Rephidim. “The hands of \[the President of the Church\] may grow weary,” he said. “They may tend to droop at times because of his heavy responsibilities; but as we uphold his hands, and as we lead under his direction, by his side, the gates of hell will not prevail against you and against Israel.[^9] Your safety and ours depends upon whether or not we follow the ones whom the Lord has placed to preside over his church. He knows whom he wants to preside over this church, and he will make no mistake.”[^10]
+Likewise, at age 100, President Nelson has been kept and preserved by the Lord. President Harold B. Lee, at the time a member of the First Presidency, cited the example of Moses standing atop the hill at Rephidim. “The hands of \[the President of the Church\] may grow weary,” he said. “They may tend to droop at times because of his heavy responsibilities; but as we uphold his hands, and as we lead under his direction, by his side, the gates of hell will not prevail against you and against Israel.[^9] Your safety and ours depends upon whether or not we follow the ones whom the Lord has placed to preside over his church. He knows whom he wants to preside over this church, and he will make no mistake.”[^10]
 
 President Nelson draws upon years of serving the Lord. His maturity, wide-ranging experience, wisdom, and consistent receipt of revelation is specifically suited for our day.[^11] He has said: “The Church of Jesus Christ of Latter-day Saints is preparing the world for the day when ‘the earth shall be full of the knowledge of the Lord’ ([[Isaiah 11.9|Isaiah 11:9]]). … This work is empowered by a divine announcement made 200 years ago. It consisted of only seven words: ‘This is My Beloved Son. Hear Him!’ (see [[Joseph Smith History 1.17|Joseph Smith—History 1:17]]).”[^12]
 
@@ -77,31 +77,31 @@ I bear my apostolic witness that Jesus Christ is “the light … of the world.�
 
 [^1]: See [[D&C 1.38|Doctrine and Covenants 1:38]].
 
-[^2]: [[2 Nephi 4.20|2 Nephi 4:20–21]][[2 Nephi 4.21|]].
+[^2]: [[2 Nephi 4.20|2 Nephi 4:20–21]][[2 Nephi 4.21|]].
 
-[^3]: See Ronald A. Rasband, “[[2024 April - Words Matter.md|Words Matter]],” *Liahona*, May 2024, 70–76.
+[^3]: See Ronald A. Rasband, “[[2024 April - Words Matter.md|Words Matter]],” *Liahona*, May 2024, 70–76.
 
 [^4]: [[D&C 81.5|Doctrine and Covenants 81:5]].
 
 [^5]: [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
 
-[^6]: [[3 Nephi 18.24|3 Nephi 18:24]]; emphasis added.
+[^6]: [[3 Nephi 18.24|3 Nephi 18:24]]; emphasis added.
 
-[^7]: Russell M. Nelson, “[Sustaining the Prophets](https://churchofjesuschrist.org/study/general-conference/2014/10/sustaining-the-prophets?lang=eng&id=p12#p12),” *Ensign* or *Liahona*, Nov. 2014, 75.
+[^7]: Russell M. Nelson, “[[2014 October - Sustaining the Prophets.md|Sustaining the Prophets]],” *Ensign* or *Liahona*, Nov. 2014, 75.
 
 [^8]: [[Mosiah 2.11|Mosiah 2:11]].
 
 [^9]: See [[D&C 21.6|Doctrine and Covenants 21:6]]; [[D&C 81.5|81:5]].
 
-[^10]: Harold B. Lee, in Conference Report, Oct. 1970, 153.
+[^10]: Harold B. Lee, in Conference Report, Oct. 1970, 153.
 
-[^11]: In “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p8#p8),” it states: “We gladly declare that the promised Restoration goes forward through continuing revelation. The earth will never again be the same, as God will ‘gather together in one all things in Christ’ ([[Ephesians 1.10|Ephesians 1:10]]).”
+[^11]: In “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p8#p8),” it states: “We gladly declare that the promised Restoration goes forward through continuing revelation. The earth will never again be the same, as God will ‘gather together in one all things in Christ’ ([[Ephesians 1.10|Ephesians 1:10]]).”
 
-[^12]: Russell M. Nelson, “[The Future of the Church: Preparing the World for the Savior’s Second Coming](https://churchofjesuschrist.org/study/liahona/2020/04/the-future-of-the-church-preparing-the-world-for-the-saviors-second-coming?lang=eng&id=kicker1,p2#kicker1),” *Ensign*, Apr. 2020, 12–13; or *Liahona*, Apr. 2020, 6–7.
+[^12]: Russell M. Nelson, “[The Future of the Church: Preparing the World for the Savior’s Second Coming](https://www.churchofjesuschrist.org/study/liahona/2020/04/the-future-of-the-church-preparing-the-world-for-the-saviors-second-coming?lang=eng&id=kicker1,p2#kicker1),” *Ensign*, Apr. 2020, 12–13; or *Liahona*, Apr. 2020, 6–7.
 
-[^13]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6.
+[^13]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6.
 
-[^14]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 99.
+[^14]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 99.
 
 [^15]: “[Dedicatory Prayer, Manti Utah Temple, 21 April 2024](https://www.churchofjesuschrist.org/temples/dedicatory-prayer/manti-utah-temple/2024-04-21?lang=eng),” ChurchofJesusChrist.org.
 
@@ -109,28 +109,26 @@ I bear my apostolic witness that Jesus Christ is “the light … of the world.�
 
 [^17]: Before the dedication of the Manti Utah Temple in 1888, two other temples in Utah had already been dedicated: the St. George Utah Temple in 1877 and the Logan Utah Temple in 1884. The first temple of the Restoration was built in Kirtland, Ohio, and dedicated in 1836. Great spiritual manifestations accompanied the services, and priesthood keys were restored by Moses, Elias, and Elijah so that temple work and the gathering of Israel could begin in earnest.
 
-[^18]: Russell M. Nelson, in “[President Nelson Rededicates Manti Utah Temple](https://newsroom.churchofjesuschrist.org/article/manti-utah-temple-rededication-2024),” Apr. 21, 2024, newsroom.ChurchofJesusChrist.org.
+[^18]: Russell M. Nelson, in “[President Nelson Rededicates Manti Utah Temple](https://newsroom.churchofjesuschrist.org/article/manti-utah-temple-rededication-2024),” Apr. 21, 2024, newsroom.ChurchofJesusChrist.org.
 
-[^19]: See Scott Taylor, “A By-the-Numbers Look at the 168 Temples Announced by President Nelson,” *Church News*, Apr. 14, 2024, thechurchnews.com.
+[^19]: See Scott Taylor, “A By-the-Numbers Look at the 168 Temples Announced by President Nelson,” *Church News*, Apr. 14, 2024, thechurchnews.com.
 
-[^20]: Russell M. Nelson, “[The Future of the Church](https://churchofjesuschrist.org/study/liahona/2020/04/the-future-of-the-church-preparing-the-world-for-the-saviors-second-coming?lang=eng&id=p9#p9),” 8–9.
+[^20]: Russell M. Nelson, “[The Future of the Church](https://www.churchofjesuschrist.org/study/liahona/2020/04/the-future-of-the-church-preparing-the-world-for-the-saviors-second-coming?lang=eng&id=p9#p9),” 8–9.
 
-[^21]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94.
+[^21]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94.
 
-[^22]: Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 121.
+[^22]: Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 121.
 
-[^23]: Russell M. Nelson, “[[1996 October - The Atonement.md|The Atonement]],” *Ensign*, Nov. 1996, 35.
+[^23]: Russell M. Nelson, “[[1996 October - The Atonement.md|The Atonement]],” *Ensign*, Nov. 1996, 35.
 
 [^24]: [[Luke 22.42|Luke 22:42–43]][[Luke 22.43|]].
 
-[^25]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” 96.
+[^25]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” 96.
 
-[^26]: [[3 Nephi 18.24|3 Nephi 18:24]].
+[^26]: [[3 Nephi 18.24|3 Nephi 18:24]].
 
-[^27]: [[3 Nephi 11.11|3 Nephi 11:11]].
+[^27]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
-[^28]: [[3 Nephi 11.11|3 Nephi 11:11]].
+[^28]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
-
-
-#Jesus_Christ #Prophets #Sustaining #Temples
+#JesusChrist #Prophets #Sustaining #Temples

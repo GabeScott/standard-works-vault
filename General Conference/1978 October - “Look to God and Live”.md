@@ -1,6 +1,6 @@
 # “Look to God and Live”
 
-By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
+By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -54,7 +54,7 @@ I encouraged the young man to look to God through the scriptures. I requested th
 
 ## Words of Christ—a Compass
 
-In the Book of Mormon we read of a people who had an instrument called a ball or director. This compass-like instrument was prepared by the Lord and worked according to the people’s faith in God. When they were righteous and exercised faith, the spindles would point the way they should go. When their faith or diligence in keeping the commandments was lacking, the instrument would not work. (See [[1 Nephi 16.1|1 Ne. 16]][[1 Nephi 16.2|]][[1 Nephi 16.3|]][[1 Nephi 16.4|]][[1 Nephi 16.5|]][[1 Nephi 16.6|]][[1 Nephi 16.7|]][[1 Nephi 16.8|]][[1 Nephi 16.9|]][[1 Nephi 16.10|]][[1 Nephi 16.11|]][[1 Nephi 16.12|]][[1 Nephi 16.13|]][[1 Nephi 16.14|]][[1 Nephi 16.15|]][[1 Nephi 16.16|]][[1 Nephi 16.17|]][[1 Nephi 16.18|]][[1 Nephi 16.19|]][[1 Nephi 16.20|]][[1 Nephi 16.21|]][[1 Nephi 16.22|]][[1 Nephi 16.23|]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]][[1 Nephi 16.32|]][[1 Nephi 16.33|]][[1 Nephi 16.34|]][[1 Nephi 16.35|]][[1 Nephi 16.36|]][[1 Nephi 16.37|]][[1 Nephi 16.38|]][[1 Nephi 16.39|]]; [[1 Nephi 18.12|18:12]].)
+In the Book of Mormon we read of a people who had an instrument called a ball or director. This compass-like instrument was prepared by the Lord and worked according to the people’s faith in God. When they were righteous and exercised faith, the spindles would point the way they should go. When their faith or diligence in keeping the commandments was lacking, the instrument would not work. (See [[1 Nephi 16.1|1 Ne. 16]][[1 Nephi 16.2|]][[1 Nephi 16.3|]][[1 Nephi 16.4|]][[1 Nephi 16.5|]][[1 Nephi 16.6|]][[1 Nephi 16.7|]][[1 Nephi 16.8|]][[1 Nephi 16.9|]][[1 Nephi 16.10|]][[1 Nephi 16.11|]][[1 Nephi 16.12|]][[1 Nephi 16.13|]][[1 Nephi 16.14|]][[1 Nephi 16.15|]][[1 Nephi 16.16|]][[1 Nephi 16.17|]][[1 Nephi 16.18|]][[1 Nephi 16.19|]][[1 Nephi 16.20|]][[1 Nephi 16.21|]][[1 Nephi 16.22|]][[1 Nephi 16.23|]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]][[1 Nephi 16.32|]][[1 Nephi 16.33|]][[1 Nephi 16.34|]][[1 Nephi 16.35|]][[1 Nephi 16.36|]][[1 Nephi 16.37|]][[1 Nephi 16.38|]][[1 Nephi 16.39|]]; [[1 Nephi 18.12|18:12]].)
 
 One writer stated that the compass and its operation was “not without a shadow” or type of things spiritual. He wrote:
 
@@ -62,9 +62,9 @@ One writer stated that the compass and its operation was “not without a shadow
 
 “And now I say, is there not a type in this thing? For just as surely as this director did bring our fathers, by following its course, to the promised land, shall the words of Christ, if we follow their course, carry us beyond this vale of sorrow into a far better land of promise.
 
-“… do not let us be slothful because of the easiness of the way; for so was it with our fathers; for so was it prepared for them, that if they would look they might live; even so it is with us. The way is prepared, and if we will look we may live forever.
+“… do not let us be slothful because of the easiness of the way; for so was it with our fathers; for so was it prepared for them, that if they would look they might live; even so it is with us. The way is prepared, and if we will look we may live forever.
 
-“… see that ye look to God and live.” ([[Alma 37.43|Alma 37:43–47]][[Alma 37.44|]][[Alma 37.45|]][[Alma 37.46|]][[Alma 37.47|]].)
+“… see that ye look to God and live.” ([[Alma 37.43|Alma 37:43–47]][[Alma 37.44|]][[Alma 37.45|]][[Alma 37.46|]][[Alma 37.47|]].)
 
 I fear that many of us rush about from day to day taking for granted the holy scriptures. We scramble to honor appointments with physicians, lawyers, and businessmen. Yet we think nothing of postponing interviews with Deity—postponing scripture study. Little wonder we develop anemic souls and lose our direction in living. How much better it would be if we planned and held sacred fifteen or twenty minutes a day for reading the scriptures. Such interviews with Deity would help us recognize his voice and enable us to receive guidance in all of our affairs.
 
@@ -90,7 +90,7 @@ Amos declared: “Surely the Lord God will do nothing, but he revealeth his secr
 
 Through a modern prophet these words were spoken:
 
-“Wherefore the voice of the Lord is unto the ends of the earth. …
+“Wherefore the voice of the Lord is unto the ends of the earth. …
 
 “And the day cometh that they who will not hear the voice of the Lord, neither the voice of his servants, neither give heed to the words of the prophets and apostles, shall be cut off from among the people.” ([[D&C 1.11|D&C 1:11, 14]][[D&C 1.14|]].)
 
@@ -112,7 +112,7 @@ Moses did pray in behalf of his followers, and in answer to his prayer the Lord 
 
 Moses again did as the Lord instructed.
 
-Left at this point, one wonders what happened. How many were obedient? How many were not? Did anyone look and live? Answers to these questions are found in the Book of Mormon. One prophet explained: “He \[the Lord\] sent fiery flying serpents among them; and after they were bitten he prepared a way that they might be healed; and the labor which they had to perform was to look; and because of the simpleness of the way, or the easiness of it, there were many who perished” ([[1 Nephi 17.41|1 Ne. 17:41]]).
+Left at this point, one wonders what happened. How many were obedient? How many were not? Did anyone look and live? Answers to these questions are found in the Book of Mormon. One prophet explained: “He \[the Lord\] sent fiery flying serpents among them; and after they were bitten he prepared a way that they might be healed; and the labor which they had to perform was to look; and because of the simpleness of the way, or the easiness of it, there were many who perished” ([[1 Nephi 17.41|1 Ne. 17:41]]).
 
 The type raised up in the wilderness, the serpent on the pole, symbolized Christ upon the cross. Jesus himself taught this truth. Many times he forecast his cruel form of death; and on at least one occasion, he made reference to Moses and the wilderness incident. Note these words of the Master:
 
@@ -124,7 +124,7 @@ We, like Israel of old, must rivet our eyes and minds upon the cross of Christ i
 
 Oh, how we must look to Christ and live.
 
-The direction of our look is critical. From the rooftop King David “saw a woman washing herself; and the woman was very beautiful to look upon” ([[2 Samuel 11.2|2 Sam. 11:2]]). He looked across the way, and his heart was filled with lust. He looked; he fell.
+The direction of our look is critical. From the rooftop King David “saw a woman washing herself; and the woman was very beautiful to look upon” ([[2 Samuel 11.2|2 Sam. 11:2]]). He looked across the way, and his heart was filled with lust. He looked; he fell.
 
 Judas Iscariot fixed his eye upon thirty pieces of silver. Greed overcame his righteous desires. His misplaced look cost his life, his soul, and the thirty coins. (See [[Matthew 27.3|Matt. 27:3–10]][[Matthew 27.4|]][[Matthew 27.5|]][[Matthew 27.6|]][[Matthew 27.7|]][[Matthew 27.8|]][[Matthew 27.9|]][[Matthew 27.10|]].)
 
@@ -141,6 +141,4 @@ I testify that we can hear the voice of Deity through the scriptures; I testify 
 
 
 
-
-
-#Jesus_Christ #Prophets #Scriptures #Spirituality
+#JesusChrist #Prophets #Scriptures #Spirituality

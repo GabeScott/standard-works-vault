@@ -1,7 +1,6 @@
 # Motivations
 
-
-*See also* [[Compassion.md|Compassion]]; [[Envy, Envious.md|Envy]]; [[Greedily.md|Greedily]]; [[Greediness.md|Greediness]]; [[Greedy.md|Greedy]]; [[Love.md|Love]]; [[Lust.md|Lust]]; [[Objectives.md|Objectives]]; [[Peer Influence.md|Peer Influence]]; [[Slothful, Slothfulness.md|Slothful]]
+*See also* [[Compassion.md|Compassion]]; [[Envy.md|Envy]]; [[Greedily.md|Greedily]]; [[Greediness.md|Greediness]]; [[Greedy.md|Greedy]]; [[Love.md|Love]]; [[Lust.md|Lust]]; [[Objectives.md|Objectives]]; [[Peer Influence.md|Peer Influence]]; [[Slothful.md|Slothful]]
 
 every imagination of the *thoughts* of his heart was only evil, [[Genesis 6.5|Genesis 6:5]] ([[Moses 8.22|Moses 8:22]]).
 
@@ -17,21 +16,21 @@ do not your alms before men, to be *seen* of them, [[Matthew 6.1|Matthew 6:1]] (
 
 *evil* things come from within, and defile the man, [[Mark 7.23|Mark 7:23]].
 
-out of the good treasure of his *heart* bringeth forth ... good, [[Luke 6.45|Luke 6:45]].
+out of the good treasure of his *heart* bringeth forth … good, [[Luke 6.45|Luke 6:45]].
 
-pray God ... the *thought* of thine heart may be forgiven, [[Acts 8.22|Acts 8:22]].
+pray God … the *thought* of thine heart may be forgiven, [[Acts 8.22|Acts 8:22]].
 
 to him that *esteemeth* any thing to be unclean, to him it is unclean, [[Romans 14.14|Romans 14:14]].
 
-take heed lest ... this *liberty* of yours become a stumblingblock, [[1 Corinthians 8.9|1 Corinthians 8:9]].
+take heed lest … this *liberty* of yours become a stumblingblock, [[1 Corinthians 8.9|1 Corinthians 8:9]].
 
-bringing ... every *thought* to the obedience of Christ, [[2 Corinthians 10.5|2 Corinthians 10:5]].
+bringing … every *thought* to the obedience of Christ, [[2 Corinthians 10.5|2 Corinthians 10:5]].
 
 if there be any praise, *think* on these things, [[Philippians 4.8|Philippians 4:8]].
 
 discerner of the thoughts and *intents* of the heart, [[Hebrews 4.12|Hebrews 4:12]].
 
-hospitality ... without *grudging*, [[1 Peter 4.9|1 Peter 4:9]].
+hospitality … without *grudging*, [[1 Peter 4.9|1 Peter 4:9]].
 
 every man that hath this *hope* in him purifieth himself, [[1 John 3.3|1 John 3:3]].
 
@@ -59,7 +58,7 @@ have gone on in the *persuasions* of men, [[D&C 3.6|D&C 3:6]].
 
 eye single to the *glory* of God, qualify him, [[D&C 4.5|D&C 4:5]].
 
-God ... knowest thy thoughts and the *intents*, [[D&C 6.16|D&C 6:16]].
+God … knowest thy thoughts and the *intents*, [[D&C 6.16|D&C 6:16]].
 
 Look unto me in every *thought*, [[D&C 6.36|D&C 6:36]].
 

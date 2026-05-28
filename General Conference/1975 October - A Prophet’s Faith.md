@@ -1,14 +1,14 @@
 # A Prophet’s Faith
 
-By Elder A. Theodore Tuttle - *Of the First Council of the Seventy*
+By Elder A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/a-prophets-faith?lang=eng)
 
-We miss Milton R. Hunter today. He was a great and able servant and a loyal friend. On behalf of President S. Dilworth Young and the First Council of the Seventy, I extend a hearty welcome to Elder Gene Cook as a member of the First Council. He comes well qualified, well trained, and with tremendous capacity. He loves the Lord; he knows the work and is completely dedicated. We are delighted, as we feel all of you are, with the announcement to organize the First Quorum of the Seventy. We welcome wholeheartedly the first three members of this quorum: Elder Charles Didier, Elder William Bradford, and Elder George Lee. These men are stalwarts, men of proven ability. They are great missionaries, and we look forward to the privilege of working with them.
+We miss Milton R. Hunter today. He was a great and able servant and a loyal friend. On behalf of President S. Dilworth Young and the First Council of the Seventy, I extend a hearty welcome to Elder Gene Cook as a member of the First Council. He comes well qualified, well trained, and with tremendous capacity. He loves the Lord; he knows the work and is completely dedicated. We are delighted, as we feel all of you are, with the announcement to organize the First Quorum of the Seventy. We welcome wholeheartedly the first three members of this quorum: Elder Charles Didier, Elder William Bradford, and Elder George Lee. These men are stalwarts, men of proven ability. They are great missionaries, and we look forward to the privilege of working with them.
 
-There is great power in faith. “Faith is the moving cause of all action. …” (Joseph Smith, *Lectures on Faith,* p. 8.)
+There is great power in faith. “Faith is the moving cause of all action. …” (Joseph Smith, *Lectures on Faith,* p. 8.)
 
 The Prophet Joseph said:
 
@@ -46,9 +46,9 @@ Let me tell what really happens when missionaries serve.
 
 We had a neighbor boy who regularly passed our place headed for the mailbox, impatiently awaiting his letter of call. It seemed unusually long in coming after his recommendation was sent in. I observed this scene the day his letter came. He opened it at the mailbox, called his friend over, and they rejoiced together. Then he figuratively bounced down the lane to share the good news with his family. A few minutes later his sixteen-year-old sister came strolling by, headed home. I merely mentioned in a greeting that her brother had received his mission call. She instantly changed her pace and ran all the way home to join in the excitement of her brother’s call. Think of the anticipation, the joy, that gladdens hundreds of homes and hundreds of hearts each week—for this is a family call.
 
-Not only does this service bless the homes from which missionaries come, it blesses lives where missionaries go. One young lady who worked among the Indian people wrote: “The Navajo are a great people. Words can’t express my love for them. …
+Not only does this service bless the homes from which missionaries come, it blesses lives where missionaries go. One young lady who worked among the Indian people wrote: “The Navajo are a great people. Words can’t express my love for them. …
 
-“The Navajo people accepted me, a white girl, as one of their own. They called me their white daughter. I had a hard time with the language, but I could teach by reading the lessons. I was very fortunate to have Navajo companions who could explain in detail. We could communicate with love. I learned that love is the greatest language to know. This people loved me and I loved them. We spoke with smiles, laughter, and sometimes tears. They were patient with my broken Navajo and helped me when I couldn’t think of a word. I left with a testimony in my heart and a feeling that cannot be described in words. …”
+“The Navajo people accepted me, a white girl, as one of their own. They called me their white daughter. I had a hard time with the language, but I could teach by reading the lessons. I was very fortunate to have Navajo companions who could explain in detail. We could communicate with love. I learned that love is the greatest language to know. This people loved me and I loved them. We spoke with smiles, laughter, and sometimes tears. They were patient with my broken Navajo and helped me when I couldn’t think of a word. I left with a testimony in my heart and a feeling that cannot be described in words. …”
 
 She concludes with, “In December I met a returned missionary. We fell in love and have been married in the temple.”
 
@@ -70,7 +70,7 @@ We need to set personal and family goals. Make the achievement of these goals a 
 
 Eighteen months ago President Kimball said:
 
-“In our stake and district missionary work, … we have hardly scratched the surface. … I believe the time has come when we must … change our sights and raise our goals. …” (*Ensign,* Oct. 1974, p. 14.)
+“In our stake and district missionary work, … we have hardly scratched the surface. … I believe the time has come when we must … change our sights and raise our goals. …” (*Ensign,* Oct. 1974, p. 14.)
 
 Stake missionary work is a great sleeping giant but it is beginning to stir. We now expect all stake presidents to give greater attention to this work, to do three things: (1) develop stake goals and (2) see that your seventies are organized correctly and functioning properly in order to (3) assist every family to share the gospel with another. In this work every member must lengthen his stride, as our leader has done—a fact so beautifully attested to this morning.
 
@@ -85,6 +85,4 @@ I bear witness that this work is true and that President Kimball is a living pro
 
 
 
-
-
-#Faith #Missionary_Work
+#Faith #MissionaryWork

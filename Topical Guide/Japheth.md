@@ -1,4 +1,3 @@
 # Japheth
 
-
-*See* [BD Japheth](https://www.churchofjesuschrist.org/study/scriptures/bd/japheth?lang=eng)
+*See also* [[BD Japheth.md|BD Japheth]]

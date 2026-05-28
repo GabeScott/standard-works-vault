@@ -30,7 +30,7 @@ It is not surprising that we feel from time to time nearly overwhelmed. Your tho
 
 When those feelings of inadequacy strike us, that is the time to remember the Savior. He assures us that we don’t do this work alone. There are scriptures to put on your mirror and to remember in the moments when you are doubting your capacity.
 
-For instance, President Thomas S. Monson remembered the promised words of the Savior as he blessed me six months ago to stand fearlessly in my calling when it seemed hard. These words of the Savior, which He gave to His tiny band of priesthood holders in this dispensation, came to the prophet’s mind as he laid his hands on my head: “And whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”[^1]
+For instance, President Thomas S. Monson remembered the promised words of the Savior as he blessed me six months ago to stand fearlessly in my calling when it seemed hard. These words of the Savior, which He gave to His tiny band of priesthood holders in this dispensation, came to the prophet’s mind as he laid his hands on my head: “And whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”[^1]
 
 The promise which President Monson remembered and quoted was fulfilled for me. Confidence replaced doubt, the Spirit came, medical helpers were inspired, my life was preserved, and I was borne up. Because of that blessing by President Monson, it will always be easy for me to remember the Savior and trust His promise that He goes before and beside us in His service.
 
@@ -66,21 +66,19 @@ My heart was stirred in those days then as it is now with a conviction that the 
 
 I bear you my witness that when we give our all in priesthood service, the Lord will give us all the courage we need and the assurance that He goes with us and that angels will bear us up.
 
-I testify that we are called of God. This is His true Church, and you hold His everlasting priesthood. I am a witness that President Thomas S. Monson holds all the keys of the priesthood and exercises them in the world today. In the name of Jesus Christ, amen.
+I testify that we are called of God. This is His true Church, and you hold His everlasting priesthood. I am a witness that President Thomas S. Monson holds all the keys of the priesthood and exercises them in the world today. In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[D&C 84.88|D&C 84:88]].
 
-[^2]: [[2 Kings 6.15|2 Kings 6:15–17]][[2 Kings 6.16|]][[2 Kings 6.17|]].
+[^2]: [[2 Kings 6.15|2 Kings 6:15–17]][[2 Kings 6.16|]][[2 Kings 6.17|]].
 
 [^3]: [[D&C 4.2|D&C 4:2]].
 
 [^4]: “Oaths of Enlistment and Oaths of Office,” http://www.army.mil/CMH/faq/oaths.htm.
 
-[^5]: “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270.
-
-
+[^5]: “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270.
 
 #Angels #Priesthood #Service

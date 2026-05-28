@@ -1,7 +1,6 @@
 # Enough
 
-
-*See also* [[Sufficiency, Sufficient.md|Sufficiency]]
+*See also* [[Sufficiency.md|Sufficiency]]
 
 greedy dogs which can never have *enough*, [[Isaiah 56.11|Isaiah 56:11]].
 

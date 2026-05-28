@@ -1,6 +1,5 @@
 # Decrease
 
-
 *See also* [[Abate.md|Abate]]; [[Diminish.md|Diminish]]
 
 the waters *decreased* continually, [[Genesis 8.5|Genesis 8:5]].

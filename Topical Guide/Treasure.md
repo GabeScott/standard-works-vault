@@ -1,6 +1,5 @@
 # Treasure
 
-
 *See also* [[Family, Managing Finances in.md|Family, Managing Finances in]]; [[Riches.md|Riches]]; [[Wealth.md|Wealth]]; [[Worldliness.md|Worldliness]]
 
 they built for Pharaoh *treasure* cities, [[Exodus 1.11|Exodus 1:11]].
@@ -11,13 +10,13 @@ shall open unto thee his good *treasure*, [[Deuteronomy 28.12|Deuteronomy 28:12]
 
 all that was found in his *treasures*, [[2 Kings 20.13|2 Kings 20:13]] ([[Isaiah 39.2|Isaiah 39:2]]).
 
-Lord hath chosen Jacob ... his peculiar *treasure*, [[Psalms 135.4|Psalms 135:4]].
+Lord hath chosen Jacob … his peculiar *treasure*, [[Psalms 135.4|Psalms 135:4]].
 
 *Treasures* of wickedness profit nothing, [[Proverbs 10.2|Proverbs 10:2]].
 
 In the house of the righteous is much *treasure*, [[Proverbs 15.6|Proverbs 15:6]].
 
-Better is little ... than great *treasure* and trouble, [[Proverbs 15.16|Proverbs 15:16]].
+Better is little … than great *treasure* and trouble, [[Proverbs 15.16|Proverbs 15:16]].
 
 getting of *treasures* by a lying tongue is a vanity, [[Proverbs 21.6|Proverbs 21:6]].
 
@@ -67,7 +66,7 @@ neither is there any end of their *treasures*, [[2 Nephi 12.7|2 Nephi 12:7]].
 
 instead of laying up for yourselves *treasures*, [[Helaman 8.25|Helaman 8:25]].
 
-doth prosper his people ... in all manner of *precious* things, [[Helaman 12.2|Helaman 12:2]].
+doth prosper his people … in all manner of *precious* things, [[Helaman 12.2|Helaman 12:2]].
 
 hide up *treasures* in the earth shall find them again, [[Helaman 13.18|Helaman 13:18]].
 
@@ -81,16 +80,16 @@ began to hide up their *treasures*, [[Mormon 1.18|Mormon 1:18]].
 
 *treasure* up these words in thy heart, [[D&C 6.20|D&C 6:20]] ([[D&C 43.34|D&C 43:34]]).
 
-*treasure* up for his soul ... salvation, [[D&C 11.3|D&C 11:3]].
+*treasure* up for his soul … salvation, [[D&C 11.3|D&C 11:3]].
 
-more than ... *treasures* of earth and corruptibleness, [[D&C 19.38|D&C 19:38]].
+more than … *treasures* of earth and corruptibleness, [[D&C 19.38|D&C 19:38]].
 
-*treasure* up in your minds ... and it shall be given you, [[D&C 84.85|D&C 84:85]].
+*treasure* up in your minds … and it shall be given you, [[D&C 84.85|D&C 84:85]].
 
 great *treasures* of knowledge, even hidden *treasures*, [[D&C 89.19|D&C 89:19]].
 
 I have much *treasure* in this city for you, [[D&C 111.2|D&C 111:2]].
 
-bring ... rich *treasures* unto the children of Ephraim, [[D&C 133.30|D&C 133:30]].
+bring … rich *treasures* unto the children of Ephraim, [[D&C 133.30|D&C 133:30]].
 
 whoso *treasureth* up my word, shall not be deceived, [[Joseph Smith Matthew 1.37|Joseph Smith Matthew 1:37]].

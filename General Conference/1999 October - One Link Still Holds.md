@@ -22,7 +22,7 @@ Jehovah also declared, “Thou shalt not steal” ([[Exodus 20.15|Ex. 20:15]]). 
 
 Beloved youth, aren’t you thankful to God that the apostles and prophets never waver on sin? No matter how strong the winds of public opinion may blow, the Church is immovable. “God has commanded that the sacred powers of procreation are to be employed only between man and woman, lawfully wedded as husband and wife.”[^1]
 
-Those who espouse perverse principles and deviant behavior are living in sin. Laws, consensus, consenting adults that teach contrary to the gospel are wrong even if the majority accepts them. Sin is sin, and that is God’s truth. The Apostle Paul declared, “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Cor. 3:16]]).
+Those who espouse perverse principles and deviant behavior are living in sin. Laws, consensus, consenting adults that teach contrary to the gospel are wrong even if the majority accepts them. Sin is sin, and that is God’s truth. The Apostle Paul declared, “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Cor. 3:16]]).
 
 Pornography is evil. I love the story told at the funeral of Henry Eyring’s father. When he was a young man coming across the border from the Mexican colonies to the United States, the customs man said, “Son, do you have any pornography in your suitcase or trunks?” He responded, “No sir, we don’t even own a pornograph.” It’s wonderful to be that pure and naive. We know pornography is addictive and destructive. It has companions it travels with: drinking, smoking, and drugs. It uses some types of music, dancing, the Internet, and television. Those who produce it are godless and have no conscience. They know the consequences, but they don’t care. Like those who peddle drugs, they will never be around to pick up the pieces when you’re all broken up. But we will—your parents, bishops, and leaders.
 
@@ -103,7 +103,5 @@ We love you, our beloved youth, and pray God to bless each one of you. In the na
 [^5]: Poem by Orson F. Whitney; quoted in Spencer W. Kimball, “The Things of Eternity—Stand We in Jeopardy?” *Ensign,* Jan. 1977, 7.
 
 [^6]: *Gospel Doctrine,* 5th ed. (1939), 119.
-
-
 
 #Friendship #Home #Obedience #Parents #Prayer #Prophets #Standards

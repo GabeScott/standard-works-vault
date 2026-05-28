@@ -36,7 +36,7 @@ For a time he seemed to be improving, but then a sudden turn in his health came 
 
 The Baker family had been raised as faithful Christians, but Mary’s trust in a loving God broke under the strain of her brother’s death and her own diminished circumstances. “God does not care for me or mine,” said Mary Ann. “This particular manifestation of what they call ‘divine providence’ is unworthy of a God of love.” Does that sound at all familiar?
 
-“I have always tried to believe on Christ and give the Master a consecrated life,” she said, “but this is more than I can bear. What have I done to deserve this? What have I left undone that God should wreak His vengeance upon me in this way?” (Ernest K. Emurian, *Living Stories of Famous Hymns,* Boston: W. A Widdle Co., 1955, pp. 83–85.)
+“I have always tried to believe on Christ and give the Master a consecrated life,” she said, “but this is more than I can bear. What have I done to deserve this? What have I left undone that God should wreak His vengeance upon me in this way?” (Ernest K. Emurian, *Living Stories of Famous Hymns,* Boston: W. A Widdle Co., 1955, pp. 83–85.)
 
 I suppose we have all had occasion, individually or collectively, to cry out on some stormy sea, “Master, carest thou not that we perish?” And so cried Mary Ann Baker.
 
@@ -101,11 +101,9 @@ But Jesus was not spared grief and pain and anguish and buffeting. No tongue can
 
 Peace was on the lips and in the heart of the Savior no matter how fiercely the tempest was raging. May it so be with us—in our own hearts, in our own homes, in our nations of the world, and even in the buffetings faced from time to time by the Church. We should not expect to get through life individually or collectively without some opposition.
 
-One of the wisest of the ancient Romans once spoke a great gospel truth and probably never realized he had done so. Speaking of Roman naval power and the absolute imperative to control the oceans, Cicero said to a military aide, “He who commands the sea has command of everything.” (See W. Gurney Benham, *Putnam’s Complete Book of Quotations,* New York: G. P. Putnam’s Sons, 1926, p. 505.) Of that I so testify.
+One of the wisest of the ancient Romans once spoke a great gospel truth and probably never realized he had done so. Speaking of Roman naval power and the absolute imperative to control the oceans, Cicero said to a military aide, “He who commands the sea has command of everything.” (See W. Gurney Benham, *Putnam’s Complete Book of Quotations,* New York: G. P. Putnam’s Sons, 1926, p. 505.) Of that I so testify.
 
 “Whether the wrath of the storm-tossed sea or demons or men or whatever it be, no waters can swallow the ship where lies the Master of ocean and earth and skies. They all shall sweetly obey \[his\] will. Peace, be still!” In the name of Jesus Christ, amen.
-
-
 
 
 

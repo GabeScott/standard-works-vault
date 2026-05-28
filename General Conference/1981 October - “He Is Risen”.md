@@ -1,6 +1,6 @@
 # “He Is Risen”
 
-By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -12,7 +12,7 @@ In the small cemetery in the equally small town of Santa Clara, Utah, I remember
 
 The largest cemeteries, and in many respects those which evoke the most tender emotions, are honored as the resting places of men who died in the caldron of conflict known as war while wearing the uniform of their country. One reflects on shattered dreams, unfulfilled hopes, grief-filled hearts, and lives cut short by the sharp scythe of war.
 
-Acres of neat, white crosses in the cities of France and Belgium accentuate the terrible toll of World War I. Verdun, France, is—in reality—a gigantic cemetery. Each spring, as farmers till the earth, they uncover a helmet here, a gun barrel there—grim reminders of the millions of men who literally soaked the soil with the blood of their lives.
+Acres of neat, white crosses in the cities of France and Belgium accentuate the terrible toll of World War I. Verdun, France, is—in reality—a gigantic cemetery. Each spring, as farmers till the earth, they uncover a helmet here, a gun barrel there—grim reminders of the millions of men who literally soaked the soil with the blood of their lives.
 
 A tour of Gettysburg, Pennsylvania, and other battlefields of the American Civil War marks that conflict, where brother fought against brother. Some families lost farms, others possessions. One family lost all. Let me share with you that memorable letter which President Abraham Lincoln wrote to Mrs. Lydia Bixby:
 
@@ -20,7 +20,7 @@ A tour of Gettysburg, Pennsylvania, and other battlefields of the American Civil
 
 “I have been shown in the files of the War Department a statement of the Adjutant General of Massachusetts that you are the mother of five sons who have died gloriously on the field of battle. I feel how weak and fruitless must be any words of mine which should attempt to beguile you from the grief of a loss so overwhelming. But I cannot refrain from tendering to you the consolation that may be found in the thanks of the republic they died to save. I pray that our Heavenly Father may assuage the anguish of your bereavement, and leave you only the cherished memory of the loved and lost, and the solemn pride that must be yours, to have laid so costly a sacrifice upon the altar of freedom.
 
-“Yours very sincerely and respectfully, Abraham Lincoln.” (21 Nov. 1864; quoted in *Selections from the Letters, Speeches, and State Papers of Abraham Lincoln,* ed. Ida M. Tarbell, Boston: Ginn and Company, 1911, p. 109.)
+“Yours very sincerely and respectfully, Abraham Lincoln.” (21 Nov. 1864; quoted in *Selections from the Letters, Speeches, and State Papers of Abraham Lincoln,* ed. Ida M. Tarbell, Boston: Ginn and Company, 1911, p. 109.)
 
 A walk through Punchbowl Cemetery in Honolulu or the Memorial Cemetery of the Pacific at Manila reminds one that not all who died in World War II are buried in quiet fields of green. Many slipped beneath the waves of the oceans on which they sailed and on which they died.
 
@@ -52,7 +52,7 @@ Through the tears and the sorrow of that special day, I observed eternal lessons
 
 A coach expressed the determination to look beyond athletic prowess and into the heart of each boy. A youth leader made a solemn vow that every boy and girl would have the benefit which the program of the Church provided. An elementary school teacher looked at the small children, classmates of Jason. She said nothing, but her eyes revealed the determination of her soul. The message was unmistakably clear: “I will love each child. Each boy, each girl will be guided in the search for truth, in the development of talent, and be introduced to the wonderful world of service.”
 
-And the audience, including Elders Marvin J. Ashton and Thomas S. Monson, will never again be the same. All will strive toward that perfection spoken of by the Master. Our inspiration? The lives of the boys who now rest from care and sorrow, and the fortitude of parents who trust in the Lord with all their hearts, who lean not to their own understanding, and who in all their ways acknowledge Him, knowing that He will direct their paths. (See [[Proverbs 3.5|Prov. 3:5–6]][[Proverbs 3.6|]].)
+And the audience, including Elders Marvin J. Ashton and Thomas S. Monson, will never again be the same. All will strive toward that perfection spoken of by the Master. Our inspiration? The lives of the boys who now rest from care and sorrow, and the fortitude of parents who trust in the Lord with all their hearts, who lean not to their own understanding, and who in all their ways acknowledge Him, knowing that He will direct their paths. (See [[Proverbs 3.5|Prov. 3:5–6]][[Proverbs 3.6|]].)
 
 Let me share with you a portion of a letter sent to me by the noble mother of these three sons. It was written soon after their passing.
 
@@ -66,7 +66,7 @@ Many years ago I stood by the bedside of a young man, the father of two children
 
 I prayed for heavenly guidance before attempting to respond. My attention was directed to the Book of Mormon, which rested on the table beside his bed. I held the book in my hand, and, as I stand before you here today, that book opened to the fortieth chapter of Alma. I began to read aloud:
 
-“Now my son, here is somewhat more I would say unto thee; for I perceive that thy mind is worried concerning the resurrection of the dead. …
+“Now my son, here is somewhat more I would say unto thee; for I perceive that thy mind is worried concerning the resurrection of the dead. …
 
 “Now, concerning the state of the soul between death and the resurrection—Behold, it has been made known unto me by an angel, that the spirits of all men, as soon as they are departed from this mortal body … are taken home to that God who gave them life.
 
@@ -84,13 +84,13 @@ Then comes that glorious day of resurrection, when spirit and body will be reuni
 
 This transcendent promise became a reality when Mary and the other Mary approached the garden tomb—that cemetery which had but one occupant. Let Luke, the physician, describe their experience:
 
-“Now upon the first day of the week, very early in the morning, they came unto the sepulchre. …
+“Now upon the first day of the week, very early in the morning, they came unto the sepulchre. …
 
-“And they found the stone rolled away. …
+“And they found the stone rolled away. …
 
-“… they entered in, and found not the body of the Lord Jesus.
+“… they entered in, and found not the body of the Lord Jesus.
 
-“… as they were much perplexed thereabout, behold, two men stood by them in shining garments:
+“… as they were much perplexed thereabout, behold, two men stood by them in shining garments:
 
 “And … said unto them, Why seek ye the living among the dead?” ([[Luke 24.1|Luke 24:1–5]][[Luke 24.2|]][[Luke 24.3|]][[Luke 24.4|]][[Luke 24.5|]].)
 
@@ -99,8 +99,6 @@ This transcendent promise became a reality when Mary and the other Mary approach
 This is the clarion call of Christendom. The reality of the resurrection provides to one and all the peace that surpasses understanding. (See [[Philippians 4.7|Philip. 4:7]].) It comforts those whose loved ones lie in Flanders fields, who perished in the depths of the sea or rest in tiny Santa Clara or peaceful Heber Valley. It is a universal truth.
 
 As the least of His disciples, I declare my personal witness that death has been conquered, victory over the tomb has been won. May the words made sacred by Him who fulfilled them become actual knowledge to all. Remember them. Cherish them. Honor them. *He is risen.* Such is my fervent prayer in the name of Jesus Christ, amen.
-
-
 
 
 

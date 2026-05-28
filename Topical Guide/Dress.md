@@ -1,4 +1,3 @@
 # Dress
 
-
-*See* [[Apparel.md|Apparel]]; [[Clothing.md|Clothing]]; [[Modesty.md|Modesty]]
+*See also* [[Apparel.md|Apparel]]; [[Clothing.md|Clothing]]; [[Modesty.md|Modesty]]

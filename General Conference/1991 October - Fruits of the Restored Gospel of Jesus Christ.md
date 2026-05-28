@@ -8,7 +8,7 @@ By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 My brethren and sisters, I’m sure that all of us have been honored to be in the presence of President Ezra Taft Benson, the President of the Church, our prophet. I’ve loved him and respected him all of my life, as I’m sure you have.
 
-Throughout the ages, the Lord has referred to his people, those who love him and keep his commandments, in words that set them apart. He has called them a “peculiar treasure” ([[Exodus 19.5|Ex. 19:5]]), a “special people” ([[Deuteronomy 7.6|Deut. 7:6]]), “a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Pet. 2:9]]). Scriptures refer to such people as Saints. As the Savior taught, “By their fruits ye shall know them” ([[Matthew 7.20|Matt. 7:20]]).
+Throughout the ages, the Lord has referred to his people, those who love him and keep his commandments, in words that set them apart. He has called them a “peculiar treasure” ([[Exodus 19.5|Ex. 19:5]]), a “special people” ([[Deuteronomy 7.6|Deut. 7:6]]), “a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Pet. 2:9]]). Scriptures refer to such people as Saints. As the Savior taught, “By their fruits ye shall know them” ([[Matthew 7.20|Matt. 7:20]]).
 
 In sharp contrast to those who live by gospel principles, I see accounts of people who either ignore or don’t understand these principles. Some do not live the gospel standards and live in sin, evil, dishonesty, and crime. The result is untold misery, pain, suffering, and sorrow.
 
@@ -28,7 +28,7 @@ May I give you some of the major principles of the gospel.
 
 ## The Godhead
 
-One distinctive principle is a true concept of the nature of the Godhead: “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]). The Godhead consists of three separate, distinct personages who are one in purpose. The Father and the Son have tangible bodies of flesh and bone, while the Holy Ghost is a personage of spirit.
+One distinctive principle is a true concept of the nature of the Godhead: “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]). The Godhead consists of three separate, distinct personages who are one in purpose. The Father and the Son have tangible bodies of flesh and bone, while the Holy Ghost is a personage of spirit.
 
 God truly is our Father, the Father of the spirits of all mankind. We are his literal offspring and are formed in his image. We have inherited divine characteristics from him. Knowing our relationship to our Heavenly Father helps us understand the divine nature that is in us and our potential. The doctrine of the fatherhood of God lays a solid foundation for self-esteem. The hymn titled “I Am a Child of God” (*Hymns,* 1985, no. 301) states this doctrine in simple terms. Can a person who understands his divine parenthood lack self-esteem? I have known people who have a deep, abiding assurance of this truth and others who understand it only superficially and intellectually. The contrast in their attitudes and the practical effect of these attitudes in their lives are remarkably apparent.
 
@@ -36,7 +36,7 @@ Knowing that Jesus Christ is the firstborn Son of God in the spirit and the Only
 
 “He is the greatest Being to be born on this earth—the perfect example. … He is Lord of lords, King of kings, the Creator, the Savior, the God of the whole earth. … His name … is the only name under heaven by which we can be saved.
 
-“He will come again in power and glory to dwell on the earth, and will stand as Judge of all mankind at the last day” (Bible Dictionary, “[Christ](https://churchofjesuschrist.org/study/scriptures/bd/christ?lang=eng)”).
+“He will come again in power and glory to dwell on the earth, and will stand as Judge of all mankind at the last day” (Bible Dictionary, “[[BD Christ|Christ]]”).
 
 He stands as the head of The Church of Jesus Christ of Latter-day Saints. We should be everlastingly grateful to him. We should love him with all our hearts and should follow his example.
 
@@ -44,13 +44,13 @@ The Holy Ghost, the third member of the Godhead, is a revelator (see *History of
 
 ## Resurrection
 
-Next I turn to our assurance of a literal resurrection, the uniting after mortal death of the spirit with a body of flesh and bone. Jesus, the first on this earth to be resurrected, made the Resurrection a certainty for all mankind. This reality is a center point of hope in the gospel of Jesus Christ (see [[1 Corinthians 15.19|1 Cor. 15:19–22]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]]).
+Next I turn to our assurance of a literal resurrection, the uniting after mortal death of the spirit with a body of flesh and bone. Jesus, the first on this earth to be resurrected, made the Resurrection a certainty for all mankind. This reality is a center point of hope in the gospel of Jesus Christ (see [[1 Corinthians 15.19|1 Cor. 15:19–22]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]]).
 
 I have seen the contrast between those who have spiritual confidence in the Resurrection and others who are confused and uncertain about our postmortal condition. I was inspired by one mother who faced the untimely death of a two-year-old daughter with serenity, despite her deep sorrow. She attributed the peace she felt to her faith in a merciful God and in life everlasting. She was confident that this sweet child was encompassed in the arms of God’s love and that she and her daughter would be together again.
 
 ## Parenting
 
-In the Lord’s plan, parents are to teach their children during the impressionable and formative years when they develop attitudes and habits that last a lifetime. President Brigham Young wisely recognized that “the time of youth and early manhood is the proper time” to gain mastery over bodily appetites and passions. He warned that “the man who suffers his passions to lead him becomes a slave to them, and such a man will find the work of emancipation an exceedingly difficult one” (*Letters of Brigham Young to His Sons,* ed. Dean C. Jessee \[Salt Lake City: Deseret Book Co., 1974\], p. 130). We can be so grateful for principles that provide positive, spiritual reinforcement for parental teachings and that direct young people away from the pitfalls that Satan has strewn along the path of adolescence and young adulthood.
+In the Lord’s plan, parents are to teach their children during the impressionable and formative years when they develop attitudes and habits that last a lifetime. President Brigham Young wisely recognized that “the time of youth and early manhood is the proper time” to gain mastery over bodily appetites and passions. He warned that “the man who suffers his passions to lead him becomes a slave to them, and such a man will find the work of emancipation an exceedingly difficult one” (*Letters of Brigham Young to His Sons,* ed. Dean C. Jessee \[Salt Lake City: Deseret Book Co., 1974\], p. 130). We can be so grateful for principles that provide positive, spiritual reinforcement for parental teachings and that direct young people away from the pitfalls that Satan has strewn along the path of adolescence and young adulthood.
 
 ## Word of Wisdom
 
@@ -64,7 +64,7 @@ Members of the Church have obviously been blessed with health and spirituality b
 
 A sure indicator of true religion is a concern for the poor of the earth. This leads us to provide for their needs by acts of charity. I quote James: “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep … unspotted from the world” ([[James 1.27|James 1:27]]).
 
-Stated simply, charity means subordinating our interests and needs to those of others, as the Savior has done for all of us. The Apostle Paul wrote that of faith, hope, and charity, “the greatest of these is charity” ([[1 Corinthians 13.13|1 Cor. 13:13]]), and Moroni wrote that “except ye have charity ye can in nowise be saved in the kingdom of God” ([[Moroni 10.21|Moro. 10:21]]). I believe that selfless service is a distinctive part of the gospel. As President Spencer W. Kimball said, welfare service “is not a program, but the essence of the gospel. *It is the gospel in action.* It is the crowning principle of a Christian life” (in Conference Report, Oct. 1977, pp. 123–24; or *Ensign,* Nov. 1977, p. 77).
+Stated simply, charity means subordinating our interests and needs to those of others, as the Savior has done for all of us. The Apostle Paul wrote that of faith, hope, and charity, “the greatest of these is charity” ([[1 Corinthians 13.13|1 Cor. 13:13]]), and Moroni wrote that “except ye have charity ye can in nowise be saved in the kingdom of God” ([[Moroni 10.21|Moro. 10:21]]). I believe that selfless service is a distinctive part of the gospel. As President Spencer W. Kimball said, welfare service “is not a program, but the essence of the gospel. *It is the gospel in action.* It is the crowning principle of a Christian life” (in Conference Report, Oct. 1977, [[1977 October - Welfare Services - The Gospel in Action.md|pp. 123–24]]; or *Ensign,* Nov. 1977, p. 77).
 
 The Church does substantial but perhaps little-known humanitarian work in many places in the world. Our ability to reach out to others is made possible only to the extent that we are self-reliant. When we are self-reliant, we will use material blessings we receive from God to take care of ourselves and our families and be in a position to help others.
 
@@ -88,7 +88,7 @@ Obedience to the law of chastity would diminish cries for abortion and would go 
 
 Of course, members of the Church have their share of faults and weaknesses, but we see abundant evidence that living the gospel does help the Saints to become better. As more people commit themselves to living the gospel with all their heart, might, mind, and strength, they will be examples to their families and friends.
 
-How blessed we are to understand and to have the privilege of living by the sacred, eternal principles of the gospel of Jesus Christ. They are true. They will lead us along the only safe course to happiness, which is “the object and design of our existence” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 255).
+How blessed we are to understand and to have the privilege of living by the sacred, eternal principles of the gospel of Jesus Christ. They are true. They will lead us along the only safe course to happiness, which is “the object and design of our existence” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 255).
 
 ## Conclusion and Promise
 
@@ -96,7 +96,7 @@ In conclusion, let me offer this advice and promise. Never be ashamed of the gos
 
 You will be blessed as was Alma, who said:
 
-“I have labored without ceasing … that I might bring them to taste of the exceeding joy of which I did taste. …
+“I have labored without ceasing … that I might bring them to taste of the exceeding joy of which I did taste. …
 
 “Yea … the Lord doth give me exceedingly great joy in the fruit of my labors;
 
@@ -109,6 +109,4 @@ My brothers and sisters, your leaders of the Church love you and labor to bring 
 
 
 
-
-
-#Faith #Family #Godhead #Holy_Ghost #Jesus_Christ #Missionary_Work #Morality #Obedience #Resurrection #Self-Reliance #Welfare #Word_Of_Wisdom
+#Faith #Family #Godhead #HolyGhost #JesusChrist #MissionaryWork #Morality #Obedience #Resurrection #Self-reliance #Welfare #WordOfWisdom

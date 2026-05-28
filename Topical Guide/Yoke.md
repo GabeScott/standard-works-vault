@@ -1,6 +1,5 @@
 # Yoke
 
-
 *See also* [[Bond.md|Bond]]; [[Bondage, Physical.md|Bondage, Physical]]; [[Bondage, Spiritual.md|Bondage, Spiritual]]
 
 thou shalt break his *yoke* from off thy neck, [[Genesis 27.40|Genesis 27:40]].
@@ -13,7 +12,7 @@ Thy father made our *yoke* grievous, [[1 Kings 12.4|1 Kings 12:4]] ([[2 Chronicl
 
 thou hast broken the *yoke* of his burden, [[Isaiah 9.4|Isaiah 9:4]] ([[2 Nephi 19.4|2 Nephi 19:4]]).
 
-taken ... his *yoke* from off thy neck, and the *yoke* shall be destroyed because of the anointing, [[Isaiah 10.27|Isaiah 10:27]] ([[Jeremiah 30.8|Jeremiah 30:8]]; [[2 Nephi 20.27|2 Nephi 20:27]]).
+taken … his *yoke* from off thy neck, and the *yoke* shall be destroyed because of the anointing, [[Isaiah 10.27|Isaiah 10:27]] ([[Jeremiah 30.8|Jeremiah 30:8]]; [[2 Nephi 20.27|2 Nephi 20:27]]).
 
 then shall his *yoke* depart from off them, [[Isaiah 14.25|Isaiah 14:25]] ([[2 Nephi 24.25|2 Nephi 24:25]]).
 
@@ -23,7 +22,7 @@ broken the *yoke*, and burst the bonds, [[Jeremiah 5.5|Jeremiah 5:5]] ([[Ezekiel
 
 I have broken the *yoke* of the king of Babylon, [[Jeremiah 28.2|Jeremiah 28:2]].
 
-took the *yoke* from off the prophet Jeremiah's neck, [[Jeremiah 28.10|Jeremiah 28:10]].
+took the *yoke* from off the prophet Jeremiah’s neck, [[Jeremiah 28.10|Jeremiah 28:10]].
 
 as they that take off the *yoke* on their jaws, [[Hosea 11.4|Hosea 11:4]].
 

@@ -1,7 +1,6 @@
 # Vanity
 
-
-*See also* [[Apparel.md|Apparel]]; [[Deceit, Deceive.md|Deceit]]; [[Flatter, Flattery.md|Flatter]]; [[Foolishness.md|Foolishness]]; [[Haughtiness, Haughty.md|Haughtiness]]; [[Hypocrisy, Hypocrite.md|Hypocrisy]]; [[Pride.md|Pride]]; [[Vain.md|Vain]]
+*See also* [[Apparel.md|Apparel]]; [[Deceit.md|Deceit]]; [[Flatter.md|Flatter]]; [[Foolishness.md|Foolishness]]; [[Haughtiness.md|Haughtiness]]; [[Hypocrisy.md|Hypocrisy]]; [[Pride.md|Pride]]; [[Vain.md|Vain]]
 
 they have provoked me to anger with their *vanities*, [[Deuteronomy 32.21|Deuteronomy 32:21]].
 
@@ -31,15 +30,15 @@ getting of treasures by a lying tongue is a *vanity*, [[Proverbs 21.6|Proverbs 2
 
 *Vanity of vanities*, saith the Preacher, [[Ecclesiastes 1.2|Ecclesiastes 1:2]] ([[Ecclesiastes 12.8|Ecclesiastes 12:8]]).
 
-all is *vanity* and vexation of spirit, [[Ecclesiastes 1.14|Ecclesiastes 1:14]] ([[Ecclesiastes 2.11|Ecclesiastes 2:11]], [[Ecclesiastes 2.17|Ecclesiastes 2:17]], [[Ecclesiastes 2.26|Ecclesiastes 2:26]]; [[Ecclesiastes 6.9|Ecclesiastes 6:9]]).
+all is *vanity* and vexation of spirit, [[Ecclesiastes 1.14|Ecclesiastes 1:14]] ([[Ecclesiastes 2.11|Ecclesiastes 2:11]]; [[Ecclesiastes 2.17|Ecclesiastes 2:17]]; [[Ecclesiastes 2.26|Ecclesiastes 2:26]]; [[Ecclesiastes 6.9|Ecclesiastes 6:9]]).
 
-hath not laboured ... This also is *vanity*, [[Ecclesiastes 2.21|Ecclesiastes 2:21]].
+hath not laboured … This also is *vanity*, [[Ecclesiastes 2.21|Ecclesiastes 2:21]].
 
 I saw *vanity* under the sun, [[Ecclesiastes 4.7|Ecclesiastes 4:7]].
 
 in the multitude of dreams and many words there are also divers *vanities*, [[Ecclesiastes 5.7|Ecclesiastes 5:7]].
 
-loveth silver ... abundance ... this is also *vanity*, [[Ecclesiastes 5.10|Ecclesiastes 5:10]].
+loveth silver … abundance … this is also *vanity*, [[Ecclesiastes 5.10|Ecclesiastes 5:10]].
 
 laughter of the fool: this also is *vanity*, [[Ecclesiastes 7.6|Ecclesiastes 7:6]].
 
@@ -49,11 +48,11 @@ draw iniquity with cords of *vanity*, [[Isaiah 5.18|Isaiah 5:18]] ([[2 Nephi 15.
 
 sift the nations with the sieve of *vanity*, [[Isaiah 30.28|Isaiah 30:28]].
 
-nations ... counted ... less than nothing, and *vanity*, [[Isaiah 40.17|Isaiah 40:17]] ([[Isaiah 41.29|Isaiah 41:29]]).
+nations … counted … less than nothing, and *vanity*, [[Isaiah 40.17|Isaiah 40:17]] ([[Isaiah 41.29|Isaiah 41:29]]).
 
 they trust in *vanity*, [[Isaiah 59.4|Isaiah 59:4]].
 
-they ... have walked after *vanity*, [[Jeremiah 2.5|Jeremiah 2:5]].
+they … have walked after *vanity*, [[Jeremiah 2.5|Jeremiah 2:5]].
 
 They are *vanity*, and the work of errors, [[Jeremiah 10.15|Jeremiah 10:15]] ([[Jeremiah 51.18|Jeremiah 51:18]]).
 
@@ -75,8 +74,6 @@ speak great swelling words of *vanity*, [[2 Peter 2.18|2 Peter 2:18]].
 
 entangled again in the *vanities* of the world, [[D&C 20.5|D&C 20:5]].
 
-*vanity* and unbelief have brought ... church under condemnation, [[D&C 84.55|D&C 84:55]].
+*vanity* and unbelief have brought … church under condemnation, [[D&C 84.55|D&C 84:55]].
 
 notwithstanding the *vanity* of his heart, [[D&C 106.7|D&C 106:7]].
-
-*See also* [[Ecclesiastes 2.1|Ecclesiastes 2:1]], [[Ecclesiastes 2.15|Ecclesiastes 2:15]], [[Ecclesiastes 2.19|Ecclesiastes 2:19]], [[Ecclesiastes 2.23|Ecclesiastes 2:23]]; [[Jacob 2.13|Jacob 2:13]]; [[Alma 1.27|Alma 1:27]]; [[Mormon 8.36|Mormon 8:36]].

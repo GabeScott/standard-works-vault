@@ -69,6 +69,4 @@ I testify that I know that God, our Heavenly Father, lives and that He loves us 
 
 
 
-
-
-#Atonement #Children #Covenants #Family #Family_Home_Evening #Fasting #Holy_Ghost #Hope #Jesus_Christ #Parents #Prayer #Scripture_Study #Testimony
+#Atonement #Children #Covenants #FamilyHomeEvening #Family #Fasting #HolyGhost #Hope #JesusChrist #Parents #Prayer #ScriptureStudy #Testimony

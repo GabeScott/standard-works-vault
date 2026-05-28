@@ -1,6 +1,5 @@
 # Affection
 
-
 *See also* [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]
 
 this cause God gave them up unto vile *affections*, [[Romans 1.26|Romans 1:26]].

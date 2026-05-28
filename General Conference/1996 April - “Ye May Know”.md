@@ -14,7 +14,7 @@ This law was established to introduce, affirm, and seal the truth upon the heart
 
 This law of witnesses ushered in the birth, life, and mission of Christ Jesus. Holy angels, John the Baptist, prophets, apostles, the Holy Ghost, the Savior himself, and God our Father all declared His divinity.
 
-This same pattern prevailed at each step in the Restoration of the gospel of Jesus Christ in these latter days. Multiple witnesses, reliable beyond refute, have written and spoken of what their ears heard, their eyes beheld, their hearts understood. In every dispensation, two or more witnesses have joined their voices in such proclamations. It is the pattern of heaven. Said the Apostle Paul, “In the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Cor. 13:1]]).
+This same pattern prevailed at each step in the Restoration of the gospel of Jesus Christ in these latter days. Multiple witnesses, reliable beyond refute, have written and spoken of what their ears heard, their eyes beheld, their hearts understood. In every dispensation, two or more witnesses have joined their voices in such proclamations. It is the pattern of heaven. Said the Apostle Paul, “In the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Cor. 13:1]]).
 
 The essential nature of witnesses was brought forcibly to my mind some years ago while seeking permission from a man for his wife and children to be baptized. Our missionaries had taught the family of the divinity of Christ, the sacred appearance of God the Father and His Beloved Son to the Prophet Joseph Smith in 1820, and the Restoration of the true Church upon the earth. To each point, the missionaries bore fervent testimony, and the Holy Ghost confirmed to the mother and children that it was all true. They wished to be baptized.
 
@@ -76,7 +76,7 @@ As he approached, he extended his hand and asked, “Do you remember me?”
 
 Before more could be said, his handshake tightened and he replied: “I know! I have prayed about it as you said. The Lord has told me by the power of His Spirit that it is all true. I was baptized last weekend and ordained a priest. Today I am baptizing my friend here, for he also knows it is true.”
 
-Such is the purpose of witnesses, such is the power of the Holy Ghost, such is the anchor of truth. To the things which have been and will yet be testified of, I now add my witness that *“ye may know.”* God lives! We are His children, and He loves us. Jesus Christ is His Beloved Son, our Redeemer, and the Savior of the world. The Father and Son appeared to the Prophet Joseph Smith, answered his prayers, and gave him instructions. Other heavenly ministrants came to him thereafter, restoring what had been lost. They included Moroni bringing forth the Book of Mormon; John the Baptist restoring the priesthood of Aaron; Peter, James, and John conferring upon Joseph Smith and Oliver Cowdery the higher priesthood and holy apostleship; Moses with the keys of the gathering of Israel; Elias with the gospel of Abraham; and Elijah with the power to seal mothers, fathers, and children together as eternal families. The Lord’s gospel has been restored and His earthly kingdom reestablished, which He has named The Church of Jesus Christ of Latter-day Saints (see [[D&C 115.3|D&C 115:3–4]][[D&C 115.4|]]; [[3 Nephi 27.7|3 Ne. 27:7–8]][[3 Nephi 27.8|]]).
+Such is the purpose of witnesses, such is the power of the Holy Ghost, such is the anchor of truth. To the things which have been and will yet be testified of, I now add my witness that *“ye may know.”* God lives! We are His children, and He loves us. Jesus Christ is His Beloved Son, our Redeemer, and the Savior of the world. The Father and Son appeared to the Prophet Joseph Smith, answered his prayers, and gave him instructions. Other heavenly ministrants came to him thereafter, restoring what had been lost. They included Moroni bringing forth the Book of Mormon; John the Baptist restoring the priesthood of Aaron; Peter, James, and John conferring upon Joseph Smith and Oliver Cowdery the higher priesthood and holy apostleship; Moses with the keys of the gathering of Israel; Elias with the gospel of Abraham; and Elijah with the power to seal mothers, fathers, and children together as eternal families. The Lord’s gospel has been restored and His earthly kingdom reestablished, which He has named The Church of Jesus Christ of Latter-day Saints (see [[D&C 115.3|D&C 115:3–4]][[D&C 115.4|]]; [[3 Nephi 27.7|3 Ne. 27:7–8]][[3 Nephi 27.8|]]).
 
 If you find this or any other declaration of this conference unsettling, take up the matter with your Heavenly Father in prayer. “Ask in faith, nothing wavering” ([[James 1.6|James 1:6]]). For “if ye … ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth … unto you, by the power of the Holy Ghost.
 
@@ -87,6 +87,4 @@ This is my witness—all of this is true! In the name of Jesus Christ, amen.
 
 
 
-
-
-#Holy_Ghost #Jesus_Christ #Restoration #Testimony
+#HolyGhost #JesusChrist #Restoration #Testimony

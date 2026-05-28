@@ -1,6 +1,6 @@
 # “My Peace I Leave with You”
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -68,4 +68,5 @@ Because of the Atonement of Jesus Christ, the constant companionship of the Holy
 
 
 
-#Activation #Charity #Holy_Ghost #Humility #Peace #Service #Unity
+
+#Activation #Charity #HolyGhost #Humility #Peace #Service #Unity

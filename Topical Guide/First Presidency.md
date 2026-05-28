@@ -1,4 +1,3 @@
 # First Presidency
 
-
-*See* [[Church Organization.md|Church Organization]]
+*See also* [[Church Organization.md|Church Organization]]

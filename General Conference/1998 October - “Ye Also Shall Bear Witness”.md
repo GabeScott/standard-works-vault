@@ -69,6 +69,4 @@ To this I bear my humble witness in the name of Jesus Christ, amen.
 
 [^9]: [[D&C 123.12|D&C 123:12]].
 
-
-
-#Jesus_Christ #Joy #Obedience #Peace #Testimony
+#Joy #JesusChrist #Obedience #Peace #Testimony

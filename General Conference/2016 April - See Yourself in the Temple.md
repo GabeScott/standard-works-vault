@@ -1,6 +1,6 @@
 # See Yourself in the Temple
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -8,9 +8,9 @@ By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/04/see-yourself-in-the-temple?lang=eng)
 
-The rolling forth of the Lord’s plan of salvation during this dispensation of the fulness of times is almost beyond comprehension.[^1] This is exemplified by President Thomas S. Monson’s announcement of 4 new temples in this conference session. When President Monson was called as an Apostle in 1963, there were 12 operating temples in the world.[^2] With the dedication of the Provo City Center Temple, there are now 150, and there will be 177 when all announced temples are dedicated. This is cause for us to humbly rejoice.
+The rolling forth of the Lord’s plan of salvation during this dispensation of the fulness of times is almost beyond comprehension.[^1] This is exemplified by President Thomas S. Monson’s announcement of 4 new temples in this conference session. When President Monson was called as an Apostle in 1963, there were 12 operating temples in the world.[^2] With the dedication of the Provo City Center Temple, there are now 150, and there will be 177 when all announced temples are dedicated. This is cause for us to humbly rejoice.
 
-One hundred eighty years ago, on this very day, April 3, 1836, a magnificent vision was opened to the Prophet Joseph Smith and Oliver Cowdery in the Kirtland Temple. This occurred just one week after the dedication of that temple. In this vision they saw the Lord standing upon the breastwork of the pulpit in the temple. Among other things, the Savior declared:
+One hundred eighty years ago, on this very day, April 3, 1836, a magnificent vision was opened to the Prophet Joseph Smith and Oliver Cowdery in the Kirtland Temple. This occurred just one week after the dedication of that temple. In this vision they saw the Lord standing upon the breastwork of the pulpit in the temple. Among other things, the Savior declared:
 
 “Let the hearts of all my people rejoice, who have, with their might, built this house to my name.
 
@@ -28,7 +28,7 @@ My challenge this morning is for each of us, wherever we live, to see ourselves 
 
 Despite the lack of righteousness in the world today, we live in a sacred, holy time. Prophets, with loving and longing hearts, have described our day for centuries.[^6]
 
-The Prophet Joseph Smith, citing both Obadiah[^7] in the Old Testament and 1 Peter[^8] in the New Testament, acknowledged the great purpose of God in providing baptism for the dead and allowing us to be saviors on Mount Zion.[^9]
+The Prophet Joseph Smith, citing both Obadiah[^7] in the Old Testament and 1 Peter[^8] in the New Testament, acknowledged the great purpose of God in providing baptism for the dead and allowing us to be saviors on Mount Zion.[^9]
 
 The Lord has prospered our people and provided the resources and prophetic guidance so we can be valiant in attending to our temple responsibilities for both the living and the dead.
 
@@ -66,7 +66,7 @@ It is clear that those with broken hearts and contrite spirits who have truly re
 
 Just think, across the entire world women and men can through “sacred ordinances and covenants available in holy temples … return to the presence of God and … be united eternally.”[^20] They do this in a beautiful, sacred sealing room available to all temple-worthy members. After they enter into these covenants, they can “see themselves in the temple” mirrors that face each other. “Together the temple mirrors reflect back and forth images that stretch seemingly into eternity.”[^21] These reflected images help us contemplate parents, grandparents, and all previous generations. They help us recognize the sacred covenants that connect us to all generations that follow. This is incredibly significant, and it starts when you see yourself in the temple.
 
-President Howard W. Hunter counseled us to “consider the majestic teachings in the great dedicatory prayer of the Kirtland Temple, a prayer the Prophet Joseph Smith said was given to him by revelation. It is a prayer that continues to be answered upon us individually, upon us as families, and upon us as a people because of the priesthood power the Lord has given us to use in His holy temples.”[^22] We would do well to study the [[D&C 109.1|109th section of the Doctrine and Covenants]][[D&C 109.2|]][[D&C 109.3|]][[D&C 109.4|]][[D&C 109.5|]][[D&C 109.6|]][[D&C 109.7|]][[D&C 109.8|]][[D&C 109.9|]][[D&C 109.10|]][[D&C 109.11|]][[D&C 109.12|]][[D&C 109.13|]][[D&C 109.14|]][[D&C 109.15|]][[D&C 109.16|]][[D&C 109.17|]][[D&C 109.18|]][[D&C 109.19|]][[D&C 109.20|]][[D&C 109.21|]][[D&C 109.22|]][[D&C 109.23|]][[D&C 109.24|]][[D&C 109.25|]][[D&C 109.26|]][[D&C 109.27|]][[D&C 109.28|]][[D&C 109.29|]][[D&C 109.30|]][[D&C 109.31|]][[D&C 109.32|]][[D&C 109.33|]][[D&C 109.34|]][[D&C 109.35|]][[D&C 109.36|]][[D&C 109.37|]][[D&C 109.38|]][[D&C 109.39|]][[D&C 109.40|]][[D&C 109.41|]][[D&C 109.42|]][[D&C 109.43|]][[D&C 109.44|]][[D&C 109.45|]][[D&C 109.46|]][[D&C 109.47|]][[D&C 109.48|]][[D&C 109.49|]][[D&C 109.50|]][[D&C 109.51|]][[D&C 109.52|]][[D&C 109.53|]][[D&C 109.54|]][[D&C 109.55|]][[D&C 109.56|]][[D&C 109.57|]][[D&C 109.58|]][[D&C 109.59|]][[D&C 109.60|]][[D&C 109.61|]][[D&C 109.62|]][[D&C 109.63|]][[D&C 109.64|]][[D&C 109.65|]][[D&C 109.66|]][[D&C 109.67|]][[D&C 109.68|]][[D&C 109.69|]][[D&C 109.70|]][[D&C 109.71|]][[D&C 109.72|]][[D&C 109.73|]][[D&C 109.74|]][[D&C 109.75|]][[D&C 109.76|]][[D&C 109.77|]][[D&C 109.78|]][[D&C 109.79|]][[D&C 109.80|]] and to follow President Hunter’s admonition “to establish the temple of the Lord as the great symbol of \[our\] membership.”[^23]
+President Howard W. Hunter counseled us to “consider the majestic teachings in the great dedicatory prayer of the Kirtland Temple, a prayer the Prophet Joseph Smith said was given to him by revelation. It is a prayer that continues to be answered upon us individually, upon us as families, and upon us as a people because of the priesthood power the Lord has given us to use in His holy temples.”[^22] We would do well to study the [[D&C 109.1|109th section of the Doctrine and Covenants]][[D&C 109.2|]][[D&C 109.3|]][[D&C 109.4|]][[D&C 109.5|]][[D&C 109.6|]][[D&C 109.7|]][[D&C 109.8|]][[D&C 109.9|]][[D&C 109.10|]][[D&C 109.11|]][[D&C 109.12|]][[D&C 109.13|]][[D&C 109.14|]][[D&C 109.15|]][[D&C 109.16|]][[D&C 109.17|]][[D&C 109.18|]][[D&C 109.19|]][[D&C 109.20|]][[D&C 109.21|]][[D&C 109.22|]][[D&C 109.23|]][[D&C 109.24|]][[D&C 109.25|]][[D&C 109.26|]][[D&C 109.27|]][[D&C 109.28|]][[D&C 109.29|]][[D&C 109.30|]][[D&C 109.31|]][[D&C 109.32|]][[D&C 109.33|]][[D&C 109.34|]][[D&C 109.35|]][[D&C 109.36|]][[D&C 109.37|]][[D&C 109.38|]][[D&C 109.39|]][[D&C 109.40|]][[D&C 109.41|]][[D&C 109.42|]][[D&C 109.43|]][[D&C 109.44|]][[D&C 109.45|]][[D&C 109.46|]][[D&C 109.47|]][[D&C 109.48|]][[D&C 109.49|]][[D&C 109.50|]][[D&C 109.51|]][[D&C 109.52|]][[D&C 109.53|]][[D&C 109.54|]][[D&C 109.55|]][[D&C 109.56|]][[D&C 109.57|]][[D&C 109.58|]][[D&C 109.59|]][[D&C 109.60|]][[D&C 109.61|]][[D&C 109.62|]][[D&C 109.63|]][[D&C 109.64|]][[D&C 109.65|]][[D&C 109.66|]][[D&C 109.67|]][[D&C 109.68|]][[D&C 109.69|]][[D&C 109.70|]][[D&C 109.71|]][[D&C 109.72|]][[D&C 109.73|]][[D&C 109.74|]][[D&C 109.75|]][[D&C 109.76|]][[D&C 109.77|]][[D&C 109.78|]][[D&C 109.79|]][[D&C 109.80|]] and to follow President Hunter’s admonition “to establish the temple of the Lord as the great symbol of \[our\] membership.”[^23]
 
 The temple is also a place of refuge, thanksgiving, instruction, and understanding, “that \[we\] may be perfected … in all things pertaining to the kingdom of God on the earth.”[^24] Throughout my life it has been a place of tranquility and peace in a world that is literally in commotion.[^25] It is wonderful to leave the cares of the world behind in that sacred setting.
 
@@ -74,15 +74,15 @@ Often in the temple, and as we engage in family history research, we feel prompt
 
 Several years ago in a temple in Central America, the wife of one of our now-emeritus General Authorities assisted a father, a mother, and their children in receiving eternal covenants in the sealing room, where the temple mirrors are located. As they concluded and faced those mirrors, she noticed there was a face in the mirror that was not in the room. She inquired of the mother and learned that a daughter had passed away and accordingly was not physically present. The deceased daughter was then included by proxy in the sacred ordinance.[^27] Never underestimate the assistance provided in temples from the other side of the veil.
 
-Please know how earnestly we desire that everyone make any necessary changes to qualify for the temple. Prayerfully review where you are in your life, seek the guidance of the Spirit, and talk to your bishop about preparing yourself for the temple. President Thomas S. Monson has said, “There is no more important goal for you to work toward than being worthy to go to the temple.”[^28]
+Please know how earnestly we desire that everyone make any necessary changes to qualify for the temple. Prayerfully review where you are in your life, seek the guidance of the Spirit, and talk to your bishop about preparing yourself for the temple. President Thomas S. Monson has said, “There is no more important goal for you to work toward than being worthy to go to the temple.”[^28]
 
 ## The Savior “Is the Chief, Immovable Cornerstone of Our Faith and His Church”
 
-I was privileged to participate with President Henry B. Eyring at the rededication of the Suva Fiji Temple two months ago. It was a special, sacred occasion. President Eyring’s courage and strong spiritual impressions allowed the rededication to proceed in the face of the worst cyclone ever recorded in the Southern Hemisphere. Physical and spiritual protections were provided to youth, missionaries, and members.[^29] The hand of the Lord was clearly evident. The Suva Fiji Temple rededication was a refuge from the storm. Often as we experience the storms of life, we witness the Lord’s hand in providing eternal protections.
+I was privileged to participate with President Henry B. Eyring at the rededication of the Suva Fiji Temple two months ago. It was a special, sacred occasion. President Eyring’s courage and strong spiritual impressions allowed the rededication to proceed in the face of the worst cyclone ever recorded in the Southern Hemisphere. Physical and spiritual protections were provided to youth, missionaries, and members.[^29] The hand of the Lord was clearly evident. The Suva Fiji Temple rededication was a refuge from the storm. Often as we experience the storms of life, we witness the Lord’s hand in providing eternal protections.
 
-The original dedication of the Suva Fiji Temple on June 18, 2000, was also remarkable. As the temple neared completion, members of parliament were taken hostage by a group of rebels. Downtown Suva, Fiji, was looted and burned. The military declared martial law.
+The original dedication of the Suva Fiji Temple on June 18, 2000, was also remarkable. As the temple neared completion, members of parliament were taken hostage by a group of rebels. Downtown Suva, Fiji, was looted and burned. The military declared martial law.
 
-As the Area President, I went with the four stake presidents in Fiji and met the military leaders at the Queen Elizabeth barracks. After we explained the proposed dedication, they were supportive but concerned about the safety of President Gordon B. Hinckley. They recommended a small dedication with no events outside the temple, like the cornerstone ceremony. They emphasized that anyone outside the temple could be a potential target for violence.
+As the Area President, I went with the four stake presidents in Fiji and met the military leaders at the Queen Elizabeth barracks. After we explained the proposed dedication, they were supportive but concerned about the safety of President Gordon B. Hinckley. They recommended a small dedication with no events outside the temple, like the cornerstone ceremony. They emphasized that anyone outside the temple could be a potential target for violence.
 
 President Hinckley approved one small dedicatory session with just the new temple presidency and a few local leaders; no others were invited because of the danger. However, he emphatically stated, “If we do dedicate the temple, we will have the cornerstone ceremony because Jesus Christ is the chief cornerstone, and this is His Church.”
 
@@ -97,19 +97,19 @@ Brothers and sisters, I pray that each of us will honor the Savior and make any 
 
 [^1]: See [[D&C 112.30|Doctrine and Covenants 112:30–32]][[D&C 112.31|]][[D&C 112.32|]].
 
-[^2]: The 12th temple, the London England Temple, was dedicated on September 7, 1958.
+[^2]: The 12th temple, the London England Temple, was dedicated on September 7, 1958.
 
 [^3]: [[D&C 110.6|Doctrine and Covenants 110:6–7]][[D&C 110.7|]].
 
 [^4]: Shelly Senior, email, Apr. 6, 2015.
 
-[^5]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 93.
+[^5]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 93.
 
 [^6]: See [[Isaiah 2.2|Isaiah 2:2]].
 
 [^7]: See [[Obadiah 1.21|Obadiah 1:21]].
 
-[^8]: See [[1 Peter 4.6|1 Peter 4:6]].
+[^8]: See [[1 Peter 4.6|1 Peter 4:6]].
 
 [^9]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 409.
 
@@ -133,28 +133,26 @@ Brothers and sisters, I pray that each of us will honor the Savior and make any 
 
 [^19]: See [[D&C 100.16|Doctrine and Covenants 100:16]].
 
-[^20]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^20]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^21]: Gerrit W. Gong, “[[2010 October - Temple Mirrors of Eternity - A Testimony of Family.md|Temple Mirrors of Eternity: A Testimony of Family]],” *Ensign* or *Liahona,* Nov. 2010, 37.
+[^21]: Gerrit W. Gong, “[[2010 October - Temple Mirrors of Eternity - A Testimony of Family.md|Temple Mirrors of Eternity: A Testimony of Family]],” *Ensign* or *Liahona,* Nov. 2010, 37.
 
-[^22]: *Teachings of Presidents of the Church: Howard W. Hunter* (2015), 183.
+[^22]: *Teachings of Presidents of the Church: Howard W. Hunter* (2015), 183.
 
-[^23]: *Teachings: Howard W. Hunter,* 178.
+[^23]: *Teachings: Howard W. Hunter,* 178.
 
 [^24]: See [[D&C 97.13|Doctrine and Covenants 97:13–14]][[D&C 97.14|]].
 
 [^25]: See [[D&C 45.26|Doctrine and Covenants 45:26–27]][[D&C 45.27|]].
 
-[^26]: We often refer to this as the spirit of Elijah. President Russell M. Nelson has taught that the spirit of Elijah is “a manifestation of the Holy Ghost bearing witness of the divine nature of the family” (“[[1998 April - A New Harvest Time.md|A New Harvest Time]],” *Ensign,* May 1998, 34).
+[^26]: We often refer to this as the spirit of Elijah. President Russell M. Nelson has taught that the spirit of Elijah is “a manifestation of the Holy Ghost bearing witness of the divine nature of the family” (“[[1998 April - A New Harvest Time.md|A New Harvest Time]],” *Ensign,* May 1998, 34).
 
 [^27]: Shared with permission.
 
-[^28]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” 93.
+[^28]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” 93.
 
 [^29]: Missionaries and youth brought in from outer islands were housed in safe Church schools and Church buildings and were safe from the worst aspects of Cyclone Winston.
 
-[^30]: Gordon B. Hinckley, “[Four Cornerstones of Faith](https://churchofjesuschrist.org/study/liahona/2004/02/four-cornerstones-of-faith?lang=eng),” *Ensign* or *Liahona,* Feb. 2004, 4–5.
+[^30]: Gordon B. Hinckley, “[Four Cornerstones of Faith](https://www.churchofjesuschrist.org/study/liahona/2004/02/four-cornerstones-of-faith?lang=eng),” *Ensign* or *Liahona,* Feb. 2004, 4–5.
 
-
-
-#Covenants #Family_History #Ordinances #Repentance #Temple_Work #Temples
+#Covenants #FamilyHistory #Ordinances #Repentance #Temples #TempleWork

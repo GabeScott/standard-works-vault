@@ -1,6 +1,6 @@
 # Be Ye Converted
 
-By Bonnie L. Oscarson - *Young Women General President*
+By Bonnie L. Oscarson - *Young Women General President*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -45,7 +45,7 @@ I testify that we have a loving Heavenly Father whose greatest desire is to help
 
 [^1]: [[Joshua 24.15|Joshua 24:15]].
 
-[^2]: Fuschia Stringham, “Sketch of the Life of Isabelle Hunter Hoggan Stringham” (unpublished personal history, 1934), 4.
+[^2]: Fuchsia Stringham, “Sketch of the Life of Isabelle Hunter Hoggan Stringham” (unpublished personal history, 1934), 4.
 
 [^3]: [[Mosiah 5.2|Mosiah 5:2]].
 
@@ -64,7 +64,5 @@ I testify that we have a loving Heavenly Father whose greatest desire is to help
 [^10]: [[D&C 25.10|Doctrine and Covenants 25:10]].
 
 [^11]: [[Moses 1.39|Moses 1:39]].
-
-
 
 #Conversion

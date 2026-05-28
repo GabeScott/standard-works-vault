@@ -1,7 +1,6 @@
 # Lawgiver
 
-
-not depart ... nor a *lawgiver* from between his feet, [[Genesis 49.10|Genesis 49:10]].
+not depart … nor a *lawgiver* from between his feet, [[Genesis 49.10|Genesis 49:10]].
 
 Judah is my *lawgiver*, [[Psalms 60.7|Psalms 60:7]] ([[Psalms 108.8|Psalms 108:8]]).
 

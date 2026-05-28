@@ -1,13 +1,12 @@
 # Field
 
-
 every plant of the *field* before it was in the earth, [[Genesis 2.5|Genesis 2:5]] ([[Moses 3.5|Moses 3:5]]; [[Abraham 5.5|Abraham 5:5]]).
 
 he bought a parcel of a *field*, [[Genesis 33.19|Genesis 33:19]].
 
 Let me now go to the *field*, and glean, [[Ruth 2.2|Ruth 2:2]].
 
-Woe unto them ... that lay *field* to *field*, [[Isaiah 5.8|Isaiah 5:8]] ([[2 Nephi 15.8|2 Nephi 15:8]]).
+Woe unto them … that lay *field* to *field*, [[Isaiah 5.8|Isaiah 5:8]] ([[2 Nephi 15.8|2 Nephi 15:8]]).
 
 Zion shall be plowed like a *field*, [[Jeremiah 26.18|Jeremiah 26:18]] ([[Micah 3.12|Micah 3:12]]).
 

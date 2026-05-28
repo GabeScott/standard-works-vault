@@ -16,7 +16,7 @@ As this Easter season approaches, and always, we rejoice in the most meaningful 
 >Ever he calls, “Come to me.”
 >
 
-The Savior extends His generous invitation simply because He loves us and He knows we need Him. He can help us and heal us. He understands us because of His own experiences. The scriptures report: “And he shall go forth, suffering pains and afflictions and temptations of every kind … , that he may know … how to succor his people according to their infirmities” ([[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]). We want to come unto Christ because it is only in Him and through Him that we can return to the Father.
+The Savior extends His generous invitation simply because He loves us and He knows we need Him. He can help us and heal us. He understands us because of His own experiences. The scriptures report: “And he shall go forth, suffering pains and afflictions and temptations of every kind … , that he may know … how to succor his people according to their infirmities” ([[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]). We want to come unto Christ because it is only in Him and through Him that we can return to the Father.
 
 A simple thing happened many years ago that I have always remembered because it caused me to think about the Savior’s mission. Although it was just a childish incident, it has some meaning. It happened when our twins were only about five years old. They were just learning to ride their bicycles. As I glanced out the window, I saw them speeding down the street on their bikes going very fast! Perhaps they were going a little too fast for their level of ability, because all of a sudden Adam had a terrible crash! He was tangled up in the wreck, and all I could see was a twist of handlebars and tires and arms and legs. His little twin brother, Aaron, saw the whole thing happen, and immediately he skidded to a stop and jumped off his bike. He threw it down and ran to the aid of his brother, whom he loved very much. These little twins truly were of one heart. If one hurt, so did the other. If one got tickled, they both laughed. If one started a sentence, the other could complete it. What one felt, the other did also. So it was painful for Aaron to see Adam crash! Adam was a mess. He had skinned knees, he was bleeding from a head wound, his pride was damaged, and he was crying. In a fairly gentle five-year-old way, Aaron helped his brother get untangled from the crash, he checked out the wounds, and then he did the dearest thing. He picked his brother up and carried him home. Or tried to. This wasn’t very easy because they were the same size, but he tried. And as he struggled and lifted and half-dragged, half-carried his brother along, they finally reached the front porch. By this time, Adam, the injured one, was no longer crying, but Aaron, the rescuer, was. When asked, “Why are you crying, Aaron?” he said simply, “Because Adam hurts.” And so he had brought him home to help, home to someone who knew what to do, to someone who could cleanse the wounds, bind them up, and make them better—home to love.
 
@@ -54,11 +54,9 @@ I pray that parents of precious young women all over the world will be ever than
 
 In closing today, may I express my gratitude. First of all, gratitude for the home of my youth, which was filled with the kind of love Christ taught about; gratitude for the privilege of walking by the side of my dear husband, Stephen, where I have been blessed and prepared and sustained; and gratitude for precious children, whose lives of constant, tender support inspire us, give us great joy, and often show us the way.
 
-I bear testimony that as we accept the invitation to come unto Christ, we will find that He can heal all wounds. He can lift our burdens and carry them for us, and we can feel “encircled about eternally in the arms of his love” ([[2 Nephi 1.15|2 Ne. 1:15]]). In the name of Jesus Christ, amen.
+I bear testimony that as we accept the invitation to come unto Christ, we will find that He can heal all wounds. He can lift our burdens and carry them for us, and we can feel “encircled about eternally in the arms of his love” ([[2 Nephi 1.15|2 Ne. 1:15]]). In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Jesus_Christ #Youth
+#JesusChrist #Youth

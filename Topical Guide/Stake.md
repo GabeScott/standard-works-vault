@@ -1,6 +1,5 @@
 # Stake
 
-
 *See also* [[Church Organization.md|Church Organization]]
 
 not one of the *stakes* thereof shall ever be removed, [[Isaiah 33.20|Isaiah 33:20]].
@@ -15,7 +14,7 @@ called *stakes*, for the curtains or the strength, [[D&C 101.21|D&C 101:21]].
 
 appoint unto Zion other *stakes* besides this one, [[D&C 109.59|D&C 109:59]].
 
-gathering together upon ... Zion, and upon her *stakes*, may be for a defense, [[D&C 115.6|D&C 115:6]].
+gathering together upon … Zion, and upon her *stakes*, may be for a defense, [[D&C 115.6|D&C 115:6]].
 
 other places should be appointed for *stakes*, [[D&C 115.18|D&C 115:18]].
 

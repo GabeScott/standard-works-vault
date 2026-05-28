@@ -1,6 +1,6 @@
 # Be Not Troubled
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/be-not-troubled?lang=eng)
 
-I add my witness to the messages of President Russell M. Nelson and Elder Quentin L. Cook given moments ago of the harmony and unanimity of the Council of the First Presidency and Quorum of the Twelve Apostles. I know these revelatory announcements are the mind and the will of the Lord and will bless and strengthen individuals, families, and The Church of Jesus Christ of Latter-day Saints for generations to come.
+I add my witness to the messages of President Russell M. Nelson and Elder Quentin L. Cook given moments ago of the harmony and unanimity of the Council of the First Presidency and Quorum of the Twelve Apostles. I know these revelatory announcements are the mind and the will of the Lord and will bless and strengthen individuals, families, and The Church of Jesus Christ of Latter-day Saints for generations to come.
 
 Some years ago, one of our young married daughters and her husband asked Sister Rasband and me a very important, life-influencing question: “Is it still safe and wise to bring children into this seemingly wicked and frightening world we live in?”
 
@@ -16,7 +16,7 @@ Now, that was an important question for a mom and dad to consider with their dea
 
 Fear is not new. The disciples of Jesus Christ, out on the Sea of Galilee, feared the “wind, and the waves” in the dark of the night.[^1] As His disciples today, we too have fears. Our single adults fear making commitments such as getting married. Young marrieds, like our children, can fear bringing children into an increasingly wicked world. Missionaries fear lots of things, especially approaching strangers. Widows fear going forward alone. Teenagers fear not being accepted; grade schoolers fear the first day of school; university students fear getting back a test. We fear failure, rejection, disappointment, and the unknown. We fear hurricanes, earthquakes, and fires that ravage the land and our lives. We fear not being chosen, and on the flip side, we fear being chosen. We fear not being good enough; we fear that the Lord has no blessings for us. We fear change, and our fears can escalate to terror. Have I included just about everyone?
 
-Since ancient times, fear has limited the perspective of God’s children. I have always loved the account of Elisha in 2 Kings. The king of Syria had sent a legion that “came by night, and compassed the city about.”[^2] Their intent was to capture and kill the prophet Elisha. We read:
+Since ancient times, fear has limited the perspective of God’s children. I have always loved the account of Elisha in 2 Kings. The king of Syria had sent a legion that “came by night, and compassed the city about.”[^2] Their intent was to capture and kill the prophet Elisha. We read:
 
 “And when the servant of the man of God was risen early, and gone forth, behold, an host compassed the city both with horses and chariots. And his servant said unto him, Alas, my master! how shall we do?”[^3]
 
@@ -36,7 +36,7 @@ We may or may not have chariots of fire sent to dispel our fears and conquer our
 
 “Fear not, little flock.”[^8] I love the tenderness of “little flock.” In this Church we may be few in number by the way the world counts influence, but when we open our spiritual eyes, “they that be with us are more than they that be with them.”[^9] Our loving Shepherd, Jesus Christ, then continues, “Let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail.”[^10]
 
-How is fear dispelled? For the young lad, he was standing right next to Elisha, a prophet of God. We have that same promise. When we listen to President Russell M. Nelson, when we hearken to his counsel, we are standing with a prophet of God. Remember the words of Joseph Smith: “And now, after the many testimonies which have been given of him, this is the testimony, last of all, which we give of him: That he lives!”[^11] Jesus Christ lives. Our love for Him and His gospel dispels fear.
+How is fear dispelled? For the young lad, he was standing right next to Elisha, a prophet of God. We have that same promise. When we listen to President Russell M. Nelson, when we hearken to his counsel, we are standing with a prophet of God. Remember the words of Joseph Smith: “And now, after the many testimonies which have been given of him, this is the testimony, last of all, which we give of him: That he lives!”[^11] Jesus Christ lives. Our love for Him and His gospel dispels fear.
 
 Our desire to “always have his Spirit”[^12] with us will push fear aside for a more eternal view of our mortal lives. President Nelson has cautioned, “In coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^13]
 
@@ -83,13 +83,13 @@ Take heart, brothers and sisters. Yes, we live in perilous times, but as we stay
 
 [^1]: [[Mark 4.37|Mark 4:37]].
 
-[^2]: [[2 Kings 6.14|2 Kings 6:14]].
+[^2]: [[2 Kings 6.14|2 Kings 6:14]].
 
-[^3]: [[2 Kings 6.15|2 Kings 6:15]].
+[^3]: [[2 Kings 6.15|2 Kings 6:15]].
 
-[^4]: [[2 Kings 6.16|2 Kings 6:16]].
+[^4]: [[2 Kings 6.16|2 Kings 6:16]].
 
-[^5]: [[2 Kings 6.17|2 Kings 6:17]].
+[^5]: [[2 Kings 6.17|2 Kings 6:17]].
 
 [^6]: [[D&C 68.6|Doctrine and Covenants 68:6]].
 
@@ -97,7 +97,7 @@ Take heart, brothers and sisters. Yes, we live in perilous times, but as we stay
 
 [^8]: [[D&C 6.34|Doctrine and Covenants 6:34]].
 
-[^9]: [[2 Kings 6.16|2 Kings 6:16]].
+[^9]: [[2 Kings 6.16|2 Kings 6:16]].
 
 [^10]: [[D&C 6.34|Doctrine and Covenants 6:34]].
 
@@ -105,7 +105,7 @@ Take heart, brothers and sisters. Yes, we live in perilous times, but as we stay
 
 [^12]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^13]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
+[^13]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
 
 [^14]: [[D&C 45.32|Doctrine and Covenants 45:32]].
 
@@ -117,16 +117,14 @@ Take heart, brothers and sisters. Yes, we live in perilous times, but as we stay
 
 [^18]: [[Philippians 4.7|Philippians 4:7]].
 
-[^19]: [[2 Timothy 3.1|2 Timothy 3:1–2, 4]][[2 Timothy 3.2|]][[2 Timothy 3.4|]].
+[^19]: [[2 Timothy 3.1|2 Timothy 3:1–2, 4]][[2 Timothy 3.2|]][[2 Timothy 3.4|]].
 
-[^20]: [[2 Kings 6.16|2 Kings 6:16]].
+[^20]: [[2 Kings 6.16|2 Kings 6:16]].
 
 [^21]: [[D&C 45.57|Doctrine and Covenants 45:57]].
 
-[^22]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96.
+[^22]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96.
 
-[^23]: Spencer W. Kimball, in Conference Report, Oct. 1943, 16–17.
+[^23]: Spencer W. Kimball, in Conference Report, Oct. 1943, 16–17.
 
-
-
-#Faith #Jesus_Christ
+#Faith #JesusChrist

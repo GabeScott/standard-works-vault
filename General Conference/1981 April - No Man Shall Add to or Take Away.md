@@ -1,6 +1,6 @@
 # No Man Shall Add to or Take Away
 
-By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
+By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -55,8 +55,6 @@ In a revelation to a modern oracle, Joseph Smith, the Lord said:
 The Savior is reigning in the midst of the Saints today through continuous revelation. I testify that he is with his servants in this day and will be until the end of the earth.
 
 May our vision not be so narrow that we would relegate revelation to only the ancients. God is merciful and loves his children in all ages and has revealed himself to this time in history. Of this I solemnly testify, in the name of Jesus Christ, amen.
-
-
 
 
 

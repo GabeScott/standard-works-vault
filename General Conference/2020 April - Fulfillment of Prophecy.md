@@ -1,6 +1,6 @@
 # Fulfillment of Prophecy
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -28,7 +28,7 @@ Other prophets foretold of our day. Malachi spoke of Elijah turning “the heart
 
 We live in that time prophesied; we are the people charged with ushering in the Second Coming of Jesus Christ; we are to gather God’s children, those who will hear and embrace the truths, covenants, and promises of the everlasting gospel. President Nelson calls it “*the greatest* challenge, *the greatest* cause, and *the greatest* work on \[the\] earth today.”[^13] Of that miracle I bear my witness.
 
-By assignment from President Russell M. Nelson, in February of this year I dedicated the Durban South Africa Temple. It was a day I will remember all my life. I was with members who have come to the gospel as Jeremiah prophesied long ago—“one of a city, and two of a family.”[^14] The doctrine of Jesus Christ unites all of us—around the world—as sons and daughters of God, as brothers and sisters in the gospel. Regardless of how we look or dress, we are one people with a Father in Heaven whose plan from the beginning was and is for His family to be reunited by making and keeping sacred temple covenants.
+By assignment from President Russell M. Nelson, in February of this year I dedicated the Durban South Africa Temple. It was a day I will remember all my life. I was with members who have come to the gospel as Jeremiah prophesied long ago—“one of a city, and two of a family.”[^14] The doctrine of Jesus Christ unites all of us—around the world—as sons and daughters of God, as brothers and sisters in the gospel. Regardless of how we look or dress, we are one people with a Father in Heaven whose plan from the beginning was and is for His family to be reunited by making and keeping sacred temple covenants.
 
 To a small gathering of priesthood holders in a schoolhouse in Kirtland, Ohio, in 1834, the Prophet Joseph prophesied, “It is only a little handfull of Priesthood you see here tonight, but this Church will fill North and South America—it will fill the world.”[^15]
 
@@ -52,16 +52,16 @@ It is not the landscape that has drawn people, though our setting is magnificent
 
 We do not know when the Savior will return, but this we do know. We must be prepared in heart and mind, worthy to receive Him, and honored to be part of all that was prophesied so long ago.
 
-I testify that President Russell M. Nelson is the Lord’s prophet on the earth, and at his side are Apostles called of God, sustained as prophets, seers, and revelators. And, my dear brothers and sisters, the Restoration continues.
+I testify that President Russell M. Nelson is the Lord’s prophet on the earth, and at his side are Apostles called of God, sustained as prophets, seers, and revelators. And, my dear brothers and sisters, the Restoration continues.
 
 I close with the prophecy of Joseph Smith, words that I testify are true: “No unhallowed hand can stop the work from progressing; persecutions may rage, mobs may combine, armies may assemble, calumny may defame, but the truth of God will go forth boldly, nobly, and independent, till it has penetrated every continent, visited every clime, swept every country, and sounded in every ear, till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done.”[^26] I so testify that these prophecies of Joseph Smith are being fulfilled.
 
-I promise as you follow the inspired counsel of our dear prophet, President Russell M. Nelson, his counselors, the Apostles, and other Church leaders, and as you pay heed to the ancient prophets who foretold of our day, you will be filled, deep in your heart and soul, with the spirit and the work of the Restoration. I promise you will see the hand of God in your lives, hear His promptings, and feel His love. In the name of Jesus Christ, with gratitude for the Restoration of His gospel and His Church, in evidence of His matchless love, amen.
+I promise as you follow the inspired counsel of our dear prophet, President Russell M. Nelson, his counselors, the Apostles, and other Church leaders, and as you pay heed to the ancient prophets who foretold of our day, you will be filled, deep in your heart and soul, with the spirit and the work of the Restoration. I promise you will see the hand of God in your lives, hear His promptings, and feel His love. In the name of Jesus Christ, with gratitude for the Restoration of His gospel and His Church, in evidence of His matchless love, amen.
 
 
 
 
-[^1]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 515.
+[^1]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-44?lang=eng)* (2007), 515.
 
 [^2]: [[Isaiah 29.14|Isaiah 29:14]].
 
@@ -75,23 +75,23 @@ I promise as you follow the inspired counsel of our dear prophet, President Russ
 
 [^7]: [[Ephesians 2.20|Ephesians 2:20]].
 
-[^8]: [[2 Nephi 3.6|2 Nephi 3:6]].
+[^8]: [[2 Nephi 3.6|2 Nephi 3:6]].
 
-[^9]: [[2 Nephi 3.8|2 Nephi 3:8]].
+[^9]: [[2 Nephi 3.8|2 Nephi 3:8]].
 
 [^10]: [[Revelation 14.6|Revelation 14:6]].
 
 [^11]: [[Malachi 4.6|Malachi 4:6]].
 
-[^12]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/ensign/2017/05/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
+[^12]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/ensign/2017/05/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
-[^13]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
+[^13]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
 
 [^14]: [[Jeremiah 3.14|Jeremiah 3:14]].
 
-[^15]: Joseph Smith, in *Teachings of Presidents of the Church: Wilford Woodruff* (2004), 26.
+[^15]: Joseph Smith, in *[Teachings of Presidents of the Church: Wilford Woodruff](https://www.churchofjesuschrist.org/study/manual/teachings-wilford-woodruff/chapter-3?lang=eng)* (2004), 26.
 
-[^16]: See Valerie Johnson, “President Nelson Became the Prophet 2 Years Ago. What Has Happened Since Then?” *Church News,* Jan. 13, 2020, thechurchnews.com.
+[^16]: See Valerie Johnson, “President Nelson Became the Prophet 2 Years Ago. What Has Happened Since Then?” *Church News,* Jan. 13, 2020, thechurchnews.com.
 
 [^17]: [[D&C 100.3|Doctrine and Covenants 100:3]].
 
@@ -101,18 +101,16 @@ I promise as you follow the inspired counsel of our dear prophet, President Russ
 
 [^20]: [[Isaiah 2.2|Isaiah 2:2]].
 
-[^21]: The phrase “This is the right place” was first attributed to Brigham Young by Wilford Woodruff while speaking at a Pioneer Day celebration in July 1880 (see “Pioneers’ Day,” *Deseret Evening News,* July 26, 1880, 2).
+[^21]: The phrase “This is the right place” was first attributed to Brigham Young by Wilford Woodruff while speaking at a Pioneer Day celebration in July 1880 (see “Pioneers’ Day,” *Deseret Evening News,* July 26, 1880, 2).
 
-[^22]: Brigham Young, Mar. 31, 1861, Historian’s Office reports of speeches, 1845–1885, Church History Library, Salt Lake City.
+[^22]: Brigham Young, Mar. 31, 1861, Historian’s Office reports of speeches, 1845–1885, Church History Library, Salt Lake City.
 
-[^23]: See “[First Presidency and NAACP Leaders Call for Greater Civility, Racial Harmony](https://newsroom.churchofjesuschrist.org/article/joint-statement-first-presidency-naacp-national-leadership),” May 17, 2018, newsroom.ChurchofJesusChrist.org.
+[^23]: See “[First Presidency and NAACP Leaders Call for Greater Civility, Racial Harmony](https://newsroom.churchofjesuschrist.org/article/joint-statement-first-presidency-naacp-national-leadership),” May 17, 2018, newsroom.ChurchofJesusChrist.org.
 
 [^24]: [[Isaiah 2.2|Isaiah 2:2]]; see also [[Micah 4.1|Micah 4:1–2]][[Micah 4.2|]].
 
-[^25]: *Teachings: Joseph Smith,* 352.
+[^25]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-30?lang=eng),* 352.
 
-[^26]: *Teachings: Joseph Smith,* 142.
-
-
+[^26]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng),* 142.
 
 #Prophecy #Restoration

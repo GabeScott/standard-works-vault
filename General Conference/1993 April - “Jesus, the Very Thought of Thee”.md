@@ -81,6 +81,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Humility #Jesus_Christ #Reverence
+#Humility #JesusChrist #Reverence

@@ -6,7 +6,7 @@ By Elder Helio R. Camargo - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1990/10/in-all-things-give-thanks?lang=eng)
 
-Brothers, sisters, and friends, as the Apostle Paul counseled the Thessalonian Saints, “In every thing give thanks” ([[1 Thessalonians 5.18|1 Thes. 5:18]]), today I would like to express my gratitude for some of the special blessings in my life.
+Brothers, sisters, and friends, as the Apostle Paul counseled the Thessalonian Saints, “In every thing give thanks” ([[1 Thessalonians 5.18|1 Thes. 5:18]]), today I would like to express my gratitude for some of the special blessings in my life.
 
 I am very grateful to have been born and reared in a Christian family, where from the earliest years of my life I had the privilege of coming to know and appreciate the sacred scriptures of the Bible.
 
@@ -34,13 +34,11 @@ I am grateful especially for the restoration of the priesthood, including the sa
 
 The recognition of and gratitude for blessings received has been a message emphasized not only by the Apostles and prophets of ancient times, but also even in this time by these prophets who are present with us here in the Tabernacle today.
 
-Considering again the admonition of the Apostle Paul, “In every thing give thanks” ([[1 Thessalonians 5.18|1 Thes. 5:18]]), we should be grateful for the blessings which we seek and receive as well as for those blessings that come to us that are beyond our current capacity to comprehend. All is provided by God, who is just, loving, and perfect and will result for our good because “all things work together for good to them that love God” ([[Romans 8.28|Rom. 8:28]]).
+Considering again the admonition of the Apostle Paul, “In every thing give thanks” ([[1 Thessalonians 5.18|1 Thes. 5:18]]), we should be grateful for the blessings which we seek and receive as well as for those blessings that come to us that are beyond our current capacity to comprehend. All is provided by God, who is just, loving, and perfect and will result for our good because “all things work together for good to them that love God” ([[Romans 8.28|Rom. 8:28]]).
 
 May human pride and pretensions never arise in us to cause us to imagine in those moments of personal victory or accomplishment that it is by our own merit that we have achieved, but rather may we recognize the hand of God in all things because, as we read in modern scriptures, “In nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things, and obey not his commandments” ([[D&C 59.21|D&C 59:21]]). In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Gratitude #Joseph_Smith #Scriptures
+#Gratitude #JosephSmith #Scriptures

@@ -24,19 +24,19 @@ I have thought of that conversation many times.
 
 Would a person languish in self-pity and guilt if he understood the teachings of Jesus: “In my Father’s house are many mansions. … I go to prepare a place for you.” ([[John 14.2|John 14:2]].) Also, the episode when the Master asked those without sin to cast the first stone at the woman caught in adultery and then, when they left, asked her, “Woman, where are … thine accusers? hath no man condemned thee? … Neither do I condemn thee: go, and sin no more.” ([[John 8.10|John 8:10–11]][[John 8.11|]].)
 
-Or how could an individual defraud his customers, employer, or employees if he understood thoroughly Paul’s words: “But evil men and seducers shall wax worse and worse, deceiving, and being deceived.” ([[2 Timothy 3.13|2 Tim. 3:13]].) Such an individual would know that his life will progressively become more injured and that he will lose the spirit of discernment.
+Or how could an individual defraud his customers, employer, or employees if he understood thoroughly Paul’s words: “But evil men and seducers shall wax worse and worse, deceiving, and being deceived.” ([[2 Timothy 3.13|2 Tim. 3:13]].) Such an individual would know that his life will progressively become more injured and that he will lose the spirit of discernment.
 
-How could anyone claim that we are not Christian people if they had even a minimal understanding of the original Church as described in the New Testament, with baptism for the dead (see [[1 Corinthians 15.29|1 Cor. 15:29]]), the Melchizedek Priesthood (see [[Hebrews 5.6|Heb. 5:6, 10]][[Hebrews 5.10|]]), Apostles, prophets, evangelists, and teachers. (see [[Ephesians 4.11|Eph. 4:11]].)
+How could anyone claim that we are not Christian people if they had even a minimal understanding of the original Church as described in the New Testament, with baptism for the dead (see [[1 Corinthians 15.29|1 Cor. 15:29]]), the Melchizedek Priesthood (see [[Hebrews 5.6|Heb. 5:6, 10]][[Hebrews 5.10|]]), Apostles, prophets, evangelists, and teachers. (see [[Ephesians 4.11|Eph. 4:11]].)
 
 Or how could an individual commit the heinous crime of child abuse if he or she remembered the protecting words of Jesus when he taught, “But whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.” ([[Matthew 18.6|Matt. 18:6]].)
 
-Or would it be possible for a person to be caught in the subtle humanist philosophy that appears to be spreading everywhere if he thoroughly understood these words of Nephi: “Cursed is he that putteth his trust in man, or maketh flesh his arm, or shall hearken unto the precepts of men, save their precepts shall be given by the power of the Holy Ghost.” ([[2 Nephi 28.31|2 Ne. 28:31]].)
+Or would it be possible for a person to be caught in the subtle humanist philosophy that appears to be spreading everywhere if he thoroughly understood these words of Nephi: “Cursed is he that putteth his trust in man, or maketh flesh his arm, or shall hearken unto the precepts of men, save their precepts shall be given by the power of the Holy Ghost.” ([[2 Nephi 28.31|2 Ne. 28:31]].)
 
 Or would our youth show, in some instances, almost wholesale disrespect for parents if they had carefully analyzed this verse: “Children, obey your parents in all things: for this is well pleasing unto the Lord.” ([[Colossians 3.20|Col. 3:20]].)
 
 Likewise, would the parents be more sensitive toward their little ones if they understood the concept taught in the very next verse: “Fathers, provoke not your children to anger, lest they be discouraged.” ([[Colossians 3.21|Col. 3:21]].)
 
-Or would immorality be running rampant if people comprehended those precious words found in the first letter to the Corinthians where we learn that a person who commits fornication sins against his own body, which is the temple of the Holy Ghost, and that our bodies are not our own but have been bought through the sacrifice of Jesus. He bought our bodies and our spirits, and they belong to God. We surely are to take care of His possessions. (See [[1 Corinthians 6.15|1 Cor. 6:15–20]][[1 Corinthians 6.16|]][[1 Corinthians 6.17|]][[1 Corinthians 6.18|]][[1 Corinthians 6.19|]][[1 Corinthians 6.20|]].)
+Or would immorality be running rampant if people comprehended those precious words found in the first letter to the Corinthians where we learn that a person who commits fornication sins against his own body, which is the temple of the Holy Ghost, and that our bodies are not our own but have been bought through the sacrifice of Jesus. He bought our bodies and our spirits, and they belong to God. We surely are to take care of His possessions. (See [[1 Corinthians 6.15|1 Cor. 6:15–20]][[1 Corinthians 6.16|]][[1 Corinthians 6.17|]][[1 Corinthians 6.18|]][[1 Corinthians 6.19|]][[1 Corinthians 6.20|]].)
 
 Or would divorce be used so quickly as a solution to marital differences and frustrations if the loving words of our Heavenly Father as recorded in modern-day scriptures were understood more thoroughly? “Thou shalt love thy wife with all thy heart, and shalt cleave unto her and none else.
 
@@ -71,6 +71,4 @@ May each of us attend our meetings regularly, study and ponder the words of God 
 
 
 
-
-
-#Church_Meetings #Scriptures
+#ChurchMeetings #Scriptures

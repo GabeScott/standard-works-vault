@@ -1,6 +1,6 @@
 # The Strength to Endure
 
-By Elder Richard J. Maynes - *Of the Presidency of the Seventy*
+By Elder Richard J. Maynes - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -26,7 +26,7 @@ Heavenly Father also understood that due to our mortality we would not always ma
 
 Endurance is an important principle found within the doctrine of Jesus Christ. It is important because the quality of our eternal future is proportional to our ability to endure in righteousness.
 
-In [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]] the prophet Nephi teaches us that after we receive the same saving ordinance of baptism that Jesus Christ received and then receive the gift of the Holy Ghost, we must “press forward, feasting upon the word of Christ, and endure to the end, \[and then\] behold, thus saith the Father: \[We\] shall have eternal life.”[^3]
+In [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]] the prophet Nephi teaches us that after we receive the same saving ordinance of baptism that Jesus Christ received and then receive the gift of the Holy Ghost, we must “press forward, feasting upon the word of Christ, and endure to the end, \[and then\] behold, thus saith the Father: \[We\] shall have eternal life.”[^3]
 
 Therefore, in order to receive the greatest of all the blessings of our Heavenly Father, which is eternal life, we must complete the appropriate ordinance work and then continue to keep the associated covenants. In other words, we must successfully endure.
 
@@ -50,7 +50,7 @@ A story from my own family history illustrates this principle. My great-grandfat
 
 After serving faithfully for approximately two years, he was riding his bicycle along with his companion to Sunday School services in Gloucester, England, when his tire burst. He got off his bicycle to assess the damage. When he saw that it was serious and would take a while to fix, he told his companion to go ahead and begin the Sunday service and he would be there shortly. Just as he finished saying this, he collapsed to the ground. He had died suddenly of a heart attack.
 
-Joseph Watson Maynes never saw his wife and eight children again in this life. They were able to transport his body back to Salt Lake City and have his funeral service at the old Waterloo Assembly Hall. A statement made at his funeral service by Elder Anthony W. Ivins of the Quorum of the Twelve Apostles teaches us an important lesson about life, death, and endurance: “This is what the gospel gives us—not immunity from death, but victory over it through the hope we have in a glorious resurrection. … It applies to \[Joseph Maynes\]. … It is a pleasure, and it is a satisfaction and joy to know that men lay down their lives in righteousness, in the faith, true to the faith.”[^4]
+Joseph Watson Maynes never saw his wife and eight children again in this life. They were able to transport his body back to Salt Lake City and have his funeral service at the old Waterloo Assembly Hall. A statement made at his funeral service by Elder Anthony W. Ivins of the Quorum of the Twelve Apostles teaches us an important lesson about life, death, and endurance: “This is what the gospel gives us—not immunity from death, but victory over it through the hope we have in a glorious resurrection. … It applies to \[Joseph Maynes\]. … It is a pleasure, and it is a satisfaction and joy to know that men lay down their lives in righteousness, in the faith, true to the faith.”[^4]
 
 This family story inspires me to try my very best to follow the example of endurance and spiritual stamina illustrated by my great-grandfather. I am equally inspired by the faith of his wife, Emily, whose life after Joseph’s death was certainly a heavy burden to bear. Her testimony was strong and her conversion complete as she spent the rest of her life true to the faith while supporting her eight children on her own.
 
@@ -73,11 +73,12 @@ I bear you my testimony and my witness of the reality of a loving Heavenly Fathe
 
 [^2]: [[Helaman 14.30|Helaman 14:30]].
 
-[^3]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^3]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^4]: Anthony W. Ivins, remarks at funeral service for Joseph Watson Maynes (personal records of the Maynes family).
+[^4]: Anthony W. Ivins, remarks at funeral service for Joseph Watson Maynes (personal records of the Maynes family).
 
 [^5]: [[Hebrews 12.1|Hebrews 12:1]].
 
+[^6]: [[2 Timothy 4.6|2 Timothy 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].
 
 #Adversity #Atonement #Endurance

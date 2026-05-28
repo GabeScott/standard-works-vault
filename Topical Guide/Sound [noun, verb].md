@@ -1,6 +1,5 @@
 # Sound [noun, verb]
 
-
 *See also* [[Noise.md|Noise]]; [[Voice.md|Voice]]
 
 when the *sound* of the grinding is low, [[Ecclesiastes 12.4|Ecclesiastes 12:4]].

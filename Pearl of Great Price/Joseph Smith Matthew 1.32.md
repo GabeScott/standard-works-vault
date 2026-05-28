@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:32](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.32?lang=eng#p32)
 
 
-[^a]: JS—M 1:12.
+[^a]: [[Joseph Smith Matthew 1.12|JS—M 1:12]].  

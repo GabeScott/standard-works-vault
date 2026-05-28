@@ -1,11 +1,10 @@
 # Publish
 
-
-*See also* [[Declare.md|Declare]]; [[Preaching, Preach.md|Preaching]]; [[Proclaim.md|Proclaim]]
+*See also* [[Declare.md|Declare]]; [[Preaching.md|Preaching]]; [[Proclaim.md|Proclaim]]
 
 I will *publish* the name of the Lord, [[Deuteronomy 32.3|Deuteronomy 32:3]].
 
-How beautiful upon the mountains are the feet of him ... that *publisheth* peace, [[Isaiah 52.7|Isaiah 52:7]] ([[Nahum 1.15|Nahum 1:15]]; [[Mosiah 12.21|Mosiah 12:21]]; [[3 Nephi 20.40|3 Nephi 20:40]]).
+How beautiful upon the mountains are the feet of him … that *publisheth* peace, [[Isaiah 52.7|Isaiah 52:7]] ([[Nahum 1.15|Nahum 1:15]]; [[Mosiah 12.21|Mosiah 12:21]]; [[3 Nephi 20.40|3 Nephi 20:40]]).
 
 *published* through Nineveh by the decree of the king, [[Jonah 3.7|Jonah 3:7]].
 

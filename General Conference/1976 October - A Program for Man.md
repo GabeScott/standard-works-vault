@@ -1,6 +1,6 @@
 # A Program for Man
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -72,8 +72,6 @@ Since Adam and Eve were placed in the garden the Lord has been eager—eager to 
 I know the gospel truths will save and exalt mankind if men will accept the truth and fully live up to their commitments and covenants.
 
 I know this is true, and I bear this testimony to you, my beloved brothers and sisters and friends in all the world, and I urge all men to seriously accept and conform their lives totally to the gospel. I bear this witness in the name of Jesus Christ. Amen.
-
-
 
 
 

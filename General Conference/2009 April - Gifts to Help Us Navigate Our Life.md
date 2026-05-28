@@ -56,7 +56,7 @@ Additionally, as members of the Church we have been given *the gift of the Holy 
 
 However, like other faculties, our consciences may become inert through sin or misuse.[^9] If we become desensitized to the things of God in our lives, we too lose reception of the signal needed to guide us. Keeping the commandments is our best assurance to maintain a strong signal with the Divine.
 
-President Thomas S. Monson, our beloved prophet, said, “Our lives will depend upon the decisions which we make—for decisions determine destiny.”[^10]
+President Thomas S. Monson, our beloved prophet, said, “Our lives will depend upon the decisions which we make—for decisions determine destiny.”[^10]
 
 I bear my witness that choosing good eventually leads to happiness, while wrong choices drag us down to unhappiness.[^11] Learning to choose that which is good and keeping the commandments will create a pattern that will help us to:
 
@@ -76,7 +76,7 @@ The lyrics of a Primary song admonish us to:
 
 >Follow the prophet,
 >Follow the prophet; don’t go astray.
->Follow the prophet, …
+>Follow the prophet, …
 >Follow the prophet; he knows the way.
 >We can get direction all along our way,
 >If we heed the prophets—follow what they say.[^14]
@@ -93,7 +93,7 @@ We have been taught this weekend by prophets, seers, and revelators. I am gratef
 
 [^1]: [[Moses 1.39|Moses 1:39]].
 
-[^2]: “Spiritual Gifts,” at [gospeltopics.lds.org](https://churchofjesuschrist.org/study/manual/gospel-topics?lang=eng).
+[^2]: “Spiritual Gifts,” at [gospeltopics.lds.org](https://www.churchofjesuschrist.org/study/manual/gospel-topics?lang=eng).
 
 [^3]: See “God has a plan for your life,” at [www.mormon.org/mormonorg/eng/basic-beliefs/heavenly-father-s-plan-of-happiness/god-has-a-plan-for-your-life](https://www.churchofjesuschrist.org/comeuntochrist).
 
@@ -103,13 +103,13 @@ We have been taught this weekend by prophets, seers, and revelators. I am gratef
 
 [^6]: Luis de Camõens, *The Lusiad,* book I, stanza 1, trans. William Julius Mickle (1776).
 
-[^7]: “Conscience,” in Guide to the Scriptures, at [scriptures.lds.org](https://churchofjesuschrist.org/study/scriptures?lang=eng).
+[^7]: “[Conscience](https://www.churchofjesuschrist.org/study/scriptures/gs/conscience?lang=eng&id=p1#p1),” in Guide to the Scriptures, at [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
 
 [^8]: See [[Acts 2.38|Acts 2:38]].
 
-[^9]: See “Conscience,” in Guide to the Scriptures, at [scriptures.lds.org](https://churchofjesuschrist.org/study/scriptures?lang=eng).
+[^9]: See “[Conscience](https://www.churchofjesuschrist.org/study/scriptures/gs/conscience?lang=eng&id=p1#p1),” in Guide to the Scriptures, at [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
 
-[^10]: Thomas S. Monson, “Decisions Determine Destiny,” *Tambuli,* July 1980, 30; *New Era,* Nov. 1979, 4.
+[^10]: Thomas S. Monson, “Decisions Determine Destiny,” *Tambuli,* July 1980, 30; *New Era,* Nov. 1979, 4.
 
 [^11]: See “God has a plan for your life,” at [www.mormon.org](https://www.churchofjesuschrist.org/comeuntochrist).
 
@@ -119,6 +119,4 @@ We have been taught this weekend by prophets, seers, and revelators. I am gratef
 
 [^14]: “Follow the Prophet,” *Children’s Songbook,* 110–11.
 
-
-
-#Agency #Holy_Ghost #Prophets
+#Agency #HolyGhost #Prophets

@@ -1,6 +1,6 @@
 # As We Close This Conference
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -28,11 +28,11 @@ We live in troubled times. I assure you that our Heavenly Father is mindful of t
 
 My dear brothers and sisters, may your homes be filled with love and courtesy and with the Spirit of the Lord. Love your families. If there are disagreements or contentions among you, I urge you to settle them now. Said the Savior:
 
-“There shall be no disputations among you. …
+“There shall be no disputations among you. …
 
 “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
-“\[But\] behold, this is not my doctrine … ; but *this* is my doctrine, that such things should be done away.”[^2]
+“\[But\] behold, this is not my doctrine … ; but *this* is my doctrine, that such things should be done away.”[^2]
 
 As your humble servant, I echo the words of King Benjamin in his address to his people when he said:
 
@@ -51,7 +51,8 @@ Until we meet again in six months’ time, I ask the Lord’s blessings to be up
 
 [^1]: [[D&C 19.38|Doctrine and Covenants 19:38]].
 
-[^2]: [[3 Nephi 11.28|3 Nephi 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]; emphasis added.
+[^2]: [[3 Nephi 11.28|3 Nephi 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]; emphasis added.
 
+[^3]: [[Mosiah 2.10|Mosiah 2:10–11]][[Mosiah 2.11|]].
 
 #Adversity #Unity

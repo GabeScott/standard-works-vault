@@ -28,11 +28,11 @@ Within months, my sister Dina and I were called as local missionaries in San Sal
 
 My mission had a great impact on my life. I learned to rely more on the Lord, to seek the guidance of the Spirit, and to feel an overwhelming love for God’s children. My knowledge of the scriptures and my understanding of the doctrines increased. So did my desire to be obedient and to keep the commandments with exactness. My testimony of the Savior and His infinite Atonement was strengthened. My missionary experiences became part of who and what I am. Missionary work became my passion. It has impacted my life and that of my family more than anything else.
 
-Elder Jeffrey R. Holland describes the impact his mission has had in his life with these words: “My mission means everything to me 47 years after the fact. There may have been one day in those 47 years that I have not thought of my mission; I’m just not sure what day that would have been.”[^5]
+Elder Jeffrey R. Holland describes the impact his mission has had in his life with these words: “My mission means everything to me 47 years after the fact. There may have been one day in those 47 years that I have not thought of my mission; I’m just not sure what day that would have been.”[^5]
 
 A couple of years ago my grandson Christian was turning eight and planning his baptismal service with great anticipation. He asked his mother if I could be one of the speakers and share my conversion story. When I asked him why he wanted me to do that, he replied, “Grandma, that is so important. Do you realize that if you hadn’t accepted the gospel, I wouldn’t be getting baptized? I wouldn’t even be who I am.”
 
-I don’t know if missionaries realize the far-reaching impact of their work. In my own family, the blessings of the gospel have now touched four generations. Didn’t President Gordon B. Hinckley say that “when we save a girl, we save generations”?[^6] I got married in the temple and have eight children. They are all faithful members of the Church, endowed in the temple. Six of them are now married and have their own children. At present there are 34 of us. And that is not all. Both my husband and I served missions, and our two sons and three of our six daughters have also served missions. Collectively we have helped hundreds embrace the gospel in many countries. Some of those converts and their children have also served missions.
+I don’t know if missionaries realize the far-reaching impact of their work. In my own family, the blessings of the gospel have now touched four generations. Didn’t President Gordon B. Hinckley say that “when we save a girl, we save generations”?[^6] I got married in the temple and have eight children. They are all faithful members of the Church, endowed in the temple. Six of them are now married and have their own children. At present there are 34 of us. And that is not all. Both my husband and I served missions, and our two sons and three of our six daughters have also served missions. Collectively we have helped hundreds embrace the gospel in many countries. Some of those converts and their children have also served missions.
 
 Missionary work is the lifeblood of the Church. There is no greater work, no more important work. It blesses the lives of all those who participate in it. It will continue blessing future generations.
 
@@ -87,12 +87,10 @@ We are the children of a loving Heavenly Father. He sent His Son to open the way
 
 [^4]: *Preach My Gospel* (2004), 1.
 
-[^5]: Jeffrey R. Holland, “The Atonement” (seminar for new mission presidents, June 26, 2007), 1.
+[^5]: Jeffrey R. Holland, “The Atonement” (seminar for new mission presidents, June 26, 2007), 1.
 
-[^6]: Gordon B. Hinckley, “Our Responsibility to Our Young Women,” *Ensign,* Sept. 1988, 10.
+[^6]: Gordon B. Hinckley, “Our Responsibility to Our Young Women,” *Ensign,* Sept. 1988, 10.
 
 [^7]: See *Preach My Gospel,* 219.
 
-
-
-#Book_Of_Mormon #Conversion #Missionary_Work
+#BookOfMormon #Conversion #MissionaryWork

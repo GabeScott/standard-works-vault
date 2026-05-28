@@ -27,11 +27,11 @@ The poem:
 >*The builder also grows.*[^1]
 >
 
-In thinking of the builder, we begin half a world away and two millennia ago on the river Jordan with John the Baptist. He preached, “I … baptize you with water unto repentance: but he that cometh after me is mightier than I … : he shall baptize you with the Holy Ghost, and with fire.”[^2]
+In thinking of the builder, we begin half a world away and two millennia ago on the river Jordan with John the Baptist. He preached, “I … baptize you with water unto repentance: but he that cometh after me is mightier than I … : he shall baptize you with the Holy Ghost, and with fire.”[^2]
 
 “Then \[came\] Jesus from Galilee to Jordan unto John, to be baptized of him.”[^3]
 
-“\[When Jesus came\] up … out of the water … , the heavens were opened unto him, and he saw the Spirit of God \[the Holy Ghost\] descending like a dove, and lighting upon him:
+“\[When Jesus came\] up … out of the water … , the heavens were opened unto him, and he saw the Spirit of God \[the Holy Ghost\] descending like a dove, and lighting upon him:
 
 “And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased.”[^4]
 
@@ -57,7 +57,7 @@ Jesus was crucified. On the third day He rose from the tomb. He gave further ins
 
 That power was not long in coming. On the day of Pentecost, the Twelve were assembled in a house:
 
-“Suddenly there came a sound … of a rushing mighty wind. …
+“Suddenly there came a sound … of a rushing mighty wind. …
 
 “And there appeared unto them cloven tongues like as of fire, and it sat upon each of them.
 
@@ -109,7 +109,7 @@ What then shall we do? That question was asked of the Twelve on the day of Pente
 
 He told them, “The promise is unto you, and to your children, and to all that are afar off.”[^29]
 
-That same question—“What shall we do?”—was asked of the prophet Nephi. He gave the same answer that Peter had given: “Take upon you the name of Christ, by baptism … , then cometh the baptism of fire and of the Holy Ghost.”[^30]
+That same question—“What shall we do?”—was asked of the prophet Nephi. He gave the same answer that Peter had given: “Take upon you the name of Christ, by baptism … , then cometh the baptism of fire and of the Holy Ghost.”[^30]
 
 “Do ye not remember that I said unto you that after ye had received the Holy Ghost ye could speak with the tongue of angels? …
 
@@ -198,11 +198,11 @@ As surely as I know that I am here and you are there, I know that Jesus is the C
 
 [^19]: See [[Moses 6.64|Moses 6:64–66]][[Moses 6.65|]][[Moses 6.66|]].
 
-[^20]: [[Articles of Faith 1.4|A of F 1:4]].
+[^20]: [[Articles of Faith 1.4|A of F 1:4]].
 
-[^21]: [[Articles of Faith 1.5|A of F 1:5]].
+[^21]: [[Articles of Faith 1.5|A of F 1:5]].
 
-[^22]: See [[1 Nephi 10.17|1 Ne. 10:17–19]][[1 Nephi 10.18|]][[1 Nephi 10.19|]].
+[^22]: See [[1 Nephi 10.17|1 Ne. 10:17–19]][[1 Nephi 10.18|]][[1 Nephi 10.19|]].
 
 [^23]: [[Joseph Smith History 1.17|JS—H 1:17]].
 
@@ -218,20 +218,18 @@ As surely as I know that I am here and you are there, I know that Jesus is the C
 
 [^29]: [[Acts 2.39|Acts 2:39]].
 
-[^30]: [[2 Nephi 31.13|2 Ne. 31:13]].
+[^30]: [[2 Nephi 31.13|2 Ne. 31:13]].
 
-[^31]: [[2 Nephi 32.2|2 Ne. 32:2–5]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]].
+[^31]: [[2 Nephi 32.2|2 Ne. 32:2–5]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]].
 
 [^32]: [[John 14.16|John 14:16–17]][[John 14.17|]].
 
-[^33]: [[3 Nephi 9.20|3 Ne. 9:20]]; emphasis added.
+[^33]: [[3 Nephi 9.20|3 Ne. 9:20]]; emphasis added.
 
 [^34]: *History of the Church,* 4:42.
 
-[^35]: [[Articles of Faith 1.3|A of F 1:3]].
+[^35]: [[Articles of Faith 1.3|A of F 1:3]].
 
 [^36]: [[John 14.27|John 14:27]].
 
-
-
-#Adversity #Apostasy #Church_History #Church_Membership #Commandments #Fear #General_Conference #Holy_Ghost #Jesus_Christ #Joseph_Smith #Obedience #Ordinances #Peace #Prayer #Priesthood #Restoration #Satan #Scriptures #Sin
+#Adversity #Apostasy #ChurchHistory #ChurchMembership #Commandments #Fear #GeneralConference #HolyGhost #JosephSmith #JesusChrist #Obedience #Ordinances #Peace #Prayer #Priesthood #Restoration #Satan #Scriptures #Sin

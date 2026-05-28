@@ -1,4 +1,3 @@
 # Arrogance
 
-
-*See* [[Pride.md|Pride]]
+*See also* [[Pride.md|Pride]]

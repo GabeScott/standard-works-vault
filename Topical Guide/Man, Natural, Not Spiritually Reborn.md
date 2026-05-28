@@ -1,6 +1,5 @@
 # Man, Natural, Not Spiritually Reborn
 
-
 *See also* [[Carnal Mind.md|Carnal Mind]]; [[Fall of Man.md|Fall of Man]]; [[Sensuality.md|Sensuality]]
 
 in the day that thou eatest thereof thou shalt surely *die*, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]).
@@ -43,7 +42,7 @@ born of God, changed from their carnal and *fallen* state, [[Mosiah 27.25|Mosiah
 
 what *natural* man is there that knoweth these things, [[Alma 26.21|Alma 26:21]].
 
-know ... not of the *carnal* mind but of God, [[Alma 36.4|Alma 36:4]].
+know … not of the *carnal* mind but of God, [[Alma 36.4|Alma 36:4]].
 
 if I had not been *born* of God I should not have known, [[Alma 38.6|Alma 38:6]].
 
@@ -56,5 +55,3 @@ Neither can any *natural* man abide the presence of God, [[D&C 67.12|D&C 67:12]]
 it is the *nature* and disposition of almost all men, [[D&C 121.39|D&C 121:39]].
 
 when they begin to grow up, *sin* conceiveth in their hearts, [[Moses 6.55|Moses 6:55]].
-
-*See also* [[Isaiah 1.4|Isaiah 1:4]]; [[Alma 5.7|Alma 5:7]].

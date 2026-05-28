@@ -28,11 +28,11 @@ Based on this definition, the question “Who’s on the Lord’s *side?*” cou
 >The Lord of hosts is ours;
 >
 
-Serving on the Lord’s team does not happen by chance. President Spencer W. Kimball has told us, “This is something we are heir to; we were born to it, and all we need to do is qualify for it to obtain this blessing.” (*Priesthood,* Salt Lake City: Deseret Book Co., 1981, p. 2.)
+Serving on the Lord’s team does not happen by chance. President Spencer W. Kimball has told us, “This is something we are heir to; we were born to it, and all we need to do is qualify for it to obtain this blessing.” (*Priesthood,* Salt Lake City: Deseret Book Co., 1981, p. 2.)
 
 In [[Alma 13.1|Alma 13:1]] we learn that “the Lord God ordained priests, after his holy order.”
 
-In [[Alma 13.3|verses 3 and 4]][[Alma 13.4|]] we are told that “this is the manner after which they were ordained—being called and prepared from the foundation of the world according to the foreknowledge of God, on account of their exceeding faith and good works; in the first place being left to choose good or evil; therefore they have chosen good, and exercising exceedingly great faith, are called with a holy calling. …
+In [[Alma 13.3|verses 3 and 4]][[Alma 13.4|]] we are told that “this is the manner after which they were ordained—being called and prepared from the foundation of the world according to the foreknowledge of God, on account of their exceeding faith and good works; in the first place being left to choose good or evil; therefore they have chosen good, and exercising exceedingly great faith, are called with a holy calling. …
 
 “And thus they have been called to this holy calling on account of their faith, while others would reject the Spirit of God on account of the hardness of their hearts and blindness of their minds, while, if it had not been for this they might have had as great privilege as their brethren.”
 
@@ -40,11 +40,11 @@ In [[Alma 13.9|Alma 13:9]] we are told, “Thus they become high priests forever
 
 As you participate on a basketball team, or are part of a drama presentation, or sing in a quartet, or join a Scout troop, you are aware that membership in these groups usually lasts just a few months, or at most a few years. As there is a beginning to participation in these groups, there is also an end. And yet, as Alma taught us, we are high priests forever. The priesthood is eternal.
 
-Now, you young men, let’s carefully consider some examples from the lives of our prophets as they have spiritually prepared for the priesthood. President Joseph Fielding Smith shares with us his feelings in these words: “‘When I was a small boy, too young to hold the Aaronic Priesthood, my father placed a copy of the Book of Mormon in my hands with the request that I read it. I received this Nephite record with thanksgiving and applied myself to the task which had been assigned to me. There are certain passages that have been stamped upon my mind and I have never forgotten them.’ By the time he was ten years old he had read the Book of Mormon through not just once but twice. His brothers remembered of his hurrying to get through his chores as quickly as possible, and sometimes even leaving a ball game early, and secluding himself in the hayloft or in the shade of a tree to get back to his reading of the book.” (Joseph Fielding Smith, Jr., and John J. Stewart, *The Life of Joseph Fielding Smith,* Salt Lake City: Deseret Book Co., 1972, p. 57.)
+Now, you young men, let’s carefully consider some examples from the lives of our prophets as they have spiritually prepared for the priesthood. President Joseph Fielding Smith shares with us his feelings in these words: “‘When I was a small boy, too young to hold the Aaronic Priesthood, my father placed a copy of the Book of Mormon in my hands with the request that I read it. I received this Nephite record with thanksgiving and applied myself to the task which had been assigned to me. There are certain passages that have been stamped upon my mind and I have never forgotten them.’ By the time he was ten years old he had read the Book of Mormon through not just once but twice. His brothers remembered of his hurrying to get through his chores as quickly as possible, and sometimes even leaving a ball game early, and secluding himself in the hayloft or in the shade of a tree to get back to his reading of the book.” (Joseph Fielding Smith, Jr., and John J. Stewart, *The Life of Joseph Fielding Smith,* Salt Lake City: Deseret Book Co., 1972, p. 57.)
 
 President David O. McKay tells: “I remember as a deacon chopping wood for the widows on Saturday. We met as a group of nine boys, held a short meeting, took our axes, went to the widows, and chopped enough wood for each to last that week.”
 
-And President McKay continues: “As a priest, I recall administering the sacrament and my failure the first time I offered the prayer. We did not have the prayer on a printed card before us then as is frequently the case now. We were supposed to memorize it. The sacrament table was just under the pulpit, and my father, the bishop, always stood right over the one who asked the blessing upon the bread and water. I thought I knew the prayer, but I had memorized it privately, and when I knelt and saw the congregation before me, I became flustered.” (*Cherished Experiences,* comp. Clare Middlemiss, Salt Lake City: Deseret Book Co., 1976, p. 190.) This challenge did not cause him to become discouraged, my young friends. He made additional preparation and lifted himself to a level of excellence.
+And President McKay continues: “As a priest, I recall administering the sacrament and my failure the first time I offered the prayer. We did not have the prayer on a printed card before us then as is frequently the case now. We were supposed to memorize it. The sacrament table was just under the pulpit, and my father, the bishop, always stood right over the one who asked the blessing upon the bread and water. I thought I knew the prayer, but I had memorized it privately, and when I knelt and saw the congregation before me, I became flustered.” (*Cherished Experiences,* comp. Clare Middlemiss, Salt Lake City: Deseret Book Co., 1976, p. 190.) This challenge did not cause him to become discouraged, my young friends. He made additional preparation and lifted himself to a level of excellence.
 
 President Kimball recites the following story about a goal he made when he was still a young boy: “When I heard a Church leader from Salt Lake City tell us at conference that we should read the scriptures, and I recognized that I had never read the Bible, that very night at the conclusion of that very sermon I walked to my home a block away and climbed up in my little attic room in the top of the house and lighted a little coal-oil lamp that was on the little table, and I read the first chapters of Genesis. A year later I closed the Bible, having read every chapter in that big and glorious book.
 
@@ -52,7 +52,7 @@ President Kimball recites the following story about a goal he made when he was s
 
 “I found that there were certain parts that were hard for a 14-year-old boy to understand. There were some pages that were not especially interesting to me, but when I had read the 66 books and 1,189 chapters and 1,519 pages, I had a glowing satisfaction that I had made a goal and that I had achieved it.
 
-And he continues: “I am not telling you this story to boast; I am merely using this as an example to say that if I could do it by coal-oil light, you can do it by electric light. I have always been glad I read the Bible from cover to cover.” (*Ensign,* May 1974, p. 88.)
+And he continues: “I am not telling you this story to boast; I am merely using this as an example to say that if I could do it by coal-oil light, you can do it by electric light. I have always been glad I read the Bible from cover to cover.” (*Ensign,* May 1974, p. 88.)
 
 Nearly every week I attend a stake conference somewhere in the world, so I am not able to attend the Gospel Doctrine class in my ward where the Book of Mormon is being taught this year. It really pained me to miss this privilege of catching the spirit of this very sacred other testament that Jesus is the Christ. So my wife and I set a goal to study the Book of Mormon at home. We determined to finish the 1984 course of study for the Gospel Doctrine class before this April general conference. We began in January; and on Monday, March 12, we finished the last of the forty-six lessons of the Book of Mormon course. It really felt good to accomplish this goal.
 
@@ -67,6 +67,4 @@ And as you too retire at night, your hearts and thoughts and prayers will automa
 
 
 
-
-
-#Priesthood #Scripture_Study
+#Priesthood #ScriptureStudy

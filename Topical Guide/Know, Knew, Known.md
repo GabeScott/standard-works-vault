@@ -1,9 +1,8 @@
 # Know, Knew, Known
 
+*See also* [[Comprehend.md|Comprehend]]; [[Knowledge.md|Knowledge]]; [[Perceive.md|Perceive]]; [[Understand.md|Understand]]
 
-*See also* [[Comprehend.md|Comprehend]]; [[Knowledge.md|Knowledge]]; [[Perceive.md|Perceive]]; [[Understand, Understood.md|Understand]]
-
-God doth *know* ... ye shall be as gods, *knowing* good and evil, [[Genesis 3.5|Genesis 3:5]] ([[2 Nephi 2.18|2 Nephi 2:18]]; [[Moses 4.11|Moses 4:11]]).
+God doth *know* … ye shall be as gods, *knowing* good and evil, [[Genesis 3.5|Genesis 3:5]] ([[2 Nephi 2.18|2 Nephi 2:18]]; [[Moses 4.11|Moses 4:11]]).
 
 man is become as one of us, to *know* good and evil, [[Genesis 3.22|Genesis 3:22]] ([[Moses 4.28|Moses 4:28]]).
 
@@ -31,17 +30,17 @@ generation after them, which *knew* not the Lord, [[Judges 2.10|Judges 2:10]].
 
 may *know* that there is a God in Israel, [[1 Samuel 17.46|1 Samuel 17:46]].
 
-that all ... may *know* thy name, [[1 Kings 8.43|1 Kings 8:43]] ([[2 Chronicles 6.33|2 Chronicles 6:33]]).
+that all … may *know* thy name, [[1 Kings 8.43|1 Kings 8:43]] ([[2 Chronicles 6.33|2 Chronicles 6:33]]).
 
 let it be *known* this day that thou art God, [[1 Kings 18.36|1 Kings 18:36]].
 
-I *know* that there is no God ... but in Israel, [[2 Kings 5.15|2 Kings 5:15]].
+I *know* that there is no God … but in Israel, [[2 Kings 5.15|2 Kings 5:15]].
 
 kingdoms of the earth may *know*, [[2 Kings 19.19|2 Kings 19:19]] ([[Isaiah 37.20|Isaiah 37:20]]).
 
 thou only *knowest* the hearts of the children of men, [[2 Chronicles 6.30|2 Chronicles 6:30]].
 
-*know* the laws ... teach ye them that *know* them not, [[Ezra 7.25|Ezra 7:25]].
+*know* the laws … teach ye them that *know* them not, [[Ezra 7.25|Ezra 7:25]].
 
 I *know* that my redeemer liveth, [[Job 19.25|Job 19:25]].
 
@@ -59,7 +58,7 @@ say, How doth God *know*, [[Psalms 73.11|Psalms 73:11]].
 
 Lord *knoweth* the thoughts of man, [[Psalms 94.11|Psalms 94:11]] ([[1 Corinthians 3.20|1 Corinthians 3:20]]; [[3 Nephi 28.6|3 Nephi 28:6]]).
 
-err ... they have not *known* my ways, [[Psalms 95.10|Psalms 95:10]] ([[Hebrews 3.10|Hebrews 3:10]]).
+err … they have not *known* my ways, [[Psalms 95.10|Psalms 95:10]] ([[Hebrews 3.10|Hebrews 3:10]]).
 
 Lord hath made *known* his salvation, [[Psalms 98.2|Psalms 98:2]].
 
@@ -95,7 +94,7 @@ I *know* the things that come into your mind, [[Ezekiel 11.5|Ezekiel 11:5]].
 
 I will be *known* in the eyes of many nations, [[Ezekiel 38.23|Ezekiel 38:23]].
 
-So will I make my holy name *known* in the midst of ... Israel, [[Ezekiel 39.7|Ezekiel 39:7]].
+So will I make my holy name *known* in the midst of … Israel, [[Ezekiel 39.7|Ezekiel 39:7]].
 
 he *knoweth* what is in the darkness, [[Daniel 2.22|Daniel 2:22]].
 
@@ -117,7 +116,7 @@ profess unto them, I never *knew* you, [[Matthew 7.23|Matthew 7:23]] ([[Luke 13.
 
 Jesus *knowing* their thoughts, [[Matthew 9.4|Matthew 9:4]] ([[Matthew 12.25|Matthew 12:25]]; [[Luke 6.8|Luke 6:8]]; [[Luke 11.17|Luke 11:17]]).
 
-nothing ... hid, that shall not be *known*, [[Matthew 10.26|Matthew 10:26]] ([[Luke 8.17|Luke 8:17]]; [[Luke 12.2|Luke 12:2]]).
+nothing … hid, that shall not be *known*, [[Matthew 10.26|Matthew 10:26]] ([[Luke 8.17|Luke 8:17]]; [[Luke 12.2|Luke 12:2]]).
 
 no man *knoweth* the Son, but the Father, [[Matthew 11.27|Matthew 11:27]] ([[Luke 10.22|Luke 10:22]]).
 
@@ -149,11 +148,11 @@ he charged them straitly that no man should *know* it, [[Mark 5.43|Mark 5:43]].
 
 That thou mightest *know* the certainty of those things, [[Luke 1.4|Luke 1:4]].
 
-said Mary ... I *know* not a man, [[Luke 1.34|Luke 1:34]].
+said Mary … I *know* not a man, [[Luke 1.34|Luke 1:34]].
 
 for they *knew* that he was Christ, [[Luke 4.41|Luke 4:41]].
 
-that servant, which *knew* his lord's will, [[Luke 12.47|Luke 12:47]].
+that servant, which *knew* his lord’s will, [[Luke 12.47|Luke 12:47]].
 
 thou shalt thrice deny that thou *knowest* me, [[Luke 22.34|Luke 22:34]].
 
@@ -177,9 +176,9 @@ do his will, he shall *know* of the doctrine, [[John 7.17|John 7:17]].
 
 neither *know* me, nor my Father, [[John 8.19|John 8:19]].
 
-ye shall *know* the truth ... make you free, [[John 8.32|John 8:32]].
+ye shall *know* the truth … make you free, [[John 8.32|John 8:32]].
 
-sheep ... *know* his voice, [[John 10.4|John 10:4]].
+sheep … *know* his voice, [[John 10.4|John 10:4]].
 
 *know* my sheep, and am *known* of mine, [[John 10.14|John 10:14]].
 
@@ -279,11 +278,11 @@ unction from the Holy One, and ye *know* all things, [[1 John 2.20|1 John 2:20]]
 
 the world *knoweth* us not, because it *knew* him not, [[1 John 3.1|1 John 3:1]].
 
-sinneth hath not ... *known* him, [[1 John 3.6|1 John 3:6]].
+sinneth hath not … *known* him, [[1 John 3.6|1 John 3:6]].
 
 hereby we *know* that we are of the truth, [[1 John 3.19|1 John 3:19]].
 
-God ... *knoweth* all things, [[1 John 3.20|1 John 3:20]].
+God … *knoweth* all things, [[1 John 3.20|1 John 3:20]].
 
 we *know* that he abideth in us, [[1 John 3.24|1 John 3:24]].
 
@@ -303,7 +302,7 @@ we *know* that we are of God, [[1 John 5.19|1 John 5:19]].
 
 ye *know* that our record is true, [[3 John 1.12|3 John 1:12]].
 
-I *know* thy works, [[Revelation 2.2|Revelation 2:2]] ([[Revelation 2.19|Revelation 2:19]]; [[Revelation 3.1|Revelation 3:1]], [[Revelation 3.8|Revelation 3:8]], [[Revelation 3.15|Revelation 3:15]]).
+I *know* thy works, [[Revelation 2.2|Revelation 2:2]] ([[Revelation 2.19|Revelation 2:19]]; [[Revelation 3.1|Revelation 3:1]]; [[Revelation 3.8|Revelation 3:8]]; [[Revelation 3.15|Revelation 3:15]]).
 
 which have not *known* the depths of Satan, [[Revelation 2.24|Revelation 2:24]].
 
@@ -333,11 +332,11 @@ if ye have *known* of his goodness and have tasted of his love, [[Mosiah 4.11|Mo
 
 how *knoweth* a man the master whom he has not served, [[Mosiah 5.13|Mosiah 5:13]].
 
-all mankind becoming ... devilish, *knowing* evil from good, [[Mosiah 16.3|Mosiah 16:3]].
+all mankind becoming … devilish, *knowing* evil from good, [[Mosiah 16.3|Mosiah 16:3]].
 
 if they *know* me they shall come forth, [[Mosiah 26.24|Mosiah 26:24]].
 
-made *known* unto me by the Holy Spirit ... fasted and prayed many days that I might *know*, [[Alma 5.46|Alma 5:46]].
+made *known* unto me by the Holy Spirit … fasted and prayed many days that I might *know*, [[Alma 5.46|Alma 5:46]].
 
 Spirit *knoweth* all things, [[Alma 7.13|Alma 7:13]].
 
@@ -347,7 +346,7 @@ Art thou that Great Spirit, who *knows* all things, [[Alma 18.18|Alma 18:18]].
 
 none that *knoweth* these things, save it be the penitent, [[Alma 26.21|Alma 26:21]].
 
-he that *knoweth* good and evil ... given according to his desires, [[Alma 29.5|Alma 29:5]].
+he that *knoweth* good and evil … given according to his desires, [[Alma 29.5|Alma 29:5]].
 
 more cursed is he that *knoweth* the will of God and doeth it not, [[Alma 32.19|Alma 32:19]].
 
@@ -357,7 +356,7 @@ God *knoweth* all these things, [[Alma 40.5|Alma 40:5]].
 
 God *knoweth* all the times which are appointed, [[Alma 40.10|Alma 40:10]].
 
-he *knoweth* ... all things which shall befall us, [[Helaman 8.8|Helaman 8:8]].
+he *knoweth* … all things which shall befall us, [[Helaman 8.8|Helaman 8:8]].
 
 except he was a god he could not *know* of all things, [[Helaman 9.41|Helaman 9:41]].
 
@@ -405,19 +404,19 @@ all flesh shall *know* that I am God, [[D&C 63.6|D&C 63:6]].
 
 they who are not apostles and prophets shall be *known*, [[D&C 64.39|D&C 64:39]].
 
-elders of my church ... whose hearts I *know*, [[D&C 67.1|D&C 67:1]].
+elders of my church … whose hearts I *know*, [[D&C 67.1|D&C 67:1]].
 
-will I make *known* ... secrets of my will, [[D&C 76.10|D&C 76:10]].
+will I make *known* … secrets of my will, [[D&C 76.10|D&C 76:10]].
 
-your Father ... *knoweth* that you have need of all these things, [[D&C 84.83|D&C 84:83]].
+your Father … *knoweth* that you have need of all these things, [[D&C 84.83|D&C 84:83]].
 
 Until all shall *know* me, who remain, [[D&C 84.98|D&C 84:98]].
 
 shall see my face and *know* that I am, [[D&C 93.1|D&C 93:1]].
 
-I give ... these sayings that you may understand and *know* how to worship, and *know* what you worship, [[D&C 93.19|D&C 93:19]].
+I give … these sayings that you may understand and *know* how to worship, and *know* what you worship, [[D&C 93.19|D&C 93:19]].
 
-receiveth truth and light, until he ... *knoweth* all things, [[D&C 93.28|D&C 93:28]].
+receiveth truth and light, until he … *knoweth* all things, [[D&C 93.28|D&C 93:28]].
 
 be still and *know* that I am God, [[D&C 101.16|D&C 101:16]].
 
@@ -433,7 +432,7 @@ eternal lives—to *know* the only wise and true God, [[D&C 132.24|D&C 132:24]].
 
 all things are present with me, for I *know* them all, [[Moses 1.6|Moses 1:6]].
 
-all things are numbered unto me ... and I *know* them, [[Moses 1.35|Moses 1:35]].
+all things are numbered unto me … and I *know* them, [[Moses 1.35|Moses 1:35]].
 
 Who is the Lord that I should *know* him, [[Moses 5.16|Moses 5:16]].
 

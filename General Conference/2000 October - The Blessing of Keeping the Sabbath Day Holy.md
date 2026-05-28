@@ -38,15 +38,15 @@ The promises of the Lord to those who keep the Sabbath day holy are so wonderful
 
 “If ye walk in my statutes, and keep my commandments, and do them;
 
-“Then I will give you rain in due season, and the land shall yield her increase. …
+“Then I will give you rain in due season, and the land shall yield her increase. …
 
-“… And ye shall eat your bread to the full, and dwell in your land safely.
+“… And ye shall eat your bread to the full, and dwell in your land safely.
 
-“And I will give \[you\] peace in the land, … neither shall the sword go through your land. …
+“And I will give \[you\] peace in the land, … neither shall the sword go through your land. …
 
-“For I will have respect unto you, and make you fruitful, … and establish my covenant with you. …
+“For I will have respect unto you, and make you fruitful, … and establish my covenant with you. …
 
-“And I will set my tabernacle \[that is, my temple\] among you. …
+“And I will set my tabernacle \[that is, my temple\] among you. …
 
 “And I will walk among you, and will be your God, and ye shall be my people.”[^22]
 
@@ -107,6 +107,4 @@ I love our Lord and Savior. I know He lives and that this is His Church and king
 
 [^24]: [[D&C 59.8|D&C 59:8]].
 
-
-
-#Faith #General_Conference #Joy #Peace #Repentance #Sabbath #Success #Worldliness
+#Faith #GeneralConference #Joy #Peace #Repentance #Sabbath #Success #Worldliness

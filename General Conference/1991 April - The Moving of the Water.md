@@ -64,9 +64,9 @@ If healing does not come in mortal life, it will come thereafter. Just as the go
 
 And, “the soul shall be restored to the body, and the body to the soul; yea, and every limb and joint shall be restored to its body; yea, even a hair of the head shall not be lost; but all things shall be restored to their *proper* and *perfect* frame” ([[Alma 40.23|Alma 40:23]]; italics added).
 
-“O how great the plan of our God! … The spirit and the body is restored to itself again, and all men become incorruptible, and immortal, and they are living souls, having a perfect knowledge like unto us in the flesh, save it be that our knowledge shall be perfect” ([[2 Nephi 9.13|2 Ne. 9:13]]).
+“O how great the plan of our God! … The spirit and the body is restored to itself again, and all men become incorruptible, and immortal, and they are living souls, having a perfect knowledge like unto us in the flesh, save it be that our knowledge shall be perfect” ([[2 Nephi 9.13|2 Ne. 9:13]]).
 
-The Apostle Paul said, “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Cor. 15:19]]).
+The Apostle Paul said, “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Cor. 15:19]]).
 
 If our view is limited to mortal life, some things become unbearable because they seem so unfair and so permanent. There are doctrines which, if understood, will bring a perspective toward and a composure regarding problems which otherwise have no satisfactory explanation.
 
@@ -82,7 +82,7 @@ You parents and you families whose lives must be reordered because of a handicap
 
 Now, in all of this there must be balance, for the handicapped have responsibility to work out their own salvation. The nearer the normal patterns of conduct and discipline apply to the handicapped, the happier they will be.
 
-Every quarter of an inch of physical and mental improvement is worth striving for. The Prophet Joseph Smith said that “all the minds and spirits that God ever sent into the world are susceptible of enlargement” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 354).
+Every quarter of an inch of physical and mental improvement is worth striving for. The Prophet Joseph Smith said that “all the minds and spirits that God ever sent into the world are susceptible of enlargement” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 354).
 
 I have known some who seemed to enjoy poor health and have interrupted the lives of those who were caring for them unnecessarily, making life miserable for all. They thrive on sympathy, which is generally very low in nourishment. To know just how far to press the handicapped when physical and emotional pain are involved may be the most difficult part for those who serve them. Nevertheless, as the Prophet Joseph Smith said, “There must be decision of character, aside from sympathy” (*History of the Church,* 4:570).
 
@@ -101,8 +101,6 @@ I bear witness of the restoration which will come. Each body and mind will be re
 “Behold, I, the Lord, have spoken it” ([[D&C 58.11|D&C 58:11–12]][[D&C 58.12|]]).
 
 I am a witness of the condition of those who have gone beyond the veil, and we all have reason to glorify him who is our Father and him who is our Redeemer, of whom I bear witness in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,5 @@
 # Cease
 
-
 day and night shall not *cease*, [[Genesis 8.22|Genesis 8:22]].
 
 it *ceased* to be with Sarah after the manner of women, [[Genesis 18.11|Genesis 18:11]].

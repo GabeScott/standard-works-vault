@@ -1,6 +1,6 @@
 # The Eternal Perspective of the Gospel
 
-By Elder Rafael E. Pino - *Of the Seventy*
+By Elder Rafael E. Pino - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -34,7 +34,7 @@ This is one way of contemplating the Lord’s plan. We do not have to concern ou
 
 It is extremely important that we do not make decisions of eternal value from the perspective of mortality. For decisions that affect eternity, having a gospel perspective is essential.
 
-Elder Neal A. Maxwell taught: “Though ‘anchored’ in grand and ultimate hope, some of our tactical hopes are another matter. We may hope for a pay raise, a special date, an electoral victory, or for a bigger house—things which may or may not be realized. Faith in Father’s plan gives us endurance even amid the wreckage of such proximate hopes. Hope keeps us ‘anxiously engaged’ in good causes even when these appear to be losing causes (see [[D&C 58.27|D&C 58:27]]).”[^3]
+Elder Neal A. Maxwell taught: “Though ‘anchored’ in grand and ultimate hope, some of our tactical hopes are another matter. We may hope for a pay raise, a special date, an electoral victory, or for a bigger house—things which may or may not be realized. Faith in Father’s plan gives us endurance even amid the wreckage of such proximate hopes. Hope keeps us ‘anxiously engaged’ in good causes even when these appear to be losing causes (see [[D&C 58.27|D&C 58:27]]).”[^3]
 
 Not having an eternal perspective, or losing it, can lead us to have an earthly perspective as our personal standard and to make decisions that are not in harmony with the will of God.
 
@@ -44,15 +44,15 @@ Laman and Lemuel, on the other hand, complained bitterly. “And thus Laman and 
 
 Those were two very different attitudes, even though the difficulties and afflictions they had faced were similar. Obviously, their perspectives were different.
 
-President Spencer W. Kimball wrote the following: “If we looked at mortality as the whole of existence, then pain, sorrow, failure, and short life would be calamity. But if we look upon life as an eternal thing stretching far into the premortal past and on into the eternal post-death future, then all happenings may be put in proper perspective.”[^7]
+President Spencer W. Kimball wrote the following: “If we looked at mortality as the whole of existence, then pain, sorrow, failure, and short life would be calamity. But if we look upon life as an eternal thing stretching far into the premortal past and on into the eternal post-death future, then all happenings may be put in proper perspective.”[^7]
 
-Elder David B. Haight told a story about the sculptor Michelangelo to illustrate the importance of seeing everything in proper perspective: “As the sculptor was chiseling a block of marble, a boy came every day and watched shyly. When the figure of David emerged and appeared from that stone, complete for all the world to admire, the boy asked Michelangelo, ‘How did you know he was in there?’”[^8]
+Elder David B. Haight told a story about the sculptor Michelangelo to illustrate the importance of seeing everything in proper perspective: “As the sculptor was chiseling a block of marble, a boy came every day and watched shyly. When the figure of David emerged and appeared from that stone, complete for all the world to admire, the boy asked Michelangelo, ‘How did you know he was in there?’”[^8]
 
 The perspective with which the sculptor saw that block of marble was different than that of the boy who was watching him work. The artist’s vision of the possibilities encased in the stone allowed him to create a work of art.
 
 The Lord knows what He wants to accomplish with each one of us. He knows the kind of reform He wants to achieve in our lives, and we do not have the right to counsel Him. His thoughts are higher than our thoughts.[^9]
 
-I testify that we have a loving, just, and merciful Heavenly Father, who has prepared a plan for our eternal happiness. I testify that Jesus Christ is His Son and the Savior of the world. I know that President Thomas S. Monson is a prophet of God. I say these things in the name of Jesus Christ, amen.
+I testify that we have a loving, just, and merciful Heavenly Father, who has prepared a plan for our eternal happiness. I testify that Jesus Christ is His Son and the Savior of the world. I know that President Thomas S. Monson is a prophet of God. I say these things in the name of Jesus Christ, amen.
 
 
 
@@ -61,17 +61,18 @@ I testify that we have a loving, just, and merciful Heavenly Father, who has pre
 
 [^2]: [[Alma 12.32|Alma 12:32]].
 
-[^3]: Neal A. Maxwell, “Brightness of Hope,” *Ensign,* Nov. 1994, 35–36.
+[^3]: Neal A. Maxwell, “Brightness of Hope,” *Ensign,* Nov. 1994, 35–36.
 
-[^4]: [[1 Nephi 17.2|1 Nephi 17:2]].
+[^4]: [[1 Nephi 17.2|1 Nephi 17:2]].
 
-[^5]: [[1 Nephi 2.12|1 Nephi 2:12]].
+[^5]: [[1 Nephi 2.12|1 Nephi 2:12]].
 
-[^6]: [[1 Nephi 17.20|1 Nephi 17:20]].
+[^6]: [[1 Nephi 17.20|1 Nephi 17:20]].
 
-[^7]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 15.
+[^7]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 15.
 
-[^8]: David B. Haight, “Your Purpose and Responsibility” (Brigham Young University fireside, Sept. 4, 1977), 2–3; [speeches.byu.edu](https://speeches.byu.edu/talks/david-b-haight/purpose-responsibility).
+[^8]: David B. Haight, “Your Purpose and Responsibility” (Brigham Young University fireside, Sept. 4, 1977), 2–3; [speeches.byu.edu](https://speeches.byu.edu/talks/david-b-haight/purpose-responsibility).
 
+[^9]: See [[Isaiah 55.8|Isaiah 55:8–9]][[Isaiah 55.9|]].
 
-#Adversity #Commandments #Eternal_Life #Hope #Perspective #Plan_Of_Salvation
+#Adversity #Commandments #EternalLife #Hope #Perspective #PlanOfSalvation

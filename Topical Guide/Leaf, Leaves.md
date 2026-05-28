@@ -1,13 +1,12 @@
 # Leaf, Leaves
 
-
 they sewed fig *leaves* together, [[Genesis 3.7|Genesis 3:7]] ([[Moses 4.13|Moses 4:13]]).
 
-dove came ... in her mouth was an olive *leaf*, [[Genesis 8.11|Genesis 8:11]].
+dove came … in her mouth was an olive *leaf*, [[Genesis 8.11|Genesis 8:11]].
 
 sound of a shaken *leaf* shall chase them, [[Leviticus 26.36|Leviticus 26:36]].
 
-*leaf* shall not fade ... *leaf* thereof for medicine, [[Ezekiel 47.12|Ezekiel 47:12]].
+*leaf* shall not fade … *leaf* thereof for medicine, [[Ezekiel 47.12|Ezekiel 47:12]].
 
 found nothing thereon, but *leaves* only, [[Matthew 21.19|Matthew 21:19]] ([[Mark 11.13|Mark 11:13]]).
 

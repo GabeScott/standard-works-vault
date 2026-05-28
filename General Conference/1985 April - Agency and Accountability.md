@@ -14,15 +14,15 @@ These associations have reinforced for me the basic principles learned in my you
 
 A common principle, perhaps one of the most important, is the gift of free agency. This great gift of God to all of his children was part of the plan of salvation explained in the councils in heaven. From the scriptures we read:
 
-“And the Messiah cometh in the fulness of time, that he may redeem the children of men from the fall. And because they are redeemed from the fall they have become free forever, knowing good from evil, to act for themselves. …
+“And the Messiah cometh in the fulness of time, that he may redeem the children of men from the fall. And because they are redeemed from the fall they have become free forever, knowing good from evil, to act for themselves. …
 
-“Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself.” ([[2 Nephi 2.26|2 Ne. 2:26–27]][[2 Nephi 2.27|]].)
+“Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself.” ([[2 Nephi 2.26|2 Ne. 2:26–27]][[2 Nephi 2.27|]].)
 
 As President Brigham Young said:
 
 “If Brother Brigham shall take a wrong track, and be shut out of the Kingdom of heaven, no person will be to blame but Brother Brigham. I am the only being in heaven, earth, or hell, that can be blamed.
 
-“This will equally apply to every Latter-day Saint. Salvation is an individual operation. I am the only person that can possibly save myself. When salvation is sent to me, I can reject or receive it. In receiving it, I yield implicit obedience and submission to its great Author throughout my life, and to those whom he shall appoint to instruct me; in rejecting it, I follow the dictates of my own will in preference to the will of my Creator.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 390.)
+“This will equally apply to every Latter-day Saint. Salvation is an individual operation. I am the only person that can possibly save myself. When salvation is sent to me, I can reject or receive it. In receiving it, I yield implicit obedience and submission to its great Author throughout my life, and to those whom he shall appoint to instruct me; in rejecting it, I follow the dictates of my own will in preference to the will of my Creator.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 390.)
 
 Thus we see that free agency goes hand in hand with responsibility, and that consequences, good or bad, are the result of our personal decisions resulting from the exercise of free agency. And this is another principle, obedience.
 
@@ -44,15 +44,15 @@ In the eighth chapter of John, the Savior says, “I am the light of the world: 
 
 May I restate part of President Young’s quotation: “When salvation is sent to me, I can reject or receive it. In receiving it, I yield implicit obedience and submission to its great Author throughout my life.”
 
-One of the great lessons on obedience is taught in the story of Naaman. Naaman was “captain of the host of the king of Syria, … and a mighty man in valour, but he was a leper.” ([[2 Kings 5.1|2 Kgs. 5:1]].)
+One of the great lessons on obedience is taught in the story of Naaman. Naaman was “captain of the host of the king of Syria, … and a mighty man in valour, but he was a leper.” ([[2 Kings 5.1|2 Kgs. 5:1]].)
 
-One of his wife’s maidens, an Israelite who had great faith and concern for Naaman’s condition, “said unto her mistress, Would God my lord were with the prophet that is in Samaria! for he would recover him of his leprosy.” ([[2 Kings 5.3|2 Kgs. 5:3]].)
+One of his wife’s maidens, an Israelite who had great faith and concern for Naaman’s condition, “said unto her mistress, Would God my lord were with the prophet that is in Samaria! for he would recover him of his leprosy.” ([[2 Kings 5.3|2 Kgs. 5:3]].)
 
 When the king learned of this, he sent Naaman to the king of Israel with a letter and with gifts, requesting that the king of Israel cure Naaman of his leprosy. He had misunderstood the maiden’s comment and thought that the king of Israel was the one who could cure his ailment. The Israelite king was very upset with this request because he had no power to do such a thing. Yet, he knew if he did not do it, it could mean war with the Syrians. Elisha, the prophet, heard of the king’s distress and suggested, “Let him come now to me, and he shall know that there is a prophet in Israel.
 
 “So Naaman came with his horses and with his chariot, and stood at the door of the house of Elisha.
 
-“And Elisha sent a messenger unto him, saying, Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.” ([[2 Kings 5.8|2 Kgs. 5:8–10]][[2 Kings 5.9|]][[2 Kings 5.10|]].)
+“And Elisha sent a messenger unto him, saying, Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.” ([[2 Kings 5.8|2 Kgs. 5:8–10]][[2 Kings 5.9|]][[2 Kings 5.10|]].)
 
 Naaman being a man of high position was insulted that Elisha would send a messenger and not show him the respect of coming himself. In addition, the simple nature of the message offended him.
 
@@ -62,11 +62,11 @@ Naaman being a man of high position was insulted that Elisha would send a messen
 
 “And his servants came near, and spake unto him, and said, My father, if the prophet had bid thee do some great thing, wouldest thou not have done it? how much rather then, when he said to thee, Wash, and be clean?
 
-“Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.” ([[2 Kings 5.11|2 Kgs. 5:11–14]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].)
+“Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.” ([[2 Kings 5.11|2 Kgs. 5:11–14]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].)
 
 Naaman needed to have the faith of a child to be obedient as a child before his flesh became clean as a little child’s.
 
-The final principle that I have observed in the lives of effective men and women is to act promptly and decisively once they have determined what the Lord wishes done. In the parable of the ten virgins, we are taught the folly of procrastinating and delaying our preparation for the day when the Savior will come again—but it is our choice. We “are free to choose liberty and eternal life … or to choose captivity and death.” ([[2 Nephi 2.27|2 Ne. 2:27]].)
+The final principle that I have observed in the lives of effective men and women is to act promptly and decisively once they have determined what the Lord wishes done. In the parable of the ten virgins, we are taught the folly of procrastinating and delaying our preparation for the day when the Savior will come again—but it is our choice. We “are free to choose liberty and eternal life … or to choose captivity and death.” ([[2 Nephi 2.27|2 Ne. 2:27]].)
 
 “Then shall the kingdom of heaven be likened unto ten virgins, which took their lamps, and went forth to meet the bridegroom”—who is the Savior—at his second coming.
 
@@ -74,7 +74,7 @@ The final principle that I have observed in the lives of effective men and women
 
 “They that were foolish took their lamps, and took no oil with them:
 
-“But the wise took oil in their vessels with their lamps. …
+“But the wise took oil in their vessels with their lamps. …
 
 “And at midnight there was a cry made, Behold, the bridegroom cometh; go ye out to meet him.
 
@@ -101,8 +101,6 @@ The foolish virgins expected that they could borrow oil from others. To their so
 “And the earth shall be given unto them for an inheritance; and they shall multiply and wax strong, and their children shall grow up without sin unto salvation.
 
 “For the Lord shall be in their midst, and his glory shall be upon them, and he will be their king and their lawgiver.” ([[D&C 45.56|D&C 45:56–59]][[D&C 45.57|]][[D&C 45.58|]][[D&C 45.59|]].) In the name of Jesus Christ, amen.
-
-
 
 
 

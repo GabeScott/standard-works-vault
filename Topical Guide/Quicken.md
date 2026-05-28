@@ -1,6 +1,5 @@
 # Quicken
 
-
 Father raiseth up the dead, and *quickeneth* them, [[John 5.21|John 5:21]].
 
 It is the spirit that *quickeneth*, [[John 6.63|John 6:63]].
@@ -19,15 +18,15 @@ hath *quickened* us together with Christ, [[Ephesians 2.5|Ephesians 2:5]] ([[Col
 
 God, who *quickeneth* all things, [[1 Timothy 6.13|1 Timothy 6:13]].
 
-Christ ... put to death in the flesh, but *quickened* by the Spirit, [[1 Peter 3.18|1 Peter 3:18]] ([[D&C 138.7|D&C 138:7]]).
+Christ … put to death in the flesh, but *quickened* by the Spirit, [[1 Peter 3.18|1 Peter 3:18]] ([[D&C 138.7|D&C 138:7]]).
 
 power of my Spirit *quickeneth* all things, [[D&C 33.16|D&C 33:16]].
 
-no man has seen God ... except *quickened* by the Spirit, [[D&C 67.11|D&C 67:11]].
+no man has seen God … except *quickened* by the Spirit, [[D&C 67.11|D&C 67:11]].
 
 same light that *quickeneth* your understandings, [[D&C 88.11|D&C 88:11]].
 
-redemption ... through him that *quickeneth* all things, [[D&C 88.17|D&C 88:17]].
+redemption … through him that *quickeneth* all things, [[D&C 88.17|D&C 88:17]].
 
 die, it shall be *quickened* again, [[D&C 88.26|D&C 88:26]].
 

@@ -1,6 +1,6 @@
 # Opposition in Order to Strengthen Us
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -14,9 +14,9 @@ The records tell us that we all shouted for joy at this glorious news.
 
 We also learned that to attain such lofty goals, we would have to be found true and faithful in all things and withstand the trials and tests which would be put upon us by Satan. In spite of all the warnings, I’m sure we were still anxious to come to this earth.
 
-Adam and Eve were the first to come. They were given their free agency without the capacity of knowing right from wrong until after they had partaken of the fruit of “the tree of knowledge of good and evil. …” ([[Moses 3.17|Moses 3:17]].)
+Adam and Eve were the first to come. They were given their free agency without the capacity of knowing right from wrong until after they had partaken of the fruit of “the tree of knowledge of good and evil. …” ([[Moses 3.17|Moses 3:17]].)
 
-In consequence thereof, the Lord declared to Adam: “… cursed shall be the *ground for thy sake.* …” ([[Moses 4.23|Moses 4:23]]; italics added.) We often hear it said that Adam was cursed because he partook of the forbidden fruit. The record says “the ground” was cursed, not Adam. Then the Lord added “for thy sake.” This means for his benefit; also for your benefit and mine.
+In consequence thereof, the Lord declared to Adam: “… cursed shall be the *ground for thy sake.* …” ([[Moses 4.23|Moses 4:23]]; italics added.) We often hear it said that Adam was cursed because he partook of the forbidden fruit. The record says “the ground” was cursed, not Adam. Then the Lord added “for thy sake.” This means for his benefit; also for your benefit and mine.
 
 Adam and Eve had been in a state of stagnation: no progress—no growth—no reproduction. Without a change, they would have remained in that state forever. It was necessary for a change to take place. This change meant that Adam and all his posterity would have to *work* and overcome obstacles to provide the necessities of life.
 
@@ -24,15 +24,15 @@ After Adam and Eve were driven out of the Garden of Eden, an angel of the Lord c
 
 In the Book of Moses we read: “And Eve, his wife, heard all these things and was glad, saying: Were it not for our transgression we never should have had seed, and never should have known good and evil, and the joy of our redemption, and the eternal life which God giveth unto all the obedient.” ([[Moses 5.11|Moses 5:11]].)
 
-Modern revelation tells us: “… it must needs be that the devil should tempt the children of men, or they could not be agents unto themselves; for if they never should have bitter they could not know the sweet.” ([[D&C 29.39|D&C 29:39]].)
+Modern revelation tells us: “… it must needs be that the devil should tempt the children of men, or they could not be agents unto themselves; for if they never should have bitter they could not know the sweet.” ([[D&C 29.39|D&C 29:39]].)
 
 So it is with us today, we must also have the bitter in order to know the sweet. Sometimes some of us think we have the bitter and not enough of the sweet. This is normal. We all have our trials of life to *strengthen* us. Each thinks he has the hardest or most severe trials. It may be that they are the most difficult only because they are the hardest or most difficult for you. The diamond is enhanced and made more valuable with polishing. Steel is made harder and more valuable through tempering. So also opposition builds the character of man.
 
-All progress is made by overcoming an opposing force. Lehi said to his son Jacob: “For it must needs be, that there is an opposition in all things. …” ([[2 Nephi 2.11|2 Ne. 2:11]].)
+All progress is made by overcoming an opposing force. Lehi said to his son Jacob: “For it must needs be, that there is an opposition in all things. …” ([[2 Nephi 2.11|2 Ne. 2:11]].)
 
-“Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
+“Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
 
-“God … shall consecrate thine afflictions for thy gain.” ([[2 Nephi 2.2|2 Ne. 2:2]].)
+“God … shall consecrate thine afflictions for thy gain.” ([[2 Nephi 2.2|2 Ne. 2:2]].)
 
 Opposition, then, is good for us as long as we don’t seek it for opposition’s sake.
 
@@ -105,6 +105,4 @@ May the Lord bless each one of you to accomplish your goal in life, I pray in th
 
 
 
-
-
-#Plan_Of_Salvation #Temptation
+#PlanOfSalvation #Temptation

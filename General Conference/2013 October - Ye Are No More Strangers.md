@@ -8,7 +8,7 @@ By Bishop Gérald Caussé - *First Counselor in the Presiding Bishopric*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/10/ye-are-no-more-strangers?lang=eng)
 
-Most of us at one time or another have been in a situation that was new to us, where we felt strange and insecure. This situation happened to our family about five years ago after President Thomas S. Monson extended the call to me to serve as a General Authority of the Church. This call necessitated our family’s move from the beautiful place we had enjoyed for more than two decades. My wife and I still remember the instant reaction of our children when they learned about the change. Our 16-year-old son exclaimed, “It is not a problem at all. You may go; I will stay!”
+Most of us at one time or another have been in a situation that was new to us, where we felt strange and insecure. This situation happened to our family about five years ago after President Thomas S. Monson extended the call to me to serve as a General Authority of the Church. This call necessitated our family’s move from the beautiful place we had enjoyed for more than two decades. My wife and I still remember the instant reaction of our children when they learned about the change. Our 16-year-old son exclaimed, “It is not a problem at all. You may go; I will stay!”
 
 He then quickly resolved to accompany us and faithfully embraced this new opportunity in his life. Living in new environments over the past few years has turned out to be an enjoyable learning experience for our family, especially due to the warm reception and goodness of the Latter-day Saints. As we have lived in different countries, we have come to appreciate that the unity of the people of God throughout the earth is something real and tangible.
 
@@ -77,7 +77,7 @@ In the name of Jesus Christ, amen.
 
 
 
-[^1]: [[1 Nephi 22.25|1 Nephi 22:25]].
+[^1]: [[1 Nephi 22.25|1 Nephi 22:25]].
 
 [^2]: [[Abraham 2.10|Abraham 2:10]]; emphasis added.
 
@@ -89,14 +89,12 @@ In the name of Jesus Christ, amen.
 
 [^6]: [[Matthew 5.46|Matthew 5:46–48]][[Matthew 5.47|]][[Matthew 5.48|]].
 
-[^7]: Victor Hugo, *Les misérables,* trans. Isabel F. Hapgood, 5 vols. (1887), 1:73.
+[^7]: Victor Hugo, *Les misérables,* trans. Isabel F. Hapgood, 5 vols. (1887), 1:73.
 
-[^8]: [[4 Nephi 1.17|4 Nephi 1:17]].
+[^8]: [[4 Nephi 1.17|4 Nephi 1:17]].
 
 [^9]: [[Acts 10.34|Acts 10:34–35]][[Acts 10.35|]].
 
 [^10]: [[Matthew 25.35|Matthew 25:35, 38, 40]][[Matthew 25.38|]][[Matthew 25.40|]].
-
-
 
 #Fellowshipping #Unity

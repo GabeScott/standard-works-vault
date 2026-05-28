@@ -1,6 +1,5 @@
 # Unrighteous, Unrighteousness
 
-
 *See also* [[Unrighteous Dominion.md|Unrighteous Dominion]]
 
 put not thine hand with the wicked to be an *unrighteous* witness, [[Exodus 23.1|Exodus 23:1]].
@@ -11,7 +10,7 @@ he is my rock, and there is no *unrighteousness* in him, [[Psalms 92.15|Psalms 9
 
 wicked forsake his way, and the *unrighteous* man his thoughts, [[Isaiah 55.7|Isaiah 55:7]].
 
-Make ... friends of the mammon of *unrighteousness*, [[Luke 16.9|Luke 16:9]] ([[D&C 82.22|D&C 82:22]]).
+Make … friends of the mammon of *unrighteousness*, [[Luke 16.9|Luke 16:9]] ([[D&C 82.22|D&C 82:22]]).
 
 ye have not been faithful in the *unrighteous* mammon, [[Luke 16.11|Luke 16:11]].
 
@@ -29,7 +28,7 @@ Is there *unrighteousness* with God, [[Romans 9.14|Romans 9:14]].
 
 what fellowship hath righteousness with *unrighteousness*, [[2 Corinthians 6.14|2 Corinthians 6:14]].
 
-damned who ... had pleasure in *unrighteousness*, [[2 Thessalonians 2.12|2 Thessalonians 2:12]].
+damned who … had pleasure in *unrighteousness*, [[2 Thessalonians 2.12|2 Thessalonians 2:12]].
 
 God is not *unrighteous* to forget your work and labour, [[Hebrews 6.10|Hebrews 6:10]].
 
@@ -37,15 +36,15 @@ I will be merciful to their *unrighteousness*, [[Hebrews 8.12|Hebrews 8:12]].
 
 shall receive the reward of *unrighteousness*, [[2 Peter 2.13|2 Peter 2:13]].
 
-he is faithful ... to cleanse us from all *unrighteousness*, [[1 John 1.9|1 John 1:9]].
+he is faithful … to cleanse us from all *unrighteousness*, [[1 John 1.9|1 John 1:9]].
 
 All *unrighteousness* is sin, [[1 John 5.17|1 John 5:17]].
 
-Lamb of God ... who is mighty to save and to cleanse from all *unrighteousness*, [[Alma 7.14|Alma 7:14]].
+Lamb of God … who is mighty to save and to cleanse from all *unrighteousness*, [[Alma 7.14|Alma 7:14]].
 
 Forsake all *unrighteousness*, [[D&C 66.10|D&C 66:10]].
 
-Jesus ... to cleanse it from all *unrighteousness*, [[D&C 76.41|D&C 76:41]].
+Jesus … to cleanse it from all *unrighteousness*, [[D&C 76.41|D&C 76:41]].
 
 reprove the world of all their *unrighteous* deeds, [[D&C 84.87|D&C 84:87]] ([[D&C 84.117|D&C 84:117]]).
 

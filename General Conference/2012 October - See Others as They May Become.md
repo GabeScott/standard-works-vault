@@ -1,6 +1,6 @@
 # See Others as They May Become
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -20,7 +20,7 @@ Many years ago, at an area conference held in Helsinki, Finland, I heard a power
 
 Brethren, I know that men are very much like women in this regard. We need to be told that we amount to something, that we are capable and worthwhile. We need to be given a chance to serve. For those members who have slipped from activity or who hold back and remain noncommittal, we can prayerfully seek for some way to reach them. Asking them to serve in some capacity may just be the incentive they need to return to full activity. But those leaders who could help in this regard are sometimes reluctant to do so. We need to bear in mind that people can change. They can put behind them bad habits. They can repent from transgressions. They can bear the priesthood worthily. And they can serve the Lord diligently. May I provide a few illustrations.
 
-When I first became a member of the Quorum of the Twelve Apostles, I had the opportunity to accompany President N. Eldon Tanner, a counselor to President David O. McKay, to a stake conference in Alberta, Canada. During the meeting, the stake president read the names of four brethren who had qualified to be ordained elders. These were men whom President Tanner knew, for at one time he had lived in that area. But President Tanner knew and remembered them as they once were and did not know that they had turned their lives around and had fully qualified to become elders.
+When I first became a member of the Quorum of the Twelve Apostles, I had the opportunity to accompany President N. Eldon Tanner, a counselor to President David O. McKay, to a stake conference in Alberta, Canada. During the meeting, the stake president read the names of four brethren who had qualified to be ordained elders. These were men whom President Tanner knew, for at one time he had lived in that area. But President Tanner knew and remembered them as they once were and did not know that they had turned their lives around and had fully qualified to become elders.
 
 The stake president read the name of the first man and asked him to stand. President Tanner whispered to me, “Look at him. I never thought he would make it.” The stake president read the name of the second man, and he stood. President Tanner nudged me again and reported his astonishment. And so it was with all four of the brethren.
 
@@ -56,7 +56,7 @@ The same principle, brethren, applies to those who are not yet members. We shoul
 
 Back in the year 1961, a worldwide conference was held for mission presidents, and every mission president in the Church was brought to Salt Lake City for those meetings. I came to Salt Lake City from my mission in Toronto, Canada.
 
-In one particular meeting, N. Eldon Tanner, who was then an Assistant to the Quorum of the Twelve, had just returned from his initial experience of presiding over the missions in Great Britain and western Europe. He told of a missionary who had been the most successful missionary whom he had met in all of the interviews he had conducted. He said that as he interviewed that missionary, he said to him, “I suppose that all of the people whom you baptized came into the Church by way of referrals.”
+In one particular meeting, N. Eldon Tanner, who was then an Assistant to the Quorum of the Twelve, had just returned from his initial experience of presiding over the missions in Great Britain and western Europe. He told of a missionary who had been the most successful missionary whom he had met in all of the interviews he had conducted. He said that as he interviewed that missionary, he said to him, “I suppose that all of the people whom you baptized came into the Church by way of referrals.”
 
 The young man answered, “No, we found them all by tracting.”
 
@@ -72,7 +72,7 @@ Brethren, the Lord told us something about the importance of this priesthood tha
 
 “Be not thou therefore ashamed of the testimony of our Lord.”[^3]
 
-In May of 1974, I was with Brother John H. Groberg in the Tongan islands. We had an appointment to visit the king of Tonga, and we met with him in a formal session. We exchanged the normal pleasantries. However, before we left, John Groberg said something that was out of the ordinary. He said, “Your Majesty, you should really become a Mormon and your subjects as well, for then your problems and their problems would largely be solved.”
+In May of 1974, I was with Brother John H. Groberg in the Tongan islands. We had an appointment to visit the king of Tonga, and we met with him in a formal session. We exchanged the normal pleasantries. However, before we left, John Groberg said something that was out of the ordinary. He said, “Your Majesty, you should really become a Mormon and your subjects as well, for then your problems and their problems would largely be solved.”
 
 The king smiled broadly and answered, “John Groberg, perhaps you’re right.”
 
@@ -115,11 +115,11 @@ I pray that we will have the courage to extend the hand of fellowship, the tenac
 
 [^2]: See [[D&C 84.33|Doctrine and Covenants 84:33–39]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]].
 
-[^3]: [[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]].
+[^3]: [[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]].
 
 [^4]: [[Acts 26.28|Acts 26:28]].
 
-[^5]: [[1 Corinthians 9.16|1 Corinthians 9:16]].
+[^5]: [[1 Corinthians 9.16|1 Corinthians 9:16]].
 
 [^6]: [[Matthew 28.18|Matthew 28:18–20]][[Matthew 28.19|]][[Matthew 28.20|]].
 
@@ -129,5 +129,6 @@ I pray that we will have the courage to extend the hand of fellowship, the tenac
 
 [^9]: [[Jeremiah 8.20|Jeremiah 8:20]].
 
+[^10]: [[D&C 18.15|Doctrine and Covenants 18:15–16]][[D&C 18.16|]].
 
-#Activation #Courage #Missionary_Work #Priesthood #Testimony
+#Activation #Courage #MissionaryWork #Priesthood #Testimony

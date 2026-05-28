@@ -16,7 +16,7 @@ In my experience with these Brethren and with other men and women in many parts 
 
 I once overheard a conversation between two friends of mine who are somewhat older than I and very successful in their professional pursuits. One said to the other, quietly, not realizing I could hear his comment, “You may think you love your wife, but I love Elizabeth twice as much as you do Rachel.” Each had been married over fifty years. Their greatest success, in my opinion, is the love and respect they have for their companions.
 
-I pay tribute to my wife, Lois, who had the major responsibility in rearing our children, as my assignments have caused me to travel very extensively throughout the world. Because of her wonderful influence, “I have no greater joy than to hear that my children walk in truth.” ([[3 John 1.4|3 Jn. 1:4]].)
+I pay tribute to my wife, Lois, who had the major responsibility in rearing our children, as my assignments have caused me to travel very extensively throughout the world. Because of her wonderful influence, “I have no greater joy than to hear that my children walk in truth.” ([[3 John 1.4|3 Jn. 1:4]].)
 
 I have been blessed to meet many young Church members who “walk in truth” and who have taught me so much through their quiet obedience to the Lord’s commandments. Let me share with you a few examples:
 
@@ -44,13 +44,11 @@ A young medical student in Italy, a friend of mine who is now a cardiovascular s
 
 The Lord invites all to come unto Christ through the ordinances and covenants of the temple, that we might receive the greatest of all God’s gifts to His children, the blessing of eternal life and exaltation.
 
-At the conclusion of these twenty-eight years, I testify of our Heavenly Father’s love for us. The unconditional love the Father and the Son have for us is so real. The Savior continually invites us to “come unto him and partake of his goodness.” ([[2 Nephi 26.33|2 Ne. 26:33]].)
+At the conclusion of these twenty-eight years, I testify of our Heavenly Father’s love for us. The unconditional love the Father and the Son have for us is so real. The Savior continually invites us to “come unto him and partake of his goodness.” ([[2 Nephi 26.33|2 Ne. 26:33]].)
 
 The whole message of the gospel is found in one short scripture which speaks to all of us: “And now, my beloved brethren, I would that ye should come unto Christ, who is the Holy One of Israel, and partake of his salvation, and the power of his redemption. Yea, come unto him, and offer your whole souls as an offering unto him, and continue in fasting and praying, and endure to the end; and as the Lord liveth ye will be saved.” ([[Omni 1.26|Omni 1:26]].)
 
 I bear witness that He lives, that He loves each one of His children—and that means every human being—every man, every woman, every girl, every boy, in the name of Jesus Christ, amen.
-
-
 
 
 

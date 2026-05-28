@@ -1,7 +1,6 @@
 # Today
 
-
-*To day* if ye will hear his voice, [[Psalms 95.7|Psalms 95:7]] ([[Hebrews 3.7|Hebrews 3:7]], [[Hebrews 3.15|Hebrews 3:15]]; [[Hebrews 4.7|Hebrews 4:7]]).
+*To day* if ye will hear his voice, [[Psalms 95.7|Psalms 95:7]] ([[Hebrews 3.7|Hebrews 3:7]]; [[Hebrews 3.15|Hebrews 3:15]]; [[Hebrews 4.7|Hebrews 4:7]]).
 
 *To day* shalt thou be with me in paradise, [[Luke 23.43|Luke 23:43]].
 

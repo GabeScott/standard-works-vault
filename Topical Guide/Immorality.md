@@ -1,4 +1,3 @@
 # Immorality
 
-
-*See* [[Disobedience, Disobey.md|Disobedience]]; [[Lying, Liar, Lie.md|Lying]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Stealing, Stolen.md|Stealing]]; [[Transgress, Transgression.md|Transgress]]; [[Wickedness, Wicked.md|Wickedness]]
+*See also* [[Disobedience.md|Disobedience]]; [[Lying.md|Lying]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Stealing.md|Stealing]]; [[Transgress.md|Transgress]]; [[Wickedness.md|Wickedness]]

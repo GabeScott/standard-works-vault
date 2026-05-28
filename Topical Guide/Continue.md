@@ -1,6 +1,5 @@
 # Continue
 
-
 *continue* a day or two, he shall not be punished, [[Exodus 21.21|Exodus 21:21]].
 
 *continue* thy lovingkindness unto them, [[Psalms 36.10|Psalms 36:10]].
@@ -17,7 +16,7 @@ If ye *continue* in my word, then are ye my disciples, [[John 8.31|John 8:31]].
 
 These all *continued* with one accord in prayer, [[Acts 1.14|Acts 1:14]].
 
-they *continued* steadfastly in the apostles' doctrine, [[Acts 2.42|Acts 2:42]].
+they *continued* steadfastly in the apostles’ doctrine, [[Acts 2.42|Acts 2:42]].
 
 *continue* in the grace of God, [[Acts 13.43|Acts 13:43]].
 

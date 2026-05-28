@@ -1,6 +1,5 @@
 # Vomit
 
-
 land itself *vomiteth* out her inhabitants, [[Leviticus 18.25|Leviticus 18:25]].
 
 As a dog returneth to his *vomit*, [[Proverbs 26.11|Proverbs 26:11]].

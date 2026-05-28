@@ -59,17 +59,17 @@ It is my prayer that we may honor the commitments and covenants that we make wit
 
 
 
-[^1]: [[1 Nephi 3.15|1 Ne. 3:15]].
+[^1]: [[1 Nephi 3.15|1 Ne. 3:15]].
 
-[^2]: [[1 Nephi 4.5|1 Ne. 4:5]].
+[^2]: [[1 Nephi 4.5|1 Ne. 4:5]].
 
-[^3]: [[1 Nephi 4.12|1 Ne. 4:12–13]][[1 Nephi 4.13|]].
+[^3]: [[1 Nephi 4.12|1 Ne. 4:12–13]][[1 Nephi 4.13|]].
 
-[^4]: [[1 Nephi 4.30|1 Ne. 4:30]].
+[^4]: [[1 Nephi 4.30|1 Ne. 4:30]].
 
-[^5]: See [[1 Nephi 4.33|1 Ne. 4:33]].
+[^5]: See [[1 Nephi 4.33|1 Ne. 4:33]].
 
-[^6]: [[1 Nephi 4.37|1 Ne. 4:37]].
+[^6]: [[1 Nephi 4.37|1 Ne. 4:37]].
 
 [^7]: In Conference Report, Oct. 1966, 99; or *Improvement Era,* Dec. 1966, 1137.
 
@@ -87,6 +87,4 @@ It is my prayer that we may honor the commitments and covenants that we make wit
 
 [^14]: *Finding Peace in Our Lives* (1995), 193–94.
 
-
-
-#Covenants #Honesty #Jesus_Christ #Plan_Of_Salvation #Temples
+#Covenants #Honesty #JesusChrist #PlanOfSalvation #Temples

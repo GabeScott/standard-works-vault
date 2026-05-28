@@ -12,7 +12,7 @@ The Savior taught Peter and His other Apostles and disciples why and how they we
 
 They found a fire of coals with fish cooking and bread. I have often wondered, as you may have done, who laid the fire, who caught the fish, and who cooked the meal, but it was the Master who prepared His disciples to be fed more than fish and bread. He let them eat first. And then He taught them of spiritual feeding. And He gave a commandment to them which still stands for each of us.
 
-“So when they had dined, Jesus saith to Simon Peter, Simon, son of Jonas, lovest thou me more than these? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my lambs” ([[John 21.15|John 21:15]]; see also [[John 21.1|vv. 1–17]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]]).
+“So when they had dined, Jesus saith to Simon Peter, Simon, son of Jonas, lovest thou me more than these? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my lambs” ([[John 21.15|John 21:15]]; see also [[John 21.1|vv. 1–17]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]]).
 
 The Saints of God have always been under covenant to nourish each other spiritually, especially those tender in the gospel. We are blessed to live in a time when a great increase in that capacity to nourish new members of the Church must and therefore will be poured out upon the faithful Saints. That power has been given before among the Lord’s people. This is the description of how the Lord’s people did it once in a time recounted in the Book of Mormon. In a scripture that we’ve heard today, you remember that “they were numbered … that they might be remembered and nourished by the good word of God, to keep them in the right way, to keep them continually watchful unto prayer, relying alone upon the merits of Christ, who was the author and the finisher of their faith” ([[Moroni 6.4|Moro. 6:4]]).
 
@@ -52,7 +52,7 @@ The good word of God with which we must nourish is the simple doctrine of the go
 
 “And whoso believeth not in me, and is not baptized, shall be damned.
 
-“Verily, verily, I say unto you, that this is my doctrine, and I bear record of it from the Father; and whoso believeth in me believeth in the Father also; and unto him will the Father bear record of me, for he will visit him with fire and with the Holy Ghost” ([[3 Nephi 11.31|3 Ne. 11:31–35]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]]).
+“Verily, verily, I say unto you, that this is my doctrine, and I bear record of it from the Father; and whoso believeth in me believeth in the Father also; and unto him will the Father bear record of me, for he will visit him with fire and with the Holy Ghost” ([[3 Nephi 11.31|3 Ne. 11:31–35]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]]).
 
 The Lord went on to describe those who would be nourished by that simple doctrine and so endure, those who would inherit the celestial kingdom, as those who were childlike. It takes a childlike heart to feel the promptings of the Spirit, to surrender to those commands, and to obey. That is what it takes to be nourished by the good word of God.
 
@@ -81,6 +81,4 @@ I know that Jesus is the Christ. I know that He lives. And I know that He leads 
 
 
 
-
-
-#Atonement #Children #Commandments #Covenants #Faith #Fellowshipping #Holy_Ghost #Humility #Jesus_Christ #Plan_Of_Salvation #Prayer
+#Atonement #Children #Commandments #Covenants #Faith #Fellowshipping #HolyGhost #Humility #JesusChrist #PlanOfSalvation #Prayer

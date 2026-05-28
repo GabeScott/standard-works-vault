@@ -1,6 +1,6 @@
 # The Gift of Love
 
-By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
+By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -30,7 +30,7 @@ I am often asked to counsel with people who experience somewhat that same dilemm
 
 Kristen and all of us should remember that while we are commanded to love God, he has a perfect love for us. All the world needs to be taught of the great redeeming power of the Savior’s love. He loves us so much he has promised to forgive us of those things we do that are wrong and remember them no more if we will only repent and come unto him (see [[D&C 58.42|D&C 58:42]]). He loves us so much that he was willing to pay the price for those sins. He suffered for us. He died for us. He said, Come follow me; cast your burdens on the Lord. His desire is to lift us, to help us, to guide us, to save us.
 
-Henry Drummond, in his classic writing on the subject of Christ’s love, tells of a man who went to see a dying boy. He put his hand on the boy’s head to comfort him and said, “‘My boy, God loves you.’” The boy soon arose “from his bed, and called out to the people in the house, ‘God loves me! God loves me!’ One word! It changed that boy. The sense that God loved him overpowered him, melted him down, and began the creating of a new heart in him. And that is how the love of God melts down the unlovely heart in man, and begets in him the new creature, who is patient and humble and gentle and unselfish. And there is no other way to get it. There is no mystery about it. We love others, we love everybody, we love our enemies, *because He first loved us.*” (*The Greatest Thing in the World,* Old Tappon, N.J.: Fleming H. Revell Co., n.d., pp. 47–48.)
+Henry Drummond, in his classic writing on the subject of Christ’s love, tells of a man who went to see a dying boy. He put his hand on the boy’s head to comfort him and said, “‘My boy, God loves you.’” The boy soon arose “from his bed, and called out to the people in the house, ‘God loves me! God loves me!’ One word! It changed that boy. The sense that God loved him overpowered him, melted him down, and began the creating of a new heart in him. And that is how the love of God melts down the unlovely heart in man, and begets in him the new creature, who is patient and humble and gentle and unselfish. And there is no other way to get it. There is no mystery about it. We love others, we love everybody, we love our enemies, *because He first loved us.*” (*The Greatest Thing in the World,* Old Tappon, N.J.: Fleming H. Revell Co., n.d., pp. 47–48.)
 
 It is this knowledge of his great love for us that influences our actions toward him and others. He said, “Love one another; as I have loved you” ([[John 13.34|John 13:34]]).
 
@@ -39,8 +39,6 @@ A few weeks ago someone gave me a gift. As I unwrapped the handsome package and 
 How grateful I am for this example of Christlike love and for the many other gifts of love which I experience daily in my home and in my associations throughout this great church. These experiences lift me up and give me the desire to extend my love to others.
 
 Now, may we as members of The Church of Jesus Christ of Latter-day Saints remember and live these first great commandments. May we love the Lord with all our heart, all our soul, all our mind and strength, and may we love our neighbors as ourselves. May we show that love by living all the commandments of God and by sharing with our neighbors our greatest gift of love, the gospel of Jesus Christ, which I testify is the truth and the best on the face of the earth. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -22,7 +22,7 @@ The letter continues: “Now brethren, we can but dimly see what the next fifty 
 
 “This Sunday School work has been to us a labor of love and our interest does not merely exist for today, but extends into the future.
 
-“… We beseech you that whatever may be the methods employed, whatever may be the changes wrought in the fifty years to come, that you never forget for an instant the object of the great Sunday School work, viz: To teach the children the principles of the Gospel of Jesus Christ; to make Latter Day Saints of them.”
+“… We beseech you that whatever may be the methods employed, whatever may be the changes wrought in the fifty years to come, that you never forget for an instant the object of the great Sunday School work, viz: To teach the children the principles of the Gospel of Jesus Christ; to make Latter Day Saints of them.”
 
 The letter was signed by the general Sunday School presidency, as well as 21 other board members, including Joseph F. Smith and Heber J. Grant, both of whom later served as President of the Church.
 
@@ -36,7 +36,7 @@ Indeed, we have been blessed with magnificent tools and methods which can be use
 
 As we prepare for another 50 or 100 years, we might also see but dimly what lies ahead. We must learn to make wise use of the tools and technology that we have.
 
-Wise use of our technology would include care in that which we invite into our homes by the way of television, videos, computers, including the Internet. There is much that is good and edifying in the media, but there is also much that is gross, immoral, and time-consuming, enticing us to be “ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.7|2 Tim. 3:7]]). During the Second World War when gasoline was in short supply and rationed, I remember signs saying, “Is this trip necessary?” Today, with ever-increasing demands on everyone and time in short supply, might we ask ourselves before we turn on the video game, the television, the computer, or access the many programs available, “Is this trip necessary?”
+Wise use of our technology would include care in that which we invite into our homes by the way of television, videos, computers, including the Internet. There is much that is good and edifying in the media, but there is also much that is gross, immoral, and time-consuming, enticing us to be “ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.7|2 Tim. 3:7]]). During the Second World War when gasoline was in short supply and rationed, I remember signs saying, “Is this trip necessary?” Today, with ever-increasing demands on everyone and time in short supply, might we ask ourselves before we turn on the video game, the television, the computer, or access the many programs available, “Is this trip necessary?”
 
 Perhaps every person who is listening might also ask these questions of himself or herself and expect an honest reply: “Is the information I am receiving from this tool of learning edifying and adding truth into my life? Are the hours I am investing an effective use of my valuable time? Does this computer game assist me in fulfilling my responsibilities and goals?” If the answer is not a resounding yes, then we should have the courage and determination to click the off button and direct our lives to more important tasks.
 
@@ -55,8 +55,6 @@ There is power in the doctrines of the Church—hence the need for us all to be 
 President Hinckley made that statement nearly 30 years ago at a general conference. Then, how much more need have we to be spiritually fortified today! Indeed, inspired gospel teaching among all members of the Church is a lifeline to the spiritual stability and growth of members of all ages.
 
 Technology will surely advance and methods will certainly change, but the personal touch by a dedicated, loving teacher who radiates the Spirit is the key to filling the desire of the writers of this 1899 document, which was to teach the children and others the “principles of the Gospel of Jesus Christ; to make Latter Day Saints of them.” In the name of the greatest teacher of all, even Jesus Christ, amen.
-
-
 
 
 

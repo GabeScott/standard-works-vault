@@ -98,7 +98,7 @@ With all my heart and the fervency of my soul, I lift up my voice in testimony a
 
 [^8]: [[Acts 7.56|Acts 7:56]].
 
-[^9]: [[1 Corinthians 15.3|1 Corinthians 15:3–5, 8]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.8|]].
+[^9]: [[1 Corinthians 15.3|1 Corinthians 15:3–5, 8]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.8|]].
 
 [^10]: [[D&C 76.22|D&C 76:22]].
 
@@ -124,6 +124,4 @@ With all my heart and the fervency of my soul, I lift up my voice in testimony a
 
 [^21]: “I Know That My Redeemer Lives,” *Hymns,* no. 136; see also [[Job 19.25|Job 19:25]].
 
-
-
-#Jesus_Christ #Love #Plan_Of_Salvation #Resurrection
+#JesusChrist #Love #PlanOfSalvation #Resurrection

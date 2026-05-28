@@ -1,6 +1,6 @@
 # “Except a Man Be Born Again”
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -69,8 +69,6 @@ Now, my beloved brethren and sisters, everyone has to have a spiritual experienc
 You who have been baptized have the right to it. Desire it. Pray for it. Work for it, and God will give it to you.
 
 That you may each receive that knowledge of God the Eternal Father and Jesus Christ whom he has sent, to know which is eternal life, I humbly pray, in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # ’Tis Eastertide: No One Walks Alone
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -50,17 +50,17 @@ Indeed, “if a man love me, he will keep my words: and my Father will love him,
 
 We began this general conference with solemn assembly. Solemn assemblies mark significant Church milestones or events, such as the sustaining of a new Church President. Whether a solemn assembly occurs earlier or later, by sacred pattern and precedent, we symbolically demonstrate united commitment and support.
 
-Solemn assembly dates to ancient Israel, including at King Solomon’s dedication of the temple. In this dispensation a historic solemn assembly was held on March 27, 1836, after the Kirtland Temple was completed.
+Solemn assembly dates to ancient Israel, including at King Solomon’s dedication of the temple. In this dispensation a historic solemn assembly was held on March 27, 1836, after the Kirtland Temple was completed.
 
-At this conference, in solemn assembly, we witnessed and sustained President Dallin H. Oaks as the Lord’s prophet and our prophet, with President Henry B. Eyring and President D. Todd Christofferson as our First Presidency, and Elder Gérald Caussé and Elder Clark G. Gilbert as members of the Quorum of the Twelve Apostles.
+At this conference, in solemn assembly, we witnessed and sustained President Dallin H. Oaks as the Lord’s prophet and our prophet, with President Henry B. Eyring and President D. Todd Christofferson as our First Presidency, and Elder Gérald Caussé and Elder Clark G. Gilbert as members of the Quorum of the Twelve Apostles.
 
 As we “seek … first the kingdom of God, and his righteousness,”[^33] we follow Jesus Christ and the Lord’s prophet willingly, obediently, joyfully. We are richly blessed as we do so.
 
-We are grateful President Dallin H. Oaks will be our concluding speaker. When I was a new freshman at Brigham Young University and President Oaks was the new president of Brigham Young University, we spoke together on a panel for parents and prospective students. As I waited nervously for the program to begin, President Oaks leaned over to assure me. With a warm smile, he said he was wearing a red tie because he was celebrating his 40th birthday and was feeling old. To me, as a new freshman, 40 did seem pretty old!
+We are grateful President Dallin H. Oaks will be our concluding speaker. When I was a new freshman at Brigham Young University and President Oaks was the new president of Brigham Young University, we spoke together on a panel for parents and prospective students. As I waited nervously for the program to begin, President Oaks leaned over to assure me. With a warm smile, he said he was wearing a red tie because he was celebrating his 40th birthday and was feeling old. To me, as a new freshman, 40 did seem pretty old!
 
 President Oaks then told me a story. I still remember the principle. Opening a large chest filled with coins, a grandfather invited his grandchildren to collect all the coins they could. Excited, the grandchildren gathered handfuls of the more plentiful but less valuable coins, such as pennies, nickels, and dimes. However, one granddaughter carefully chose only a few coins. Her grandfather asked why. She replied, “Grandpa, all my coins are gold pieces.”
 
-A man loved and tutored by the Lord, President Dallin H. Oaks has exemplified “good, better, best” all his life.[^34] He chooses the best spiritual part. He teaches by precept and example how to follow our Savior.
+A man loved and tutored by the Lord, President Dallin H. Oaks has exemplified “good, better, best” all his life.[^34] He chooses the best spiritual part. He teaches by precept and example how to follow our Savior.
 
 Jesus Christ’s Atonement changes everything. It brings literal resurrection. It can enable our return to the presence of God and the eternal uniting of families.[^35] We can heal, reconcile, abide in covenant belonging. With Nephi of old, our souls delight in the covenants the Lord has made, “in his grace, and in his justice, and power, and mercy in the great and eternal plan of deliverance from death.”[^36]
 
@@ -83,7 +83,7 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^4]: See [[Luke 24.32|Luke 24:32]].
 
-[^5]: [[Luke 24.29|Luke 24:29]]. Two beloved hymns are “Abide with Me; ’Tis Eventide” (*Hymns*, no. 165) and “Abide with Me!” (*Hymns*, no. 166).
+[^5]: [[Luke 24.29|Luke 24:29]]. Two beloved hymns are “Abide with Me; ’Tis Eventide” (*Hymns*, no. 165) and “Abide with Me!” (*Hymns*, no. 166).
 
 [^6]: See [[Luke 24.29|Luke 24:29–31]][[Luke 24.30|]][[Luke 24.31|]].
 
@@ -107,11 +107,11 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^16]: See [[Moses 6.34|Moses 6:34]]. This, of course, is also our 2026 youth theme. Dear youth of the noble birthright, you can witness and remember Jesus Christ regularly through the ordinance and covenant of the sacrament. Do your best to abide and walk with Him. Let the promises of Easter be real for you each day. Be faithful and prayerful, kind and helpful, clean and pure. Learn and grow. His Spirit will be with you. I promise.
 
-[^17]: See [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
+[^17]: See [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
 
-[^18]: With the disciples on the road to Emmaus, we sing: “Abide with me! fast falls the eventide; the darkness deepens. Lord, with me abide!” Continuing: “Earth’s joys grow dim; its glories pass away. Change and decay in all around I see; O thou who changest not, abide with me!” (“Abide with Me!,” *Hymns*, no. 166).
+[^18]: With the disciples on the road to Emmaus, we sing: “Abide with me! fast falls the eventide; the darkness deepens. Lord, with me abide!” Continuing: “Earth’s joys grow dim; its glories pass away. Change and decay in all around I see; O thou who changest not, abide with me!” (“Abide with Me!,” *Hymns*, no. 166).
 
-[^19]: See David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me]],” *Liahona*, May 2023, 123–26.
+[^19]: See David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me]],” *Liahona*, May 2023, 123–26.
 
 [^20]: See [[John 14.6|John 14:6]].
 
@@ -125,7 +125,7 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^25]: [[John 14.21|John 14:21]].
 
-[^26]: [[John 14.23|John 14:23]]; see also [[1 John 3.24|1 John 3:24]]; [[Revelation 3.20|Revelation 3:20]]; [[D&C 88.3|Doctrine and Covenants 88:3]]; [[D&C 130.3|130:3]]. Regarding [[John 14.23|John 14:23]], [[D&C 130.3|Doctrine and Covenants 130:3]] states, “The appearing of the Father and the Son, in that verse, is a personal appearance; and the idea that the Father and the Son dwell in a man’s heart is an old sectarian notion, and is false.” With reverence, we note that to make abode occurs when someone comes to abide—we abide in abode.
+[^26]: [[John 14.23|John 14:23]]; see also [[1 John 3.24|1 John 3:24]]; [[Revelation 3.20|Revelation 3:20]]; [[D&C 88.3|Doctrine and Covenants 88:3]]; [[D&C 130.3|130:3]]. Regarding [[John 14.23|John 14:23]], [[D&C 130.3|Doctrine and Covenants 130:3]] states, “The appearing of the Father and the Son, in that verse, is a personal appearance; and the idea that the Father and the Son dwell in a man’s heart is an old sectarian notion, and is false.” With reverence, we note that to make abode occurs when someone comes to abide—we abide in abode.
 
 [^27]: See [[John 15.1|John 15:1]].
 
@@ -141,13 +141,14 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^33]: [[Matthew 6.33|Matthew 6:33]].
 
-[^34]: See Dallin H. Oaks, “[[2007 October - Good, Better, Best.md|Good, Better, Best]],” *Liahona*, Nov. 2007, 104–8.
+[^34]: See Dallin H. Oaks, “[[2007 October - Good, Better, Best.md|Good, Better, Best]],” *Liahona*, Nov. 2007, 104–8.
 
-[^35]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
+[^35]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
-[^36]: [[2 Nephi 11.5|2 Nephi 11:5]].
+[^36]: [[2 Nephi 11.5|2 Nephi 11:5]].
 
-[^37]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18) (2007), 49.
+[^37]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18) (2007), 49.
 
-[^38]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
+[^38]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
+#Covenants #Easter #JesusChrist

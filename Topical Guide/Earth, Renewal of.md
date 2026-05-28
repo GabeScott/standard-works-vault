@@ -1,6 +1,5 @@
 # Earth, Renewal of
 
-
 *See also* [[Earth, Cleansing of.md|Earth, Cleansing of]]; [[Earth, Destiny of.md|Earth, Destiny of]]
 
 turneth the *wilderness* into a standing water, [[Psalms 107.35|Psalms 107:35]] ([[Isaiah 41.18|Isaiah 41:18]]).
@@ -46,5 +45,3 @@ solitary places to bud and to *blossom*, [[D&C 117.7|D&C 117:7]].
 shall break down the *mountains*, and the valleys, [[D&C 133.22|D&C 133:22]].
 
 *earth* will be *renewed* and receive its paradisiacal glory, [[Articles of Faith 1.10|Articles of Faith 1:10]].
-
-*See also* [[Job 9.6|Job 9:6]]; [[Psalms 67.6|Psalms 67:6]]; [[1 Nephi 21.13|1 Nephi 21:13]].

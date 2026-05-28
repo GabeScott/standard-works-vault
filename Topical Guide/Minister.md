@@ -1,15 +1,14 @@
 # Minister
 
+*See also* [[Angels, Ministering.md|Angels, Ministering]]; [[Ministration.md|Ministration]]; [[Ministry.md|Ministry]]; [[Servant.md|Servant]]; [[Serve.md|Serve]]; [[Stewardship.md|Stewardship]]
 
-*See also* [[Angels, Ministering.md|Angels, Ministering]]; [[Ministration.md|Ministration]]; [[Ministry.md|Ministry]]; [[Servant.md|Servant]]; [[Serve.md|Serve]]; [[Stewardship, Steward.md|Stewardship]]
-
-he may *minister* unto me in the priest's office, [[Exodus 28.1|Exodus 28:1]].
+he may *minister* unto me in the priest’s office, [[Exodus 28.1|Exodus 28:1]].
 
 to *minister* in the name of the Lord, [[Deuteronomy 18.5|Deuteronomy 18:5]].
 
 child did *minister* unto the Lord, [[1 Samuel 2.11|1 Samuel 2:11]].
 
-maketh ... his *ministers* a flaming fire, [[Psalms 104.4|Psalms 104:4]] ([[Hebrews 1.7|Hebrews 1:7]]).
+maketh … his *ministers* a flaming fire, [[Psalms 104.4|Psalms 104:4]] ([[Hebrews 1.7|Hebrews 1:7]]).
 
 men shall call you the *Ministers* of our God, [[Isaiah 61.6|Isaiah 61:6]].
 
@@ -25,7 +24,7 @@ great among you, let him be your *minister*, [[Matthew 20.26|Matthew 20:26]].
 
 Son of man came not to be *ministered* unto, but to *minister*, [[Matthew 20.28|Matthew 20:28]].
 
-when saw we thee ... and did not *minister* unto thee, [[Matthew 25.44|Matthew 25:44]].
+when saw we thee … and did not *minister* unto thee, [[Matthew 25.44|Matthew 25:44]].
 
 eyewitnesses, and *ministers* of the word, [[Luke 1.2|Luke 1:2]].
 
@@ -35,9 +34,9 @@ they had also John to their *minister*, [[Acts 13.5|Acts 13:5]].
 
 these hands have *ministered* unto my necessities, [[Acts 20.34|Acts 20:34]].
 
-I have appeared ... to make thee a *minister* and a witness, [[Acts 26.16|Acts 26:16]].
+I have appeared … to make thee a *minister* and a witness, [[Acts 26.16|Acts 26:16]].
 
-I should be the *minister* ... to the Gentiles, [[Romans 15.16|Romans 15:16]].
+I should be the *minister* … to the Gentiles, [[Romans 15.16|Romans 15:16]].
 
 I go unto Jerusalem to *minister* unto the saints, [[Romans 15.25|Romans 15:25]].
 
@@ -61,13 +60,13 @@ He therefore that *ministereth* to you the Spirit, [[Galatians 3.5|Galatians 3:5
 
 beloved brother and faithful *minister* in the Lord, [[Ephesians 6.21|Ephesians 6:21]].
 
-the gospel ... whereof I Paul am made a *minister*, [[Colossians 1.23|Colossians 1:23]].
+the gospel … whereof I Paul am made a *minister*, [[Colossians 1.23|Colossians 1:23]].
 
 thou shalt be a good *minister* of Jesus Christ, [[1 Timothy 4.6|1 Timothy 4:6]].
 
 ye have *ministered* to the saints, and do *minister*, [[Hebrews 6.10|Hebrews 6:10]].
 
-*minister* of the sanctuary ... of the true tabernacle, [[Hebrews 8.2|Hebrews 8:2]].
+*minister* of the sanctuary … of the true tabernacle, [[Hebrews 8.2|Hebrews 8:2]].
 
 if any man *minister*, let him do it as of the ability which God giveth, [[1 Peter 4.11|1 Peter 4:11]].
 
@@ -91,12 +90,12 @@ God *ministered* unto him by an holy angel, [[D&C 20.6|D&C 20:6]].
 
 appointed to be *ministering* spirits, [[D&C 76.88|D&C 76:88]].
 
-appointed ... to be standing *ministers*, [[D&C 84.111|D&C 84:111]].
+appointed … to be standing *ministers*, [[D&C 84.111|D&C 84:111]].
 
-Twelve ... to ordain evangelical *ministers*, [[D&C 107.39|D&C 107:39]].
+Twelve … to ordain evangelical *ministers*, [[D&C 107.39|D&C 107:39]].
 
-high priest ... may be set apart unto the *ministering* of temporal things, [[D&C 107.71|D&C 107:71]].
+high priest … may be set apart unto the *ministering* of temporal things, [[D&C 107.71|D&C 107:71]].
 
 seventy are to be traveling *ministers*, [[D&C 107.97|D&C 107:97]].
 
-quorum of elders ... instituted for standing *ministers*, [[D&C 124.137|D&C 124:137]].
+quorum of elders … instituted for standing *ministers*, [[D&C 124.137|D&C 124:137]].

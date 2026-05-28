@@ -1,6 +1,6 @@
 # Protect the Children
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -32,7 +32,7 @@ There is a tragic irony in the multitude of children eliminated or injured befor
 
 Childhood abuses or neglect of children that occur after birth are more publicly visible. Worldwide, almost eight million children die before their fifth birthday, mostly from diseases both treatable and preventable.[^4] And the World Health Organization reports that one in four children have stunted growth, mentally and physically, because of inadequate nutrition.[^5] Living and traveling internationally, we Church leaders see much of this. The general presidency of the Primary report children living in conditions “beyond our imaginations.” A mother in the Philippines said: “Sometimes we do not have enough money for food, but that is all right because it gives me the opportunity to teach my children about faith. We gather and pray for relief, and the children see the Lord bless us.”[^6] In South Africa, a Primary worker met a little girl, lonely and sad. In faint responses to loving questions, she said she had no mother, no father, and no grandmother—only a grandfather to care for her.[^7] Such tragedies are common on a continent where many caregivers have died of AIDS.
 
-Even in rich nations little children and youth are impaired by neglect. Children growing up in poverty have inferior health care and inadequate educational opportunities. They are also exposed to dangerous environments in their physical and cultural surroundings and even from the neglect of their parents. Elder Jeffrey R. Holland recently shared the experience of an LDS police officer. In an investigation he found five young children huddled together and trying to sleep without bedding on a filthy floor in a dwelling where their mother and others were drinking and partying. The apartment had no food to relieve their hunger. After tucking the children into a makeshift bed, the officer knelt and prayed for their protection. As he walked toward the door, one of them, about six, pursued him, grabbed him by the hand, and pleaded, “Will you please adopt me?”[^8]
+Even in rich nations little children and youth are impaired by neglect. Children growing up in poverty have inferior health care and inadequate educational opportunities. They are also exposed to dangerous environments in their physical and cultural surroundings and even from the neglect of their parents. Elder Jeffrey R. Holland recently shared the experience of an LDS police officer. In an investigation he found five young children huddled together and trying to sleep without bedding on a filthy floor in a dwelling where their mother and others were drinking and partying. The apartment had no food to relieve their hunger. After tucking the children into a makeshift bed, the officer knelt and prayed for their protection. As he walked toward the door, one of them, about six, pursued him, grabbed him by the hand, and pleaded, “Will you please adopt me?”[^8]
 
 We remember our Savior’s teaching as He placed a little child before His followers and declared:
 
@@ -46,7 +46,7 @@ With the help of the Lord, we can repent and change and be more loving and helpf
 
 ## II.
 
-There are few examples of physical or emotional threats to children as important as those arising out of their relationships with their parents or guardians. President Thomas S. Monson has spoken of what he called the “vile deeds” of child abuse, where a parent has broken or disfigured a child, physically or emotionally.[^11] I grieved as I had to study the shocking evidence of such cases during my service on the Utah Supreme Court.
+There are few examples of physical or emotional threats to children as important as those arising out of their relationships with their parents or guardians. President Thomas S. Monson has spoken of what he called the “vile deeds” of child abuse, where a parent has broken or disfigured a child, physically or emotionally.[^11] I grieved as I had to study the shocking evidence of such cases during my service on the Utah Supreme Court.
 
 Of utmost importance to the well-being of children is whether their parents were married, the nature and duration of the marriage, and, more broadly, the culture and expectations of marriage and child care where they live. Two scholars of the family explain: “Throughout history, marriage has first and foremost been an institution for procreation and raising children. It has provided the cultural tie that seeks to connect the father to his children by binding him to the mother of his children. Yet in recent times, children have increasingly been pushed from center stage.”[^12]
 
@@ -78,7 +78,7 @@ Religious persons are also conscious of the Savior’s New Testament teaching th
 
 “Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven” ([[Matthew 18.3|Matthew 18:3–4]][[Matthew 18.4|]]).
 
-In the Book of Mormon we read of the risen Lord teaching the Nephites that they must repent and be baptized “and become as a little child” or they could not inherit the kingdom of God ([[3 Nephi 11.38|3 Nephi 11:38]]; see also [[Moroni 8.10|Moroni 8:10]]).
+In the Book of Mormon we read of the risen Lord teaching the Nephites that they must repent and be baptized “and become as a little child” or they could not inherit the kingdom of God ([[3 Nephi 11.38|3 Nephi 11:38]]; see also [[Moroni 8.10|Moroni 8:10]]).
 
 I pray that we will humble ourselves as little children and reach out to protect our little children, for they are the future for us, for our Church, and for our nations. In the name of Jesus Christ, amen.
 
@@ -87,45 +87,45 @@ I pray that we will humble ourselves as little children and reach out to protect
 
 [^1]: See UNICEF, *The State of the World’s Children 2005: Childhood under Threat* (2004), 26.
 
-[^2]: See Haya El Nasser, “National Birthrate Lowest in 25 Years,” *USA Today,* July 26, 2012, A1.
+[^2]: See Haya El Nasser, “National Birthrate Lowest in 25 Years,” *USA Today,* July 26, 2012, A1.
 
-[^3]: See Gilda Sedgh and others, “Induced Abortion: Incidence and Trends Worldwide from 1995 to 2008,” *The Lancet,* vol. 379, no. 9816 (Feb. 18, 2012), 625–32.
+[^3]: See Gilda Sedgh and others, “Induced Abortion: Incidence and Trends Worldwide from 1995 to 2008,” *The Lancet,* vol. 379, no. 9816 (Feb. 18, 2012), 625–32.
 
 [^4]: See UNICEF, “Young Child Survival and Development,” http://www.unicef.org/childsurvival/index.html.
 
 [^5]: See World Health Organization, *World Health Statistics 2012* (2012), 109, 118.
 
-[^6]: Report of Primary general presidency, Sept. 13, 2012.
+[^6]: Report of Primary general presidency, Sept. 13, 2012.
 
 [^7]: Report of Primary general presidency.
 
-[^8]: See Jeffrey R. Holland, [“Israel, Israel, God Is Calling”](https://www.churchofjesuschrist.org/broadcasts/archive/ces-devotionals/2012/01) (Church Educational System devotional for young adults, Sept. 9, 2012), lds.org/broadcasts; see also R. Scott Lloyd, “Zion Not Only Where, but How We Live, Says Elder Holland,” *Deseret News,* Sept. 10, 2012, B2.
+[^8]: See Jeffrey R. Holland, [“Israel, Israel, God Is Calling”](https://www.churchofjesuschrist.org/broadcasts/archive/ces-devotionals/2012/01) (Church Educational System devotional for young adults, Sept. 9, 2012), lds.org/broadcasts; see also R. Scott Lloyd, “Zion Not Only Where, but How We Live, Says Elder Holland,” *Deseret News,* Sept. 10, 2012, B2.
 
-[^9]: See Kim Painter, “Parents Can Inflict Deep Emotional Harm,” *USA Today,* July 30, 2012, B8; Rachel Lowry, “Mental Abuse as Injurious as Other Forms of Child Abuse, Study Shows,” *Deseret News,* Aug. 5, 2012, A3.
+[^9]: See Kim Painter, “Parents Can Inflict Deep Emotional Harm,” *USA Today,* July 30, 2012, B8; Rachel Lowry, “Mental Abuse as Injurious as Other Forms of Child Abuse, Study Shows,” *Deseret News,* Aug. 5, 2012, A3.
 
-[^10]: See “End the Abuses,” *Deseret News,* June 12, 2012, A10.
+[^10]: See “End the Abuses,” *Deseret News,* June 12, 2012, A10.
 
-[^11]: Thomas S. Monson, “A Little Child Shall Lead Them,” *Liahona,* June 2002, 2; *Ensign,* May 1990, 53.
+[^11]: Thomas S. Monson, “A Little Child Shall Lead Them,” *Liahona,* June 2002, 2; *Ensign,* May 1990, 53.
 
-[^12]: W. Bradford Wilcox and Elizabeth Marquardt, eds., *The State of Our Unions: Marriage in America* (2011), 82.
+[^12]: W. Bradford Wilcox and Elizabeth Marquardt, eds., *The State of Our Unions: Marriage in America* (2011), 82.
 
 [^13]: Mary Ann Glendon, *Abortion and Divorce in Western Law: American Failures, European Challenges* (1987), 108.
 
-[^14]: David O. McKay, “Structure of the Home Threatened by Irresponsibility and Divorce,” *Improvement Era,* June 1969, 5.
+[^14]: David O. McKay, “Structure of the Home Threatened by Irresponsibility and Divorce,” *Improvement Era,* June 1969, 5.
 
-[^15]: See Diana B. Elliott and Tavia Simmons, “Marital Events of Americans: 2009,” *American Community Survey Reports,* Aug. 2011.
+[^15]: See Diana B. Elliott and Tavia Simmons, “Marital Events of Americans: 2009,” *American Community Survey Reports,* Aug. 2011.
 
 [^16]: “The Family: A Proclamation to the World,” *Liahona* and *Ensign,* Nov. 2010, 129.
 
-[^17]: See Dallin H. Oaks, [[2007 April - Divorce.md|“Divorce,”]] *Liahona* and *Ensign,* May 2007, 71.
+[^17]: See Dallin H. Oaks, “[[2007 April - Divorce.md|Divorce]],” *Liahona* and *Ensign,* May 2007, 71.
 
 [^18]: Charles Murray, *Coming Apart: The State of White America, 1960–2010* (2012), 158.
 
-[^19]: Ross Douthat, “Gay Parents and the Marriage Debate,” *New York Times,* June 11, 2012, http://douthat.blogs.nytimes.com/2012/06/11/gay-parents-and-the-marriage-debate.
+[^19]: Ross Douthat, “Gay Parents and the Marriage Debate,” *New York Times,* June 11, 2012, http://douthat.blogs.nytimes.com/2012/06/11/gay-parents-and-the-marriage-debate.
 
-[^20]: See Joyce A. Martin and others, “Births: Final Data for 2010,” *National Vital Statistics Reports,* vol. 61, no. 1 (Aug. 2012), 10.
+[^20]: See Joyce A. Martin and others, “Births: Final Data for 2010,” *National Vital Statistics Reports,* vol. 61, no. 1 (Aug. 2012), 10.
 
-[^21]: See William J. Doherty and others, *Why Marriage Matters: Twenty-One Conclusions from the Social Sciences* (2002); W. Bradford Wilcox and others, *Why Marriage Matters: Thirty Conclusions from the Social Sciences,* 3rd ed. (2011).
+[^21]: See William J. Doherty and others, *Why Marriage Matters: Twenty-One Conclusions from the Social Sciences* (2002); W. Bradford Wilcox and others, *Why Marriage Matters: Thirty Conclusions from the Social Sciences,* 3rd ed. (2011).
 
 [^22]: See Martin, “Births: Final Data for 2010,” 10–11.
 
@@ -133,5 +133,6 @@ I pray that we will humble ourselves as little children and reach out to protect
 
 [^24]: Douthat, “Gay Parents and the Marriage Debate.” The latest and most thorough study finds significant disadvantages reported by young adults with a parent who had same-sex relationships prior to the child’s turning age 18 (see Mark Regnerus, “How Different Are the Adult Children of Parents Who Have Same-Sex Relationships? Findings from the New Family Structures Study,” *Social Science Research,* vol. 41 \[2012\], 752–70).
 
+[^25]: Latter-day Saints are especially committed to parenthood as one of the most important goals in life (see Pew Research Center’s Forum on Religion and Public Life, *Mormons in America: Certain in Their Beliefs, Uncertain of Their Place in Society,* Jan. 12, 2012, 10, 16, 51).
 
 #Abortion #Children #Family #Marriage

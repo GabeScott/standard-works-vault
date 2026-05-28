@@ -40,7 +40,7 @@ First, think about your life and set your priorities. Find some quiet time regul
 
 Second, set short-term goals that you can reach. Set goals that are well balanced—not too many nor too few, and not too high nor too low. Write down your attainable goals and work on them according to their importance. Pray for divine guidance in your goal setting.
 
-You recall that Alma said he would like to be an angel so he could “speak with the trump of God, … to shake the earth, and cry repentance unto every people!” ([[Alma 29.1|Alma 29:1]]). He then said, “But behold, I am a man, and do sin in my wish; for I ought to be content with the things which the Lord hath allotted unto me. …
+You recall that Alma said he would like to be an angel so he could “speak with the trump of God, … to shake the earth, and cry repentance unto every people!” ([[Alma 29.1|Alma 29:1]]). He then said, “But behold, I am a man, and do sin in my wish; for I ought to be content with the things which the Lord hath allotted unto me. …
 
 “Why should I desire more than to perform the work to which I have been called?” ([[Alma 29.3|Alma 29:3, 6]][[Alma 29.6|]]).
 
@@ -48,7 +48,7 @@ Third, everyone faces financial challenges in life. Through wise budgeting, cont
 
 Do not trust your money to others without a thorough evaluation of any proposed investment. Our people have lost far too much money by trusting their assets to others. In my judgment, we never will have balance in our lives unless our finances are securely under control.
 
-The prophet Jacob said to his people: “Wherefore, do not spend money for that which is of no worth, nor your labor for that which cannot satisfy. Hearken diligently unto me, and remember the words which I have spoken; and come unto the Holy One of Israel, and feast upon that which perisheth not, neither can be corrupted, and let your soul delight in fatness” ([[2 Nephi 9.51|2 Ne. 9:51]]).
+The prophet Jacob said to his people: “Wherefore, do not spend money for that which is of no worth, nor your labor for that which cannot satisfy. Hearken diligently unto me, and remember the words which I have spoken; and come unto the Holy One of Israel, and feast upon that which perisheth not, neither can be corrupted, and let your soul delight in fatness” ([[2 Nephi 9.51|2 Ne. 9:51]]).
 
 Brothers and sisters, remember to always pay a full tithing.
 
@@ -58,7 +58,7 @@ A good marriage and good family relationships can be maintained through gentle, 
 
 Fifth, study the scriptures. They offer one of the best sources we have to keep in touch with the Spirit of the Lord. One of the ways I have gained my sure knowledge that Jesus is the Christ is through my study of the scriptures. President Ezra Taft Benson has called upon members of the Church to make the study of the Book of Mormon a daily habit and a lifetime pursuit. The Apostle Paul’s advice to Timothy is good counsel for each of us. He wrote: “From a child thou hast known the holy scriptures, which are able to make thee wise unto salvation through faith which is in Christ Jesus.
 
-“All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness” ([[2 Timothy 3.15|2 Tim. 3:15–16]][[2 Timothy 3.16|]]).
+“All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness” ([[2 Timothy 3.15|2 Tim. 3:15–16]][[2 Timothy 3.16|]]).
 
 Sixth, many people, including me, have difficulty finding the time for sufficient rest, exercise, and relaxation. We must schedule time on our daily calendars for these activities if we are to enjoy a healthy and balanced life. Good physical appearance enhances our dignity and self-respect.
 
@@ -79,8 +79,6 @@ Just a word to Church leaders: Be very careful that what you ask from members wi
 Not long ago, one of my children said, “Dad, sometimes I wonder if I will ever make it.” The answer I gave to her is the same as I would give to you if you have had similar feelings. Just do the very best you can each day. Do the basic things and, before you realize it, your life will be full of spiritual understanding that will confirm to you that your Heavenly Father loves you. When a person knows this, then life will be full of purpose and meaning, making balance easier to maintain.
 
 Live every day with joy in your heart, brothers and sisters. I humbly testify that life can be wonderful, in the name of Jesus Christ, amen.
-
-
 
 
 

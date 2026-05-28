@@ -1,7 +1,6 @@
 # Kindle
 
-
-he that *kindled* the fire ... make restitution, [[Exodus 22.6|Exodus 22:6]].
+he that *kindled* the fire … make restitution, [[Exodus 22.6|Exodus 22:6]].
 
 what will I, if it be already *kindled*, [[Luke 12.49|Luke 12:49]].
 

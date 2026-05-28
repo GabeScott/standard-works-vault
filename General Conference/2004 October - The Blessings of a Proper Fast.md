@@ -14,7 +14,7 @@ Fasting has always been a practice among God’s people. In our day it is a comm
 
 For the Pratt family our regular fasts have always been from the Saturday noon meal to the Sunday noon meal. That way we fast for two meals, Saturday evening and Sunday morning meals. Although there is no Church standard for fasting, except that it should be for 24 hours and two meals, we have found a spiritual advantage in attending fast and testimony meeting toward the end of the fast.
 
-For those who are physically able, fasting is a commandment. Speaking of our monthly fast day, President Joseph F. Smith said: “The Lord has instituted the fast on a reasonable and intelligent basis. … Those who can are required to comply … ; it is a duty from which they cannot escape; … it is left with the people as a matter of conscience, to exercise wisdom and discretion. …
+For those who are physically able, fasting is a commandment. Speaking of our monthly fast day, President Joseph F. Smith said: “The Lord has instituted the fast on a reasonable and intelligent basis. … Those who can are required to comply … ; it is a duty from which they cannot escape; … it is left with the people as a matter of conscience, to exercise wisdom and discretion. …
 
 “But those should fast who can. … None are exempt from this; it is required of the Saints, old and young, in every part of the Church” (*Gospel Doctrine,* 5th ed. \[1939\], 244).
 
@@ -50,15 +50,13 @@ If we fast properly, the Lord promises:
 
 “Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; …
 
-“Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. …
+“Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. …
 
 “And if thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness be as the noonday:
 
 “And the Lord shall guide thee continually, and satisfy thy soul in drought, … and thou shalt be like a watered garden, and like a spring of water, whose waters fail not” ([[Isaiah 58.8|Isaiah 58:8–11]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]]).
 
 It is my prayer that we can improve our fasts so that we can enjoy these beautiful promised blessings. It is my testimony that as we “draw near” to the Lord through our fasting and prayer, He will “draw near” to us (see [[D&C 88.63|D&C 88:63]]). I testify that He lives, that He loves us, and that He wants to draw near to us. In the name of Jesus Christ, amen.
-
-
 
 
 

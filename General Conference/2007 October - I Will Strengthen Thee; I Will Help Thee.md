@@ -101,6 +101,4 @@ I testify that our Lord and Savior lives. I testify that He will help us. He has
 
 [^10]: “Rejoicing in the Privilege to Serve,” *Worldwide Leadership Training Meeting,* June 21, 2003, 22.
 
-
-
-#Children #Family #Jesus_Christ #Motherhood
+#Children #Family #JesusChrist #Motherhood

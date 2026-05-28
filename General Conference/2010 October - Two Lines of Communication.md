@@ -12,7 +12,7 @@ Our Heavenly Father has given His children two lines of communication with Him�
 
 ## I. The Personal Line
 
-In the personal line we pray directly to our Heavenly Father, and He answers us by the channels He has established, without any mortal intermediary. We pray to our Heavenly Father in the name of Jesus Christ, and He answers us through His Holy Spirit and in other ways. The mission of the Holy Ghost is to testify of the Father and the Son (see [[John 15.26|John 15:26]]; [[2 Nephi 31.18|2 Nephi 31:18]]; [[3 Nephi 28.11|3 Nephi 28:11]]), to guide us into truth (see [[John 14.26|John 14:26]]; [[John 16.13|16:13]]), and to show us all things we should do (see [[2 Nephi 32.5|2 Nephi 32:5]]). This personal line of communication with our Heavenly Father through His Holy Spirit is the source of our testimony of truth, of our knowledge, and of our personal guidance from a loving Heavenly Father. It is an essential feature of His marvelous gospel plan, which allows each one of His children to receive a personal witness of its truth.
+In the personal line we pray directly to our Heavenly Father, and He answers us by the channels He has established, without any mortal intermediary. We pray to our Heavenly Father in the name of Jesus Christ, and He answers us through His Holy Spirit and in other ways. The mission of the Holy Ghost is to testify of the Father and the Son (see [[John 15.26|John 15:26]]; [[2 Nephi 31.18|2 Nephi 31:18]]; [[3 Nephi 28.11|3 Nephi 28:11]]), to guide us into truth (see [[John 14.26|John 14:26]]; [[John 16.13|16:13]]), and to show us all things we should do (see [[2 Nephi 32.5|2 Nephi 32:5]]). This personal line of communication with our Heavenly Father through His Holy Spirit is the source of our testimony of truth, of our knowledge, and of our personal guidance from a loving Heavenly Father. It is an essential feature of His marvelous gospel plan, which allows each one of His children to receive a personal witness of its truth.
 
 The direct, personal channel of communication to our Heavenly Father through the Holy Ghost is based on worthiness and is so essential that we are commanded to renew our covenants by partaking of the sacrament each Sabbath day. In this way we qualify for the promise that we may always have His Spirit to be with us, to guide us.
 
@@ -30,7 +30,7 @@ Similarly, we cannot communicate reliably through the direct, personal line if w
 
 Unlike the personal line, in which our Heavenly Father communicates with us directly through the Holy Ghost, the priesthood line of communication has the additional and necessary intermediaries of our Savior, Jesus Christ; His Church; and His appointed leaders.
 
-Because of what He accomplished by His atoning sacrifice, Jesus Christ has the power to prescribe the conditions we must fulfill to qualify for the blessings of His Atonement. That is why we have commandments and ordinances. That is why we make covenants. That is how we qualify for the promised blessings. They all come through the mercy and grace of the Holy One of Israel, “after all we can do” ([[2 Nephi 25.23|2 Nephi 25:23]]).
+Because of what He accomplished by His atoning sacrifice, Jesus Christ has the power to prescribe the conditions we must fulfill to qualify for the blessings of His Atonement. That is why we have commandments and ordinances. That is why we make covenants. That is how we qualify for the promised blessings. They all come through the mercy and grace of the Holy One of Israel, “after all we can do” ([[2 Nephi 25.23|2 Nephi 25:23]]).
 
 During His earthly ministry, Jesus Christ conferred the authority of the priesthood that bears His name and He established a church that also bears His name. In this last dispensation, His priesthood authority was restored and His Church was reestablished through heavenly ministrations to the Prophet Joseph Smith. This restored priesthood and this reestablished Church are at the heart of the priesthood line.
 
@@ -72,15 +72,13 @@ A final example applies these principles to the subject of priesthood authority 
 
 We must use both the personal line and the priesthood line in proper balance to achieve the growth that is the purpose of mortal life. If personal religious practice relies too much on the personal line, individualism erases the importance of divine authority. If personal religious practice relies too much on the priesthood line, individual growth suffers. The children of God need both lines to achieve their eternal destiny. The restored gospel teaches both, and the restored Church provides both.
 
-I testify of the Lord’s prophet, President Thomas S. Monson, who holds the keys that govern the priesthood line. I testify of the Lord Jesus Christ, whose Church this is. And I testify of the restored gospel, whose truth can be known by each of us through the precious personal line to our Heavenly Father. In the name of Jesus Christ, amen.
+I testify of the Lord’s prophet, President Thomas S. Monson, who holds the keys that govern the priesthood line. I testify of the Lord Jesus Christ, whose Church this is. And I testify of the restored gospel, whose truth can be known by each of us through the precious personal line to our Heavenly Father. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: David Whitmer, in “Letter from Elder W. H. Kelley,” *The Saints’ Herald,* Mar. 1, 1882, 68. A similar report is quoted in B. H. Roberts, *A Comprehensive History of the Church,* 1:131.
+[^1]: David Whitmer, in “Letter from Elder W. H. Kelley,” *The Saints’ Herald,* Mar. 1, 1882, 68. A similar report is quoted in B. H. Roberts, *A Comprehensive History of the Church,* 1:131.
 
-[^2]: See Dallin H. Oaks, in Conference Report, Oct. 2005, 24–28; or *Ensign,* Nov. 2005, 24–27.
+[^2]: See Dallin H. Oaks, in Conference Report, Oct. 2005, [[2005 October - Priesthood Authority in the Family and the Church.md|24–28]]; or *Ensign,* Nov. 2005, 24–27.
 
-
-
-#Church_Organization #Holy_Ghost #Prayer #Priesthood #Revelation
+#ChurchOrganization #HolyGhost #Prayer #Priesthood #Revelation

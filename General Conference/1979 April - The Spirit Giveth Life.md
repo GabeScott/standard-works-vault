@@ -1,6 +1,6 @@
 # The Spirit Giveth Life
 
-By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
+By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -14,7 +14,7 @@ Two classic examples of this are Paul, the great New Testament prophet, and Brig
 
 “Now we have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God.
 
-“Which things also we speak, not in the words which man’s wisdom teacheth, but which the Holy Ghost teacheth; comparing spiritual things with spiritual.” (See [[1 Corinthians 2.11|1 Cor. 2:11–14]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]].)
+“Which things also we speak, not in the words which man’s wisdom teacheth, but which the Holy Ghost teacheth; comparing spiritual things with spiritual.” (See [[1 Corinthians 2.11|1 Cor. 2:11–14]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]].)
 
 Brigham Young was a pragmatist, level-headed and down-to-earth. A glazier by trade, he became the second president of the Church after the death of the Prophet Joseph Smith. He led the Saints into a trackless waste and kept them from perishing until they forged a new life by making the desert blossom as the rose (see [[Isaiah 35.1|Isa. 35:1]]). He recognized the practical and sensible aspects of religious life and service to God; yet from this down-to-earth, practical prophet come these words:
 
@@ -42,9 +42,9 @@ The prophet Alma says: “And now behold, I ask of you, my brethren of the churc
 
 Alma was making sure that the members of the Church had not just received the gift of the Holy Ghost, but also had truly received the sanctifying and cleansing power of that great Spirit. He said the way you can tell is when you become refreshed spiritually, as if you had been born anew. He said that the feelings and attitudes of your heart will be truly changed for the good. That your very appearance will begin to take upon itself the image of Christ.
 
-What a great and powerful friend is this gift of the Holy Ghost! Certainly all who will turn to the Savior and abide by his laws will be healed by this Spirit (see [[3 Nephi 9.13|3 Ne. 9:13]]). They will have the mind of Christ (see [[1 Corinthians 2.16|1 Cor. 2:16]]), they will be “partakers of the divine nature” ([[2 Peter 1.4|2 Pet. 1:4]]), they will begin to have the image of Christ in their countenances (see [[Alma 5.14|Alma 5:14]]). Truly the gospel comes, as Paul said, not only in word, “but also in power,” the sanctifying, cleansing, soul-enlarging power of the Holy Spirit ([[1 Thessalonians 1.5|1 Thes. 1:5]]).
+What a great and powerful friend is this gift of the Holy Ghost! Certainly all who will turn to the Savior and abide by his laws will be healed by this Spirit (see [[3 Nephi 9.13|3 Ne. 9:13]]). They will have the mind of Christ (see [[1 Corinthians 2.16|1 Cor. 2:16]]), they will be “partakers of the divine nature” ([[2 Peter 1.4|2 Pet. 1:4]]), they will begin to have the image of Christ in their countenances (see [[Alma 5.14|Alma 5:14]]). Truly the gospel comes, as Paul said, not only in word, “but also in power,” the sanctifying, cleansing, soul-enlarging power of the Holy Spirit ([[1 Thessalonians 1.5|1 Thes. 1:5]]).
 
-After the death of the Prophet Joseph Smith, Brigham Young had a dream in which Joseph Smith appeared to him with the following advice: “Tell the brethren to keep their hearts open to conviction, so that when the Holy Ghost comes to them, their hearts will be ready to receive it. They can tell the Spirit of the Lord from all other spirits; it will whisper peace and joy to their souls; it will take malice, hatred, strife and all evil from their hearts; and their whole desire will be to do good, bring forth righteousness and build up the kingdom of God. Tell the brethren if they will follow the spirit of the Lord they will go right. Be sure to tell the people to keep the Spirit,” he said. (Elden J. Watson, comp., *Manuscript History of Brigham Young 1846–1847,* Salt Lake City, 1971, pp. 529–30.)
+After the death of the Prophet Joseph Smith, Brigham Young had a dream in which Joseph Smith appeared to him with the following advice: “Tell the brethren to keep their hearts open to conviction, so that when the Holy Ghost comes to them, their hearts will be ready to receive it. They can tell the Spirit of the Lord from all other spirits; it will whisper peace and joy to their souls; it will take malice, hatred, strife and all evil from their hearts; and their whole desire will be to do good, bring forth righteousness and build up the kingdom of God. Tell the brethren if they will follow the spirit of the Lord they will go right. Be sure to tell the people to keep the Spirit,” he said. (Elden J. Watson, comp., *Manuscript History of Brigham Young 1846–1847,* Salt Lake City, 1971, pp. 529–30.)
 
 And these final words from the Doctrine and Covenants: “Therefore, sanctify yourselves that your minds become single to God, and the days will come that you shall see him; for he will unveil his face unto you, and it shall be in his own time, and in his own way, and according to his own will” ([[D&C 88.68|D&C 88:68]]).
 
@@ -88,6 +88,4 @@ May the Lord help us to reach beyond the words of life and to capture this great
 
 
 
-
-
-#Holy_Ghost #Spirituality
+#HolyGhost #Spirituality

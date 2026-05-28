@@ -14,7 +14,7 @@ Jesus repeatedly called upon his disciples to preach the gospel to every living 
 
 “And he saith unto them, Follow me, and I will make you fishers of men.
 
-“And they straightway left their nets, and followed him. …
+“And they straightway left their nets, and followed him. …
 
 “And Jesus went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom” ([[Matthew 4.17|Matt. 4:17–20, 23]][[Matthew 4.18|]][[Matthew 4.19|]][[Matthew 4.20|]][[Matthew 4.23|]]).
 
@@ -26,7 +26,7 @@ With loving patience, Jesus taught his disciples, and especially his twelve Apos
 
 “Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world” ([[Matthew 28.18|Matt. 28:18–20]][[Matthew 28.19|]][[Matthew 28.20|]]).
 
-These instructions were clear. When Peter, the chief Apostle, finally understood them, he became a powerful leader. For example, on the day of Pentecost, he stood “with the eleven, lifted up his voice, and said unto them, Ye men of Judea, …
+These instructions were clear. When Peter, the chief Apostle, finally understood them, he became a powerful leader. For example, on the day of Pentecost, he stood “with the eleven, lifted up his voice, and said unto them, Ye men of Judea, …
 
 “This Jesus hath God raised up, whereof we all are witnesses.
 
@@ -34,7 +34,7 @@ These instructions were clear. When Peter, the chief Apostle, finally understood
 
 “Now when they heard this, they were pricked in their heart, and said unto Peter and to the rest of the apostles, Men and brethren, what shall we do?
 
-“Then Peter said unto them, Repent, and be baptized every one of you in the name of Jesus Christ for the remission of sins, and ye shall receive the gift of the Holy Ghost. …
+“Then Peter said unto them, Repent, and be baptized every one of you in the name of Jesus Christ for the remission of sins, and ye shall receive the gift of the Holy Ghost. …
 
 “Then they that gladly received his word were baptized: and the same day there were added unto them about three thousand souls” ([[Acts 2.14|Acts 2:14, 32, 36–38, 41]][[Acts 2.32|]][[Acts 2.36|]][[Acts 2.37|]][[Acts 2.38|]][[Acts 2.41|]]).
 
@@ -44,7 +44,7 @@ When Jesus visited this continent, Nephi went forth and bowed himself before the
 
 “And the Lord said unto him: I give unto you power that ye shall baptize this people when I am again ascended into heaven.
 
-“And again the Lord called others, and said unto them likewise; and he gave unto them power to baptize” ([[3 Nephi 11.20|3 Ne. 11:20–22]][[3 Nephi 11.21|]][[3 Nephi 11.22|]]).
+“And again the Lord called others, and said unto them likewise; and he gave unto them power to baptize” ([[3 Nephi 11.20|3 Ne. 11:20–22]][[3 Nephi 11.21|]][[3 Nephi 11.22|]]).
 
 To every people through all ages his message remains the same: “Preach the kingdom of God” ([[Luke 9.2|Luke 9:2]]).
 
@@ -108,7 +108,7 @@ In talking of faith and saving souls, you should understand that when the Spirit
 
 There are many good ways that you can use to prepare someone to feel the Spirit. A few examples are: bear your testimony, pray together, read the scriptures, give a Book of Mormon, share a spiritual experience, take your friend to church, present a gospel film or tape, and discuss the gospel. Please note that all of these same steps and principles will also work when we use them to invite the inactive member of the Church to come back into full activity.
 
-In the fiftieth section of the Doctrine and Covenants, we are assured that “he that receiveth the word by the Spirit of truth receiveth it as it is preached by the Spirit of truth. …
+In the fiftieth section of the Doctrine and Covenants, we are assured that “he that receiveth the word by the Spirit of truth receiveth it as it is preached by the Spirit of truth. …
 
 “Wherefore, he that preacheth and he that receiveth, understand one another, and both are edified and rejoice together” ([[D&C 50.21|D&C 50:21–22]][[D&C 50.22|]]).
 
@@ -135,6 +135,4 @@ May the Lord bless us all with increased faith to move his work forward, I humbl
 
 
 
-
-
-#Commitment #Love #Missionary_Work
+#Commitment #Love #MissionaryWork

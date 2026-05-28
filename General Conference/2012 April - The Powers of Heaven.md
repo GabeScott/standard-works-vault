@@ -1,6 +1,6 @@
 # The Powers of Heaven
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -10,7 +10,7 @@ By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 My beloved brethren, I am grateful we can worship together as a vast body of priesthood holders. I love and admire you for your worthiness and your influence for good throughout the world.
 
-I invite each of you to consider how you would respond to the following question posed to the members of the Church many years ago by President David O. McKay: “If at this moment each one of you were asked to state in one sentence or phrase the most distinguishing feature of the Church of Jesus Christ of Latter-day Saints, what would be your answer?” (“The Mission of the Church and Its Members,” *Improvement Era,* Nov. 1956, 781).
+I invite each of you to consider how you would respond to the following question posed to the members of the Church many years ago by President David O. McKay: “If at this moment each one of you were asked to state in one sentence or phrase the most distinguishing feature of the Church of Jesus Christ of Latter-day Saints, what would be your answer?” (“The Mission of the Church and Its Members,” *Improvement Era,* Nov. 1956, 781).
 
 The response President McKay gave to his own question was the “divine authority” of the priesthood. The Church of Jesus Christ of Latter-day Saints stands apart from other churches that claim their authority is derived from historical succession, the scriptures, or theological training. We make the distinctive declaration that priesthood authority has been conferred by the laying on of hands directly from heavenly messengers to the Prophet Joseph Smith.
 
@@ -18,7 +18,7 @@ My message focuses upon this divine priesthood and the powers of heaven. I earne
 
 ## Priesthood Authority and Power
 
-The priesthood is the authority of God delegated to men on the earth to act in all things for the salvation of mankind (see Spencer W. Kimball, “The Example of Abraham,” *Ensign,* June 1975, 3). Priesthood is the means whereby the Lord acts through men to save souls. One of the defining features of the Church of Jesus Christ, both anciently and today, is His authority. There can be no true Church without divine authority.
+The priesthood is the authority of God delegated to men on the earth to act in all things for the salvation of mankind (see Spencer W. Kimball, “The Example of Abraham,” *Ensign,* June 1975, 3). Priesthood is the means whereby the Lord acts through men to save souls. One of the defining features of the Church of Jesus Christ, both anciently and today, is His authority. There can be no true Church without divine authority.
 
 Ordinary men are given the authority of the priesthood. Worthiness and willingness—not experience, expertise, or education—are the qualifications for priesthood ordination.
 
@@ -26,15 +26,15 @@ The pattern for obtaining priesthood authority is described in the fifth article
 
 A priesthood holder is expected to exercise this sacred authority in accordance with God’s holy mind, will, and purposes. Nothing about the priesthood is self-centered. The priesthood always is used to serve, to bless, and to strengthen other people.
 
-The higher priesthood is received by a solemn covenant that includes the obligation to act in the authority (see [[D&C 68.8|D&C 68:8]]) and the office (see [[D&C 107.99|D&C 107:99]]) that have been received. As bearers of God’s holy authority, we are agents to act and not objects to be acted upon (see [[2 Nephi 2.26|2 Nephi 2:26]]). The priesthood is inherently active rather than passive.
+The higher priesthood is received by a solemn covenant that includes the obligation to act in the authority (see [[D&C 68.8|D&C 68:8]]) and the office (see [[D&C 107.99|D&C 107:99]]) that have been received. As bearers of God’s holy authority, we are agents to act and not objects to be acted upon (see [[2 Nephi 2.26|2 Nephi 2:26]]). The priesthood is inherently active rather than passive.
 
 President Ezra Taft Benson taught:
 
 “It is not enough to receive the priesthood and then sit back passively and wait until someone prods us into activity. When we receive the priesthood, we have the obligation of becoming actively and anxiously engaged in promoting the cause of righteousness in the earth, because the Lord says:
 
-“‘… He that doeth not anything until he is commanded, and receiveth a commandment with doubtful heart, and keepeth it with slothfulness, the same is damned’ \[[[D&C 58.29|D&C 58:29]]\]” (*So Shall Ye Reap* \[1960\], 21).
+“‘… He that doeth not anything until he is commanded, and receiveth a commandment with doubtful heart, and keepeth it with slothfulness, the same is damned’ \[[[D&C 58.29|D&C 58:29]]\]” (*So Shall Ye Reap* \[1960\], 21).
 
-President Spencer W. Kimball also pointedly emphasized the active nature of the priesthood: “One breaks the priesthood covenant by transgressing commandments—but also by leaving undone his duties. Accordingly, *to break this covenant one needs only to do nothing*” (*The Miracle of Forgiveness* \[1969\], 96).
+President Spencer W. Kimball also pointedly emphasized the active nature of the priesthood: “One breaks the priesthood covenant by transgressing commandments—but also by leaving undone his duties. Accordingly, *to break this covenant one needs only to do nothing*” (*The Miracle of Forgiveness* \[1969\], 96).
 
 As we do our best to fulfill our priesthood responsibilities, we can be blessed with priesthood power. The power of the priesthood is God’s power operating through men and boys like us and requires personal righteousness, faithfulness, obedience, and diligence. A boy or a man may receive priesthood authority by the laying on of hands but will have no priesthood power if he is disobedient, unworthy, or unwilling to serve.
 
@@ -64,7 +64,7 @@ You may be interested to know that a number of years later, my father was baptiz
 
 I share with you this pointed lesson I learned from my father to emphasize a simple truth. Receiving the authority of the priesthood by the laying on of hands is an important beginning, but it is not enough. Ordination confers authority, but righteousness is required to act with power as we strive to lift souls, to teach and testify, to bless and counsel, and to advance the work of salvation.
 
-In this momentous season of the earth’s history, you and I as bearers of the priesthood need to be righteous men and effective instruments in the hands of God. We need to rise up as men of God. You and I would do well to learn from and heed the example of Nephi, the grandson of Helaman and the first of the twelve disciples called by the Savior at the beginning of His ministry among the Nephites. “And \[Nephi\] did minister many things unto them. … And Nephi did minister with power and with great authority” ([[3 Nephi 7.17|3 Nephi 7:17]]).
+In this momentous season of the earth’s history, you and I as bearers of the priesthood need to be righteous men and effective instruments in the hands of God. We need to rise up as men of God. You and I would do well to learn from and heed the example of Nephi, the grandson of Helaman and the first of the twelve disciples called by the Savior at the beginning of His ministry among the Nephites. “And \[Nephi\] did minister many things unto them. … And Nephi did minister with power and with great authority” ([[3 Nephi 7.17|3 Nephi 7:17]]).
 
 ## “Please Help My Husband Understand”
 
@@ -76,11 +76,9 @@ Brethren, I promise that if you and I will prayerfully ponder the pleas of these
 
 ## Be Examples of Righteousness
 
-Tonight I reiterate the teachings of President Thomas S. Monson, who has invited us as priesthood holders to be “examples of righteousness.” He has reminded us repeatedly that we are on the Lord’s errand and are entitled to His help predicated upon our worthiness (see “Examples of Righteousness,” *Liahona* and *Ensign,* May 2008, 65–68). You and I hold priesthood authority that has been returned to the earth in this dispensation by heavenly messengers, even John the Baptist and Peter, James, and John. And therefore every man who receives the Melchizedek Priesthood can trace his personal line of authority directly to the Lord Jesus Christ. I hope we are grateful for this marvelous blessing. I pray we will be clean and worthy to represent the Lord as we exercise His sacred authority. May each of us qualify for priesthood power.
+Tonight I reiterate the teachings of President Thomas S. Monson, who has invited us as priesthood holders to be “examples of righteousness.” He has reminded us repeatedly that we are on the Lord’s errand and are entitled to His help predicated upon our worthiness (see “Examples of Righteousness,” *Liahona* and *Ensign,* May 2008, 65–68). You and I hold priesthood authority that has been returned to the earth in this dispensation by heavenly messengers, even John the Baptist and Peter, James, and John. And therefore every man who receives the Melchizedek Priesthood can trace his personal line of authority directly to the Lord Jesus Christ. I hope we are grateful for this marvelous blessing. I pray we will be clean and worthy to represent the Lord as we exercise His sacred authority. May each of us qualify for priesthood power.
 
-I testify the holy priesthood indeed has been restored to the earth in these latter days and is found in The Church of Jesus Christ of Latter-day Saints. I also witness that President Thomas S. Monson is the presiding high priest over the high priesthood of the Church (see [[D&C 107.9|D&C 107:9, 22, 65–66, 91–92]][[D&C 107.22|]][[D&C 107.65|]][[D&C 107.66|]][[D&C 107.91|]][[D&C 107.92|]]) and the only person upon the earth who both holds and is authorized to exercise all priesthood keys. Of these truths I solemnly testify in the sacred name of the Lord Jesus Christ, amen.
-
-
+I testify the holy priesthood indeed has been restored to the earth in these latter days and is found in The Church of Jesus Christ of Latter-day Saints. I also witness that President Thomas S. Monson is the presiding high priest over the high priesthood of the Church (see [[D&C 107.9|D&C 107:9, 22, 65–66, 91–92]][[D&C 107.22|]][[D&C 107.65|]][[D&C 107.66|]][[D&C 107.91|]][[D&C 107.92|]]) and the only person upon the earth who both holds and is authorized to exercise all priesthood keys. Of these truths I solemnly testify in the sacred name of the Lord Jesus Christ, amen.
 
 
 

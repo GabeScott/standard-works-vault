@@ -1,6 +1,5 @@
 # Property
 
-
 that he might obtain our *property*, [[1 Nephi 3.25|1 Nephi 3:25]] ([[1 Nephi 4.11|1 Nephi 4:11]]).
 
 defence of your liberty, and your *property*, [[3 Nephi 3.2|3 Nephi 3:2]].
@@ -23,4 +22,4 @@ I require all their surplus *property*, [[D&C 119.1|D&C 119:1]].
 
 shall be tithed of their surplus *properties*, [[D&C 119.5|D&C 119:5]].
 
-laws are framed and held inviolate as will secure ... the right and control of *property*, [[D&C 134.2|D&C 134:2]].
+laws are framed and held inviolate as will secure … the right and control of *property*, [[D&C 134.2|D&C 134:2]].

@@ -1,6 +1,6 @@
 # “But They Were in One”
 
-By Elder George P. Lee - *Of the First Quorum of the Seventy*
+By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -28,7 +28,7 @@ Of all the great commandments given to us by our Heavenly Father, he rates these
 
 Again we read in Fourth Nephi:
 
-“And they had all things in common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift.” ([[4 Nephi 1.3|4 Ne. 1:3]].)
+“And they had all things in common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift.” ([[4 Nephi 1.3|4 Ne. 1:3]].)
 
 In like manner, my brothers and sisters, among you today there are really no rich, no poor. To me you’re all equal in the sense that you are all Latter-day Saints and that you are all rich spiritually. What I see in the audience today are people from all walks of life. I see doctors and lawyers sitting next to common men. I see a farmer next to a professional person. I see professional people, educators, and teachers side by side. I see composers, musicians, and artists—all kinds of people from all walks of life, sitting together side by side. And this is as it should be, because if you want to know what the celestial kingdom looks like, you are witnessing today a glimpse of the celestial kingdom and heaven.
 
@@ -36,13 +36,13 @@ My brothers and sisters, the Lord has commanded us to love each other, and to be
 
 The mission of this church is to focus on others. The Lord has instructed us to give meat to the hungry, give drink to the thirsty, clothe the naked, visit the sick and those in prison. Again Nephi said:
 
-“The people were all converted unto the Lord, upon all the face of the land, both Nephites and Lamanites, and there were no contentions and disputations among them, and every man did deal justly one with another.” ([[4 Nephi 1.2|4 Ne. 1:2]].)
+“The people were all converted unto the Lord, upon all the face of the land, both Nephites and Lamanites, and there were no contentions and disputations among them, and every man did deal justly one with another.” ([[4 Nephi 1.2|4 Ne. 1:2]].)
 
 In like manner today, as I look at you, you are all converted to the Lord and there is no disputation among you. You are all willing and capable of dealing justly with your neighbor. But again I must ask you, what will happen when you leave this building? What will happen when this conference is closed? Will you go out of this building and out into the world and deal justly with your fellowmen? Will you still be converted? Or will you compromise gospel principles and standards? Will you still be willing to deal justly with your fellowmen?
 
 Again we read from Nephi’s account the following:
 
-“And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God.” ([[4 Nephi 1.16|4 Ne. 1:16]].)
+“And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God.” ([[4 Nephi 1.16|4 Ne. 1:16]].)
 
 This passage of scripture, my brothers and sisters, describes the happy and beautiful estate of my Book of Mormon ancestors. They lived in peace and happiness for 200 years without hate or wars or contentions. What a glorious and superb record of righteousness!
 
@@ -57,8 +57,6 @@ I know that Jesus Christ lives and that we fought beside him in the preexistence
 I have a testimony of the Book of Mormon, the history of my forefathers. America was founded so that the gospel could be restored and so that this sacred record could be brought back to my people and to anyone who will listen.
 
 I know that Joseph Smith really was a true prophet of God, that God the Father and Jesus the Christ actually and really came down and visited with him. It’s no myth, no legend, no fairy tale, no make-believe. It really happened. And with us today is a living prophet, President Kimball. I love him; I sustain him; I respect him. In the name of Jesus Christ. Amen.
-
-
 
 
 

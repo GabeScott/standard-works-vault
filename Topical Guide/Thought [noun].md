@@ -1,13 +1,12 @@
 # Thought [noun]
 
-
-*See also* [[Device.md|Device]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Imagination, Imagine.md|Imagination]]; [[Meditation, Meditate.md|Meditation]]; [[Motivations.md|Motivations]]; [[Think, Thought.md|Think]]
+*See also* [[Device.md|Device]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Imagination.md|Imagination]]; [[Meditation.md|Meditation]]; [[Motivations.md|Motivations]]; [[Think.md|Think]]
 
 imagination of the *thoughts* of his heart was only evil, [[Genesis 6.5|Genesis 6:5]] ([[Moses 8.22|Moses 8:22]]).
 
 not a *thought* in thy wicked heart, [[Deuteronomy 15.9|Deuteronomy 15:9]].
 
-Lord ... understandeth all the imaginations of the *thoughts*, [[1 Chronicles 28.9|1 Chronicles 28:9]].
+Lord … understandeth all the imaginations of the *thoughts*, [[1 Chronicles 28.9|1 Chronicles 28:9]].
 
 that no *thought* can be withholden from thee, [[Job 42.2|Job 42:2]].
 
@@ -37,13 +36,13 @@ I know their works and their *thoughts*, [[Isaiah 66.18|Isaiah 66:18]].
 
 that thou mightest know the *thoughts* of thy heart, [[Daniel 2.30|Daniel 2:30]].
 
-he ... declareth unto man what is his *thought*, [[Amos 4.13|Amos 4:13]].
+he … declareth unto man what is his *thought*, [[Amos 4.13|Amos 4:13]].
 
 they know not the *thoughts* of the Lord, [[Micah 4.12|Micah 4:12]].
 
 Take no *thought* for your life, [[Matthew 6.25|Matthew 6:25]] ([[Luke 12.22|Luke 12:22]]; [[3 Nephi 13.25|3 Nephi 13:25]]).
 
-Take ... no *thought* for the morrow, [[Matthew 6.34|Matthew 6:34]].
+Take … no *thought* for the morrow, [[Matthew 6.34|Matthew 6:34]].
 
 Jesus knowing their *thoughts* said, [[Matthew 9.4|Matthew 9:4]] ([[Luke 5.22|Luke 5:22]]).
 
@@ -61,7 +60,7 @@ why do *thoughts* arise in your hearts, [[Luke 24.38|Luke 24:38]].
 
 *thought* of thine heart may be forgiven thee, [[Acts 8.22|Acts 8:22]].
 
-their *thoughts* ... accusing or else excusing one another, [[Romans 2.15|Romans 2:15]].
+their *thoughts* … accusing or else excusing one another, [[Romans 2.15|Romans 2:15]].
 
 every *thought* to the obedience of Christ, [[2 Corinthians 10.5|2 Corinthians 10:5]].
 
@@ -71,9 +70,9 @@ I can tell you concerning your *thoughts*, [[Jacob 2.5|Jacob 2:5]].
 
 if ye do not watch yourselves, and your *thoughts*, [[Mosiah 4.30|Mosiah 4:30]].
 
-Alma ... did know the *thoughts* of their hearts, [[Mosiah 24.12|Mosiah 24:12]].
+Alma … did know the *thoughts* of their hearts, [[Mosiah 24.12|Mosiah 24:12]].
 
-Amulek ... perceived their *thoughts*, [[Alma 10.17|Alma 10:17]].
+Amulek … perceived their *thoughts*, [[Alma 10.17|Alma 10:17]].
 
 thou seest that thy *thoughts* are made known, [[Alma 12.3|Alma 12:3]].
 

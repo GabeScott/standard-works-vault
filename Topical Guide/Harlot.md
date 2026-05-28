@@ -1,7 +1,6 @@
 # Harlot
 
-
-*See also* [[Adulterer, Adultery.md|Adulterer]]; [[Whore, Whoredom.md|Whore]]
+*See also* [[Adulterer.md|Adulterer]]; [[Whore.md|Whore]]
 
 deal with our sister as with an *harlot*, [[Genesis 34.31|Genesis 34:31]].
 
@@ -11,7 +10,7 @@ only Rahab the *harlot* shall live, [[Joshua 6.17|Joshua 6:17]] ([[Hebrews 11.31
 
 How is the faithful city become an *harlot*, [[Isaiah 1.21|Isaiah 1:21]].
 
-under every green tree ... playing the *harlot*, [[Jeremiah 2.20|Jeremiah 2:20]].
+under every green tree … playing the *harlot*, [[Jeremiah 2.20|Jeremiah 2:20]].
 
 playedst the *harlot* because of thy renown, [[Ezekiel 16.15|Ezekiel 16:15]].
 
@@ -31,4 +30,4 @@ abominable church, which is the mother of *harlots*, [[1 Nephi 13.34|1 Nephi 13:
 
 priests spend their time with *harlots*, [[Mosiah 11.14|Mosiah 11:14]] ([[Mosiah 12.29|Mosiah 12:29]]).
 
-did go ... after the *harlot* Isabel, [[Alma 39.3|Alma 39:3]].
+did go … after the *harlot* Isabel, [[Alma 39.3|Alma 39:3]].

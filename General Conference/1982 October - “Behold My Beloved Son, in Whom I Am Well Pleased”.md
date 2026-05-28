@@ -1,6 +1,6 @@
 # “Behold My Beloved Son, in Whom I Am Well Pleased”
 
-By Elder George P. Lee - *Of the First Quorum of the Seventy*
+By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -42,7 +42,7 @@ I bear testimony that this same crucified Christ arose on the third day from the
 
 “And go quickly, and tell his disciples that he is risen from the dead; and, behold, he goeth before you into Galilee; there shall ye see him.” ([[Matthew 28.6|Matt. 28:6–7]][[Matthew 28.7|]].)
 
-For thousands of years from the time of Adam up to Christ’s crucifixion, millions of people had entered the dark grave and suffered death and the end of life. For thousands of years, no one had ever returned. When our Redeemer arose from the tomb with his resurrected and immortal body, he robbed death of its sting and the grave of its victory. (See [[1 Corinthians 15.55|1 Cor. 15:55]]; [[Mosiah 16.7|Mosiah 16:7–8]][[Mosiah 16.8|]]; [[Mormon 7.8|Morm. 7:8]].) Man was freed from sin’s dark prison. Death was conquered; Christ won the victory. (See [[Mosiah 15.8|Mosiah 15:8]]; [[Mormon 7.5|Morm. 7:5]]; [[Alma 27.28|Alma 27:28]].) He had opened heaven’s gate.
+For thousands of years from the time of Adam up to Christ’s crucifixion, millions of people had entered the dark grave and suffered death and the end of life. For thousands of years, no one had ever returned. When our Redeemer arose from the tomb with his resurrected and immortal body, he robbed death of its sting and the grave of its victory. (See [[1 Corinthians 15.55|1 Cor. 15:55]]; [[Mosiah 16.7|Mosiah 16:7–8]][[Mosiah 16.8|]]; [[Mormon 7.8|Morm. 7:8]].) Man was freed from sin’s dark prison. Death was conquered; Christ won the victory. (See [[Mosiah 15.8|Mosiah 15:8]]; [[Mormon 7.5|Morm. 7:5]]; [[Alma 27.28|Alma 27:28]].) He had opened heaven’s gate.
 
 Immediately following his resurrection many others were resurrected. In Matthew we read:
 
@@ -50,17 +50,17 @@ Immediately following his resurrection many others were resurrected. In Matthew 
 
 “And came out of the graves after his resurrection, and went into the holy city, and appeared unto many.” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]].)
 
-Thus, our risen Lord removed the last barrier in our march toward perfection and eternal life. Just as it is said of him “He is not here: … he is risen” ([[Matthew 28.6|Matt. 28:6]]), so it will be for each of us, because the empty tomb of the Lord Jesus is not only a symbol but also a guarantee of our own resurrection and immortality. It would be a serious mistake and a tragedy for anyone to assume that Jesus was just a great teacher and just a great humanitarian. Because of him, life continues throughout eternity. There is no other name under heaven whereby man will be saved and exalted. (See [[Acts 4.12|Acts 4:12]]; [[2 Nephi 25.20|2 Ne. 25:20]].)
+Thus, our risen Lord removed the last barrier in our march toward perfection and eternal life. Just as it is said of him “He is not here: … he is risen” ([[Matthew 28.6|Matt. 28:6]]), so it will be for each of us, because the empty tomb of the Lord Jesus is not only a symbol but also a guarantee of our own resurrection and immortality. It would be a serious mistake and a tragedy for anyone to assume that Jesus was just a great teacher and just a great humanitarian. Because of him, life continues throughout eternity. There is no other name under heaven whereby man will be saved and exalted. (See [[Acts 4.12|Acts 4:12]]; [[2 Nephi 25.20|2 Ne. 25:20]].)
 
 I bear testimony that our resurrected Lord, clothed in glory, personally manifested himself to the Nephites and the Lamanites in ancient America as they were gathered around their temple in the land Bountiful. God our Eternal Father said unto them:
 
-“Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
+“Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
 
 They saw the Lord Jesus Christ, clothed in a white robe, coming down out of heaven; and he descended until he stood in their midst. He said unto them:
 
 “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and … glorified the Father in taking upon me the sins of the world.” ([[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].)
+“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and … glorified the Father in taking upon me the sins of the world.” ([[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].)
 
 The multitude fell at his feet and worshiped him. They then arose and came to him at his invitation to see and feel the prints of the nails in his hands and feet. They also saw and felt the spear wound in his side, and they did fall at his feet, overwhelmed and overjoyed. Their own eyes and hands were witnesses. Words cannot describe their heartfelt joy and gratitude. It was a glorious manifestation and spiritual feast for all.
 
@@ -74,13 +74,11 @@ The Lord Jesus wants us to build the necessary character, righteousness, industr
 
 Even in our own day and age we can perfect ourselves in many areas. For example, we can become perfect in abstaining from the use of coffee, tea, tobacco, and liquor. We can become perfect in the paying of our tithing. We can become perfect in our sacrament meeting attendance. We can become perfect in honesty, in morality, in charity, in punctuality, in dependability, and in many other virtues. If we can live one gospel principle perfectly today, we can live two principles perfectly tomorrow. Perfection in one thing can act as a stepping-stone to perfection in something else.
 
-I bear testimony that our risen Lord and Redeemer will return to earth a second time in his resurrected, immortal body of flesh and bones, and in celestial glory and power. When he came the first time he was misunderstood, condemned, and ridiculed and was a man acquainted with much grief. (See [[Isaiah 53.3|Isa. 53:3]].) When he came the first time, he atoned for the sins of the world. But when he comes the second time he will come as a triumphant King of kings and a glorious Lord of lords. (See [[Revelation 17.14|Rev. 17:14]].) He will stand in judgment of sinners who have not repented. He will come as the Almighty God to cleanse the earth and to inaugurate his glorious millennial reign. ([[Articles of Faith 1.10|A of F 1:10]]). The Lord Jesus and the resurrected Saints will reign upon the earth during the thousand years of millennium. (See [[D&C 29.11|D&C 29:11]].) Satan will be tied and will have no power to tempt any man. (See [[D&C 43.31|D&C 43:31]].) Then after the end of the thousand years, Satan will be loosed again for a little season, and then will come the end of the earth. Satan and his forces will be banished forever and ever. Every person will be resurrected and stand before God to be judged. Our Lord, Jesus Christ, will be crowned with the crown of his glory to reign forever and ever. (See [[D&C 76.108|D&C 76:108]].) Those that have endured until the end and have achieved eternal life will abide with him and Heavenly Father forever and ever in the celestial kingdom.
+I bear testimony that our risen Lord and Redeemer will return to earth a second time in his resurrected, immortal body of flesh and bones, and in celestial glory and power. When he came the first time he was misunderstood, condemned, and ridiculed and was a man acquainted with much grief. (See [[Isaiah 53.3|Isa. 53:3]].) When he came the first time, he atoned for the sins of the world. But when he comes the second time he will come as a triumphant King of kings and a glorious Lord of lords. (See [[Revelation 17.14|Rev. 17:14]].) He will stand in judgment of sinners who have not repented. He will come as the Almighty God to cleanse the earth and to inaugurate his glorious millennial reign. ([[Articles of Faith 1.10|A of F 1:10]]). The Lord Jesus and the resurrected Saints will reign upon the earth during the thousand years of millennium. (See [[D&C 29.11|D&C 29:11]].) Satan will be tied and will have no power to tempt any man. (See [[D&C 43.31|D&C 43:31]].) Then after the end of the thousand years, Satan will be loosed again for a little season, and then will come the end of the earth. Satan and his forces will be banished forever and ever. Every person will be resurrected and stand before God to be judged. Our Lord, Jesus Christ, will be crowned with the crown of his glory to reign forever and ever. (See [[D&C 76.108|D&C 76:108]].) Those that have endured until the end and have achieved eternal life will abide with him and Heavenly Father forever and ever in the celestial kingdom.
 
 I testify that he is the creator of “all things bright and beautiful, All creatures great and small” (Cecil Frances Alexander, in *Masterpieces of Religious Verse,* ed. James Dalton Morrison, New York: Harper and Brothers Publishers, 1948, p. 17). He is the master over ocean, earth, and skies. He is the promised Messiah. He is the victor over death and the grave. He is the Prince of Peace. (See [[Isaiah 9.6|Isa. 9:6]].) He is the same yesterday, today, and forever. (See [[Hebrews 13.8|Heb. 13:8]].) Everlasting is his name. Eternal is his name. He is Jesus the Christ. I so testify, in his holy name, amen.
 
 
 
 
-
-
-#Jesus_Christ
+#JesusChrist

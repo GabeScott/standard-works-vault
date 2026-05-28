@@ -1,6 +1,5 @@
 # Moon
 
-
 *See also* [[Astronomy.md|Astronomy]]; [[Sun.md|Sun]]
 
 *moon* and the eleven stars made obeisance, [[Genesis 37.9|Genesis 37:9]].
@@ -27,9 +26,9 @@ their round tires like the *moon*, [[Isaiah 3.18|Isaiah 3:18]] ([[2 Nephi 13.18|
 
 *moon* shall be confounded, [[Isaiah 24.23|Isaiah 24:23]].
 
-light of the *moon* shall be as ... the sun, [[Isaiah 30.26|Isaiah 30:26]].
+light of the *moon* shall be as … the sun, [[Isaiah 30.26|Isaiah 30:26]].
 
-neither ... shall the *moon* give light, [[Isaiah 60.19|Isaiah 60:19]].
+neither … shall the *moon* give light, [[Isaiah 60.19|Isaiah 60:19]].
 
 *moon* into blood, [[Joel 2.31|Joel 2:31]] ([[Acts 2.20|Acts 2:20]]; [[D&C 29.14|D&C 29:14]]; [[D&C 34.9|D&C 34:9]]; [[D&C 45.42|D&C 45:42]]; [[D&C 88.87|D&C 88:87]]).
 
@@ -39,21 +38,21 @@ signs in the sun, and in the *moon*, [[Luke 21.25|Luke 21:25]].
 
 another glory of the *moon*, [[1 Corinthians 15.41|1 Corinthians 15:41]].
 
-Let no man therefore judge you in ... new *moon*, [[Colossians 2.16|Colossians 2:16]].
+Let no man therefore judge you in … new *moon*, [[Colossians 2.16|Colossians 2:16]].
 
 *moon* became as blood, [[Revelation 6.12|Revelation 6:12]].
 
 clothed with the sun, and the *moon* under her feet, [[Revelation 12.1|Revelation 12:1]].
 
-city had no need ... of the *moon*, [[Revelation 21.23|Revelation 21:23]].
+city had no need … of the *moon*, [[Revelation 21.23|Revelation 21:23]].
 
-in that day that he shall suffer death the sun shall be darkened ... and also the *moon*, [[Helaman 14.20|Helaman 14:20]].
+in that day that he shall suffer death the sun shall be darkened … and also the *moon*, [[Helaman 14.20|Helaman 14:20]].
 
-not any light seen, neither ... the *moon*, [[3 Nephi 8.22|3 Nephi 8:22]].
+not any light seen, neither … the *moon*, [[3 Nephi 8.22|3 Nephi 8:22]].
 
-even as ... the *moon* differs from the sun, [[D&C 76.71|D&C 76:71]].
+even as … the *moon* differs from the sun, [[D&C 76.71|D&C 76:71]].
 
-even as the glory of the stars differs from that of ... the *moon*, [[D&C 76.81|D&C 76:81]].
+even as the glory of the stars differs from that of … the *moon*, [[D&C 76.81|D&C 76:81]].
 
 glory of the terrestrial is one, even as the glory of the *moon* is one, [[D&C 76.97|D&C 76:97]].
 
@@ -61,11 +60,11 @@ he is in the *moon*, and is the light of the *moon*, [[D&C 88.8|D&C 88:8]].
 
 *moon* giveth her light by night, [[D&C 88.45|D&C 88:45]].
 
-church may come forth out of the wilderness ... fair as the *moon*, [[D&C 109.73|D&C 109:73]].
+church may come forth out of the wilderness … fair as the *moon*, [[D&C 109.73|D&C 109:73]].
 
-bounds set to the heavens ... or to the sun, *moon*, or stars, [[D&C 121.30|D&C 121:30]].
+bounds set to the heavens … or to the sun, *moon*, or stars, [[D&C 121.30|D&C 121:30]].
 
-so great shall be the glory of his presence that ... the *moon* shall withhold its light, [[D&C 133.49|D&C 133:49]].
+so great shall be the glory of his presence that … the *moon* shall withhold its light, [[D&C 133.49|D&C 133:49]].
 
 lesser light was the *moon*, [[Moses 2.16|Moses 2:16]].
 

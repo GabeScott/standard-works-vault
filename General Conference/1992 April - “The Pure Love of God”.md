@@ -22,21 +22,21 @@ Then Bishop Nibley explained in his journal one touching little incident:
 
 Bishop Nibley continued:
 
-“O, it was touching—it was pathetic. It was beautiful to see the great, noble soul in loving, tender remembrance of kindness extended to him, more than fifty years before; and the poor old soul who had brought her loving offering—a few bananas—it was all she had—to put into the hand of her loved Iosepa” (*Life of Joseph F. Smith,* pp. 185–86).
+“O, it was touching—it was pathetic. It was beautiful to see the great, noble soul in loving, tender remembrance of kindness extended to him, more than fifty years before; and the poor old soul who had brought her loving offering—a few bananas—it was all she had—to put into the hand of her loved Iosepa” (*Life of Joseph F. Smith,* pp. 185–86).
 
 Brothers and sisters, this Iosepa was President Joseph F. Smith, sixth President of the Church. What can we learn from this story? Sister Ma Manuhii had no idea that this little sixteen-year-old boy would someday be President of the Church. She didn’t expect anything from him. She helped him because she loved the Lord’s missionary with the pure love of God (see [[Moroni 7.47|Moro. 7:47]]). This Hawaiian couple honored, respected, loved, and took care of the missionaries as the Lord’s messengers because they had the pure love of God. That respect and reverence remained with her until she died.
 
-Elder Smith was seasoned and matured by the Lord in the mission field, and his love, developed and cultivated by this beautiful Hawaiian mother, never left his heart. “With tears streaming down his cheeks … , ‘Charley, she nursed me when I was a boy, sick and without anyone to care for me. She took me in and was a mother to me!’”
+Elder Smith was seasoned and matured by the Lord in the mission field, and his love, developed and cultivated by this beautiful Hawaiian mother, never left his heart. “With tears streaming down his cheeks … , ‘Charley, she nursed me when I was a boy, sick and without anyone to care for me. She took me in and was a mother to me!’”
 
-Brothers and sisters, this type of love, kindness, and thoughtfulness must—MUST—exist in our missionary and reactivation work. This “love of God” ([[1 Nephi 11.22|1 Ne. 11:22, 25]][[1 Nephi 11.25|]]) is the spirit of missionary work and the spirit of reactivation. This “love of God” is the spirit of conversion. This “love of God” is the spirit of nurturing. “It is the most desirable above all things” ([[1 Nephi 11.22|1 Ne. 11:22]]), and it is “the most joyous to the soul” ([[1 Nephi 11.23|1 Ne. 11:23]]). Brothers and sisters, let’s show our noble example like this beautiful Hawaiian mother, not only by feeding the missionaries, but by bringing this love as we take missionaries to part-member families, less-active members, or nonmembers within the framework of the home teaching and visiting teaching programs. These people will be touched by this love. When Nephi saw the Savior, he exclaimed, “Yea, it is the love of God, which sheddeth itself abroad in the hearts of the children of men” ([[1 Nephi 11.22|1 Ne. 11:22]]). With this love, when you and I work with full-time missionaries, combining our efforts, we can bring many converts and reactivated members to the temple. Your example will teach the missionaries. When they return to their wards and stakes, they will emulate your example.
+Brothers and sisters, this type of love, kindness, and thoughtfulness must—MUST—exist in our missionary and reactivation work. This “love of God” ([[1 Nephi 11.22|1 Ne. 11:22, 25]][[1 Nephi 11.25|]]) is the spirit of missionary work and the spirit of reactivation. This “love of God” is the spirit of conversion. This “love of God” is the spirit of nurturing. “It is the most desirable above all things” ([[1 Nephi 11.22|1 Ne. 11:22]]), and it is “the most joyous to the soul” ([[1 Nephi 11.23|1 Ne. 11:23]]). Brothers and sisters, let’s show our noble example like this beautiful Hawaiian mother, not only by feeding the missionaries, but by bringing this love as we take missionaries to part-member families, less-active members, or nonmembers within the framework of the home teaching and visiting teaching programs. These people will be touched by this love. When Nephi saw the Savior, he exclaimed, “Yea, it is the love of God, which sheddeth itself abroad in the hearts of the children of men” ([[1 Nephi 11.22|1 Ne. 11:22]]). With this love, when you and I work with full-time missionaries, combining our efforts, we can bring many converts and reactivated members to the temple. Your example will teach the missionaries. When they return to their wards and stakes, they will emulate your example.
 
-Missionaries, you must be so *clean, pure,* and *diligent.* Obey and observe all the mission rules “with exactness” ([[Alma 57.21|Alma 57:21]]). Like Joseph F. Smith, be *studious* in the scriptures (see [[1 Nephi 11.25|1 Ne. 11:25]]). Exercise your “exceeding faith”; do “not doubt” ([[Alma 57.26|Alma 57:26]]). Put your “trust in God” ([[Alma 57.27|Alma 57:27]]). Above all, you must cultivate the real missionary quality, “charity … the pure love of Christ” ([[Moroni 7.47|Moro. 7:47]]).
+Missionaries, you must be so *clean, pure,* and *diligent.* Obey and observe all the mission rules “with exactness” ([[Alma 57.21|Alma 57:21]]). Like Joseph F. Smith, be *studious* in the scriptures (see [[1 Nephi 11.25|1 Ne. 11:25]]). Exercise your “exceeding faith”; do “not doubt” ([[Alma 57.26|Alma 57:26]]). Put your “trust in God” ([[Alma 57.27|Alma 57:27]]). Above all, you must cultivate the real missionary quality, “charity … the pure love of Christ” ([[Moroni 7.47|Moro. 7:47]]).
 
 I testify to you that as Moroni promised us, when we “pray unto the Father with all *the energy of heart,*” we “may be *filled with this love,* which he hath bestowed upon all who are true followers of his Son, Jesus Christ” ([[Moroni 7.48|Moro. 7:48]]; italics added). When we work together—missionaries, leaders, and members—the Lord will bless us as he did Nephi and Lehi, the sons of Helaman.
 
-The scripture explains: “There was exceedingly great prosperity in the church, insomuch that there were thousands who did join … and were baptized unto repentance. …
+The scripture explains: “There was exceedingly great prosperity in the church, insomuch that there were thousands who did join … and were baptized unto repentance. …
 
-“And … the work of the Lord did prosper unto the baptizing and uniting \[to me, reactivating\] to the church of God, many souls, yea, even tens of thousands. …
+“And … the work of the Lord did prosper unto the baptizing and uniting \[to me, reactivating\] to the church of God, many souls, yea, even tens of thousands. …
 
 “… The Lord is merciful unto *all who will, in the sincerity of their hearts, call upon his holy name. …*
 
@@ -47,6 +47,4 @@ Brothers and sisters, I humbly testify to you that God lives. Jesus is the Chris
 
 
 
-
-
-#Love #Missionary_Work #Service
+#Love #MissionaryWork #Service

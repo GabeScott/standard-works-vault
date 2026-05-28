@@ -63,7 +63,7 @@ Brethren, we are living in a challenging time, and it is a time for us to stand 
 
 [^1]: In *Sharing the Gospel with Others,* sel. Preston Nibley (1948), 43.
 
-[^2]: See [[2 Nephi 2.13|2 Nephi 2:13, 26]][[2 Nephi 2.26|]].
+[^2]: See [[2 Nephi 2.13|2 Nephi 2:13, 26]][[2 Nephi 2.26|]].
 
 [^3]: See [[Alma 5.40|Alma 5:40]].
 
@@ -79,6 +79,4 @@ Brethren, we are living in a challenging time, and it is a time for us to stand 
 
 [^9]: [[James 1.6|James 1:6]].
 
-
-
-#Agency #Holy_Ghost #Obedience #Temptation
+#Agency #HolyGhost #Obedience #Temptation

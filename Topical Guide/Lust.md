@@ -1,19 +1,18 @@
 # Lust
 
+*See also* [[Adulterer.md|Adulterer]]; [[Carnal Mind.md|Carnal Mind]]; [[Chastity.md|Chastity]]; [[Covet.md|Covet]]; [[Desire.md|Desire]]; [[Fornication.md|Fornication]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Pleasure.md|Pleasure]]; [[Sensuality.md|Sensuality]]; [[Sexual Immorality.md|Sexual Immorality]]
 
-*See also* [[Adulterer, Adultery.md|Adulterer]]; [[Carnal Mind.md|Carnal Mind]]; [[Chastity, Chaste.md|Chastity]]; [[Covet, Covetousness.md|Covet]]; [[Desire.md|Desire]]; [[Fornication.md|Fornication]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Pleasure.md|Pleasure]]; [[Sensuality.md|Sensuality]]; [[Sexual Immorality.md|Sexual Immorality]]
-
-tempted God ... by asking meat for their *lust*, [[Psalms 78.18|Psalms 78:18]].
+tempted God … by asking meat for their *lust*, [[Psalms 78.18|Psalms 78:18]].
 
 They were not estranged from their *lust*, [[Psalms 78.30|Psalms 78:30]].
 
-I gave them up unto their own hearts' *lust*, [[Psalms 81.12|Psalms 81:12]].
+I gave them up unto their own hearts’ *lust*, [[Psalms 81.12|Psalms 81:12]].
 
 *lusted* exceedingly in the wilderness, [[Psalms 106.14|Psalms 106:14]].
 
 *Lust* not after her beauty in thine heart, [[Proverbs 6.25|Proverbs 6:25]].
 
-looketh on a woman to *lust* after her hath committed adultery, [[Matthew 5.28|Matthew 5:28]] ([[3 Nephi 12.28|3 Nephi 12:28]]; [[D&C 42.23|D&C 42:23]]; [[D&C 63.13|D&C 63:13]], [[D&C 63.16|D&C 63:16]]).
+looketh on a woman to *lust* after her hath committed adultery, [[Matthew 5.28|Matthew 5:28]] ([[3 Nephi 12.28|3 Nephi 12:28]]; [[D&C 42.23|D&C 42:23]]; [[D&C 63.13|D&C 63:13]]; [[D&C 63.16|D&C 63:16]]).
 
 *lusts* of other things entering in, choke the word, [[Mark 4.19|Mark 4:19]].
 
@@ -27,7 +26,7 @@ we should not *lust* after evil things, [[1 Corinthians 10.6|1 Corinthians 10:6]
 
 ye shall not fulfil the *lust* of the flesh, [[Galatians 5.16|Galatians 5:16]].
 
-we all had our conversation ... in the *lusts* of our flesh, [[Ephesians 2.3|Ephesians 2:3]].
+we all had our conversation … in the *lusts* of our flesh, [[Ephesians 2.3|Ephesians 2:3]].
 
 corrupt according to the deceitful *lusts*, [[Ephesians 4.22|Ephesians 4:22]].
 
@@ -47,7 +46,7 @@ deceived, serving divers *lusts*, [[Titus 3.3|Titus 3:3]].
 
 drawn away of his own *lust*, [[James 1.14|James 1:14]].
 
-whence come wars ... come they not ... of your *lusts*, [[James 4.1|James 4:1]].
+whence come wars … come they not … of your *lusts*, [[James 4.1|James 4:1]].
 
 ye may consume it upon your *lusts*, [[James 4.3|James 4:3]].
 
@@ -55,7 +54,7 @@ according to the former *lusts* in your ignorance, [[1 Peter 1.14|1 Peter 1:14]]
 
 abstain from fleshly *lusts*, [[1 Peter 2.11|1 Peter 2:11]].
 
-no longer should live ... in the flesh to the *lusts* of men, [[1 Peter 4.2|1 Peter 4:2]].
+no longer should live … in the flesh to the *lusts* of men, [[1 Peter 4.2|1 Peter 4:2]].
 
 corruption that is in the world through *lust*, [[2 Peter 1.4|2 Peter 1:4]].
 
@@ -63,13 +62,13 @@ walk after the flesh in the *lust* of uncleanness, [[2 Peter 2.10|2 Peter 2:10]]
 
 scoffers, walking after their own *lusts*, [[2 Peter 3.3|2 Peter 3:3]].
 
-*lust* of the flesh, and the *lust* of the eyes ... is not of the Father, [[1 John 2.16|1 John 2:16]].
+*lust* of the flesh, and the *lust* of the eyes … is not of the Father, [[1 John 2.16|1 John 2:16]].
 
 complainers, walking after their own *lusts*, [[Jude 1.16|Jude 1:16]].
 
 fruits that thy soul *lusted* after, [[Revelation 18.14|Revelation 18:14]].
 
-Laban saw our property ... did *lust* after it, [[1 Nephi 3.25|1 Nephi 3:25]].
+Laban saw our property … did *lust* after it, [[1 Nephi 3.25|1 Nephi 3:25]].
 
 those who seek the *lusts* of the flesh, [[1 Nephi 22.23|1 Nephi 22:23]].
 
@@ -85,8 +84,6 @@ ask not, that ye may consume it on your *lusts*, [[Mormon 9.28|Mormon 9:28]].
 
 follows after the dictates of his own will and carnal *desires*, [[D&C 3.4|D&C 3:4]].
 
-cease from all your ... *lustful* desires, [[D&C 88.121|D&C 88:121]].
+cease from all your … *lustful* desires, [[D&C 88.121|D&C 88:121]].
 
-there were ... *lustful* and covetous desires among them, [[D&C 101.6|D&C 101:6]].
-
-*See also* [[Proverbs 5.3|Proverbs 5:3]]; [[Proverbs 7.10|Proverbs 7:10]]; [[Alma 38.12|Alma 38:12]].
+there were … *lustful* and covetous desires among them, [[D&C 101.6|D&C 101:6]].

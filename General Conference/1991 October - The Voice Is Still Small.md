@@ -8,19 +8,19 @@ By Elder Graham W. Doxey - *Of the Seventy*
 
 My brothers and sisters, I am humbled as I face this new responsibility. However, I am encouraged with the warm and strong brotherhood I feel from these Brethren seated here.
 
-My experiences include, like Nephi, “having been born of goodly parents, therefore I was taught …” ([[1 Nephi 1.1|1 Ne. 1:1]]). Next I was blessed to marry a beautiful wife, a queenly saint; therefore, I am receiving some secondary education. My internship training started as we were blessed with children. And our wonderful grandchildren have become our postgraduate education. It is my prayer and my trust in this regard that, once gained, “whatever principle of intelligence we attain unto in this life, it will rise with us in the resurrection” ([[D&C 130.18|D&C 130:18]]).
+My experiences include, like Nephi, “having been born of goodly parents, therefore I was taught …” ([[1 Nephi 1.1|1 Ne. 1:1]]). Next I was blessed to marry a beautiful wife, a queenly saint; therefore, I am receiving some secondary education. My internship training started as we were blessed with children. And our wonderful grandchildren have become our postgraduate education. It is my prayer and my trust in this regard that, once gained, “whatever principle of intelligence we attain unto in this life, it will rise with us in the resurrection” ([[D&C 130.18|D&C 130:18]]).
 
 President Spencer W. Kimball, a man with unique experience in all levels of Church leadership, described the subject that has been on my mind since this speaking assignment came. I apologize to Elder Packer. I realize that I was prompted by the Spirit—I know that he is—and I have found my thoughts going in much the same direction that his went. President Kimball said:
 
 “The burning bushes, the smoking mountains, … the Cumorahs, and the Kirtlands were realities; but they were the exceptions. The great volume of revelation came to Moses and to Joseph and comes to today’s prophet in the less spectacular way—that of deep impressions, without spectacle or glamour or dramatic events.
 
-“Always expecting the spectacular, many will miss entirely the constant flow of revealed communication” (in Conference Report, Munich Germany Area Conference, 1973, p. 77).
+“Always expecting the spectacular, many will miss entirely the constant flow of revealed communication” (in Conference Report, Munich Germany Area Conference, 1973, p. 77).
 
 Dramatic and miraculous answers to prayer may come, but they are the exceptions. Even at the highest levels of responsibility in this kingdom of God, which is being built up upon the earth, *the voice is still small.*
 
 In the Bible we read of the account of an earlier prophet who was rejected and discouraged. The word of the Lord came to Elijah when the children of Israel had forsaken their covenant and thrown down altars and slain prophets. He was told to “go forth, and stand upon the mount before the Lord. And, behold, the Lord passed by, and a great and strong wind rent the mountains, and brake in pieces the rocks before the Lord; but the Lord was not in the wind: and after the wind an earthquake; but the Lord was not in the earthquake:
 
-“And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice” ([[1 Kings 19.11|1 Kgs. 19:11–12]][[1 Kings 19.12|]]).
+“And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice” ([[1 Kings 19.11|1 Kgs. 19:11–12]][[1 Kings 19.12|]]).
 
 My testimony is that the Lord *is* speaking to you! But with the deafening decibels of today’s environment, all too often we fail to hear him. I remember as a youth having the experience of being in company with an older man who had lost much of his hearing ability. He had no hearing aid and was continually asking that we speak louder so that he could be part of the conversation. He would say, “Talk louder; speak up; I can’t hear you.”
 
@@ -48,7 +48,7 @@ Hearing aid number 3 has to do with the scriptures. In the Doctrine and Covenant
 
 “These words are not of men nor of man, but of me; wherefore, you shall testify they are of me and not of man:
 
-“For it is my voice which speaketh them unto you; for they are given by my Spirit unto you, …
+“For it is my voice which speaketh them unto you; for they are given by my Spirit unto you, …
 
 “Wherefore, you can testify that you have heard my voice, and know my words” ([[D&C 18.33|D&C 18:33–36]][[D&C 18.34|]][[D&C 18.35|]][[D&C 18.36|]]).
 
@@ -61,6 +61,4 @@ I know that he lives. He loves you. He wants you to follow him, and to follow hi
 
 
 
-
-
-#Faith #Jesus_Christ #Music #Obedience #Scriptures #Spirituality #Worship
+#Faith #JesusChrist #Music #Obedience #Scriptures #Spirituality #Worship

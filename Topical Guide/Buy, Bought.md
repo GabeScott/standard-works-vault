@@ -1,9 +1,8 @@
 # Buy, Bought
 
+in Egypt: get you down … and *buy* for us, [[Genesis 42.2|Genesis 42:2]] ([[Genesis 47.19|Genesis 47:19]]).
 
-in Egypt: get you down ... and *buy* for us, [[Genesis 42.2|Genesis 42:2]] ([[Genesis 47.19|Genesis 47:19]]).
-
-I have *bought* all that was Elimelech's, [[Ruth 4.9|Ruth 4:9]].
+I have *bought* all that was Elimelech’s, [[Ruth 4.9|Ruth 4:9]].
 
 I will surely *buy* it of thee, [[2 Samuel 24.24|2 Samuel 24:24]] ([[1 Chronicles 21.24|1 Chronicles 21:24]]).
 
@@ -19,7 +18,7 @@ selleth all that he hath, and *buyeth* that field, [[Matthew 13.44|Matthew 13:44
 
 *buy* themselves victuals, [[Matthew 14.15|Matthew 14:15]] ([[Mark 6.36|Mark 6:36]]).
 
-Jesus ... cast out all them that sold and *bought* in the temple, [[Matthew 21.12|Matthew 21:12]] ([[Mark 11.15|Mark 11:15]]; [[Luke 19.45|Luke 19:45]]).
+Jesus … cast out all them that sold and *bought* in the temple, [[Matthew 21.12|Matthew 21:12]] ([[Mark 11.15|Mark 11:15]]; [[Luke 19.45|Luke 19:45]]).
 
 I have *bought* a piece of ground, [[Luke 14.18|Luke 14:18]].
 

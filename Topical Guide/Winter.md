@@ -1,7 +1,6 @@
 # Winter
 
-
-While the earth remaineth ... summer and *winter*, and day and night, [[Genesis 8.22|Genesis 8:22]].
+While the earth remaineth … summer and *winter*, and day and night, [[Genesis 8.22|Genesis 8:22]].
 
 earth: thou hast made summer and *winter*, [[Psalms 74.17|Psalms 74:17]].
 

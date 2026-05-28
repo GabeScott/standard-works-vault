@@ -6,4 +6,4 @@
 
 
 [^a]: [[Spirits, Disembodied|TG Spirits, Disembodied]].  
-[^b]: [[D&C 76.73|D&C 76:73 (71–74)]]; [[D&C 88.99|88:99]]. [[Salvation for the Dead|TG Salvation for the Dead]]; [[Spirits in Prison|Spirits in Prison]].  
+[^b]: [[D&C 76.71|D&C 76:73 (71–74)]][[D&C 76.72|]][[D&C 76.73|]][[D&C 76.74|]]; [[D&C 88.99|88:99]]. [[Salvation for the Dead|TG Salvation for the Dead]]; [[Spirits in Prison|Spirits in Prison]].  

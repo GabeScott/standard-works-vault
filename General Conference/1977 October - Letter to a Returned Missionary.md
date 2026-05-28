@@ -1,6 +1,6 @@
 # Letter to a Returned Missionary
 
-By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
+By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -42,12 +42,13 @@ I hope that you will not mind if I have recalled some of the souvenirs of what y
 
 Dear Elder, you said one day in a conference that mothers can give birth to children, but missionaries can give eternal life to people. I recorded this as well as your testimony that day. The words of our Savior Jesus Christ are also recorded that we may not forget, that because of his sacrifice, we may repent of our errors. Didn’t he declare to the Nephites: “Behold, I am the law, and the light. Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life.
 
-“Behold, I have given unto you the commandments; therefore keep my commandments. And this is the law and the prophets, for they truly testified of me.” ([[3 Nephi 15.9|3 Ne. 15:9–10]][[3 Nephi 15.10|]].)
+“Behold, I have given unto you the commandments; therefore keep my commandments. And this is the law and the prophets, for they truly testified of me.” ([[3 Nephi 15.9|3 Ne. 15:9–10]][[3 Nephi 15.10|]].)
 
 You have opened the gate to many. Why, why do you close it for yourself? May I put my foot in the door, as you once did in mine? Reach out your hand while there is still time, and let us tell you that we love you. Your bishop is waiting for you; your home teachers are caring for you; your missionary companions do not forget you; but more than that, we, we need you. Come as you are—our arms are open. We’re waiting for you.
 
-Now the time has come to leave, but you should know that what you once were you can be again. May my testimony help you as yours did me some years ago. I know by the power of the Holy Ghost, the spirit of revelation. I know in my mind and in my heart that God lives, that Jesus is the Christ, our Redeemer, and that we have a living prophet today, Spencer W. Kimball, and that by following his directions and advice we can come closer to our Heavenly Father and repent of our sins. My prayer is that you may realize this again in your own life and make a new decision to be one of His disciples, in the name of Jesus Christ. Amen.
+Now the time has come to leave, but you should know that what you once were you can be again. May my testimony help you as yours did me some years ago. I know by the power of the Holy Ghost, the spirit of revelation. I know in my mind and in my heart that God lives, that Jesus is the Christ, our Redeemer, and that we have a living prophet today, Spencer W. Kimball, and that by following his directions and advice we can come closer to our Heavenly Father and repent of our sins. My prayer is that you may realize this again in your own life and make a new decision to be one of His disciples, in the name of Jesus Christ. Amen.
 
 
 
-#Activation #Missionary_Work
+
+#Activation #MissionaryWork

@@ -5,5 +5,5 @@
 [Daniel 2:49](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.49?lang=eng#p49)
 
 
-[^a]: [[Daniel 3.12|Dan. 3:12]].
-[^b]: OR remained at the king’s court.
+[^a]: [[Daniel 3.12|Dan. 3:12]].  
+[^b]: OR remained at the king’s court.  

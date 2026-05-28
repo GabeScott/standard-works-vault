@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.3?lang=eng#p3)
 
 
-[^a]: [[Luke 19.44|Luke 19:44 (41-44).]]
+[^a]: [[Luke 19.41|Luke 19:44 (41–44)]][[Luke 19.42|]][[Luke 19.43|]][[Luke 19.44|]].  

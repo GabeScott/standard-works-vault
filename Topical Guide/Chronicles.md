@@ -1,4 +1,3 @@
 # Chronicles
 
-
-*See* [BD Chronicles](https://www.churchofjesuschrist.org/study/scriptures/bd/chronicles?lang=eng)
+*See also* [[BD Chronicles.md|BD Chronicles]]

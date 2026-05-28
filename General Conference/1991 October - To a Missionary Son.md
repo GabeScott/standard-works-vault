@@ -54,7 +54,7 @@ The real success of a mission is not measured on a chart—it is etched in your 
 
 The Lord taught the Nephites: “Now this is the commandment: Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day.
 
-“Verily, verily, I say unto you, this is my gospel” ([[3 Nephi 27.20|3 Ne. 27:20–21]][[3 Nephi 27.21|]]).
+“Verily, verily, I say unto you, this is my gospel” ([[3 Nephi 27.20|3 Ne. 27:20–21]][[3 Nephi 27.21|]]).
 
 Bless the lives of others with your priesthood and your presence.
 
@@ -65,6 +65,4 @@ The work in which you are engaged is true. You are teaching the restored gospel 
 
 
 
-
-
-#Faith #Humility #Missionary_Work #Obedience #Scriptures
+#Faith #Humility #MissionaryWork #Obedience #Scriptures

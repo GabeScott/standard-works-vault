@@ -1,6 +1,5 @@
 # Council in Heaven
 
-
 *See also* [[Foreordination.md|Foreordination]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]
 
 *sons* of God shouted for joy, [[Job 38.7|Job 38:7]].
@@ -11,13 +10,13 @@ I beheld *Satan* as lightning fall from heaven, [[Luke 10.18|Luke 10:18]].
 
 *war* in heaven, [[Revelation 12.7|Revelation 12:7]].
 
-an *angel* of God ... fallen from heaven, [[2 Nephi 2.17|2 Nephi 2:17]].
+an *angel* of God … fallen from heaven, [[2 Nephi 2.17|2 Nephi 2:17]].
 
 called and prepared from the *foundation* of the world, [[Alma 13.3|Alma 13:3]].
 
 he *rebelled* against me, [[D&C 29.36|D&C 29:36]].
 
-an angel ... *rebelled* against the ... Son, [[D&C 76.25|D&C 76:25]].
+an angel … *rebelled* against the … Son, [[D&C 76.25|D&C 76:25]].
 
 Satan *rebelled* against me, [[Moses 4.3|Moses 4:3]].
 

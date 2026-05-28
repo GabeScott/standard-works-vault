@@ -1,6 +1,6 @@
 # The House of the Lord
 
-By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
+By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -44,7 +44,7 @@ Again, after nearly five years, the Prophet Joseph Smith received the following 
 
 “For a baptismal font there is not upon the face of the earth, that they, my saints, may be baptized for those who are dead—
 
-“For this ordinance belongeth to my house, and cannot be acceptable to me, only in the days of your poverty, wherein ye are not able to build a house unto me. …
+“For this ordinance belongeth to my house, and cannot be acceptable to me, only in the days of your poverty, wherein ye are not able to build a house unto me. …
 
 “And verily I say unto you, let this house be built unto my name, that I may reveal mine ordinances therein unto my people;
 
@@ -52,7 +52,7 @@ Again, after nearly five years, the Prophet Joseph Smith received the following 
 
 In this revelation, which is recorded in section 124 of the Doctrine and Covenants, reference is made to “the fulness of the priesthood.” What is the meaning of that and how is it obtained? The Prophet Joseph Smith taught: “If a man gets a fullness of the priesthood of God he has to get it in the same way that Jesus Christ obtained it, and that was by keeping all the commandments and obeying all the ordinances of the house of the Lord.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 308.)
 
-President Joseph Fielding Smith further taught: “If you want salvation in the fullest, that is exaltation in the kingdom of God, so that you may become his sons and his daughters, you have got to go to the temple of the Lord and receive these holy ordinances which belong to that house, which cannot be had elsewhere. *No man shall receive the fulness of eternity, of exaltation, alone; no woman shall receive that blessing alone; but man and wife, when they receive the sealing power in the temple of the Lord, … shall pass on to exaltation, and shall continue and become like the Lord.* And that is the destiny of men; that is what the Lord desires for his children.” (*Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols., Salt Lake City: Bookcraft, 1954–56, 2:44.)
+President Joseph Fielding Smith further taught: “If you want salvation in the fullest, that is exaltation in the kingdom of God, so that you may become his sons and his daughters, you have got to go to the temple of the Lord and receive these holy ordinances which belong to that house, which cannot be had elsewhere. *No man shall receive the fulness of eternity, of exaltation, alone; no woman shall receive that blessing alone; but man and wife, when they receive the sealing power in the temple of the Lord, … shall pass on to exaltation, and shall continue and become like the Lord.* And that is the destiny of men; that is what the Lord desires for his children.” (*Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols., Salt Lake City: Bookcraft, 1954–56, 2:44.)
 
 It is clear, then, that unless we go to the temple of the Lord and receive all the ordinances and obey the commandments, we cannot receive a fulness of priesthood blessings and neither can we receive exaltation. These are wonderful blessings that have been made available to us through temple work.
 
@@ -63,8 +63,6 @@ I was the first member of my family to be baptized into the Church and thus have
 There are many people in the world who travel great distances at great personal sacrifice to go to the temple. I know our Heavenly Father is aware of their righteous desires and blesses them abundantly for their efforts. Recently a group came to the Tokyo Temple from Okinawa—nine hundred miles by plane—among them a young couple who had come to be married. It had required all the money they could possibly save to pay for their transportation, and there was nothing left for a wedding celebration or honeymoon. When those who accompanied the couple realized their plight, they dug deep into their own pockets and contributed what little they had so the couple could have money for a delightful one-day honeymoon in Tokyo. Not only did the young couple enjoy the blessings of the temple, but they also enjoyed and appreciated the generosity and kindness of their brothers and sisters. Surely Paul’s teachings to the Ephesian Saints apply, when he said, “Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.” ([[Ephesians 2.19|Eph. 2:19]].)
 
 I have a firm and abiding testimony of the importance of this work and the blessings it can bring into our lives. I express gratitude for this testimony and for the small part I now enjoy in teaching genealogy and temple work. May we all be blessed to receive the fulness of the blessings of the House of the Lord, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

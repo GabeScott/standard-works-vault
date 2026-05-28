@@ -1,4 +1,3 @@
 # Second Estate
 
-
-*See* [[Mortality.md|Mortality]]; [[Probation, Probationary.md|Probation]]
+*See also* [[Mortality.md|Mortality]]; [[Probation.md|Probation]]

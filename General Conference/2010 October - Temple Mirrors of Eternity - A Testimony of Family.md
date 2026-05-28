@@ -32,7 +32,7 @@ I then imagined not only a succession of generations but also a succession of fa
 
 In temple mirrors of eternity, I began to understand my wife and myself as children of our parents and parents to our children, as grandchildren of our grandparents and grandparents to our grandchildren. Mortality’s great lessons distill upon our souls as we learn and teach in eternal roles, including child and parent, parent and child.
 
-Scripture describes our Savior as “the Father and the Son.”[^5] Having dwelt in flesh and subjected the flesh to the will of the Father, our Savior knows how to succor us, His people, in our pains, afflictions, temptations, sicknesses, even death.[^6] Having “descended below all things,”[^7] our Savior can bear our griefs and carry our sorrows.[^8] “He was wounded for our transgressions, … bruised for our iniquities … ; \[with our Savior’s\] stripes we are healed.”[^9]
+Scripture describes our Savior as “the Father and the Son.”[^5] Having dwelt in flesh and subjected the flesh to the will of the Father, our Savior knows how to succor us, His people, in our pains, afflictions, temptations, sicknesses, even death.[^6] Having “descended below all things,”[^7] our Savior can bear our griefs and carry our sorrows.[^8] “He was wounded for our transgressions, … bruised for our iniquities … ; \[with our Savior’s\] stripes we are healed.”[^9]
 
 From the councils in heaven, our Savior sought only to do His Father’s will. This pattern of Father and Son can help explain the paradox “He that loseth his life for my sake shall find it.”[^10] The world pursues enlightened self-interest. Yet the power is not in us to save ourselves. But it is in *Him.* Infinite and eternal,[^11] only our Savior’s Atonement transcends time and space to swallow up death, anger, bitterness, unfairness, loneliness, and heartbreak.
 
@@ -42,7 +42,7 @@ A miracle of the images we discern in temple mirrors of eternity is that they—
 
 The world is in commotion,[^16] but in His “only true and living Church,”[^17] there is faith and no fear. In the words of the Apostle Paul, I also solemnly testify:
 
-“For I am persuaded, that neither death, nor life, …
+“For I am persuaded, that neither death, nor life, …
 
 “Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.”[^18]
 
@@ -88,7 +88,5 @@ I humbly witness: God lives. He “shall wipe away all tears from \[our\] eyes�
 [^18]: [[Romans 8.38|Romans 8:38–39]][[Romans 8.39|]].
 
 [^19]: [[Revelation 21.4|Revelation 21:4]].
-
-
 
 #Atonement #Family #Temples

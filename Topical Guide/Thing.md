@@ -1,6 +1,5 @@
 # Thing
 
-
 Lord had blessed Abraham in all *things*, [[Genesis 24.1|Genesis 24:1]].
 
 all these *things* shall be added, [[Matthew 6.33|Matthew 6:33]] ([[3 Nephi 13.33|3 Nephi 13:33]]).
@@ -11,7 +10,7 @@ all *things*, whatsoever ye shall ask in prayer, [[Matthew 21.22|Matthew 21:22]]
 
 shall not pass, till all these *things* be fulfilled, [[Matthew 24.34|Matthew 24:34]].
 
-Spirit of truth ... will shew you *things* to come, [[John 16.13|John 16:13]].
+Spirit of truth … will shew you *things* to come, [[John 16.13|John 16:13]].
 
 through him, and to him, are all *things*, [[Romans 11.36|Romans 11:36]].
 
@@ -19,13 +18,13 @@ through him, and to him, are all *things*, [[Romans 11.36|Romans 11:36]].
 
 by him were all *things* created, [[Colossians 1.16|Colossians 1:16]].
 
-for whom ... and by whom are all *things*, [[Hebrews 2.10|Hebrews 2:10]].
+for whom … and by whom are all *things*, [[Hebrews 2.10|Hebrews 2:10]].
 
 Lord is able to do all *things*, [[1 Nephi 7.12|1 Nephi 7:12]].
 
 no unclean *thing* can dwell with God, [[1 Nephi 10.21|1 Nephi 10:21]] ([[1 Nephi 15.34|1 Nephi 15:34]]; [[Alma 11.37|Alma 11:37]]).
 
-world ... shall judge him to be a *thing* of naught, [[1 Nephi 19.9|1 Nephi 19:9]] ([[2 Nephi 27.32|2 Nephi 27:32]]; [[2 Nephi 28.16|2 Nephi 28:16]]).
+world … shall judge him to be a *thing* of naught, [[1 Nephi 19.9|1 Nephi 19:9]] ([[2 Nephi 27.32|2 Nephi 27:32]]; [[2 Nephi 28.16|2 Nephi 28:16]]).
 
 in his strength I can do all *things*, [[Alma 26.12|Alma 26:12]].
 

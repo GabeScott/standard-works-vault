@@ -1,6 +1,5 @@
 # Rock
 
-
 *See also* [[Cornerstone.md|Cornerstone]]; [[Jesus Christ, Rock.md|Jesus Christ, Rock]]; [[Stone.md|Stone]]
 
 thou shalt smite the *rock*, and there shall come water out of it, [[Exodus 17.6|Exodus 17:6]] ([[Numbers 20.11|Numbers 20:11]]; [[Deuteronomy 8.15|Deuteronomy 8:15]]; [[1 Nephi 17.29|1 Nephi 17:29]]; [[1 Nephi 20.21|1 Nephi 20:21]]; [[2 Nephi 25.20|2 Nephi 25:20]]).
@@ -9,9 +8,9 @@ He brought streams also out of the *rock*, [[Psalms 78.16|Psalms 78:16]].
 
 He opened the *rock*, and the waters gushed out, [[Psalms 105.41|Psalms 105:41]].
 
-he shall be ... for a *rock* of offence, [[Isaiah 8.14|Isaiah 8:14]] ([[Romans 9.33|Romans 9:33]]; [[1 Peter 2.8|1 Peter 2:8]]; [[2 Nephi 18.14|2 Nephi 18:14]]).
+he shall be … for a *rock* of offence, [[Isaiah 8.14|Isaiah 8:14]] ([[Romans 9.33|Romans 9:33]]; [[1 Peter 2.8|1 Peter 2:8]]; [[2 Nephi 18.14|2 Nephi 18:14]]).
 
-I will lay thy *stones* ... and lay thy foundations, [[Isaiah 54.11|Isaiah 54:11]].
+I will lay thy *stones* … and lay thy foundations, [[Isaiah 54.11|Isaiah 54:11]].
 
 a hammer that breaketh the *rock* in pieces, [[Jeremiah 23.29|Jeremiah 23:29]].
 
@@ -29,9 +28,9 @@ make tools of the ore which I did molten out of the *rock*, [[1 Nephi 17.16|1 Ne
 
 he that is built upon the *rock* receiveth it, [[2 Nephi 28.28|2 Nephi 28:28]] ([[3 Nephi 18.12|3 Nephi 18:12]]).
 
-glad if we could command the *rocks* ... to fall upon us, [[Alma 12.14|Alma 12:14]].
+glad if we could command the *rocks* … to fall upon us, [[Alma 12.14|Alma 12:14]].
 
-my doctrine ... buildeth upon my *rock*, [[3 Nephi 11.39|3 Nephi 11:39]].
+my doctrine … buildeth upon my *rock*, [[3 Nephi 11.39|3 Nephi 11:39]].
 
 wise man, who built his house upon a *rock*, [[3 Nephi 14.24|3 Nephi 14:24]].
 

@@ -12,7 +12,7 @@ Each of these events has had a marked and lasting impact on the history of the C
 
 Celebrating events of the past focuses our thoughts on our history. We take the opportunity to review the past. We glean from the experiences of the past as we anticipate the future. Cicero wrote this of history:
 
-“Not to know what has been transacted in former times is to be always a child. If no use is made of the labors of past ages, the world must remain always in the infancy of knowledge” (in *The International Dictionary of Thoughts,* comp. John P. Bradley, et. al., Chicago: J. G. Ferguson Publishing Co., 1969, p. 362).
+“Not to know what has been transacted in former times is to be always a child. If no use is made of the labors of past ages, the world must remain always in the infancy of knowledge” (in *The International Dictionary of Thoughts,* comp. John P. Bradley, et. al., Chicago: J. G. Ferguson Publishing Co., 1969, p. 362).
 
 This summer has rekindled in me an interest in our heritage and history. I have been intrigued by the similarities found there and am especially fascinated with the parallelism between the Hebrew nation and our own Church history.
 
@@ -22,7 +22,7 @@ Of course, the seventh day was the Sabbath, a day of rest, the seventh month a t
 
 “Six years thou shalt sow thy field, and six years thou shalt prune thy vineyard, and gather in the fruit thereof;
 
-“But in the seventh year shall be a sabbath of rest unto the land, a sabbath for the Lord: thou shalt neither sow thy field, nor prune thy vineyard. …
+“But in the seventh year shall be a sabbath of rest unto the land, a sabbath for the Lord: thou shalt neither sow thy field, nor prune thy vineyard. …
 
 “And thou shalt number seven sabbaths of years unto thee, seven times seven years; and the space of the seven sabbaths of years shall be unto thee forty and nine years.
 
@@ -34,7 +34,7 @@ Every fiftieth year, the land was to be returned to the original owners or their
 
 There seem to be four purposes for celebrations and traditions of ancient Israel, each of which could be applied as a guide to and an influence on the way we celebrate and the meanings we give to our celebrations.
 
-First, the traditions preserved the religious faith and strengthened the spiritual fiber of the people of Israel. As an example, let us review the messages implicit in the celebration of the Jubilee Year. An excerpt from *The International Standard Bible Encyclopedia* tells us that “the fiftieth year was to be a time of proclaiming liberty to all the inhabitants of the land. God had redeemed His people from bondage in Egypt ([[Leviticus 25.42|Lev. 25:42]]); and none of them was again to be reduced to the status of … slave. … God’s chosen child was not to be oppressed. … Indeed, as citizens of the theocratic kingdom, masters and servants had become brothers together. … Thus, as seen in its widest application, only through its loyalty to God could Israel as a nation ever hope to be free and independent of other masters. …
+First, the traditions preserved the religious faith and strengthened the spiritual fiber of the people of Israel. As an example, let us review the messages implicit in the celebration of the Jubilee Year. An excerpt from *The International Standard Bible Encyclopedia* tells us that “the fiftieth year was to be a time of proclaiming liberty to all the inhabitants of the land. God had redeemed His people from bondage in Egypt ([[Leviticus 25.42|Lev. 25:42]]); and none of them was again to be reduced to the status of … slave. … God’s chosen child was not to be oppressed. … Indeed, as citizens of the theocratic kingdom, masters and servants had become brothers together. … Thus, as seen in its widest application, only through its loyalty to God could Israel as a nation ever hope to be free and independent of other masters. …
 
 “A second feature of the Jubilee was that of the restitution of all real property. The purpose was to demonstrate that the earth is subject basically to God’s law, and not to man’s desires. … God’s specific legislation concerned the inalienability of Israel’s land titles. It required the reversion of all hereditary property to the family that originally possessed it and the reestablishment of the initial arrangement regarding God’s division of the land. It did not teach either the socialistic economic theory that a person is entitled to ownership of goods on the basis of his need … or the free-enterprise system that allows an unlimited expansion of private property. On the contrary, it established a fixed title to the property assigned by God” (Geoffrey W. Bromley, ed., 4 vols., Grand Rapids, Mich.: William B. Eerdmans Publishing Co., 1968, 2:1142).
 
@@ -74,7 +74,7 @@ Finally, the celebrations and traditions of ancient Israel had a deep social sig
 
 In the general conference of 1880, President John Taylor announced a Jubilee Year of the Church. He proposed to the body of the Church several ways to celebrate the Jubilee Year—ways that drew the community of Saints more closely together. President Taylor said:
 
-“It occurred to me that we ought to do something, as they did in former times, to relieve those that are oppressed with debt, to assist those that are needy, to break the yoke off those that may feel themselves crowded upon, and to make it a time of general rejoicing” (in Conference Report, Apr. 1880, p. 61).
+“It occurred to me that we ought to do something, as they did in former times, to relieve those that are oppressed with debt, to assist those that are needy, to break the yoke off those that may feel themselves crowded upon, and to make it a time of general rejoicing” (in Conference Report, Apr. 1880, p. 61).
 
 President Taylor then proposed that—
 
@@ -84,7 +84,7 @@ Second, the poor would be released of the back tithing they had committed for.
 
 Third, the Church was to raise a herd of a thousand milk cows, to be distributed to the poor and needy. The Church was to contribute three hundred cows, and the rest would be gathered from the stakes of the Church.
 
-And finally, the Relief Society would gather bushels of wheat to be loaned to the poor to be used as seed. Then, after the harvest, the loan could be repaid, thus establishing a permanent store of seed wheat. (Someone asked President Taylor if the wheat was to be loaned without interest. He replied, “Of course it is; we do not want any nonsense of that kind; it is the time of jubilee”) (in Conference Report, Apr. 1880, p. 64; see also pp. 62–63).
+And finally, the Relief Society would gather bushels of wheat to be loaned to the poor to be used as seed. Then, after the harvest, the loan could be repaid, thus establishing a permanent store of seed wheat. (Someone asked President Taylor if the wheat was to be loaned without interest. He replied, “Of course it is; we do not want any nonsense of that kind; it is the time of jubilee”) (in Conference Report, Apr. 1880, p. 64; see also pp. 62–63).
 
 What a marvelous effect President Taylor’s proposal must have had on the Church’s social structure! By recasting the traditions of ancient Israel in a way to respond to present-day needs, President Taylor showed the members how to be true Latter-day Saints.
 
@@ -99,8 +99,6 @@ We learn from ancient Israel that there is a place for commemorative events. Let
 God grant that we may ever keep alive the rich heritage which is ours, especially by building family traditions as constant reminders of our standards and our values.
 
 This is the Lord’s work in which we are engaged. I bear witness of that. He lives. Jesus is the Christ, the Savior of the world. That we may be engaged in His work is my humble prayer, in the name of Jesus Christ, amen.
-
-
 
 
 

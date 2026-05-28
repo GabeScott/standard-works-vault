@@ -43,7 +43,7 @@ As the train neared his hometown, the suspense became so great that he couldn’
 
 Came the reply, “I see the tree. I see not one white ribbon, but many. There is a white ribbon on every branch. Son, someone surely does love you.”
 
-In that instant, all the bitterness that had poisoned a life was dispelled. “I felt as if I had witnessed a miracle,” the other man said. Indeed, he had witnessed a miracle. (See John Kord Lagemann, “Forgiveness: The Saving Grace,” *The Reader’s Digest,* Mar. 1961, pp. 41–42.)
+In that instant, all the bitterness that had poisoned a life was dispelled. “I felt as if I had witnessed a miracle,” the other man said. Indeed, he had witnessed a miracle. (See John Kord Lagemann, “Forgiveness: The Saving Grace,” *The Reader’s Digest,* Mar. 1961, pp. 41–42.)
 
 Today a yellow ribbon has replaced one that is white. However, the message is the same: “Welcome home!” Men, women, and children everywhere are tying yellow ribbons around everything. Not only are they being tied around trees, but also around lampposts, street signs, and mailboxes—even about the necks of pets. So overwhelming is the demand for yellow ribbon material that busy suppliers working around the clock cannot meet the need. A classic yellow bow was one which completely girdled a large plane bringing soldiers safely home. I have surmised that each one who tenderly tied a yellow bow was singing, humming, or at least thinking of the words of the song “Tie a Yellow Ribbon ‘Round the Old Oak Tree.”
 
@@ -67,11 +67,11 @@ I reflected on the Savior’s capacity for compassion. In Galilee “there came 
 
 On this, the American continent, Jesus appeared to a multitude and said:
 
-“Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, or halt, or maimed, or leprous, or that are withered, or that are deaf, or that are afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you. …
+“Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, or halt, or maimed, or leprous, or that are withered, or that are deaf, or that are afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you. …
 
-“… And he did heal them every one. …
+“… And he did heal them every one. …
 
-“And they did all, both they who had been healed and they who were whole, bow down at his feet, and did worship him; and as many as could come for the multitude did kiss his feet, insomuch that they did bathe his feet with their tears” ([[3 Nephi 17.7|3 Ne. 17:7, 9–10]][[3 Nephi 17.9|]][[3 Nephi 17.10|]]).
+“And they did all, both they who had been healed and they who were whole, bow down at his feet, and did worship him; and as many as could come for the multitude did kiss his feet, insomuch that they did bathe his feet with their tears” ([[3 Nephi 17.7|3 Ne. 17:7, 9–10]][[3 Nephi 17.9|]][[3 Nephi 17.10|]]).
 
 Few accounts of the Master’s ministry touch me more than His example of compassion shown to the grieving widow at Nain:
 
@@ -150,6 +150,4 @@ To these words I add my witness: God lives, and His Son, Jesus Christ, is our Sa
 
 
 
-
-
-#Forgiveness #Gratitude #Jesus_Christ #Love #Peace #Service
+#Forgiveness #Gratitude #JesusChrist #Love #Peace #Service

@@ -1,6 +1,6 @@
 # By Faith All Things Are Fulfilled
 
-By Elder Marcus B. Nash - *Of the Seventy*
+By Elder Marcus B. Nash - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -38,7 +38,7 @@ Third, sin diminishes the presence of the Spirit in our lives, and without the H
 
 Brothers and sisters, the Lord will, according to our faith, fulfill His promises and work with us to overcome every challenge.[^33] He did so for Ann Rowley and has done so for His people in all nations and in every age and generation. Because He is a “God of miracles” and “changeth not,” He will likewise bless each of us with hope, protection, and power according to our faith in Him.[^34] Steadfast faith in the Lord Jesus Christ will—like the cables on the path of Huayna Picchu—anchor you and your loved ones to “the rock of our Redeemer”[^35] and His matchless power to save.
 
-President Thomas S. Monson has stated, “The future is as bright as your faith.”[^36] I testify of that sublime, hopeful truth and invite each of us to steadfastly press forward with faith in the Lord, “nothing wavering.”[^37] I know that the Savior lives, is “the author and the finisher of \[our\] faith,”[^38] and the “rewarder of them that diligently seek him.”[^39] I so testify in the name of Jesus Christ, amen.
+President Thomas S. Monson has stated, “The future is as bright as your faith.”[^36] I testify of that sublime, hopeful truth and invite each of us to steadfastly press forward with faith in the Lord, “nothing wavering.”[^37] I know that the Savior lives, is “the author and the finisher of \[our\] faith,”[^38] and the “rewarder of them that diligently seek him.”[^39] I so testify in the name of Jesus Christ, amen.
 
 
 
@@ -57,31 +57,31 @@ President Thomas S. Monson has stated, “The future is as bright as your faith
 
 [^7]: [[Alma 32.21|Alma 32:21]].
 
-[^8]: See Joseph Smith Translation, Hebrews 11:1 (in [[Hebrews 11.note1b|Hebrews 11:1, footnote b]]).
+[^8]: See Joseph Smith Translation, Hebrews 11:1 (in [Hebrews 11:1, footnote b](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11?lang=eng&id=note1b#note1b)).
 
-[^9]: See [[James 2.17|James 2:17–26]][[James 2.18|]][[James 2.19|]][[James 2.20|]][[James 2.21|]][[James 2.22|]][[James 2.23|]][[James 2.24|]][[James 2.25|]][[James 2.26|]]; [[2 Nephi 25.23|2 Nephi 25:23]]; [[Alma 34.15|Alma 34:15–17]][[Alma 34.16|]][[Alma 34.17|]]; [[Ether 12.6|Ether 12:6]].
+[^9]: See [[James 2.17|James 2:17–26]][[James 2.18|]][[James 2.19|]][[James 2.20|]][[James 2.21|]][[James 2.22|]][[James 2.23|]][[James 2.24|]][[James 2.25|]][[James 2.26|]]; [[2 Nephi 25.23|2 Nephi 25:23]]; [[Alma 34.15|Alma 34:15–17]][[Alma 34.16|]][[Alma 34.17|]]; [[Ether 12.6|Ether 12:6]].
 
 [^10]: See [[Ether 12.4|Ether 12:4–6]][[Ether 12.5|]][[Ether 12.6|]]; *Lectures on Faith,* 69.
 
 [^11]: See [[Moroni 7.40|Moroni 7:40–42]][[Moroni 7.41|]][[Moroni 7.42|]].
 
-[^12]: See Bible Dictionary, [“Faith”](https://churchofjesuschrist.org/study/scriptures/bd/faith?lang=eng); see also [[Mormon 9.8|Mormon 9:8–21]][[Mormon 9.9|]][[Mormon 9.10|]][[Mormon 9.11|]][[Mormon 9.12|]][[Mormon 9.13|]][[Mormon 9.14|]][[Mormon 9.15|]][[Mormon 9.16|]][[Mormon 9.17|]][[Mormon 9.18|]][[Mormon 9.19|]][[Mormon 9.20|]][[Mormon 9.21|]]; [[Moroni 7.33|Moroni 7:33–37]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]].
+[^12]: See Bible Dictionary, “[[BD Faith|Faith]]”; see also [[Mormon 9.8|Mormon 9:8–21]][[Mormon 9.9|]][[Mormon 9.10|]][[Mormon 9.11|]][[Mormon 9.12|]][[Mormon 9.13|]][[Mormon 9.14|]][[Mormon 9.15|]][[Mormon 9.16|]][[Mormon 9.17|]][[Mormon 9.18|]][[Mormon 9.19|]][[Mormon 9.20|]][[Mormon 9.21|]]; [[Moroni 7.33|Moroni 7:33–37]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]].
 
 [^13]: See [[Alma 57.19|Alma 57:19–27]][[Alma 57.20|]][[Alma 57.21|]][[Alma 57.22|]][[Alma 57.23|]][[Alma 57.24|]][[Alma 57.25|]][[Alma 57.26|]][[Alma 57.27|]]; [[Alma 58.10|58:10–13]][[Alma 58.11|]][[Alma 58.12|]][[Alma 58.13|]]; [[D&C 27.17|Doctrine and Covenants 27:17]].
 
-[^14]: Ann Rowley, in Andrew D. Olsen, *The Price We Paid: The Extraordinary Story of the Willie and Martin Handcart Pioneers* (2006), 113.
+[^14]: Ann Rowley, in Andrew D. Olsen, *The Price We Paid: The Extraordinary Story of the Willie and Martin Handcart Pioneers* (2006), 113.
 
 [^15]: [[D&C 20.25|Doctrine and Covenants 20:25]].
 
 [^16]: [[Isaiah 40.31|Isaiah 40:31]].
 
-[^17]: “Lead, Kindly Light,” *Hymns,* no. 97.
+[^17]: “Lead, Kindly Light,” *Hymns,* no. 97.
 
 [^18]: See [[Jacob 4.10|Jacob 4:10]]; [[Mormon 9.9|Mormon 9:9]].
 
 [^19]: [[D&C 27.17|Doctrine and Covenants 27:17]]; emphasis added.
 
-[^20]: See [[1 Nephi 8.33|1 Nephi 8:33–34]][[1 Nephi 8.34|]]; [[Alma 37.33|Alma 37:33]]; [[D&C 20.22|Doctrine and Covenants 20:22]].
+[^20]: See [[1 Nephi 8.33|1 Nephi 8:33–34]][[1 Nephi 8.34|]]; [[Alma 37.33|Alma 37:33]]; [[D&C 20.22|Doctrine and Covenants 20:22]].
 
 [^21]: See [[Alma 32.28|Alma 32:28]].
 
@@ -113,7 +113,7 @@ President Thomas S. Monson has stated, “The future is as bright as your faith
 
 [^35]: [[Helaman 5.12|Helaman 5:12]].
 
-[^36]: Thomas S. Monson, “Be of Good Cheer,” *Liahona* and *Ensign,* May 2009, 92.
+[^36]: Thomas S. Monson, “Be of Good Cheer,” *Liahona* and *Ensign,* May 2009, 92.
 
 [^37]: See [[James 1.6|James 1:6–8]][[James 1.7|]][[James 1.8|]].
 
@@ -121,6 +121,4 @@ President Thomas S. Monson has stated, “The future is as bright as your faith
 
 [^39]: [[Hebrews 11.6|Hebrews 11:6]]; see also [[Ether 12.41|Ether 12:41]].
 
-
-
-#Faith #Holy_Ghost #Jesus_Christ
+#Faith #HolyGhost #JesusChrist

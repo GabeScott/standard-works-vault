@@ -32,7 +32,7 @@ The Book of Mormon is the instrument that God designed to “sweep the earth as 
 
 At present, the Book of Mormon is studied in our Sunday School and seminary classes every fourth year. This four-year pattern, however, must *not* be followed by Church members in their personal and family study. We need to read daily from the pages of the book that will get a man “nearer to God by abiding by its precepts, than by any other book.” (*History of the Church,* 4:461.)
 
-And when we are called upon to study or teach other scriptures, we need to strengthen that undertaking by frequent reference to the additional insights which the Book of Mormon may provide on the subject (see [[1 Nephi 13.40|1 Ne. 13:40]], [[2 Nephi 3.12|2 Ne. 3:12]]).
+And when we are called upon to study or teach other scriptures, we need to strengthen that undertaking by frequent reference to the additional insights which the Book of Mormon may provide on the subject (see [[1 Nephi 13.40|1 Ne. 13:40]], [[2 Nephi 3.12|2 Ne. 3:12]]).
 
 The recent, well-done video on the Book of Mormon entitled *How Rare a Possession* carried many messages. First was the power of the Book of Mormon to convert men to Christ and hence to His church. Another message was that a man could study and preach the contents of the Book of Mormon for so many years without either his or his associates’ knowing the name of the book or the Church which published it.
 
@@ -42,7 +42,7 @@ We have the Book of Mormon, we have the members, we have the missionaries, we ha
 
 My beloved brothers and sisters, we hardly fathom the power of the Book of Mormon, nor the divine role it must play, nor the extent to which it must be moved.
 
-“Few men on earth,” said Elder Bruce R. McConkie, “either in or out of the Church, have caught the vision of what the Book of Mormon is all about. Few are they among men who know the part it has played and will yet play in preparing the way for the coming of Him of whom it is a new witness. … The Book of Mormon shall so affect men that the whole earth and all its peoples will have been influenced and governed by it. … There is no greater issue ever to confront mankind in modern times than this: Is the Book of Mormon the mind and will and voice of God to all men?” (*Millennial Messiah,* Salt Lake City: Deseret Book Co., 1982, pp. 159, 170, 179.) We testify that it is.
+“Few men on earth,” said Elder Bruce R. McConkie, “either in or out of the Church, have caught the vision of what the Book of Mormon is all about. Few are they among men who know the part it has played and will yet play in preparing the way for the coming of Him of whom it is a new witness. … The Book of Mormon shall so affect men that the whole earth and all its peoples will have been influenced and governed by it. … There is no greater issue ever to confront mankind in modern times than this: Is the Book of Mormon the mind and will and voice of God to all men?” (*Millennial Messiah,* Salt Lake City: Deseret Book Co., 1982, pp. 159, 170, 179.) We testify that it is.
 
 Now, my good Saints, we have a great work to perform in a very short time. We must flood the earth with the Book of Mormon—and get out from under God’s condemnation for having treated it lightly. (See [[D&C 84.54|D&C 84:54–58]][[D&C 84.55|]][[D&C 84.56|]][[D&C 84.57|]][[D&C 84.58|]].)
 
@@ -81,6 +81,4 @@ Moses never entered the promised land. Joseph Smith never saw Zion redeemed. Som
 
 
 
-
-
-#Book_Of_Mormon #Missionary_Work #Scripture_Study
+#BookOfMormon #MissionaryWork #ScriptureStudy

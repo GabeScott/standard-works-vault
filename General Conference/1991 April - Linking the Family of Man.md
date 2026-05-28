@@ -38,7 +38,7 @@ I explained that all of God’s worthy children of all ages can become heirs of 
 
 “Jesus answered, Verily, verily, I say unto thee, Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God” ([[John 3.3|John 3:3–5]][[John 3.4|]][[John 3.5|]]).
 
-I also made reference to the early Apostles’ teachings regarding Christ’s resurrection and the resurrection of all, including Paul’s great statement: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]]).
+I also made reference to the early Apostles’ teachings regarding Christ’s resurrection and the resurrection of all, including Paul’s great statement: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]]).
 
 The engaged lawyer seemed comfortable. He presented our case effectively. We won our building permit. The chapel now stands in Glasgow, Scotland.
 
@@ -82,7 +82,7 @@ From Buckeye, Arizona, to Birmingham, Alabama; and from Sandpoint, Idaho, to Alb
 
 One of the most thrilling results of being involved in family research and genealogical research is becoming intimately acquainted with our ancestors—their challenges and achievements—and then showing our gratitude by performing for them the ordinances that will allow them to obtain the greatest of all gifts: the gift of eternal life.
 
-James E. Talmage wrote: “Compliance with the ordinance \[of baptism\] has been shown to be essential to salvation, and this condition applies to all mankind. Nowhere in scripture is a distinction made in this regard between the living and the dead. … All are children of the same Father, all to be judged and rewarded or punished by the same unerring justice, with the same … mercy … for all inhabitants of earth … past, present, and future. … He is Lord alike of \[all—the\] living and dead” (*Articles of Faith,* 12th ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924\], p. 145).
+James E. Talmage wrote: “Compliance with the ordinance \[of baptism\] has been shown to be essential to salvation, and this condition applies to all mankind. Nowhere in scripture is a distinction made in this regard between the living and the dead. … All are children of the same Father, all to be judged and rewarded or punished by the same unerring justice, with the same … mercy … for all inhabitants of earth … past, present, and future. … He is Lord alike of \[all—the\] living and dead” (*Articles of Faith,* 12th ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924\], p. 145).
 
 “Behold, the great day of the Lord is at hand. … Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple … a book containing the records of our dead, which shall be worthy of all \[acceptance\]” ([[D&C 128.24|D&C 128:24]]).
 
@@ -91,6 +91,4 @@ This I pray in the name of Jesus Christ, amen.
 
 
 
-
-
-#Family_History #Temple_Work
+#FamilyHistory #TempleWork

@@ -1,6 +1,6 @@
 # Living the Gospel Joyful
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -8,7 +8,7 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/living-the-gospel-joyful?lang=eng)
 
-My beloved sisters, my dear friends and blessed disciples of Jesus Christ, I am honored to have this opportunity to be with you as we open another general conference of The Church of Jesus Christ of Latter-day Saints. In the coming week the First Presidency and the Twelve Apostles will meet with all the General Authorities and general auxiliary leaders, and the remaining sessions of our worldwide general conference will follow on the coming Saturday and Sunday. I am most grateful to President Thomas S. Monson, the prophet of God for our days, for asking me to represent the First Presidency as I speak to the sisters of the Church.
+My beloved sisters, my dear friends and blessed disciples of Jesus Christ, I am honored to have this opportunity to be with you as we open another general conference of The Church of Jesus Christ of Latter-day Saints. In the coming week the First Presidency and the Twelve Apostles will meet with all the General Authorities and general auxiliary leaders, and the remaining sessions of our worldwide general conference will follow on the coming Saturday and Sunday. I am most grateful to President Thomas S. Monson, the prophet of God for our days, for asking me to represent the First Presidency as I speak to the sisters of the Church.
 
 As I contemplated what I might say, my thoughts went back to the women who have shaped my life and helped me through the challenges of mortality. I am grateful for my grandmother who decades ago decided to take her family to a Mormon sacrament meeting. I am grateful for Sister Ewig, an elderly single German lady, whose name translates into English as “Sister Eternal.” She was the one who extended this courageous and wonderful invitation to my grandmother. I am so very grateful for my mother, who led four children through the turmoil of World War II. I think also of my daughter, granddaughters, and future generations of faithful women who will one day follow.
 
@@ -30,9 +30,9 @@ The Savior has answered this question in our time:
 
 “Except ye abide my law ye cannot attain to this glory.
 
-“For strait is the gate, and narrow the way that leadeth unto the exaltation. …
+“For strait is the gate, and narrow the way that leadeth unto the exaltation. …
 
-“… Receive ye, therefore, my law.”[^3]
+“… Receive ye, therefore, my law.”[^3]
 
 For this reason, we speak of walking the path of discipleship.
 
@@ -127,7 +127,7 @@ I promise that as you do so, you will discover your best self—your *real* self
 
 
 
-[^1]: God is not only our Ruler and Creator; He is also our Heavenly Father. All men and women are literally the sons and daughters of God. President Joseph F. Smith taught that “man, as a spirit, was begotten and born of heavenly parents, and reared to maturity in the eternal mansions of the Father, prior to coming upon the earth in a temporal \[physical\] body” (*Teachings of Presidents of the Church: Joseph F. Smith* \[1998\], 335).
+[^1]: God is not only our Ruler and Creator; He is also our Heavenly Father. All men and women are literally the sons and daughters of God. President Joseph F. Smith taught that “man, as a spirit, was begotten and born of heavenly parents, and reared to maturity in the eternal mansions of the Father, prior to coming upon the earth in a temporal \[physical\] body” (*Teachings of Presidents of the Church: Joseph F. Smith* \[1998\], 335).
 
 [^2]: [[D&C 132.19|Doctrine and Covenants 132:19]].
 
@@ -143,6 +143,4 @@ I promise that as you do so, you will discover your best self—your *real* self
 
 [^8]: [[Alma 32.42|Alma 32:42]].
 
-
-
-#Commandments #Divine_Nature #God_The_Father #Love #Service
+#Commandments #DivineNature #GodTheFather #Love #Service

@@ -1,7 +1,6 @@
 # Heaven
 
-
-*See also* [[Astronomy.md|Astronomy]]; [[Celestial Glory.md|Celestial Glory]]; [[Creation, Create.md|Creation]]; [[God, Works of.md|God, Works of]]; [[Kingdom of God, in Heaven.md|Kingdom of God, in Heaven]]; [[Paradise, Paradisiacal.md|Paradise]]; [[Telestial Glory.md|Telestial Glory]]; [[Terrestrial Glory.md|Terrestrial Glory]]; [BD Heaven](https://www.churchofjesuschrist.org/study/scriptures/bd/heaven?lang=eng)
+*See also* [[Astronomy.md|Astronomy]]; [[Celestial Glory.md|Celestial Glory]]; [[Creation.md|Creation]]; [[God, Works of.md|God, Works of]]; [[Kingdom of God, in Heaven.md|Kingdom of God, in Heaven]]; [[Paradise.md|Paradise]]; [[Telestial Glory.md|Telestial Glory]]; [[Terrestrial Glory.md|Terrestrial Glory]]; [[BD Heaven.md|BD Heaven]]
 
 In the beginning God created the *heaven*, [[Genesis 1.1|Genesis 1:1]] ([[Moses 2.1|Moses 2:1]]).
 
@@ -13,7 +12,7 @@ house of God, and this is the gate of *heaven*, [[Genesis 28.17|Genesis 28:17]].
 
 I will rain bread from *heaven*, [[Exodus 16.4|Exodus 16:4]] ([[John 6.31|John 6:31]]).
 
-*heaven of heavens* is the Lord's, [[Deuteronomy 10.14|Deuteronomy 10:14]].
+*heaven of heavens* is the Lord’s, [[Deuteronomy 10.14|Deuteronomy 10:14]].
 
 driven out unto the outmost parts of *heaven*, [[Deuteronomy 30.4|Deuteronomy 30:4]].
 
@@ -47,7 +46,7 @@ How art thou fallen from *heaven*, O Lucifer, [[Isaiah 14.12|Isaiah 14:12]].
 
 *heavens* shall be rolled together as a scroll, [[Isaiah 34.4|Isaiah 34:4]].
 
-Lift up your eyes to the *heavens* ... for the *heavens* shall vanish, [[Isaiah 51.6|Isaiah 51:6]].
+Lift up your eyes to the *heavens* … for the *heavens* shall vanish, [[Isaiah 51.6|Isaiah 51:6]].
 
 as the *heavens* are higher than the earth, [[Isaiah 55.9|Isaiah 55:9]].
 
@@ -109,7 +108,7 @@ made higher than the *heavens*, [[Hebrews 7.26|Hebrews 7:26]].
 
 in *heaven* a better and an enduring substance, [[Hebrews 10.34|Hebrews 10:34]].
 
-church of the firstborn ... written in *heaven*, [[Hebrews 12.23|Hebrews 12:23]].
+church of the firstborn … written in *heaven*, [[Hebrews 12.23|Hebrews 12:23]].
 
 swear not, neither by *heaven*, [[James 5.12|James 5:12]].
 
@@ -137,7 +136,7 @@ faithful to the end they are received into *heaven*, [[Mosiah 2.41|Mosiah 2:41]]
 
 they saw the *heavens* open, [[Helaman 5.48|Helaman 5:48]] ([[D&C 107.19|D&C 107:19]]).
 
-Jesus Christ ... I created the *heavens*, [[3 Nephi 9.15|3 Nephi 9:15]].
+Jesus Christ … I created the *heavens*, [[3 Nephi 9.15|3 Nephi 9:15]].
 
 be the children of your Father who is in *heaven*, [[3 Nephi 12.45|3 Nephi 12:45]].
 
@@ -147,11 +146,11 @@ three who were caught up into the *heavens*, [[3 Nephi 28.36|3 Nephi 28:36]].
 
 spake unto him from *heaven*, [[D&C 1.17|D&C 1:17]].
 
-God will ... cause the *heavens* to shake, [[D&C 21.6|D&C 21:6]] ([[D&C 35.24|D&C 35:24]]; [[D&C 43.18|D&C 43:18]]; [[D&C 45.48|D&C 45:48]]; [[D&C 49.23|D&C 49:23]]; [[Joseph Smith Matthew 1.36|Joseph Smith Matthew 1:36]]).
+God will … cause the *heavens* to shake, [[D&C 21.6|D&C 21:6]] ([[D&C 35.24|D&C 35:24]]; [[D&C 43.18|D&C 43:18]]; [[D&C 45.48|D&C 45:48]]; [[D&C 49.23|D&C 49:23]]; [[Joseph Smith Matthew 1.36|Joseph Smith Matthew 1:36]]).
 
 hosts of *heaven*, before the world was, [[D&C 38.1|D&C 38:1]].
 
-when I shall come ... in the clouds of *heaven*, [[D&C 45.16|D&C 45:16]].
+when I shall come … in the clouds of *heaven*, [[D&C 45.16|D&C 45:16]].
 
 used by the Revelator, John, in describing *heaven*, [[D&C 77.2|D&C 77:2]].
 
@@ -177,7 +176,7 @@ I clothe the *heavens* with blackness, [[D&C 133.69|D&C 133:69]].
 
 *heavens* were opened upon us, [[D&C 137.1|D&C 137:1]].
 
-*heavens* ... they cannot be numbered unto man, [[Moses 1.37|Moses 1:37]].
+*heavens* … they cannot be numbered unto man, [[Moses 1.37|Moses 1:37]].
 
 I reveal unto you concerning this *heaven*, [[Moses 2.1|Moses 2:1]].
 
@@ -188,5 +187,3 @@ the record of *heaven*, [[Moses 6.61|Moses 6:61]].
 Zion was taken up into *heaven*, [[Moses 7.23|Moses 7:23]].
 
 organized and formed the *heavens* and the earth, [[Abraham 4.1|Abraham 4:1]].
-
-*See also* [[D&C 88.37|D&C 88:37]].

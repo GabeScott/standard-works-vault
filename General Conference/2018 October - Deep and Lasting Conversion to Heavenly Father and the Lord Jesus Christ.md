@@ -1,6 +1,6 @@
 # Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,9 +8,9 @@ By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/deep-and-lasting-conversion-to-heavenly-father-and-the-lord-jesus-christ?lang=eng)
 
-As President Russell M. Nelson has just beautifully and eloquently set forth, Church leaders have been working for a long time on “a *home-centered* and *Church-supported* plan to learn doctrine, strengthen faith, and foster greater personal worship.” President Nelson then announced an adjustment to achieve “a new balance and connection between gospel instruction in the home and in the Church.”[^1]
+As President Russell M. Nelson has just beautifully and eloquently set forth, Church leaders have been working for a long time on “a *home-centered* and *Church-supported* plan to learn doctrine, strengthen faith, and foster greater personal worship.” President Nelson then announced an adjustment to achieve “a new balance and connection between gospel instruction in the home and in the Church.”[^1]
 
-To accomplish these purposes—described by and under the direction of President Russell M. Nelson and pursuant to the decision of the Council of the First Presidency and Quorum of the Twelve Apostles—the Sunday meeting schedule will be adjusted in the following ways, beginning in January 2019.
+To accomplish these purposes—described by and under the direction of President Russell M. Nelson and pursuant to the decision of the Council of the First Presidency and Quorum of the Twelve Apostles—the Sunday meeting schedule will be adjusted in the following ways, beginning in January 2019.
 
 ## Sunday Meeting Schedule
 
@@ -92,26 +92,26 @@ The most important goal and ultimate blessing of deep and lasting conversion is 
 
 We trust you to counsel together and to seek revelation for implementing these adjustments—while not looking beyond the mark or trying to regiment individuals or families. Additional information will be shared in upcoming communications, including a First Presidency letter and enclosure.
 
-I testify to you that in the deliberations of the Council of the First Presidency and Quorum of the Twelve Apostles in the temple, and after our beloved prophet petitioned the Lord for revelation to move forward with these adjustments, a powerful confirmation was received by all. Russell M. Nelson is our living President and prophet. The announcements made today will result in profound blessings for those who enthusiastically embrace the adjustments and seek the guidance of the Holy Ghost. We will become closer to our Heavenly Father and our Lord and Savior, Jesus Christ, of whom I am a sure witness. In the name of Jesus Christ, amen.
+I testify to you that in the deliberations of the Council of the First Presidency and Quorum of the Twelve Apostles in the temple, and after our beloved prophet petitioned the Lord for revelation to move forward with these adjustments, a powerful confirmation was received by all. Russell M. Nelson is our living President and prophet. The announcements made today will result in profound blessings for those who enthusiastically embrace the adjustments and seek the guidance of the Holy Ghost. We will become closer to our Heavenly Father and our Lord and Savior, Jesus Christ, of whom I am a sure witness. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 8.
+[^1]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 8.
 
 [^2]: We are also aware that, in society at large, the vast majority of events for information, education, and even entertainment have been significantly shortened.
 
 [^3]: This curriculum will be available both digitally and in print.
 
-[^4]: *Come, Follow Me—For Individuals and Families* (2019), vi.
+[^4]: *[Come, Follow Me—For Individuals and Families](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2019/using?lang=eng)* (2019), vi.
 
-[^5]: See “[Come, Follow Me—For Elders Quorum and Relief Society](https://churchofjesuschrist.org/study/liahona/2018/05/come-follow-me-for-elders-quorum-and-relief-society/second-and-third-sunday-meetings?lang=eng),” *Ensign* or *Liahona,* May 2018, 140. Instead of the second and third Sundays, general conference messages will be discussed on the second and fourth Sundays.
+[^5]: See “[Come, Follow Me—For Elders Quorum and Relief Society](https://www.churchofjesuschrist.org/study/liahona/2018/05/come-follow-me-for-elders-quorum-and-relief-society/second-and-third-sunday-meetings?lang=eng),” *Ensign* or *Liahona,* May 2018, 140. Instead of the second and third Sundays, general conference messages will be discussed on the second and fourth Sundays.
 
-[^6]: See *Come, Follow Me—For Individuals and Families,* 4. Individuals and families determine what part of the home gospel study, home evening, and family activities will be family home evening (which many already call *home evening*). Because individuals and families will make this determination, *home evening* and *family home evening* have been used interchangeably in the adjustments that have been announced.
+[^6]: See *[Come, Follow Me—For Individuals and Families](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2019/01?lang=eng),* 4. Individuals and families determine what part of the home gospel study, home evening, and family activities will be family home evening (which many already call *home evening*). Because individuals and families will make this determination, *home evening* and *family home evening* have been used interchangeably in the adjustments that have been announced.
 
-[^7]: See *Come, Follow Me—For Individuals and Families,* 29.
+[^7]: See *[Come, Follow Me—For Individuals and Families](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2019/07?lang=eng),* 29.
 
-[^8]: See Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
+[^8]: See Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
 [^9]: See *Handbook 2: Administering the Church* (2010), 2.2. Divinely appointed responsibilities “include helping members live the gospel of Jesus Christ, gathering Israel through missionary work, caring for the poor and needy, and enabling the salvation of the dead by building temples and performing vicarious ordinances.” See also [[D&C 110.1|Doctrine and Covenants 110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]], which contains the account of the restoration of essential keys.
 
@@ -123,12 +123,10 @@ I testify to you that in the deliberations of the Council of the First Presidenc
 
 [^13]: Individuals and families who were involved in the pilot test, on average, studied the gospel more frequently and had more meaningful scripture study and gospel discussions in the home. They reported having more informal gospel discussions with family and ward members and appreciated studying the same block of scriptures as their families. This was particularly true of youth.
 
-[^14]: *Come, Follow Me—For Individuals and Families,* v; see also [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^14]: *[Come, Follow Me—For Individuals and Families](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2019/intro?lang=eng),* v; see also [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
-[^15]: *Come, Follow Me—For Individuals and Families,* v.
+[^15]: *[Come, Follow Me—For Individuals and Families](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2019/intro?lang=eng),* v.
 
-[^16]: See Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” 7.
-
-
+[^16]: See Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” 7.
 
 #Conversion #Curriculum #Family #Home #Sabbath

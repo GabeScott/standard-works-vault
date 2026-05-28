@@ -1,6 +1,6 @@
 # The Women of God
 
-By Elder Neal A. Maxwell - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Neal A. Maxwell - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -51,8 +51,6 @@ Notice, brethren, how all the prophets treat their wives and honor women, and le
 Finally, remember: When we return to our real home, it will be with the “mutual approbation” of those who reign in the “royal courts on high.” There we will find beauty such as mortal “eye hath not seen”; we will hear sounds of surpassing music which mortal “ear hath not heard.” Could such a regal homecoming be possible without the anticipatory arrangements of a Heavenly Mother?
 
 Meanwhile, there are no separate paths back to that heavenly home. Just one straight and narrow way, at the end of which, though we arrive trailing tears, we shall at once be “drenched in joy.” I so testify in the name of Jesus Christ. Amen.
-
-
 
 
 

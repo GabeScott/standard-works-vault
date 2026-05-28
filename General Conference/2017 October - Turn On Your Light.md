@@ -8,9 +8,9 @@ By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/10/turn-on-your-light?lang=eng)
 
-You might not know this, but President Monson and I are twins. On the very day I was born—in the very hour—in Northern California, the 36-year-old Thomas S. Monson was sustained as the newest Apostle. I love my special, personal link to the prophet of God, President Monson.
+You might not know this, but President Monson and I are twins. On the very day I was born—in the very hour—in Northern California, the 36-year-old Thomas S. Monson was sustained as the newest Apostle. I love my special, personal link to the prophet of God, President Monson.
 
-The prophets are speaking about women.[^1] You will hear some of their words in this meeting. For my text I am going back almost 40 years to a remarkable prophecy written by President Spencer W. Kimball. September 1979 was only the second time the women of the global Church had met in their own general meeting. President Kimball had prepared his talk, but when the day of the conference came, he was in the hospital. So instead, he asked his wife, Camilla Eyring Kimball, to read his remarks on his behalf.[^2]
+The prophets are speaking about women.[^1] You will hear some of their words in this meeting. For my text I am going back almost 40 years to a remarkable prophecy written by President Spencer W. Kimball. September 1979 was only the second time the women of the global Church had met in their own general meeting. President Kimball had prepared his talk, but when the day of the conference came, he was in the hospital. So instead, he asked his wife, Camilla Eyring Kimball, to read his remarks on his behalf.[^2]
 
 Sister Kimball read the prophet’s words, which emphasized the influence of LDS women on the good women of the world prior to the Second Coming of the Savior. Near the end, there was an electrifying charge to the women of the Church that we have been talking about ever since.
 
@@ -38,11 +38,11 @@ Women who have repented change the course of history. I have a friend who was in
 
 By coming back to the Lord and His ways, she changed the course of her history and her little boy’s history and her new husband’s. She is righteous; she has a wide-open heart for others who have made mistakes and want to change. And just like all of us, she isn’t perfect, but she knows how to repent and to keep trying.
 
-**The second is to be articulate.** Being articulate means to clearly express how you feel about something and why. Earlier this year, there was a post on my Facebook news feed that disparaged Christianity. I read it and I was a little annoyed, but I shrugged it off. But an acquaintance who is not a member of our faith responded with a comment of her own. She wrote: “\[This is\] the exact opposite of what Jesus stood for—he was … radical \[in\] his time because he … equalized the world. … He \[spoke to\] prostitute\[s\], \[he ate\] with … tax collector\[s\] … , befriended powerless women and children … , \[and\] gave us the story of the Good Samaritan. … It follows that … true Christians would be striving to be the MOST loving people in the world.” When I read that, I thought to myself, “Why didn’t I write that?”
+**The second is to be articulate.** Being articulate means to clearly express how you feel about something and why. Earlier this year, there was a post on my Facebook news feed that disparaged Christianity. I read it and I was a little annoyed, but I shrugged it off. But an acquaintance who is not a member of our faith responded with a comment of her own. She wrote: “\[This is\] the exact opposite of what Jesus stood for—he was … radical \[in\] his time because he … equalized the world. … He \[spoke to\] prostitute\[s\], \[he ate\] with … tax collector\[s\] … , befriended powerless women and children … , \[and\] gave us the story of the Good Samaritan. … It follows that … true Christians would be striving to be the MOST loving people in the world.” When I read that, I thought to myself, “Why didn’t I write that?”
 
 Each of us needs to be better at articulating the reasons for our faith. How do you feel about Jesus Christ? Why do you stay in the Church? Why do you believe the Book of Mormon is scripture? Where do you get your peace? Why does it matter that the prophet has something to say in 2017? How do you know he is a real prophet? Use your voice and your power to articulate what you know and feel—on social media, in quiet conversations with your friends, when you’re chatting with your grandchildren. Tell them why you believe, what it feels like, if you ever doubted, how you got through it, and what Jesus Christ means to you. As the Apostle Peter said, “Be not afraid … ; but sanctify the Lord God in your hearts: and be ready always to give an answer to every man that asketh you a reason of the hope that is in you.”[^4]
 
-**The third is to be different.** Let me tell you a story that happened this July on Panama City Beach in Florida.[^5] Late in the afternoon, Roberta Ursrey saw her two young sons screaming for help from 100 yards (90 m) out into the ocean. They had become caught in a strong current and were being carried out to sea. A nearby couple tried to rescue the boys, but they also got caught in the current. So members of the Ursrey family dove in to rescue the struggling swimmers, and quickly nine people were caught in the rip current.
+**The third is to be different.** Let me tell you a story that happened this July on Panama City Beach in Florida.[^5] Late in the afternoon, Roberta Ursrey saw her two young sons screaming for help from 100 yards (90 m) out into the ocean. They had become caught in a strong current and were being carried out to sea. A nearby couple tried to rescue the boys, but they also got caught in the current. So members of the Ursrey family dove in to rescue the struggling swimmers, and quickly nine people were caught in the rip current.
 
 There were no ropes. There was no lifeguard. The police sent for a rescue boat, but the people had been out in the ocean struggling for 20 minutes, and they were exhausted and their heads were slipping under the water. Among the onlookers on the beach was Jessica Mae Simmons. Her husband had the idea to form a human chain. They shouted at people on the beach to help them, and dozens of people linked arms and marched into the ocean. Jessica wrote, “To see people from different races and genders come into action to help TOTAL strangers \[was\] absolutely amazing to see!!”[^6] An 80-person chain stretched toward the swimmers. Look at this picture of that incredible moment.
 
@@ -52,9 +52,9 @@ Everyone on the beach could think only of traditional solutions, and they were p
 
 The restored gospel is recognizably well defined. But we have to be distinct about how we follow it. Just as Jessica practiced swimming, we need to practice living the gospel before the emergency so that, unafraid, we will be strong enough to help when others are being swept away by the current.
 
-**And finally, the fifth is to do one through four in happy ways. **Being happy doesn’t mean to slap a plastic smile on your face no matter what is going on. But it does mean keeping the laws of God and building and lifting others.[^8] When we build, when we lift the burden of others, it blesses our lives in ways our trials cannot take away. I have a quote by President Gordon B. Hinckley placed where I see it every day. He said: “You don’t … build out of pessimism or cynicism. You look with optimism, work with faith, and things happen.”[^9]
+**And finally, the fifth is to do one through four in happy ways. **Being happy doesn’t mean to slap a plastic smile on your face no matter what is going on. But it does mean keeping the laws of God and building and lifting others.[^8] When we build, when we lift the burden of others, it blesses our lives in ways our trials cannot take away. I have a quote by President Gordon B. Hinckley placed where I see it every day. He said: “You don’t … build out of pessimism or cynicism. You look with optimism, work with faith, and things happen.”[^9]
 
-An example of that happy, optimistic spirit is a 13-year-old girl I know named Elsa, whose family is moving to Baton Rouge, Louisiana, 1,800 miles (2,900 km) away from her friends. It’s not very easy when you are 13 to move to a new place. Elsa was understandably unsure about the move, so her dad gave her a blessing. At the very moment of the blessing, her mom’s phone chimed with a text. The young women who live in Louisiana had sent this picture with the caption “Please move into our ward!”[^10]
+An example of that happy, optimistic spirit is a 13-year-old girl I know named Elsa, whose family is moving to Baton Rouge, Louisiana, 1,800 miles (2,900 km) away from her friends. It’s not very easy when you are 13 to move to a new place. Elsa was understandably unsure about the move, so her dad gave her a blessing. At the very moment of the blessing, her mom’s phone chimed with a text. The young women who live in Louisiana had sent this picture with the caption “Please move into our ward!”[^10]
 
 These young women were optimistic they would like Elsa without even meeting her. Their enthusiasm created optimism in Elsa about the upcoming move and answered her prayer about whether everything would be all right.
 
@@ -74,20 +74,20 @@ I appeal to each of you to put yourself in a place where you can feel the genero
 
 The prophets are calling on us, my sisters. Will you be righteous? Will you articulate your faith? Can you bear being distinct and different? Will your happiness in spite of your trials draw others who are good and noble and who need your friendship? Will you turn on your light? I testify the Lord Jesus Christ will go before us and be in our midst.
 
-I conclude with the words of our well-loved prophet, Thomas S. Monson: “My dear sisters, this is your day, this is your time.”[^12] In the name of Jesus Christ, amen.
+I conclude with the words of our well-loved prophet, Thomas S. Monson: “My dear sisters, this is your day, this is your time.”[^12] In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: President Brigham Young: “Let \[the sisters\] organize Female Relief Societies in the various wards. We have many talented women among us, and we wish their help in this matter. Some may think this is a trifling thing, but it is not; and you will find that the sisters will be the mainspring of the movement” (in *Daughters in My Kingdom: The History and Work of Relief Society* \[2011\], 41).
+[^1]: President Brigham Young: “Let \[the sisters\] organize Female Relief Societies in the various wards. We have many talented women among us, and we wish their help in this matter. Some may think this is a trifling thing, but it is not; and you will find that the sisters will be the mainspring of the movement” (in *[Daughters in My Kingdom: The History and Work of Relief Society](https://www.lds.org/relief-society/daughters-in-my-kingdom/manual/a-wide-and-extensive-sphere-of-action)* \[2011\], 41).
 
-[^2]: See the video of Sister Camilla Kimball reading President Spencer W. Kimball’s address at [conference.lds.org](https://generalconference.lds.org); see also Spencer W. Kimball, “[[1979 October - The Role of Righteous Women.md|The Role of Righteous Women]],” *Ensign,* Nov. 1979, 102–4.
+[^2]: See the video of Sister Camilla Kimball reading President Spencer W. Kimball’s address at [conference.lds.org](https://generalconference.lds.org); see also Spencer W. Kimball, “[[1979 October - The Role of Righteous Women.md|The Role of Righteous Women]],” *Ensign,* Nov. 1979, 102–4.
 
-[^3]: Spencer W. Kimball, “[[1979 October - The Role of Righteous Women.md|The Role of Righteous Women]],” 103–4; emphasis added.
+[^3]: Spencer W. Kimball, “[[1979 October - The Role of Righteous Women.md|The Role of Righteous Women]],” 103–4; emphasis added.
 
-[^4]: [[1 Peter 3.14|1 Peter 3:14–15]][[1 Peter 3.15|]].
+[^4]: [[1 Peter 3.14|1 Peter 3:14–15]][[1 Peter 3.15|]].
 
-[^5]: See McKinley Corbley, “80 Beachgoers Form Human Chain to Save Family Being Dragged Out to Sea by Riptide,” July 12, 2017, goodnewsnetwork.org.
+[^5]: See McKinley Corbley, “80 Beachgoers Form Human Chain to Save Family Being Dragged Out to Sea by Riptide,” July 12, 2017, goodnewsnetwork.org.
 
 [^6]: Jessica Mae Simmons, in Corbley, “80 Beachgoers Form Human Chain.”
 
@@ -95,14 +95,12 @@ I conclude with the words of our well-loved prophet, Thomas S. Monson: “My de
 
 [^8]: See [[Alma 41.10|Alma 41:10]]; [[Alma 34.28|34:28]]; [[D&C 38.27|Doctrine and Covenants 38:27]]; [[Luke 16.19|Luke 16:19–25]][[Luke 16.20|]][[Luke 16.21|]][[Luke 16.22|]][[Luke 16.23|]][[Luke 16.24|]][[Luke 16.25|]].
 
-[^9]: *Teachings of Presidents of the Church: Gordon B. Hinckley* (2016), 71.
+[^9]: *[Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-3-cultivating-an-attitude-of-happiness-and-a-spirit-of-optimism?lang=eng)* (2016), 71.
 
 [^10]: Note from Virginia Pearce family.
 
 [^11]: [[D&C 49.26|Doctrine and Covenants 49:26–28]][[D&C 49.27|]][[D&C 49.28|]].
 
-[^12]: Thomas S. Monson, “[[1997 October - The Mighty Strength of the Relief Society.md|The Mighty Strength of the Relief Society]],” 95.
+[^12]: Thomas S. Monson, “[[1997 October - The Mighty Strength of the Relief Society.md|The Mighty Strength of the Relief Society]],” 95.
 
-
-
-#Communication #Joy #Relief_Society #Repentance #Women
+#Communication #Joy #ReliefSociety #Repentance #Women

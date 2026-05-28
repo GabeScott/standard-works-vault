@@ -1,6 +1,5 @@
 # Owe
 
-
 which *owed* him ten thousand talents, [[Matthew 18.24|Matthew 18:24]].
 
 one *owed* five hundred pence, [[Luke 7.41|Luke 7:41]].
@@ -11,7 +10,7 @@ How much *owest* thou unto my lord, [[Luke 16.5|Luke 16:5]].
 
 *oweth* thee ought, put that on mine account, [[Philemon 1.18|Philemon 1:18]].
 
-if a man ... would not pay that which he did *owe*, [[Alma 11.2|Alma 11:2]].
+if a man … would not pay that which he did *owe*, [[Alma 11.2|Alma 11:2]].
 
 sacred support which we *owe* to our wives, [[Alma 44.5|Alma 44:5]].
 

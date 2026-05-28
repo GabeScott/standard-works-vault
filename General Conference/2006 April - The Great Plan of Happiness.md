@@ -22,17 +22,17 @@ A Book of Mormon prophet answers this question for us with joyful expressions of
 
 Let me share five truths of the great plan of happiness that have brought this kind of joy to me.
 
-**First:** A knowledge of the plan confirms that there is a God and He has a Son, Jesus Christ. The Father and the Son are perfect. They live in heaven, and They possess glorified bodies of spirit, flesh, and bones.
+***First:*** A knowledge of the plan confirms that there is a God and He has a Son, Jesus Christ. The Father and the Son are perfect. They live in heaven, and They possess glorified bodies of spirit, flesh, and bones.
 
 These truths were revealed to us in this dispensation when the boy Joseph Smith knelt in humble prayer and later declared: “I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^5]
 
-**Second:** Knowing the identity of the Father and the Son helps us know that all of us are placed on earth to acquire a physical body, gain experience, and prove ourselves worthy to return to our Heavenly Father. Laws govern our mortal life on earth. When we transgress the law, we sin. When we sin, we break eternal laws; the law of justice requires a penalty or a punishment.
+***Second:*** Knowing the identity of the Father and the Son helps us know that all of us are placed on earth to acquire a physical body, gain experience, and prove ourselves worthy to return to our Heavenly Father. Laws govern our mortal life on earth. When we transgress the law, we sin. When we sin, we break eternal laws; the law of justice requires a penalty or a punishment.
 
 Sin and the need to repent might be represented by a man who takes a journey. On his back is a large empty bag. From time to time, he picks up a rock, representing the transgression of a law. He places the rock in the bag on his back. Over time, the bag becomes full. It is heavy. The man cannot continue on his journey. He must have a way to empty the bag and remove the rocks. This can be done only by the Savior through the Atonement.
 
 This is possible when we exercise faith in Jesus Christ, forsake sin, and make covenants through the ordinances of the gospel. As we faithfully endure to the end, we can then return to live with our Heavenly Father and His Son, Jesus Christ.
 
-**Third:** Through the infinite Atonement, God has provided a means whereby we can both overcome our sins and become completely clean again. This is made possible by the eternal law of mercy. Mercy satisfies the claims of justice through our repentance and the power of the Atonement. Without the power of the Atonement and our complete repentance, we are subject to the law of justice.
+***Third:*** Through the infinite Atonement, God has provided a means whereby we can both overcome our sins and become completely clean again. This is made possible by the eternal law of mercy. Mercy satisfies the claims of justice through our repentance and the power of the Atonement. Without the power of the Atonement and our complete repentance, we are subject to the law of justice.
 
 Alma taught that “mercy claimeth the penitent”[^6] and that “the plan of redemption could not be brought about, only on conditions of repentance.”[^7]
 
@@ -44,7 +44,7 @@ Adam said, “For because of my transgression my eyes are opened, and in this li
 
 Eve uttered a similar acclamation of happiness: “Were it not for our transgression we never should have had seed, and never should have known good and evil, and the joy of our redemption.”[^11]
 
-**Fourth:** The Fall of Adam and Eve brought about two deaths. We are subject to those deaths.
+***Fourth:*** The Fall of Adam and Eve brought about two deaths. We are subject to those deaths.
 
 Physical death is the separation of the spirit from the physical body. Because of the Fall of Adam, all mankind will suffer physical death.
 
@@ -68,7 +68,7 @@ The revelations teach:
 
 “That same spirit which doth possess your bodies at the time that ye go out of this life, that same spirit will have power to possess your body in that eternal world.”[^14]
 
-**Fifth:** Jesus Christ was born of an earthly mother, Mary. From her, He inherited mortality and became subject to death.
+***Fifth:*** Jesus Christ was born of an earthly mother, Mary. From her, He inherited mortality and became subject to death.
 
 Joseph was His earthly mentor. God in heaven was His Father. From Him, He inherited immortality, the power to overcome physical death.
 
@@ -95,11 +95,11 @@ I bear testimony of that truth and of the love that our Lord and Savior Jesus Ch
 
 [^1]: [[Jacob 4.12|Jacob 4:12]].
 
-[^2]: [[Alma 42.8|Alma 42:8]]; see also [[2 Nephi 9.13|2 Nephi 9:13]]; [[Alma 12.32|Alma 12:32]]; [[Alma 34.9|34:9, 16]][[Alma 34.16|]]; [[Alma 41.2|41:2]]; [[Alma 42.15|42:15]]; [[Moses 6.62|Moses 6:62]].
+[^2]: [[Alma 42.8|Alma 42:8]]; see also [[2 Nephi 9.13|2 Nephi 9:13]]; [[Alma 12.32|Alma 12:32]]; [[Alma 34.9|34:9, 16]][[Alma 34.16|]]; [[Alma 41.2|41:2]]; [[Alma 42.15|42:15]]; [[Moses 6.62|Moses 6:62]].
 
 [^3]: In Conference Report, Apr. 1967, 48.
 
-[^4]: [[2 Nephi 9.8|2 Nephi 9:8, 17]][[2 Nephi 9.17|]].
+[^4]: [[2 Nephi 9.8|2 Nephi 9:8, 17]][[2 Nephi 9.17|]].
 
 [^5]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
@@ -127,8 +127,6 @@ I bear testimony of that truth and of the love that our Lord and Savior Jesus Ch
 
 [^17]: [[D&C 19.18|D&C 19:18]].
 
-[^18]: In Conference Report, Apr. 1994, 26; or *Ensign,* May 1994, 20.
+[^18]: In Conference Report, Apr. 1994, [[1994 April - The Father and the Family.md|26]]; or *Ensign,* May 1994, 20.
 
-
-
-#Atonement #Plan_Of_Salvation #Resurrection
+#Atonement #PlanOfSalvation #Resurrection

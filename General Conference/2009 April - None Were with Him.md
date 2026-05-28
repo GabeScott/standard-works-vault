@@ -51,7 +51,7 @@ My other plea at Easter time is that these scenes of Christ’s lonely sacrifice
 
 [^4]: [[Matthew 27.26|Matthew 27:26]].
 
-[^5]: See Bible Dictionary, “Barabbas,” 619.
+[^5]: See Bible Dictionary, “[[BD Barabbas|Barabbas]],” 619.
 
 [^6]: [[Matthew 27.21|Matthew 27:21]].
 
@@ -65,7 +65,7 @@ My other plea at Easter time is that these scenes of Christ’s lonely sacrifice
 
 [^11]: [[Matthew 26.45|Matthew 26:45]].
 
-[^12]: See Spencer W. Kimball, *Peter, My Brother,* Brigham Young University Speeches of the Year (July 13, 1971), 5.
+[^12]: See Spencer W. Kimball, *Peter, My Brother,* Brigham Young University Speeches of the Year (July 13, 1971), 5.
 
 [^13]: See [[Mark 14.27|Mark 14:27–31]][[Mark 14.28|]][[Mark 14.29|]][[Mark 14.30|]][[Mark 14.31|]].
 
@@ -85,6 +85,4 @@ My other plea at Easter time is that these scenes of Christ’s lonely sacrifice
 
 [^21]: [[Mosiah 18.9|Mosiah 18:9]].
 
-
-
-#Atonement #Jesus_Christ #Loneliness
+#Atonement #JesusChrist #Loneliness

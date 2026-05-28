@@ -1,6 +1,6 @@
 # I Glory in My Jesus
 
-By Elder Aaron T. Hall - *Of the Seventy*
+By Elder Aaron T. Hall - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -12,7 +12,7 @@ Brothers and sisters, happy Easter! He is risen!
 
 As the Book of Mormon prophet Nephi concludes his teaching, he bears this powerful witness: “I glory in plainness; I glory in truth; I glory in my Jesus, for he hath redeemed my soul from hell.”[^1]
 
-That short phrase, “I glory in my Jesus,” beautifully captures Nephi’s loving relationship with the Son of God,[^2] the Messiah,[^3] the Redeemer.[^4] In the books of 1 and 2 Nephi, there are over 60 different names for Jesus Christ. Each name reveals something of His majesty, His character, and His mission as the Savior of the world. Yet in this expression of love, Nephi refers to Him in a familiar and endearing way: “my Jesus.”
+That short phrase, “I glory in my Jesus,” beautifully captures Nephi’s loving relationship with the Son of God,[^2] the Messiah,[^3] the Redeemer.[^4] In the books of 1 and 2 Nephi, there are over 60 different names for Jesus Christ. Each name reveals something of His majesty, His character, and His mission as the Savior of the world. Yet in this expression of love, Nephi refers to Him in a familiar and endearing way: “my Jesus.”
 
 To Nephi, Jesus Christ was not someone distant or merely known by name. No, to Nephi, the name of Jesus was his salvation.[^5]
 
@@ -62,14 +62,14 @@ With perfect understanding of our mortal experience, Jesus Christ lovingly exten
 
 In moments of joy and in our trials, let us be faithful, obey His commandments, honor our covenants, and patiently wait on the Lord.
 
-Our beloved prophet, President Dallin H. Oaks, beautifully testified why we can all glory in Jesus Christ. He taught: “As part of the Father’s plan, the Resurrection of Jesus Christ overcame death to assure each of us immortality. Jesus Christ’s atoning sacrifice gives each of us the opportunity to repent of our sins and return clean to our heavenly home. … And our Savior willingly experienced all mortal pains and infirmities that He would know how to strengthen us in our afflictions. Jesus Christ did all of this because He loves all of the children of God.”[^50]
+Our beloved prophet, President Dallin H. Oaks, beautifully testified why we can all glory in Jesus Christ. He taught: “As part of the Father’s plan, the Resurrection of Jesus Christ overcame death to assure each of us immortality. Jesus Christ’s atoning sacrifice gives each of us the opportunity to repent of our sins and return clean to our heavenly home. … And our Savior willingly experienced all mortal pains and infirmities that He would know how to strengthen us in our afflictions. Jesus Christ did all of this because He loves all of the children of God.”[^50]
 
 Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully testify that God is our loving Heavenly Father and that Jesus is the resurrected and living Christ.[^51] On this Easter Sunday and always, I invite us to glory in Jesus Christ. He is *my Jesus* and *yours*. In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[2 Nephi 33.6|2 Nephi 33:6]].
+[^1]: [[2 Nephi 33.6|2 Nephi 33:6]].
 
 [^2]: See [[D&C 35.2|Doctrine and Covenants 35:2]].
 
@@ -77,21 +77,21 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^4]: See [[D&C 29.1|Doctrine and Covenants 29:1]].
 
-[^5]: The Hebrew meaning of the name *Jesus* is “Jehovah saves” or “Jehovah is salvation” (see [[Matthew 1.21|Matthew 1:21]]; [New Testament Student Manual](https://churchofjesuschrist.org/study/manual/new-testament-student-manual/introduction-to-matthew/chapter-2?lang=eng&id=p14#p14) \[2018\], 14).
+[^5]: The Hebrew meaning of the name *Jesus* is “Jehovah saves” or “Jehovah is salvation” (see [[Matthew 1.21|Matthew 1:21]]; [New Testament Student Manual](https://www.churchofjesuschrist.org/study/manual/new-testament-student-manual/introduction-to-matthew/chapter-2?lang=eng&id=p14#p14) \[2018\], 14).
 
-[^6]: [[2 Nephi 31.21|2 Nephi 31:21]].
+[^6]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
-[^7]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^7]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^8]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^8]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^9]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^9]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^10]: [[2 Nephi 4.21|2 Nephi 4:21]].
+[^10]: [[2 Nephi 4.21|2 Nephi 4:21]].
 
-[^11]: [[2 Nephi 4.34|2 Nephi 4:34]].
+[^11]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
-[^12]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^12]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
 [^13]: See [[Mosiah 28.4|Mosiah 28:4]].
 
@@ -117,11 +117,11 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^24]: See [[Alma 5.60|Alma 5:60]].
 
-[^25]: See [[3 Nephi 10.6|3 Nephi 10:6]].
+[^25]: See [[3 Nephi 10.6|3 Nephi 10:6]].
 
 [^26]: See [[Luke 19.10|Luke 19:10]].
 
-[^27]: See [[2 Nephi 26.24|2 Nephi 26:24]].
+[^27]: See [[2 Nephi 26.24|2 Nephi 26:24]].
 
 [^28]: See Patrick Kearon, “[[2024 April - God’s Intent Is to Bring You Home.md|God’s Intent Is to Bring You Home]],” *Liahona*, May 2024, 87–89.
 
@@ -131,7 +131,7 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^31]: See [[Psalms 46.10|Psalm 46:10]].
 
-[^32]: See [[2 Nephi 1.15|2 Nephi 1:15]].
+[^32]: See [[2 Nephi 1.15|2 Nephi 1:15]].
 
 [^33]: See [[D&C 45.3|Doctrine and Covenants 45:3]].
 
@@ -143,13 +143,13 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^37]: See [[Isaiah 33.22|Isaiah 33:22]].
 
-[^38]: Dale G. Renlund, “[Stronger and Closer Connection to God Through Multiple Covenants](https://speeches.byu.edu/talks/dale-g-renlund/stronger-and-closer-connection-to-god-through-multiple-covenants)” (Brigham Young University devotional, Mar. 5, 2024), 1, speeches.byu.edu.
+[^38]: Dale G. Renlund, “[Stronger and Closer Connection to God Through Multiple Covenants](https://speeches.byu.edu/talks/dale-g-renlund/stronger-and-closer-connection-to-god-through-multiple-covenants)” (Brigham Young University devotional, Mar. 5, 2024), 1, speeches.byu.edu.
 
 [^39]: See [[D&C 1.30|Doctrine and Covenants 1:30]].
 
 [^40]: See [[Romans 11.26|Romans 11:26]].
 
-[^41]: See [[2 Nephi 9.10|2 Nephi 9:10]].
+[^41]: See [[2 Nephi 9.10|2 Nephi 9:10]].
 
 [^42]: See [[Alma 7.11|Alma 7:11]].
 
@@ -159,15 +159,16 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^45]: See [[D&C 93.45|Doctrine and Covenants 93:45]].
 
-[^46]: See Dale G. Renlund, “[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Liahona*, May 2021, 41–44.
+[^46]: See Dale G. Renlund, “[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Liahona*, May 2021, 41–44.
 
 [^47]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
 [^48]: See [[D&C 19.23|Doctrine and Covenants 19:23]].
 
-[^49]: Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p45#p45),” *Liahona*, Oct. 2022, 10.
+[^49]: Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p45#p45),” *Liahona*, Oct. 2022, 10.
 
-[^50]: Dallin H. Oaks, “[[2021 April - What Has Our Savior Done for Us.md|What Has Our Savior Done for Us?]],” *Liahona*, May 2021, 77.
+[^50]: Dallin H. Oaks, “[[2021 April - What Has Our Savior Done for Us.md|What Has Our Savior Done for Us?]],” *Liahona*, May 2021, 77.
 
-[^51]: See “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” Gospel Library.
+[^51]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” Gospel Library.
 
+#AtonementOfJesusChrist #Joy #JesusChrist #Love #Mercy

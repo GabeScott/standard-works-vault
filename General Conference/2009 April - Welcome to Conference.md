@@ -8,7 +8,7 @@ By President Thomas S. Monson - *President of the Church*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/04/welcome-to-conference?lang=eng)
 
-My dear brothers and sisters, as we open this, the 179th Annual General Conference, we note with sadness the absence of Elder Joseph B. Wirthlin of the Quorum of the Twelve Apostles. We mourn his passing. We miss him. We extend our love to his family. I have no doubt that he is carrying on this great work on the other side of the veil.
+My dear brothers and sisters, as we open this, the 179th Annual General Conference, we note with sadness the absence of Elder Joseph B. Wirthlin of the Quorum of the Twelve Apostles. We mourn his passing. We miss him. We extend our love to his family. I have no doubt that he is carrying on this great work on the other side of the veil.
 
 Because of the passing of Elder Wirthlin, there exists a vacancy in the Quorum of the Twelve Apostles. After much fasting and prayer, we have called Elder Neil Linden Andersen to fill this vacancy. We present his name to you this morning for your sustaining vote. All those of you who feel you can sustain him in this sacred calling will please signify by the uplifted hand. Any who may be opposed may signify by the same sign.
 
@@ -16,7 +16,7 @@ We thank you for your sustaining vote. Elder Andersen’s name will be included 
 
 Elder Andersen, we invite you now to take your place on the stand with the members of the Twelve. We look forward to hearing from you in the Sunday morning session of conference.
 
-Since we met six months ago, my brothers and sisters, I have traveled to Mexico City, Mexico, with President and Sister Henry B. Eyring, to rededicate the temple there. For many months it had been undergoing extensive renovations.
+Since we met six months ago, my brothers and sisters, I have traveled to Mexico City, Mexico, with President and Sister Henry B. Eyring, to rededicate the temple there. For many months it had been undergoing extensive renovations.
 
 The evening before the rededication, a magnificent cultural event was held in the Aztec Stadium. Approximately 87,000 spectators squeezed into the open-air stadium, and a cast of more than 8,000 young people participated in the program, which featured an 80-minute display of music, dance, and Mexican history.
 
@@ -42,13 +42,11 @@ I express my thanks to you for your kindnesses to me wherever I go. I thank you 
 
 Now, my brothers and sisters, we are anxious to listen to the messages which will be presented to us during the next two days, that we might be taught and inspired and have a renewed determination to live the gospel and to serve the Lord. Those who will address us have sought heaven’s help and direction as they have prepared their messages. They have been impressed concerning that which they will share with us.
 
-To those of you who are new in the Church, we welcome you. To those of you who are struggling with challenges or with disappointments or with losses, we pray for you. Our Heavenly Father loves each of us and is mindful of our needs. May we be filled with His Spirit as we listen to that which will be presented. Such is my prayer this morning as we open this great conference. I also add a fond remembrance of President Gordon B. Hinckley, who preceded me as President of the Church. I’m sure he’s serving well on the other side. In the name of our Lord and Savior, Jesus Christ, amen.
+To those of you who are new in the Church, we welcome you. To those of you who are struggling with challenges or with disappointments or with losses, we pray for you. Our Heavenly Father loves each of us and is mindful of our needs. May we be filled with His Spirit as we listen to that which will be presented. Such is my prayer this morning as we open this great conference. I also add a fond remembrance of President Gordon B. Hinckley, who preceded me as President of the Church. I’m sure he’s serving well on the other side. In the name of our Lord and Savior, Jesus Christ, amen.
 
 
 
 
 [^1]: [[Matthew 28.19|Matthew 28:19]].
 
-
-
-#Education #Missionary_Work #Temples
+#Education #MissionaryWork #Temples

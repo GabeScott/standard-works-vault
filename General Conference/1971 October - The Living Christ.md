@@ -14,7 +14,7 @@ We have made remarkable progress in scientific research and education, in transp
 
 The thing that is needed more than anything else today is a return to faith in the Lord Jesus Christ and in the gospel plan that he gave. Today, as perhaps seldom if ever before, civilization is in need of a knowledge of the true and living God. Yes, the cure for the ills that beset the world today is true religion. We need the humility of prayer, and a determination to learn God’s will and to keep the commandments that he has given. We need faith that our Savior lives, faith in his redeeming sacrifice. In other words, Christ and his teachings should become the center of our lives.
 
-Our late president, President David O. McKay, in an interview with a leading journalist sometime ago, was asked: “If you had the power to grant unto America one great wish, what would it be?” His answer was: “I would wish that America had a testimony of the Lord Jesus Christ and would obey his principles; that would bring peace on earth. I believe that is the greatest blessing that can be given.”
+Our late president, President David O. McKay, in an interview with a leading journalist sometime ago, was asked: “If you had the power to grant unto America one great wish, what would it be?” His answer was: “I would wish that America had a testimony of the Lord Jesus Christ and would obey his principles; that would bring peace on earth. I believe that is the greatest blessing that can be given.”
 
 Do we need Jesus today? Do we need his teachings? If we are to survive, if our civilization is to persist, we must accept him and his inspiration and guidance. Someone has said that “the world needs a bath in Christ’s pure religion. Only a dedication to Christ can wash the dirt out of our society.”
 
@@ -95,6 +95,4 @@ May the peace that passeth understanding come into the hearts of men and women e
 
 
 
-
-
-#Jesus_Christ #Joseph_Smith #Resurrection
+#JosephSmith #JesusChrist #Resurrection

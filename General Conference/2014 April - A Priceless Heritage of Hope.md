@@ -1,6 +1,6 @@
 # A Priceless Heritage of Hope
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -24,9 +24,9 @@ Heinrich was Charlotte and Edward’s first son. Charlotte died at the age of 31
 
 Heinrich, my great-grandfather, had lost both of his parents and a great worldly inheritance. He was penniless. He recorded in his history that he felt his best hope lay in going to America. Although he had neither family nor friends there, he had a feeling of hope about going to America. He first went to New York City. Later he moved to St. Louis, Missouri.
 
-In St. Louis one of his co-workers was a Latter-day Saint. From him he obtained a copy of a pamphlet written by Elder Parley P. Pratt. He read it and then studied every word he could obtain about the Latter-day Saints. He prayed to know if there really were angels that appeared to men, whether there was a living prophet, and whether he had found a true and revealed religion.
+In St. Louis one of his co-workers was a Latter-day Saint. From him he obtained a copy of a pamphlet written by Elder Parley P. Pratt. He read it and then studied every word he could obtain about the Latter-day Saints. He prayed to know if there really were angels that appeared to men, whether there was a living prophet, and whether he had found a true and revealed religion.
 
-After two months of careful study and prayer, Heinrich had a dream in which he was told he was to be baptized. A man whose name and priesthood I hold in sacred memory, Elder William Brown, was to perform the ordinance. Heinrich was baptized in a pool of rainwater on March 11, 1855, at 7:30 in the morning.
+After two months of careful study and prayer, Heinrich had a dream in which he was told he was to be baptized. A man whose name and priesthood I hold in sacred memory, Elder William Brown, was to perform the ordinance. Heinrich was baptized in a pool of rainwater on March 11, 1855, at 7:30 in the morning.
 
 I believe that Heinrich Eyring knew then that what I am teaching you today is true. He knew that the happiness of eternal life comes through family bonds which continue forever. Even when he had so recently found the Lord’s plan of happiness, he knew that his hope for eternal joy depended on the free choices of others to follow his example. His hope of eternal happiness depended on people not yet born.
 
@@ -40,7 +40,7 @@ In that history I can feel his love for those of us who would follow him. In his
 
 Heinrich knew that in sacrament meetings we could renew our promise to always remember the Savior and have His Spirit to be with us.
 
-It was that Spirit that sustained him on the mission to which he was called only a few months after accepting the baptismal covenant. He left as his heritage his example of staying faithful to his mission for six years in what was then called the Indian Territories. To receive his release from his mission, he walked and joined a wagon train from Oklahoma to Salt Lake City, a distance of approximately 1,100 miles (1,770 km).
+It was that Spirit that sustained him on the mission to which he was called only a few months after accepting the baptismal covenant. He left as his heritage his example of staying faithful to his mission for six years in what was then called the Indian Territories. To receive his release from his mission, he walked and joined a wagon train from Oklahoma to Salt Lake City, a distance of approximately 1,100 miles (1,770 km).
 
 Soon thereafter he was called by the prophet of God to move to southern Utah. From there he answered another call to serve a mission in his native Germany. He then accepted the invitation of an Apostle of the Lord Jesus Christ to help build up the Latter-day Saint colonies in northern Mexico. From there he was called to Mexico City as a full-time missionary again. He honored those calls. He lies buried in a small cemetery in Colonia Juárez, Chihuahua, Mexico.
 
@@ -109,8 +109,6 @@ We are all children of a living God. Jesus of Nazareth is His Beloved Son and ou
 
 [^2]: [[Abraham 3.24|Abraham 3:24–26]][[Abraham 3.25|]][[Abraham 3.26|]].
 
-[^3]: [[3 Nephi 10.5|3 Nephi 10:5]].
-
-
+[^3]: [[3 Nephi 10.5|3 Nephi 10:5]].
 
 #Covenants #Hope

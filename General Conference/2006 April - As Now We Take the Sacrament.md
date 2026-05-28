@@ -46,7 +46,7 @@ In the New Testament we have an account of the Lord administering the sacrament 
 
 “For this is my blood of the new testament, which is shed for many for the remission of sins” ([[Matthew 26.26|vv. 26–28]][[Matthew 26.27|]][[Matthew 26.28|]]).
 
-The Book of Mormon, in 3 Nephi, chapter 18, gives us a detailed account of the Savior’s administration of the sacrament to the Nephites:
+The Book of Mormon, in 3 Nephi, chapter 18, gives us a detailed account of the Savior’s administration of the sacrament to the Nephites:
 
 “And it came to pass that Jesus commanded his disciples that they should bring forth some bread and wine unto him.
 
@@ -95,8 +95,6 @@ I remember an experience our family had while on vacation at a resort area. Beca
 After we returned to the resort, there was an obvious difference in the Sabbath-day activities compared to that of the weekdays. Boats remained tied at the dock; the lake was almost free of swimmers; and the dress for the Sabbath day was very appropriate. Those families saw the fulfillment of the Lord’s promise: by going to the house of prayer on His holy day and renewing their covenants to obey the commandments, they were able to keep themselves more fully unspotted from the world (see [[D&C 59.9|D&C 59:9]]).
 
 May there be instilled in each of us an increased reverence for the Sabbath. May we more fully realize the special blessing of being able to partake of the sacrament and its significance in our lives. May we always remember Him and keep His commandments, which He has given us to fulfill the purpose of life and the hope of the eternities that are to come. This is the Lord’s work in which we are engaged. God lives. Jesus is the Christ, the Savior of the world. We’re permitted to be part of this great gospel plan, of which the sacrament is such a vital part. In the name of Jesus Christ, amen.
-
-
 
 
 

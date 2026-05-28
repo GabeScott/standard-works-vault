@@ -96,9 +96,9 @@ Being compassionate is another great work of our Heavenly Father and a fundament
 
 When we reach out to bless the lives of others, our lives are blessed as well. Service and sacrifice open the windows of heaven, allowing choice blessings to descend upon us. Surely our beloved Heavenly Father smiles upon those who care for the least of His children.
 
-As we lift others, we rise a little higher ourselves. President Spencer W. Kimball taught, “The more we serve our fellowmen in appropriate ways, the more substance there is to our souls.”[^9]
+As we lift others, we rise a little higher ourselves. President Spencer W. Kimball taught, “The more we serve our fellowmen in appropriate ways, the more substance there is to our souls.”[^9]
 
-President Gordon B. Hinckley believed in the healing power of service. After the death of his wife, he provided a great example to the Church in the way he immersed himself in work and in serving others. It is told that President Hinckley remarked to one woman who had recently lost her husband, “Work will cure your grief. Serve others.”
+President Gordon B. Hinckley believed in the healing power of service. After the death of his wife, he provided a great example to the Church in the way he immersed himself in work and in serving others. It is told that President Hinckley remarked to one woman who had recently lost her husband, “Work will cure your grief. Serve others.”
 
 These are profound words. As we lose ourselves in the service of others, we discover our own lives and our own happiness.
 
@@ -133,11 +133,11 @@ Of this I testify, and leave you my blessing as an Apostle of the Lord, in the n
 
 [^1]: [[Isaiah 55.9|Isaiah 55:9]].
 
-[^2]: [[1 Nephi 11.17|1 Nephi 11:17]].
+[^2]: [[1 Nephi 11.17|1 Nephi 11:17]].
 
 [^3]: [[Moses 1.39|Moses 1:39]].
 
-[^4]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+[^4]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^5]: See [[D&C 46.11|D&C 46:11–12]][[D&C 46.12|]].
 
@@ -147,20 +147,18 @@ Of this I testify, and leave you my blessing as an Apostle of the Lord, in the n
 
 [^8]: [[Mosiah 18.9|Mosiah 18:9]].
 
-[^9]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 254.
+[^9]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 254.
 
 [^10]: Lorenzo Snow, in Conference Report, Apr. 1899, 2–3.
 
-[^11]: J. M. Barrie, *A Window in Thrums* (1917), 137.
+[^11]: J. M. Barrie, *A Window in Thrums* (1917), 137.
 
-[^12]: Thomas S. Monson, “Three Goals to Guide You,” *Liahona* and *Ensign,* Nov. 2007, 120.
+[^12]: Thomas S. Monson, “Three Goals to Guide You,” *Liahona* and *Ensign,* Nov. 2007, 120.
 
 [^13]: [[Matthew 23.11|Matthew 23:11]].
 
 [^14]: See [[D&C 90.24|D&C 90:24]].
 
 [^15]: See [[D&C 6.20|D&C 6:20]].
-
-
 
 #Attitude #Compassion #Joy #Talents #Women

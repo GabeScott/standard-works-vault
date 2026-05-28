@@ -1,6 +1,5 @@
 # Renounce
 
-
 *See also* [[Deny.md|Deny]]
 
 have *renounced* the hidden things of dishonesty, [[2 Corinthians 4.2|2 Corinthians 4:2]].

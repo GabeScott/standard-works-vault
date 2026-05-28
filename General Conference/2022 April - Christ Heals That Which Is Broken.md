@@ -1,6 +1,6 @@
 # Christ Heals That Which Is Broken
 
-By Amy A. Wright - *Second Counselor in the Primary General Presidency*
+By Amy A. Wright - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -107,8 +107,6 @@ I testify that there is nothing in your life that is broken that is beyond the c
 
 [^11]: [[D&C 121.1|Doctrine and Covenants 121:1]].
 
-[^12]: [[2 Nephi 25.13|2 Nephi 25:13]].
+[^12]: [[2 Nephi 25.13|2 Nephi 25:13]].
 
-
-
-#Faith #Forgiveness #Healing #Jesus_Christ
+#Faith #Forgiveness #Healing #JesusChrist

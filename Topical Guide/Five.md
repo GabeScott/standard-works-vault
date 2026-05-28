@@ -1,6 +1,5 @@
 # Five
 
-
 they that had eaten were about *five* thousand, [[Matthew 14.21|Matthew 14:21]] ([[Mark 6.44|Mark 6:44]]; [[Luke 9.14|Luke 9:14]]; [[John 6.10|John 6:10]]).
 
 *five* of them were wise, and *five* were foolish, [[Matthew 25.2|Matthew 25:2]].

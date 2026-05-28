@@ -16,7 +16,7 @@ After I read, pondered, and prayed, the Lord gave me the assurance that Joseph S
 
 Why is it important to have living prophets to guide the true Church of Jesus Christ and its members?
 
-In the Guide to the Scriptures, we find the definition of the word *prophet:* “A person who has been called by and speaks for God. As a messenger of God, a prophet receives commandments, prophecies, and revelations from God” ([“Prophet,”](https://churchofjesuschrist.org/study/scriptures/gs/prophet?lang=eng) scriptures.lds.org; see also Bible Dictionary, [“Prophet”](https://churchofjesuschrist.org/study/scriptures/bd/prophet?lang=eng)).
+In the Guide to the Scriptures, we find the definition of the word *prophet:* “A person who has been called by and speaks for God. As a messenger of God, a prophet receives commandments, prophecies, and revelations from God” (“[Prophet](https://www.churchofjesuschrist.org/study/scriptures/gs/prophet?lang=eng),” scriptures.lds.org; see also Bible Dictionary, “[[BD Prophet|Prophet]]”).
 
 It is a great blessing to receive the word, commandments, and guidance of the Lord in these difficult days of the earth. The prophet can be inspired to see the future in benefit of mankind.
 
@@ -48,7 +48,7 @@ We learn a great lesson about this from the scriptures. In the times of Noah it 
 
 Fourth fundamental: *“The prophet will never lead the Church astray”* (“Fourteen Fundamentals,” 27).
 
-Again we learn from the living prophets. President Wilford Woodruff said: “The Lord will never permit me or any other man who stands as President of this Church to lead you astray. It is not in the programme. It is not in the mind of God. If I were to attempt that, the Lord would remove me out of my place, and so He will any other man who attempts to lead the children of men astray from the oracles of God and from their duty” (in excerpts from three addresses following [Official Declaration 1](https://churchofjesuschrist.org/study/scriptures/dc-testament/od/1?lang=eng) in the Doctrine and Covenants).
+Again we learn from the living prophets. President Wilford Woodruff said: “The Lord will never permit me or any other man who stands as President of this Church to lead you astray. It is not in the programme. It is not in the mind of God. If I were to attempt that, the Lord would remove me out of my place, and so He will any other man who attempts to lead the children of men astray from the oracles of God and from their duty” (in excerpts from three addresses following [[Official Declaration 1.1|Official Declaration 1]] in the Doctrine and Covenants).
 
 Fifth fundamental: *“The prophet is not required to have any particular earthly training or credentials to speak on any subject or act on any matter at any time”* (“Fourteen Fundamentals,” 27).
 
@@ -56,39 +56,37 @@ The Lord called a young man, Joseph Smith, to restore His Church. Do you think t
 
 President Benson continued:
 
-“Sixth: *The prophet does not have to say ‘Thus saith the Lord’ to give us scripture. …*
+“Sixth: *The prophet does not have to say ‘Thus saith the Lord’ to give us scripture. …*
 
 “Seventh: *The prophet tells us what we need to know, not always what we want to know*” (“Fourteen Fundamentals,” 27, 28).
 
-And then President Benson quoted from [[1 Nephi 16.1|1 Nephi 16:1, 3]][[1 Nephi 16.3|]]:
+And then President Benson quoted from [[1 Nephi 16.1|1 Nephi 16:1, 3]][[1 Nephi 16.3|]]:
 
-“And now it came to pass that after I, Nephi, had made an end of speaking to my brethren, behold they said unto me: Thou hast declared unto us hard things, more than we are able to bear. …
+“And now it came to pass that after I, Nephi, had made an end of speaking to my brethren, behold they said unto me: Thou hast declared unto us hard things, more than we are able to bear. …
 
 “And now my brethren, if ye were righteous and were willing to hearken to the truth, and give heed unto it, that ye might walk uprightly before God, then ye would not murmur because of the truth, and say: Thou speakest hard things against us.”
 
-Eighth fundamental: *“The prophet is not limited by men’s reasoning. …*
+Eighth fundamental: *“The prophet is not limited by men’s reasoning. …*
 
-“… Does it seem reasonable to cure leprosy by telling a man to wash seven times in a particular river? Yet this is precisely what the prophet Elisha told a leper to do, and he was healed. (See [[2 Kings 5.1|2 Kings 5]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]][[2 Kings 5.16|]][[2 Kings 5.17|]][[2 Kings 5.18|]][[2 Kings 5.19|]][[2 Kings 5.20|]][[2 Kings 5.21|]][[2 Kings 5.22|]][[2 Kings 5.23|]][[2 Kings 5.24|]][[2 Kings 5.25|]][[2 Kings 5.26|]][[2 Kings 5.27|]].)” (“Fourteen Fundamentals,” 28).
+“… Does it seem reasonable to cure leprosy by telling a man to wash seven times in a particular river? Yet this is precisely what the prophet Elisha told a leper to do, and he was healed. (See [[2 Kings 5.1|2 Kings 5]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]][[2 Kings 5.16|]][[2 Kings 5.17|]][[2 Kings 5.18|]][[2 Kings 5.19|]][[2 Kings 5.20|]][[2 Kings 5.21|]][[2 Kings 5.22|]][[2 Kings 5.23|]][[2 Kings 5.24|]][[2 Kings 5.25|]][[2 Kings 5.26|]][[2 Kings 5.27|]].)” (“Fourteen Fundamentals,” 28).
 
 And President Benson continued giving other principles about obedience to the prophet. I will read the last six and invite you in your next family home evening to find these principles in the words and teachings of our living prophets, seers, and revelators during this general conference.
 
-“Ninth: *The prophet can receive revelation on any matter—temporal or spiritual. …*
+“Ninth: *The prophet can receive revelation on any matter—temporal or spiritual. …*
 
-“Tenth: *The prophet may be involved in civic matters. …*
+“Tenth: *The prophet may be involved in civic matters. …*
 
-“Eleventh: *The two groups who have the greatest difficulty in following the prophet are the proud who are learned and the proud who are rich. …*
+“Eleventh: *The two groups who have the greatest difficulty in following the prophet are the proud who are learned and the proud who are rich. …*
 
-“Twelfth: *The prophet will not necessarily be popular with the world or the worldly. …*
+“Twelfth: *The prophet will not necessarily be popular with the world or the worldly. …*
 
-“Thirteenth: *The prophet and his counselors make up the First Presidency—the highest quorum in the Church. …*
+“Thirteenth: *The prophet and his counselors make up the First Presidency—the highest quorum in the Church. …*
 
 “Fourteenth: *The prophet and the presidency—the living prophet and the first presidency—follow them and be blessed; reject them and suffer*” (“Fourteen Fundamentals,” 29).
 
 We are privileged to have the words of our living prophets, seers, and revelators during this wonderful general conference. They will speak the will of the Lord for us, His people. They will transmit the word of God and His counsel to us. Pay attention and follow their instruction and suggestions, and I testify to you that your life will be completely blessed.
 
-Jesus is the Christ, our Savior and Redeemer. Thomas S. Monson is the living prophet of God, and the First Presidency and Quorum of the Twelve Apostles are prophets, seers, and revelators. In the name of Jesus Christ, amen.
-
-
+Jesus is the Christ, our Savior and Redeemer. Thomas S. Monson is the living prophet of God, and the First Presidency and Quorum of the Twelve Apostles are prophets, seers, and revelators. In the name of Jesus Christ, amen.
 
 
 

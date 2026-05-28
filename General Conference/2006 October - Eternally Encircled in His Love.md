@@ -53,14 +53,12 @@ My dear sisters, may the Lord bless you to feel His love daily as you keep your 
 
 
 
-[^1]: [[2 Nephi 1.15|2 Nephi 1:15]].
+[^1]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
-[^2]: [[1 Nephi 11.22|1 Nephi 11:22–23]][[1 Nephi 11.23|]]; emphasis added.
+[^2]: [[1 Nephi 11.22|1 Nephi 11:22–23]][[1 Nephi 11.23|]]; emphasis added.
 
 [^3]: “Words of the Living Prophet,” *Liahona,* Dec. 1996, 8; “Excerpts from Recent Addresses of President Gordon B. Hinckley,” *Ensign,* Apr. 1996, 73.
 
 [^4]: Personal correspondence.
 
-
-
-#Compassion #Jesus_Christ #Love #Sisterhood
+#Compassion #JesusChrist #Love #Sisterhood

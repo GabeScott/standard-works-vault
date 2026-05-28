@@ -71,6 +71,4 @@ May Heavenly Father bless you to know that you are one of His chosen sons in a b
 
 
 
-
-
-#Holy_Ghost #Jesus_Christ #Pioneers #Priesthood
+#HolyGhost #JesusChrist #Pioneers #Priesthood

@@ -1,11 +1,10 @@
 # Queen
 
-
 *queen* of Sheba heard of the fame of Solomon, [[1 Kings 10.1|1 Kings 10:1]] ([[2 Chronicles 9.1|2 Chronicles 9:1]]).
 
-his mother ... he removed from being *queen*, [[1 Kings 15.13|1 Kings 15:13]] ([[2 Chronicles 15.16|2 Chronicles 15:16]]).
+his mother … he removed from being *queen*, [[1 Kings 15.13|1 Kings 15:13]] ([[2 Chronicles 15.16|2 Chronicles 15:16]]).
 
-loved Esther ... made her *queen*, [[Esther 2.17|Esther 2:17]].
+loved Esther … made her *queen*, [[Esther 2.17|Esther 2:17]].
 
 upon thy right hand did stand the *queen*, [[Psalms 45.9|Psalms 45:9]].
 

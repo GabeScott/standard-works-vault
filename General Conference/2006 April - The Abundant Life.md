@@ -167,10 +167,8 @@ That we may do so is my humble prayer in the name of Jesus Christ, amen.
 
 [^10]: “Fundamentals of the Church Welfare Plan,” *Church News,* Mar. 2, 1946, 9.
 
-[^11]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^11]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 [^12]: Albert Camus, in John Bartlett, comp., *Familiar Quotations,* 16th ed. (1980), 732.
 
-
-
-#Individual_Worth #Joy #Kindness #Love
+#IndividualWorth #Joy #Kindness #Love

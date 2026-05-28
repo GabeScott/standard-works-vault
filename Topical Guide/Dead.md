@@ -1,7 +1,6 @@
 # Dead
 
-
-*See also* [[Death.md|Death]]; [[Die.md|Die]]; [BD Dead Sea](https://www.churchofjesuschrist.org/study/scriptures/bd/dead-sea?lang=eng); [Resurrection](https://www.churchofjesuschrist.org/study/scriptures/bd/resurrection?lang=eng)
+*See also* [[Death.md|Death]]; [[Die.md|Die]]; [[BD Dead Sea.md|BD Dead Sea]]; [[BD Resurrection.md|BD Resurrection]]
 
 buryingplace with you, that I may bury my *dead*, [[Genesis 23.4|Genesis 23:4]].
 
@@ -11,9 +10,9 @@ saw the Egyptians *dead* upon the sea shore, [[Exodus 14.30|Exodus 14:30]].
 
 he stood between the *dead* and the living, [[Numbers 16.48|Numbers 16:48]].
 
-that toucheth the *dead* body ... shall be unclean, [[Numbers 19.11|Numbers 19:11]].
+that toucheth the *dead* body … shall be unclean, [[Numbers 19.11|Numbers 19:11]].
 
-wife of the *dead* shall not marry ... a stranger, [[Deuteronomy 25.5|Deuteronomy 25:5]].
+wife of the *dead* shall not marry … a stranger, [[Deuteronomy 25.5|Deuteronomy 25:5]].
 
 saw their champion was *dead*, [[1 Samuel 17.51|1 Samuel 17:51]].
 
@@ -21,9 +20,9 @@ Samuel was *dead*, [[1 Samuel 28.3|1 Samuel 28:3]].
 
 laid her *dead* child in my bosom, [[1 Kings 3.20|1 Kings 3:20]].
 
-when Elisha was come ... the child was *dead*, [[2 Kings 4.32|2 Kings 4:32]].
+when Elisha was come … the child was *dead*, [[2 Kings 4.32|2 Kings 4:32]].
 
-shew wonders to the *dead* ? shall the *dead* arise, [[Psalms 88.10|Psalms 88:10]].
+shew wonders to the *dead*? shall the *dead* arise, [[Psalms 88.10|Psalms 88:10]].
 
 the *dead* know not any thing, [[Ecclesiastes 9.5|Ecclesiastes 9:5]].
 
@@ -33,7 +32,7 @@ the maid is not *dead*, [[Matthew 9.24|Matthew 9:24]] ([[Mark 5.39|Mark 5:39]]; 
 
 raise the *dead*, [[Matthew 10.8|Matthew 10:8]].
 
-John ... is risen from the *dead*, [[Matthew 14.2|Matthew 14:2]] ([[Mark 6.14|Mark 6:14]]; [[Luke 9.7|Luke 9:7]]).
+John … is risen from the *dead*, [[Matthew 14.2|Matthew 14:2]] ([[Mark 6.14|Mark 6:14]]; [[Luke 9.7|Luke 9:7]]).
 
 Son of man be risen again from the *dead*, [[Matthew 17.9|Matthew 17:9]] ([[Mark 9.9|Mark 9:9]]).
 
@@ -49,7 +48,7 @@ departed, leaving him half *dead*, [[Luke 10.30|Luke 10:30]].
 
 For this my son was *dead*, and is alive, [[Luke 15.24|Luke 15:24]].
 
-if one went ... from the *dead*, they will repent, [[Luke 16.30|Luke 16:30]].
+if one went … from the *dead*, they will repent, [[Luke 16.30|Luke 16:30]].
 
 Why seek ye the living among the *dead*, [[Luke 24.5|Luke 24:5]].
 
@@ -59,17 +58,17 @@ Abraham is *dead*, [[John 8.52|John 8:52]].
 
 though he were *dead*, yet shall he live, [[John 11.25|John 11:25]].
 
-Prince of life ... raised from the *dead*, [[Acts 3.15|Acts 3:15]].
+Prince of life … raised from the *dead*, [[Acts 3.15|Acts 3:15]].
 
 ordained of God to be the Judge of quick and *dead*, [[Acts 10.42|Acts 10:42]].
 
-drew him out ... supposing he had been *dead*, [[Acts 14.19|Acts 14:19]].
+drew him out … supposing he had been *dead*, [[Acts 14.19|Acts 14:19]].
 
 have suffered, and risen again from the *dead*, [[Acts 17.3|Acts 17:3]].
 
 resurrection of the *dead*, both of the just and unjust, [[Acts 24.15|Acts 24:15]].
 
-incredible ... that God should raise the *dead*, [[Acts 26.8|Acts 26:8]].
+incredible … that God should raise the *dead*, [[Acts 26.8|Acts 26:8]].
 
 through the offence of one many be *dead*, [[Romans 5.15|Romans 5:15]].
 
@@ -145,7 +144,7 @@ land was covered with the bodies of the *dead*, [[Ether 14.21|Ether 14:21]].
 
 *dead* which died in me, to receive a crown of righteousness, [[D&C 29.13|D&C 29:13]].
 
-*dead* ... live not again until the thousand years are ended, [[D&C 88.101|D&C 88:101]].
+*dead* … live not again until the thousand years are ended, [[D&C 88.101|D&C 88:101]].
 
 baptized for those who are *dead*, [[D&C 124.29|D&C 124:29]].
 
@@ -155,8 +154,8 @@ book containing the records of our *dead*, [[D&C 128.24|D&C 128:24]].
 
 I saw the hosts of the *dead*, [[D&C 138.11|D&C 138:11]] ([[D&C 138.60|D&C 138:60]]).
 
-ministry among ... *dead* was limited, [[D&C 138.27|D&C 138:27]].
+ministry among … *dead* was limited, [[D&C 138.27|D&C 138:27]].
 
-ordinances ... for the redemption of the *dead*, [[D&C 138.54|D&C 138:54]].
+ordinances … for the redemption of the *dead*, [[D&C 138.54|D&C 138:54]].
 
 *dead* who repent will be redeemed, [[D&C 138.58|D&C 138:58]].

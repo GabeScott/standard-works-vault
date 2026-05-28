@@ -1,6 +1,5 @@
 # Consumption
 
-
 appoint over you terror, *consumption*, [[Leviticus 26.16|Leviticus 26:16]].
 
 Lord shall smite thee with a *consumption*, [[Deuteronomy 28.22|Deuteronomy 28:22]].

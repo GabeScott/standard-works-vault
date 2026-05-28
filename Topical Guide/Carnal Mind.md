@@ -1,13 +1,12 @@
 # Carnal Mind
 
-
 *See also* [[Carnal.md|Carnal]]; [[Fall of Man.md|Fall of Man]]; [[Hell.md|Hell]]; [[Lust.md|Lust]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Sensuality.md|Sensuality]]; [[Worldliness.md|Worldliness]]
 
 thoughts of his heart was only *evil*, [[Genesis 6.5|Genesis 6:5]] ([[Genesis 8.21|Genesis 8:21]]).
 
 put away *evil* from thy flesh, [[Ecclesiastes 11.10|Ecclesiastes 11:10]].
 
-the daughters of Zion ... walk with ... *wanton* eyes, [[Isaiah 3.16|Isaiah 3:16]].
+the daughters of Zion … walk with … *wanton* eyes, [[Isaiah 3.16|Isaiah 3:16]].
 
 whosoever looketh on a woman to *lust* after her, [[Matthew 5.28|Matthew 5:28]] ([[3 Nephi 12.28|3 Nephi 12:28]]; [[D&C 42.23|D&C 42:23]]).
 
@@ -35,10 +34,10 @@ they had become *carnal*, sensual, and devilish, [[Alma 42.10|Alma 42:10]] ([[Mo
 
 follows after the dictates of his own will and *carnal* desires, he must fall, [[D&C 3.4|D&C 3:4]].
 
-commandments are spiritual ... neither *carnal* nor sensual, [[D&C 29.35|D&C 29:35]].
+commandments are spiritual … neither *carnal* nor sensual, [[D&C 29.35|D&C 29:35]].
 
-shall see me ... not with the *carnal* neither natural mind, [[D&C 67.10|D&C 67:10]].
+shall see me … not with the *carnal* neither natural mind, [[D&C 67.10|D&C 67:10]].
 
-cease ... from all your *lustful* desires, [[D&C 88.121|D&C 88:121]].
+cease … from all your *lustful* desires, [[D&C 88.121|D&C 88:121]].
 
 *lustful* and covetous desires among them, [[D&C 101.6|D&C 101:6]].

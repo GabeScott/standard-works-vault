@@ -1,6 +1,6 @@
 # “Anonymous”
 
-By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -10,7 +10,7 @@ Recently, I approached the reception desk of a large hospital to learn the room 
 
 The names of the benefactors were well known. Captains of commerce, giants of industry, professors of learning—all were there. I felt gratitude for their charitable benevolence. Then my eyes rested on a brass placard which was different—it contained no name. One word, and one word only, was inscribed: “Anonymous.” I smiled and wondered who the unnamed contributor could have been. Surely he or she experienced a quiet joy unknown to any other.
 
-My thoughts turned backward in time—back to the Holy Land; back to Him whom we especially remember this Easter Sunday; back to Him who redeemed from the grave all mankind; back to Him who on that special mountain taught His disciples the true spirit of giving when He counseled, “Take heed that ye do not your alms before men, to be seen of them. …
+My thoughts turned backward in time—back to the Holy Land; back to Him whom we especially remember this Easter Sunday; back to Him who redeemed from the grave all mankind; back to Him who on that special mountain taught His disciples the true spirit of giving when He counseled, “Take heed that ye do not your alms before men, to be seen of them. …
 
 “But when thou doest alms, let not thy left hand know what thy right hand doeth.” ([[Matthew 6.1|Matt. 6:1, 3]][[Matthew 6.3|]].)
 
@@ -74,7 +74,7 @@ By this time, John Weightman was impatient to see what mansion awaited him. As h
 
 In desperation, John Weightman argued, “Have you not heard that I have built a schoolhouse; a wing of a hospital; … three … churches?”
 
-“Wait,” the guide cautioned. “… They were not ill done. But they were all marked and used as foundations for the name and mansion of John Weightman in the world. … Verily, you have had your reward for them. Would you be paid twice?”
+“Wait,” the guide cautioned. “… They were not ill done. But they were all marked and used as foundations for the name and mansion of John Weightman in the world. … Verily, you have had your reward for them. Would you be paid twice?”
 
 A sadder but wiser John Weightman spoke more lowly: “What is it that counts here?”
 
@@ -91,8 +91,6 @@ John Weightman was awakened by the sound of the clock chiming the hour of seven.
 May this truth guide our lives. May we look upward as we press forward in the service of our God and our fellowmen. And may we incline an ear toward Galilee, that we might hear perhaps an echo of the Savior’s teachings: “Do not your alms before men, to be seen of them.” ([[Matthew 6.1|Matt. 6:1]].) “Let not thy left hand know what thy right hand doeth.” ([[Matthew 6.3|Matt. 6:3]].) And of our good deeds: “See thou tell no man.” ([[Matthew 8.4|Matt. 8:4]].) Our hearts will then be lighter, our lives brighter, and our souls richer.
 
 Loving service anonymously given may be unknown to man—but the gift and the giver are known to God. Of this truth I testify, in the name of Jesus Christ, amen.
-
-
 
 
 

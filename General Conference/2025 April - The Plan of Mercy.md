@@ -1,6 +1,6 @@
 # The Plan of Mercy
 
-By Elder James R. Rasband - *Of the Seventy*
+By Elder James R. Rasband - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -10,7 +10,7 @@ By Elder James R. Rasband - *Of the Seventy*
 
 ## A Prophet’s Invitation
 
-Last April, soon after the joyful news that the Church had acquired the Kirtland Temple, President Russell M. Nelson invited us to study the dedicatory prayer of the Kirtland Temple, recorded in [[D&C 109.1|section 109 of the Doctrine and Covenants]][[D&C 109.2|]][[D&C 109.3|]][[D&C 109.4|]][[D&C 109.5|]][[D&C 109.6|]][[D&C 109.7|]][[D&C 109.8|]][[D&C 109.9|]][[D&C 109.10|]][[D&C 109.11|]][[D&C 109.12|]][[D&C 109.13|]][[D&C 109.14|]][[D&C 109.15|]][[D&C 109.16|]][[D&C 109.17|]][[D&C 109.18|]][[D&C 109.19|]][[D&C 109.20|]][[D&C 109.21|]][[D&C 109.22|]][[D&C 109.23|]][[D&C 109.24|]][[D&C 109.25|]][[D&C 109.26|]][[D&C 109.27|]][[D&C 109.28|]][[D&C 109.29|]][[D&C 109.30|]][[D&C 109.31|]][[D&C 109.32|]][[D&C 109.33|]][[D&C 109.34|]][[D&C 109.35|]][[D&C 109.36|]][[D&C 109.37|]][[D&C 109.38|]][[D&C 109.39|]][[D&C 109.40|]][[D&C 109.41|]][[D&C 109.42|]][[D&C 109.43|]][[D&C 109.44|]][[D&C 109.45|]][[D&C 109.46|]][[D&C 109.47|]][[D&C 109.48|]][[D&C 109.49|]][[D&C 109.50|]][[D&C 109.51|]][[D&C 109.52|]][[D&C 109.53|]][[D&C 109.54|]][[D&C 109.55|]][[D&C 109.56|]][[D&C 109.57|]][[D&C 109.58|]][[D&C 109.59|]][[D&C 109.60|]][[D&C 109.61|]][[D&C 109.62|]][[D&C 109.63|]][[D&C 109.64|]][[D&C 109.65|]][[D&C 109.66|]][[D&C 109.67|]][[D&C 109.68|]][[D&C 109.69|]][[D&C 109.70|]][[D&C 109.71|]][[D&C 109.72|]][[D&C 109.73|]][[D&C 109.74|]][[D&C 109.75|]][[D&C 109.76|]][[D&C 109.77|]][[D&C 109.78|]][[D&C 109.79|]][[D&C 109.80|]].[^1] The dedicatory prayer, said President Nelson, “is a tutorial about how the temple spiritually empowers you and me to meet the challenges of life in these last days.”[^2]
+Last April, soon after the joyful news that the Church had acquired the Kirtland Temple, President Russell M. Nelson invited us to study the dedicatory prayer of the Kirtland Temple, recorded in [[D&C 109.1|section 109 of the Doctrine and Covenants]][[D&C 109.2|]][[D&C 109.3|]][[D&C 109.4|]][[D&C 109.5|]][[D&C 109.6|]][[D&C 109.7|]][[D&C 109.8|]][[D&C 109.9|]][[D&C 109.10|]][[D&C 109.11|]][[D&C 109.12|]][[D&C 109.13|]][[D&C 109.14|]][[D&C 109.15|]][[D&C 109.16|]][[D&C 109.17|]][[D&C 109.18|]][[D&C 109.19|]][[D&C 109.20|]][[D&C 109.21|]][[D&C 109.22|]][[D&C 109.23|]][[D&C 109.24|]][[D&C 109.25|]][[D&C 109.26|]][[D&C 109.27|]][[D&C 109.28|]][[D&C 109.29|]][[D&C 109.30|]][[D&C 109.31|]][[D&C 109.32|]][[D&C 109.33|]][[D&C 109.34|]][[D&C 109.35|]][[D&C 109.36|]][[D&C 109.37|]][[D&C 109.38|]][[D&C 109.39|]][[D&C 109.40|]][[D&C 109.41|]][[D&C 109.42|]][[D&C 109.43|]][[D&C 109.44|]][[D&C 109.45|]][[D&C 109.46|]][[D&C 109.47|]][[D&C 109.48|]][[D&C 109.49|]][[D&C 109.50|]][[D&C 109.51|]][[D&C 109.52|]][[D&C 109.53|]][[D&C 109.54|]][[D&C 109.55|]][[D&C 109.56|]][[D&C 109.57|]][[D&C 109.58|]][[D&C 109.59|]][[D&C 109.60|]][[D&C 109.61|]][[D&C 109.62|]][[D&C 109.63|]][[D&C 109.64|]][[D&C 109.65|]][[D&C 109.66|]][[D&C 109.67|]][[D&C 109.68|]][[D&C 109.69|]][[D&C 109.70|]][[D&C 109.71|]][[D&C 109.72|]][[D&C 109.73|]][[D&C 109.74|]][[D&C 109.75|]][[D&C 109.76|]][[D&C 109.77|]][[D&C 109.78|]][[D&C 109.79|]][[D&C 109.80|]].[^1] The dedicatory prayer, said President Nelson, “is a tutorial about how the temple spiritually empowers you and me to meet the challenges of life in these last days.”[^2]
 
 I am sure your study of section 109 yielded insights that blessed you. This evening, I share a couple of things I learned as I followed our prophet’s invitation. The peace-giving path down which my study led reminded me that the Lord is merciful and that our Heavenly Father’s plan of salvation is truly a plan of mercy.
 
@@ -28,7 +28,7 @@ This is a beautiful promise for a newly called missionary—to have prejudices �
 
 As I studied the Kirtland dedicatory prayer, I was also struck that Joseph again and again pleaded for mercy—for the members of the Church,[^7] for the enemies of the Church,[^8] for the leaders of the country, for the nations of the earth.[^9] And, very personally, he pleaded with the Lord to remember him[^10] and to have mercy upon his beloved Emma and their children.[^11]
 
-How must Joseph have felt when, one week later, on Easter Day, April 3, 1836, in the Kirtland Temple, the Savior appeared to him and Oliver Cowdery and, as recorded in [[D&C 110.1|section 110 of the Doctrine and Covenants]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]], said, “I have accepted this house, and my name shall be here; and I will manifest myself to my people in mercy in this house.”[^12] This promise of mercy must have had special meaning to Joseph.[^13] And as President Nelson taught last April, this promise also “applies to *every* dedicated temple today.”[^14]
+How must Joseph have felt when, one week later, on Easter Day, April 3, 1836, in the Kirtland Temple, the Savior appeared to him and Oliver Cowdery and, as recorded in [[D&C 110.1|section 110 of the Doctrine and Covenants]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]], said, “I have accepted this house, and my name shall be here; and I will manifest myself to my people in mercy in this house.”[^12] This promise of mercy must have had special meaning to Joseph.[^13] And as President Nelson taught last April, this promise also “applies to *every* dedicated temple today.”[^14]
 
 ## Finding Mercy in the House of the Lord
 
@@ -46,7 +46,7 @@ This pattern of revelation following a plea for mercy is a familiar one in the s
 
 ## Pondering God’s Mercy Opens the Door to a Testimony of the Book of Mormon
 
-A similar principle is beautifully taught in [[Moroni 10.3|Moroni 10:3–5]][[Moroni 10.4|]][[Moroni 10.5|]]. We often shorthand these verses to teach that through sincere prayer, we can learn whether the Book of Mormon is true. But this shorthand can neglect the important role of mercy. Listen to how Moroni begins his exhortation: “I would exhort you that when ye shall read these things, … that ye would remember how merciful the Lord hath been unto the children of men, from the creation of Adam even down until the time that ye shall receive these things, and ponder it in your hearts.”[^25]
+A similar principle is beautifully taught in [[Moroni 10.3|Moroni 10:3–5]][[Moroni 10.4|]][[Moroni 10.5|]]. We often shorthand these verses to teach that through sincere prayer, we can learn whether the Book of Mormon is true. But this shorthand can neglect the important role of mercy. Listen to how Moroni begins his exhortation: “I would exhort you that when ye shall read these things, … that ye would remember how merciful the Lord hath been unto the children of men, from the creation of Adam even down until the time that ye shall receive these things, and ponder it in your hearts.”[^25]
 
 Moroni urges us not only to read these things—the records he was about to seal up—but also to *ponder* in our hearts what the Book of Mormon reveals about “how merciful the Lord hath been unto the children of men.”[^26] It is pondering upon the Lord’s mercy that prepares us to “ask God, the Eternal Father, in the name of Christ, if these things are not true.”[^27]
 
@@ -67,17 +67,17 @@ I express my gratitude for the Father’s great plan of mercy and for the Savior
 
 
 
-[^1]: See Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 121.
+[^1]: See Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 121.
 
-[^2]: Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” 121.
+[^2]: Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” 121.
 
-[^3]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [24.5.1](https://churchofjesuschrist.org/study/manual/general-handbook/24?lang=eng&id=title37#title37), Gospel Library.
+[^3]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [24.5.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/24?lang=eng&id=title37#title37), Gospel Library.
 
-[^4]: As with all temple blessings, God’s bestowal of these blessings is dependent upon our keeping the covenants we make in the temple. See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96: “Each person who makes covenants … in temples—and keeps them—has increased access to the power of Jesus Christ.”
+[^4]: As with all temple blessings, God’s bestowal of these blessings is dependent upon our keeping the covenants we make in the temple. See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96: “Each person who makes covenants … in temples—and keeps them—has increased access to the power of Jesus Christ.”
 
 [^5]: [[D&C 109.55|Doctrine and Covenants 109:55–57]][[D&C 109.56|]][[D&C 109.57|]].
 
-[^6]: See Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121–22: “*Here is my promise to you: Every sincere seeker of Jesus Christ will find Him in the temple.* You will feel His mercy.”
+[^6]: See Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121–22: “*Here is my promise to you: Every sincere seeker of Jesus Christ will find Him in the temple.* You will feel His mercy.”
 
 [^7]: See [[D&C 109.34|Doctrine and Covenants 109:34]]: “Have mercy upon this people, and as all men sin, forgive the transgressions of thy people, and let them be blotted out forever.”
 
@@ -93,31 +93,31 @@ I express my gratitude for the Father’s great plan of mercy and for the Savior
 
 [^13]: In a manifestation of personalized mercy, Joseph and Oliver were told, “Behold, your sins are forgiven you; you are clean before me; therefore, lift up your heads and rejoice” ([[D&C 110.5|Doctrine and Covenants 110:5]]).
 
-[^14]: Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” 119. President Nelson said, “I invite you to ponder what the Lord’s promise means for you personally.”
+[^14]: Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” 119. President Nelson said, “I invite you to ponder what the Lord’s promise means for you personally.”
 
-[^15]: See Bible Dictionary, “[Tabernacle](https://churchofjesuschrist.org/study/scriptures/bd/tabernacle?lang=eng&id=p7#p7)”: “The Holy of Holies contained only one piece of furniture: the Ark of the Covenant. … Upon the ark and forming the lid was the mercy seat. It served, with the ark beneath, as an altar on which the highest atonement known to the Jewish law was effected. On it was sprinkled the blood of the sin offering of the Day of Atonement ([[Leviticus 16.14|Lev. 16:14–15]][[Leviticus 16.15|]]). The mercy seat was the place of the manifestation of God’s glory ([[Exodus 25.22|Ex. 25:22]]).”
+[^15]: See Bible Dictionary, “[[BD Tabernacle|Tabernacle]]”: “The Holy of Holies contained only one piece of furniture: the Ark of the Covenant. … Upon the ark and forming the lid was the mercy seat. It served, with the ark beneath, as an altar on which the highest atonement known to the Jewish law was effected. On it was sprinkled the blood of the sin offering of the Day of Atonement ([[Leviticus 16.14|Lev. 16:14–15]][[Leviticus 16.15|]]). The mercy seat was the place of the manifestation of God’s glory ([[Exodus 25.22|Ex. 25:22]]).”
 
-[^16]: Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p9#p9),” *Liahona*, Oct. 2022, 5. As President Nelson points out, *hesed* has no precise English equivalent, but its most common translation in the Old Testament is *mercy*. Of the 248 times the word *hesed* appears in the King James Version of the Old Testament, *mercy* is used 149 times, *kindness* 40 times, and *lovingkindness* 30 times (see Blue Letter Bible, blueletterbible.org/lexicon/h2617/kjv/wlc/0-1/).
+[^16]: Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p9#p9),” *Liahona*, Oct. 2022, 5. As President Nelson points out, *hesed* has no precise English equivalent, but its most common translation in the Old Testament is *mercy*. Of the 248 times the word *hesed* appears in the King James Version of the Old Testament, *mercy* is used 149 times, *kindness* 40 times, and *lovingkindness* 30 times (see Blue Letter Bible, blueletterbible.org/lexicon/h2617/kjv/wlc/0-1/).
 
-[^17]: See *General Handbook*, [27.2](https://churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11). The Savior teaches us that none of us can come unto the Father except through Him (see [[John 14.6|John 14:6]]). In the Doctrine and Covenants, the Savior provides this beautiful description of His plea for mercy on our behalf:
+[^17]: See *General Handbook*, [27.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11). The Savior teaches us that none of us can come unto the Father except through Him (see [[John 14.6|John 14:6]]). In the Doctrine and Covenants, the Savior provides this beautiful description of His plea for mercy on our behalf:
 
-[^18]: President Jeffrey R. Holland once said, “Surely the thing God enjoys most about being God is the thrill of being merciful, especially to those who don’t expect it and often feel they don’t deserve it” (“[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona*, May 2012, 33). See also [[D&C 128.19|Doctrine and Covenants 128:19]]: “Now, what do we hear in the gospel which we have received? A voice of gladness! A voice of mercy from heaven; and a voice of truth out of the earth; glad tidings for the dead; a voice of gladness for the living and the dead; glad tidings of great joy.”
+[^18]: President Jeffrey R. Holland once said, “Surely the thing God enjoys most about being God is the thrill of being merciful, especially to those who don’t expect it and often feel they don’t deserve it” (“[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona*, May 2012, 33). See also [[D&C 128.19|Doctrine and Covenants 128:19]]: “Now, what do we hear in the gospel which we have received? A voice of gladness! A voice of mercy from heaven; and a voice of truth out of the earth; glad tidings for the dead; a voice of gladness for the living and the dead; glad tidings of great joy.”
 
-[^19]: [[Alma 42.15|Alma 42:15]]. Mercy has always been at the very center of the plan of salvation. Three advent scriptures are illustrative. Nephi concludes the very first chapter of the Book of Mormon by saying, “Behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance” ([[1 Nephi 1.20|1 Nephi 1:20]]).
+[^19]: [[Alma 42.15|Alma 42:15]]. Mercy has always been at the very center of the plan of salvation. Three advent scriptures are illustrative. Nephi concludes the very first chapter of the Book of Mormon by saying, “Behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance” ([[1 Nephi 1.20|1 Nephi 1:20]]).
 
-[^20]: Gospel Topics Essays, “[First Vision Accounts](https://churchofjesuschrist.org/study/manual/gospel-topics-essays/first-vision-accounts?lang=eng&id=p5#p5),” Gospel Library; see especially [the 1832 account](https://churchofjesuschrist.org/study/manual/first-vision-accounts/1832-account?lang=eng).
+[^20]: Gospel Topics Essays, “[First Vision Accounts](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/first-vision-accounts?lang=eng&id=p5#p5),” Gospel Library; see especially [the 1832 account](https://www.churchofjesuschrist.org/study/manual/first-vision-accounts/1832-account?lang=eng).
 
 [^21]: [[Joseph Smith History 1.29|Joseph Smith—History 1:29]]. [[D&C 20.5|Doctrine and Covenants 20:5–6]][[D&C 20.6|]] provides another description of the role of repentance in these two powerful visions. Joseph said that “no one need suppose me guilty of any great or malignant sins,” but he “felt condemned for \[his\] weaknesses and imperfections” and needed forgiveness ([[Joseph Smith History 1.28|Joseph Smith—History 1:28, 29]][[Joseph Smith History 1.29|]]).
 
 [^22]: See [[Enos 1.1|Enos 1:1–8]][[Enos 1.2|]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].
 
-[^23]: [[Alma 22.18|Alma 22:18]]. Alma’s prayer, “O Jesus, thou Son of God, have mercy on me,” leads to a flood of light and relief from pain (see [[Alma 36.17|Alma 36:17–20]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]]). President Jeffrey R. Holland once said of Alma’s plea: “Perhaps such a prayer, though brief, is the most significant one that can be uttered in a fallen world. Whatever other prayers we offer, whatever other needs we have, all come back to that plea: ‘O Jesus, thou Son of God, have mercy on me’” (*Our Day Star Rising: Exploring the New Testament with Jeffrey R. Holland* \[2022\], 170–71).
+[^23]: [[Alma 22.18|Alma 22:18]]. Alma’s prayer, “O Jesus, thou Son of God, have mercy on me,” leads to a flood of light and relief from pain (see [[Alma 36.17|Alma 36:17–20]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]]). President Jeffrey R. Holland once said of Alma’s plea: “Perhaps such a prayer, though brief, is the most significant one that can be uttered in a fallen world. Whatever other prayers we offer, whatever other needs we have, all come back to that plea: ‘O Jesus, thou Son of God, have mercy on me’” (*Our Day Star Rising: Exploring the New Testament with Jeffrey R. Holland* \[2022\], 170–71).
 
-[^24]: Elder Kyle S. McKay beautifully taught, “Joseph’s life of regular repentance gives me confidence to ‘come boldly unto the throne of grace, that \[I\] may obtain mercy’” (“[[2024 October - The Man Who Communed with Jehovah.md|The Man Who Communed with Jehovah]],” *Liahona*, Nov. 2024, 61).
+[^24]: Elder Kyle S. McKay beautifully taught, “Joseph’s life of regular repentance gives me confidence to ‘come boldly unto the throne of grace, that \[I\] may obtain mercy’” (“[[2024 October - The Man Who Communed with Jehovah.md|The Man Who Communed with Jehovah]],” *Liahona*, Nov. 2024, 61).
 
 [^25]: [[Moroni 10.3|Moroni 10:3]].
 
-[^26]: Moroni’s plea is a bookend to Nephi’s statement at the very beginning of the Book of Mormon, where he states his own purpose in writing on the plates: “Behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance” ([[1 Nephi 1.20|1 Nephi 1:20]]).
+[^26]: Moroni’s plea is a bookend to Nephi’s statement at the very beginning of the Book of Mormon, where he states his own purpose in writing on the plates: “Behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance” ([[1 Nephi 1.20|1 Nephi 1:20]]).
 
 [^27]: [[Moroni 10.4|Moroni 10:4]].
 
@@ -131,7 +131,7 @@ I express my gratitude for the Father’s great plan of mercy and for the Savior
 
 [^32]: [[Mosiah 3.11|Mosiah 3:11]].
 
-[^33]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^33]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^34]: [[Mosiah 14.5|Mosiah 14:5]].
 
@@ -139,10 +139,8 @@ I express my gratitude for the Father’s great plan of mercy and for the Savior
 
 [^36]: [[Moroni 10.3|Moroni 10:3]].
 
-[^37]: President M. Russell Ballard encouraged us “to bear testimony of what you *know* and *believe* and what you *feel*” (“[[2023 April - Remember What Matters Most.md|Remember What Matters Most]],” *Liahona*, May 2023, 107).
+[^37]: President M. Russell Ballard encouraged us “to bear testimony of what you *know* and *believe* and what you *feel*” (“[[2023 April - Remember What Matters Most.md|Remember What Matters Most]],” *Liahona*, May 2023, 107).
 
-[^38]: In offering this suggestion, I do not intend to offer a substitute “formula” for a testimony of the truthfulness of the Book of Mormon or the gospel. As Elder David A. Bednar has taught, revelation can come like “a light turned on in a dark room,” where the revelation is received “quickly, completely and all at once.” It can also come like the “gradual increase of light radiating from the rising sun, … ‘line upon line, precept upon precept’ ([[2 Nephi 28.30|2 Nephi 28:30]]). … Such communications from Heavenly Father gradually and gently ‘distil upon \[our souls\] as the dews from heaven’ \[[[D&C 121.45|Doctrine and Covenants 121:45]]\]. This pattern of revelation tends to be more common than rare” (“[[2011 April - The Spirit of Revelation.md|The Spirit of Revelation]],” *Ensign* or *Liahona*, May 2011, 88).
+[^38]: In offering this suggestion, I do not intend to offer a substitute “formula” for a testimony of the truthfulness of the Book of Mormon or the gospel. As Elder David A. Bednar has taught, revelation can come like “a light turned on in a dark room,” where the revelation is received “quickly, completely and all at once.” It can also come like the “gradual increase of light radiating from the rising sun, … ‘line upon line, precept upon precept’ ([[2 Nephi 28.30|2 Nephi 28:30]]). … Such communications from Heavenly Father gradually and gently ‘distil upon \[our souls\] as the dews from heaven’ \[[[D&C 121.45|Doctrine and Covenants 121:45]]\]. This pattern of revelation tends to be more common than rare” (“[[2011 April - The Spirit of Revelation.md|The Spirit of Revelation]],” *Ensign* or *Liahona*, May 2011, 88).
 
-
-
-#Book_Of_Mormon #Mercy #Plan_Of_Salvation #Temples
+#BookOfMormon #Mercy #PlanOfSalvation #Temples

@@ -48,13 +48,11 @@ Sisters, in conclusion, remember my father’s net and build a living network in
 
 “The Lord make you to increase and abound in love one toward another, and toward all … even as we do toward you:
 
-“To the end he may stablish your hearts unblameable in holiness before God, even our Father, at the coming of our Lord Jesus Christ with all his saints” ([[1 Thessalonians 3.12|1 Thes. 3:12–13]][[1 Thessalonians 3.13|]]).
+“To the end he may stablish your hearts unblameable in holiness before God, even our Father, at the coming of our Lord Jesus Christ with all his saints” ([[1 Thessalonians 3.12|1 Thes. 3:12–13]][[1 Thessalonians 3.13|]]).
 
 So may it be, I pray in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Blessings #God_The_Father #Individual_Worth #Jesus_Christ #Relief_Society #Service #Women
+#Blessings #GodTheFather #IndividualWorth #JesusChrist #ReliefSociety #Service #Women

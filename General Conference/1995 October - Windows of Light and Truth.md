@@ -83,7 +83,7 @@ I testify that the windows of heaven are indeed open. President Gordon B. Hinckl
 
 
 
-[^1]: [[Articles of Faith 1.9|A of F 1:9]].
+[^1]: [[Articles of Faith 1.9|A of F 1:9]].
 
 [^2]: [[Amos 3.7|Amos 3:7]].
 
@@ -93,7 +93,7 @@ I testify that the windows of heaven are indeed open. President Gordon B. Hinckl
 
 [^5]: [[D&C 121.36|D&C 121:36]].
 
-[^6]: Ezra Taft Benson, mission presidents’ seminar, 21 June 1988; see *The Teachings of Ezra Taft Benson* (Salt Lake City: Bookcraft, 1988), p. 26. See also S. Dilworth Young, in Conference Report, Apr. 1952, p. 29; Bruce R. McConkie, *The Promised Messiah* (Salt Lake City: Deseret Book Co., 1978), p. 126; and *Mormon Doctrine,* 2nd ed. (Salt Lake City: Bookcraft, 1966), p. 539.
+[^6]: Ezra Taft Benson, mission presidents’ seminar, 21 June 1988; see *The Teachings of Ezra Taft Benson* (Salt Lake City: Bookcraft, 1988), p. 26. See also S. Dilworth Young, in Conference Report, Apr. 1952, p. 29; Bruce R. McConkie, *The Promised Messiah* (Salt Lake City: Deseret Book Co., 1978), p. 126; and *Mormon Doctrine,* 2nd ed. (Salt Lake City: Bookcraft, 1966), p. 539.
 
 [^7]: [[Alma 7.23|Alma 7:23]]; emphasis added.
 
@@ -105,7 +105,7 @@ I testify that the windows of heaven are indeed open. President Gordon B. Hinckl
 
 [^11]: [[D&C 1.4|D&C 1:4–5]][[D&C 1.5|]].
 
-[^12]: [[3 Nephi 5.13|3 Ne. 5:13]].
+[^12]: [[3 Nephi 5.13|3 Ne. 5:13]].
 
 [^13]: [[D&C 1.5|D&C 1:5, 2]][[D&C 1.2|]]; emphasis added.
 
@@ -119,15 +119,15 @@ I testify that the windows of heaven are indeed open. President Gordon B. Hinckl
 
 [^18]: [[Malachi 3.10|Mal. 3:10]].
 
-[^19]: In Conference Report, Apr. 1982, p. 60; or *Ensign,* May 1982, p. 40; emphasis added.
+[^19]: In Conference Report, Apr. 1982, [[1982 April - Tithing - An Opportunity to Prove Our Faithfulness.md|p. 60]]; or *Ensign,* May 1982, p. 40; emphasis added.
 
 [^20]: [[D&C 89.1|D&C 89:1, 4]][[D&C 89.4|]].
 
-[^21]: See “Milestones,” *Time,* 24 July 1995, p. 19.
+[^21]: See “Milestones,” *Time,* 24 July 1995, p. 19.
 
 [^22]: See [[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]].
 
-[^23]: See Russell M. Nelson, in Conference Report, Oct. 1986, pp. 87–88; or *Ensign,* Nov. 1986, p. 69. See also James E. Enstrom, “Health Practices and Cancer Mortality among Active California Mormons,” *Journal of the National Cancer Institute,* 6 Dec. 1989, pp. 1807–14; Edward Norden, “How to Live as Long as They Do,” *Longevity,* Sept. 1990, pp. 72–73.
+[^23]: See Russell M. Nelson, in Conference Report, Oct. 1986, [[1986 October - “Joy Cometh in the Morning”.md|pp. 87–88]]; or *Ensign,* Nov. 1986, p. 69. See also James E. Enstrom, “Health Practices and Cancer Mortality among Active California Mormons,” *Journal of the National Cancer Institute,* 6 Dec. 1989, pp. 1807–14; Edward Norden, “How to Live as Long as They Do,” *Longevity,* Sept. 1990, pp. 72–73.
 
 [^24]: [[D&C 89.19|D&C 89:19]].
 
@@ -135,12 +135,10 @@ I testify that the windows of heaven are indeed open. President Gordon B. Hinckl
 
 [^26]: [[Moses 6.61|Moses 6:61]].
 
-[^27]: In Conference Report, Apr. 1989, p. 41; or *Ensign,* May 1989, pp. 32–33; emphasis added.
+[^27]: In Conference Report, Apr. 1989, [[1989 April - The Gift of the Holy Ghost—A Sure Compass.md|p. 41]]; or *Ensign,* May 1989, pp. 32–33; emphasis added.
 
 [^28]: [[D&C 38.1|D&C 38:1]].
 
 [^29]: [[D&C 76.112|D&C 76:112]].
 
-
-
-#Word_Of_Wisdom #Worship
+#WordOfWisdom #Worship

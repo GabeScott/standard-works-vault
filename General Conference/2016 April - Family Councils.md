@@ -1,6 +1,6 @@
 # Family Councils
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -68,7 +68,7 @@ You may want to consider holding the general family council on Sunday, which is 
 
 **The second type of family council** is an executive family council that involves only the parents. During this time together, parents can review each child’s physical, emotional, and spiritual needs and his or her progress.
 
-The executive family council is also a good time for wives and husbands to talk about their personal relationships with each other. When Elder Harold B. Lee performed our sealing, he taught us a principle that I believe all couples will find helpful. He said, “Never retire without kneeling together, holding hands, and saying your prayers. Such prayers invite Heavenly Father to counsel us by the power of the Spirit.”
+The executive family council is also a good time for wives and husbands to talk about their personal relationships with each other. When Elder Harold B. Lee performed our sealing, he taught us a principle that I believe all couples will find helpful. He said, “Never retire without kneeling together, holding hands, and saying your prayers. Such prayers invite Heavenly Father to counsel us by the power of the Spirit.”
 
 **The third type of family council** is a limited family council. Here, both parents spend time with an individual child in a formal or an informal setting. This is an opportunity for a discussion on *making decisions in advance* about such things as what he or she will and will not do in the future. When such decisions are made, he or she may want to record them for future reference if needed. If your son or daughter sees you as a staunch supporter, this council meeting can establish goals and objectives for the future. This is also a time to carefully listen to serious concerns and challenges that a child may have faced with such things as lack of confidence, abuse, bullying, or fear.
 
@@ -100,7 +100,5 @@ Finally, please remember that a family council held regularly will help us spot 
 [^3]: [[Alma 37.37|Alma 37:37]].
 
 [^4]: [[Matthew 18.20|Matthew 18:20]].
-
-
 
 #Children #Councils #Family #Parenthood #Prayer #Technology #Unity

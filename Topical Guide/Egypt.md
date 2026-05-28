@@ -1,7 +1,6 @@
 # Egypt
 
-
-*See also* [BD Egypt](https://www.churchofjesuschrist.org/study/scriptures/bd/egypt?lang=eng); [Egypt, River of](https://www.churchofjesuschrist.org/study/scriptures/bd/egypt-river-of?lang=eng)
+*See also* [[BD Egypt.md|BD Egypt]]; [[BD Egypt, River of.md|BD Egypt, River of]]
 
 Abram went down into *Egypt*, [[Genesis 12.10|Genesis 12:10]].
 
@@ -11,7 +10,7 @@ ten brethren went down to buy corn in *Egypt*, [[Genesis 42.3|Genesis 42:3]].
 
 came into *Egypt*, Jacob, and all his seed, [[Genesis 46.6|Genesis 46:6]].
 
-affliction of my people ... in *Egypt*, [[Exodus 3.7|Exodus 3:7]] ([[Acts 7.34|Acts 7:34]]).
+affliction of my people … in *Egypt*, [[Exodus 3.7|Exodus 3:7]] ([[Acts 7.34|Acts 7:34]]).
 
 Lord brought us out from *Egypt*, [[Exodus 13.14|Exodus 13:14]].
 
@@ -29,14 +28,14 @@ By faith he forsook *Egypt*, [[Hebrews 11.27|Hebrews 11:27]].
 
 which spiritually is called Sodom and *Egypt*, [[Revelation 11.8|Revelation 11:8]].
 
-he did bring them out of ... *Egypt*, [[1 Nephi 17.40|1 Nephi 17:40]].
+he did bring them out of … *Egypt*, [[1 Nephi 17.40|1 Nephi 17:40]].
 
-scourge for him ... after the manner of *Egypt*, [[2 Nephi 20.26|2 Nephi 20:26]].
+scourge for him … after the manner of *Egypt*, [[2 Nephi 20.26|2 Nephi 20:26]].
 
-Joseph brought his father down into ... *Egypt*, [[Ether 13.7|Ether 13:7]].
+Joseph brought his father down into … *Egypt*, [[Ether 13.7|Ether 13:7]].
 
-I am he who led the children of Israel out of ... *Egypt*, [[D&C 136.22|D&C 136:22]].
+I am he who led the children of Israel out of … *Egypt*, [[D&C 136.22|D&C 136:22]].
 
-*Egypt* being first discovered by ... daughter of Ham, [[Abraham 1.23|Abraham 1:23]].
+*Egypt* being first discovered by … daughter of Ham, [[Abraham 1.23|Abraham 1:23]].
 
 go down into *Egypt*, to sojourn there, [[Abraham 2.21|Abraham 2:21]].

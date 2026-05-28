@@ -34,7 +34,7 @@ The promise of life eternal thus gave us the riches of eternity! “Behold, he t
 
 ## The Restored Priesthood
 
-The Church of Jesus Christ is a church of priests, “a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Peter 2:9]]).
+The Church of Jesus Christ is a church of priests, “a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Peter 2:9]]).
 
 The restored Church gives to each home a priesthood holder with the power of God to bless. How many times I have been able to hear the soft, sweet voice of a little child at home say, “Daddy, could you give me a blessing?” and put my hands upon his or her head in moments of pain and difficulty and pronounce blessings of comfort and healing and see the power of the priesthood exercise its influence and the next day hear that little voice say, “Thanks, Daddy, I slept just fine last night.” We don’t need to go out looking for someone having that power—it is among us! What a blessing to be able to teach this principle to our children! This is the only church upon the earth which offers such a blessing to families.
 
@@ -71,8 +71,6 @@ Above all else, this is the reason for my membership in the Church: because the 
 A few weeks ago my father also passed away, and now more than ever I feel thankfulness to my God for the richness and beauty of His doctrine.
 
 Because family life can continue beyond the thresholds of death. Because the royal priesthood has been restored upon the earth. And because the Spirit has spoken to my spirit, giving me a testimony that my Savior Jesus Christ lives and that through His intercession I shall be able, in accordance to my faithfulness, to live with Him. For these reasons and others still, I am a member of the only true Church upon the face of the earth, and I shall be eternally grateful for this. In the name of Jesus Christ, amen.
-
-
 
 
 

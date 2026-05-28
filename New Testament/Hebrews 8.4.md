@@ -6,4 +6,4 @@
 
 
 [^a]: JST Heb. 8:4 Therefore while he was on the earth, he offered for a sacrifice his own life for the sins of the people. Now every priest under the law, must needs offer gifts, or sacrifices, according to the law.  
-[^b]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^b]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  

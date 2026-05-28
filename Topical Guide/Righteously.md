@@ -1,6 +1,5 @@
 # Righteously
 
-
 *See also* [[Uprightly.md|Uprightly]]
 
 judge *righteously* between every man and his brother, [[Deuteronomy 1.16|Deuteronomy 1:16]].

@@ -14,7 +14,7 @@ First, I would have realized that they already had the first lesson in their hea
 
 I would have tried to help them do that by taking them in their minds to a garden where they would hear the Savior of the world’s words: “Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done” ([[Luke 22.42|Luke 22:42]]).
 
-And then I would have taken them forward in time to that glorious day reported in the Book of Mormon when the resurrected Lord appeared to the people in the Americas and said, “And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning” ([[3 Nephi 11.11|3 Ne. 11:11]]).
+And then I would have taken them forward in time to that glorious day reported in the Book of Mormon when the resurrected Lord appeared to the people in the Americas and said, “And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning” ([[3 Nephi 11.11|3 Ne. 11:11]]).
 
 I know from the softness I heard in their voices and saw in their eyes that those missionaries would have then, and perhaps always, remembered him. And from his perfect example they would have felt their hearts breaking and received the answer to their pleading, “Tell us how we can become more humble.”
 
@@ -41,6 +41,4 @@ And if those who hear will take the Savior’s name upon them and always remembe
 
 
 
-
-
-#Covenants #Humility #Jesus_Christ
+#Covenants #Humility #JesusChrist

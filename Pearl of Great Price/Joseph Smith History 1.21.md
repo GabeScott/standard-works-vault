@@ -5,5 +5,5 @@
 [Joseph Smith History 1:21](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.21?lang=eng#p21)
 
 
-[^a]: [[1 Samuel 3.1|1 Sam. 3:1.]]
-[^b]: TG [[Revelation]].
+[^a]: [[1 Samuel 3.1|1 Sam. 3:1]].  
+[^b]: [[Revelation|TG Revelation]].  

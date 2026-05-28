@@ -1,6 +1,5 @@
 # Sprinkle
 
-
 Moses took the blood, and *sprinkled* it on the people, [[Exodus 24.8|Exodus 24:8]].
 
 *sprinkle* the blood round about upon the altar, [[Leviticus 1.5|Leviticus 1:5]] ([[Leviticus 3.2|Leviticus 3:2]]; [[Numbers 18.17|Numbers 18:17]]).

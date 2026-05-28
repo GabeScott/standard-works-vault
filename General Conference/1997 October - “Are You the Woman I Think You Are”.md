@@ -22,7 +22,7 @@ Tonight I am grateful to testify that during the intervening years I *have* come
 
 Prophets, ancient and modern, have urged us to come unto Christ (see [[Moroni 10.30|Moro. 10:30]]). President Gordon B. Hinckley declared that “\[Jesus Christ\] is the pivotal figure of our theology and our faith. Every Latter-day Saint has the responsibility to know … with a certainty beyond doubt that Jesus is the resurrected, living Son of the living God” (“‘Fear Not to Do Good,’” *Ensign,* May 1983, 80).
 
-The admonition to “come unto Christ” is the hub around which everything in The Church of Jesus Christ of Latter-day Saints, and thus the Relief Society, revolves—and for good reason. The verb *come* implies action on *our* part. In the familiar New Testament passage about the hereafter in which many plead their case with the Lord by listing all of their good deeds, Christ responds, “I never knew you” ([[Matthew 7.23|Matt. 7:23]]). Joseph Smith’s inspired translation of that same passage, however, notes a profound distinction—“*\[You\]* never knew me” ([[Matthew 7.note23a|JST, Matt. 7:33]]; emphasis added)—placing responsibility for coming unto the Savior squarely upon our shoulders. Jesus Christ Himself has promised, “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
+The admonition to “come unto Christ” is the hub around which everything in The Church of Jesus Christ of Latter-day Saints, and thus the Relief Society, revolves—and for good reason. The verb *come* implies action on *our* part. In the familiar New Testament passage about the hereafter in which many plead their case with the Lord by listing all of their good deeds, Christ responds, “I never knew you” ([[Matthew 7.23|Matt. 7:23]]). Joseph Smith’s inspired translation of that same passage, however, notes a profound distinction—“*\[You\]* never knew me” ([JST, Matt. 7:33](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7?lang=eng&id=note23a#note23a); emphasis added)—placing responsibility for coming unto the Savior squarely upon our shoulders. Jesus Christ Himself has promised, “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
 
 There are no disclaimers or exceptions in His invitation. *We* are the ones who determine whether or not we will come unto Him. The drawing near, seeking, asking, and knocking are up to us. And the more we know about the Lord—meaning the more we experience His mercy, devotion, and willingness to guide us even when we may not feel worthy of His direction—the more confident we become that He *will* respond to our petitions.
 
@@ -71,6 +71,4 @@ May we this very hour arise by strengthening our resolve to follow our Savior an
 
 
 
-
-
-#Jesus_Christ #Prayer #Satan #Scriptures #Sin #Temples #Testimony #Women
+#JesusChrist #Prayer #Satan #Scriptures #Sin #Temples #Testimony #Women

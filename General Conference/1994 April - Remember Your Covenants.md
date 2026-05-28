@@ -36,7 +36,7 @@ The true concept of marriage and family, the unit composed of a husband, wife, a
 
 Another determining factor in my conversion was the Church as a divine institution led by the authority of the priesthood. It provided the framework that I needed for support as a member of that covenant group. I could not save my family by myself.
 
-Elder John A. Widtsoe wrote: “The Church, the community of persons with the same intelligent faith and desire and practice, is the organized agency through which God deals with His children and presents His will. Moreover, the authority to act for God must be vested on earth in some one organization and not independently in every man. The Church through the Priesthood holds this authority for the use of man” (*Priesthood and Church Government* \[Salt Lake City: Deseret Book Co., 1939\], p. 180).
+Elder John A. Widtsoe wrote: “The Church, the community of persons with the same intelligent faith and desire and practice, is the organized agency through which God deals with His children and presents His will. Moreover, the authority to act for God must be vested on earth in some one organization and not independently in every man. The Church through the Priesthood holds this authority for the use of man” (*Priesthood and Church Government* \[Salt Lake City: Deseret Book Co., 1939\], p. 180).
 
 The Church provides a unique support for individuals and families to do things that they cannot do by themselves, such as receiving the essential ordinances of salvation. It brings temporal relief in times of hardship. It is also a laboratory outside of the home where we can serve, learn, and practice charity, the pure love of Christ.
 
@@ -51,8 +51,6 @@ Today the concept of priesthood and Church authority is on trial by the world an
 One of my simple answers tonight is to constantly remember your covenants, to act on them, and to commit to them. This sequence, as repeatedly stated in the scriptures, is a classic, spiritual teaching pattern to prepare us for eternal life. It is centered upon Christ and his doctrine and teachings. I will remember them forever.
 
 I testify that Jesus lives, that this is the only true church, that the priesthood of the Son of God is vested herein, and that prophets, seers, and revelators who preside over this church are appointed to preserve the pure doctrine of Jesus Christ and the authority of his priesthood for the salvation of his people. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -34,7 +34,7 @@ As a young man, I saw mostly the adventure in that story, though I was surely im
 
 This story also shows the goodness of God in protecting Isaac and in providing a substitute so he would not have to die. Because of our sins and our mortality, we, like Isaac, are condemned to death. When all other hope is gone, our Father in Heaven provides the Lamb of God, and we are saved by his sacrifice.
 
-The Apostle Paul taught that the scriptures are “given by inspiration of God” and are “profitable … for instruction in righteousness” ([[2 Timothy 3.16|2 Tim. 3:16]]). We obtain instruction in righteousness from the experiences recorded in the scriptures. They provide what we might call case studies of the results of keeping or breaking the commandments of God.
+The Apostle Paul taught that the scriptures are “given by inspiration of God” and are “profitable … for instruction in righteousness” ([[2 Timothy 3.16|2 Tim. 3:16]]). We obtain instruction in righteousness from the experiences recorded in the scriptures. They provide what we might call case studies of the results of keeping or breaking the commandments of God.
 
 One example of special importance to young people involved young Joseph, who was sold into Egypt. Though only a slave, Joseph’s abilities were so impressive to his master that he was put in charge of all that his master had in the house and in the field (see [[Genesis 39.4|Gen. 39:4–6]][[Genesis 39.5|]][[Genesis 39.6|]]). Then, in that position of prominence and power, Joseph met a test.
 
@@ -48,15 +48,15 @@ We all remember how the jealous older sons of Jacob plotted to kill their favore
 
 In Egypt, Joseph was unjustly sent to prison. But even there he excelled, and the Lord blessed him. In time he came forth to interpret Pharaoh’s dream, and he was made ruler of all Egypt. In that powerful position, he became the instrument to save his people from famine and to love and forgive the brothers who had wronged him. (See [[Genesis 40.1|Gen. 40–45]][[Genesis 40.2|]][[Genesis 40.3|]][[Genesis 40.4|]][[Genesis 40.5|]][[Genesis 40.6|]][[Genesis 40.7|]][[Genesis 40.8|]][[Genesis 40.9|]][[Genesis 40.10|]][[Genesis 40.11|]][[Genesis 40.12|]][[Genesis 40.13|]][[Genesis 40.14|]][[Genesis 40.15|]][[Genesis 40.16|]][[Genesis 40.17|]][[Genesis 40.18|]][[Genesis 40.19|]][[Genesis 40.20|]][[Genesis 40.21|]][[Genesis 40.22|]][[Genesis 40.23|]]).
 
-As a young boy, I was thrilled with Joseph’s adventures and impressed with how the Lord had rescued him from the perils of murder, slavery, and prison. The first time I read the Book of Mormon, I found the statement that “Joseph … who was sold into Egypt … was preserved by the hand of the Lord” ([[1 Nephi 5.14|1 Ne. 5:14]]). In later readings in the scriptures, I found that this kind of protection is available to all. For example, the Bible states that “the Lord preserveth the faithful” ([[Psalms 31.23|Ps. 31:23]]) and that God “is a shield unto them that put their trust in him” ([[Proverbs 30.5|Prov. 30:5]]).
+As a young boy, I was thrilled with Joseph’s adventures and impressed with how the Lord had rescued him from the perils of murder, slavery, and prison. The first time I read the Book of Mormon, I found the statement that “Joseph … who was sold into Egypt … was preserved by the hand of the Lord” ([[1 Nephi 5.14|1 Ne. 5:14]]). In later readings in the scriptures, I found that this kind of protection is available to all. For example, the Bible states that “the Lord preserveth the faithful” ([[Psalms 31.23|Ps. 31:23]]) and that God “is a shield unto them that put their trust in him” ([[Proverbs 30.5|Prov. 30:5]]).
 
 Another favorite example of God’s protecting care is the shepherd boy David. David had a firm faith in the God of Israel, and that faith gave him great courage.
 
-When the armies of the Philistines were gathered to battle against the Israelites, the mighty Goliath came forward and hurled his challenge to individual combat. King Saul and all Israel “were dismayed, and greatly afraid” ([[1 Samuel 17.11|1 Sam. 17:11]]). Day after day he renewed his challenge, but no one would face him.
+When the armies of the Philistines were gathered to battle against the Israelites, the mighty Goliath came forward and hurled his challenge to individual combat. King Saul and all Israel “were dismayed, and greatly afraid” ([[1 Samuel 17.11|1 Sam. 17:11]]). Day after day he renewed his challenge, but no one would face him.
 
-When young David came to the camp of Israel to deliver provisions, he heard Goliath’s roar. In surprise David asked, “Who is this uncircumcised Philistine, that he should defy the armies of the living God?” ([[1 Samuel 17.26|1 Sam. 17:26]]). David asked if he could fight the man. The king refused, saying, “Thou art but a youth” ([[1 Samuel 17.33|1 Sam. 17:33]]). David replied with courage and faith: “The Lord that delivered me out of the paw of the lion, … he will deliver me out of the hand of this Philistine” ([[1 Samuel 17.37|1 Sam. 17:37]]).
+When young David came to the camp of Israel to deliver provisions, he heard Goliath’s roar. In surprise David asked, “Who is this uncircumcised Philistine, that he should defy the armies of the living God?” ([[1 Samuel 17.26|1 Sam. 17:26]]). David asked if he could fight the man. The king refused, saying, “Thou art but a youth” ([[1 Samuel 17.33|1 Sam. 17:33]]). David replied with courage and faith: “The Lord that delivered me out of the paw of the lion, … he will deliver me out of the hand of this Philistine” ([[1 Samuel 17.37|1 Sam. 17:37]]).
 
-As David went onto the field of battle, Goliath mocked him for his youth, cursed him by his gods, and shouted that he would feed his flesh to the birds and beasts of the field (see [[1 Samuel 17.42|1 Sam. 17:42–44]][[1 Samuel 17.43|]][[1 Samuel 17.44|]]).
+As David went onto the field of battle, Goliath mocked him for his youth, cursed him by his gods, and shouted that he would feed his flesh to the birds and beasts of the field (see [[1 Samuel 17.42|1 Sam. 17:42–44]][[1 Samuel 17.43|]][[1 Samuel 17.44|]]).
 
 David’s reply is one of the great expressions of faith and courage in all our literature. It thrilled me as a boy, and it still thrills me.
 
@@ -64,7 +64,7 @@ David’s reply is one of the great expressions of faith and courage in all our 
 
 “This day will the Lord deliver thee into mine hand; and I will smite thee, and take thine head from thee; and I will give the carcases of the host of the Philistines this day unto the fowls of the air, and to the wild beasts of the earth; that all the earth may know that there is a God in Israel.
 
-“And all this assembly shall know that the Lord saveth not with sword and spear: for the battle is the Lord’s, and he will give you into our hands” ([[1 Samuel 17.45|1 Sam. 17:45–47]][[1 Samuel 17.46|]][[1 Samuel 17.47|]]).
+“And all this assembly shall know that the Lord saveth not with sword and spear: for the battle is the Lord’s, and he will give you into our hands” ([[1 Samuel 17.45|1 Sam. 17:45–47]][[1 Samuel 17.46|]][[1 Samuel 17.47|]]).
 
 You all know what happened next. David stunned the Philistine with a sling-stone and cut off his head with his own sword. Frightened by the fall of their champion, the Philistines fled. Shouting in triumph, the armies of Israel pursued them and won a great victory.
 
@@ -78,7 +78,7 @@ Another story of protection involved a prophet and his young servant. Because El
 
 “Fear not: for they that be with us are more than they that be with them.
 
-“And Elisha prayed, and said, Lord, I pray thee, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” ([[2 Kings 6.16|2 Kgs. 6:16–17]][[2 Kings 6.17|]]).
+“And Elisha prayed, and said, Lord, I pray thee, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” ([[2 Kings 6.16|2 Kgs. 6:16–17]][[2 Kings 6.17|]]).
 
 The Lord intervened to confuse and blind the Syrians, and they were taken prisoners by the armies of Israel.
 
@@ -126,13 +126,11 @@ With the gun back in my stomach, the young robber replied to my lecture by going
 
 I have often pondered the significance of that event in relation to the responsibilities that came later in my life. Less than a year after that August night, I was chosen as president of Brigham Young University. Almost fourteen years after that experience, I received my present calling.
 
-I am grateful that the Lord gave me the vision and strength to refrain from trusting in the arm of flesh and to put my trust in the protecting care of our Heavenly Father. I am grateful for the Book of Mormon promise to us of the last days that “the righteous need not fear,” for the Lord “will preserve the righteous by his power” ([[1 Nephi 22.17|1 Ne. 22:17]]). I am grateful for the protection promised to those who have kept their covenants and qualified for the blessings promised in sacred places.
+I am grateful that the Lord gave me the vision and strength to refrain from trusting in the arm of flesh and to put my trust in the protecting care of our Heavenly Father. I am grateful for the Book of Mormon promise to us of the last days that “the righteous need not fear,” for the Lord “will preserve the righteous by his power” ([[1 Nephi 22.17|1 Ne. 22:17]]). I am grateful for the protection promised to those who have kept their covenants and qualified for the blessings promised in sacred places.
 
 These and all promises to the faithful children of God are made by the voice and power of the Lord God of Israel. I testify of that God, our Savior Jesus Christ, whose resurrection and atonement have assured immortality and provided the opportunity and direction toward eternal life. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Faith #Obedience #Safety #Scripture_Study
+#Faith #Obedience #Safety #ScriptureStudy

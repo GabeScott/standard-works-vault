@@ -1,6 +1,5 @@
 # Heap
 
-
 floods stood upright as an *heap*, [[Exodus 15.8|Exodus 15:8]].
 
 they shall stand upon an *heap*, [[Joshua 3.13|Joshua 3:13]].

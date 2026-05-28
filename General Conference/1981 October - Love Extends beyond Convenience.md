@@ -1,6 +1,6 @@
 # Love Extends beyond Convenience
 
-By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -26,15 +26,15 @@ Well, after several attempts to explain, it didn’t appear as if any big impres
 
 “Let me put it this way: between now and the Millennium if a member of the Church starves to death, it’s all my dad’s fault.”
 
-There are many perceptions of Welfare Services. I suppose most people perceive of welfare as farms, canneries, bishops’ storehouses, and Deseret Industries. Welfare Services is essential to that part of the central mission of the Church, which is: to perfect the Saints. Welfare Services is the gospel in action for individual members. It is not just for group or institutional involvement. Salvation comes to us on an individual basis—each must climb the ladder independently to ascend to the level of the Master. If we are to achieve perfection, we must emulate the works of Jesus as well as his words. The Apostle Peter instructed those who would be disciples of Christ to be “partakers of the divine nature.” ([[2 Peter 1.4|2 Pet. 1:4–7]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]].) He told them, “For even hereunto were ye called: … that ye should follow his steps.” ([[1 Peter 2.21|1 Pet. 2:21]].)
+There are many perceptions of Welfare Services. I suppose most people perceive of welfare as farms, canneries, bishops’ storehouses, and Deseret Industries. Welfare Services is essential to that part of the central mission of the Church, which is: to perfect the Saints. Welfare Services is the gospel in action for individual members. It is not just for group or institutional involvement. Salvation comes to us on an individual basis—each must climb the ladder independently to ascend to the level of the Master. If we are to achieve perfection, we must emulate the works of Jesus as well as his words. The Apostle Peter instructed those who would be disciples of Christ to be “partakers of the divine nature.” ([[2 Peter 1.4|2 Pet. 1:4–7]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]].) He told them, “For even hereunto were ye called: … that ye should follow his steps.” ([[1 Peter 2.21|1 Pet. 2:21]].)
 
 In 1897 Dr. Charles Sheldon, a young minister in Topeka, Kansas, wrote a book which he titled *In His Steps.* It was a novel based upon an experiment he tried. He disguised himself as an unemployed printer and tramped the streets of Topeka. He was shocked at his treatment by this “Christian” community. In his novel, a Christian minister presents his congregation with this interesting challenge:
 
-“I want volunteers … who will pledge themselves, earnestly and honestly for an entire year, not to do anything without first asking the question, ‘What would Jesus do?’ … Our aim will be to act just as He would if He \[were\] in our places, regardless of immediate results. In other words, we propose to follow Jesus’ steps as closely and as literally as we believe He taught His disciples to do.” (Charles M. Sheldon, *In His Steps,* New York: Grosset & Dunlap, 1935, pp. 15–16.)
+“I want volunteers … who will pledge themselves, earnestly and honestly for an entire year, not to do anything without first asking the question, ‘What would Jesus do?’ … Our aim will be to act just as He would if He \[were\] in our places, regardless of immediate results. In other words, we propose to follow Jesus’ steps as closely and as literally as we believe He taught His disciples to do.” (Charles M. Sheldon, *In His Steps,* New York: Grosset & Dunlap, 1935, pp. 15–16.)
 
 The book describes the fascinating experience of those who accepted the challenge. I have been intrigued by the experiment and wonder, if it were conducted today among the Latter-day Saints, how we would measure up. As latter-day Christians, we know that the “royal law” ([[James 2.8|James 2:8]]) of love in action is to “succor the weak, lift up the hands which hang down, and strengthen the feeble knees.” ([[D&C 81.5|D&C 81:5]].) Do we catch the significance of this thought? We demonstrate the depth of our love for the Savior when we care enough to seek out the suffering among us and attend to their needs.
 
-The philosopher William George Jordan has identified “four great hungers of life—body-hunger, mind-hunger, heart-hunger, and soul-hunger. They are all real; all need recognition, all need feeding.” (William George Jordan, *The Crown of Individuality,* New York: Fleming H. Revell Company, 1909, p. 63.)
+The philosopher William George Jordan has identified “four great hungers of life—body-hunger, mind-hunger, heart-hunger, and soul-hunger. They are all real; all need recognition, all need feeding.” (William George Jordan, *The Crown of Individuality,* New York: Fleming H. Revell Company, 1909, p. 63.)
 
 1. Body-hunger is our most conscious biological need. It is difficult to be spiritually strong when temporally deficient.
 
@@ -60,7 +60,7 @@ And then she said, “\[At last\] there were thirty whole beautiful minutes befo
 
 Erma said, “I don’t think I have ever detested myself more than I did at that moment. Another human being was screaming to be heard and in desperation had turned to a cold stranger who was more interested in a novel than in the real-life drama at her elbow.
 
-“All she needed was a listener—no advice, wisdom, experience, money, assistance, expertise or even compassion—but just a minute or two to listen. …
+“All she needed was a listener—no advice, wisdom, experience, money, assistance, expertise or even compassion—but just a minute or two to listen. …
 
 “She talked numbly and steadily until we boarded the plane, \[and\] then found her seat in another section. As I hung up my coat, I heard her plaintive voice say to her seat companion, ‘I’ll bet it’s cold in Chicago.’
 
@@ -114,7 +114,7 @@ I am impressed that in the last moments of the Savior’s life, He had an abidin
 
 “There were times during my children’s lives when, given my druthers, I’d have preferred some alternative activity, but now I don’t regret one minute of the time I spent with them. I’m only sorry it couldn’t have been more. Their time at home seems to have been so brief.
 
-“I won’t mail this, of course, since I realize you will receive thousands of more articulate letters on the above. This is just my way of …”
+“I won’t mail this, of course, since I realize you will receive thousands of more articulate letters on the above. This is just my way of …”
 
 “Dear Abby: My father died suddenly of a heart attack, and this unfinished letter was in his pocket. My wife and I will miss him very much. Sign this—‘A son who really wanted his dad to come.’ William Smzyk, Omaha, Nebr.” (Abigail Van Buren, *Deseret News* 13 Dec. 1979, p. C7.)
 
@@ -124,7 +124,7 @@ In Alma, chapter seven, we read:
 
 “And he shall go forth, suffering pains and afflictions and temptations of every kind; … that the word might be fulfilled which saith he will take upon him the pains and the sicknesses of his people.
 
-“… And he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people.” ([[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].)
+“… And he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people.” ([[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].)
 
 After a recent stake conference meeting where I had discussed the role of the family in the Church, I was approached by a sweet woman who said: “Bishop, I’m a widow and I really appreciated everything you said today. I have a lovely family, but I have many problems and I do need help. My priesthood leaders have families of their own and they have lots of problems and I don’t want to bother them and add to their problems. So what should I do?”
 
@@ -142,25 +142,23 @@ Dr. Tom Dooley offers some interesting insights regarding those who have known d
 
 “One of Dr. (Albert) Schweitzer’s most important concepts is that of the Fellowship of Those who Bear the Mark of Pain. … Who are its members? Those who have learned by experience what physical pain and bodily anguish mean. These people, all over the world, are united by a secret bond. He who has been delivered from pain must not think he is now … at liberty to continue his life and forget his sickness. He is a man whose eyes are opened. He now has a duty to help others in their battles with pain and anguish. He must help to bring to others the deliverance which he himself knows.
 
-“Under this Fellowship come not only those who were formerly sick, but those who are related to sufferers, and whom does this not include?” (Thomas Dooley, “A Worldwide Fellowship,” *Words of Wisdom,* ed. Thomas C. Jones, Chicago: J. B. Ferguson, 1966, p. 150.)
+“Under this Fellowship come not only those who were formerly sick, but those who are related to sufferers, and whom does this not include?” (Thomas Dooley, “A Worldwide Fellowship,” *Words of Wisdom,* ed. Thomas C. Jones, Chicago: J. B. Ferguson, 1966, p. 150.)
 
 Again I refer to Dr. Sheldon’s book:
 
 “It is the personal element that Christian discipleship needs to emphasize. ‘The gift without the giver is bare.’ The Christianity that attempts to suffer by proxy \[*alone*\] is not the Christianity of Christ. Each individual Christian … needs to follow *in His steps* along the path of personal sacrifice to Him. There is not a different path to-day from that of Jesus’ own times. It is the same path.” (Sheldon, *In His Steps,* p. 239; italics added.)
 
-This has been a difficult assignment for me. As I have pondered how practicing welfare principles brings us to Christ, I have searched my own soul and realized that I am far short of my ideal—the Savior. As a result, I have recommitted myself to achieve the “divine nature” of Christ (see [[2 Peter 1.4|2 Pet. 1:4]]) by becoming more aware of ways in which to bless those in need.
+This has been a difficult assignment for me. As I have pondered how practicing welfare principles brings us to Christ, I have searched my own soul and realized that I am far short of my ideal—the Savior. As a result, I have recommitted myself to achieve the “divine nature” of Christ (see [[2 Peter 1.4|2 Pet. 1:4]]) by becoming more aware of ways in which to bless those in need.
 
 I bear my testimony to you that there is a special Spirit of the Savior which accompanies welfare services. I know He loves this work and the thousands of Saints who are engaged in it. And as He counseled His covenant people in the Book of Mormon, so He entreats us today:
 
-“Verily, verily, I say unto you, this is my gospel; and ye know the things that ye must do in my church; for the works which ye have seen me do that shall ye also do; …
+“Verily, verily, I say unto you, this is my gospel; and ye know the things that ye must do in my church; for the works which ye have seen me do that shall ye also do; …
 
-“Therefore, if ye do these things blessed are ye, for ye shall be lifted up at the last day. …
+“Therefore, if ye do these things blessed are ye, for ye shall be lifted up at the last day. …
 
-“Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am.” ([[3 Nephi 27.21|3 Ne. 27:21–22, 27]][[3 Nephi 27.22|]][[3 Nephi 27.27|]].)
+“Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am.” ([[3 Nephi 27.21|3 Ne. 27:21–22, 27]][[3 Nephi 27.22|]][[3 Nephi 27.27|]].)
 
 That we may walk in his steps and become even as he is I pray, in the sacred name of the Lord Jesus Christ, amen.
-
-
 
 
 

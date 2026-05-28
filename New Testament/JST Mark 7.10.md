@@ -4,6 +4,3 @@
 
 [JST Mark 7:10](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-mark/7?lang=eng)
 
-
-
-

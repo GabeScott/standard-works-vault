@@ -53,7 +53,7 @@ May we restore the concept of marriage as a covenant, even the new and everlasti
 
 [^3]: See [[D&C 2.1|D&C 2]][[D&C 2.2|]][[D&C 2.3|]].
 
-[^4]: [[2 Nephi 2.23|2 Ne. 2:23]].
+[^4]: [[2 Nephi 2.23|2 Ne. 2:23]].
 
 [^5]: See [[Moses 4.23|Moses 4:23]].
 
@@ -77,8 +77,6 @@ May we restore the concept of marriage as a covenant, even the new and everlasti
 
 [^15]: See [[D&C 131.2|D&C 131:2]].
 
-[^16]: See [[2 Nephi 2.25|2 Ne. 2:25]].
+[^16]: See [[2 Nephi 2.25|2 Ne. 2:25]].
 
-
-
-#Adversity #Children #Covenants #Marriage #Opposition #Self-Esteem
+#Adversity #Children #Covenants #Marriage #Opposition #Self-esteem

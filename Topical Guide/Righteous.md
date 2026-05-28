@@ -1,9 +1,8 @@
 # Righteous
 
-
 *See also* [[Just.md|Just]]; [[Righteously.md|Righteously]]; [[Righteousness.md|Righteousness]]; [[Upright.md|Upright]]
 
-Come thou ... into the ark; for thee have I seen *righteous*, [[Genesis 7.1|Genesis 7:1]].
+Come thou … into the ark; for thee have I seen *righteous*, [[Genesis 7.1|Genesis 7:1]].
 
 If I find in Sodom fifty *righteous*, [[Genesis 18.26|Genesis 18:26]].
 
@@ -13,9 +12,9 @@ innocent and *righteous* slay thou not, [[Exodus 23.7|Exodus 23:7]].
 
 Let me die the death of the *righteous*, [[Numbers 23.10|Numbers 23:10]].
 
-judges ... shall justify the *righteous*, [[Deuteronomy 25.1|Deuteronomy 25:1]].
+judges … shall justify the *righteous*, [[Deuteronomy 25.1|Deuteronomy 25:1]].
 
-reason with you ... of all the *righteous* acts of the Lord, [[1 Samuel 12.7|1 Samuel 12:7]].
+reason with you … of all the *righteous* acts of the Lord, [[1 Samuel 12.7|1 Samuel 12:7]].
 
 God of Israel, thou art *righteous*, [[Ezra 9.15|Ezra 9:15]] ([[Nehemiah 9.8|Nehemiah 9:8]]; [[Revelation 16.5|Revelation 16:5]]).
 
@@ -77,7 +76,7 @@ Thy people also shall be all *righteous*, [[Isaiah 60.21|Isaiah 60:21]].
 
 I will raise unto David a *righteous* Branch, [[Jeremiah 23.5|Jeremiah 23:5]].
 
-When a *righteous* man doth turn from his righteousness ... he shall die, [[Ezekiel 3.20|Ezekiel 3:20]] ([[Ezekiel 18.24|Ezekiel 18:24]], [[Ezekiel 18.26|Ezekiel 18:26]]; [[Ezekiel 33.18|Ezekiel 33:18]]).
+When a *righteous* man doth turn from his righteousness … he shall die, [[Ezekiel 3.20|Ezekiel 3:20]] ([[Ezekiel 18.24|Ezekiel 18:24]]; [[Ezekiel 18.26|Ezekiel 18:26]]; [[Ezekiel 33.18|Ezekiel 33:18]]).
 
 warn the *righteous* man, that the *righteous* sin not, [[Ezekiel 3.21|Ezekiel 3:21]].
 
@@ -99,7 +98,7 @@ outwardly appear *righteous* unto men, [[Matthew 23.28|Matthew 23:28]].
 
 upon you may come all the *righteous* blood, [[Matthew 23.35|Matthew 23:35]].
 
-shall go away ... the *righteous* into life eternal, [[Matthew 25.46|Matthew 25:46]].
+shall go away … the *righteous* into life eternal, [[Matthew 25.46|Matthew 25:46]].
 
 trusted in themselves that they were *righteous*, [[Luke 18.9|Luke 18:9]].
 
@@ -115,7 +114,7 @@ by the obedience of one shall many be made *righteous*, [[Romans 5.19|Romans 5:1
 
 law is not made for a *righteous* man, [[1 Timothy 1.9|1 Timothy 1:9]].
 
-Abel ... obtained witness that he was *righteous*, [[Hebrews 11.4|Hebrews 11:4]].
+Abel … obtained witness that he was *righteous*, [[Hebrews 11.4|Hebrews 11:4]].
 
 fervent prayer of a *righteous* man availeth much, [[James 5.16|James 5:16]].
 
@@ -123,11 +122,11 @@ if the *righteous* scarcely be saved, [[1 Peter 4.18|1 Peter 4:18]].
 
 seeing and hearing, vexed his *righteous* soul, [[2 Peter 2.8|2 Peter 2:8]].
 
-we have an advocate ... Jesus Christ the *righteous*, [[1 John 2.1|1 John 2:1]].
+we have an advocate … Jesus Christ the *righteous*, [[1 John 2.1|1 John 2:1]].
 
 he that doeth righteousness is *righteous*, [[1 John 3.7|1 John 3:7]].
 
-his own works were evil, and his brother's *righteous*, [[1 John 3.12|1 John 3:12]].
+his own works were evil, and his brother’s *righteous*, [[1 John 3.12|1 John 3:12]].
 
 he that is *righteous*, let him be *righteous* still, [[Revelation 22.11|Revelation 22:11]].
 
@@ -135,9 +134,9 @@ he that is *righteous* is favored of God, [[1 Nephi 17.35|1 Nephi 17:35]].
 
 he will preserve the *righteous*, [[1 Nephi 22.17|1 Nephi 22:17]].
 
-*righteous* ... inherit the kingdom, [[2 Nephi 9.18|2 Nephi 9:18]].
+*righteous* … inherit the kingdom, [[2 Nephi 9.18|2 Nephi 9:18]].
 
-words of truth are hard ... but the *righteous* fear them not, [[2 Nephi 9.40|2 Nephi 9:40]].
+words of truth are hard … but the *righteous* fear them not, [[2 Nephi 9.40|2 Nephi 9:40]].
 
 raise up unto me a *righteous* branch, [[Jacob 2.25|Jacob 2:25]].
 
@@ -147,7 +146,7 @@ plans to pervert the ways of the *righteous*, [[Alma 10.18|Alma 10:18]].
 
 in the hearts of the *righteous* doth he dwell, [[Alma 34.36|Alma 34:36]].
 
-spirits of ... *righteous* are received into a state of happiness, [[Alma 40.12|Alma 40:12]].
+spirits of … *righteous* are received into a state of happiness, [[Alma 40.12|Alma 40:12]].
 
 ye shall have a *righteous* judgment restored unto you, [[Alma 41.14|Alma 41:14]].
 
@@ -155,7 +154,7 @@ Lord suffereth the *righteous* to be slain, [[Alma 60.13|Alma 60:13]].
 
 Condemning the *righteous* because of their righteousness, [[Helaman 7.5|Helaman 7:5]].
 
-if it were not for the *righteous* ... fire should come down, [[Helaman 13.13|Helaman 13:13]].
+if it were not for the *righteous* … fire should come down, [[Helaman 13.13|Helaman 13:13]].
 
 *righteous* judgment might come upon them, [[Helaman 14.29|Helaman 14:29]].
 
@@ -175,9 +174,9 @@ that which is *righteous* cometh down from above, [[D&C 67.9|D&C 67:9]].
 
 by this you may know the *righteous* from the wicked, [[D&C 84.53|D&C 84:53]].
 
-*righteous* shall inherit it, [[D&C 88.26|D&C 88:26]] ([[D&C 88.16|88:16-26]][[D&C 88.17|]][[D&C 88.18|]][[D&C 88.19|]][[D&C 88.20|]][[D&C 88.21|]][[D&C 88.22|]][[D&C 88.23|]][[D&C 88.24|]][[D&C 88.25|]][[D&C 88.26|]]).
+*righteous* shall inherit it, [[D&C 88.26|D&C 88:26]].
 
-ordained ... and were *righteous* and holy men, [[D&C 107.29|D&C 107:29]].
+ordained … and were *righteous* and holy men, [[D&C 107.29|D&C 107:29]].
 
 among the *righteous* there was peace, [[D&C 138.22|D&C 138:22]].
 

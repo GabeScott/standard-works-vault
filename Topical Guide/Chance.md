@@ -1,4 +1,3 @@
 # Chance
 
-
-*See* [[Order.md|Order]]
+*See also* [[Order.md|Order]]

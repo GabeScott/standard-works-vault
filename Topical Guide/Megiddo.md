@@ -1,4 +1,3 @@
 # Megiddo
 
-
-*See* [BD Megiddo](https://www.churchofjesuschrist.org/study/scriptures/bd/megiddo?lang=eng)
+*See also* [[BD Megiddo.md|BD Megiddo]]

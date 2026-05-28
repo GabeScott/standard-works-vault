@@ -20,7 +20,7 @@ Brothers and sisters, even as people in Ethiopia were starving physically becaus
 
 God’s chosen prophet, President Gordon B. Hinckley, recently said:
 
-“Every member of this church is an individual man or woman, boy or girl. Our great responsibility is to see that each is ‘remembered and nourished by the good word of God’ ([[Moroni 6.4|Moro. 6:4]]), that each has opportunity for growth and expression and training in the work and ways of the Lord. …
+“Every member of this church is an individual man or woman, boy or girl. Our great responsibility is to see that each is ‘remembered and nourished by the good word of God’ ([[Moroni 6.4|Moro. 6:4]]), that each has opportunity for growth and expression and training in the work and ways of the Lord. …
 
 “This work is concerned with people, each a son or daughter of God. In describing its achievements we speak in terms of numbers, but all of our efforts must be dedicated to the development of the individual.”[^3]
 
@@ -65,11 +65,11 @@ I testify to you that Jesus is the Christ. He lives and invites everyone to part
 
 
 
-[^1]: [[2 Nephi 9.51|2 Ne. 9:51]].
+[^1]: [[2 Nephi 9.51|2 Ne. 9:51]].
 
-[^2]: [[2 Nephi 32.3|2 Ne. 32:3]].
+[^2]: [[2 Nephi 32.3|2 Ne. 32:3]].
 
-[^3]: In Conference Report, Apr. 1995, 72–73; or *Ensign,* May 1995, 52–53.
+[^3]: In Conference Report, Apr. 1995, [[1995 April - This Work Is Concerned with People.md|72–73]]; or *Ensign,* May 1995, 52–53.
 
 [^4]: [[Moses 1.39|Moses 1:39]].
 
@@ -77,7 +77,7 @@ I testify to you that Jesus is the Christ. He lives and invites everyone to part
 
 [^6]: [[John 17.3|John 17:3]].
 
-[^7]: In Conference Report, Apr. 1995, 73; or *Ensign,* May 1995, 53.
+[^7]: In Conference Report, Apr. 1995, [[1995 April - This Work Is Concerned with People.md|73]]; or *Ensign,* May 1995, 53.
 
 [^8]: [[Luke 22.32|Luke 22:32]].
 
@@ -85,10 +85,8 @@ I testify to you that Jesus is the Christ. He lives and invites everyone to part
 
 [^10]: [[D&C 88.81|D&C 88:81]].
 
-[^11]: In Conference Report, Oct. 1995, 72; or *Ensign,* Nov. 1995, 53.
+[^11]: In Conference Report, Oct. 1995, [[1995 October - Of Missions, Temples, and Stewardship.md|72]]; or *Ensign,* Nov. 1995, 53.
 
 [^12]: [[Revelation 3.20|Rev. 3:20]].
 
-
-
-#Church_Meetings #Family #Holy_Ghost #Individual_Worth #Jesus_Christ #Love #Prophets #Spirituality #Temple_Work #Testimony #Youth
+#ChurchMeetings #Family #HolyGhost #IndividualWorth #JesusChrist #Love #Prophets #Spirituality #TempleWork #Testimony #Youth

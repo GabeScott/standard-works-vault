@@ -1,6 +1,5 @@
 # Spare
 
-
 *spare* the place for the fifty righteous, [[Genesis 18.24|Genesis 18:24]].
 
 He shall *spare* the poor and needy, [[Psalms 72.13|Psalms 72:13]].
@@ -35,11 +34,11 @@ if God *spared* not the angels that sinned, [[2 Peter 2.4|2 Peter 2:4]].
 
 he did *spare* the righteous, [[Omni 1.7|Omni 1:7]].
 
-Lord saw fit ... to *spare* them, [[Mosiah 28.4|Mosiah 28:4]].
+Lord saw fit … to *spare* them, [[Mosiah 28.4|Mosiah 28:4]].
 
 because of the prayers of the righteous, they were *spared*, [[Alma 62.40|Alma 62:40]].
 
-it is for the righteous' sake that it is *spared*, [[Helaman 13.14|Helaman 13:14]].
+it is for the righteous’ sake that it is *spared*, [[Helaman 13.14|Helaman 13:14]].
 
 Israel whom I have *spared*, [[3 Nephi 10.6|3 Nephi 10:6]].
 
@@ -57,6 +56,6 @@ I will not *spare* any that remain in Babylon, [[D&C 64.24|D&C 64:24]].
 
 search diligently and *spare* not, [[D&C 84.94|D&C 84:94]].
 
-beasts ... are to be used *sparingly*, [[D&C 89.12|D&C 89:12]].
+beasts … are to be used *sparingly*, [[D&C 89.12|D&C 89:12]].
 
 there is enough and to *spare*, [[D&C 104.17|D&C 104:17]].

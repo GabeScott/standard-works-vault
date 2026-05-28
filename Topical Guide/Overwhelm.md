@@ -1,6 +1,5 @@
 # Overwhelm
 
-
 I complained, and my spirit was *overwhelmed*, [[Psalms 77.3|Psalms 77:3]].
 
 sea *overwhelmed* their enemies, [[Psalms 78.53|Psalms 78:53]].

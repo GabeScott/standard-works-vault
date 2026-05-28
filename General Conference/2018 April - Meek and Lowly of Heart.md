@@ -1,6 +1,6 @@
 # Meek and Lowly of Heart
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -34,19 +34,19 @@ During a perilous period of war described in the Book of Mormon, an exchange of 
 
 Pahoran easily might have resented Moroni and his inaccurate allegations, but he did not. He responded compassionately and described a rebellion against the government about which Moroni was not aware. And then Pahoran declared:
 
-“Behold, I say unto you, Moroni, that I do not joy in your great afflictions, yea, it grieves my soul. …
+“Behold, I say unto you, Moroni, that I do not joy in your great afflictions, yea, it grieves my soul. …
 
 “… In your epistle you have censured me, but it mattereth not; I am not angry, but do rejoice in the greatness of your heart.”[^9]
 
 What do you think explains Pahoran’s measured reply to Moroni’s accusations?
 
-## Example #3. President Russell M. Nelson and President Henry B. Eyring
+## Example #3. President Russell M. Nelson and President Henry B. Eyring
 
-In general conference six months ago, President Russell M. Nelson described his response to President Thomas S. Monson’s invitation to study, ponder, and apply the truths contained in the Book of Mormon. He said: “I have tried to follow his counsel. Among other things, I’ve made lists of what the Book of Mormon *is,* what it *affirms,* what it *refutes,* what it *fulfills,* what it *clarifies,* and what it *reveals.* Looking at the Book of Mormon through these lenses has been an insightful and inspiring exercise! I recommend it to each of you.”[^10]
+In general conference six months ago, President Russell M. Nelson described his response to President Thomas S. Monson’s invitation to study, ponder, and apply the truths contained in the Book of Mormon. He said: “I have tried to follow his counsel. Among other things, I’ve made lists of what the Book of Mormon *is,* what it *affirms,* what it *refutes,* what it *fulfills,* what it *clarifies,* and what it *reveals.* Looking at the Book of Mormon through these lenses has been an insightful and inspiring exercise! I recommend it to each of you.”[^10]
 
-President Henry B. Eyring likewise emphasized the importance in his life of President Monson’s request. He observed:
+President Henry B. Eyring likewise emphasized the importance in his life of President Monson’s request. He observed:
 
-“I have read the Book of Mormon every day for more than 50 years. So perhaps I could have reasonably thought that President Monson’s words were for someone else. Yet, like many of you, I felt the prophet’s encouragement and his promise invite me to make a greater effort. …
+“I have read the Book of Mormon every day for more than 50 years. So perhaps I could have reasonably thought that President Monson’s words were for someone else. Yet, like many of you, I felt the prophet’s encouragement and his promise invite me to make a greater effort. …
 
 “The happy result for me, and for many of you, has been what the prophet promised.”[^11]
 
@@ -117,7 +117,7 @@ I testify that Jesus Christ is our resurrected and living Redeemer. And I promis
 
 
 
-[^1]: See [[2 Peter 1.4|2 Peter 1:4]].
+[^1]: See [[2 Peter 1.4|2 Peter 1:4]].
 
 [^2]: [[Matthew 19.16|Matthew 19:16]].
 
@@ -135,15 +135,15 @@ I testify that Jesus Christ is our resurrected and living Redeemer. And I promis
 
 [^9]: [[Alma 61.2|Alma 61:2, 9]][[Alma 61.9|]].
 
-[^10]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]]” *Ensign* or *Liahona,* Nov. 2017, 61.
+[^10]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]]” *Ensign* or *Liahona,* Nov. 2017, 61.
 
-[^11]: Henry B. Eyring, “[[2017 October - Fear Not to Do Good.md|Fear Not to Do Good]],” *Ensign* or *Liahona,* Nov. 2017, 100.
+[^11]: Henry B. Eyring, “[[2017 October - Fear Not to Do Good.md|Fear Not to Do Good]],” *Ensign* or *Liahona,* Nov. 2017, 100.
 
 [^12]: [[Matthew 11.29|Matthew 11:29]]; emphasis added.
 
 [^13]: [[D&C 19.23|Doctrine and Covenants 19:23]]; emphasis added.
 
-[^14]: See [[2 Kings 5.1|2 Kings 5:1–17]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]][[2 Kings 5.16|]][[2 Kings 5.17|]].
+[^14]: See [[2 Kings 5.1|2 Kings 5:1–17]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]][[2 Kings 5.16|]][[2 Kings 5.17|]].
 
 [^15]: See [[Mosiah 4.12|Mosiah 4:12, 26]][[Mosiah 4.26|]]; [[Moroni 8.25|Moroni 8:25–26]][[Moroni 8.26|]].
 
@@ -157,7 +157,7 @@ I testify that Jesus Christ is our resurrected and living Redeemer. And I promis
 
 [^20]: [[D&C 88.6|Doctrine and Covenants 88:6]].
 
-[^21]: [[1 John 1.9|1 John 1:9]]; emphasis added.
+[^21]: [[1 John 1.9|1 John 1:9]]; emphasis added.
 
 [^22]: See [[John 13.4|John 13:4–5]][[John 13.5|]].
 
@@ -179,6 +179,4 @@ I testify that Jesus Christ is our resurrected and living Redeemer. And I promis
 
 [^31]: [[Matthew 5.5|Matthew 5:5]].
 
-
-
-#Divine_Nature #Humility #Jesus_Christ #Meekness #Prophets
+#DivineNature #Humility #JesusChrist #Meekness #Prophets

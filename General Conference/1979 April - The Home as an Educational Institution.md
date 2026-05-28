@@ -1,6 +1,6 @@
 # The Home as an Educational Institution
 
-By Elder G. Homer Durham - *Of the First Quorum of the Seventy*
+By Elder G. Homer Durham - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -16,11 +16,11 @@ The education received by children in their first two years is vital. The attitu
 
 The educational testimony set forth in the opening lines of the Book of Mormon is challenging and instructive:
 
-“I, Nephi, having been born of goodly parents, *therefore I was taught* somewhat in all the learning of my father; …
+“I, Nephi, having been born of goodly parents, *therefore I was taught* somewhat in all the learning of my father; …
 
-“… which consists of the learning of the Jews and the language of the Egyptians” ([[1 Nephi 1.1|1 Ne. 1:1–2]][[1 Nephi 1.2|]]; italics added).
+“… which consists of the learning of the Jews and the language of the Egyptians” ([[1 Nephi 1.1|1 Ne. 1:1–2]][[1 Nephi 1.2|]]; italics added).
 
-“Therefore I was taught. …” Can our children record such a fact? The learning of the Jews included effort to engrave on the minds and hearts of children Moses’ prophetic instructions from the book of Deuteronomy:
+“Therefore I was taught. …” Can our children record such a fact? The learning of the Jews included effort to engrave on the minds and hearts of children Moses’ prophetic instructions from the book of Deuteronomy:
 
 “Thou shalt love the Lord thy God with all thine heart, and with all thy soul, and with all thy might.
 
@@ -62,9 +62,7 @@ Fourth, to make such teaching effective, the Lord has said in this same section:
 
 Fifth and finally, *diligent, intelligent industry* must be taught as the key to all this and to all achievement. All inhabitants of Zion are counseled in this section “to labor in all faithfulness” ([[D&C 68.30|D&C 68:30]]). Work habits are best taught at home.
 
-I pray that fathers will magnify their callings as true priesthood leaders and by example teach love for these principles in their families. Mothers, cherish, love, encourage, teach respect, and inspire your children as only mothers can do. Joseph Smith was and remains a prophet. The Lord Jesus Christ lives as the Son of the Eternal Father and is the head of this, his restored church. President Spencer W. Kimball presides today as the Lord’s living prophet. I so testify in the sacred name of Jesus Christ, amen.
-
-
+I pray that fathers will magnify their callings as true priesthood leaders and by example teach love for these principles in their families. Mothers, cherish, love, encourage, teach respect, and inspire your children as only mothers can do. Joseph Smith was and remains a prophet. The Lord Jesus Christ lives as the Son of the Eternal Father and is the head of this, his restored church. President Spencer W. Kimball presides today as the Lord’s living prophet. I so testify in the sacred name of Jesus Christ, amen.
 
 
 

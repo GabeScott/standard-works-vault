@@ -1,6 +1,6 @@
 # Who Is Jesus?
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -22,11 +22,11 @@ Jehovah was, then, under the direction of the Father, the creator of this earth 
 
 “And worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten.” ([[Moses 1.32|Moses 1:32–33]][[Moses 1.33|]].)
 
-To get some idea of the magnitude of these creations: President J. Reuben Clark, Jr., said, “Astronomers now yield what they did not formerly yield, that there may have been many, and probably were, many worlds like ours. Some say there were in this galaxy perhaps from its beginning, one million worlds like unto this one.
+To get some idea of the magnitude of these creations: President J. Reuben Clark, Jr., said, “Astronomers now yield what they did not formerly yield, that there may have been many, and probably were, many worlds like ours. Some say there were in this galaxy perhaps from its beginning, one million worlds like unto this one.
 
 “‘Worlds without number have I created,’ through ‘mine Only Begotten Son.’ I repeat, our Lord is not a novice, he is not an amateur; he has been over this course time and time and time again.
 
-“And if you think of this galaxy of ours having within it from the beginning perhaps until now, one million worlds, and multiply that by the number of millions of galaxies, one hundred million galaxies, that surround us, you will then get some view of who this Man we worship is.” (J. Reuben Clark, Jr., *Behold the Lamb of God,* Deseret Book Company, 1962, pp. 16–17.)
+“And if you think of this galaxy of ours having within it from the beginning perhaps until now, one million worlds, and multiply that by the number of millions of galaxies, one hundred million galaxies, that surround us, you will then get some view of who this Man we worship is.” (J. Reuben Clark, Jr., *Behold the Lamb of God,* Deseret Book Company, 1962, pp. 16–17.)
 
 He was truly no novice, no amateur, in the art or skill of a creator. “Worlds without number” he has created.
 
@@ -78,7 +78,7 @@ On each occasion, he was declared to be the Christ, the literal Son of God.
 
 He healed all manner of illness or disease. At his command, the evil spirits departed, they, too, declaring who he was. He made the blind to see, the lame to walk. Yes, he even controlled life itself, for he restored Lazarus to life, who had been declared dead for four days. There were others, too.
 
-Yes, “the earth is the Lord’s, and the fulness thereof.” ([[1 Corinthians 10.26|1 Cor. 10:26]].) He had dominion over all the kingdoms of the earth—in the earth, on the earth, and in the heaven above the earth.
+Yes, “the earth is the Lord’s, and the fulness thereof.” ([[1 Corinthians 10.26|1 Cor. 10:26]].) He had dominion over all the kingdoms of the earth—in the earth, on the earth, and in the heaven above the earth.
 
 *All* he did was for others—his was a life of service. There was not one selfish act.
 
@@ -115,6 +115,4 @@ I testify that God lives and that Jesus is the Christ, the Son of God, and that 
 
 
 
-
-
-#Jesus_Christ
+#JesusChrist

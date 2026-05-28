@@ -1,14 +1,14 @@
 # What Is a Teacher?
 
-By President Paul H. Dunn - *Of the First Council of the Seventy*
+By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/10/what-is-a-teacher?lang=eng)
 
-We have been taught well in this great conference, my brothers and sisters, and I have been thinking a great deal about teaching and great teachers. Last evening, Elder Marion D. Hanks brought to our attention the situation concerning his departed cousin, a Brother \[Ivan\] Frame, who had a deep impact on humanity. He mentioned that one of the great tributes paid at his funeral was that every boy should have a Brother Frame in his life.
+We have been taught well in this great conference, my brothers and sisters, and I have been thinking a great deal about teaching and great teachers. Last evening, Elder Marion D. Hanks brought to our attention the situation concerning his departed cousin, a Brother \[Ivan\] Frame, who had a deep impact on humanity. He mentioned that one of the great tributes paid at his funeral was that every boy should have a Brother Frame in his life.
 
-I have thought about that, and I thank God repeatedly for such an individual in my life. He was a 78-year-old man who was assigned to be a priests adviser to six of us who were in our struggling teens and challenged with the future. His name was Charles B. Stewart. His son is here today as president of the great Tabernacle Choir.
+I have thought about that, and I thank God repeatedly for such an individual in my life. He was a 78-year-old man who was assigned to be a priests adviser to six of us who were in our struggling teens and challenged with the future. His name was Charles B. Stewart. His son is here today as president of the great Tabernacle Choir.
 
 I don’t know what you thought about a 78-year-old man when you were 16, but some of us questioned the wisdom of our bishop, for we thought he had literally brought Moses back.
 
@@ -72,7 +72,7 @@ Permit me this observation: The Savior might say to us today, if he were to teac
 
 Next, he talks about lost coins. This whole conference has talked about precious coins that become lost—young people, if you please. And there are those of us who are the responsible agents who, like the woman of this great teaching parable, let these priceless gems slip through our fingers. Certainly we wouldn’t recover this kind of lost article the way we would a sheep. He would say love, care, and attention would be the process used to recover lost coins (or people).
 
-And then the great parable of the Prodigal Son, with the Savior saying that there are those who get lost by choice; and in the concluding of that parable, he says: “And when he came to himself he \[the Prodigal Son\] said, How many hired servants of my father’s have bread enough and to spare. …” ([[Luke 15.17|Luke 15:17]].)
+And then the great parable of the Prodigal Son, with the Savior saying that there are those who get lost by choice; and in the concluding of that parable, he says: “And when he came to himself he \[the Prodigal Son\] said, How many hired servants of my father’s have bread enough and to spare. …” ([[Luke 15.17|Luke 15:17]].)
 
 There are those who get lost because their free agency takes them down that path. We can’t do a lot at some points to recover this kind of a person except open our arms and our church doors and let them know they are wanted. Teachers and advisers are really needed here. But note: he came to himself. He repented, sought forgiveness, and came home. Many people are like the Prodigal Son.
 
@@ -101,8 +101,6 @@ My testimony is that the gospel is true and that it works.
 >
 
 Such is the gospel of Jesus Christ, to which I bear solemn testimony in the name of Jesus Christ. Amen.
-
-
 
 
 

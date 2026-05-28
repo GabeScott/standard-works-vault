@@ -1,6 +1,6 @@
 # A Silver Lining
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -16,7 +16,7 @@ This I have done because although there is presently a widespread foreboding of 
 
 Typical of the widespread concern is the statement made some time ago by the Secretary-General of the United Nations:
 
-“I do not wish to conceal,” he said, “my profound concern about the situation which now prevails in the world, a concern which I know to be shared by responsible people everywhere. There is an almost universal sense of apprehension about where the tumultuous developments of our time may take us, a sense of deep anxiety at phenomena which we do not fully understand, let alone control. In all the speculation, much of it depressing, about the shape of the future, there recurs a note of helplessness and fatalism which I find deeply disturbing. This is not a new phenomenon. Dire prophecies have often before been the symptoms of periods of transition and change in human society. What *is* new is the scope and scale of the problems which give rise to these apprehensions. …
+“I do not wish to conceal,” he said, “my profound concern about the situation which now prevails in the world, a concern which I know to be shared by responsible people everywhere. There is an almost universal sense of apprehension about where the tumultuous developments of our time may take us, a sense of deep anxiety at phenomena which we do not fully understand, let alone control. In all the speculation, much of it depressing, about the shape of the future, there recurs a note of helplessness and fatalism which I find deeply disturbing. This is not a new phenomenon. Dire prophecies have often before been the symptoms of periods of transition and change in human society. What *is* new is the scope and scale of the problems which give rise to these apprehensions. …
 
 “Today the civilization which is facing such a challenge is *not* just one small part of mankind—it is mankind as a whole.” (Kurt Waldheim, address, August 30, 1974; italics added.)
 
@@ -26,7 +26,7 @@ These forecasts are discomfiting. They come as no surprise, however, to Latter-d
 
 The inhabitants of the earth, He said—explaining the cause of the impending disaster—“have strayed from mine ordinances, and have broken mine everlasting covenant;
 
-“They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God. …
+“They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God. …
 
 “Wherefore,” He continued, “I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments;
 
@@ -44,13 +44,13 @@ Obedience invokes “peaceful and beneficient cooperation of the elements.”
 
 Disobedience “may” and repeatedly has produced “calamity in the form of destructive phenomena.”
 
-Total disobedience in the days of Noah “brought about the Deluge.” (Dr. James E. Talmage, *Improvement Era,* June 1921, p. 738.)
+Total disobedience in the days of Noah “brought about the Deluge.” (Dr. James E. Talmage, *Improvement Era,* June 1921, p. 738.)
 
 Let us consider some of God’s basic instructions which, if obeyed, bring peace and prosperity.
 
 The first commandment He gave to Adam and Eve after they left the garden of Eden was “that they should worship the Lord their God.” ([[Moses 5.5|Moses 5:5]].) The significance of this commandment underlies all the rest of His commandments. Note how the Lord has repeatedly emphasized this need:
 
-“I am the Lord thy God …
+“I am the Lord thy God …
 
 “Thou shalt have no other gods before me.
 
@@ -74,7 +74,7 @@ These commandments, with others, together with blessings promised to follow obse
 
 “And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day;
 
-“And inasmuch as ye do these things with thanksgiving, with cheerful hearts and countenances, …
+“And inasmuch as ye do these things with thanksgiving, with cheerful hearts and countenances, …
 
 “The fulness of the earth is yours.
 
@@ -104,17 +104,17 @@ As disobedience brought on the flood, so obedience sanctified Enoch’s Zion.
 
 “And the Lord called his people Zion, because they were of one heart and one mind, and dwelt in righteousness.” ([[Moses 7.17|Moses 7:17–18]][[Moses 7.18|]].)
 
-As in ancient America the rebellious were destroyed by earthquake, whirlwind, and fire at the time of Christ’s crucifixion, so the righteous survivors developed a society which enjoyed perfect peace for several hundred years. (See [[4 Nephi 1.2|4 Ne. 1:2, 16]][[4 Nephi 1.16|]].)
+As in ancient America the rebellious were destroyed by earthquake, whirlwind, and fire at the time of Christ’s crucifixion, so the righteous survivors developed a society which enjoyed perfect peace for several hundred years. (See [[4 Nephi 1.2|4 Ne. 1:2, 16]][[4 Nephi 1.16|]].)
 
 Through Malachi the Lord promised “Israel that by faithfulness the seasons should be made propitious, that nurturing rains should come, bringing such harvests that the people would lack room to store their products.” (Talmage, *Improvement Era,* June 1921, p. 738; see [[Malachi 3.8|Mal. 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]].) Like assurances have been given in these latter days.
 
-Nephi, envisioning and speaking of our day, said that God “will preserve the righteous by his power, … even unto the destruction of their enemies by fire. Wherefore, the righteous need not fear.” ([[1 Nephi 22.17|1 Ne. 22:17]].)
+Nephi, envisioning and speaking of our day, said that God “will preserve the righteous by his power, … even unto the destruction of their enemies by fire. Wherefore, the righteous need not fear.” ([[1 Nephi 22.17|1 Ne. 22:17]].)
 
 Speaking to His apostles concerning our day, Jesus said: “They shall see an overflowing scourge; for a desolating sickness shall cover the land.
 
 “But my disciples shall stand in holy places, and shall not be moved; but among the wicked, men shall lift up their voices and curse God and die.
 
-“And there shall be earthquakes also in divers places, and many desolations; yet men will harden their hearts against me, and they will take up the sword, one against another, and they will kill one another. …
+“And there shall be earthquakes also in divers places, and many desolations; yet men will harden their hearts against me, and they will take up the sword, one against another, and they will kill one another. …
 
 “When … the Lord had spoken these words,” as he stood with His apostles, “they were troubled.”
 
@@ -125,8 +125,6 @@ Speaking to His apostles concerning our day, Jesus said: “They shall see an ov
 That we shall in full faith, relying upon these assurances, so keep the commandments that we shall be sustained by the knowledge that “behind the dim unknown, Standeth God within the shadow, keeping watch above his own” would be my fervent hope.
 
 Now, my brothers and sisters, I bear you my witness that I know these things are true; that we are the children of God our Father; that He sent us here; that our actions determine what will occur according to His statements to us in the plain and simple words that He has spoken. I know that we can have peace in the world if we will repent and follow the commandments of the Lord. I know that calamity will follow if we do not. And I plead for God to be with us that we may merit peace and security, in the name of Jesus Christ, our Redeemer. Amen.
-
-
 
 
 

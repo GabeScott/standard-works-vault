@@ -1,6 +1,5 @@
 # Lightly
 
-
 *lightly* esteemed the Rock of his salvation, [[Deuteronomy 32.15|Deuteronomy 32:15]].
 
 no man which shall do a miracle in my name, that can *lightly* speak evil of me, [[Mark 9.39|Mark 9:39]].

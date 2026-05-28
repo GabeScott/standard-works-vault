@@ -22,27 +22,25 @@ On January 11, 2003, as part of the worldwide leadership training broadcast, Pre
 
 There are two aspects of raising the standard for missionary service that we would do well to consider. The first is the early preparation of young men and women. In their letter introducing some modifications to the Young Men and Young Women programs, the First Presidency said, “As youth work on these goals, they will develop skills and attributes that will lead them to the temple and prepare them for a lifetime of service to their families and the Lord” (First Presidency letter, 28 Sept. 2001). Listen carefully to their words: “develop skills and attributes.” As parents and leaders of youth, we need to help our young people identify these skills and attributes.
 
-The second aspect revolves around personal worthiness, which comes through keeping the commandments of God. Some young men have had the notion that they can break the commandments, confess to their bishops one year before they plan to go on a mission, and then be worthy to serve. The repentance process is far more than planned confession followed by a waiting period. We often hear this question of one who has transgressed: “How long will I have to wait before I can go on my mission?” Keep in mind that repentance is not simply a waiting game. The Savior said: “And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost” ([[3 Nephi 9.20|3 Nephi 9:20]]).
+The second aspect revolves around personal worthiness, which comes through keeping the commandments of God. Some young men have had the notion that they can break the commandments, confess to their bishops one year before they plan to go on a mission, and then be worthy to serve. The repentance process is far more than planned confession followed by a waiting period. We often hear this question of one who has transgressed: “How long will I have to wait before I can go on my mission?” Keep in mind that repentance is not simply a waiting game. The Savior said: “And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost” ([[3 Nephi 9.20|3 Nephi 9:20]]).
 
 Now is the time to kindle that fire. President Hinckley has said, “We simply cannot permit those who have not qualified themselves as to worthiness to go into the world to speak the glad tidings of the gospel” (*First Worldwide Leadership Training Meeting,* Jan. 2003, 17). We now understand from the First Presidency’s statement on missionary work that there are transgressions that will disqualify young men and women from missionary service (see “Statement on Missionary Work” attached to First Presidency letter, 11 Dec. 2002).
 
-President James E. Faust said: “There need to be some absolutes in life. There are some things that should not ever be done, some lines that should never be crossed, vows that should never be broken, words that should never be spoken, and thoughts that should never be entertained” (in Conference Report, Apr. 1982, 74; or *Ensign,* May 1982, 48).
+President James E. Faust said: “There need to be some absolutes in life. There are some things that should not ever be done, some lines that should never be crossed, vows that should never be broken, words that should never be spoken, and thoughts that should never be entertained” (in Conference Report, Apr. 1982, [[1982 April - Integrity, the Mother of Many Virtues.md|74]]; or *Ensign,* May 1982, 48).
 
 The bar for missionary service has been raised. “Those individuals not able to meet the physical, mental, and emotional demands of full-time missionary work are honorably excused. … They may be called to serve in other rewarding capacities” (“Statement on Missionary Work” attached to First Presidency letter, 11 Dec. 2002). We believe that by following the guidelines outlined by the First Presidency, there will be an increase in the number of full-time missionaries who are worthy and prepared to serve.
 
 In sports we often have great athletes whom we admire, and we strive to develop skills to become like them. In our spiritual lives we also have great examples to follow, the greatest being our Lord and Savior Jesus Christ, who responded to Thomas’s question, “How can we know the way?” ([[John 14.5|John 14:5]]).
 
-The scriptures record Jesus saying, “I am the way” ([[John 14.6|John 14:6]]). In 2 Nephi we read: “Follow thou me. Wherefore, my beloved brethren, can we follow Jesus save we shall be willing to keep the commandments of the Father?” ([[2 Nephi 31.10|2 Nephi 31:10]]).
+The scriptures record Jesus saying, “I am the way” ([[John 14.6|John 14:6]]). In 2 Nephi we read: “Follow thou me. Wherefore, my beloved brethren, can we follow Jesus save we shall be willing to keep the commandments of the Father?” ([[2 Nephi 31.10|2 Nephi 31:10]]).
 
 My young friends, there are many who are following “the way” of the Savior whom you can seek to follow as your example as you prepare for missionary service. You will find them among your family, your friends, and your Church leaders. Even today I count as one of my greatest blessings those dear friends who set the proper example by following the Savior.
 
-It is my prayer that you young men will be diligent in your righteous desires, that you will be successful in all that you do, and that you will be, as Elder M. Russell Ballard has said, “the greatest generation of missionaries in the history of the Church” (in Conference Report, Oct. 2002, 50; or *Ensign,* Nov. 2002, 47).
+It is my prayer that you young men will be diligent in your righteous desires, that you will be successful in all that you do, and that you will be, as Elder M. Russell Ballard has said, “the greatest generation of missionaries in the history of the Church” (in Conference Report, Oct. 2002, [[2002 October - The Greatest Generation of Missionaries.md|50]]; or *Ensign,* Nov. 2002, 47).
 
 I testify, as President Hinckley recently said of missionary service, that “there is no greater work. There is no more important work” (*First Worldwide Leadership Training Meeting,* Jan. 2003, 21). In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Missionary_Work #Preparation #Worthiness
+#MissionaryWork #Preparation #Worthiness

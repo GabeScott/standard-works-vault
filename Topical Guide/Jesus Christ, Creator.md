@@ -1,11 +1,10 @@
 # Jesus Christ, Creator
 
-
 *See also* [[God, Creator.md|God, Creator]]; [[God the Father, Jehovah.md|God the Father, Jehovah]]
 
-Let us *make* man in our image, [[Genesis 1.26|Genesis 1:26]] ([[Moses 2.26|Moses 2:26-27]][[Moses 2.27|]]).
+Let us *make* man in our image, [[Genesis 1.26|Genesis 1:26]].
 
-Lord ... hast *made* heaven and earth, [[2 Kings 19.15|2 Kings 19:15]] ([[Acts 14.15|Acts 14:15]]; [[Mosiah 4.2|Mosiah 4:2]]; [[3 Nephi 9.15|3 Nephi 9:15]]; [[D&C 14.9|D&C 14:9]]).
+Lord … hast *made* heaven and earth, [[2 Kings 19.15|2 Kings 19:15]] ([[Acts 14.15|Acts 14:15]]; [[Mosiah 4.2|Mosiah 4:2]]; [[3 Nephi 9.15|3 Nephi 9:15]]; [[D&C 14.9|D&C 14:9]]).
 
 Thine hands have *made* me, [[Job 10.8|Job 10:8]].
 
@@ -19,7 +18,7 @@ Holy One of Israel hath *created* it, [[Isaiah 41.20|Isaiah 41:20]].
 
 Lord, he that *created* the heavens, [[Isaiah 42.5|Isaiah 42:5]] ([[Isaiah 45.18|Isaiah 45:18]]).
 
-redeemer ... that *maketh* all things, [[Isaiah 44.24|Isaiah 44:24]].
+redeemer … that *maketh* all things, [[Isaiah 44.24|Isaiah 44:24]].
 
 I have *made* the earth, and *created* man upon it, [[Isaiah 45.12|Isaiah 45:12]] ([[1 Nephi 17.36|1 Nephi 17:36]]).
 
@@ -39,9 +38,9 @@ who *created* all things by Jesus, [[Ephesians 3.9|Ephesians 3:9]] ([[Helaman 14
 
 after the image of him that *created* him, [[Colossians 3.10|Colossians 3:10]].
 
-his Son ... by whom also he *made* the worlds, [[Hebrews 1.2|Hebrews 1:2]].
+his Son … by whom also he *made* the worlds, [[Hebrews 1.2|Hebrews 1:2]].
 
-Lord ... hast *laid* the foundation of the earth, [[Hebrews 1.10|Hebrews 1:10]].
+Lord … hast *laid* the foundation of the earth, [[Hebrews 1.10|Hebrews 1:10]].
 
 worlds were *framed* by the word of God, [[Hebrews 11.3|Hebrews 11:3]].
 
@@ -49,11 +48,11 @@ he had *created* our first parents, [[2 Nephi 2.15|2 Nephi 2:15]].
 
 great *Creator* that he suffereth himself, [[2 Nephi 9.5|2 Nephi 9:5]].
 
-Lord ... *created* all men, [[2 Nephi 29.7|2 Nephi 29:7]] ([[Jacob 2.21|Jacob 2:21]]; [[Alma 1.4|Alma 1:4]]).
+Lord … *created* all men, [[2 Nephi 29.7|2 Nephi 29:7]] ([[Jacob 2.21|Jacob 2:21]]; [[Alma 1.4|Alma 1:4]]).
 
 earth was *created* by the power of his word, [[Jacob 4.9|Jacob 4:9]].
 
-Jesus ... the *Creator* of all things, [[Mosiah 3.8|Mosiah 3:8]] ([[Mosiah 5.15|Mosiah 5:15]]; [[Mosiah 26.23|Mosiah 26:23]]).
+Jesus … the *Creator* of all things, [[Mosiah 3.8|Mosiah 3:8]] ([[Mosiah 5.15|Mosiah 5:15]]; [[Mosiah 26.23|Mosiah 26:23]]).
 
 glory of him that *created* you, [[Mosiah 4.12|Mosiah 4:12]].
 
@@ -67,9 +66,9 @@ I am the same which spake, and the world was *made*, [[D&C 38.3|D&C 38:3]].
 
 who *made* the heavens and all the hosts, [[D&C 45.1|D&C 45:1]].
 
-by him ... the worlds are and were *created*, [[D&C 76.24|D&C 76:24]].
+by him … the worlds are and were *created*, [[D&C 76.24|D&C 76:24]].
 
-he is in the sun ... and the power thereof by which it was *made*, [[D&C 88.7|D&C 88:7]].
+he is in the sun … and the power thereof by which it was *made*, [[D&C 88.7|D&C 88:7]].
 
 Have I not *made* the earth, [[D&C 117.6|D&C 117:6]].
 
@@ -80,5 +79,3 @@ by mine Only Begotten I *created* these things, [[Moses 2.1|Moses 2:1]].
 *we* will make an earth whereon these may dwell, [[Abraham 3.24|Abraham 3:24]].
 
 *Gods*, organized and formed the heavens and the earth, [[Abraham 4.1|Abraham 4:1]].
-
-*See also* [[Job 26.13|Job 26:13]]; [[2 Peter 3.5|2 Peter 3:5]]; [[D&C 88.13|D&C 88:13]]; [[D&C 104.17|D&C 104:17]].

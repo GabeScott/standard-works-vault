@@ -1,4 +1,3 @@
 # Cephas
 
-
-*See* [BD Cephas](https://www.churchofjesuschrist.org/study/scriptures/bd/cephas?lang=eng)
+*See also* [[BD Cephas.md|BD Cephas]]

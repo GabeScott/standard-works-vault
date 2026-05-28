@@ -12,7 +12,7 @@ During the past years I have at times been asked by the Brethren to meet with re
 
 Temptation is a necessary part of our earthly experience. The Lord through the Prophet Joseph Smith explains the reason why we are tempted: “It must needs be that the devil should tempt the children of men, or they could not be agents unto themselves; for if they never should have bitter they could not know the sweet” ([[D&C 29.39|D&C 29:39]]).
 
-In the Book of Mormon, Nephi explains the consequences of yielding to temptation: “The temptations of the devil … blindeth the eyes, and hardeneth the hearts of the children of men, and leadeth them away into broad roads, that they perish and are lost” ([[1 Nephi 12.17|1 Ne. 12:17]]).
+In the Book of Mormon, Nephi explains the consequences of yielding to temptation: “The temptations of the devil … blindeth the eyes, and hardeneth the hearts of the children of men, and leadeth them away into broad roads, that they perish and are lost” ([[1 Nephi 12.17|1 Ne. 12:17]]).
 
 To blind the eyes is *not* to see or acknowledge the consequences of our actions. To harden the heart is to *ignore* or not be willing to accept counsel. To be led into the broad roads is to give in to worldly enticements and lose the influence of the Holy Spirit in our lives.
 
@@ -53,6 +53,4 @@ My brothers and sisters, I know this work is true. I know prophets travel the ea
 
 
 
-
-
-#Agency #Evil #Holy_Ghost #Jesus_Christ #Obedience #Temptation #Testimony
+#Agency #Evil #HolyGhost #JesusChrist #Obedience #Temptation #Testimony

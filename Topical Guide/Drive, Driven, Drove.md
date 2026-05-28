@@ -1,6 +1,5 @@
 # Drive, Driven, Drove
 
-
 So he *drove* out the man, [[Genesis 3.24|Genesis 3:24]] ([[Moses 4.31|Moses 4:31]]).
 
 thou hast *driven* me out this day, [[Genesis 4.14|Genesis 4:14]].

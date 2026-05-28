@@ -1,6 +1,5 @@
 # Curtain
 
-
 ten *curtains* of fine twined linen, [[Exodus 26.1|Exodus 26:1]] ([[Exodus 36.8|Exodus 36:8]]).
 
 ark of God dwelleth within *curtains*, [[2 Samuel 7.2|2 Samuel 7:2]] ([[1 Chronicles 17.1|1 Chronicles 17:1]]).

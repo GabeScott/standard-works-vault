@@ -62,7 +62,7 @@ Now, as I have indicated, there are twelve others on whom have been conferred th
 
 You ask, can there be two separate bodies with equal authority without confusion? Yes. The Lord has given the answer to this. He has said, “The Twelve are a Traveling Presiding High Council, to officiate in the name of the Lord, under the direction of the Presidency of the Church” ([[D&C 107.33|D&C 107:33]]).
 
-Concerning this matter, President Joseph F. Smith said: “The duty of the Twelve Apostles of the Church is to preach the gospel to the world, to send it to the inhabitants of the earth and to bear testimony of Jesus Christ the Son of God, as living witnesses of his divine mission. That is their special calling and they are always under the direction of the Presidency of The Church of Jesus Christ of Latter-day Saints when that presidency is intact, and there is never at the same time two equal heads in the Church—never. The Lord never ordained any such thing, nor designed it. There is always a head in the Church, and if the Presidency of the Church are removed by death or other cause, then the next head of the Church is the Twelve Apostles, until a presidency is again organized of three presiding high priests who have the right to hold the office of First Presidency over the Church” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], pp. 177–78).
+Concerning this matter, President Joseph F. Smith said: “The duty of the Twelve Apostles of the Church is to preach the gospel to the world, to send it to the inhabitants of the earth and to bear testimony of Jesus Christ the Son of God, as living witnesses of his divine mission. That is their special calling and they are always under the direction of the Presidency of The Church of Jesus Christ of Latter-day Saints when that presidency is intact, and there is never at the same time two equal heads in the Church—never. The Lord never ordained any such thing, nor designed it. There is always a head in the Church, and if the Presidency of the Church are removed by death or other cause, then the next head of the Church is the Twelve Apostles, until a presidency is again organized of three presiding high priests who have the right to hold the office of First Presidency over the Church” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], pp. 177–78).
 
 Here then, my brothers and sisters, is the remarkable plan of the Lord for the governance of His earthly kingdom. The authority to conduct its affairs was received in this dispensation under the hands of Peter, James, and John, who were ordained by the Lord when He was on the earth. And, as we have seen, there is order in the exercise of that authority.
 
@@ -70,7 +70,7 @@ I wish now to say a few words about the men who are members of the Quorum of the
 
 In the United States we presently are in a campaign to elect men and women to public office. Millions upon millions of dollars are being spent in the process, with hundreds of thousands working to promote the interests of their favorite candidates.
 
-How different it is with the work of the Lord. No faithful member of this Church would think of applying for ecclesiastical office. Rather, “we believe that a man must be called of God, by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” ([[Articles of Faith 1.5|A of F 1:5]]).
+How different it is with the work of the Lord. No faithful member of this Church would think of applying for ecclesiastical office. Rather, “we believe that a man must be called of God, by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” ([[Articles of Faith 1.5|A of F 1:5]]).
 
 The Lord Himself said of the Twelve whom He selected, “Ye have not chosen me, but I have chosen you, and ordained you” ([[John 15.16|John 15:16]]).
 
@@ -115,6 +115,4 @@ I make a promise to all who uphold and sustain it, and who strive with faith and
 
 
 
-
-
-#Church_Organization #Prophets
+#ChurchOrganization #Prophets

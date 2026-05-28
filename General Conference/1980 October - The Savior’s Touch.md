@@ -1,6 +1,6 @@
 # The Savior’s Touch
 
-By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
+By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -38,7 +38,7 @@ The Master’s touch through that teacher reached out and blessed not only this 
 
 Sometimes the Savior’s touch can reach others through little bodies with big hearts. A lovely woman had received the missionary discussions but had not made the final commitment to be baptized. One Sunday she decided to attend sacrament meeting in a ward where she was not acquainted. She wanted a place where she could be alone with her thoughts. She sat beside a little boy. As the sacrament was passed, this little boy noticed that she did not take the sacrament bread. When it came to him, he carefully broke it in two and gave half to her. The woman was very impressed that a child would perform such a meaningful act of kindness. That day she contacted the missionaries and said, “If this is what you teach the children in your church, I want to become a member.”
 
-The Lord taught the Nephites, “Therefore, hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up.” ([[3 Nephi 18.24|3 Ne. 18:24]].) A recent example of the light of the Lord touching someone who needed it desperately came when I called upon a very close friend shortly after the death of his eternal companion. I asked him, “What can I now do to help?” He answered, “Help my son to understand.” You see, this son loved his mother very much. When he saw her suffer month after month, he began to feel that the prayers and the priesthood blessings went unanswered. This caused his faith in our Heavenly Father to waiver, and he lost the light of the Lord in his life.
+The Lord taught the Nephites, “Therefore, hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up.” ([[3 Nephi 18.24|3 Ne. 18:24]].) A recent example of the light of the Lord touching someone who needed it desperately came when I called upon a very close friend shortly after the death of his eternal companion. I asked him, “What can I now do to help?” He answered, “Help my son to understand.” You see, this son loved his mother very much. When he saw her suffer month after month, he began to feel that the prayers and the priesthood blessings went unanswered. This caused his faith in our Heavenly Father to waiver, and he lost the light of the Lord in his life.
 
 The words rang in my ears: “Help my son to understand.” I asked myself, “How? What can I do?” Finally, I invited him to come to Church headquarters to talk with me. When he arrived and we went to the lunchroom, a most unusual circumstance unfolded while we were eating. During our visit, many General Authorities came by our table and greeted us. Most importantly, he shook hands with eight of the Twelve Apostles that sit here on the stand. Never before or since have I seen that many members of the Twelve in the lunchroom at one time.
 
@@ -65,6 +65,4 @@ I bear testimony that Jesus is the Christ, the Son of the living God, that he to
 
 
 
-
-
-#Healing #Jesus_Christ #Service
+#Healing #JesusChrist #Service

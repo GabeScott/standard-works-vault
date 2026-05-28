@@ -10,7 +10,7 @@ By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 I am grateful to speak to this worldwide audience of priesthood holders. It is now 8:00 a.m. Sunday morning in the Philippines, my home for the last two years. I send greetings to my beloved associates in that nation and to all of you.
 
-I assume there are no boys in this audience, only young men who are holders of the priesthood. The Apostle Paul wrote that when he was a child he understood as a child, but when he became a man he put away such things (see [[1 Corinthians 13.11|1 Corinthians 13:11]]). You young men are doing the same, so I will speak to you as one man speaks to another.
+I assume there are no boys in this audience, only young men who are holders of the priesthood. The Apostle Paul wrote that when he was a child he understood as a child, but when he became a man he put away such things (see [[1 Corinthians 13.11|1 Corinthians 13:11]]). You young men are doing the same, so I will speak to you as one man speaks to another.
 
 ## I.
 
@@ -20,21 +20,29 @@ In the beginning, when a powerful spirit was cast down for rebellion, “he beca
 
 Here are some ways the devil will try to deceive us. God’s commandments and the teachings of His prophets warn against each of them.
 
-1. One kind of deception seeks to mislead us about whom we should follow. In speaking of the last days, the Savior taught: “Take heed that no man deceive you. For many shall come in my name, saying, I am Christ; and shall deceive many” ([[Matthew 24.4|Matthew 24:4–5]][[Matthew 24.5|]]). In other words, many will seek to deceive us by saying that they or their teachings will save us, so there is no need for a Savior or His gospel. The Book of Mormon describes this as “the power of the devil, to lead away and deceive the hearts of the people … to believe that the doctrine of Christ was a foolish and a vain thing” ([[3 Nephi 2.2|3 Nephi 2:2]]).
+1. One kind of deception seeks to mislead us about whom we should follow. In speaking of the last days, the Savior taught: “Take heed that no man deceive you. For many shall come in my name, saying, I am Christ; and shall deceive many” ([[Matthew 24.4|Matthew 24:4–5]][[Matthew 24.5|]]). In other words, many will seek to deceive us by saying that they or their teachings will save us, so there is no need for a Savior or His gospel. The Book of Mormon describes this as “the power of the devil, to lead away and deceive the hearts of the people … to believe that the doctrine of Christ was a foolish and a vain thing” ([[3 Nephi 2.2|3 Nephi 2:2]]).
 
-2. Satan also seeks to deceive us about right and wrong and to persuade us that there is no such thing as sin. This detour typically starts off with what seems to be only a small departure: “Just try it once. One beer or one cigarette or one porno movie won’t hurt.” What all of these departures have in common is that each of them is addictive. Addiction is a condition in which we surrender part of our power of choice. When we do that, we give the devil power over us. The prophet Nephi described where this leads: the devil says, “There is no hell” and “I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance” ([[2 Nephi 28.22|2 Nephi 28:22]]).If we choose the wrong road, we choose the wrong destination. For example, a friend of many years told me that her husband, always a “good kid” in high school, took a few drinks that he thought would help him forget some problems. Before he knew what was happening, he was addicted. Now he is not able to support his family, and he is ineffective at almost everything he tries to do. Alcohol governs his life, and he cannot seem to break free of its grip.
+2. Satan also seeks to deceive us about right and wrong and to persuade us that there is no such thing as sin. This detour typically starts off with what seems to be only a small departure: “Just try it once. One beer or one cigarette or one porno movie won’t hurt.” What all of these departures have in common is that each of them is addictive. Addiction is a condition in which we surrender part of our power of choice. When we do that, we give the devil power over us. The prophet Nephi described where this leads: the devil says, “There is no hell” and “I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance” ([[2 Nephi 28.22|2 Nephi 28:22]]).
 
-3. The prophet Nephi warns against another kind of deception: “And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell” ([[2 Nephi 28.21|2 Nephi 28:21]]).Those who fall for this deception may profess to believe in God, but they do not take His commandments or His justice seriously. They are confident in their own prosperity and conclude that God must have accepted their chosen route.“Yea, and there shall be many which shall say: Eat, drink, and be merry, for tomorrow we die; and it shall be well with us.“And there shall also be many which shall say: Eat, drink, and be merry; nevertheless, fear God—he will justify in committing a little sin; … there is no harm in this; and do all these things, for tomorrow we die; and if it so be that we are guilty, God will beat us with a few stripes, and at last we shall be saved in the kingdom of God” ([[2 Nephi 28.7|2 Nephi 28:7–8]][[2 Nephi 28.8|]]).
+If we choose the wrong road, we choose the wrong destination. For example, a friend of many years told me that her husband, always a “good kid” in high school, took a few drinks that he thought would help him forget some problems. Before he knew what was happening, he was addicted. Now he is not able to support his family, and he is ineffective at almost everything he tries to do. Alcohol governs his life, and he cannot seem to break free of its grip.
 
-Surely you have seen and heard these arguments, brethren. They will come at you in classrooms and hallways, in what you read, and in what you see in popular entertainment. Many in the world deny the need for a Savior. Others deny that there is any right or wrong, and they scoff at the idea of sin or a devil. Still others rely on the mercy of God and ignore His justice. The prophet said, “There shall be many which shall teach after this manner, false and vain and foolish doctrines” ([[2 Nephi 28.9|2 Nephi 28:9]]).
+3. The prophet Nephi warns against another kind of deception: “And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell” ([[2 Nephi 28.21|2 Nephi 28:21]]).
 
-The Apostle Paul gave pointed warnings about the “perilous times” that would come in the last days. “For men shall be lovers of their own selves, … disobedient to parents, unthankful, unholy, without natural affection, … despisers of those that are good, … lovers of pleasures more than lovers of God” ([[2 Timothy 3.1|2 Timothy 3:1–4]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]]). He also said that “evil men and seducers shall wax worse and worse, deceiving, and being deceived” ([[2 Timothy 3.13|v. 13]]). In a moment I will discuss what Paul told young Timothy about how to avoid this wickedness.
+Those who fall for this deception may profess to believe in God, but they do not take His commandments or His justice seriously. They are confident in their own prosperity and conclude that God must have accepted their chosen route.
+
+“Yea, and there shall be many which shall say: Eat, drink, and be merry, for tomorrow we die; and it shall be well with us.
+
+“And there shall also be many which shall say: Eat, drink, and be merry; nevertheless, fear God—he will justify in committing a little sin; … there is no harm in this; and do all these things, for tomorrow we die; and if it so be that we are guilty, God will beat us with a few stripes, and at last we shall be saved in the kingdom of God” ([[2 Nephi 28.7|2 Nephi 28:7–8]][[2 Nephi 28.8|]]).
+
+Surely you have seen and heard these arguments, brethren. They will come at you in classrooms and hallways, in what you read, and in what you see in popular entertainment. Many in the world deny the need for a Savior. Others deny that there is any right or wrong, and they scoff at the idea of sin or a devil. Still others rely on the mercy of God and ignore His justice. The prophet said, “There shall be many which shall teach after this manner, false and vain and foolish doctrines” ([[2 Nephi 28.9|2 Nephi 28:9]]).
+
+The Apostle Paul gave pointed warnings about the “perilous times” that would come in the last days. “For men shall be lovers of their own selves, … disobedient to parents, unthankful, unholy, without natural affection, … despisers of those that are good, … lovers of pleasures more than lovers of God” ([[2 Timothy 3.1|2 Timothy 3:1–4]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]]). He also said that “evil men and seducers shall wax worse and worse, deceiving, and being deceived” ([[2 Timothy 3.13|v. 13]]). In a moment I will discuss what Paul told young Timothy about how to avoid this wickedness.
 
 The Apostle gave another warning against being deceived by the devil and his pawns:
 
 “Know ye not that the unrighteous shall not inherit the kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind,
 
-“Nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners, shall inherit the kingdom of God” ([[1 Corinthians 6.9|1 Corinthians 6:9–10]][[1 Corinthians 6.10|]]).
+“Nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners, shall inherit the kingdom of God” ([[1 Corinthians 6.9|1 Corinthians 6:9–10]][[1 Corinthians 6.10|]]).
 
 Be not deceived, brethren. Heed the ancient and modern prophetic warnings against thievery, drunkenness, and all forms of sexual sin. The deceiver seeks to destroy your spirituality by all of these means. Paul warns us against those who “lie in wait to deceive” “by the sleight of men, and cunning craftiness” ([[Ephesians 4.14|Ephesians 4:14]]). Beware of the slick package and the glitz of a good time. What the devil portrays as fun can be spiritually fatal.
 
@@ -50,7 +58,7 @@ Fortunately, repentance is possible. For the most serious sins we need to confes
 
 ## III.
 
-Now I wish to speak about how each of us can avoid being deceived on matters of eternal importance. I have two texts. The first is what Paul taught Timothy after giving him the warning I quoted earlier. Continue in the things you have learned and been assured of, he wrote, “knowing of whom thou hast learned them” ([[2 Timothy 3.14|2 Timothy 3:14]]). In other words, you have been taught righteousness and assured of its truth, so stay with it. Continuing, Paul reminded his young friend “that from a child thou hast known the holy scriptures, which are able to make thee wise unto salvation” through faith in our Savior ([[2 Timothy 3.15|v. 15]]). Hold fast to the scriptures, whose teachings protect us against evil.
+Now I wish to speak about how each of us can avoid being deceived on matters of eternal importance. I have two texts. The first is what Paul taught Timothy after giving him the warning I quoted earlier. Continue in the things you have learned and been assured of, he wrote, “knowing of whom thou hast learned them” ([[2 Timothy 3.14|2 Timothy 3:14]]). In other words, you have been taught righteousness and assured of its truth, so stay with it. Continuing, Paul reminded his young friend “that from a child thou hast known the holy scriptures, which are able to make thee wise unto salvation” through faith in our Savior ([[2 Timothy 3.15|v. 15]]). Hold fast to the scriptures, whose teachings protect us against evil.
 
 The parable of the ten virgins teaches that when the Lord comes in His glory, of all followers of Christ invited to the wedding feast, only half will be given entrance. The inspired explanation of this parable reveals our second source of protection:
 
@@ -58,11 +66,11 @@ The parable of the ten virgins teaches that when the Lord comes in His glory, of
 
 The other half will be denied entrance because they are not prepared. It is not enough to have received the truth. We must also “have taken the Holy Spirit for \[our\] guide” and “not \[be\] deceived.”
 
-How do we take the Holy Spirit for our guide? We must repent of our sins each week and renew our covenants by partaking of the sacrament with clean hands and a pure heart, as we are commanded to do (see [[D&C 59.8|D&C 59:8–9, 12]][[D&C 59.9|]][[D&C 59.12|]]). Only in this way can we have the divine promise that we will “always have his Spirit to be with \[us\]” ([[D&C 20.77|D&C 20:77]]). That Spirit is the Holy Ghost, whose mission is to teach us, to lead us to truth, and to testify of the Father and the Son (see [[John 14.26|John 14:26]]; [[John 15.26|15:26]]; [[John 16.13|16:13]]; [[3 Nephi 11.32|3 Nephi 11:32, 36]][[3 Nephi 11.36|]]).
+How do we take the Holy Spirit for our guide? We must repent of our sins each week and renew our covenants by partaking of the sacrament with clean hands and a pure heart, as we are commanded to do (see [[D&C 59.8|D&C 59:8–9, 12]][[D&C 59.9|]][[D&C 59.12|]]). Only in this way can we have the divine promise that we will “always have his Spirit to be with \[us\]” ([[D&C 20.77|D&C 20:77]]). That Spirit is the Holy Ghost, whose mission is to teach us, to lead us to truth, and to testify of the Father and the Son (see [[John 14.26|John 14:26]]; [[John 15.26|15:26]]; [[John 16.13|16:13]]; [[3 Nephi 11.32|3 Nephi 11:32, 36]][[3 Nephi 11.36|]]).
 
 To avoid being deceived, we must also follow the promptings of that Spirit. The Lord taught this principle in the 46th section of the Doctrine and Covenants:
 
-“That which the Spirit testifies unto you even so I would that ye should do in all holiness of heart, walking uprightly before me, considering the end of your salvation, doing all things with prayer and thanksgiving, that ye may not be seduced by evil spirits, or doctrines of devils, or the commandments of men. …
+“That which the Spirit testifies unto you even so I would that ye should do in all holiness of heart, walking uprightly before me, considering the end of your salvation, doing all things with prayer and thanksgiving, that ye may not be seduced by evil spirits, or doctrines of devils, or the commandments of men. …
 
 “Wherefore, beware lest ye are deceived; and that ye may not be deceived seek ye earnestly the best gifts, always remembering for what they are given” ([[D&C 46.7|D&C 46:7–8]][[D&C 46.8|]]).
 
@@ -77,6 +85,4 @@ I testify that these things are true, and I pray that we will do all that is nec
 
 
 
-
-
-#Holy_Ghost #Repentance #Temptation
+#HolyGhost #Repentance #Temptation

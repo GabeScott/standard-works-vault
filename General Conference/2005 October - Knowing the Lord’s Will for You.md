@@ -53,7 +53,7 @@ Dear sisters, may the Lord bless each of you in your personal quest to know *His
 
 [^1]: [[Alma 26.3|Alma 26:3]].
 
-[^2]: In Conference Report, Sept.–Oct. 1995, 30; or *Ensign,* Nov. 1995, 24; emphasis added.
+[^2]: In Conference Report, Sept.–Oct. 1995, [[1995 October - “Swallowed Up in the Will of the Father”.md|30]]; or *Ensign,* Nov. 1995, 24; emphasis added.
 
 [^3]: [[Alma 34.32|Alma 34:32]].
 
@@ -69,6 +69,4 @@ Dear sisters, may the Lord bless each of you in your personal quest to know *His
 
 [^9]: *Ensign,* Nov. 1995, 24; emphasis added.
 
-
-
-#Agency #Covenants #Faith #Humility #Missionary_Work #Obedience #Scripture_Study
+#Agency #Covenants #Faith #Humility #MissionaryWork #Obedience #ScriptureStudy

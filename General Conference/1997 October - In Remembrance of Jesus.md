@@ -12,9 +12,9 @@ The Last Supper, just before the death of Christ, was significant in many ways. 
 
 The time had come for the conclusion of Christ’s ministry on earth. It was the Passover season. The people were celebrating and rejoicing in the goodness of God for having saved their forefathers. Jesus had assembled His Apostles in the Upper Room for the Last Supper. He gave a foreshadow of the events to come, of His atoning sacrifice so that all mankind—those who had lived, those who were then living, and all those who would ever live on earth—would benefit from His atoning sacrifice. By Him and through Him all men would be resurrected. Mercy would overcome justice. Provision was made that we could repent from our sins, be obedient to His commandments, and be able to return to His presence. This was doctrine that was not easy for those who lived in His time to understand. At the conclusion of the evening, He instituted the sacrament.
 
-We read “that the Lord Jesus the same night in which he was betrayed took bread: And when he had given thanks, he brake it, and said, Take, eat: this is my body, which is broken for you: this do in remembrance of me” ([[1 Corinthians 11.23|1 Cor. 11:23–24]][[1 Corinthians 11.24|]]).
+We read “that the Lord Jesus the same night in which he was betrayed took bread: And when he had given thanks, he brake it, and said, Take, eat: this is my body, which is broken for you: this do in remembrance of me” ([[1 Corinthians 11.23|1 Cor. 11:23–24]][[1 Corinthians 11.24|]]).
 
-He took the cup, saying: “This cup is the new testament in my blood: this do ye, as oft as ye drink it, in remembrance of me. For \[whenever\] ye eat this bread, and drink this cup, ye \[proclaim\] the Lord’s death till he come” ([[1 Corinthians 11.25|1 Cor. 11:25–26]][[1 Corinthians 11.26|]]). He said that this sacrament would be done in remembrance of Him. “This do in remembrance of me” were His words ([[Luke 22.19|Luke 22:19]]).
+He took the cup, saying: “This cup is the new testament in my blood: this do ye, as oft as ye drink it, in remembrance of me. For \[whenever\] ye eat this bread, and drink this cup, ye \[proclaim\] the Lord’s death till he come” ([[1 Corinthians 11.25|1 Cor. 11:25–26]][[1 Corinthians 11.26|]]). He said that this sacrament would be done in remembrance of Him. “This do in remembrance of me” were His words ([[Luke 22.19|Luke 22:19]]).
 
 Therefore, for all who come unto Christ and take His name upon them through baptism, there is great responsibility to be worthy to participate weekly in the sacrament in order that they may renew their baptismal covenant, take His name upon them, renew their promise to keep all of His commandments, remember Him, know Him, and comprehend His greatness.
 
@@ -24,7 +24,7 @@ To remember and know Jesus Christ is to know He is the Jehovah of the Old Testam
 
 “And worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten.
 
-“… And there are many that now stand, and innumerable are they unto man; but all things are numbered unto me, for they are mine and I know them. …
+“… And there are many that now stand, and innumerable are they unto man; but all things are numbered unto me, for they are mine and I know them. …
 
 “And the Lord God spake unto Moses, saying: The heavens, they are many, and they cannot be numbered unto man; but they are numbered unto me, for they are mine.
 
@@ -50,23 +50,23 @@ Jesus knew that after His sojourn here in mortality and after the completion of 
 
 We can relate a number of miracles during Christ’s ministry showing He could overcome the elements of the earth in terms of calming the sea, turning the water to wine, feeding the multitudes from scraps of bread and fish, as well as individual acts of healing the lame, the blind, the deaf; casting devils out; restoring Lazarus from the dead after four days. All of these miracles were manifestations of His divine power, culminating in His Atonement and His Resurrection.
 
-At the time of Jesus, the people of Jerusalem were living the law of Moses, “an eye for an eye” ([[Matthew 5.38|Matt. 5:38]]), a preparatory law which was contained in the Old Testament. Jesus tried to bring them to live a higher law. When He was resurrected, He said, “In me is the law of Moses fulfilled” ([[3 Nephi 9.17|3 Ne. 9:17]]). Jesus taught how to progress beyond the behavioral law of Moses when He gave the Beatitudes and the Lord’s Prayer. He taught a law of love, a law of forgiveness of one another. He taught that we should do unto others as we would want others to do unto us. He taught that we should love the Lord with all our hearts and our neighbor as ourselves. When the people, still thinking in terms of the law of Moses mentality, asked, “Who is our neighbor?” He gave the parable of the good Samaritan, showing that the compassion that He was teaching should go across cultural and ethnic lines and applies to all. Many people who had been keeping the law of Moses rejected His gospel of love.
+At the time of Jesus, the people of Jerusalem were living the law of Moses, “an eye for an eye” ([[Matthew 5.38|Matt. 5:38]]), a preparatory law which was contained in the Old Testament. Jesus tried to bring them to live a higher law. When He was resurrected, He said, “In me is the law of Moses fulfilled” ([[3 Nephi 9.17|3 Ne. 9:17]]). Jesus taught how to progress beyond the behavioral law of Moses when He gave the Beatitudes and the Lord’s Prayer. He taught a law of love, a law of forgiveness of one another. He taught that we should do unto others as we would want others to do unto us. He taught that we should love the Lord with all our hearts and our neighbor as ourselves. When the people, still thinking in terms of the law of Moses mentality, asked, “Who is our neighbor?” He gave the parable of the good Samaritan, showing that the compassion that He was teaching should go across cultural and ethnic lines and applies to all. Many people who had been keeping the law of Moses rejected His gospel of love.
 
 How do we know if we have progressed from the “eye for an eye” mentality and accepted His gospel to forgive and love one another? How we treat our family members, our neighbors, business associates, and all we meet will reveal if we have taken His name upon us and do always remember Him. How we conduct our lives, all we do and all we say, reflects on how we remember Him. If we truly love Him, we will keep His commandments as He has asked. Very simply, He said, “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]).
 
 We pray to our Father in Heaven in the name of Jesus Christ. Jesus is the great Mediator. Though omnipotent and omniscient, all-powerful and all-knowing, He is our friend. After counseling early Brethren of the Church to “set in order your own house,” He said, “I will call you friends, for you are my friends” ([[D&C 93.43|D&C 93:43, 45]][[D&C 93.45|]]). With all of His greatness, He has said that He is our friend. We have been asked to be a friend to our neighbors and to teach them the gospel, and to be a friend to new converts, that the fruit of our labors may remain (see [[John 15.16|John 15:16]]). Our prophet has asked us to be a friend. Can our prophet expect anything less?
 
-When we are baptized in His name and always remember Him and keep His commandments, He gives us the greatest blessing He can give us: that is to always have His Spirit to be with us. That Spirit of the Lord is light. “Behold, I am Jesus Christ, the Son of God. I am the life and the light of the world” ([[D&C 11.28|D&C 11:28]]; see also [[3 Nephi 9.18|3 Ne. 9:18]]). “Then spake Jesus again unto them, saying, I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life” ([[John 8.12|John 8:12]]). This is “the light which is in all things, which giveth life to all things, which is the law by which all things are governed” ([[D&C 88.13|D&C 88:13]]). Light and darkness cannot occupy the same space at the same time. Where the light of Christ is found, the darkness of Lucifer, even Satan, must depart, defeated. May we follow the light and choose the right.
+When we are baptized in His name and always remember Him and keep His commandments, He gives us the greatest blessing He can give us: that is to always have His Spirit to be with us. That Spirit of the Lord is light. “Behold, I am Jesus Christ, the Son of God. I am the life and the light of the world” ([[D&C 11.28|D&C 11:28]]; see also [[3 Nephi 9.18|3 Ne. 9:18]]). “Then spake Jesus again unto them, saying, I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life” ([[John 8.12|John 8:12]]). This is “the light which is in all things, which giveth life to all things, which is the law by which all things are governed” ([[D&C 88.13|D&C 88:13]]). Light and darkness cannot occupy the same space at the same time. Where the light of Christ is found, the darkness of Lucifer, even Satan, must depart, defeated. May we follow the light and choose the right.
 
 What we must remember about the Savior is that He and He alone had the power to lay down His life and take it up again. He had the ability to die from His mortal mother, Mary, and the ability to overcome death from His immortal Father. Our Savior, Jesus Christ, went willingly and deliberately to His death, having told His followers that this would happen. Why? one might ask. The answer: to give immortality to all mankind and the promise of eternal life to those who believed in Him (see [[John 3.15|John 3:15]]), to give His own life for a ransom for others (see [[Matthew 20.28|Matt. 20:28]]), to overcome Satan’s power, and to make it possible for sins to be forgiven. Without Jesus’ Atonement, there would be an impassable barrier between God and mortal men and women. When we comprehend the Atonement, we remember Him with awe and gratitude.
 
-“Early on the first day of the week … , Mary Magdalene went to the tomb and saw that the stone had been removed \[and that the tomb was empty\]. …
+“Early on the first day of the week … , Mary Magdalene went to the tomb and saw that the stone had been removed \[and that the tomb was empty\]. …
 
-“She turned around and saw Jesus standing there, but she did not realize that it was Jesus. …
+“She turned around and saw Jesus standing there, but she did not realize that it was Jesus. …
 
 “Thinking he was the gardener, she said, ‘Sir, if you have carried him away, tell me where you have put him, and I will get him.’
 
-“Jesus said to her, ‘Mary.’ …
+“Jesus said to her, ‘Mary.’ …
 
 “Mary Magdalene went to the disciples with the news: ‘I have seen the Lord’” (The Holy Bible, New International Version, [[John 20.1|John 20:1, 14–16, 18]][[John 20.14|]][[John 20.15|]][[John 20.16|]][[John 20.18|]]).
 
@@ -74,7 +74,7 @@ As we remember the Savior, we remember an empty tomb, a symbol that the Lord has
 
 Because of our Savior’s Atonement, in death’s darkness there is no sting, in death’s depression there is no victory. His resurrected light dispels the darkness, defeating the prince of darkness, with a brightness of eternal hope.
 
-Christ has indeed been raised from the dead, the firstfruits of those who slept: “For since by man came death, by man came also the resurrection of the dead. For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.21|1 Cor. 15:21–22]][[1 Corinthians 15.22|]]).
+Christ has indeed been raised from the dead, the firstfruits of those who slept: “For since by man came death, by man came also the resurrection of the dead. For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.21|1 Cor. 15:21–22]][[1 Corinthians 15.22|]]).
 
 A knowledge of our Savior, Jesus Christ, was given to us by Isaiah—that the Lord will guide us always. He will satisfy our needs in a sun-scorched land and will strengthen our frame. We will be like a well-watered garden, like a spring whose waters never fail (see [[Isaiah 58.11|Isa. 58:11]]).
 
@@ -86,13 +86,11 @@ We have not been left alone. We have the light of Christ and the Holy Ghost to l
 
 May we follow our Savior, Jesus Christ, and always remember Him in all that we do and all that we say and in all of the acts of charity given one to another, that we may know that these things are done in remembrance of Him.
 
-I testify that our Lord Jesus Christ lives and guides and directs His Church by revelation through His prophet this very day and time. “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]). We believe in Christ, we remember Him, and we testify of Jesus Christ our Lord and our Redeemer with the knowledge that He will come again to earth to reign in glory as King of Kings.
+I testify that our Lord Jesus Christ lives and guides and directs His Church by revelation through His prophet this very day and time. “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]). We believe in Christ, we remember Him, and we testify of Jesus Christ our Lord and our Redeemer with the knowledge that He will come again to earth to reign in glory as King of Kings.
 
 May all who profess to be Christians, all who know and testify of Jesus, come unto Him and follow His teachings and example, being one as Heavenly Father and Jesus are one in purpose, to unite ourselves, to lift and strengthen each other, and take upon us one another’s burdens as our Savior has taken our burdens upon Him, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Atonement #Commandments #Covenants #Fellowshipping #Friendship #Holy_Ghost #Jesus_Christ #Joy #Ordinances #Plan_Of_Salvation #Priesthood #Resurrection #Sacrament #Testimony
+#Atonement #Commandments #Covenants #Fellowshipping #Friendship #HolyGhost #Joy #JesusChrist #Ordinances #PlanOfSalvation #Priesthood #Resurrection #Sacrament #Testimony

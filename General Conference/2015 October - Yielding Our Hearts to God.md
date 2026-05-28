@@ -1,6 +1,6 @@
 # Yielding Our Hearts to God
 
-By Neill F. Marriott - *Second Counselor in the Young Women General Presidency*
+By Neill F. Marriott - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -8,7 +8,7 @@ By Neill F. Marriott - *Second Counselor in the Young Women General Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/10/yielding-our-hearts-to-god?lang=eng)
 
-Elder Dallin H. Oaks, in April general conference, spoke of the need “to reform our personal lives.”[^1] I submit that personal reformation begins with a change of heart—no matter your life experiences or your place of birth.
+Elder Dallin H. Oaks, in April general conference, spoke of the need “to reform our personal lives.”[^1] I submit that personal reformation begins with a change of heart—no matter your life experiences or your place of birth.
 
 I come from the Deep South of the United States, and in my youth the words of old Protestant hymns taught me of a true disciple’s heart—one that has been changed. Consider these lyrics, so dear to me:
 
@@ -34,7 +34,7 @@ When our delightful, worthy, 21-year-old daughter, Georgia, was hospitalized in 
 
 Following Georgia’s mortal death, our feelings were raw, we struggled, and still today we have moments of great sorrow, but we hold to the understanding that no one ever really dies. Despite our anguish when Georgia’s physical body stopped functioning, we had faith that she went right on living as a spirit, and we believe we will live with her eternally if we adhere to our temple covenants. Faith in our Redeemer and His Resurrection, faith in His priesthood power, and faith in eternal sealings let us state our motto with conviction.
 
-President Gordon B. Hinckley said: “If you do your best, it will all work out. Put your trust in God. … The Lord will not forsake us.”[^4]
+President Gordon B. Hinckley said: “If you do your best, it will all work out. Put your trust in God. … The Lord will not forsake us.”[^4]
 
 Our family motto doesn’t say, “It will all work out *now.*” It speaks of our hope in the eternal outcome—not necessarily of present results. Scripture says, “Search diligently, pray always, and be believing, and all things shall work together for your good.”[^5] This doesn’t mean all things *are* good, but for the meek and faithful, things—both positive and negative—work *together* for good, and the timing is the Lord’s. We wait on Him, sometimes like Job in his suffering, knowing that God “maketh sore, and bindeth up: he woundeth, and his hands make whole.”[^6] A meek heart accepts the trial and the waiting for that time of healing and wholeness to come.
 
@@ -50,7 +50,7 @@ With a growing understanding of the Lord’s grace and mercy, we will find that 
 
 I have struggled to banish the mortal desire to have things *my* way, eventually realizing that my way is oh so lacking, limited, and inferior to the way of Jesus Christ. “*His* way is the path that leads to happiness in this life and eternal life in the world to come.”[^8] Can we love Jesus Christ and His way more than we love ourselves and our own agenda?
 
-Some may think they have failed too many times and feel too weak to change sinful acts or worldly desires of the heart. However, as covenant Israel, we don’t just try and try on our own to change. If we earnestly appeal to God, He takes us as we are—and makes us more than we ever imagined. Noted theologian Robert L. Millet writes of “a healthy longing to improve,” balanced with the spiritual “assurance that in and through Jesus Christ we are going to make it.”[^9] With such an understanding, we can honestly say to Heavenly Father:
+Some may think they have failed too many times and feel too weak to change sinful acts or worldly desires of the heart. However, as covenant Israel, we don’t just try and try on our own to change. If we earnestly appeal to God, He takes us as we are—and makes us more than we ever imagined. Noted theologian Robert L. Millet writes of “a healthy longing to improve,” balanced with the spiritual “assurance that in and through Jesus Christ we are going to make it.”[^9] With such an understanding, we can honestly say to Heavenly Father:
 
 >So trusting my all to thy tender care,
 >And knowing thou lovest me,
@@ -63,23 +63,24 @@ When we offer our broken heart to Jesus Christ, He accepts our offering. He take
 
 
 
-[^1]: Dallin H. Oaks, “The Parable of the Sower,” *Ensign* or *Liahona,* May 2015, 32.
+[^1]: Dallin H. Oaks, “The Parable of the Sower,” *Ensign* or *Liahona,* May 2015, 32.
 
 [^2]: “Have Thine Own Way, Lord,” *The Cokesbury Worship Hymnal,* no. 72.
 
 [^3]: See [[Matthew 6.9|Matthew 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]].
 
-[^4]: Gordon B. Hinckley, Jordan Utah South regional conference, priesthood session, Mar. 1, 1997; see also [“Excerpts from Addresses of President Gordon B. Hinckley,”](https://churchofjesuschrist.org/study/ensign/2000/10/latter-day-counsel-excerpts-from-addresses-of-president-gordon-b-hinckley?lang=eng) *Ensign,* Oct. 2000, 73.
+[^4]: Gordon B. Hinckley, Jordan Utah South regional conference, priesthood session, Mar. 1, 1997; see also “[Excerpts from Addresses of President Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/ensign/2000/10/latter-day-counsel-excerpts-from-addresses-of-president-gordon-b-hinckley?lang=eng),” *Ensign,* Oct. 2000, 73.
 
 [^5]: [[D&C 90.24|Doctrine and Covenants 90:24]].
 
 [^6]: [[Job 5.18|Job 5:18]].
 
-[^7]: [[3 Nephi 9.20|3 Nephi 9:20]].
+[^7]: [[3 Nephi 9.20|3 Nephi 9:20]].
 
 [^8]: “The Living Christ: The Testimony of the Apostles,” *Ensign* or *Liahona,* Apr. 2000, 3; emphasis added.
 
-[^9]: Robert L. Millet, *After All We Can Do: Grace Works* (2003), 133.
+[^9]: Robert L. Millet, *After All We Can Do: Grace Works* (2003), 133.
 
+[^10]: “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270.
 
-#Adversity #Conversion #Healing #Plan_Of_Salvation #Prayer #Sacrament
+#Adversity #Conversion #Healing #PlanOfSalvation #Prayer #Sacrament

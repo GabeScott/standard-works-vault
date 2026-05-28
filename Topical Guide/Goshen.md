@@ -1,4 +1,3 @@
 # Goshen
 
-
-*See* [BD Goshen](https://www.churchofjesuschrist.org/study/scriptures/bd/goshen?lang=eng)
+*See also* [[BD Goshen.md|BD Goshen]]

@@ -91,9 +91,9 @@ In the sacred name of Jesus Christ, amen.
 
 
 
-[^1]: [[2 Nephi 31.15|2 Ne. 31:15–16]][[2 Nephi 31.16|]].
+[^1]: [[2 Nephi 31.15|2 Ne. 31:15–16]][[2 Nephi 31.16|]].
 
-[^2]: See [[2 Nephi 31.14|2 Ne. 31:14]]; [[D&C 40.1|D&C 40:1–3]][[D&C 40.2|]][[D&C 40.3|]]; [[D&C 41.5|41:5–6]][[D&C 41.6|]].
+[^2]: See [[2 Nephi 31.14|2 Ne. 31:14]]; [[D&C 40.1|D&C 40:1–3]][[D&C 40.2|]][[D&C 40.3|]]; [[D&C 41.5|41:5–6]][[D&C 41.6|]].
 
 [^3]: [[Mosiah 18.8|Mosiah 18:8]].
 
@@ -101,16 +101,14 @@ In the sacred name of Jesus Christ, amen.
 
 [^5]: Personal correspondence.
 
-[^6]: [[2 Nephi 32.3|2 Ne. 32:3]].
+[^6]: [[2 Nephi 32.3|2 Ne. 32:3]].
 
-[^7]: [[2 Nephi 32.5|2 Ne. 32:5]].
+[^7]: [[2 Nephi 32.5|2 Ne. 32:5]].
 
-[^8]: [[2 Nephi 32.8|2 Ne. 32:8–9]][[2 Nephi 32.9|]].
+[^8]: [[2 Nephi 32.8|2 Ne. 32:8–9]][[2 Nephi 32.9|]].
 
 [^9]: [[John 15.12|John 15:12–15]][[John 15.13|]][[John 15.14|]][[John 15.15|]].
 
 [^10]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-
-
-#Example #Friendship #Holy_Ghost #Love
+#Example #Friendship #HolyGhost #Love

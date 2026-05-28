@@ -1,4 +1,3 @@
 # Cain
 
-
-*See* [BD Cain](https://www.churchofjesuschrist.org/study/scriptures/bd/cain?lang=eng)
+*See also* [[BD Cain.md|BD Cain]]

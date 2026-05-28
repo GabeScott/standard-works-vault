@@ -1,6 +1,6 @@
 # Practicing What We Preach
 
-By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -81,8 +81,6 @@ Jesus said, “As I have loved you … love one another.”
 God help us, parent and child, to accept the opportunity, while there is time, in our homes and families, to practice what we preach.
 
 I know the gospel is true, and I know the gospel includes that which he has taught us of relationship to each other in our homes and families. In the name of Jesus Christ. Amen.
-
-
 
 
 

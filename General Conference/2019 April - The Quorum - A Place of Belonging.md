@@ -1,6 +1,6 @@
 # The Quorum: A Place of Belonging
 
-By Elder Carl B. Cook - *Of the Presidency of the Seventy*
+By Elder Carl B. Cook - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -42,7 +42,7 @@ Members of the Mochudi Branch were thrilled. These young men “were converted u
 
 The Book of Mormon played a significant role in their conversion.[^13] Thuso remembers, “I began reading the Book of Mormon … every time I was free, at home, at school, everywhere.”[^14]
 
-Oratile was drawn to the gospel because of the example of his friends. He explains: “\[They\] seemed to change in the snap of a finger. … I thought it had … to do with the little … book they started carrying around … school. I could see what good men they had become. … \[I\] wanted to change too.”[^15]
+Oratile was drawn to the gospel because of the example of his friends. He explains: “\[They\] seemed to change in the snap of a finger. … I thought it had … to do with the little … book they started carrying around … school. I could see what good men they had become. … \[I\] wanted to change too.”[^15]
 
 All 12 young men were gathered and baptized within two years of each other. Each was the only member of the Church in his family. But they were supported by their Church family, including President Rakwela,[^16] their branch president; Elder and Sister Taylor,[^17] a senior missionary couple; and other branch members.
 
@@ -79,27 +79,27 @@ Jesus Christ is our Savior, and this is His work. I so testify in the name of Je
 
 [^2]: Personal correspondence, Letanang Andre Sebako, Band of Brothers resource files, 2011–19, Church History Library, Salt Lake City.
 
-[^3]: President Boyd K. Packer said: “When a man holds the priesthood, he belongs to something bigger than himself. It is something outside himself to which he can make a complete commitment” (“[The Circle of Sisters](https://churchofjesuschrist.org/study/ensign/1980/11/the-circle-of-sisters?lang=eng),” *Ensign,* Nov. 1980, 109–10).
+[^3]: President Boyd K. Packer said: “When a man holds the priesthood, he belongs to something bigger than himself. It is something outside himself to which he can make a complete commitment” (“[The Circle of Sisters](https://www.churchofjesuschrist.org/study/ensign/1980/11/the-circle-of-sisters?lang=eng),” *Ensign,* Nov. 1980, 109–10).
 
-[^4]: President Russell M. Nelson explained how to seek revelation and then stated, “As you repeat this process day after day, month after month, year after year, you will ‘grow into the principle of revelation’” (“[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95; see also *Teachings of Presidents of the Church: Joseph Smith* \[2007\], 132).
+[^4]: President Russell M. Nelson explained how to seek revelation and then stated, “As you repeat this process day after day, month after month, year after year, you will ‘grow into the principle of revelation’” (“[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95; see also *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-10?lang=eng)* \[2007\], 132).
 
-[^5]: See *Handbook 2: Administering the Church* (2010), [8.3.2](https://churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/aaronic-priesthood?lang=eng&id=p8#p8).
+[^5]: See *Handbook 2: Administering the Church* (2010), [8.3.2](https://www.churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/aaronic-priesthood?lang=eng&id=p8#p8).
 
-[^6]: Others help also, including bishopric members and advisers. Elder Ronald A. Rasband noted that one of the benefits of the restructuring of the Melchizedek Priesthood quorums, announced on March 31, 2018, is to “allow the bishop to delegate more responsibilities to the elders quorum and Relief Society presidents so that the bishop and his counselors can focus on their primary duties—particularly presiding over the young women and the young men who bear the Aaronic Priesthood” (“[[2018 April - Behold! A Royal Army.md|Behold! A Royal Army]],” *Ensign* or *Liahona,* May 2018, 59). Angels will also help. Aaronic Priesthood holders hold the keys of the ministering of angels (see [[D&C 13.1|Doctrine and Covenants 13:1]]; see also Dale G. Renlund and Ruth Lybbert Renlund, *The Melchizedek Priesthood* \[2018\], 26). Elder Jeffrey R. Holland said: “Usually \[ministering angels\] are *not* seen. Sometimes they are. But seen or unseen they are *always* near. Sometimes their assignments are very grand and have significance for the whole world. Sometimes the messages are more private. Occasionally the angelic purpose is to warn. But most often it is to comfort, to provide some form of merciful attention, guidance in difficult times” (“[[2008 October - The Ministry of Angels.md|The Ministry of Angels]],” *Ensign* or *Liahona,* Nov. 2008, 29). If you desire such help, you can “ask, and ye shall receive” ([[John 16.24|John 16:24]]).
+[^6]: Others help also, including bishopric members and advisers. Elder Ronald A. Rasband noted that one of the benefits of the restructuring of the Melchizedek Priesthood quorums, announced on March 31, 2018, is to “allow the bishop to delegate more responsibilities to the elders quorum and Relief Society presidents so that the bishop and his counselors can focus on their primary duties—particularly presiding over the young women and the young men who bear the Aaronic Priesthood” (“[[2018 April - Behold! A Royal Army.md|Behold! A Royal Army]],” *Ensign* or *Liahona,* May 2018, 59). Angels will also help. Aaronic Priesthood holders hold the keys of the ministering of angels (see [[D&C 13.1|Doctrine and Covenants 13:1]]; see also Dale G. Renlund and Ruth Lybbert Renlund, *The Melchizedek Priesthood* \[2018\], 26). Elder Jeffrey R. Holland said: “Usually \[ministering angels\] are *not* seen. Sometimes they are. But seen or unseen they are *always* near. Sometimes their assignments are very grand and have significance for the whole world. Sometimes the messages are more private. Occasionally the angelic purpose is to warn. But most often it is to comfort, to provide some form of merciful attention, guidance in difficult times” (“[[2008 October - The Ministry of Angels.md|The Ministry of Angels]],” *Ensign* or *Liahona,* Nov. 2008, 29). If you desire such help, you can “ask, and ye shall receive” ([[John 16.24|John 16:24]]).
 
-[^7]: See Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7–8.
+[^7]: See Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7–8.
 
 [^8]: See Alexandre Dumas, *The Three Musketeers* (1844).
 
-[^9]: See *Handbook 2,* [8.1.2](https://churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/aaronic-priesthood?lang=eng&id=title_number4#title_number4).
+[^9]: See *Handbook 2,* [8.1.2](https://www.churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/aaronic-priesthood?lang=eng&id=title_number4#title_number4).
 
 [^10]: See [[John 1.40|John 1:40–42]][[John 1.41|]][[John 1.42|]].
 
 [^11]: See [[John 1.43|John 1:43–46]][[John 1.44|]][[John 1.45|]][[John 1.46|]].
 
-[^12]: [[3 Nephi 28.23|3 Nephi 28:23]].
+[^12]: [[3 Nephi 28.23|3 Nephi 28:23]].
 
-[^13]: See D. Todd Christofferson, “The Power of the Book of Mormon” (address given at the seminar for new mission presidents, June 27, 2017).
+[^13]: See D. Todd Christofferson, “The Power of the Book of Mormon” (address given at the seminar for new mission presidents, June 27, 2017).
 
 [^14]: Thuso Molefe, in Taylor, *The Band of Brothers,* 22.
 
@@ -117,5 +117,6 @@ Jesus Christ is our Savior, and this is His work. I so testify in the name of Je
 
 [^21]: [[D&C 6.32|Doctrine and Covenants 6:32]].
 
+[^22]: Katlego Mongole, in “Band of Brothers 2nd Generation” (unpublished compilation), 21.
 
-#Aaronic_Priesthood #Missionary_Work #Priesthood #Priesthood_Quorums
+#AaronicPriesthood #MissionaryWork #Priesthood #PriesthoodQuorums

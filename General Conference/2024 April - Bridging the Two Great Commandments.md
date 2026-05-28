@@ -1,6 +1,6 @@
 # Bridging the Two Great Commandments
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -64,7 +64,7 @@ This thankful mother later wrote of her heaven-sent friend: “You have spent yo
 
 To love your neighbor includes Christlike deeds of kindness and service. Can you let go of grudges, forgive enemies, welcome and minister to your neighbors, and assist the elderly? You will each be inspired as you build your tower of love for neighbor.
 
-President Russell M. Nelson taught: “Giving help to others—making a conscientious effort to care about others as much as or *more* than we care about ourselves—is our joy. Especially … when it is not convenient and when it takes us out of our comfort zone. *Living* that second great commandment is the *key* to becoming a true disciple of Jesus Christ.”[^12]
+President Russell M. Nelson taught: “Giving help to others—making a conscientious effort to care about others as much as or *more* than we care about ourselves—is our joy. Especially … when it is not convenient and when it takes us out of our comfort zone. *Living* that second great commandment is the *key* to becoming a true disciple of Jesus Christ.”[^12]
 
 ## An Interdependency
 
@@ -74,7 +74,7 @@ The increasing contention in the world suggests, however, that we at times fail 
 
 Alternatively, there are those who emphasize the importance of loving others without acknowledgment that we are all accountable to God. Some refuse entirely the notion that there is such a thing as absolute truth or right and wrong and believe that the only thing required of us is complete tolerance and acceptance of the choices of others. Either of these imbalances could cause your spiritual bridge to tip or even fall.
 
-President Dallin H. Oaks described this when he said: “We are commanded to love everyone, since Jesus’s parable of the good Samaritan teaches that everyone is our neighbor. But our zeal to keep this second commandment must not cause us to forget the first, to love God with all our heart, soul, and mind.”[^14]
+President Dallin H. Oaks described this when he said: “We are commanded to love everyone, since Jesus’s parable of the good Samaritan teaches that everyone is our neighbor. But our zeal to keep this second commandment must not cause us to forget the first, to love God with all our heart, soul, and mind.”[^14]
 
 ## Conclusion
 
@@ -89,7 +89,7 @@ May this strengthen our faith in Jesus Christ and His Atonement, of which I test
 
 
 
-[^1]: “In the New Testament, \[the term *lawyer* was\] equivalent to *scribe*, one who was by profession a student and teacher of the law, including the written law of the Pentateuch, and also ‘the traditions of the elders’ ([[Matthew 22.35|Matt. 22:35]]; [[Mark 12.28|Mark 12:28]]; [[Luke 10.25|Luke 10:25]])” (Bible Dictionary, “[Lawyer](https://churchofjesuschrist.org/study/scriptures/bd/lawyer?lang=eng)”).
+[^1]: “In the New Testament, \[the term *lawyer* was\] equivalent to *scribe*, one who was by profession a student and teacher of the law, including the written law of the Pentateuch, and also ‘the traditions of the elders’ ([[Matthew 22.35|Matt. 22:35]]; [[Mark 12.28|Mark 12:28]]; [[Luke 10.25|Luke 10:25]])” (Bible Dictionary, “[[BD Lawyer|Lawyer]]”).
 
 [^2]: Anciently, Jewish scholars had enumerated 613 commandments in the Torah and actively debated the relative importance of one versus the other. Perhaps the lawyer intended to use Jesus’s answer against Him. If He said one commandment was the most important, it might allow an opening to accuse Jesus of ignoring another aspect of the law. But the Savior’s response silenced those who had come to entrap Him with a foundational statement that today is the bedrock for all we do in the Church.
 
@@ -105,18 +105,16 @@ May this strengthen our faith in Jesus Christ and His Atonement, of which I test
 
 [^8]: [[Matthew 22.39|Matthew 22:39]].
 
-[^9]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^9]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^10]: [[D&C 81.5|Doctrine and Covenants 81:5]].
 
 [^11]: Name changed to protect privacy.
 
-[^12]: Russell M. Nelson, “[[2019 October - The Second Great Commandment.md|The Second Great Commandment]],” *Ensign* or *Liahona*, Nov. 2019, 100.
+[^12]: Russell M. Nelson, “[[2019 October - The Second Great Commandment.md|The Second Great Commandment]],” *Ensign* or *Liahona*, Nov. 2019, 100.
 
 [^13]: [[Matthew 22.40|Matthew 22:40]].
 
-[^14]: Dallin H. Oaks, “[[2019 October - Two Great Commandments.md|Two Great Commandments]],” *Ensign* or *Liahona*, Nov. 2019, 73–74.
-
-
+[^14]: Dallin H. Oaks, “[[2019 October - Two Great Commandments.md|Two Great Commandments]],” *Ensign* or *Liahona*, Nov. 2019, 73–74.
 
 #Commandments #Discipleship #Love #Neighbors

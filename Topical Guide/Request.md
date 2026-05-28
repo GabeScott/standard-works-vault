@@ -1,7 +1,6 @@
 # Request
 
-
-*See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Beseech, Besought.md|Beseech]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]
+*See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Beseech.md|Beseech]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]
 
 Daniel *requested* of the king, [[Daniel 2.49|Daniel 2:49]].
 

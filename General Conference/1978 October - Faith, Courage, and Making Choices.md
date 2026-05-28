@@ -1,6 +1,6 @@
 # Faith, Courage, and Making Choices
 
-By Elder Dean L. Larsen - *Of the First Quorum of the Seventy*
+By Elder Dean L. Larsen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -43,8 +43,6 @@ The nature of the challenges we face in this life is not nearly so important as 
 The young man to whom I referred in the beginning of my remarks has a very important decision to make. In the final analysis he cannot hedge on his decision. He must be willing to face the consequences of baptism and membership in the Church if he is ever to enjoy the blessings that Church membership can bring. He must be willing to pay the price. This will require much trust and faith on his part. It is so with each of us whenever we face challenging choices. You young men of the Aaronic Priesthood have a tremendous trust placed in you by the Lord, and he expects you to measure up—to stand up and be counted. All of you came here to be winners. The Lord’s work will prevail, and you will have much to do with the success of his kingdom.
 
 May God help each of us to “pay the price” so that we may one day be qualified to return to him, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

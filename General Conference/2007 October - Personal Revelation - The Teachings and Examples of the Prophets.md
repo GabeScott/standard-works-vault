@@ -40,7 +40,7 @@ We know that the pattern centers on the Atonement.[^14] We receive the blessings
 
 We prepare to receive personal revelation as the prophets do, by studying the scriptures, fasting, praying, and building faith. Faith is the key. Remember Joseph’s preparation for the First Vision:
 
-“If any of you lack wisdom, let him ask of God. …
+“If any of you lack wisdom, let him ask of God. …
 
 “But let him ask in faith, nothing wavering.”[^17]
 
@@ -56,7 +56,7 @@ I testify that on the hillside or in the meadow, in the grove or closet, now or 
 
 As we go forth from this conference, I call upon each of us to seek more and receive more of the Spirit of God. The Savior prayed that His disciples in the New World would receive that Spirit. Then, as an example to all of us, He departed from His disciples and in prayer thanked His Heavenly Father for bestowing it.[^24] Let us follow His example and pray for the Spirit of God, giving thanks for its marvelous blessings in our lives.
 
-I bear my special witness that Jesus Christ lives and leads His Church through a living prophet, President Gordon B. Hinckley. I know—I know—that President Hinckley leads this Church by revelation. In the words of Alma, “Behold, I say unto you \[these things\] are made known unto me by the Holy Spirit of God. Behold, I have fasted and prayed many days. … And now I do know of myself that they are true; for the Lord God hath made them manifest unto me … ; and this is the spirit of revelation which is in me.”[^25]
+I bear my special witness that Jesus Christ lives and leads His Church through a living prophet, President Gordon B. Hinckley. I know—I know—that President Hinckley leads this Church by revelation. In the words of Alma, “Behold, I say unto you \[these things\] are made known unto me by the Holy Spirit of God. Behold, I have fasted and prayed many days. … And now I do know of myself that they are true; for the Lord God hath made them manifest unto me … ; and this is the spirit of revelation which is in me.”[^25]
 
 That each of us may receive that Spirit, obtain the blessings of personal revelation, and know for ourselves that these things are true is my heartfelt prayer in the name of Jesus Christ, amen.
 
@@ -67,7 +67,7 @@ That each of us may receive that Spirit, obtain the blessings of personal revela
 
 [^2]: [[John 17.3|John 17:3]].
 
-[^3]: See [[1 Corinthians 2.11|1 Corinthians 2:11–16]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]][[1 Corinthians 2.15|]][[1 Corinthians 2.16|]].
+[^3]: See [[1 Corinthians 2.11|1 Corinthians 2:11–16]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]][[1 Corinthians 2.15|]][[1 Corinthians 2.16|]].
 
 [^4]: Quoted in Eliza R. Snow Smith, *Biography and Family Record of Lorenzo Snow* (1884), 8.
 
@@ -77,21 +77,21 @@ That each of us may receive that Spirit, obtain the blessings of personal revela
 
 [^7]: See [[Genesis 18.23|Genesis 18:23–33]][[Genesis 18.24|]][[Genesis 18.25|]][[Genesis 18.26|]][[Genesis 18.27|]][[Genesis 18.28|]][[Genesis 18.29|]][[Genesis 18.30|]][[Genesis 18.31|]][[Genesis 18.32|]][[Genesis 18.33|]]; [[Exodus 3.1|Exodus 3:1–3]][[Exodus 3.2|]][[Exodus 3.3|]]; [[Exodus 32.31|32:31–33]][[Exodus 32.32|]][[Exodus 32.33|]]; [[Moses 1.1|Moses 1:1–2, 24]][[Moses 1.2|]][[Moses 1.24|]]; [[Moses 6.26|6:26–37]][[Moses 6.27|]][[Moses 6.28|]][[Moses 6.29|]][[Moses 6.30|]][[Moses 6.31|]][[Moses 6.32|]][[Moses 6.33|]][[Moses 6.34|]][[Moses 6.35|]][[Moses 6.36|]][[Moses 6.37|]]; [[Moses 7.2|7:2–4]][[Moses 7.3|]][[Moses 7.4|]]; [[Abraham 1.1|Abraham 1:1–2, 15–19]][[Abraham 1.2|]][[Abraham 1.15|]][[Abraham 1.16|]][[Abraham 1.17|]][[Abraham 1.18|]][[Abraham 1.19|]].
 
-[^8]: See [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
+[^8]: See [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
 
 [^9]: See [[Daniel 2.16|Daniel 2:16–20]][[Daniel 2.17|]][[Daniel 2.18|]][[Daniel 2.19|]][[Daniel 2.20|]].
 
 [^10]: See [[Matthew 16.15|Matthew 16:15–17]][[Matthew 16.16|]][[Matthew 16.17|]].
 
-[^11]: See [[1 Nephi 2.16|1 Nephi 2:16]]; [[1 Nephi 11.1|11:1–2]][[1 Nephi 11.2|]]; for additional examples, see [[Mosiah 3.1|Mosiah 3:1–4]][[Mosiah 3.2|]][[Mosiah 3.3|]][[Mosiah 3.4|]]; [[Alma 43.23|Alma 43:23]]; [[Helaman 7.1|Helaman 7–8]][[Helaman 7.2|]][[Helaman 7.3|]][[Helaman 7.4|]][[Helaman 7.5|]][[Helaman 7.6|]][[Helaman 7.7|]][[Helaman 7.8|]][[Helaman 7.9|]][[Helaman 7.10|]][[Helaman 7.11|]][[Helaman 7.12|]][[Helaman 7.13|]][[Helaman 7.14|]][[Helaman 7.15|]][[Helaman 7.16|]][[Helaman 7.17|]][[Helaman 7.18|]][[Helaman 7.19|]][[Helaman 7.20|]][[Helaman 7.21|]][[Helaman 7.22|]][[Helaman 7.23|]][[Helaman 7.24|]][[Helaman 7.25|]][[Helaman 7.26|]][[Helaman 7.27|]][[Helaman 7.28|]][[Helaman 7.29|]]; [[Helaman 10.2|10:2–4]][[Helaman 10.3|]][[Helaman 10.4|]]; [[3 Nephi 1.10|3 Nephi 1:10–13]][[3 Nephi 1.11|]][[3 Nephi 1.12|]][[3 Nephi 1.13|]]; [[Mormon 8.34|Mormon 8:34–35]][[Mormon 8.35|]]; [[Ether 3.1|Ether 3:1–6, 13–14, 25]][[Ether 3.2|]][[Ether 3.3|]][[Ether 3.4|]][[Ether 3.5|]][[Ether 3.6|]][[Ether 3.13|]][[Ether 3.14|]][[Ether 3.25|]].
+[^11]: See [[1 Nephi 2.16|1 Nephi 2:16]]; [[1 Nephi 11.1|11:1–2]][[1 Nephi 11.2|]]; for additional examples, see [[Mosiah 3.1|Mosiah 3:1–4]][[Mosiah 3.2|]][[Mosiah 3.3|]][[Mosiah 3.4|]]; [[Alma 43.23|Alma 43:23]]; [[Helaman 7.1|Helaman 7–8]][[Helaman 7.2|]][[Helaman 7.3|]][[Helaman 7.4|]][[Helaman 7.5|]][[Helaman 7.6|]][[Helaman 7.7|]][[Helaman 7.8|]][[Helaman 7.9|]][[Helaman 7.10|]][[Helaman 7.11|]][[Helaman 7.12|]][[Helaman 7.13|]][[Helaman 7.14|]][[Helaman 7.15|]][[Helaman 7.16|]][[Helaman 7.17|]][[Helaman 7.18|]][[Helaman 7.19|]][[Helaman 7.20|]][[Helaman 7.21|]][[Helaman 7.22|]][[Helaman 7.23|]][[Helaman 7.24|]][[Helaman 7.25|]][[Helaman 7.26|]][[Helaman 7.27|]][[Helaman 7.28|]][[Helaman 7.29|]]; [[Helaman 10.2|10:2–4]][[Helaman 10.3|]][[Helaman 10.4|]]; [[3 Nephi 1.10|3 Nephi 1:10–13]][[3 Nephi 1.11|]][[3 Nephi 1.12|]][[3 Nephi 1.13|]]; [[Mormon 8.34|Mormon 8:34–35]][[Mormon 8.35|]]; [[Ether 3.1|Ether 3:1–6, 13–14, 25]][[Ether 3.2|]][[Ether 3.3|]][[Ether 3.4|]][[Ether 3.5|]][[Ether 3.6|]][[Ether 3.13|]][[Ether 3.14|]][[Ether 3.25|]].
 
-[^12]: See Conference Report, Oct. 1978, 22; or *Ensign,* Nov. 1978, 16.
+[^12]: See Conference Report, Oct. 1978, [[1978 October - Revelation on Priesthood Accepted, Church Officers Sustained.md|22]]; or *Ensign,* Nov. 1978, 16.
 
-[^13]: See Conference Report, Oct. 1997, 68–69; or *Ensign,* Nov. 1997, 49.
+[^13]: See Conference Report, Oct. 1997, [[1997 October - Some Thoughts on Temples, Retention of Converts, and Missionary Service.md|68–69]]; or *Ensign,* Nov. 1997, 49.
 
 [^14]: See [[Acts 9.1|Acts 9]][[Acts 9.2|]][[Acts 9.3|]][[Acts 9.4|]][[Acts 9.5|]][[Acts 9.6|]][[Acts 9.7|]][[Acts 9.8|]][[Acts 9.9|]][[Acts 9.10|]][[Acts 9.11|]][[Acts 9.12|]][[Acts 9.13|]][[Acts 9.14|]][[Acts 9.15|]][[Acts 9.16|]][[Acts 9.17|]][[Acts 9.18|]][[Acts 9.19|]][[Acts 9.20|]][[Acts 9.21|]][[Acts 9.22|]][[Acts 9.23|]][[Acts 9.24|]][[Acts 9.25|]][[Acts 9.26|]][[Acts 9.27|]][[Acts 9.28|]][[Acts 9.29|]][[Acts 9.30|]][[Acts 9.31|]][[Acts 9.32|]][[Acts 9.33|]][[Acts 9.34|]][[Acts 9.35|]][[Acts 9.36|]][[Acts 9.37|]][[Acts 9.38|]][[Acts 9.39|]][[Acts 9.40|]][[Acts 9.41|]][[Acts 9.42|]][[Acts 9.43|]]; [[Mosiah 27.1|Mosiah 27]][[Mosiah 27.2|]][[Mosiah 27.3|]][[Mosiah 27.4|]][[Mosiah 27.5|]][[Mosiah 27.6|]][[Mosiah 27.7|]][[Mosiah 27.8|]][[Mosiah 27.9|]][[Mosiah 27.10|]][[Mosiah 27.11|]][[Mosiah 27.12|]][[Mosiah 27.13|]][[Mosiah 27.14|]][[Mosiah 27.15|]][[Mosiah 27.16|]][[Mosiah 27.17|]][[Mosiah 27.18|]][[Mosiah 27.19|]][[Mosiah 27.20|]][[Mosiah 27.21|]][[Mosiah 27.22|]][[Mosiah 27.23|]][[Mosiah 27.24|]][[Mosiah 27.25|]][[Mosiah 27.26|]][[Mosiah 27.27|]][[Mosiah 27.28|]][[Mosiah 27.29|]][[Mosiah 27.30|]][[Mosiah 27.31|]][[Mosiah 27.32|]][[Mosiah 27.33|]][[Mosiah 27.34|]][[Mosiah 27.35|]][[Mosiah 27.36|]][[Mosiah 27.37|]]; [[Alma 36.1|Alma 36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]].
 
-[^15]: [[1 Samuel 3.10|1 Samuel 3:10]].
+[^15]: [[1 Samuel 3.10|1 Samuel 3:10]].
 
 [^16]: [[Matthew 13.16|Matthew 13:16]].
 
@@ -103,16 +103,14 @@ That each of us may receive that Spirit, obtain the blessings of personal revela
 
 [^20]: Quoted in Francis M. Gibbons, *David O. McKay: Apostle to the World, Prophet of God* (1986), 50.
 
-[^21]: [[Matthew 7.7|Matthew 7:7]]; [[Luke 11.9|Luke 11:9]]; see also [[3 Nephi 14.7|3 Nephi 14:7]].
+[^21]: [[Matthew 7.7|Matthew 7:7]]; [[Luke 11.9|Luke 11:9]]; see also [[3 Nephi 14.7|3 Nephi 14:7]].
 
 [^22]: [[D&C 46.8|D&C 46:8]].
 
-[^23]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^23]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-[^24]: See [[3 Nephi 19.19|3 Nephi 19:19–23]][[3 Nephi 19.20|]][[3 Nephi 19.21|]][[3 Nephi 19.22|]][[3 Nephi 19.23|]].
+[^24]: See [[3 Nephi 19.19|3 Nephi 19:19–23]][[3 Nephi 19.20|]][[3 Nephi 19.21|]][[3 Nephi 19.22|]][[3 Nephi 19.23|]].
 
 [^25]: [[Alma 5.46|Alma 5:46]].
 
-
-
-#Prayer #Preparation #Prophets #Spirituality
+#Preparation #Prayer #Prophets #Spirituality

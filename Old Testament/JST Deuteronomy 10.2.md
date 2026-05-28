@@ -4,6 +4,3 @@
 
 [JST Deuteronomy 10:2](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-deut/10?lang=eng)
 
-
-
-

@@ -1,6 +1,6 @@
 # Becoming the Pure in Heart
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -20,7 +20,7 @@ No “ism” should confuse our thinking in these matters. As a reminder of Chur
 
 “The responsibility for each member’s spiritual, social, emotional, physical, or economic well-being rests first upon himself, second, upon his family, and third, upon the Church. Members of the Church are commanded by the Lord to be self-reliant and independent to the extent of their ability. (See [[D&C 78.13|D&C 78:13–14]][[D&C 78.14|]].)
 
-“No true Latter-day Saint, while physically or emotionally able, will voluntarily shift the burden of his own or his family’s well-being to someone else. So long as he can, under the inspiration of the Lord and with his own labors, he will work to the extent of his ability to supply himself and his family with the spiritual and temporal necessities of life. (See [[Genesis 3.19|Gen. 3:19]]; [[1 Timothy 5.8|1 Tim. 5:8]]; and [[Philippians 2.12|Philip. 2:12]].)
+“No true Latter-day Saint, while physically or emotionally able, will voluntarily shift the burden of his own or his family’s well-being to someone else. So long as he can, under the inspiration of the Lord and with his own labors, he will work to the extent of his ability to supply himself and his family with the spiritual and temporal necessities of life. (See [[Genesis 3.19|Gen. 3:19]]; [[1 Timothy 5.8|1 Tim. 5:8]]; and [[Philippians 2.12|Philip. 2:12]].)
 
 “As guided by the spirit of the Lord and through applying these principles, each member of the Church should make his own decisions as to what assistance he accepts, be it from governmental or other sources. In this way, independence, self-respect, dignity, and self-reliance will be fostered, and free agency maintained.” (Statement of the Presiding Bishopric, as quoted in *Ensign,* March 1978, p. 20.)
 
@@ -32,7 +32,7 @@ The principle of self-reliance stands behind the Church’s emphasis on personal
 
 We wish to remind all the Saints of the blessings that come from observing the regular fast and contributing as generous a fast offering as we can, and as we are in a position to give. Wherever we can, we should give many times the value of the meals from which we abstained.
 
-This principle of promise, when lived in the spirit thereof, greatly blesses both giver and receiver. Upon practicing the law of the fast, one finds a personal well-spring of power to overcome self-indulgence and selfishness. May I refer you to Bishop Victor L. Brown’s masterful talk on this subject given last Welfare Conference and published in the November 1977 *Ensign.*
+This principle of promise, when lived in the spirit thereof, greatly blesses both giver and receiver. Upon practicing the law of the fast, one finds a personal well-spring of power to overcome self-indulgence and selfishness. May I refer you to Bishop Victor L. Brown’s masterful talk on this subject given last Welfare Conference and published in the November 1977 *Ensign.*
 
 Now, brothers and sisters, would you put aside for a moment the pressing demands of this day and this week, and permit me to establish some very important perspectives about welfare services. For many years we have been taught that one important end result of our labors, hopes, and aspirations in this work is the building of a Latter-day Zion, a Zion characterized by love, harmony, and peace—a Zion in which the Lord’s children are as one.
 
@@ -40,11 +40,11 @@ The vision of what we are about and what should come of our labors must be kept 
 
 “Ye cannot behold with your natural eyes, for the present time, the design of your God concerning those things which shall come hereafter, and the glory which shall follow after much tribulation.
 
-“For after much tribulation come the blessings. Wherefore the day cometh that ye shall be crowned with much glory; the hour is not yet, but is nigh at hand. …
+“For after much tribulation come the blessings. Wherefore the day cometh that ye shall be crowned with much glory; the hour is not yet, but is nigh at hand. …
 
 “Behold, verily I say unto you, for this cause I have sent you—that you might be obedient, and that your hearts might be prepared to bear testimony of the things which are to come;
 
-“And also that you might be honored in laying the foundation, and in bearing record of the land upon which the Zion of God shall stand; …
+“And also that you might be honored in laying the foundation, and in bearing record of the land upon which the Zion of God shall stand; …
 
 “And after that cometh the day of my power; then shall the poor, the lame, and the blind, and the deaf, come in unto the marriage of the Lamb, and partake of the supper of the Lord, prepared for the great day to come.
 
@@ -80,13 +80,13 @@ Unfortunately we live in a world that largely rejects the values of Zion. Babylo
 
 This state of affairs stands in marked contrast to the Zion the Lord seeks to establish through his covenant people. Zion can be built up only among those who are the pure in heart, not a people torn by covetousness or greed, but a pure and selfless people. Not a people who are pure in appearance, rather a people who are pure in heart. Zion is to be in the world and not of the world, not dulled by a sense of carnal security, nor paralyzed by materialism. No, Zion is not things of the lower, but of the higher order, things that exalt the mind and sanctify the heart.
 
-Zion is “every man seeking the interest of his neighbor, and doing all things with an eye single to the glory of God.” ([[D&C 82.19|D&C 82:19]].) As I understand these matters, Zion can be established only by those who are pure in heart, and who labor for Zion, for “the laborer in Zion shall labor for Zion; for if they labor for money they shall perish.” ([[2 Nephi 26.31|2 Ne. 26:31]].)
+Zion is “every man seeking the interest of his neighbor, and doing all things with an eye single to the glory of God.” ([[D&C 82.19|D&C 82:19]].) As I understand these matters, Zion can be established only by those who are pure in heart, and who labor for Zion, for “the laborer in Zion shall labor for Zion; for if they labor for money they shall perish.” ([[2 Nephi 26.31|2 Ne. 26:31]].)
 
 As important as it is to have this vision in mind, defining and describing Zion will not bring it about. That can only be done through consistent and concerted daily effort by every single member of the Church. No matter what the cost in toil or sacrifice, we must “do it.” That is one of my favorite phrases: “Do It.” May I suggest three fundamental things we must do if we are to “bring again Zion,” three things for which we who labor for Zion must commit ourselves.
 
 First, we must eliminate the individual tendency to selfishness that snares the soul, shrinks the heart, and darkens the mind. President Romney recently referred to the tragic cycle of civilization, a cycle propelled by anyone who seeks for power and gain. Was it not this that led Cain to commit the first murder “for the sake of getting gain”? ([[Moses 5.50|Moses 5:50]].) Is not this the spirit of the anti-Christ in which “every man prospered according to his genius, and … every man conquered according to his strength; and whatsoever a man did was no crime”? ([[Alma 30.17|Alma 30:17]].) Did not Nephi single this out as the spirit which led his generation to destruction:
 
-“Now the cause of this iniquity of the people was this—Satan had great power, unto the stirring up of the people to do all manner of iniquity, and to the puffing them up with pride, tempting them to seek for power, and authority, and riches, and the vain things of the world.” ([[3 Nephi 6.15|3 Ne. 6:15]].)
+“Now the cause of this iniquity of the people was this—Satan had great power, unto the stirring up of the people to do all manner of iniquity, and to the puffing them up with pride, tempting them to seek for power, and authority, and riches, and the vain things of the world.” ([[3 Nephi 6.15|3 Ne. 6:15]].)
 
 If we are to avoid their fate, we must guard against the very things that caused their downfall. The Lord himself declared to our grandparents: “And again, I command thee that thou shalt not covet thine property.” ([[D&C 19.26|D&C 19:26]].)
 
@@ -109,8 +109,6 @@ My brothers and sisters, if we can do this, then we will find ourselves clothed 
 “But charity is the pure love of Christ, and it endureth forever; and whoso is found possessed of it at the last day, it shall be well with him.” ([[Moroni 7.46|Moro. 7:46–47]][[Moroni 7.47|]].)
 
 Let us unite and pray with all the energy of heart, that we may be sealed by this bond of charity; that we may build up this latter-day Zion, that the kingdom of God may go forth, so that the kingdom of heaven may come. This is my prayer and testimony in the name of Jesus Christ. Amen.
-
-
 
 
 

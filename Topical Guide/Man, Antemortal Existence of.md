@@ -1,6 +1,5 @@
 # Man, Antemortal Existence of
 
-
 *See also* [[Council in Heaven.md|Council in Heaven]]; [[Foreordination.md|Foreordination]]; [[Man, a Spirit Child of Heavenly Father.md|Man, a Spirit Child of Heavenly Father]]; [[Spirit Creation.md|Spirit Creation]]
 
 God of the *spirits* of all flesh, [[Numbers 16.22|Numbers 16:22]] ([[Numbers 27.16|Numbers 27:16]]).
@@ -11,7 +10,7 @@ the *spirit* shall return unto God who gave it, [[Ecclesiastes 12.7|Ecclesiastes
 
 Before I *formed* thee in the belly I knew thee, [[Jeremiah 1.5|Jeremiah 1:5]].
 
-Lord ... formeth the *spirit* of man within him, [[Zechariah 12.1|Zechariah 12:1]].
+Lord … formeth the *spirit* of man within him, [[Zechariah 12.1|Zechariah 12:1]].
 
 who did sin, this *man*, or his parents, that he was born blind, [[John 9.2|John 9:2]].
 
@@ -41,7 +40,7 @@ Man was also in the *beginning* with God, [[D&C 93.29|D&C 93:29]].
 
 choice *spirits* who were reserved to come forth, [[D&C 138.53|D&C 138:53]].
 
-*before* they were born ... received their first lessons, [[D&C 138.56|D&C 138:56]].
+*before* they were born … received their first lessons, [[D&C 138.56|D&C 138:56]].
 
 in heaven *created* I them; and there was not yet flesh upon the earth, [[Moses 3.5|Moses 3:5]].
 
@@ -51,6 +50,4 @@ he beheld the *spirits* that God had created, [[Moses 6.36|Moses 6:36]].
 
 he stood among those that were *spirits*, [[Abraham 3.23|Abraham 3:23]].
 
-took his *spirit* ... and put it into him, [[Abraham 5.7|Abraham 5:7]].
-
-*See also* [[Proverbs 8.22|Prov. 8:22-31]][[Proverbs 8.23|]][[Proverbs 8.24|]][[Proverbs 8.25|]][[Proverbs 8.26|]][[Proverbs 8.27|]][[Proverbs 8.28|]][[Proverbs 8.29|]][[Proverbs 8.30|]][[Proverbs 8.31|]]; [[John 1.2|John 1:2]], [[John 1.14|John 1:14]]; [[John 8.58|John 8:58]]; [[John 16.28|John 16:28]]; [[John 17.5|John 17:5]], [[John 17.24|John 17:24]]; [[2 Timothy 1.9|2 Timothy 1:9]]; [[Titus 1.2|Titus 1:2]]; [[3 Nephi 1.13|3 Nephi 1:13]]; [[3 Nephi 26.5|3 Nephi 26:5]]; [[Ether 3.16|Ether 3:16]].
+took his *spirit* … and put it into him, [[Abraham 5.7|Abraham 5:7]].

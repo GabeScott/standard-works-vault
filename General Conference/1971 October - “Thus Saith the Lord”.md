@@ -1,6 +1,6 @@
 # “Thus Saith the Lord”
 
-By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -36,7 +36,7 @@ God’s way is the way to solve our political, moral, ethical, even our financia
 
 That day has come! Old Testament prophets made predictions that in the last days God would reestablish his kingdom upon the earth never again to pass away. Daniel spoke of a stone that God would cut out of the mountain by his own hand that should roll forth to fill the whole earth. Micah said this was to transpire in the last days when the earth would be filled with commotion and upheavals. Malachi foretold the coming of Elijah and the restoration of all things. Jesus said that a messenger, or Elias, would be sent before his second coming to restore all things in preparation for that coming event. Peter testified that in the last days a time of refreshing would come and that Jesus would remain in heaven “until the times of restitution of all things, which God hath spoken by the mouth of all his holy prophets since the world began.” ([[Acts 3.21|Acts 3:21]].)
 
-This restoration, foretold in advance, began so quietly and so unostentatiously that the world was not even aware that it happened. It came as quietly and unobtrusively as “a thief in the night.” ([[1 Thessalonians 5.2|1 Thes. 5:2]].) It came not by man’s wisdom, but in answer to a simple prayer by Joseph Smith, a young boy in New York State who went into the woods near Palmyra to ask God a simple question: “Which church is right?” That young man had no idea that a new dispensation of God’s mercy and kindness was about to begin. At that time there was no prophet living on the earth who could answer Joseph’s question. There was no way for God to have that question answered, except for God to answer it himself.
+This restoration, foretold in advance, began so quietly and so unostentatiously that the world was not even aware that it happened. It came as quietly and unobtrusively as “a thief in the night.” ([[1 Thessalonians 5.2|1 Thes. 5:2]].) It came not by man’s wisdom, but in answer to a simple prayer by Joseph Smith, a young boy in New York State who went into the woods near Palmyra to ask God a simple question: “Which church is right?” That young man had no idea that a new dispensation of God’s mercy and kindness was about to begin. At that time there was no prophet living on the earth who could answer Joseph’s question. There was no way for God to have that question answered, except for God to answer it himself.
 
 The true knowledge of God had been lost during the centuries following the death of Christ. When Joseph Smith went into those woods to pray, he knew no more about God than did his contemporaries. Up to that time every Christian church believed and taught of a Godhead fused into one. They believed in a God of spirit, unknown and unknowable. You can well imagine the astonishment of Joseph when not one, but two Personages appeared to him in answer to that simple prayer. As the one Personage spoke and pointed to the other, he introduced him with these words: “This is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|JS—H 1:17]].) It was the living, resurrected Jesus Christ, the very Son of God, who instructed Joseph and who thus opened a new dispensation of the true knowledge of God. He told Joseph that no church then existed on the earth authorized to speak in his name. He told Joseph that after proper preparation and the bestowal of priesthood authority, Joseph was to be the first of a line of living prophets in this day and age who were to instruct and bless mankind, even as did the prophets of old.
 
@@ -56,7 +56,7 @@ When I saw those people so happy together and enjoying each other’s company so
 
 “But ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light:
 
-“Which in time past were not a people, but are now the people of God: which had not obtained mercy, but now have obtained mercy.” ([[1 Peter 2.9|1 Pet. 2:9–10]][[1 Peter 2.10|]].)
+“Which in time past were not a people, but are now the people of God: which had not obtained mercy, but now have obtained mercy.” ([[1 Peter 2.9|1 Pet. 2:9–10]][[1 Peter 2.10|]].)
 
 If you are discouraged, if you are puzzled, if you are seeking for greater light, greater joy and happiness, investigate these revealed truths. Find out for yourself. Come and listen to a prophet’s voice. Join with the people of God to become a covenant son or daughter of the true and living God. Obtain your inheritance in the kingdom of heaven, be assigned your lineage rights, and obtain a knowledge of the real purpose of life. To the people already members of the Church of Jesus Christ, let us develop those gifts which are within us. Let us practice that kindness one for another, and let us show that love for our fellowmen which comes through wholehearted acceptance of the principles of truth.
 
@@ -67,6 +67,4 @@ I bear you this personal witness in the name of Jesus Christ. Amen.
 
 
 
-
-
-#Joseph_Smith #Restoration
+#JosephSmith #Restoration

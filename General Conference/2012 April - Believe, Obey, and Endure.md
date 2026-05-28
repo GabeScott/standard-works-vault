@@ -1,6 +1,6 @@
 # Believe, Obey, and Endure
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -89,8 +89,6 @@ You are precious, precious daughters of our Heavenly Father sent to earth at thi
 
 [^5]: [[Jeremiah 31.34|Jeremiah 31:34]].
 
-[^6]: [[3 Nephi 15.9|3 Nephi 15:9]].
-
-
+[^6]: [[3 Nephi 15.9|3 Nephi 15:9]].
 
 #Endurance #Faith #Obedience

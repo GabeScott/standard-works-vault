@@ -1,6 +1,6 @@
 # When I Read, I Am There
 
-By President S. Dilworth Young - *Of the First Council of the Seventy*
+By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -28,7 +28,7 @@ Then later, as I follow his life, I sense the extraordinary importance of this c
 
 There are many events in the life of the Lord in which I experience exquisite joy as I read of them, and there are others which bow me down with the tragedy of his suffering and of his sacrifice.
 
-Many of us know what it is to suffer physically for ourselves, and we suffer mentally and emotionally for our friends and loved ones in their sorrows and afflictions. I am not capable of fully understanding the suffering of this great firstborn Son of God for the sins of the world. We call it Gethsemane. He gave us agency and then, knowing all would sin to a greater or lesser degree, took the responsibility on himself of paying the price of the atonement for our sins, provided we would repent and follow him and his teachings. I find peace in doing what he said to do. When he said: “Peace I leave with you, my peace I give unto you …” ([[John 14.27|John 14:27]]), he meant what he said. Someday I hope to be able to understand better. I know the peace I can have if I will keep his law and abide in his commandments.
+Many of us know what it is to suffer physically for ourselves, and we suffer mentally and emotionally for our friends and loved ones in their sorrows and afflictions. I am not capable of fully understanding the suffering of this great firstborn Son of God for the sins of the world. We call it Gethsemane. He gave us agency and then, knowing all would sin to a greater or lesser degree, took the responsibility on himself of paying the price of the atonement for our sins, provided we would repent and follow him and his teachings. I find peace in doing what he said to do. When he said: “Peace I leave with you, my peace I give unto you …” ([[John 14.27|John 14:27]]), he meant what he said. Someday I hope to be able to understand better. I know the peace I can have if I will keep his law and abide in his commandments.
 
 I read that he was hung on a cross. I look at my own hands and feet and try to imagine the pain of such torture—to hang there in the heat of the day, the weight of his body on those tearing nails, every muscle and nerve drawn tight in agony. No stopping, no escape until he, having said, “It is finished” ([[John 19.30|John 19:30]]), gave up the ghost. I realize that this was endured for me and for you; I bow my head; it is hard to hold back the tears. Even now, 1900 years later, it is as poignant as though it occurred yesterday.
 
@@ -38,7 +38,7 @@ What did the 11 apostles think as the cloud received him out of their sight? I c
 
 I am puzzled over the long period of time in which there was no spiritual light, nearly 1700 years of spiritual darkness. And then I read in a book of scripture, newly discovered, with an unusual name—the Book of Mormon—of his coming to a people in this land, a people descended from the Jews and their kin in Israel. I read of his descent from the heavens above them, of the great multitude of Nephites gathered together round about their temple, and of the voice from heaven which pierced them to the center.
 
-My heart sings in confirmation as I hear once more in my soul the words of introduction and acceptance twice heard during his ministry in Palestine and now repeated and enlarged: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].) Once more the voice of the Father out of the cloud is placing his approval on his divine Son. I know that the account is true.
+My heart sings in confirmation as I hear once more in my soul the words of introduction and acceptance twice heard during his ministry in Palestine and now repeated and enlarged: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].) Once more the voice of the Father out of the cloud is placing his approval on his divine Son. I know that the account is true.
 
 I have already read of how this great personage lived as the firstborn of his Father in the spirit, and so I am not surprised, although I am deeply moved, to learn that he, as a premortal spirit, visited the brother of Jared (see [[Ether 3.6|Ether 3:6–13]][[Ether 3.7|]][[Ether 3.8|]][[Ether 3.9|]][[Ether 3.10|]][[Ether 3.11|]][[Ether 3.12|]][[Ether 3.13|]]), and I can sense his fear when the brother of Jared saw the finger of the Lord and realized that it was like unto the finger of a man. It surprised this prophet, but it does not surprise me, for I have learned that the Lord was the firstborn Son of God, whose name is Man of Holiness. So when the Lord showed his complete self to that great prophet, I am not surprised, but I am awed. The more I study and read the scriptures, the more I know this is true.
 
@@ -50,11 +50,9 @@ For 1700 years men had claimed to represent Christ, but none had declared him, n
 
 The boy was too young to perpetrate a fraud. The sacred words are from the lips of the Eternal Father. This is my testimony, and our testimony to the world. Here today we declared his Beloved Son, and here today we worship him and give praise and honor and glory. Today in honor of him we assemble at this conference of his people.
 
-We look forward to his return to reign a thousand years. Let us worship him in spirit and in truth. Let us give loyal support to his presently anointed prophet and mouthpiece and those who assist him. President Harold B. Lee is that prophet. He holds the same keys that were given to Joseph Smith by the heavenly messengers in 1829. His word, inspired of the Holy Ghost, is the modern revelation of our day. This is my witness to you and to the world, in the name of Jesus Christ. Amen.
+We look forward to his return to reign a thousand years. Let us worship him in spirit and in truth. Let us give loyal support to his presently anointed prophet and mouthpiece and those who assist him. President Harold B. Lee is that prophet. He holds the same keys that were given to Joseph Smith by the heavenly messengers in 1829. His word, inspired of the Holy Ghost, is the modern revelation of our day. This is my witness to you and to the world, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Jesus_Christ
+#JesusChrist

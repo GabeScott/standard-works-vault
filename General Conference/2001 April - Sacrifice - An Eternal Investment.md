@@ -57,6 +57,4 @@ How comforting to know that we are not expected to make this investment alone. L
 
 
 
-
-
-#Children #Couple_Missionaries #Family #Generosity #Jesus_Christ #Joy #Love #Missionary_Work #Obedience #Sacrifice #Worship
+#Children #CoupleMissionaries #Family #Generosity #Joy #JesusChrist #Love #MissionaryWork #Obedience #Sacrifice #Worship

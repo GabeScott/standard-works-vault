@@ -1,6 +1,6 @@
 # Joseph, the Seer
 
-By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
+By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -14,13 +14,13 @@ We have no hesitancy, however, in stipulating that Joseph was, by the standards 
 
 Emma Smith reportedly said that Joseph, at the time of the translation of the Book of Mormon, could not compose a “well-worded letter, let alone dictate a book like the Book of Mormon … \[which was\] marvelous to me—a marvel and a wonder—as much as to anyone else.” (Preston Nibley, *The Witnesses of the Book of Mormon,* Salt Lake City: Deseret Book Co., 1968, p. 28.)
 
-This obscure young man apparently paused while translating and dictating to Emma—probably from the [[1 Nephi 4.1|fourth chapter of 1 Nephi]][[1 Nephi 4.2|]][[1 Nephi 4.3|]][[1 Nephi 4.4|]][[1 Nephi 4.5|]][[1 Nephi 4.6|]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]][[1 Nephi 4.18|]][[1 Nephi 4.19|]][[1 Nephi 4.20|]][[1 Nephi 4.21|]][[1 Nephi 4.22|]][[1 Nephi 4.23|]][[1 Nephi 4.24|]][[1 Nephi 4.25|]][[1 Nephi 4.26|]][[1 Nephi 4.27|]][[1 Nephi 4.28|]][[1 Nephi 4.29|]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.36|]][[1 Nephi 4.37|]][[1 Nephi 4.38|]]—concerning the “wall of Jerusalem”—and said, in effect, “Emma, I didn’t know there was a wall around Jerusalem.”
+This obscure young man apparently paused while translating and dictating to Emma—probably from the [[1 Nephi 4.1|fourth chapter of 1 Nephi]][[1 Nephi 4.2|]][[1 Nephi 4.3|]][[1 Nephi 4.4|]][[1 Nephi 4.5|]][[1 Nephi 4.6|]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]][[1 Nephi 4.18|]][[1 Nephi 4.19|]][[1 Nephi 4.20|]][[1 Nephi 4.21|]][[1 Nephi 4.22|]][[1 Nephi 4.23|]][[1 Nephi 4.24|]][[1 Nephi 4.25|]][[1 Nephi 4.26|]][[1 Nephi 4.27|]][[1 Nephi 4.28|]][[1 Nephi 4.29|]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.36|]][[1 Nephi 4.37|]][[1 Nephi 4.38|]]—concerning the “wall of Jerusalem”—and said, in effect, “Emma, I didn’t know there was a wall around Jerusalem.”
 
-But Joseph’s keen mind was being awakened and expanded as the tutoring words of the Lord and of past prophets flowed through his quickened consciousness. In fact, he was the very seer foreseen anciently by the earlier Joseph in Egypt! (See [[2 Nephi 3.6|2 Ne. 3:6–7, 16–18]][[2 Nephi 3.7|]][[2 Nephi 3.16|]][[2 Nephi 3.17|]][[2 Nephi 3.18|]].)
+But Joseph’s keen mind was being awakened and expanded as the tutoring words of the Lord and of past prophets flowed through his quickened consciousness. In fact, he was the very seer foreseen anciently by the earlier Joseph in Egypt! (See [[2 Nephi 3.6|2 Ne. 3:6–7, 16–18]][[2 Nephi 3.7|]][[2 Nephi 3.16|]][[2 Nephi 3.17|]][[2 Nephi 3.18|]].)
 
 In a prophetic father’s blessing given in December 1834 to Joseph Smith, Jr., Father Smith confirmed those promises given the ancient Joseph, and pronounced added blessings, including these, upon young Joseph: “Thy God has called thee by name out of the heavens … to do a work in this generation which no other man would do as Thyself.” The ancient Joseph “looked after his posterity in the last days … And sought diligently to know … who would bring the word of the Lord \[to them\] and his eyes beheld thee, my son: \[Joseph Smith, Jr.\] his heart rejoiced and his soul was satisfied.”
 
-Young Joseph also heard his father promise, “Thou shalt like to do the work which the Lord shall command Thee.” (See [[2 Nephi 3.8|2 Ne. 3:8]].)
+Young Joseph also heard his father promise, “Thou shalt like to do the work which the Lord shall command Thee.” (See [[2 Nephi 3.8|2 Ne. 3:8]].)
 
 Earlier, during the approximately ninety days of translating, Joseph was processing—and at a remarkable rate—truths and concepts of immense significance, beyond what was then his capacity. A few gems only from that treasure trove:
 
@@ -38,7 +38,7 @@ Likewise, Paul wrote that since Jesus was tempted, he understood how to succor u
 
 Illuminated also was petitionary prayer: “Whatsoever ye shall ask in prayer, believing, ye shall receive.” ([[Matthew 21.22|Matt. 21:22]].) “Plain and precious” and needed light was added to those words through Joseph:
 
-“And whatsoever ye shall ask the Father in my name, *which is right,* believing that ye shall receive, behold it shall be given unto you.” ([[3 Nephi 18.20|3 Ne. 18:20]]; italics added.)
+“And whatsoever ye shall ask the Father in my name, *which is right,* believing that ye shall receive, behold it shall be given unto you.” ([[3 Nephi 18.20|3 Ne. 18:20]]; italics added.)
 
 “He that asketh in the Spirit asketh according to the will of God; wherefore it is done even as he asketh.” ([[D&C 46.30|D&C 46:30]].)
 
@@ -60,23 +60,23 @@ From Amulek, who finally triumphed over ambivalence:
 
 Theology and beauty combine, again and again, in the pages provided through Joseph, as when the resurrected Christ appeared in the Western Hemisphere:
 
-“And when \[Jesus\] had said these words, he himself also knelt upon the earth; and behold he prayed unto the Father, and the things which he prayed cannot be written. …
+“And when \[Jesus\] had said these words, he himself also knelt upon the earth; and behold he prayed unto the Father, and the things which he prayed cannot be written. …
 
-“And no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as we both saw and heard Jesus speak; and no one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father.” ([[3 Nephi 17.15|3 Ne. 17:15–17]][[3 Nephi 17.16|]][[3 Nephi 17.17|]].)
+“And no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as we both saw and heard Jesus speak; and no one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father.” ([[3 Nephi 17.15|3 Ne. 17:15–17]][[3 Nephi 17.16|]][[3 Nephi 17.17|]].)
 
 Serious study of the blessed Book of Mormon admits one to a wonder world of complexity and beauty, even in the midst of the book’s simple, but powerful, spiritual refrain. We are given that which we most need—yet we are athirst for more!
 
 Granted, whenever the words of heaven are filtered through mortal minds and tongues there is some diminution. Yet, as with Nephi of old, so it was with Joseph Smith:
 
-“If ye shall believe in Christ ye will believe in these words, for they are the words of Christ, and he hath given them unto me.” ([[2 Nephi 33.10|2 Ne. 33:10]].)
+“If ye shall believe in Christ ye will believe in these words, for they are the words of Christ, and he hath given them unto me.” ([[2 Nephi 33.10|2 Ne. 33:10]].)
 
 Joseph later learned to express his own thoughts inspirationally, as in his forgiving letter of 1840 to a betraying but repenting W. W. Phelps.
 
-“It is true, that we have suffered much in consequence of your behavior—the cup of gall, already full enough for mortals to drink, was indeed filled to overflowing when you turned against us. One with whom we had oft taken sweet counsel together, and enjoyed many refreshing seasons from the Lord—‘had it been an enemy, we could have borne it.’ …
+“It is true, that we have suffered much in consequence of your behavior—the cup of gall, already full enough for mortals to drink, was indeed filled to overflowing when you turned against us. One with whom we had oft taken sweet counsel together, and enjoyed many refreshing seasons from the Lord—‘had it been an enemy, we could have borne it.’ …
 
-“However, the cup has been drunk, the will of our Father has been done, and we are yet alive, for which we thank the Lord. …
+“However, the cup has been drunk, the will of our Father has been done, and we are yet alive, for which we thank the Lord. …
 
-“I shall be happy once again to … rejoice over the returning prodigal. …
+“I shall be happy once again to … rejoice over the returning prodigal. …
 
 “‘Come on, dear brother, since the war is past, For friends at first, are friends again at last.’” (*History of the Church,* 4:163–64.)
 
@@ -84,11 +84,11 @@ Was Joseph imperfect like other prophets? Of course! Surely, Joseph could identi
 
 “Condemn me not because of mine imperfection, neither my father, because of his imperfection, … but rather give thanks unto God that he hath made manifest unto you our imperfections, that ye may learn to be more wise than we have been.” ([[Mormon 9.31|Morm. 9:31]]; see also [[D&C 67.5|D&C 67:5]].)
 
-Joseph, who translated the instructive words “there is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]), came to understand, by experience, that the calisthenics of spiritual growth involve isometrics, the pitting of the emerging self against the stern resistance of the old self.
+Joseph, who translated the instructive words “there is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]), came to understand, by experience, that the calisthenics of spiritual growth involve isometrics, the pitting of the emerging self against the stern resistance of the old self.
 
 Did Joseph experience the same anxieties in carrying out his mission as did other prophets? Indeed! Joseph could understand with what feelings a weary and beset Paul wrote:
 
-“For, when we were come into Macedonia, our flesh had no rest, but we were troubled on every side; without were fightings, within were fears.” ([[2 Corinthians 7.5|2 Cor. 7:5]]; see also [[2 Corinthians 4.8|2 Cor. 4:8]].)
+“For, when we were come into Macedonia, our flesh had no rest, but we were troubled on every side; without were fightings, within were fears.” ([[2 Corinthians 7.5|2 Cor. 7:5]]; see also [[2 Corinthians 4.8|2 Cor. 4:8]].)
 
 Was Joseph unjustly accused as were other prophets? Yes! Even unto this very day fragments of fact are flung at his memory. Paul was accused of being mad and deranged. (See [[Acts 26.24|Acts 26:24]].) Even Jesus himself was accused of being a winebibber, of being possessed of a devil, and of being mad. (See [[Matthew 11.19|Matt. 11:19]]; [[John 10.20|John 10:20]].)
 
@@ -112,7 +112,7 @@ While most mortals misunderstand the significance of Joseph’s ministry, the ad
 
 Unsurprisingly, Joseph Smith, Jr., was still growing spiritually and intellectually, when he was murdered. Yet, Joseph lived long enough to “lay out the plan of all the work which God has given you to do” as promised in the blessing from his dying father in 1840. Now the ends of the earth inquire after his name. No wonder an admiring but dying Brigham Young’s last words were “Joseph, Joseph, Joseph!” (Joseph Fielding Smith, *Essentials in Church History,* 24th ed., Salt Lake City: Deseret Book Co., 1971, p. 459.)
 
-Thus, those who revile Joseph Smith will not change Joseph’s status with the Lord (see [[2 Nephi 3.8|2 Ne. 3:8]])—merely their own! Instead—as was promised Joseph in an 1834 father’s blessing:
+Thus, those who revile Joseph Smith will not change Joseph’s status with the Lord (see [[2 Nephi 3.8|2 Ne. 3:8]])—merely their own! Instead—as was promised Joseph in an 1834 father’s blessing:
 
 “Thousands and tens of thousands shall come to a knowledge of the truth, through thy ministry, and thou shalt rejoice with Them in the Celestial Kingdom; \[and\] thou shalt stand on Mount Zion when the tribes of Jacob come shouting from the north, and with thy brethren, the Sons of Ephraim, crown them in the name of Jesus Christ.”
 
@@ -120,7 +120,7 @@ Some may seek to explain Joseph merely by attaching to him the generous adjectiv
 
 Even now, one hears faintly the distant but approaching drum roll of history building towards a crescendo of mortal recognition when all shall see “things as they really are.” ([[Jacob 4.13|Jacob 4:13]].)
 
-Meanwhile, the ancient records which a young Joseph translated will be with us “from generation to generation as long as the earth shall stand.” ([[2 Nephi 25.22|2 Ne. 25:22]]; see also [[D&C 5.10|D&C 5:10]].) These records defined a seer as one who can translate ancient records, is a revelator, and knows of things past and future. (See [[Mosiah 8.13|Mosiah 8:13–17]][[Mosiah 8.14|]][[Mosiah 8.15|]][[Mosiah 8.16|]][[Mosiah 8.17|]].) Such a seer, wrote Ammon, is greater than a prophet! (See [[Mosiah 8.15|Mosiah 8:15–17]][[Mosiah 8.16|]][[Mosiah 8.17|]].)
+Meanwhile, the ancient records which a young Joseph translated will be with us “from generation to generation as long as the earth shall stand.” ([[2 Nephi 25.22|2 Ne. 25:22]]; see also [[D&C 5.10|D&C 5:10]].) These records defined a seer as one who can translate ancient records, is a revelator, and knows of things past and future. (See [[Mosiah 8.13|Mosiah 8:13–17]][[Mosiah 8.14|]][[Mosiah 8.15|]][[Mosiah 8.16|]][[Mosiah 8.17|]].) Such a seer, wrote Ammon, is greater than a prophet! (See [[Mosiah 8.15|Mosiah 8:15–17]][[Mosiah 8.16|]][[Mosiah 8.17|]].)
 
 Therefore, brothers and sisters, I have no hesitancy—only gladness—in declaring my everlasting admiration for Joseph, the Seer! I thank the Father for providing such a seer! I thank my Lord and Savior, Jesus Christ, for calling, directing, and tutoring Joseph!
 
@@ -129,6 +129,4 @@ Humbly, I give apostolic “praise to the man who communed with Jehovah,” in t
 
 
 
-
-
-#Joseph_Smith
+#JosephSmith

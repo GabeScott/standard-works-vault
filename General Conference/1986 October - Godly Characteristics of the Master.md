@@ -8,17 +8,17 @@ By President Ezra Taft Benson - *President of the Church*
 
 My beloved brethren: This night, as I look out over this great body of priesthood holders and think of the similar congregations throughout the world, I am stirred with a great sense of gratitude and joy for the blessings our Heavenly Father has given us.
 
-The privilege of holding the priesthood, which is the power and authority to act in God’s name, is a great blessing and privilege and one that carries with it equally great obligations and responsibilities. When I ponder what kind of men and boys we should be as priesthood holders, I cannot help but think of the Savior’s questions to the Nephite twelve when He asked, “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]).
+The privilege of holding the priesthood, which is the power and authority to act in God’s name, is a great blessing and privilege and one that carries with it equally great obligations and responsibilities. When I ponder what kind of men and boys we should be as priesthood holders, I cannot help but think of the Savior’s questions to the Nephite twelve when He asked, “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]).
 
 To be like the Savior—what a challenge for any person! He is a member of the Godhead. He is the Savior and Redeemer. He was perfect in every aspect of His life. There was no flaw nor failing in Him. Is it possible for us as priesthood holders to be even as He is? The answer is yes. Not only *can* we, but that is our charge, our responsibility. He would not give us that commandment if He did not mean for us to do it.
 
-The Apostle Peter spoke of the process by which a person can be made a partaker “of the divine nature” ([[2 Peter 1.4|2 Pet. 1:4]]). This is important, for if we truly become partakers of the divine nature, we shall become like Him. Let us examine closely what Peter teaches us about this process. Here is what he said:
+The Apostle Peter spoke of the process by which a person can be made a partaker “of the divine nature” ([[2 Peter 1.4|2 Pet. 1:4]]). This is important, for if we truly become partakers of the divine nature, we shall become like Him. Let us examine closely what Peter teaches us about this process. Here is what he said:
 
 “And beside this, giving all diligence, add to your faith virtue; and to virtue knowledge;
 
 “And to knowledge temperance; and to temperance patience; and to patience godliness;
 
-“And to godliness brotherly kindness; and to brotherly kindness charity” ([[2 Peter 1.5|2 Pet. 1:5–7]][[2 Peter 1.6|]][[2 Peter 1.7|]]).
+“And to godliness brotherly kindness; and to brotherly kindness charity” ([[2 Peter 1.5|2 Pet. 1:5–7]][[2 Peter 1.6|]][[2 Peter 1.7|]]).
 
 The virtues outlined by Peter are part of the divine nature, or the Savior’s character. These are the virtues we are to emulate if we would be more like Him. Let us discuss a few of these important traits.
 
@@ -54,19 +54,19 @@ The next step Peter describes in the growth process is to add *knowledge* to our
 
 We must balance our secular learning with spiritual learning. You young men should be as earnest in enrolling in seminary and learning the scriptures as you are in working toward high school graduation. Young adults enrolled in universities and colleges or other postsecondary training should avail themselves of the opportunity to take institute of religion courses or, if attending a Church school, should take at least one religion course every term. Joining our spiritual education to our secular learning will help us keep focused on the things that matter most in this life. Though I am speaking to you priesthood holders, the same admonition applies to the women of the Church as well as to the men.
 
-President J. Reuben Clark, Jr., spoke of the desired balance in these words: “There is spiritual learning just as there is material learning, and the one without the other is not complete; yet, speaking for myself, if I could have only one sort of learning, that which I would take would be the learning of the spirit, because in the hereafter I shall have opportunity in the eternities which are to come to get the other, and without spiritual learning here my handicaps in the hereafter would be all but overwhelming” (in Conference Report, Apr. 1934, p. 94).
+President J. Reuben Clark, Jr., spoke of the desired balance in these words: “There is spiritual learning just as there is material learning, and the one without the other is not complete; yet, speaking for myself, if I could have only one sort of learning, that which I would take would be the learning of the spirit, because in the hereafter I shall have opportunity in the eternities which are to come to get the other, and without spiritual learning here my handicaps in the hereafter would be all but overwhelming” (in Conference Report, Apr. 1934, p. 94).
 
 President Spencer W. Kimball said it this way: “Youth, beloved youth, can you see why we must let spiritual training take first place?—Why we must pray with faith, and perfect our own lives like the Savior’s? Can you see that the spiritual knowledge may be complemented with the secular in this life and on for eternities but that the secular without the foundation of the spiritual is but like the foam upon the milk, the fleeting shadow?
 
 “Do not be deceived! One need not choose between the two but only as to the sequence, for there is opportunity for one to get both simultaneously; but can you see that the seminary courses should be given even preferential attention over the high school subjects; the institute over the college course; the study of the scriptures ahead of the study of man-written texts; the association with the Church more important than clubs, fraternities, and sororities; the payment of tithing more important than paying tuitions and fees?
 
-“Can you see that the ordinances of the temple are more important than the PhD or any and all other academic degrees?” (“Beloved Youth, Study and Learn,” in *Life’s Directions: A Series of Fireside Addresses,* Salt Lake City: Deseret Book Co., 1962, p. 190).
+“Can you see that the ordinances of the temple are more important than the PhD or any and all other academic degrees?” (“Beloved Youth, Study and Learn,” in *Life’s Directions: A Series of Fireside Addresses,* Salt Lake City: Deseret Book Co., 1962, p. 190).
 
 When our formal education has been completed, we should make daily study of the scriptures a lifetime pursuit. What I said last April to priesthood leaders applies to every priesthood holder as well:
 
-“I add my voice to these wise and inspired brethren and say to you that one of the most important things you can do as priesthood leaders is to immerse yourselves in the scriptures. Search them diligently. Feast upon the words of Christ. Learn the doctrine. Master the principles that are found therein. … Few other efforts … will bring greater dividends to your calling. … Few other ways \[will result in\] greater inspiration. …
+“I add my voice to these wise and inspired brethren and say to you that one of the most important things you can do as priesthood leaders is to immerse yourselves in the scriptures. Search them diligently. Feast upon the words of Christ. Learn the doctrine. Master the principles that are found therein. … Few other efforts … will bring greater dividends to your calling. … Few other ways \[will result in\] greater inspiration. …
 
-“You must … see that studying and searching the scriptures is not a burden laid upon \[us\] by the Lord, but a marvelous blessing and opportunity” (“The Power of the Word,” *Ensign,* May 1986, p. 81).
+“You must … see that studying and searching the scriptures is not a burden laid upon \[us\] by the Lord, but a marvelous blessing and opportunity” (“The Power of the Word,” *Ensign,* May 1986, p. 81).
 
 Another attribute described by Peter as being part of the divine nature is *temperance.* A priesthood holder is *temperate.* This means he is restrained in his emotions and verbal expressions. He does things in moderation and is not given to overindulgence. In a word, he has self-control. He is the master of his emotions, not the other way around.
 
@@ -74,7 +74,7 @@ A priesthood holder who would curse his wife, abuse her with words or actions, o
 
 If a man does not control his temper, it is a sad admission that he is not in control of his thoughts. He then becomes a victim of his own passions and emotions, which lead him to actions that are totally unfit for civilized behavior, let alone behavior for a priesthood holder.
 
-President David O. McKay once said, “A man who cannot control his temper is not very likely to control his passion, and no matter what his pretensions in religion, he moves in daily life very close to the animal plane” (*Improvement Era,* June 1958, p. 407).
+President David O. McKay once said, “A man who cannot control his temper is not very likely to control his passion, and no matter what his pretensions in religion, he moves in daily life very close to the animal plane” (*Improvement Era,* June 1958, p. 407).
 
 To our temperance we are to add *patience.* A priesthood holder is to be *patient.* Patience is another form of self-control. It is the ability to postpone gratification and to bridle one’s passions. In his relationships with loved ones, a patient man does not engage in impetuous behavior that he will later regret. Patience is composure under stress. A patient man is understanding of others’ faults.
 
@@ -108,7 +108,7 @@ This is what the Savior means when He speaks of the kind of men we should be. Do
 
 The Savior declared that life eternal is to know the only true God and His Son Jesus Christ (see [[John 17.3|John 17:3]]). If this is true, and I bear you my solemn witness that it *is* true, then we must ask how we come to know God. The process of adding one godly attribute to another, as described by Peter, becomes the key to gaining this knowledge that leads to eternal life. Note Peter’s promise, which immediately follows the process described:
 
-“For if these things be in you, *and abound,* they make you that ye shall neither be barren nor unfruitful in the knowledge of our Lord Jesus Christ” ([[2 Peter 1.8|2 Pet. 1:8]]; italics added).
+“For if these things be in you, *and abound,* they make you that ye shall neither be barren nor unfruitful in the knowledge of our Lord Jesus Christ” ([[2 Peter 1.8|2 Pet. 1:8]]; italics added).
 
 Oh, my beloved brethren, I pray that these qualities and attributes of the Savior may abound in us so that when we stand at the Judgment and He asks each one of us, “What manner of man are ye?” we can raise our heads in gratitude and joy and answer, “Even as thou art.” This is my humble prayer for each and every priesthood holder in the name of Jesus Christ, amen.
 
@@ -129,6 +129,4 @@ Now, brethren, I would like to read to you a statement recently approved by the 
 
 
 
-
-
-#Jesus_Christ #Priesthood
+#JesusChrist #Priesthood

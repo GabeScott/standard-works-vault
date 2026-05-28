@@ -43,7 +43,7 @@ Make a decision today to show you know by following Jesus Christ in faith. The p
 
 
 
-[^1]: [[3 Nephi 27.21|3 Nephi 27:21]].
+[^1]: [[3 Nephi 27.21|3 Nephi 27:21]].
 
 [^2]: *Children’s Songbook,* 78.
 
@@ -57,6 +57,4 @@ Make a decision today to show you know by following Jesus Christ in faith. The p
 
 [^7]: See Chelsea M. Bryant, “Creating Kindness,” *Friend,* Mar. 2000, 35.
 
-
-
-#Children #Faith #Kindness #Love #Obedience #Primary #Sabbath #Word_Of_Wisdom
+#Children #Faith #Kindness #Love #Obedience #Primary #Sabbath #WordOfWisdom

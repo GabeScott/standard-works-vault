@@ -10,7 +10,7 @@ By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 We are told in the scriptures that it is essential to endure to the end:
 
-“Wherefore, if ye shall be obedient to the commandments, and endure to the end, ye shall be saved at the last day. And thus it is” ([[1 Nephi 22.31|1 Ne. 22:31]]).
+“Wherefore, if ye shall be obedient to the commandments, and endure to the end, ye shall be saved at the last day. And thus it is” ([[1 Nephi 22.31|1 Ne. 22:31]]).
 
 “Be patient in afflictions, for thou shalt have many; but endure them, for, lo, I am with thee, even unto the end of thy days” ([[D&C 24.8|D&C 24:8]]).
 
@@ -22,7 +22,7 @@ Jesus knew who He was—the Son of God. He knew His purpose—to carry out the w
 
 The Lord could have called on legions of angels to take Him down from the cross, but He faithfully endured to the end and completed the very purpose for which He had been sent to earth, thus granting eternal blessings to all who will ever experience mortality.
 
-It is touching to me that when the Father introduced His Son to prophets in dispensations since, He would say, “This is my beloved Son, in whom I am well pleased” ([[2 Peter 1.17|2 Pet. 1:17]]), or “Behold my Beloved Son, … in whom I have glorified my name” ([[3 Nephi 11.7|3 Ne. 11:7]]).
+It is touching to me that when the Father introduced His Son to prophets in dispensations since, He would say, “This is my beloved Son, in whom I am well pleased” ([[2 Peter 1.17|2 Pet. 1:17]]), or “Behold my Beloved Son, … in whom I have glorified my name” ([[3 Nephi 11.7|3 Ne. 11:7]]).
 
 In our dispensation, the Prophet Joseph Smith endured all manner of opposition and hardship to bring to pass the desire of our Heavenly Father—the Restoration of The Church of Jesus Christ of Latter-day Saints. Joseph was harassed and hunted by angry mobs. He patiently endured poverty, humiliating charges, and unkind acts. His people were forcibly driven from town to town, from state to state. He was tarred and feathered. He was falsely charged and jailed.
 
@@ -40,7 +40,7 @@ One young woman wrote about the lessons she has learned in her struggle to recov
 
 “I didn’t know how strong I was until the spring of 1996. The incidents of one afternoon completely changed my expectations of how my education would proceed. One minute I was on a path to my future, much like every other high school student. The next minute life was no longer ordinary for me. I was on my way to strengthening myself in ways I would never have guessed. … I was on a road to relearning instead of learning. … I relearned how to eat; swallowing the food in my mouth was a hard task that I had to relearn. I went from the bed to a wheelchair to standing and walking in over a five-month period. … I have learned many great truths from my diverse trials this past year. Prayers are really answered. Fasting is a power in my family. Love has kept me alive. … I have learned what I can tolerate. … Throughout all of this I have learned that I am a lot stronger than I thought. I have learned that if you need help, it is OK to ask for it; we all have our limits, strengths, and weaknesses. … All knowledge … is ‘spendable currency’ for me. Like a baby bird broken from its shell, I am learning to fly again” (letter from Elizabeth Merkley).
 
-Often we do not know what we can endure until after a trial of our faith. We are also taught by the Lord that we will never be tested beyond that which we can endure (see [[1 Corinthians 10.13|1 Cor. 10:13]]).
+Often we do not know what we can endure until after a trial of our faith. We are also taught by the Lord that we will never be tested beyond that which we can endure (see [[1 Corinthians 10.13|1 Cor. 10:13]]).
 
 In 1968 a marathon runner by the name of John Stephen Akhwari represented Tanzania in an international competition. “A little over an hour after \[the winner\] had crossed the finish line, John Stephen Akhwari … approached the stadium, the last man to complete the journey. \[Though suffering from fatigue, leg cramps, dehydration, and disorientation,\] a voice called from within to go on, and so he went on. Afterwards, it was written, ‘Today we have seen a young African runner who symbolizes the finest in human spirit, a performance that gives meaning to the word *courage.*’ For some, the only reward is a personal one. \[There are no medals, only\] the knowledge that they finished what they set out to do.” When asked why he would complete a race he could never win, Akhwari replied, “My country did not send me 5,000 miles to *start* the race; my country sent me to *finish* the race.” (*The Last African Runner,* Olympiad Series, written, directed, and produced by Bud Greenspan, Cappy Productions \[videocassette, 1976\].)
 
@@ -50,7 +50,7 @@ Dwelling in the world is part of our mortal test. The challenge is to live in th
 
 The Church is not built in one generation. The sound growth of the Church takes hold over three and four generations of faithful Saints. Passing the fortitude of faith to endure to the end from one generation to the next generation is a divine gift of unmeasured blessings to our progeny. Also, we cannot endure to the end alone. It is important that we help by lifting and strengthening one another.
 
-We are taught in the scriptures that there must be opposition in all things (see [[2 Nephi 2.11|2 Ne. 2:11]]). It is not a question of *if* we are ready for the tests; it is a matter of *when.* We must prepare to be ready for tests that will present themselves without warning.
+We are taught in the scriptures that there must be opposition in all things (see [[2 Nephi 2.11|2 Ne. 2:11]]). It is not a question of *if* we are ready for the tests; it is a matter of *when.* We must prepare to be ready for tests that will present themselves without warning.
 
 The basic requirements for enduring to the end include knowing who we are—children of God with a desire to return to His presence after mortality; understanding the purpose of life—to endure to the end and obtain eternal life; and living obediently with a desire and a determination to endure all things, having eternal vision. Eternal vision allows us to overcome opposition in our temporal state and, ultimately, achieve the promised rewards and blessings of eternal life.
 
@@ -76,13 +76,11 @@ As we put our faith in the Lord and keep our focus on the eternities, we will be
 
 As individuals, we do not know when the end of mortality will come. We need to develop the ability to endure and complete our responsibilities of today, however difficult the days ahead may be.
 
-May we be able to say as Paul said to Timothy, “I have fought a good fight, I have finished my course, I have kept \[my\] faith” ([[2 Timothy 4.7|2 Tim. 4:7]]).
+May we be able to say as Paul said to Timothy, “I have fought a good fight, I have finished my course, I have kept \[my\] faith” ([[2 Timothy 4.7|2 Tim. 4:7]]).
 
 There is nothing that we are enduring that Jesus does not understand, and He waits for us to go to our Heavenly Father in prayer. I testify that if we will be obedient and if we are diligent, our prayers will be answered, our problems will diminish, our fears will dissipate, light will come upon us, the darkness of despair will be dispersed, and we will be close to the Lord and feel of His love and of the comfort of the Holy Ghost. It is my prayer that we can find the faith, courage, and strength to endure to the end so that we may feel the joy of faithfully returning to the arms of our Heavenly Father, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Adversity #Commandments #Endurance #Faith #Family #Jesus_Christ #Joseph_Smith #Missionary_Work #Obedience #Opposition #Pioneers
+#Adversity #Commandments #Endurance #Faith #Family #JosephSmith #JesusChrist #MissionaryWork #Obedience #Opposition #Pioneers

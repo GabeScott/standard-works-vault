@@ -44,7 +44,7 @@ Biblical and modern prophecies give many signs of the Second Coming. These inclu
 
 In another revelation the Lord declares that some of these signs are His voice calling His people to repentance:
 
-“Hearken, O ye nations of the earth, and hear the words of that God who made you. …
+“Hearken, O ye nations of the earth, and hear the words of that God who made you. …
 
 “How oft have I called upon you by the mouth of my servants, and by the ministering of angels, and by mine own voice, and by the voice of thunderings, and by the voice of lightnings, and by the voice of tempests, and by the voice of earthquakes, and great hailstorms, and by the voice of famines and pestilences of every kind, … and would have saved you with an everlasting salvation, but ye would not!” ([[D&C 43.23|D&C 43:23, 25]][[D&C 43.25|]]).
 
@@ -68,7 +68,7 @@ Modern revelation contains this teaching, spoken by the Lord to the early leader
 
 “And after your testimony cometh wrath and indignation upon the people.
 
-“For after your testimony cometh the testimony of earthquakes. …
+“For after your testimony cometh the testimony of earthquakes. …
 
 “And … the testimony of the voice of thunderings, and the voice of lightnings, and the voice of tempests, and the voice of the waves of the sea heaving themselves beyond their bounds.
 
@@ -108,7 +108,7 @@ Evil that used to be localized and covered like a boil is now legalized and para
 
 The men and women who made epic sacrifices to combat evil regimes in the past were shaped by values that are disappearing from our public teaching. The good, the true, and the beautiful are being replaced by the no-good, the “whatever,” and the valueless fodder of personal whim. Not surprisingly, many of our youth and adults are caught up in pornography, pagan piercing of body parts, self-serving pleasure pursuits, dishonest behavior, revealing attire, foul language, and degrading sexual indulgence.
 
-An increasing number of opinion leaders and followers deny the existence of the God of Abraham, Isaac, and Jacob and revere only the gods of secularism. Many in positions of power and influence deny the right and wrong defined by divine decree. Even among those who profess to believe in right and wrong, there are “them that call evil good, and good evil” ([[Isaiah 5.20|Isaiah 5:20]]; [[2 Nephi 15.20|2 Nephi 15:20]]). Many also deny individual responsibility and practice dependence on others, seeking, like the foolish virgins, to live on borrowed substance and borrowed light.
+An increasing number of opinion leaders and followers deny the existence of the God of Abraham, Isaac, and Jacob and revere only the gods of secularism. Many in positions of power and influence deny the right and wrong defined by divine decree. Even among those who profess to believe in right and wrong, there are “them that call evil good, and good evil” ([[Isaiah 5.20|Isaiah 5:20]]; [[2 Nephi 15.20|2 Nephi 15:20]]). Many also deny individual responsibility and practice dependence on others, seeking, like the foolish virgins, to live on borrowed substance and borrowed light.
 
 All of this is grievous in the sight of our Heavenly Father, who loves all of His children and forbids every practice that keeps any from returning to His presence.
 
@@ -116,15 +116,13 @@ What is the state of our personal preparation for eternal life? The people of Go
 
 Are we following the Lord’s command, “Stand ye in holy places, and be not moved, until the day of the Lord come; for behold, it cometh quickly”? ([[D&C 87.8|D&C 87:8]]). What are those “holy places”? Surely they include the temple and its covenants faithfully kept. Surely they include a home where children are treasured and parents are respected. Surely the holy places include our posts of duty assigned by priesthood authority, including missions and callings faithfully fulfilled in branches, wards, and stakes.
 
-As the Savior taught in His prophecy of the Second Coming, blessed is the “faithful and wise servant” who is attending to his duty when the Lord comes (see [[Matthew 24.45|Matthew 24:45–46]][[Matthew 24.46|]]). As the prophet Nephi taught of that day, “The righteous need not fear” ([[1 Nephi 22.17|1 Nephi 22:17]]; see also [[1 Nephi 14.14|1 Nephi 14:14]]; [[D&C 133.44|D&C 133:44]]). And modern revelation promises that “the Lord shall have power over his saints” ([[D&C 1.36|D&C 1:36]]).
+As the Savior taught in His prophecy of the Second Coming, blessed is the “faithful and wise servant” who is attending to his duty when the Lord comes (see [[Matthew 24.45|Matthew 24:45–46]][[Matthew 24.46|]]). As the prophet Nephi taught of that day, “The righteous need not fear” ([[1 Nephi 22.17|1 Nephi 22:17]]; see also [[1 Nephi 14.14|1 Nephi 14:14]]; [[D&C 133.44|D&C 133:44]]). And modern revelation promises that “the Lord shall have power over his saints” ([[D&C 1.36|D&C 1:36]]).
 
-We are surrounded by challenges on all sides (see [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]]). But with faith in God, we trust the blessings He has promised those who keep His commandments. We have faith in the future, and we are preparing for that future. To borrow a metaphor from the familiar world of athletic competitions, we do not know when this game will end, and we do not know the final score, but we do know that when the game finally ends, our team wins. We will continue to go forward “till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done” (*History of the Church,* 4:540).
+We are surrounded by challenges on all sides (see [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]]). But with faith in God, we trust the blessings He has promised those who keep His commandments. We have faith in the future, and we are preparing for that future. To borrow a metaphor from the familiar world of athletic competitions, we do not know when this game will end, and we do not know the final score, but we do know that when the game finally ends, our team wins. We will continue to go forward “till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done” (*History of the Church,* 4:540).
 
 “Wherefore,” the Savior tells us, “be faithful, praying always, having your lamps trimmed and burning, and oil with you, that you may be ready at the coming of the Bridegroom—For behold, verily, verily, I say unto you, that I come quickly” ([[D&C 33.17|D&C 33:17–18]][[D&C 33.18|]]).
 
 I testify of Jesus Christ. I testify that He shall come, as He has promised. And I pray that we will be prepared to meet Him, in the name of Jesus Christ, amen.
-
-
 
 
 

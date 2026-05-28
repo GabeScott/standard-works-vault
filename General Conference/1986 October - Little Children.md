@@ -30,21 +30,21 @@ The Savior gave the ever-familiar plea, “Suffer the little children to come un
 
 When His disciples asked, “Who is the greatest in the kingdom of heaven? … Jesus called a little child unto him, and set him in the midst of them, and said, … Whosoever … shall humble himself as this little child, the same is greatest in the kingdom of heaven. And whoso shall receive one such little child in my name receiveth me” ([[Matthew 18.1|Matt. 18:1–5]][[Matthew 18.2|]][[Matthew 18.3|]][[Matthew 18.4|]][[Matthew 18.5|]]).
 
-Then came this warning: “But whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea” ([[Matthew 18.6|v. 6]]).
+Then came this warning: “But whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea” ([[Matthew 18.6|v. 6]]).
 
 To me, the most impressive lesson is in the Book of Mormon.
 
 Jesus “commanded that their little children should be brought.
 
-“So they brought their little children and set them down upon the ground round about him, and Jesus stood in the midst; …
+“So they brought their little children and set them down upon the ground round about him, and Jesus stood in the midst; …
 
 “He commanded the multitude that they should kneel down upon the ground.
 
-“And it came to pass that when they had knelt upon the ground, Jesus groaned within himself, and said: Father, I am troubled because of the wickedness of the people of the house of Israel. …
+“And it came to pass that when they had knelt upon the ground, Jesus groaned within himself, and said: Father, I am troubled because of the wickedness of the people of the house of Israel. …
 
-“He himself also knelt upon the earth; and behold he prayed unto the Father, and the things which he prayed cannot be written, …
+“He himself also knelt upon the earth; and behold he prayed unto the Father, and the things which he prayed cannot be written, …
 
-“And no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as \[they\] both saw and heard Jesus speak; …
+“And no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as \[they\] both saw and heard Jesus speak; …
 
 “And they arose from the earth, and he said unto them: Blessed are ye because of your faith. And now behold, my joy is full.
 
@@ -52,9 +52,9 @@ Jesus “commanded that their little children should be brought.
 
 “And when he had done this he wept again;
 
-“And he … said unto them: Behold your little ones. …
+“And he … said unto them: Behold your little ones. …
 
-“And they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, and they were encircled about with fire; and the angels did minister unto them” ([[3 Nephi 17.11|3 Ne. 17:11–15, 17, 20–24]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.17|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
+“And they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, and they were encircled about with fire; and the angels did minister unto them” ([[3 Nephi 17.11|3 Ne. 17:11–15, 17, 20–24]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.17|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
 
 There is more, much more, in the scriptures about little children.
 
@@ -98,7 +98,7 @@ Mormon taught this doctrine to his son Moroni and hence to us. I can present onl
 
 He called their disputation “gross error” and wrote: “Immediately after I had learned these things of you I inquired of the Lord concerning the matter. And the word of the Lord came to me by the power of the Holy Ghost, saying:
 
-“Listen to the words of Christ, your Redeemer, your Lord and your God. Behold, I came into the world not to call the righteous but sinners to repentance; the whole need no physician, but they that are sick; wherefore, little children are whole, for they are not capable of committing sin; wherefore the curse of Adam is taken from them in me, that it hath no power over them; …
+“Listen to the words of Christ, your Redeemer, your Lord and your God. Behold, I came into the world not to call the righteous but sinners to repentance; the whole need no physician, but they that are sick; wherefore, little children are whole, for they are not capable of committing sin; wherefore the curse of Adam is taken from them in me, that it hath no power over them; …
 
 “And after this manner did the Holy Ghost manifest the word of God unto me; wherefore, my beloved son, I know that it is solemn mockery before God, that ye should baptize little children” ([[Moroni 8.7|Moro. 8:7–9]][[Moroni 8.8|]][[Moroni 8.9|]]).
 
@@ -177,6 +177,7 @@ I said at the beginning that I might well conclude with the account of that trus
 With that, the little boy was soon safely asleep in his arms.
 
 God grant that all little children will be safe with every one of us because their Father and their God and our Father and our God said we could be here. In the name of Jesus Christ, amen.
+
 
 
 

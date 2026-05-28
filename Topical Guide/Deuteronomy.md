@@ -1,4 +1,3 @@
 # Deuteronomy
 
-
-*See* [BD Deuteronomy](https://www.churchofjesuschrist.org/study/scriptures/bd/deuteronomy?lang=eng)
+*See also* [[BD Deuteronomy.md|BD Deuteronomy]]

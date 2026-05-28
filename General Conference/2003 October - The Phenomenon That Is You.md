@@ -93,6 +93,4 @@ I further testify that the Lord directs and inspires President Hinckley as he le
 
 [^14]: Wilford Woodruff, *The Discourses of Wilford Woodruff,* sel. G. Homer Durham (1946), 149.
 
-
-
-#Family #Family_History #Service #Temple_Work
+#Family #FamilyHistory #Service #TempleWork

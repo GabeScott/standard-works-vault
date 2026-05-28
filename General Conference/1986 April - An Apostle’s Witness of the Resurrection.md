@@ -22,7 +22,7 @@ Even with the logic of nature’s regeneration and even with the testimony of th
 
 Without the Resurrection, the gospel of Jesus Christ becomes a litany of wise sayings and seemingly unexplainable miracles—but sayings and miracles with no ultimate triumph. No, the ultimate triumph is in the ultimate miracle: for the first time in the history of mankind, one who was dead raised himself into living immortality. He *was* the Son of God, the Son of our immortal Father in Heaven, and his triumph over physical and spiritual death is the good news every Christian tongue should speak.
 
-The eternal truth is that Jesus Christ arose from the grave and was the firstfruits of the Resurrection. (See [[1 Corinthians 15.23|1 Cor. 15:23]].) The witnesses of this wonderful occurrence cannot be impeached.
+The eternal truth is that Jesus Christ arose from the grave and was the firstfruits of the Resurrection. (See [[1 Corinthians 15.23|1 Cor. 15:23]].) The witnesses of this wonderful occurrence cannot be impeached.
 
 Among the chosen witnesses are the Lord’s Apostles. Indeed, the call to the holy apostleship is one of bearing witness to the world of the divinity of the Lord Jesus Christ. Joseph Smith said, “The fundamental principles of our religion are the testimony of the Apostles and Prophets, concerning Jesus Christ, that He died, was buried, and rose again the third day, and ascended into heaven; and all other things which pertain to our religion are only appendages to it.” (*History of the Church,* 3:30.)
 
@@ -46,9 +46,9 @@ On Mars Hill in Athens, Paul said: “\[God\] hath given assurance unto all men,
 
 Paul bore his apostolic witness of the Resurrection again in his letter to the Saints at Corinth:
 
-“Am I not an apostle? am I not free? have I not seen Jesus Christ our Lord? are not ye my work in the Lord? … For the seal of mine apostleship are ye in the Lord.” ([[1 Corinthians 9.1|1 Cor. 9:1–2]][[1 Corinthians 9.2|]].)
+“Am I not an apostle? am I not free? have I not seen Jesus Christ our Lord? are not ye my work in the Lord? … For the seal of mine apostleship are ye in the Lord.” ([[1 Corinthians 9.1|1 Cor. 9:1–2]][[1 Corinthians 9.2|]].)
 
-“But now is Christ risen from the dead, and become the firstfruits of them that slept. … In Christ shall all be made alive.” ([[1 Corinthians 15.20|1 Cor. 15:20, 22]][[1 Corinthians 15.22|]].)
+“But now is Christ risen from the dead, and become the firstfruits of them that slept. … In Christ shall all be made alive.” ([[1 Corinthians 15.20|1 Cor. 15:20, 22]][[1 Corinthians 15.22|]].)
 
 I humbly testify of my privilege to bear the holy apostleship and to work daily with a modern Quorum of Twelve Apostles who are disciples of the Lord Jesus Christ. We are to go forth as “special witnesses of the name of Christ in all the world.” ([[D&C 107.23|D&C 107:23]].) And so have the Apostles always testified.
 
@@ -56,11 +56,11 @@ In our own day, Apostles and prophets are carrying on the work of bearing witnes
 
 “At this Easter season, I am grateful for this opportunity to bear witness to the resurrection of Jesus and to set forth, in part at least, the basis upon which that witness rests.
 
-“‘He is risen; he is not here.’ ([[Mark 16.6|Mark 16:6]].) These words, eloquent in their simplicity, announced the most significant event of recorded history, the resurrection of the Lord Jesus—an event so extraordinary that even the Apostles, who had been most intimately associated with Jesus in his earthly ministry and who had been carefully taught of the coming event, had difficulty grasping the reality of its full significance. The first accounts which reached their ears ‘seemed to them as idle tales’ ([[Luke 24.11|Luke 24:11]]) as well they might, for millions of men had lived and died before that day. In every hill and dale men’s bodies mouldered in the dust, but until that first Easter morning not one had risen from the grave. …
+“‘He is risen; he is not here.’ ([[Mark 16.6|Mark 16:6]].) These words, eloquent in their simplicity, announced the most significant event of recorded history, the resurrection of the Lord Jesus—an event so extraordinary that even the Apostles, who had been most intimately associated with Jesus in his earthly ministry and who had been carefully taught of the coming event, had difficulty grasping the reality of its full significance. The first accounts which reached their ears ‘seemed to them as idle tales’ ([[Luke 24.11|Luke 24:11]]) as well they might, for millions of men had lived and died before that day. In every hill and dale men’s bodies mouldered in the dust, but until that first Easter morning not one had risen from the grave. …
 
-“That the whole of his mortal life moved toward this consummation, he had repeatedly taught. It was foreshadowed in his statement about laying down his life and taking it up again. To the sorrowing Martha he had said, ‘I am the resurrection, and the life’ ([[John 11.25|John 11:25]]); and to the Jews, ‘Destroy this temple, and in three days I will raise it up.’ ([[John 2.19|John 2:19]].) …
+“That the whole of his mortal life moved toward this consummation, he had repeatedly taught. It was foreshadowed in his statement about laying down his life and taking it up again. To the sorrowing Martha he had said, ‘I am the resurrection, and the life’ ([[John 11.25|John 11:25]]); and to the Jews, ‘Destroy this temple, and in three days I will raise it up.’ ([[John 2.19|John 2:19]].) …
 
-“The evidence that Jesus was resurrected is conclusive.” (In Conference Report, Apr. 1982, pp. 5–7; or *Ensign,* May 1982, p. 6.)
+“The evidence that Jesus was resurrected is conclusive.” (In Conference Report, Apr. 1982, [[1982 April - The Resurrection of Jesus.md|pp. 5–7]]; or *Ensign,* May 1982, p. 6.)
 
 To the testimony of President Romney and the witnesses of my Brethren, I add my own apostolic witness that Jesus is the Christ, the Son of the living God; that he was born into mortality and fulfilled his ministry as related in the scriptures, which record his birth, his life, his teachings, and his commandments.
 
@@ -69,6 +69,4 @@ In teaching his Apostles, Christ made known to them “that the Son of Man must 
 
 
 
-
-
-#Jesus_Christ #Quorum_Of_The_Twelve_Apostles #Resurrection
+#JesusChrist #QuorumOfTheTwelveApostles #Resurrection

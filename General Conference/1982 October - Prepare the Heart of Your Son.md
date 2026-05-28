@@ -1,6 +1,6 @@
 # Prepare the Heart of Your Son
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -36,7 +36,7 @@ Let’s begin tonight to weed out the little inconsistencies that we all have in
 
 Secondly, a boy’s heart is better prepared to believe if he has a listening father. If I were a boy, what would I want my dad to be like? I would probably wish he didn’t preach to me so much, but rather, would listen to me more. Many dads spend too much time preaching and not enough time teaching. Sometimes great things happen inside a boy when he’s listened to by his dad. He begins to think he is special—that he is not just another twelve-year-old or sixteen-year-old. His self-image improves. One of our crying needs is to have young men who have a worthy self-image. These are the effective builders of the kingdom. In a father-son visit, who talks most? One successful father said, “Dads need to give more ear and less lip to their sons.”
 
-Next, a boy’s heart is prepared to hear when a father gives his son time alone. I’ve already told you about the Washington, D.C., cab driver. Elder Richard L. Evans had a meaningful thought. Said he:
+Next, a boy’s heart is prepared to hear when a father gives his son time alone. I’ve already told you about the Washington, D.C., cab driver. Elder Richard L. Evans had a meaningful thought. Said he:
 
 “In all things there is a priority of importance. … And one of our urgent opportunities is to respond to a child when he earnestly asks—remembering that they don’t *always* ask, that they aren’t *always* teachable, that they won’t *always* listen. And often we have to take them on *their* terms, at *their* times, and not always on *our* terms, and at *our* times. But if we respond to them with sincere attention and sincere concern, they will likely continue to come to us and ask. And if they find they can trust us with their trivial questions, they may later trust us with the more weighty ones.” (*Thoughts for One Hundred Days,* 5 vols., Salt Lake City: Publishers Press, 1972, 5:114–15.)
 
@@ -53,8 +53,6 @@ From *Elbert Hubbard’s Scrapbook* we have a classic:
 “The place to take the true measure of a man is not in the darkest place or in the amen corner, nor the cornfield, but by his own fireside. There he lays aside his mask and you may learn whether he is an imp or an angel, cur or king, hero or humbug. I care not what the world says of him: whether it crowns him boss or pelts him with bad eggs. I care not a copper what his reputation or religion may be: if his babies dread his homecoming and his better half swallows her heart every time she has to ask him for a five-dollar bill, he is a fraud of the first water, even though he prays night and morning until he is black in the face. … But if his children rush to the front door to meet him and love’s sunshine illuminates the face of his wife every time she hears his footfall, you can take it for granted that he is pure, for his home is a heaven. … I can forgive much in that fellow mortal who would rather make men swear than women weep; who would rather have the hate of the whole world than the contempt of his wife; who would rather call anger to the eyes of a king than fear to the face of a child.” (W. C. Brann, “A Man’s Real Measure, in *Elbert Hubbard’s Scrapbook,* N.Y.: Wm. H. Wise and Co., 1923, p. 16.)
 
 Brethren, I testify to you that the priesthood is divine. We have been given it to bless the lives of others, as well as our own. May we remember the importance of preparing hearts as we teach sacred truths. May we renew the purification process in each of us so that we might be a strength and not a hindrance to those we love most, in the name of the Lord Jesus Christ, amen.
-
-
 
 
 

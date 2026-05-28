@@ -32,7 +32,7 @@ Well, the entire family caught the spirit. They concentrated their efforts. With
 
 Can you see father Lehi gathering his loved ones around him near the end of his life? As a loving patriarch who had been tested and tried, he asked his family to leave their comfortable home and travel to a distant place in a new world. There they encountered dire circumstances, dangers, and contentions. He spoke to his family:
 
-“And now that my soul might have joy in you, and that my heart might leave this world with gladness because of you, that I might not be brought down with grief and sorrow to the grave, arise from the dust, my sons, … and be determined in one mind and in one heart, united in all things, that ye may not come down into captivity” ([[2 Nephi 1.21|2 Ne. 1:21]]).
+“And now that my soul might have joy in you, and that my heart might leave this world with gladness because of you, that I might not be brought down with grief and sorrow to the grave, arise from the dust, my sons, … and be determined in one mind and in one heart, united in all things, that ye may not come down into captivity” ([[2 Nephi 1.21|2 Ne. 1:21]]).
 
 As a loving father, he knew that if they were to flourish they must be one.
 
@@ -86,9 +86,9 @@ That was a great lesson! Even though I already realized much of what he said, to
 
 You see, one of the facets that makes us different is that we strive for compatibility. We sustain our leaders and generally follow their counsel and direction. There are many reasons to be unified, but perhaps the greatest reason is that we have been asked to be one. In the Doctrine and Covenants, the Lord asks us to assemble ourselves together to agree upon his word (see [[D&C 41.2|D&C 41:2]]). Joseph Smith stated, “Unity is power” (*History of the Church,* 6:198), when speaking about stability in governments. Just so, unity adds power in the Church and in our families.
 
-Let us turn again to the Book of Mormon, where the Savior is preaching to his other sheep. Jesus is praying with those in the Western Hemisphere, “And now Father, I pray unto thee for them, and also for all those who shall believe on their words” ([[3 Nephi 19.23|3 Ne. 19:23]]). He was not only praying for the believers and those that would be missionaries who were gathered there but for those they would be teaching, “that they may believe in me, that I may be in *them* as thou, Father, art in me, that we may be one” ([[3 Nephi 19.23|3 Ne. 19:23]]; italics added).
+Let us turn again to the Book of Mormon, where the Savior is preaching to his other sheep. Jesus is praying with those in the Western Hemisphere, “And now Father, I pray unto thee for them, and also for all those who shall believe on their words” ([[3 Nephi 19.23|3 Ne. 19:23]]). He was not only praying for the believers and those that would be missionaries who were gathered there but for those they would be teaching, “that they may believe in me, that I may be in *them* as thou, Father, art in me, that we may be one” ([[3 Nephi 19.23|3 Ne. 19:23]]; italics added).
 
-Yes, we can almost see Jesus standing before those ancient Americans as he continues, “Father, I pray not for the world, but for those whom thou hast given me out of the world, because of their faith, that they may be purified in me, that I may be in them as thou, Father, art in me, that we may be one, that I may be glorified in them” ([[3 Nephi 19.29|3 Ne. 19:29]]). It was this same Jesus, as Jehovah of the Old Testament, who inspired these words, “Behold, how good and how pleasant it is for brethren to dwell together in unity!” ([[Psalms 133.1|Ps. 133:1]]).
+Yes, we can almost see Jesus standing before those ancient Americans as he continues, “Father, I pray not for the world, but for those whom thou hast given me out of the world, because of their faith, that they may be purified in me, that I may be in them as thou, Father, art in me, that we may be one, that I may be glorified in them” ([[3 Nephi 19.29|3 Ne. 19:29]]). It was this same Jesus, as Jehovah of the Old Testament, who inspired these words, “Behold, how good and how pleasant it is for brethren to dwell together in unity!” ([[Psalms 133.1|Ps. 133:1]]).
 
 How do we glorify Jesus? How do we say thank you for the Atonement? How do we state gratitude for the ordinances and the covenants? How do we express appreciation for his teachings? Of course, we do it by loving God, by loving our neighbor, by living the commandments, and also by being one. We adapt to the Master’s teachings. We place him and others with us into one: “One Lord, one faith, one baptism,” as Paul taught ([[Ephesians 4.5|Eph. 4:5]]). We accept those called over us as our leaders without creating a fuss. Our leaders know of our loyalty because we do what they call us to do.
 
@@ -99,6 +99,4 @@ With gratitude in my heart, brothers and sisters, for you and for that which we 
 
 
 
-
-
-#Missionary_Work #Testimony #Unity
+#MissionaryWork #Testimony #Unity

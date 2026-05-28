@@ -16,11 +16,11 @@ To be someone out of the ordinary means to be successful, unique, and outstandin
 
 That phrase has remained written in my mind and heart. My feelings were and are that we, as members of the Church of Jesus Christ, have chosen not to be ordinary men and women. The last words, “if I am able,” made me think that it is not enough to go through the motions of being baptized and confirmed, but rather we have to fulfill and honor the commitment that we made with the Lord on that memorable day.
 
-Lehi taught his son Jacob, saying: “Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]).
+Lehi taught his son Jacob, saying: “Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]).
 
 Undoubtedly, freedom and eternal life are what we seek. We tremble at the very thought of dying and being captives of the devil.
 
-Nephi taught us clearly what we ought to do. He said, “For we know that it is by grace that we are saved, after all we can do” ([[2 Nephi 25.23|2 Nephi 25:23]]).
+Nephi taught us clearly what we ought to do. He said, “For we know that it is by grace that we are saved, after all we can do” ([[2 Nephi 25.23|2 Nephi 25:23]]).
 
 I believe that the first thing we have to keep in mind in doing “all we can” is to repent of our sins. We will never be able to reach our divine potential if we remain in our sins.
 
@@ -64,13 +64,11 @@ The Lord has said that He is “delight\[ed\] to honor those who serve me in rig
 
 May we always have in our minds and hearts the words of Nephi:
 
-“Awake, my soul! No longer droop in sin. …
+“Awake, my soul! No longer droop in sin. …
 
-“… My soul will rejoice in thee, my God, and the rock of my salvation” ([[2 Nephi 4.28|2 Nephi 4:28, 30]][[2 Nephi 4.30|]]).
+“… My soul will rejoice in thee, my God, and the rock of my salvation” ([[2 Nephi 4.28|2 Nephi 4:28, 30]][[2 Nephi 4.30|]]).
 
 It is my humble prayer that the Lord may bless us to do “all we can do” in this “out of the ordinary” path that we have chosen, which I testify to be true, in the name of Jesus Christ, amen.
-
-
 
 
 

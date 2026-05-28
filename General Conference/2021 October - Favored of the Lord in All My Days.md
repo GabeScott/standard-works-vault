@@ -14,7 +14,7 @@ At times I have wondered why the Savior cried when He saw Mary anguished by the 
 
 We feel that same intense pain when we experience the temporary separation from our loved ones. The Savior has perfect compassion for us. He doesn’t fault us for our shortsightedness nor for being limited in visualizing our eternal journey. Rather, He has compassion for our sadness and suffering.
 
-Heavenly Father and His Son, Jesus Christ, want us to have joy.[^2] President Russell M. Nelson has taught: “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives. When the focus of our lives is on God’s plan of salvation, … we can feel joy regardless of what is happening﻿—or not happening﻿—in our lives.”[^3]
+Heavenly Father and His Son, Jesus Christ, want us to have joy.[^2] President Russell M. Nelson has taught: “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives. When the focus of our lives is on God’s plan of salvation, … we can feel joy regardless of what is happening﻿—or not happening﻿—in our lives.”[^3]
 
 When I was a young missionary, I remember when a marvelous missionary that I had come to admire received some devastating news. His mother and his younger brother had passed away in a tragic accident. The mission president offered this elder the option to return home for the funeral. However, after speaking with his father on the phone, this missionary decided to stay and finish his mission.
 
@@ -42,28 +42,29 @@ Our Savior, Jesus Christ, gave us the example during His earthly ministry. In mo
 
 “But Jesus said unto them, They need not depart; give ye them to eat.”[^8]
 
-Jesus Christ showed us that during times of trial and adversity, we can recognize the difficulties of others. Moved with compassion, we can reach out and lift them. And as we do so, we are also lifted by our Christlike service. President Gordon B. Hinckley stated: “The best antidote I know for worry is work. The best medicine for despair is service. The best cure for weariness is the challenge of helping someone who is even more tired.”[^9]
+Jesus Christ showed us that during times of trial and adversity, we can recognize the difficulties of others. Moved with compassion, we can reach out and lift them. And as we do so, we are also lifted by our Christlike service. President Gordon B. Hinckley stated: “The best antidote I know for worry is work. The best medicine for despair is service. The best cure for weariness is the challenge of helping someone who is even more tired.”[^9]
 
-In this, the Church of Jesus Christ, I have had many opportunities to minister and serve my fellow man. It is at those times when I feel that Heavenly Father lightens my burdens. President Russell M. Nelson is the prophet of God on the earth; he is a great example of how we should minister to others during difficult trials. I unite my testimony with those of many other Saints that God is our loving Heavenly Father. I have felt His infinite love during my dark days. Our Savior, Jesus Christ, understands our pains and our afflictions. He wants to ease our burdens and comfort us. We must follow His example by serving and ministering to those with even greater burdens than our own. In the name of Jesus Christ, amen.
+In this, the Church of Jesus Christ, I have had many opportunities to minister and serve my fellow man. It is at those times when I feel that Heavenly Father lightens my burdens. President Russell M. Nelson is the prophet of God on the earth; he is a great example of how we should minister to others during difficult trials. I unite my testimony with those of many other Saints that God is our loving Heavenly Father. I have felt His infinite love during my dark days. Our Savior, Jesus Christ, understands our pains and our afflictions. He wants to ease our burdens and comfort us. We must follow His example by serving and ministering to those with even greater burdens than our own. In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: See [[John 11.1|John 11:1–44]][[John 11.2|]][[John 11.3|]][[John 11.4|]][[John 11.5|]][[John 11.6|]][[John 11.7|]][[John 11.8|]][[John 11.9|]][[John 11.10|]][[John 11.11|]][[John 11.12|]][[John 11.13|]][[John 11.14|]][[John 11.15|]][[John 11.16|]][[John 11.17|]][[John 11.18|]][[John 11.19|]][[John 11.20|]][[John 11.21|]][[John 11.22|]][[John 11.23|]][[John 11.24|]][[John 11.25|]][[John 11.26|]][[John 11.27|]][[John 11.28|]][[John 11.29|]][[John 11.30|]][[John 11.31|]][[John 11.32|]][[John 11.33|]][[John 11.34|]][[John 11.35|]][[John 11.36|]][[John 11.37|]][[John 11.38|]][[John 11.39|]][[John 11.40|]][[John 11.41|]][[John 11.42|]][[John 11.43|]][[John 11.44|]].
 
-[^2]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+[^2]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
-[^3]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^3]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^4]: [[1 Nephi 1.1|1 Nephi 1:1]].
+[^4]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
-[^5]: [[1 Nephi 18.9|1 Nephi 18:9, 11, 15]][[1 Nephi 18.11|]][[1 Nephi 18.15|]].
+[^5]: [[1 Nephi 18.9|1 Nephi 18:9, 11, 15]][[1 Nephi 18.11|]][[1 Nephi 18.15|]].
 
-[^6]: See [[1 Nephi 15.4|1 Nephi 15:4–5]][[1 Nephi 15.5|]].
+[^6]: See [[1 Nephi 15.4|1 Nephi 15:4–5]][[1 Nephi 15.5|]].
 
-[^7]: [[1 Nephi 18.16|1 Nephi 18:16]].
+[^7]: [[1 Nephi 18.16|1 Nephi 18:16]].
 
 [^8]: [[Matthew 14.12|Matthew 14:12–16]][[Matthew 14.13|]][[Matthew 14.14|]][[Matthew 14.15|]][[Matthew 14.16|]].
 
+[^9]: *[Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-14-losing-ourselves-in-the-service-of-others?lang=eng)* (2016), 205.
 
-#Adversity #Jesus_Christ #Ministering #Service
+#Adversity #JesusChrist #Ministering #Service

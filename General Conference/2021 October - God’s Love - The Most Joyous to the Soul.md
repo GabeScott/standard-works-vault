@@ -1,6 +1,6 @@
 # God’s Love: The Most Joyous to the Soul
 
-By Susan H. Porter - *First Counselor in the Primary General Presidency*
+By Susan H. Porter - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -12,7 +12,7 @@ Brothers and sisters, do you know how completely God, our Heavenly Father, loves
 
 When you know and understand how completely you are loved as a child of God, it changes everything. It changes the way you feel about yourself when you make mistakes. It changes how you feel when difficult things happen. It changes your view of God’s commandments. It changes your view of others and of your capacity to make a difference.
 
-Elder Jeffrey R. Holland taught: “The first great *commandment* of all eternity is to love God with all of *our* heart, might, mind, and strength—that’s the first great commandment. But the first great *truth* of all eternity is that God loves *us* with all of *His* heart, might, mind, and strength.”[^1]
+Elder Jeffrey R. Holland taught: “The first great *commandment* of all eternity is to love God with all of *our* heart, might, mind, and strength—that’s the first great commandment. But the first great *truth* of all eternity is that God loves *us* with all of *His* heart, might, mind, and strength.”[^1]
 
 How can each of us know deep in our souls that great truth of eternity?
 
@@ -30,7 +30,7 @@ Twenty years ago, a beloved family member stepped away from the Church. He had m
 
 Last year he wrote down three questions about the Church that were difficult for him to reconcile and sent them to two couples who had been his friends for several years. He invited them to reflect on those questions and come to dinner to share their thoughts.
 
-Following this visit with friends, he went to his room and started working on a project. The evening conversation and the love shown to him by his friends came to the forefront of his mind. He later wrote that he was compelled to stop his work. He said: “A bright light filled my soul. … I was familiar with this deep feeling of enlightenment, but in this case it continued to grow stronger than ever before and lasted for several minutes. I sat quietly with the feeling, which I came to understand as a manifestation of the love of God for me. … I felt a spiritual impression that told me I could return to church and express this love of God in what I do there.”
+Following this visit with friends, he went to his room and started working on a project. The evening conversation and the love shown to him by his friends came to the forefront of his mind. He later wrote that he was compelled to stop his work. He said: “A bright light filled my soul. … I was familiar with this deep feeling of enlightenment, but in this case it continued to grow stronger than ever before and lasted for several minutes. I sat quietly with the feeling, which I came to understand as a manifestation of the love of God for me. … I felt a spiritual impression that told me I could return to church and express this love of God in what I do there.”
 
 He then wondered about his questions. The feeling he received was that God honored his questions and that not having clear answers should not stop him from moving forward.[^6] He should share God’s love with all while he continued to contemplate. As he acted on that impression, he felt a kinship with Joseph Smith, who remarked after his First Vision, “My soul was filled with love, and for many days I could rejoice with great joy.”[^7]
 
@@ -42,9 +42,9 @@ As we receive His love, we find greater joy in striving to love and serve as He 
 
 God’s love is not found in the *circumstances* of our lives but in His *presence* in our lives. We know of His love when we receive strength beyond our own and when His Spirit brings peace, comfort, and direction. At times it may be difficult to feel His love. We can pray to have our eyes opened to see His hand in our lives and to see His love in the beauty of His creations.
 
-As we ponder the Savior’s life and His infinite sacrifice, we begin to understand His love for us. We reverently sing the words of Eliza R. Snow: “His precious blood he freely spilt; His life he freely gave.”[^11] Jesus’s humility in suffering for us distills upon our souls, opening our hearts to seek forgiveness at His hand and filling us with a desire to live as He did.[^12]
+As we ponder the Savior’s life and His infinite sacrifice, we begin to understand His love for us. We reverently sing the words of Eliza R. Snow: “His precious blood he freely spilt; His life he freely gave.”[^11] Jesus’s humility in suffering for us distills upon our souls, opening our hearts to seek forgiveness at His hand and filling us with a desire to live as He did.[^12]
 
-President Russell M. Nelson wrote, “The more committed we become to patterning our lives after His, the purer and more divine our love becomes.”[^13]
+President Russell M. Nelson wrote, “The more committed we become to patterning our lives after His, the purer and more divine our love becomes.”[^13]
 
 Our son related: “When I was 11, my friends and I decided to hide from our teacher and skip the first half of our Primary class. When we finally arrived, to our surprise, the teacher greeted us warmly. He then offered a heartfelt prayer during which he expressed sincere gratitude to the Lord that we had decided to come to class that day *of our own free will*. I cannot remember what the lesson was about or even our teacher’s name, but now, some 30 years later, I am still touched by the pure love he showed me that day.”
 
@@ -52,41 +52,39 @@ Five years ago, I observed an example of divine love while attending Primary in 
 
 I testify that our Lord and Savior did indeed die for each and every one of us. It was an expression of His infinite love for us and for His Father.
 
-“I know that my Redeemer lives. What comfort this sweet sentence gives! … He lives to bless \[us\] with his love.”[^14]
+“I know that my Redeemer lives. What comfort this sweet sentence gives! … He lives to bless \[us\] with his love.”[^14]
 
 May we open our hearts to receive the pure love that God has for us and then shed forth His love in all we do and are. In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders among You]],” *Ensign* or *Liahona*, May 2016, 127.
+[^1]: Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders among You]],” *Ensign* or *Liahona*, May 2016, 127.
 
-[^2]: [[1 Nephi 11.21|1 Nephi 11:21]].
+[^2]: [[1 Nephi 11.21|1 Nephi 11:21]].
 
-[^3]: [[1 Nephi 11.22|1 Nephi 11:22]]; emphasis added.
+[^3]: [[1 Nephi 11.22|1 Nephi 11:22]]; emphasis added.
 
 [^4]: See [[D&C 88.13|Doctrine and Covenants 88:13]].
 
-[^5]: [[1 Nephi 11.22|1 Nephi 11:22, 23]][[1 Nephi 11.23|]].
+[^5]: [[1 Nephi 11.22|1 Nephi 11:22, 23]][[1 Nephi 11.23|]].
 
-[^6]: See [[1 Nephi 11.17|1 Nephi 11:17]].
+[^6]: See [[1 Nephi 11.17|1 Nephi 11:17]].
 
 [^7]: Joseph Smith, in Karen Lynn Davidson and others, eds., *The Joseph Smith Papers, Histories, Volume 1: Joseph Smith Histories, 1832–1844* (2012), 13; punctuation and capitalization modernized.
 
 [^8]: [[Moroni 7.48|Moroni 7:48]].
 
-[^9]: See Neill F. Marriott, “[[2017 October - Abiding in God and Repairing the Breach.md|Abiding in God and Repairing the Breach]],” *Ensign* or *Liahona*, Nov. 2017, 11: “Perhaps our life in a loving premortal world set up our yearning for true, lasting love here on earth. We are divinely designed to give love and be loved, and the deepest love comes when we are one with God.”
+[^9]: See Neill F. Marriott, “[[2017 October - Abiding in God and Repairing the Breach.md|Abiding in God and Repairing the Breach]],” *Ensign* or *Liahona*, Nov. 2017, 11: “Perhaps our life in a loving premortal world set up our yearning for true, lasting love here on earth. We are divinely designed to give love and be loved, and the deepest love comes when we are one with God.”
 
 [^10]: [[Moroni 7.48|Moroni 7:48]].
 
 [^11]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
 
-[^12]: See Linda S. Reeves, “[[2015 October - Worthy of Our Promised Blessings.md|Worthy of Our Promised Blessings]],” *Ensign* or *Liahona*, Nov. 2015, 11: “I believe that if we could daily remember and recognize the depth of that love our Heavenly Father and our Savior have for us, we would be willing to do anything to be back in Their presence again, surrounded by Their love eternally.”
+[^12]: See Linda S. Reeves, “[[2015 October - Worthy of Our Promised Blessings.md|Worthy of Our Promised Blessings]],” *Ensign* or *Liahona*, Nov. 2015, 11: “I believe that if we could daily remember and recognize the depth of that love our Heavenly Father and our Savior have for us, we would be willing to do anything to be back in Their presence again, surrounded by Their love eternally.”
 
-[^13]: Russell M. Nelson, “[Divine Love](https://churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng),” *Ensign*, Feb. 2003, 25; *Liahona*, Feb. 2003, 17.
+[^13]: Russell M. Nelson, “[Divine Love](https://www.churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng),” *Ensign*, Feb. 2003, 25; *Liahona*, Feb. 2003, 17.
 
 [^14]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
-
-
-#Individual_Worth #Jesus_Christ #Joy #Love
+#IndividualWorth #Joy #JesusChrist #Love

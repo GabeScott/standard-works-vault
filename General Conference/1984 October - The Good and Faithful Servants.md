@@ -43,6 +43,4 @@ I invoke the blessings of heaven upon each of you and upon your loved ones and d
 
 
 
-
-
-#Missionary_Work #Priesthood #Service
+#MissionaryWork #Priesthood #Service

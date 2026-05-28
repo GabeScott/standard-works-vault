@@ -1,6 +1,6 @@
 # Teaching Our Little Women
 
-By Naomi M. Shumway - *Primary General President*
+By Naomi M. Shumway - *Primary General President*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -34,13 +34,11 @@ While as women we are expected to lead the way, often children point the way. An
 
 Look to tomorrow. I recently heard it expressed in three potent words: Think tomorrow today! Tomorrow comes marching forward on the feet of little children. The strength or weakness of tomorrow lies in the hands of our children. A girl is the only thing God has created that can become a woman.
 
-And what a glorious blessing it is to be a woman, regardless of our assignment, our calling, our physical conditions of age and circumstance, and despite those who seek to divert us from the role for which we were designed. Our beloved Prophet Spencer W. Kimball expressed it in this way:
+And what a glorious blessing it is to be a woman, regardless of our assignment, our calling, our physical conditions of age and circumstance, and despite those who seek to divert us from the role for which we were designed. Our beloved Prophet Spencer W. Kimball expressed it in this way:
 
 “It is a great blessing to be a woman in the Church today. The opposition against righteousness has never been greater, but the opportunities for fulfilling our highest potential have also never been greater” (“Introduction,” *Women,* Deseret Book, 1979, p. 2).
 
 Regardless of our age or own assignment in life, our charge as women today is to set an example and lead the way for our precious “little women” girls, committed, as never before, to joyously accepting our role and our responsibility as women. May we move forward and upward as daughters of God toward the great fulfillment of our lives, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

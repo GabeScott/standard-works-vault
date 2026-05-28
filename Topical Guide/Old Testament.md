@@ -1,4 +1,3 @@
 # Old Testament
 
-
-*See* [BD Bible](https://www.churchofjesuschrist.org/study/scriptures/bd/bible?lang=eng); [Canon](https://www.churchofjesuschrist.org/study/scriptures/bd/canon?lang=eng)
+*See also* [[BD Bible.md|BD Bible]]; [[BD Canon.md|BD Canon]]

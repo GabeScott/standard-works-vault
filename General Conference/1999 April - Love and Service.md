@@ -50,15 +50,15 @@ As time goes on, it is the love that we give and the service that we render that
 
 Following the Resurrection we all know of those appearances that the Savior made—one of them was when He met with Peter and the fishermen on the shores of Galilee. It was evidently very early in the morning, and He called out and asked them if they were having any success. They said no, and He told them to cast the nets on the other side. And then in that account which is so beautifully recorded by John, they drew the nets in, and there were lots of fish.
 
-The Savior was there. There was a fire, according to John’s account, and they ate fish and honeycomb or bread. And on that occasion, the Savior said to Peter, “Son of Jonas, lovest thou me more than these?” ([[John 21.15|John 21:15]]; see [[John 21.1|vv. 1–17]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]]). Undoubtedly He had pointed to those fish that were probably still jumping there in the net.
+The Savior was there. There was a fire, according to John’s account, and they ate fish and honeycomb or bread. And on that occasion, the Savior said to Peter, “Son of Jonas, lovest thou me more than these?” ([[John 21.15|John 21:15]]; see [[John 21.1|vv. 1–17]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]]). Undoubtedly He had pointed to those fish that were probably still jumping there in the net.
 
 “Lovest thou me more than these?” They were poor. They could take the fish and sell them, sell them for money, do something with them.
 
-Peter said, indicating that the Savior knew all things, “Thou knowest that I love thee.” And the Savior said to Peter, “Feed my lambs” ([[John 21.15|v. 15]]).
+Peter said, indicating that the Savior knew all things, “Thou knowest that I love thee.” And the Savior said to Peter, “Feed my lambs” ([[John 21.15|v. 15]]).
 
-Then the second time, the Savior said to Peter, “Lovest thou me?” and Peter then was grieved because the Savior had asked him the second time, and the Savior said, “Feed my sheep” ([[John 21.16|v. 16]]).
+Then the second time, the Savior said to Peter, “Lovest thou me?” and Peter then was grieved because the Savior had asked him the second time, and the Savior said, “Feed my sheep” ([[John 21.16|v. 16]]).
 
-Then the third time He asked him, “Lovest thou me? … Feed my sheep” ([[John 21.17|v. 17]]).
+Then the third time He asked him, “Lovest thou me? … Feed my sheep” ([[John 21.17|v. 17]]).
 
 What are we doing? In attempting to prove to the Savior on this day which is so precious to all of us, when we celebrate, preach, and teach of the Resurrection and of the Savior breaking the bands of death, what are we doing and how do we demonstrate to the Savior the love we have for Him? Wouldn’t it be through our obedience and through our service and what we do with the time that we have?
 
@@ -91,6 +91,4 @@ May we live the principles of the gospel. May we use our time effectively, all o
 
 
 
-
-
-#Jesus_Christ #Love #Missionary_Work #Obedience #Service
+#JesusChrist #Love #MissionaryWork #Obedience #Service

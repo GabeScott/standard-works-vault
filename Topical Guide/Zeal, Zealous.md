@@ -1,7 +1,6 @@
 # Zeal, Zealous
 
-
-*See also* [[Diligence, Diligent, Diligently.md|Diligence]]; [[Earnest, Earnestly.md|Earnest]]; [[Fervent.md|Fervent]]; [[Initiative.md|Initiative]]
+*See also* [[Diligence.md|Diligence]]; [[Earnest.md|Earnest]]; [[Fervent.md|Fervent]]; [[Initiative.md|Initiative]]
 
 he was *zealous* for his God, [[Numbers 25.13|Numbers 25:13]].
 
@@ -19,9 +18,9 @@ where is thy *zeal* and thy strength, [[Isaiah 63.15|Isaiah 63:15]].
 
 Lord have spoken it in my *zeal*, [[Ezekiel 5.13|Ezekiel 5:13]].
 
-Jews ... which believe ... are all *zealous* of the law, [[Acts 21.20|Acts 21:20]].
+Jews … which believe … are all *zealous* of the law, [[Acts 21.20|Acts 21:20]].
 
-I ... was *zealous* toward God, [[Acts 22.3|Acts 22:3]].
+I … was *zealous* toward God, [[Acts 22.3|Acts 22:3]].
 
 they have a *zeal* of God, [[Romans 10.2|Romans 10:2]].
 
@@ -48,5 +47,3 @@ be *zealous* therefore, and repent, [[Revelation 3.19|Revelation 3:19]].
 distinguished for their *zeal* towards God, [[Alma 27.27|Alma 27:27]].
 
 men should be *anxiously* engaged in a good cause, [[D&C 58.27|D&C 58:27]].
-
-*See also* [[D&C 60.13|D&C 60:13]]; [[D&C 112.5|D&C 112:5]]; [[D&C 128.22|D&C 128:22]].

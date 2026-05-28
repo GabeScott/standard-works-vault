@@ -1,6 +1,6 @@
 # Our Heavenly Guidance System
 
-By Elder Sergio R. Vargas - *Of the Seventy*
+By Elder Sergio R. Vargas - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -56,7 +56,7 @@ We also remember Him when we go to the temple—the house of the Lord. Temples g
 
 Attending the temple has given me comfort and great hope about our eternal destiny. I have experienced heavenly connections with people on both sides of the veil. I’ve seen healing miracles in the lives of my young children, two of whom live with unseen illnesses that require daily care for the rest of this life.
 
-Our family rejoices as we share about the plan of happiness. My children’s faces light up when they hear that, thanks to Jesus Christ, their “afflictions shall be but a small moment.”[^21] We love our children deeply, and we know that someday, as President Jeffrey R. Holland taught, they “will stand before us glorified and grand, breathtakingly perfect in body and mind.”[^22] Our covenants bring us closer to God to the point of making the impossible possible, filling every space of darkness and doubt with light and peace.
+Our family rejoices as we share about the plan of happiness. My children’s faces light up when they hear that, thanks to Jesus Christ, their “afflictions shall be but a small moment.”[^21] We love our children deeply, and we know that someday, as President Jeffrey R. Holland taught, they “will stand before us glorified and grand, breathtakingly perfect in body and mind.”[^22] Our covenants bring us closer to God to the point of making the impossible possible, filling every space of darkness and doubt with light and peace.
 
 Thanks to Jesus Christ, there are hope and well-founded reasons to continue loving, praying, and supporting those we care about.
 
@@ -71,25 +71,25 @@ I invite all of us today to center our lives on Jesus Christ and His teachings. 
 
 [^2]: [[Alma 30.44|Alma 30:44]].
 
-[^3]: See Steve Lundeberg, “Magnetic Pulses Alter Salmon’s Orientation, Suggesting They Navigate via Magnetite in Their Tissue,” Oregon State University Newsroom, May 2, 2020, oregonstate.edu.
+[^3]: See Steve Lundeberg, “Magnetic Pulses Alter Salmon’s Orientation, Suggesting They Navigate via Magnetite in Their Tissue,” Oregon State University Newsroom, May 2, 2020, oregonstate.edu.
 
 [^4]: [[John 14.6|John 14:6]].
 
-[^5]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^5]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^6]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2-p3#p2),” Gospel Library.
+[^6]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2-p3#p2),” Gospel Library.
 
 [^7]: See [[Moses 1.4|Moses 1:4–13]][[Moses 1.5|]][[Moses 1.6|]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.9|]][[Moses 1.10|]][[Moses 1.11|]][[Moses 1.12|]][[Moses 1.13|]].
 
-[^8]: Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p14#p14),” *Liahona*, Oct. 2022, 6.
+[^8]: Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p14#p14),” *Liahona*, Oct. 2022, 6.
 
-[^9]: See Dallin H. Oaks, “[Nourishing the Spirit](https://churchofjesuschrist.org/study/ensign/1998/12/nourishing-the-spirit?lang=eng),” *Ensign*, Dec. 1998, 6–13; *Liahona*, Aug. 2001, 10–19.
+[^9]: See Dallin H. Oaks, “[Nourishing the Spirit](https://www.churchofjesuschrist.org/study/ensign/1998/12/nourishing-the-spirit?lang=eng),” *Ensign*, Dec. 1998, 6–13; *Liahona*, Aug. 2001, 10–19.
 
 [^10]: See Trent Toone, “Builders and Blessings: How Early Latter-day Saint Pioneers Shaped the Growth of the Church in Chile,” *Church News*, Feb. 18, 2025, thechurchnews.com.
 
 [^11]: Personal interview with Perla García, daughter of Ricardo García.
 
-[^12]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-37?lang=eng&id=p12#p12) (2007), 426.
+[^12]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-37?lang=eng&id=p12#p12) (2007), 426.
 
 [^13]: [[Isaiah 53.3|Isaiah 53:3]].
 
@@ -97,22 +97,20 @@ I invite all of us today to center our lives on Jesus Christ and His teachings. 
 
 [^15]: See [[D&C 58.42|Doctrine and Covenants 58:42]].
 
-[^16]: See Neil L. Andersen, “[[2009 October - “Repent … That I May Heal You”.md|Repent … That I May Heal You]],” *Ensign* or *Liahona*, Nov. 2009, 40–43.
+[^16]: See Neil L. Andersen, “[[2009 October - “Repent … That I May Heal You”.md|Repent … That I May Heal You]],” *Ensign* or *Liahona*, Nov. 2009, 40–43.
 
-[^17]: See Topics and Questions, “[Sacrament](https://churchofjesuschrist.org/study/manual/gospel-topics/sacrament?lang=eng),” Gospel Library.
+[^17]: See Topics and Questions, “[Sacrament](https://www.churchofjesuschrist.org/study/manual/gospel-topics/sacrament?lang=eng),” Gospel Library.
 
 [^18]: [[Mark 2.27|Mark 2:27]].
 
-[^19]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” 4–11.
+[^19]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” 4–11.
 
 [^20]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
 [^21]: [[D&C 121.7|Doctrine and Covenants 121:7]].
 
-[^22]: Jeffrey R. Holland, “[[2013 October - Like a Broken Vessel.md|Like a Broken Vessel]],” *Ensign* or *Liahona*, Nov. 2013, 42.
+[^22]: Jeffrey R. Holland, “[[2013 October - Like a Broken Vessel.md|Like a Broken Vessel]],” *Ensign* or *Liahona*, Nov. 2013, 42.
 
 [^23]: See [[Hebrews 3.6|Hebrews 3:6]].
 
-
-
-#Divine_Nature #Endurance #Eternal_Life #Jesus_Christ
+#DivineNature #EternalLife #Endurance #JesusChrist

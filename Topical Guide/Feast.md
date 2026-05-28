@@ -1,7 +1,6 @@
 # Feast
 
-
-*See also* [BD Feasts](https://www.churchofjesuschrist.org/study/scriptures/bd/feasts?lang=eng)
+*See also* [[BD Feasts.md|BD Feasts]]
 
 he made them a *feast*, [[Genesis 19.3|Genesis 19:3]].
 
@@ -13,9 +12,9 @@ observe the *feast* of unleavened bread, [[Exodus 12.17|Exodus 12:17]] ([[Exodus
 
 Three times thou shalt keep a *feast* unto me, [[Exodus 23.14|Exodus 23:14]].
 
-*feast* of harvest, ... and the *feast* of ingathering, [[Exodus 23.16|Exodus 23:16]].
+*feast* of harvest, … and the *feast* of ingathering, [[Exodus 23.16|Exodus 23:16]].
 
-proclamation ... To morrow is a *feast* to the Lord, [[Exodus 32.5|Exodus 32:5]].
+proclamation … To morrow is a *feast* to the Lord, [[Exodus 32.5|Exodus 32:5]].
 
 observe the *feast* of weeks, [[Exodus 34.22|Exodus 34:22]].
 
@@ -23,7 +22,7 @@ seventh month shall be the *feast* of tabernacles, [[Leviticus 23.34|Leviticus 2
 
 do unto the Lord in your set *feasts*, [[Numbers 29.39|Numbers 29:39]].
 
-all thy males appear before the Lord ... in the *feast* of unleavened bread, and in the *feast* of weeks, and in the *feast* of tabernacles, [[Deuteronomy 16.16|Deuteronomy 16:16]].
+all thy males appear before the Lord … in the *feast* of unleavened bread, and in the *feast* of weeks, and in the *feast* of tabernacles, [[Deuteronomy 16.16|Deuteronomy 16:16]].
 
 Samson made there a *feast*, [[Judges 14.10|Judges 14:10]].
 
@@ -71,4 +70,4 @@ spots in your *feasts* of charity, when they *feast*, [[Jude 1.12|Jude 1:12]].
 
 *feast* upon his love, [[Jacob 3.2|Jacob 3:2]].
 
-*feast* of fat things ... prepared for the poor, [[D&C 58.8|D&C 58:8]].
+*feast* of fat things … prepared for the poor, [[D&C 58.8|D&C 58:8]].

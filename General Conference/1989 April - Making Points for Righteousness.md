@@ -62,7 +62,7 @@ The third point: this is a tough two-pointer; the defense is all over you. *Live
 
 Choose not to use drugs or alcohol *before* you’re tempted. They are destructive to your physical, mental, and spiritual well-being. Using them is wrong. They can destroy you. With drugs there is a high—but, oh, the risk; for you come down harder and lower after each experience. You can truly end up in the depths of hell. Young men, may you know *now* that drugs dull your conscience so that you discern less clearly between good and evil.
 
-President David O. McKay said, “Sin can stun the conscience as a blow on the head can stun the physical senses.” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, p. 146.)
+President David O. McKay said, “Sin can stun the conscience as a blow on the head can stun the physical senses.” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, p. 146.)
 
 In the Word of Wisdom, the Lord tells us, “In consequence of evils and designs which do and will exist in the hearts of conspiring men in the last days, I have warned you, and forewarn you, by giving unto you this word of wisdom by revelation.” ([[D&C 89.4|D&C 89:4]].)
 
@@ -105,6 +105,4 @@ You priesthood leaders and fathers, you are the home-field coaches. Review these
 
 
 
-
-
-#Missionary_Work #Morality #Service #Spirituality #Word_Of_Wisdom
+#MissionaryWork #Morality #Service #Spirituality #WordOfWisdom

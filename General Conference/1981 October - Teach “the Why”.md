@@ -1,6 +1,6 @@
 # Teach “the Why”
 
-By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
+By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -95,8 +95,6 @@ A horse is stronger than a man, so the man bridles it, thus *controlling* its po
 Remember, a physical relationship is simply too beautiful to squander, too wonderful to waste. It is the sterling silver too precious to tarnish before the beauty of the banquet.
 
 Let us remember that understanding “the why” in learning is what develops proper attitudes or changes behavior. God grant us the wisdom to teach wisely and with understanding, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

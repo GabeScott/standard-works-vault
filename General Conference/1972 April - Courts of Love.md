@@ -1,6 +1,6 @@
 # Courts of Love
 
-By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
+By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -18,7 +18,7 @@ As we listened to the prophet this morning and as we listened to the other breth
 
 May I just take a brief second to pay personal tribute to two of the greatest men I have known in my life, Bishop Vandenberg and Bishop Brown. These two great companions have meant so much and have given so much to me in my life, as they have given to you as they have traveled throughout the Church.
 
-I have never known a man of greater courage and integrity than Bishop John H. Vandenberg. I have never been with a person so qualified in administrative and organizational ability as Bishop Victor L. Brown. These men are great assets to the work of the Lord, and I am so grateful for the blessing that came in my association with them.
+I have never known a man of greater courage and integrity than Bishop John H. Vandenberg. I have never been with a person so qualified in administrative and organizational ability as Bishop Victor L. Brown. These men are great assets to the work of the Lord, and I am so grateful for the blessing that came in my association with them.
 
 In traveling around the Church for the past ten and one-half years, what a joy it has been to meet so many of our bishops, stake presidents, men who have been designated as common judges in Israel, men who are guardians over the flock, men who have been given a charge and a responsibility that is second to none. May I take a few moments at this session of our conference to discuss what I believe is perhaps the most misunderstood meeting of all the meetings that convene in the Church. I refer to the bishop’s court. I would like to begin by relating a story.
 
@@ -38,7 +38,7 @@ This episode took place a few years ago. The young man’s pledge has been fulfi
 
 Priesthood courts of the Church are not courts of retribution. They are courts of love. Oh, that members of the Church could understand this one fact.
 
-The adversary places a fear in the heart of the transgressor that makes it so difficult for him to do what needs to be done; and in the words of James E. Talmage, “As the time of repentance is procrastinated, the ability to repent grows weaker; neglect of opportunity in holy things develops inability.” (*Articles of Faith,* p. 114.) This simply means that doing what needs to be done will never be easier than right now. As in all other paths and guideposts that have been provided for us to achieve our eternal destiny of exaltation, there are no shortcuts.
+The adversary places a fear in the heart of the transgressor that makes it so difficult for him to do what needs to be done; and in the words of James E. Talmage, “As the time of repentance is procrastinated, the ability to repent grows weaker; neglect of opportunity in holy things develops inability.” (*Articles of Faith,* p. 114.) This simply means that doing what needs to be done will never be easier than right now. As in all other paths and guideposts that have been provided for us to achieve our eternal destiny of exaltation, there are no shortcuts.
 
 Heavenly Father is not antiprogress: he is the author of eternal progression. In his own words, “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
@@ -85,6 +85,4 @@ God bless us to accept eternal law and understand that there can be no other way
 
 
 
-
-
-#Bishops #Disciplinary_Councils #Repentance
+#Bishops #DisciplinaryCouncils #Repentance

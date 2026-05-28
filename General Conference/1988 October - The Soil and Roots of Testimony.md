@@ -58,7 +58,7 @@ Abraham became the great patriarch because he desired “to be one who possessed
 
 Alma also explained that one must start on the road to a testimony by having a desire, or as he stated, you must “awake and arouse your faculties, even to an experiment upon my words, and exercise a particle of faith, … even if ye can no more than *desire* to believe.” ([[Alma 32.27|Alma 32:27]]; italics added.)
 
-Desire begets faith and testimony. Testimony isn’t achieved by logic and study. For example, we can list hundreds of evidences that the Book of Mormon and the New Testament are true, but the skeptic can probably match us point by point. Without desire, the skeptic is “ever learning, and never able to come to the knowledge of the truth.” ([[2 Timothy 3.7|2 Tim. 3:7]].)
+Desire begets faith and testimony. Testimony isn’t achieved by logic and study. For example, we can list hundreds of evidences that the Book of Mormon and the New Testament are true, but the skeptic can probably match us point by point. Without desire, the skeptic is “ever learning, and never able to come to the knowledge of the truth.” ([[2 Timothy 3.7|2 Tim. 3:7]].)
 
 I don’t believe it was ever intended that the gospel be proven true by physical or documentary evidence acceptable to all. In this life, the believer must come to his witness by faith, not by logic and proof alone. And the starting point is to place the ingredient of desire in our soil.
 
@@ -84,7 +84,9 @@ Yes, I have a whole box of unanswered questions, none of them threatening to my 
 
 As I have watched beloved friends and family lose their faith, I have tried to identify major causes.
 
-1. *Arrogance, or pride.* One of the three dangers I shall mention is arrogance, or pride. Intellectual pursuits, financial success, positions of power, and other achievements, in and of themselves neither morally bad nor good, sometimes lead to pride and away from humble dependence on the Lord. Jacob cautioned that “to be learned is good if they hearken unto the counsels of God.” ([[2 Nephi 9.29|2 Ne. 9:29]].) Financial and political power can also be seductive and corrupting influences.It helps to remember and emulate the meekness of Enoch, Moses, and Spencer Kimball.
+1. *Arrogance, or pride.* One of the three dangers I shall mention is arrogance, or pride. Intellectual pursuits, financial success, positions of power, and other achievements, in and of themselves neither morally bad nor good, sometimes lead to pride and away from humble dependence on the Lord. Jacob cautioned that “to be learned is good if they hearken unto the counsels of God.” ([[2 Nephi 9.29|2 Ne. 9:29]].) Financial and political power can also be seductive and corrupting influences.
+
+It helps to remember and emulate the meekness of Enoch, Moses, and Spencer Kimball.
 
 2. *Sin.* Testimonies are weakened by sin, especially sexual transgressions. The sinner sometimes blames someone else, rejects the gospel, and flees. A plant growing in rocky soil withers quickly. Serious transgression, then, is the second danger to our testimonies. The road back includes removing the rocks, turning over and enriching the soil, overcoming the sin, and resisting further temptations. Increasing numbers are returning to the Church by repenting of their sins. They seldom completely lose their testimonies.
 
@@ -105,8 +107,6 @@ First, to grow in light and testimony we must magnify our Church callings throug
 And then finally, to the Church leaders: please ordain men to the priesthood and extend a call to every brother and sister, active or less-active, giving each an opportunity to serve others and to apply gospel principles. One Church calling for each member is an ideal which we can reach in most places. I know of nothing which will do more to build testimonies and bless people.
 
 And may I just take this opportunity to express my great love to all of you members of the Church. I love you and appreciate you and admire all the things you do. In the name of Jesus Christ, amen.
-
-
 
 
 

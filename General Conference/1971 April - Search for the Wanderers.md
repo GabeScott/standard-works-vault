@@ -1,6 +1,6 @@
 # Search for the Wanderers
 
-By President N. Eldon Tanner - *Second Counselor in the First Presidency*
+By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -87,6 +87,4 @@ I bear you my testimony, my brethren, that we hold the priesthood of God. This i
 
 
 
-
-
-#Fellowshipping #Plan_Of_Salvation #Word_Of_Wisdom #Youth
+#Fellowshipping #PlanOfSalvation #WordOfWisdom #Youth

@@ -12,7 +12,7 @@ Well, my brothers and sisters, we have had a remarkable conference. It has liter
 
 The growth of the Church has been made evident by the fact that our words have been translated into 80 languages and our message has been broadcast by satellite all across the world and heard by people in many, many lands. It is all the wonderful fruition of the words spoken by Moroni to the boy prophet on the night of September 21, 1823.
 
-He was a young man, then a poor farm boy with very little education. He had nothing. His parents had nothing. He lived in a rural community, scarcely recognized outside its borders. And yet the angel said to him that “he was a messenger sent from the presence of God … ; that God had a work for \[Joseph\] to do; and that \[his\] name should be had for good and evil among all nations, kindreds, and tongues, or that it should be both good and evil spoken of among all people” ([[Joseph Smith History 1.33|Joseph Smith—History 1:33]]).
+He was a young man, then a poor farm boy with very little education. He had nothing. His parents had nothing. He lived in a rural community, scarcely recognized outside its borders. And yet the angel said to him that “he was a messenger sent from the presence of God … ; that God had a work for \[Joseph\] to do; and that \[his\] name should be had for good and evil among all nations, kindreds, and tongues, or that it should be both good and evil spoken of among all people” ([[Joseph Smith History 1.33|Joseph Smith—History 1:33]]).
 
 How could such a thing be? Joseph must have wondered. He must have been absolutely stunned.
 
@@ -35,6 +35,4 @@ God bless all of us, I humbly pray. May we strive to walk in righteousness befor
 
 
 
-
-
-#Joseph_Smith #Restoration
+#JosephSmith #Restoration

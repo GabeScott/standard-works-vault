@@ -1,7 +1,6 @@
 # Wickedness, Wicked
 
-
-*See also* [[Babylon.md|Babylon]]; [[Backsliding.md|Backsliding]]; [[Crooked.md|Crooked]]; [[Deceit, Deceive.md|Deceit]]; [[Devil.md|Devil]]; [[Disobedience, Disobey.md|Disobedience]]; [[Evil.md|Evil]]; [[Filthiness, Filthy.md|Filthiness]]; [[Fornication.md|Fornication]]; [[Fraud.md|Fraud]]; [[Hell.md|Hell]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Iniquity.md|Iniquity]]; [[Injustice.md|Injustice]]; [[Satan.md|Satan]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress]]; [[Ungodly.md|Ungodly]]
+*See also* [[Babylon.md|Babylon]]; [[Backsliding.md|Backsliding]]; [[Crooked.md|Crooked]]; [[Deceit.md|Deceit]]; [[Devil.md|Devil]]; [[Disobedience.md|Disobedience]]; [[Evil.md|Evil]]; [[Filthiness.md|Filthiness]]; [[Fornication.md|Fornication]]; [[Fraud.md|Fraud]]; [[Hell.md|Hell]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Iniquity.md|Iniquity]]; [[Injustice.md|Injustice]]; [[Satan.md|Satan]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]; [[Ungodly.md|Ungodly]]
 
 God saw that the *wickedness* of man was great, [[Genesis 6.5|Genesis 6:5]].
 
@@ -23,7 +22,7 @@ the *wicked* shall be silent in darkness, [[1 Samuel 2.9|1 Samuel 2:9]].
 
 Ahab, which did sell himself to work *wickedness*, [[1 Kings 21.25|1 Kings 21:25]].
 
-they that ... sow *wickedness*, reap the same, [[Job 4.8|Job 4:8]].
+they that … sow *wickedness*, reap the same, [[Job 4.8|Job 4:8]].
 
 is given into the hand of the *wicked*, [[Job 9.24|Job 9:24]].
 
@@ -41,7 +40,7 @@ God is angry with the *wicked*, [[Psalms 7.11|Psalms 7:11]].
 
 *wicked* is snared in the work of his own hands, [[Psalms 9.16|Psalms 9:16]].
 
-*wicked* ... will not seek after God, [[Psalms 10.4|Psalms 10:4]].
+*wicked* … will not seek after God, [[Psalms 10.4|Psalms 10:4]].
 
 Upon the *wicked* he shall rain snares, [[Psalms 11.6|Psalms 11:6]].
 
@@ -91,7 +90,7 @@ God overthroweth the *wicked*, [[Proverbs 21.12|Proverbs 21:12]].
 
 when the *wicked* beareth rule, the people mourn, [[Proverbs 29.2|Proverbs 29:2]] ([[D&C 98.9|D&C 98:9]]).
 
-adulterous woman ... saith, I have done no *wickedness*, [[Proverbs 30.20|Proverbs 30:20]].
+adulterous woman … saith, I have done no *wickedness*, [[Proverbs 30.20|Proverbs 30:20]].
 
 justify the *wicked* for reward, [[Isaiah 5.23|Isaiah 5:23]] ([[2 Nephi 15.23|2 Nephi 15:23]]).
 
@@ -115,23 +114,23 @@ Wherefore doth the way of the *wicked* prosper, [[Jeremiah 12.1|Jeremiah 12:1]].
 
 warn the *wicked* from his *wicked* way, [[Ezekiel 3.18|Ezekiel 3:18]] ([[Ezekiel 33.8|Ezekiel 33:8]]).
 
-if the *wicked* will turn from all his sins ... he shall not die, [[Ezekiel 18.21|Ezekiel 18:21]].
+if the *wicked* will turn from all his sins … he shall not die, [[Ezekiel 18.21|Ezekiel 18:21]].
 
 Ye have plowed *wickedness*, ye have reaped iniquity, [[Hosea 10.13|Hosea 10:13]].
 
-Lord ... will not at all acquit the *wicked*, [[Nahum 1.3|Nahum 1:3]].
+Lord … will not at all acquit the *wicked*, [[Nahum 1.3|Nahum 1:3]].
 
 discern between the righteous and the *wicked*, [[Malachi 3.18|Malachi 3:18]] ([[3 Nephi 24.18|3 Nephi 24:18]]).
 
 all that do *wickedly*, shall be stubble, [[Malachi 4.1|Malachi 4:1]] ([[3 Nephi 25.1|3 Nephi 25:1]]).
 
-taketh ... other spirits more *wicked* than himself, [[Matthew 12.45|Matthew 12:45]] ([[Luke 11.26|Luke 11:26]]).
+taketh … other spirits more *wicked* than himself, [[Matthew 12.45|Matthew 12:45]] ([[Luke 11.26|Luke 11:26]]).
 
 then cometh the *wicked* one, [[Matthew 13.19|Matthew 13:19]].
 
 tares are the children of the *wicked* one, [[Matthew 13.38|Matthew 13:38]].
 
-angels shall ... sever the *wicked* from among the just, [[Matthew 13.49|Matthew 13:49]].
+angels shall … sever the *wicked* from among the just, [[Matthew 13.49|Matthew 13:49]].
 
 *wicked* and adulterous generation seeketh after a sign, [[Matthew 16.4|Matthew 16:4]].
 
@@ -153,7 +152,7 @@ put away from among yourselves that *wicked* person, [[1 Corinthians 5.13|1 Cori
 
 against spiritual *wickedness* in high places, [[Ephesians 6.12|Ephesians 6:12]].
 
-shield of faith ... to quench all the fiery darts of the *wicked*, [[Ephesians 6.16|Ephesians 6:16]].
+shield of faith … to quench all the fiery darts of the *wicked*, [[Ephesians 6.16|Ephesians 6:16]].
 
 shall that *Wicked* be revealed, [[2 Thessalonians 2.8|2 Thessalonians 2:8]].
 
@@ -165,7 +164,7 @@ ye have overcome the *wicked* one, [[1 John 2.13|1 John 2:13]] ([[1 John 2.14|1 
 
 Cain, who was of that *wicked* one, [[1 John 3.12|1 John 3:12]].
 
-begotten of God ... and that *wicked* one toucheth him not, [[1 John 5.18|1 John 5:18]].
+begotten of God … and that *wicked* one toucheth him not, [[1 John 5.18|1 John 5:18]].
 
 whole world lieth in *wickedness*, [[1 John 5.19|1 John 5:19]].
 
@@ -179,17 +178,17 @@ spoken hard things against the *wicked*, [[1 Nephi 16.2|1 Nephi 16:2]].
 
 destroyeth the nations of the *wicked*, [[1 Nephi 17.37|1 Nephi 17:37]].
 
-God of Abraham ... yieldeth himself ... into the hands of *wicked* men, [[1 Nephi 19.10|1 Nephi 19:10]].
+God of Abraham … yieldeth himself … into the hands of *wicked* men, [[1 Nephi 19.10|1 Nephi 19:10]].
 
 not suffer that the *wicked* shall destroy the righteous, [[1 Nephi 22.16|1 Nephi 22:16]].
 
 all gone astray, every one to his *wicked* ways, [[2 Nephi 12.5|2 Nephi 12:5]].
 
-I will punish ... the *wicked* for their iniquity, [[2 Nephi 23.11|2 Nephi 23:11]].
+I will punish … the *wicked* for their iniquity, [[2 Nephi 23.11|2 Nephi 23:11]].
 
-exercising the law ... durst not commit any *wickedness*, [[Alma 1.33|Alma 1:33]].
+exercising the law … durst not commit any *wickedness*, [[Alma 1.33|Alma 1:33]].
 
-believed ... judgments of God sent upon them because of their *wickedness*, [[Alma 4.3|Alma 4:3]].
+believed … judgments of God sent upon them because of their *wickedness*, [[Alma 4.3|Alma 4:3]].
 
 come ye out from the *wicked*, [[Alma 5.57|Alma 5:57]].
 
@@ -197,15 +196,15 @@ awful death cometh upon the *wicked*, [[Alma 40.26|Alma 40:26]].
 
 *wickedness* never was happiness, [[Alma 41.10|Alma 41:10]].
 
-Cursed shall be the land ... unto every nation ... which do *wickedly*, [[Alma 45.16|Alma 45:16]].
+Cursed shall be the land … unto every nation … which do *wickedly*, [[Alma 45.16|Alma 45:16]].
 
 great *wickedness* one very *wicked* man can cause, [[Alma 46.9|Alma 46:9]].
 
-Lamanites ... convinced of the *wickedness* of the traditions of their fathers, [[Helaman 5.19|Helaman 5:19]].
+Lamanites … convinced of the *wickedness* of the traditions of their fathers, [[Helaman 5.19|Helaman 5:19]].
 
-be tried ... according to the laws of their *wickedness*, [[Helaman 6.24|Helaman 6:24]].
+be tried … according to the laws of their *wickedness*, [[Helaman 6.24|Helaman 6:24]].
 
-great city ... burned with fire because of their sins and their *wickedness*, [[3 Nephi 9.9|3 Nephi 9:9]].
+great city … burned with fire because of their sins and their *wickedness*, [[3 Nephi 9.9|3 Nephi 9:9]].
 
 by the *wicked* that the *wicked* are punished, [[Mormon 4.5|Mormon 4:5]].
 
@@ -213,7 +212,7 @@ never had been so great *wickedness* among all the children of Lehi, [[Mormon 4.
 
 wrath of God shall be poured out upon the *wicked*, [[D&C 1.9|D&C 1:9]].
 
-records ... kept back because of the *wickedness*, [[D&C 6.26|D&C 6:26]].
+records … kept back because of the *wickedness*, [[D&C 6.26|D&C 6:26]].
 
 hearts are corrupt, and full of *wickedness*, [[D&C 10.21|D&C 10:21]].
 

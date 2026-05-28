@@ -1,9 +1,8 @@
 # Price
 
-
 give him again the *price* of his redemption, [[Leviticus 25.52|Leviticus 25:52]].
 
-virtuous woman ... her *price* is far above rubies, [[Proverbs 31.10|Proverbs 31:10]].
+virtuous woman … her *price* is far above rubies, [[Proverbs 31.10|Proverbs 31:10]].
 
 he shall let go my captives, not for *price* nor reward, [[Isaiah 45.13|Isaiah 45:13]].
 

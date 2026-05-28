@@ -1,6 +1,6 @@
 # Trifle Not with Sacred Things
 
-By Elder Larry S. Kacher - *Of the Seventy*
+By Elder Larry S. Kacher - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -18,7 +18,7 @@ I was unsure what to do. The only thing I could think of was to turn around and 
 
 Brothers and sisters, I thought there was a high likelihood I would not survive and that I, because of my decision, would also cause my wife’s death. After great effort and what I believe was divine intervention, our feet somehow touched the sandy bottom and we were able to walk safely back to our friends and daughter.
 
-There are many currents in this earthly life—some safe and others not. President Spencer W. Kimball taught that there are powerful forces in our own lives much like the unseen currents of the ocean.[^2] These forces are real. We should never ignore them.
+There are many currents in this earthly life—some safe and others not. President Spencer W. Kimball taught that there are powerful forces in our own lives much like the unseen currents of the ocean.[^2] These forces are real. We should never ignore them.
 
 Let me tell you about another current, a divine current, that has become a great blessing in my life. I am a convert to the Church. Prior to my conversion, my life’s ambition was to ski and, accordingly, I moved to Europe after high school to fulfill that desire. After several months of what seemed an ideal life, I felt I should leave. At the time I did not understand the source of that feeling, but I chose to follow it. I ended up in Provo, Utah, with a few good friends who, like me, were members of a different faith.
 
@@ -30,7 +30,7 @@ I had a choice to make. Some of their questions created doubt and uncertainty. T
 
 I asked myself, “Why would I turn away from that which had brought me such great comfort?” As the Lord reminded Oliver Cowdery, “Did I not speak peace to your mind concerning the matter?”[^4] My experience had been similar. Therefore, I turned, with yet more commitment, to a loving Heavenly Father, to the scriptures, and to trusted friends.
 
-Still, there were many questions I could not answer. How would I address the uncertainty they created? Rather than allow them to destroy the peace and happiness that had come into my life, I chose to set them aside for a season, trusting that in the Lord’s time, He would reveal all things. I found solace in His statement to the Prophet Joseph: “Behold, ye are little children and ye cannot bear all things now; ye must grow in grace and in the knowledge of the truth.”[^5] I chose not to forsake what I knew to be true by following an unknown and a questionable current—a potential “riptide.” As President N. Eldon Tanner taught, I learned “how much wiser and better it is for man to accept the simple truths of the gospel … and to accept by faith those things which he … cannot understand.”[^6]
+Still, there were many questions I could not answer. How would I address the uncertainty they created? Rather than allow them to destroy the peace and happiness that had come into my life, I chose to set them aside for a season, trusting that in the Lord’s time, He would reveal all things. I found solace in His statement to the Prophet Joseph: “Behold, ye are little children and ye cannot bear all things now; ye must grow in grace and in the knowledge of the truth.”[^5] I chose not to forsake what I knew to be true by following an unknown and a questionable current—a potential “riptide.” As President N. Eldon Tanner taught, I learned “how much wiser and better it is for man to accept the simple truths of the gospel … and to accept by faith those things which he … cannot understand.”[^6]
 
 Does this mean there is no room for honest inquiry? Ask the young boy who sought refuge in a sacred grove wanting to know which of all the churches he should join. Hold the Doctrine and Covenants in your hand, and know that much of what has been revealed in this inspired record has been the result of a humble search for truth. As Joseph found out, “If any of you lack wisdom, let him ask of God, \[who\] giveth to all men liberally, … and it shall be given him.”[^7] By asking sincere questions and by seeking divine answers, we learn “line upon line, precept upon precept,”[^8] as we increase in knowledge and wisdom.
 
@@ -61,15 +61,15 @@ I testify that Jesus Christ is our Savior and Redeemer. I testify that the coven
 
 [^1]: Riptide: “a tide that opposes another or other tides, causing a violent disturbance in the sea” (Dictionary.com).
 
-[^2]: See Spencer W. Kimball, [“Ocean Currents and Family Influences,”](https://churchofjesuschrist.org/study/ensign/1974/11/ocean-currents-and-family-influences?lang=eng) *Ensign,* Nov. 1974, 110–13.
+[^2]: See Spencer W. Kimball, “[Ocean Currents and Family Influences](https://www.churchofjesuschrist.org/study/ensign/1974/11/ocean-currents-and-family-influences?lang=eng),” *Ensign,* Nov. 1974, 110–13.
 
-[^3]: See [[2 Nephi 2.11|2 Nephi 2:11, 16]][[2 Nephi 2.16|]].
+[^3]: See [[2 Nephi 2.11|2 Nephi 2:11, 16]][[2 Nephi 2.16|]].
 
 [^4]: [[D&C 6.23|Doctrine and Covenants 6:23]].
 
 [^5]: [[D&C 50.40|Doctrine and Covenants 50:40]].
 
-[^6]: N. Eldon Tanner, in Conference Report, Oct. 1968, 49.
+[^6]: N. Eldon Tanner, in Conference Report, Oct. 1968, 49.
 
 [^7]: [[James 1.5|James 1:5]].
 
@@ -81,10 +81,8 @@ I testify that Jesus Christ is our Savior and Redeemer. I testify that the coven
 
 [^11]: See [[D&C 121.35|Doctrine and Covenants 121:35–37]][[D&C 121.36|]][[D&C 121.37|]].
 
-[^12]: Spencer W. Kimball, *Ensign,* Nov. 1974, 110.
+[^12]: Spencer W. Kimball, *Ensign,* Nov. 1974, 110.
 
 [^13]: See [[D&C 6.12|Doctrine and Covenants 6:12]].
-
-
 
 #Agency #Conversion #Example #Testimony

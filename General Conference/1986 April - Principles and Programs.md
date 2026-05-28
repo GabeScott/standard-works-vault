@@ -20,7 +20,7 @@ On my second visit, with “if he doesn’t stay too long” still ringing in my
 
 How I cherish those precious sessions spent with a man who has dedicated fifty years of service to the kingdom, especially in the area of welfare. He helped me to know President Harold B. Lee, President J. Reuben Clark, and other great leaders who emphasized the principles of welfare. I was counseled to measure all recommendations by the stated purpose of the welfare program as given by President Heber J. Grant in 1936.
 
-President Romney would quote it from memory: “Our primary purpose was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves.” (In Conference Report, Oct. 1936, p. 3.)
+President Romney would quote it from memory: “Our primary purpose was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves.” (In Conference Report, Oct. 1936, p. 3.)
 
 Many times President Romney emphasized that the notion of the welfare program beginning in 1936 was a myth. He quoted President Lee, who said: “There wasn’t any beginning to the welfare program. There isn’t any ending of the welfare program, we are always in the middle of it. No endings, no beginnings, only middles.” (Harold B. Lee, “Listen and Obey,” Welfare Agricultural Meeting, 3 Apr. 1971.)
 
@@ -34,7 +34,7 @@ As great as the various programs of the Church are, they carry with them a poten
 
 One Saturday morning I was on my way to fulfill an assignment on a welfare farm. We were to clean the weeds out of an irrigation ditch. My route took me past the home of an elderly widow in my ward, who was weeding her front yard. The temperature was already in the mid-eighties and she looked like she was near to having sunstroke. For a fleeting moment I thought I should stop and lend a helping hand, but my conscience allowed me to drive on by because, after all, I had an assignment on the welfare farm. I wonder what would have happened if I had followed the spontaneous prompting of the Spirit and unleashed the genuine compassion I was feeling. I wonder what would have happened to her; I wonder what would have happened to me. But I couldn’t do that because I hadn’t been assigned. We need more spontaneous acts of compassionate service.
 
-In 1983 some major modifications were made to the welfare program being followed in the United States and Canada. In making the announcement, President \[Gordon B.\] Hinckley said, “Permit me to say at the outset that that which you will hear has been considered in depth in all of its implications by the First Presidency and the Council of the Twelve. …
+In 1983 some major modifications were made to the welfare program being followed in the United States and Canada. In making the announcement, President \[Gordon B.\] Hinckley said, “Permit me to say at the outset that that which you will hear has been considered in depth in all of its implications by the First Presidency and the Council of the Twelve. …
 
 “We reaffirm the basic principles of the welfare program. There will be no departure from those foundation principles. We feel the need to emphasize with greater clarity the obligation for members of the Church to become more independent and self-reliant, to increase personal and family responsibility, to cultivate spiritual growth and to be more fully involved in Christian service.” (Regional Representatives’ Seminar, 1 Apr. 1983.)
 
@@ -44,7 +44,7 @@ At the conclusion of a General Welfare Services Executive Committee meeting, whe
 
 I have not been the same since I heard that penetrating inquiry. From that time until my release as the managing director of Welfare Services three years later, I vowed to be more diligent in evaluating programs to see if they were still accomplishing their objective relative to principles.
 
-Still true is President Lee’s statement: “Nobody changes the principles and doctrines of the Church except the Lord by revelation. But methods change as the inspired direction comes to those who preside at a given time. … You may be sure that your brethren who preside are praying most earnestly, and we do not move until we have the assurance, so far as lies within our power, that what we do has the seal of divine approval.” (*Ensign,* Jan. 1971, p. 10.)
+Still true is President Lee’s statement: “Nobody changes the principles and doctrines of the Church except the Lord by revelation. But methods change as the inspired direction comes to those who preside at a given time. … You may be sure that your brethren who preside are praying most earnestly, and we do not move until we have the assurance, so far as lies within our power, that what we do has the seal of divine approval.” (*Ensign,* Jan. 1971, p. 10.)
 
 As I travel into various countries, I am often asked, “When are we going to get the welfare program in this country?” I respond by asking if they have a Bible, Book of Mormon, Doctrine and Covenants, and Pearl of Great Price. I also ask if they have bishops or branch presidents, and if there are people with needs and people who can help. When they answer yes, I explain they already have all the ingredients necessary to activate a welfare program in their country.
 
@@ -56,7 +56,7 @@ Programs blindly followed bring us to a *discipline* of doing good, but principl
 
 I visited Ethiopia last year with Elder Ballard. We came home with vivid pictures of degradation and poverty etched indelibly in our minds. However, I am haunted more often with memories of the conditions under which some of our own members are living in other areas of the world. If every member could travel and observe these conditions, our fast-offering donations would increase substantially.
 
-Moroni was prophesying of our day when he said: “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing. …
+Moroni was prophesying of our day when he said: “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing. …
 
 “For behold, ye do love money, and your substance, and your fine apparel, and the adorning of your churches, more than ye love the poor and the needy, the sick and the afflicted.” ([[Mormon 8.35|Morm. 8:35, 37]][[Mormon 8.37|]].)
 
@@ -68,13 +68,11 @@ Members of the Church everywhere should ask themselves not “What can the Churc
 
 The solutions to poverty are extremely complex, and the balance between too much aid and not enough is very elusive. Our compassion can lead to failure if we give aid without creating independence and self-reliance in the recipient.
 
-However, there is a state of human misery below which no Latter-day Saint should descend as long as others are living in abundance. Can some of us be content living affluent life-styles while others cannot afford the chlorine to purify their water? Can we ignore the most basic temporal needs of our brothers and sisters and profess belief in President Joseph F. Smith’s statement that “a religion that has not the power to save people temporally … cannot be depended upon to save them spiritually”? (Quoted in Albert E. Bowen, *The Church Welfare Plan,* Sunday School Gospel Doctrine course, 1946, p. 36.)
+However, there is a state of human misery below which no Latter-day Saint should descend as long as others are living in abundance. Can some of us be content living affluent life-styles while others cannot afford the chlorine to purify their water? Can we ignore the most basic temporal needs of our brothers and sisters and profess belief in President Joseph F. Smith’s statement that “a religion that has not the power to save people temporally … cannot be depended upon to save them spiritually”? (Quoted in Albert E. Bowen, *The Church Welfare Plan,* Sunday School Gospel Doctrine course, 1946, p. 36.)
 
 In 1936 we had a depression in the United States. Based on principles, a program was designed to fit the circumstances. Today we are an international church, and in many countries, the Saints face problems far more serious than those. Using welfare principles, solutions can be found to the challenges of today and tomorrow. May the Lord bless President Marion G. Romney and those with whom he labored for bringing to us an understanding of welfare principles. May we be as successful in meeting the challenges of our generation as our predecessors were in meeting theirs, is my prayer, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Financial_Management #Welfare
+#FinancialManagement #Welfare

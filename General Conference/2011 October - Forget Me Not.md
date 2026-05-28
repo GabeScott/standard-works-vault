@@ -1,6 +1,6 @@
 # Forget Me Not
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -8,7 +8,7 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/10/forget-me-not?lang=eng)
 
-My dear sisters, what a joy it is to be with you today. I always look forward to this annual general Relief Society meeting and the excellent messages given here. Thank you, sisters. It is a precious honor for me to be assigned by President Thomas S. Monson to speak today and to add a few thoughts addressing the sisters of the Church.
+My dear sisters, what a joy it is to be with you today. I always look forward to this annual general Relief Society meeting and the excellent messages given here. Thank you, sisters. It is a precious honor for me to be assigned by President Thomas S. Monson to speak today and to add a few thoughts addressing the sisters of the Church.
 
 A while ago I was walking through a beautiful garden with my wife and daughter. I marveled at the glory and beauty of God’s creation. And then I noticed, among all the glorious blooms, the tiniest flower. I knew the name of this flower because since I was a child I have had a tender connection to it. The flower is called forget-me-not.
 
@@ -58,7 +58,7 @@ How can we tell the difference for our own situation? We can ask ourselves, “A
 
 In the beloved children’s story *Charlie and the Chocolate Factory,* the mysterious candy maker Willy Wonka hides a golden ticket in five of his candy bars and announces that whoever finds one of the tickets wins a tour of his factory and a lifetime supply of chocolate.
 
-Written on each golden ticket is this message: “Greetings to you, the lucky finder of this Golden Ticket … ! Tremendous things are in store for you! Many wonderful surprises await you! … Mystic and marvelous surprises … will … delight, … astonish, and perplex you.”[^3]
+Written on each golden ticket is this message: “Greetings to you, the lucky finder of this Golden Ticket … ! Tremendous things are in store for you! Many wonderful surprises await you! … Mystic and marvelous surprises … will … delight, … astonish, and perplex you.”[^3]
 
 In this classic children’s story, people all over the world desperately yearn to find a golden ticket. Some feel that their entire future happiness depends on whether or not a golden ticket falls into their hands. In their anxiousness, people begin to forget the simple joy they used to find in a candy bar. The candy bar itself becomes an utter disappointment if it does not contain a golden ticket.
 
@@ -114,7 +114,7 @@ He who created and knows the stars knows you and your name—you are the daughte
 
 “When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained;
 
-“What is man, that thou art mindful of him? …
+“What is man, that thou art mindful of him? …
 
 “For thou hast made him a little lower than the angels, and hast crowned him with glory and honour.”[^5]
 
@@ -135,7 +135,7 @@ Sisters, we love you. It is my prayer and blessing that you will never forget th
 
 [^1]: See [[Ether 12.27|Ether 12:27]].
 
-[^2]: See [[3 Nephi 12.48|3 Nephi 12:48]].
+[^2]: See [[3 Nephi 12.48|3 Nephi 12:48]].
 
 [^3]: Roald Dahl, *Charlie and the Chocolate Factory* (1964), 55–56.
 
@@ -143,6 +143,4 @@ Sisters, we love you. It is my prayer and blessing that you will never forget th
 
 [^5]: [[Psalms 8.3|Psalm 8:3–5]][[Psalms 8.4|]][[Psalms 8.5|]].
 
-
-
-#Gratitude #Individual_Worth #Joy #Love #Patience #Perspective #Sacrifice #Self-Esteem
+#Gratitude #IndividualWorth #Joy #Love #Patience #Perspective #Sacrifice #Self-esteem

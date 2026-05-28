@@ -1,6 +1,5 @@
 # Worse
 
-
 *See also* [[Bad.md|Bad]]
 
 now will we deal *worse* with thee, [[Genesis 19.9|Genesis 19:9]].

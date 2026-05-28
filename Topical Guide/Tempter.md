@@ -1,6 +1,5 @@
 # Tempter
 
-
 *See also* [[Tempt.md|Tempt]]; [[Temptation.md|Temptation]]
 
 when the *tempter* came to him, [[Matthew 4.3|Matthew 4:3]].

@@ -1,6 +1,6 @@
 # Jesus Christ Is Relief
 
-By President Camille N. Johnson - *Relief Society General President*
+By President Camille N. Johnson - *Relief Society General President*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -20,7 +20,7 @@ I testify that Jesus Christ *is* relief. Through the Atonement of Jesus Christ, 
 
 And because we love God and have covenanted to serve Him, we can partner with the Savior to help provide temporal and spiritual relief for those in need—and in the process find our own relief in Jesus Christ.[^5]
 
-Our beloved prophet, President Russell M. Nelson, invited us to overcome the world and find rest.[^6] He defined “true rest” as “relief and peace.” President Nelson said, “Because the Savior, through His infinite Atonement, redeemed each of us from weakness, mistakes, and sin, and because He experienced every pain, worry, and burden you have ever had, then as you truly repent and seek His help, you can rise above this present precarious world.”[^7] That is the relief Jesus Christ offers us!
+Our beloved prophet, President Russell M. Nelson, invited us to overcome the world and find rest.[^6] He defined “true rest” as “relief and peace.” President Nelson said, “Because the Savior, through His infinite Atonement, redeemed each of us from weakness, mistakes, and sin, and because He experienced every pain, worry, and burden you have ever had, then as you truly repent and seek His help, you can rise above this present precarious world.”[^7] That is the relief Jesus Christ offers us!
 
 Each of us is carrying a metaphorical backpack. It may be a basket balanced on your head or a satchel or a bundle of things wrapped in cloth and thrown over your shoulder. But for our thinking, let’s call it a backpack.
 
@@ -109,17 +109,17 @@ Like the women visited by the angel on that first Easter morning, I wish to “g
 
 [^4]: [[Luke 5.26|Luke 5:26]].
 
-[^5]: See D. Todd Christofferson, “[The First Commandment First](https://speeches.byu.edu/talks/d-todd-christofferson/the-first-commandment-first)” (Brigham Young University devotional, Mar. 22, 2022), 2, speeches.byu.edu: “Our love of God elevates our ability to love others more fully and perfectly because we in essence *partner* with God in the care of His children” (emphasis added).
+[^5]: See D. Todd Christofferson, “[The First Commandment First](https://speeches.byu.edu/talks/d-todd-christofferson/the-first-commandment-first)” (Brigham Young University devotional, Mar. 22, 2022), 2, speeches.byu.edu: “Our love of God elevates our ability to love others more fully and perfectly because we in essence *partner* with God in the care of His children” (emphasis added).
 
-[^6]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–98.
+[^6]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–98.
 
-[^7]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
+[^7]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
 
 [^8]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-[^9]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 97.
+[^9]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 97.
 
-[^10]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
+[^10]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
 
 [^11]: [[Philippians 4.13|Philippians 4:13]].
 
@@ -135,13 +135,13 @@ Like the women visited by the angel on that first Easter morning, I wish to “g
 
 [^17]: See [[Alma 34.14|Alma 34:14–16]][[Alma 34.15|]][[Alma 34.16|]]; see also [[Mosiah 15.8|Mosiah 15:8–9]][[Mosiah 15.9|]].
 
-[^18]: See Russell M. Nelson, “[Four Gifts That Jesus Christ Offers to You](https://www.churchofjesuschrist.org/media/video/2018-12-0040-president-russell-m-nelson?lang=eng)” (First Presidency Christmas devotional, Dec. 2, 2018), broadcasts.ChurchofJesusChrist.org: “A second gift the Savior offers you is the ability to *forgive*. Through His infinite Atonement, you can forgive those who have hurt you and who may never accept responsibility for their cruelty to you.
+[^18]: See Russell M. Nelson, “[Four Gifts That Jesus Christ Offers to You](https://www.churchofjesuschrist.org/media/video/2018-12-0040-president-russell-m-nelson?lang=eng)” (First Presidency Christmas devotional, Dec. 2, 2018), broadcasts.ChurchofJesusChrist.org: “A second gift the Savior offers you is the ability to *forgive*. Through His infinite Atonement, you can forgive those who have hurt you and who may never accept responsibility for their cruelty to you.
 
 [^19]: [[Mosiah 18.9|Mosiah 18:9]].
 
 [^20]: [[Mosiah 18.8|Mosiah 18:8]].
 
-[^21]: Relief Society, the women’s organization of The Church of Jesus Christ of Latter-day Saints, was organized by the Prophet Joseph Smith on March 17, 1842, as “a divinely established appendage to the priesthood” (Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona*, May 2014, 51). In selecting a name for the new organization, the word *benevolent* was considered, but *relief* was favored by the women. Emma Smith, the organization’s first president, and Eliza R. Snow, its secretary who later served as the second president of the Relief Society, explained that *benevolent* was a popular word—popular with the institutions of the day—but that popular “should not be our guide.” Emma expounded that the word *relief* better described their mission. “We are going to do something extraordinary … we expect extraordinary occasions and pressing calls” (Emma Smith, in Nauvoo Relief Society Minute Book, Mar. 17, 1842, 12, josephsmithpapers.org). Indeed, the mandate of Relief Society has always been to provide temporal and spiritual relief. Joseph Smith taught, “The Society is not only to relieve the poor, but to save souls” (in Nauvoo Relief Society Minute Book, June 9, 1842, 63, josephsmithpapers.org). And so the Relief Society continues to provide relief: “Relief of poverty, relief of illness; relief of doubt, relief of ignorance—relief of all that hinders the joy and progress of woman” (John A. Widtsoe, *Evidences and Reconciliations*, arr. G. Homer Durham, 3 vols. in 1 \[1960\], 308).
+[^21]: Relief Society, the women’s organization of The Church of Jesus Christ of Latter-day Saints, was organized by the Prophet Joseph Smith on March 17, 1842, as “a divinely established appendage to the priesthood” (Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona*, May 2014, 51). In selecting a name for the new organization, the word *benevolent* was considered, but *relief* was favored by the women. Emma Smith, the organization’s first president, and Eliza R. Snow, its secretary who later served as the second president of the Relief Society, explained that *benevolent* was a popular word—popular with the institutions of the day—but that popular “should not be our guide.” Emma expounded that the word *relief* better described their mission. “We are going to do something extraordinary … we expect extraordinary occasions and pressing calls” (Emma Smith, in Nauvoo Relief Society Minute Book, Mar. 17, 1842, 12, josephsmithpapers.org). Indeed, the mandate of Relief Society has always been to provide temporal and spiritual relief. Joseph Smith taught, “The Society is not only to relieve the poor, but to save souls” (in Nauvoo Relief Society Minute Book, June 9, 1842, 63, josephsmithpapers.org). And so the Relief Society continues to provide relief: “Relief of poverty, relief of illness; relief of doubt, relief of ignorance—relief of all that hinders the joy and progress of woman” (John A. Widtsoe, *Evidences and Reconciliations*, arr. G. Homer Durham, 3 vols. in 1 \[1960\], 308).
 
 [^22]: [[D&C 81.5|Doctrine and Covenants 81:5]]; see also [[Hebrews 12.12|Hebrews 12:12]].
 
@@ -153,5 +153,6 @@ Like the women visited by the angel on that first Easter morning, I wish to “g
 
 [^26]: See Dictionary.com, “relief.”
 
+[^27]: See [[Matthew 28.1|Matthew 28:1–8]][[Matthew 28.2|]][[Matthew 28.3|]][[Matthew 28.4|]][[Matthew 28.5|]][[Matthew 28.6|]][[Matthew 28.7|]][[Matthew 28.8|]].
 
-#Adversity #Atonement #Charity #Covenants #Forgiveness #Healing #Jesus_Christ #Peace
+#Adversity #Atonement #Charity #Covenants #Forgiveness #Healing #JesusChrist #Peace

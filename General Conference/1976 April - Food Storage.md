@@ -1,12 +1,12 @@
 # Food Storage
 
-By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1976 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1976/04/food-storage?lang=eng)
 
-Brethren of the priesthood, sisters of the Relief Society, President Henry D. Moyle suggested that when someone speaks we ought to get three things out of the message. First and least important (but still very important), we ought to get what is said. Second, and more important, we ought to have a spiritual experience. Third, and most important, we should keep the commitments we make to ourselves. Let’s write them down and follow through. Don’t ever make a commitment to yourself you don’t intend to keep—if you do, you weaken your character.
+Brethren of the priesthood, sisters of the Relief Society, President Henry D. Moyle suggested that when someone speaks we ought to get three things out of the message. First and least important (but still very important), we ought to get what is said. Second, and more important, we ought to have a spiritual experience. Third, and most important, we should keep the commitments we make to ourselves. Let’s write them down and follow through. Don’t ever make a commitment to yourself you don’t intend to keep—if you do, you weaken your character.
 
 For twenty-six years, since I was fifteen, I was involved in the grocery industry. I learned much about human nature during those years. I remember the effects that strikes, earthquakes, and rumors of war had on many very active Latter-day Saints. Like the five foolish virgins, they rushed to the store to buy food, caught in the panic of knowing that direction had been given by the prophet but not having followed that direction—fearful that maybe they had procrastinated until it was everlastingly too late.
 
@@ -58,9 +58,9 @@ The Lord will make it possible, if we make a firm commitment, for every Latter-d
 
 Now regarding home production: Raise animals where means and local laws permit. Plant fruit trees, grapevines, berry bushes, and vegetables. You will provide food for your family, much of which can be eaten fresh. Other food you grow can be preserved and included as part of your home storage. Wherever possible, produce your nonfood necessities of life. Sew and mend your own clothing. Make or build needed items. I might also add, beautify, repair, and maintain all of your property.
 
-Home production of food and nonfood items is a way to stretch your income and to increase your skills and talents. It is a way to teach your family to be self-sufficient. Our children are provided with much needed opportunities to learn the fundamentals of work, industry, and thrift. President Romney has said, “We will see the day when we will live on what we produce.” (*Conference Reports,* April 1975, p. 165.)
+Home production of food and nonfood items is a way to stretch your income and to increase your skills and talents. It is a way to teach your family to be self-sufficient. Our children are provided with much needed opportunities to learn the fundamentals of work, industry, and thrift. President Romney has said, “We will see the day when we will live on what we produce.” (*Conference Reports,* April 1975, [[1975 April - Address Given by President Marion G. Romney at Welfare Services Session Saturday, April 5, 1975.md|p. 165]].)
 
-I should like to address a few remarks to those who ask, “Do I share with my neighbors who have not followed the counsel? And what about the nonmembers who do not have a year’s supply? Do we have to share with them?” No, we don’t *have* to share—we *get* to share! Let us not be concerned about silly thoughts of whether we would share or not. Of course we would share! What would Jesus do? I could not possibly eat food and see my neighbors starving. And if you starve to death after sharing, “greater love hath no man than this …” ([[John 15.13|John 15:13]].)
+I should like to address a few remarks to those who ask, “Do I share with my neighbors who have not followed the counsel? And what about the nonmembers who do not have a year’s supply? Do we have to share with them?” No, we don’t *have* to share—we *get* to share! Let us not be concerned about silly thoughts of whether we would share or not. Of course we would share! What would Jesus do? I could not possibly eat food and see my neighbors starving. And if you starve to death after sharing, “greater love hath no man than this …” ([[John 15.13|John 15:13]].)
 
 Now what about those who would plunder and break in and take that which we have stored for our families’ needs? Don’t give this one more idle thought. There is a God in heaven whom we have obeyed. Do you suppose he would abandon those who have kept his commandments? He said, “If ye are prepared, ye need not fear.” ([[D&C 38.30|D&C 38:30]].) Prepare, O men of Zion, and fear not. Let Zion put on her beautiful garments. Let us put on the full armor of God. Let us be pure in heart, love mercy, be just, and stand in holy places. Commit to have a year’s supply of food by April 1977.
 
@@ -68,9 +68,9 @@ Bishops and stake presidents, let us accept the challenge on behalf of the Saint
 
 In his October 1973 conference address, President Ezra Taft Benson gave some excellent instructions about home storage:
 
-“For the righteous the gospel provides a warning before a calamity, a program for the crises, a refuge for each disaster. …
+“For the righteous the gospel provides a warning before a calamity, a program for the crises, a refuge for each disaster. …
 
-“The Lord has warned us of famines, but the righteous will have listened to prophets and stored at least a year’s supply of survival food. …
+“The Lord has warned us of famines, but the righteous will have listened to prophets and stored at least a year’s supply of survival food. …
 
 “Brethren and sisters, I know that this welfare program is inspired of God. I have witnessed with my own eyes the ravages of hunger and destitution as, under the direction of the president of the Church, I spent a year in war-torn Europe at the close of World War II, without my family, distributing food, clothing, and bedding to our needy members. I have looked into the sunken eyes of Saints, in almost the last stages of starvation. I have seen faithful mothers carrying their children, three and four years of age, who were unable to walk because of malnutrition. I have seen a hungry woman turn down food for a spool of thread. I have seen grown men weep as they ran their hands through the wheat and beans sent to them from Zion—America.
 
@@ -81,6 +81,4 @@ I bear my humble witness to you that the great God of heaven will open doors and
 
 
 
-
-
-#Self-Reliance
+#Self-reliance

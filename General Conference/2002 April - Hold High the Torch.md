@@ -61,6 +61,4 @@ Dear young women, let your light shine so brightly before all of your family and
 
 [^5]: First Presidency letter on strengthening youth, 28 Sept. 2001.
 
-
-
 #Example #Morality #Obedience #Standards

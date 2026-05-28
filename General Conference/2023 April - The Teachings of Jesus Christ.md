@@ -1,6 +1,6 @@
 # The Teachings of Jesus Christ
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -100,7 +100,7 @@ After His ministry in the Holy Land, Jesus Christ appeared to the righteous on t
 
 “And ye shall offer up unto me no more the shedding of blood; yea, your sacrifices and your burnt offerings shall be done away, for I will accept none of your sacrifices and your burnt offerings.
 
-“And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost. …
+“And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost. …
 
 “Behold, I have come unto the world to bring redemption unto the world, to save the world from sin.”[^29]
 
@@ -129,15 +129,15 @@ I affirm the truth of these teachings in the name of Jesus Christ, amen.
 
 
 
-[^1]: See [[JST Matthew 3.46|Joseph Smith Translation, Matthew 3:46]] (in the Bible appendix); [[Matthew 17.5|Matthew 17:5]]; [[Mark 9.7|Mark 9:7]]; [[3 Nephi 11.7|3 Nephi 11:7]]; [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
+[^1]: See [[JST Matthew 3.46|Joseph Smith Translation, Matthew 3:46]] (in the Bible appendix); [[Matthew 17.5|Matthew 17:5]]; [[Mark 9.7|Mark 9:7]]; [[3 Nephi 11.7|3 Nephi 11:7]]; [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-[^2]: See “The Father and the Son: A Doctrinal Exposition by the First Presidency and the Twelve,” *Improvement Era*, Aug. 1916, 934, 939.
+[^2]: See “The Father and the Son: A Doctrinal Exposition by the First Presidency and the Twelve,” *Improvement Era*, Aug. 1916, 934, 939.
 
-[^3]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^3]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^4]: [[John 3.5|John 3:5]].
 
-[^5]: [[3 Nephi 12.6|3 Nephi 12:6]]; emphasis added.
+[^5]: [[3 Nephi 12.6|3 Nephi 12:6]]; emphasis added.
 
 [^6]: [[Matthew 5.9|Matthew 5:9]].
 
@@ -183,26 +183,24 @@ I affirm the truth of these teachings in the name of Jesus Christ, amen.
 
 [^27]: [[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]].
 
-[^28]: [[3 Nephi 9.15|3 Nephi 9:15]].
+[^28]: [[3 Nephi 9.15|3 Nephi 9:15]].
 
-[^29]: [[3 Nephi 9.18|3 Nephi 9:18–21]][[3 Nephi 9.19|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]].
+[^29]: [[3 Nephi 9.18|3 Nephi 9:18–21]][[3 Nephi 9.19|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]].
 
-[^30]: [[3 Nephi 11.38|3 Nephi 11:38]].
+[^30]: [[3 Nephi 11.38|3 Nephi 11:38]].
 
-[^31]: [[3 Nephi 12.48|3 Nephi 12:48]]; emphasis added.
+[^31]: [[3 Nephi 12.48|3 Nephi 12:48]]; emphasis added.
 
-[^32]: [[3 Nephi 18.15|3 Nephi 18:15]]; emphasis added.
+[^32]: [[3 Nephi 18.15|3 Nephi 18:15]]; emphasis added.
 
-[^33]: [[3 Nephi 18.19|3 Nephi 18:19]].
+[^33]: [[3 Nephi 18.19|3 Nephi 18:19]].
 
-[^34]: [[3 Nephi 27.7|3 Nephi 27:7]].
+[^34]: [[3 Nephi 27.7|3 Nephi 27:7]].
 
-[^35]: [[3 Nephi 27.13|3 Nephi 27:13–14]][[3 Nephi 27.14|]].
+[^35]: [[3 Nephi 27.13|3 Nephi 27:13–14]][[3 Nephi 27.14|]].
 
-[^36]: [[3 Nephi 27.20|3 Nephi 27:20]].
+[^36]: [[3 Nephi 27.20|3 Nephi 27:20]].
 
 [^37]: [[John 14.26|John 14:26]].
 
-
-
-#Jesus_Christ #Scripture_Study #Scriptures #Teaching
+#JesusChrist #ScriptureStudy #Scriptures #Teaching

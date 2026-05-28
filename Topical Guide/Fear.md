@@ -1,19 +1,18 @@
 # Fear
 
+*See also* [[Afraid.md|Afraid]]; [[Courage.md|Courage]]; [[Fearful.md|Fearful]]; [[Fear of God.md|Fear of God]]; [[Tremble.md|Tremble]]
 
-*See also* [[Afraid.md|Afraid]]; [[Courage, Courageous.md|Courage]]; [[Fearful.md|Fearful]]; [[Fear of God.md|Fear of God]]; [[Tremble.md|Tremble]]
-
-*fear* of you ... shall be upon every beast, [[Genesis 9.2|Genesis 9:2]].
+*fear* of you … shall be upon every beast, [[Genesis 9.2|Genesis 9:2]].
 
 *fear* not, for I am with thee, [[Genesis 26.24|Genesis 26:24]] ([[Isaiah 41.10|Isaiah 41:10]]).
 
 *Fear* and dread shall fall upon them, [[Exodus 15.16|Exodus 15:16]].
 
-shalt provide ... able men, such as *fear* God, [[Exodus 18.21|Exodus 18:21]].
+shalt provide … able men, such as *fear* God, [[Exodus 18.21|Exodus 18:21]].
 
 Lord is with us: *fear* them not, [[Numbers 14.9|Numbers 14:9]].
 
-put ... the *fear* of thee upon the nations, [[Deuteronomy 2.25|Deuteronomy 2:25]].
+put … the *fear* of thee upon the nations, [[Deuteronomy 2.25|Deuteronomy 2:25]].
 
 *fear* not the gods of the Amorites, [[Judges 6.10|Judges 6:10]].
 
@@ -61,17 +60,17 @@ came a *fear* on all: and they glorified God, [[Luke 7.16|Luke 7:16]].
 
 I *feared* thee, because thou art an austere man, [[Luke 19.21|Luke 19:21]].
 
-Men's hearts failing them for *fear*, [[Luke 21.26|Luke 21:26]].
+Men’s hearts failing them for *fear*, [[Luke 21.26|Luke 21:26]].
 
 no man spake openly of him for *fear* of the Jews, [[John 7.13|John 7:13]].
 
-Joseph ... secretly for *fear* of the Jews, besought Pilate, [[John 19.38|John 19:38]].
+Joseph … secretly for *fear* of the Jews, besought Pilate, [[John 19.38|John 19:38]].
 
-doors were shut ... for *fear* of the Jews, [[John 20.19|John 20:19]].
+doors were shut … for *fear* of the Jews, [[John 20.19|John 20:19]].
 
 great *fear* came upon all the church, [[Acts 5.11|Acts 5:11]].
 
-Render ... *fear* to whom *fear*, [[Romans 13.7|Romans 13:7]].
+Render … *fear* to whom *fear*, [[Romans 13.7|Romans 13:7]].
 
 without were fightings, within were *fears*, [[2 Corinthians 7.5|2 Corinthians 7:5]].
 
@@ -87,13 +86,13 @@ perfect love casteth out *fear*, [[1 John 4.18|1 John 4:18]].
 
 *Fear* none of those things which thou shalt suffer, [[Revelation 2.10|Revelation 2:10]].
 
-Zoram ... our *fears* did cease concerning him, [[1 Nephi 4.37|1 Nephi 4:37]].
+Zoram … our *fears* did cease concerning him, [[1 Nephi 4.37|1 Nephi 4:37]].
 
 I *fear* lest I have committed the unpardonable sin, [[Jacob 7.19|Jacob 7:19]].
 
 *fear* of destruction had come upon them, [[Alma 14.26|Alma 14:26]].
 
-awful *fear* of death which fills ... the wicked, [[Mormon 6.7|Mormon 6:7]].
+awful *fear* of death which fills … the wicked, [[Mormon 6.7|Mormon 6:7]].
 
 you should not have *feared* man more than God, [[D&C 3.7|D&C 3:7]] ([[D&C 30.1|D&C 30:1]]).
 
@@ -109,7 +108,7 @@ if ye are prepared ye shall not *fear*, [[D&C 38.30|D&C 38:30]].
 
 *Fear* not, little children, for you are mine, [[D&C 50.41|D&C 50:41]].
 
-not open their mouths ... because of the *fear* of man, [[D&C 60.2|D&C 60:2]].
+not open their mouths … because of the *fear* of man, [[D&C 60.2|D&C 60:2]].
 
 let the rebellious *fear* and tremble, [[D&C 63.6|D&C 63:6]].
 
@@ -117,7 +116,7 @@ shall deny the faith and shall *fear*, [[D&C 63.16|D&C 63:16]].
 
 there were *fears* in your hearts, [[D&C 67.3|D&C 67:3]].
 
-strip yourselves from ... *fears*, [[D&C 67.10|D&C 67:10]].
+strip yourselves from … *fears*, [[D&C 67.10|D&C 67:10]].
 
 be of good cheer, and do not *fear*, [[D&C 68.6|D&C 68:6]].
 

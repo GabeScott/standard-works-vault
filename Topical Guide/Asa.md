@@ -1,4 +1,3 @@
 # Asa
 
-
-*See* [BD Asa](https://www.churchofjesuschrist.org/study/scriptures/bd/asa?lang=eng)
+*See also* [[BD Asa.md|BD Asa]]

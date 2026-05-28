@@ -7,5 +7,5 @@
 
 [^a]: [[Alma 9.12|Alma 9:12]].  
 [^b]: [[Disobedience, Disobey|TG Disobedience]].  
-[^c]: See [[Jeremiah 26.note13a|JST Jer. 26:13]], [[Jeremiah 26.note19a|19]] ([[Jeremiah 26.note13a|Jer. 26:13 note a]], [[Jeremiah 26.note19a|19 note a]]).  
+[^c]: See [[Jeremiah 26.13|JST Jer. 26:13]], [[Jeremiah 26.19|19]] ([[Jeremiah 26.13|Jer. 26:13 note a]], [[Jeremiah 26.19|19 note a]]).  
 [^d]: [[D&C 56.3|D&C 56:4 (3–4)]][[D&C 56.4|]]; [[D&C 58.31|58:32 (31–33)]][[D&C 58.32|]][[D&C 58.33|]].  

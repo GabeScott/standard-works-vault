@@ -1,7 +1,6 @@
 # Medicine
 
-
-*See also* [BD Medicine](https://www.churchofjesuschrist.org/study/scriptures/bd/medicine?lang=eng)
+*See also* [[BD Medicine.md|BD Medicine]]
 
 merry heart doeth good like a *medicine*, [[Proverbs 17.22|Proverbs 17:22]].
 

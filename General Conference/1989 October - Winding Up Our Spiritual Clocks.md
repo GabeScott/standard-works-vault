@@ -22,7 +22,7 @@ In the world’s environment today, spiritual clocks that do not receive regular
 
 Just forty years ago, in the October conference of 1949, Elder Albert E. Bowen, a member of the Council of the Twelve, spoke these words:
 
-“Men are mortal and beset by human frailties. They are enticed by the pressures of immediate … desire to depart from the high standards of the perfect law. When they are under the influence of an exalted occasion, they make high resolves. They firmly determine to avoid past mistakes and to do better. But gone out from under the spell of that influence and absorbed in the complicated pursuits of life, they find difficulty in holding fast to their noble purposes. … So it is essential that they come again, and frequently, under the influence which kindles anew the warmth of spirit in which good resolutions are begotten, that they may go out fortified to withstand the pressures of temptation which lure them into false ways. Happily, if they refresh themselves frequently enough under ennobling influences, the spirit of repentance will be at work with them, and they will make conquest of some temptations—rise above them—and advance thus far toward their final goal.” (In Conference Report, Oct. 1949, p. 139.)
+“Men are mortal and beset by human frailties. They are enticed by the pressures of immediate … desire to depart from the high standards of the perfect law. When they are under the influence of an exalted occasion, they make high resolves. They firmly determine to avoid past mistakes and to do better. But gone out from under the spell of that influence and absorbed in the complicated pursuits of life, they find difficulty in holding fast to their noble purposes. … So it is essential that they come again, and frequently, under the influence which kindles anew the warmth of spirit in which good resolutions are begotten, that they may go out fortified to withstand the pressures of temptation which lure them into false ways. Happily, if they refresh themselves frequently enough under ennobling influences, the spirit of repentance will be at work with them, and they will make conquest of some temptations—rise above them—and advance thus far toward their final goal.” (In Conference Report, Oct. 1949, p. 139.)
 
 All of us require the “ennobling influences” about which Elder Bowen spoke to “wind up” our spiritual clocks. Just as exercise, proper nourishment, and rest are essential to our physical well-being, so are such things as regular prayer, scripture study, Sabbath worship, partaking of the sacrament, and service to others necessary for our spiritual vigor. Without these continuing influences in our lives, our spiritual clocks wind down.
 
@@ -30,9 +30,9 @@ All of us require the “ennobling influences” about which Elder Bowen spoke t
 
 Nephi said: “If ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray, but teacheth him that he must not pray.
 
-“But behold, I say unto you that ye must pray always, and not faint.” ([[2 Nephi 32.8|2 Ne. 32:8–9]][[2 Nephi 32.9|]].)
+“But behold, I say unto you that ye must pray always, and not faint.” ([[2 Nephi 32.8|2 Ne. 32:8–9]][[2 Nephi 32.9|]].)
 
-Amulek understood the importance of prayer as a spiritually rejuvenating influence. “Humble yourselves,” he said to the Zoramites, “and continue in prayer. …
+Amulek understood the importance of prayer as a spiritually rejuvenating influence. “Humble yourselves,” he said to the Zoramites, “and continue in prayer. …
 
 Ye must pour out your souls in your closets, and your secret places, and in your wilderness.” ([[Alma 34.19|Alma 34:19, 26]][[Alma 34.26|]].)
 
@@ -50,9 +50,9 @@ I can testify that Alma’s analogy is a valid one. One who regularly turns to t
 
 Alma promises that the seed that is planted by studying and applying the word of God will grow to the stature of a tree. But he warns those that begin to slacken in this effort:
 
-“If ye neglect the tree, and take no thought for its nourishment, behold it will not get any root. …
+“If ye neglect the tree, and take no thought for its nourishment, behold it will not get any root. …
 
-“Now, this is not because the seed was not good, neither is it because the fruit thereof would not be desirable; but it is because your ground is barren, and ye will not nourish the tree. …
+“Now, this is not because the seed was not good, neither is it because the fruit thereof would not be desirable; but it is because your ground is barren, and ye will not nourish the tree. …
 
 “But if ye will nourish the word, yea, nourish the tree as it beginneth to grow, … it shall take root; and behold it shall be a tree springing up unto everlasting life.” ([[Alma 32.38|Alma 32:38–39, 41]][[Alma 32.39|]][[Alma 32.41|]].)
 
@@ -70,7 +70,7 @@ It may be well to emphasize also that our church buildings are not the only plac
 
 A final comment about service to others and its influence in winding up our spiritual clocks: Anyone who has unselfishly given of himself in service to another can testify of the lift that comes to the giver. We need this reinforcement to our spiritual well-being. When we cast our bread upon the water in this sense, it inevitably comes back to us in even greater abundance.
 
-President Spencer W. Kimball once said: “I have learned that it is by serving that we learn how to serve. When we are engaged in the service of our fellowmen, not only do our deeds assist them, but we put our own problems in a fresher perspective. When we concern ourselves more with others, there is less time to be concerned with ourselves. In the midst of the miracle of serving, there is the promise of Jesus, that by losing ourselves, we find ourselves.” President Kimball added, “There is great security in spirituality, and we cannot have spirituality without service!” (“Small Acts of Service,” *Ensign,* Dec. 1974, pp. 2, 5.)
+President Spencer W. Kimball once said: “I have learned that it is by serving that we learn how to serve. When we are engaged in the service of our fellowmen, not only do our deeds assist them, but we put our own problems in a fresher perspective. When we concern ourselves more with others, there is less time to be concerned with ourselves. In the midst of the miracle of serving, there is the promise of Jesus, that by losing ourselves, we find ourselves.” President Kimball added, “There is great security in spirituality, and we cannot have spirituality without service!” (“Small Acts of Service,” *Ensign,* Dec. 1974, pp. 2, 5.)
 
 In this, as is true with all of the other virtues, the Master is the perfect example. He is our Lord, our Savior, and our Redeemer and the perfect example in all things.
 
@@ -79,6 +79,4 @@ I testify to you that these things are true. May those “ennobling influences�
 
 
 
-
-
-#Prayer #Sabbath #Sacrament #Scripture_Study #Service #Spirituality
+#Prayer #Sabbath #Sacrament #ScriptureStudy #Service #Spirituality

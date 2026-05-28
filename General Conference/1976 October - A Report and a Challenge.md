@@ -1,6 +1,6 @@
 # A Report and a Challenge
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -28,9 +28,9 @@ We are very gratified with the growth of the Church, both numerically and spirit
 
 I can remember when we were getting only about 19 percent attendance at sacrament meetings. Of course, that included all members of the Church, children and infants, but it was very low. Today many stakes and missions have reached nearly 50 and 60 percent of their total membership in attendance at sacrament meetings, and there are many units that have a much higher attendance record.
 
-Since our last conference we have had a delightful message from Christopher S. Bond, Governor of the state of Missouri, who advised us that he has rescinded the 138-year-old Executive Order of Governor Lilburn W. Boggs calling for the extermination or expulsion of the Mormons from the state of Missouri. Governor Bond, present Missouri governor, writes:
+Since our last conference we have had a delightful message from Christopher S. Bond, Governor of the state of Missouri, who advised us that he has rescinded the 138-year-old Executive Order of Governor Lilburn W. Boggs calling for the extermination or expulsion of the Mormons from the state of Missouri. Governor Bond, present Missouri governor, writes:
 
-“Expressing on behalf of all Missourians our deep regret for the injustice and undue suffering which was caused by this 1838 order, I hereby rescind Executive Order No. 44 dated October 27, 1838, issued by Governor Lilburn W. Boggs.”
+“Expressing on behalf of all Missourians our deep regret for the injustice and undue suffering which was caused by this 1838 order, I hereby rescind Executive Order No. 44 dated October 27, 1838, issued by Governor Lilburn W. Boggs.”
 
 To Governor Bond and the people of Missouri, we extend our deep appreciation for this reversal and for the present friendly associations between the membership of The Church of Jesus Christ of Latter-day Saints and the people of Missouri as it is now in effect.
 
@@ -68,7 +68,7 @@ We quote from an article in a national magazine:
 
 “After years of inertia, more and more U.S. cities are cracking down on sex-oriented businesses.
 
-“Tougher local laws, many of them stemming from recent rulings by the Supreme Court, are at work against smut and vice. …
+“Tougher local laws, many of them stemming from recent rulings by the Supreme Court, are at work against smut and vice. …
 
 “A … High Court ruling … upheld the right of cities and counties to use zoning to eliminate adult motion pictures.” (“War on Pornography Begins in Earnest,” *U.S. News and World Report,* Sept. 13, 1976, p. 75.)
 
@@ -102,7 +102,7 @@ We have recently celebrated the notable event of the Bicentennial with all other
 
 We remember Benjamin Franklin said,
 
-“I have lived, sir, a long time, and the longer I live, the more convincing proofs I see of this truth: *that God governs in the affairs of men.* … I firmly believe this, … that without his concurring aid, we shall succeed in this political building no better than the builders of Babel.” (James Parton, *Life and Times of Benjamin Franklin,* Boston: James R. Osgood and Company, 1864, 2:573–74.)
+“I have lived, sir, a long time, and the longer I live, the more convincing proofs I see of this truth: *that God governs in the affairs of men.* … I firmly believe this, … that without his concurring aid, we shall succeed in this political building no better than the builders of Babel.” (James Parton, *Life and Times of Benjamin Franklin,* Boston: James R. Osgood and Company, 1864, 2:573–74.)
 
 Out of years of turmoil and tragedy, wars and riots, assassinations and wrongdoings in high places, Americans have recaptured the Spirit of 1776. We again had visions of our revolutionary founders and our immigrant ancestors. Great and consoling is the vision of free men and free women enjoying limited government and unlimited opportunity.
 
@@ -112,7 +112,7 @@ No government can remain strong by ignoring the commandments given to Moses on M
 
 ## Honesty
 
-Today is the day to preach honesty and integrity. Many people have seemingly lost their concept of the God-given law of honesty. Joseph Smith led us in saying, “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men.” ([[Articles of Faith 1.13|A of F 1:13]])
+Today is the day to preach honesty and integrity. Many people have seemingly lost their concept of the God-given law of honesty. Joseph Smith led us in saying, “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men.” ([[Articles of Faith 1.13|A of F 1:13]])
 
 Our Creator said in the carved message on Sinai, “Thou shalt not steal.” Again it was reiterated in the basis of the Restoration, “Thou shalt not steal.” ([[D&C 59.6|D&C 59:6]].)
 
@@ -221,6 +221,4 @@ May God bless you with His divine Spirit as you yield to the spiritual sermons o
 
 
 
-
-
-#Church_Growth #Church_History #Family #Honesty #Media #Obedience
+#ChurchHistory #ChurchGrowth #Family #Honesty #Media #Obedience

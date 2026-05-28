@@ -1,9 +1,8 @@
 # Weak, Weaker
 
-
 *See also* [[Feeble.md|Feeble]]; [[Weakness.md|Weakness]]
 
-bind me with seven green withs ... then shall I be *weak*, [[Judges 16.7|Judges 16:7]].
+bind me with seven green withs … then shall I be *weak*, [[Judges 16.7|Judges 16:7]].
 
 house of Saul waxed *weaker* and *weaker*, [[2 Samuel 3.1|2 Samuel 3:1]].
 
@@ -19,7 +18,7 @@ ye ought to support the *weak*, [[Acts 20.35|Acts 20:35]].
 
 being not *weak* in faith, [[Romans 4.19|Romans 4:19]].
 
-law ... was *weak* through the flesh, [[Romans 8.3|Romans 8:3]].
+law … was *weak* through the flesh, [[Romans 8.3|Romans 8:3]].
 
 Him that is *weak* in the faith receive ye, [[Romans 14.1|Romans 14:1]].
 
@@ -31,7 +30,7 @@ we are *weak*, but ye are strong, [[1 Corinthians 4.10|1 Corinthians 4:10]].
 
 their conscience being *weak* is defiled, [[1 Corinthians 8.7|1 Corinthians 8:7]].
 
-liberty ... a stumblingblock to them that are *weak*, [[1 Corinthians 8.9|1 Corinthians 8:9]].
+liberty … a stumblingblock to them that are *weak*, [[1 Corinthians 8.9|1 Corinthians 8:9]].
 
 To the *weak* became I as *weak*, [[1 Corinthians 9.22|1 Corinthians 9:22]].
 
@@ -51,23 +50,23 @@ honour unto the wife, as unto the *weaker* vessel, [[1 Peter 3.7|1 Peter 3:7]].
 
 all my joints are *weak*, [[1 Nephi 19.20|1 Nephi 19:20]].
 
-become *weak* like unto their brethren, [[Mosiah 1.13|Mosiah 1:13]] ([[Helaman 4.24|Helaman 4:24]], [[Helaman 4.26|Helaman 4:26]]).
+become *weak* like unto their brethren, [[Mosiah 1.13|Mosiah 1:13]] ([[Helaman 4.24|Helaman 4:24]]; [[Helaman 4.26|Helaman 4:26]]).
 
 then will I make *weak* things become strong, [[Ether 12.27|Ether 12:27]].
 
 *weak* things of the world shall come forth and break, [[D&C 1.19|D&C 1:19]] ([[D&C 35.13|D&C 35:13]]).
 
-gospel ... proclaimed by the *weak* and the simple, [[D&C 1.23|D&C 1:23]].
+gospel … proclaimed by the *weak* and the simple, [[D&C 1.23|D&C 1:23]].
 
 he that is *weak* among you hereafter shall be made strong, [[D&C 50.16|D&C 50:16]].
 
 succor the *weak*, [[D&C 81.5|D&C 81:5]].
 
-take ... him that is *weak*, that he may be edified, [[D&C 84.106|D&C 84:106]].
+take … him that is *weak*, that he may be edified, [[D&C 84.106|D&C 84:106]].
 
 your faith is *weak*, [[D&C 86.6|D&C 86:6]].
 
-principle ... adapted to the capacity of the *weak*, [[D&C 89.3|D&C 89:3]].
+principle … adapted to the capacity of the *weak*, [[D&C 89.3|D&C 89:3]].
 
 show forth my wisdom through the *weak* things, [[D&C 124.1|D&C 124:1]].
 

@@ -16,7 +16,7 @@ We looked at our organization and we saw that structurally, Relief Society can b
 
 But looking only at the structure does not tell the story. Relief Society is being inaugurated in many places in the world where Church membership is new. This allows us to see clearly that our society’s strength comes when the structure is enlivened by the faith, character, and works of its members. Whether you belong to a long-established ward or a struggling branch, what *you* bring to the work as a participating member will greatly affect what happens to you and to others around you. Teaching and saving souls, seeing that “none is neglected,” is a great cause. This work calls on us *all* and calls for our honest best.
 
-For Relief Society, the *charity* of our motto is not an abstraction. It is a love beyond the emotion we might feel for or from others. It isn’t a “what’s in it for me?” kind of love. Being friendly, generous, and respectful of others moves us along the way from self-concern, but the selflessness of the kind of love that Christ commanded us to learn is a high step indeed. “Bless them that curse you, do good to them that hate you, and pray for them who despitefully use you” ([[3 Nephi 12.44|3 Ne. 12:44]]). He *promises* that as we learn that kind of love, we can become perfect!
+For Relief Society, the *charity* of our motto is not an abstraction. It is a love beyond the emotion we might feel for or from others. It isn’t a “what’s in it for me?” kind of love. Being friendly, generous, and respectful of others moves us along the way from self-concern, but the selflessness of the kind of love that Christ commanded us to learn is a high step indeed. “Bless them that curse you, do good to them that hate you, and pray for them who despitefully use you” ([[3 Nephi 12.44|3 Ne. 12:44]]). He *promises* that as we learn that kind of love, we can become perfect!
 
 I have seen some of that in practice lately. A woman whom I had not met before came to my home and recounted her heartbreak at a marriage ruined by deceit and cruelty. She grieved for her young adult children, who were confused and wounded. She had served as a ward Relief Society president three times and as a stake Relief Society president. That service had shown her both irrefutable evidence of God’s goodness and mercy, and some of the difficult and painful realities that many suffer; even so, she was surprised at how unprepared she felt to face her own tragedy. At last she said, “All I can do now is cling to my faith in God and pray that my love of Christ and for my children will help me survive.” For the present, her pain had clouded her ability to see her own courage and resolve. In the midst of such trouble, she was steadfast in Christ, and her intent was charity. I knew she and her children still had much to endure and to work through, but the words from Moroni echoed for us both that “whoso is found possessed of \[charity\] at the last day, it shall be well with \[her” ([[Moroni 7.47|Moro. 7:47]]). Through her excruciating experience of sifting for the true nature of love, she was literally offering what God requires of each of us, a broken heart and a contrite spirit. Her offering was also building in *her* strength and peace.
 
@@ -27,12 +27,10 @@ There is much evidence of the goodness of you women and of the principles that m
 
 
 
-[^1]: Jill Mulvay Derr, Janath Russell Cannon, Maureen Ursenbach Beecher, *Women of Covenant: The Story of Relief Society* (Salt Lake City, Deseret Book Co., 1992), p. 47.
+[^1]: Jill Mulvay Derr, Janath Russell Cannon, Maureen Ursenbach Beecher, *Women of Covenant: The Story of Relief Society* (Salt Lake City, Deseret Book Co., 1992), p. 47.
 
-[^2]: Ibid., p. 48.
+[^2]: Ibid., p. 48.
 
 [^3]: Ibid.
 
-
-
-#Charity #Relief_Society #Service
+#Charity #ReliefSociety #Service

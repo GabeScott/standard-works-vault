@@ -26,17 +26,17 @@ King Benjamin began his powerful sermon with these words: “You that can hear m
 
 This admonition to open our ears to listen does not always receive the same response. While some people indicate a willingness to listen attentively and to be obedient to the words of the Lord, others seem to close their ears, not wanting to hear nor to obey. There are others who are slow to hear but who eventually do listen and become obedient. For all of these people, the result of their attitudes concerning the voice of the Lord will bring into their lives consequences which, in many instances, may be of an eternal nature.
 
-An example of those who close their ears can be found in chapter 15 of 1 Samuel when Saul, who had been anointed king over Israel, set aside the counsel and warnings of the prophet of the Lord and tried to justify the error of his ways. Samuel the prophet reproved Saul and taught him that “to obey is better than sacrifice, and to hearken than the fat of rams.” He then indicated to Saul the consequences of his attitude: “Because thou hast rejected the word of the Lord, he hath also rejected thee from being king” ([[1 Samuel 15.22|1 Sam. 15:22–23]][[1 Samuel 15.23|]]). From the example of Saul we learn that pride is a great obstacle in listening to the voice of the Lord.
+An example of those who close their ears can be found in chapter 15 of 1 Samuel when Saul, who had been anointed king over Israel, set aside the counsel and warnings of the prophet of the Lord and tried to justify the error of his ways. Samuel the prophet reproved Saul and taught him that “to obey is better than sacrifice, and to hearken than the fat of rams.” He then indicated to Saul the consequences of his attitude: “Because thou hast rejected the word of the Lord, he hath also rejected thee from being king” ([[1 Samuel 15.22|1 Sam. 15:22–23]][[1 Samuel 15.23|]]). From the example of Saul we learn that pride is a great obstacle in listening to the voice of the Lord.
 
-In chapter 5 of 2 Kings we read the story of Naaman, a general in the Syrian army who sought help from the prophet Elisha to be healed of his leprosy. The prophet sent one of his servants to say to Naaman, “Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean” ([[2 Kings 5.10|2 Kgs. 5:10]]). This response was not pleasing to Naaman, who went away in anger. Thanks to the intervention of his servants who persuaded Naaman to follow the instructions of the prophet, finally “went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean” ([[2 Kings 5.14|2 Kgs. 5:14]]).
+In chapter 5 of 2 Kings we read the story of Naaman, a general in the Syrian army who sought help from the prophet Elisha to be healed of his leprosy. The prophet sent one of his servants to say to Naaman, “Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean” ([[2 Kings 5.10|2 Kgs. 5:10]]). This response was not pleasing to Naaman, who went away in anger. Thanks to the intervention of his servants who persuaded Naaman to follow the instructions of the prophet, finally “went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean” ([[2 Kings 5.14|2 Kgs. 5:14]]).
 
 From his experience we learn that frequently the words of the prophets do not agree with our expectations or with our way of seeing things. Sometimes it seems that we need someone else, in addition to the prophets, to persuade us to listen to the voice of the Lord.
 
-In chapter 17 of 1 Kings we read about a humble widow who lived in Zarephath during a time of great scarcity of food because of the drought. This humble woman possessed no more than a handful of meal and a little oil for herself and for her son. With these she planned to prepare a final meal and then die. The prophet Elijah asked her to first give him something to eat, with the promise that if she did so the meal and the oil would not decrease until it rained again:
+In chapter 17 of 1 Kings we read about a humble widow who lived in Zarephath during a time of great scarcity of food because of the drought. This humble woman possessed no more than a handful of meal and a little oil for herself and for her son. With these she planned to prepare a final meal and then die. The prophet Elijah asked her to first give him something to eat, with the promise that if she did so the meal and the oil would not decrease until it rained again:
 
 “And she went and did according to the saying of Elijah: and she, and he, and her house, did eat many days.
 
-“And the barrel of meal wasted not, neither did the cruse of oil fail, according to the word of the Lord, which he spake by Elijah” ([[1 Kings 17.15|1 Kgs. 17:15–16]][[1 Kings 17.16|]]).
+“And the barrel of meal wasted not, neither did the cruse of oil fail, according to the word of the Lord, which he spake by Elijah” ([[1 Kings 17.15|1 Kgs. 17:15–16]][[1 Kings 17.16|]]).
 
 Thus we see how, when people listen to and accept with humility and simple faith the words of the prophets, they receive the Lord’s blessings.
 
@@ -49,6 +49,4 @@ This conference is a great opportunity to listen to the voice of the Lord, to fo
 
 
 
-
-
-#Conversion #Holy_Ghost #Humility #Jesus_Christ #Listening #Obedience #Prayer #Pride
+#Conversion #HolyGhost #Humility #JesusChrist #Listening #Obedience #Pride #Prayer

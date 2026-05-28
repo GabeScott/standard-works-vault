@@ -5,4 +5,4 @@
 [Joseph Smith History 1:71](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.71?lang=eng#p71)
 
 
-[^a]: Mosiah 18:13-15; 3 Ne. 19:10-13.
+[^a]: [[Mosiah 18.13|Mosiah 18:13–15]][[Mosiah 18.14|]][[Mosiah 18.15|]]; [[3 Nephi 19.10|3 Ne. 19:10–13]][[3 Nephi 19.11|]][[3 Nephi 19.12|]][[3 Nephi 19.13|]].  

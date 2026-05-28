@@ -1,6 +1,6 @@
 # Followers of Christ
 
-By Elder Walter F. González - *Of the Presidency of the Seventy*
+By Elder Walter F. González - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Walter F. González - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/followers-of-christ?lang=eng)
 
-Last October my wife and I accompanied Elder and Sister Neil L. Andersen for the groundbreaking of a new temple in Córdoba, Argentina. As is customary, a press conference followed the ceremony. A journalist, not a member of our Church, commented that she had observed how well the men treated their wives. Then she unexpectedly asked, “Is that real or fiction?” I am sure that she saw and felt something different among our members. She might have perceived the desire of our members to follow Christ. Members all over the world have such a desire. At the same time, millions who are not members of the Church also have a desire to follow Him.
+Last October my wife and I accompanied Elder and Sister Neil L. Andersen for the groundbreaking of a new temple in Córdoba, Argentina. As is customary, a press conference followed the ceremony. A journalist, not a member of our Church, commented that she had observed how well the men treated their wives. Then she unexpectedly asked, “Is that real or fiction?” I am sure that she saw and felt something different among our members. She might have perceived the desire of our members to follow Christ. Members all over the world have such a desire. At the same time, millions who are not members of the Church also have a desire to follow Him.
 
 Recently my wife and I were impressed by the people we saw in Ghana and Nigeria. Most were not members of our Church. We were happy to see their desire to follow Christ expressed in many of their conversations in their houses, on their cars, on their walls, and on their billboards. We had never seen so many Christian churches next to one another.
 
@@ -55,9 +55,9 @@ I testify that we are happier when we follow the teachings of the gospel of Jesu
 
 [^3]: [[Isaiah 53.5|Isaiah 53:5]].
 
-[^4]: [[2 Corinthians 12.7|2 Corinthians 12:7]].
+[^4]: [[2 Corinthians 12.7|2 Corinthians 12:7]].
 
-[^5]: See [[1 Nephi 1.20|1 Nephi 1:20]].
+[^5]: See [[1 Nephi 1.20|1 Nephi 1:20]].
 
 [^6]: See [[Ruth 1.16|Ruth 1:16]].
 
@@ -71,16 +71,14 @@ I testify that we are happier when we follow the teachings of the gospel of Jesu
 
 [^11]: [[Moroni 10.33|Moroni 10:33]].
 
-[^12]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 42; see also Spencer W. Kimball, “Be Ye Therefore Perfect” (devotional address, Salt Lake Institute of Religion, Jan. 10, 1975): “We made vows, solemn vows, in the heavens before we came to this mortal life. … We have made covenants. We made them before we accepted our position here on the earth.”
+[^12]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 42; see also Spencer W. Kimball, “Be Ye Therefore Perfect” (devotional address, Salt Lake Institute of Religion, Jan. 10, 1975): “We made vows, solemn vows, in the heavens before we came to this mortal life. … We have made covenants. We made them before we accepted our position here on the earth.”
 
-[^13]: See [[2 Nephi 31.5|2 Nephi 31:5–7]][[2 Nephi 31.6|]][[2 Nephi 31.7|]].
+[^13]: See [[2 Nephi 31.5|2 Nephi 31:5–7]][[2 Nephi 31.6|]][[2 Nephi 31.7|]].
 
-[^14]: [[Abraham 2.11|Abraham 2:11]]; see also John A. Widtsoe, “Temple Worship” (lecture, Assembly Hall, Salt Lake City, Oct. 12, 1920), 10: “The covenant gives life to truth; and makes possible the blessings that reward all those who use knowledge properly.”
+[^14]: [[Abraham 2.11|Abraham 2:11]]; see also John A. Widtsoe, “Temple Worship” (lecture, Assembly Hall, Salt Lake City, Oct. 12, 1920), 10: “The covenant gives life to truth; and makes possible the blessings that reward all those who use knowledge properly.”
 
 [^15]: See [[D&C 90.24|Doctrine and Covenants 90:24]].
 
-[^16]: See, for example, [[3 Nephi 18.7|3 Nephi 18:7–11]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]].
+[^16]: See, for example, [[3 Nephi 18.7|3 Nephi 18:7–11]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]].
 
-
-
-#Covenants #Discipleship #Jesus_Christ #Love
+#Covenants #Discipleship #JesusChrist #Love

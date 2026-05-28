@@ -5,4 +5,4 @@
 [1 Samuel 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/22.5?lang=eng#p5)
 
 
-[^a]: [BD Gad](https://www.churchofjesuschrist.org/study/scriptures/bd/gad?lang=eng).  
+[^a]: [[BD Gad|BD Gad]].  

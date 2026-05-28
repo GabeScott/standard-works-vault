@@ -1,6 +1,5 @@
 # Cold
 
-
 sluggard will not plow by reason of the *cold*, [[Proverbs 20.4|Proverbs 20:4]].
 
 As *cold* waters to a thirsty soul, [[Proverbs 25.25|Proverbs 25:25]].

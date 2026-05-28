@@ -1,7 +1,6 @@
 # Reveal
 
-
-*See also* [[Manifest.md|Manifest]]; [[Revelation.md|Revelation]]; [[Tell, Told.md|Tell]]
+*See also* [[Manifest.md|Manifest]]; [[Revelation.md|Revelation]]; [[Tell.md|Tell]]
 
 things which are *revealed* belong unto us, [[Deuteronomy 29.29|Deuteronomy 29:29]].
 
@@ -15,7 +14,7 @@ he that *revealeth* secrets maketh known, [[Daniel 2.29|Daniel 2:29]].
 
 he *revealeth* his secret unto his servants the prophets, [[Amos 3.7|Amos 3:7]].
 
-thou ... hast *revealed* them unto babes, [[Matthew 11.25|Matthew 11:25]] ([[Luke 10.21|Luke 10:21]]).
+thou … hast *revealed* them unto babes, [[Matthew 11.25|Matthew 11:25]] ([[Luke 10.21|Luke 10:21]]).
 
 whomsoever the Son will *reveal* him, [[Matthew 11.27|Matthew 11:27]] ([[Luke 10.22|Luke 10:22]]).
 
@@ -47,7 +46,7 @@ when his glory shall be *revealed*, [[1 Peter 4.13|1 Peter 4:13]].
 
 partaker of the glory that shall be *revealed*, [[1 Peter 5.1|1 Peter 5:1]] ([[D&C 66.2|D&C 66:2]]).
 
-revelation which was sealed ... *reveal* all things from the foundation of the world unto the end, [[2 Nephi 27.10|2 Nephi 27:10]].
+revelation which was sealed … *reveal* all things from the foundation of the world unto the end, [[2 Nephi 27.10|2 Nephi 27:10]].
 
 nothing which is secret save it shall be *revealed*, [[2 Nephi 30.17|2 Nephi 30:17]].
 
@@ -69,12 +68,12 @@ to them will I *reveal* all mysteries, [[D&C 76.7|D&C 76:7]].
 
 Neither was it *revealed*, neither is, neither will be *revealed*, [[D&C 76.46|D&C 76:46]].
 
-shall the first angel ... *reveal* the secret acts, [[D&C 88.108|D&C 88:108]].
+shall the first angel … *reveal* the secret acts, [[D&C 88.108|D&C 88:108]].
 
 when the Lord shall come, he shall *reveal* all things, [[D&C 101.32|D&C 101:32]].
 
 that I may *reveal* mine ordinances, [[D&C 124.40|D&C 124:40]].
 
-one of the prophets, who had his eye fixed on ... the glories to be *revealed*, [[D&C 128.17|D&C 128:17]].
+one of the prophets, who had his eye fixed on … the glories to be *revealed*, [[D&C 128.17|D&C 128:17]].
 
 We believe all that God has *revealed*, [[Articles of Faith 1.9|Articles of Faith 1:9]].

@@ -1,6 +1,6 @@
 # “Forgive Them, I Pray Thee”
 
-By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
+By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -34,7 +34,7 @@ I agreed, “I’m sure he called you.”
 
 He said, “Forty-two years ago, before my wife and I were married, we committed fornication once, the week prior to our going to the temple. We did not lie to the bishop, who was my wife’s father; he simply talked with us and signed our recommends. We then went to the stake president, and he did not interview us. He signed our recommends, and we went to the temple unworthily. While we were on our honeymoon,” he continued, “we decided to make it up to the Lord. We decided we would pay more than our share of tithing and more than our share of building fund; we would accept every assignment to the welfare farm and do all else we were asked to do. We decided we were not worthy to go to the temple, and we did not go for a year. It has been forty-two years since the transgression, and we have lived as near Christlike lives as we know how. I believe we have been forgiven, but I know that confession is necessary.”
 
-Then he quoted from [[2 Nephi 9.41|2 Nephi 9:41]], which states, “Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name.”
+Then he quoted from [[2 Nephi 9.41|2 Nephi 9:41]], which states, “Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name.”
 
 Then he said, “I would rather confess to you now. I am not a young man, and I do not have a lot of years left. I want to be able to meet my Savior with nothing left undone.”
 
@@ -62,7 +62,7 @@ It was like pulling wild horses to get a confession. Finally, about fifteen minu
 
 She stopped, looked up at me and, with tears in her eyes, and said, “President, I feel clean for the first time in forty-two years.”
 
-A little publication put out by the Church states, “When one has washed his robes in the blood of the Lamb, they are no longer soiled” (Spencer W. Kimball, *A Letter to a Friend,* pamphlet, p. 23).
+A little publication put out by the Church states, “When one has washed his robes in the blood of the Lamb, they are no longer soiled” (Spencer W. Kimball, *A Letter to a Friend,* pamphlet, p. 23).
 
 One day a woman came to my business office. She leaned across the desk and said, “President, I have carried a transgression on my heart for thirty-four years that I cannot carry one more step in this life. I know how tender-hearted you are, and I wouldn’t add one particle of a burden to your soul.”
 
@@ -84,9 +84,9 @@ Again I sat across the desk from her and said, “I do not want to keep you wait
 
 If the Savior had been sitting where the woman sat, I would not have felt any closer to him. I believe that is exactly what he would have done. It was as though a two-thousand-pound burden had been lifted from the heart of this good woman. She wept great tears of relief and joy. To this day, I do not remember who the woman was.
 
-President J. Reuben Clark, Jr., said, “I feel that \[the Savior\] will give that punishment which is the very least that our transgression will justify. …
+President J. Reuben Clark, Jr., said, “I feel that \[the Savior\] will give that punishment which is the very least that our transgression will justify. …
 
-“I believe that when it comes to making the rewards for our good conduct, he will give us the maximum that it is possible to give.” (J. Reuben Clark, Jr., *“As Ye Sow … ,”* Brigham Young University Speeches of the Year, Provo, 3 May 1955, p. 7.) I, too, believe this with all my heart and soul.
+“I believe that when it comes to making the rewards for our good conduct, he will give us the maximum that it is possible to give.” (J. Reuben Clark, Jr., *“As Ye Sow … ,”* Brigham Young University Speeches of the Year, Provo, 3 May 1955, p. 7.) I, too, believe this with all my heart and soul.
 
 In [[Exodus 32.1|Exodus 32]][[Exodus 32.2|]][[Exodus 32.3|]][[Exodus 32.4|]][[Exodus 32.5|]][[Exodus 32.6|]][[Exodus 32.7|]][[Exodus 32.8|]][[Exodus 32.9|]][[Exodus 32.10|]][[Exodus 32.11|]][[Exodus 32.12|]][[Exodus 32.13|]][[Exodus 32.14|]][[Exodus 32.15|]][[Exodus 32.16|]][[Exodus 32.17|]][[Exodus 32.18|]][[Exodus 32.19|]][[Exodus 32.20|]][[Exodus 32.21|]][[Exodus 32.22|]][[Exodus 32.23|]][[Exodus 32.24|]][[Exodus 32.25|]][[Exodus 32.26|]][[Exodus 32.27|]][[Exodus 32.28|]][[Exodus 32.29|]][[Exodus 32.30|]][[Exodus 32.31|]][[Exodus 32.32|]][[Exodus 32.33|]][[Exodus 32.34|]][[Exodus 32.35|]], Moses had gone up to the mountain. The children of Israel had fashioned a golden calf with a graving tool. The people offered burnt offerings, and they sat down to eat, drink, and play; and there was great wickedness when Moses came down out of the mountain. He cast the tablets out of his hands, and they were broken; he burned the golden calf and caused the idolaters to be slain.
 
@@ -99,8 +99,6 @@ Though their sins be as scarlet, they may become white as the driven snow (see [
 Beloved, the Lord has provided every soul with a Christlike ecclesiastical leader who has been endowed with powers and keys from on high to be his agent in exercising forgiveness on behalf of the Church. I plead with you: if you have a major transgression on your heart that has not been confessed, go to your bishop. He will be filled with love and charity and will bless your life and take the burden of sin from your heart as a repentant soul in modern Israel.
 
 I know that he, our Savior, loves us and that he is our Redeemer, our Atoner, and our Savior. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -20,7 +20,7 @@ The 2,000 stripling warriors in the army of Helaman testified that their righteo
 
 At a time of great spiritual searching, Enos said, “The words which I had often heard my father speak concerning eternal life … sunk deep into my heart” ([[Enos 1.3|Enos 1:3]]).
 
-In the Doctrine and Covenants the Lord says that parents are to teach their children “to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old. …
+In the Doctrine and Covenants the Lord says that parents are to teach their children “to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old. …
 
 “And they shall also teach their children to pray, and to walk uprightly before the Lord” ([[D&C 68.25|D&C 68:25, 28]][[D&C 68.28|]]).
 
@@ -118,11 +118,9 @@ Brothers and sisters, as parents let us heed the admonition, even the rebuke, gi
 
 The prophets of our day have given a similar admonition and warning to parents to set in order our families. May we be blessed with the inspiration and love to meet opposition with faith within our families. We will then know that our trials are to draw us closer to the Lord and to one another. May we listen to a prophet’s voice and set in order our own homes (see [[D&C 93.41|D&C 93:41–49]][[D&C 93.42|]][[D&C 93.43|]][[D&C 93.44|]][[D&C 93.45|]][[D&C 93.46|]][[D&C 93.47|]][[D&C 93.48|]][[D&C 93.49|]]). The family is strengthened as we draw near to the Lord, and each member of the family is strengthened as we lift and strengthen and love and care for one another. “Thee lift me and I’ll lift thee, and we’ll ascend together” (Quaker proverb).
 
-May we be able to welcome and maintain the Spirit of the Lord in our homes to strengthen our families. That each of our family members can stay on the “strait and narrow path which leads to eternal life” ([[2 Nephi 31.18|2 Ne. 31:18]]), I pray in the name of Jesus Christ, amen.
+May we be able to welcome and maintain the Spirit of the Lord in our homes to strengthen our families. That each of our family members can stay on the “strait and narrow path which leads to eternal life” ([[2 Nephi 31.18|2 Ne. 31:18]]), I pray in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Adversity #Anger #Children #Councils #Family #Family_History #Family_Home_Evening #Home #Parenthood #Prophets #Scripture_Study #Teaching #Testimony
+#Adversity #Anger #Children #Councils #FamilyHomeEvening #Family #FamilyHistory #Home #Parenthood #Prophets #ScriptureStudy #Teaching #Testimony

@@ -1,6 +1,6 @@
 # The Prodigal and the Road That Leads Home
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -24,7 +24,7 @@ The son must have felt a thrill of adventure and excitement. At long last, he wa
 
 Arriving in a faraway country, he quickly made new friends and began living the life he had always dreamed of. He must have been a favorite of many, for he spent money freely. His new friends—beneficiaries of his prodigality—did not judge him. They celebrated, applauded, and championed his choices.[^6]
 
-Had there been social media in that time, surely he would have filled pages with animated photos of laughing friends: \#Livingmybestlife! \#Neverhappier! \#Shouldhavedonethislongago!
+Had there been social media in that time, surely he would have filled pages with animated photos of laughing friends: #Livingmybestlife! #Neverhappier! #Shouldhavedonethislongago!
 
 ## The Famine
 
@@ -116,7 +116,7 @@ Heaven will rejoice at our return.
 
 May I take a moment now and speak to you individually?
 
-No matter what may have happened in your life, I echo and proclaim the words of my beloved friend and fellow Apostle Elder Jeffrey R. Holland: “It is not possible for you to sink lower than the infinite light of Christ’s \[atoning sacrifice\] shines.”[^18]
+No matter what may have happened in your life, I echo and proclaim the words of my beloved friend and fellow Apostle Elder Jeffrey R. Holland: “It is not possible for you to sink lower than the infinite light of Christ’s \[atoning sacrifice\] shines.”[^18]
 
 Though choices may have taken you far away from the Savior and His Church, the Master Healer stands at the road that leads home, welcoming you. And we as members of the Church of Jesus Christ seek to follow His example and embrace you as our brothers and sisters, as our friends. We rejoice and celebrate with you.
 
@@ -137,7 +137,7 @@ It is my prayer that each one of us may hear, in this profound parable, the Fath
 
 
 
-[^1]: Found in [[Luke 15.1|Luke 15]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]][[Luke 15.8|]][[Luke 15.9|]][[Luke 15.10|]][[Luke 15.11|]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]], the parable is one of three (the lost sheep, the lost coin, and the lost son) that illustrate the value of lost things and the celebration that occurs when that which was lost is found.
+[^1]: Found in [[Luke 15.1|Luke 15]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]][[Luke 15.8|]][[Luke 15.9|]][[Luke 15.10|]][[Luke 15.11|]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]], the parable is one of three (the lost sheep, the lost coin, and the lost son) that illustrate the value of lost things and the celebration that occurs when that which was lost is found.
 
 [^2]: [[Luke 19.10|Luke 19:10]].
 
@@ -155,13 +155,13 @@ It is my prayer that each one of us may hear, in this profound parable, the Fath
 
 [^9]: To the Jews, pigs were considered “unclean” (see [[Deuteronomy 14.8|Deuteronomy 14:8]]) and were offensive. Practicing Jews would not have raised swine, which indicates the overseer was a Gentile. It could also suggest how far the young son had traveled to be away from practicing Jews.
 
-[^10]: Elder Neal A. Maxwell taught: “Of course, it is better if we are humbled ‘because of the word’ rather than being \[humbled\] by circumstances, yet the latter may do! (see [[Alma 32.13|Alma 32:13–14]][[Alma 32.14|]]). Famine can induce spiritual hunger” (“[[2000 October - The Tugs and Pulls of the World.md|The Tugs and Pulls of the World]],” *Ensign*, Nov. 2000, 36; *Liahona*, Jan. 2001, 45).
+[^10]: Elder Neal A. Maxwell taught: “Of course, it is better if we are humbled ‘because of the word’ rather than being \[humbled\] by circumstances, yet the latter may do! (see [[Alma 32.13|Alma 32:13–14]][[Alma 32.14|]]). Famine can induce spiritual hunger” (“[[2000 October - The Tugs and Pulls of the World.md|The Tugs and Pulls of the World]],” *Ensign*, Nov. 2000, 36; *Liahona*, Jan. 2001, 45).
 
 [^11]: [[Luke 15.17|Luke 15:17]].
 
 [^12]: See [[Luke 15.20|Luke 15:20]].
 
-[^13]: See [[Luke 15.18|Luke 15:18–19, 21]][[Luke 15.19|]][[Luke 15.21|]].
+[^13]: See [[Luke 15.18|Luke 15:18–19, 21]][[Luke 15.19|]][[Luke 15.21|]].
 
 [^14]: See [[Luke 15.22|Luke 15:22–24]][[Luke 15.23|]][[Luke 15.24|]].
 
@@ -171,18 +171,16 @@ It is my prayer that each one of us may hear, in this profound parable, the Fath
 
 [^17]: See [[Luke 15.31|Luke 15:31–32]][[Luke 15.32|]].
 
-[^18]: Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona*, May 2012, 33.
+[^18]: Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona*, May 2012, 33.
 
 [^19]: What is given to one does not in the slightest diminish the birthright of others. The Savior taught this doctrine when He offered the parable of the laborers in [[Matthew 20.1|Matthew 20:1–16]][[Matthew 20.2|]][[Matthew 20.3|]][[Matthew 20.4|]][[Matthew 20.5|]][[Matthew 20.6|]][[Matthew 20.7|]][[Matthew 20.8|]][[Matthew 20.9|]][[Matthew 20.10|]][[Matthew 20.11|]][[Matthew 20.12|]][[Matthew 20.13|]][[Matthew 20.14|]][[Matthew 20.15|]][[Matthew 20.16|]].
 
 [^20]: See [[Alma 34.31|Alma 34:31]].
 
-[^21]: [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
+[^21]: [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
 
-[^22]: [[1 Peter 1.8|1 Peter 1:8]].
+[^22]: [[1 Peter 1.8|1 Peter 1:8]].
 
 [^23]: See [[Psalms 28.7|Psalm 28:7]].
 
-
-
-#Forgiveness #Jesus_Christ #Joy #Repentance
+#Forgiveness #Joy #JesusChrist #Repentance

@@ -67,7 +67,7 @@ This is my solemn witness in the name of Jesus Christ, amen.
 
 [^4]: *History of the Church,* 1:176.
 
-[^5]: Adapted from Hugh B. Brown, *Be What You Will to Be,* Brigham Young University Speeches of the Year (14 Feb. 1967), 8–9.
+[^5]: Adapted from Hugh B. Brown, *Be What  Will to Be,* Brigham Young University Speeches of the Year (14 Feb. 1967), 8–9.
 
 [^6]: B. H. Roberts, introduction to *History of the Church,* 3:x1.
 
@@ -95,6 +95,4 @@ This is my solemn witness in the name of Jesus Christ, amen.
 
 [^18]: [[Acts 4.10|Acts 4:10]].
 
-
-
-#Angels #Duty #Jesus_Christ #Ordinances #Priesthood #Satan #Spirituality
+#Angels #Duty #JesusChrist #Ordinances #Priesthood #Satan #Spirituality

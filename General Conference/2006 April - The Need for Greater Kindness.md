@@ -30,11 +30,11 @@ I receive letters from time to time suggesting items that the writers feel shoul
 
 Years have passed, and he still is unemployed. She then speaks of two other men who are following the same pattern, refusing to work while their wives are compelled to spend long hours providing for their households.
 
-Said Paul to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Timothy 5:8]]). Those are very strong words.
+Said Paul to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Timothy 5:8]]). Those are very strong words.
 
 The Lord has said in modern revelation:
 
-“Women have claim on their husbands for their maintenance, until their husbands are taken. …
+“Women have claim on their husbands for their maintenance, until their husbands are taken. …
 
 “All children have claim upon their parents for their maintenance until they are of age” ([[D&C 83.2|D&C 83:2, 4]][[D&C 83.4|]]).
 
@@ -72,9 +72,9 @@ We all stumble occasionally. We all make mistakes. I paraphrase the words of Jes
 
 William W. Phelps, who was close to the Prophet Joseph, betrayed him in 1838, which led to Joseph’s incarceration in Missouri. Recognizing the great evil of the thing he had done, Brother Phelps wrote to the Prophet, asking forgiveness. The Prophet replied in part as follows:
 
-“It is true, that we have suffered much in consequence of your behavior—the cup of gall, already full enough for mortals to drink, was indeed filled to overflowing when you turned against us. …
+“It is true, that we have suffered much in consequence of your behavior—the cup of gall, already full enough for mortals to drink, was indeed filled to overflowing when you turned against us. …
 
-“However, the cup has been drunk, the will of our Father has been done, and we are yet alive, for which we thank the Lord. …
+“However, the cup has been drunk, the will of our Father has been done, and we are yet alive, for which we thank the Lord. …
 
 “Believing your confession to be real, and your repentance genuine, I shall be happy once again to give you the right hand of fellowship, and rejoice over the returning prodigal.
 
@@ -105,8 +105,6 @@ There is no end to the good we can do, to the influence we can have with others.
 In the words of the Lord to Joshua, brethren, “be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God \[will be\] with thee whithersoever thou goest” ([[Joshua 1.9|Joshua 1:9]]).
 
 In the name of the Lord Jesus Christ, amen.
-
-
 
 
 

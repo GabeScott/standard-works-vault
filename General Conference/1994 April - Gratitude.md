@@ -22,7 +22,7 @@ This clearly puts into perspective the importance of us, his children, in the pl
 
 “When the morning stars sang together, and all the sons of God shouted for joy?” ([[Job 38.4|Job 38:4–7]][[Job 38.5|]][[Job 38.6|]][[Job 38.7|]].)
 
-Brothers and sisters, we were in that council in heaven when this plan was introduced, and we were happy for the privilege and opportunity and blessing of coming to earth to receive bodies, which would permit us to have experiences for good or for evil. My brothers and sisters, how grateful we are to have had part in this plan of redemption rather than to feel as Paul told the Corinthians, “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Cor. 15:19]]). Are we willing to give thanks for blessings and knowledge received?
+Brothers and sisters, we were in that council in heaven when this plan was introduced, and we were happy for the privilege and opportunity and blessing of coming to earth to receive bodies, which would permit us to have experiences for good or for evil. My brothers and sisters, how grateful we are to have had part in this plan of redemption rather than to feel as Paul told the Corinthians, “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Cor. 15:19]]). Are we willing to give thanks for blessings and knowledge received?
 
 I believe one of the greatest sins that we, the children of our Heavenly Father, are guilty of is the sin of ingratitude. President Joseph F. Smith said in one of his talks that when a man who has been blessed with additional gifts or greater intellect rises to the acclaim and success of his fellowmen, ofttimes he will attribute his success to his own energies, labors, and mental capabilities. Rather than acknowledge the hand of God in anything connected with his success, he ignores Him altogether and takes the honor to himself (see *Journal of Discourses,* 25:53).
 
@@ -69,8 +69,6 @@ God help us to be grateful for our blessings, never to be guilty of the sin of i
 This great principle of gratitude, made a daily part of our lives and our prayers, can lift and bless us as individuals, as members of the Church, and as parents and families.
 
 This testimony, and with a love unfeigned to all the special children of our Heavenly Father, I bear humbly and in the name of Jesus Christ, amen.
-
-
 
 
 

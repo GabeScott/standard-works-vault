@@ -6,7 +6,7 @@ By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/04/the-resurrected-christ?lang=eng)
 
-On this glorious Easter morning, I rejoice with you and untold millions of people throughout the world whose hearts are turned to Jesus of Nazareth. To the Samaritan woman at Jacob’s Well who said, “I know that Messias cometh … : when he is come, he will tell us all things” came Christ’s declaration, “I that speak unto thee am he.” ([[John 4.25|John 4:25–26]][[John 4.26|]].)
+On this glorious Easter morning, I rejoice with you and untold millions of people throughout the world whose hearts are turned to Jesus of Nazareth. To the Samaritan woman at Jacob’s Well who said, “I know that Messias cometh … : when he is come, he will tell us all things” came Christ’s declaration, “I that speak unto thee am he.” ([[John 4.25|John 4:25–26]][[John 4.26|]].)
 
 Many of the heavenly directed events leading up to and following the crucifixion of our Lord have been narrated by the early Apostles and other witnesses.
 
@@ -80,11 +80,11 @@ And Jesus said unto him, “Thomas, because thou hast seen me, thou hast believe
 
 Perhaps no clearer declaration of fact has ever been made than those which tell of the literal resurrection of Christ. The record of appearances to the Apostles during the forty days following his resurrection—as a group or separately, to teach them “the things pertaining to the kingdom of God” ([[Acts 1.3|Acts 1:3]])—leaves no cause for doubt. John informs us that “there are also many other things which Jesus did, the which, if they should be written, … even the world itself could not contain the books that should be written.” ([[John 21.25|John 21:25]].)
 
-Shortly after Jesus’ appearance to the disciples on the Eastern Hemisphere, he appeared to the Nephites on the Western Hemisphere. God himself introduced his Son to the multitude: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
+Shortly after Jesus’ appearance to the disciples on the Eastern Hemisphere, he appeared to the Nephites on the Western Hemisphere. God himself introduced his Son to the multitude: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
 
-“The people beheld a Man, clothed in a white robe, who descended and stood among them. He spake, saying: ‘Behold, I am Jesus Christ, whom the prophets testified shall come into the world; and behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.’ \[[[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].\] The multitude \[knelt\] in adoration for they remembered that their prophets had foretold that the Lord would appear among them after His resurrection and ascension.
+“The people beheld a Man, clothed in a white robe, who descended and stood among them. He spake, saying: ‘Behold, I am Jesus Christ, whom the prophets testified shall come into the world; and behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.’ \[[[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].\] The multitude \[knelt\] in adoration for they remembered that their prophets had foretold that the Lord would appear among them after His resurrection and ascension.
 
-“As He directed, the people arose, and one by one came to Him, and did see and feel the prints of the nails in His hands and feet and the spear-wound in His side. … With one accord they cried: “Hosanna! blessed be the name of the Most High God!” \[[[3 Nephi 11.17|3 Ne. 11:17]].\] Then, falling at the feet of Jesus, they worshiped Him.” (James E. Talmage, *Jesus the Christ,* Salt Lake City: Deseret Book Co., 1916, p. 725.)
+“As He directed, the people arose, and one by one came to Him, and did see and feel the prints of the nails in His hands and feet and the spear-wound in His side. … With one accord they cried: “Hosanna! blessed be the name of the Most High God!” \[[[3 Nephi 11.17|3 Ne. 11:17]].\] Then, falling at the feet of Jesus, they worshiped Him.” (James E. Talmage, *Jesus the Christ,* Salt Lake City: Deseret Book Co., 1916, p. 725.)
 
 When Joseph Smith was visited by the Father and the resurrected Christ in 1820, the latter was introduced by the Father, “This is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|JS—H 1:17]]), thus ushering in the marvelous events of the restoration of the gospel of Jesus Christ.
 
@@ -105,6 +105,4 @@ Now, these fragmentary events which I have briefly portrayed bear record and wit
 
 
 
-
-
-#Jesus_Christ #Resurrection
+#JesusChrist #Resurrection

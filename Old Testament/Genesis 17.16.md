@@ -5,5 +5,5 @@
 [Genesis 17:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.16?lang=eng#p16)
 
 
-[^a]: [[God, Gifts of|TG God, Gifts of]].
-[^b]: [[Genesis 24.60|Gen. 24:60]]; [[Genesis 25.23|25:23]]. [[Marriage, Motherhood|TG Marriage, Motherhood]]; [[Seed of Abraham|Seed of Abraham]].
+[^a]: [[God, Gifts of|TG God, Gifts of]].  
+[^b]: [[Genesis 24.60|Gen. 24:60]]; [[Genesis 25.23|25:23]]. [[Marriage, Motherhood|TG Marriage, Motherhood]]; [[Seed of Abraham|Seed of Abraham]].  

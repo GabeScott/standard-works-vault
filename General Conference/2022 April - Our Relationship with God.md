@@ -1,6 +1,6 @@
 # Our Relationship with God
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -18,7 +18,7 @@ In His response to Job, God demands, “Wilt thou condemn me, that thou mayest b
 
 “I know that thou canst do every thing,” he said, “and that no thought can be withholden from thee.
 
-“… I uttered that I understood not; things too wonderful for me, which I knew not. …
+“… I uttered that I understood not; things too wonderful for me, which I knew not. …
 
 “Wherefore I abhor myself, and repent in dust and ashes.”[^4]
 
@@ -66,7 +66,7 @@ The Prophet Joseph Smith languished in jail at Liberty, Missouri, powerless to h
 
 In the end, Joseph could declare with Job, “Though \[God\] slay me, yet will I trust in him.”[^32]
 
-Elder Brook P. Hales related the story of Sister Patricia Parkinson, who was born with normal eyesight but by age 11 had gone blind.
+Elder Brook P. Hales related the story of Sister Patricia Parkinson, who was born with normal eyesight but by age 11 had gone blind.
 
 Elder Hales recounted: “I’ve known Pat for many years and recently told her that I admired the fact that she is always positive and happy. She responded, ‘Well, you have not been at home with me, have you? I have my moments. I’ve had rather severe bouts of depression, and I’ve cried a lot.’ However, she added, ‘From the time I started losing my sight, it was strange, but I knew that Heavenly Father and the Savior were with my family and me. … To those who ask me if I am angry because I am blind, I respond, ‘Who would I be angry with? Heavenly Father is in this with me; I am not alone. He is with me all the time.’”[^33]
 
@@ -105,11 +105,11 @@ In the name of Jesus Christ, amen.
 
 [^12]: See [[D&C 130.20|Doctrine and Covenants 130:20–21]][[D&C 130.21|]].
 
-[^13]: Brigham Young, “Instructions,” *Deseret News*, Nov. 21, 1855, 290; emphasis added.
+[^13]: Brigham Young, “Instructions,” *Deseret News*, Nov. 21, 1855, 290; emphasis added.
 
 [^14]: [[Ether 12.4|Ether 12:4]].
 
-[^15]: See [[Mosiah 3.19|Mosiah 3:19]]; see also Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32; *Liahona*, Jan. 2001, 40.
+[^15]: See [[Mosiah 3.19|Mosiah 3:19]]; see also Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32; *Liahona*, Jan. 2001, 40.
 
 [^16]: [[Romans 8.17|Romans 8:17]].
 
@@ -117,9 +117,9 @@ In the name of Jesus Christ, amen.
 
 [^18]: [[Romans 8.17|Romans 8:17]]; emphasis added.
 
-[^19]: See [[1 Corinthians 13.12|1 Corinthians 13:12]].
+[^19]: See [[1 Corinthians 13.12|1 Corinthians 13:12]].
 
-[^20]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
+[^20]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
 
 [^21]: [[D&C 45.3|Doctrine and Covenants 45:3–5]][[D&C 45.4|]][[D&C 45.5|]]; emphasis added.
 
@@ -145,9 +145,10 @@ In the name of Jesus Christ, amen.
 
 [^32]: [[Job 13.15|Job 13:15]].
 
-[^33]: Brook P. Hales, “[[2019 April - Answers to Prayer.md|Answers to Prayer]],” *Ensign* or *Liahona*, May 2019, 14.
+[^33]: Brook P. Hales, “[[2019 April - Answers to Prayer.md|Answers to Prayer]],” *Ensign* or *Liahona*, May 2019, 14.
 
 [^34]: [[Romans 8.18|Romans 8:18]].
 
+[^35]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
-#Adversity #Faith #God_The_Father #Jesus_Christ #Trust
+#Adversity #Faith #GodTheFather #JesusChrist #Trust

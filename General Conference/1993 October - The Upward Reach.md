@@ -63,7 +63,7 @@ As a boy, Jesus was found “in the temple, sitting in the midst of the doctors,
 
 “And all that heard him were astonished at his understanding and answers.
 
-“And when \[Joseph and His mother\] saw him, they were amazed. …
+“And when \[Joseph and His mother\] saw him, they were amazed. …
 
 “And Jesus increased in wisdom and stature, and in favour with God and man.”[^4]
 
@@ -116,11 +116,11 @@ To all the Aaronic Priesthood assembled tonight with your fathers and your leade
 
 
 
-[^1]: In Conference Report, Apr. 1977, pp. 50–51; or *Ensign,* May 1977, p. 36.
+[^1]: In Conference Report, Apr. 1977, [[1977 April - Presentation of Scouting Award.md|pp. 50–5]]1; or *Ensign,* May 1977, p. 36.
 
 [^2]: *Central Christian Monitor.*
 
-[^3]: [[1 Samuel 3.4|1 Sam. 3:4, 10, 19]][[1 Samuel 3.10|]][[1 Samuel 3.19|]].
+[^3]: [[1 Samuel 3.4|1 Sam. 3:4, 10, 19]][[1 Samuel 3.10|]][[1 Samuel 3.19|]].
 
 [^4]: [[Luke 2.46|Luke 2:46–48, 52]][[Luke 2.47|]][[Luke 2.48|]][[Luke 2.52|]].
 
@@ -128,16 +128,14 @@ To all the Aaronic Priesthood assembled tonight with your fathers and your leade
 
 [^6]: [[Matthew 26.73|Matt. 26:73]].
 
-[^7]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^7]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
-[^8]: [[2 Peter 3.11|2 Pet. 3:11]].
+[^8]: [[2 Peter 3.11|2 Pet. 3:11]].
 
-[^9]: [[3 Nephi 27.27|3 Ne. 27:27]].
+[^9]: [[3 Nephi 27.27|3 Ne. 27:27]].
 
 [^10]: [[Alma 37.47|Alma 37:47]].
 
-[^11]: Harry Kemp, “God the Architect,” in Caroline Miles Hill, ed., *The World’s Great Religious Poetry* (New York: Macmillan, 1923), p. 211.
-
-
+[^11]: Harry Kemp, “God the Architect,” in Caroline Miles Hill, ed., *The World’s Great Religious Poetry* (New York: Macmillan, 1923), p. 211.
 
 #Priesthood #Scouting #Youth

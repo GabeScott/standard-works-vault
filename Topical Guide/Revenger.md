@@ -1,6 +1,5 @@
 # Revenger
 
-
 *See also* [[Avenger.md|Avenger]]
 
 *revenger* of blood himself shall slay the murderer, [[Numbers 35.19|Numbers 35:19]].

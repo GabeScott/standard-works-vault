@@ -1,6 +1,5 @@
 # Molten
 
-
 they have made them a *molten* calf, [[Exodus 32.8|Exodus 32:8]] ([[Nehemiah 9.18|Nehemiah 9:18]]; [[Psalms 106.19|Psalms 106:19]]).
 
 Thou shalt make thee no *molten* gods, [[Exodus 34.17|Exodus 34:17]].

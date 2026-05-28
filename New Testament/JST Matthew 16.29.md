@@ -4,6 +4,3 @@
 
 [JST Matthew 16:29](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/16?lang=eng)
 
-
-
-

@@ -54,7 +54,7 @@ Though the Nauvoo Temple was destroyed by fire, it served its sacred purposes.[^
 
 Throughout the world, members of the Church faithfully prepare family records for use in our many temples. When ordinances are performed there, further documentation is required because the Lord said:
 
-“When any of you are baptized for your dead, let there be a recorder, and let him be eye-witness of your baptisms; …
+“When any of you are baptized for your dead, let there be a recorder, and let him be eye-witness of your baptisms; …
 
 “That in all your recordings it may be recorded in heaven; whatsoever you bind on earth, may be bound in heaven; whatsoever you loose on earth, may be loosed in heaven.”[^23]
 
@@ -64,7 +64,7 @@ Then the Prophet Joseph added, “Whatsoever you do not record on earth shall no
 
 ## Elijah and Keys of Priesthood Authority
 
-In 1844, Joseph Smith asked, “What is this office and work of Elijah?” The Prophet promptly answered his own question: “It is one of the greatest and most important subjects that God has revealed. …
+In 1844, Joseph Smith asked, “What is this office and work of Elijah?” The Prophet promptly answered his own question: “It is one of the greatest and most important subjects that God has revealed. …
 
 “… This is the spirit of Elijah, that we redeem our dead, and connect ourselves with our fathers which are in heaven. … This is the power of Elijah and the keys of the kingdom of Jehovah.”[^27]
 
@@ -76,7 +76,7 @@ Joseph Smith’s responsibility was to “lay the foundation”[^29] for this gr
 
 ## One Hundredth Anniversary of the Genealogical Society of Utah
 
-That revelation in April led to the organization of the Genealogical Society of Utah the following November 13, 1894. Its objectives were “to establish and maintain a Genealogical Library … ; to teach members how to compile acceptable family records and to trace their pedigrees; and to foster temple ordinances.”[^31] Events of that historic year established family history research and temple service as *one work* in the Church.
+That revelation in April led to the organization of the Genealogical Society of Utah the following November 13, 1894. Its objectives were “to establish and maintain a Genealogical Library … ; to teach members how to compile acceptable family records and to trace their pedigrees; and to foster temple ordinances.”[^31] Events of that historic year established family history research and temple service as *one work* in the Church.
 
 In the century since then, much has been accomplished. More and more people are becoming excited about discovering their roots, and the Church is doing its best to help them. The Church adopted the term *family history* to encourage this activity among *all* its members, especially those who might be intimidated by the word *genealogy.* In addition, 2,150 busy and productive family history centers have been established throughout the world. For example, the FamilySearch® Center in the Joseph Smith Memorial Building has served hundreds of thousands of visitors, at least two-thirds of whom have found something in the computer file about their ancestors.
 
@@ -117,19 +117,19 @@ No mortal mind could have conceived this divine work. It is evidence of the rest
 
 [^1]: [[D&C 138.57|D&C 138:57]].
 
-[^2]: Spencer W. Kimball, “The Things of Eternity—Stand We in Jeopardy?” *Ensign,* Jan. 1977, p. 3.
+[^2]: Spencer W. Kimball, “The Things of Eternity—Stand We in Jeopardy?” *Ensign,* Jan. 1977, p. 3.
 
-[^3]: [[2 Kings 2.15|2 Kgs. 2:15]].
+[^3]: [[2 Kings 2.15|2 Kgs. 2:15]].
 
-[^4]: [[John 3.5|John 3:5]]. See also [[Mark 16.16|Mark 16:16]]; [[D&C 5.16|D&C 5:16]]; [[Moses 6.59|Moses 6:59]]. Jesus himself was baptized “to fulfil all righteousness” ([[Matthew 3.15|Matt. 3:15]]; [[2 Nephi 31.5|2 Ne. 31:5–6]][[2 Nephi 31.6|]]).
+[^4]: [[John 3.5|John 3:5]]. See also [[Mark 16.16|Mark 16:16]]; [[D&C 5.16|D&C 5:16]]; [[Moses 6.59|Moses 6:59]]. Jesus himself was baptized “to fulfil all righteousness” ([[Matthew 3.15|Matt. 3:15]]; [[2 Nephi 31.5|2 Ne. 31:5–6]][[2 Nephi 31.6|]]).
 
-[^5]: See [[1 Peter 4.6|1 Pet. 4:6]]; [[D&C 138.10|D&C 138:10–37]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]].
+[^5]: See [[1 Peter 4.6|1 Pet. 4:6]]; [[D&C 138.10|D&C 138:10–37]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]].
 
-[^6]: [[1 Corinthians 15.29|1 Cor. 15:29]]; see also *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 179.
+[^6]: [[1 Corinthians 15.29|1 Cor. 15:29]]; see also *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 179.
 
 [^7]: Especially from 1823 through 1827; see [[Joseph Smith History 1.27|JS—H 1:27–59]][[Joseph Smith History 1.28|]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.43|]][[Joseph Smith History 1.44|]][[Joseph Smith History 1.45|]][[Joseph Smith History 1.46|]][[Joseph Smith History 1.47|]][[Joseph Smith History 1.48|]][[Joseph Smith History 1.49|]][[Joseph Smith History 1.50|]][[Joseph Smith History 1.51|]][[Joseph Smith History 1.52|]][[Joseph Smith History 1.53|]][[Joseph Smith History 1.54|]][[Joseph Smith History 1.55|]][[Joseph Smith History 1.56|]][[Joseph Smith History 1.57|]][[Joseph Smith History 1.58|]][[Joseph Smith History 1.59|]].
 
-[^8]: Later Joseph Smith said that “the word *turn* here should be translated *bind,* or *seal”* (*Teachings of the Prophet Joseph Smith,* p. 330).
+[^8]: Later Joseph Smith said that “the word *turn* here should be translated *bind,* or *seal”* (*Teachings of the Prophet Joseph Smith,* p. 330).
 
 [^9]: [[D&C 2.1|D&C 2:1–3]][[D&C 2.2|]][[D&C 2.3|]].
 
@@ -139,11 +139,11 @@ No mortal mind could have conceived this divine work. It is evidence of the rest
 
 [^12]: [[D&C 110.16|D&C 110:16]].
 
-[^13]: See [[1 Nephi 13.26|1 Ne. 13:26, 28–29, 32, 34–35, 40]][[1 Nephi 13.28|]][[1 Nephi 13.29|]][[1 Nephi 13.32|]][[1 Nephi 13.34|]][[1 Nephi 13.35|]][[1 Nephi 13.40|]].
+[^13]: See [[1 Nephi 13.26|1 Ne. 13:26, 28–29, 32, 34–35, 40]][[1 Nephi 13.28|]][[1 Nephi 13.29|]][[1 Nephi 13.32|]][[1 Nephi 13.34|]][[1 Nephi 13.35|]][[1 Nephi 13.40|]].
 
 [^14]: [[Acts 3.21|Acts 3:21]].
 
-[^15]: In Conference Report, Oct. 1971, p. 54; or *Ensign,* Dec. 1971, pp. 71–72.
+[^15]: In Conference Report, Oct. 1971, [[1971 October - Elijah the Prophet.md|p. 54]]; or *Ensign,* Dec. 1971, pp. 71–72.
 
 [^16]: [[Obadiah 1.21|Obad. 1:21]].
 
@@ -157,7 +157,7 @@ No mortal mind could have conceived this divine work. It is evidence of the rest
 
 [^21]: [[D&C 124.32|D&C 124:32]]; emphasis added.
 
-[^22]: On November 8, 1841, the baptismal font “was dedicated by Brigham Young. It was first used two weeks later when Elders Brigham Young, Heber C. Kimball, and John Taylor performed forty baptisms for the dead” (*Church History in the Fulness of Times* \[Church Educational System manual, 1989\], p. 252).
+[^22]: On November 8, 1841, the baptismal font “was dedicated by Brigham Young. It was first used two weeks later when Elders Brigham Young, Heber C. Kimball, and John Taylor performed forty baptisms for the dead” (*Church History in the Fulness of Times* \[Church Educational System manual, 1989\], p. 252).
 
 [^23]: [[D&C 127.6|D&C 127:6–7]][[D&C 127.7|]].
 
@@ -167,15 +167,15 @@ No mortal mind could have conceived this divine work. It is evidence of the rest
 
 [^26]: [[D&C 128.8|D&C 128:8]].
 
-[^27]: *Teachings of the Prophet Joseph Smith,* pp. 337–38.
+[^27]: *Teachings of the Prophet Joseph Smith,* pp. 337–38.
 
 [^28]: [[D&C 128.15|D&C 128:15]]; see also [[D&C 128.18|D&C 128:18]].
 
 [^29]: [[D&C 1.30|D&C 1:30]]; [[D&C 21.2|21:2]]; [[D&C 124.118|124:118]].
 
-[^30]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (Salt Lake City: Bookcraft, 1965–75), 3:256–57; see also *Deseret Semi-Weekly News,* 17 Apr. 1894, p. 1.
+[^30]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (Salt Lake City: Bookcraft, 1965–75), 3:256–57; see also *Deseret Semi-Weekly News,* 17 Apr. 1894, p. 1.
 
-[^31]: Archibald F. Bennett, “The Genealogical Society of Utah,” *Improvement Era,* Apr. 1935, p. 225.
+[^31]: Archibald F. Bennett, “The Genealogical Society of Utah,” *Improvement Era,* Apr. 1935, p. 225.
 
 [^32]: President Ezra Taft Benson and his Counselors issued this statement: “In considering ordinances for the deceased, we need not attempt to determine individual worthiness, whether an ordinance will be accepted, or the probable feelings of other deceased individuals affected by the proposed ordinance. … These determinations must, of necessity, be made beyond the veil” (First Presidency letter, 8 Dec. 1988).
 
@@ -187,16 +187,14 @@ No mortal mind could have conceived this divine work. It is evidence of the rest
 
 [^36]: President Joseph Fielding Smith wrote: *“We are not going to do the temple work for everybody because it does not pertain to them. We are going to do the temple work for those who are entitled, through their faith and their repentance, to enter into the celestial kingdom.* … I do not know whether one man is worthy and another is not. The Lord has given us the privilege of doing the work for all of *our kindred”* (*Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. \[Salt Lake City: Bookcraft, 1954–55\], 2:191).
 
-[^37]: *Records Submission Manual,* 4th ed. (Salt Lake City: Genealogical Society of The Church of Jesus Christ of Latter-day Saints, 1973), p. 16.
+[^37]: *Records Submission Manual,* 4th ed. (Salt Lake City: Genealogical Society of The Church of Jesus Christ of Latter-day Saints, 1973), p. 16.
 
-[^38]: Quoted in *Ensign,* July 1994, p. 5.
+[^38]: Quoted in *Ensign,* July 1994, p. 5.
 
 [^39]: See Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (Salt Lake City: Bookcraft, 1954–55), 2:76; Bruce R. McConkie, *The Mortal Messiah,* 4 vols. (Salt Lake City: Deseret Book Co., 1979–81), 3:188.
 
-[^40]: See [[2 Nephi 9.41|2 Ne. 9:41]]; [[Alma 41.3|Alma 41:3]]; [[D&C 137.9|D&C 137:9]].
+[^40]: See [[2 Nephi 9.41|2 Ne. 9:41]]; [[Alma 41.3|Alma 41:3]]; [[D&C 137.9|D&C 137:9]].
 
 [^41]: [[D&C 128.24|D&C 128:24]].
 
-
-
-#Agency #Family_History #Ordinances #Temple_Work
+#Agency #FamilyHistory #Ordinances #TempleWork

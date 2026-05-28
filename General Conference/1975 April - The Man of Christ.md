@@ -1,6 +1,6 @@
 # The Man of Christ
 
-By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
+By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -14,7 +14,7 @@ Regarding events in the world, “the man of Christ” sees trends around him �
 
 He believes deeply in the Beatitudes, but also in those doctrines which tell him “who” Jesus is. He does not divorce the Sermon on the Mount from the sermon at Capernaum with its hard teachings which caused many to walk “no more with” Jesus. ([[John 6.66|John 6:66]].) These latter doctrines are likewise a part of the bracing breeze of the scriptures which must be played upon the fevered brow of mankind.
 
-He knows that “the gate of heaven is open unto all,” but that the Man of Galilee will finally judge each of us on the basis of a rigorous celestial theology, instead of the popular “no-fault theology” of this telestial world—for Jesus is the gatekeeper “and he employeth no servant there.” ([[2 Nephi 9.41|2 Ne. 9:41]].)
+He knows that “the gate of heaven is open unto all,” but that the Man of Galilee will finally judge each of us on the basis of a rigorous celestial theology, instead of the popular “no-fault theology” of this telestial world—for Jesus is the gatekeeper “and he employeth no servant there.” ([[2 Nephi 9.41|2 Ne. 9:41]].)
 
 “The man of Christ” knows that a loving, living, and revealing God did not, as some imply, suddenly lose interest in mankind about a.d. 100, grow bored, and wander off into space. The disciple worships an unchanging God, and proclaims that the good tidings are brought anew; for the gospel is not merely a gospel for one age, for one people, or for one place—it is a gospel for the galaxies!
 
@@ -83,8 +83,6 @@ For an example of the love Jesus called “greater love,” he can reflect on th
 Yes, the spirit of sacrifice is alive and well among those who travel *the* way!
 
 May each of us, brothers and sisters, navigate that straight and narrow way, landing our immortal souls “at the right hand of God in the kingdom of heaven.” ([[Helaman 3.30|Hel. 3:30]].) Only then, when we are really home, will our mortal homesickness disappear—our highest human yearnings for *what could be* are but muffled memories of *what once was*—and *will again be*—for we have indeed “wandered from a more exalted sphere.” (*Hymns,* no. 138.) May we make that journey I so pray in the name of Him who has completed this same journey and who beckons us onward, Jesus Christ. Amen.
-
-
 
 
 

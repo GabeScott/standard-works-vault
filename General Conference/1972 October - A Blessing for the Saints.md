@@ -1,6 +1,6 @@
 # A Blessing for the Saints
 
-By President Harold B. Lee - *President of the Church*
+By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -16,7 +16,7 @@ In the midst of similar circumstances the Prophet Joseph Smith was in the Libert
 
 “Therefore, that we should waste and wear out our lives in bringing to light all the hidden things of darkness, wherein we know them; and they are truly manifest from heaven—
 
-“These should then be attended to with great earnestness. …
+“These should then be attended to with great earnestness. …
 
 “You know, brethren,” he wrote, “that a very large ship is benefited very much by a very small helm in the time of a storm, by being kept workways with the wind and the waves.
 
@@ -49,8 +49,6 @@ My love goes out to my own family, to my associates, to all within the sound of 
 God be with you. I have the same feeling as perhaps the Master had when he bid goodbye to the Nephites. He said he perceived that they were weak, but if they would go to their homes and ponder what he said, he would come again and instruct them on other occasions. So likewise, you cannot absorb all that you have heard and that we have talked about, but go to your homes now and remember what you can, and get the spirit of what has been done and said, and when you come again, or we come to you, we will try to help you further with your problems.
 
 I bear you my witness to these things and leave you my blessing in the name of the Lord, Jesus Christ. Amen.
-
-
 
 
 

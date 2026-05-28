@@ -1,4 +1,3 @@
 # Liar
 
-
-*See* [[Lying, Liar, Lie.md|Lying]]
+*See also* [[Lying.md|Lying]]

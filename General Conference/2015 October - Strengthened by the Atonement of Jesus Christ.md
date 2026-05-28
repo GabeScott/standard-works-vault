@@ -1,6 +1,6 @@
 # Strengthened by the Atonement of Jesus Christ
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -14,13 +14,13 @@ In mortality we have the certainty of death and the burden of sin. The Atonement
 
 Most scriptural accounts of the Atonement concern the Savior’s breaking the bands of death and suffering for our sins. In his sermon recorded in the Book of Mormon, Alma taught these fundamentals. But he also provided our clearest scriptural assurances that the Savior also experienced the pains and sicknesses and infirmities of His people.
 
-Alma described this part of the Savior’s Atonement: “And he shall go forth, suffering pains and afflictions and temptations of every kind; and this that the word might be fulfilled which saith he will take upon him the pains and the sicknesses of his people” ([[Alma 7.11|Alma 7:11]]; also see [[2 Nephi 9.21|2 Nephi 9:21]]).
+Alma described this part of the Savior’s Atonement: “And he shall go forth, suffering pains and afflictions and temptations of every kind; and this that the word might be fulfilled which saith he will take upon him the pains and the sicknesses of his people” ([[Alma 7.11|Alma 7:11]]; also see [[2 Nephi 9.21|2 Nephi 9:21]]).
 
-Think of it! In the Savior’s Atonement, He suffered “pains and afflictions and temptations of every kind.” As President Boyd K. Packer explained: “He had no debt to pay. He had committed no wrong. Nevertheless, an accumulation of all of the guilt, the grief and sorrow, the pain and humiliation, all of the mental, emotional, and physical torments known to man—He experienced them all.”[^1]
+Think of it! In the Savior’s Atonement, He suffered “pains and afflictions and temptations of every kind.” As President Boyd K. Packer explained: “He had no debt to pay. He had committed no wrong. Nevertheless, an accumulation of all of the guilt, the grief and sorrow, the pain and humiliation, all of the mental, emotional, and physical torments known to man—He experienced them all.”[^1]
 
 Why did He suffer these mortal challenges “of every kind”? Alma explained, “And he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people according to their infirmities” ([[Alma 7.12|Alma 7:12]]).
 
-For example, the Apostle Paul declared that because the Savior “hath suffered being tempted, he is able to succour them that are tempted” ([[Hebrews 2.18|Hebrews 2:18]]). Similarly, President James E. Faust taught, “Since the Savior has suffered anything and everything that we could ever feel or experience, He can help the weak to become stronger.”[^2]
+For example, the Apostle Paul declared that because the Savior “hath suffered being tempted, he is able to succour them that are tempted” ([[Hebrews 2.18|Hebrews 2:18]]). Similarly, President James E. Faust taught, “Since the Savior has suffered anything and everything that we could ever feel or experience, He can help the weak to become stronger.”[^2]
 
 Our Savior experienced and suffered the fulness of all mortal challenges “according to the flesh” so He could know “according to the flesh” how to “succor \[which means to give relief or aid to\] his people according to their infirmities.” He therefore knows our struggles, our heartaches, our temptations, and our suffering, for He willingly experienced them all as an essential part of His Atonement. And because of this, His Atonement empowers Him to succor us—to give us the strength to bear it all.
 
@@ -28,13 +28,17 @@ Our Savior experienced and suffered the fulness of all mortal challenges “acco
 
 While Alma’s teaching in the [[Alma 7.11|seventh chapter]][[Alma 7.12|]][[Alma 7.13|]] is the single clearest of all the scriptures on this essential power of the Atonement, it is also taught throughout holy writ.
 
-At the beginning of His ministry, Jesus explained that He was sent “to heal the brokenhearted” ([[Luke 4.18|Luke 4:18]]). The Bible often tells us of His healing people “of their infirmities” ([[Luke 5.15|Luke 5:15]]; [[Luke 7.21|7:21]]). The Book of Mormon records His healing those “that were afflicted in any manner” ([[3 Nephi 17.9|3 Nephi 17:9]]). The Gospel of Matthew explains that Jesus healed the people “that it might be fulfilled which was spoken by Esaias the prophet, saying, Himself took our infirmities, and bare our sicknesses” ([[Matthew 8.17|Matthew 8:17]]).
+At the beginning of His ministry, Jesus explained that He was sent “to heal the brokenhearted” ([[Luke 4.18|Luke 4:18]]). The Bible often tells us of His healing people “of their infirmities” ([[Luke 5.15|Luke 5:15]]; [[Luke 7.21|7:21]]). The Book of Mormon records His healing those “that were afflicted in any manner” ([[3 Nephi 17.9|3 Nephi 17:9]]). The Gospel of Matthew explains that Jesus healed the people “that it might be fulfilled which was spoken by Esaias the prophet, saying, Himself took our infirmities, and bare our sicknesses” ([[Matthew 8.17|Matthew 8:17]]).
 
 Isaiah taught that the Messiah would bear our “griefs” and our “sorrows” ([[Isaiah 53.4|Isaiah 53:4]]). Isaiah also taught of His strengthening us: “Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee” ([[Isaiah 41.10|Isaiah 41:10]]).
 
 Thus, we sing:
 
-Fear not, I am with thee; oh, be not dismayed,For I am thy God and will still give thee aid.I’ll strengthen thee, help thee, and cause thee to stand, …Upheld by my righteous, omnipotent hand.[^3]
+>Fear not, I am with thee; oh, be not dismayed,
+>For I am thy God and will still give thee aid.
+>I’ll strengthen thee, help thee, and cause thee to stand, …
+>Upheld by my righteous, omnipotent hand.[^3]
+>
 
 Speaking of some of his own mortal challenges, the Apostle Paul wrote, “I can do all things through Christ which strengtheneth me” ([[Philippians 4.13|Philippians 4:13]]).
 
@@ -62,7 +66,20 @@ Few disabilities are more crippling to our temporal or spiritual lives than addi
 
 I love the testimony of our poetess and friend Emma Lou Thayne. In words we now sing as a hymn, she wrote:
 
-Where can I turn for peace?Where is my solaceWhen other sources cease to make me whole?When with a wounded heart, anger, or malice,I draw myself apart,Searching my soul?Where, when my aching grows,Where, when I languish,Where, in my need to know, where can I run?Where is the quiet hand to calm my anguish?Who, who can understand?He, only One.*[^7]*
+>Where can I turn for peace?
+>Where is my solace
+>When other sources cease to make me whole?
+>When with a wounded heart, anger, or malice,
+>I draw myself apart,
+>Searching my soul?
+>
+>Where, when my aching grows,
+>Where, when I languish,
+>Where, in my need to know, where can I run?
+>Where is the quiet hand to calm my anguish?
+>Who, who can understand?
+>He, only One.*[^7]*
+>
 
 ## IV.
 
@@ -72,9 +89,9 @@ The word *people* has many meanings in the scriptures. The meaning most appropri
 
 Because of His atoning experience in mortality, our Savior is able to comfort, heal, and strengthen all men and women everywhere, but I believe He does so only for those who seek Him and ask for His help. The Apostle James taught, “Humble yourselves in the sight of the Lord, and he shall lift you up” ([[James 4.10|James 4:10]]). We qualify for that blessing when we believe in Him and pray for His help.
 
-There are millions of God-fearing people who pray to God to be lifted out of their afflictions. Our Savior has revealed that He “descended below all things” ([[D&C 88.6|D&C 88:6]]). As Elder Neal A. Maxwell taught, “Having ‘descended below all things,’ He comprehends, perfectly and personally, the full range of human suffering.”[^8] We might even say that having descended beneath it all, He is perfectly positioned to lift us and give us the strength we need to endure our afflictions. We have only to ask.
+There are millions of God-fearing people who pray to God to be lifted out of their afflictions. Our Savior has revealed that He “descended below all things” ([[D&C 88.6|D&C 88:6]]). As Elder Neal A. Maxwell taught, “Having ‘descended below all things,’ He comprehends, perfectly and personally, the full range of human suffering.”[^8] We might even say that having descended beneath it all, He is perfectly positioned to lift us and give us the strength we need to endure our afflictions. We have only to ask.
 
-Many times in modern revelation, the Lord declares, “Therefore, if you will ask of me you shall receive; if you will knock it shall be opened unto you” (for example, [[D&C 6.5|D&C 6:5]]; [[D&C 11.5|11:5]]; see also [[Matthew 7.7|Matthew 7:7]]). Indeed, because of Their all-encompassing love, our Heavenly Father and His Beloved Son, Jesus Christ, hear and suitably answer the prayers of all who seek Them in faith. As the Apostle Paul wrote, “We trust in the living God, who is the Saviour of all men, specially of those that believe” ([[1 Timothy 4.10|1 Timothy 4:10]]).
+Many times in modern revelation, the Lord declares, “Therefore, if you will ask of me you shall receive; if you will knock it shall be opened unto you” (for example, [[D&C 6.5|D&C 6:5]]; [[D&C 11.5|11:5]]; see also [[Matthew 7.7|Matthew 7:7]]). Indeed, because of Their all-encompassing love, our Heavenly Father and His Beloved Son, Jesus Christ, hear and suitably answer the prayers of all who seek Them in faith. As the Apostle Paul wrote, “We trust in the living God, who is the Saviour of all men, specially of those that believe” ([[1 Timothy 4.10|1 Timothy 4:10]]).
 
 I know these things to be true. Our Savior’s Atonement does more than assure us of immortality by a universal resurrection and give us the opportunity to be cleansed from sin by repentance and baptism. His Atonement also provides the opportunity to call upon Him who has experienced all of our mortal infirmities to give us the strength to bear the burdens of mortality. He knows of our anguish, and He is there for us. Like the good Samaritan, when He finds us wounded at the wayside, He will bind up our wounds and care for us (see [[Luke 10.34|Luke 10:34]]). The healing and strengthening power of Jesus Christ and His Atonement is for all of us who will ask. I testify of that as I also testify of our Savior, who makes it all possible.
 
@@ -83,19 +100,20 @@ One day all of these mortal burdens will pass away and there will be no more pai
 
 
 
-[^1]: Boyd K. Packer, “The Savior’s Selfless and Sacred Sacrifice,” *Ensign,* Apr. 2015, 40; *Liahona,* Apr. 2015, 38.
+[^1]: Boyd K. Packer, “The Savior’s Selfless and Sacred Sacrifice,” *Ensign,* Apr. 2015, 40; *Liahona,* Apr. 2015, 38.
 
-[^2]: James E. Faust, “The Atonement: Our Greatest Hope,” *Ensign,* Nov. 2001, 20; *Liahona,* Jan. 2002, 22.
+[^2]: James E. Faust, “The Atonement: Our Greatest Hope,” *Ensign,* Nov. 2001, 20; *Liahona,* Jan. 2002, 22.
 
 [^3]: “How Firm a Foundation,” *Hymns,* no. 85.
 
-[^4]: See, generally, Jeffrey R. Holland, *Christ and the New Covenant: The Messianic Message of the Book of Mormon* (1997), 223–34; David A. Bednar, [“The Atonement and the Journey of Mortality,”](https://churchofjesuschrist.org/study/ensign/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng) *Ensign,* Apr. 2012, 40–47; *Liahona,* Apr. 2012, 12–19; Bruce C. Hafen and Marie K. Hafen, “‘Fear Not, I Am with Thee’: The Redeeming, Strengthening, and Perfecting Blessings of Christ’s Atonement,” *Religious Educator,* vol. 16, no. 1 (2015), 11–31, especially 18–25; Tad R. Callister, *The Infinite Atonement* (2000), 206–10.
+[^4]: See, generally, Jeffrey R. Holland, *Christ and the New Covenant: The Messianic Message of the Book of Mormon* (1997), 223–34; David A. Bednar, “[The Atonement and the Journey of Mortality](https://www.churchofjesuschrist.org/study/ensign/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng),” *Ensign,* Apr. 2012, 40–47; *Liahona,* Apr. 2012, 12–19; Bruce C. Hafen and Marie K. Hafen, “‘Fear Not, I Am with Thee’: The Redeeming, Strengthening, and Perfecting Blessings of Christ’s Atonement,” *Religious Educator,* vol. 16, no. 1 (2015), 11–31, especially 18–25; Tad R. Callister, *The Infinite Atonement* (2000), 206–10.
 
 [^5]: “Come, Ye Disconsolate,” *Hymns,* no. 115.
 
-[^6]: From a 2014 letter received by Bishop Bobby O. Hales, who oversees the Henry Branch of the Central Utah Correctional Facility.
+[^6]: From a 2014 letter received by Bishop Bobby O. Hales, who oversees the Henry Branch of the Central Utah Correctional Facility.
 
 [^7]: “Where Can I Turn for Peace?” *Hymns,* no. 129.
 
+[^8]: Neal A. Maxwell, “Apply the Atoning Blood of Christ,” *Ensign,* Nov. 1997, 23.
 
-#Addiction #Atonement #Disabilities #Healing #Jesus_Christ
+#Addiction #Atonement #Disabilities #Healing #JesusChrist

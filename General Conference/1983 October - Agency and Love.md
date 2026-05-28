@@ -1,6 +1,6 @@
 # Agency and Love
 
-By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
+By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -18,7 +18,7 @@ Well, for one thing, the streets would be a maelstrom of frantic people trying t
 
 The condition of the world about us assures us that the unthinkable could happen; but it is not of such a cataclysm that I am thinking, but of our daily walk and our everyday relationships. They who love should manifest their love while there is a chance to do so. If we are waiting for some later time, some period when all imperfections are corrected and when all frustrations pass away, we are not wise. Resentment or pride or selfishness or impatience can lead us to miss what life is meant to be, and can be, and is for those who love and serve. To postpone loving and giving until some time of perfect freedom from distress or discomfort is a great mistake; it will not happen. It is not for this world.
 
-But we should be earnestly seeking and striving to correct and improve our own attitude and our own behavior. God has so ordained it. He loves us and believes in us and has done and will do anything he can to help us, but he will not impose on our free agency. “We love him,” says the scripture, “because he first loved us.” ([[1 John 4.19|1 Jn. 4:19]].) He does not love us because we love him; he loves us unconditionally. But his love does not take the course of negating or smothering our privilege to choose, or our responsibility to account for what we choose and to experience the consequences. Indeed, it is written that he weeps for the bad judgment of some of his willful and disobedient children:
+But we should be earnestly seeking and striving to correct and improve our own attitude and our own behavior. God has so ordained it. He loves us and believes in us and has done and will do anything he can to help us, but he will not impose on our free agency. “We love him,” says the scripture, “because he first loved us.” ([[1 John 4.19|1 Jn. 4:19]].) He does not love us because we love him; he loves us unconditionally. But his love does not take the course of negating or smothering our privilege to choose, or our responsibility to account for what we choose and to experience the consequences. Indeed, it is written that he weeps for the bad judgment of some of his willful and disobedient children:
 
 “Behold these thy brethren … are the workmanship of mine own hands, and I gave unto them their knowledge, in the day I created them; and in the Garden of Eden, gave I unto man his agency.” ([[Moses 7.32|Moses 7:32]].)
 
@@ -52,13 +52,13 @@ The loving Father who at such great cost has preserved our agency in and out of 
 
 “I have set before thee this day life and good, and death and evil;
 
-“In that I command thee this day to love the Lord thy God, to walk in his ways, and to keep his commandments and his statutes and his judgments, that thou mayest live and multiply. …
+“In that I command thee this day to love the Lord thy God, to walk in his ways, and to keep his commandments and his statutes and his judgments, that thou mayest live and multiply. …
 
 “I call heaven and earth to record this day against you, that I have set before you life and death, blessing and cursing: therefore choose life, that both thou and thy seed may live.” ([[Deuteronomy 30.15|Deut. 30:15–16, 19]][[Deuteronomy 30.16|]][[Deuteronomy 30.19|]].)
 
 It is written that “God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” ([[John 3.16|John 3:16]].) That holy Son died for us and gave us the wonderful example of his life, and nothing in that life touches my heart with greater impact than the manner in which he chose to live among us:
 
-“Forasmuch,” it is written, “as the children \[that is, we\] are partakers of flesh and blood, he also himself likewise took part of the same. …
+“Forasmuch,” it is written, “as the children \[that is, we\] are partakers of flesh and blood, he also himself likewise took part of the same. …
 
 “For verily he took not on him the nature of angels; but … took on him the seed of Abraham.
 
@@ -87,8 +87,6 @@ About the time of his anticipated arrival home, I telephoned. There was a brief 
 Whether or not that day ever occurs in our lifetime when the telephone lines may be especially busy, we should be thinking of the love we have and should express, and manifest it for those nearest us and for those round about, and for all others, and for our holy Savior and his father.
 
 Well may we sing, “I stand all amazed at the love Jesus offers me.” In the name of Jesus Christ, amen.
-
-
 
 
 

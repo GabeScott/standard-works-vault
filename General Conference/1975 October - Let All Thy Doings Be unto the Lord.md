@@ -1,6 +1,6 @@
 # Let All Thy Doings Be unto the Lord
 
-By Elder Gene R. Cook - *Of the First Council of the Seventy*
+By Elder Gene R. Cook - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -21,6 +21,4 @@ My brothers and sisters, I bear witness to you that this is the church of Jesus 
 
 
 
-
-
-#Missionary_Work
+#MissionaryWork

@@ -1,4 +1,3 @@
 # Strong Drink
 
-
-*See* [[Strong, Stronger, Strongest.md|Strong]]; [[Word of Wisdom.md|Word of Wisdom]]
+*See also* [[Strong.md|Strong]]; [[Word of Wisdom.md|Word of Wisdom]]

@@ -1,6 +1,6 @@
 # “Except the Lord Build the House …”
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -46,17 +46,17 @@ It was said of old that “a soft answer turneth away wrath.” ([[Proverbs 15.1
 
 We seldom get into trouble when we speak softly. It is only when we raise our voices that the sparks fly and tiny molehills become great mountains of contention. To me there has always been something significant in the description of the prophet Elijah’s contest with the priests of Baal. The scripture records that “a great and strong wind rent the mountains, and brake in pieces the rocks … but the Lord was not in the wind: and after the wind an earthquake; but the Lord was not in the earthquake:
 
-“And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice.” ([[1 Kings 19.11|1 Kgs. 19:11–12]][[1 Kings 19.12|]].)
+“And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice.” ([[1 Kings 19.11|1 Kgs. 19:11–12]][[1 Kings 19.12|]].)
 
 The voice of heaven is a still small voice; likewise, the voice of domestic peace is a quiet voice.
 
 There is need for a vast amount of discipline in marriage, not of one’s companion, but of one’s self.
 
-I know of few more meaningful statements for fathers and for fathers-to-be than this counsel given by President David O. McKay. Said he: “A father can do no greater thing for his children than to let them feel that he loves their mother.”
+I know of few more meaningful statements for fathers and for fathers-to-be than this counsel given by President David O. McKay. Said he: “A father can do no greater thing for his children than to let them feel that he loves their mother.”
 
 How much greater the peace in the homes of the people, how much greater the security in the lives of the children, how much less divorce and separation and misery, how much more gladness and joy and love there would be if husbands and wives would cultivate the discipline of speaking softly one to another, and if both would so speak to their children.
 
-Declared Paul: “… ye fathers, provoke not your children to wrath. …” ([[Ephesians 6.4|Eph. 6:4]].)
+Declared Paul: “… ye fathers, provoke not your children to wrath. …” ([[Ephesians 6.4|Eph. 6:4]].)
 
 I repeat, the voice of domestic peace is a gentle voice.
 
@@ -81,8 +81,6 @@ God then will be your partner, and your daily conversations with him will bring 
 Your children will know the security of a home where dwells the Spirit of the Lord. You will gather them together in that home, as the Church has counseled, and teach them in love. They will know parents who respect one another, and a spirit of respect will grow in their hearts. They will experience the security of the kind word softly spoken, and the tempests of their own lives will be stilled. They will know a father and mother who, living honestly with God, live honestly also with one another and with their fellowmen. They will grow up with a sense of appreciation, having heard their parents in prayer express gratitude for blessings great and small. They will mature with faith in the living God.
 
 The destroying angel of domestic bitterness will pass you by and you will know peace and love throughout your lives which may be extended into all eternity. I could wish for you no greater blessing, and for this I humbly pray in your behalf, in the name of Jesus Christ. Amen.
-
-
 
 
 

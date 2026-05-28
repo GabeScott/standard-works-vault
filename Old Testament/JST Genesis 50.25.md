@@ -4,6 +4,3 @@
 
 [JST Genesis 50:25](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gen/50?lang=eng)
 
-
-
-

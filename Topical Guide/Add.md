@@ -1,6 +1,5 @@
 # Add
 
-
 Ye shall not *add* unto the word which I command, [[Deuteronomy 4.2|Deuteronomy 4:2]].
 
 I will *add* unto thy days fifteen years, [[Isaiah 38.5|Isaiah 38:5]].

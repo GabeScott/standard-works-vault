@@ -1,6 +1,5 @@
 # Establish
 
-
 *See also* [[Stablish.md|Stablish]]
 
 I *establish* my covenant with you, [[Genesis 9.9|Genesis 9:9]].
@@ -25,7 +24,7 @@ by understanding hath he *established* the heavens, [[Proverbs 3.19|Proverbs 3:1
 
 Every purpose is *established* by counsel, [[Proverbs 20.18|Proverbs 20:18]].
 
-mountain of the Lord's house shall be *established*, [[Isaiah 2.2|Isaiah 2:2]] ([[Micah 4.1|Micah 4:1]]; [[2 Nephi 12.2|2 Nephi 12:2]]).
+mountain of the Lord’s house shall be *established*, [[Isaiah 2.2|Isaiah 2:2]] ([[Micah 4.1|Micah 4:1]]; [[2 Nephi 12.2|2 Nephi 12:2]]).
 
 churches *established* in the faith, [[Acts 16.5|Acts 16:5]].
 
@@ -33,7 +32,7 @@ we *establish* the law, [[Romans 3.31|Romans 3:31]].
 
 taketh away the first, that he may *establish* the second, [[Hebrews 10.9|Hebrews 10:9]].
 
-last records ... *establish* the truth of the first, [[1 Nephi 13.40|1 Nephi 13:40]].
+last records … *establish* the truth of the first, [[1 Nephi 13.40|1 Nephi 13:40]].
 
 began to *establish* a church, [[Alma 1.6|Alma 1:6]].
 

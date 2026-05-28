@@ -99,9 +99,9 @@ I bear solemn testimony that Jesus is the living Christ, our Savior and Redeemer
 
 [^6]: [[John 14.27|John 14:27]].
 
-[^7]: In Conference Report, Apr. 1979, 77; or *Ensign,* May 1979, 53.
+[^7]: In Conference Report, Apr. 1979, [[1979 April - The Refiner’s Fire.md|77]]; or *Ensign,* May 1979, 53.
 
-[^8]: In Conference Report, Apr. 1979, 77; or *Ensign,* May 1979, 54.
+[^8]: In Conference Report, Apr. 1979, [[1979 April - The Refiner’s Fire.md|77]]; or *Ensign,* May 1979, 54.
 
 [^9]: [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
 
@@ -117,16 +117,14 @@ I bear solemn testimony that Jesus is the living Christ, our Savior and Redeemer
 
 [^15]: [[D&C 90.24|D&C 90:24]].
 
-[^16]: In Conference Report, Apr. 1995, 95; or *Ensign,* May 1995, 71.
+[^16]: In Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|95]]; or *Ensign,* May 1995, 71.
 
 [^17]: [[Matthew 11.30|Matt. 11:30]].
 
-[^18]: [[2 Corinthians 4.8|2 Cor. 4:8–9]][[2 Corinthians 4.9|]].
+[^18]: [[2 Corinthians 4.8|2 Cor. 4:8–9]][[2 Corinthians 4.9|]].
 
 [^19]: [[D&C 121.1|D&C 121:1]].
 
 [^20]: [[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]].
 
-
-
-#Adversity #Commandments #God_The_Father #Jesus_Christ #Peace #Plan_Of_Salvation #Responsibility #Service #Spirituality
+#Adversity #Commandments #GodTheFather #JesusChrist #Peace #PlanOfSalvation #Responsibility #Service #Spirituality

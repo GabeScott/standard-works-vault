@@ -1,6 +1,6 @@
 # Jesus Christ Is the Treasure
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -18,7 +18,7 @@ Carter realized that the entire floor of the Valley of the Kings had been method
 
 When Carter eventually peered into the antechamber of Tutankhamun’s tomb, he saw gold everywhere. After three months of cataloging the contents of the antechamber, they opened the sealed burial chamber in February 1923—100 years ago. This was the most famous archaeological find of the 20th century. 
 
-During those years of ineffectual searching, Carter and Carnarvon had overlooked what was literally under their feet. Some five centuries before the Savior’s birth, the Book of Mormon prophet Jacob referred to taking for granted or undervaluing what is nearby as “looking beyond the mark.” Jacob foresaw that the people of Jerusalem would not recognize the promised Messiah when He came. Jacob prophesied that they would be a “people \[who\] despised the words of plainness … and \[would seek\] for things that they could not understand. Wherefore, because of their blindness, which blindness \[would come\] by looking beyond the mark, they must needs fall.”[^5] In other words, they would stumble.
+During those years of ineffectual searching, Carter and Carnarvon had overlooked what was literally under their feet. Some five centuries before the Savior’s birth, the Book of Mormon prophet Jacob referred to taking for granted or undervaluing what is nearby as “looking beyond the mark.” Jacob foresaw that the people of Jerusalem would not recognize the promised Messiah when He came. Jacob prophesied that they would be a “people \[who\] despised the words of plainness … and \[would seek\] for things that they could not understand. Wherefore, because of their blindness, which blindness \[would come\] by looking beyond the mark, they must needs fall.”[^5] In other words, they would stumble.
 
 Jacob’s prediction proved accurate. During Jesus’s mortal ministry, many looked beyond the mark, beyond Him. They looked past the Savior of the world. Instead of recognizing His role in fulfilling Heavenly Father’s plan, they condemned and crucified Him. They looked and waited for someone else to bring them salvation. 
 
@@ -55,36 +55,34 @@ I bear my solemn and sure witness that God, the Eternal Father, is our Heavenly 
 
 [^3]: Most of the New Kingdom pharaohs of Egypt were buried in the Valley of the Kings. Most of those tombs were found and robbed in antiquity. 
 
-[^4]: This account of the discovery of Tutankhamun’s tomb is primarily based on Eric H. Cline, “King Tut’s Tomb,” in *Archaeology: An Introduction to the World’s Greatest Sites* (2016), 60–66.
+[^4]: This account of the discovery of Tutankhamun’s tomb is primarily based on Eric H. Cline, “King Tut’s Tomb,” in *Archaeology: An Introduction to the World’s Greatest Sites* (2016), 60–66.
 
 [^5]: [[Jacob 4.14|Jacob 4:14]].
 
-[^6]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^6]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
 [^7]: See [[Moroni 7.27|Moroni 7:27–28]][[Moroni 7.28|]].
 
-[^8]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^8]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^9]: [[Alma 33.22|Alma 33:22]].
 
 [^10]: See [[D&C 76.52|Doctrine and Covenants 76:52]].
 
-[^11]: See David A. Bednar, “Teach to Build Faith in Jesus Christ” (address given at the seminar for new mission leaders, June 23, 2023); Rachel Sterzer Gibson, “Teach to Build Faith in Jesus Christ, Elder Bednar Instructs,” *Church News*, June 23, 2023, thechurchnews.com.
+[^11]: See David A. Bednar, “Teach to Build Faith in Jesus Christ” (address given at the seminar for new mission leaders, June 23, 2023); Rachel Sterzer Gibson, “Teach to Build Faith in Jesus Christ, Elder Bednar Instructs,” *Church News*, June 23, 2023, thechurchnews.com.
 
-[^12]: The sacrament was, however, not instituted as a specific means of securing a remission of our sins (see James E. Talmage, *The Articles of Faith*, 12th ed. \[1924\], 175). A person cannot willfully sin on Saturday evening and expect that all he or she needs to do is eat a piece of bread and drink a cup of water on Sunday and magically be cleansed. But the sanctifying effect of the Holy Ghost can cleanse all who repent with a sincere heart and with real intent. 
+[^12]: The sacrament was, however, not instituted as a specific means of securing a remission of our sins (see James E. Talmage, *The Articles of Faith*, 12th ed. \[1924\], 175). A person cannot willfully sin on Saturday evening and expect that all he or she needs to do is eat a piece of bread and drink a cup of water on Sunday and magically be cleansed. But the sanctifying effect of the Holy Ghost can cleanse all who repent with a sincere heart and with real intent. 
 
-[^13]: See [[3 Nephi 18.12|3 Nephi 18:12–13]][[3 Nephi 18.13|]].
+[^13]: See [[3 Nephi 18.12|3 Nephi 18:12–13]][[3 Nephi 18.13|]].
 
 [^14]: [[Mosiah 2.36|Mosiah 2:36]].
 
-[^15]: President Russell M. Nelson said: “God has a special love for each person who makes a covenant with Him in the waters of baptism. And that divine love deepens as additional covenants are made and faithfully kept” (“[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” \[worldwide devotional for young adults, May 15, 2022\], Gospel Library). The multiple covenants on the covenant path are not just sequential but additive and even synergistic. They facilitate a closer and stronger connection with God. Such a connection allows us to be transformed to the point that His image is in our countenances and our hearts have been mightily and permanently changed (see [[Alma 5.14|Alma 5:14]]).
+[^15]: President Russell M. Nelson said: “God has a special love for each person who makes a covenant with Him in the waters of baptism. And that divine love deepens as additional covenants are made and faithfully kept” (“[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” \[worldwide devotional for young adults, May 15, 2022\], Gospel Library). The multiple covenants on the covenant path are not just sequential but additive and even synergistic. They facilitate a closer and stronger connection with God. Such a connection allows us to be transformed to the point that His image is in our countenances and our hearts have been mightily and permanently changed (see [[Alma 5.14|Alma 5:14]]).
 
 [^16]: President Nelson explained that the Lord “is making His temples more accessible. He is accelerating the pace at which we are building temples. He is increasing our ability to help gather Israel. He is also making it easier for each of us to become spiritually refined” (“[[2022 October - Focus on the Temple.md|Focus on the Temple]],” *Liahona*, Nov. 2022, 121).
 
-[^17]: See [[2 Kings 5.9|2 Kings 5:9–14]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
+[^17]: See [[2 Kings 5.9|2 Kings 5:9–14]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
 
-[^18]: See “[I Know That My Redeemer Lives](https://churchofjesuschrist.org/study/manual/hymns/i-know-that-my-redeemer-lives?lang=eng),” *Hymns*, no. 136.
+[^18]: See “[I Know That My Redeemer Lives](https://www.churchofjesuschrist.org/study/manual/hymns/i-know-that-my-redeemer-lives?lang=eng),” *Hymns*, no. 136.
 
-
-
-#Atonement #Jesus_Christ #Repentance #Sacrament #Temples
+#Atonement #JesusChrist #Repentance #Sacrament #Temples

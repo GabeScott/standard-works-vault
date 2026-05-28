@@ -1,7 +1,6 @@
 # Narrow
 
-
-angel of the Lord ... stood in a *narrow* place, [[Numbers 22.26|Numbers 22:26]].
+angel of the Lord … stood in a *narrow* place, [[Numbers 22.26|Numbers 22:26]].
 
 if mount Ephraim be too *narrow* for thee, [[Joshua 17.15|Joshua 17:15]].
 

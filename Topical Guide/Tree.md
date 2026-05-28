@@ -1,13 +1,12 @@
 # Tree
 
-
 *tree* yielding fruit after his kind, [[Genesis 1.11|Genesis 1:11]] ([[Moses 2.11|Moses 2:11]]).
 
-*tree* of life ... *tree* of knowledge of good and evil, [[Genesis 2.9|Genesis 2:9]] ([[Moses 3.9|Moses 3:9]]; [[Abraham 5.9|Abraham 5:9]]).
+*tree* of life … *tree* of knowledge of good and evil, [[Genesis 2.9|Genesis 2:9]] ([[Moses 3.9|Moses 3:9]]; [[Abraham 5.9|Abraham 5:9]]).
 
 of the *tree* of the knowledge of good and evil, thou shalt not eat, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]; [[Abraham 5.9|Abraham 5:9]]).
 
-*tree* which is in the midst of the garden ... Ye shall not eat of it, [[Genesis 3.3|Genesis 3:3]] ([[Moses 4.9|Moses 4:9]]).
+*tree* which is in the midst of the garden … Ye shall not eat of it, [[Genesis 3.3|Genesis 3:3]] ([[Moses 4.9|Moses 4:9]]).
 
 woman saw that the *tree* was good for food, [[Genesis 3.6|Genesis 3:6]].
 
@@ -33,9 +32,9 @@ that they might be called *trees* of righteousness, [[Isaiah 61.3|Isaiah 61:3]].
 
 as the days of a *tree* are the days of my people, [[Isaiah 65.22|Isaiah 65:22]].
 
-Lord have brought down the high *tree* ... exalted the low *tree*, [[Ezekiel 17.24|Ezekiel 17:24]].
+Lord have brought down the high *tree* … exalted the low *tree*, [[Ezekiel 17.24|Ezekiel 17:24]].
 
-I saw ... a *tree* in the midst of the earth, [[Daniel 4.10|Daniel 4:10]].
+I saw … a *tree* in the midst of the earth, [[Daniel 4.10|Daniel 4:10]].
 
 axe is laid unto the root of the *trees*, [[Matthew 3.10|Matthew 3:10]] ([[Luke 3.9|Luke 3:9]]; [[Alma 5.52|Alma 5:52]]).
 
@@ -45,7 +44,7 @@ good *tree* bringeth forth good fruit, [[Matthew 7.17|Matthew 7:17]] ([[Luke 6.4
 
 parable of the fig *tree*, [[Matthew 24.32|Matthew 24:32]] ([[Mark 13.28|Mark 13:28]]; [[Luke 21.29|Luke 21:29]]; [[Joseph Smith Matthew 1.38|Joseph Smith Matthew 1:38]]).
 
-faith ... ye might say unto this sycamine *tree*, [[Luke 17.6|Luke 17:6]].
+faith … ye might say unto this sycamine *tree*, [[Luke 17.6|Luke 17:6]].
 
 I saw thee under the fig *tree*, [[John 1.50|John 1:50]].
 
@@ -73,7 +72,7 @@ to the fountain of living waters, or to the *tree* of life, [[1 Nephi 11.25|1 Ne
 
 forbidden fruit in opposition to the *tree* of life, [[2 Nephi 2.15|2 Nephi 2:15]] ([[Alma 5.34|Alma 5:34]]).
 
-I will liken thee ... unto a tame olive *tree*, [[Jacob 5.3|Jacob 5:3]] ([[Jacob 6.1|Jacob 6:1]]).
+I will liken thee … unto a tame olive *tree*, [[Jacob 5.3|Jacob 5:3]] ([[Jacob 6.1|Jacob 6:1]]).
 
 partaken of the *tree* of life they would have been forever miserable, [[Alma 12.26|Alma 12:26]].
 
@@ -89,7 +88,7 @@ they shall learn the parable of the fig *tree*, [[D&C 35.16|D&C 35:16]].
 
 fall by the shaft of death, like as a *tree* that is smitten, [[D&C 85.8|D&C 85:8]].
 
-stars ... shall cast themselves down as a fig that falleth from off a fig *tree*, [[D&C 88.87|D&C 88:87]].
+stars … shall cast themselves down as a fig that falleth from off a fig *tree*, [[D&C 88.87|D&C 88:87]].
 
 Lord, will cause them to bring forth as a very fruitful *tree*, [[D&C 97.9|D&C 97:9]].
 

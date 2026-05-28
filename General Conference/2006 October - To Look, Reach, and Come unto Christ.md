@@ -12,7 +12,7 @@ In Minerva Teichert’s magnificent painting *Christ in a Red Robe,* the Savior 
 
 I love the symbolism of women reaching out to touch the Savior. We long to be close to the Lord, for we know that He loves each of us and desires to encircle us “eternally in the arms of his love.”[^1] His touch can heal ailments spiritual, emotional, or physical. He is our Advocate, Exemplar, Good Shepherd, and Redeemer. Where else would we look, where else would we reach, where else would we come but to Jesus Christ, “the author and finisher of our faith”?[^2]
 
-He pronounced: “Yea, verily … , if ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come, him will I receive.”[^3] His promise invites us not only to reach towards Him but also to take the all-important next step: to come unto Him.
+He pronounced: “Yea, verily … , if ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come, him will I receive.”[^3] His promise invites us not only to reach towards Him but also to take the all-important next step: to come unto Him.
 
 This is such a motivating, cheering doctrine. The Messiah extends His arm of mercy to us, always eager to receive us—if we *choose* to come to Him. When we do come to the Savior with “full purpose of heart,”[^4] we will feel His loving touch in the most personal ways.
 
@@ -57,13 +57,13 @@ In the name of Jesus Christ, amen.
 
 
 
-[^1]: [[2 Nephi 1.15|2 Nephi 1:15]].
+[^1]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
 [^2]: [[Hebrews 12.2|Hebrews 12:2]].
 
-[^3]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^3]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
-[^4]: [[3 Nephi 10.6|3 Nephi 10:6]].
+[^4]: [[3 Nephi 10.6|3 Nephi 10:6]].
 
 [^5]: [[Mark 5.25|Mark 5:25]].
 
@@ -81,8 +81,6 @@ In the name of Jesus Christ, amen.
 
 [^12]: [[Mosiah 29.20|Mosiah 29:20]].
 
-[^13]: [[3 Nephi 25.2|3 Nephi 25:2]].
+[^13]: [[3 Nephi 25.2|3 Nephi 25:2]].
 
-
-
-#Charity #Jesus_Christ #Repentance
+#Charity #JesusChrist #Repentance

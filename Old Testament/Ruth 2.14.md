@@ -5,5 +5,5 @@
 [Ruth 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/2.14?lang=eng#p14)
 
 
-[^a]: OR grain.
-[^b]: IE left some food.
+[^a]: OR grain.  
+[^b]: IE left some food.  

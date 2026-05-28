@@ -1,6 +1,6 @@
 # Be Valiant in Courage, Strength, and Activity
 
-By Bishop Gary E. Stevenson - *Presiding Bishop*
+By Bishop Gary E. Stevenson - *Presiding Bishop*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -26,19 +26,19 @@ Young men, there will be times when you, like John, will have to demonstrate you
 
 Young men, I promise the Lord will empower you. “For God hath not given us the spirit of fear; but of power.”[^7] He will reward you for your courage and righteous behavior—with happiness and joy. Such courage will be a by-product of your faith in Jesus Christ and His Atonement, your prayers, and your obedience to commandments.
 
-President N. Eldon Tanner stated: “One young boy on the school ground can wield a mighty influence for good. One young man on the football team, or the campus, or among his fellow workers can, by living the gospel, honoring his priesthood, and taking a stand for the right, do untold good. Often you will experience much criticism and ridicule even by those who believe as you do, even though they may respect you for doing right. But remember that the Savior himself was tormented, ridiculed, spat upon, and finally crucified because he would not waver in his conviction. Have you ever stopped to think what would have happened had he weakened and said, ‘Oh, what’s the use?’ and abandoned his mission? Do we want to be quitters, or do we want to be valiant servants in spite of all the opposition and evil in the world? Let us have the courage to stand up and be counted as true, devoted followers of Christ.”[^8]
+President N. Eldon Tanner stated: “One young boy on the school ground can wield a mighty influence for good. One young man on the football team, or the campus, or among his fellow workers can, by living the gospel, honoring his priesthood, and taking a stand for the right, do untold good. Often you will experience much criticism and ridicule even by those who believe as you do, even though they may respect you for doing right. But remember that the Savior himself was tormented, ridiculed, spat upon, and finally crucified because he would not waver in his conviction. Have you ever stopped to think what would have happened had he weakened and said, ‘Oh, what’s the use?’ and abandoned his mission? Do we want to be quitters, or do we want to be valiant servants in spite of all the opposition and evil in the world? Let us have the courage to stand up and be counted as true, devoted followers of Christ.”[^8]
 
 I invite you to qualify yourselves as did the 2,000 stripling soldiers by being valiant in courage as worthy priesthood holders. Remember, what you do, where you go, and what you see will shape who you become. Who do you want to become? Become a worthy deacon, a worthy teacher, a worthy priest. Set a goal to be worthy to enter the temple now and to be worthy to receive your next ordinance at the proper age and ultimately to receive the Melchizedek Priesthood. This is a pathway of righteousness which invites divine assistance. The Lord stated, “In the ordinances thereof, the power of godliness is manifest.”[^9]
 
 Parents, priesthood leaders, and prophetic priorities found in your *Duty to God* and *For the Strength of Youth* pamphlets will guide you along the way.
 
-President Thomas S. Monson recently counseled:
+President Thomas S. Monson recently counseled:
 
-“To make \[decisions\] wisely, courage is needed—the courage to say no, the courage to say yes. …
+“To make \[decisions\] wisely, courage is needed—the courage to say no, the courage to say yes. …
 
 “I plead with you to make a determination … right now, not to deviate from the path which will lead to our goal: eternal life with our Father in Heaven.”[^10]
 
-Just as the 2,000 soldiers responded to the battle cry of their leader, Helaman, and marshaled their valiant courage, you too can do the same by following your prophet-leader, President Thomas S. Monson.
+Just as the 2,000 soldiers responded to the battle cry of their leader, Helaman, and marshaled their valiant courage, you too can do the same by following your prophet-leader, President Thomas S. Monson.
 
 My young Aaronic Priesthood holders, in closing I offer my testimony of God the Father and Jesus Christ and the words of Joseph Smith: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory!”[^11] In the name of Jesus Christ, amen.
 
@@ -51,22 +51,20 @@ My young Aaronic Priesthood holders, in closing I offer my testimony of God the 
 
 [^3]: Personal story told to author.
 
-[^4]: Joseph A. Califano Jr., founder and chairman emeritus of the National Center on Addiction and Substance Abuse at Columbia University, in a press release regarding the research, casacolumbia.org.
+[^4]: Joseph A. Califano Jr., founder and chairman emeritus of the National Center on Addiction and Substance Abuse at Columbia University, in a press release regarding the research, casacolumbia.org.
 
 [^5]: *Preach My Gospel: A Guide to Missionary Service* (2004), 118.
 
 [^6]: [[D&C 87.8|Doctrine and Covenants 87:8]].
 
-[^7]: [[2 Timothy 1.7|2 Timothy 1:7]].
+[^7]: [[2 Timothy 1.7|2 Timothy 1:7]].
 
-[^8]: N. Eldon Tanner, “For They Loved the Praise of Men More Than the Praise of God,” *Ensign,* Nov. 1975, 74–75.
+[^8]: N. Eldon Tanner, “For They Loved the Praise of Men More Than the Praise of God,” *Ensign,* Nov. 1975, 74–75.
 
 [^9]: [[D&C 84.20|Doctrine and Covenants 84:20]].
 
-[^10]: Thomas S. Monson, “The Three Rs of Choice,” *Liahona* and *Ensign,* Nov. 2010, 68.
+[^10]: Thomas S. Monson, “The Three Rs of Choice,” *Liahona* and *Ensign,* Nov. 2010, 68.
 
 [^11]: [[D&C 128.22|Doctrine and Covenants 128:22]].
-
-
 
 #Agency #Courage #Dedication #Priesthood

@@ -1,6 +1,6 @@
 # Drawing the Power of Jesus Christ into Our Lives
 
-By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
+By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -64,23 +64,23 @@ When you reach up for the Lord’s power in your life with the same intensity th
 
 When you spiritually stretch beyond anything you have ever done before, then His power will flow into you.[^22] And then you will understand the deep meaning of words we sing in the hymn “The Spirit of God”:
 
->The Lord is extending the Saints’ understanding. …
+>The Lord is extending the Saints’ understanding. …
 >The knowledge and power of God are expanding;
 >The veil o’er the earth is beginning to burst.[^23]
 >
 
 The gospel of Jesus Christ is filled with His power, which is available to every earnestly seeking daughter or son of God. It is my testimony that when we draw His power into our lives, both He and we will rejoice.[^24]
 
-As one of His special witnesses, I declare that God lives! Jesus is the Christ! His Church has been restored to the earth! God’s prophet upon the earth today is President Thomas S. Monson, whom I sustain with all my heart. I so testify, with my expression of love and blessing for each of you, in the sacred name of Jesus Christ, amen.
+As one of His special witnesses, I declare that God lives! Jesus is the Christ! His Church has been restored to the earth! God’s prophet upon the earth today is President Thomas S. Monson, whom I sustain with all my heart. I so testify, with my expression of love and blessing for each of you, in the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: See [[2 Nephi 28.19|2 Nephi 28:19–30]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.24|]][[2 Nephi 28.25|]][[2 Nephi 28.26|]][[2 Nephi 28.27|]][[2 Nephi 28.28|]][[2 Nephi 28.29|]][[2 Nephi 28.30|]].
+[^1]: See [[2 Nephi 28.19|2 Nephi 28:19–30]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.24|]][[2 Nephi 28.25|]][[2 Nephi 28.26|]][[2 Nephi 28.27|]][[2 Nephi 28.28|]][[2 Nephi 28.29|]][[2 Nephi 28.30|]].
 
 [^2]: See [[John 3.16|John 3:16]].
 
-[^3]: Jesus was the Anointed One—anointed by Heavenly Father to be His personal representative in all things pertaining to the salvation of mankind. Jesus was anointed to be our Savior and Redeemer. Before the world was formed, Jesus was anointed to make immortality a reality and eternal life a possibility for all of God’s children (see [[John 17.24|John 17:24]]; [[1 Peter 1.20|1 Peter 1:20]]). Thus, Jesus bore two unique titles: *the Messiah* (Hebrew) and *the Christ* (Greek)—each meaning “anointed.” (See Bible Dictionary, “[Anointed One](https://churchofjesuschrist.org/study/scriptures/bd/anointed-one?lang=eng).”)
+[^3]: Jesus was the Anointed One—anointed by Heavenly Father to be His personal representative in all things pertaining to the salvation of mankind. Jesus was anointed to be our Savior and Redeemer. Before the world was formed, Jesus was anointed to make immortality a reality and eternal life a possibility for all of God’s children (see [[John 17.24|John 17:24]]; [[1 Peter 1.20|1 Peter 1:20]]). Thus, Jesus bore two unique titles: *the Messiah* (Hebrew) and *the Christ* (Greek)—each meaning “anointed.” (See Bible Dictionary, “[[BD Anointed One|Anointed One]].”)
 
 [^4]: We can protect ourselves by knowing and living by the word of God (see [[Ephesians 6.17|Ephesians 6:17–18]][[Ephesians 6.18|]]; [[D&C 27.18|Doctrine and Covenants 27:18]]).
 
@@ -90,19 +90,19 @@ As one of His special witnesses, I declare that God lives! Jesus is the Christ! 
 
 [^7]: See [[D&C 76.40|Doctrine and Covenants 76:40–41]][[D&C 76.41|]].
 
-[^8]: See [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
+[^8]: See [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
 
 [^9]: Holy Bible, Book of Mormon, Doctrine and Covenants, and Pearl of Great Price.
 
-[^10]: See Topical Guide, “[Jesus Christ](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ?lang=eng).” In addition to text under that major heading, there are 57 subtitles about Him. For non-English editions of the scriptures, use Guide to the Scriptures.
+[^10]: See Topical Guide, “[[Jesus Christ|Jesus Christ]].” In addition to text under that major heading, there are 57 subtitles about Him. For non-English editions of the scriptures, use Guide to the Scriptures.
 
 [^11]: More than 2,200 listings are cited in those 18 pages of the Topical Guide.
 
-[^12]: [[3 Nephi 27.13|3 Nephi 27:13–14]][[3 Nephi 27.14|]].
+[^12]: [[3 Nephi 27.13|3 Nephi 27:13–14]][[3 Nephi 27.14|]].
 
-[^13]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49.
+[^13]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng)* (2007), 49.
 
-[^14]: See “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2–3.
+[^14]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2–3.
 
 [^15]: See [[Helaman 8.15|Helaman 8:15]].
 
@@ -120,10 +120,8 @@ As one of His special witnesses, I declare that God lives! Jesus is the Christ! 
 
 [^22]: When the faithful woman touched the Savior’s clothing, He instantly responded, “I perceive that *virtue* \[from the Greek *dunamis,* meaning “power”\] is gone out of me” ([[Luke 8.46|Luke 8:46]]; emphasis added).
 
-[^23]: “The Spirit of God,” *Hymns,* no. 2.
+[^23]: “The Spirit of God,” *Hymns,* no. 2.
 
-[^24]: See [[3 Nephi 17.20|3 Nephi 17:20]].
+[^24]: See [[3 Nephi 17.20|3 Nephi 17:20]].
 
-
-
-#Atonement #Covenants #Faith #Jesus_Christ #Scripture_Study
+#Atonement #Covenants #Faith #JesusChrist #ScriptureStudy

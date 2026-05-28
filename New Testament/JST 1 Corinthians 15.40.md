@@ -4,6 +4,3 @@
 
 [JST 1 Corinthians 15:40](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-cor/15?lang=eng)
 
-
-
-

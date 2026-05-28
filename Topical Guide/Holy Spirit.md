@@ -1,7 +1,6 @@
 # Holy Spirit
 
-
-*See also* [[God, Spirit of.md|God, Spirit of]]; [[Holy Ghost.md|Holy Ghost]]; [[Lord, Spirit of.md|Lord, Spirit of]]; [BD Holy Ghost](https://www.churchofjesuschrist.org/study/scriptures/bd/holy-ghost?lang=eng)
+*See also* [[God, Spirit of.md|God, Spirit of]]; [[Holy Ghost.md|Holy Ghost]]; [[Lord, Spirit of.md|Lord, Spirit of]]; [[BD Holy Ghost.md|BD Holy Ghost]]
 
 take not thy *holy spirit* from me, [[Psalms 51.11|Psalms 51:11]].
 
@@ -17,6 +16,6 @@ hath also given unto us his *holy Spirit*, [[1 Thessalonians 4.8|1 Thessalonians
 
 *Holy Spirit* of God did come down from heaven, [[Helaman 5.45|Helaman 5:45]].
 
-wise ... have taken the *Holy Spirit* for their guide, [[D&C 45.57|D&C 45:57]].
+wise … have taken the *Holy Spirit* for their guide, [[D&C 45.57|D&C 45:57]].
 
 appointed by the *Holy Spirit* to go up unto Zion, [[D&C 72.24|D&C 72:24]].

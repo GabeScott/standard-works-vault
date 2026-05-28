@@ -1,6 +1,6 @@
 # “We Thank Thee, O God, for a Prophet”
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -32,7 +32,7 @@ Could any people have a greater blessing than to have standing at their head one
 
 “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].)
 
-It was so in the days of Amos and in all the years when holy men of God spake as they were moved upon by the Holy Ghost. (See [[2 Peter 1.21|2 Pet. 1:21]].) Those ancient prophets warned not only of things to come, but more importantly, they became the revealers of truth to people. It was they who pointed the way men should live if they were to be happy and find peace in their lives.
+It was so in the days of Amos and in all the years when holy men of God spake as they were moved upon by the Holy Ghost. (See [[2 Peter 1.21|2 Pet. 1:21]].) Those ancient prophets warned not only of things to come, but more importantly, they became the revealers of truth to people. It was they who pointed the way men should live if they were to be happy and find peace in their lives.
 
 I think today of a young man I know who, as a Christian, trying one church after another, could find none that taught of a prophet. Only among the Jewish people did he find reverent mention of the prophets, and so he accepted and embraced the Jewish religion.
 
@@ -44,11 +44,11 @@ He foretold that this people, then living in Illinois, would be driven out, woul
 
 It has been so with his successors. On a cold winter day in 1849, when our forebears in this valley were hungry and living on sego roots and thistle tops, while gold was being found in California, Brigham Young stood in the old bowery on this square and spoke prophetic words to those who felt they might leave the hardships of life here to go to greener pastures in California. Among other things, he said:
 
-“We have been kicked out of the frying pan into the fire, out of the fire into the middle of the floor, and here we are and here we will stay. …
+“We have been kicked out of the frying pan into the fire, out of the fire into the middle of the floor, and here we are and here we will stay. …
 
 “We shall build a city and a temple to the Most High God in this place. We will extend our settlements to the east and the west, to the north and south, and we will build towns and cities by the hundreds, and thousands of saints will gather in from the nations of the earth.
 
-“This will become the great highway of the nations. Kings and emperors and the noble and the wise of the earth will visit us here. …”
+“This will become the great highway of the nations. Kings and emperors and the noble and the wise of the earth will visit us here. …”
 
 How could anyone stand in the Visitors Center to the north of us and witness the hundreds of thousands, yes, the millions, who come each year to visit us, and have any doubt that Brigham Young spoke other than as a prophet? Over the years there has been a veritable parade of notables who have found their way to the office of the First Presidency, there to meet particularly the man whom we sustain as the president of the Church and as the prophet of our day. They include leaders in the governments of the earth, in business and commerce, in education, in the professions. These are among “the noble and the wise of the earth” of whom Brigham Young spoke when we were an outcast people, isolated in a mountain wilderness.
 
@@ -58,7 +58,7 @@ I am profoundly grateful, my brethren and sisters, not only for Joseph Smith as 
 
 He was hated and persecuted. He was driven and imprisoned. He was abused and beaten. And as you read his history, you see the evolution of which he spoke. There developed a power in his life. There came a refinement. There grew a love for others which even overcame his own love for life. The corners of that rough stone *were* knocked off, and he became a polished shaft in the hand of the Almighty.
 
-It has been so with those who have succeeded him. Through long years of dedicated service, they have been refined and winnowed and chastened and molded for the purposes of the Almighty. Could anyone doubt this after reading the lives of such men as Brigham Young, Wilford Woodruff, and Joseph F. Smith? The Lord subdued their hearts and refined their natures to prepare them for the great and sacred responsibility later thrust upon them. It has been so with him who stands as President of the Church today, our beloved leader, President Harold B. Lee. I hope he will pardon me. I do not wish to embarrass him. But can one who knows something of his life deny the same influences at work? He came out of circumstances that would today be classed as poverty. From firsthand experience he knows the meaning of hard manual labor. He served as a missionary and was rejected by most of those upon whom he called. He sacrificed for an education. He has known serious illness when life seemed to hang by a thread. He has walked through deep and dark valleys of sorrow. Looking back upon the history of his life, it all appears to be part of a pattern, a refining process that he might better understand the trials, the afflictions, the sorrows of others. And yet, with all of this, there is a great buoyancy of spirit that rises above the tragic and the sorrowful and lifts to higher ground all of those he touches and influences.
+It has been so with those who have succeeded him. Through long years of dedicated service, they have been refined and winnowed and chastened and molded for the purposes of the Almighty. Could anyone doubt this after reading the lives of such men as Brigham Young, Wilford Woodruff, and Joseph F. Smith? The Lord subdued their hearts and refined their natures to prepare them for the great and sacred responsibility later thrust upon them. It has been so with him who stands as President of the Church today, our beloved leader, President Harold B. Lee. I hope he will pardon me. I do not wish to embarrass him. But can one who knows something of his life deny the same influences at work? He came out of circumstances that would today be classed as poverty. From firsthand experience he knows the meaning of hard manual labor. He served as a missionary and was rejected by most of those upon whom he called. He sacrificed for an education. He has known serious illness when life seemed to hang by a thread. He has walked through deep and dark valleys of sorrow. Looking back upon the history of his life, it all appears to be part of a pattern, a refining process that he might better understand the trials, the afflictions, the sorrows of others. And yet, with all of this, there is a great buoyancy of spirit that rises above the tragic and the sorrowful and lifts to higher ground all of those he touches and influences.
 
 As one who recently walked with him as a junior companion in the missions of Europe and England, I have seen young people eagerly press about him with tears in their eyes and smiles, sweet and beautiful, upon their faces. I have seen missionaries sit enraptured as he taught from the scriptures, speaking, like the Master, “as one having authority.” I have seen little children sit almost motionless as he spoke their language and led them to understand sacred truths of the sacrament. I have seen elderly men and women weep as he blessed them.
 
@@ -69,7 +69,7 @@ As one to whom the spirit has borne witness, I testify of his prophetic calling,
 >We ever pray for thee, our Prophet dear,
 >That God will give to thee comfort and cheer;
 >As the advancing years furrow thy brow,
->Still may the light within shine bright as now. …
+>Still may the light within shine bright as now. …
 >
 
 God lives and is a revealer of eternal truth. Jesus Christ is our Savior and stands at the head of this Church. We have a prophet upon the earth, a seer and a revelator to teach us. God give us the faith and the discipline within ourselves to follow that teaching, I humbly pray, in the name of Jesus Christ. Amen.
@@ -77,6 +77,4 @@ God lives and is a revealer of eternal truth. Jesus Christ is our Savior and sta
 
 
 
-
-
-#Compassion #Missionary_Work
+#Compassion #MissionaryWork

@@ -1,6 +1,6 @@
 # Acquiring and Managing Production Projects
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -85,8 +85,6 @@ These are immediate rewards. There are also long-term rewards, the most importan
 Let us go forth now with power to meet the challenge. Brethren, see that all wards in the Church become involved in or improve production projects during the term of your administration.
 
 May the Lord bless us to do this. In the name of Jesus Christ. Amen.
-
-
 
 
 

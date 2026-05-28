@@ -1,6 +1,5 @@
 # Flee, Fled
 
-
 when Sarai dealt hardly with her, she *fled*, [[Genesis 16.6|Genesis 16:6]].
 
 *flee* thou to Laban, [[Genesis 27.43|Genesis 27:43]].

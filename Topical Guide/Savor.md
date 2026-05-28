@@ -1,6 +1,5 @@
 # Savor
 
-
 Lord smelled a sweet *savour*, [[Genesis 8.21|Genesis 8:21]].
 
 sweet *savour*, an offering made by fire, [[Exodus 29.18|Exodus 29:18]].
@@ -15,4 +14,4 @@ we are unto God a sweet *savour* of Christ, [[2 Corinthians 2.15|2 Corinthians 2
 
 sacrifice to God for a sweetsmelling *savour*, [[Ephesians 5.2|Ephesians 5:2]].
 
-they are accounted as ... the *savor* of men, [[D&C 101.39|D&C 101:39]].
+they are accounted as … the *savor* of men, [[D&C 101.39|D&C 101:39]].

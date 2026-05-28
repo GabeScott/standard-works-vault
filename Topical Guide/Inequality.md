@@ -1,6 +1,5 @@
 # Inequality
 
-
 I desire that this *inequality* should be no more, [[Mosiah 29.32|Mosiah 29:32]].
 
 great *inequality* among the people, [[Alma 4.12|Alma 4:12]].

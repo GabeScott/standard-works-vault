@@ -1,6 +1,6 @@
 # A Foundation Whereon Men Cannot Fall
 
-By Elder David B. Haight - *Assistant to the Council of the Twelve*
+By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -58,25 +58,23 @@ Henry Ward Beecher wrote: “We are not born as the partridge in the wood, or th
 
 We are all aware that our youth are being pressured from all sides with bizarre sensationalism that attempts to present a new morality—even a nonfamily concept—that is in complete opposition to the true teachings of the gospel. The words to some of the rock music, some of the films, and the pictures in some of the magazines indicate with a resounding ring that the rains are pouring, not just on your neighbor’s family, but also upon yours.
 
-Now, if some of you are finding resistance in getting your families together each week and are tempted to give up, please find strength in these words of Elder Marion G. Romney: “It is not enough to do our best. Unless we do all we can, we do less than we ought. We must succeed in doing what is necessary. Unless we get the job done, it is not enough.”
+Now, if some of you are finding resistance in getting your families together each week and are tempted to give up, please find strength in these words of Elder Marion G. Romney: “It is not enough to do our best. Unless we do all we can, we do less than we ought. We must succeed in doing what is necessary. Unless we get the job done, it is not enough.”
 
 A few days ago we witnessed a little family, with the grandmothers and grandfathers and some of the uncles all united to participate, as a loving father conferred the Aaronic Priesthood on his oldest son. This was a special and sacred occasion and an opportunity to teach and strengthen this little family’s foundation.
 
-Elder James E. Talmage wrote: “We regard children literally as gifts from God, committed to our parental care, for whose support, protection, and training in righteousness we shall be held to a strict accounting.” (*The Marriage Institution* \[pamphlet, Church Historian’s Department\], pp. 4–5.)
+Elder James E. Talmage wrote: “We regard children literally as gifts from God, committed to our parental care, for whose support, protection, and training in righteousness we shall be held to a strict accounting.” (*The Marriage Institution* \[pamphlet, Church Historian’s Department\], pp. 4–5.)
 
 With our own God-given desire and intelligence, we will find solutions to today’s pressing issues, but we must be willing to draw from the wisdom and the strength of our Church leaders, who continually seek and receive divine guidance.
 
-Years ago President Joseph F. Smith gave us an answer and a promise when he said, “If you will gather your children around you once a week and instruct them in the gospel, they will not go astray.”
+Years ago President Joseph F. Smith gave us an answer and a promise when he said, “If you will gather your children around you once a week and instruct them in the gospel, they will not go astray.”
 
 The prophet Nephi’s counsel applies today as it did in days of old. He admonished:
 
-“… remember that it is upon the rock of our Redeemer … that ye must build your foundation; that when the devil shall send forth his mighty winds, … when all of his hail and his mighty storm shall beat upon you, it shall have no power over you … because of the rock upon which ye are built, which is a sure foundation, a foundation whereon if men build they cannot fall.” ([[Helaman 5.12|Hel. 5:12]].)
+“… remember that it is upon the rock of our Redeemer … that ye must build your foundation; that when the devil shall send forth his mighty winds, … when all of his hail and his mighty storm shall beat upon you, it shall have no power over you … because of the rock upon which ye are built, which is a sure foundation, a foundation whereon if men build they cannot fall.” ([[Helaman 5.12|Hel. 5:12]].)
 
 May this be so with your family, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Family #Family_Home_Evening
+#FamilyHomeEvening #Family

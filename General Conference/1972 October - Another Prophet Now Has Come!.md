@@ -1,6 +1,6 @@
 # Another Prophet Now Has Come!
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -40,7 +40,7 @@ The scriptures indicate that over the centuries the Lord has been free and willi
 
 “Behold, the Lord’s hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear:
 
-“But your iniquities have separated between you and your God, and your sins have hid his face from you. …” ([[Isaiah 59.1|Isa. 59:1–2]][[Isaiah 59.2|]].)
+“But your iniquities have separated between you and your God, and your sins have hid his face from you. …” ([[Isaiah 59.1|Isa. 59:1–2]][[Isaiah 59.2|]].)
 
 Human beings are slow to learn the ways of the Lord, and particularly are they dilatory in accepting the fact that although he is willing to communicate with them, his method of doing so is through inspired living men whom he designates as prophets.
 
@@ -66,7 +66,7 @@ The epistle to the Ephesians explains why there were Christian prophets, saying 
 
 Since the Savior commanded his people to become perfect as their Father in heaven (see [[Matthew 5.48|Matt. 5:48]]), he set up his church to provide the means by which this could be accomplished. Hence, he gave them apostles and prophets.
 
-These inspired men were in the church also to preserve unity among the saints and to heal divisions in the flock “that we henceforth be no more … tossed to and fro, and carried about with every wind of doctrine. …” ([[Ephesians 4.14|Eph. 4:14]].)
+These inspired men were in the church also to preserve unity among the saints and to heal divisions in the flock “that we henceforth be no more … tossed to and fro, and carried about with every wind of doctrine. …” ([[Ephesians 4.14|Eph. 4:14]].)
 
 So God followed the same pattern of communicating with his people in New Testament times that had been customary with him down through the ages as recorded in the Old Testament.
 
@@ -84,7 +84,7 @@ Then does this constitute a departure from the age-old pattern of the Lord—tha
 
 In Isaiah’s day it was the people who turned away from God. The Lord did not turn from the people.
 
-It was the same in the Savior’s day. Do you recall that he said to those about him: “… how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!” ([[Matthew 23.37|Matt. 23:37]].)
+It was the same in the Savior’s day. Do you recall that he said to those about him: “… how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!” ([[Matthew 23.37|Matt. 23:37]].)
 
 God does not abandon his people. It is the people who abandon God.
 
@@ -116,7 +116,7 @@ Joseph Smith was the first of them. Through him the Lord restored the gospel in 
 
 Then came a succession of modern prophets to carry on the work, which will continue to expand until the second coming of the Lord Jesus Christ.
 
-After Joseph Smith, Brigham Young was called; then John Taylor, Wilford Woodruff, Lorenzo Snow, Joseph F. Smith, Heber J. Grant, George Albert Smith, David O. McKay, Joseph Fielding Smith, and now President Harold B. Lee. Each was God’s prophet for his time; each a seer and a revelator.
+After Joseph Smith, Brigham Young was called; then John Taylor, Wilford Woodruff, Lorenzo Snow, Joseph F. Smith, Heber J. Grant, George Albert Smith, David O. McKay, Joseph Fielding Smith, and now President Harold B. Lee. Each was God’s prophet for his time; each a seer and a revelator.
 
 In this conference, with our hearts and our hands, we have formally sustained President Lee as our inspired leader for this day.
 
@@ -150,7 +150,7 @@ These people are the prophets of God—they who preach the gospel of the Prince 
 
 Says Abinadi: “I mean the holy prophets ever since the world began.
 
-“… these are they who have published peace, who have brought good tidings of good, who have published salvation and said unto Zion: Thy God reigneth!
+“… these are they who have published peace, who have brought good tidings of good, who have published salvation and said unto Zion: Thy God reigneth!
 
 “And O how beautiful upon the mountains were their feet!
 
@@ -200,8 +200,6 @@ He is not dumb. He speaks, eloquently, to his living prophets and through them t
 In this manner God is speaking to you today. Listen to him. Acknowledge him. Pray to him. Obey him. In the name of the Lord Jesus Christ.
 
 Amen.
-
-
 
 
 

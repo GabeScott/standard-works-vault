@@ -1,6 +1,6 @@
 # The Strength of the Kingdom Is Within
 
-By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -36,7 +36,7 @@ While acknowledging that The Church of Jesus Christ of Latter-day Saints is “t
 
 At another time he warned those of his church:
 
-“Behold,” he said, “vengeance cometh speedily upon the inhabitants of the earth. …
+“Behold,” he said, “vengeance cometh speedily upon the inhabitants of the earth. …
 
 “And upon my house shall it begin, and from my house shall it go forth, saith the Lord;
 
@@ -55,8 +55,6 @@ As I view the days that lie ahead, I am hopeful because of the Lord’s promise,
 The enduring strength of the kingdom is not to be found in the number of its members, the rate of its growth, or the beauty of its buildings. In God’s kingdom, power is not equated with body count nor with outward routine compliance with prescribed performances. It is found in those quiet uncharted acts of love, obedience, and Christian service which may never come to the attention of official leadership, but which emulate the ministry of the Lord himself.
 
 It is a time for us to assess our own spiritual vital signs in those essential areas that take us beyond the information on the charts. “For, behold, the kingdom of God is within you.” In the name of Jesus Christ, amen.
-
-
 
 
 

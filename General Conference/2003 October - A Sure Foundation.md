@@ -20,7 +20,7 @@ In the Book of Mormon, the prophet Jacob, in his encounter with Sherem the anti-
 
 “And I said unto him: Then ye do not understand them; for they truly testify of Christ. Behold, I say unto you that none of the prophets have written, nor prophesied, save they have spoken concerning this Christ.
 
-“And this is not all … ; it also has been made manifest unto me by the power of the Holy Ghost.”[^2]
+“And this is not all … ; it also has been made manifest unto me by the power of the Holy Ghost.”[^2]
 
 Jacob points out three sources of truth—the scriptures, the prophets, and the Holy Ghost—that testify of Christ. They will help us build “upon the rock of our Redeemer, who is Christ, the Son of God.”[^3]
 
@@ -69,7 +69,7 @@ Brothers and sisters, the scriptures, the living prophets, and the Holy Ghost al
 
 [^4]: [[John 5.39|John 5:39]].
 
-[^5]: [[1 Nephi 4.13|1 Nephi 4:13]].
+[^5]: [[1 Nephi 4.13|1 Nephi 4:13]].
 
 [^6]: [[Omni 1.17|Omni 1:17]].
 
@@ -79,5 +79,6 @@ Brothers and sisters, the scriptures, the living prophets, and the Holy Ghost al
 
 [^9]: [[Mosiah 18.10|Mosiah 18:10]].
 
+[^10]: [[Helaman 5.12|Helaman 5:12]].
 
-#Adversity #Holy_Ghost #Prophets #Scripture_Study #Testimony
+#Adversity #HolyGhost #Prophets #ScriptureStudy #Testimony

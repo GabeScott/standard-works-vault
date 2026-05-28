@@ -45,16 +45,14 @@ Cortnee asked, “Mom, are we Christians?” As a member of The Church of Jesus 
 
 [^6]: See [[Alma 46.14|Alma 46:14–16]][[Alma 46.15|]][[Alma 46.16|]].
 
-[^7]: In Conference Report, Oct. 2002, 86; or *Ensign,* Nov. 2002, 81.
+[^7]: In Conference Report, Oct. 2002, [[2002 October - The Marvelous Foundation of Our Faith.md|86]]; or *Ensign,* Nov. 2002, 81.
 
 [^8]: See [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].
 
-[^9]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^9]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^10]: See [[D&C 2.1|D&C 2]][[D&C 2.2|]][[D&C 2.3|]]; [[D&C 13.1|13]]; [[D&C 110.1|110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]; [[D&C 112.32|112:32]].
 
-[^11]: [[2 Nephi 31.2|2 Nephi 31:2]]; see also [[3 Nephi 11.31|3 Nephi 11:31–36]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]].
+[^11]: [[2 Nephi 31.2|2 Nephi 31:2]]; see also [[3 Nephi 11.31|3 Nephi 11:31–36]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]].
 
-
-
-#Book_Of_Mormon #Godhead #Ordinances #Restoration #Spirituality
+#BookOfMormon #Godhead #Ordinances #Restoration #Spirituality

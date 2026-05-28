@@ -16,7 +16,7 @@ The Lord revealed to the Prophet Joseph Smith the following: “And, if you keep
 
 At the dawning of the Restoration, when this marvelous work was about to appear among the children of men, the Lord said, “Therefore, O ye that embark in the service of God, see that ye serve him with all your heart, might, mind and strength, that ye may stand blameless before God at the last day.”[^4] With all our heart, with all our might, with all our mind, and with all our strength—that is to say, with all our being.
 
-President David O. McKay said that the rich rewards come only to the strenuous strugglers.[^5] These rewards will be for those who nurture faith in Jesus Christ and comply with His will to work, sacrifice, and give all they have received to strengthen and build the kingdom of God.
+President David O. McKay said that the rich rewards come only to the strenuous strugglers.[^5] These rewards will be for those who nurture faith in Jesus Christ and comply with His will to work, sacrifice, and give all they have received to strengthen and build the kingdom of God.
 
 The fulfillment of the divine promise to have eternal life, to achieve perfection, and to be happy forevermore in the family unit is subject to the sincere demonstration of our faith in Jesus Christ, obedience to the commandments, perseverance, and diligence throughout our lives.
 
@@ -34,27 +34,25 @@ As we do so, we will be fulfilling the requirements defined by our Father in Hea
 
 Even when, from a purely human perspective, perfection can appear an impossible challenge to achieve, I testify that our Father and our Savior have made known to us that it is possible to achieve the impossible. Yes, it is possible to achieve eternal life. Yes, it is possible to be happy now and forever.
 
-The author of the perfect plan that contains these glorious promises is our Father in Heaven, and He lives. His Son, Jesus Christ, took upon Himself the weight of our sins and the injustices that are committed in the world to the end that we can be free from the consequences. I know our Lord Jesus Christ lives. The gospel and the priesthood have been restored to the earth for the last time, through the Prophet Joseph Smith. Today we have the enormous blessing of apostles and prophets called by God to direct us on the road to return to our Father. President Thomas S. Monson has been called to lead this great work in these days. He is a prophet of God. Of that I testify in the sacred name of Jesus Christ, amen.
+The author of the perfect plan that contains these glorious promises is our Father in Heaven, and He lives. His Son, Jesus Christ, took upon Himself the weight of our sins and the injustices that are committed in the world to the end that we can be free from the consequences. I know our Lord Jesus Christ lives. The gospel and the priesthood have been restored to the earth for the last time, through the Prophet Joseph Smith. Today we have the enormous blessing of apostles and prophets called by God to direct us on the road to return to our Father. President Thomas S. Monson has been called to lead this great work in these days. He is a prophet of God. Of that I testify in the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[3 Nephi 12.48|3 Nephi 12:48]].
+[^1]: [[3 Nephi 12.48|3 Nephi 12:48]].
 
 [^2]: [[D&C 14.7|D&C 14:7]].
 
-[^3]: See Guide to the Scriptures, “Eternal Life,” [scriptures.lds.org](https://churchofjesuschrist.org/study/scriptures?lang=eng).
+[^3]: See Guide to the Scriptures, “[Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/gs/eternal-life?lang=eng),” [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
 
 [^4]: [[D&C 4.2|D&C 4:2]].
 
-[^5]: See *The Teachings of David O. McKay,* comp. Mary Jane Woodger (2004), 300.
+[^5]: See *The Teachings of David O. McKay,* comp. Mary Jane Woodger (2004), 300.
 
 [^6]: [[Mosiah 4.27|Mosiah 4:27]].
 
-[^7]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^7]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
-[^8]: [[2 Timothy 4.7|2 Timothy 4:7]].
+[^8]: [[2 Timothy 4.7|2 Timothy 4:7]].
 
-
-
-#Atonement #Plan_Of_Salvation
+#Atonement #PlanOfSalvation

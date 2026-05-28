@@ -1,6 +1,6 @@
 # Providing for Our Needs
 
-By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
+By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -32,7 +32,7 @@ Too many people in our country today are developing the attitude that government
 
 Some people who lived through the Great Depression and the period following, when the government bestowed gratuities upon the people, developed a feeling that the world owed them a living. In that climate, the First Presidency said in 1936: “The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (In Conference Report, Oct. 1936, p. 3.)
 
-The love of work is an attitude that members of the Church must develop. In some ways, we have gone through a period of great prosperity which may, when history is written, prove to be as devastating as the Great Depression in its effect upon the attitudes of the people. President Harold B. Lee said, “Today we are being tested and tried by another kind of test that I might call the ‘test of gold’—the test of plenty, affluence, ease—more than perhaps the youth of any generation have passed through, at least in this Church.” (*Sweet Are the Uses of Adversity … ,* Brigham Young University Speeches of the Year, Provo, 7 Feb. 1962, p. 3.)
+The love of work is an attitude that members of the Church must develop. In some ways, we have gone through a period of great prosperity which may, when history is written, prove to be as devastating as the Great Depression in its effect upon the attitudes of the people. President Harold B. Lee said, “Today we are being tested and tried by another kind of test that I might call the ‘test of gold’—the test of plenty, affluence, ease—more than perhaps the youth of any generation have passed through, at least in this Church.” (*Sweet Are the Uses of Adversity … ,* Brigham Young University Speeches of the Year, Provo, 7 Feb. 1962, p. 3.)
 
 The love for work needs to be re-enthroned in our lives. Every family should have a plan for work that touches the lives of each family member so that this eternal principle will be ingrained in their lives.
 
@@ -58,7 +58,13 @@ The third key is to practice *self-discipline* both at our work and as we attemp
 
 1. Avoid debt-pooling where exorbitant fees are charged. We may want to consolidate debts using a bank or credit union loan that can be repaid at a sensible interest rate over a reasonable length of time. We may need to stop using our credit cards.
 
-2. Exercise self-discipline by telling ourselves “We can’t afford it” and refusing to take on further credit obligations.An argument was overheard one day. One spouse said, while scolding the other for extravagant spending, “How many times do I have to tell you that spending money before you get it is economically unsound?”“Oh,” said the other spouse, “I don’t know about that. This way, if you don’t get the money, at least you have something to show for it.”Please be patient and carefully control your purchases so that you will not become enslaved to your creditors.
+2. Exercise self-discipline by telling ourselves “We can’t afford it” and refusing to take on further credit obligations.
+
+An argument was overheard one day. One spouse said, while scolding the other for extravagant spending, “How many times do I have to tell you that spending money before you get it is economically unsound?”
+
+“Oh,” said the other spouse, “I don’t know about that. This way, if you don’t get the money, at least you have something to show for it.”
+
+Please be patient and carefully control your purchases so that you will not become enslaved to your creditors.
 
 3. Make a budget and stick to it.
 
@@ -81,6 +87,4 @@ May the Lord bless all of us to this end, I pray humbly, in the name of Jesus Ch
 
 
 
-
-
-#Financial_Management #Preparation #Self-Reliance
+#FinancialManagement #Preparation #Self-reliance

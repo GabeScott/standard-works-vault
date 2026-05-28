@@ -28,7 +28,7 @@ Helps and reminders will come from the Church Internet site and television chann
 
 In some of the zones of the world, we have an alternative to commercial television networks and some of their antifamily programming. We have BYU Television, which presents family-oriented programs. In addition to programs that bring gospel teaching, there are programs directed to parent instruction and family entertainment. We will also be striving to increase the quality and frequency of our family-centered Home Front public service spots.
 
-We have other helps covering a wider area than the television network. One such help is the Church Web site, . It has recently been updated to include a new home and family page. The page includes thoughts from the scriptures and Church leaders to strengthen the family. It also includes ideas for family activities. A new home and family section provides:
+We have other helps covering a wider area than the television network. One such help is the Church Web site, [www.lds.org](https://www.churchofjesuschrist.org). It has recently been updated to include a new home and family page. The page includes thoughts from the scriptures and Church leaders to strengthen the family. It also includes ideas for family activities. A new home and family section provides:
 
 - Teachings from Church leaders specifically for the family.
 
@@ -64,7 +64,7 @@ We hope that by flooding the Church with family-oriented media, members of the C
 
 From the very beginning the Lord has established the importance of the family organization for us. Soon after Adam and Eve left the Garden of Eden, the Lord spoke to them:
 
-“The Holy Ghost fell upon Adam, \[and\] beareth record of the Father and the Son. …
+“The Holy Ghost fell upon Adam, \[and\] beareth record of the Father and the Son. …
 
 “\[Then\] in that day Adam blessed God and was filled, and began to prophesy concerning all the families of the earth, saying: Blessed be the name of God, for because of my transgression my eyes are opened, and in this life I shall have joy, and again in the flesh I shall see God.
 
@@ -96,7 +96,7 @@ May it be our resolve this year to build a gospel-centered home, a safe harbor f
 
 “The glory of God is intelligence, or, in other words, light and truth.
 
-“Light and truth forsake that evil one. …
+“Light and truth forsake that evil one. …
 
 “And that wicked one cometh and taketh away light and truth, through disobedience, from the children of men, and because of the tradition of their fathers.
 
@@ -123,6 +123,4 @@ May this be our year for enjoying the light and truth of the gospel in our homes
 
 [^8]: [[D&C 93.36|D&C 93:36–37, 39–40]][[D&C 93.37|]][[D&C 93.39|]][[D&C 93.40|]].
 
-
-
-#Family #Family_Home_Evening #Home #Media #Sabbath
+#FamilyHomeEvening #Family #Home #Media #Sabbath

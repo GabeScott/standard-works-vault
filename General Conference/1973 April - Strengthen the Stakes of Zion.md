@@ -1,6 +1,6 @@
 # Strengthen the Stakes of Zion
 
-By President Harold B. Lee - *President of the Church*
+By President Harold B. Lee - *President of the Church*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -34,7 +34,7 @@ While the Church was in its infancy, the Lord pointed to a time when those earli
 
 “For thus shall my church be called in the last days, even The Church of Jesus Christ of Latter-day Saints.” And then this command: “Arise and shine forth, that thy light may be a standard for the nations.” ([[D&C 115.4|D&C 115:4–5]][[D&C 115.5|]].)
 
-Here is clearly inferred that the coming forth of his church in these days was the beginning of the fulfillment of the ancient prophecy when “the mountain of the Lord’s house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it. And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths. …” ([[Isaiah 2.2|Isa. 2:2–3]][[Isaiah 2.3|]].)
+Here is clearly inferred that the coming forth of his church in these days was the beginning of the fulfillment of the ancient prophecy when “the mountain of the Lord’s house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it. And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths. …” ([[Isaiah 2.2|Isa. 2:2–3]][[Isaiah 2.3|]].)
 
 In these revelations the Lord speaks of organized units of the Church which are designated as stakes, each of which those not of our faith may think of as a diocese. These units so organized are gathered together for these fundamental purposes: first, for a defense against the enemies of the Lord’s work, both the seen and the unseen.
 
@@ -62,9 +62,9 @@ We have also been promised by the Lord: “Behold, and lo, I will take care of y
 
 Today we are witnessing the demonstration of the Lord’s hand even in the midst of his saints, the members of the Church. Never in this dispensation, and perhaps never before in any single period, has there been such a feeling of urgency among the members of this church as today. Her boundaries are being enlarged, her stakes are being strengthened. In the early years of the Church specific places to which the Saints were to be gathered together were given, and the Lord directed that these gathering places should not be changed, but then he gave one qualification: “Until the day cometh when there is found no more room for them; and then I have other places which I will appoint unto them, and they shall be called stakes, for the curtains or the strength of Zion.” ([[D&C 101.21|D&C 101:21]].)
 
-At the Mexico City Area Conference last August, Elder Bruce R. McConkie of the Council of the Twelve, in a thought-provoking address, made some comments pertinent to this subject, and I quote a few sentences from his address:
+At the Mexico City Area Conference last August, Elder Bruce R. McConkie of the Council of the Twelve, in a thought-provoking address, made some comments pertinent to this subject, and I quote a few sentences from his address:
 
-“Of this glorious day of restoration and gathering, another Nephite prophet said: ‘The Lord … has covenanted with all the house of Israel,’ that ‘the time comes that they shall be restored to the true church and fold of God’; and that ‘they shall be gathered home to the lands of their inheritance, and shall be established in all their lands of promise.’ ([[2 Nephi 9.1|2 Ne. 9:1–2]][[2 Nephi 9.2|]].)
+“Of this glorious day of restoration and gathering, another Nephite prophet said: ‘The Lord … has covenanted with all the house of Israel,’ that ‘the time comes that they shall be restored to the true church and fold of God’; and that ‘they shall be gathered home to the lands of their inheritance, and shall be established in all their lands of promise.’ ([[2 Nephi 9.1|2 Ne. 9:1–2]][[2 Nephi 9.2|]].)
 
 “Now I call your attention to the facts, set forth in these scriptures, that the gathering of Israel consists of joining the true church; of coming to a knowledge of the true God and of his saving truths; and of worshiping him in the congregations of the Saints in all nations and among all peoples. Please note that these revealed words speak of the *folds* of the Lord; of Israel being gathered to the lands of their inheritance; of Israel being *established in all their lands of promise;* and of there being congregations of the covenant people of the Lord in *every nation, speaking every tongue,* and *among every people* when the Lord comes again.”
 
@@ -82,7 +82,7 @@ This greatly expanded church population is today our most challenging problem, a
 
 Two basic principles have always guided the leaders of the Church in their planning to meet these circumstances. The first that might be called to the attention of those who would be interested is the basic principle of the plan of salvation from before the foundation of the world, for the redemption of mankind and which has been revealed to the prophets of this dispensation and has not been changed, for as the apostle Paul declared in his day, so do we declare today:
 
-“But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed. …
+“But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed. …
 
 “But I certify you, brethren, that the gospel which was preached of me is not after man.
 
@@ -90,21 +90,21 @@ Two basic principles have always guided the leaders of the Church in their plann
 
 If we were to answer those who ask us why the steady growth, we would answer that the first fundamental reason would be that we have held our course in teaching the fundamental doctrines of the Church. We declare in one of our Articles of Faith:
 
-“We believe \[and, we might add, teach\] all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God.” ([[Articles of Faith 1.9|A of F 1:9]].)
+“We believe \[and, we might add, teach\] all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God.” ([[Articles of Faith 1.9|A of F 1:9]].)
 
-In one of the latest of the Lord’s revelations in this dispensation, he gave the reason for the confusion among the many churches then in existence: because they have, as he said, “strayed from mine ordinances, and have broken mine everlasting covenant; They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world. …” ([[D&C 1.15|D&C 1:15–16]][[D&C 1.16|]].)
+In one of the latest of the Lord’s revelations in this dispensation, he gave the reason for the confusion among the many churches then in existence: because they have, as he said, “strayed from mine ordinances, and have broken mine everlasting covenant; They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world. …” ([[D&C 1.15|D&C 1:15–16]][[D&C 1.16|]].)
 
 Therefore a new restoration was necessary, as he plainly declared:
 
 “Wherefore, I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments;
 
-“And also gave commandments to others, that they should proclaim these things unto the world; and all this that it might be fulfilled, which was written by the prophets. …
+“And also gave commandments to others, that they should proclaim these things unto the world; and all this that it might be fulfilled, which was written by the prophets. …
 
-“But that every man might speak in the name of God the Lord, even the Savior of the world; …
+“But that every man might speak in the name of God the Lord, even the Savior of the world; …
 
 “That the fulness of my gospel might be proclaimed by the weak and the simple unto the ends of the world, and before kings and rulers.
 
-“… after the manner of their language, that they might come to understanding.” ([[D&C 1.17|D&C 1:17–18, 20, 23–24]][[D&C 1.18|]][[D&C 1.20|]][[D&C 1.23|]][[D&C 1.24|]].)
+“… after the manner of their language, that they might come to understanding.” ([[D&C 1.17|D&C 1:17–18, 20, 23–24]][[D&C 1.18|]][[D&C 1.20|]][[D&C 1.23|]][[D&C 1.24|]].)
 
 There are those who speak of an ecumenical movement, where theoretically, it is supposed, all churches would be brought together into a universal organization. In essence it probably would contemplate that they would give up their basic principles and be united in a nebulous organization which would not necessarily be founded on the principles as have traditionally been the doctrines of the church of Jesus Christ from the beginning.
 
@@ -130,7 +130,7 @@ In answer to the questions as to whether or not there may have been any dropouts
 
 But perhaps the most important reason of all for the growth of the Church is the individual testimonies of the divinity of this work, as would be multiplied in the hearts of the individual members of the Church. For the strength of the Church is not in the numbers, nor in the amount of tithes and offerings paid by faithful members, nor in the magnitude of chapels and temple buildings, but because in the hearts of faithful members of the Church is the conviction that this is indeed the church and kingdom of God on the earth. Without that conviction, as one of my eminent business associates remarked, “The welfare plan of the Church would be but a shambles”; also missionary work would not flourish; and members would not be faithful in making generous contributions to the Church to finance its many operations. The secret of the strength of this church may be found in the statement of a president of a student body at one of our state-operated universities, whose identity, of course, is confidential. This is a quotation from his personal letter addressed to me:
 
-“With the rule of the radical ideas which are sweeping the country, there has come a breakdown of family ties which is despised in many intellectual circles. The country is seemingly plied with sex education, abortion, planned parenthood, pornography, women’s liberation, communal living, premarital sex, and postmarital permissiveness. …”
+“With the rule of the radical ideas which are sweeping the country, there has come a breakdown of family ties which is despised in many intellectual circles. The country is seemingly plied with sex education, abortion, planned parenthood, pornography, women’s liberation, communal living, premarital sex, and postmarital permissiveness. …”
 
 And then this young college student leader concludes with this heartwarming declaration, which I know came from the depths of his soul. This is what he wrote:
 
@@ -145,6 +145,4 @@ I want to bear my sacred witness that because I know of the divinity of this wor
 
 
 
-
-
-#Church_Organization #Zion
+#ChurchOrganization #Zion

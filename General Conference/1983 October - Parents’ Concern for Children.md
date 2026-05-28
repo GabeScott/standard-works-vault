@@ -1,6 +1,6 @@
 # Parents’ Concern for Children
 
-By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
+By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -53,8 +53,6 @@ We should never let Satan fool us into thinking that all is lost. Let us take pr
 A successful parent is one who has loved, one who has sacrificed, and one who has cared for, taught, and ministered to the needs of a child. If you have done all of these and your child is still wayward or troublesome or worldly, it could well be that you are, nevertheless, a successful parent. Perhaps there are children who have come into the world that would challenge any set of parents under any set of circumstances. Likewise, perhaps there are others who would bless the lives of, and be a joy to, almost any father or mother.
 
 My concern today is that there are parents who may be pronouncing harsh judgments upon themselves and may be allowing these feelings to destroy their lives, when in fact they have done their best and should continue in faith. That all who are parents might find joy in their efforts with their children is my prayer, in the name of Jesus Christ, amen.
-
-
 
 
 

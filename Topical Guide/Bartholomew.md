@@ -1,4 +1,3 @@
 # Bartholomew
 
-
-*See* [BD Bartholomew](https://www.churchofjesuschrist.org/study/scriptures/bd/bartholomew?lang=eng)
+*See also* [[BD Bartholomew.md|BD Bartholomew]]

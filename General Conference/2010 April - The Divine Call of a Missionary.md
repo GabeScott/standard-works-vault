@@ -14,11 +14,11 @@ Missionary work is a subject very close to my heart, as it is to every member of
 
 When the Master ministered among men, He called fishermen at Galilee to leave their nets and follow Him, declaring, “I will make you fishers of men.”[^2] The Lord extended those calls to humble men so that through them others would hear the truths of His gospel and come unto Him.
 
-In June of 1837, the Prophet Joseph Smith called Heber C. Kimball, an Apostle, to go on a mission to England. Elder Kimball’s call came as the two sat in the Kirtland Temple and Joseph spoke with divine authority: “Brother Heber, the Spirit of the Lord has whispered to me, ‘Let my servant Heber go to England and proclaim my gospel and open the door of salvation to that nation.’”[^3]
+In June of 1837, the Prophet Joseph Smith called Heber C. Kimball, an Apostle, to go on a mission to England. Elder Kimball’s call came as the two sat in the Kirtland Temple and Joseph spoke with divine authority: “Brother Heber, the Spirit of the Lord has whispered to me, ‘Let my servant Heber go to England and proclaim my gospel and open the door of salvation to that nation.’”[^3]
 
 That whispering of the Spirit is an example of how the call comes to servants of the Lord to send missionaries to their fields of labor.
 
-Today missionaries go forth two by two as appointed by the Lord, carrying that same message, with the same divine call to serve from the prophet of God. Our prophet, President Thomas S. Monson, has said of those called to serve: “The missionary opportunity of a lifetime is yours. The blessings of eternity await you. Yours is the privilege to be not spectators but participants on the stage of priesthood service.”[^4]
+Today missionaries go forth two by two as appointed by the Lord, carrying that same message, with the same divine call to serve from the prophet of God. Our prophet, President Thomas S. Monson, has said of those called to serve: “The missionary opportunity of a lifetime is yours. The blessings of eternity await you. Yours is the privilege to be not spectators but participants on the stage of priesthood service.”[^4]
 
 The stage is yours, my dear Aaronic Priesthood boys. Are you ready and willing to play your part? The Lord needs every able young man to prepare and recommit, starting tonight, to be worthy of a call from the prophet of God to serve a mission.
 
@@ -28,9 +28,9 @@ As Sister Rasband and I had the privilege of presiding over the New York New Yor
 
 As I interviewed them on their first day in the mission, I had a profound sense of gratitude for each missionary. I felt that their call to our mission was divinely designed for them and for me as their mission president.
 
-After finishing our mission assignment, I was called by President Gordon B. Hinckley to serve as a Seventy in the Church. Part of my early training as a new General Authority included an opportunity to sit with members of the Twelve as they assigned missionaries to serve in one of the 300-plus missions of this great Church.
+After finishing our mission assignment, I was called by President Gordon B. Hinckley to serve as a Seventy in the Church. Part of my early training as a new General Authority included an opportunity to sit with members of the Twelve as they assigned missionaries to serve in one of the 300-plus missions of this great Church.
 
-With the encouragement and permission of President Henry B. Eyring, I would like to relate to you an experience, very special to me, which I had with him several years ago when he was a member of the Quorum of the Twelve. Each Apostle holds the keys of the kingdom and exercises them at the direction and assignment of the President of the Church. Elder Eyring was assigning missionaries to their fields of labor, and as part of my training, I was invited to observe.
+With the encouragement and permission of President Henry B. Eyring, I would like to relate to you an experience, very special to me, which I had with him several years ago when he was a member of the Quorum of the Twelve. Each Apostle holds the keys of the kingdom and exercises them at the direction and assignment of the President of the Church. Elder Eyring was assigning missionaries to their fields of labor, and as part of my training, I was invited to observe.
 
 I joined Elder Eyring early one morning in a room where several large computer screens had been prepared for the session. There was also a staff member from the Missionary Department who had been assigned to assist us that day.
 
@@ -77,7 +77,7 @@ At this time in your life, a mission call from the Lord, my young friends, is th
 
 [^3]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 327.
 
-[^4]: Thomas S. Monson, in Conference Report, Apr. 1995, 67; or *Ensign,* May 1995, 49.
+[^4]: Thomas S. Monson, in Conference Report, Apr. 1995, [[1995 April - That All May Hear.md|67]]; or *Ensign,* May 1995, 49.
 
 [^5]: [[D&C 15.4|Doctrine and Covenants 15:4]]; [[D&C 16.4|16:4]].
 
@@ -85,6 +85,4 @@ At this time in your life, a mission call from the Lord, my young friends, is th
 
 [^7]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-#Missionary_Work #Preparation #Priesthood #Spirituality
+#MissionaryWork #Preparation #Priesthood #Spirituality

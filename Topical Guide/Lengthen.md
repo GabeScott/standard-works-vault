@@ -1,6 +1,5 @@
 # Lengthen
 
-
 that thy days may be *lengthened*, [[Deuteronomy 25.15|Deuteronomy 25:15]].
 
 *lengthen* thy cords, and strengthen thy stakes, [[Isaiah 54.2|Isaiah 54:2]] ([[3 Nephi 22.2|3 Nephi 22:2]]).

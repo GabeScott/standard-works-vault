@@ -1,9 +1,8 @@
 # Stewardship, Steward
 
-
 *See also* [[Accountability.md|Accountability]]; [[Delegation of Responsibility.md|Delegation of Responsibility]]
 
-Abraham ... kept my *charge*, [[Genesis 26.5|Genesis 26:5]].
+Abraham … kept my *charge*, [[Genesis 26.5|Genesis 26:5]].
 
 Lord spake unto Moses and unto Aaron, and gave them a *charge*, [[Exodus 6.13|Exodus 6:13]].
 
@@ -37,7 +36,7 @@ taking upon us the *responsibility*, answering the sins, [[Jacob 1.19|Jacob 1:19
 
 give unto them every one his *charge*, [[Alma 35.16|Alma 35:16]].
 
-every man shall be ... a *steward* over his own property, [[D&C 42.32|D&C 42:32]].
+every man shall be … a *steward* over his own property, [[D&C 42.32|D&C 42:32]].
 
 priests and teachers shall have their *stewardships*, [[D&C 42.70|D&C 42:70]].
 
@@ -45,7 +44,7 @@ wise *steward* shall enter into the joy of his Lord, [[D&C 51.19|D&C 51:19]].
 
 if they are not faithful in their *stewardships*, [[D&C 64.40|D&C 64:40]].
 
-servants ... send forth the accounts of their *stewardships*, [[D&C 69.5|D&C 69:5]].
+servants … send forth the accounts of their *stewardships*, [[D&C 69.5|D&C 69:5]].
 
 account of this *stewardship* will I require, [[D&C 70.4|D&C 70:4]] ([[D&C 72.3|D&C 72:3]]; [[D&C 124.14|D&C 124:14]]).
 
@@ -59,8 +58,6 @@ cut off those wicked, unfaithful, and unjust *stewards*, [[D&C 101.90|D&C 101:90
 
 organize yourselves and appoint every man his *stewardship*, [[D&C 104.11|D&C 104:11]].
 
-be diligent ... that thou mayest be a wise *steward*, [[D&C 136.27|D&C 136:27]].
+be diligent … that thou mayest be a wise *steward*, [[D&C 136.27|D&C 136:27]].
 
 I should be *responsible* for them, [[Joseph Smith History 1.59|Joseph Smith History 1:59]].
-
-*See also* [[Matthew 18.23|Matthew 18:23]]; [[1 Timothy 4.14|1 Timothy 4:14]].

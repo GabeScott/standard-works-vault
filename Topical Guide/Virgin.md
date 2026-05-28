@@ -1,6 +1,5 @@
 # Virgin
 
-
 *See also* [[Damsel.md|Damsel]]; [[Jesus Christ, Birth of.md|Jesus Christ, Birth of]]
 
 pay money according to the dowry of *virgins*, [[Exodus 22.17|Exodus 22:17]].
@@ -35,9 +34,9 @@ in the city of Nazareth I beheld a *virgin*, [[1 Nephi 11.13|1 Nephi 11:13]].
 
 *virgin* whom thou seest is the mother of the Son of God, [[1 Nephi 11.18|1 Nephi 11:18]].
 
-Mary ... being a *virgin*, a precious and chosen vessel, [[Alma 7.10|Alma 7:10]].
+Mary … being a *virgin*, a precious and chosen vessel, [[Alma 7.10|Alma 7:10]].
 
-parable be fulfilled ... concerning the ten *virgins*, [[D&C 45.56|D&C 45:56]].
+parable be fulfilled … concerning the ten *virgins*, [[D&C 45.56|D&C 45:56]].
 
 until that hour there will be foolish *virgins*, [[D&C 63.54|D&C 63:54]].
 

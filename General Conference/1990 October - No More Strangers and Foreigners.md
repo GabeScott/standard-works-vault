@@ -45,6 +45,4 @@ And may we also, as members of the Church, truly do our part to make His church 
 
 
 
-
-
-#Fellowshipping #Missionary_Work
+#Fellowshipping #MissionaryWork

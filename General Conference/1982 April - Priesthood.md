@@ -1,6 +1,6 @@
 # Priesthood
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -8,7 +8,7 @@ By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 Brethren, I came to the conclusion after studying for some time on the matter that priesthood is power. As I speak tonight I desire to remind us of the importance of magnifying our callings in the priesthood. (See [[D&C 84.33|D&C 84:33]].)
 
-By reason of our ordination to the priesthood, we are the most honored of all men. By the same token, we are charged with the greatest responsibility. We should diligently try—through prayer, study, and the faithful performance of our priesthood duties—to learn all we can about the priesthood. Even so, we will not be able, in mortal life, to fully comprehend it. We can, however, understand that priesthood is power—the power of God. By means of the priesthood he exercises, God the Father brings into existence and governs all of his creations. President Brigham Young said that “the Priesthood of the Son of God … is the law by which the worlds are, were, and will continue for ever and ever. It is that system which brings worlds into existence and peoples them, gives them their revolutions—their days, weeks, months, years, their seasons and times and by which they are rolled up as a scroll, as it were, and go into a higher state of existence.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 130.)
+By reason of our ordination to the priesthood, we are the most honored of all men. By the same token, we are charged with the greatest responsibility. We should diligently try—through prayer, study, and the faithful performance of our priesthood duties—to learn all we can about the priesthood. Even so, we will not be able, in mortal life, to fully comprehend it. We can, however, understand that priesthood is power—the power of God. By means of the priesthood he exercises, God the Father brings into existence and governs all of his creations. President Brigham Young said that “the Priesthood of the Son of God … is the law by which the worlds are, were, and will continue for ever and ever. It is that system which brings worlds into existence and peoples them, gives them their revolutions—their days, weeks, months, years, their seasons and times and by which they are rolled up as a scroll, as it were, and go into a higher state of existence.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 130.)
 
 Jesus gave us demonstration after demonstration of the power of the priesthood. In his first recorded miracle, he turned water into wine. (See [[John 2.1|John 2:1–11]][[John 2.2|]][[John 2.3|]][[John 2.4|]][[John 2.5|]][[John 2.6|]][[John 2.7|]][[John 2.8|]][[John 2.9|]][[John 2.10|]][[John 2.11|]].)
 
@@ -45,3 +45,4 @@ I pray that we will all magnify our priesthood by living the gospel, so that we 
 
 
 
+#Miracles #Priesthood

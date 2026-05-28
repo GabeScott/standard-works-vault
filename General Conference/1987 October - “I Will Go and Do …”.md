@@ -12,7 +12,7 @@ It was a great thrill for me to see President Heber J. Grant for the first time.
 
 I have been so humbled by this unexpected calling, and I do not have the vocabulary to express how I felt when President Thomas S. Monson issued my call. Certainly the words of Nephi took on a significance for me that I had never before felt:
 
-“I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]).
+“I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]).
 
 I feel that scripture has great significance for everyone in the Church, no matter what his calling might be. Experience has taught me that the Lord does prepare the way if we are diligent and faithful in doing our part.
 
@@ -33,8 +33,6 @@ Sister Sorensen and I recently had the opportunity to tour the new Fortaleza Mis
 “President, perhaps with the passing of time, I will forget your appearance or how you walked or things like that, but your love for the gospel and your testimony I will never forget.”
 
 If I am to be remembered at all by the membership of the Church, I hope it will be in this manner, for I do have a great love for the gospel and for all the members of the Church everywhere. I do not feel at ease sitting in these red, upholstered chairs, but I have a sincere, burning testimony of this work. May the Lord bless me that I may touch the lives of those he loves throughout the Church. May I be guided and directed by him always, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

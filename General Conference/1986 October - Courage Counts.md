@@ -36,7 +36,7 @@ Who can help but be inspired by the lives of the two thousand stripling sons of 
 
 Perhaps each of these accounts is crowned by the example of Moroni, who had the courage to persevere to the end in righteousness (see [[Moroni 1.1|Moro. 1–10]][[Moroni 1.2|]][[Moroni 1.3|]][[Moroni 1.4|]]).
 
-All were fortified by the words of Moses: “Be strong and of a good courage, fear not, nor be afraid … : for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee” ([[Deuteronomy 31.6|Deut. 31:6]]). He did not fail them. He will not fail us. He did not forsake them. He will not forsake us.
+All were fortified by the words of Moses: “Be strong and of a good courage, fear not, nor be afraid … : for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee” ([[Deuteronomy 31.6|Deut. 31:6]]). He did not fail them. He will not fail us. He did not forsake them. He will not forsake us.
 
 It was this knowledge that prompted the courage of Columbus—the quiet resolve to record in his ship’s log again and again: “This day we sailed on.” It was this witness that motivated the Prophet Joseph to declare, “I am going like a lamb to the slaughter; but I am calm as a summer’s morning” ([[D&C 135.4|D&C 135:4]]).
 
@@ -67,8 +67,6 @@ After a long pause, first one cane and then the other was placed on the desk, an
 This spring I thought once more of the courage demonstrated by Randall Ellsworth. Years had passed since his ordeal. He was now a husband and a father. An engraved announcement arrived at my office. It read: “The President and Directors of Georgetown University announce commencement exercises of Georgetown University School of Medicine.” Randall Ellsworth received his Doctor of Medicine degree. More effort, more study, more faith, more sacrifice, more courage had been required. The price was paid, the victory won.
 
 My brethren, let us be active participants—not mere spectators—on the stage of priesthood power. May we muster courage at the crossroads, courage for the conflicts, courage to say *no,* courage to say *yes,* for *courage counts.* Of this truth I testify in the name of Jesus Christ, amen.
-
-
 
 
 

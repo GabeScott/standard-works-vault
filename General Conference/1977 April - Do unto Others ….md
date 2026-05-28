@@ -1,6 +1,6 @@
 # Do unto Others …
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -32,31 +32,31 @@ Read again the parable of the Good Samaritan ([[Luke 10.30|Luke 10:30–37]][[Lu
 
 “I was an hungered, and ye gave me no meat: I was thirsty, and ye gave me no drink:
 
-“I was a stranger, and ye took me not in: … sick, and in prison, and ye visited me not. …
+“I was a stranger, and ye took me not in: … sick, and in prison, and ye visited me not. …
 
 “Verily I say unto you, Inasmuch as ye did it not to one of the least of these, ye did it not to me.” ([[Matthew 25.42|Matt. 25:42–43, 45]][[Matthew 25.43|]][[Matthew 25.45|]].)
 
 Those to whom he spoke, who were thus neglectful, were not counted with the sheep of his fold. They were not on his favored right hand, but on his left where there is weeping and gnashing of teeth. “And these,” the scripture says, “shall go away into everlasting punishment.” ([[Matthew 25.46|Matt. 25:46]].)
 
-The First Epistle of John tells us that if we do not have good relationships with our neighbors, whom we have seen, we cannot rightfully claim to love God, whom we have not seen. ([[1 John 4.20|1 Jn. 4:20]].)
+The First Epistle of John tells us that if we do not have good relationships with our neighbors, whom we have seen, we cannot rightfully claim to love God, whom we have not seen. ([[1 John 4.20|1 Jn. 4:20]].)
 
 Do we take time occasionally to read the Sermon on the Mount? It refers largely to our relationships with one another. Let me mention just a few of its principles. I quote from this sermon as it appears in the Book of Mormon:
 
 “If ye shall come unto me, or shall desire to come unto me, and rememberest that thy brother hath aught against thee—
 
-“Go thy way unto thy brother, and first be reconciled to thy brother, and then come unto me with full purpose of heart, and I will receive you.” ([[3 Nephi 12.23|3 Ne. 12:23–24]][[3 Nephi 12.24|]].)
+“Go thy way unto thy brother, and first be reconciled to thy brother, and then come unto me with full purpose of heart, and I will receive you.” ([[3 Nephi 12.23|3 Ne. 12:23–24]][[3 Nephi 12.24|]].)
 
 Can we suppose for one moment that the Lord would welcome us on any other basis?
 
 And then we have this: “If ye forgive men their trespasses your heavenly Father will also forgive you;
 
-“But if ye forgive not men their trespasses neither will your Father forgive your trespasses.” ([[3 Nephi 13.14|3 Ne. 13:14–15]][[3 Nephi 13.15|]].)
+“But if ye forgive not men their trespasses neither will your Father forgive your trespasses.” ([[3 Nephi 13.14|3 Ne. 13:14–15]][[3 Nephi 13.15|]].)
 
 Note what a great principle is involved here, and how it can affect each one of us. “If ye forgive not men their trespasses neither will your Father forgive your trespasses.” Let us pause a moment and ask ourselves if we can enter his kingdom with unforgiven sins.
 
 And then he said: “Judge not, that ye be not judged.
 
-“For with what judgment ye judge, ye shall be judged; and with what measure ye mete, it shall be measured to you again.” ([[3 Nephi 14.1|3 Ne. 14:1–2]][[3 Nephi 14.2|]].)
+“For with what judgment ye judge, ye shall be judged; and with what measure ye mete, it shall be measured to you again.” ([[3 Nephi 14.1|3 Ne. 14:1–2]][[3 Nephi 14.2|]].)
 
 In the first section of the Doctrine and Covenants we read that “the Lord shall come to recompense unto every man according to his work, and measure to every man according to the measure which he has measured to his fellow man.” ([[D&C 1.10|D&C 1:10]].)
 
@@ -64,17 +64,17 @@ This teaching deserves the most careful consideration, for on judgment day the L
 
 This principle, showing the manner by which God will judge us, puts a new light upon the commandment to love our neighbors as ourselves, and should persuade us to take that law seriously.
 
-It also helps us to understand the deep meaning of the Golden Rule: “All things whatsoever ye would that men should do to you, do ye even so to them.” This is a commandment, and to further emphasize it the Lord said: “This is the law and the prophets.” ([[3 Nephi 14.12|3 Ne. 14:12]].)
+It also helps us to understand the deep meaning of the Golden Rule: “All things whatsoever ye would that men should do to you, do ye even so to them.” This is a commandment, and to further emphasize it the Lord said: “This is the law and the prophets.” ([[3 Nephi 14.12|3 Ne. 14:12]].)
 
 It is not something we may lightly set aside. Does it not help us to better understand the twenty-fifth chapter of Matthew? Can we see then his purpose in disciplining people for being unkind to their fellowmen?
 
-What makes it even more compelling is another statement which the Lord gave us in the Sermon on the Mount, and this to me is awesome. Said the Lord, “Verily I say unto you, that except ye shall keep my commandments, which I have commanded you at this time, *ye shall in no case enter into the kingdom of heaven.*” ([[3 Nephi 12.20|3 Ne. 12:20]]; italics added.)
+What makes it even more compelling is another statement which the Lord gave us in the Sermon on the Mount, and this to me is awesome. Said the Lord, “Verily I say unto you, that except ye shall keep my commandments, which I have commanded you at this time, *ye shall in no case enter into the kingdom of heaven.*” ([[3 Nephi 12.20|3 Ne. 12:20]]; italics added.)
 
 Frightening, isn’t it?
 
-With this scripture we should keep in mind another divine declaration: “And no unclean thing can enter into his kingdom; therefore nothing entereth into his rest save it be those who have washed their garments in my blood, because of their faith, and the repentance of all their sins, and their faithfulness unto the end. …
+With this scripture we should keep in mind another divine declaration: “And no unclean thing can enter into his kingdom; therefore nothing entereth into his rest save it be those who have washed their garments in my blood, because of their faith, and the repentance of all their sins, and their faithfulness unto the end. …
 
-“And he that endureth not unto the end, the same is he that is also hewn down and cast into the fire, from whence they can no more return, because of the justice of the Father.” ([[3 Nephi 27.19|3 Ne. 27:19, 17]][[3 Nephi 27.17|]].)
+“And he that endureth not unto the end, the same is he that is also hewn down and cast into the fire, from whence they can no more return, because of the justice of the Father.” ([[3 Nephi 27.19|3 Ne. 27:19, 17]][[3 Nephi 27.17|]].)
 
 Doesn’t that startle you? Doesn’t it convince you that we must take his commandments seriously?
 
@@ -84,33 +84,33 @@ If we hope to enter his kingdom, we cannot regard these basic commandments as if
 
 If we are unkind, unclean, dishonest, or cruel; if we are hypocritical and appear pious when in fact our hearts are evil, we throw our hope of salvation to the four winds, unless we truly repent.
 
-As he spoke to the Nephites, the Savior asked: “What manner of men ought ye to be?” And he quickly replied, “Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+As he spoke to the Nephites, the Savior asked: “What manner of men ought ye to be?” And he quickly replied, “Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
-We all remember these familiar words: “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father who is in heaven.” ([[3 Nephi 14.21|3 Ne. 14:21]].) This, too, should give us pause, for mere protestations of faith will not admit us into the kingdom, even though we may say, “Have we not prophesied in thy name, and in thy name have cast out devils, and in thy name done many wonderful works?” ([[3 Nephi 14.22|3 Ne. 14:22]].)
+We all remember these familiar words: “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father who is in heaven.” ([[3 Nephi 14.21|3 Ne. 14:21]].) This, too, should give us pause, for mere protestations of faith will not admit us into the kingdom, even though we may say, “Have we not prophesied in thy name, and in thy name have cast out devils, and in thy name done many wonderful works?” ([[3 Nephi 14.22|3 Ne. 14:22]].)
 
-If we have not obeyed the weightier matters of the law, dealing justly with our fellowmen, he will surely say to us: “I never knew you; depart from me, ye that work iniquity.” ([[3 Nephi 14.23|3 Ne. 14:23]].)
+If we have not obeyed the weightier matters of the law, dealing justly with our fellowmen, he will surely say to us: “I never knew you; depart from me, ye that work iniquity.” ([[3 Nephi 14.23|3 Ne. 14:23]].)
 
 This helps us to better understand the words of Paul as he said: “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.
 
 “And though I have the gift of prophecy, and understand all mysteries, and all knowledge; and though I have all faith, so that I could remove mountains, and have not charity, I am nothing.
 
-“And though I bestow all my goods to feed the poor, and though I give my body to be burned, and have not charity, it profiteth me nothing.” ([[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]].)
+“And though I bestow all my goods to feed the poor, and though I give my body to be burned, and have not charity, it profiteth me nothing.” ([[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]].)
 
 And what is charity in its true sense? It is the pure love of Christ which helps us to love both God and our fellowmen.
 
 In the book of Alma we read a further explanation: “If ye do not remember to be charitable, ye are as dross, which the refiners do cast out, (it being of no worth) and is trodden under foot of men.” ([[Alma 34.29|Alma 34:29]].)
 
-The Lord teaches us that we cannot serve two masters, God and Mammon, at the same time ([[3 Nephi 13.24|3 Ne. 13:24]]), but many still try to do so!
+The Lord teaches us that we cannot serve two masters, God and Mammon, at the same time ([[3 Nephi 13.24|3 Ne. 13:24]]), but many still try to do so!
 
 Why is the Lord so strict in requiring detailed obedience from us? It is because he expects us to become perfect as he is. The very object of our existence as children of God is to become like Him. But no unclean thing may enter his presence. Therefore we must perfect ourselves, beginning here in mortality, keeping in mind that we cannot achieve perfection through imperfect means.
 
 That is why God is so strict. That is why he cannot look upon sin with the least degree of allowance.
 
-One of our great failings is that often we are slothful in complying with the commandments. With respect to this he said: “It is not meet that I should command in all things; for he that is compelled in all things, the same is slothful and not a wise servant; wherefore he receiveth no reward. …
+One of our great failings is that often we are slothful in complying with the commandments. With respect to this he said: “It is not meet that I should command in all things; for he that is compelled in all things, the same is slothful and not a wise servant; wherefore he receiveth no reward. …
 
 “But he that doeth not anything until he is commanded, and receiveth a commandment with doubtful heart, and keepeth it with slothfulness, the same is damned.” ([[D&C 58.26|D&C 58:26, 29]][[D&C 58.29|]].)
 
-The Prophet Abinadi gave us further understanding of this vital principle in these words: “The Lord redeemeth none such that rebel against him and die in their sins; yea, even all those that have perished in their sins ever since the world began, that have wilfully rebelled against God, that have known the commandments of God, and would not keep them; these are they that have no part in the first resurrection. …
+The Prophet Abinadi gave us further understanding of this vital principle in these words: “The Lord redeemeth none such that rebel against him and die in their sins; yea, even all those that have perished in their sins ever since the world began, that have wilfully rebelled against God, that have known the commandments of God, and would not keep them; these are they that have no part in the first resurrection. …
 
 “For salvation cometh to none such; for the Lord hath redeemed none such; yea, neither can the Lord redeem such.” ([[Mosiah 15.26|Mosiah 15:26–27]][[Mosiah 15.27|]].)
 
@@ -120,9 +120,7 @@ But nevertheless the Lord invites all to come unto him on conditions of repentan
 
 “For my yoke is easy, and my burden is light.” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].)
 
-So what are we to do? We are to “seek … first the kingdom of God and his righteousness.” ([[3 Nephi 13.33|3 Ne. 13:33]].) We are to give our religion first priority in our lives, and then serve God with all our hearts and do unto others as we would be done by as we travel down the road to Jericho. And that we may do so is my humble and earnest prayer in the sacred name of the Lord Jesus Christ. Amen.
-
-
+So what are we to do? We are to “seek … first the kingdom of God and his righteousness.” ([[3 Nephi 13.33|3 Ne. 13:33]].) We are to give our religion first priority in our lives, and then serve God with all our hearts and do unto others as we would be done by as we travel down the road to Jericho. And that we may do so is my humble and earnest prayer in the sacred name of the Lord Jesus Christ. Amen.
 
 
 

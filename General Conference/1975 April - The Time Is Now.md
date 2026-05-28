@@ -1,6 +1,6 @@
 # The Time Is Now
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -51,7 +51,7 @@ As we take time for God, we will become more like him. Robert Louis Stevenson is
 
 Brothers and sisters, the message is loud and clear. If we work, serve, improve now—each hour, each day will lead us onward and upward to a significant tomorrow in his paths. Today is the time for decision. Now is the time for action. Believe me when I tell you God is well pleased when he sees us using our time wisely.
 
-With some he is not well pleased because they fear being anxiously engaged in his paths. Some of us who are willing to listen to a prophet’s voice, even President Spencer W. Kimball, are disappointing to God when we lack the courage and desire to apply the counsel now, even today. We make a big mistake when we allow ourselves to believe it will be easier to start back tomorrow rather than today.
+With some he is not well pleased because they fear being anxiously engaged in his paths. Some of us who are willing to listen to a prophet’s voice, even President Spencer W. Kimball, are disappointing to God when we lack the courage and desire to apply the counsel now, even today. We make a big mistake when we allow ourselves to believe it will be easier to start back tomorrow rather than today.
 
 One of the easiest ways back is to come back with others. Some of the greatest pleasures we can know are to render special human services on purpose today and let them be found out by accident some tomorrow. By adopting this way of life our friends will lift us each day as we see their new attitudes, accomplishments, and enjoy their associations.
 
@@ -72,7 +72,7 @@ One of the easiest ways back is to come back with others. Some of the greatest p
 >But keep me, guide and love me, Lord,
 >
 
-These choice words of Sybil F. Partridge should be an inspiration to all of us. What a blessing it would be in so many lives if “just for today” we could look to God instead of gold, if “just for today” the craze for power, possession, advantage, and worldly status could be replaced with eternal pursuits and treasures.
+These choice words of Sybil F. Partridge should be an inspiration to all of us. What a blessing it would be in so many lives if “just for today” we could look to God instead of gold, if “just for today” the craze for power, possession, advantage, and worldly status could be replaced with eternal pursuits and treasures.
 
 When we have plans or tendencies that are money-oriented and look forward to all the things that money will buy, it’s a good time to stop and ask if in the pursuit we are losing the things money won’t buy. In our daily commitments to money and the accumulation of worldly goods and acclaim “to insure a happy future,” we may be passing by in our daily conduct the things we are trying to find. Some who are missing quality life as they go along may well miss it altogether.
 
@@ -93,6 +93,4 @@ God help us to forsake our procrastinating ways and straightway follow him. Now 
 
 
 
-
-
-#Time_Management
+#TimeManagement

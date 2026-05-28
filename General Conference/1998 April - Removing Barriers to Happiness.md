@@ -61,6 +61,4 @@ I testify that you will remove barriers to happiness and find greater peace as y
 
 
 
-
-
-#Church_Membership #Family #Home #Jesus_Christ #Joy #Obedience #Ordinances #Plan_Of_Salvation #Satan #Unity
+#ChurchMembership #Family #Home #Joy #JesusChrist #Obedience #Ordinances #PlanOfSalvation #Satan #Unity

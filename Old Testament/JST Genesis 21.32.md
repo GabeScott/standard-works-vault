@@ -4,6 +4,3 @@
 
 [JST Genesis 21:32](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gen/21?lang=eng)
 
-
-
-

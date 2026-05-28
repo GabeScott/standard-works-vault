@@ -4,7 +4,7 @@
 
 “I have loved you,” the Lord told His people through the prophet Malachi. But the Israelites, who had suffered generations of affliction and captivity, asked, “Wherein hast thou loved us?” ([[Malachi 1.2|Malachi 1:2]]). After all Israel had been through, they may have wondered whether their history is really a story of God’s love for His covenant people. In some ways, it’s easier to see it as a story of human weakness and rebellion. Yet through it all, God never stopped reaching out in love. When the sons of Jacob mistreated their brother Joseph, the Lord still saved them from famine (see [[Genesis 45.4|Genesis 45:4–8]][[Genesis 45.5|]][[Genesis 45.6|]][[Genesis 45.7|]][[Genesis 45.8|]]). When Israel murmured in the wilderness, He fed them with manna (see [[Exodus 16.1|Exodus 16:1–4]][[Exodus 16.2|]][[Exodus 16.3|]][[Exodus 16.4|]]). Even when Israel turned to other gods and were scattered, God promised that if they repented, He would gather and redeem them “with great mercies” (see [[Isaiah 54.7|Isaiah 54:7]]). Truly, the Old Testament is a story of God’s patient, enduring love. And this story continues today. Jesus Christ, “the Sun of Righteousness,” as Malachi called Him, has come “with healing in his wings” ([[Malachi 4.2|Malachi 4:2]]). He is the greatest evidence of God’s love for ancient Israel and for all of us.
 
-For more information about the book of Malachi, see “[Malachi](https://churchofjesuschrist.org/study/scriptures/bd/malachi?lang=eng)” in the Bible Dictionary.
+For more information about the book of Malachi, see “[[BD Malachi|Malachi]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 
@@ -26,12 +26,12 @@ In Malachi’s day, the Israelites had already rebuilt the temple in Jerusalem, 
 [[Malachi 1.6|Malachi 1:6–14]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]]
 ### The Lord asks for “a pure offering.”
 
-As you read about the offerings described in [[Malachi 1.1|Malachi 1]][[Malachi 1.2|]][[Malachi 1.3|]][[Malachi 1.4|]][[Malachi 1.5|]][[Malachi 1.6|]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]], what do you notice about the sacrifices the priests were offering? What do these sacrifices suggest about the priests’ feelings toward the Lord? (see [[Malachi 1.13|Malachi 1:13]]). Consider making a list of offerings, or sacrifices, that you make to the Lord. For each item on the list, ponder what might make it a “polluted” offering or a “pure” offering ([[Malachi 1.7|Malachi 1:7, 11]][[Malachi 1.11|]]).
+As you read about the offerings described in [[Malachi 1.1|Malachi 1]][[Malachi 1.2|]][[Malachi 1.3|]][[Malachi 1.4|]][[Malachi 1.5|]][[Malachi 1.6|]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]], what do you notice about the sacrifices the priests were offering? What do these sacrifices suggest about the priests’ feelings toward the Lord? (see [[Malachi 1.13|Malachi 1:13]]). Consider making a list of offerings, or sacrifices, that you make to the Lord. For each item on the list, ponder what might make it a “polluted” offering or a “pure” offering ([[Malachi 1.7|Malachi 1:7, 11]][[Malachi 1.11|]]).
 
 [[Malachi 3.8|Malachi 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]
 ### The Lord opens the windows of heaven as I show my faith by paying tithing.
 
-Imagine you have a friend who just found out that you pay tithing. “Why do you do that?” your friend asks. Think about this as you read [[Malachi 3.8|Malachi 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]. What do you find there that could help answer your friend’s question? What else would you want your friend to understand about tithing? For more help, you could search Elder Neil L. Andersen’s message “[[2023 October - Tithing - Opening the Windows of Heaven.md|Tithing: Opening the Windows of Heaven]]” (*Liahona*, Nov. 2023, 32–35), looking for answers to questions like these:
+Imagine you have a friend who just found out that you pay tithing. “Why do you do that?” your friend asks. Think about this as you read [[Malachi 3.8|Malachi 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]. What do you find there that could help answer your friend’s question? What else would you want your friend to understand about tithing? For more help, you could search Elder Neil L. Andersen’s message “[[2023 October - Tithing - Opening the Windows of Heaven.md|Tithing: Opening the Windows of Heaven]]” (*Liahona*, Nov. 2023, 32–35), looking for answers to questions like these:
 
 - Why does the Lord want us to pay tithing?
 
@@ -39,9 +39,9 @@ Imagine you have a friend who just found out that you pay tithing. “Why do you
 
 - How does paying tithing strengthen our faith in Heavenly Father and Jesus Christ?
 
-You could also share with your friend how the Lord has blessed you when you pay tithing. You can find ideas in the section titled “[[2013 October - The Windows of Heaven.md|Lesson Number 1—Significant but Subtle Blessings]]” in Elder David A. Bednar’s message “[[2013 October - The Windows of Heaven.md|The Windows of Heaven]]” (*Ensign* or *Liahona*, Nov. 2013, 17–18). What kind of people do we become by paying tithing?
+You could also share with your friend how the Lord has blessed you when you pay tithing. You can find ideas in the section titled “[[2013 October - The Windows of Heaven.md|Lesson Number 1—Significant but Subtle Blessings]]” in Elder David A. Bednar’s message “[[2013 October - The Windows of Heaven.md|The Windows of Heaven]]” (*Ensign* or *Liahona*, Nov. 2013, 17–18). What kind of people do we become by paying tithing?
 
-What do you think the phrase “open you the windows of heaven” ([[Malachi 3.10|verse 10]]) might mean? Maybe you could look out a window and think about the purposes of windows. Why is “windows of heaven” a good way to describe how the Lord blesses us when we pay tithing?
+What do you think the phrase “open you the windows of heaven” ([[Malachi 3.10|verse 10]]) might mean? Maybe you could look out a window and think about the purposes of windows. Why is “windows of heaven” a good way to describe how the Lord blesses us when we pay tithing?
 
 [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]]
 ### “I will send you Elijah the prophet.”
@@ -52,12 +52,22 @@ When Moroni quoted [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]] to Joseph Smi
 
 - What experiences have helped you turn your heart to your ancestors? Why is that so important to Heavenly Father’s plan?
 
-To learn more about the coming of Elijah and how this prophecy is being fulfilled today, see [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]] and D. Todd Christofferson, “[[2023 October - The Sealing Power.md|The Sealing Power]]” (*Liahona*, Nov. 2023, 19–22). Why are you grateful that Elijah has come?
+To learn more about the coming of Elijah and how this prophecy is being fulfilled today, see [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]] and D. Todd Christofferson, “[[2023 October - The Sealing Power.md|The Sealing Power]]” (*Liahona*, Nov. 2023, 19–22). Why are you grateful that Elijah has come?
 
-See also Gerrit W. Gong, “[[2022 April - We Each Have a Story.md|We Each Have a Story]],” *Liahona*, May 2022, 43–46; “[Turn Your Hearts](https://churchofjesuschrist.org/study/manual/hymns/turn-your-hearts?lang=eng),” *Hymns*, no. 291; “The Sealing Power” (video), ChurchofJesusChrist.org.
+See also Gerrit W. Gong, “[[2022 April - We Each Have a Story.md|We Each Have a Story]],” *Liahona*, May 2022, 43–46; “[Turn Your Hearts](https://churchofjesuschrist.org/study/manual/hymns/turn-your-hearts?lang=eng),” *Hymns*, no. 291; “The Sealing Power” (video), ChurchofJesusChrist.org.
 
 > For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
 
+
+### Scripture Helps
+
+- [What is refiner’s fire and fullers’ soap?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/49-malachi?lang=eng&id=p_dFqkL-p_w8hqV#p_dFqkL)
+
+- [What does it mean that the sons of Levi will “offer unto the Lord an offering in righteousness”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/49-malachi?lang=eng&id=p_ocFsv-p_v6WrK#p_ocFsv)
+
+- [How was the law of tithing practiced in Old Testament times?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/49-malachi?lang=eng&id=p_n8m8s-p_a2fde#p_n8m8s)
+
+[Click to see more.](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/49-malachi?lang=eng)
 
 ## Ideas for Teaching Children
 
@@ -83,7 +93,7 @@ See also Gerrit W. Gong, “[[2022 April - We Each Have a Story.md|We Each Have
 
 - In [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]], your children could look for answers to the following questions about Malachi’s prophecy: *Who* did the Lord promise to send? *When* did He say this person would come? *What* did the Lord say that this person would do? *Why* would this person need to come? *Where* was this prophecy fulfilled? (see [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]).
 
-- To find out how the promise in [[Malachi 4.5|Malachi 4:5]] was fulfilled, you can also review “Joseph and Oliver Receive Priesthood Keys” in *Doctrine and Covenants Stories*, 26–30. A song like “[The Hearts of the Children](https://churchofjesuschrist.org/study/manual/childrens-songbook/the-hearts-of-the-children?lang=eng)” (*Children’s Songbook*, 92) can help your children learn why it was so important that Elijah came. You could also visit [FamilySearch.org/discovery](https://churchofjesuschrist.orghttps://www.familysearch.org/discovery), the [FamilySearch Tree app](https://churchofjesuschrist.orghttps://www.churchofjesuschrist.org/learn/mobile-applications), or the [My Family booklet](https://churchofjesuschrist.orghttps://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://www.churchofjesuschrist.org/bc/content/ldsorg/topics/my-family-booklet-pdf/english-whole-pdf.pdf) for activities that can help you and your children turn your hearts to your ancestors.
+- To find out how the promise in [[Malachi 4.5|Malachi 4:5]] was fulfilled, you can also review “Joseph and Oliver Receive Priesthood Keys” in *Doctrine and Covenants Stories*, 26–30. A song like “[The Hearts of the Children](https://churchofjesuschrist.org/study/manual/childrens-songbook/the-hearts-of-the-children?lang=eng)” (*Children’s Songbook*, 92) can help your children learn why it was so important that Elijah came. You could also visit [FamilySearch.org/discovery](https://www.familysearch.org/discovery), the [FamilySearch Tree app](https://www.churchofjesuschrist.org/learn/mobile-applications), or the [My Family booklet](https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://www.churchofjesuschrist.org/bc/content/ldsorg/topics/my-family-booklet-pdf/english-whole-pdf.pdf) for activities that can help you and your children turn your hearts to your ancestors.
 
 > For more, see this month’s issue of the *[Friend](https://churchofjesuschrist.org/study/magazines/friend?lang=eng)* magazine.
 

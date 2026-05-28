@@ -10,7 +10,7 @@ By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 These remarks are addressed to the imperfect but still striving in the household of faith. As always, my immediate audience is myself.
 
-We tend to think of consecration only as yielding up, when divinely directed, our material possessions. But ultimate consecration is the yielding up of oneself to God. *Heart, soul,* and *mind* were the encompassing words of Christ in describing the first commandment, which is constantly, not periodically, operative (see [[Matthew 22.37|Matt. 22:37]]). If it is kept, then our performances will in turn be fully consecrated for the lasting welfare of our souls (see [[2 Nephi 32.9|2 Ne. 32:9]]).
+We tend to think of consecration only as yielding up, when divinely directed, our material possessions. But ultimate consecration is the yielding up of oneself to God. *Heart, soul,* and *mind* were the encompassing words of Christ in describing the first commandment, which is constantly, not periodically, operative (see [[Matthew 22.37|Matt. 22:37]]). If it is kept, then our performances will in turn be fully consecrated for the lasting welfare of our souls (see [[2 Nephi 32.9|2 Ne. 32:9]]).
 
 Such totality involves the submissive converging of feelings, thoughts, words, and deeds, the very opposite of estrangement: “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” ([[Mosiah 5.13|Mosiah 5:13]]).
 
@@ -28,9 +28,9 @@ Some have difficulty when particular tasks enter their sunset phase. John the Ba
 
 Other stepping-stones remain unused because, like the rich, righteous young man, we are not yet willing to confront what we yet lack (see [[Mark 10.21|Mark 10:21]]). A residue of selfishness is thereby exposed.
 
-Shrinking occurs in so many ways. The terrestrial kingdom, for example, will include the “honorable,” clearly not bearers of false witness. Yet they were still “not valiant in the testimony of Jesus” ([[D&C 76.75|D&C 76:75, 79]][[D&C 76.79|]]). The best way to valiantly testify of Jesus is to become steadily more like Him, and it is that consecration that carves out the emulative character (see [[3 Nephi 27.27|3 Ne. 27:27]]).
+Shrinking occurs in so many ways. The terrestrial kingdom, for example, will include the “honorable,” clearly not bearers of false witness. Yet they were still “not valiant in the testimony of Jesus” ([[D&C 76.75|D&C 76:75, 79]][[D&C 76.79|]]). The best way to valiantly testify of Jesus is to become steadily more like Him, and it is that consecration that carves out the emulative character (see [[3 Nephi 27.27|3 Ne. 27:27]]).
 
-In meeting these recited challenges, spiritual submissiveness is fortunately and helpfully adroit—sometimes helping us to “let go” of things, even mortal life, other times to “hold fast,” and still other times to use the next stepping-stone (see [[1 Nephi 8.30|1 Ne. 8:30]]).
+In meeting these recited challenges, spiritual submissiveness is fortunately and helpfully adroit—sometimes helping us to “let go” of things, even mortal life, other times to “hold fast,” and still other times to use the next stepping-stone (see [[1 Nephi 8.30|1 Ne. 8:30]]).
 
 But if we lack proportion, the next few yards can seem so formidable. Though aware of how God blessed ancient Israel to escape from mighty Pharaoh and his hosts, myopic Laman and Lemuel still lacked faith in God to help them with a mere local Laban.
 
@@ -38,11 +38,11 @@ We can also be deflected if we are too anxious to please those who are ascendant
 
 We sometimes even defend our idiosyncrasies, as if these protrusions somehow constituted our individuality. In a way, discipleship is a “contact sport,” as the Prophet Joseph testified:
 
-“I am like a huge, rough stone … ; and the only polishing I get is when some corner gets rubbed off by coming in contact with something else, striking with accelerated force. … Thus I will become a smooth and polished shaft in the quiver of the Almighty” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[1976\], 304).
+“I am like a huge, rough stone … ; and the only polishing I get is when some corner gets rubbed off by coming in contact with something else, striking with accelerated force. … Thus I will become a smooth and polished shaft in the quiver of the Almighty” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[1976\], 304).
 
 Since knees often bend long before minds, holding back this “part” deprives God’s work of some of mankind’s very best intellects. Far better to be meek like Moses, who learned things he “never had supposed” ([[Moses 1.10|Moses 1:10]]). Yet sadly, brothers and sisters, in the subtle interplay of agency and identity, there is so much hesitation. The surrender of the mind is actually a victory, because it then introduces us to God’s stretching and “higher” ways! (see [[Isaiah 55.9|Isa. 55:9]]).
 
-Ironically, inordinate attention, even to good things, can diminish our devotion to God. For instance, one can be too caught up in sports and the forms of body worship we see among us. One can reverence nature and yet neglect nature’s God. One can have an exclusionary regard for good music and similarly with a worthy profession. In such circumstances, the “weightier matters” are often omitted ([[Matthew 23.23|Matt. 23:23]]; see also [[1 Corinthians 2.16|1 Cor. 2:16]]). Only the Highest One can fully guide us as to the highest good which you and I can do.
+Ironically, inordinate attention, even to good things, can diminish our devotion to God. For instance, one can be too caught up in sports and the forms of body worship we see among us. One can reverence nature and yet neglect nature’s God. One can have an exclusionary regard for good music and similarly with a worthy profession. In such circumstances, the “weightier matters” are often omitted ([[Matthew 23.23|Matt. 23:23]]; see also [[1 Corinthians 2.16|1 Cor. 2:16]]). Only the Highest One can fully guide us as to the highest good which you and I can do.
 
 On the two great commandments, Jesus declared emphatically, everything else hangs, not vice versa (see [[Matthew 22.40|Matt. 22:40]]). The first commandment is not suspended just because of our vigorous pursuit of a lesser good, for we do not worship a lesser god.
 
@@ -64,7 +64,7 @@ No wonder President Hinckley has stressed our being a covenant people, emphasizi
 
 Breathtaking submissiveness was achieved by the Savior as He faced the anguish and agonies of the Atonement and “would that \[He\] might not drink the bitter cup, and shrink” ([[D&C 19.18|D&C 19:18]]). On our small, imperfect scale, we face tests and wish that these would somehow be taken away.
 
-Consider this: What of Jesus’ ministry if He had performed additional miracles but without the transcending miracle of Gethsemane and Calvary? His other miracles brought blessed extensions of life and lessened suffering—for some. But how could these miracles possibly compare with the greatest miracle of the universal Resurrection? (see [[1 Corinthians 15.22|1 Cor. 15:22]]). The multiplying of the loaves and fishes fed a hungry multitude. Even so, recipients were soon hungry again, while those who partake of the Bread of Life will never hunger again (see [[John 6.51|John 6:51, 58]][[John 6.58|]]).
+Consider this: What of Jesus’ ministry if He had performed additional miracles but without the transcending miracle of Gethsemane and Calvary? His other miracles brought blessed extensions of life and lessened suffering—for some. But how could these miracles possibly compare with the greatest miracle of the universal Resurrection? (see [[1 Corinthians 15.22|1 Cor. 15:22]]). The multiplying of the loaves and fishes fed a hungry multitude. Even so, recipients were soon hungry again, while those who partake of the Bread of Life will never hunger again (see [[John 6.51|John 6:51, 58]][[John 6.58|]]).
 
 In pondering and pursuing consecration, understandably we tremble inwardly at what may be required. Yet the Lord has said consolingly, “My grace is sufficient for you” ([[D&C 17.8|D&C 17:8]]). Do we really believe Him? He has also promised to make weak things strong (see [[Ether 12.27|Ether 12:27]]). Are we really willing to submit to that process? Yet if we desire fulness, we cannot hold back part!
 
@@ -75,8 +75,6 @@ Frankly, it is our prospective selves we betray by holding back whatever the “
 The greatest happiness in God’s generous plan is finally reserved for those who are willing to stretch and to pay the costs of journeying to His regal realm. Brothers and sisters, “come, let us anew \[this\] journey pursue” (“Come, Let Us Anew,” *Hymns,* no. 217).
 
 In the name of the Lord of the outstretched arm (see [[D&C 103.17|D&C 103:17]]; [[D&C 136.22|136:22]]), even Jesus Christ, amen.
-
-
 
 
 

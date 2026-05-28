@@ -1,6 +1,5 @@
 # Sinew
 
-
 eat not of the *sinew* which shrank, [[Genesis 32.32|Genesis 32:32]].
 
 obstinate, and thy neck is an iron *sinew*, [[Isaiah 48.4|Isaiah 48:4]].

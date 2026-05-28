@@ -1,6 +1,5 @@
 # Leap
 
-
 Then shall the lame man *leap* as an hart, [[Isaiah 35.6|Isaiah 35:6]].
 
 babe *leaped* in her womb, [[Luke 1.41|Luke 1:41]].

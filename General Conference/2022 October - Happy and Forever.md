@@ -1,6 +1,6 @@
 # Happy and Forever
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -73,7 +73,7 @@ Dear brothers and sisters, God our Heavenly Father and His Beloved Son live. The
 
 [^1]: William Butler Yeats, “The Lake Isle of Innisfree,” in *The Norton Anthology of English Literature*, 5th ed. (1986), 1936.
 
-[^2]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
+[^2]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
 
 [^3]: There are many sacred experiences of hope and promises for change as we and those we love come to Jesus Christ through temple ordinances and covenants on both sides of the veil.
 
@@ -105,11 +105,11 @@ Dear brothers and sisters, God our Heavenly Father and His Beloved Son live. The
 
 [^17]: See [[Matthew 7.12|Matthew 7:12]].
 
-[^18]: “He \[was\] despised and rejected of men; a man of sorrows, and acquainted with grief” ([[Isaiah 53.3|Isaiah 53:3]]), but also a Man who gathered the little children and wept with a joy that was full (see [[3 Nephi 17.20|3 Nephi 17:20–24]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
+[^18]: “He \[was\] despised and rejected of men; a man of sorrows, and acquainted with grief” ([[Isaiah 53.3|Isaiah 53:3]]), but also a Man who gathered the little children and wept with a joy that was full (see [[3 Nephi 17.20|3 Nephi 17:20–24]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
 
-[^19]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^19]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
-[^20]: See [[D&C 43.30|Doctrine and Covenants 43:30–31]][[D&C 43.31|]]. [[1 Nephi 22.26|1 Nephi 22:26]] reminds us that Satan’s power will be limited in the Millennium “because of the righteousness of \[the Lord’s\] people.”
+[^20]: See [[D&C 43.30|Doctrine and Covenants 43:30–31]][[D&C 43.31|]]. [[1 Nephi 22.26|1 Nephi 22:26]] reminds us that Satan’s power will be limited in the Millennium “because of the righteousness of \[the Lord’s\] people.”
 
 [^21]: See [[D&C 130.2|Doctrine and Covenants 130:2]].
 
@@ -117,6 +117,4 @@ Dear brothers and sisters, God our Heavenly Father and His Beloved Son live. The
 
 [^23]: See [[D&C 132.23|Doctrine and Covenants 132:23–24]][[D&C 132.24|]]; see also [[D&C 29.29|Doctrine and Covenants 29:29]], which says, “For where I am they cannot come, for they have no power.”
 
-
-
-#Atonement #Forgiveness #Happiness #Healing #Jesus_Christ #Ordinances #Repentance #Temple_Work
+#Atonement #Forgiveness #Happiness #Healing #JesusChrist #Ordinances #Repentance #TempleWork

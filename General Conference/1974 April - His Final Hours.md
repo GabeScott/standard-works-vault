@@ -1,6 +1,6 @@
 # His Final Hours
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -14,7 +14,7 @@ A few years less than 2,000 years ago this very day, the initial events of the m
 
 Jewish law required the attendance of all adult males at this, the most sacred of Israel’s ceremonial commemorations. But members of the Sanhedrin had openly vowed to put Jesus to death, and the likelihood of his appearance at such a public gathering was doubted by many.
 
-The feeling of danger for him was everywhere present, but Jesus *did* come to Jerusalem for the feast of the Passover, not with pomp and ceremony, but on a lowly donkey—the symbol of humility and peace. A great multitude went out of Jerusalem to greet him, spreading branches of palm trees before his path and crying: “… Hosanna to the Son of David: Blessed is he that cometh in the name of the Lord. …” ([[Matthew 21.9|Matt. 21:9]].)
+The feeling of danger for him was everywhere present, but Jesus *did* come to Jerusalem for the feast of the Passover, not with pomp and ceremony, but on a lowly donkey—the symbol of humility and peace. A great multitude went out of Jerusalem to greet him, spreading branches of palm trees before his path and crying: “… Hosanna to the Son of David: Blessed is he that cometh in the name of the Lord. …” ([[Matthew 21.9|Matt. 21:9]].)
 
 Matthew records that “all the city was moved, saying, Who is this?
 
@@ -24,25 +24,25 @@ To all who had knowledge of the law, this was the triumphant entry of Israel’s
 
 “For the days shall come upon thee, that thine enemies shall … compass thee round, and keep thee in on every side,
 
-“And shall lay thee even with the ground … ; and they shall not leave in thee one stone upon another.” ([[Luke 19.43|Luke 19:43–44]][[Luke 19.44|]].)
+“And shall lay thee even with the ground … ; and they shall not leave in thee one stone upon another.” ([[Luke 19.43|Luke 19:43–44]][[Luke 19.44|]].)
 
 Jesus also knew of his own impending fate. He spoke in parables of grain that had to die in order to bring forth fruit, and of a chosen son sent by his father into the family vineyard only to be killed as the father’s servants before him had been killed. At times the burden seemed almost too heavy to bear.
 
-“Now is my soul troubled;” he admitted. “… Father, save me from this hour: but for this cause came I unto this hour.” ([[John 12.27|John 12:27]].) His singleness of purpose and unwavering commitment to do the will of his Father carried him forward.
+“Now is my soul troubled;” he admitted. “… Father, save me from this hour: but for this cause came I unto this hour.” ([[John 12.27|John 12:27]].) His singleness of purpose and unwavering commitment to do the will of his Father carried him forward.
 
 As his own mortal future dimmed, he gently declared: “I am come a light into the world, that whosoever believeth on me should not abide in darkness.” ([[John 12.46|John 12:46]].) Such statements were uniting his enemies against him, yet he proclaimed: “For I have not spoken of myself; but the Father which sent me, he gave me a commandment, what I should say, and what I should speak.” ([[John 12.49|John 12:49]].)
 
 Hoping to trap Jesus in his utterances, some of the shrewdest of his adversaries posed double-edged questions on political and rabbinic law. One group of Pharisees and Herodians asked him a most diabolic question:
 
-“… Master, we know that thou art true, and teachest the way of God in truth. …
+“… Master, we know that thou art true, and teachest the way of God in truth. …
 
 “Tell us therefore, … Is it lawful to give tribute unto Caesar, or not?” ([[Matthew 22.16|Matt. 22:16–17]][[Matthew 22.17|]].) If he were to answer yes, he would easily be accused of betraying his heritage among Abraham’s seed, the very group staggering under the oppression of Roman law. If he were to answer no, he would immediately be apprehended as a political agitator. He answered neither, but rather asked to be shown a coin by which such tribute money commonly was paid.
 
-Holding the piece of money up to his accusers, he asked: “Whose is this image and superscription?” Of course, they answered as any child in the street could have: “It is Caesar’s.” With that single question he had taken command of the confrontation. He returned the coin saying: “… Render therefore unto Caesar the things which are Caesar’s” ([[Matthew 22.20|Matt. 22:20–21]][[Matthew 22.21|]]), as if to say: “The man’s name and picture are on the coin. Surely it belongs to him. Please be kind enough to return it to its rightful owner.”
+Holding the piece of money up to his accusers, he asked: “Whose is this image and superscription?” Of course, they answered as any child in the street could have: “It is Caesar’s.” With that single question he had taken command of the confrontation. He returned the coin saying: “… Render therefore unto Caesar the things which are Caesar’s” ([[Matthew 22.20|Matt. 22:20–21]][[Matthew 22.21|]]), as if to say: “The man’s name and picture are on the coin. Surely it belongs to him. Please be kind enough to return it to its rightful owner.”
 
-Brilliantly he had destroyed the ploy of his oppressors, but that was never his true mission or desire. These, too, were sons of God. These, too, were among those he came to save. He feared for them and loved them even in their malice. As they turned away he added a plea: “… and \[render\] unto God the things that are God’s.” As the coin bore the image of Caesar, so these and all men bore the image of God, their Heavenly Father. They had been created by him in the likeness of his image, and Jesus was to provide a way for them to return to him. Yet, “When they heard these words, they marvelled, and left him, and went their way.” ([[Matthew 22.21|Matt. 22:21–22]][[Matthew 22.22|]].)
+Brilliantly he had destroyed the ploy of his oppressors, but that was never his true mission or desire. These, too, were sons of God. These, too, were among those he came to save. He feared for them and loved them even in their malice. As they turned away he added a plea: “… and \[render\] unto God the things that are God’s.” As the coin bore the image of Caesar, so these and all men bore the image of God, their Heavenly Father. They had been created by him in the likeness of his image, and Jesus was to provide a way for them to return to him. Yet, “When they heard these words, they marvelled, and left him, and went their way.” ([[Matthew 22.21|Matt. 22:21–22]][[Matthew 22.22|]].)
 
-A short time later a lawyer baited a theological trap for him, saying: “Master, which is the great commandment in the law?” ([[Matthew 22.36|Matt. 22:36]].) Legal scholars had divided, subdivided, and categorized the original Mosaic code so minutely that some parts of the law seemed to be in direct opposition to other parts. But Jesus would not be paralyzed by the jots and tittles of legal debate. In a single stroke he penetrated to the heart of the law and integrated those several parts into its one great whole: “… Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
+A short time later a lawyer baited a theological trap for him, saying: “Master, which is the great commandment in the law?” ([[Matthew 22.36|Matt. 22:36]].) Legal scholars had divided, subdivided, and categorized the original Mosaic code so minutely that some parts of the law seemed to be in direct opposition to other parts. But Jesus would not be paralyzed by the jots and tittles of legal debate. In a single stroke he penetrated to the heart of the law and integrated those several parts into its one great whole: “… Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
 
 “This is the first and great commandment.
 
@@ -56,7 +56,7 @@ As the hour of sacrifice approached, Jesus retreated with his twelve apostles to
 
 This magnificent gesture of love and unity was a fitting prelude to the paschal meal that followed. From the time the firstborn of the faithful children of Israel had been “passed over” in the destruction brought on Egypt by Pharaoh’s intransigence, the Passover meal, with all its symbolic emblems and gestures, had been faithfully observed by Israel’s families. How fitting it was during the observance of this ancient covenant of protection that Jesus should institute the emblems of the new covenant of safety—the emblems of his own body and blood. As he took the bread and broke it, and took the cup and blessed it, he was presenting himself as *the* Lamb of God who would provide spiritual nourishment and eternal salvation.
 
-With the new covenant came a new commandment. Jesus said his disciples must “love one another; as I have loved you. …
+With the new covenant came a new commandment. Jesus said his disciples must “love one another; as I have loved you. …
 
 “By this shall all men know that ye are my disciples, if ye have love one to another.” ([[John 13.34|John 13:34–35]][[John 13.35|]].)
 
@@ -70,9 +70,9 @@ On this night of nights, as the little group approached the Garden of Gethsemane
 
 Having offered that magnificent intercessory prayer, Jesus went on to face alone his anguish of body and spirit. A modern apostle of the Lord Jesus Christ has written:
 
-“Christ’s agony in the garden is unfathomable by the finite mind, both as to intensity and cause. … In that hour of anguish Christ met and overcame all the horrors that Satan … could inflict. …
+“Christ’s agony in the garden is unfathomable by the finite mind, both as to intensity and cause. … In that hour of anguish Christ met and overcame all the horrors that Satan … could inflict. …
 
-“In some manner, actual and terribly real though to man incomprehensible, the Savior took upon Himself the burden of the sins of mankind from Adam to the end of the world.” (James E. Talmage, *Jesus the Christ,* Deseret Book Co., 1962, p. 613.)
+“In some manner, actual and terribly real though to man incomprehensible, the Savior took upon Himself the burden of the sins of mankind from Adam to the end of the world.” (James E. Talmage, *Jesus the Christ,* Deseret Book Co., 1962, p. 613.)
 
 From there it was only a matter of hours until he was falsely accused, illegally tried, and unjustly crucified. He did what no other has ever done—he arose the third day from his own tomb, a tomb once again filled with the light and the life of the world, and he ascended to his Father. Jesus of Nazareth was now Jesus the Christ; he had conquered death.
 
@@ -83,6 +83,4 @@ History bears well the burden of providing ample evidence of his death. As surel
 
 
 
-
-
-#Jesus_Christ #Passover
+#JesusChrist #Passover

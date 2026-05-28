@@ -1,11 +1,10 @@
 # Integrity
 
+*See also* [[Honesty.md|Honesty]]; [[Hypocrisy.md|Hypocrisy]]; [[Perfection.md|Perfection]]; [[Righteousness.md|Righteousness]]; [[Sincere.md|Sincere]]; [[Uprightness.md|Uprightness]]
 
-*See also* [[Honesty.md|Honesty]]; [[Hypocrisy, Hypocrite.md|Hypocrisy]]; [[Perfection, Perfect, Perfectly.md|Perfection]]; [[Righteousness.md|Righteousness]]; [[Sincere, Sincerity.md|Sincere]]; [[Uprightness.md|Uprightness]]
+in the *integrity* of my heart … have I done this, [[Genesis 20.5|Genesis 20:5]].
 
-in the *integrity* of my heart ... have I done this, [[Genesis 20.5|Genesis 20:5]].
-
-walk ... in *integrity* of heart, [[1 Kings 9.4|1 Kings 9:4]].
+walk … in *integrity* of heart, [[1 Kings 9.4|1 Kings 9:4]].
 
 still he holdeth fast his *integrity*, [[Job 2.3|Job 2:3]].
 
@@ -24,5 +23,3 @@ Lord, love him because of the *integrity* of his heart, [[D&C 124.15|D&C 124:15]
 be trusted because of the *integrity* of his heart, [[D&C 124.20|D&C 124:20]].
 
 I could not *deny* it, [[Joseph Smith History 1.25|Joseph Smith History 1:25]].
-
-*See also* [[James 1.8|James 1:8]]; [[Alma 24.19|Alma 24:19]].

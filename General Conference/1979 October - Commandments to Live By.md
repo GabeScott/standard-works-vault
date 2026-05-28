@@ -1,6 +1,6 @@
 # Commandments to Live By
 
-By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
+By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -44,15 +44,15 @@ John the Apostle said:
 
 “If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?
 
-“And this commandment have we from him, That he who loveth God love his brother also” ([[1 John 4.20|1 Jn. 4:20–21]][[1 John 4.21|]]).
+“And this commandment have we from him, That he who loveth God love his brother also” ([[1 John 4.20|1 Jn. 4:20–21]][[1 John 4.21|]]).
 
-In [[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]] we find this statement:
+In [[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]] we find this statement:
 
 “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
 “Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.”
 
-With all of these statements, it should be perfectly clear to everyone that the Lord desires us to love and forgive one another. It behooves all of us to conquer our pride and make every effort to settle all differences with our fellowmen. As just quoted from 3 Nephi, contentions and disputations are of the devil and are not approved by our Heavenly Father. Loving our neighbors as ourselves will bring joy and happiness into our lives.
+With all of these statements, it should be perfectly clear to everyone that the Lord desires us to love and forgive one another. It behooves all of us to conquer our pride and make every effort to settle all differences with our fellowmen. As just quoted from 3 Nephi, contentions and disputations are of the devil and are not approved by our Heavenly Father. Loving our neighbors as ourselves will bring joy and happiness into our lives.
 
 Christ lived to bless, heal, and restore. He was a peacemaker. On many occasions he healed the sick, the lame, and the blind. Yes, as we have been told earlier today, he even raised the dead.
 
@@ -84,17 +84,15 @@ How many of us on Judgment Day would like to be told that we had failed to do ou
 
 “Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.”
 
-To fail to keep the commandments of the Lord not only brings condemnation, but actually deprives us of many blessings here on this earth—to say nothing of those eternal blessings for which we are all striving. In [[1 Corinthians 2.9|1 Corinthians 2:9]] we read this important statement: “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the *things which God hath prepared for them that love him*” (italics added).
+To fail to keep the commandments of the Lord not only brings condemnation, but actually deprives us of many blessings here on this earth—to say nothing of those eternal blessings for which we are all striving. In [[1 Corinthians 2.9|1 Corinthians 2:9]] we read this important statement: “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the *things which God hath prepared for them that love him*” (italics added).
 
 And finally, the great promise given to all men:
 
 “And, if you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God” ([[D&C 14.7|D&C 14:7]]).
 
-In closing, I would like to bear testimony that the Father and the Son did appear to Joseph Smith and gave him instructions pertaining to the restoration of the true gospel of Jesus Christ. I also testify that our leader today, President Spencer W. Kimball, and his counselors are true prophets of God. We would all do well to follow them in the path of truth and righteousness.
+In closing, I would like to bear testimony that the Father and the Son did appear to Joseph Smith and gave him instructions pertaining to the restoration of the true gospel of Jesus Christ. I also testify that our leader today, President Spencer W. Kimball, and his counselors are true prophets of God. We would all do well to follow them in the path of truth and righteousness.
 
 I pray that these brethren may be blessed with inspiration at all times. Further, that our Heavenly Father will grant them health and strength sufficient to carry out their heavy responsibilities. In the name of Jesus Christ, amen.
-
-
 
 
 

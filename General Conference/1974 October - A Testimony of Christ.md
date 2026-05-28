@@ -38,9 +38,9 @@ Lucifer, however, contended for an amendment to the plan whereby we would all be
 
 We are given to understand that whereas in the preexistence, in that spiritual estate, the spirits had their free agency, there were different degrees of obedience, various grades of righteousness. Lucifer exercised his free agency when he rebelled against the Father, but he had to pay the penalty for that rebellion and is still doing so, as are those spirits who followed him. They were denied the privilege of taking upon themselves mortality, and this has been a great curse and disappointment to them.
 
-“How art thou fallen from heaven, O Lucifer, son of the morning! …
+“How art thou fallen from heaven, O Lucifer, son of the morning! …
 
-“For thou hast said in thine heart, I will ascend into heaven. I will exalt my throne above the stars of God: …
+“For thou hast said in thine heart, I will ascend into heaven. I will exalt my throne above the stars of God: …
 
 “I will ascend above the heights of the clouds: I will be like the most High.
 
@@ -64,7 +64,7 @@ Upon his appearance to the Nephites, he stretched forth his hand and spoke unto 
 
 “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” ([[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].)
+“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” ([[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].)
 
 The Church has the further scripture about the Only Begotten and his mission as contained in the Pearl of Great Price. How fortunate we are that we have the biblical account, the Book of Mormon account, and the accounts given to Abraham and Enoch and Moses as related in the Pearl of Great Price regarding the birth and death of the Savior and his great mission.
 
@@ -89,6 +89,4 @@ I testify to the truth of these things. I know that our Redeemer lives, and I be
 
 
 
-
-
-#Jesus_Christ #Testimony
+#JesusChrist #Testimony

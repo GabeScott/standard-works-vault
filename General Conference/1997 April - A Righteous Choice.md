@@ -25,6 +25,4 @@ I know this gospel is true. It has helped me a lot throughout my life. I know ou
 
 
 
-
-
 #Agency #Seminary

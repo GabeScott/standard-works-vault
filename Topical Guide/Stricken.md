@@ -1,4 +1,3 @@
 # Stricken
 
-
-*See* [[Strike, Struck, Stricken.md|Strike]]
+*See also* [[Strike.md|Strike]]

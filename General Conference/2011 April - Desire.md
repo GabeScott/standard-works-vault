@@ -1,6 +1,6 @@
 # Desire
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -32,19 +32,19 @@ As a conclusion to that illustration, early in the morning following his nearly 
 
 The Book of Mormon contains many teachings on the importance of desire.
 
-After many hours of pleading with the Lord, Enos was told that his sins were forgiven. He then “began to feel a desire for the welfare of \[his\] brethren” ([[Enos 1.9|Enos 1:9]]). He wrote, “And … after I had prayed and labored with all diligence, the Lord said unto me: I will grant unto thee according to thy desires, because of thy faith” ([[Enos 1.12|verse 12]]). Note the three essentials that preceded the promised blessing: desire, labor, and faith.
+After many hours of pleading with the Lord, Enos was told that his sins were forgiven. He then “began to feel a desire for the welfare of \[his\] brethren” ([[Enos 1.9|Enos 1:9]]). He wrote, “And … after I had prayed and labored with all diligence, the Lord said unto me: I will grant unto thee according to thy desires, because of thy faith” ([[Enos 1.12|verse 12]]). Note the three essentials that preceded the promised blessing: desire, labor, and faith.
 
 In his sermon on faith, Alma teaches that faith can begin with “no more than \[a\] desire to believe” if we will “let this desire work in \[us\]” ([[Alma 32.27|Alma 32:27]]).
 
-Another great teaching on desire, especially on what should be our ultimate desire, occurs in the experience of the Lamanite king being taught by the missionary Aaron. When Aaron’s teaching caught his interest, the king asked, “What shall I do that I may be born of God” and “have this eternal life?” ([[Alma 22.15|Alma 22:15]]). Aaron replied, “If thou desirest this thing, … if thou wilt repent of all thy sins, and will bow down before God, and call on his name in faith, believing that ye shall receive, then shalt thou receive the hope which thou desirest” ([[Alma 22.16|verse 16]]).
+Another great teaching on desire, especially on what should be our ultimate desire, occurs in the experience of the Lamanite king being taught by the missionary Aaron. When Aaron’s teaching caught his interest, the king asked, “What shall I do that I may be born of God” and “have this eternal life?” ([[Alma 22.15|Alma 22:15]]). Aaron replied, “If thou desirest this thing, … if thou wilt repent of all thy sins, and will bow down before God, and call on his name in faith, believing that ye shall receive, then shalt thou receive the hope which thou desirest” ([[Alma 22.16|verse 16]]).
 
-The king did so and in mighty prayer declared, “I will give away all my sins to know thee … and be saved at the last day” ([[Alma 22.18|verse 18]]). With that commitment and that identification of his ultimate desire, his prayer was answered miraculously.
+The king did so and in mighty prayer declared, “I will give away all my sins to know thee … and be saved at the last day” ([[Alma 22.18|verse 18]]). With that commitment and that identification of his ultimate desire, his prayer was answered miraculously.
 
 The prophet Alma had a great desire to cry repentance to all people, but he came to understand that he should not desire the compelling power this would require because, he concluded, “a just God … granteth unto men according to their desire, whether it be unto death or unto life” ([[Alma 29.4|Alma 29:4]]). Similarly, in modern revelation the Lord declares that He “will judge all men according to their works, according to the desire of their hearts” ([[D&C 137.9|D&C 137:9]]).
 
 Are we truly prepared to have our Eternal Judge attach this enormous significance to what we really desire?
 
-Many scriptures speak of what we desire in terms of what we seek. “He that seeketh me early shall find me, and shall not be forsaken” ([[D&C 88.83|D&C 88:83]]). “Seek ye earnestly the best gifts” ([[D&C 46.8|D&C 46:8]]). “He that diligently seeketh shall find” ([[1 Nephi 10.19|1 Nephi 10:19]]). “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
+Many scriptures speak of what we desire in terms of what we seek. “He that seeketh me early shall find me, and shall not be forsaken” ([[D&C 88.83|D&C 88:83]]). “Seek ye earnestly the best gifts” ([[D&C 46.8|D&C 46:8]]). “He that diligently seeketh shall find” ([[1 Nephi 10.19|1 Nephi 10:19]]). “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
 
 Readjusting our desires to give highest priority to the things of eternity is not easy. We are all tempted to desire that worldly quartet of property, prominence, pride, and power. We might desire these, but we should not fix them as our highest priorities.
 
@@ -56,7 +56,7 @@ How do we develop desires? Few will have the kind of crisis that motivated Aron 
 
 Most of us will never face such an extreme crisis, but all of us face potential traps that will prevent progress toward our eternal destiny. If our righteous desires are sufficiently intense, they will motivate us to cut and carve ourselves free from addictions and other sinful pressures and priorities that prevent our eternal progress.
 
-We should remember that righteous desires cannot be superficial, impulsive, or temporary. They must be heartfelt, unwavering, and permanent. So motivated, we will seek for that condition described by the Prophet Joseph Smith, where we have “overcome the evils of \[our lives\] and lost every desire for sin.”[^4] That is a very personal decision. As Elder Neal A. Maxwell said:
+We should remember that righteous desires cannot be superficial, impulsive, or temporary. They must be heartfelt, unwavering, and permanent. So motivated, we will seek for that condition described by the Prophet Joseph Smith, where we have “overcome the evils of \[our lives\] and lost every desire for sin.”[^4] That is a very personal decision. As Elder Neal A. Maxwell said:
 
 “When people are described as ‘having lost their desire for sin,’ it is they, and they only, who deliberately decided to lose those wrong desires by being willing to ‘give away all \[their\] sins’ in order to know God.”
 
@@ -79,18 +79,16 @@ I testify of Jesus Christ, whose love, whose teachings, and whose Atonement make
 
 [^1]: Ray Cox, interview by author, Aug. 1, 1985, Mount Pleasant, Utah, confirming what he told me in Provo, Utah, circa 1953.
 
-[^2]: See Richard C. Roberts, *Legacy: The History of the Utah National Guard* (2003), 307–14; “Self-Propelled Task Force,” *National Guardsman,* May 1971, back cover; *Miracle at Kapyong: The Story of the 213th* (film produced by Southern Utah University, 2002).
+[^2]: See Richard C. Roberts, *Legacy: The History of the Utah National Guard* (2003), 307–14; “Self-Propelled Task Force,” *National Guardsman,* May 1971, back cover; *Miracle at Kapyong: The Story of the 213th* (film produced by Southern Utah University, 2002).
 
 [^3]: See Aron Ralston, *Between a Rock and a Hard Place* (2004).
 
 [^4]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 211.
 
-[^5]: Neal A. Maxwell, in Conference Report, Oct. 1996, 28, 26; or *Ensign,* Nov. 1996, 22, 21.
+[^5]: Neal A. Maxwell, in Conference Report, Oct. 1996, [[1996 October - “According to the Desire of (Our) Hearts”.md|28, 26]]; or *Ensign,* Nov. 1996, 22, 21.
 
-[^6]: See Julie B. Beck, “Teaching the Doctrine of the Family,” *Liahona,* Mar. 2011, 32–37; *Ensign,* Mar. 2011, 12–17.
+[^6]: See Julie B. Beck, “Teaching the Doctrine of the Family,” *Liahona,* Mar. 2011, 32–37; *Ensign,* Mar. 2011, 12–17.
 
 [^7]: Letter, Sept. 14, 2006.
-
-
 
 #Agency #Conversion #Faith #Marriage #Priorities #Sin

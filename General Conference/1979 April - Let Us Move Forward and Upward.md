@@ -1,6 +1,6 @@
 # Let Us Move Forward and Upward
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -84,7 +84,7 @@ I want to quote a few lines from Peter as he neared his demise:
 
 “We have also a more sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place, until the day dawn, and the day star arise in your hearts:
 
-“Knowing this first, that no prophecy of the scripture is of any private interpretation.” ([[2 Peter 1.14|2 Pet. 1:14–20]][[2 Peter 1.15|]][[2 Peter 1.16|]][[2 Peter 1.17|]][[2 Peter 1.18|]][[2 Peter 1.19|]][[2 Peter 1.20|]].)
+“Knowing this first, that no prophecy of the scripture is of any private interpretation.” ([[2 Peter 1.14|2 Pet. 1:14–20]][[2 Peter 1.15|]][[2 Peter 1.16|]][[2 Peter 1.17|]][[2 Peter 1.18|]][[2 Peter 1.19|]][[2 Peter 1.20|]].)
 
 And now another, more modern scripture I should like to add:
 
@@ -121,6 +121,4 @@ We ask our Heavenly Father to give you power to extend your blessings to the peo
 
 
 
-
-
-#Missionary_Work
+#MissionaryWork

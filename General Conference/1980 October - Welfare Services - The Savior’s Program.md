@@ -1,6 +1,6 @@
 # Welfare Services: The Savior’s Program
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -12,7 +12,7 @@ They have asked me to talk on the subject that the welfare program is the Savior
 
 “Come unto me, all ye that labour and are heavy laden, and I will give you rest.
 
-“Take my yoke upon you, and learn of me; …
+“Take my yoke upon you, and learn of me; …
 
 “For my yoke is easy, and my burden is light.” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].)
 
@@ -26,15 +26,15 @@ Responding to questions asked by two of John’s disciples, Jesus said:
 
 “The blind receive their sight, and the lame walk, the lepers are cleansed, the deaf hear, the dead are raised up, and the poor have the gospel preached to them” ([[Matthew 11.4|Matt. 11:4–5]][[Matthew 11.5|]]).
 
-All who are acquainted with the Lord’s earthly ministry seem to conclude, as President J. Reuben Clark did, that “when the Savior came upon the earth he had two great missions; one was to work out the *Messiahship,* the atonement for the fall, and … the other was the work which he did among his brethren and sisters in the flesh by way of *relieving their sufferings.* … He left as a heritage to those who should come after him … the carrying on of those two great things—*work for the relief of the ills and the sufferings of humanity,* and the *teaching of the spiritual truths* which should bring us back into the presence of our Heavenly Father.” (In Conference Report, Apr. 1937, p. 22; italics added.)
+All who are acquainted with the Lord’s earthly ministry seem to conclude, as President J. Reuben Clark did, that “when the Savior came upon the earth he had two great missions; one was to work out the *Messiahship,* the atonement for the fall, and … the other was the work which he did among his brethren and sisters in the flesh by way of *relieving their sufferings.* … He left as a heritage to those who should come after him … the carrying on of those two great things—*work for the relief of the ills and the sufferings of humanity,* and the *teaching of the spiritual truths* which should bring us back into the presence of our Heavenly Father.” (In Conference Report, Apr. 1937, p. 22; italics added.)
 
 I am persuaded that we should continue his work of ministering to those in need, whether in things spiritual or in things temporal. I have long since concluded that the work which you and I call welfare service is the work of the Savior. This welfare plan is his plan; its principles are his principles; its spirit is his spirit; he it is who sends us to minister one to another. His gospel requires us to love our neighbors as ourselves (see [[Matthew 19.19|Matt. 19:19]]).
 
-“If ye do this,” King Benjamin said, “ye shall always rejoice, and be filled with the love of God, and always retain a remission of your sins; …
+“If ye do this,” King Benjamin said, “ye shall always rejoice, and be filled with the love of God, and always retain a remission of your sins; …
 
 “And ye will not have a mind to injure one another, *but to live peaceably, and to render to every man according to that which is his due.*
 
-“And ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God. …
+“And ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God. …
 
 “But ye will teach them to walk in the ways of truth and soberness; *ye will teach them to love one another, and to serve one another.*
 
@@ -58,7 +58,7 @@ Many of you will be allocating a significantly increased annual production budge
 
 Third, if we as leaders want the support of those we lead, then *we will do well to share with them a report on how our assigned stewardship is doing.* I hope we have not gotten away from the practice of taking an annual report of our production projects to our ward or stake Melchizedek Priesthood brethren. I also hope that bishoprics and stake presidencies are providing some appropriate report to their respective file leaders on both the progress and the problems that they are encountering in implementing welfare services. Remember, brethren, to return and report is the final act of the faithful and wise steward.
 
-Fourth and finally, *may I remind you that you cannot give yourself poor in this work; you can only give yourself rich.* I have satisfied myself regarding the truthfulness of the statement made to me by Elder Melvin J. Ballard as he set me apart for my mission in 1920: “A person cannot give a crust to the Lord without receiving a loaf in return.”
+Fourth and finally, *may I remind you that you cannot give yourself poor in this work; you can only give yourself rich.* I have satisfied myself regarding the truthfulness of the statement made to me by Elder Melvin J. Ballard as he set me apart for my mission in 1920: “A person cannot give a crust to the Lord without receiving a loaf in return.”
 
 The Savior taught that it is more blessed to give than to receive (see [[Acts 20.35|Acts 20:35]]). Through Church welfare, both the giver and the receiver are blessed in unique ways—each to the sanctification and salvation of his eternal soul.
 
@@ -79,6 +79,4 @@ It is my prayer that each of us will derive from this session of conference toda
 
 
 
-
-
-#Charity #Plan_Of_Salvation #Welfare
+#Charity #PlanOfSalvation #Welfare

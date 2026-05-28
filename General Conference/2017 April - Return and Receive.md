@@ -1,6 +1,6 @@
 # Return and Receive
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -28,7 +28,7 @@ Experts on goal setting tell us that the simpler and more straightforward a goal
 
 To *return* to His presence and to *receive* the eternal blessings that come from making and keeping covenants are the most important goals we can set.
 
-We *return* and *receive* by having “unshaken faith in \[the Lord Jesus Christ\], relying wholly upon” His merits, pressing “forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men \[and women\] … , feasting upon the word of Christ, and endur\[ing\] to the end.”[^3]
+We *return* and *receive* by having “unshaken faith in \[the Lord Jesus Christ\], relying wholly upon” His merits, pressing “forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men \[and women\] … , feasting upon the word of Christ, and endur\[ing\] to the end.”[^3]
 
 Lucifer did not accept our Father’s plan that allowed us to *return* to His presence and *receive* His blessings. In fact, Lucifer rebelled and attempted to completely modify our Father’s plan, wanting to take the glory, honor, and power of God to himself. As a result, he was cast out with his minions from God’s presence and “became Satan, yea, even the devil, the father of all lies, to deceive and to blind men \[and women\], and to lead them captive at his will, even as many as would not hearken unto \[the Lord’s\] voice.”[^4]
 
@@ -54,7 +54,7 @@ During the coming weeks, find time to review your life’s goals and your plans,
 
 We must keep the doctrine and gospel of Jesus Christ at the center of our goals and plans. Without Him, no eternal goal is possible, and our plans to achieve our eternal goals will surely fail.
 
-One additional help is “The Living Christ: The Testimony of the Apostles,”[^12] which was presented to the Church on January 1, 2000. Place a copy where you can see it, and take time to review each of the statements found in this inspired testimony of Christ by His special witnesses who signed it.
+One additional help is “The Living Christ: The Testimony of the Apostles,”[^12] which was presented to the Church on January 1, 2000. Place a copy where you can see it, and take time to review each of the statements found in this inspired testimony of Christ by His special witnesses who signed it.
 
 I would urge you to study it along with “The Family: A Proclamation to the World.” We speak often about the family proclamation, but please remember to read it in light of the saving power of the living Christ. Without the living Christ, our fondest expectations will be unfulfilled. As the family proclamation states: “The divine plan of happiness enables family relationships to be perpetuated beyond the grave. Sacred ordinances and covenants available in holy temples make it possible for individuals to return to the presence of God and for families to be united eternally.”[^13]
 
@@ -79,15 +79,15 @@ As we focus our attention on the Savior during these two special Sundays, let us
 
 [^1]: [[Moses 1.39|Moses 1:39]].
 
-[^2]: [[3 Nephi 13.33|3 Nephi 13:33]].
+[^2]: [[3 Nephi 13.33|3 Nephi 13:33]].
 
-[^3]: [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
+[^3]: [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
 
 [^4]: [[Moses 4.4|Moses 4:4]].
 
-[^5]: See [[2 Nephi 2.18|2 Nephi 2:18]].
+[^5]: See [[2 Nephi 2.18|2 Nephi 2:18]].
 
-[^6]: See [[2 Nephi 32.5|2 Nephi 32:5]].
+[^6]: See [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^7]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
@@ -99,14 +99,12 @@ As we focus our attention on the Savior during these two special Sundays, let us
 
 [^11]: [[D&C 4.5|Doctrine and Covenants 4:5]].
 
-[^12]: See “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2–3.
+[^12]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2–3.
 
-[^13]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^13]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
 [^14]: See [[D&C 62.1|Doctrine and Covenants 62]][[D&C 62.2|]][[D&C 62.3|]][[D&C 62.4|]][[D&C 62.5|]][[D&C 62.6|]][[D&C 62.7|]][[D&C 62.8|]][[D&C 62.9|]]; [[D&C 70.1|70]][[D&C 70.2|]][[D&C 70.3|]][[D&C 70.4|]][[D&C 70.5|]][[D&C 70.6|]][[D&C 70.7|]][[D&C 70.8|]][[D&C 70.9|]][[D&C 70.10|]][[D&C 70.11|]][[D&C 70.12|]][[D&C 70.13|]][[D&C 70.14|]][[D&C 70.15|]][[D&C 70.16|]][[D&C 70.17|]][[D&C 70.18|]].
 
 [^15]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-
-
-#Goals #Jesus_Christ #Plan_Of_Salvation
+#Goals #JesusChrist #PlanOfSalvation

@@ -1,6 +1,6 @@
 # Developing Spirituality
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -12,7 +12,7 @@ President Wilford Woodruff once had a remarkable experience to which I would lik
 
 President Woodruff then went on to say of that experience, as he spoke at the Weber Stake conference, essentially what I want to say today: “Every man and woman in this Church should labor to get that Spirit. We are surrounded by these evil spirits that are at war against God and against everything looking to the building up of the kingdom of God; and we need this Holy Spirit to enable us to overcome these influences.” (*Deseret Weekly,* 7 Nov. 1896, p. 643.)
 
-Continuing his discourse, President Woodruff told of his missionary experiences. He said: “In the time of the apostasy in Kirtland … the Spirit of God said to me, ‘You choose a partner and go straight to Fox Islands.’ Well, I knew no more what was on Fox Islands than what was on Kolob. But the Lord told me to go, and I went. I chose Jonathan H. Hale, and he went with me. … Through the blessings of God I brought nearly a hundred from there up to Zion, at the time the Saints were driven out of Missouri into Illinois.
+Continuing his discourse, President Woodruff told of his missionary experiences. He said: “In the time of the apostasy in Kirtland … the Spirit of God said to me, ‘You choose a partner and go straight to Fox Islands.’ Well, I knew no more what was on Fox Islands than what was on Kolob. But the Lord told me to go, and I went. I chose Jonathan H. Hale, and he went with me. … Through the blessings of God I brought nearly a hundred from there up to Zion, at the time the Saints were driven out of Missouri into Illinois.
 
 “So it has been all through my life. If I have undertaken to do anything, and the Lord has wanted me to do something else, He has had to tell me. When we were sent to England, we were sent by revelation. I went into the Staffordshire potteries with Brother Alfred Cordon. We were doing a splendid work, baptizing almost every night, and I thought it was the finest mission I ever was on. I went into the town of Hanley one night, and attended meeting in a large hall, which was filled to overflowing. The Spirit of the Lord came upon me and said that that was the last meeting I should hold with that people for many days. I told the people that that was the last meeting I should be with them. After the meeting, they asked me where I was going. I told them I did not know. In the morning I asked the Lord what He wanted of me. He merely said, ‘Go to the south.’ I got into the stage and rode eighty miles. The first man’s house I stopped at was John Benbow’s in Herefordshire. In half an hour after I entered the house I knew exactly why the Lord had sent me. There was a people there who had been praying for the ancient order of things. They were waiting for the Gospel as it was taught by Christ and His Apostles. The consequence was, the first thirty days after I got there I baptized six hundred of those people. In eight month’s labor in that country I brought eighteen hundred into the Church. Why? Because there was a people prepared for the Gospel, and the Lord sent me there to do that work. I have always had to give God the glory for everything good that has happened to me; for I have realized by what power it came.” (*Deseret Weekly,* 7 Nov. 1896, p. 643.)
 
@@ -20,11 +20,11 @@ President Woodruff concludes with these words: “I refer to these things becaus
 
 Developing spirituality and attuning ourselves to the highest influences of godliness is not an easy matter. It takes time and frequently involves a struggle. It will not happen by chance, but is accomplished only through deliberate effort and by calling upon God and keeping his commandments.
 
-The Apostle Paul spent much of his life teaching and encouraging spirituality in the then far-flung missions of the world. He frequently used terminology from the sports, games, and athletic contests. He said that a Saint successfully keeping the commandments is like an athlete winning his contest; that comparable degrees of training, exertion, obedience to the rules, self-discipline, and the will to win are involved. To the Corinthians he wrote words, which paraphrased, are to this effect: “You know (do you not?) that at the sports all the runners run the race, though only one wins the prize. Like them, run to win! Now every athlete goes into strict training. They do it to win a perishable wreath, but our wreath will last forever. For my part I run with a clear goal before me. (See [[1 Corinthians 9.24|1 Cor. 9:24–26]][[1 Corinthians 9.25|]][[1 Corinthians 9.26|]].)
+The Apostle Paul spent much of his life teaching and encouraging spirituality in the then far-flung missions of the world. He frequently used terminology from the sports, games, and athletic contests. He said that a Saint successfully keeping the commandments is like an athlete winning his contest; that comparable degrees of training, exertion, obedience to the rules, self-discipline, and the will to win are involved. To the Corinthians he wrote words, which paraphrased, are to this effect: “You know (do you not?) that at the sports all the runners run the race, though only one wins the prize. Like them, run to win! Now every athlete goes into strict training. They do it to win a perishable wreath, but our wreath will last forever. For my part I run with a clear goal before me. (See [[1 Corinthians 9.24|1 Cor. 9:24–26]][[1 Corinthians 9.25|]][[1 Corinthians 9.26|]].)
 
 Along this same line he said to Timothy, his beloved young friend and missionary companion:
 
-“I have fought a good fight, I have finished my course, I have kept the faith: Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only; but unto all them also that love his appearing.” ([[2 Timothy 4.7|2 Tim. 4:7–8]][[2 Timothy 4.8|]].)
+“I have fought a good fight, I have finished my course, I have kept the faith: Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only; but unto all them also that love his appearing.” ([[2 Timothy 4.7|2 Tim. 4:7–8]][[2 Timothy 4.8|]].)
 
 Taking the athletic contest to what was in ancient times the ultimate experience—a hand-to-hand battle to the death—Paul wrote this statement regarding such physical combat:
 
@@ -71,6 +71,4 @@ May we follow the counsel to so labor and so live as to obtain the Spirit of God
 
 
 
-
-
-#Holy_Ghost #Missionary_Work #Spirituality
+#HolyGhost #MissionaryWork #Spirituality

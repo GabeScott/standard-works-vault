@@ -1,4 +1,3 @@
 # Zephaniah
 
-
-*See* [BD Zephaniah](https://www.churchofjesuschrist.org/study/scriptures/bd/zephaniah?lang=eng)
+*See also* [[BD Zephaniah.md|BD Zephaniah]]

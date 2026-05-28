@@ -40,7 +40,7 @@ My own father, a printer, gave to me a copy of a piece he had printed. It was en
 
 Our gratitude to Mother for the gift of birth is equal or beyond that owed to Father. She who looked upon us as “a sweet new blossom of humanity, fresh fallen from God’s own home, to flower on earth”[^3] and cared for our every need, comforted our every cry, and later rejoiced in any of our accomplishments and wept over our failures and disappointments, occupies a singular place of honor in our hearts.
 
-A passage from 3 John sets forth the formula whereby we might express to our parents our gratitude for the gift of birth: “I have no greater joy than to hear that my children walk in truth.”[^4] Let us so walk. Let us so honor the givers of this priceless gift of birth.
+A passage from 3 John sets forth the formula whereby we might express to our parents our gratitude for the gift of birth: “I have no greater joy than to hear that my children walk in truth.”[^4] Let us so walk. Let us so honor the givers of this priceless gift of birth.
 
 Second, **the gift of peace.** In the raucous world in which we live, the din of traffic, the blaring commercials of the media, and the sheer demands placed on our time—to say nothing of the problems of the world—cause headache, inflict pain, and sap our strength to cope. The burden of sickness or the grief of mourning a loved one departed brings us to our knees seeking heavenly help. With the ancients we may wonder, “Is there no balm in Gilead?”[^5] There is a certain sadness, even hopelessness, in the verse:
 
@@ -82,7 +82,7 @@ A few lines from the favorite musical *The Sound of Music* suggest a course of a
 
 A segment of our society desperately yearning for an expression of true love is found among those growing older, and particularly when they suffer from pangs of loneliness. The chill wind of dying hopes and vanished dreams whistles through the ranks of the elderly and those who approach the declining side of the summit of life.
 
-“What they need in the loneliness of their older years is, in part at least, what we needed in the uncertain years of our youth: a sense of belonging, an assurance of being wanted, and the kindly ministrations of loving hearts and hands; not merely dutiful formality, not merely a room in a building, but room in someone’s heart and life. …
+“What they need in the loneliness of their older years is, in part at least, what we needed in the uncertain years of our youth: a sense of belonging, an assurance of being wanted, and the kindly ministrations of loving hearts and hands; not merely dutiful formality, not merely a room in a building, but room in someone’s heart and life. …
 
 “We cannot bring them back the morning hours of youth. But we can help them live in the warm glow of a sunset made more beautiful by our thoughtfulness, by our provision, and by our active and unfeigned love.”[^16] So wrote Elder Richard L. Evans some years ago.
 
@@ -135,9 +135,9 @@ May we give generously to Him, as He has so abundantly given to us, by living an
 
 [^2]: [[Matthew 2.2|Matt. 2:2]].
 
-[^3]: Gerald Massey, in John P. Bradley, et al., comp., *The International Dictionary of Thoughts* (Chicago: J. G. Ferguson Publishing Co., 1969), p. 66.
+[^3]: Gerald Massey, in John P. Bradley, et al., comp., *The International Dictionary of Thoughts* (Chicago: J. G. Ferguson Publishing Co., 1969), p. 66.
 
-[^4]: [[3 John 1.4|3 Jn. 1:4]].
+[^4]: [[3 John 1.4|3 Jn. 1:4]].
 
 [^5]: [[Jeremiah 8.22|Jer. 8:22]].
 
@@ -149,7 +149,7 @@ May we give generously to Him, as He has so abundantly given to us, by living an
 
 [^9]: Act 3, scene 3, lines 97–98.
 
-[^10]: In Eugene England, “Without Purse or Scrip,” *New Era,* July 1975, p. 28.
+[^10]: In Eugene England, “Without Purse or Scrip,” *New Era,* July 1975, p. 28.
 
 [^11]: [[Matthew 22.36|Matt. 22:36–39]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]].
 
@@ -161,18 +161,16 @@ May we give generously to Him, as He has so abundantly given to us, by living an
 
 [^15]: “Sixteen, Going on Seventeen,” from *The Sound of Music.*
 
-[^16]: *Thoughts … for One Hundred Days* (Salt Lake City: Publishers Press, 1966), p. 222.
+[^16]: *Thoughts … for One Hundred Days* (Salt Lake City: Publishers Press, 1966), p. 222.
 
-[^17]: In Richard L. Evans, *Richard Evans’ Quote Book* (Salt Lake City: Publishers Press, 1971), p. 238.
+[^17]: In Richard L. Evans, *Richard Evans’ Quote Book* (Salt Lake City: Publishers Press, 1971), p. 238.
 
-[^18]: In *Improvement Era,* May 1960, p. 340.
+[^18]: In *Improvement Era,* May 1960, p. 340.
 
 [^19]: [[John 3.16|John 3:16]].
 
 [^20]: [[Matthew 26.39|Matt. 26:39]].
 
-[^21]: [[2 Nephi 31.20|2 Ne. 31:20–21]][[2 Nephi 31.21|]].
-
-
+[^21]: [[2 Nephi 31.20|2 Ne. 31:20–21]][[2 Nephi 31.21|]].
 
 #Gratitude #Love #Peace #Spirituality

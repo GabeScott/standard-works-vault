@@ -62,7 +62,7 @@ And then he went on to say:
 
 “Ye are my friends, if ye do whatsoever I command you.
 
-“Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I have heard of my Father I have made known unto you” ([[John 15.14|vs. 14–15]][[John 15.15|]]).
+“Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I have heard of my Father I have made known unto you” ([[John 15.14|vs. 14–15]][[John 15.15|]]).
 
 Friendship is an extremely important part of your life. Someone has said a true friend is someone who makes it easier to live the gospel of Jesus Christ.
 
@@ -103,6 +103,4 @@ That we may all qualify to be his disciples, his friends, I pray in the name of 
 
 
 
-
-
-#Example #Family #Fellowshipping #Jesus_Christ #Love #Obedience #Word_Of_Wisdom
+#Example #Family #Fellowshipping #JesusChrist #Love #Obedience #WordOfWisdom

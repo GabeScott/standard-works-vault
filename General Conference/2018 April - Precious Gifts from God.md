@@ -1,6 +1,6 @@
 # Precious Gifts from God
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -10,13 +10,13 @@ By President M. Russell Ballard - *Acting President of the Quorum of the Twelve
 
 My brothers and sisters, we have just participated in a solemn assembly, a practice that can be traced back to the Bible when ancient Israel gathered to feel the Lord’s presence and celebrate His blessings.[^1] We are privileged to live in a time when this ancient practice has been restored through the Prophet Joseph Smith.[^2] I urge you to record in your personal journal what you felt regarding this most sacred occasion in which you have taken part.
 
-Recently, we said goodbye to our dear friend and prophet, President Thomas S. Monson. Although we all miss him, we are deeply grateful the Lord has called a new prophet, President Russell M. Nelson, to preside over His Church. In an orderly way we have now begun a new chapter in our Church history. This is a precious gift from God.
+Recently, we said goodbye to our dear friend and prophet, President Thomas S. Monson. Although we all miss him, we are deeply grateful the Lord has called a new prophet, President Russell M. Nelson, to preside over His Church. In an orderly way we have now begun a new chapter in our Church history. This is a precious gift from God.
 
 As we each sustained President Nelson by our uplifted hands, we stood as witnesses before God and acknowledged that he is President Monson’s rightful successor. With our raised hands, we promised to hearken unto his voice as he receives direction from the Lord.
 
 The Lord has said:
 
-“Thou shalt give heed unto all his \[meaning the President of the Church\] words and commandments which he shall give unto you as he receiveth them … ;
+“Thou shalt give heed unto all his \[meaning the President of the Church\] words and commandments which he shall give unto you as he receiveth them … ;
 
 “For his word ye shall receive, as if from mine own mouth, in all patience and faith.”[^3]
 
@@ -36,7 +36,7 @@ If we have faith as small as a mustard seed, the Lord can help us remove the mou
 
 Brothers and sisters, life can be filled with faith, joy, happiness, hope, and love when we exercise the smallest amount of real faith in Christ—even a mustard seed of faith.
 
-Elder George A. Smith remembered some advice the Prophet Joseph Smith gave to him: “He told me I should never get discouraged, whatever difficulties might surround me. If I was sunk in the lowest pit of Nova Scotia and all the Rocky Mountains piled on top of me, I ought not to be discouraged but hang on, exercise faith, and keep up good courage and I should come out on the top of the heap at last.”[^6]
+Elder George A. Smith remembered some advice the Prophet Joseph Smith gave to him: “He told me I should never get discouraged, whatever difficulties might surround me. If I was sunk in the lowest pit of Nova Scotia and all the Rocky Mountains piled on top of me, I ought not to be discouraged but hang on, exercise faith, and keep up good courage and I should come out on the top of the heap at last.”[^6]
 
 We should remember Paul’s declaration: “I can do all things through Christ which strengtheneth me.”[^7] Knowing this is another precious gift from God.
 
@@ -91,7 +91,7 @@ I testify that Jesus Christ is our Savior. What we will be taught at this genera
 
 [^5]: [[Matthew 17.20|Matthew 17:20]].
 
-[^6]: George A. Smith, in *Teachings of Presidents of the Church: Joseph Smith* (2007), 235.
+[^6]: George A. Smith, in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-19?lang=eng)* (2007), 235.
 
 [^7]: [[Philippians 4.13|Philippians 4:13]].
 
@@ -105,7 +105,7 @@ I testify that Jesus Christ is our Savior. What we will be taught at this genera
 
 [^12]: [[John 14.6|John 14:6]].
 
-[^13]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^13]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^14]: [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
 
@@ -113,6 +113,4 @@ I testify that Jesus Christ is our Savior. What we will be taught at this genera
 
 [^16]: See [[James 1.27|James 1:27]].
 
-
-
-#Faith #Jesus_Christ #Prophets #Sabbath #Sacrament #Service
+#Faith #JesusChrist #Prophets #Sabbath #Sacrament #Service

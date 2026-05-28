@@ -1,6 +1,6 @@
 # Remember What Matters Most
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -79,14 +79,12 @@ In my ministry, I have learned what matters most is our relationships with Heave
 
 [^1]: [[John 11.25|John 11:25]].
 
-[^2]: See the articles “[Family](https://churchofjesuschrist.org/study/manual/gospel-topics/family?lang=eng),” “[Unity](https://churchofjesuschrist.org/study/manual/gospel-topics/unity?lang=eng),” and “[Love](https://churchofjesuschrist.org/study/manual/gospel-topics/love?lang=eng)” in Gospel Topics in the Gospel Library (at ChurchofJesusChrist.org or on the mobile app) to read scriptures and talks from prophets, apostles, and other Church leaders on this topic.
+[^2]: See the articles “[Family](https://www.churchofjesuschrist.org/study/manual/gospel-topics/family?lang=eng),” “[Unity](https://www.churchofjesuschrist.org/study/manual/gospel-topics/unity?lang=eng),” and “[Love](https://www.churchofjesuschrist.org/study/manual/gospel-topics/love?lang=eng)” in Gospel Topics in the Gospel Library (at ChurchofJesusChrist.org or on the mobile app) to read scriptures and talks from prophets, apostles, and other Church leaders on this topic.
 
-[^3]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p3#p3),” ChurchofJesusChrist.org.
+[^3]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p3#p3),” ChurchofJesusChrist.org.
 
-[^4]: An account of this experience is in Susan Easton Black and Joseph Walker, *Anxiously Engaged: A Biography of M. Russell Ballard* (2021), 90–91.
+[^4]: An account of this experience is in Susan Easton Black and Joseph Walker, *Anxiously Engaged: A Biography of M. Russell Ballard* (2021), 90–91.
 
 [^5]: [[Alma 5.45|Alma 5:45–46]][[Alma 5.46|]].
 
-
-
-#Family #Holy_Ghost #Jesus_Christ #Priorities #Promptings #Testimony
+#Family #HolyGhost #JesusChrist #Promptings #Priorities #Testimony

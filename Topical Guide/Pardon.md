@@ -1,7 +1,6 @@
 # Pardon
 
-
-*See also* [[Forgive, Forgiveness.md|Forgive]]; [[Remission of Sins.md|Remission of Sins]]
+*See also* [[Forgive.md|Forgive]]; [[Remission of Sins.md|Remission of Sins]]
 
 he will not *pardon* your transgressions, [[Exodus 23.21|Exodus 23:21]].
 
@@ -13,9 +12,9 @@ filled Jerusalem with innocent blood; which the Lord would not *pardon*, [[2 Kin
 
 thou art a God ready to *pardon*, [[Nehemiah 9.17|Nehemiah 9:17]].
 
-cry unto her ... that her iniquity is *pardoned*, [[Isaiah 40.2|Isaiah 40:2]].
+cry unto her … that her iniquity is *pardoned*, [[Isaiah 40.2|Isaiah 40:2]].
 
-return ... to our God, for he will abundantly *pardon*, [[Isaiah 55.7|Isaiah 55:7]].
+return … to our God, for he will abundantly *pardon*, [[Isaiah 55.7|Isaiah 55:7]].
 
 I will *pardon* them whom I reserve, [[Jeremiah 50.20|Jeremiah 50:20]].
 

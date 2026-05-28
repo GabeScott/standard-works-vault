@@ -1,6 +1,6 @@
 # Ours Is a Shared Ancestry
 
-By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
+By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -65,6 +65,4 @@ With his blessings—spiritual blessings, technological blessings—we can accel
 
 
 
-
-
-#Family_History
+#FamilyHistory

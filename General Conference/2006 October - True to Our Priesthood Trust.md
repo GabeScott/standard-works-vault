@@ -95,6 +95,4 @@ Brethren, let us learn our duties. Let us ever be worthy to perform those duties
 
 
 
-
-
 #Duty #Priesthood #Service #Trust #Worthiness

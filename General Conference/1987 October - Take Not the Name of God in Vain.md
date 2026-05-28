@@ -24,15 +24,15 @@ He goes on: “One evening I was watching a TV movie with my sixteen-year-old so
 
 I believe the suggestion is timely. I clipped from the *Wall Street Journal* a recent column by Hodding Carter. In it he states:
 
-“If it was once rare to hear sailors’ language in mixed company, it is now difficult to avoid it. For whatever reason, the enduring contribution to America left by the 1960s has been the debasement of public discourse and behavior” (“Our Public Manners, Sir, Are Execrable,” *Wall Street Journal,* 4 June 1987, p. 31).
+“If it was once rare to hear sailors’ language in mixed company, it is now difficult to avoid it. For whatever reason, the enduring contribution to America left by the 1960s has been the debasement of public discourse and behavior” (“Our Public Manners, Sir, Are Execrable,” *Wall Street Journal,* 4 June 1987, p. 31).
 
 Mr. Carter writes as a former Marine and as a newspaper reporter, both groups known for their use of salty language. This he admits, and confesses his guilt. But he decries the growing public practice. He continues:
 
 “Such behavior is not confined to the big cities or the two coasts. … While what was once labeled ghetto language is, of course, prevalent in the ghetto, it is also commonplace at Harvard and Tulane, at Davenport, Iowa, and Destin, Florida, to name a few … places.”
 
-He goes on: “Beyond language is the larger problem, which is the decline of civility in general. …
+He goes on: “Beyond language is the larger problem, which is the decline of civility in general. …
 
-“And so we are assaulted on all sides by the ethos of the slob, with few having the courage or desire to confront it head on.” Says he: “I rarely challenge the foulmouth who embarrasses my mother in a public place. … I, like most of you, simply wince and turn away” (Hodding Carter, “Public Manners,” p. 31).
+“And so we are assaulted on all sides by the ethos of the slob, with few having the courage or desire to confront it head on.” Says he: “I rarely challenge the foulmouth who embarrasses my mother in a public place. … I, like most of you, simply wince and turn away” (Hodding Carter, “Public Manners,” p. 31).
 
 Conversations I have had with school principals and students lead me to the same conclusion—that even among *our* young people, there is an evil and growing habit of profanity and the use of foul and filthy language.
 
@@ -44,7 +44,7 @@ When Moses was leading the children of Israel out of Egypt to the land of promis
 
 So serious was violation of this law considered in ancient Israel that blasphemy of the name of the Lord was regarded as a capital crime. There is an interesting account in the book of Leviticus:
 
-The son of an Israelitish woman “blasphemed the name of the Lord, and cursed. And they brought him unto Moses. …
+The son of an Israelitish woman “blasphemed the name of the Lord, and cursed. And they brought him unto Moses. …
 
 “And the Lord spake unto Moses, saying,
 
@@ -58,7 +58,7 @@ While that most serious of penalties has long since ceased to be inflicted, the 
 
 The Lord has spoken again in our time concerning this serious matter. In the revelation given to President Brigham Young on January 14, 1847, while the Saints were preparing to leave Winter Quarters for these valleys in the West, the Lord said to them, “Keep yourselves from evil to take the name of the Lord in vain, for I am the Lord your God, even the God of your fathers, the God of Abraham and of Isaac and of Jacob” ([[D&C 136.21|D&C 136:21]]).
 
-In a general epistle to the entire Church issued by the First Presidency on April 8, 1887, a hundred years ago, they said concerning this problem, which evidently was serious then as it is now, “The habit … , which some young people fall into, of using vulgarity and profanity … is not only offensive to all well-bred persons, but it is a gross sin in the sight of God, and should not exist among the children of the Latter-day Saints” (James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols., Salt Lake City: Bookcraft, 1965–75, 3:112–13).
+In a general epistle to the entire Church issued by the First Presidency on April 8, 1887, a hundred years ago, they said concerning this problem, which evidently was serious then as it is now, “The habit … , which some young people fall into, of using vulgarity and profanity … is not only offensive to all well-bred persons, but it is a gross sin in the sight of God, and should not exist among the children of the Latter-day Saints” (James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols., Salt Lake City: Bookcraft, 1965–75, 3:112–13).
 
 I once worked with a group of railroad men who seemed to pride themselves on the use of profanity. They tried to make an art of it. I recall handing a written instruction to a switchman. It was his job to take care of the matter as instructed, but he thought it inconvenient that he should have to do so at that time. On reading the order, he flew into a tantrum. He was a fifty-year-old man, but he acted like a spoiled child. He threw his cap on the ground and jumped on it and let forth such a string of expletives as to seem to cause the air to turn blue around him. Every third or fourth word was the name of Deity spoken in vain.
 
@@ -76,11 +76,11 @@ President George Q. Cannon, who served long and faithfully as a Counselor in the
 
 “Do angels take the Lord’s name in vain? The idea is so ridiculous that we scarcely like to ask the question. … How dare we do that which angels dare not do? Is it possible for us to argue that that which is forbidden in heaven is praiseworthy on earth? …
 
-“Though we are sure no boy can tell us any advantage that can arise from the abuse of God’s holy name, yet we can tell him many evils that arise therefrom. To begin,” Brother Cannon said, “it is unnecessary and consequently foolish; it lessens our respect for holy things and leads us into the society of the wicked; it brings upon us the disrespect of the good who avoid us; it leads us to other sins, for he who is willing to abuse his Creator is not ashamed to defraud his fellow creature; and also by so doing we directly and knowingly break one of the most direct of God’s commandments” (“Editorial Thoughts,” *Juvenile Instructor,* 27 Sept. 1873, p. 156).
+“Though we are sure no boy can tell us any advantage that can arise from the abuse of God’s holy name, yet we can tell him many evils that arise therefrom. To begin,” Brother Cannon said, “it is unnecessary and consequently foolish; it lessens our respect for holy things and leads us into the society of the wicked; it brings upon us the disrespect of the good who avoid us; it leads us to other sins, for he who is willing to abuse his Creator is not ashamed to defraud his fellow creature; and also by so doing we directly and knowingly break one of the most direct of God’s commandments” (“Editorial Thoughts,” *Juvenile Instructor,* 27 Sept. 1873, p. 156).
 
 Brethren, stay out of the gutter in your conversation. Foul talk defiles the man who speaks it.
 
-If you have the habit, how do you break it? You begin by making a decision to change. The next time you are prone to use words you know to be wrong, simply stop. Keep quiet or say what you have to say in a different way. As you practice such restraint, it will become easy. President Heber J. Grant was wont to say, “That which we persist in doing becomes easier for us to do; not that the nature of the thing itself is changed, but that our power to do is increased” (see Conference Report, Apr. 1901, p. 63).
+If you have the habit, how do you break it? You begin by making a decision to change. The next time you are prone to use words you know to be wrong, simply stop. Keep quiet or say what you have to say in a different way. As you practice such restraint, it will become easy. President Heber J. Grant was wont to say, “That which we persist in doing becomes easier for us to do; not that the nature of the thing itself is changed, but that our power to do is increased” (see Conference Report, Apr. 1901, p. 63).
 
 We begin with self-discipline. Shakespeare put these words in the mouth of Hamlet:
 
@@ -96,7 +96,7 @@ Can you think of a missionary in this church using the kind of language heard on
 
 Most of you boys who are here tonight are prospective missionaries. It is as wrong for you to use foul language as it would be for a missionary because you also hold the priesthood. You have authority to act in the name of God. Remember that it is the same voice which prays to the Lord on the one hand and which, on the other hand, when in the company of friends, may be inclined so to speak language foul and filthy. The two kinds of voices are incompatible.
 
-Paul, perhaps the greatest missionary of all time, wrote to Timothy, his young associate in the ministry. “Let no man despise thy youth,” he said, “but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]).
+Paul, perhaps the greatest missionary of all time, wrote to Timothy, his young associate in the ministry. “Let no man despise thy youth,” he said, “but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]).
 
 Note what he says: “Be thou an example *in word.*” He is speaking here of language. I think he is speaking of the things of which I have been speaking. He is saying that coarse and lewd words are incompatible with one’s calling as a believer in Christ.
 
@@ -115,6 +115,4 @@ Don’t swear. Don’t profane. Avoid so-called dirty jokes. Stay away from conv
 
 
 
-
-
-#God_The_Father #Jesus_Christ #Profanity #Youth
+#GodTheFather #JesusChrist #Profanity #Youth

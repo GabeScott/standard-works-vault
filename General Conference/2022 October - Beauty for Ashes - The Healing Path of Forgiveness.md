@@ -1,6 +1,6 @@
 # Beauty for Ashes: The Healing Path of Forgiveness
 
-By Sister Kristin M. Yee - *Second Counselor in the Relief Society General Presidency*
+By Sister Kristin M. Yee - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -8,7 +8,7 @@ By Sister Kristin M. Yee - *Second Counselor in the Relief Society General Pres
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/10/23yee?lang=eng)
 
-The book of 1 Samuel includes a lesser-known story of David, the future king of Israel, and a woman named Abigail.
+The book of 1 Samuel includes a lesser-known story of David, the future king of Israel, and a woman named Abigail.
 
 After Samuel’s death, David and his men went away from King Saul, who sought David’s life. They provided watchcare for the flocks and servants of a wealthy man named Nabal, who was mean-spirited. David sent 10 of his men to salute Nabal and request much-needed food and supplies.
 
@@ -18,17 +18,17 @@ Offended, David prepared his men to go up against Nabal and his household, sayin
 
 When Abigail met him, she “fell before David on her face, and bowed herself to the ground,
 
-“And fell at his feet, and said, Upon me, my lord, upon me let this iniquity be. …
+“And fell at his feet, and said, Upon me, my lord, upon me let this iniquity be. …
 
-“Now therefore, … the Lord hath withholden thee from coming to shed blood, and from avenging thyself with thine own hand. …
+“Now therefore, … the Lord hath withholden thee from coming to shed blood, and from avenging thyself with thine own hand. …
 
-“… Now this blessing which thine handmaid hath brought unto my lord, let it even be given unto the young men. …
+“… Now this blessing which thine handmaid hath brought unto my lord, let it even be given unto the young men. …
 
-“I pray thee, forgive the trespass of thine handmaid. …
+“I pray thee, forgive the trespass of thine handmaid. …
 
 “And David said to Abigail, Blessed be the Lord God of Israel, which sent thee this day to meet me:
 
-“And blessed be thy advice, and blessed be thou, which hast kept me this day from coming to shed blood, and from avenging myself with mine own hand. …
+“And blessed be thy advice, and blessed be thou, which hast kept me this day from coming to shed blood, and from avenging myself with mine own hand. …
 
 “So David received of her hand that which she had brought him, and said unto her, Go up in peace to thine house; … I have hearkened to thy voice, and have accepted thy person.”[^2]
 
@@ -38,7 +38,7 @@ In this account, Abigail can be seen as a powerful type or symbol of Jesus Chris
 
 Just as Abigail was willing to take Nabal’s sin upon herself, so did the Savior—in an incomprehensible way—take upon Him our sins and the sins of those who have hurt or offended us.[^5] In Gethsemane and on the cross, He claimed these sins. He made a way for us to let go of a vengeful heart. That “way” is through forgiving—which can be one of the most difficult things we ever do and one of the most divine things we ever experience. On the path of forgiveness, Jesus Christ’s atoning power can flow into our lives and begin to heal the deep crevasses of the heart and soul.
 
-President Russell M. Nelson has taught that the Savior offers us the ability to forgive:
+President Russell M. Nelson has taught that the Savior offers us the ability to forgive:
 
 “Through His infinite Atonement, you can forgive those who have hurt you and who may never accept responsibility for their cruelty to you.
 
@@ -60,7 +60,7 @@ As my love for the Savior has grown, so has my desire to replace hurt and anger 
 
 The Lord has sent me compensatory blessings just as Abigail brought what David needed. He has sent mentors into my life. And sweetest and most transformative of all has been my relationship with my Heavenly Father. Through Him, I’ve gratefully known the gentle, protective, and guiding love of a perfect Father.
 
-Elder Richard G. Scott said: “You cannot erase what has been done, but you can forgive.[^14] Forgiveness heals terrible, tragic wounds, for it allows the love of God to purge your heart and mind of the poison of hate. It cleanses your consciousness of the desire for revenge. It makes place for the purifying, healing, restoring love of the Lord.”[^15]
+Elder Richard G. Scott said: “You cannot erase what has been done, but you can forgive.[^14] Forgiveness heals terrible, tragic wounds, for it allows the love of God to purge your heart and mind of the poison of hate. It cleanses your consciousness of the desire for revenge. It makes place for the purifying, healing, restoring love of the Lord.”[^15]
 
 My earthly father has also had a miraculous change of heart in recent years and has turned to the Lord—something I wouldn’t have anticipated in this life. Another testimony to me of the complete and transformative power of Jesus Christ.
 
@@ -76,7 +76,7 @@ Joseph of Egypt lived a life with ashes. He was hated by his brethren, betrayed,
 
 When Joseph met his brothers as a great leader in Egypt, his forgiveness and refined perspective were manifest in the gracious words he spoke:
 
-“Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life. …
+“Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life. …
 
 “So now it was not you that sent me hither, but God.”[^20]
 
@@ -93,27 +93,27 @@ Jesus Christ is your personal Messiah, your loving Redeemer and Savior, who know
 
 
 
-[^1]: [[1 Samuel 25.21|1 Samuel 25:21]].
+[^1]: [[1 Samuel 25.21|1 Samuel 25:21]].
 
-[^2]: [[1 Samuel 25.23|1 Samuel 25:23–24, 26–28, 32–33, 35]][[1 Samuel 25.24|]][[1 Samuel 25.26|]][[1 Samuel 25.27|]][[1 Samuel 25.28|]][[1 Samuel 25.32|]][[1 Samuel 25.33|]][[1 Samuel 25.35|]].
+[^2]: [[1 Samuel 25.23|1 Samuel 25:23–24, 26–28, 32–33, 35]][[1 Samuel 25.24|]][[1 Samuel 25.26|]][[1 Samuel 25.27|]][[1 Samuel 25.28|]][[1 Samuel 25.32|]][[1 Samuel 25.33|]][[1 Samuel 25.35|]].
 
-[^3]: See *Old Testament Seminary Student Material* (2018), 449–50.
+[^3]: See *[Old Testament Seminary Student Material](https://www.churchofjesuschrist.org/study/manual/old-testament-seminary-student-material-2018/1-samuel/lesson-91?lang=eng&id=title_number1#title_number1)* (2018), 449–50.
 
-[^4]: See James L. Ferrell, *The Peacegiver: How Christ Offers to Heal Our Hearts and Homes* (2004), 29.
+[^4]: See James L. Ferrell, *The Peacegiver: How Christ Offers to Heal Our Hearts and Homes* (2004), 29.
 
-[^5]: See *Old Testament Seminary Student Material*, 449–50.
+[^5]: See *[Old Testament Seminary Student Material](https://www.churchofjesuschrist.org/study/manual/old-testament-seminary-student-material-2018/1-samuel/lesson-91?lang=eng&id=title_number1#title_number1)*, 449–50.
 
-[^6]: Russell M. Nelson, “[Four Gifts That Jesus Christ Offers to You](https://churchofjesuschrist.org/study/broadcasts/christmas-devotional/2018/12/four-gifts-that-jesus-christ-offers-to-you?lang=eng&id=p12#p12)” (First Presidency’s Christmas devotional, Dec. 7, 2018), broadcasts.ChurchofJesusChrist.org.
+[^6]: Russell M. Nelson, “[Four Gifts That Jesus Christ Offers to You](https://www.churchofjesuschrist.org/study/broadcasts/christmas-devotional/2018/12/four-gifts-that-jesus-christ-offers-to-you?lang=eng&id=p12#p12)” (First Presidency’s Christmas devotional, Dec. 7, 2018), broadcasts.ChurchofJesusChrist.org.
 
 [^7]: See Ferrell, *The Peacegiver*, 53.
 
 [^8]: [[D&C 64.10|Doctrine and Covenants 64:10]].
 
-[^9]: See James E. Faust, “[[2007 April - The Healing Power of Forgiveness.md|The Healing Power of Forgiveness]],” *Ensign* or *Liahona*, May 2007, 67–69.
+[^9]: See James E. Faust, “[[2007 April - The Healing Power of Forgiveness.md|The Healing Power of Forgiveness]],” *Ensign* or *Liahona*, May 2007, 67–69.
 
-[^10]: “[Forgiveness Doesn’t Mean Putting Up with Getting Hurt](https://www.churchofjesuschrist.org/inspiration/forgiveness-doesnt-mean-putting-up-with-getting-hurt?lang=eng),” Mar. 16, 2022, ChurchofJesusChrist.org.
+[^10]: “[Forgiveness Doesn’t Mean Putting Up with Getting Hurt](https://www.churchofjesuschrist.org/inspiration/forgiveness-doesnt-mean-putting-up-with-getting-hurt?lang=eng),” Mar. 16, 2022, ChurchofJesusChrist.org.
 
-[^11]: [[1 Samuel 25.31|1 Samuel 25:31]].
+[^11]: [[1 Samuel 25.31|1 Samuel 25:31]].
 
 [^12]: [[Malachi 4.2|Malachi 4:2]].
 
@@ -121,7 +121,7 @@ Jesus Christ is your personal Messiah, your loving Redeemer and Savior, who know
 
 [^14]: See [[D&C 64.10|Doctrine and Covenants 64:10]].
 
-[^15]: Richard G. Scott, “[[1992 April - Healing the Tragic Scars of Abuse.md|Healing the Tragic Scars of Abuse]],” *Ensign*, May 1992, 33.
+[^15]: Richard G. Scott, “[[1992 April - Healing the Tragic Scars of Abuse.md|Healing the Tragic Scars of Abuse]],” *Ensign*, May 1992, 33.
 
 [^16]: [[Luke 4.18|Luke 4:18]]; emphasis added.
 
@@ -135,7 +135,7 @@ Jesus Christ is your personal Messiah, your loving Redeemer and Savior, who know
 
 [^21]: [[Isaiah 61.3|Isaiah 61:3]].
 
-[^22]: Kevin J Worthen, “[The Y on the Mountain](https://speeches.byu.edu/talks/kevin-j-worthen/the-y-on-the-mountain)” (Brigham Young University commencement address, Apr. 25, 2019), 3, speeches.byu.edu.
+[^22]: Kevin J Worthen, “[The Y on the Mountain](https://speeches.byu.edu/talks/kevin-j-worthen/the-y-on-the-mountain)” (Brigham Young University commencement address, Apr. 25, 2019), 3, speeches.byu.edu.
 
 [^23]: [[Luke 23.34|Luke 23:34]].
 
@@ -143,6 +143,4 @@ Jesus Christ is your personal Messiah, your loving Redeemer and Savior, who know
 
 [^25]: See [[Jacob 6.5|Jacob 6:5]].
 
-
-
-#Forgiveness #Healing #Jesus_Christ
+#Forgiveness #Healing #JesusChrist

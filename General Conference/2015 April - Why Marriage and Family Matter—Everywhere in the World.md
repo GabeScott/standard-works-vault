@@ -1,6 +1,6 @@
 # Why Marriage and Family Matter—Everywhere in the World
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -8,7 +8,7 @@ By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/why-marriage-and-family-matter-everywhere-in-the-world?lang=eng)
 
-Last November, I had the privilege of being invited—along with President Henry B. Eyring and Bishop Gérald Caussé—to attend a colloquium on marriage and family at the Vatican in Rome, Italy. In attendance were religious representatives from 14 different faiths and from six of the seven continents, all of whom had been invited to express their beliefs on what is happening to the family in today’s world.
+Last November, I had the privilege of being invited—along with President Henry B. Eyring and Bishop Gérald Caussé—to attend a colloquium on marriage and family at the Vatican in Rome, Italy. In attendance were religious representatives from 14 different faiths and from six of the seven continents, all of whom had been invited to express their beliefs on what is happening to the family in today’s world.
 
 Pope Francis opened the first session of the assembly with this statement: “We now live in a culture of the temporary, in which more and more people are simply giving up on marriage as a public commitment. This revolution in manners and morals has often flown the flag of freedom, but in fact it has brought spiritual and material devastation to countless human beings, especially the poorest and most vulnerable. … It is always they who suffer the most in this crisis.”[^1]
 
@@ -20,7 +20,7 @@ There were many who saw and expressed this unity, and they did so in a variety o
 
 During the colloquium, I observed that when various faiths and denominations and religions are united on marriage and family, they are also united on the values and loyalty and commitment which are naturally associated with family units. It was remarkable for me to see how marriage and family-centered priorities cut across and superseded any political, economic, or religious differences. When it comes to love of spouse and hopes, worries, and dreams for children, we are all the same.
 
-It was marvelous to be in meetings with worldwide presenters as they universally addressed their feelings of the importance of marriage between a man and a woman. Each of their addresses was followed by testimonies from other religious leaders. President Henry B. Eyring gave a final testimony at the colloquium. He bore powerful witness to the beauty of a committed marriage and to our belief in the promised blessing of eternal families.
+It was marvelous to be in meetings with worldwide presenters as they universally addressed their feelings of the importance of marriage between a man and a woman. Each of their addresses was followed by testimonies from other religious leaders. President Henry B. Eyring gave a final testimony at the colloquium. He bore powerful witness to the beauty of a committed marriage and to our belief in the promised blessing of eternal families.
 
 President Eyring’s testimony was a fitting benediction to those three special days.
 
@@ -75,14 +75,12 @@ I give thanks for my wife, for my children, for my grandchildren and my great-gr
 
 
 
-[^1]: Pope Francis, address at Humanum: An International Interreligious Colloquium on the Complementarity of Man and Woman, Nov. 17, 2014, humanum.it/en/videos; see also zenit.org/en/articles/pope-francis-address-at-opening-of-colloquium-on-complementarity-of-man-and-woman.
+[^1]: Pope Francis, address at Humanum: An International Interreligious Colloquium on the Complementarity of Man and Woman, Nov. 17, 2014, humanum.it/en/videos; see also zenit.org/en/articles/pope-francis-address-at-opening-of-colloquium-on-complementarity-of-man-and-woman.
 
 [^2]: Pope Francis, Colloquium on the Complementarity of Man and Woman.
 
 [^3]: “Families Can Be Together Forever,” *Hymns,* no. 300.
 
 [^4]: David Brooks, “The Age of Possibility,” *New York Times,* Nov. 16, 2012, A35, nytimes.com/2012/11/16/opinion/brooks-the-age-of-possibility.html.
-
-
 
 #Family #Marriage

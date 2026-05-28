@@ -20,7 +20,7 @@ Often I have wondered: Why do we as adults have to be commanded to do that which
 
 The kingdom of heaven for which we strive can begin with a heavenly life here and now. We can develop a child’s love matured. President David O. McKay said:
 
-“I know of no other place than home where more happiness can be found in this life. It is possible to make home a bit of heaven; indeed, I picture heaven to be a continuation of the ideal home. Some man has said: ‘Home filled with contentment is one of the highest hopes of this life’” (in Conference Report, Apr. 1964, p. 5; or *Improvement Era,* June 1964, p. 520).
+“I know of no other place than home where more happiness can be found in this life. It is possible to make home a bit of heaven; indeed, I picture heaven to be a continuation of the ideal home. Some man has said: ‘Home filled with contentment is one of the highest hopes of this life’” (in Conference Report, Apr. 1964, p. 5; or *Improvement Era,* June 1964, p. 520).
 
 How do we make our home the ideal home and the proper prelude to heaven? I believe we start with the Savior’s admonition to keep His commandments and to do so specifically within the walls of our own home. Husband and wife—father and mother—set the example and tone for all that happens within the home. Hopefully, the relationship starts at a sacred altar in a holy temple. There they kneel, knowing that they are both worthy of that sacred privilege. They are prepared and desirous of entering into sacred covenants—to put each other and the goal of being together in heaven first in their lives. Selfishness is to be put aside. They begin a partnership—a full partnership—that is to be eternal.
 
@@ -40,7 +40,7 @@ Elder M. Russell Ballard of the Quorum of the Twelve emphasized this at last Oct
 
 “Any man who claims the special powers of heaven for his own selfish purposes and seeks to use the priesthood in any degree of unrighteousness in the Church or in the home simply does not understand the nature of his authority. Priesthood is for service, not servitude; compassion, not compulsion; caring, not control. Those who think otherwise are operating outside the parameters of priesthood authority.
 
-“Thankfully, most of our fathers and priesthood officers lead with love, just as most of our mothers and auxiliary leaders do. Leadership based on love brings incredible power. It is real, and it generates lasting results in the lives of our Father’s children” (in Conference Report, Oct. 1993, p. 105; or *Ensign,* Nov. 1993, p. 78).
+“Thankfully, most of our fathers and priesthood officers lead with love, just as most of our mothers and auxiliary leaders do. Leadership based on love brings incredible power. It is real, and it generates lasting results in the lives of our Father’s children” (in Conference Report, Oct. 1993, [[1993 October - Strength in Counsel.md|p. 105]]; or *Ensign,* Nov. 1993, p. 78).
 
 Paul taught succinctly, “Husbands, love your wives, even as Christ also loved the church, and gave himself for it” ([[Ephesians 5.25|Eph. 5:25]]). When true love prevails between husband and wife, they want to give themselves to and for each other, as Christ gave of Himself. We give for each other on a daily basis when we endeavor always to make each other happy. Then we give up thinking selfishly of ourselves and our personal needs. Then we really think not only of the here and now but of the hereafter.
 
@@ -53,8 +53,6 @@ Children learn to copy the patterns of their parents. If parents honor the Sabba
 I love my wife, Marilyn, so very much and am so grateful for her, for the years we have had together, and for her love given to me in so many ways. She is a marvelous wife and mother and grandmother and a faithful servant of the Lord in her own right. My daily prayer includes feelings of gratitude for her and a plea that I might be the kind of husband that I should be and want to be. I’m grateful for our children and our grandchildren and the love that we share together.
 
 I bear my witness that God and Jesus Christ live and that if we will love them and keep their commandments and love each other—particularly our companions and our children—we will be happier here and more secure eternally. I’m grateful for these great Brethren who lead us, and I testify of their sacred callings. I’m grateful for and humbled by the opportunity and blessing of serving with them. I pray for them and for each of you, in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Sir, We Would Like to See Jesus
 
-By Elder Robert M. Daines - *Of the Seventy*
+By Elder Robert M. Daines - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -40,7 +40,7 @@ I thought my life was about following rules and measuring up to abstract standar
 
 If you, like me, can sometimes only lip-synch but not “sing the song of redeeming love,”[^5] what can we do?
 
-The answer, as President Russell M. Nelson reminds us, is always Jesus.[^6] And that is very good news.
+The answer, as President Russell M. Nelson reminds us, is always Jesus.[^6] And that is very good news.
 
 ## Sir, We Would Like to See Jesus
 
@@ -70,7 +70,7 @@ Try writing down every time He praises or heals or eats with an outsider, and yo
 
 As I saw this, my heart leapt in loving recognition, and I began to feel that He might love me. As President Nelson taught, “The more you learn about the Savior, the easier it will be to trust in His mercy, His infinite love.”[^19] And the more you will trust and love your Heavenly Father.
 
-Elder Jeffrey R. Holland has taught us that Jesus came to show “us who and what God our Eternal Father is like, how completely devoted He is to His children in every age and nation.”[^20]
+Elder Jeffrey R. Holland has taught us that Jesus came to show “us who and what God our Eternal Father is like, how completely devoted He is to His children in every age and nation.”[^20]
 
 Paul says God is “the Father of \[all\] mercies, and the God of all comfort.”[^21]
 
@@ -98,24 +98,30 @@ Grab a pick and shovel and join the team. Help carry His love to His children, a
 
 Let us seek His loving face, His covenant embrace, and then join arm in arm with His children, and together we will sing “Redeemer of Israel”:
 
-Restore, my dear Savior,The light of thy face;Thy soul-cheering comfort impart;And let the sweet longingFor thy holy placeBring hope to my desolate heart.[^31]
+>Restore, my dear Savior,
+>The light of thy face;
+>Thy soul-cheering comfort impart;
+>And let the sweet longing
+>For thy holy place
+>Bring hope to my desolate heart.[^31]
+>
 
 May we seek His loving face and then be vessels of His mercy to His children.[^32] In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See Hadyn D. Ellis and Melanie Florence, “Bodamer’s (1947) Paper on Prosopagnosia,” *Cognitive Neuropsychology*, vol. 7, no. 2 (1990), 84–91; Joshua Davis, “Face Blind,” *Wired*, Nov. 1, 2006, wired.com.
+[^1]: See Hadyn D. Ellis and Melanie Florence, “Bodamer’s (1947) Paper on Prosopagnosia,” *Cognitive Neuropsychology*, vol. 7, no. 2 (1990), 84–91; Joshua Davis, “Face Blind,” *Wired*, Nov. 1, 2006, wired.com.
 
-[^2]: See Dennis Nealon, “How Common Is Face Blindness?,” *Harvard Medical School*, Feb. 24, 2023, hms.harvard.edu; Oliver Sacks, “Face-Blind,” *New Yorker*, Aug. 23, 2010, newyorker.com.
+[^2]: See Dennis Nealon, “How Common Is Face Blindness?,” *Harvard Medical School*, Feb. 24, 2023, hms.harvard.edu; Oliver Sacks, “Face-Blind,” *New Yorker*, Aug. 23, 2010, newyorker.com.
 
-[^3]: “Some Church members accept as true the doctrine, principles, and testimonies proclaimed repeatedly from this pulpit in the Conference Center and in local congregations around the world—and yet may struggle to believe these eternal truths apply specifically in their lives and to their circumstances” (David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me]],” *Liahona*, May 2023, 125).
+[^3]: “Some Church members accept as true the doctrine, principles, and testimonies proclaimed repeatedly from this pulpit in the Conference Center and in local congregations around the world—and yet may struggle to believe these eternal truths apply specifically in their lives and to their circumstances” (David A. Bednar, “[[2023 April - “Abide in Me, and I in You; Therefore Walk with Me”.md|Abide in Me, and I in You; Therefore Walk with Me]],” *Liahona*, May 2023, 125).
 
-[^4]: See [[1 Nephi 8.19|1 Nephi 8:19]]; [[1 Nephi 15.23|15:23]]. “It is hard to keep the Lord’s commandments without faith and trust in Him” (Henry B. Eyring, “[[2021 October - The Faith to Ask and Then to Act.md|The Faith to Ask and Then to Act]],” *Liahona*, Nov. 2021, 75).
+[^4]: See [[1 Nephi 8.19|1 Nephi 8:19]]; [[1 Nephi 15.23|15:23]]. “It is hard to keep the Lord’s commandments without faith and trust in Him” (Henry B. Eyring, “[[2021 October - The Faith to Ask and Then to Act.md|The Faith to Ask and Then to Act]],” *Liahona*, Nov. 2021, 75).
 
 [^5]: [[Alma 5.26|Alma 5:26]].
 
-[^6]: See Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127–28.
+[^6]: See Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127–28.
 
 [^7]: [[John 12.21|John 12:21]].
 
@@ -123,9 +129,9 @@ May we seek His loving face and then be vessels of His mercy to His children.[^3
 
 [^9]: If we seek Him with all our heart and keep going with faith, He will be found.
 
-[^10]: [[Moroni 7.48|Moroni 7:48]]. Paul also connects charity with our ability to see clearly. At the conclusion of his great sermon on charity, he writes that though “now we see through a glass, darkly,” we will later see “face to face: … then shall I know even as also I am known” ([[1 Corinthians 13.12|1 Corinthians 13:12]]).
+[^10]: [[Moroni 7.48|Moroni 7:48]]. Paul also connects charity with our ability to see clearly. At the conclusion of his great sermon on charity, he writes that though “now we see through a glass, darkly,” we will later see “face to face: … then shall I know even as also I am known” ([[1 Corinthians 13.12|1 Corinthians 13:12]]).
 
-[^11]: Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders among You]],” *Ensign* or *Liahona*, May 2016, 127. “The greater definition of ‘the pure love of Christ’ … is not what we as Christians try but largely fail to demonstrate toward others but rather what Christ totally succeeded in demonstrating toward us. *True* charity has been known only once. It is shown perfectly and purely in Christ’s unfailing, ultimate, and atoning love for us” (Jeffrey R. Holland, *Christ and the New Covenant: The Messianic Message of the Book of Mormon* \[1997\], 336).
+[^11]: Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders among You]],” *Ensign* or *Liahona*, May 2016, 127. “The greater definition of ‘the pure love of Christ’ … is not what we as Christians try but largely fail to demonstrate toward others but rather what Christ totally succeeded in demonstrating toward us. *True* charity has been known only once. It is shown perfectly and purely in Christ’s unfailing, ultimate, and atoning love for us” (Jeffrey R. Holland, *Christ and the New Covenant: The Messianic Message of the Book of Mormon* \[1997\], 336).
 
 [^12]: Luke 4:18, New King James Version.
 
@@ -141,34 +147,32 @@ May we seek His loving face and then be vessels of His mercy to His children.[^3
 
 [^18]: See [[Matthew 8.5|Matthew 8:5–13]][[Matthew 8.6|]][[Matthew 8.7|]][[Matthew 8.8|]][[Matthew 8.9|]][[Matthew 8.10|]][[Matthew 8.11|]][[Matthew 8.12|]][[Matthew 8.13|]].
 
-[^19]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
+[^19]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
 
-[^20]: Jeffrey R. Holland, “[[2003 October - The Grandeur of God.md|The Grandeur of God]],” *Ensign* or *Liahona*, Nov. 2003, 70. “He that hath seen me hath seen the Father” ([[John 14.9|John 14:9]]).
+[^20]: Jeffrey R. Holland, “[[2003 October - The Grandeur of God.md|The Grandeur of God]],” *Ensign* or *Liahona*, Nov. 2003, 70. “He that hath seen me hath seen the Father” ([[John 14.9|John 14:9]]).
 
-[^21]: [[2 Corinthians 1.3|2 Corinthians 1:3]].
+[^21]: [[2 Corinthians 1.3|2 Corinthians 1:3]].
 
 [^22]: See [[Psalms 27.8|Psalm 27:8]]; [[D&C 88.68|Doctrine and Covenants 88:68]].
 
-[^23]: See [[2 Corinthians 4.6|2 Corinthians 4:6]]; Pope Francis, “Misericordiae Vultus: Bull of Indiction of the Extraordinary Jubilee of Mercy,” *Apostolic Letters*, vatican.va.
+[^23]: See [[2 Corinthians 4.6|2 Corinthians 4:6]]; Pope Francis, “Misericordiae Vultus: Bull of Indiction of the Extraordinary Jubilee of Mercy,” *Apostolic Letters*, vatican.va.
 
-[^24]: This is an important theme. It’s not just *the* work of salvation and exaltation but *His* work of salvation and exaltation (see *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title4#title4), Gospel Library). I don’t just go to a temple but to the house of the Lord; it’s not the Mormon Church but the Church of Jesus Christ (see Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87–89). Our leaders point us to Him and even remind us that there “is no amorphous entity called ‘the Atonement’ upon which we may call for succor, healing, forgiveness, or power. Jesus Christ is the source” (Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 40).
+[^24]: This is an important theme. It’s not just *the* work of salvation and exaltation but *His* work of salvation and exaltation (see *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title4#title4), Gospel Library). I don’t just go to a temple but to the house of the Lord; it’s not the Mormon Church but the Church of Jesus Christ (see Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87–89). Our leaders point us to Him and even remind us that there “is no amorphous entity called ‘the Atonement’ upon which we may call for succor, healing, forgiveness, or power. Jesus Christ is the source” (Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 40).
 
-[^25]: “The covenant path is all about our relationship with God”; it is the “path of love— … compassionate caring for and reaching out to each other” (Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 11).
+[^25]: “The covenant path is all about our relationship with God”; it is the “path of love— … compassionate caring for and reaching out to each other” (Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 11).
 
 [^26]: “And without the ordinances thereof, and the authority of the priesthood, the power of godliness is not manifest unto men in the flesh;
 
-[^27]: Patricia Holland, “[A Future Filled with Hope](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2023/01/14holland?lang=eng)” (worldwide devotional for young adults, Jan. 8, 2023), Gospel Library:
+[^27]: Patricia Holland, “[A Future Filled with Hope](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2023/01/14holland?lang=eng)” (worldwide devotional for young adults, Jan. 8, 2023), Gospel Library:
 
 [^28]: [[Mosiah 5.13|Mosiah 5:13]]; see also [[John 17.3|John 17:3]].
 
-[^29]: President Nelson has repeatedly called on us to “expand our circle of love to embrace the whole human family” (“[[2002 October - “Blessed Are the Peacemakers”.md|Blessed Are the Peacemakers]],” *Ensign* or *Liahona*, Nov. 2002, 41). In May 2022 he told young adults that “labels can lead to judging and animosity. Any *abuse* or *prejudice* toward another because of nationality, race, sexual orientation, gender, educational degrees, culture, or other significant identifiers is offensive to our Maker” (“[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” \[worldwide devotional for young adults, May 15, 2022\], Gospel Library). And importantly, he said: “I grieve that our Black brothers and sisters the world over are enduring the pains of racism and prejudice. Today I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice. I plead with you to promote respect for all of God’s children” (“[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94).
+[^29]: President Nelson has repeatedly called on us to “expand our circle of love to embrace the whole human family” (“[[2002 October - “Blessed Are the Peacemakers”.md|Blessed Are the Peacemakers]],” *Ensign* or *Liahona*, Nov. 2002, 41). In May 2022 he told young adults that “labels can lead to judging and animosity. Any *abuse* or *prejudice* toward another because of nationality, race, sexual orientation, gender, educational degrees, culture, or other significant identifiers is offensive to our Maker” (“[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” \[worldwide devotional for young adults, May 15, 2022\], Gospel Library). And importantly, he said: “I grieve that our Black brothers and sisters the world over are enduring the pains of racism and prejudice. Today I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice. I plead with you to promote respect for all of God’s children” (“[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94).
 
-[^30]: See [[1 Nephi 11.25|1 Nephi 11:25]].
+[^30]: See [[1 Nephi 11.25|1 Nephi 11:25]].
 
-[^31]: “[Redeemer of Israel](https://churchofjesuschrist.org/study/manual/hymns/redeemer-of-israel?lang=eng),” *Hymns*, no. 6.
+[^31]: “[Redeemer of Israel](https://www.churchofjesuschrist.org/study/manual/hymns/redeemer-of-israel?lang=eng),” *Hymns*, no. 6.
 
 [^32]: See [[Romans 9.23|Romans 9:23]].
 
-
-
-#Covenants #Jesus_Christ #Love #Service
+#Covenants #JesusChrist #Love #Service

@@ -1,6 +1,5 @@
 # Goods
 
-
 *See also* [[Possession.md|Possession]]; [[Wealth.md|Wealth]]
 
 he brought back all the *goods*, [[Genesis 14.16|Genesis 14:16]].
@@ -9,7 +8,7 @@ all the *goods* of his master were in his hand, [[Genesis 24.10|Genesis 24:10]].
 
 Lord shall make thee plenteous in *goods*, [[Deuteronomy 28.11|Deuteronomy 28:11]].
 
-can one enter into a strong man's house, and spoil his *goods*, [[Matthew 12.29|Matthew 12:29]] ([[Mark 3.27|Mark 3:27]]).
+can one enter into a strong man’s house, and spoil his *goods*, [[Matthew 12.29|Matthew 12:29]] ([[Mark 3.27|Mark 3:27]]).
 
 he shall make him ruler over all his *goods*, [[Matthew 24.47|Matthew 24:47]] ([[Joseph Smith Matthew 1.15|Joseph Smith Matthew 1:15]]).
 

@@ -14,7 +14,7 @@ I am grateful that I was taught as a child how to plant seeds. Through the mirac
 
 This experience helped me later, as a missionary, to understand the Savior’s parable of the sower, which is actually a parable about different kinds of soil. He taught that “some seeds fell by the way side, and the fowls came and devoured them up:
 
-“Some fell upon stony places, where they had not much earth. …
+“Some fell upon stony places, where they had not much earth. …
 
 “And when the sun was up, they were scorched; and because they had no root, they withered away.
 
@@ -48,7 +48,7 @@ Today, as we travel throughout the world, we see that many seeds have fallen int
 
 Brother Wagstaff went home, married, and raised a family. Then in October 1969 he and his wife attended his missionary reunion. “A lady approached him and asked, ‘Aren’t you Elder Wagstaff?’
 
-“… She introduced herself as the woman he had taught on the farm outside Winnipeg. In her hand was a worn copy of the Book of Mormon—the one he had given her 40 years earlier.
+“… She introduced herself as the woman he had taught on the farm outside Winnipeg. In her hand was a worn copy of the Book of Mormon—the one he had given her 40 years earlier.
 
 “‘She showed me the book,’ he related. ‘I turned over the front and there was my name and address.’
 
@@ -113,6 +113,4 @@ Alma said that when we feel the seed of faith growing, it will enlarge our souls
 
 [^12]: See [[D&C 105.19|D&C 105:19]].
 
-
-
-#Conversion #Education #Faith #Media #Missionary_Work #Prayer #Pride #Priesthood #Satan #Testimony #Tithing
+#Conversion #Education #Faith #Media #MissionaryWork #Pride #Prayer #Priesthood #Satan #Testimony #Tithing

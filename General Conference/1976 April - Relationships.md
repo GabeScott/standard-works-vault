@@ -50,7 +50,7 @@ What I experienced in South America was described by Paul in his letter to the s
 
 Does not this word *household* denote a family relationship?
 
-From these examples I infer that God the Father, after having scattered his children abroad in the earth for their experience, desires to bring them home again. We, who, as Peter said, “are given … exceeding great and precious promises” ([[2 Peter 1.4|2 Pet. 1:4]]), have ourselves promised to engage in a lifetime of service in behalf of our brothers and sisters who are not so favored.
+From these examples I infer that God the Father, after having scattered his children abroad in the earth for their experience, desires to bring them home again. We, who, as Peter said, “are given … exceeding great and precious promises” ([[2 Peter 1.4|2 Pet. 1:4]]), have ourselves promised to engage in a lifetime of service in behalf of our brothers and sisters who are not so favored.
 
 Those relatives who have gone on to the spirit world without the blessings of the gospel cannot forever be neglected. A small number of Church members have been diligent. A new era is upon us now. At this very moment, instructions are going out to the high priests of the Church to mobilize their forces so that every member of the Church can be helped to find his family and bring the lost members home again. This year we are all called upon to prepare our own personal history and to organize our living family. Even without a temple or a library close at hand, everyone can do this. Next year we will be given other challenges and assignments until gradually the members of the Church everywhere will become proficient in preparing the records of their families who have died without the gospel.
 
@@ -61,6 +61,4 @@ Putting the Lord’s family together on eternal terms constitutes the purpose fo
 
 
 
-
-
-#Family_History
+#FamilyHistory

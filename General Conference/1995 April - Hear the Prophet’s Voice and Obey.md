@@ -18,15 +18,15 @@ Today I join you in sustaining President Gordon B. Hinckley as prophet, seer, an
 
 There has always been a desperate need for the steady and reassuring voice of a living prophet of God—one who will speak the mind and will of God in showing the way to spiritual safety and personal peace and happiness.
 
-Our loving Heavenly Father has given the world prophets from the days of Adam. The prophets of old taught well the importance of listening to the voice of prophets. The story of Jehoshaphat found in [[2 Chronicles 20.1|2 Chronicles 20]][[2 Chronicles 20.2|]][[2 Chronicles 20.3|]][[2 Chronicles 20.4|]][[2 Chronicles 20.5|]][[2 Chronicles 20.6|]][[2 Chronicles 20.7|]][[2 Chronicles 20.8|]][[2 Chronicles 20.9|]][[2 Chronicles 20.10|]][[2 Chronicles 20.11|]][[2 Chronicles 20.12|]][[2 Chronicles 20.13|]][[2 Chronicles 20.14|]][[2 Chronicles 20.15|]][[2 Chronicles 20.16|]][[2 Chronicles 20.17|]][[2 Chronicles 20.18|]][[2 Chronicles 20.19|]][[2 Chronicles 20.20|]][[2 Chronicles 20.21|]][[2 Chronicles 20.22|]][[2 Chronicles 20.23|]][[2 Chronicles 20.24|]][[2 Chronicles 20.25|]][[2 Chronicles 20.26|]][[2 Chronicles 20.27|]][[2 Chronicles 20.28|]][[2 Chronicles 20.29|]][[2 Chronicles 20.30|]][[2 Chronicles 20.31|]][[2 Chronicles 20.32|]][[2 Chronicles 20.33|]][[2 Chronicles 20.34|]][[2 Chronicles 20.35|]][[2 Chronicles 20.36|]][[2 Chronicles 20.37|]] is an example. King Jehoshaphat had several great armies coming to battle with him in an attempt to possess his land. Understandably, he was seized with dreadful fear, so he proclaimed a fast throughout all his kingdom and gathered the people of Judah together to plead for guidance from the Lord. Jehoshaphat humbly and earnestly prayed, “O our God, … we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee” ([[2 Chronicles 20.12|2 Chr. 20:12]]).
+Our loving Heavenly Father has given the world prophets from the days of Adam. The prophets of old taught well the importance of listening to the voice of prophets. The story of Jehoshaphat found in [[2 Chronicles 20.1|2 Chronicles 20]][[2 Chronicles 20.2|]][[2 Chronicles 20.3|]][[2 Chronicles 20.4|]][[2 Chronicles 20.5|]][[2 Chronicles 20.6|]][[2 Chronicles 20.7|]][[2 Chronicles 20.8|]][[2 Chronicles 20.9|]][[2 Chronicles 20.10|]][[2 Chronicles 20.11|]][[2 Chronicles 20.12|]][[2 Chronicles 20.13|]][[2 Chronicles 20.14|]][[2 Chronicles 20.15|]][[2 Chronicles 20.16|]][[2 Chronicles 20.17|]][[2 Chronicles 20.18|]][[2 Chronicles 20.19|]][[2 Chronicles 20.20|]][[2 Chronicles 20.21|]][[2 Chronicles 20.22|]][[2 Chronicles 20.23|]][[2 Chronicles 20.24|]][[2 Chronicles 20.25|]][[2 Chronicles 20.26|]][[2 Chronicles 20.27|]][[2 Chronicles 20.28|]][[2 Chronicles 20.29|]][[2 Chronicles 20.30|]][[2 Chronicles 20.31|]][[2 Chronicles 20.32|]][[2 Chronicles 20.33|]][[2 Chronicles 20.34|]][[2 Chronicles 20.35|]][[2 Chronicles 20.36|]][[2 Chronicles 20.37|]] is an example. King Jehoshaphat had several great armies coming to battle with him in an attempt to possess his land. Understandably, he was seized with dreadful fear, so he proclaimed a fast throughout all his kingdom and gathered the people of Judah together to plead for guidance from the Lord. Jehoshaphat humbly and earnestly prayed, “O our God, … we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee” ([[2 Chronicles 20.12|2 Chr. 20:12]]).
 
 Then came the answer of the Lord through the prophet Jahaziel: “Hearken ye, all Judah, and ye inhabitants of Jerusalem, and thou king Jehoshaphat, Thus saith the Lord unto you, *Be not afraid nor dismayed by reason of this great multitude; for the battle is not yours, but God’s.* …
 
-“Fear not, nor be dismayed; … for the Lord will be with you” ([[2 Chronicles 20.15|2 Chr. 20:15, 17]][[2 Chronicles 20.17|]]; emphasis added).
+“Fear not, nor be dismayed; … for the Lord will be with you” ([[2 Chronicles 20.15|2 Chr. 20:15, 17]][[2 Chronicles 20.17|]]; emphasis added).
 
 Jehoshaphat and all the inhabitants of Jerusalem fell in thankful prayer before the Lord.
 
-Jehoshaphat then gave very important counsel that we today would do well to obey. Indeed, just as the people of Judah, our lives may depend upon it—even our eternal lives: *“Believe in the Lord your God, so shall ye be established; believe his prophets, so shall ye prosper”* ([[2 Chronicles 20.20|2 Chr. 20:20]]; emphasis added).
+Jehoshaphat then gave very important counsel that we today would do well to obey. Indeed, just as the people of Judah, our lives may depend upon it—even our eternal lives: *“Believe in the Lord your God, so shall ye be established; believe his prophets, so shall ye prosper”* ([[2 Chronicles 20.20|2 Chr. 20:20]]; emphasis added).
 
 As promised, the Lord protected the good people of Judah. As Jehoshaphat’s forces looked on, those armies which came to battle against them fought so fiercely among themselves that they completely destroyed one another before they ever reached the people of Judah. Listen to a prophet’s voice and obey. There is safety in following the living prophet.
 
@@ -36,19 +36,19 @@ A characteristic of prophets throughout the ages is that, regardless of the cons
 
 “And it speaketh harshly against sin, according to the *plainness of the truth;* wherefore, no man will be angry at the words which I \[the prophet\] have written save he shall be of the spirit of the devil.
 
-*“I glory in plainness; I glory in truth; I glory in my Jesus,* for he hath redeemed my soul from hell” ([[2 Nephi 33.4|2 Ne. 33:4–6]][[2 Nephi 33.5|]][[2 Nephi 33.6|]]; emphasis added).
+*“I glory in plainness; I glory in truth; I glory in my Jesus,* for he hath redeemed my soul from hell” ([[2 Nephi 33.4|2 Ne. 33:4–6]][[2 Nephi 33.5|]][[2 Nephi 33.6|]]; emphasis added).
 
 Another account of Jehoshaphat illustrates how prophets speak directly and plainly the word of God and let the consequence follow. Ahab, the king of Israel, invited Jehoshaphat, the king of Judah, to join with him in battle against Syria. Jehoshaphat asked Ahab to inquire of the Lord to see if it would be wise to go against the Syrians.
 
-After four hundred of Ahab’s so-called prophets told Ahab only what he wanted to hear—that he would be victorious over Syria—Jehoshaphat asked if he didn’t have any other prophets. Ahab replied, “There is yet one man, Micaiah … : *but I hate him; for he doth not prophesy good concerning me, but evil”* ([[1 Kings 22.8|1 Kgs. 22:8]]; emphasis added).
+After four hundred of Ahab’s so-called prophets told Ahab only what he wanted to hear—that he would be victorious over Syria—Jehoshaphat asked if he didn’t have any other prophets. Ahab replied, “There is yet one man, Micaiah … : *but I hate him; for he doth not prophesy good concerning me, but evil”* ([[1 Kings 22.8|1 Kgs. 22:8]]; emphasis added).
 
-Jehoshaphat convinced Ahab to seek the word of the prophet Micaiah. The messenger who was sent to bring Micaiah before the kings cautioned Micaiah to tell Ahab only what he wanted to hear. *“And Micaiah said, As the Lord liveth, what the Lord saith unto me, that will I speak”* ([[1 Kings 22.14|1 Kgs. 22:14]]; emphasis added). Micaiah told Ahab that Israel would not return victorious and that Ahab would be killed.
+Jehoshaphat convinced Ahab to seek the word of the prophet Micaiah. The messenger who was sent to bring Micaiah before the kings cautioned Micaiah to tell Ahab only what he wanted to hear. *“And Micaiah said, As the Lord liveth, what the Lord saith unto me, that will I speak”* ([[1 Kings 22.14|1 Kgs. 22:14]]; emphasis added). Micaiah told Ahab that Israel would not return victorious and that Ahab would be killed.
 
 Against the counsel of the prophet, Ahab went to battle and lost his life, and Israel was defeated.
 
 Micaiah, as all prophets before him and all who have followed, spoke the word of God with plainness and truth and let the consequence follow.
 
-“We believe in the same organization that existed in the Primitive Church, namely, apostles, prophets, pastors, teachers, evangelists, and so forth” ([[Articles of Faith 1.6|A of F 1:6]]).
+“We believe in the same organization that existed in the Primitive Church, namely, apostles, prophets, pastors, teachers, evangelists, and so forth” ([[Articles of Faith 1.6|A of F 1:6]]).
 
 President Joseph Fielding Smith taught that it was necessary for the Church of Jesus Christ to be restored in this dispensation and that “all the keys and powers of priesthood held by the prophets of former dispensations must be conferred upon God’s chosen representatives on the earth” (*Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. \[Salt Lake City: Bookcraft, 1954–56\], 1:168).
 
@@ -77,7 +77,7 @@ The scriptures tell us that prophets receive commandments “walking in all holi
 We sing a hymn that reminds us:
 
 >Come, listen to a prophet’s voice,
->And hear the word of God. …
+>And hear the word of God. …
 >We’ve found the way the prophets went
 >Who lived in days of yore.
 >Another prophet now is sent
@@ -89,7 +89,7 @@ Another hymn teaches:
 >We listen to a prophet’s voice and hear the Savior too.
 >With love he bids us do the work the Lord would have us do.
 >The Savior calls his chosen seer to preach the word of God,
->That men might learn to find the path marked by the iron rod. …
+>That men might learn to find the path marked by the iron rod. …
 >Rejoice! The prophet has confirmed that by Him we are known.
 >Attend, ye earth! The prophet speaks; come listen and obey.
 >He is the man who holds the keys of priesthood pow’r today.
@@ -114,6 +114,4 @@ I humbly add my testimony to the testimonies of all who have sustained the proph
 
 
 
-
-
-#Ezra_Taft_Benson #Howard_W_Hunter #Prophets #Restoration
+#EzraTaftBenson #HowardW.Hunter #Prophets #Restoration

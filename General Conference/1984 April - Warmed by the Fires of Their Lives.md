@@ -8,7 +8,7 @@ By Barbara B. Smith - *Recently released as Relief Society General President*
 
 President Kimball, President Hinckley, Brethren, and my dear brothers and sisters, this afternoon I feel somewhat like a former Chief Justice who explained his feelings on his ninety-fifth birthday anniversary. In his mind he rationalized, “It’s just another birthday like all the others.” But as he stood to acknowledge the occasion, his words revealed a love of life, a love of his work and of his fellowmen. He said:
 
-“I have warmed both hands before the fire of life. … The rich spoils of memory are mine. … Mine, too, are the precious things of today. … The best of life is always further on. Its real lure is hidden from our eyes somewhere behind the hills of time.” (Lillian Eichler Watson, ed., *Lights from Many Lamps,* New York: Simon and Schuster, 1951, pp. 267–68.)
+“I have warmed both hands before the fire of life. … The rich spoils of memory are mine. … Mine, too, are the precious things of today. … The best of life is always further on. Its real lure is hidden from our eyes somewhere behind the hills of time.” (Lillian Eichler Watson, ed., *Lights from Many Lamps,* New York: Simon and Schuster, 1951, pp. 267–68.)
 
 Like that grand old man, I love life. I love the work in which I have been engaged for the past nine and one-half years—the demanding, intense, but beautiful work of Relief Society. It has been so sweet to me that it has seemed but a fleeting moment in time.
 
@@ -18,7 +18,7 @@ I see my devoted, talented, loyal counselors, Marian R. Boyer, Janath R. Cannon,
 
 I also see the faithful stake and ward Relief Society leaders and the many, many sisters who comprise the membership of the Relief Society throughout the Church whom I have come to know and appreciate.
 
-At this moment, I can only echo President Kimball’s words: “God bless the women—the *wonderful, wonderful* women!” (“Women, Wonderful Women!” *Relief Society Magazine,* Jan. 1958, p. 8.)
+At this moment, I can only echo President Kimball’s words: “God bless the women—the *wonderful, wonderful* women!” (“Women, Wonderful Women!” *Relief Society Magazine,* Jan. 1958, p. 8.)
 
 Certainly I have warmed both my hands at the fires of their lives.
 
@@ -30,7 +30,7 @@ I have felt the strength of our sisterhood as we have met in Sunday Relief Socie
 
 I have read how Relief Society observed its fiftieth year with a great gathering of sisters in this Tabernacle. President Zina D. H. Young addressed the congregation and exclaimed:
 
-“O that my words could be heard by all people, not only by you my brethren and sisters in this Tabernacle but that they might be *heard* and *understood* by all the people of this continent, and not only this continent, but the continents of Asia, Africa, Europe and the islands of the sea.” (Minutes of the Relief Society General board, vol. 1, 17 Mar. 1892, p. 225.)
+“O that my words could be heard by all people, not only by you my brethren and sisters in this Tabernacle but that they might be *heard* and *understood* by all the people of this continent, and not only this continent, but the continents of Asia, Africa, Europe and the islands of the sea.” (Minutes of the Relief Society General board, vol. 1, 17 Mar. 1892, p. 225.)
 
 I have come to feel that this may have been more than just a wistful expression of a great former leader. Perhaps it was instead a pleading with the Lord for a time such as this. Let me explain:
 
@@ -51,6 +51,4 @@ May we all make the most of every moment of our lives, that somewhere beyond the
 
 
 
-
-
-#Relief_Society #Women
+#ReliefSociety #Women

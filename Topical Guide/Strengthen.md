@@ -1,13 +1,12 @@
 # Strengthen
 
-
 *See also* [[Strength.md|Strength]]
 
-*strengthen* me ... only this once, [[Judges 16.28|Judges 16:28]].
+*strengthen* me … only this once, [[Judges 16.28|Judges 16:28]].
 
 *strengthen* thee out of Zion, [[Psalms 20.2|Psalms 20:2]].
 
-Lord ... shall *strengthen* thine heart, [[Psalms 27.14|Psalms 27:14]] ([[Psalms 31.24|Psalms 31:24]]).
+Lord … shall *strengthen* thine heart, [[Psalms 27.14|Psalms 27:14]] ([[Psalms 31.24|Psalms 31:24]]).
 
 *Strengthen* ye the weak hands, [[Isaiah 35.3|Isaiah 35:3]].
 
@@ -27,7 +26,7 @@ do all things through Christ which *strengtheneth* me, [[Philippians 4.13|Philip
 
 *Strengthened* with all might, [[Colossians 1.11|Colossians 1:11]].
 
-God ... make you perfect, stablish, *strengthen*, [[1 Peter 5.10|1 Peter 5:10]].
+God … make you perfect, stablish, *strengthen*, [[1 Peter 5.10|1 Peter 5:10]].
 
 he doth nourish them, and *strengthen* them, [[1 Nephi 17.3|1 Nephi 17:3]].
 
@@ -35,7 +34,7 @@ Lord did *strengthen* them that they could bear up, [[Mosiah 24.15|Mosiah 24:15]
 
 Lord did hear their cries, and did *strengthen* them, [[Alma 2.28|Alma 2:28]].
 
-teacher's duty is to ... *strengthen* them, [[D&C 20.53|D&C 20:53]].
+teacher’s duty is to … *strengthen* them, [[D&C 20.53|D&C 20:53]].
 
 *strengthen* them and prepare them, [[D&C 31.8|D&C 31:8]].
 

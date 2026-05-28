@@ -1,6 +1,6 @@
 # Man—A Child of God
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -18,53 +18,53 @@ They reason that the same law is in force with respect to the offspring of God. 
 
 They not only so reason; they know they may so become because God has revealed the fact that it is his work and glory to bring to pass their eternal life ([[Moses 1.39|Moses 1:39]]), which is the life God lives.
 
-Adam, the first man, knew that he was a son of God. He walked and talked with him in the Garden of Eden before the fall. After the fall, “Adam and Eve, his wife, called upon the name of the Lord, and they heard the voice of the Lord from the way toward the Garden of Eden, speaking unto them. …” ([[Moses 5.4|Moses 5:4–5]][[Moses 5.5|]].)
+Adam, the first man, knew that he was a son of God. He walked and talked with him in the Garden of Eden before the fall. After the fall, “Adam and Eve, his wife, called upon the name of the Lord, and they heard the voice of the Lord from the way toward the Garden of Eden, speaking unto them. …” ([[Moses 5.4|Moses 5:4–5]][[Moses 5.5|]].)
 
 Later, the Lord sent an angel who taught them the gospel plan, whereupon, “Adam and Eve blessed the name of God, and they made all things known unto their sons and their daughters.” Then “Satan came among them, saying: … Believe it not; and they believed it not, and they loved Satan more than God. And men began from that time forth to be carnal, sensual, and devilish.” ([[Moses 5.12|Moses 5:12–13]][[Moses 5.13|]].)
 
 From then until now, most men, like the first generation of Adam’s posterity, have “believed it not,” although God has repeatedly revealed it to all the prophets from Adam to Noah. He likewise revealed it to Abraham and thereafter to Moses “at a time when Moses was caught up into an exceedingly high mountain,
 
-“And he saw God face to face, and he talked with him, …
+“And he saw God face to face, and he talked with him, …
 
-“And God spake unto Moses, saying: Behold, I am the Lord God Almighty, …
+“And God spake unto Moses, saying: Behold, I am the Lord God Almighty, …
 
-“… behold, thou art *my son;* …
+“… behold, thou art *my son;* …
 
-“And I have a work for thee, *Moses, my son;* and thou art in the similitude of mine Only Begotten; and mine Only Begotten is and shall be the Savior, for he is full of grace and truth; …
+“And I have a work for thee, *Moses, my son;* and thou art in the similitude of mine Only Begotten; and mine Only Begotten is and shall be the Savior, for he is full of grace and truth; …
 
 “And now, behold, this one thing I show unto thee, *Moses, my son;* for thou art in the world, and now I show it unto thee.” ([[Moses 1.1|Moses 1:1–4, 6–7]][[Moses 1.2|]][[Moses 1.3|]][[Moses 1.4|]][[Moses 1.6|]][[Moses 1.7|]]. Italics added.)
 
 In this short scripture, the Lord three times addressed Moses as “my son.”
 
-Paul, in his great speech on Mars’ hill, speaking of God, said: “… in him we live, and move, and have our being; … for we are … his offspring.” ([[Acts 17.28|Acts 17:28]].)
+Paul, in his great speech on Mars’ hill, speaking of God, said: “… in him we live, and move, and have our being; … for we are … his offspring.” ([[Acts 17.28|Acts 17:28]].)
 
 Joseph Smith and Sidney Rigdon declared “that he lives!
 
-“For we saw him, … and we heard the voice bearing record …
+“For we saw him, … and we heard the voice bearing record …
 
 “That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” ([[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]].)
 
-“Begotten sons and daughters unto God.” Can this be true in light of the fact that we all know that we are begotten sons and daughters of our earthly fathers? Yes, it is true because human souls are dual beings—spirits tabernacled in bodies of flesh and bone. The revelation says, “… the spirit and the body are the soul of man.” ([[D&C 88.15|D&C 88:15]].) God is the father of man’s spirit, even as his earthly father is the father of his mortal body.
+“Begotten sons and daughters unto God.” Can this be true in light of the fact that we all know that we are begotten sons and daughters of our earthly fathers? Yes, it is true because human souls are dual beings—spirits tabernacled in bodies of flesh and bone. The revelation says, “… the spirit and the body are the soul of man.” ([[D&C 88.15|D&C 88:15]].) God is the father of man’s spirit, even as his earthly father is the father of his mortal body.
 
 The nature of a spirit is plainly revealed in the scriptures. A clear word picture of a spirit is recorded in the third chapter of Ether in the Book of Mormon, which gives an account of the appearance of Jesus Christ, as a spirit, some 2200 years before he was born to Mary in the flesh. The record says that Jesus stood before the brother of Jared in the form and likeness of a man and said:
 
-“… Behold, I am Jesus Christ. …
+“… Behold, I am Jesus Christ. …
 
-“… Seest thou that ye are created after mine own image? Yea, even all men were created in the beginning after mine own image.
+“… Seest thou that ye are created after mine own image? Yea, even all men were created in the beginning after mine own image.
 
 “Behold, this body, which ye now behold, is the body of my spirit; and man have I created after the body of my spirit; and even as I appear unto thee to be in the spirit will I appear unto my people in the flesh.” ([[Ether 3.14|Ether 3:14–16]][[Ether 3.15|]][[Ether 3.16|]].)
 
 Corroborating this truth, Jesus declared to Joseph Smith as late as 1833:
 
-“… I was in the beginning with the Father, and am the First-born \[meaning, of course, the firstborn spirit\];
+“… I was in the beginning with the Father, and am the First-born \[meaning, of course, the firstborn spirit\];
 
-“Ye were also in the beginning with the Father; that which is Spirit. …” ([[D&C 93.21|D&C 93:21, 23]][[D&C 93.23|]].)
+“Ye were also in the beginning with the Father; that which is Spirit. …” ([[D&C 93.21|D&C 93:21, 23]][[D&C 93.23|]].)
 
 We learn something more about our spirits in their premortal state from a record made by Abraham of a vision in which he was shown a multitude of spirits assembled in a great heavenly council. Consideration was there being given to the creation of this earth as a place upon which they, the spirits, could come and receive bodies of flesh and bone, thus becoming human souls. The plan provided that after a probationary period in mortality they should die—that is to say, their eternal spirit bodies and their corruptible mortal bodies would be separated. Later on, in resurrection, they would be reunited as immortal souls.
 
 Abraham also learned that if during their sojourn on this earth they proved faithful, they would, as resurrected beings, be permitted to come back into the presence of their Heavenly Father—the Father of their spirits—and enjoy eternal progression. These are the words of Abraham:
 
-“Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; …
+“Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; …
 
 “And God saw these souls that they were good, … and he said: These I will make my rulers; for he stood among those that were spirits, … and he said unto me: Abraham, thou art one of them; thou wast chosen before thou wast born.
 
@@ -93,13 +93,13 @@ By way of contrast, consider Alexander Pope’s portrayal of the predicament int
 >Created half to rise, and half to fall;
 >Great Lord of all things, yet a prey to all;
 >Sole judge of truth, in endless error hurl’d;
->The glory, jest, and riddle of the world! …
+>The glory, jest, and riddle of the world! …
 >
 >“Fix’d like a plant on his peculiar spot,
->To draw nutrition, propagate, and rot. …
+>To draw nutrition, propagate, and rot. …
 >
 >“On life’s vast ocean diversely we sail,
->Reason the card, but Passion is the gale. …
+>Reason the card, but Passion is the gale. …
 >
 >“And hence one Master-passion in the breast,
 >Like Aaron’s serpent, swallows up the rest.”
@@ -118,7 +118,7 @@ The concept that man is a beast relieves him of a sense of accountability and en
 The truth is, my beloved brethren and sisters, man is a child of God—a God in embryo. Every righteous soul responds with empathy to the children singing:
 
 >“I am a child of God,
->And he has sent me here, …
+>And he has sent me here, …
 >If I but learn to do his will
 >I’ll live with him once more.
 >
@@ -128,7 +128,7 @@ The truth is, my beloved brethren and sisters, man is a child of God—a God in 
 >To live with him some day.”
 >
 
-That man is a child of God is the most important knowledge available to mortals. Such knowledge is beyond the ken of the uninspired mind. Neither logic, science, philosophy, nor any other field of worldly learning has ever been, or ever will be, able to find it out. Those who limit their search to such learning techniques will continue to be as they have always been, “Ever learning, and never able to come to the knowledge of the truth.” ([[2 Timothy 3.7|2 Tim. 3:7]].)
+That man is a child of God is the most important knowledge available to mortals. Such knowledge is beyond the ken of the uninspired mind. Neither logic, science, philosophy, nor any other field of worldly learning has ever been, or ever will be, able to find it out. Those who limit their search to such learning techniques will continue to be as they have always been, “Ever learning, and never able to come to the knowledge of the truth.” ([[2 Timothy 3.7|2 Tim. 3:7]].)
 
 The only means by which such knowledge can be had is divine revelation. Fortunately for us, as has already been shown, it has been so revealed repeatedly from Adam until today.
 
@@ -144,7 +144,7 @@ He strives to respond to the Master’s invitation:
 
 And to his challenge:
 
-“… be \[ye\] perfect even as I, or your Father who is in heaven is perfect.” ([[3 Nephi 12.48|3 Ne. 12:48]].)
+“… be \[ye\] perfect even as I, or your Father who is in heaven is perfect.” ([[3 Nephi 12.48|3 Ne. 12:48]].)
 
 He knows that the wise and proper response is to heed the Lord’s command to “beware concerning yourselves, to give diligent heed to the words of eternal life. For you shall live by every word that proceedeth forth from the mouth of God.” ([[D&C 84.43|D&C 84:43–44]][[D&C 84.44|]].)
 
@@ -160,13 +160,11 @@ He joins with Alma in his wish:
 
 And finally, with Nephi he resolves:
 
-“I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
+“I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
 
 I add my personal testimony that I know that I am a son of God, and that you, my beloved listeners, are individually a son or a daughter of God, and that this knowledge implemented in our lives will lift us back into his presence through the atoning sacrifice of our Savior, Jesus Christ; and in his name I leave you this witness, even so. Amen.
 
 
 
 
-
-
-#Plan_Of_Salvation
+#PlanOfSalvation

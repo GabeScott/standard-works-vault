@@ -1,6 +1,5 @@
 # Special
 
-
 God hath chosen thee to be a *special* people, [[Deuteronomy 7.6|Deuteronomy 7:6]].
 
 God wrought *special* miracles by the hands of Paul, [[Acts 19.11|Acts 19:11]].

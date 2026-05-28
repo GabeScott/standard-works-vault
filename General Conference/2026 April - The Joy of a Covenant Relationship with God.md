@@ -1,6 +1,6 @@
 # The Joy of a Covenant Relationship with God
 
-By Elder Thierry K. Mutombo - *Of the Seventy*
+By Elder Thierry K. Mutombo - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -42,7 +42,7 @@ I came out with empty hands and told the people who were there, “I’m sorry, 
 
 They opposed my decision, but exercising my faith in Jesus Christ made me stronger.[^6]
 
-Teaching about our discipleship and covenant relationship with our Heavenly Father and our Savior Jesus Christ, our prophet, President Dallin H. Oaks, said: “Following Christ is not a casual or occasional practice. It is a continuous commitment and way of life that should guide us at all times and in all places. His teachings and His example define the path for every disciple of Jesus Christ.”[^7]
+Teaching about our discipleship and covenant relationship with our Heavenly Father and our Savior Jesus Christ, our prophet, President Dallin H. Oaks, said: “Following Christ is not a casual or occasional practice. It is a continuous commitment and way of life that should guide us at all times and in all places. His teachings and His example define the path for every disciple of Jesus Christ.”[^7]
 
 Keeping covenants “would require \[the Savior’s\] followers to leave what He called ‘that which is highly esteemed among men’ ([[Luke 16.15|Luke 16:15]]) and ‘the tradition of men’ ([[Mark 7.8|Mark 7:8]]).”[^8]
 
@@ -58,7 +58,7 @@ We know the adversary’s goal. He seeks for all to “be miserable like unto hi
 
 President Ezra Taft Benson taught:
 
-“*The great test of life* is obedience to God. …
+“*The great test of life* is obedience to God. …
 
 “*The great task of life* is to learn the will of the Lord and then do it.
 
@@ -66,7 +66,7 @@ President Ezra Taft Benson taught:
 
 We can grow in humility and strengthen our covenantal relationship with our Heavenly Father and our Savior Jesus Christ if we change our nature to become like a child, building our life on the rock, who is the Savior Jesus Christ, yielding in faith in Him, responding to the Holy Ghost’s direction to faithfully keep the covenants made with the Lord at our baptism and in the house of the Lord.[^13]
 
-I know that God lives and testify that Jesus is the Christ. I testify that President Dallin H. Oaks is the prophet of God on the earth.
+I know that God lives and testify that Jesus is the Christ. I testify that President Dallin H. Oaks is the prophet of God on the earth.
 
 Christ is risen. Truly, He is risen. In the name of Jesus Christ, amen.
 
@@ -75,9 +75,9 @@ Christ is risen. Truly, He is risen. In the name of Jesus Christ, amen.
 
 [^1]: See [[John 3.16|John 3:16]].
 
-[^2]: See [[1 Corinthians 15.19|1 Corinthians 15:19, 22]][[1 Corinthians 15.22|]].
+[^2]: See [[1 Corinthians 15.19|1 Corinthians 15:19, 22]][[1 Corinthians 15.22|]].
 
-[^3]: [[3 Nephi 9.14|3 Nephi 9:14]]; see also [[3 Nephi 9.17|verse 17]].
+[^3]: [[3 Nephi 9.14|3 Nephi 9:14]]; see also [[3 Nephi 9.17|verse 17]].
 
 [^4]: See [[D&C 121.1|Doctrine and Covenants 121:1–2]][[D&C 121.2|]].
 
@@ -85,17 +85,18 @@ Christ is risen. Truly, He is risen. In the name of Jesus Christ, amen.
 
 [^6]: See [[Acts 3.16|Acts 3:16]].
 
-[^7]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 23.
+[^7]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 23.
 
-[^8]: Dallin H. Oaks, “[[2013 April - Followers of Christ.md|Followers of Christ]],” *Liahona*, May 2013, 96.
+[^8]: Dallin H. Oaks, “[[2013 April - Followers of Christ.md|Followers of Christ]],” *Liahona*, May 2013, 96.
 
-[^9]: See [[2 Nephi 26.13|2 Nephi 26:13]]; [[Ether 12.12|Ether 12:12]]; [[Moroni 7.27|Moroni 7:27–29, 34–38]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]].
+[^9]: See [[2 Nephi 26.13|2 Nephi 26:13]]; [[Ether 12.12|Ether 12:12]]; [[Moroni 7.27|Moroni 7:27–29, 34–38]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]].
 
-[^10]: See David A. Bednar, “[[2008 April - Ask in Faith.md|Ask in Faith]],” *Liahona*, May 2008, 94–97.
+[^10]: See David A. Bednar, “[[2008 April - Ask in Faith.md|Ask in Faith]],” *Liahona*, May 2008, 94–97.
 
-[^11]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^11]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^12]: *Teachings of Presidents of the Church: Ezra Taft Benson* (2014), 38.
+[^12]: *[Teachings of Presidents of the Church: Ezra Taft Benson](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-ezra-taft-benson/chapter-1-the-great-commandment-love-the-lord?lang=eng&id=p6-p8#p6)* (2014), 38.
 
 [^13]: See [[Mosiah 3.19|Mosiah 3:19.]]
 
+#Adversity #Covenants #Discipleship #Joy #JesusChrist #Love

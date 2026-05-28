@@ -1,7 +1,6 @@
 # Writing
 
-
-*See also* [[Write, Wrote, Written.md|Write]]; [BD Writing](https://www.churchofjesuschrist.org/study/scriptures/bd/writing?lang=eng)
+*See also* [[Write.md|Write]]; [[BD Writing.md|BD Writing]]
 
 the *writing* was the *writing* of God, [[Exodus 32.16|Exodus 32:16]].
 
@@ -19,7 +18,7 @@ written upon them a new *writing*, [[1 Nephi 16.29|1 Nephi 16:29]].
 
 neither am I mighty in *writing*, [[2 Nephi 33.1|2 Nephi 33:1]].
 
-interpreted the *writing* ... upon the wall of the temple, [[Alma 10.2|Alma 10:2]].
+interpreted the *writing* … upon the wall of the temple, [[Alma 10.2|Alma 10:2]].
 
 not made us mighty in *writing*, [[Ether 12.24|Ether 12:24]].
 

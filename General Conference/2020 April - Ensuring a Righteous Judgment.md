@@ -1,6 +1,6 @@
 # Ensuring a Righteous Judgment
 
-By Elder James R. Rasband - *Of the Seventy*
+By Elder James R. Rasband - *Of the Seventy*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -10,7 +10,7 @@ By Elder James R. Rasband - *Of the Seventy*
 
 ## The Book of Mormon Teaches the Doctrine of Christ
 
-Last October, President Russell M. Nelson challenged us to consider how our lives would be different if our “knowledge gained from the Book of Mormon were suddenly taken away.”[^1] I have pondered on his question, as I am sure many of you have. One thought has come again and again—without the Book of Mormon and its clarity about the doctrine of Christ and His atoning sacrifice, where would I turn for peace?
+Last October, President Russell M. Nelson challenged us to consider how our lives would be different if our “knowledge gained from the Book of Mormon were suddenly taken away.”[^1] I have pondered on his question, as I am sure many of you have. One thought has come again and again—without the Book of Mormon and its clarity about the doctrine of Christ and His atoning sacrifice, where would I turn for peace?
 
 The doctrine of Christ—which consists of the saving principles and ordinances of faith in Christ, repentance, baptism, the gift of the Holy Ghost, and enduring to the end—is taught numerous times in all the scriptures of the Restoration but with particular power in the Book of Mormon.[^2] The doctrine begins with faith in Christ, and every one of its elements depends upon trust in His atoning sacrifice.
 
@@ -28,7 +28,7 @@ Alma explained to Helaman that peace finally came to him when his “mind caught
 
 But was Alma’s joy focused solely on himself—on *his* avoiding punishment and *his* being able to return to the Father? We know that Alma also agonized about those whom he had led away from the truth.[^16] But Alma himself could not heal and restore all those he had led away. He could not himself ensure that they would be given a fair opportunity to learn the doctrine of Christ and to be blessed by living its joyful principles. He could not bring back those who may have died still blinded by his false teaching.
 
-As President Boyd K. Packer once taught: “The thought that rescued Alma … is this: Restoring what you cannot restore, healing the wound you cannot heal, fixing that which you broke and you cannot fix is the very purpose of the atonement of Christ.”[^17] The joyous truth on which Alma’s mind “caught hold” was not just that he himself could be made clean but also that those whom he had harmed could be healed and made whole.
+As President Boyd K. Packer once taught: “The thought that rescued Alma … is this: Restoring what you cannot restore, healing the wound you cannot heal, fixing that which you broke and you cannot fix is the very purpose of the atonement of Christ.”[^17] The joyous truth on which Alma’s mind “caught hold” was not just that he himself could be made clean but also that those whom he had harmed could be healed and made whole.
 
 ## The Savior’s Sacrifice Ensures a Righteous Judgment
 
@@ -55,15 +55,15 @@ Although the Savior has power to mend what we cannot fix, He commands us to do a
 
 
 
-[^1]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona,* Nov. 2019, 122.
+[^1]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona,* Nov. 2019, 122.
 
-[^2]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.28|3 Nephi 11:28, 32, 35, 39–40]][[3 Nephi 11.32|]][[3 Nephi 11.35|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]]; [[D&C 10.62|Doctrine and Covenants 10:62–63, 67–70]][[D&C 10.63|]][[D&C 10.67|]][[D&C 10.68|]][[D&C 10.69|]][[D&C 10.70|]]; [[D&C 68.25|68:25]]; [[Moses 6.52|Moses 6:52–54]][[Moses 6.53|]][[Moses 6.54|]]; [[Moses 8.24|8:24]]; [[Articles of Faith 1.4|Articles of Faith 1:4]].
+[^2]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.28|3 Nephi 11:28, 32, 35, 39–40]][[3 Nephi 11.32|]][[3 Nephi 11.35|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]]; [[D&C 10.62|Doctrine and Covenants 10:62–63, 67–70]][[D&C 10.63|]][[D&C 10.67|]][[D&C 10.68|]][[D&C 10.69|]][[D&C 10.70|]]; [[D&C 68.25|68:25]]; [[Moses 6.52|Moses 6:52–54]][[Moses 6.53|]][[Moses 6.54|]]; [[Moses 8.24|8:24]]; [[Articles of Faith 1.4|Articles of Faith 1:4]].
 
-[^3]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It]]?” *Ensign* or *Liahona,* Nov. 2017, 62.
+[^3]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It]]?” *Ensign* or *Liahona,* Nov. 2017, 62.
 
 [^4]: See [[D&C 8.2|Doctrine and Covenants 8:2–3]][[D&C 8.3|]].
 
-[^5]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It]]?” 62.
+[^5]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It]]?” 62.
 
 [^6]: [[Alma 42.15|Alma 42:15]].
 
@@ -75,47 +75,47 @@ Although the Savior has power to mend what we cannot fix, He commands us to do a
 
 [^10]: See [[Mosiah 27.8|Mosiah 27:8–10]][[Mosiah 27.9|]][[Mosiah 27.10|]].
 
-[^11]: [[Alma 36.13|Alma 36:13, 14]][[Alma 36.14|]].
+[^11]: [[Alma 36.13|Alma 36:13, 14]][[Alma 36.14|]].
 
-[^12]: [[Alma 36.17|Alma 36:17, 18]][[Alma 36.18|]].
+[^12]: [[Alma 36.17|Alma 36:17, 18]][[Alma 36.18|]].
 
 [^13]: See [[Alma 36.18|Alma 36:18]].
 
-[^14]: [[Alma 40.26|Alma 40:26]]; see also [[1 Nephi 15.34|1 Nephi 15:34]]; [[Alma 7.21|Alma 7:21]]; [[Alma 11.37|11:37]]; [[Helaman 8.25|Helaman 8:25]].
+[^14]: [[Alma 40.26|Alma 40:26]]; see also [[1 Nephi 15.34|1 Nephi 15:34]]; [[Alma 7.21|Alma 7:21]]; [[Alma 11.37|11:37]]; [[Helaman 8.25|Helaman 8:25]].
 
-[^15]: See [[3 Nephi 27.19|3 Nephi 27:19]]; see also [[Moses 6.57|Moses 6:57]].
+[^15]: See [[3 Nephi 27.19|3 Nephi 27:19]]; see also [[Moses 6.57|Moses 6:57]].
 
 [^16]: See [[Alma 36.14|Alma 36:14–17]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]].
 
-[^17]: Boyd K. Packer, “[[1995 October - The Brilliant Morning of Forgiveness.md|The Brilliant Morning of Forgiveness]],” *Ensign,* Nov. 1995, 19–20.
+[^17]: Boyd K. Packer, “[[1995 October - The Brilliant Morning of Forgiveness.md|The Brilliant Morning of Forgiveness]],” *Ensign,* Nov. 1995, 19–20.
 
-[^18]: [[Mosiah 3.2|Mosiah 3:2, 3]][[Mosiah 3.3|]].
+[^18]: [[Mosiah 3.2|Mosiah 3:2, 3]][[Mosiah 3.3|]].
 
 [^19]: [[Mosiah 3.10|Mosiah 3:10]]; emphasis added.
 
-[^20]: [[Mosiah 3.11|Mosiah 3:11]]; see also [[2 Nephi 9.26|2 Nephi 9:26]].
+[^20]: [[Mosiah 3.11|Mosiah 3:11]]; see also [[2 Nephi 9.26|2 Nephi 9:26]].
 
 [^21]: [[Mosiah 3.16|Mosiah 3:16]]; see also [[Mosiah 15.25|Mosiah 15:25]]; [[Moroni 8.11|Moroni 8:11–12, 22]][[Moroni 8.12|]][[Moroni 8.22|]].
 
-[^22]: [[2 Nephi 9.25|2 Nephi 9:25]].
+[^22]: [[2 Nephi 9.25|2 Nephi 9:25]].
 
-[^23]: See [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]]; [[Helaman 14.29|Helaman 14:29–30]][[Helaman 14.30|]].
+[^23]: See [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]]; [[Helaman 14.29|Helaman 14:29–30]][[Helaman 14.30|]].
 
-[^24]: See [[Articles of Faith 1.2|Articles of Faith 1:2]]; see also [[D&C 45.54|Doctrine and Covenants 45:54]]. Elaborating on the doctrine of baptism for the dead, the Prophet Joseph once said: “While one portion of the human race is judging and condemning the other without mercy, the Great Parent of the universe looks upon the whole of the human family with a fatherly care and paternal regard; He views them as His offspring. … He is a wise Lawgiver, and will judge all men, not according to the narrow, contracted notions of men. … He will judge them, ‘not according to what they have not, but according to what they have’; those who have lived without law, will be judged without law, and those who have a law, will be judged by that law. We need not doubt the wisdom and intelligence of the Great Jehovah; He will award judgment or mercy to all nations according to their several deserts, their means of obtaining intelligence, the laws by which they are governed, the facilities afforded them of obtaining correct information, and … we shall all of us eventually have to confess that the Judge of all the earth has done right” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 404).
+[^24]: See [[Articles of Faith 1.2|Articles of Faith 1:2]]; see also [[D&C 45.54|Doctrine and Covenants 45:54]]. Elaborating on the doctrine of baptism for the dead, the Prophet Joseph once said: “While one portion of the human race is judging and condemning the other without mercy, the Great Parent of the universe looks upon the whole of the human family with a fatherly care and paternal regard; He views them as His offspring. … He is a wise Lawgiver, and will judge all men, not according to the narrow, contracted notions of men. … He will judge them, ‘not according to what they have not, but according to what they have’; those who have lived without law, will be judged without law, and those who have a law, will be judged by that law. We need not doubt the wisdom and intelligence of the Great Jehovah; He will award judgment or mercy to all nations according to their several deserts, their means of obtaining intelligence, the laws by which they are governed, the facilities afforded them of obtaining correct information, and … we shall all of us eventually have to confess that the Judge of all the earth has done right” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-35?lang=eng)* \[2007\], 404).
 
-[^25]: [[Mosiah 3.12|Mosiah 3:12]]; see also [[2 Nephi 9.27|2 Nephi 9:27]].
+[^25]: [[Mosiah 3.12|Mosiah 3:12]]; see also [[2 Nephi 9.27|2 Nephi 9:27]].
 
-[^26]: See [[Mosiah 3.12|Mosiah 3:12]]; [[Helaman 14.30|Helaman 14:30]]; [[Moroni 8.10|Moroni 8:10]]; [[D&C 101.78|Doctrine and Covenants 101:78]]. Individuals may be ignorant of certain commandments and covenants or be unable to exercise their agency in some circumstances but still be accountable in other circumstances because of the Light of Christ they possess (see [[2 Nephi 9.25|2 Nephi 9:25]]; [[Moroni 7.16|Moroni 7:16–19]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]]). The Savior, who is our judge and who has assured a righteous judgment, will distinguish these circumstances (see [[Mormon 3.20|Mormon 3:20]]; [[Moses 6.53|Moses 6:53–57]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]]). And He has paid the price for both—the former unconditionally and the latter upon the condition of repentance.
+[^26]: See [[Mosiah 3.12|Mosiah 3:12]]; [[Helaman 14.30|Helaman 14:30]]; [[Moroni 8.10|Moroni 8:10]]; [[D&C 101.78|Doctrine and Covenants 101:78]]. Individuals may be ignorant of certain commandments and covenants or be unable to exercise their agency in some circumstances but still be accountable in other circumstances because of the Light of Christ they possess (see [[2 Nephi 9.25|2 Nephi 9:25]]; [[Moroni 7.16|Moroni 7:16–19]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]]). The Savior, who is our judge and who has assured a righteous judgment, will distinguish these circumstances (see [[Mormon 3.20|Mormon 3:20]]; [[Moses 6.53|Moses 6:53–57]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]]). And He has paid the price for both—the former unconditionally and the latter upon the condition of repentance.
 
 [^27]: [[Alma 36.21|Alma 36:21]].
 
-[^28]: See [[Mosiah 3.11|Mosiah 3:11]]; see also D. Todd Christofferson, “[[2013 April - Redemption.md|Redemption]],” *Ensign* or *Liahona,* May 2013, 110; [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]] (“He will take upon him the pains and the sicknesses of his people. … And he will take upon them their infirmities”); [[Isaiah 53.3|Isaiah 53:3–5]][[Isaiah 53.4|]][[Isaiah 53.5|]] (“Surely he hath borne our griefs, and carried our sorrows”); [[Isaiah 61.1|61:1–3]][[Isaiah 61.2|]][[Isaiah 61.3|]] (“The Lord hath anointed me to … bind up the brokenhearted, … to appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning”). It is instructive that the Savior quoted from these verses in Isaiah when He announced His Messiahship: “This day is this scripture fulfilled in your ears” (see [[Luke 4.16|Luke 4:16–21]][[Luke 4.17|]][[Luke 4.18|]][[Luke 4.19|]][[Luke 4.20|]][[Luke 4.21|]]).
+[^28]: See [[Mosiah 3.11|Mosiah 3:11]]; see also D. Todd Christofferson, “[[2013 April - Redemption.md|Redemption]],” *Ensign* or *Liahona,* May 2013, 110; [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]] (“He will take upon him the pains and the sicknesses of his people. … And he will take upon them their infirmities”); [[Isaiah 53.3|Isaiah 53:3–5]][[Isaiah 53.4|]][[Isaiah 53.5|]] (“Surely he hath borne our griefs, and carried our sorrows”); [[Isaiah 61.1|61:1–3]][[Isaiah 61.2|]][[Isaiah 61.3|]] (“The Lord hath anointed me to … bind up the brokenhearted, … to appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning”). It is instructive that the Savior quoted from these verses in Isaiah when He announced His Messiahship: “This day is this scripture fulfilled in your ears” (see [[Luke 4.16|Luke 4:16–21]][[Luke 4.17|]][[Luke 4.18|]][[Luke 4.19|]][[Luke 4.20|]][[Luke 4.21|]]).
 
-[^29]: In the spirit world, “the gospel is preached to the ignorant, the unrepentant, and the rebellious so they can be freed from their bondage and go forward to the blessings a loving Heavenly Father has in store for them” (Dallin H. Oaks, “[[2019 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign* or *Liahona,* Nov. 2019, 27). See [[1 Peter 4.6|1 Peter 4:6]]; [[2 Nephi 2.11|2 Nephi 2:11–16]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]]; [[D&C 128.19|Doctrine and Covenants 128:19]]; [[D&C 137.7|137:7–9]][[D&C 137.8|]][[D&C 137.9|]]; [[D&C 138.31|138:31–35]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]].
+[^29]: In the spirit world, “the gospel is preached to the ignorant, the unrepentant, and the rebellious so they can be freed from their bondage and go forward to the blessings a loving Heavenly Father has in store for them” (Dallin H. Oaks, “[[2019 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign* or *Liahona,* Nov. 2019, 27). See [[1 Peter 4.6|1 Peter 4:6]]; [[2 Nephi 2.11|2 Nephi 2:11–16]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]]; [[D&C 128.19|Doctrine and Covenants 128:19]]; [[D&C 137.7|137:7–9]][[D&C 137.8|]][[D&C 137.9|]]; [[D&C 138.31|138:31–35]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]].
 
-[^30]: See [[Moses 6.54|Moses 6:54]]. President M. Russell Ballard taught this doctrine with respect to suicide: “Only the Lord knows all the details, and he it is who will judge our actions here on earth. When he does judge us, I feel he will take all things into consideration: our genetic and chemical makeup, our mental state, our intellectual capacity, the teachings we have received, the traditions of our fathers, our health, and so forth. We learn in the scriptures that the blood of Christ will atone for the sins of men ‘who have died not knowing the will of God concerning them, or who have ignorantly sinned’ ([[Mosiah 3.11|Mosiah 3:11]])” (“[Suicide: Some Things We Know, and Some We Do Not](https://churchofjesuschrist.org/study/ensign/1987/10/suicide-some-things-we-know-and-some-we-do-not?lang=eng),” *Ensign,* Oct. 1987, 8; *Tambuli,* Mar. 1988, 18).
+[^30]: See [[Moses 6.54|Moses 6:54]]. President M. Russell Ballard taught this doctrine with respect to suicide: “Only the Lord knows all the details, and he it is who will judge our actions here on earth. When he does judge us, I feel he will take all things into consideration: our genetic and chemical makeup, our mental state, our intellectual capacity, the teachings we have received, the traditions of our fathers, our health, and so forth. We learn in the scriptures that the blood of Christ will atone for the sins of men ‘who have died not knowing the will of God concerning them, or who have ignorantly sinned’ ([[Mosiah 3.11|Mosiah 3:11]])” (“[Suicide: Some Things We Know, and Some We Do Not](https://www.churchofjesuschrist.org/study/ensign/1987/10/suicide-some-things-we-know-and-some-we-do-not?lang=eng),” *Ensign,* Oct. 1987, 8; *Tambuli,* Mar. 1988, 18).
 
-[^31]: See [[Jacob 6.5|Jacob 6:5]]; [[Mosiah 29.20|Mosiah 29:20]]; [[3 Nephi 9.14|3 Nephi 9:14]]; [[D&C 29.1|Doctrine and Covenants 29:1]].
+[^31]: See [[Jacob 6.5|Jacob 6:5]]; [[Mosiah 29.20|Mosiah 29:20]]; [[3 Nephi 9.14|3 Nephi 9:14]]; [[D&C 29.1|Doctrine and Covenants 29:1]].
 
 [^32]: See [[Helaman 8.15|Helaman 8:15]].
 
@@ -123,12 +123,10 @@ Although the Savior has power to mend what we cannot fix, He commands us to do a
 
 [^34]: It was just this sort of effort in which Alma himself engaged (see [[Alma 36.24|Alma 36:24]]).
 
-[^35]: President Boyd K. Packer taught this precept powerfully:
+[^35]: President Boyd K. Packer taught this precept powerfully:
 
-[^36]: See [[3 Nephi 12.19|3 Nephi 12:19]]; see also [[Matthew 6.12|Matthew 6:12]]; [[3 Nephi 13.11|3 Nephi 13:11]].
+[^36]: See [[3 Nephi 12.19|3 Nephi 12:19]]; see also [[Matthew 6.12|Matthew 6:12]]; [[3 Nephi 13.11|3 Nephi 13:11]].
 
-[^37]: See [[John 15.12|John 15:12–13]][[John 15.13|]]; [[1 John 4.18|1 John 4:18]]; Dieter F. Uchtdorf, “[[2017 April - Perfect Love Casteth Out Fear.md|Perfect Love Casteth Out Fear]],” *Ensign* or *Liahona,* May 2017, 107.
-
-
+[^37]: See [[John 15.12|John 15:12–13]][[John 15.13|]]; [[1 John 4.18|1 John 4:18]]; Dieter F. Uchtdorf, “[[2017 April - Perfect Love Casteth Out Fear.md|Perfect Love Casteth Out Fear]],” *Ensign* or *Liahona,* May 2017, 107.
 
 #Atonement #Repentance

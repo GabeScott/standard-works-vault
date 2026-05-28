@@ -34,7 +34,7 @@ The fourth article of faith outlines the first principles and ordinances of the 
 
 “First, Faith in the Lord Jesus Christ; second, Repentance; third, Baptism by immersion for the remission of sins; fourth, Laying on of hands for the gift of the Holy Ghost.”
 
-Elder Bruce R. McConkie, a man of great faith, said, “*Faith is a gift of God bestowed as a reward for personal righteousness.* … The greater the measure of obedience to God’s laws the greater will be the endowment of the \[gift of faith\]” (*Mormon Doctrine,* 2d ed. \[Salt Lake City: Bookcraft, 1966\], p. 264; italics in original).
+Elder Bruce R. McConkie, a man of great faith, said, “*Faith is a gift of God bestowed as a reward for personal righteousness.* … The greater the measure of obedience to God’s laws the greater will be the endowment of the \[gift of faith\]” (*Mormon Doctrine,* 2d ed. \[Salt Lake City: Bookcraft, 1966\], p. 264; italics in original).
 
 In other words, obedience to the laws and ordinances of the gospel is essential to obtain faith in the Lord Jesus Christ.
 
@@ -94,15 +94,15 @@ Third, we promise that we will keep his commandments, renewing our covenants of 
 
 If we keep these three promises, we are given one of the greatest blessings that can be bestowed upon us: that we will have his Spirit to be with us always, meaning that we will have the Holy Ghost in our lives to guide us and protect us and direct us each day.
 
-The reason why we come to sacrament meeting each week is to renew these covenants so that we can have his Spirit to be with us and remain on the strait and narrow path that leads us to eternal life—to return with honor (see [[2 Nephi 31.17|2 Ne. 31:17–21]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]).
+The reason why we come to sacrament meeting each week is to renew these covenants so that we can have his Spirit to be with us and remain on the strait and narrow path that leads us to eternal life—to return with honor (see [[2 Nephi 31.17|2 Ne. 31:17–21]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]).
 
 I have stressed the importance of obedience. However, as important as obedience is, sometimes people are deceived and choose to be selectively obedient. A young man may recognize that he must be obedient, yet selectively do only part of what he is commanded to do.
 
-The Lord tells us in 2 Nephi the following:
+The Lord tells us in 2 Nephi the following:
 
 “Yea, and there shall be many which shall say: Eat, drink, and be merry, for tomorrow we die; and it shall be well with us.
 
-“And there shall also be many which shall say: Eat, drink, and be merry; nevertheless, fear God—he will justify in committing a little sin; yea, lie a little, take the advantage of one because of his words, dig a pit for thy neighbor; there is no harm in this; and do all these things, for tomorrow we die; and if it so be that we are guilty, God will beat us with a few stripes, and at last we shall be saved in the kingdom of God” ([[2 Nephi 28.7|2 Ne. 28:7–8]][[2 Nephi 28.8|]]).
+“And there shall also be many which shall say: Eat, drink, and be merry; nevertheless, fear God—he will justify in committing a little sin; yea, lie a little, take the advantage of one because of his words, dig a pit for thy neighbor; there is no harm in this; and do all these things, for tomorrow we die; and if it so be that we are guilty, God will beat us with a few stripes, and at last we shall be saved in the kingdom of God” ([[2 Nephi 28.7|2 Ne. 28:7–8]][[2 Nephi 28.8|]]).
 
 My brethren, this is deception, as the Lord has taught us. Wickedness—not even a little wickedness—never was happiness (see [[Alma 41.10|Alma 41:10]]). And it never will be. Wickedness prevents us from returning with honor to our Father in Heaven.
 
@@ -117,8 +117,6 @@ In order to return with honor, we need the Spirit of the Holy Ghost to be with u
 As a father, I put my arms around each of my boys as they left to serve their missions and whispered in their ears, “Return with honor.” I can picture our Father in Heaven putting his arms around each of us as we left his presence and whispering, “Return with honor.”
 
 That we will remember who we are and be obedient to the commandments of the Lord and return with honor into the presence of our Heavenly Father with our families is my prayer, in the name of Jesus Christ, amen.
-
-
 
 
 

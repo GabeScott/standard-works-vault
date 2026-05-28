@@ -1,6 +1,5 @@
 # Kick
 
-
 *kick* ye at my sacrifice, [[1 Samuel 2.29|1 Samuel 2:29]].
 
 hard for thee to *kick* against the pricks, [[Acts 9.5|Acts 9:5]] ([[Acts 26.14|Acts 26:14]]).

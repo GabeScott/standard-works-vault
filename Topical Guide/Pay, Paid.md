@@ -1,7 +1,6 @@
 # Pay, Paid
 
-
-*See also* [[Bestow.md|Bestow]]; [[Give, Gave, Given.md|Give]]; [[Recompence, Recompense.md|Recompence]]; [[Reward.md|Reward]]
+*See also* [[Bestow.md|Bestow]]; [[Give.md|Give]]; [[Recompence.md|Recompence]]; [[Reward.md|Reward]]
 
 he shall *pay* for the loss of his time, [[Exodus 21.19|Exodus 21:19]].
 
@@ -9,7 +8,7 @@ if the thief be found, let him *pay* double, [[Exodus 22.7|Exodus 22:7]].
 
 drink of thy water, then I will *pay* for it, [[Numbers 20.19|Numbers 20:19]].
 
-a vow ... thou shalt not slack to *pay* it, [[Deuteronomy 23.21|Deuteronomy 23:21]].
+a vow … thou shalt not slack to *pay* it, [[Deuteronomy 23.21|Deuteronomy 23:21]].
 
 Go, sell the oil, and *pay* thy debt, [[2 Kings 4.7|2 Kings 4:7]].
 

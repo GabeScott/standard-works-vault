@@ -1,4 +1,3 @@
 # Cornelius
 
-
-*See* [BD Cornelius](https://www.churchofjesuschrist.org/study/scriptures/bd/cornelius?lang=eng)
+*See also* [[BD Cornelius.md|BD Cornelius]]

@@ -20,7 +20,7 @@ I knew Sanchir in Mongolia for some time before he became a member. It was only 
 
 In this blessing he said things that he would not have known or even imagined before his baptism. Witnessing this blessing and realizing the extent to which the gospel has changed this young man and this family truly made this a missionary payday.
 
-President Hinckley has said: “The most satisfying experience I have is to see what this gospel does for people. It gives them a new outlook on life. It gives them a perspective that they have never felt before. It raises their sights to things noble and divine. Something happens to them that is miraculous to behold. They look to Christ and come alive” (in Conference Report, Apr. 1997, 68; or *Ensign,* May 1997, 48).
+President Hinckley has said: “The most satisfying experience I have is to see what this gospel does for people. It gives them a new outlook on life. It gives them a perspective that they have never felt before. It raises their sights to things noble and divine. Something happens to them that is miraculous to behold. They look to Christ and come alive” (in Conference Report, Apr. 1997, [[1997 April - Converts and Young Men.md|68]]; or *Ensign,* May 1997, 48).
 
 My experience has been that when our converts “come alive”—and they need nourishment—in the gospel, they soon come alive as students, as parents, in their professions, and as citizens. Their lives and the lives of their posterity are changed forever.
 
@@ -47,6 +47,4 @@ I pray we’ll make missionary work our business and not let other less importan
 
 
 
-
-
-#Agency #Blessings #Conversion #Jesus_Christ #Missionary_Work #Obedience
+#Agency #Blessings #Conversion #JesusChrist #MissionaryWork #Obedience

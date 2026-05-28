@@ -5,6 +5,6 @@
 [1 Corinthians 14:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/14.12?lang=eng#p12)
 
 
-[^a]: GR since.
-[^b]: [[D&C 46.10|D&C 46:10]].
-[^c]: [[Edification, Edify|TG Edification]].
+[^a]: GR since.  
+[^b]: [[D&C 46.10|D&C 46:10]].  
+[^c]: [[Edification, Edify|TG Edification]].  

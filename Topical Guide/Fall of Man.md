@@ -1,7 +1,6 @@
 # Fall of Man
 
-
-*See also* [[Carnal Mind.md|Carnal Mind]]; [[Death.md|Death]]; [[Death, Spiritual, First.md|Death, Spiritual, First]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Sensuality.md|Sensuality]]; [BD Fall of Adam](https://www.churchofjesuschrist.org/study/scriptures/bd/fall-of-adam-and-eve?lang=eng)
+*See also* [[Carnal Mind.md|Carnal Mind]]; [[Death.md|Death]]; [[Death, Spiritual, First.md|Death, Spiritual, First]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Sensuality.md|Sensuality]]; [[BD Fall of Adam.md|BD Fall of Adam]]
 
 day that thou eatest thereof thou shalt surely *die*, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]).
 
@@ -21,13 +20,13 @@ Adam and Eve had *partaken* of the forbidden fruit, [[2 Nephi 2.19|2 Nephi 2:19]
 
 Adam *fell* that men might be, [[2 Nephi 2.25|2 Nephi 2:25]].
 
-resurrection must needs come ... by reason of the *fall*, [[2 Nephi 9.6|2 Nephi 9:6]].
+resurrection must needs come … by reason of the *fall*, [[2 Nephi 9.6|2 Nephi 9:6]].
 
 those who have *fallen* by the transgression of Adam, [[Mosiah 3.11|Mosiah 3:11]].
 
 natural man is an enemy to God, and has been from the *fall* of Adam, [[Mosiah 3.19|Mosiah 3:19]].
 
-atonement ... for all mankind ... since the *fall* of Adam, [[Mosiah 4.7|Mosiah 4:7]].
+atonement … for all mankind … since the *fall* of Adam, [[Mosiah 4.7|Mosiah 4:7]].
 
 redeemed his people from their lost and *fallen* state, [[Mosiah 16.4|Mosiah 16:4]].
 
@@ -37,9 +36,9 @@ since man had *fallen* he could not merit anything, [[Alma 22.14|Alma 22:14]].
 
 all are *fallen* and are lost, [[Alma 34.9|Alma 34:9]].
 
-man became ... *fallen* man, [[Alma 42.6|Alma 42:6]].
+man became … *fallen* man, [[Alma 42.6|Alma 42:6]].
 
-*fall* had brought ... a spiritual death, [[Alma 42.9|Alma 42:9]].
+*fall* had brought … a spiritual death, [[Alma 42.9|Alma 42:9]].
 
 *fall* of Adam being cut off from the presence of the Lord, [[Helaman 14.16|Helaman 14:16]].
 
@@ -47,16 +46,16 @@ by Adam came the *fall of man*, [[Mormon 9.12|Mormon 9:12]].
 
 because of the *fall* our natures have become evil, [[Ether 3.2|Ether 3:2]].
 
-by the transgression ... became *fallen* man, [[D&C 20.20|D&C 20:20]].
+by the transgression … became *fallen* man, [[D&C 20.20|D&C 20:20]].
 
-he should be *cast* out ... from my presence, [[D&C 29.41|D&C 29:41]].
+he should be *cast* out … from my presence, [[D&C 29.41|D&C 29:41]].
 
 God having redeemed man from the *fall*, [[D&C 93.38|D&C 93:38]].
 
-preached ... redemption of mankind from the *fall*, [[D&C 138.19|D&C 138:19]].
+preached … redemption of mankind from the *fall*, [[D&C 138.19|D&C 138:19]].
 
 as thou hast *fallen* thou mayest be redeemed, [[Moses 5.9|Moses 5:9]].
 
 Because that Adam *fell*, we are; and by his *fall* came death, [[Moses 6.48|Moses 6:48]].
 
-punished for their own sins, and not for Adam's *transgression*, [[Articles of Faith 1.2|Articles of Faith 1:2]].
+punished for their own sins, and not for Adam’s *transgression*, [[Articles of Faith 1.2|Articles of Faith 1:2]].

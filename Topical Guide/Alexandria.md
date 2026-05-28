@@ -1,4 +1,3 @@
 # Alexandria
 
-
-*See* [BD Alexandria](https://www.churchofjesuschrist.org/study/scriptures/bd/alexandria?lang=eng)
+*See also* [[BD Alexandria.md|BD Alexandria]]

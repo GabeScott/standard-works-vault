@@ -1,6 +1,6 @@
 # Loving One Another
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -20,7 +20,7 @@ Also, my father was very responsive. He found that President Layton, who was beg
 
 Another thing I wish to mention is that in Nauvoo, Illinois, the Relief Society has been given approval to erect a monument which will be a joy forever. We would like it understood that we have given approval for it, and we would appreciate it if the stake presidencies and the mission presidencies and the bishoprics would give this encouragement. Encourage the sisters to make individual contributions—not too large, but very voluntary and adequate. We hope that you will encourage the sisters to go forward with this program. We shall mention this again tonight in the priesthood meeting. It is very important.
 
-President Marion G. Romney was talking about the work which involved our parents. The other day we heard a story in our council meeting that I saw raise the ire of the brethren. It was all righteous ire because of the things that had happened. A father who had been very careful in his investments and in his service had saved hundreds of thousands of dollars for his sweet little wife who had helped him to gather it. But unfortunately he died first and was laid away. His wife became a little older, and somewhat senile. She was put in a rest home. The money went to the children’s bank accounts, and she went on suffering. Maybe she didn’t fully understand all the suffering that came to her; but maybe she did. With inadequate clothes and with inadequate treatment and training, the poor woman is still living in a rest home. As far as we know her children *never* see her.
+President Marion G. Romney was talking about the work which involved our parents. The other day we heard a story in our council meeting that I saw raise the ire of the brethren. It was all righteous ire because of the things that had happened. A father who had been very careful in his investments and in his service had saved hundreds of thousands of dollars for his sweet little wife who had helped him to gather it. But unfortunately he died first and was laid away. His wife became a little older, and somewhat senile. She was put in a rest home. The money went to the children’s bank accounts, and she went on suffering. Maybe she didn’t fully understand all the suffering that came to her; but maybe she did. With inadequate clothes and with inadequate treatment and training, the poor woman is still living in a rest home. As far as we know her children *never* see her.
 
 It must be a little bit difficult to visit a mother who gave her life for her children, who spent many, many years rearing and training and saving for them. It must be very difficult for them to show their interest when she is in a position where she needs some comfort from those whom she has loved.
 
@@ -30,11 +30,9 @@ One other matter. I remember some years ago, a young man and his wife and little
 
 “Thou shalt not be idle,” the Lord said. ([[D&C 42.42|D&C 42:42]].) Idleness is of the devil, and we are not kind to our children when we become affluent and take from them their labors, their opportunities to serve and to be trained and to do things for themselves and for others.
 
-This has been a wonderful meeting. We’re deeply grateful for the splendid service as directed by Bishop Victor L. Brown and his counselors, Sister Barbara B. Smith and her counselors. We’re grateful for their wonderful service. And we’re grateful for your service as bishoprics and stake presidencies as you give leadership to this marvelous program. We pray that the Lord will bless us as we go forward and follow the program as it is outlined for us. We say this in the name of Jesus Christ. Amen.
+This has been a wonderful meeting. We’re deeply grateful for the splendid service as directed by Bishop Victor L. Brown and his counselors, Sister Barbara B. Smith and her counselors. We’re grateful for their wonderful service. And we’re grateful for your service as bishoprics and stake presidencies as you give leadership to this marvelous program. We pray that the Lord will bless us as we go forward and follow the program as it is outlined for us. We say this in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Parenthood #Self-Reliance #Service #Welfare
+#Parenthood #Self-reliance #Service #Welfare

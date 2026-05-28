@@ -57,7 +57,7 @@ Young women, your patriarchal blessing will help you know that you have a noble 
 
 [^3]: See [[D&C 138.56|D&C 138:56]].
 
-[^4]: See [[Abraham 3.25|Abraham 3:25]]; Bible Dictionary, “Election,” 662.
+[^4]: See [[Abraham 3.25|Abraham 3:25]]; Bible Dictionary, “[[BD Election|Election]],” 662.
 
 [^5]: See “Teaching Children about Patriarchal Blessings,” *Ensign,* Oct. 1987, 54. President Spencer W. Kimball taught: “Do you prepare your children for \[their patriarchal blessings\], or do you let them just happen on to it? … I would think that every mother would begin to talk about patriarchal blessings to her children when they get just a few years old, so that they will be prepared for it” (in Conference Report, Manchester England Area Conference, June 1976, 23).
 
@@ -69,11 +69,11 @@ Young women, your patriarchal blessing will help you know that you have a noble 
 
 [^9]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 3:248–49.
 
-[^10]: [[3 Nephi 20.25|3 Nephi 20:25]].
+[^10]: [[3 Nephi 20.25|3 Nephi 20:25]].
 
 [^11]: “Carry On,” *Hymns,* no. 255.
 
-[^12]: [[1 Peter 2.9|1 Peter 2:9]].
+[^12]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^13]: See [[Abraham 1.2|Abraham 1:2–3]][[Abraham 1.3|]].
 
@@ -81,13 +81,13 @@ Young women, your patriarchal blessing will help you know that you have a noble 
 
 [^15]: See *True to the Faith: A Gospel Reference* (2004), 113.
 
-[^16]: In Conference Report, Oct. 1995, 81–82; or *Ensign,* Nov. 1995, 63.
+[^16]: In Conference Report, Oct. 1995, [[1995 October - Priesthood Blessings.md|81–82]]; or *Ensign,* Nov. 1995, 63.
 
 [^17]: “The Stake Patriarch,” *Liahona* and *Ensign,* Nov. 2002, 44.
 
-[^18]: In Conference Report, Oct. 1986, 83; or *Ensign,* Nov. 1986, 67.
+[^18]: In Conference Report, Oct. 1986, [[1986 October - Your Patriarchal Blessing - A Liahona of Light.md|83]]; or *Ensign,* Nov. 1986, 67.
 
-[^19]: [[3 Nephi 12.14|3 Nephi 12:14–16]][[3 Nephi 12.15|]][[3 Nephi 12.16|]].
+[^19]: [[3 Nephi 12.14|3 Nephi 12:14–16]][[3 Nephi 12.15|]][[3 Nephi 12.16|]].
 
 [^20]: See [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
@@ -103,8 +103,6 @@ Young women, your patriarchal blessing will help you know that you have a noble 
 
 [^26]: [[D&C 115.5|D&C 115:5]].
 
-[^27]: [[3 Nephi 12.16|3 Nephi 12:16]].
+[^27]: [[3 Nephi 12.16|3 Nephi 12:16]].
 
-
-
-#Covenants #Example #Patriarchal_Blessings #Spirituality
+#Covenants #Example #PatriarchalBlessings #Spirituality

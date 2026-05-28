@@ -5,5 +5,5 @@
 [2 Chronicles 29:34](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.34?lang=eng#p34)
 
 
-[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  
 [^b]: [[2 Chronicles 30.3|2 Chr. 30:24 (3, 24)]][[2 Chronicles 30.24|]].  

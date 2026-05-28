@@ -1,6 +1,6 @@
 # Marriage
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -161,8 +161,6 @@ These lines express something of the place of marriage in the eternal progress o
 Eternal love, eternal marriage, eternal increase! This ideal, which is new to many, when thoughtfully considered, can keep a marriage strong and safe. No relationship has more potential to exalt a man and a woman than the marriage covenant. No obligation in society or in the Church supersedes it in importance.
 
 I thank God for marriage. I thank God for temples. I thank God for the glorious sealing power, that power which transcends all that we have been given, through which our marriages may become eternal. May we be worthy of this sacred gift, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

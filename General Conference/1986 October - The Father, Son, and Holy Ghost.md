@@ -8,7 +8,7 @@ By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 My brethren and sisters, I have chosen a text this morning that is familiar to all of you. It is the first article of our faith. It is the pivotal position of our religion. It is significant that in setting forth the primary elements of our doctrine, the Prophet Joseph put this number one.
 
-“We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost.” \[[[Articles of Faith 1.1|A of F 1:1]]\]
+“We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost.” \[[[Articles of Faith 1.1|A of F 1:1]]\]
 
 The preeminence given that declaration is in accord with another statement the Prophet made. Said he:
 
@@ -30,7 +30,7 @@ Could any language be more explicit? Does it demean God, as some would have us b
 
 “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
+“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
 
 I remember the occasion of more than fifty years ago when, as a missionary, I was speaking in an open-air meeting in Hyde Park, London. As I was presenting my message, a heckler interrupted to say, “Why don’t you stay with the doctrine of the Bible which says in John ([[John 4.24|4:24]]), ‘God is a Spirit’?”
 
@@ -60,7 +60,7 @@ I thank Him for His similar declaration on the Mount of Transfiguration when He 
 
 “While he yet spake, behold, a bright cloud overshadowed them: and behold a voice out of the cloud, which said, This is my beloved Son, in whom I am well pleased; hear ye him” ([[Matthew 17.1|Matt. 17:1–5]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]][[Matthew 17.5|]]).
 
-I thank Him for that voice again heard when the risen Lord was introduced to the people of this hemisphere with the voice of God declaring, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name” ([[3 Nephi 11.7|3 Ne. 11:7]]).
+I thank Him for that voice again heard when the risen Lord was introduced to the people of this hemisphere with the voice of God declaring, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name” ([[3 Nephi 11.7|3 Ne. 11:7]]).
 
 I stand in awe and reverence and gratitude for His appearance in this dispensation when, as He introduced the risen Lord to one who had sought Him in prayer, the Father declared: “This is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|JS—H 1:17]]).
 
@@ -68,7 +68,7 @@ I believe in the Lord Jesus Christ, the Son of the eternal, living God. I believ
 
 “In the beginning was the Word, and the Word was with God, and the Word was God.
 
-“The same was in the beginning with God. …
+“The same was in the beginning with God. …
 
 “And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth” ([[John 1.1|John 1:1–2, 14]][[John 1.2|]][[John 1.14|]]).
 
@@ -90,7 +90,7 @@ God be thanked for His Beloved Son who reached out long ago and said to each of 
 
 “For my yoke is easy, and my burden is light” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]).
 
-He lives, the firstfruits of the Resurrection. I know He lives today as really, as certainly, as individually, as He lived when, as the risen Lord, He beckoned His discouraged disciples to “come and dine. …
+He lives, the firstfruits of the Resurrection. I know He lives today as really, as certainly, as individually, as He lived when, as the risen Lord, He beckoned His discouraged disciples to “come and dine. …
 
 “And \[He\] taketh bread, and giveth them, and fish likewise” ([[John 21.12|John 21:12–13]][[John 21.13|]]).
 
@@ -149,6 +149,4 @@ I bear witness of these great, transcendent truths. I do so by the gift and powe
 
 
 
-
-
-#God_The_Father #Godhead #Holy_Ghost #Jesus_Christ
+#GodTheFather #Godhead #HolyGhost #JesusChrist

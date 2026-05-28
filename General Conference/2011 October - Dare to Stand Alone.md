@@ -1,6 +1,6 @@
 # Dare to Stand Alone
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -34,7 +34,7 @@ As we go about living from day to day, it is almost inevitable that our faith wi
 
 Increasingly, some celebrities and others who—for one reason or another—are in the public eye have a tendency to ridicule religion in general and, at times, the Church in particular. If our testimonies are not firmly enough rooted, such criticisms can cause us to doubt our own beliefs or to waver in our resolves.
 
-In Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]], Lehi sees, among others, those who hold to the iron rod until they come forth and partake of the fruit of the tree of life, which we know is a representation of the love of God. And then, sadly, after they partake of the fruit, some are ashamed because of those in the “great and spacious building,” who represent the pride of the children of men, who are pointing fingers at them and scoffing at them; and they fall away into forbidden paths and are lost.[^3] What a powerful tool of the adversary is ridicule and mockery! Again, brethren, do we have the courage to stand strong and firm in the face of such difficult opposition?
+In Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]], Lehi sees, among others, those who hold to the iron rod until they come forth and partake of the fruit of the tree of life, which we know is a representation of the love of God. And then, sadly, after they partake of the fruit, some are ashamed because of those in the “great and spacious building,” who represent the pride of the children of men, who are pointing fingers at them and scoffing at them; and they fall away into forbidden paths and are lost.[^3] What a powerful tool of the adversary is ridicule and mockery! Again, brethren, do we have the courage to stand strong and firm in the face of such difficult opposition?
 
 I believe my first experience in having the courage of my convictions took place when I served in the United States Navy near the end of World War II.
 
@@ -68,7 +68,7 @@ Lest we at any time feel inadequate for the tasks ahead for us, brethren, may I 
 
 “While \[this\] generation will be comparable in wickedness to the days of Noah, when the Lord cleansed the earth by flood, there is a major difference this time: \[it is that\] God has saved for the final inning some of His strongest … children, who will help bear off the kingdom triumphantly.”[^4]
 
-Yes, brethren, we represent some of His strongest children. Ours is the responsibility to be worthy of all the glorious blessings our Father in Heaven has in store for us. Wherever we go, our priesthood goes with us. Are we standing in holy places? Please, before you put yourself and your priesthood in jeopardy by venturing into places or participating in activities which are not worthy of you or of that priesthood, pause to consider the consequences. Each of us has had conferred upon him the Aaronic Priesthood. In the process, each received the power which holds the keys to the ministering of angels. Said President Gordon B. Hinckley:
+Yes, brethren, we represent some of His strongest children. Ours is the responsibility to be worthy of all the glorious blessings our Father in Heaven has in store for us. Wherever we go, our priesthood goes with us. Are we standing in holy places? Please, before you put yourself and your priesthood in jeopardy by venturing into places or participating in activities which are not worthy of you or of that priesthood, pause to consider the consequences. Each of us has had conferred upon him the Aaronic Priesthood. In the process, each received the power which holds the keys to the ministering of angels. Said President Gordon B. Hinckley:
 
 “You cannot afford to do anything that would place a curtain between you and the ministering of angels in your behalf.
 
@@ -100,22 +100,22 @@ For the next 15 or so minutes, I had the privilege of sharing with those on the 
 
 With all my heart and soul, I pray that every man who holds the priesthood will honor that priesthood and be true to the trust which was conveyed when it was conferred. May each of us who holds the priesthood of God know what he believes. May we ever be courageous and prepared to stand for what we believe, and if we must stand alone in the process, may we do so courageously, strengthened by the knowledge that in reality we are never alone when we stand with our Father in Heaven.
 
-As we contemplate the great gift we have been given—“the rights of the priesthood … inseparably connected with the powers of heaven”—may our determination ever be to guard and defend it and to be worthy of its great promises. Brethren, may we follow the Savior’s instruction to us found in the book of 3 Nephi: “Hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up—that which ye have seen me do.”[^11]
+As we contemplate the great gift we have been given—“the rights of the priesthood … inseparably connected with the powers of heaven”—may our determination ever be to guard and defend it and to be worthy of its great promises. Brethren, may we follow the Savior’s instruction to us found in the book of 3 Nephi: “Hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up—that which ye have seen me do.”[^11]
 
 That we may ever follow that light and hold it up for all the world to see is my prayer and my blessing upon all who hear my voice, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: David Brooks, “If It Feels Right … ,” *New York Times,* Sept. 12, 2011, nytimes.com.
+[^1]: David Brooks, “If It Feels Right … ,” *New York Times,* Sept. 12, 2011, nytimes.com.
 
 [^2]: Alfred, Lord Tennyson, “Sir Galahad,” in *Poems of the English Race,* sel. Raymond Macdonald Alden (1921), 296.
 
-[^3]: See [[1 Nephi 8.26|1 Nephi 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].
+[^3]: See [[1 Nephi 8.26|1 Nephi 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].
 
 [^4]: Ezra Taft Benson, “In His Steps” (address given at the Southern California Student Devotional, Feb. 8, 1987); see also “In His Steps,” in *1979 Devotional Speeches of the Year: BYU Devotional and Fireside Addresses* (1980), 59.
 
-[^5]: Gordon B. Hinckley, in Conference Report, Apr. 2002, 63; or *Ensign,* May 2002, 52–53.
+[^5]: Gordon B. Hinckley, in Conference Report, Apr. 2002, [[2002 April - Personal Worthiness to Exercise the Priesthood.md|63]]; or *Ensign,* May 2002, 52–53.
 
 [^6]: [[Isaiah 1.18|Isaiah 1:18]].
 
@@ -125,10 +125,8 @@ That we may ever follow that light and hold it up for all the world to see is my
 
 [^9]: [[Moroni 10.4|Moroni 10:4]].
 
-[^10]: [[1 Peter 3.15|1 Peter 3:15]].
+[^10]: [[1 Peter 3.15|1 Peter 3:15]].
 
-[^11]: [[3 Nephi 18.24|3 Nephi 18:24]].
-
-
+[^11]: [[3 Nephi 18.24|3 Nephi 18:24]].
 
 #Priesthood #Testimony #Worthiness

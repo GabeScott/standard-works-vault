@@ -4,6 +4,3 @@
 
 [JST 1 Thessalonians 4:15](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-thes/4?lang=eng)
 
-
-
-

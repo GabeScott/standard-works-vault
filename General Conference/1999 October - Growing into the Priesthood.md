@@ -129,11 +129,11 @@ It is my prayer that we may all grow into the priesthood and be the kind of men 
 
 [^4]: See [[John 3.16|John 3:16]].
 
-[^5]: See [[2 Nephi 9.17|2 Ne. 9:17]]; [[Mosiah 29.12|Mosiah 29:12]].
+[^5]: See [[2 Nephi 9.17|2 Ne. 9:17]]; [[Mosiah 29.12|Mosiah 29:12]].
 
 [^6]: See [[Deuteronomy 4.31|Deut. 4:31]]; [[Alma 42.15|Alma 42:15]].
 
-[^7]: See [[Isaiah 54.8|Isa. 54:8]]; [[3 Nephi 22.8|3 Ne. 22:8]].
+[^7]: See [[Isaiah 54.8|Isa. 54:8]]; [[3 Nephi 22.8|3 Ne. 22:8]].
 
 [^8]: *History of the Church,* 5:135.
 
@@ -141,10 +141,8 @@ It is my prayer that we may all grow into the priesthood and be the kind of men 
 
 [^10]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-[^11]: [[2 Nephi 32.5|2 Ne. 32:5]].
+[^11]: [[2 Nephi 32.5|2 Ne. 32:5]].
 
 [^12]: *Church News,* 4 Sept. 1999, 3.
 
-
-
-#Commandments #God_The_Father #Gratitude #Holy_Ghost #Jesus_Christ #Joseph_Smith #Media #Music #Priesthood #Priorities #Prophets #Sacrament #Scripture_Study #Word_Of_Wisdom
+#Commandments #GodTheFather #Gratitude #HolyGhost #JosephSmith #JesusChrist #Media #Music #Priesthood #Priorities #Prophets #Sacrament #ScriptureStudy #WordOfWisdom

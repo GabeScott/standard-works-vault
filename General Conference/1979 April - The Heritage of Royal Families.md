@@ -1,6 +1,6 @@
 # The Heritage of Royal Families
 
-By Elder Royden G. Derrick - *Of the First Quorum of the Seventy*
+By Elder Royden G. Derrick - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -10,7 +10,7 @@ Those who believe in the Bible should not find it difficult to accept the experi
 
 “While I was thus in the act of calling upon God, I discovered a light appearing in my room, which continued to increase until the room was lighter than at noonday, when immediately a personage appeared at my bedside, standing in the air, for his feet did not touch the floor.
 
-“He had on a loose robe of most exquisite whiteness. … His hands were naked, and his arms also, a little above the wrist; so, also, were his feet naked, as were his legs, a little above the ankles. His head and neck were also bare. …
+“He had on a loose robe of most exquisite whiteness. … His hands were naked, and his arms also, a little above the wrist; so, also, were his feet naked, as were his legs, a little above the ankles. His head and neck were also bare. …
 
 “Not only was his robe exceedingly white, but his whole person was glorious beyond description, and his countenance \[was\] truly like lightning. The room was exceedingly light, but not so very bright as immediately around his person. When I first looked upon him, I was afraid; but the fear soon left me.” ([[Joseph Smith History 1.30|JS—H 1:30–32]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]].)
 
@@ -18,7 +18,7 @@ In the conversation that ensued, Moroni instructed Joseph Smith regarding valuab
 
 “Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet, before the coming of the great and dreadful day of the Lord.
 
-“… And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.” ([[Joseph Smith History 1.38|JS—H 1:38–39]][[Joseph Smith History 1.39|]].)
+“… And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.” ([[Joseph Smith History 1.38|JS—H 1:38–39]][[Joseph Smith History 1.39|]].)
 
 How could the gravity of this important message be more dramatically emphasized? We should not dismiss it lightly. It places upon our shoulders a sacred responsibility.
 
@@ -36,7 +36,7 @@ We have been given the responsibility by the Lord to do this work for all those 
 
 We estimate that there are available written records existing of the names and vital statistics of about 6 billion persons who died before a.d. 1900. Nearly all of those names are for people who lived between a.d. 1200 and 1900. Of these, we have microfilmed the records of about 1 billion and have completed the temple work for about 57 million. We estimate that there are 2.5 billion records of individuals available to acquire at this time, and another 2.5 billion that we anticipate will become available as the doors to other nations open to us. We are currently microfilming and storing in our vault 100 million additional names each year. Considering the value and perishability of these records, this is a great service not only to the Church but to the entire world.
 
-For many years we relied mainly upon family and individual genealogical research for obtaining names for proxy temple work. Beyond a few close generations, gathering names by family genealogical research is slow and inefficient. For example, in a recent presentation, Elder J. Thomas Fyans estimated that he has as many as 348 third cousins who have the same second-great-grandfather (see *Ensign,* Nov. 1978, p. 28). If each were to be searching for information on that same person, there would be untold duplication of effort.
+For many years we relied mainly upon family and individual genealogical research for obtaining names for proxy temple work. Beyond a few close generations, gathering names by family genealogical research is slow and inefficient. For example, in a recent presentation, Elder J. Thomas Fyans estimated that he has as many as 348 third cousins who have the same second-great-grandfather (see *Ensign,* Nov. 1978, p. 28). If each were to be searching for information on that same person, there would be untold duplication of effort.
 
 We commend you, and all of those who have gone before, who have so diligently researched your ancestry. Your effort, your faith, and your diligence have established a solid foundation for this work to proceed. You have earned the reputation for the city in which our Church is headquartered as being the genealogical center of the world. This reputation you have built has opened doors for the work to expand that may have otherwise remained closed.
 
@@ -58,7 +58,7 @@ Now, there is one more to which we must give more attention than we have in the 
 
 The televising of the film series “Roots,” and more recently “Roots II,” has stirred an interest in personal and family histories that the experts believe is here to stay. One of the major television networks recently expressed this belief and with our cooperation has filmed a documentary on this subject. In 1980, our World Conference on Records will be oriented toward the writing of personal and family histories. This will give members of the Church and others the opportunity of learning how it can be done from experts the world over.
 
-Have you ever dreamed of belonging to a royal family? A royal family has the authority to be such—received from one who has a right to bestow such an honor. You likely have a person holding such a dignified honor right in your own home. The Apostle Peter, addressing the Saints of his day, said, “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people” ([[1 Peter 2.9|1 Pet. 2:9]]). Don’t you have this same royal priesthood in your home?
+Have you ever dreamed of belonging to a royal family? A royal family has the authority to be such—received from one who has a right to bestow such an honor. You likely have a person holding such a dignified honor right in your own home. The Apostle Peter, addressing the Saints of his day, said, “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people” ([[1 Peter 2.9|1 Pet. 2:9]]). Don’t you have this same royal priesthood in your home?
 
 A royal family is a family whose members are honest, true, chaste, benevolent, virtuous, temperate, patient, charitable, humble, diligent, well read, and law-abiding. The Lord has cautioned, “But I have commanded you to bring up your children in light and truth” ([[D&C 93.40|D&C 93:40]]). He also instructed us, “And they shall … teach their children to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]). He further said, “Seek ye out of the best books words of wisdom; seek learning, even by study and also by faith” ([[D&C 88.118|D&C 88:118]]).
 
@@ -81,6 +81,4 @@ A royal family is not necessarily confined to the political kingdoms ruling the 
 
 
 
-
-
-#Family_History
+#FamilyHistory

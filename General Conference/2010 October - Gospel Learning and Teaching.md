@@ -20,7 +20,7 @@ A successful teacher and author said, “What matters most in learning is attitu
 
 Note that what matters most in learning is not the number of years a teacher has been a member of the Church or how much teaching experience a person has or even the teacher’s knowledge of the gospel or teaching techniques. What matters most is the attitude or spirit by which the teacher teaches.
 
-In a worldwide leadership training meeting, Elder Jeffrey R. Holland told this story: “For many years, I have loved the story that President Packer has told about William E. Berrett’s boyhood Sunday School teacher. An elderly Danish brother was called to teach a class of rowdy boys. … He didn’t speak the language very well; he still had a heavy Danish brogue; he was much older, with big farm hands. Yet he was to teach these young, rambunctious 15-year-olds. For all intents and purposes, it would not have seemed like a very good match. But Brother Berrett used to say—and this is the part President Packer quotes—that this man somehow taught them; that across all those barriers, across all those limitations, this man reached into the hearts of those rowdy 15-year-old kids and changed their lives. And Brother Berrett’s testimony was ‘We could have warmed our hands by the fire of his faith.’”[^2]
+In a worldwide leadership training meeting, Elder Jeffrey R. Holland told this story: “For many years, I have loved the story that President Packer has told about William E. Berrett’s boyhood Sunday School teacher. An elderly Danish brother was called to teach a class of rowdy boys. … He didn’t speak the language very well; he still had a heavy Danish brogue; he was much older, with big farm hands. Yet he was to teach these young, rambunctious 15-year-olds. For all intents and purposes, it would not have seemed like a very good match. But Brother Berrett used to say—and this is the part President Packer quotes—that this man somehow taught them; that across all those barriers, across all those limitations, this man reached into the hearts of those rowdy 15-year-old kids and changed their lives. And Brother Berrett’s testimony was ‘We could have warmed our hands by the fire of his faith.’”[^2]
 
 Successful gospel teachers love the gospel. They are excited about it. And because they love their students, they want them to feel as they feel and to experience what they have experienced. To teach the gospel is to share your love of the gospel.
 
@@ -30,7 +30,7 @@ How, then, do we develop the attitude necessary to be a successful teacher? I wo
 
 First, immerse yourself in the scriptures. We cannot love what we do not know. Develop a habit of daily scripture study, separate and apart from your lesson preparation. Before we can teach the gospel, we must know the gospel.
 
-President Thomas S. Monson still treasures the memory of his boyhood Sunday School teacher. He said: “It was my experience as a small boy to come under the influence of a most effective and inspired teacher who listened to us and who loved us. Her name was Lucy Gertsch. In our Sunday School class, she taught us concerning the Creation of the world, the Fall of Adam, the atoning sacrifice of Jesus. She brought to her classroom as honored guests Moses, Joshua, Peter, Thomas, Paul, and, of course, Christ. Though we did not see them, we learned to love, honor, and emulate them.”[^4]
+President Thomas S. Monson still treasures the memory of his boyhood Sunday School teacher. He said: “It was my experience as a small boy to come under the influence of a most effective and inspired teacher who listened to us and who loved us. Her name was Lucy Gertsch. In our Sunday School class, she taught us concerning the Creation of the world, the Fall of Adam, the atoning sacrifice of Jesus. She brought to her classroom as honored guests Moses, Joshua, Peter, Thomas, Paul, and, of course, Christ. Though we did not see them, we learned to love, honor, and emulate them.”[^4]
 
 Lucy Gertsch was able to invite these honored guests into her classroom because she knew them. They were her cherished friends. Because of that, her class also learned to “love, honor, and emulate them.”
 
@@ -58,7 +58,7 @@ The promises of the Lord are certain. If you earnestly search the scriptures and
 
 Fourth, brothers and sisters, it is of utmost importance that we exercise our agency and act, without delay, in accordance with the spiritual promptings we receive.
 
-President Thomas S. Monson taught: “We watch. We wait. We listen for that still, small voice. When it speaks, wise men and women obey. Promptings of the Spirit are not to be postponed.”[^16]
+President Thomas S. Monson taught: “We watch. We wait. We listen for that still, small voice. When it speaks, wise men and women obey. Promptings of the Spirit are not to be postponed.”[^16]
 
 You must not be afraid to exercise your agency and act upon the thoughts and impressions that the Spirit of the Lord puts into your heart. You may feel awkward at first, but I promise you that the sweetest and most gratifying experiences you will have as a teacher will be when you submit to the will of the Lord and follow the promptings you receive from the Holy Ghost. Your experiences will strengthen your faith and give you greater courage to act in the future.
 
@@ -69,17 +69,17 @@ Dear teachers, you are one of the great miracles of this Church. You have a sacr
 
 [^1]: David McCullough, “Teach Them What You Love” (address given in the Salt Lake Tabernacle, Salt Lake City, Utah, May 9, 2009).
 
-[^2]: Jeffrey R. Holland, “Teaching and Learning in the Church,” *Liahona,* June 2007, 72; *Ensign,* June 2007, 104.
+[^2]: Jeffrey R. Holland, “Teaching and Learning in the Church,” *Liahona,* June 2007, 72; *Ensign,* June 2007, 104.
 
 [^3]: See McCullough, “Teach Them What You Love.”
 
-[^4]: Thomas S. Monson, “Examples of Great Teachers,” *Liahona,* June 2007, 76; *Ensign,* June 2007, 108.
+[^4]: Thomas S. Monson, “Examples of Great Teachers,” *Liahona,* June 2007, 76; *Ensign,* June 2007, 108.
 
 [^5]: [[D&C 11.21|Doctrine and Covenants 11:21]].
 
 [^6]: See [[John 5.39|John 5:39]].
 
-[^7]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^7]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^8]: See [[Joseph Smith Matthew 1.37|Joseph Smith—Matthew 1:37]].
 
@@ -93,12 +93,10 @@ Dear teachers, you are one of the great miracles of this Church. You have a sacr
 
 [^13]: See *Teaching, No Greater Call,* 60–62.
 
-[^14]: J. Reuben Clark Jr., *The Charted Course of the Church in Education* (address given to seminary and institute leaders at Aspen Grove, Utah, Aug. 8, 1938), 6.
+[^14]: J. Reuben Clark Jr., *The Charted Course of the Church in Education* (address given to seminary and institute leaders at Aspen Grove, Utah, Aug. 8, 1938), 6.
 
 [^15]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 132.
 
-[^16]: Thomas S. Monson, “The Spirit Giveth Life,” *Liahona* and *Ensign,* June 1997, 4.
+[^16]: Thomas S. Monson, “The Spirit Giveth Life,” *Liahona* and *Ensign,* June 1997, 4.
 
-
-
-#Holy_Ghost #Learning #Scripture_Study #Teaching
+#HolyGhost #Learning #ScriptureStudy #Teaching

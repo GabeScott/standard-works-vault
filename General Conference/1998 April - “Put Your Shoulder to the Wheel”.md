@@ -60,15 +60,13 @@ When the time comes, young men, make your career choices. Know that whether one 
 
 Now, whether holders of the Aaronic or the Melchizedek Priesthood, at no time has it been more important for you to know *who* you are than in today’s world. For a long, long time, each of you has been part of a great and ongoing drama. You were actually with God in the beginning (see [[D&C 93.29|D&C 93:29]]). You were at the grand, premortal council when, as His spirit sons, you shouted for joy over the prospect of this mortal experience in furtherance of Heavenly Father’s plan of salvation.
 
-Further drama lies ahead for the faithful, including one day when every knee shall bow and every tongue confess that Jesus is the Christ, and when all will acknowledge that God is God, and that He is perfect in His justice and mercy (see [[Mosiah 27.31|Mosiah 27:31]]; [[Mosiah 16.1|16:1]]; [[Alma 12.15|Alma 12:15]]). Those who love the Lord will inherit His celestial kingdom, where eye hath not seen, nor ear heard, such things as the Lord hath prepared for them (see [[1 Corinthians 2.9|1 Cor. 2:9]]). Jesus has already worked to prepare such a glorious place for us.
+Further drama lies ahead for the faithful, including one day when every knee shall bow and every tongue confess that Jesus is the Christ, and when all will acknowledge that God is God, and that He is perfect in His justice and mercy (see [[Mosiah 27.31|Mosiah 27:31]]; [[Mosiah 16.1|16:1]]; [[Alma 12.15|Alma 12:15]]). Those who love the Lord will inherit His celestial kingdom, where eye hath not seen, nor ear heard, such things as the Lord hath prepared for them (see [[1 Corinthians 2.9|1 Cor. 2:9]]). Jesus has already worked to prepare such a glorious place for us.
 
 My brethren, old and young, *sweeping* is the only way to describe your spiritual history and your possible future! There will always be plenty of work to do, especially for those who know how to do the Lord’s work! I gladly endorse what President Hinckley has declared, namely that “we have the finest generation of young people ever in the history of this Church” (*Teachings of Gordon B. Hinckley* \[1997\], 714; see also Conference Report, Apr. 1992, 96; or *Ensign,* May 1992, 69).
 
 I believe in your future possibilities. You are special spirits sent to do special chores. It is toward those chores that I have tried to give you a friendly nudge tonight!
 
 I love you! May God bless you and keep you on that path that will take you home is my prayer in the holy name of Jesus Christ, amen!
-
-
 
 
 

@@ -1,16 +1,16 @@
 # “The Gospel of Jesus Christ Is the Golden Door”
 
-By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1973 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1973/10/the-gospel-of-jesus-christ-is-the-golden-door?lang=eng)
 
-At a news conference in Mexico City after the area conference, President Marion G. Romney was invited by a newsman to answer a question. The question was this: Do you have a welfare program in your church? And President Romney responded, “Yes, and if you join the Church, you can contribute to it also.”
+At a news conference in Mexico City after the area conference, President Marion G. Romney was invited by a newsman to answer a question. The question was this: Do you have a welfare program in your church? And President Romney responded, “Yes, and if you join the Church, you can contribute to it also.”
 
 That is a true principle of welfare and one that we should understand. Welfare is literally giving and not receiving in the Church of Jesus Christ.
 
-In the 107th section of the Doctrine and Covenants, we read: “The office of a bishop is in administering all temporal things;” and also to be a judge in Israel, “to do the business of the church, to sit in judgment upon transgressors. …” ([[D&C 107.68|D&C 107:68, 72]][[D&C 107.72|]].)
+In the 107th section of the Doctrine and Covenants, we read: “The office of a bishop is in administering all temporal things;” and also to be a judge in Israel, “to do the business of the church, to sit in judgment upon transgressors. …” ([[D&C 107.68|D&C 107:68, 72]][[D&C 107.72|]].)
 
 And then in the 72nd section, we read that he is to keep the bishops storehouse. ([[D&C 72.10|D&C 72:10]].)
 
@@ -54,7 +54,7 @@ I believe King Benjamin laid it on the line with us, brethren. Now think about t
 
 Now I would like to switch to a subject that I feel is welfare service-oriented. As President Lee discussed in his talk the great compromise in many different areas, I want to tell you what is going on in the area of work. The subject I would like to address myself to the young men of the Church is *work.* Brethren, there is no substitute for work. You cannot be lazy. Businesses who say, “Come with us and work for us; the wages are high and the labor is easy; the work week has been reduced considerably,” have only shame to offer. You are destroying your soul and character when you accept such an offer. The Lord expects us to be industrious; he expects us to be mentally and physically ambitious with all our hearts and souls. And I promise you this—that this compromise work attitude never was what the Lord intended.
 
-President J. Reuben Clark said: “We must purge our hearts of the love of ease; we must put from our lives the curse of idleness.” And then President Lee has said, “The greatest poverty is the poverty of desire.” President Kimball said, “Only the mediocre person is always at his best.” And Brother Thomas S. Monson has said in his W formula: “Work will win when wishy-washy wishing won’t.” Dorothea Brande in her book *Wake Up and Live* (Cornerstone Library, Inc., New York, 1968), says that we ought to “act as though it were impossible to fail.” That is true, brethren, in the Church. The Lord wants us to be successful, and it is especially true here.
+President J. Reuben Clark said: “We must purge our hearts of the love of ease; we must put from our lives the curse of idleness.” And then President Lee has said, “The greatest poverty is the poverty of desire.” President Kimball said, “Only the mediocre person is always at his best.” And Brother Thomas S. Monson has said in his W formula: “Work will win when wishy-washy wishing won’t.” Dorothea Brande in her book *Wake Up and Live* (Cornerstone Library, Inc., New York, 1968), says that we ought to “act as though it were impossible to fail.” That is true, brethren, in the Church. The Lord wants us to be successful, and it is especially true here.
 
 There is a modern-day version of “The Little Red Hen” that I would like to leave with you. I think it is very impressive. It is simply this:
 
@@ -105,7 +105,7 @@ I am indebted to a good friend of mine, Aldin Porter, for a story and I would li
 
 “‘Don’t you live in that green house with the willow trees in the next block?’
 
-“‘Yes, ma’am.’ …
+“‘Yes, ma’am.’ …
 
 “‘Good. I’ve lost my gardener. Be at my house Thursday morning at seven, and don’t tell me you have something else to do; I’ve seen you slouching around on Thursdays.’
 
@@ -169,7 +169,7 @@ I am indebted to a good friend of mine, Aldin Porter, for a story and I would li
 
 “She could see she was right by the startled look on my face.
 
-“‘I know how you felt, because the same thing happens to almost everyone. They feel this sudden burst in them of wanting to do some great thing. They feel a wonderful happiness, but then it passes because they have said, “No, I can’t do that. It’s impossible.” Whenever something in you says, “It’s impossible,” remember to take a careful look and see if it isn’t really God asking you to grow an inch, or a foot, or a mile, that you may come to a fuller life.’ …
+“‘I know how you felt, because the same thing happens to almost everyone. They feel this sudden burst in them of wanting to do some great thing. They feel a wonderful happiness, but then it passes because they have said, “No, I can’t do that. It’s impossible.” Whenever something in you says, “It’s impossible,” remember to take a careful look and see if it isn’t really God asking you to grow an inch, or a foot, or a mile, that you may come to a fuller life.’ …
 
 “Since that time, some 25 years ago, when I have felt myself at an end with nothing before me, suddenly, with the appearance of that word, ‘impossible,’ I have experienced the unexpected lift, the leap inside me, and known that the only possible way lay through the very middle of impossible.” (Richard Thurman, “The Countess and the Impossible,” *Reader’s Digest,* June 1958.)
 
@@ -185,8 +185,6 @@ Emma Lazarus has written words which describe the great Statue of Liberty. These
 >
 
 The gospel of Jesus Christ is the golden door, in the name of Jesus Christ, Amen.
-
-
 
 
 

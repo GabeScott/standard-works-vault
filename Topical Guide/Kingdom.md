@@ -1,6 +1,5 @@
 # Kingdom
 
-
 *See also* [[Dominion.md|Dominion]]; [[Heaven.md|Heaven]]; [[Kingdom of God, in Heaven.md|Kingdom of God, in Heaven]]; [[Kingdom of God, on Earth.md|Kingdom of God, on Earth]]; [[Reign.md|Reign]]; [[Rule.md|Rule]]
 
 beginning of his *kingdom* was Babel, [[Genesis 10.10|Genesis 10:10]].
@@ -15,7 +14,7 @@ I will establish his *kingdom*, [[2 Samuel 7.12|2 Samuel 7:12]] ([[1 Chronicles 
 
 thine is the *kingdom*, O Lord, [[1 Chronicles 29.11|1 Chronicles 29:11]].
 
-*kingdom* is the Lord's, [[Psalms 22.28|Psalms 22:28]].
+*kingdom* is the Lord’s, [[Psalms 22.28|Psalms 22:28]].
 
 sceptre of thy *kingdom* is a right sceptre, [[Psalms 45.6|Psalms 45:6]] ([[Hebrews 1.8|Hebrews 1:8]]).
 
@@ -43,7 +42,7 @@ Not every one that saith unto me, Lord, Lord, shall enter into the *kingdom*, [[
 
 *kingdom* divided against itself, [[Matthew 12.25|Matthew 12:25]] ([[Mark 3.24|Mark 3:24]]; [[Luke 11.17|Luke 11:17]]).
 
-Except ye ... become as little children, ye shall not enter into the *kingdom*, [[Matthew 18.3|Matthew 18:3]].
+Except ye … become as little children, ye shall not enter into the *kingdom*, [[Matthew 18.3|Matthew 18:3]].
 
 of such is the *kingdom* of heaven, [[Matthew 19.14|Matthew 19:14]] ([[Mark 10.14|Mark 10:14]]; [[Luke 18.16|Luke 18:16]]).
 
@@ -55,7 +54,7 @@ Blessed be the *kingdom* of our father David, [[Mark 11.10|Mark 11:10]].
 
 of his *kingdom* there shall be no end, [[Luke 1.33|Luke 1:33]].
 
-No man ... looking back, is fit for the *kingdom*, [[Luke 9.62|Luke 9:62]].
+No man … looking back, is fit for the *kingdom*, [[Luke 9.62|Luke 9:62]].
 
 be born again, he cannot see the *kingdom* of God, [[John 3.3|John 3:3]].
 
@@ -81,11 +80,11 @@ give their *kingdom* unto the beast, [[Revelation 17.17|Revelation 17:17]].
 
 I looked and beheld many nations and *kingdoms*, [[1 Nephi 13.1|1 Nephi 13:1]].
 
-*kingdom* of the devil, which shall be built up among ... men, [[1 Nephi 22.22|1 Nephi 22:22]] ([[Alma 41.4|Alma 41:4]]).
+*kingdom* of the devil, which shall be built up among … men, [[1 Nephi 22.22|1 Nephi 22:22]] ([[Alma 41.4|Alma 41:4]]).
 
 my hand hath founded the *kingdoms* of the idols, [[2 Nephi 20.10|2 Nephi 20:10]].
 
-*kingdoms* of the world ... not arrayed like one of these, [[D&C 84.82|D&C 84:82]].
+*kingdoms* of the world … not arrayed like one of these, [[D&C 84.82|D&C 84:82]].
 
 I will rend their *kingdoms*, [[D&C 84.118|D&C 84:118]].
 
@@ -95,13 +94,13 @@ there are many *kingdoms*, [[D&C 88.37|D&C 88:37]].
 
 unto every *kingdom* is given a law, [[D&C 88.38|D&C 88:38]].
 
-unto this parable I will liken all these *kingdoms*, [[D&C 88.61|D&C 88:61]] ([[D&C 88.51|88:51-61]][[D&C 88.52|]][[D&C 88.53|]][[D&C 88.54|]][[D&C 88.55|]][[D&C 88.56|]][[D&C 88.57|]][[D&C 88.58|]][[D&C 88.59|]][[D&C 88.60|]][[D&C 88.61|]]).
+unto this parable I will liken all these *kingdoms*, [[D&C 88.61|D&C 88:61]].
 
 knowledge also of countries and of *kingdoms*, [[D&C 88.79|D&C 88:79]] ([[D&C 93.53|D&C 93:53]]).
 
 until the *kingdoms* of the world are subdued, [[D&C 103.7|D&C 103:7]].
 
-*kingdoms* of this world ... acknowledge that the *kingdom* of Zion is ... the *kingdom* of our God, [[D&C 105.32|D&C 105:32]].
+*kingdoms* of this world … acknowledge that the *kingdom* of Zion is … the *kingdom* of our God, [[D&C 105.32|D&C 105:32]].
 
 ye must be born again into the *kingdom* of heaven, [[Moses 6.59|Moses 6:59]].
 

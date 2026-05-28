@@ -39,6 +39,4 @@ God lives, Jesus is the Christ, Joseph Smith in fact saw God and His Son and rec
 
 
 
-
-
 #Listening #Service

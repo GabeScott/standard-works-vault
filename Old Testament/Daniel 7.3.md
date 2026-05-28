@@ -6,4 +6,4 @@
 
 
 [^a]: [[Symbolism|TG Symbolism]].  
-[^b]: [[Revelation 13.1|Rev. 13:1 (1–2)]][[Revelation 13.2|]]; [[Revelation 13.note1a|JST Rev. 13:1 (Rev. 13:1 note a)]].  
+[^b]: [[Revelation 13.1|Rev. 13:1 (1–2)]][[Revelation 13.2|]]; [[Revelation 13.1|JST Rev. 13:1 (Rev. 13:1 note a)]].  

@@ -12,7 +12,7 @@ When I was 17, I made an agreement with my friend José Luis to teach him how to
 
 I threw myself into the water and swam toward him while praying for help. As I grabbed his hand to pull him to the surface, my desperate friend climbed onto my back and put me in a choke hold. Now we were both drowning. Trying my best to reach the surface, I prayed with all my might for a miracle from God. Then, slowly but steadily, the power of God was manifest as I felt a hand propelling me toward the shallow end of the pool, bringing us to safety.
 
-This experience confirmed a profound lesson President Russell M. Nelson once taught: “When you reach up for the Lord’s power in your life with the same intensity that a drowning person has when grasping and gasping for air, power from Jesus Christ will be yours.”[^1]
+This experience confirmed a profound lesson President Russell M. Nelson once taught: “When you reach up for the Lord’s power in your life with the same intensity that a drowning person has when grasping and gasping for air, power from Jesus Christ will be yours.”[^1]
 
 Dear children and young people, today I want to talk to you about the essential principle of faith in Jesus Christ.
 
@@ -46,7 +46,7 @@ Years later, as I came to know Jesus Christ better, I already knew how to base m
 
 Do you understand why “faith is a principle of action”[^13] and that “without faith it is impossible to please \[God\]”?[^14]
 
-As you try to do what pleases Him,[^15] you will say, like Joseph in Egypt when he was tempted by Potiphar’s wife, “How then can I do this great wickedness, and sin against God?”[^16] And when faced with opposition, you will say, like the young Prophet Joseph, “I knew it, and I knew that God knew it, and I could not deny it; … I knew that by so doing I would offend God.”[^17]
+As you try to do what pleases Him,[^15] you will say, like Joseph in Egypt when he was tempted by Potiphar’s wife, “How then can I do this great wickedness, and sin against God?”[^16] And when faced with opposition, you will say, like the young Prophet Joseph, “I knew it, and I knew that God knew it, and I could not deny it; … I knew that by so doing I would offend God.”[^17]
 
 So faith in Jesus Christ is a bond of trust forged in loyalty[^18] and love. In other words, in gratitude for God’s merciful love (*hesed*[^19]), we show our loyal love (*emunah*[^20]) by keeping His commandments.
 
@@ -77,31 +77,31 @@ I testify to you of the joy that comes from singing “the song of redeeming lov
 
 
 
-[^1]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 42.
+[^1]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 42.
 
 [^2]: The word *faith* comes from the Latin *fides*, which means “to trust” (see Michiel de Vaan, *Etymological Dictionary of Latin and the Other Italic Languages* \[2008\], “fido”). The Greek cognate, πίστις, translates as “trusting” (see Robert Beekes, *Etymological Dictionary of Greek* \[2010\], 1:1161–62).
 
-[^3]: “Faith is confidence and trust in Jesus Christ” (Guide to the Scriptures, “[Faith](https://churchofjesuschrist.org/study/scriptures/gs/faith?lang=eng&id=p1#p1),” Gospel Library).
+[^3]: “Faith is confidence and trust in Jesus Christ” (Guide to the Scriptures, “[Faith](https://www.churchofjesuschrist.org/study/scriptures/gs/faith?lang=eng&id=p1#p1),” Gospel Library).
 
-[^4]: See “[Look unto Christ](https://churchofjesuschrist.org/study/video/face-to-face-events/2025-january-worldwide-discussion-for-youth-look-unto-christ?lang=eng)” (worldwide discussion for youth, Jan. 5, 2025), Gospel Library; see also Alexander Dushku, “[[2024 April - Pillars and Rays.md|Pillars and Rays]],” *Liahona*, May 2024, 14–16.
+[^4]: See “[Look unto Christ](https://www.churchofjesuschrist.org/study/video/face-to-face-events/2025-january-worldwide-discussion-for-youth-look-unto-christ?lang=eng)” (worldwide discussion for youth, Jan. 5, 2025), Gospel Library; see also Alexander Dushku, “[[2024 April - Pillars and Rays.md|Pillars and Rays]],” *Liahona*, May 2024, 14–16.
 
-[^5]: See Neil L. Andersen, “[[2020 April - Spiritually Defining Memories.md|Spiritually Defining Memories]],” *Ensign* or *Liahona*, May 2020, 18–22.
+[^5]: See Neil L. Andersen, “[[2020 April - Spiritually Defining Memories.md|Spiritually Defining Memories]],” *Ensign* or *Liahona*, May 2020, 18–22.
 
-[^6]: See [[2 Corinthians 3.2|2 Corinthians 3:2–3]][[2 Corinthians 3.3|]]; see also [[Moroni 10.3|Moroni 10:3]]; Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 88–92.
+[^6]: See [[2 Corinthians 3.2|2 Corinthians 3:2–3]][[2 Corinthians 3.3|]]; see also [[Moroni 10.3|Moroni 10:3]]; Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 88–92.
 
-[^7]: See Ronald A. Rasband, “[[2017 October - By Divine Design.md|By Divine Design]],” *Ensign* or *Liahona*, Nov. 2017, 55–57.
+[^7]: See Ronald A. Rasband, “[[2017 October - By Divine Design.md|By Divine Design]],” *Ensign* or *Liahona*, Nov. 2017, 55–57.
 
 [^8]: See [[Mosiah 2.20|Mosiah 2:20–21]][[Mosiah 2.21|]]; [[D&C 59.21|Doctrine and Covenants 59:21]].
 
 [^9]: See “[Appendix 1: Sixth Theological Lecture on Faith](https://www.josephsmithpapers.org/paper-summary/appendix-1-sixth-theological-lecture-on-faith-circa-january-may-1835-as-published-in-latter-day-saints-messenger-and-advocate/1), circa January–May 1835, as Published in *Latter Day Saints’ Messenger and Advocate*,” 124–25, josephsmithpapers.org.
 
-[^10]: See [[Moroni 7.41|Moroni 7:41]]; see also Stephen M. R. Covey and Rebecca R. Merrill, *The Speed of Trust: The One Thing That Changes Everything* (2006), 215.
+[^10]: See [[Moroni 7.41|Moroni 7:41]]; see also Stephen M. R. Covey and Rebecca R. Merrill, *The Speed of Trust: The One Thing That Changes Everything* (2006), 215.
 
-[^11]: [[2 Nephi 4.21|2 Nephi 4:21]].
+[^11]: [[2 Nephi 4.21|2 Nephi 4:21]].
 
-[^12]: “God is my friend. In him I shall find comfort. … I desire to be with Christ. I count not my life dear to me \[except\] to do his will” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 243–44).
+[^12]: “God is my friend. In him I shall find comfort. … I desire to be with Christ. I count not my life dear to me \[except\] to do his will” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-20?lang=eng&id=p17#p17)* \[2007\], 243–44).
 
-[^13]: Bible Dictionary, “[Faith](https://churchofjesuschrist.org/study/scriptures/bd/faith?lang=eng&id=p2#p2).”
+[^13]: Bible Dictionary, “[[BD Faith|Faith]].”
 
 [^14]: [[Hebrews 11.6|Hebrews 11:6]].
 
@@ -111,45 +111,46 @@ I testify to you of the joy that comes from singing “the song of redeeming lov
 
 [^17]: [[Joseph Smith History 1.25|Joseph Smith—History 1:25]].
 
-[^18]: President Gordon B. Hinckley taught, “Pray to your Heavenly Father in the name of the Lord Jesus Christ, and always, under all circumstances, by the very nature of your lives show your loyalty and your love” (“[[2003 April - Loyalty.md|Loyalty]],” *Ensign* or *Liahona*, May 2003, 60; see also Brent J. Schmidt, *Relational Faith: The Transformation and Restoration of Pistis as Knowledge, Trust, Confidence, and Covenantal Faithfulness* \[2022\], 9; Teresa Morgan, *Roman Faith and Christian Faith: Pistis and Fides in the Early Roman Empire and Early Churches* \[2015\], 127–28).
+[^18]: President Gordon B. Hinckley taught, “Pray to your Heavenly Father in the name of the Lord Jesus Christ, and always, under all circumstances, by the very nature of your lives show your loyalty and your love” (“[[2003 April - Loyalty.md|Loyalty]],” *Ensign* or *Liahona*, May 2003, 60; see also Brent J. Schmidt, *Relational Faith: The Transformation and Restoration of Pistis as Knowledge, Trust, Confidence, and Covenantal Faithfulness* \[2022\], 9; Teresa Morgan, *Roman Faith and Christian Faith: Pistis and Fides in the Early Roman Empire and Early Churches* \[2015\], 127–28).
 
-[^19]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 4–11.
+[^19]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 4–11.
 
-[^20]: “The Hebrew word for faith is אמונה (*emunah*) and is an action oriented word meaning ‘support.’ … \[It\] places the action on the one who ‘supports God.’ It is not a knowing that God will act, but rather I will do what I can to support God. This idea of support for the word *emunah* can be seen in [[Exodus 17.12|Exodus 17:12]]. … It is the support/*emunah* of Aaron and Hur that held \[up\] Moses’ arms, not the support/*emunah* of Moses. When we say, ‘I have faith in God,’ we should be thinking, ‘I will do what I can to support God’” (Jeff A. Benner, “Faith,” Ancient Hebrew Research Center, ancient-hebrew.org).
+[^20]: “The Hebrew word for faith is אמונה (*emunah*) and is an action oriented word meaning ‘support.’ … \[It\] places the action on the one who ‘supports God.’ It is not a knowing that God will act, but rather I will do what I can to support God. This idea of support for the word *emunah* can be seen in [[Exodus 17.12|Exodus 17:12]]. … It is the support/*emunah* of Aaron and Hur that held \[up\] Moses’ arms, not the support/*emunah* of Moses. When we say, ‘I have faith in God,’ we should be thinking, ‘I will do what I can to support God’” (Jeff A. Benner, “Faith,” Ancient Hebrew Research Center, ancient-hebrew.org).
 
 [^21]: [[John 14.21|John 14:21]]; see also [[John 14.23|verse 23]].
 
 [^22]: See [[John 15.9|John 15:9–10]][[John 15.10|]].
 
-[^23]: See Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” 39–42.
+[^23]: See Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” 39–42.
 
 [^24]: [[D&C 6.36|Doctrine and Covenants 6:36]].
 
-[^25]: See Neil L. Andersen, “[[2015 October - Faith Is Not by Chance, but by Choice.md|Faith Is Not by Chance, but by Choice]],” *Ensign* or *Liahona*, Nov. 2015, 65–68.
+[^25]: See Neil L. Andersen, “[[2015 October - Faith Is Not by Chance, but by Choice.md|Faith Is Not by Chance, but by Choice]],” *Ensign* or *Liahona*, Nov. 2015, 65–68.
 
-[^26]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 99.
+[^26]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 99.
 
-[^27]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
+[^27]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
 
-[^28]: See Russell M. Nelson, “[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign*, May 1995, 32–35.
+[^28]: See Russell M. Nelson, “[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign*, May 1995, 32–35.
 
-[^29]: “*Jesus is my friend.* None other has given me so much. … I hope that I am deemed worthy of being a friend to Him” (Gordon B. Hinckley, “[[2000 April - My Testimony.md|My Testimony]],” *Ensign*, May 2000, 71; *Liahona*, July 2000, 85).
+[^29]: “*Jesus is my friend.* None other has given me so much. … I hope that I am deemed worthy of being a friend to Him” (Gordon B. Hinckley, “[[2000 April - My Testimony.md|My Testimony]],” *Ensign*, May 2000, 71; *Liahona*, July 2000, 85).
 
 [^30]: See [[John 6.67|John 6:67–68]][[John 6.68|]]; [[D&C 6.20|Doctrine and Covenants 6:20]].
 
-[^31]: See Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library; Richard G. Scott, *21 Principles: Divine Truths to Help You Live by the Spirit* (2013), 90.
+[^31]: See Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library; Richard G. Scott, *21 Principles: Divine Truths to Help You Live by the Spirit* (2013), 90.
 
 [^32]: See [[Alma 48.17|Alma 48:17]].
 
 [^33]: See [[Mosiah 4.2|Mosiah 4:2]]; [[Alma 36.18|Alma 36:18]].
 
-[^34]: See Thomas S. Monson, “[[2009 April - Be of Good Cheer.md|Be of Good Cheer]],” *Ensign* or *Liahona*, May 2009, 92.
+[^34]: See Thomas S. Monson, “[[2009 April - Be of Good Cheer.md|Be of Good Cheer]],” *Ensign* or *Liahona*, May 2009, 92.
 
 [^35]: See [[Isaiah 58.9|Isaiah 58:9]]; [[Helaman 10.4|Helaman 10:4–5]][[Helaman 10.5|]]; [[Ether 12.30|Ether 12:30]]; [[Moroni 7.33|Moroni 7:33]].
 
-[^36]: See [[2 Nephi 25.23|2 Nephi 25:23]].
+[^36]: See [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^37]: [[Alma 5.26|Alma 5:26]]; see also [[Alma 5.9|Alma 5:9]]; [[Alma 26.13|26:13]].
 
+[^38]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
-#Adversity #Faith #Hope #Jesus_Christ #Loyalty #Prayer #Trust
+#Adversity #Faith #Hope #JesusChrist #Loyalty #Prayer #Trust

@@ -22,7 +22,7 @@ Today I speak to Jim and many others like him—young men and young women across
 
 I also speak to those adults who have not yet felt deeply the spirit of the gospel in their lives. In the absence of a compelling testimony, some have let their daily thoughts and actions become so focused on the things of the world that they have minimized the influence of the light of the gospel in their everyday lives.
 
-And then as Elder Neal A. Maxwell has so eloquently described, also included are those “‘honorable’ members who are skimming over the surface instead of deepening their discipleship and who are casually engaged rather than ‘anxiously engaged’ ([[D&C 76.75|D&C 76:75]]; [[D&C 58.27|58:27]])” (in Conference Report, Oct. 1992, 89; or *Ensign,* Nov. 1992, 65).
+And then as Elder Neal A. Maxwell has so eloquently described, also included are those “‘honorable’ members who are skimming over the surface instead of deepening their discipleship and who are casually engaged rather than ‘anxiously engaged’ ([[D&C 76.75|D&C 76:75]]; [[D&C 58.27|58:27]])” (in Conference Report, Oct. 1992, [[1992 October - “Settle This in Your Hearts”.md|89]]; or *Ensign,* Nov. 1992, 65).
 
 As I attended the funeral services of Elder Neal A. Maxwell and Elder David B. Haight and listened to their well-deserved tributes, I more fully internalized the extraordinary examples of testimony and discipleship that the lives of these two great brethren demonstrated. I kept pondering how their examples could help strengthen our testimonies and deepen our resolve to come closer to Christ.
 
@@ -32,7 +32,7 @@ Surely President Hinckley’s counsel and encouragement applies as much to the d
 
 True testimonies bring the light of the restored gospel of Jesus Christ into our lives and focus all of us toward the same goal of returning to our Father in Heaven—yet our individual testimonies come through varied experiences and at different stages in our lives.
 
-Like Jim, as a young man I was privileged to have “goodly parents” ([[1 Nephi 1.1|1 Nephi 1:1]]). They taught gospel principles and values to our family by precept and example. As a young boy I thought I had a testimony. I believed! Then came some personal spiritual experiences through faith, prayer, scripture study, and especially father’s blessings in our home that caused me to think more seriously about the principles I had been taught and believed—but even more deeply about what I was beginning to feel. I will be forever grateful to parents who helped coach me through those precious spiritual experiences. They have had a lasting impact on me and on the strength of my testimony.
+Like Jim, as a young man I was privileged to have “goodly parents” ([[1 Nephi 1.1|1 Nephi 1:1]]). They taught gospel principles and values to our family by precept and example. As a young boy I thought I had a testimony. I believed! Then came some personal spiritual experiences through faith, prayer, scripture study, and especially father’s blessings in our home that caused me to think more seriously about the principles I had been taught and believed—but even more deeply about what I was beginning to feel. I will be forever grateful to parents who helped coach me through those precious spiritual experiences. They have had a lasting impact on me and on the strength of my testimony.
 
 I think Alma must have had us in mind as he was teaching the Zoramites how to gain testimonies of the truth:
 
@@ -87,6 +87,4 @@ May we have the courage and the conviction to follow the prophet’s counsel. As
 
 
 
-
-
-#Holy_Ghost #Prayer #Scripture_Study #Testimony
+#HolyGhost #Prayer #ScriptureStudy #Testimony

@@ -1,6 +1,5 @@
 # Army
 
-
 *See also* [[Host.md|Host]]; [[Soldier.md|Soldier]]
 
 hand upon Egypt, and bring forth mine *armies*, [[Exodus 7.4|Exodus 7:4]].
@@ -15,7 +14,7 @@ came out of the city, and the *army* which followed them, [[1 Kings 20.19|1 King
 
 Is there any number of his *armies*, [[Job 25.3|Job 25:3]].
 
-Pharaoh's *army* was come forth out of Egypt, [[Jeremiah 37.5|Jeremiah 37:5]].
+Pharaoh’s *army* was come forth out of Egypt, [[Jeremiah 37.5|Jeremiah 37:5]].
 
 upon their feet, an exceeding great *army*, [[Ezekiel 37.10|Ezekiel 37:10]].
 
@@ -27,8 +26,8 @@ then came I with an *army*, and rescued him, [[Acts 23.27|Acts 23:27]].
 
 turned to flight the *armies* of the aliens, [[Hebrews 11.34|Hebrews 11:34]].
 
-*armies* ... in heaven followed him, [[Revelation 19.14|Revelation 19:14]].
+*armies* … in heaven followed him, [[Revelation 19.14|Revelation 19:14]].
 
-against Michael and his *armies*, [[D&C 88.113|D&C 88:113]] ([[D&C 88.111|88:111-14]][[D&C 88.112|]][[D&C 88.113|]][[D&C 88.114|]]).
+against Michael and his *armies*, [[D&C 88.113|D&C 88:113]].
 
 until the *army* of Israel becomes very great, [[D&C 105.26|D&C 105:26]].

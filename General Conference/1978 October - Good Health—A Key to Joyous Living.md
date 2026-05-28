@@ -1,6 +1,6 @@
 # Good Health—A Key to Joyous Living
 
-By Barbara B. Smith - *Relief Society General President*
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -10,7 +10,7 @@ Robert Browning’s joyful line, “God’s in his heaven—all’s right with t
 
 The state of our health affects every facet of our life—our feeling of personal well-being, our approach to work, our social interactions—even our service to the Lord.
 
-Physical ills are a reality of life, but in spite of them the scriptures declare, “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]). The Lord has affirmed this statement by providing us with revealed instructions concerning our health, which, if followed, will increase both the length of our life and our joy in it.
+Physical ills are a reality of life, but in spite of them the scriptures declare, “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]). The Lord has affirmed this statement by providing us with revealed instructions concerning our health, which, if followed, will increase both the length of our life and our joy in it.
 
 Among the most familiar of the health scriptures is the eighty-ninth section of the Doctrine and Covenants, wherein the Lord specifies both substances that are for our use and those which are detrimental to us.
 
@@ -57,8 +57,6 @@ In summary, our physical health goals should be—
 5. To learn and practice home health skills.
 
 May the application of these principles help each of us live joyously, I pray, in the name of Jesus Christ. Amen.
-
-
 
 
 

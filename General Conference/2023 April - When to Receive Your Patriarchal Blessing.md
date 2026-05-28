@@ -8,7 +8,7 @@ By Elder Kazuhiko Yamashita - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/04/44yamashita?lang=eng)
 
-Yesterday my dear friend Elder Randall K. Bennett talked about patriarchal blessings. It was a great message and inspired us all. My dear brothers and sisters, may I talk about patriarchal blessings as well? Patriarchs, as requests for patriarchal blessings may increase, I pray that the Lord will bless you as you continue to magnify your calling.
+Yesterday my dear friend Elder Randall K. Bennett talked about patriarchal blessings. It was a great message and inspired us all. My dear brothers and sisters, may I talk about patriarchal blessings as well? Patriarchs, as requests for patriarchal blessings may increase, I pray that the Lord will bless you as you continue to magnify your calling.
 
 As I go to stake conferences, I always visit with the stake patriarch and his spouse. Patriarchs are gentle, obedient, and incredible leaders called of God. They tell me many wonderful spiritual experiences. I ask them the age of the youngest and the oldest person to whom they have given a blessing. So far the youngest was 11, and the oldest was 93.
 
@@ -46,7 +46,7 @@ As members of the Church, we are children of the covenant.[^6] We receive the bl
 
 Preparation for your patriarchal blessing will help you increase your faith in Heavenly Father and Jesus Christ. And when you receive your patriarchal blessing and read and ponder it, you can focus on Them more often.
 
-President Thomas S. Monson explained, “The same Lord who provided a Liahona for Lehi provides for you and for me today a rare and valuable gift to give direction to our lives, to mark the hazards to our safety, and to chart the way, even safe passage—not to a promised land, but to our heavenly home.”[^7]
+President Thomas S. Monson explained, “The same Lord who provided a Liahona for Lehi provides for you and for me today a rare and valuable gift to give direction to our lives, to mark the hazards to our safety, and to chart the way, even safe passage—not to a promised land, but to our heavenly home.”[^7]
 
 My dear bishops, parents, elders quorum and Relief Society presidents, ward mission leaders, ministering brothers and sisters, please encourage those young men and young women, adult members, and new members who have not yet received their patriarchal blessing to seek the Lord’s direction and help in preparing themselves to do so.
 
@@ -54,33 +54,31 @@ I frequently and prayerfully read my patriarchal blessing; it always gives me en
 
 Just as scriptures we have read many times have new meaning to us later, our patriarchal blessing will have a different meaning to us at different times. Mine has a different meaning now than it did when I was 30 and when I was 50. It is not that the words change, but we see them in a different way.
 
-President Dallin H. Oaks declared that a patriarchal blessing “is given under the inspiration of the Holy Spirit and should be read and interpreted under the influence of that same Spirit. The meaning and significance of a patriarchal blessing will be taught line upon line in the course of time by the power of the same Spirit that inspired \[it\].”[^8]
+President Dallin H. Oaks declared that a patriarchal blessing “is given under the inspiration of the Holy Spirit and should be read and interpreted under the influence of that same Spirit. The meaning and significance of a patriarchal blessing will be taught line upon line in the course of time by the power of the same Spirit that inspired \[it\].”[^8]
 
 Brothers and sisters, I bear my witness that Heavenly Father and His Beloved and Only Begotten Son, the Lord Jesus Christ, live. They love us. Patriarchal blessings are sacred gifts from Them. When you receive your blessing, you will realize and feel how They love you and how They focus on you individually.
 
-The Book of Mormon is another testament of Jesus Christ. And I am grateful to be led by a living prophet, President Russell M. Nelson.
+The Book of Mormon is another testament of Jesus Christ. And I am grateful to be led by a living prophet, President Russell M. Nelson.
 
 I am so grateful for our Savior, Jesus Christ. This Easter Sunday I will focus on Him and His Resurrection and worship Him and give thanks for His sacrifice. I know He suffered so deeply because He loves us so deeply. I know He was resurrected because of His love for us. He is real. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [18.17](https://churchofjesuschrist.org/study/manual/general-handbook/18-priesthood-ordinances-and-blessings?lang=eng&id=title55#title55), ChurchofJesusChrist.org.
+[^1]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [18.17](https://www.churchofjesuschrist.org/study/manual/general-handbook/18-priesthood-ordinances-and-blessings?lang=eng&id=title55#title55), ChurchofJesusChrist.org.
 
-[^2]: See “[Patriarchal Blessings](https://churchofjesuschrist.org/study/manual/true-to-the-faith/patriarchal-blessings?lang=eng&id=p1#p1),” in *True to the Faith* (2004), 112.
+[^2]: See “[Patriarchal Blessings](https://www.churchofjesuschrist.org/study/manual/true-to-the-faith/patriarchal-blessings?lang=eng&id=p1#p1),” in *True to the Faith* (2004), 112.
 
-[^3]: See “[Patriarchal Blessings](https://churchofjesuschrist.org/study/manual/true-to-the-faith/patriarchal-blessings?lang=eng&id=p9#p9),” in *True to the Faith*, 113.
+[^3]: See “[Patriarchal Blessings](https://www.churchofjesuschrist.org/study/manual/true-to-the-faith/patriarchal-blessings?lang=eng&id=p9#p9),” in *True to the Faith*, 113.
 
 [^4]: See [[Abraham 2.10|Abraham 2:10]].
 
-[^5]: “[Abrahamic Covenant](https://churchofjesuschrist.org/study/manual/true-to-the-faith/abrahamic-covenant?lang=eng&id=p2-p4#p2),” in *True to the Faith*, 5.
+[^5]: “[Abrahamic Covenant](https://www.churchofjesuschrist.org/study/manual/true-to-the-faith/abrahamic-covenant?lang=eng&id=p2-p4#p2),” in *True to the Faith*, 5.
 
-[^6]: See [[3 Nephi 20.25|3 Nephi 20:25–26]][[3 Nephi 20.26|]].
+[^6]: See [[3 Nephi 20.25|3 Nephi 20:25–26]][[3 Nephi 20.26|]].
 
-[^7]: Thomas S. Monson, “[[1986 October - Your Patriarchal Blessing - A Liahona of Light.md|Your Patriarchal Blessing: A Liahona of Light]],” *Ensign*, Nov. 1986, 65.
+[^7]: Thomas S. Monson, “[[1986 October - Your Patriarchal Blessing - A Liahona of Light.md|Your Patriarchal Blessing: A Liahona of Light]],” *Ensign*, Nov. 1986, 65.
 
-[^8]: Dallin H. Oaks, “Patriarchal Blessings,” *Worldwide Leadership Training Meeting: The Patriarch*, Jan. 8, 2005, 10.
+[^8]: Dallin H. Oaks, “Patriarchal Blessings,” *Worldwide Leadership Training Meeting: The Patriarch*, Jan. 8, 2005, 10.
 
-
-
-#Covenants #Patriarchal_Blessings
+#Covenants #PatriarchalBlessings

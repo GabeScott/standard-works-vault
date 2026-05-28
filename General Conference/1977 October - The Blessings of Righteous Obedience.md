@@ -1,6 +1,6 @@
 # The Blessings of Righteous Obedience
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -30,7 +30,7 @@ Concerning scripture study, the Prophet also taught: “He who reads it oftenest
 
 The scriptures contain the promises of the Lord to His obedient children. Where the Lord God commands, He also promises great rewards to those who obey. We read from the Bible:
 
-“And it shall come to pass, if thou shalt hearken diligently unto the voice of the Lord thy God, to observe and to do all his commandments which I command thee this day, that the Lord thy God will set thee on high above all nations of the earth. …
+“And it shall come to pass, if thou shalt hearken diligently unto the voice of the Lord thy God, to observe and to do all his commandments which I command thee this day, that the Lord thy God will set thee on high above all nations of the earth. …
 
 “The Lord shall establish thee an holy people unto himself, as he hath sworn unto thee, if thou shalt keep the commandments of the Lord thy God, and walk in his ways.” ([[Deuteronomy 28.1|Deut. 28:1, 9]][[Deuteronomy 28.9|]].)
 
@@ -72,13 +72,13 @@ The Lord has also provided local authorities—stake and district presidents, bi
 
 If a matter cannot be satisfactorily resolved by the first steps of this process, we should be obedient and supportive of those who preside over us until further counsel is received.
 
-Third, we learn obedience by disciplining our lives in all things. One process by which we discipline ourselves is by repentance, for it “is the way to annul the effects of a previous lack of obedience in one’s life.” (Spencer W. Kimball, *The Miracle of Forgiveness,* Bookcraft, 1969, p. 28.)
+Third, we learn obedience by disciplining our lives in all things. One process by which we discipline ourselves is by repentance, for it “is the way to annul the effects of a previous lack of obedience in one’s life.” (Spencer W. Kimball, *The Miracle of Forgiveness,* Bookcraft, 1969, p. 28.)
 
-We must recognize that mortality has been granted to us as a probationary state where all physical appetites are to be mastered. It is far more difficult to repent in the spirit world of sins which involve physical habits and actions. The words of Amulek in the Book of Mormon give emphasis to this principle: “Behold,” he said, “now is the time and the day of your salvation. …
+We must recognize that mortality has been granted to us as a probationary state where all physical appetites are to be mastered. It is far more difficult to repent in the spirit world of sins which involve physical habits and actions. The words of Amulek in the Book of Mormon give emphasis to this principle: “Behold,” he said, “now is the time and the day of your salvation. …
 
-“This life is the time for men to prepare to meet God. …
+“This life is the time for men to prepare to meet God. …
 
-“If we do not improve our time while in this life, then cometh the night of darkness wherein there can be no labor performed. …
+“If we do not improve our time while in this life, then cometh the night of darkness wherein there can be no labor performed. …
 
 “That same spirit which doth possess your bodies at the time that ye go out of this life, that same spirit will have power to possess your body in that eternal world.” ([[Alma 34.31|Alma 34:31–34]][[Alma 34.32|]][[Alma 34.33|]][[Alma 34.34|]].)
 
@@ -139,8 +139,6 @@ May we keep before us this wisdom which flowed from the pen of the Prophet Josep
 “In obedience there is joy and peace unspotted, unalloyed; and as God has designed our happiness … He never will institute an ordinance or give a commandment to His people that is not calculated in its nature to promote that happiness which He has designed, and which will not end in the greatest amount of good and glory to those who become the recipients of his law and ordinances.” (*History of The Church of Jesus Christ of Latter-day Saints,* 5:135.)
 
 “When the Lord commands, do it,” was a rule in the life of the first prophet of this dispensation. May that be the motto and practice of each one of us, I humbly pray, as I bear witness to the truth in the name of Jesus Christ. Amen.
-
-
 
 
 

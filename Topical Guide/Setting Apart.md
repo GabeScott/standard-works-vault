@@ -1,9 +1,8 @@
 # Setting Apart
 
+*See also* [[Consecrate.md|Consecrate]]; [[Consecration.md|Consecration]]; [[Ordinance.md|Ordinance]]; [[Separation.md|Separation]]
 
-*See also* [[Consecrate.md|Consecrate]]; [[Consecration.md|Consecration]]; [[Ordinance.md|Ordinance]]; [[Separation, Separate.md|Separation]]
-
-law of the Nazarite ... for his *separation*, [[Numbers 6.21|Numbers 6:21]].
+law of the Nazarite … for his *separation*, [[Numbers 6.21|Numbers 6:21]].
 
 *separate* the Levites from among the children of Israel, [[Numbers 8.14|Numbers 8:14]].
 
@@ -17,20 +16,18 @@ David and the captains of the host *separated* to the service of the sons of Asa
 
 Lord hath *set apart* him that is godly, [[Psalms 4.3|Psalms 4:3]].
 
-Whom they *set* before the apostles ... they laid their *hands* on them, [[Acts 6.6|Acts 6:6]].
+Whom they *set* before the apostles … they laid their *hands* on them, [[Acts 6.6|Acts 6:6]].
 
 *Separate* me Barnabas and Saul for the work, [[Acts 13.2|Acts 13:2]].
 
-Paul ... *separated* unto the gospel of God, [[Romans 1.1|Romans 1:1]].
+Paul … *separated* unto the gospel of God, [[Romans 1.1|Romans 1:1]].
 
 appointed and *set apart* for that purpose, [[D&C 42.31|D&C 42:31]].
 
 other bishops to be *set apart*, [[D&C 68.14|D&C 68:14]].
 
-descendant of Aaron ... provided he is called and *set apart*, [[D&C 68.19|D&C 68:19]].
+descendant of Aaron … provided he is called and *set apart*, [[D&C 68.19|D&C 68:19]].
 
 called and *set apart* and ordained unto this power, [[D&C 107.17|D&C 107:17]].
 
 shall be *set apart* unto this ministry, [[D&C 107.74|D&C 107:74]].
-
-*See also* [[1 Timothy 5.22|1 Timothy 5:22]]; [[Mosiah 2.4|Mosiah 2:4]]; [[Mosiah 6.3|Mosiah 6:3]]; [[Alma 45.22|Alma 45:22]]; [[D&C 38.23|D&C 38:23]].

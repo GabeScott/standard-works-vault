@@ -1,6 +1,6 @@
 # Employment Challenges in the 1980s
 
-By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
+By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -14,11 +14,11 @@ The Lord has commanded us to remain self-sufficient, thus retaining our independ
 
 “That through my providence, notwithstanding the tribulation which shall descend upon you, that the church may stand independent above all other creatures beneath the celestial world.” ([[D&C 78.13|D&C 78:13–14]][[D&C 78.14|]].)
 
-How are we to “stand independent above all other creatures beneath the celestial world”? In 1946, Elder Albert E. Bowen had some thoughts on this scripture which struck a familiar chord in my heart. He said:
+How are we to “stand independent above all other creatures beneath the celestial world”? In 1946, Elder Albert E. Bowen had some thoughts on this scripture which struck a familiar chord in my heart. He said:
 
 “The only way the Church can stand independent is for its members to stand independent, for the Church IS its members. It is not possible to conceive of an independent Church made up of dependent members—members who are under the inescapable obligation of dependency. The Lord must want and intend that His people shall be free of constraint whether enforceable or only arising out of the bindings of conscience. It is not believed that any person or people can live from gratuities—rely upon them for means of subsistence and remain wholly free in thought, motive and action. History seems to record no such instance. That is why the Church is concerned that its members, who have physical and mental capacity to do so, shall render service commensurate with their capacities for aid extended. That is why the Church is not satisfied with any system which leaves able people permanently dependent, and insists, on the contrary, that the true function and office of giving is to help people into a position where they can help themselves and thus be free.
 
-“Hesitancy to extend basic welfare principles to this previously unthought of application arises, no doubt, out of a natural human reluctance to forego an apparent benefit which may be had for the taking and ostensibly without price, though this latter is a delusion, since no one ever gets something for nothing, the recipient always pays; if not in money, then in forfeiture of some invaluable right or freedom.” (Albert E. Bowen *The Church Welfare Plan* \[Gospel Doctrine manual, 1946\], p. 77.)
+“Hesitancy to extend basic welfare principles to this previously unthought of application arises, no doubt, out of a natural human reluctance to forego an apparent benefit which may be had for the taking and ostensibly without price, though this latter is a delusion, since no one ever gets something for nothing, the recipient always pays; if not in money, then in forfeiture of some invaluable right or freedom.” (Albert E. Bowen *The Church Welfare Plan* \[Gospel Doctrine manual, 1946\], p. 77.)
 
 The Church can be no more independent than the collective independence of its individual members. We fear that some may misunderstand the intent of the resources of the welfare program of the Church and fall into a false sense of security that will lead to reduced efforts toward self-sufficiency. It is not financially possible, nor is it sound in principle, for the Church to amass the assets necessary to take care of the members of the Church who are physically able to work. All the efforts of the welfare program are directed to helping people become self-sufficient. The exceptions to this, of course, are those who cannot take care of themselves. The program provides a brief, temporary port in the storm for the able-bodied and is not meant to be a permanent home. The welfare program of the Church does not represent Church independence, but is a means toward the end of making individuals independent. For the Church, as an organization, to be independent, it would basically have to duplicate the economy of the individual members. This is neither practical, possible, nor prudent. We have all been taught that dependence on the government is not good. Neither is dependence on the Church—that principle runs as deep as free agency itself.
 
@@ -55,8 +55,6 @@ We counsel bishops to use ward employment specialists in coordinating temporary 
 This program is one which can be applied in most countries. Obviously, nothing should be done which is contrary to the laws of the land in which you live. It is our feeling that in light of today’s economy and in view of our objective to remain independent, the employment program has much to offer. No one can see the deterioration which takes place in a man’s spirit when he is unemployed without wanting to do something to help. It is desirable not only to relieve human distress but also to prevent and eliminate its causes. Progress *can* be made with the generous use of talents, time, and resources of many individuals. The Church employment system allows the 90 percent of the Church who are employed to help the 10 percent who are unemployed.
 
 May we be committed and involved in this modern-day response to the Savior’s command, “Love one another; as I have loved you” ([[John 13.34|John 13:34]]), I pray in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # The Temptations of Christ
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -42,7 +42,7 @@ It is important to remember that Jesus was capable of sinning, that he could hav
 
 What about us? We live in a world of temptation—temptation that seems more real and oppressively rampant than any since the days of Noah. Are we remaining faithful in such a world? Every individual in this church should ask himself, “Am I living so that I am keeping unspotted from the evils of the world?”
 
-In speaking of the three temptations that came to Jesus, a former President of the Church made this statement concerning them: “Classify them, and you will find that under one of those three nearly every given temptation that makes you and me spotted, ever so little maybe, comes to us as (1) a temptation of the appetite; (2) a yielding to the pride and fashion and vanity of those alienated from the things of God; or (3) a gratifying of the passion, or a desire for the riches of the world, or power among men.” And then he said: “Now, when do temptations come? Why, they come to us in our social gatherings, they come to us at our weddings, they come to us in our politics, they come to us in our business relations, on the farm, in the mercantile establishment, in our dealings in all the affairs of life, we find these insidious influences working, and it is when they manifest themselves to the consciousness of each individual that the defense of truth ought to exert itself.” (David O. McKay, *Conference Report,* Oct. 1911, p. 59.)
+In speaking of the three temptations that came to Jesus, a former President of the Church made this statement concerning them: “Classify them, and you will find that under one of those three nearly every given temptation that makes you and me spotted, ever so little maybe, comes to us as (1) a temptation of the appetite; (2) a yielding to the pride and fashion and vanity of those alienated from the things of God; or (3) a gratifying of the passion, or a desire for the riches of the world, or power among men.” And then he said: “Now, when do temptations come? Why, they come to us in our social gatherings, they come to us at our weddings, they come to us in our politics, they come to us in our business relations, on the farm, in the mercantile establishment, in our dealings in all the affairs of life, we find these insidious influences working, and it is when they manifest themselves to the consciousness of each individual that the defense of truth ought to exert itself.” (David O. McKay, *Conference Report,* Oct. 1911, p. 59.)
 
 Is it just for an individual, or can a body of people withstand the temptations of Satan? Surely the Lord would be pleased with the Saints if they stood before the world as a light that cannot be hidden because they are willing to live the principles of the gospel and keep the commandments of the Lord.
 
@@ -55,8 +55,6 @@ With faith, and prayer, and humility, and sources of strength from an eternal wo
 “Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.” ([[Psalms 23.4|Ps. 23:4–6]][[Psalms 23.5|]][[Psalms 23.6|]].)
 
 May this be our destiny, I pray in the name of our Lord and Master, Jesus Christ. Amen.
-
-
 
 
 

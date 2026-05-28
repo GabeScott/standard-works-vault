@@ -55,6 +55,4 @@ And we are partakers of these precious gifts. And so, as we might say to an old 
 
 
 
-
-
-#Brigham_Young #General_Conference #Pioneers #Temple_Square
+#BrighamYoung #GeneralConference #Pioneers #TempleSquare

@@ -1,6 +1,6 @@
 # Salvation for the Dead—A Missionary Activity
 
-By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 My beloved priesthood brethren, I have been asked to speak to you tonight about a challenging concept of the priesthood missionary work.
 
-One thing we often fail to realize is that our priesthood comes to us through the lineage of our fathers and mothers. The Lord explained it in these words: “Therefore, thus saith the Lord unto you, with whom the priesthood hath continued through the lineage of your fathers. …” ([[D&C 86.8|D&C 86:8]].)
+One thing we often fail to realize is that our priesthood comes to us through the lineage of our fathers and mothers. The Lord explained it in these words: “Therefore, thus saith the Lord unto you, with whom the priesthood hath continued through the lineage of your fathers. …” ([[D&C 86.8|D&C 86:8]].)
 
 “Oh,” I can hear some of you say, “there must be something wrong with that statement, for I am the only member of my family who has joined the Church. How could I have received the priesthood from my parents?”
 
@@ -34,7 +34,7 @@ From the time the earth was originally planned, God the Eternal Father knew that
 
 God reserved for these days some of his most valiant sons and daughters. He held back for our day proved and trusted children, who he knew from their premortal behavior would hear the voice of the Shepherd and would accept the gospel of Jesus Christ. He knew they would qualify themselves to receive the priesthood, that they would use the holy priesthood to limit Satan’s destructiveness and make it possible for God to complete the work he had planned for the saving of his children.
 
-You young men of the Aaronic Priesthood represent, therefore, some of the finest men ever to be born on the earth. You are an elect generation, a royal priesthood. As Peter expressed it, “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.” ([[1 Peter 2.9|1 Pet. 2:9]].)
+You young men of the Aaronic Priesthood represent, therefore, some of the finest men ever to be born on the earth. You are an elect generation, a royal priesthood. As Peter expressed it, “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.” ([[1 Peter 2.9|1 Pet. 2:9]].)
 
 This birthright is only possible for you because you have the finest fathers and mothers ever given to any generation. Alma, referring to men who receive the Melchizedek Priesthood, spoke of their inherited rights and said of those who are ordained to the high priesthood:
 
@@ -79,6 +79,4 @@ So, my brethren of the priesthood, the time has come for all of us to become mor
 
 
 
-
-
-#Family #Family_History #Priesthood #Temple_Work
+#Family #FamilyHistory #Priesthood #TempleWork

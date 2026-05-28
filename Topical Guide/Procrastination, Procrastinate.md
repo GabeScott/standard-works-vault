@@ -1,13 +1,12 @@
 # Procrastination, Procrastinate
 
-
-*See also* [[Apathy.md|Apathy]]; [[Idleness, Idle, Idler.md|Idleness]]; [[Slothful, Slothfulness.md|Slothful]]
+*See also* [[Apathy.md|Apathy]]; [[Idleness.md|Idleness]]; [[Slothful.md|Slothful]]
 
 choose you *this* day whom ye will serve, [[Joshua 24.15|Joshua 24:15]] ([[Moses 6.33|Moses 6:33]]).
 
 I made haste, and *delayed* not to keep thy commandments, [[Psalms 119.60|Psalms 119:60]].
 
-Say not ... come *again* ... when thou hast it by thee, [[Proverbs 3.28|Proverbs 3:28]].
+Say not … come *again* … when thou hast it by thee, [[Proverbs 3.28|Proverbs 3:28]].
 
 let us eat and drink; for *to morrow* we shall die, [[Isaiah 22.13|Isaiah 22:13]] ([[1 Corinthians 15.32|1 Corinthians 15:32]]; [[2 Nephi 28.7|2 Nephi 28:7]]).
 
@@ -19,7 +18,7 @@ Lest coming suddenly he find you *sleeping*, [[Mark 13.36|Mark 13:36]].
 
 having *put* his hand to the plough, and looking back, [[Luke 9.62|Luke 9:62]].
 
-that servant, which knew ... and *prepared* not, [[Luke 12.47|Luke 12:47]].
+that servant, which knew … and *prepared* not, [[Luke 12.47|Luke 12:47]].
 
 so that day come upon you *unawares*, [[Luke 21.34|Luke 21:34]].
 
@@ -46,5 +45,3 @@ labor while it is called *today*, [[D&C 64.25|D&C 64:25]].
 He that seeketh me *early* shall find me, [[D&C 88.83|D&C 88:83]].
 
 so *long* as they repent not, [[D&C 124.50|D&C 124:50]].
-
-*See also* [[Ezekiel 12.22|Ezek. 12:22-28]][[Ezekiel 12.23|]][[Ezekiel 12.24|]][[Ezekiel 12.25|]][[Ezekiel 12.26|]][[Ezekiel 12.27|]][[Ezekiel 12.28|]].

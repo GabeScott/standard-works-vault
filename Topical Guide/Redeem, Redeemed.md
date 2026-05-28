@@ -1,13 +1,12 @@
 # Redeem, Redeemed
 
-
-*See also* [[Deliver, Deliverance.md|Deliver]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Ransom.md|Ransom]]; [[Redemption.md|Redemption]]; [[Save.md|Save]]
+*See also* [[Deliver.md|Deliver]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Ransom.md|Ransom]]; [[Redemption.md|Redemption]]; [[Save.md|Save]]
 
 Angel which *redeemed* me from all evil, [[Genesis 48.16|Genesis 48:16]].
 
 I will *redeem* you, [[Exodus 6.6|Exodus 6:6]].
 
-firstborn of man ... shalt thou *redeem*, [[Exodus 13.13|Exodus 13:13]] ([[Exodus 34.20|Exodus 34:20]]).
+firstborn of man … shalt thou *redeem*, [[Exodus 13.13|Exodus 13:13]] ([[Exodus 34.20|Exodus 34:20]]).
 
 led forth the people which thou hast *redeemed*, [[Exodus 15.13|Exodus 15:13]].
 
@@ -35,7 +34,7 @@ Is my hand shortened at all, that it cannot *redeem*, [[Isaiah 50.2|Isaiah 50:2]
 
 ye shall be *redeemed* without money, [[Isaiah 52.3|Isaiah 52:3]] ([[3 Nephi 20.38|3 Nephi 20:38]]).
 
-shall call them ... The *redeemed* of the Lord, [[Isaiah 62.12|Isaiah 62:12]].
+shall call them … The *redeemed* of the Lord, [[Isaiah 62.12|Isaiah 62:12]].
 
 year of my *redeemed* is come, [[Isaiah 63.4|Isaiah 63:4]].
 
@@ -47,7 +46,7 @@ Lord shall *redeem* thee, [[Micah 4.10|Micah 4:10]].
 
 *redeemed* thee out of the house of servants, [[Micah 6.4|Micah 6:4]].
 
-I will ... gather them; for I have *redeemed* them, [[Zechariah 10.8|Zechariah 10:8]].
+I will … gather them; for I have *redeemed* them, [[Zechariah 10.8|Zechariah 10:8]].
 
 hath visited and *redeemed* his people, [[Luke 1.68|Luke 1:68]].
 
@@ -69,7 +68,7 @@ which were *redeemed* from the earth, [[Revelation 14.3|Revelation 14:3]].
 
 Lord hath *redeemed* my soul from hell, [[2 Nephi 1.15|2 Nephi 1:15]].
 
-they are *redeemed* ... become free forever, [[2 Nephi 2.26|2 Nephi 2:26]].
+they are *redeemed* … become free forever, [[2 Nephi 2.26|2 Nephi 2:26]].
 
 is my hand shortened at all that it cannot *redeem*, [[2 Nephi 7.2|2 Nephi 7:2]].
 
@@ -83,7 +82,7 @@ Lord surely should come to *redeem* his people, [[Helaman 5.10|Helaman 5:10]].
 
 resurrection of Christ *redeemeth* mankind, [[Helaman 14.17|Helaman 14:17]].
 
-they that believe not ... cannot be *redeemed* from their spiritual fall, [[D&C 29.44|D&C 29:44]].
+they that believe not … cannot be *redeemed* from their spiritual fall, [[D&C 29.44|D&C 29:44]].
 
 little children are *redeemed* from the foundation of the world, [[D&C 29.46|D&C 29:46]].
 
@@ -91,7 +90,7 @@ people shall be *redeemed* and shall reign with me, [[D&C 43.29|D&C 43:29]].
 
 shall the heathen nations be *redeemed*, [[D&C 45.54|D&C 45:54]].
 
-These are they who shall not be *redeemed* ... until the last resurrection, [[D&C 76.85|D&C 76:85]].
+These are they who shall not be *redeemed* … until the last resurrection, [[D&C 76.85|D&C 76:85]].
 
 Lord hath *redeemed* his people, [[D&C 84.99|D&C 84:99]].
 
@@ -101,7 +100,7 @@ Zion shall be *redeemed*, [[D&C 100.13|D&C 100:13]] ([[D&C 136.18|D&C 136:18]]).
 
 *redeemed* the land by the shedding of blood, [[D&C 101.80|D&C 101:80]].
 
-ordained ... that which would enable us to *redeem* them out of their prison, [[D&C 128.22|D&C 128:22]].
+ordained … that which would enable us to *redeem* them out of their prison, [[D&C 128.22|D&C 128:22]].
 
 year of my *redeemed* is come, [[D&C 133.52|D&C 133:52]].
 

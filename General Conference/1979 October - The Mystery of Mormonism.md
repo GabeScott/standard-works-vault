@@ -1,12 +1,12 @@
 # The Mystery of Mormonism
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/10/the-mystery-of-mormonism?lang=eng)
 
-I shall speak as a second witness to the things of which President N. Eldon Tanner has just so eloquently and fervently testified. We have some words to speak to the world at large. We address ourselves particularly to those inquiring minds who desire to hear some new doctrine, to see some strange sight, to unravel (shall we not say it?) the greatest mystery of the religious world—the mystery of Mormonism.
+I shall speak as a second witness to the things of which President N. Eldon Tanner has just so eloquently and fervently testified. We have some words to speak to the world at large. We address ourselves particularly to those inquiring minds who desire to hear some new doctrine, to see some strange sight, to unravel (shall we not say it?) the greatest mystery of the religious world—the mystery of Mormonism.
 
 We are a peculiar people; we are a congregation of true believers who are unique and different from all others; we are the Saints of the Most High who are assembling together in many nations to build up Zion and to prepare a people for the second coming of the Son of Man.
 
@@ -18,7 +18,7 @@ We feel it is not too much to ask, in this age of enlightenment and open dialogu
 
 We glory in our designation as a peculiar people. It is our desire to be unique—different from other men—because we have forsaken the world and have made a covenant to live godly lives and to walk in paths of truth and virtue.
 
-It is our hope that it may ever be said of us, as Peter avouched of the true believers in his day: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
+It is our hope that it may ever be said of us, as Peter avouched of the true believers in his day: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 Now out of a decent respect for the views and concerns of our fellowmen—Christian and non-Christian, Jew and Gentile alike—we shall set forth some of those things which we believe and know to be true.
 
@@ -95,8 +95,6 @@ We prophesy—it is my voice you hear, but it is the united voice of all my Bret
 And we invite all who will to come and partake of the goodness of God, that they may gain peace in this life and be inheritors of eternal life in the world to come.
 
 In the name of the Lord Jesus Christ, amen.
-
-
 
 
 

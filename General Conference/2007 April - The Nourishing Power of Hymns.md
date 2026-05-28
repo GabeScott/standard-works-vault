@@ -34,7 +34,11 @@ My earliest memories of the healing power of the Savior are associated with sacr
 
 My understanding of the doctrines of the Atonement is connected to the hymns. This verse is illustrative:
 
-How great, how glorious, how complete,Redemption’s grand design,Where justice, love, and mercy meetIn harmony divine![^16]
+>How great, how glorious, how complete,
+>Redemption’s grand design,
+>Where justice, love, and mercy meet
+>In harmony divine![^16]
+>
 
 ## Teaching Children Hymns Begins at Home
 
@@ -42,7 +46,7 @@ Singing hymns and listening to appropriate music begin at home. The First Presid
 
 “Latter-day Saints should fill their homes with the sound of worthy music.
 
-“… We hope the hymnbook will take a prominent place among the scriptures and other religious books in our homes. The hymns can bring families a spirit of beauty and peace and can inspire love and unity among family members.
+“… We hope the hymnbook will take a prominent place among the scriptures and other religious books in our homes. The hymns can bring families a spirit of beauty and peace and can inspire love and unity among family members.
 
 “Teach your children to love the hymns. Sing them on the Sabbath, in \[family\] home evening, during scripture study, at prayer time. Sing as you work, as you play, and as you travel together. Sing hymns as lullabies to build faith and testimony in your young ones.”[^17]
 
@@ -81,7 +85,7 @@ I pray that we may eliminate any inappropriate music from our lives and follow t
 
 [^7]: *Hymns,* ix.
 
-[^8]: In Conference Report, Oct. 1991, 29; or *Ensign,* Nov. 1991, 22.
+[^8]: In Conference Report, Oct. 1991, [[1991 October - Reverence Invites Revelation.md|29]]; or *Ensign,* Nov. 1991, 22.
 
 [^9]: *Hymns,* no. 27.
 
@@ -103,6 +107,4 @@ I pray that we may eliminate any inappropriate music from our lives and follow t
 
 [^18]: *Hymns,* x.
 
-
-
-#Conversion #Missionary_Work #Music #Reverence #Worship
+#Conversion #MissionaryWork #Music #Reverence #Worship

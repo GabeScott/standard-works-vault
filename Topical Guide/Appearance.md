@@ -1,6 +1,5 @@
 # Appearance
 
-
 *See also* [[Angels.md|Angels]]; [[God, Manifestations of.md|God, Manifestations of]]; [[God, Presence of.md|God, Presence of]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal.md|Jesus Christ, Appearances, Antemortal]]; [[Jesus Christ, Appearances, Postmortal.md|Jesus Christ, Appearances, Postmortal]]; [[Judgment.md|Judgment]]
 
 for man looketh on the outward *appearance*, [[1 Samuel 16.7|1 Samuel 16:7]].
@@ -13,4 +12,6 @@ Do ye look on things after the outward *appearance*, [[2 Corinthians 10.7|2 Cori
 
 Abstain from all *appearance* of evil, [[1 Thessalonians 5.22|1 Thessalonians 5:22]].
 
-in that verse [ [[John 14.23|John 14:23]] ] is a personal *appearance*, [[D&C 130.3|D&C 130:3]].
+in that verse [, [[John 14.23|John 14:23]].
+
+in that verse [, [[D&C 130.3|D&C 130:3]].

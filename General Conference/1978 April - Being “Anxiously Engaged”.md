@@ -38,11 +38,11 @@ Our church, Christ’s church, is a sharing church. We have the responsibility o
 
 Why are we so greatly interested in influencing our fellowmen to serve God and keep his commandments? They are God’s children; they are our brothers and sisters.
 
-The late Dr. James E. Talmage, a member of the Quorum of the Twelve Apostles, has given us this inspirational thought:
+The late Dr. James E. Talmage, a member of the Quorum of the Twelve Apostles, has given us this inspirational thought:
 
 “What is man in this boundless setting of sublime splendor? I answer you: Potentially now, actually to be, he is greater and grander, more precious according to the arithmetic of God, than all the planets and suns of space. For him were they created; they are the handiwork of God; man is His son! In this world man is given dominion over a few things; it is his privilege to achieve supremacy over many things.
 
-“… Incomprehensibly grand as are the physical creations of the earth and space, they have been brought into existence as means to an end, necessary to the realization of the supreme purpose, which in the words of the Creator is thus declared:
+“… Incomprehensibly grand as are the physical creations of the earth and space, they have been brought into existence as means to an end, necessary to the realization of the supreme purpose, which in the words of the Creator is thus declared:
 
 “‘For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.’ ([[Moses 1.39|Moses 1:39]].)” (“The Earth to Be Redeemed,” *Sunday Night Talks by Radio,* Salt Lake City: Deseret News Press, 1931, pp. 357–58.)
 
@@ -57,8 +57,6 @@ But what about eternal life? One might take the view that immortality and eterna
 The reward for doing good is joy and happiness in this life and eternal life in the great hereafter. To do good is to keep the commandments the Lord has given us. The gospel is the true way of life, the teachings of our Lord and Savior, the light of the world. That which is contrary thereto is darkness and regret.
 
 I bear testimony that this is the Lord’s work, that the gospel of Jesus Christ has been restored to earth with its keys, powers, and authorities, that it is the Lord’s work and glory to bring to pass the immortality and eternal life of man. In the name of Jesus Christ, amen.
-
-
 
 
 

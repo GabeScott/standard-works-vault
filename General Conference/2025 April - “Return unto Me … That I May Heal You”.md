@@ -1,6 +1,6 @@
 # “Return unto Me … That I May Heal You”
 
-By Elder S. Mark Palmer - *Of the Presidency of the Seventy*
+By Elder S. Mark Palmer - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -69,9 +69,9 @@ I witness that there is rejoicing in heaven over those who return.[^14] You are 
 
 [^1]: This was and still is the mission home for the Washington Spokane Mission. The photos of the willow tree were taken by my wife, Jacqui.
 
-[^2]: [[3 Nephi 9.13|3 Nephi 9:13]]. Note that the invitation to repent applies to us all. See [[1 John 1.8|1 John 1:8]] (“If we say that we have no sin, we deceive ourselves”) and President Russell M. Nelson’s invitation to repent daily: “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98–99.
+[^2]: [[3 Nephi 9.13|3 Nephi 9:13]]. Note that the invitation to repent applies to us all. See [[1 John 1.8|1 John 1:8]] (“If we say that we have no sin, we deceive ourselves”) and President Russell M. Nelson’s invitation to repent daily: “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98–99.
 
-[^3]: See Quentin L. Cook, “[Facing Life and Faith Challenges](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2023/11/12cook?lang=eng&id=p24#p24)” (worldwide devotional for young adults, Nov. 14, 2023), Gospel Library: “For your information, youth and young adults are not less active or leaving the Church in higher numbers than in the past, as has been widely circulated. The number of missionaries called to serve has significantly increased. The percentage of Church participation for the rising generation shows a continuous upward trend. Moreover, the number of young adults attending institute has also been increasing.”
+[^3]: See Quentin L. Cook, “[Facing Life and Faith Challenges](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2023/11/12cook?lang=eng&id=p24#p24)” (worldwide devotional for young adults, Nov. 14, 2023), Gospel Library: “For your information, youth and young adults are not less active or leaving the Church in higher numbers than in the past, as has been widely circulated. The number of missionaries called to serve has significantly increased. The percentage of Church participation for the rising generation shows a continuous upward trend. Moreover, the number of young adults attending institute has also been increasing.”
 
 [^4]: [[John 6.67|John 6:67]].
 
@@ -79,11 +79,11 @@ I witness that there is rejoicing in heaven over those who return.[^14] You are 
 
 [^6]: See [[Alma 5.28|Alma 5:28]].
 
-[^7]: See Dieter F. Uchtdorf, “[[2024 October - Nourish the Roots, and the Branches Will Grow.md|Nourish the Roots, and the Branches Will Grow]],” *Liahona*, Nov. 2024, 102: “Jesus Christ and His atoning sacrifice are the root of our testimony. All other things are branches. … When it comes to nourishing our testimonies of Jesus Christ, I wonder if we sometimes mistake the branches for the roots. … Nourish the roots, and the branches will grow.”
+[^7]: See Dieter F. Uchtdorf, “[[2024 October - Nourish the Roots, and the Branches Will Grow.md|Nourish the Roots, and the Branches Will Grow]],” *Liahona*, Nov. 2024, 102: “Jesus Christ and His atoning sacrifice are the root of our testimony. All other things are branches. … When it comes to nourishing our testimonies of Jesus Christ, I wonder if we sometimes mistake the branches for the roots. … Nourish the roots, and the branches will grow.”
 
 [^8]: See [[Alma 32.41|Alma 32:41]].
 
-[^9]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 119: “Spending more time in the temple builds faith. And your service and worship in the temple will help you to think celestial.”
+[^9]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 119: “Spending more time in the temple builds faith. And your service and worship in the temple will help you to think celestial.”
 
 [^10]: See [[Alma 32.28|Alma 32:28]].
 
@@ -91,7 +91,7 @@ I witness that there is rejoicing in heaven over those who return.[^14] You are 
 
 [^12]: See Patrick Kearon, “[[2024 April - God’s Intent Is to Bring You Home.md|God’s Intent Is to Bring You Home]],” *Liahona*, May 2024, 87: “God is in relentless pursuit of you.”
 
-[^13]: See Jeffrey R. Holland, “[[2006 April - Broken Things to Mend.md|Broken Things to Mend]],” *Ensign* or *Liahona*, May 2006, 69–71.
+[^13]: See Jeffrey R. Holland, “[[2006 April - Broken Things to Mend.md|Broken Things to Mend]],” *Ensign* or *Liahona*, May 2006, 69–71.
 
 [^14]: See [[Luke 15.11|Luke 15:11–32]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]; [[D&C 18.13|Doctrine and Covenants 18:13]].
 
@@ -99,5 +99,6 @@ I witness that there is rejoicing in heaven over those who return.[^14] You are 
 
 [^16]: See [[Alma 5.33|Alma 5:33]].
 
+[^17]: See Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 122: “It is neither too early nor too late for you to become a devout disciple of Jesus Christ. Then you will experience fully the blessings of His Atonement.”
 
-#Activation #Faith #Jesus_Christ #Repentance
+#Activation #Faith #JesusChrist #Repentance

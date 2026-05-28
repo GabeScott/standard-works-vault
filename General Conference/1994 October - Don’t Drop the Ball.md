@@ -48,11 +48,11 @@ As he continued, “\[the speaker\] went on to make a comparison. He said: ‘Le
 
 “Now when I heard this short speech,” said Gene Roberts, “I was dumbfounded. I turned to my companions abashed for I was ashamed to be caught listening. What was my surprise to find everyone of the gang with his attention fixed upon the speaker and his eyes containing a far-away expression.
 
-“We went out of the tabernacle that evening rather quiet and we separated from each other unusually early. I thought of that speech all the way home. I classified myself immediately as of the hog family. I thought of that speech for years. That night there was implanted within me the faintest beginnings of ambition to lift myself out of the hog group and to rise to that of the eagle. …
+“We went out of the tabernacle that evening rather quiet and we separated from each other unusually early. I thought of that speech all the way home. I classified myself immediately as of the hog family. I thought of that speech for years. That night there was implanted within me the faintest beginnings of ambition to lift myself out of the hog group and to rise to that of the eagle. …
 
 “There was instilled within me that same evening, the urge to help fill up the mud holes in the social pasture so that those people with hog tendencies would find it difficult to wallow in recreational filth. As a result of constant thinking about that speech, I was stirred to devote my whole life and my profession toward developing wholesome recreational activities for the young people, so that it would be natural and easy for them to indulge in the eagle-type of leisure.
 
-“The man who made that speech which affected my life more than any other speech I ever heard, was President George H. Brimhall. May God bless him!” (Raymond Brimhall Holbrook and Esther Hamilton Holbrook, *The Tall Pine Tree: The Life and Work of George H. Brimhall* \[n.p., 1988\], pp. 111–13).
+“The man who made that speech which affected my life more than any other speech I ever heard, was President George H. Brimhall. May God bless him!” (Raymond Brimhall Holbrook and Esther Hamilton Holbrook, *The Tall Pine Tree: The Life and Work of George H. Brimhall* \[n.p., 1988\], pp. 111–13).
 
 That simple story, told by a great teacher, turned around the life of a drifter and made of him an able and gifted leader. I repeat it tonight because I think that most of us are constantly faced with a choice of whether we wallow in the mire or fly to lofty heights.
 
@@ -60,7 +60,7 @@ What we do in our leisure time can make such a tremendous difference. Pity the p
 
 There is a better way, my brethren. Do you want to drop the ball in your lives? Do you wish to help Satan score? There is no surer way than to become engulfed in the tide of pornography that is sweeping over us. If we succumb to it, it destroys us, body and mind and soul.
 
-On the other hand, the whole design of the gospel is to lead us onward and upward to greater achievement, even, eventually, to godhood. This great possibility was enunciated by the Prophet Joseph Smith in the King Follet sermon and emphasized by President Lorenzo Snow. It is this grand and incomparable concept: *As God now is, man may become!* (see *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], pp. 342–62; *The Teachings of Lorenzo Snow,* comp. Clyde J. Williams \[Salt Lake City: Bookcraft, 1984\], p. 1).
+On the other hand, the whole design of the gospel is to lead us onward and upward to greater achievement, even, eventually, to godhood. This great possibility was enunciated by the Prophet Joseph Smith in the King Follet sermon and emphasized by President Lorenzo Snow. It is this grand and incomparable concept: *As God now is, man may become!* (see *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], pp. 342–62; *The Teachings of Lorenzo Snow,* comp. Clyde J. Williams \[Salt Lake City: Bookcraft, 1984\], p. 1).
 
 Our enemies have criticized us for believing in this. Our reply is that this lofty concept in no way diminishes God the Eternal Father. He is the Almighty. He is the Creator and Governor of the universe. He is the greatest of all and will always be so. But just as any earthly father wishes for his sons and daughters every success in life, so I believe our Father in Heaven wishes for his children that they might approach him in stature and stand beside him resplendent in godly strength and wisdom.
 
@@ -76,7 +76,7 @@ As Paul admonished:
 
 “Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
 
-“For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world. …
+“For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world. …
 
 “Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness; …
 
@@ -101,6 +101,4 @@ Thank you, my brethren, for the goodness and consistency of your lives. This wor
 
 
 
-
-
-#Agency #Athletics #Character #Plan_Of_Salvation #Self-Control #Temptation
+#Agency #Athletics #Character #PlanOfSalvation #Self-control #Temptation

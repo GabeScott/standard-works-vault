@@ -44,7 +44,7 @@ Jolted by this remark, the man replied, “Vell, den, I vill not go.”[^11] But
 
 It is so easy for some to become obsessed with what they possess and to lose eternal perspective. When Abraham went out of Egypt, his nephew Lot went with him to Bethel. Both Abraham and Lot had flocks and herds and tents, “and the land was not able to bear them, that they might dwell together: for their substance was great, so that they could not dwell together.”[^12] After some friction between the herdmen of Abraham and Lot, Abraham made a proposal to Lot: “Let there be no strife, I pray thee, between me and thee, and between my herdmen and thy herdmen; for we be brethren.
 
-“… If thou wilt take the left hand, then I will go to the right; or if thou depart to the right hand, then I will go to the left.”[^13]
+“… If thou wilt take the left hand, then I will go to the right; or if thou depart to the right hand, then I will go to the left.”[^13]
 
 Lot saw “what was in it for him” as he looked over the fruitful plain of Jordan and chose to take the land which was close to the worldly place of Sodom.[^14] Abraham was content to take his flocks to live in the more barren land of Canaan, yet he accumulated even more wealth there.
 
@@ -103,7 +103,7 @@ I wish to testify that the greatest fulfilling service to be rendered by any of 
 
 [^10]: [[Luke 12.15|Luke 12:15–21]][[Luke 12.16|]][[Luke 12.17|]][[Luke 12.18|]][[Luke 12.19|]][[Luke 12.20|]][[Luke 12.21|]].
 
-[^11]: In Conference Report, Oct. 1973, 35; or *Ensign,* Jan. 1974, 35.
+[^11]: In Conference Report, Oct. 1973, [[1973 October - There Is Need for Repentance.md|35]]; or *Ensign,* Jan. 1974, 35.
 
 [^12]: [[Genesis 13.6|Genesis 13:6]].
 
@@ -117,7 +117,7 @@ I wish to testify that the greatest fulfilling service to be rendered by any of 
 
 [^17]: See [[Luke 10.25|Luke 10:25–37]][[Luke 10.26|]][[Luke 10.27|]][[Luke 10.28|]][[Luke 10.29|]][[Luke 10.30|]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]].
 
-[^18]: Victor L. Brown, in Conference Report, Oct. 1984, 51–52; or *Ensign,* Nov. 1984, 40.
+[^18]: Victor L. Brown, in Conference Report, Oct. 1984, [[1984 October - The Banner of the Lord.md|51–52]]; or *Ensign,* Nov. 1984, 40.
 
 [^19]: “Profiting for Others,” *New Era,* June 1979, 50; *Tambuli,* Feb. 1980, 29.
 
@@ -126,7 +126,5 @@ I wish to testify that the greatest fulfilling service to be rendered by any of 
 [^21]: [[John 15.13|John 15:13]].
 
 [^22]: [[Matthew 10.39|Matthew 10:39]].
-
-
 
 #Generosity #Greed #Sacrifice #Service

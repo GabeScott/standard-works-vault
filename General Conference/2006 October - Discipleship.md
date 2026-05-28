@@ -123,12 +123,10 @@ One of the greatest blessings of life and eternity is to be counted as one of th
 
 [^21]: *The Miracle of Forgiveness* (1969), 362.
 
-[^22]: [[3 Nephi 27.27|3 Nephi 27:27]].
+[^22]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
 [^23]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
 [^24]: [[D&C 59.23|D&C 59:23]].
-
-
 
 #Discipleship #Obedience #Sacrifice

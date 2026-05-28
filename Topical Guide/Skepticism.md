@@ -1,4 +1,3 @@
 # Skepticism
 
-
-*See* [[Unbelief, Unbelievers.md|Unbelief]]
+*See also* [[Unbelief.md|Unbelief]]

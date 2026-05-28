@@ -74,49 +74,49 @@ I wish to speak to the young men. I have as my text Paul’s letters to his youn
 
 I picture Paul as the old, battered teacher of truth. He writes to his young friend, in whom he has confidence and for whom he has a great love.
 
-He says, among other things, “We both labour and suffer reproach, because we trust in the living God, who is the Saviour of all men, specially of those that believe” ([[1 Timothy 4.10|1 Tim. 4:10]]).
+He says, among other things, “We both labour and suffer reproach, because we trust in the living God, who is the Saviour of all men, specially of those that believe” ([[1 Timothy 4.10|1 Tim. 4:10]]).
 
 Paul was persecuted and driven; he was hated and despised. Eventually his life was taken because he fearlessly bore witness of the Redeemer of all men.
 
 We must be prepared to do likewise.
 
-As Nephi proclaimed, “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Ne. 25:26]]).
+As Nephi proclaimed, “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Ne. 25:26]]).
 
-Writes Paul further to Timothy, “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]).
+Writes Paul further to Timothy, “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]).
 
 Those whom we teach will overlook our youth if in our conversations in charity, in spirit, in faith, and in the purity of our lives, we reflect the Spirit of Christ. We cannot indulge in swearing. We cannot be guilty of profanity; we cannot indulge in impure thoughts, words, and acts and have the Spirit of the Lord with us.
 
-Paul goes on to say, “Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands of the presbytery” ([[1 Timothy 4.14|1 Tim. 4:14]]).
+Paul goes on to say, “Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands of the presbytery” ([[1 Timothy 4.14|1 Tim. 4:14]]).
 
 Who are the presbytery? They are the elders of the Church. Each of you deacons, teachers, and priests has been ordained by one having the proper authority, in most cases by your fathers or bishops. You have been given a great and precious gift. You can speak truth. You must speak truth. You can bear testimony of the great and good things of the gospel. This is your gift. Neglect it not!
 
-Paul continues, “Take heed unto thyself, and unto the doctrine; continue in them: for in doing this thou shalt both save thyself, and them that hear thee” ([[1 Timothy 4.16|1 Tim. 4:16]]).
+Paul continues, “Take heed unto thyself, and unto the doctrine; continue in them: for in doing this thou shalt both save thyself, and them that hear thee” ([[1 Timothy 4.16|1 Tim. 4:16]]).
 
 As you work with your associates to help them with their faith, you will save them and also yourselves.
 
-Again Paul’s counsel to Timothy: “Keep thyself pure” ([[1 Timothy 5.22|1 Tim. 5:22]]).
+Again Paul’s counsel to Timothy: “Keep thyself pure” ([[1 Timothy 5.22|1 Tim. 5:22]]).
 
 Those are simple words. But they are ever so important. Paul is saying, in effect, stay away from those things which will tear you down and destroy you spiritually. Stay away from television shows which lead to unclean thoughts and unclean language. Stay away from videos which will lead to evil thoughts. They won’t help you. They will only hurt you. Stay away from books and magazines which are sleazy and filthy in what they say and portray. Keep thyself pure.
 
-Continuing with the words of Paul: “For the love of money is the root of all evil” ([[1 Timothy 6.10|1 Tim. 6:10]]). It is the love of money and the love of those things which money can buy which destroys us. We all need money to supply our needs. But it is the love of it which hurts us, which warps our values, which leads us away from spiritual things and fosters selfishness and greed.
+Continuing with the words of Paul: “For the love of money is the root of all evil” ([[1 Timothy 6.10|1 Tim. 6:10]]). It is the love of money and the love of those things which money can buy which destroys us. We all need money to supply our needs. But it is the love of it which hurts us, which warps our values, which leads us away from spiritual things and fosters selfishness and greed.
 
 And now I come to Paul’s great statement: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.
 
-“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Tim. 1:7–8]][[2 Timothy 1.8|]]).
+“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Tim. 1:7–8]][[2 Timothy 1.8|]]).
 
 It is not God who has given us the spirit of fear; this comes from the adversary. So many of us are fearful of what our peers will say, that we will be looked upon with disdain and criticized if we stand for what is right. But I remind you that “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]). Evil never was happiness. Sin never was happiness. Happiness lies in the power and the love and the sweet simplicity of the gospel of Jesus Christ.
 
-We need not be prudish. We need not slink off in a corner, as it were. We need not be ashamed. We have the greatest thing in the world, the gospel of the risen Lord. Paul gives us a mandate: “Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.8|2 Tim. 1:8]]).
+We need not be prudish. We need not slink off in a corner, as it were. We need not be ashamed. We have the greatest thing in the world, the gospel of the risen Lord. Paul gives us a mandate: “Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.8|2 Tim. 1:8]]).
 
 As deacons, teachers, and priests ordained to the holy priesthood, we can stand tall and, without equivocation or fear, declare our testimony of Jesus Christ.
 
-Further from Paul: “Study to shew thyself approved unto God, a workman that needeth not to be ashamed” ([[2 Timothy 2.15|2 Tim. 2:15]]).
+Further from Paul: “Study to shew thyself approved unto God, a workman that needeth not to be ashamed” ([[2 Timothy 2.15|2 Tim. 2:15]]).
 
-If we were called upon to stand before God and give an accounting of ourselves, could we do it without embarrassment? This is Paul’s great plea to his young friend. It is his plea to each of you. He goes on to say, “Shun profane and vain babblings: for they will increase unto more ungodliness” ([[2 Timothy 2.16|2 Tim. 2:16]]).
+If we were called upon to stand before God and give an accounting of ourselves, could we do it without embarrassment? This is Paul’s great plea to his young friend. It is his plea to each of you. He goes on to say, “Shun profane and vain babblings: for they will increase unto more ungodliness” ([[2 Timothy 2.16|2 Tim. 2:16]]).
 
 He is warning against just fooling around, wasting our time, talking about useless things. Idleness leads to evil.
 
-He continues, “Flee also youthful lusts: but follow righteousness, faith, charity, peace, with them that call on the Lord out of a pure heart” ([[2 Timothy 2.22|2 Tim. 2:22]]).
+He continues, “Flee also youthful lusts: but follow righteousness, faith, charity, peace, with them that call on the Lord out of a pure heart” ([[2 Timothy 2.22|2 Tim. 2:22]]).
 
 It was Sir Galahad who said, “My strength is as the strength of ten, / Because my heart is pure” (Alfred, Lord Tennyson, *Sir Galahad*).
 
@@ -135,6 +135,4 @@ May the Lord bless you, my dear young friends. May His watch care be over you to
 
 
 
-
-
-#Conversion #Fear #Fellowshipping #Greed #Jesus_Christ #Joy #Love #Priesthood #Satan
+#Conversion #Fear #Fellowshipping #Greed #Joy #JesusChrist #Love #Priesthood #Satan

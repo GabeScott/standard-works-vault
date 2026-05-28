@@ -4,6 +4,3 @@
 
 [JST Genesis 14:40](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gen/14?lang=eng)
 
-
-
-

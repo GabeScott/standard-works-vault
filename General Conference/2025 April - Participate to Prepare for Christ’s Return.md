@@ -1,6 +1,6 @@
 # Participate to Prepare for Christ’s Return
 
-By Elder Steven D. Shumway - *Of the Seventy*
+By Elder Steven D. Shumway - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Steven D. Shumway - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/04/42shumway?lang=eng)
 
-A few months ago, I was standing in a hall when Elder Neil L. Andersen walked by. I had just been called as a new General Authority. Likely sensing my feelings of inadequacy, he smiled and said, “Well, there looks like a man who has no idea what he is doing.”
+A few months ago, I was standing in a hall when Elder Neil L. Andersen walked by. I had just been called as a new General Authority. Likely sensing my feelings of inadequacy, he smiled and said, “Well, there looks like a man who has no idea what he is doing.”
 
 And I thought, “There is a true prophet and seer.”
 
@@ -16,7 +16,7 @@ Elder Andersen then whispered, “Don’t worry, Elder Shumway. It gets better�
 
 Have you ever wondered why we are asked to do things in God’s kingdom that feel beyond our reach? With life’s demands, have you asked why we even need callings in the Church? Well, I have.
 
-And I got an answer in general conference when President Russell M. Nelson said, “Now is the time for you and for me to prepare for the Second Coming of our Lord and Savior, Jesus the Christ.”[^1] When President Nelson said this, the Spirit taught me that as we participate in God’s work, we prepare ourselves and others for Christ’s return. The Lord’s promise is compelling that callings, ministering, temple worship, following promptings, and other ways we embark in God’s work uniquely prepare us to meet the Savior.[^2]
+And I got an answer in general conference when President Russell M. Nelson said, “Now is the time for you and for me to prepare for the Second Coming of our Lord and Savior, Jesus the Christ.”[^1] When President Nelson said this, the Spirit taught me that as we participate in God’s work, we prepare ourselves and others for Christ’s return. The Lord’s promise is compelling that callings, ministering, temple worship, following promptings, and other ways we embark in God’s work uniquely prepare us to meet the Savior.[^2]
 
 ## God Is Pleased When We Engage in His Work
 
@@ -66,22 +66,22 @@ John told me that these sacrifices to serve were the spiritual turning points fo
 
 I wonder if we have a blind spot, failing to extend callings to individuals who, to our mortal view, appear unlikely or unworthy. Or we may be more concerned with a culture of performance than with the doctrine of progression, neglecting to see how the Savior increases capacity in the unlikely and the unproven by giving them opportunities to serve.[^28]
 
-Elder David A. Bednar teaches the importance of the scriptural mandate to “*let* every \[woman and\] man *learn* \[their\] duty, and to act.”[^29] Do we do this? When leaders and parents let others learn and act for themselves, they blossom and flourish.[^30] While the easier path may be to give faithful members a second calling, the more excellent way is to invite the unlikely to serve and let them learn and grow.
+Elder David A. Bednar teaches the importance of the scriptural mandate to “*let* every \[woman and\] man *learn* \[their\] duty, and to act.”[^29] Do we do this? When leaders and parents let others learn and act for themselves, they blossom and flourish.[^30] While the easier path may be to give faithful members a second calling, the more excellent way is to invite the unlikely to serve and let them learn and grow.
 
 If Christ were physically here, He would visit the sick, teach the Sunday School class, sit with the heartbroken young woman, and bless the children. He can do His own work.[^31] But He lives this principle of letting us act and learn, so He sends us in His place.
 
 With participation in God’s work comes “the right, privilege, and responsibility to represent the Lord \[Jesus Christ\].”[^32] When we serve to magnify Christ and not ourselves,[^33] our service becomes joyful. When others leave our class, meeting, ministering visit, or activity remembering Christ more than they remember us, the work is energizing.
 
-In earnestly seeking to represent the Savior, we become more like Him.[^34] That is the best preparation for the sacred moment when each of us will kneel and confess that Jesus is the Christ, which I witness that He is and that President Russell M. Nelson is His “voice … unto the ends of the earth” to help us “prepare … for that which is to come.”[^35] In the sacred name of Jesus Christ, amen.
+In earnestly seeking to represent the Savior, we become more like Him.[^34] That is the best preparation for the sacred moment when each of us will kneel and confess that Jesus is the Christ, which I witness that He is and that President Russell M. Nelson is His “voice … unto the ends of the earth” to help us “prepare … for that which is to come.”[^35] In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121.
+[^1]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121.
 
 [^2]: See [[D&C 4.2|Doctrine and Covenants 4:2–4]][[D&C 4.3|]][[D&C 4.4|]].
 
-[^3]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” 121.
+[^3]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” 121.
 
 [^4]: [[D&C 76.5|Doctrine and Covenants 76:5–6]][[D&C 76.6|]].
 
@@ -95,58 +95,56 @@ In earnestly seeking to represent the Savior, we become more like Him.[^34] That
 
 [^9]: In the Savior’s parable of the talents, the Master gives responsibility over “a few things” to each servant. The Master was more focused on each servant’s progress toward becoming masters “over many things” and less concerned with the return of His goods. The one servant who was afraid and unwilling to labor was left condemned and without progression. (See [[Matthew 25.14|Matthew 25:14–28]][[Matthew 25.15|]][[Matthew 25.16|]][[Matthew 25.17|]][[Matthew 25.18|]][[Matthew 25.19|]][[Matthew 25.20|]][[Matthew 25.21|]][[Matthew 25.22|]][[Matthew 25.23|]][[Matthew 25.24|]][[Matthew 25.25|]][[Matthew 25.26|]][[Matthew 25.27|]][[Matthew 25.28|]].)
 
-[^10]: See [[Luke 21.19|Luke 21:19]]. Elder David A. Bednar teaches that “righteous work is a necessity for spiritual progress” (“[Things as They Really Are 2.0](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2024/11/13bednar?lang=eng&id=p49#p49)” \[worldwide devotional for young adults, Nov. 3, 2024\], Gospel Library).
+[^10]: See [[Luke 21.19|Luke 21:19]]. Elder David A. Bednar teaches that “righteous work is a necessity for spiritual progress” (“[Things as They Really Are 2.0](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2024/11/13bednar?lang=eng&id=p49#p49)” \[worldwide devotional for young adults, Nov. 3, 2024\], Gospel Library).
 
 [^11]: See [[D&C 10.4|Doctrine and Covenants 10:4]].
 
 [^12]: See [[Mosiah 4.24|Mosiah 4:24]].
 
-[^13]: See Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 79: “God wants us to work together and help each other. That is why He sends us to earth in families and organizes us into wards and stakes. That is why He asks us to serve and minister to each other. … We can accomplish so much more together than we can alone. God’s plan of happiness would be frustrated if His children remained isolated one from another.”
+[^13]: See Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 79: “God wants us to work together and help each other. That is why He sends us to earth in families and organizes us into wards and stakes. That is why He asks us to serve and minister to each other. … We can accomplish so much more together than we can alone. God’s plan of happiness would be frustrated if His children remained isolated one from another.”
 
 [^14]: [[Galatians 6.2|Galatians 6:2]]; see also [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
 
-[^15]: President Henry B. Eyring taught: “To be called to serve is a call to come to love the Master we serve. It is a call to have our natures changed” (“[[2006 April - As a Child.md|As a Child]],” *Ensign* or *Liahona*, May 2006, 17).
+[^15]: President Henry B. Eyring taught: “To be called to serve is a call to come to love the Master we serve. It is a call to have our natures changed” (“[[2006 April - As a Child.md|As a Child]],” *Ensign* or *Liahona*, May 2006, 17).
 
-[^16]: See Henry B. Eyring, “[Should a Latter-day Saint Sell a Product When Its Use Violates the Word of Wisdom?](https://churchofjesuschrist.org/study/ensign/1977/04/i-have-a-question/should-a-latter-day-saint-sell-a-product-when-its-use-violates-the-word-of-wisdom?lang=eng&id=p3#p3),” *Ensign*, Apr. 1977, 30.
+[^16]: See Henry B. Eyring, “[Should a Latter-day Saint Sell a Product When Its Use Violates the Word of Wisdom?](https://www.churchofjesuschrist.org/study/ensign/1977/04/i-have-a-question/should-a-latter-day-saint-sell-a-product-when-its-use-violates-the-word-of-wisdom?lang=eng&id=p3#p3),” *Ensign*, Apr. 1977, 30.
 
 [^17]: [[Mosiah 18.26|Mosiah 18:26]]; see also [[Mosiah 27.5|Mosiah 27:5]].
 
-[^18]: See [[2 Nephi 3.13|2 Nephi 3:13, 24]][[2 Nephi 3.24|]].
+[^18]: See [[2 Nephi 3.13|2 Nephi 3:13, 24]][[2 Nephi 3.24|]].
 
 [^19]: [[Jacob 4.7|Jacob 4:7]].
 
-[^20]: See [[Isaiah 40.29|Isaiah 40:29–31]][[Isaiah 40.30|]][[Isaiah 40.31|]]; [[2 Corinthians 12.9|2 Corinthians 12:9]].
+[^20]: See [[Isaiah 40.29|Isaiah 40:29–31]][[Isaiah 40.30|]][[Isaiah 40.31|]]; [[2 Corinthians 12.9|2 Corinthians 12:9]].
 
 [^21]: See [[Matthew 14.15|Matthew 14:15–21]][[Matthew 14.16|]][[Matthew 14.17|]][[Matthew 14.18|]][[Matthew 14.19|]][[Matthew 14.20|]][[Matthew 14.21|]]. Even though a meager five loaves of bread and two fishes were offered to feed the massive multitude of people, the Savior gratefully took that offering and magnified it to even more than what was needed. One of the great lessons of this miracle is that what the Savior offers us is always more than enough!
 
 [^22]: The Latin root of the word *sacrifice* is *sacer*, meaning sacred or holy, and *facere*, meaning to make. As we sacrifice for God, He makes us holy (see [[Helaman 3.35|Helaman 3:35]]; [[D&C 132.50|Doctrine and Covenants 132:50]]).
 
-[^23]: [[3 Nephi 27.14|3 Nephi 27:14]].
+[^23]: [[3 Nephi 27.14|3 Nephi 27:14]].
 
 [^24]: See [[D&C 15.6|Doctrine and Covenants 15:6]]; [[D&C 16.6|16:6;]] [[D&C 18.10|18:10–16]][[D&C 18.11|]][[D&C 18.12|]][[D&C 18.13|]][[D&C 18.14|]][[D&C 18.15|]][[D&C 18.16|]].
 
-[^25]: See [[Moroni 7.2|Moroni 7:2]]; *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [4.1](https://churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=p5#p5), Gospel Library.
+[^25]: See [[Moroni 7.2|Moroni 7:2]]; *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [4.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=p5#p5), Gospel Library.
 
 [^26]: See “Let Us All Press On,” *Hymns*, no. 243.
 
-[^27]: Personal experience and correspondence, Jan. 4, 2025; name has been changed.
+[^27]: Personal experience and correspondence, Jan. 4, 2025; name has been changed.
 
-[^28]: See [[Matthew 10.5|Matthew 10:5–8]][[Matthew 10.6|]][[Matthew 10.7|]][[Matthew 10.8|]]; [[Luke 10.1|Luke 10:1–9]][[Luke 10.2|]][[Luke 10.3|]][[Luke 10.4|]][[Luke 10.5|]][[Luke 10.6|]][[Luke 10.7|]][[Luke 10.8|]][[Luke 10.9|]]; *General Handbook*, [4.2.6](https://churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=p39-p41#p39).
+[^28]: See [[Matthew 10.5|Matthew 10:5–8]][[Matthew 10.6|]][[Matthew 10.7|]][[Matthew 10.8|]]; [[Luke 10.1|Luke 10:1–9]][[Luke 10.2|]][[Luke 10.3|]][[Luke 10.4|]][[Luke 10.5|]][[Luke 10.6|]][[Luke 10.7|]][[Luke 10.8|]][[Luke 10.9|]]; *General Handbook*, [4.2.6](https://www.churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=p39-p41#p39).
 
-[^29]: [[D&C 107.99|Doctrine and Covenants 107:99]]; emphasis added; from a conversation with Elder David A. Bednar, Dec. 2024.
+[^29]: [[D&C 107.99|Doctrine and Covenants 107:99]]; emphasis added; from a conversation with Elder David A. Bednar, Dec. 2024.
 
 [^30]: See [[Joseph Smith History 1.20|Joseph Smith—History 1:20]]. Our youth are not just future leaders in the Church. They can lead in substantive ways now. I saw this truth serving with 744 of the most remarkable disciples of Jesus Christ in the Illinois Chicago Mission from 2019 to 2022. During COVID, these young but powerful disciples of Christ led God’s work forward to unseen heights in remarkable and innovative ways.
 
-[^31]: See [[2 Nephi 27.20|2 Nephi 27:20–21]][[2 Nephi 27.21|]].
+[^31]: See [[2 Nephi 27.20|2 Nephi 27:20–21]][[2 Nephi 27.21|]].
 
-[^32]: *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 3.
+[^32]: *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/03-chapter-1?lang=eng&id=p14#p14)* (2023), 3.
 
 [^33]: In [[Jacob 1.17|Jacob 1:17, 19]][[Jacob 1.19|]], Jacob’s errand was the Lord’s errand. He did not magnify his office unto himself but unto the Lord so that he could teach God’s word and thus “be found spotless at the last day.”
 
-[^34]: See [[3 Nephi 27.27|3 Nephi 27:27]].
+[^34]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
 [^35]: [[D&C 1.11|Doctrine and Covenants 1:11–12]][[D&C 1.12|]].
 
-
-
-#Church_Callings #Preparation #Second_Coming #Service
+#ChurchCallings #Preparation #SecondComing #Service

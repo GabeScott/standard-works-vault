@@ -34,7 +34,7 @@ Let’s look at a few other blessings the temple brings. The house of the Lord i
 
 The celestial room in the temple is especially a place of peace, tranquility, and beauty. It is a quiet haven where one can reflect, ponder, pray, meditate, and feel the love of Heavenly Father and the Savior. As we ponder and meditate in the temple, our thoughts naturally focus on members of our family.
 
-In [[2 Samuel 22.7|2 Samuel 22:7]] we read the words of David: “In my distress I called upon the Lord, and cried to my God: and he did hear my voice out of his temple, and my cry did enter into his ears.” The temple is a place of personal revelation that will bless us in our stewardships.
+In [[2 Samuel 22.7|2 Samuel 22:7]] we read the words of David: “In my distress I called upon the Lord, and cried to my God: and he did hear my voice out of his temple, and my cry did enter into his ears.” The temple is a place of personal revelation that will bless us in our stewardships.
 
 President Hinckley has told us that “just as our Redeemer gave His life as a vicarious sacrifice for all men, and in so doing became our Savior, even so we, in a small measure, when we engage in proxy work in the temple, become as saviors to those on the other side who have no means of advancing unless something is done in their behalf by those on earth.”[^3]
 
@@ -56,7 +56,5 @@ In the name of Jesus Christ, amen.
 [^3]: *Discourses of President Gordon B. Hinckley, Volume 2: 2000–2004* (2005), 265.
 
 [^4]: *History of the Church,* 6:363.
-
-
 
 #Family #Love #Temples

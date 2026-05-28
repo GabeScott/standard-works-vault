@@ -1,4 +1,3 @@
 # Prophets, False
 
-
-*See* [[False Prophets.md|False Prophets]]
+*See also* [[False Prophets.md|False Prophets]]

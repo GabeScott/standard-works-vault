@@ -1,6 +1,6 @@
 # Shepherding Souls
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,9 +8,9 @@ By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/shepherding-souls?lang=eng)
 
-In a recent conversation with a friend of mine, he told me that when he was a young, newly baptized member of the Church, he suddenly felt like somehow he did not fit in anymore in his ward. The missionaries who taught him had been transferred away, and he felt like he was on the periphery. Without friends in the ward, he found his old friends and with them engaged in activities that took him away from participating at church—so much so that he began to stray from the flock. With tears in his eyes, he described how deeply grateful he was when a fellow ward member extended a ministering hand to him and, in a warm and inclusive way, invited him to return. Within months, he was back in the safety of the flock, strengthening others as well as himself. Aren’t we grateful for the shepherd in Brazil who sought after this young man, Elder Carlos A. Godoy, who now sits behind me as a member of the Presidency of the Seventy?
+In a recent conversation with a friend of mine, he told me that when he was a young, newly baptized member of the Church, he suddenly felt like somehow he did not fit in anymore in his ward. The missionaries who taught him had been transferred away, and he felt like he was on the periphery. Without friends in the ward, he found his old friends and with them engaged in activities that took him away from participating at church—so much so that he began to stray from the flock. With tears in his eyes, he described how deeply grateful he was when a fellow ward member extended a ministering hand to him and, in a warm and inclusive way, invited him to return. Within months, he was back in the safety of the flock, strengthening others as well as himself. Aren’t we grateful for the shepherd in Brazil who sought after this young man, Elder Carlos A. Godoy, who now sits behind me as a member of the Presidency of the Seventy?
 
-Isn’t it remarkable how such small efforts can have eternal consequences? This truth is at the heart of the Church’s ministering efforts. Heavenly Father can take our simple, daily efforts and turn them into something miraculous. It has been only six months since President Russell M. Nelson announced that “the Lord has made important adjustments in the way we care for each other,”[^1] explaining, “We will implement a newer, holier approach to caring for and ministering to others. We will refer to these efforts simply as ‘ministering.’”[^2]
+Isn’t it remarkable how such small efforts can have eternal consequences? This truth is at the heart of the Church’s ministering efforts. Heavenly Father can take our simple, daily efforts and turn them into something miraculous. It has been only six months since President Russell M. Nelson announced that “the Lord has made important adjustments in the way we care for each other,”[^1] explaining, “We will implement a newer, holier approach to caring for and ministering to others. We will refer to these efforts simply as ‘ministering.’”[^2]
 
 President Nelson also explained: “A hallmark of the Lord’s true and living Church will always be an organized, directed effort to minister to individual children of God and their families. Because it is His Church, we as His servants will minister to the one, just as He did. We will minister in His name, with His power and authority, and with His loving-kindness.”[^3]
 
@@ -20,7 +20,7 @@ I don’t think it is a coincidence that six months prior to the revelatory anno
 
 With these organizational structures in place, we might ask, “How do we know we are ministering in the Lord’s way? Are we assisting the Good Shepherd in the way He intends?”
 
-In a recent discussion, President Henry B. Eyring commended the Saints in adjusting to these notable changes but also expressed his sincere hope that members recognize that ministering is more than “just being nice.” That is not to say that being nice is inconsequential, but those who understand the true spirit of ministering realize that it goes far beyond merely being nice. Done in the Lord’s way, ministering can have a far-reaching influence for good that ripples throughout all eternity, as it has for Elder Godoy.
+In a recent discussion, President Henry B. Eyring commended the Saints in adjusting to these notable changes but also expressed his sincere hope that members recognize that ministering is more than “just being nice.” That is not to say that being nice is inconsequential, but those who understand the true spirit of ministering realize that it goes far beyond merely being nice. Done in the Lord’s way, ministering can have a far-reaching influence for good that ripples throughout all eternity, as it has for Elder Godoy.
 
 “The Savior showed by example what it means to minister as He served out of love. … He … taught, prayed for, comforted, and blessed those around Him, inviting all to follow Him. … As Church members minister \[in a higher and holier way\], they prayerfully seek to serve as He would—to … ‘watch over the church always, and be with and strengthen them,’ ‘visit the house of each member,’ and help each become a true disciple of Jesus Christ.”[^5]
 
@@ -42,7 +42,7 @@ As children of a loving Heavenly Father and as sheep in His flock, we enjoy the 
 
 Who is a shepherd? Every man, woman, and child in the kingdom of God is a shepherd. No calling is required. From the moment we emerge from the waters of baptism, we are commissioned to this work. We reach out in love to others because it is what our Savior commanded us to do. Alma emphasized: “For what shepherd … having many sheep doth not watch over them, that the wolves enter not and devour his flock? … Doth he not drive him out?”[^11] Whenever our neighbors are in distress temporally or spiritually, we run to their aid. We bear one another’s burdens that they may be light. We mourn with those who mourn. We comfort those who stand in need of comfort.[^12] The Lord lovingly expects this of us. And the day will come when we will be held accountable for the care we take in ministering to His flock.[^13]
 
-My shepherd friend shared another important element in the watchcare of sheep on the range. He described that lost sheep were particularly vulnerable to the dangers of predators. In fact, up to 15 percent of his and his team’s total time was devoted to finding lost sheep. The sooner they found lost sheep, before the sheep drifted too far from the flock, the less likely the sheep were to be harmed. Recovering lost sheep required much patience and discipline.
+My shepherd friend shared another important element in the watchcare of sheep on the range. He described that lost sheep were particularly vulnerable to the dangers of predators. In fact, up to 15 percent of his and his team’s total time was devoted to finding lost sheep. The sooner they found lost sheep, before the sheep drifted too far from the flock, the less likely the sheep were to be harmed. Recovering lost sheep required much patience and discipline.
 
 Some years ago, I found an article in a local newspaper so intriguing that I saved it. The front-page headline read, “Determined Dog Won’t Abandon Lost Sheep.”[^14] This article describes a small number of sheep belonging to an operation not far from my friend’s property that were somehow left behind in their summer range. Two or three months later, they became stranded and snowbound in the mountains. When the sheep were left behind, the sheepdog stayed with them, for it was his duty to look after and protect the sheep. He would not go off watch! There he remained—circling about the lost sheep for months in the cold and snowy weather, serving as a protection against coyotes, mountain lions, or any other predator that would harm the sheep. He stayed there until he was able to lead or herd the sheep back to the safety of the shepherd and the flock. The image captured on the front page of this article allows one to see character in the eyes and demeanor of this sheepdog.
 
@@ -64,32 +64,32 @@ As we summarize the lesson taught in the parable, we find this valuable counsel:
 
 4. We surround them with friends upon their return.
 
-Brothers and sisters, our greatest challenges and our greatest rewards may come as we minister to lost sheep. The members of the Church in the Book of Mormon “watch\[ed\] over their people, and did nourish them with things pertaining to righteousness.”[^16] We can follow their examples and remember that ministering is to be “led by the Spirit, … flexible, and … customized to the needs of each member.” It is also critical that we “seek to help individuals and families prepare for their next ordinance, keep \[their\] covenants … , and become self-reliant.”[^17]
+Brothers and sisters, our greatest challenges and our greatest rewards may come as we minister to lost sheep. The members of the Church in the Book of Mormon “watch\[ed\] over their people, and did nourish them with things pertaining to righteousness.”[^16] We can follow their examples and remember that ministering is to be “led by the Spirit, … flexible, and … customized to the needs of each member.” It is also critical that we “seek to help individuals and families prepare for their next ordinance, keep \[their\] covenants … , and become self-reliant.”[^17]
 
 Every soul is precious to our Heavenly Father. His personal invitation to minister is of greatest value and importance to Him, for it is His work and glory. It is quite literally the work of eternity. Each one of His children has immeasurable potential in His sight. He loves *you* with a love you cannot even begin to comprehend. Like the devoted sheepdog, the Lord will stay on the mountain to protect *you* through the wind, rainstorms, snow, and *more*.
 
-President Russell M. Nelson taught us last conference: “Our message to the world \[and, may I add, “to our ministering flock”\] is simple and sincere: we invite all of God’s children on *both sides of the veil* to come unto their Savior, receive the blessings of the holy temple, have enduring joy, and qualify for eternal life.”[^18]
+President Russell M. Nelson taught us last conference: “Our message to the world \[and, may I add, “to our ministering flock”\] is simple and sincere: we invite all of God’s children on *both sides of the veil* to come unto their Savior, receive the blessings of the holy temple, have enduring joy, and qualify for eternal life.”[^18]
 
 May we raise our sights to this prophetic vision so we can shepherd souls to the temple and ultimately to our Savior, Jesus Christ. He does not expect us to perform miracles. He asks only that we bring our brothers and sisters unto Him, for *He* has the power to redeem souls. As we do so, we can and will secure this promise: “And when the chief Shepherd shall appear, ye shall receive a crown of glory that fadeth not away.”[^19] Of this I testify—and of Jesus Christ as our Savior and our Redeemer—in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118.
+[^1]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118.
 
-[^2]: Russell M. Nelson, “[[2018 April - Ministering as the Savior Does.md|Ministering]],” *Ensign* or *Liahona,* May 2018, 100.
+[^2]: Russell M. Nelson, “[[2018 April - Ministering.md|Ministering]],” *Ensign* or *Liahona,* May 2018, 100.
 
-[^3]: Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 69.
+[^3]: Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 69.
 
-[^4]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 8.
+[^4]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 8.
 
-[^5]: “[Ministering with Strengthened Melchizedek Priesthood Quorums and Relief Societies](https://www.lds.org/ministering/ministering-faq),” enclosure to the First Presidency letter dated Apr. 2, 2018, 3, ministering.lds.org; [[Mosiah 18.9|Mosiah 18:9]]; [[D&C 20.51|Doctrine and Covenants 20:51, 53]][[D&C 20.53|]]; see also [[John 13.35|John 13:35]].
+[^5]: “[Ministering with Strengthened Melchizedek Priesthood Quorums and Relief Societies](https://www.lds.org/ministering/ministering-faq),” enclosure to the First Presidency letter dated Apr. 2, 2018, 3, ministering.lds.org; [[Mosiah 18.9|Mosiah 18:9]]; [[D&C 20.51|Doctrine and Covenants 20:51, 53]][[D&C 20.53|]]; see also [[John 13.35|John 13:35]].
 
 [^6]: See James E. Talmage, *Jesus the Christ* (1916), 417.
 
 [^7]: [[John 10.14|John 10:14–15]][[John 10.15|]].
 
-[^8]: [[1 Nephi 22.25|1 Nephi 22:25]].
+[^8]: [[1 Nephi 22.25|1 Nephi 22:25]].
 
 [^9]: [[Psalms 23.1|Psalm 23:1]]; emphasis added.
 
@@ -109,7 +109,8 @@ May we raise our sights to this prophetic vision so we can shepherd souls to the
 
 [^17]: “[Ministering with Strengthened Melchizedek Priesthood Quorums and Relief Societies](https://www.lds.org/ministering/ministering-faq),” 4, 5, ministering.lds.org.
 
-[^18]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” 118–19; emphasis added.
+[^18]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” 118–19; emphasis added.
 
+[^19]: [[1 Peter 5.4|1 Peter 5:4]].
 
-#Activation #Jesus_Christ #Ministering
+#Activation #JesusChrist #Ministering

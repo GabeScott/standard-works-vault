@@ -1,6 +1,6 @@
 # The Powerful, Virtuous Cycle of the Doctrine of Christ
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -20,7 +20,7 @@ After the group had rested, the guide quietly said to me, “Mr. Renlund, if you
 
 By consistently paddling the kayak, I maintained momentum and forward progress, mitigating the effect of waves hitting me from the side. The same principle applies in our spiritual lives. We become vulnerable when we slow down and especially when we stop.[^3] If we maintain spiritual momentum by continually “rowing” toward the Savior, we are safer and more secure because our eternal life depends on our faith in Him.[^4]
 
-Spiritual momentum is created “over a lifetime as we repeatedly embrace the doctrine of Christ.”[^5] Doing so, President Russell M. Nelson taught, produces a “powerful virtuous cycle.”[^6] Indeed, the elements of the doctrine of Christ—such as faith in the Lord Jesus Christ, repentance, entering a covenant relationship with the Lord through baptism, receiving the gift of the Holy Ghost, and enduring to the end[^7]—are not intended to be experienced as one-time, check-the-box events. In particular, “enduring to the end” is not really a separate step in the doctrine of Christ—as though we complete the first four elements and then hunker down, grit our teeth, and wait to die. No, enduring to the end is repeatedly and iteratively applying the other elements of the doctrine of Christ, creating the “powerful virtuous cycle” that President Nelson described.[^8]
+Spiritual momentum is created “over a lifetime as we repeatedly embrace the doctrine of Christ.”[^5] Doing so, President Russell M. Nelson taught, produces a “powerful virtuous cycle.”[^6] Indeed, the elements of the doctrine of Christ—such as faith in the Lord Jesus Christ, repentance, entering a covenant relationship with the Lord through baptism, receiving the gift of the Holy Ghost, and enduring to the end[^7]—are not intended to be experienced as one-time, check-the-box events. In particular, “enduring to the end” is not really a separate step in the doctrine of Christ—as though we complete the first four elements and then hunker down, grit our teeth, and wait to die. No, enduring to the end is repeatedly and iteratively applying the other elements of the doctrine of Christ, creating the “powerful virtuous cycle” that President Nelson described.[^8]
 
 *Repeatedly* means that we experience the elements of the doctrine of Christ over and over throughout our lives. *Iteratively* means that we build on and improve with each repetition. Even though we repeat the elements, we are not just spinning in circles without a forward trajectory. Instead, we draw closer to Jesus Christ each time through the cycle.
 
@@ -55,41 +55,41 @@ I invite you to live the doctrine of Christ repeatedly, iteratively, and intenti
 
 [^3]: In physics, momentum = mass × velocity. When we stop, the velocity is zero. Therefore, the product of mass and velocity becomes zero, regardless of our prior momentum or the mass.
 
-[^4]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98. President Nelson counseled, “We have never needed *positive* spiritual momentum more than we do now.” That’s the best way to move “forward amid … fear and uncertainty.” See also [[2 Nephi 2.6|2 Nephi 2:6–7]][[2 Nephi 2.7|]]; [[2 Nephi 9.23|9:23–24]][[2 Nephi 9.24|]].
+[^4]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98. President Nelson counseled, “We have never needed *positive* spiritual momentum more than we do now.” That’s the best way to move “forward amid … fear and uncertainty.” See also [[2 Nephi 2.6|2 Nephi 2:6–7]][[2 Nephi 2.7|]]; [[2 Nephi 9.23|9:23–24]][[2 Nephi 9.24|]].
 
-[^5]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
+[^5]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
 
-[^6]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World]],” 97.
+[^6]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World]],” 97.
 
-[^7]: The phrase “the doctrine of Christ” means the same as the phrase “the gospel of Jesus Christ.” See [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 9.14|3 Nephi 9:14–22]][[3 Nephi 9.15|]][[3 Nephi 9.16|]][[3 Nephi 9.17|]][[3 Nephi 9.18|]][[3 Nephi 9.19|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]][[3 Nephi 9.22|]]; [[3 Nephi 11.7|11:7–41]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]; [[3 Nephi 27.1|27:1–21]][[3 Nephi 27.2|]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]][[3 Nephi 27.9|]][[3 Nephi 27.10|]][[3 Nephi 27.11|]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
+[^7]: The phrase “the doctrine of Christ” means the same as the phrase “the gospel of Jesus Christ.” See [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 9.14|3 Nephi 9:14–22]][[3 Nephi 9.15|]][[3 Nephi 9.16|]][[3 Nephi 9.17|]][[3 Nephi 9.18|]][[3 Nephi 9.19|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]][[3 Nephi 9.22|]]; [[3 Nephi 11.7|11:7–41]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]; [[3 Nephi 27.1|27:1–21]][[3 Nephi 27.2|]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]][[3 Nephi 27.9|]][[3 Nephi 27.10|]][[3 Nephi 27.11|]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
 
-[^8]: Disengaging from any of the elements in the doctrine of Christ slows or stops our spiritual momentum. See [[2 Nephi 28.30|2 Nephi 28:30]]; [[Alma 12.10|Alma 12:10–11]][[Alma 12.11|]]; [[D&C 20.31|Doctrine and Covenants 20:31–34]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]]; [[D&C 50.24|50:24]].
+[^8]: Disengaging from any of the elements in the doctrine of Christ slows or stops our spiritual momentum. See [[2 Nephi 28.30|2 Nephi 28:30]]; [[Alma 12.10|Alma 12:10–11]][[Alma 12.11|]]; [[D&C 20.31|Doctrine and Covenants 20:31–34]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]]; [[D&C 50.24|50:24]].
 
 [^9]: In physics, momentum = mass × velocity. Velocity is the speed in combination with the direction of motion of an object. Velocity is a vector and is inherently directional.
 
-[^10]: See [[2 Nephi 2.6|2 Nephi 2:6–7]][[2 Nephi 2.7|]]; [[2 Nephi 9.23|9:23–24]][[2 Nephi 9.24|]].
+[^10]: See [[2 Nephi 2.6|2 Nephi 2:6–7]][[2 Nephi 2.7|]]; [[2 Nephi 9.23|9:23–24]][[2 Nephi 9.24|]].
 
-[^11]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” 99.
+[^11]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” 99.
 
 [^12]: See [[Colossians 2.6|Colossians 2:6–7]][[Colossians 2.7|]].
 
-[^13]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World]],” 97. Underlining the importance of our testimonies in maintaining spiritual momentum, the statement by President Nelson to take charge of our testimonies was also quoted by President M. Russell Ballard (see “[[2022 October - Follow Jesus Christ with Footsteps of Faith.md|Follow Jesus Christ with Footsteps of Faith]],” *Liahona*, Nov. 2022, 35) and Elder Quentin L. Cook (see “[[2022 October - Be True to God and His Work.md|Be True to God and His Work]],” *Liahona*, Nov. 2022, 120).
+[^13]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World]],” 97. Underlining the importance of our testimonies in maintaining spiritual momentum, the statement by President Nelson to take charge of our testimonies was also quoted by President M. Russell Ballard (see “[[2022 October - Follow Jesus Christ with Footsteps of Faith.md|Follow Jesus Christ with Footsteps of Faith]],” *Liahona*, Nov. 2022, 35) and Elder Quentin L. Cook (see “[[2022 October - Be True to God and His Work.md|Be True to God and His Work]],” *Liahona*, Nov. 2022, 120).
 
-[^14]: See “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng),” Gospel Library; Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona*, Nov. 2015, 97.
+[^14]: See “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng),” Gospel Library; Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona*, Nov. 2015, 97.
 
 [^15]: See [[Mosiah 26.30|Mosiah 26:30]]; [[Alma 34.31|Alma 34:31]]; [[Moroni 6.8|Moroni 6:8]]; [[D&C 58.42|Doctrine and Covenants 58:42]].
 
-[^16]: See [[2 Nephi 31.13|2 Nephi 31:13]].
+[^16]: See [[2 Nephi 31.13|2 Nephi 31:13]].
 
-[^17]: Elder James E. Talmage wrote, “In the course of our study of the principles and ordinances of the Gospel, as specified in the fourth of the Articles of Faith, the subject of the Sacrament of the Lord’s Supper very properly claims attention, the observance of this ordinance being required of all who have become members of the Church of Christ through compliance with the requirements of faith, repentance, and baptism by water and of the Holy Ghost” (*The Articles of Faith*, 12th ed. \[1924\], 171).
+[^17]: Elder James E. Talmage wrote, “In the course of our study of the principles and ordinances of the Gospel, as specified in the fourth of the Articles of Faith, the subject of the Sacrament of the Lord’s Supper very properly claims attention, the observance of this ordinance being required of all who have become members of the Church of Christ through compliance with the requirements of faith, repentance, and baptism by water and of the Holy Ghost” (*The Articles of Faith*, 12th ed. \[1924\], 171).
 
 [^18]: See [[D&C 59.9|Doctrine and Covenants 59:9]].
 
-[^19]: See Dallin H. Oaks, “[Special Witnesses of Christ](https://churchofjesuschrist.org/study/ensign/2001/04/special-witnesses-of-christ?lang=eng),” *Ensign*, Apr. 2001, 13; *Liahona*, Apr. 2001, 14.
+[^19]: See Dallin H. Oaks, “[Special Witnesses of Christ](https://www.churchofjesuschrist.org/study/ensign/2001/04/special-witnesses-of-christ?lang=eng),” *Ensign*, Apr. 2001, 13; *Liahona*, Apr. 2001, 14.
 
 [^20]: [[Mosiah 5.2|Mosiah 5:2]].
 
-[^21]: See, for instance, [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.23|3 Nephi 11:23–31]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]]; [[3 Nephi 27.13|27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|5:2]]; [[Moroni 6.6|6:6]]; [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]; [[D&C 59.8|59:8–9]][[D&C 59.9|]].
+[^21]: See, for instance, [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.23|3 Nephi 11:23–31]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]]; [[3 Nephi 27.13|27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|5:2]]; [[Moroni 6.6|6:6]]; [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]; [[D&C 59.8|59:8–9]][[D&C 59.9|]].
 
 [^22]: See [[D&C 14.7|Doctrine and Covenants 14:7]]; [[D&C 84.33|84:33–38]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]].
 
@@ -99,14 +99,12 @@ I invite you to live the doctrine of Christ repeatedly, iteratively, and intenti
 
 [^25]: See [[Ephesians 2.8|Ephesians 2:8–9]][[Ephesians 2.9|]].
 
-[^26]: [[2 Nephi 10.24|2 Nephi 10:24]].
+[^26]: [[2 Nephi 10.24|2 Nephi 10:24]].
 
-[^27]: President Jeffrey R. Holland taught: “When a battered, weary swimmer tries valiantly to get back to shore, after having fought strong winds and rough waves which he should never have challenged in the first place, those of us who might have had better judgment, or perhaps just better luck, ought not to row out to his side, beat him with our oars, and shove his head back underwater. That’s not what boats were made for. But some of us do that to each other” (“[A Robe, a Ring, and a Fatted Calf](https://speeches.byu.edu/talks/jeffrey-r-holland/robe-ring-fatted-calf)” \[Brigham Young University devotional, Jan. 31, 1984\], 5, speeches.byu.edu).
+[^27]: President Jeffrey R. Holland taught: “When a battered, weary swimmer tries valiantly to get back to shore, after having fought strong winds and rough waves which he should never have challenged in the first place, those of us who might have had better judgment, or perhaps just better luck, ought not to row out to his side, beat him with our oars, and shove his head back underwater. That’s not what boats were made for. But some of us do that to each other” (“[A Robe, a Ring, and a Fatted Calf](https://speeches.byu.edu/talks/jeffrey-r-holland/robe-ring-fatted-calf)” \[Brigham Young University devotional, Jan. 31, 1984\], 5, speeches.byu.edu).
 
-[^28]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
+[^28]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
 
-[^29]: [[3 Nephi 18.32|3 Nephi 18:32]].
+[^29]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
-
-
-#Baptism #Church_Doctrine #Covenants #Discipleship #Endurance #Faith #Holy_Ghost #Jesus_Christ #Repentance
+#Baptism #ChurchDoctrine #Covenants #Discipleship #Endurance #Faith #HolyGhost #JesusChrist #Repentance

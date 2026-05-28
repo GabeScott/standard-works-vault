@@ -1,6 +1,6 @@
 # “After Much Tribulation Come the Blessings”
 
-By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
+By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -44,7 +44,7 @@ President Kimball stated: “The Lord has not promised us freedom from adversity
 
 President Kimball also said: “They who reach down into the depths of life where, in the stillness, the voice of God has been heard, have the stabilizing power which carries them poised and serene through the hurricane of difficulties” (*Ensign,* May 1979, p. 6).
 
-President Harold B. Lee stated in general conference in 1965: “Just as a flood-lighted temple is more beautiful in a severe storm or in a heavy fog, so the gospel of Jesus Christ is more glorious in times of inward storm and of personal sorrow and tormenting conflict” (in Conference Report, Apr. 1965, p. 16).
+President Harold B. Lee stated in general conference in 1965: “Just as a flood-lighted temple is more beautiful in a severe storm or in a heavy fog, so the gospel of Jesus Christ is more glorious in times of inward storm and of personal sorrow and tormenting conflict” (in Conference Report, Apr. 1965, p. 16).
 
 May I share another experience with you? A few years ago in Japan, a stake was being organized from a mission district. In the course of an interview, the district president stated that he would shortly be moving to another city where he had accepted a promotion with his company to become the manager of their largest branch. But the Lord wanted this man to serve as the new stake president. He was called before the General Authority who inquired whether his superiors would reconsider the promotion and allow him to remain in the city where he might be able to serve his church in this very important position.
 
@@ -66,7 +66,7 @@ We are promised, as the Prophet Joseph was promised, “Thine adversity and thin
 
 “And then, if thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes” ([[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]]).
 
-Orson F. Whitney said: “No pain that we suffer, no trial that we experience is wasted. It ministers to our education, to the development of such qualities as patience, faith, fortitude and humility. All that we suffer and all that we endure, especially when we endure it patiently, builds up our characters, purifies our hearts, expands our souls, and makes us more tender and charitable, more worthy to be called the children of God … and it is through sorrow and suffering, toil and tribulation, that we gain the education that we come here to acquire and which will make us more like our Father and Mother in heaven” (cited in Spencer W. Kimball, *Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 98).
+Orson F. Whitney said: “No pain that we suffer, no trial that we experience is wasted. It ministers to our education, to the development of such qualities as patience, faith, fortitude and humility. All that we suffer and all that we endure, especially when we endure it patiently, builds up our characters, purifies our hearts, expands our souls, and makes us more tender and charitable, more worthy to be called the children of God … and it is through sorrow and suffering, toil and tribulation, that we gain the education that we come here to acquire and which will make us more like our Father and Mother in heaven” (cited in Spencer W. Kimball, *Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 98).
 
 President Kimball said: “Suffering can make saints of people as they learn patience, long-suffering, and self-mastery. The sufferings of our Savior were part of his education.
 
@@ -75,8 +75,6 @@ President Kimball said: “Suffering can make saints of people as they learn pat
 “‘And being made perfect, he became the author of eternal salvation unto all them that obey him.’ ([[Hebrews 5.8|Hebrews 5:8–9]][[Hebrews 5.9|]].)” (*Faith Precedes the Miracle,* p. 98).
 
 May we endure our trials and sufferings well. May we look to the Lord with faith in his righteous judgment is my prayer, and I ask it humbly in the name of Jesus Christ, amen.
-
-
 
 
 

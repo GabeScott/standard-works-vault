@@ -1,6 +1,6 @@
 # The Power of the Book of Mormon
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -23,6 +23,4 @@ My dear associates in the work of the Lord, I implore each of us to prayerfully 
 
 
 
-
-
-#Book_Of_Mormon #Testimony
+#BookOfMormon #Testimony

@@ -16,7 +16,7 @@ Charity, the Savior’s pure love, is the “highest, noblest, strongest kind of
 
 As our exemplar, the Savior showed us what charity means through His own actions. Besides ministering to multitudes, Jesus demonstrated the depth of His love and care for His family. Even while suffering terrible agony on the cross, He thought of His mother and her needs:
 
-“Now there stood by the cross of Jesus his mother. …
+“Now there stood by the cross of Jesus his mother. …
 
 “When Jesus therefore saw his mother, and the disciple standing by, whom he loved, he saith unto his mother, Woman, behold thy son!
 
@@ -43,13 +43,13 @@ I leave my witness that the greatest act of charity in time and all eternity was
 
 
 
-[^1]: Bible Dictionary, 632.
+[^1]: Bible Dictionary, [[BD Charity|632]].
 
 [^2]: [[Moroni 7.48|Moroni 7:48]].
 
 [^3]: “The Challenge to Become,” *Ensign,* Nov. 2000, 34; *Liahona,* Jan. 2001, 42.
 
-[^4]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^4]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
 [^5]: [[John 19.25|John 19:25–27]][[John 19.26|]][[John 19.27|]].
 
@@ -58,7 +58,5 @@ I leave my witness that the greatest act of charity in time and all eternity was
 [^7]: Letter on file in the Relief Society offices.
 
 [^8]: [[Alma 37.6|Alma 37:6]].
-
-
 
 #Charity #Family #Home #Love #Service #Women

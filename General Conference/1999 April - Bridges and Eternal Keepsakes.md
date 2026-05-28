@@ -47,10 +47,8 @@ Brethren and sisters, family history and temple work are the eternal family keep
 
 [^5]: *Improvement Era,* Aug. 1940, 495.
 
-[^6]: In Conference Report, Apr. 1998, 115–16; or *Ensign,* May 1998, 88.
+[^6]: In Conference Report, Apr. 1998, [[1998 April - New Temples to Provide “Crowning Blessings” of the Gospel.md|115–16]]; or *Ensign,* May 1998, 88.
 
 [^7]: Quoted in *Church News,* 20 June 1998, 2.
 
-
-
-#Conversion #Family_History #Temple_Work
+#Conversion #FamilyHistory #TempleWork

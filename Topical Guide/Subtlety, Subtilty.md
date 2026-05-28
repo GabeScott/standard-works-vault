@@ -1,7 +1,6 @@
 # Subtlety, Subtilty
 
-
-*See also* [[Craftiness.md|Craftiness]]; [[Deceit, Deceive.md|Deceit]]; [[Guile.md|Guile]]
+*See also* [[Craftiness.md|Craftiness]]; [[Deceit.md|Deceit]]; [[Guile.md|Guile]]
 
 brother came with *subtilty*, and hath taken, [[Genesis 27.35|Genesis 27:35]].
 

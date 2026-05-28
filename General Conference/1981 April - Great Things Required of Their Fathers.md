@@ -12,7 +12,7 @@ When the Lord declared that “power is not given unto Satan to tempt little chi
 
 When I think of fathers, I think of Adam—progenitor of us all—who faithfully taught his posterity in the ways of righteousness. I think of father Abraham, whose faith knows no peer among mortal fathers. I esteem Jacob, or Israel, with a feeling akin to reverence for his diligence and long-suffering. I honor the name of Lehi for the example he gave to his sons.
 
-In this dispensation, I think of Joseph Smith, Sr., first to give credence to his prophet-son’s testimony. I think of the noble example of Joseph F. Smith, sixth President of the Church and father of the tenth President.
+In this dispensation, I think of Joseph Smith, Sr., first to give credence to his prophet-son’s testimony. I think of the noble example of Joseph F. Smith, sixth President of the Church and father of the tenth President.
 
 I revere these noble men—not just because they were great prophets, but because they were great fathers, who realized what the Lord required of them, and they lived up to that expectation.
 
@@ -26,7 +26,7 @@ One great thing the Lord requires of each of us is to provide a home where a hap
 
 I am convinced that before a child can be influenced for good by his or her parents, there must be a demonstration of respect and love.
 
-President Joseph F. Smith said: “Fathers, if you wish your children to be taught in the principles of the gospel, … if you wish them to be obedient to and united with you, love them! and prove to them that you do love them by your every word or act to them. For your own sake, for the love that should exist between you and your boys—however wayward they might be, … when you speak or talk to them, do it not in anger; do it not harshly, in a condemning spirit. Speak to them kindly; get down and weep with them, if necessary, and get them to shed tears with you if possible. Soften their hearts; get them to feel tenderly towards you. Use no lash and no violence, but … approach them with reason, with persuasion and love unfeigned. With this means, if you cannot gain your boys and your girls, … there will be no means left in the world by which you can win them to yourselves.” (*Liahona, The Elders’ Journal,* 17 Oct. 1911, pp. 260–61.)
+President Joseph F. Smith said: “Fathers, if you wish your children to be taught in the principles of the gospel, … if you wish them to be obedient to and united with you, love them! and prove to them that you do love them by your every word or act to them. For your own sake, for the love that should exist between you and your boys—however wayward they might be, … when you speak or talk to them, do it not in anger; do it not harshly, in a condemning spirit. Speak to them kindly; get down and weep with them, if necessary, and get them to shed tears with you if possible. Soften their hearts; get them to feel tenderly towards you. Use no lash and no violence, but … approach them with reason, with persuasion and love unfeigned. With this means, if you cannot gain your boys and your girls, … there will be no means left in the world by which you can win them to yourselves.” (*Liahona, The Elders’ Journal,* 17 Oct. 1911, pp. 260–61.)
 
 Many suggestions could be enumerated as to what we can and should do to make our homes places of refuge and happiness. I believe, however, that to tell a man what is expected of him is more important than to prescribe exactly how he is to get the job done.
 
@@ -53,7 +53,7 @@ Once you determine that a high priority in your life is to see that your wife an
 >From his dad.
 >
 
-Your supreme opportunity in life is fatherhood! These words directed to fathers by President David O. McKay should be framed by every father:
+Your supreme opportunity in life is fatherhood! These words directed to fathers by President David O. McKay should be framed by every father:
 
 “When one puts businesses or pleasure, or the earning of additional income, above his home, he that moment starts on the downgrade to soul weakness. When the club becomes more attractive to any man than his home, it is time for him to confess in bitter shame that he has failed to measure up to the supreme opportunity of his life, and flunked in the final test of true manhood.
 
@@ -61,7 +61,7 @@ Your supreme opportunity in life is fatherhood! These words directed to fathers 
 
 Fathers, what is the spirit in your homes?
 
-*Second, teach your children to understand principles of truth.* In a revelation to the Prophet Joseph, the Lord directed fathers to bring up their children in light and truth. He rebuked several because of their failure to do so. Each of us would do well to review those principles given in section 93 to Joseph Smith, Jr., Frederick G. Williams, Sidney Rigdon, and Newel K. Whitney.
+*Second, teach your children to understand principles of truth.* In a revelation to the Prophet Joseph, the Lord directed fathers to bring up their children in light and truth. He rebuked several because of their failure to do so. Each of us would do well to review those principles given in section 93 to Joseph Smith, Jr., Frederick G. Williams, Sidney Rigdon, and Newel K. Whitney.
 
 In this revelation the Lord states that Satan “cometh and taketh away light and truth, through disobedience, from the children of men, and because of the tradition of their fathers.” ([[D&C 93.39|D&C 93:39]].) The “tradition of their fathers” refers, of course, to the bad examples and teachings of fathers.
 
@@ -108,8 +108,6 @@ Fatherhood is not a matter of station or wealth; it is a matter of desire, dilig
 I know of one family who has as its goal that each member of the family and posterity will arrive in their heavenly home—the celestial kingdom—with no vacant chairs. That is their objective. They review it at every family reunion and mention it frequently as they mingle together between reunions.
 
 God bless all the fathers in Israel to do well the work within the walls of our own homes. With the Lord’s help we shall succeed in this, our most important responsibility. In the name of Jesus Christ, amen.
-
-
 
 
 

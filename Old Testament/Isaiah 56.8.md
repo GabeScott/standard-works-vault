@@ -5,5 +5,5 @@
 [Isaiah 56:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.8?lang=eng#p8)
 
 
-[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].
-[^b]: [[Conversion, Convert|TG Conversion]]; [[Israel, Mission of|Israel, Mission of]].
+[^a]: [[Israel, Gathering of|TG Israel, Gathering of]].  
+[^b]: [[Conversion, Convert|TG Conversion]]; [[Israel, Mission of|Israel, Mission of]].  

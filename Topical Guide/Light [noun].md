@@ -1,11 +1,10 @@
 # Light [noun]
 
+*See also* [[Brightness.md|Brightness]]; [[Candle.md|Candle]]; [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Enlighten.md|Enlighten]]; [[Example.md|Example]]; [[God, Glory of.md|God, Glory of]]; [[Intelligence.md|Intelligence]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Jesus Christ, Light of the World.md|Jesus Christ, Light of the World]]; [[Lamp.md|Lamp]]; [[Light of Christ.md|Light of Christ]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Peculiar People.md|Peculiar People]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Shine.md|Shine]]; [[Truth.md|Truth]]
 
-*See also* [[Brightness.md|Brightness]]; [[Candle.md|Candle]]; [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Enlighten.md|Enlighten]]; [[Example, Ensample.md|Example]]; [[God, Glory of.md|God, Glory of]]; [[Intelligence.md|Intelligence]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Jesus Christ, Light of the World.md|Jesus Christ, Light of the World]]; [[Lamp.md|Lamp]]; [[Light of Christ.md|Light of Christ]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Peculiar People.md|Peculiar People]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Shine, Shone, Shined, Shining.md|Shine]]; [[Truth.md|Truth]]
+God said, Let there be *light*, [[Genesis 1.3|Genesis 1:3]] ([[Genesis 1.4|Genesis 1:4]]; [[Genesis 1.16|Genesis 1:16]]; [[Moses 2.16|Moses 2:16]]).
 
-God said, Let there be *light*, [[Genesis 1.3|Genesis 1:3]] ([[Genesis 1.4|Genesis 1:4]], [[Genesis 1.16|Genesis 1:16]]; [[Moses 2.3|Moses 2:3]], [[Moses 2.4|Moses 2:4]][[Moses 2.16|Moses 2:16]]).
-
-all ... Israel had *light* in their dwellings, [[Exodus 10.23|Exodus 10:23]].
+all … Israel had *light* in their dwellings, [[Exodus 10.23|Exodus 10:23]].
 
 he shall be as the *light* of the morning, [[2 Samuel 23.4|2 Samuel 23:4]].
 
@@ -27,7 +26,7 @@ God is the Lord, which hath shewed us *light*, [[Psalms 118.27|Psalms 118:27]].
 
 word is a lamp unto my feet, and a *light* unto my path, [[Psalms 119.105|Psalms 119:105]].
 
-*light*, that shineth ... unto the perfect day, [[Proverbs 4.18|Proverbs 4:18]].
+*light*, that shineth … unto the perfect day, [[Proverbs 4.18|Proverbs 4:18]].
 
 Truly the *light* is sweet, [[Ecclesiastes 11.7|Ecclesiastes 11:7]].
 
@@ -127,7 +126,7 @@ darkness is past, and the true *light* now shineth, [[1 John 2.8|1 John 2:8]].
 
 Lamb is the *light* thereof, [[Revelation 21.23|Revelation 21:23]].
 
-neither *light* of the sun; for ... God giveth them *light*, [[Revelation 22.5|Revelation 22:5]].
+neither *light* of the sun; for … God giveth them *light*, [[Revelation 22.5|Revelation 22:5]].
 
 I will also be your *light* in the wilderness, [[1 Nephi 17.13|1 Nephi 17:13]].
 
@@ -157,8 +156,6 @@ I am the *light*; I have set an example, [[3 Nephi 18.16|3 Nephi 18:16]].
 
 have *light* while we shall cross the sea, [[Ether 3.4|Ether 3:4]].
 
-In me shall all mankind have *life*, [[Ether 3.14|Ether 3:14]].
-
 give *light* unto the vessels, [[Ether 6.2|Ether 6:2]].
 
 *light* which shineth in darkness, [[D&C 6.21|D&C 6:21]].
@@ -175,7 +172,7 @@ sins against the greater *light*, [[D&C 82.3|D&C 82:3]].
 
 whatsoever is truth is *light*, and whatsoever is *light* is Spirit, [[D&C 84.45|D&C 84:45]].
 
-This is the *light* of Christ ... he is ... the *light* of the sun, [[D&C 88.7|D&C 88:7]].
+This is the *light* of Christ … he is … the *light* of the sun, [[D&C 88.7|D&C 88:7]].
 
 *light* cleaveth unto *light*, [[D&C 88.40|D&C 88:40]].
 
@@ -183,7 +180,7 @@ they give *light* to each other, [[D&C 88.44|D&C 88:44]].
 
 bodies shall be filled with *light*, [[D&C 88.67|D&C 88:67]].
 
-sun ... shall refuse to give *light*, [[D&C 88.87|D&C 88:87]].
+sun … shall refuse to give *light*, [[D&C 88.87|D&C 88:87]].
 
 *light* and the Redeemer of the world, [[D&C 93.9|D&C 93:9]].
 
@@ -210,5 +207,3 @@ detecting the devil when he appeared as an angel of *light*, [[D&C 128.20|D&C 12
 moon shall withhold its *light*, [[D&C 133.49|D&C 133:49]].
 
 I saw a pillar of *light*, [[Joseph Smith History 1.16|Joseph Smith History 1:16]].
-
-*See also* [[D&C 84.54|D&C 84:54]]; [[D&C 138.24|D&C 138:24]].

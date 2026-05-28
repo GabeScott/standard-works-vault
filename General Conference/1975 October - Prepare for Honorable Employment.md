@@ -1,6 +1,6 @@
 # Prepare for Honorable Employment
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -45,8 +45,6 @@ There are impelling reasons for our sisters to plan toward employment also. We w
 Brothers and Sisters, we need to do everything necessary to adequately prepare ourselves for employment or careers. We owe it to ourselves to do our best, and we owe our best in providing for our families. In addition to preparing ourselves for success, we need to help others. This is the spirit of our priesthood responsibility.
 
 I am grateful for my membership in a church that has this concern for its members, and for my association with brethren who have a concern for each other’s welfare. This is the Lord’s church. This is his work led by his prophet. May we follow the counsel given for preparedness, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

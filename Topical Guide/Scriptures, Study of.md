@@ -1,6 +1,5 @@
 # Scriptures, Study of
 
-
 *See also* [[Education.md|Education]]; [[God, Knowledge about.md|God, Knowledge about]]; [[Light [noun].md|Light [noun]]]; [[Study.md|Study]]
 
 *teach* them diligently unto thy children, [[Deuteronomy 6.7|Deuteronomy 6:7]].
@@ -11,7 +10,7 @@
 
 *meditate* therein day and night, [[Joshua 1.8|Joshua 1:8]].
 
-*read* ... words of the book of the covenant, [[2 Kings 23.2|2 Kings 23:2]].
+*read* … words of the book of the covenant, [[2 Kings 23.2|2 Kings 23:2]].
 
 prepared his heart to *seek* the law, [[Ezra 7.10|Ezra 7:10]].
 
@@ -33,15 +32,15 @@ searched the *scriptures* daily, [[Acts 17.11|Acts 17:11]].
 
 shewing by the *scriptures* that Jesus was Christ, [[Acts 18.28|Acts 18:28]].
 
-through ... comfort of the *scriptures* might have hope, [[Romans 15.4|Romans 15:4]].
+through … comfort of the *scriptures* might have hope, [[Romans 15.4|Romans 15:4]].
 
-*Study* ... the word of truth, [[2 Timothy 2.15|2 Timothy 2:15]].
+*Study* … the word of truth, [[2 Timothy 2.15|2 Timothy 2:15]].
 
 *scriptures*, which are able to make thee wise, [[2 Timothy 3.15|2 Timothy 3:15]].
 
 no prophecy of the *scripture* is of any private interpretation, [[2 Peter 1.20|2 Peter 1:20]].
 
-Blessed is he that *readeth* ... the words, [[Revelation 1.3|Revelation 1:3]].
+Blessed is he that *readeth* … the words, [[Revelation 1.3|Revelation 1:3]].
 
 give *heed* unto the word of the Lord, [[1 Nephi 15.25|1 Nephi 15:25]].
 
@@ -59,7 +58,7 @@ remember to *search* them diligently, [[Mosiah 1.7|Mosiah 1:7]] ([[Alma 17.2|Alm
 
 unfold the *scriptures* beyond that which Amulek had done, [[Alma 12.1|Alma 12:1]].
 
-*scriptures* ... if ye will wrest them it shall be to your own destruction, [[Alma 13.20|Alma 13:20]].
+*scriptures* … if ye will wrest them it shall be to your own destruction, [[Alma 13.20|Alma 13:20]].
 
 began to repent, and to search the *scriptures*, [[Alma 14.1|Alma 14:1]].
 
@@ -67,7 +66,7 @@ ye ought to search the *scriptures*, [[Alma 33.2|Alma 33:2]].
 
 hath the *scriptures*, let him search them, [[3 Nephi 10.14|3 Nephi 10:14]].
 
-they are written ... therefore *search* them, [[3 Nephi 20.11|3 Nephi 20:11]].
+they are written … therefore *search* them, [[3 Nephi 20.11|3 Nephi 20:11]].
 
 *teach* the things which he had expounded, [[3 Nephi 23.14|3 Nephi 23:14]].
 
@@ -83,10 +82,8 @@ time be devoted to the *studying of the scriptures*, [[D&C 26.1|D&C 26:1]].
 
 holy *scriptures* are given of me for your instruction, [[D&C 33.16|D&C 33:16]].
 
-remember ... the *Book* of Mormon and the former commandments, [[D&C 84.57|D&C 84:57]].
+remember … the *Book* of Mormon and the former commandments, [[D&C 84.57|D&C 84:57]].
 
 I sat in my room pondering over the *scriptures*, [[D&C 138.1|D&C 138:1]].
 
 whoso *treasureth* up my word, shall not be deceived, [[Joseph Smith Matthew 1.37|Joseph Smith Matthew 1:37]].
-
-*See also* [[Deuteronomy 8.3|Deuteronomy 8:3]]; [[D&C 41.12|D&C 41:12]]; [[D&C 88.118|D&C 88:118]]; [[D&C 90.15|D&C 90:15]]; [[Joseph Smith History 1.12|Joseph Smith History 1:12]].

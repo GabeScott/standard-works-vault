@@ -1,6 +1,6 @@
 # Gifts of the Spirit
 
-By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
+By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -16,15 +16,15 @@ During the earthly ministry of the Savior, it is recorded that he “went about 
 
 “They shall take up serpents; and if they drink any deadly thing, it shall not hurt them; they shall lay hands on the sick, and they shall recover.” ([[Mark 16.15|Mark 16:15–18]][[Mark 16.16|]][[Mark 16.17|]][[Mark 16.18|]].)
 
-“And by the hands of the apostles were many signs and wonders wrought among the people. …
+“And by the hands of the apostles were many signs and wonders wrought among the people. …
 
-“Insomuch that they brought forth the sick into the streets, …
+“Insomuch that they brought forth the sick into the streets, …
 
-“… and them which were vexed with unclean spirits: and they were healed every one.” ([[Acts 5.12|Acts 5:12, 15–16]][[Acts 5.15|]][[Acts 5.16|]].)
+“… and them which were vexed with unclean spirits: and they were healed every one.” ([[Acts 5.12|Acts 5:12, 15–16]][[Acts 5.15|]][[Acts 5.16|]].)
 
 The apostle Paul said to the Corinthian saints:
 
-“Now concerning spiritual gifts, brethren, I would not have you ignorant. …
+“Now concerning spiritual gifts, brethren, I would not have you ignorant. …
 
 “Wherefore I give you to understand, that no man speaking by the Spirit of God calleth Jesus accursed: and that no man can say that Jesus is the Lord, but by the Holy Ghost.
 
@@ -36,7 +36,7 @@ The apostle Paul said to the Corinthian saints:
 
 “But the manifestation of the Spirit is given to every man to profit withal.
 
-“For to one is given by the Spirit the word of wisdom; to another the word of knowledge by the same Spirit.” ([[1 Corinthians 12.1|1 Cor. 12:1, 3–8]][[1 Corinthians 12.3|]][[1 Corinthians 12.4|]][[1 Corinthians 12.5|]][[1 Corinthians 12.6|]][[1 Corinthians 12.7|]][[1 Corinthians 12.8|]].) And he stated the many gifts of the Spirit.
+“For to one is given by the Spirit the word of wisdom; to another the word of knowledge by the same Spirit.” ([[1 Corinthians 12.1|1 Cor. 12:1, 3–8]][[1 Corinthians 12.3|]][[1 Corinthians 12.4|]][[1 Corinthians 12.5|]][[1 Corinthians 12.6|]][[1 Corinthians 12.7|]][[1 Corinthians 12.8|]].) And he stated the many gifts of the Spirit.
 
 And unto his church in this dispensation the Savior promised these same gifts. He said:
 
@@ -58,15 +58,15 @@ I bear my solemn witness that these gifts are with the Church today. The sick ar
 
 As members of the Church, is our faith sufficiently strong? Are we in tune with the Spirit that we might be blessed by these great gifts? Do we believe a miracle can be performed or a blessing given? Do we call upon the priesthood as often as we should to administer to the sick? Do we believe we can be healed? Do we have faith to heal? Is the priesthood always prepared to give a blessing? How strong is your faith?
 
-President George Q. Cannon said:
+President George Q. Cannon said:
 
 “I have felt deeply impressed … that the members of our Church do not value as they should the means which God has placed within their reach for the relief and healing of the sick.
 
-“There is too great a disposition, when sickness enters a household, to send for a doctor. …
+“There is too great a disposition, when sickness enters a household, to send for a doctor. …
 
-“Instances are very common among the faithful Saints of the gift of healing being manifested in a very wonderful manner. …
+“Instances are very common among the faithful Saints of the gift of healing being manifested in a very wonderful manner. …
 
-“God has not forgotten His promises, and He has not withdrawn Himself from His people. But the Latter-day Saints should make use of these means more frequently than they do, and put more trust in God and less in man’s skill.” (*Gospel Truths,* comp. Jerrald L. Newquist, Deseret Book, 1974, 2:186–87.)
+“God has not forgotten His promises, and He has not withdrawn Himself from His people. But the Latter-day Saints should make use of these means more frequently than they do, and put more trust in God and less in man’s skill.” (*Gospel Truths,* comp. Jerrald L. Newquist, Deseret Book, 1974, 2:186–87.)
 
 We have been instructed as to the administration of the sick:
 
@@ -98,7 +98,7 @@ The Lord said that when the elders administer to the sick, if they die, they die
 
 “Thou shalt weep for the loss of them that die, and more especially for those that have not hope of a glorious resurrection.
 
-“And it shall come to pass that those that die in me shall not taste of death, for it shall be sweet unto them. …
+“And it shall come to pass that those that die in me shall not taste of death, for it shall be sweet unto them. …
 
 “And again, it shall come to pass that he that hath faith in me to be healed, and is not appointed unto death, shall be healed.” ([[D&C 42.45|D&C 42:45–46, 48]][[D&C 42.46|]][[D&C 42.48|]].)
 
@@ -122,11 +122,9 @@ He gave the same warning to the Prophet Joseph Smith:
 
 “\[Walk\] uprightly before me, … that ye may not be seduced by evil spirits, or doctrines of devils, or the commandments of men; … and that ye may not be deceived seek ye earnestly the best gifts, always remembering for what they are given;
 
-“… they are given for the benefit of those who love me and keep all my commandments, and him that seeketh so to do.” ([[D&C 46.7|D&C 46:7–9]][[D&C 46.8|]][[D&C 46.9|]].)
+“… they are given for the benefit of those who love me and keep all my commandments, and him that seeketh so to do.” ([[D&C 46.7|D&C 46:7–9]][[D&C 46.8|]][[D&C 46.9|]].)
 
 May we so live that we may always have the companionship of the Holy Spirit and be blessed by these beautiful spiritual gifts that are a part of the gospel, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

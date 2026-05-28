@@ -34,7 +34,7 @@ They could do worse. More than fifty years ago, when I was a missionary in Engla
 
 He replied, “You can’t. The word *Mormon* is too deeply ingrained and too easy to say.” He went on, “I’ve quit trying. While I’m thankful for the privilege of being a follower of Jesus Christ and a member of the Church which bears His name, I am not ashamed of the nickname *Mormon.*”
 
-“Look,” he went on to say, “if there is any name that is totally honorable in its derivation, it is the name *Mormon.* And so, when someone asks me about it and what it means, I quietly say—‘*Mormon* means *more good.*’” (The Prophet Joseph Smith first said this in 1843; see *Times and Seasons,* 4:194; *Teachings of the Prophet Joseph Smith,* pp. 299–300.)
+“Look,” he went on to say, “if there is any name that is totally honorable in its derivation, it is the name *Mormon.* And so, when someone asks me about it and what it means, I quietly say—‘*Mormon* means *more good.*’” (The Prophet Joseph Smith first said this in 1843; see *Times and Seasons,* 4:194; *Teachings of the Prophet Joseph Smith,* pp. 299–300.)
 
 His statement intrigued me—*Mormon* means “more good.” I knew, of course, that “more good” was not a derivative of the word *Mormon.* I had studied both Latin and Greek, and I knew that English is derived in some measure from those two languages and that the words *more good* are not a cognate of the word *Mormon.* But his was a positive attitude based on an interesting perception. And, as we all know, our lives are guided in large measure by our perceptions. Ever since, when I have seen the word *Mormon* used in the media to describe us—in a newspaper or a magazine or book or whatever—there flashes into my mind his statement, which has become my motto: *Mormon* means “more good.”
 
@@ -76,7 +76,7 @@ In what way, you ask? There are many ways, but I have time to mention only three
 
 I regret that we as a people do not observe it more faithfully. But remarkable have been the blessings that have come of its observance to the degree that we have observed it. Newspapers across the nation have recently run reports on a significant California study. It was conducted by Dr. James Enstrom of the UCLA School of Public Medicine. It included a substantial number of active members of the Church—5,231 high priests and 4,613 of their wives. I quote now from a newspaper story:
 
-“Compared to the other groups, the study found the Mormons had an average of 53 percent fewer fatal cancers … , 48 percent fewer deaths from heart disease and 53 percent fewer fatal illnesses of all kinds” (*Salt Lake Tribune,* 12 Sept. 1990, p. B1).
+“Compared to the other groups, the study found the Mormons had an average of 53 percent fewer fatal cancers … , 48 percent fewer deaths from heart disease and 53 percent fewer fatal illnesses of all kinds” (*Salt Lake Tribune,* 12 Sept. 1990, p. B1).
 
 Dr. Enstrom, speaking of the eight-year study, said that he “can predict that a very active, health-conscious 25-year-old *Mormon* male will live 11 years longer than the average American male of the same age” (p. B1; italics added).
 
@@ -131,6 +131,4 @@ I testify of His living reality. I testify of the reality of God, our Eternal Fa
 
 
 
-
-
-#Book_Of_Mormon #Compassion #Example #Name_Of_Church
+#BookOfMormon #Compassion #Example #NameOfChurch

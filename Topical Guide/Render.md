@@ -1,7 +1,6 @@
 # Render
 
-
-*See also* [[Good Works.md|Good Works]]; [[Recompence, Recompense.md|Recompence]]
+*See also* [[Good Works.md|Good Works]]; [[Recompence.md|Recompence]]
 
 Lord *render* to every man his righteousness, [[1 Samuel 26.23|1 Samuel 26:23]].
 
@@ -13,7 +12,7 @@ What shall I *render* unto the Lord, [[Psalms 116.12|Psalms 116:12]].
 
 I declare that I will *render* double unto thee, [[Zechariah 9.12|Zechariah 9:12]].
 
-*Render* ... unto Cæsar, [[Matthew 22.21|Matthew 22:21]] ([[Mark 12.17|Mark 12:17]]; [[Luke 20.25|Luke 20:25]]; [[D&C 63.26|D&C 63:26]]).
+*Render* … unto Cæsar, [[Matthew 22.21|Matthew 22:21]] ([[Mark 12.17|Mark 12:17]]; [[Luke 20.25|Luke 20:25]]; [[D&C 63.26|D&C 63:26]]).
 
 Who will *render* to every man according to his deeds, [[Romans 2.6|Romans 2:6]].
 

@@ -28,7 +28,7 @@ Sometimes being grateful doesn’t come easily. Sometimes when we come to our He
 
 My young friends, I want you to know that there is nothing so terrible in your life that you cannot take it to the Lord. Maybe you feel lonely. Perhaps you think there is not one person in the whole world who cares about you, but I promise, Someone does. No matter what, you have a Father who cares, who knows your heart, who is ready to listen anytime. Draw near unto him in prayer; allow him to draw near unto you. Go to him, acknowledge him as your Eternal Father, and be grateful—for life, and for the opportunity to grow, if for nothing else. And then you will be ready for the third step in prayer.
 
-The third step is to *seek.* Ask for his help, but ask with an open, searching spirit. Plead for guidance to meet the challenges you have been given. Ask, knowing as Nephi did, that “the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
+The third step is to *seek.* Ask for his help, but ask with an open, searching spirit. Plead for guidance to meet the challenges you have been given. Ask, knowing as Nephi did, that “the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
 
 Part of seeking is to give space for an answer. After you have asked for help, pause and listen. Many times the Lord answers our prayers in a still, small voice. It may be an answer you don’t want to hear. Or you may not recognize what happens to you as an answer to your prayers.
 
@@ -55,8 +55,6 @@ So these are the four steps of prayer: First, *prepare;* second, *be grateful;* 
 Your prayer can take many forms. It can be sung in a hymn, or whispered, or even thought. It can be as short as one word—“help!”—or it could be as long as Enos’s prayer that lasted all night and all day.
 
 The important thing to remember is to pray often, talk to Heavenly Father, seek his counsel so that he can guide you. When you draw near to Heavenly Father in prayer, he will draw near to you. You need never feel alone again. I testify to this in the name of Jesus Christ, amen.
-
-
 
 
 

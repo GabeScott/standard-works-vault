@@ -95,6 +95,4 @@ God bless you my beloved sisters—you little girls whom we so much appreciate; 
 
 
 
-
-
-#Faith #Relief_Society #Women
+#Faith #ReliefSociety #Women

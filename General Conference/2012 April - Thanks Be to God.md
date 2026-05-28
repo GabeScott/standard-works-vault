@@ -1,6 +1,6 @@
 # Thanks Be to God
 
-By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -74,13 +74,13 @@ We know that prophets of many dispensations, such as Adam, Noah, Moses, and Abra
 
 Ours is the responsibility to teach His children and awaken in them an awareness of God. Long ago, King Benjamin said:
 
-“Believe in God; believe that he is, and that he created all things, both in heaven and in earth; believe that he has all wisdom, and all power, both in heaven and in earth; …
+“Believe in God; believe that he is, and that he created all things, both in heaven and in earth; believe that he has all wisdom, and all power, both in heaven and in earth; …
 
-“… Believe that ye must repent of your sins and forsake them, and humble yourselves before God; and ask in sincerity of heart that he would forgive you; and now, if you believe all these things see that ye do them.”[^32]
+“… Believe that ye must repent of your sins and forsake them, and humble yourselves before God; and ask in sincerity of heart that he would forgive you; and now, if you believe all these things see that ye do them.”[^32]
 
 God is the same yesterday, today, and forever, but we are not. Each day, ours is the challenge to access the power of the Atonement so that we can truly change, become more Christlike, and qualify for the gift of exaltation and live eternally with God, Jesus Christ, and our families.[^33] For these powers, privileges, and gospel gifts, thanks be to God!
 
-I testify that He lives, that Jesus is the Christ, and that this is His Church, restored in these latter days to accomplish its divine destiny. We are led today by President Thomas S. Monson, whom we love and sustain with all our hearts, as we also sustain his counselors and the Twelve Apostles as prophets, seers, and revelators. I so testify in the sacred name of Jesus Christ, amen.
+I testify that He lives, that Jesus is the Christ, and that this is His Church, restored in these latter days to accomplish its divine destiny. We are led today by President Thomas S. Monson, whom we love and sustain with all our hearts, as we also sustain his counselors and the Twelve Apostles as prophets, seers, and revelators. I so testify in the sacred name of Jesus Christ, amen.
 
 
 
@@ -95,9 +95,9 @@ I testify that He lives, that Jesus is the Christ, and that this is His Church, 
 
 [^5]: See [[Jeremiah 1.4|Jeremiah 1:4–5]][[Jeremiah 1.5|]]; [[Romans 8.16|Romans 8:16]]; [[Hebrews 12.9|Hebrews 12:9]]; [[Moses 6.51|Moses 6:51]].
 
-[^6]: See [[Genesis 2.7|Genesis 2:7]]; [[1 Corinthians 15.44|1 Corinthians 15:44]]; [[Moses 3.7|Moses 3:7]].
+[^6]: See [[Genesis 2.7|Genesis 2:7]]; [[1 Corinthians 15.44|1 Corinthians 15:44]]; [[Moses 3.7|Moses 3:7]].
 
-[^7]: See [[1 Nephi 17.36|1 Nephi 17:36]].
+[^7]: See [[1 Nephi 17.36|1 Nephi 17:36]].
 
 [^8]: [[Moses 1.39|Moses 1:39]].
 
@@ -105,19 +105,19 @@ I testify that He lives, that Jesus is the Christ, and that this is His Church, 
 
 [^10]: [[John 3.17|John 3:17]].
 
-[^11]: His purposes are succinctly summarized in [[3 Nephi 27.13|3 Nephi 27:13–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
+[^11]: His purposes are succinctly summarized in [[3 Nephi 27.13|3 Nephi 27:13–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
 
 [^12]: See [[Alma 11.40|Alma 11:40]].
 
-[^13]: See [[2 Nephi 9.6|2 Nephi 9:6–7, 20–22]][[2 Nephi 9.7|]][[2 Nephi 9.20|]][[2 Nephi 9.21|]][[2 Nephi 9.22|]].
+[^13]: See [[2 Nephi 9.6|2 Nephi 9:6–7, 20–22]][[2 Nephi 9.7|]][[2 Nephi 9.20|]][[2 Nephi 9.21|]][[2 Nephi 9.22|]].
 
 [^14]: [[John 11.25|John 11:25–26]][[John 11.26|]].
 
-[^15]: See [[1 John 4.10|1 John 4:10]]; [[1 Nephi 17.40|1 Nephi 17:40]].
+[^15]: See [[1 John 4.10|1 John 4:10]]; [[1 Nephi 17.40|1 Nephi 17:40]].
 
-[^16]: [[2 Peter 1.4|2 Peter 1:4]].
+[^16]: [[2 Peter 1.4|2 Peter 1:4]].
 
-[^17]: The heart pumps about 2,000 gallons (7,570 L) per day.
+[^17]: The heart pumps about 2,000 gallons (7,570 L) per day.
 
 [^18]: [[D&C 88.47|Doctrine and Covenants 88:47]].
 
@@ -135,22 +135,20 @@ I testify that He lives, that Jesus is the Christ, and that this is His Church, 
 
 [^25]: The spirit is in the likeness of the person (see [[D&C 77.2|Doctrine and Covenants 77:2]]).
 
-[^26]: See [[3 Nephi 14.9|3 Nephi 14:9–11]][[3 Nephi 14.10|]][[3 Nephi 14.11|]].
+[^26]: See [[3 Nephi 14.9|3 Nephi 14:9–11]][[3 Nephi 14.10|]][[3 Nephi 14.11|]].
 
 [^27]: The spirit, not the body, is the active, responsible component of the soul. Without the spirit, the body is dead (see [[James 2.26|James 2:26]]). It is the spirit, therefore, that chooses good or evil and will be held accountable for both the positive and negative attributes it possesses at the Final Judgment (see [[Alma 41.3|Alma 41:3–7]][[Alma 41.4|]][[Alma 41.5|]][[Alma 41.6|]][[Alma 41.7|]]).
 
 [^28]: Spiritual attributes also include “faith, virtue, knowledge, temperance, patience, brotherly kindness, godliness, charity, humility, \[and\] diligence” ([[D&C 4.6|Doctrine and Covenants 4:6]]).
 
-[^29]: See [[2 Nephi 2.11|2 Nephi 2:11–16, 21–26]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]]; [[Moroni 10.33|Moroni 10:33–34]][[Moroni 10.34|]].
+[^29]: See [[2 Nephi 2.11|2 Nephi 2:11–16, 21–26]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]]; [[Moroni 10.33|Moroni 10:33–34]][[Moroni 10.34|]].
 
-[^30]: This is the doctrine of Christ (see [[2 Nephi 31.11|2 Nephi 31:11–21]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]).
+[^30]: This is the doctrine of Christ (see [[2 Nephi 31.11|2 Nephi 31:11–21]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]).
 
-[^31]: [[Mosiah 15.28|Mosiah 15:28]]; see also [[1 Nephi 19.17|1 Nephi 19:17]]; [[2 Nephi 26.13|2 Nephi 26:13]]; [[Mosiah 3.20|Mosiah 3:20]]; [[Mosiah 15.28|15:28]]; [[Mosiah 16.1|16:1]]; [[Alma 37.4|Alma 37:4]]; [[D&C 1.18|Doctrine and Covenants 1:18–23]][[D&C 1.19|]][[D&C 1.20|]][[D&C 1.21|]][[D&C 1.22|]][[D&C 1.23|]]; [[D&C 77.11|77:11]]; [[D&C 133.37|133:37]].
+[^31]: [[Mosiah 15.28|Mosiah 15:28]]; see also [[1 Nephi 19.17|1 Nephi 19:17]]; [[2 Nephi 26.13|2 Nephi 26:13]]; [[Mosiah 3.20|Mosiah 3:20]]; [[Mosiah 15.28|15:28]]; [[Mosiah 16.1|16:1]]; [[Alma 37.4|Alma 37:4]]; [[D&C 1.18|Doctrine and Covenants 1:18–23]][[D&C 1.19|]][[D&C 1.20|]][[D&C 1.21|]][[D&C 1.22|]][[D&C 1.23|]]; [[D&C 77.11|77:11]]; [[D&C 133.37|133:37]].
 
 [^32]: [[Mosiah 4.9|Mosiah 4:9–10]][[Mosiah 4.10|]].
 
 [^33]: “Eternal life … is the greatest of all the gifts of God” ([[D&C 14.7|Doctrine and Covenants 14:7]]).
 
-
-
-#Blessings #Death #Gratitude #Jesus_Christ #Mortality
+#Blessings #Death #Gratitude #JesusChrist #Mortality

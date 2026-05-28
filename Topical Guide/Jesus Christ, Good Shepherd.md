@@ -1,6 +1,5 @@
 # Jesus Christ, Good Shepherd
 
-
 the *shepherd*, the stone of Israel, [[Genesis 49.24|Genesis 49:24]] ([[D&C 50.44|D&C 50:44]]).
 
 Lord is my *shepherd*, [[Psalms 23.1|Psalms 23:1]].
@@ -29,7 +28,7 @@ numbereth his *sheep*, and they know him, [[1 Nephi 22.25|1 Nephi 22:25]] ([[3 N
 
 he that will hear my voice shall be my *sheep*, [[Mosiah 26.21|Mosiah 26:21]].
 
-good *shepherd* doth call you ... in his own name ... Christ, [[Alma 5.38|Alma 5:38]].
+good *shepherd* doth call you … in his own name … Christ, [[Alma 5.38|Alma 5:38]].
 
 follow the voice of the good *shepherd*, [[Alma 5.57|Alma 5:57]].
 

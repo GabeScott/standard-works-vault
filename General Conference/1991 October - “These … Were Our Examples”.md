@@ -8,7 +8,7 @@ By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 In June of this year, Sister Nelson and I had the great privilege of accompanying the Mormon Tabernacle Choir on its historic concert tour in Europe. We are grateful to the First Presidency for that assignment. Much has been written regarding the success of the choir and of its favorable influence that will yet continue. Members and friends of the Church worldwide join with me in expressing appreciation to the officers, staff, directors, accompanists, and all vocalists for their wonderful service. I won’t mention anyone by name; I will simply refer to them all as members of the choir.
 
-I’ll not comment as a music critic would. While musical experts of the world focus on what choir members can do, I would like to focus on what choir members can be. This I do because I witnessed in choir members great examples that can inspire and improve the lives of each of you who honestly strives to emulate the Lord who said, “I am the light; I have set an example for you” ([[3 Nephi 18.16|3 Ne. 18:16]]; see also [[John 13.15|John 13:15]]). So we should strive to learn from His example—and from the good example of those who love and follow Him.
+I’ll not comment as a music critic would. While musical experts of the world focus on what choir members can do, I would like to focus on what choir members can be. This I do because I witnessed in choir members great examples that can inspire and improve the lives of each of you who honestly strives to emulate the Lord who said, “I am the light; I have set an example for you” ([[3 Nephi 18.16|3 Ne. 18:16]]; see also [[John 13.15|John 13:15]]). So we should strive to learn from His example—and from the good example of those who love and follow Him.
 
 Members of the Mormon Tabernacle Choir are not superhuman. They are ordinary people with ordinary frailties. But therein lies the power of their example. They believe this promise from the Lord: “Because thou hast seen thy weakness, thou shalt be made strong” ([[D&C 135.5|D&C 135:5]]).
 
@@ -20,7 +20,7 @@ Have you not learned that strength comes to an ordinary soul when given an extra
 
 “Faith, virtue, knowledge, temperance, patience, brotherly kindness, godliness, charity, humility, diligence” ([[D&C 4.6|D&C 4:6]]).
 
-Those are attributes the Lord deserves from His disciples. Because each of us is to be “an example of the believers” ([[1 Timothy 4.12|1 Tim. 4:12]]), I would like to address those ten topics as members of the Mormon Tabernacle Choir “were our examples” ([[1 Corinthians 10.6|1 Cor. 10:6]]) in many memorable ways.
+Those are attributes the Lord deserves from His disciples. Because each of us is to be “an example of the believers” ([[1 Timothy 4.12|1 Tim. 4:12]]), I would like to address those ten topics as members of the Mormon Tabernacle Choir “were our examples” ([[1 Corinthians 10.6|1 Cor. 10:6]]) in many memorable ways.
 
 ## Faith
 
@@ -34,7 +34,7 @@ That faith of our Church leaders filled the hearts of members, families, and fri
 
 ## Virtue
 
-Virtue radiated from the choir. Each member seemed to exemplify President Brigham Young’s counsel: “Learn the will of God, keep his commandments and do his will, and you will be a virtuous person” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], p. 194).
+Virtue radiated from the choir. Each member seemed to exemplify President Brigham Young’s counsel: “Learn the will of God, keep his commandments and do his will, and you will be a virtuous person” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], p. 194).
 
 They applied the word of God (see [[Alma 31.5|Alma 31:5]]) not only in song but in sermons of example. After one concert, I was greeted by an individual who expressed gratitude in an unusual way. He said, “I am thankful for the choir’s message.”
 
@@ -60,11 +60,11 @@ Just think of the good you can do if you accept a difficult challenge and pursue
 
 ## Temperance
 
-“To knowledge,” the Apostle Peter wrote, add “temperance” ([[2 Peter 1.6|2 Pet. 1:6]]). Temperance suggests sobriety and self-restraint in action. It reminds one of covenants made.
+“To knowledge,” the Apostle Peter wrote, add “temperance” ([[2 Peter 1.6|2 Pet. 1:6]]). Temperance suggests sobriety and self-restraint in action. It reminds one of covenants made.
 
 Members of the choir were always temperate and well disciplined, not from without but from within. Completely obedient to the Word of Wisdom, they were blessed with health and strength. Keeping a schedule that left little time for leisure, their grueling pace allowed them to perform for audiences that otherwise might have been excluded.
 
-Repeatedly, scriptures teach that we be “temperate in all things” ([[1 Corinthians 9.25|1 Cor. 9:25]]; [[Alma 7.23|Alma 7:23]]; [[Alma 38.10|38:10]]; [[D&C 12.8|D&C 12:8]]). Temperance can protect each of us from the aftermath of excess.
+Repeatedly, scriptures teach that we be “temperate in all things” ([[1 Corinthians 9.25|1 Cor. 9:25]]; [[Alma 7.23|Alma 7:23]]; [[Alma 38.10|38:10]]; [[D&C 12.8|D&C 12:8]]). Temperance can protect each of us from the aftermath of excess.
 
 ## Patience
 
@@ -84,9 +84,9 @@ Brotherly kindness overcomes the rudeness of selfish intent. Each of us can deve
 
 ## Charity
 
-The Book of Mormon defines charity as the pure love of Christ (see [[Moroni 7.47|Moro. 7:47]]). It further teaches that the “Lord God hath given a commandment that all men should have charity, which charity is love” ([[2 Nephi 26.30|2 Ne. 26:30]]; see also [[Ether 12.34|Ether 12:34]]).
+The Book of Mormon defines charity as the pure love of Christ (see [[Moroni 7.47|Moro. 7:47]]). It further teaches that the “Lord God hath given a commandment that all men should have charity, which charity is love” ([[2 Nephi 26.30|2 Ne. 26:30]]; see also [[Ether 12.34|Ether 12:34]]).
 
-I saw choir members extend that love to countless souls. For those in need, members quietly contributed money, food, and goods. They shared freely of their precious time and talent without any thought of personal acclaim or recompense. Truly, “charity never faileth” any of us ([[1 Corinthians 13.8|1 Cor. 13:8]]; [[Moroni 7.46|Moro. 7:46]]).
+I saw choir members extend that love to countless souls. For those in need, members quietly contributed money, food, and goods. They shared freely of their precious time and talent without any thought of personal acclaim or recompense. Truly, “charity never faileth” any of us ([[1 Corinthians 13.8|1 Cor. 13:8]]; [[Moroni 7.46|Moro. 7:46]]).
 
 ## Humility
 
@@ -94,7 +94,7 @@ The choir’s humility seemed to increase throughout their journey. Though their
 
 “They did fast and pray oft, and did wax stronger and stronger in their humility, and firmer and firmer in the faith of Christ, unto the filling their souls with joy and consolation, yea, even to the purifying and the sanctification of their hearts” ([[Helaman 3.35|Hel. 3:35]]).
 
-Choir members became “subject one to another” ([[1 Peter 5.5|1 Pet. 5:5]]) and imparted “the word of God, one with another” ([[Alma 1.20|Alma 1:20]]) as true disciples do. They were humble and teachable, as submissive Saints should be (see [[Mosiah 3.19|Mosiah 3:19]]; [[D&C 105.12|D&C 105:12]]). Their examples of humility should ennoble our souls.
+Choir members became “subject one to another” ([[1 Peter 5.5|1 Pet. 5:5]]) and imparted “the word of God, one with another” ([[Alma 1.20|Alma 1:20]]) as true disciples do. They were humble and teachable, as submissive Saints should be (see [[Mosiah 3.19|Mosiah 3:19]]; [[D&C 105.12|D&C 105:12]]). Their examples of humility should ennoble our souls.
 
 ## Diligence
 
@@ -104,9 +104,9 @@ Her example can bless each of you, just as it did her family and me.
 
 ## Godliness
 
-Godliness is an attribute that seems as difficult to define as it is to attain. Scriptures refer to “the mystery of godliness” ([[1 Timothy 3.16|1 Tim. 3:16]]; [[D&C 19.10|D&C 19:10]]). Because it is so special, I have chosen to speak of it last.
+Godliness is an attribute that seems as difficult to define as it is to attain. Scriptures refer to “the mystery of godliness” ([[1 Timothy 3.16|1 Tim. 3:16]]; [[D&C 19.10|D&C 19:10]]). Because it is so special, I have chosen to speak of it last.
 
-Simon Peter counseled us “to be in all holy conversation and godliness, looking for and hasting unto the coming of the day of God” ([[2 Peter 3.11|2 Pet. 3:11–12]][[2 Peter 3.12|]]).
+Simon Peter counseled us “to be in all holy conversation and godliness, looking for and hasting unto the coming of the day of God” ([[2 Peter 3.11|2 Pet. 3:11–12]][[2 Peter 3.12|]]).
 
 “The power of godliness is manifest” in the ordinances of the priesthood ([[D&C 84.20|D&C 84:20]]). Godliness is not a product of perfection; it comes of concentration and consecration.
 
@@ -114,13 +114,25 @@ Godliness characterizes each of you who truly loves the Lord. You are constantly
 
 The Mormon Tabernacle Choir’s songs helped to convey their uncommon spirit of godliness. From their hearts the choir sang one number which bore testimony of love so amazing, so divine. Tears moistened the faces of more than a few as they expressed personal feelings of conversion and commitment to godliness. This song which the choir will soon sing includes these verses penned by Isaac Watts:
 
-When I survey the wondrous crossOn which the Prince of glory died,My richest gain I count but loss,And pour contempt on all my pride.Forbid it, Lord, that I should boast,Save in the death of Christ, my God!All the vain things that charm me most,I sacrifice them to his blood. …Were the whole realm of nature mine,That were a present far too small;Love, so amazing, so divine,Demands my soul, my life, my all!\[“Love So Amazing, So Divine”\]
+>When I survey the wondrous cross
+>On which the Prince of glory died,
+>My richest gain I count but loss,
+>And pour contempt on all my pride.
+>
+>Forbid it, Lord, that I should boast,
+>Save in the death of Christ, my God!
+>All the vain things that charm me most,
+>I sacrifice them to his blood. …
+>
+>Were the whole realm of nature mine,
+>That were a present far too small;
+>Love, so amazing, so divine,
+>Demands my soul, my life, my all!
+>
 
 Such are lessons taught by those who “serve unto the example and shadow of heavenly things” ([[Hebrews 8.5|Heb. 8:5]]). Unitedly members of the Mormon Tabernacle Choir testify of the living Lord and of His Church restored in these latter days, as do I. May God bless us to lift our lives by their example I pray in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Dedication #Education #Example #Faith #Humility #Kindness #Love #Obedience #Patience #Preparation #Spirituality #Tabernacle_Choir #Word_Of_Wisdom
+#Dedication #Education #Example #Faith #Humility #Kindness #Love #Obedience #Patience #Preparation #Spirituality #TabernacleChoir #WordOfWisdom

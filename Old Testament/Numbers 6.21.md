@@ -5,5 +5,5 @@
 [Numbers 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.21?lang=eng#p21)
 
 
-[^a]: [[Setting Apart|TG Setting Apart]].
-[^b]: IE that which he can afford to give.
+[^a]: [[Setting Apart|TG Setting Apart]].  
+[^b]: IE that which he can afford to give.  

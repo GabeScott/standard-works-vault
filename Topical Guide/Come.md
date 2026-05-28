@@ -1,6 +1,5 @@
 # Come
 
-
 *See also* [[Coming.md|Coming]]
 
 afterward shall they *come* out with great substance, [[Genesis 15.14|Genesis 15:14]].
@@ -9,7 +8,7 @@ God is *come* to prove you, [[Exodus 20.20|Exodus 20:20]].
 
 Moses, *Come* up unto the Lord, [[Exodus 24.1|Exodus 24:1]].
 
-said David ... Thou *comest* to me with a sword, [[1 Samuel 17.45|1 Samuel 17:45]].
+said David … Thou *comest* to me with a sword, [[1 Samuel 17.45|1 Samuel 17:45]].
 
 all things *come* of thee, [[1 Chronicles 29.14|1 Chronicles 29:14]].
 
@@ -31,7 +30,7 @@ Lord *cometh* forth out of his place, [[Micah 1.3|Micah 1:3]].
 
 thy King *cometh*, [[Zechariah 9.9|Zechariah 9:9]] ([[Matthew 21.5|Matthew 21:5]]; [[John 12.15|John 12:15]]).
 
-Lord ... shall suddenly *come* to his temple, [[Malachi 3.1|Malachi 3:1]] ([[3 Nephi 24.1|3 Nephi 24:1]]; [[D&C 36.8|D&C 36:8]]; [[D&C 133.2|D&C 133:2]]).
+Lord … shall suddenly *come* to his temple, [[Malachi 3.1|Malachi 3:1]] ([[3 Nephi 24.1|3 Nephi 24:1]]; [[D&C 36.8|D&C 36:8]]; [[D&C 133.2|D&C 133:2]]).
 
 Thy kingdom *come*, [[Matthew 6.10|Matthew 6:10]] ([[Luke 11.2|Luke 11:2]]).
 
@@ -41,7 +40,7 @@ Art thou he that should *come*, [[Matthew 11.3|Matthew 11:3]] ([[Luke 7.19|Luke 
 
 If any man will *come* after me, [[Matthew 16.24|Matthew 16:24]] ([[Mark 8.34|Mark 8:34]]; [[Luke 9.23|Luke 9:23]]).
 
-Suffer little children ... to *come* unto me, [[Matthew 19.14|Matthew 19:14]] ([[Mark 10.14|Mark 10:14]]; [[Luke 18.16|Luke 18:16]]).
+Suffer little children … to *come* unto me, [[Matthew 19.14|Matthew 19:14]] ([[Mark 10.14|Mark 10:14]]; [[Luke 18.16|Luke 18:16]]).
 
 Son of man *came* not to be ministered unto, [[Matthew 20.28|Matthew 20:28]] ([[Mark 10.45|Mark 10:45]]).
 
@@ -49,11 +48,11 @@ many shall *come* in my name, [[Matthew 24.5|Matthew 24:5]] ([[Mark 13.6|Mark 13
 
 they shall see the Son of man *coming*, [[Matthew 24.30|Matthew 24:30]] ([[Mark 13.26|Mark 13:26]]; [[Luke 21.27|Luke 21:27]]; [[Joseph Smith Matthew 1.36|Joseph Smith Matthew 1:36]]).
 
-in such an hour ... the Son of man *cometh*, [[Matthew 24.44|Matthew 24:44]] ([[Luke 12.40|Luke 12:40]]).
+in such an hour … the Son of man *cometh*, [[Matthew 24.44|Matthew 24:44]] ([[Luke 12.40|Luke 12:40]]).
 
-Son of man ... *coming* in the clouds of heaven, [[Matthew 26.64|Matthew 26:64]] ([[Daniel 7.13|Daniel 7:13]]; [[Mark 14.62|Mark 14:62]]; [[D&C 76.63|D&C 76:63]]).
+Son of man … *coming* in the clouds of heaven, [[Matthew 26.64|Matthew 26:64]] ([[Daniel 7.13|Daniel 7:13]]; [[Mark 14.62|Mark 14:62]]; [[D&C 76.63|D&C 76:63]]).
 
-Jesus said ... *Come* ye after me, [[Mark 1.17|Mark 1:17]].
+Jesus said … *Come* ye after me, [[Mark 1.17|Mark 1:17]].
 
 Hold thy peace, and *come* out of him, [[Mark 1.25|Mark 1:25]] ([[Luke 4.35|Luke 4:35]]).
 
@@ -71,7 +70,7 @@ he that *came* down from heaven, [[John 3.13|John 3:13]].
 
 ye will not *come* to me, that ye might have life, [[John 5.40|John 5:40]].
 
-I am *come* in my Father's name, [[John 5.43|John 5:43]].
+I am *come* in my Father’s name, [[John 5.43|John 5:43]].
 
 he that *cometh* to me shall never hunger, [[John 6.35|John 6:35]].
 
@@ -79,11 +78,11 @@ All that the Father giveth me shall *come* to me, [[John 6.37|John 6:37]].
 
 I *came* down from heaven, [[John 6.38|John 6:38]].
 
-No man can *come* to me, except the Father ... draw him, [[John 6.44|John 6:44]].
+No man can *come* to me, except the Father … draw him, [[John 6.44|John 6:44]].
 
 I am not *come* of myself, [[John 7.28|John 7:28]] ([[John 8.42|John 8:42]]).
 
-thither ye cannot *come*, [[John 7.34|John 7:34]] ([[John 7.36|John 7:36]]; [[John 8.21|8:21-22]][[John 8.22|]]; [[John 13.33|John 13:33]]).
+thither ye cannot *come*, [[John 7.34|John 7:34]] ([[John 7.36|John 7:36]]; [[John 13.33|John 13:33]]).
 
 I proceeded forth and *came* from God, [[John 8.42|John 8:42]] ([[John 16.28|John 16:28]]).
 
@@ -105,13 +104,13 @@ I *came* out from thee, [[John 17.8|John 17:8]].
 
 If I will that he tarry till I *come*, [[John 21.22|John 21:22]].
 
-same Jesus ... shall so *come* in like manner, [[Acts 1.11|Acts 1:11]].
+same Jesus … shall so *come* in like manner, [[Acts 1.11|Acts 1:11]].
 
 *Come* over into Macedonia, [[Acts 16.9|Acts 16:9]].
 
 desire these many years to *come* unto you, [[Romans 15.23|Romans 15:23]].
 
-ye do shew the Lord's death till he *come*, [[1 Corinthians 11.26|1 Corinthians 11:26]].
+ye do shew the Lord’s death till he *come*, [[1 Corinthians 11.26|1 Corinthians 11:26]].
 
 *come* out from among them, [[2 Corinthians 6.17|2 Corinthians 6:17]].
 
@@ -143,7 +142,7 @@ the Spirit and the bride say, *Come*, [[Revelation 22.17|Revelation 22:17]].
 
 he *cometh*, according to the words, [[1 Nephi 19.8|1 Nephi 19:8]].
 
-Christ ... should *come* among the Jews, [[2 Nephi 10.3|2 Nephi 10:3]].
+Christ … should *come* among the Jews, [[2 Nephi 10.3|2 Nephi 10:3]].
 
 inviteth them all to *come* unto him, [[2 Nephi 26.33|2 Nephi 26:33]].
 
@@ -153,7 +152,7 @@ God himself shall *come* down, [[Mosiah 15.1|Mosiah 15:1]].
 
 we must *come* forth and stand before him, [[Alma 12.15|Alma 12:15]].
 
-five years ... then *cometh* the Son, [[Helaman 14.2|Helaman 14:2]].
+five years … then *cometh* the Son, [[Helaman 14.2|Helaman 14:2]].
 
 on the morrow *come* I into the world, [[3 Nephi 1.13|3 Nephi 1:13]].
 
@@ -169,9 +168,9 @@ that all men might repent and *come* unto him, [[D&C 18.11|D&C 18:11]].
 
 I *came* by the will of the Father, [[D&C 19.24|D&C 19:24]].
 
-dead awake ... and they shall *come* forth, [[D&C 29.26|D&C 29:26]].
+dead awake … and they shall *come* forth, [[D&C 29.26|D&C 29:26]].
 
-time ... surely shall *come*, [[D&C 39.21|D&C 39:21]].
+time … surely shall *come*, [[D&C 39.21|D&C 39:21]].
 
 in mine own due time will I *come*, [[D&C 43.29|D&C 43:29]].
 

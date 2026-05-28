@@ -4,6 +4,3 @@
 
 [JST Genesis 15:11](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gen/15?lang=eng)
 
-
-
-

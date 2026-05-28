@@ -1,6 +1,6 @@
 # Agency and Control
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -83,6 +83,4 @@ The Lord was a teacher. I bear testimony of Him, and pray that He will bless all
 
 
 
-
-
-#Agency #Scriptures #Self-Control
+#Agency #Scriptures #Self-control

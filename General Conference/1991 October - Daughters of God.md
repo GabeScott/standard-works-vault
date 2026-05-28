@@ -14,7 +14,7 @@ A few days ago, a letter came to the office addressed to President Benson. I wis
 
 “Dear President Benson,
 
-“My name is Virginia. I am fourteen years old, and a matter has been on my mind a lot lately. In the scriptures I could not seem to find anywhere whether women may enter into the celestial kingdom if they are worthy. Also, when someone such as Joseph Smith had a vision of the celestial kingdom, he only seemed to see men there. I have prayed about it, but felt that I needed your words. … In the scriptures, they talk about a woman being blessed if she is righteous, but not about celestial glory. This truly bothers me. If we are all Heavenly Father’s children, then why do the scriptures say that men are to rule over women? And why in the scriptures was Eve created from Adam? I may be foolish, but I honestly do not understand. I love the gospel, and I am learning of its truth. I have a testimony, and I know that I have a divine purpose in life. But I suppose what I am asking is—are men more important than women? And can women go to the celestial kingdom also? …
+“My name is Virginia. I am fourteen years old, and a matter has been on my mind a lot lately. In the scriptures I could not seem to find anywhere whether women may enter into the celestial kingdom if they are worthy. Also, when someone such as Joseph Smith had a vision of the celestial kingdom, he only seemed to see men there. I have prayed about it, but felt that I needed your words. … In the scriptures, they talk about a woman being blessed if she is righteous, but not about celestial glory. This truly bothers me. If we are all Heavenly Father’s children, then why do the scriptures say that men are to rule over women? And why in the scriptures was Eve created from Adam? I may be foolish, but I honestly do not understand. I love the gospel, and I am learning of its truth. I have a testimony, and I know that I have a divine purpose in life. But I suppose what I am asking is—are men more important than women? And can women go to the celestial kingdom also? …
 
 “I am still young and learning, and I need help in this matter. Thank you so much.
 
@@ -116,17 +116,17 @@ I am therefore on this occasion going to take the liberty of rereading that port
 
 ‘After this manner therefore pray ye: Our *Father* which art in heaven, Hallowed be thy name.’ ([[Matthew 6.9|Matt. 6:9]]; italics added here and in following references.)
 
-“When the resurrected Lord appeared to the Nephites and taught them, He said: ‘After this manner therefore pray ye: Our *Father* who art in heaven, hallowed be thy name.’ ([[3 Nephi 13.9|3 Ne. 13:9]].)
+“When the resurrected Lord appeared to the Nephites and taught them, He said: ‘After this manner therefore pray ye: Our *Father* who art in heaven, hallowed be thy name.’ ([[3 Nephi 13.9|3 Ne. 13:9]].)
 
-“While He was among them, He further taught them by example and precept concerning this practice. The record states that ‘He himself also knelt upon the earth; and behold he prayed unto the *Father,* and the things which he prayed cannot be written, and the multitude did bear record who heard him.’ ([[3 Nephi 17.15|3 Ne. 17:15]].)
+“While He was among them, He further taught them by example and precept concerning this practice. The record states that ‘He himself also knelt upon the earth; and behold he prayed unto the *Father,* and the things which he prayed cannot be written, and the multitude did bear record who heard him.’ ([[3 Nephi 17.15|3 Ne. 17:15]].)
 
-“Furthermore, He said: ‘Pray in your families unto the *Father,* always in my name, that your wives and your children may be blessed.’ ([[3 Nephi 18.21|3 Ne. 18:21]].)
+“Furthermore, He said: ‘Pray in your families unto the *Father,* always in my name, that your wives and your children may be blessed.’ ([[3 Nephi 18.21|3 Ne. 18:21]].)
 
 “On another occasion, ‘Jesus departed out of the midst of them, and went a little way off from them and bowed himself to the earth, and he said:
 
 “‘*Father,* I thank thee that thou hast given the Holy Ghost unto these whom I have chosen; and it is because of their belief in me that I have chosen them out of the world.
 
-“‘*Father,* I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words.’ ([[3 Nephi 19.19|3 Ne. 19:19–21]][[3 Nephi 19.20|]][[3 Nephi 19.21|]].)
+“‘*Father,* I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words.’ ([[3 Nephi 19.19|3 Ne. 19:19–21]][[3 Nephi 19.20|]][[3 Nephi 19.21|]].)
 
 “And so I might continue with other specific instances from the scripture. Search as I have, I find nowhere in the standard works an account where Jesus prayed other than to His Father in Heaven or where He instructed the people to pray other than to His Father in Heaven.
 
@@ -148,7 +148,5 @@ You know this work is true, as do I. You know that God our Eternal Father lives 
 
 
 [^1]: I am aware of Abigail Adams’s correspondence with John Adams on this point. However, it does not follow that all of the fifty-six signers of the Declaration were of the same view. Subsequent generations have regarded *men* in its generic sense. I might have used various other examples on which there could be no question.
-
-
 
 #Prayer #Women

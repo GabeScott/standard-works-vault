@@ -26,13 +26,13 @@ Number 5. To inspire my family members to keep the commandments of God and endur
 
 When we really understand, accept, and commit ourselves to these priesthood duties, we prepare ourselves for a miraculous change with eternal consequences.
 
-Have we not been promised that we “might be partakers of the divine nature”? ([[2 Peter 1.4|2 Pet. 1:4]]). This means that through personal change we develop a desire to live in harmony with the divine teachings of the Lord and to free our minds from all ill feelings toward other people. To do so will make us more worthy, even more perfect.
+Have we not been promised that we “might be partakers of the divine nature”? ([[2 Peter 1.4|2 Pet. 1:4]]). This means that through personal change we develop a desire to live in harmony with the divine teachings of the Lord and to free our minds from all ill feelings toward other people. To do so will make us more worthy, even more perfect.
 
 The old saying “Change is progress” then takes on a special meaning for all of us—because repentance is change, conversion is change, perfecting is change. All this is in complete harmony with the desires of our Heavenly Father and the loving pleadings of the Redeemer.
 
 As members of the Lord’s restored church, we have through divine revelation received a perfect knowledge of what the future holds for us. *The plan of redemption has been revealed to us in all its glory.* It perfectly covers our premortal existence, our earthly journey, and our life hereafter, as recorded in the Book of Mormon.
 
-Elder Neal A. Maxwell has made the following statement about the manner in which we should read the Book of Mormon: “For some Church members the Book of Mormon remains unread. Others use it occasionally as if it were merely a handy book of quotations. Still others accept and read it but do not really explore and ponder it. The book is to be feasted upon, not nibbled” (*But for a Small Moment* \[Salt Lake City: Bookcraft, 1986\], p. 28).
+Elder Neal A. Maxwell has made the following statement about the manner in which we should read the Book of Mormon: “For some Church members the Book of Mormon remains unread. Others use it occasionally as if it were merely a handy book of quotations. Still others accept and read it but do not really explore and ponder it. The book is to be feasted upon, not nibbled” (*But for a Small Moment* \[Salt Lake City: Bookcraft, 1986\], p. 28).
 
 Let us, therefore, today feast upon the words of Amulek, the missionary companion of Alma the Younger, as recorded in chapter 34 of Alma, starting with verse 30:
 
@@ -63,8 +63,6 @@ Our Heavenly Father has made the promise that He will put a new spirit in people
 Brethren, I bear solemn witness that the lines and precepts that I have shared with you tonight are true, that the Book of Mormon is indeed the word of God and the most correct book on earth pertaining to the salvation and exaltation of man.
 
 I know that God lives and that Jesus Christ is our Savior and Redeemer. I also testify that President Ezra Taft Benson is the Lord’s prophet on the earth today. That we all may go out into the world to testify of these simple truths, I pray, in the name of Jesus Christ, amen.
-
-
 
 
 

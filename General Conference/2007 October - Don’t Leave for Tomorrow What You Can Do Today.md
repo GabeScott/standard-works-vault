@@ -90,7 +90,7 @@ Let us express our love to our spouse and children and our brothers and sisters 
 
 [^3]: See [[D&C 68.25|D&C 68:25]].
 
-[^4]: [[1 Nephi 1.1|1 Nephi 1:1]].
+[^4]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
 [^5]: *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
@@ -103,7 +103,5 @@ Let us express our love to our spouse and children and our brothers and sisters 
 [^9]: [[John 15.13|John 15:13]].
 
 [^10]: See www.heartwhispers.net; printed with permission.
-
-
 
 #Family #Love #Teaching

@@ -1,11 +1,10 @@
 # Respect
 
-
-*See also* [[Esteem.md|Esteem]]; [[Family, Love within.md|Family, Love within]]; [[Honor.md|Honor]]; [[Honoring Father and Mother.md|Honoring Father and Mother]]; [[Obedience, Obedient, Obey.md|Obedience]]; [[Reverence.md|Reverence]]
+*See also* [[Esteem.md|Esteem]]; [[Family, Love within.md|Family, Love within]]; [[Honor.md|Honor]]; [[Honoring Father and Mother.md|Honoring Father and Mother]]; [[Obedience.md|Obedience]]; [[Reverence.md|Reverence]]
 
 Lord had *respect* unto Abel, [[Genesis 4.4|Genesis 4:4]] ([[Moses 5.20|Moses 5:20]]).
 
-children of Israel ... God had *respect* unto them, [[Exodus 2.25|Exodus 2:25]].
+children of Israel … God had *respect* unto them, [[Exodus 2.25|Exodus 2:25]].
 
 shalt not *respect* the person of the poor, [[Leviticus 19.15|Leviticus 19:15]].
 
@@ -17,11 +16,11 @@ have thou *respect* unto the prayer, [[1 Kings 8.28|1 Kings 8:28]] ([[2 Chronicl
 
 he *respecteth* not any that are wise of heart, [[Job 37.24|Job 37:24]].
 
-Blessed is that man that ... *respecteth* not the proud, [[Psalms 40.4|Psalms 40:4]].
+Blessed is that man that … *respecteth* not the proud, [[Psalms 40.4|Psalms 40:4]].
 
 Have *respect* unto the covenant, [[Psalms 74.20|Psalms 74:20]].
 
-Lord ... hath he *respect* unto the lowly, [[Psalms 138.6|Psalms 138:6]].
+Lord … hath he *respect* unto the lowly, [[Psalms 138.6|Psalms 138:6]].
 
 not good to have *respect* of persons in judgment, [[Proverbs 24.23|Proverbs 24:23]] ([[Proverbs 28.21|Proverbs 28:21]]).
 

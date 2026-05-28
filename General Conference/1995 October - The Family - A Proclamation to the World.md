@@ -29,6 +29,4 @@ We call upon responsible citizens and officers of government everywhere to promo
 
 
 
-
-
 #Children #Family #Home #Marriage #Morality #Parenthood

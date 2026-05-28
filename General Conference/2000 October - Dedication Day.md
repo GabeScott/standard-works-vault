@@ -86,7 +86,7 @@ Like a flash of inspiration, he remembered the sound of a bell which from the to
 
 At length the weary young man stood one Sunday morning before a church of a typical town. He listened carefully as the bell began to peal. The sound was familiar. It was unlike any other he had heard, save that bell which pealed in the memory of his childhood days. Yes, it was the same bell. Its ring was true. His eyes filled with tears. His heart rejoiced in gladness. His soul overflowed with gratitude. The young man dropped to his knees, looked upward beyond the bell tower—even toward heaven—and in a prayer of gratitude whispered, “Thanks be to God. I’m home.”
 
-Like the peal of a remembered bell will be the truth of the gospel of Jesus Christ to the soul of him who earnestly seeks. Many of you have traveled long in a personal quest for that which rings true. The Church of Jesus Christ of Latter-day Saints sends forth to you an earnest appeal: Open your doors to the missionaries. Open your minds to the word of God. Open your hearts—even your very souls—to the sound of that still, small voice which testifies of truth. As the prophet Isaiah promised, “Thine ears shall hear a word … , saying, This is the way, walk ye in it.”[^13] Then, like the boy of whom I’ve spoken, you too will, on bended knee, say to your God and mine, “I’m home.”
+Like the peal of a remembered bell will be the truth of the gospel of Jesus Christ to the soul of him who earnestly seeks. Many of you have traveled long in a personal quest for that which rings true. The Church of Jesus Christ of Latter-day Saints sends forth to you an earnest appeal: Open your doors to the missionaries. Open your minds to the word of God. Open your hearts—even your very souls—to the sound of that still, small voice which testifies of truth. As the prophet Isaiah promised, “Thine ears shall hear a word … , saying, This is the way, walk ye in it.”[^13] Then, like the boy of whom I’ve spoken, you too will, on bended knee, say to your God and mine, “I’m home.”
 
 May such be the blessing of all, I pray in the name of Jesus Christ, amen.
 
@@ -97,7 +97,7 @@ May such be the blessing of all, I pray in the name of Jesus Christ, amen.
 
 [^2]: *Deseret News,* 20 May 1863, 369.
 
-[^3]: [[1 Corinthians 3.16|1 Cor. 3:16]].
+[^3]: [[1 Corinthians 3.16|1 Cor. 3:16]].
 
 [^4]: Richard Carelli, “High Court Kills Limits on TV Sex,” *Salt Lake Tribune,* 23 May 2000, A1.
 
@@ -119,6 +119,4 @@ May such be the blessing of all, I pray in the name of Jesus Christ, amen.
 
 [^13]: [[Isaiah 30.21|Isa. 30:21]].
 
-
-
-#Children #Education #Family #God_The_Father #Gratitude #Holy_Ghost #Home #Jesus_Christ #Love #Prayer #Sabbath #Scriptures
+#Children #Education #Family #GodTheFather #Gratitude #HolyGhost #Home #JesusChrist #Love #Prayer #Sabbath #Scriptures

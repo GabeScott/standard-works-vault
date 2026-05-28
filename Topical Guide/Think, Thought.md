@@ -1,7 +1,6 @@
 # Think, Thought
 
-
-*See also* [[Imagination, Imagine.md|Imagination]]; [[Meditation, Meditate.md|Meditation]]; [[Reason.md|Reason]]; [[Thought [noun].md|Thought [noun]]]
+*See also* [[Imagination.md|Imagination]]; [[Meditation.md|Meditation]]; [[Reason.md|Reason]]; [[Thought [noun].md|Thought [noun]]]
 
 ye *thought* evil against me, [[Genesis 50.20|Genesis 50:20]].
 
@@ -23,9 +22,9 @@ such an hour as ye *think* not the Son of man cometh, [[Matthew 24.44|Matthew 24
 
 *Thinkest* thou that I cannot now pray to my Father, [[Matthew 26.53|Matthew 26:53]].
 
-they *thought* that the kingdom ... should immediately appear, [[Luke 19.11|Luke 19:11]].
+they *thought* that the kingdom … should immediately appear, [[Luke 19.11|Luke 19:11]].
 
-scriptures ... in them ye *think* ye have eternal life, [[John 5.39|John 5:39]].
+scriptures … in them ye *think* ye have eternal life, [[John 5.39|John 5:39]].
 
 whosoever killeth you will *think* that he doeth God service, [[John 16.2|John 16:2]].
 
@@ -35,7 +34,7 @@ thou hast *thought* that the gift of God may be purchased, [[Acts 8.20|Acts 8:20
 
 ought not to *think* that the Godhead is like unto gold, [[Acts 17.29|Acts 17:29]].
 
-man ... not to *think* of himself more highly than he ought to *think*, [[Romans 12.3|Romans 12:3]].
+man … not to *think* of himself more highly than he ought to *think*, [[Romans 12.3|Romans 12:3]].
 
 if any man *think* that he knoweth any thing, [[1 Corinthians 8.2|1 Corinthians 8:2]].
 
@@ -47,7 +46,7 @@ If any man *think* himself to be a prophet, [[1 Corinthians 14.37|1 Corinthians 
 
 if a man *think* himself to be something, [[Galatians 6.3|Galatians 6:3]].
 
-do ... above all that we ask or *think*, [[Ephesians 3.20|Ephesians 3:20]].
+do … above all that we ask or *think*, [[Ephesians 3.20|Ephesians 3:20]].
 
 *thought* it not robbery to be equal with God, [[Philippians 2.6|Philippians 2:6]].
 

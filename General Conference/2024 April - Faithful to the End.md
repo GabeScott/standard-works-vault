@@ -56,7 +56,7 @@ Our love for God and our close relationship with Him give us the strength we nee
 
 Second, the stone of *my faith in our Savior, Jesus Christ*. When Jesus Christ came to earth, He suffered for our sins,[^5] and He took upon Himself our sorrows, our pains, our weaknesses, and our physical and mental illnesses. That’s why He knows how to help us. Having faith in Jesus Christ means to fully trust His wisdom, His timing, His love, and His power to atone for our sins. The stone of faith in Jesus Christ will defeat any “giant” in our lives.[^6] We can overcome this fallen world because He overcame it first.[^7]
 
-Number three, the stone of *the knowledge of my true identity*. Our beloved prophet, President Russell M. Nelson, taught us that our most important identities are as children of God, children of the covenant, and disciples of Jesus Christ.[^8]
+Number three, the stone of *the knowledge of my true identity*. Our beloved prophet, President Russell M. Nelson, taught us that our most important identities are as children of God, children of the covenant, and disciples of Jesus Christ.[^8]
 
 Everything changes when I know who I really am.[^9] When I doubt my abilities, I often repeat to myself in my mind or out loud, “I am a daughter of God, I am a daughter of God,” as many times as I need until I again feel confident to keep going.
 
@@ -68,7 +68,7 @@ The fifth stone is the stone of *my access to God’s power*. The covenants we m
 
 The *For the Strength of Youth* guide explains: “Covenants *connect* you to Heavenly Father and the Savior. They *increase God’s power* in your life.”[^13]
 
-Let’s talk about that connection. Remember when Christ taught the difference between a house built on rock and one on sand?[^14] Elder Dieter F. Uchtdorf explained: “A house doesn’t survive in a storm because the house is strong. It also doesn’t survive just because the rock is strong. The house survives the storm because it is firmly attached to that strong rock. It’s the strength of the *connection* to the rock that matters.”[^15]
+Let’s talk about that connection. Remember when Christ taught the difference between a house built on rock and one on sand?[^14] Elder Dieter F. Uchtdorf explained: “A house doesn’t survive in a storm because the house is strong. It also doesn’t survive just because the rock is strong. The house survives the storm because it is firmly attached to that strong rock. It’s the strength of the *connection* to the rock that matters.”[^15]
 
 Our personal connection to Jesus Christ will give us the courage and confidence to move forward amid people who do not respect our beliefs or who bully us. Christ invites us to keep Him in our thoughts constantly; He tells us, “Look unto me in *every* thought.”[^16] Thinking about the Savior gives us clarity of mind to make decisions, to act without fear, and to say no to what is contrary to God’s teachings.[^17] When my day is difficult and I feel like I can’t take any more, thinking about Christ brings me peace and gives me hope.
 
@@ -97,9 +97,9 @@ Dear youth, Jesus Christ will help you to be faithful to the end. Of these truth
 
 
 
-[^1]: See [[1 Samuel 17.1|1 Samuel 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]].
+[^1]: See [[1 Samuel 17.1|1 Samuel 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]].
 
-[^2]: See [[1 Samuel 17.40|1 Samuel 17:40, 45–49]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]].
+[^2]: See [[1 Samuel 17.40|1 Samuel 17:40, 45–49]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]].
 
 [^3]: See [[Matthew 22.36|Matthew 22:36–38]][[Matthew 22.37|]][[Matthew 22.38|]].
 
@@ -107,38 +107,36 @@ Dear youth, Jesus Christ will help you to be faithful to the end. Of these truth
 
 [^5]: See [[Alma 7.11|Alma 7:11–14]][[Alma 7.12|]][[Alma 7.13|]][[Alma 7.14|]].
 
-[^6]: See [[1 Nephi 7.12|1 Nephi 7:12]].
+[^6]: See [[1 Nephi 7.12|1 Nephi 7:12]].
 
-[^7]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–98.
+[^7]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–98.
 
-[^8]: See Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+[^8]: See Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
 
-[^9]: See “[Young Women Theme](https://churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng)” and “[Aaronic Priesthood Quorum Theme](https://churchofjesuschrist.org/study/manual/aaronic-priesthood-quorum-theme/aaronic-priesthood-quorum-theme?lang=eng),” Gospel Library.
+[^9]: See “[Young Women Theme](https://www.churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng)” and “[Aaronic Priesthood Quorum Theme](https://www.churchofjesuschrist.org/study/manual/aaronic-priesthood-quorum-theme/aaronic-priesthood-quorum-theme?lang=eng),” Gospel Library.
 
 [^10]: *For the Strength of Youth*, 7.
 
-[^11]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97–100; see also [[D&C 84.19|Doctrine and Covenants 84:19–21]][[D&C 84.20|]][[D&C 84.21|]].
+[^11]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97–100; see also [[D&C 84.19|Doctrine and Covenants 84:19–21]][[D&C 84.20|]][[D&C 84.21|]].
 
-[^12]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [3.5](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=title_number16#title_number16), Gospel Library.
+[^12]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [3.5](https://www.churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=title_number16#title_number16), Gospel Library.
 
 [^13]: *For the Strength of Youth*, 34; emphasis added.
 
-[^14]: See [[3 Nephi 14.24|3 Nephi 14:24–27]][[3 Nephi 14.25|]][[3 Nephi 14.26|]][[3 Nephi 14.27|]].
+[^14]: See [[3 Nephi 14.24|3 Nephi 14:24–27]][[3 Nephi 14.25|]][[3 Nephi 14.26|]][[3 Nephi 14.27|]].
 
-[^15]: Dieter F. Uchtdorf, “[For the Strength of Youth: The Savior’s Message to You](https://churchofjesuschrist.org/study/ftsoy/2024/03/14a-for-the-strength-of-youth-the-saviors-message-to-you?lang=eng),” *For the Strength of Youth*, Mar. 2024, 38.
+[^15]: Dieter F. Uchtdorf, “[For the Strength of Youth: The Savior’s Message to You](https://www.churchofjesuschrist.org/study/ftsoy/2024/03/14a-for-the-strength-of-youth-the-saviors-message-to-you?lang=eng),” *For the Strength of Youth*, Mar. 2024, 38.
 
 [^16]: [[D&C 6.36|Doctrine and Covenants 6:36]]; emphasis added.
 
 [^17]: See [[D&C 6.33|Doctrine and Covenants 6:33–34]][[D&C 6.34|]].
 
-[^18]: See Dallin H. Oaks, “[[2008 April - Testimony.md|Testimony]],” *Ensign* or *Liahona*, May 2008, 26–29; see also [[Alma 5.46|Alma 5:46]].
+[^18]: See Dallin H. Oaks, “[[2008 April - Testimony.md|Testimony]],” *Ensign* or *Liahona*, May 2008, 26–29; see also [[Alma 5.46|Alma 5:46]].
 
 [^19]: See *For the Strength of Youth*, 32: “Love the truth so much that you would never want to steal, lie, cheat, or deceive in any way—at school, at work, online, everywhere. Be the same faithful follower of Jesus Christ in public and in private.”
 
-[^20]: See [[1 Nephi 8.19|1 Nephi 8:19, 30]][[1 Nephi 8.30|]]; [[1 Nephi 15.24|15:24–25]][[1 Nephi 15.25|]]; [[Helaman 3.29|Helaman 3:29–30]][[Helaman 3.30|]].
+[^20]: See [[1 Nephi 8.19|1 Nephi 8:19, 30]][[1 Nephi 8.30|]]; [[1 Nephi 15.24|15:24–25]][[1 Nephi 15.25|]]; [[Helaman 3.29|Helaman 3:29–30]][[Helaman 3.30|]].
 
-[^21]: See [[3 Nephi 22.13|3 Nephi 22:13]].
+[^21]: See [[3 Nephi 22.13|3 Nephi 22:13]].
 
-
-
-#Covenants #Divine_Nature #Faith #Love #Preparation #Repentance #Testimony #Youth
+#Covenants #DivineNature #Faith #Love #Preparation #Repentance #Testimony #Youth

@@ -1,6 +1,6 @@
 # “Come unto Me”
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -94,7 +94,7 @@ We are under covenant both to lift up those in need and to be witnesses of the S
 
 We will be able to do it without fail only as we feel love for the Savior and His love for us. As we are faithful to the promises we have made, we will feel our love for Him. It will increase because we will feel His power and His drawing near to us in His service.
 
-President Thomas S. Monson has reminded us often of the promise of the Lord to His faithful disciples: “And whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”[^12]
+President Thomas S. Monson has reminded us often of the promise of the Lord to His faithful disciples: “And whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”[^12]
 
 There is another way you and I have felt Him grow closer to us. As we give devoted service to Him, He draws closer to those we love in our families. Every time I have been called in the Lord’s service to move or to leave my family, I have come to see that the Lord was blessing my wife and my children. He prepared loving servants of His and opportunities to draw my family closer to Him.
 
@@ -126,7 +126,7 @@ Every covenant servant of His within His kingdom on earth and in the spirit worl
 
 I am a witness of the Resurrection of the Lord as surely as if I had been there in the evening with the two disciples in the house on Emmaus road. I know that He lives as surely as did Joseph Smith when he saw the Father and the Son in the light of a brilliant morning in a grove of trees in Palmyra.
 
-This is the true Church of Jesus Christ. Only in the priesthood keys held by President Thomas S. Monson is the power for us to be sealed in families to live forever with our Heavenly Father and the Lord Jesus Christ. We will on the Day of Judgment stand before the Savior, face to face. It will be a time of joy for those who have drawn close to Him in His service in this life. It will be a joy to hear the words, “Well done, thou good and faithful servant.”[^19] I so testify as a witness of the risen Savior and our Redeemer in the name of Jesus Christ, amen.
+This is the true Church of Jesus Christ. Only in the priesthood keys held by President Thomas S. Monson is the power for us to be sealed in families to live forever with our Heavenly Father and the Lord Jesus Christ. We will on the Day of Judgment stand before the Savior, face to face. It will be a time of joy for those who have drawn close to Him in His service in this life. It will be a joy to hear the words, “Well done, thou good and faithful servant.”[^19] I so testify as a witness of the risen Savior and our Redeemer in the name of Jesus Christ, amen.
 
 
 
@@ -169,6 +169,4 @@ This is the true Church of Jesus Christ. Only in the priesthood keys held by Pre
 
 [^19]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-#Jesus_Christ #Service
+#JesusChrist #Service

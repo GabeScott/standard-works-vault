@@ -1,6 +1,6 @@
 # Planning for a Full and Abundant Life
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -99,7 +99,7 @@ Ralph Waldo Emerson said, “Every man takes care that his neighbor shall not ch
 
 This boy did not know how our acts follow us and how that which we sow we are sure to reap. And every experience we have adds to or draws from our lives. We cannot think ugly thoughts or do ugly things without retribution.
 
-Recently in a paper was an account of a girl who found a very large check in excess of two million dollars. She immediately began spending it in her own mind, she said. But finally she returned the check to its owner, and the newspaper account revealed the reward was very much smaller than her dreams. Why should she want a reward for doing right? Why should she be disappointed in the amount offered? Must people be rewarded for doing right? Would you expect a reward if you returned a lost article? All of you boys are learning or have learned the Thirteenth Article of Faith: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men. …”
+Recently in a paper was an account of a girl who found a very large check in excess of two million dollars. She immediately began spending it in her own mind, she said. But finally she returned the check to its owner, and the newspaper account revealed the reward was very much smaller than her dreams. Why should she want a reward for doing right? Why should she be disappointed in the amount offered? Must people be rewarded for doing right? Would you expect a reward if you returned a lost article? All of you boys are learning or have learned the Thirteenth Article of Faith: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men. …”
 
 I wish to say a few words about shoplifting, but time will not permit. It is a terrible disgrace that in our communities firms must set aside a rather distressing percentage of their profits to take care of the shoplifting. It is a horrible thing that in a Latter-day Saint community, where part of us at least are Latter-day Saints, this should be the case.
 
@@ -122,8 +122,6 @@ But as I mingled among these people and saw the father and the son a little late
 I hope you boys in this audience will keep that in mind. You have the best dad in the world, you know. He holds the priesthood; he would be delighted to give you a blessing. He would like you to indicate it, and we would like you fathers to remember that your boys are a little timid maybe. They know you are the best men in the world, but probably if you just made the advance, there would be some glorious moments for you.
 
 Brethren, it is wonderful to be with you here tonight. And may peace be with you, and as has been said so many times in these days, only righteousness pays dividends. God bless you, and I bear my testimony to you boys, to you men, that God lives and that Jesus is the Christ. It is a great program of salvation and exaltation, and it is the only way, and there never was found happiness in unrighteousness. I bear my testimony to you in the name of Jesus Christ, our Lord. Amen.
-
-
 
 
 

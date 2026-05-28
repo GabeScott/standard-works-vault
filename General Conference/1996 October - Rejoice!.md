@@ -61,6 +61,4 @@ Brothers and sisters, let us avoid the Saturday morning cartoons of life, partic
 
 
 
-
-
-#Atonement #Gratitude #Jesus_Christ #Joy #Responsibility #Temples
+#Atonement #Gratitude #Joy #JesusChrist #Responsibility #Temples

@@ -1,6 +1,6 @@
 # On Being Genuine
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -92,7 +92,7 @@ And are we not, all of us, in need of repair, maintenance, and rehabilitation?
 
 We come to church not to hide our problems but to heal them.
 
-And as priesthood holders, we have an additional responsibility—to “feed the flock of God … , not by constraint, but willingly; not for \[personal gain\], but of a ready mind; neither as being lords over God’s heritage, but being \[ex\]amples to the flock.”[^13]
+And as priesthood holders, we have an additional responsibility—to “feed the flock of God … , not by constraint, but willingly; not for \[personal gain\], but of a ready mind; neither as being lords over God’s heritage, but being \[ex\]amples to the flock.”[^13]
 
 Remember, brethren, “God resist\[s\] the proud, but give\[s\] grace unto the humble.”[^14]
 
@@ -127,11 +127,11 @@ I pray, brethren, that as we serve in our families, quorums, wards, stakes, comm
 
 [^10]: [[Deuteronomy 7.9|Deuteronomy 7:9]].
 
-[^11]: See [[1 John 1.9|1 John 1:9]].
+[^11]: See [[1 John 1.9|1 John 1:9]].
 
 [^12]: [[Revelation 7.16|Revelation 7:16–17]][[Revelation 7.17|]].
 
-[^13]: [[1 Peter 5.2|1 Peter 5:2–3]][[1 Peter 5.3|]].
+[^13]: [[1 Peter 5.2|1 Peter 5:2–3]][[1 Peter 5.3|]].
 
 [^14]: [[James 4.6|James 4:6]].
 
@@ -147,6 +147,4 @@ I pray, brethren, that as we serve in our families, quorums, wards, stakes, comm
 
 [^20]: See [[D&C 83.6|Doctrine and Covenants 83:6]].
 
-
-
-#Conversion #Discipleship #Goals #Healing #Humility #Jesus_Christ #Service
+#Conversion #Discipleship #Goals #Healing #Humility #JesusChrist #Service

@@ -4,6 +4,3 @@
 
 [JST Mark 9:45](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-mark/9?lang=eng)
 
-
-
-

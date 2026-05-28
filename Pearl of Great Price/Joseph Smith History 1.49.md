@@ -5,4 +5,4 @@
 [Joseph Smith History 1:49](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.49?lang=eng#p49)
 
 
-[^a]: TG [[Family, Love within]].
+[^a]: [[Family, Love within|TG Family, Love within]].  

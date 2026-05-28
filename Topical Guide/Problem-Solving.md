@@ -1,7 +1,6 @@
 # Problem-Solving
 
-
-*See also* [[Faith.md|Faith]]; [[God, Access to.md|God, Access to]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Prayer, Pray.md|Prayer]]; [[Repent, Repentance.md|Repent]]
+*See also* [[Faith.md|Faith]]; [[God, Access to.md|God, Access to]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Prayer.md|Prayer]]; [[Repent.md|Repent]]
 
 fools despise wisdom and *instruction*, [[Proverbs 1.7|Proverbs 1:7]].
 
@@ -31,11 +30,11 @@ words of Christ will *tell* you all things, [[2 Nephi 32.3|2 Nephi 32:3]].
 
 seek not to counsel the Lord, but to take *counsel*, [[Jacob 4.10|Jacob 4:10]].
 
-they had the spirit of prophecy, and ... of *revelation*, [[Alma 17.3|Alma 17:3]].
+they had the spirit of prophecy, and … of *revelation*, [[Alma 17.3|Alma 17:3]].
 
 *Counsel* with the Lord in all thy doings, [[Alma 37.37|Alma 37:37]].
 
-by ... the Holy Ghost ye may *know* the truth of all things, [[Moroni 10.5|Moroni 10:5]].
+by … the Holy Ghost ye may *know* the truth of all things, [[Moroni 10.5|Moroni 10:5]].
 
 *study* it out in your mind; then you must ask, [[D&C 9.8|D&C 9:8]].
 
@@ -45,6 +44,4 @@ He that is faithful and *endureth* shall overcome, [[D&C 63.47|D&C 63:47]].
 
 that your bodies and your *minds* may be invigorated, [[D&C 88.124|D&C 88:124]].
 
-if any man ... seeketh not my *counsel*, he shall have no power, [[D&C 136.19|D&C 136:19]].
-
-*See also* [[Genesis 32.24|Gen. 32:24-29]][[Genesis 32.25|]][[Genesis 32.26|]][[Genesis 32.27|]][[Genesis 32.28|]][[Genesis 32.29|]]; [[Enos 1.2|Enos 1:2-6]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]].
+if any man … seeketh not my *counsel*, he shall have no power, [[D&C 136.19|D&C 136:19]].

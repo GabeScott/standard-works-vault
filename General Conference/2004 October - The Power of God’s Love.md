@@ -30,7 +30,7 @@ As a young missionary I was assigned to a small island of about 700 inhabitants 
 
 After a few months our island was struck by a powerful hurricane. The devastation was massive. Crops were ruined, lives were lost, housing was blown away, and the telegraph station—our only link to the outside world—was destroyed. A small government boat normally came every month or two, so we rationed our food to last four or five weeks, hoping the boat would come. But no boat came. Every day we became weaker. There were acts of great kindness, but as the sixth and seventh weeks passed with very little food, our strength slipped noticeably. My native companion, Feki, helped me in every way he could, but as the eighth week commenced, I had no energy. I just sat under the shade of a tree and prayed and read scriptures and spent hours and hours pondering the things of eternity.
 
-The ninth week began with little outward change. However, there was a great inward change. I felt the Lord’s love more deeply than ever before and learned firsthand that His love “is the most desirable above all things … yea, and the most joyous to the soul” ([[1 Nephi 11.22|1 Nephi 11:22–23]][[1 Nephi 11.23|]]).
+The ninth week began with little outward change. However, there was a great inward change. I felt the Lord’s love more deeply than ever before and learned firsthand that His love “is the most desirable above all things … yea, and the most joyous to the soul” ([[1 Nephi 11.22|1 Nephi 11:22–23]][[1 Nephi 11.23|]]).
 
 I was pretty much skin and bones by now. I remember watching, with deep reverence, my heart beating, my lungs breathing, and thinking what a marvelous body God has created to house our equally marvelous spirit! The thought of a permanent union of these two elements, made possible through the Savior’s love, atoning sacrifice, and Resurrection, was so inspiring and satisfying that any physical discomfort faded into oblivion.
 
@@ -65,6 +65,4 @@ I know He lives. I know He loves us. I know we can feel His love here and now. I
 
 
 
-
-
-#Charity #God_The_Father #Jesus_Christ #Love #Sacrament
+#Charity #GodTheFather #JesusChrist #Love #Sacrament

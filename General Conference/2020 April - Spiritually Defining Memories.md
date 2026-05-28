@@ -1,6 +1,6 @@
 # Spiritually Defining Memories
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -26,13 +26,13 @@ Remembering these spiritually defining experiences takes us to our knees, declar
 
 Reflect on your own spiritually defining memories as I share a few examples from others.
 
-Years ago, an elderly stake patriarch with two failing heart valves pleaded for then-Dr. Russell M. Nelson to intervene, although at that time there was not a surgical solution for the damaged second valve. Dr. Nelson finally agreed to do the surgery. Here are President Nelson’s words:
+Years ago, an elderly stake patriarch with two failing heart valves pleaded for then-Dr. Russell M. Nelson to intervene, although at that time there was not a surgical solution for the damaged second valve. Dr. Nelson finally agreed to do the surgery. Here are President Nelson’s words:
 
 “After relieving the obstruction of the first valve, we exposed the second valve. We found it to be intact but so badly dilated that it could no longer function as it should. While examining this valve, a message was distinctly impressed upon my mind: *Reduce the circumference of the ring.* I announced that message to my assistant. ‘The valve tissue will be sufficient *if* we can effectively reduce the ring toward its normal size.’
 
 “But how? … A picture came vividly to my mind, showing how stitches could be placed—to make a pleat here and a tuck there. … I still remember that mental image—complete with dotted lines where sutures should be placed. The repair was completed as diagrammed in my mind. We tested the valve and found the leak to be reduced remarkably. My assistant said, ‘It’s a miracle.’”[^6] The patriarch lived for many years.
 
-Dr. Nelson had been directed. And he knew that God knew that he knew he had been directed.
+Dr. Nelson had been directed. And he knew that God knew that he knew he had been directed.
 
 Kathy and I first met Beatrice Magré in France 30 years ago. Beatrice recently told me of an experience that impacted her spiritual life shortly after her baptism as a teenager. Here are her words:
 
@@ -72,11 +72,11 @@ My friend Clayton Christensen described an experience during a very prayerful re
 
 There are times when spiritual feelings go down into our heart like fire, illuminating our soul. Joseph Smith explained that we sometimes receive “sudden strokes of ideas” and occasionally the pure flow of intelligence.[^12]
 
-President Dallin H. Oaks, in responding to a sincere man who claimed never to have had such an experience, counseled, “Perhaps your prayers have been answered again and again, but you have had your expectations fixed on a sign so grand or a voice so loud that you think you have had no answer.”[^13] The Savior Himself spoke of a people with great faith who “were \[blessed\] with fire and with the Holy Ghost, \[but who\] knew it not.”[^14]
+President Dallin H. Oaks, in responding to a sincere man who claimed never to have had such an experience, counseled, “Perhaps your prayers have been answered again and again, but you have had your expectations fixed on a sign so grand or a voice so loud that you think you have had no answer.”[^13] The Savior Himself spoke of a people with great faith who “were \[blessed\] with fire and with the Holy Ghost, \[but who\] knew it not.”[^14]
 
 ## How Do You Hear Him?
 
-We have recently heard President Russell M. Nelson say: “I invite you to think deeply and often about this key question: How do *you* hear Him? I also invite you to take steps to hear Him better and more often.”[^15] He repeated that invitation this morning.
+We have recently heard President Russell M. Nelson say: “I invite you to think deeply and often about this key question: How do *you* hear Him? I also invite you to take steps to hear Him better and more often.”[^15] He repeated that invitation this morning.
 
 We hear Him in our prayers, in our homes, in the scriptures, in our hymns, as we worthily partake of the sacrament, as we declare our faith, as we serve others, and as we attend the temple with fellow believers. Spiritually defining moments come as we prayerfully listen to general conference and as we better keep the commandments. And children, these experiences are for you as well. Remember, Jesus “did teach and minister unto the children … and \[the children\] did speak … great and marvelous things.”[^16] The Lord said:
 
@@ -86,7 +86,7 @@ We hear Him in our prayers, in our homes, in the scriptures, in our hymns, as we
 
 We can “hear Him” because of the blessing of the Savior’s incomparable Atonement.
 
-While we cannot choose the timing of receiving these defining moments, President Henry B. Eyring gave this counsel in our preparation: “Tonight, and tomorrow night, you might pray and ponder, asking the questions: Did God send a message that was just for me? Did I see His hand in my life or the lives of my \[family\]?”[^18] Faith, obedience, humility, and real intent open the windows of heaven.[^19]
+While we cannot choose the timing of receiving these defining moments, President Henry B. Eyring gave this counsel in our preparation: “Tonight, and tomorrow night, you might pray and ponder, asking the questions: Did God send a message that was just for me? Did I see His hand in my life or the lives of my \[family\]?”[^18] Faith, obedience, humility, and real intent open the windows of heaven.[^19]
 
 ## An Illustration
 
@@ -109,17 +109,17 @@ Jesus is the Christ, His gospel has been restored, and as we remain faithful, I 
 
 
 
-[^1]: See *Saints: The Story of the Church of Jesus Christ in the Latter Days,* vol. 1, *The Standard of Truth, 1815–1846* (2018), 150–53; see also Joseph Smith, “[History, 1838–1856, volume A-1 [23 December 1805–30 August 1834]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-a-1-23-december-1805-30-august-1834/211),” 205–9, josephsmithpapers.org; *Saints,* 1:365–66.
+[^1]: See *[Saints: The Story of the Church of Jesus Christ in the Latter Days](https://www.churchofjesuschrist.org/study/history/saints-v1/14-visions-and-nightmares?lang=eng&id=p18#p18),* vol. 1, *The Standard of Truth, 1815–1846* (2018), 150–53; see also Joseph Smith, “[History, 1838–1856, volume A-1 \[23 December 1805–30 August 1834\]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-a-1-23-december-1805-30-august-1834/211),” 205–9, josephsmithpapers.org; *[Saints](https://www.churchofjesuschrist.org/study/history/saints-v1/31-how-will-this-end?lang=eng&id=p41#p41),* 1:365–66.
 
 [^2]: [[Joseph Smith History 1.25|Joseph Smith—History 1:25]].
 
-[^3]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-45?lang=eng&id=p37#p37) (2007), 525.
+[^3]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-45?lang=eng&id=p37#p37) (2007), 525.
 
 [^4]: [[D&C 135.4|Doctrine and Covenants 135:4]].
 
-[^5]: I have always been impressed with the words in Joseph Smith—History: “I had seen a vision; I knew it, and I knew that God knew it” ([[Joseph Smith History 1.25|Joseph Smith—History 1:25]]). He would have to stand before God and acknowledge that these events in the Sacred Grove actually happened in his life and that his life could never be the same because of it. About 25 years ago, I first heard a variation of this phrase by Elder Neal A. Maxwell. He gave this example: “Long ago in May 1945 there was such a moment for me on the island of Okinawa at age eighteen. There was certainly no heroism on my part but rather a blessing for me and others during the shelling of our position by Japanese artillery. After repeated shellings which overshot our position, the enemy artillery finally zeroed in. They should have then fired for effect, but there was a divine response to at least one frightened, selfish prayer. The shelling halted. … I had been blessed, and I knew that God knew that I knew” (“[Becoming a Disciple](https://churchofjesuschrist.org/study/ensign/1996/06/becoming-a-disciple?lang=eng),” *Ensign,* June 1996, 19).
+[^5]: I have always been impressed with the words in Joseph Smith—History: “I had seen a vision; I knew it, and I knew that God knew it” ([[Joseph Smith History 1.25|Joseph Smith—History 1:25]]). He would have to stand before God and acknowledge that these events in the Sacred Grove actually happened in his life and that his life could never be the same because of it. About 25 years ago, I first heard a variation of this phrase by Elder Neal A. Maxwell. He gave this example: “Long ago in May 1945 there was such a moment for me on the island of Okinawa at age eighteen. There was certainly no heroism on my part but rather a blessing for me and others during the shelling of our position by Japanese artillery. After repeated shellings which overshot our position, the enemy artillery finally zeroed in. They should have then fired for effect, but there was a divine response to at least one frightened, selfish prayer. The shelling halted. … I had been blessed, and I knew that God knew that I knew” (“[Becoming a Disciple](https://www.churchofjesuschrist.org/study/ensign/1996/06/becoming-a-disciple?lang=eng),” *Ensign,* June 1996, 19).
 
-[^6]: Russell M. Nelson, “[[2003 April - Sweet Power of Prayer.md|Sweet Power of Prayer]],” *Ensign* or *Liahona,* May 2003, 8.
+[^6]: Russell M. Nelson, “[[2003 April - Sweet Power of Prayer.md|Sweet Power of Prayer]],” *Ensign* or *Liahona,* May 2003, 8.
 
 [^7]: Personal story from Beatrice Magré shared with Elder Andersen on Oct. 29, 2019; follow-up email on Jan. 24, 2020.
 
@@ -129,36 +129,34 @@ Jesus is the Christ, His gospel has been restored, and as we remain faithful, I 
 
 [^10]: See [[Enos 1.5|Enos 1:5]].
 
-[^11]: Clayton M. Christensen, “[The Most Useful Piece of Knowledge](https://churchofjesuschrist.org/study/new-era/2009/01/the-most-useful-piece-of-knowledge?lang=eng),” *New Era,* Jan. 2009, 41; *Liahona,* Jan. 2009, 23.
+[^11]: Clayton M. Christensen, “[The Most Useful Piece of Knowledge](https://www.churchofjesuschrist.org/study/new-era/2009/01/the-most-useful-piece-of-knowledge?lang=eng),” *New Era,* Jan. 2009, 41; *Liahona,* Jan. 2009, 23.
 
-[^12]: See [Teachings: Joseph Smith,](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-10?lang=eng&id=p24#p24) 132.
+[^12]: See [Teachings: Joseph Smith,](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-10?lang=eng&id=p24#p24) 132.
 
-[^13]: Dallin H. Oaks, *Life’s Lessons Learned: Personal Reflections* (2011), 116.
+[^13]: Dallin H. Oaks, *Life’s Lessons Learned: Personal Reflections* (2011), 116.
 
-[^14]: [[3 Nephi 9.20|3 Nephi 9:20]].
+[^14]: [[3 Nephi 9.20|3 Nephi 9:20]].
 
-[^15]: Russell M. Nelson, “[‘How Do You \#HearHim?’ A Special Invitation](https://www.churchofjesuschrist.org/blog/how-do-you-hear-him-a-special-invitation),” Feb. 26, 2020, blog.ChurchofJesusChrist.org.
+[^15]: Russell M. Nelson, “[‘How Do You #HearHim?’ A Special Invitation](https://www.churchofjesuschrist.org/blog/how-do-you-hear-him-a-special-invitation),” Feb. 26, 2020, blog.ChurchofJesusChrist.org.
 
-[^16]: [[3 Nephi 26.14|3 Nephi 26:14]].
+[^16]: [[3 Nephi 26.14|3 Nephi 26:14]].
 
-[^17]: [[D&C 18.35|Doctrine and Covenants 18:35–36]][[D&C 18.36|]]. Feelings always accompany spiritual knowledge. “Ye are swift to do iniquity but slow to remember the Lord your God. Ye have seen an angel, and he spake unto you; yea, ye have heard his voice from time to time; and he hath spoken unto you in a still small voice, but ye were past feeling, that ye could not feel his words” ([[1 Nephi 17.45|1 Nephi 17:45]]).
+[^17]: [[D&C 18.35|Doctrine and Covenants 18:35–36]][[D&C 18.36|]]. Feelings always accompany spiritual knowledge. “Ye are swift to do iniquity but slow to remember the Lord your God. Ye have seen an angel, and he spake unto you; yea, ye have heard his voice from time to time; and he hath spoken unto you in a still small voice, but ye were past feeling, that ye could not feel his words” ([[1 Nephi 17.45|1 Nephi 17:45]]).
 
-[^18]: Henry B. Eyring, “[[2007 October - O Remember, Remember.md|O Remember, Remember]],” *Ensign* or *Liahona,* Nov. 2007, 69.
+[^18]: Henry B. Eyring, “[[2007 October - O Remember, Remember.md|O Remember, Remember]],” *Ensign* or *Liahona,* Nov. 2007, 69.
 
-[^19]: See [[2 Nephi 31.13|2 Nephi 31:13]]; [[Moroni 10.4|Moroni 10:4]]. President Dallin H. Oaks visited our mission in Bordeaux, France, in 1991. He explained to our missionaries that real intent means that the person praying is saying to the Lord something like this: “I do not ask out of curiosity but with total sincerity to act on the answer to my prayer. If Thou wilt give me this answer, I will act to change my life. I will respond.”
+[^19]: See [[2 Nephi 31.13|2 Nephi 31:13]]; [[Moroni 10.4|Moroni 10:4]]. President Dallin H. Oaks visited our mission in Bordeaux, France, in 1991. He explained to our missionaries that real intent means that the person praying is saying to the Lord something like this: “I do not ask out of curiosity but with total sincerity to act on the answer to my prayer. If Thou wilt give me this answer, I will act to change my life. I will respond.”
 
 [^20]: “It is given unto many to know the mysteries of God; nevertheless they are laid under a strict command that they shall not impart only according to the portion of his word which he doth grant unto the children of men, according to the heed and diligence which they give unto him” ([[Alma 12.9|Alma 12:9]]).
 
-[^21]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^21]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^22]: [[Moroni 7.29|Moroni 7:29–30]][[Moroni 7.30|]].
 
 [^23]: [[John 14.26|John 14:26]].
 
-[^24]: The truths of the gospel are available to all. In the week prior to conference, after my talk was completed, I was spiritually drawn to a book called *Divine Signatures: The Confirming Hand of God* (2010), authored by Gerald N. Lund, who served as a General Authority Seventy from 2002 to 2008. To my delight, Brother Lund’s words were a beautiful second witness to the principles shared in this conference talk and will be enjoyed by anyone desiring to study more about spiritually defining memories.
+[^24]: The truths of the gospel are available to all. In the week prior to conference, after my talk was completed, I was spiritually drawn to a book called *Divine Signatures: The Confirming Hand of God* (2010), authored by Gerald N. Lund, who served as a General Authority Seventy from 2002 to 2008. To my delight, Brother Lund’s words were a beautiful second witness to the principles shared in this conference talk and will be enjoyed by anyone desiring to study more about spiritually defining memories.
 
-[^25]: One of President Thomas S. Monson’s favorite quotes is from the Scottish poet James M. Barrie: “God gave us memories, that we might have June roses in the December of our lives” (in Thomas S. Monson, “[[1998 October - Think to Thank.md|Think to Thank]],” *Ensign,* Nov. 1998, 19; *Liahona,* Jan. 1999, 22). The same is true with spiritual memories. They may be most helpful in the cold, trying times of our lives when we need those “June” spiritual memories.
+[^25]: One of President Thomas S. Monson’s favorite quotes is from the Scottish poet James M. Barrie: “God gave us memories, that we might have June roses in the December of our lives” (in Thomas S. Monson, “[[1998 October - Think to Thank.md|Think to Thank]],” *Ensign,* Nov. 1998, 19; *Liahona,* Jan. 1999, 22). The same is true with spiritual memories. They may be most helpful in the cold, trying times of our lives when we need those “June” spiritual memories.
 
-
-
-#Blessings #Joseph_Smith #Testimony
+#Blessings #JosephSmith #Testimony

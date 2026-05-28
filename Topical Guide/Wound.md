@@ -1,6 +1,5 @@
 # Wound
 
-
 *See also* [[Bruise.md|Bruise]]; [[Hurt.md|Hurt]]
 
 *wound* for *wound*, stripe for stripe, [[Exodus 21.25|Exodus 21:25]].
@@ -11,7 +10,7 @@ God shall *wound* the head of his enemies, [[Psalms 68.21|Psalms 68:21]].
 
 he shall *wound* the heads over many countries, [[Psalms 110.6|Psalms 110:6]].
 
-He ... bindeth up their *wounds*, [[Psalms 147.3|Psalms 147:3]].
+He … bindeth up their *wounds*, [[Psalms 147.3|Psalms 147:3]].
 
 words of a talebearer are as *wounds*, [[Proverbs 18.8|Proverbs 18:8]].
 
@@ -33,12 +32,12 @@ went to him, and bound up his *wounds*, [[Luke 10.34|Luke 10:34]].
 
 his deadly *wound* was healed, [[Revelation 13.3|Revelation 13:3]].
 
-enlarge the *wounds* of those who are already *wounded*, instead of ... healing their *wounds*, [[Jacob 2.9|Jacob 2:9]].
+enlarge the *wounds* of those who are already *wounded*, instead of … healing their *wounds*, [[Jacob 2.9|Jacob 2:9]].
 
 many hearts died, pierced with deep *wounds*, [[Jacob 2.35|Jacob 2:35]].
 
 Behold the *wounds* which pierced my side, [[D&C 6.37|D&C 6:37]].
 
-Jews ... say: What are these *wounds* in thine hands, [[D&C 45.51|D&C 45:51]].
+Jews … say: What are these *wounds* in thine hands, [[D&C 45.51|D&C 45:51]].
 
 I have slain a man to my *wounding*, [[Moses 5.47|Moses 5:47]].

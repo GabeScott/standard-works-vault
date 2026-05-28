@@ -73,7 +73,7 @@ Of this I testify in the name of Jesus Christ, amen.
 
 
 
-[^1]: Bible Dictionary, “Faith,” 669.
+[^1]: Bible Dictionary, “[[BD Faith|Faith]],” 669.
 
 [^2]: [[Alma 22.18|Alma 22:18]].
 
@@ -83,7 +83,8 @@ Of this I testify in the name of Jesus Christ, amen.
 
 [^5]: [[Colossians 1.23|Colossians 1:23]].
 
-[^6]: [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
+[^6]: [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
 
+[^7]: [[2 Corinthians 4.6|2 Corinthians 4:6]].
 
 #Adversity #Endurance #Faith #Service

@@ -1,6 +1,6 @@
 # What I Hope My Granddaughters (and Grandsons) Will Understand about Relief Society
 
-By Julie B. Beck - *Relief Society General President*
+By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -58,13 +58,13 @@ As committed disciples of the Savior, we are improving in our ability to do the 
 
 Additionally, visiting teaching is an extension of the bishop’s charge to care for the Lord’s flock. The bishop and Relief Society president need the service of inspired visiting teachers to assist them in fulfilling their responsibilities. Through the ministry of visiting teachers, a Relief Society president can be aware of the well-being of each sister in the ward and report about their well-being when she visits with her bishop.
 
-President Thomas S. Monson has taught us that “when we strive with faith nothing wavering to fulfill the duties appointed to us, when we seek the inspiration of the Almighty in the performance of our responsibilities, we can achieve the miraculous.”[^20] I hope my granddaughters will participate in miracles as they help visiting teaching become a pattern of discipleship that the Lord will recognize when He comes again.
+President Thomas S. Monson has taught us that “when we strive with faith nothing wavering to fulfill the duties appointed to us, when we seek the inspiration of the Almighty in the performance of our responsibilities, we can achieve the miraculous.”[^20] I hope my granddaughters will participate in miracles as they help visiting teaching become a pattern of discipleship that the Lord will recognize when He comes again.
 
 ## Fulfilling the Purposes of Relief Society
 
 These and other essential teachings about Relief Society are now available for my granddaughters to study in *Daughters in My Kingdom: The History and Work of Relief Society.* This book contains a record of the legacy of Relief Society and the women of this Church. It will unify and align a worldwide sisterhood with the purposes of Relief Society and the patterns and privileges of disciples. It is a witness of women’s essential role in our Father’s plan of happiness, and it provides an immovable standard of what we believe, what we do, and what we will defend. The First Presidency has encouraged us to “study this book and allow its timeless truths and inspiring examples to influence \[our\] lives.”[^21]
 
-Knowing that the organization of Relief Society was divinely created, President Joseph F. Smith told Relief Society sisters: “It is for you to lead the world and to lead especially the women of the world. … You are the head,” he said, “not the tail.”[^22] As the time of the Lord’s return grows closer, I hope my granddaughters will become strong, faithful women who apply the principles and patterns of Relief Society in their lives. As Relief Society becomes a way of life for them, I hope they will serve in unity with others to fulfill its divine purposes. I have a testimony of the true restored Church of Jesus Christ, and I am grateful for the pattern of discipleship that was restored when the Lord inspired the Prophet Joseph Smith to organize Relief Society. In the name of Jesus Christ, amen.
+Knowing that the organization of Relief Society was divinely created, President Joseph F. Smith told Relief Society sisters: “It is for you to lead the world and to lead especially the women of the world. … You are the head,” he said, “not the tail.”[^22] As the time of the Lord’s return grows closer, I hope my granddaughters will become strong, faithful women who apply the principles and patterns of Relief Society in their lives. As Relief Society becomes a way of life for them, I hope they will serve in unity with others to fulfill its divine purposes. I have a testimony of the true restored Church of Jesus Christ, and I am grateful for the pattern of discipleship that was restored when the Lord inspired the Prophet Joseph Smith to organize Relief Society. In the name of Jesus Christ, amen.
 
 
 
@@ -91,15 +91,15 @@ Knowing that the organization of Relief Society was divinely created, President 
 
 [^11]: Joseph Smith, in *Daughters in My Kingdom,* 15.
 
-[^12]: See [[D&C 109.22|Doctrine and Covenants 109:22]]; see also Sheri L. Dew, in *Daughters in My Kingdom,* 128.
+[^12]: See [[D&C 109.22|Doctrine and Covenants 109:22]]; see also Sheri L. Dew, in *Daughters in My Kingdom,* 128.
 
 [^13]: [[D&C 84.19|Doctrine and Covenants 84:19]]; see also Ezra Taft Benson, in *Daughters in My Kingdom,* 129.
 
 [^14]: *Daughters in My Kingdom,* 131.
 
-[^15]: Boyd K. Packer, in *Daughters in My Kingdom,* 99.
+[^15]: Boyd K. Packer, in *Daughters in My Kingdom,* 99.
 
-[^16]: John A. Widtsoe, in *Daughters in My Kingdom,* 25.
+[^16]: John A. Widtsoe, in *Daughters in My Kingdom,* 25.
 
 [^17]: See *Daughters in My Kingdom,* 86–87.
 
@@ -107,12 +107,10 @@ Knowing that the organization of Relief Society was divinely created, President 
 
 [^19]: *Handbook 2,* 9.5.1.
 
-[^20]: Thomas S. Monson, in *Daughters in My Kingdom,* 91.
+[^20]: Thomas S. Monson, in *Daughters in My Kingdom,* 91.
 
 [^21]: First Presidency, in *Daughters in My Kingdom,* ix.
 
-[^22]: Joseph F. Smith, in *Daughters in My Kingdom,* 66.
+[^22]: Joseph F. Smith, in *Daughters in My Kingdom,* 66.
 
-
-
-#Discipleship #Priesthood #Relief_Society #Temples #Visiting_Teaching
+#Discipleship #Priesthood #ReliefSociety #Temples #VisitingTeaching

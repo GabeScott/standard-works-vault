@@ -1,6 +1,6 @@
 # A Time for Every Purpose
 
-By Elder Paul H. Dunn - *Of the First Council of the Seventy*
+By Elder Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -16,13 +16,13 @@ One tragedy of love has already occurred this year. A beardless youth became so 
 
 Spring is a time for the rebirth of living things from their wintry cover. It typifies and reminds us of the literalness of the resurrection of all living things. Significant to me is the fact that our Lord emerged from the tomb in the springtime!
 
-Spring also with “her bursting buds, variegated colors and manifestation of teeming life inspires new hope and gives promise of happy days.” (David O. McKay, *Treasures of Life,* Deseret Book Co., p. 146.) Indeed, this time of nature’s rebirth should give us pause for reflection, assessment, and commitment to life’s higher priorities.
+Spring also with “her bursting buds, variegated colors and manifestation of teeming life inspires new hope and gives promise of happy days.” (David O. McKay, *Treasures of Life,* Deseret Book Co., p. 146.) Indeed, this time of nature’s rebirth should give us pause for reflection, assessment, and commitment to life’s higher priorities.
 
 You recall the words of the Old Testament poet: “To everything there is a season, and *a time to every purpose under … heaven.*” ([[Ecclesiastes 3.1|Eccl. 3:1]]. Italics added.)
 
 “A time to every purpose under heaven,” suggesting that there is a proper sequence for all things. Our prophet, President Kimball, has counseled you, young people, particularly young men, as to that proper sequence. Would you note the sequence of events that will bring orderliness and happiness to your life. I quote from our prophet:
 
-“One can have all the blessings if he is in control and takes the experiences in proper turn: first some limited social get-acquainted contacts, then his mission, then his courting, then his temple marriage and \[now note\] his schooling and his family, then his life’s work. In any other sequence he could run into difficulty.” (Spencer W. Kimball, “The Marriage Decision,” *Ensign,* Feb. 1975, p. 4.)
+“One can have all the blessings if he is in control and takes the experiences in proper turn: first some limited social get-acquainted contacts, then his mission, then his courting, then his temple marriage and \[now note\] his schooling and his family, then his life’s work. In any other sequence he could run into difficulty.” (Spencer W. Kimball, “The Marriage Decision,” *Ensign,* Feb. 1975, p. 4.)
 
 Now for a few moments, may we talk about this sequence in its “proper turn”?
 
@@ -30,7 +30,7 @@ For many young men, now is the time for preparation—preparation for a planned 
 
 It’s a time when I would challenge you to read the scriptures, a time to learn to know your Heavenly Father in prayer. It’s also a time to be cautious in your associations with the opposite sex; for again, as President Kimball has cautioned:
 
-“When you get in the teen-age years, your social associations should still be general acquaintance with both boys and girls. Any dating or pairing off in social contacts should be postponed until at least the age of 16 or older, and even then there should be much judgment used. …
+“When you get in the teen-age years, your social associations should still be general acquaintance with both boys and girls. Any dating or pairing off in social contacts should be postponed until at least the age of 16 or older, and even then there should be much judgment used. …
 
 “Young people should still limit the close contacts for several years, since the boy will be going on his mission when he is 19 years old.” (*Ensign,* Feb. 1975, p. 4.)
 
@@ -69,6 +69,4 @@ And so it is that I feel about the youth of this great country and particularly 
 
 
 
-
-
-#Marriage #Missionary_Work #Preparation #Youth
+#Marriage #MissionaryWork #Preparation #Youth

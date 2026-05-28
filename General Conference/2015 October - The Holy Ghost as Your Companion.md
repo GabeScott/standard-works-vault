@@ -1,6 +1,6 @@
 # The Holy Ghost as Your Companion
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -26,11 +26,11 @@ Just as the Holy Ghost strengthens us against evil, He also gives us the power t
 
 The Lord taught His Apostle Thomas, who wanted physical evidence of the Savior’s Resurrection by touching His wounds, that revelation is safer evidence: “Jesus saith unto him, Thomas, because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed” ([[John 20.29|John 20:29]]).
 
-The truths that mark the way home to God are verified by the Holy Ghost. We cannot go to the grove and see the Father and the Son speak to the young Joseph Smith. No physical evidence or any logical argument can establish that Elijah came as promised to confer the priesthood keys now held and exercised by a living prophet, Thomas S. Monson.
+The truths that mark the way home to God are verified by the Holy Ghost. We cannot go to the grove and see the Father and the Son speak to the young Joseph Smith. No physical evidence or any logical argument can establish that Elijah came as promised to confer the priesthood keys now held and exercised by a living prophet, Thomas S. Monson.
 
 Confirmation of truth comes to a son or daughter of God who has claimed the right to receive the Holy Ghost. Since falsehoods and lies may be presented to us at any time, we need a constant influence of the Spirit of Truth to spare us moments of doubt.
 
-While a member of the Quorum of the Twelve Apostles, George Q. Cannon urged that we make a constant quest for the Spirit to be with us. He promised, and I promise it as well, that if we pursue that course, we “will never lack for knowledge” of the truth, “never be in doubt or in darkness,” and our “faith will be strong, \[our\] joy … full.”[^2]
+While a member of the Quorum of the Twelve Apostles, George Q. Cannon urged that we make a constant quest for the Spirit to be with us. He promised, and I promise it as well, that if we pursue that course, we “will never lack for knowledge” of the truth, “never be in doubt or in darkness,” and our “faith will be strong, \[our\] joy … full.”[^2]
 
 We need that constant help from the companionship of the Holy Ghost for yet another reason. The death of a loved one may come unexpectedly. It is the witness from the Holy Ghost of the reality of a loving Heavenly Father and a resurrected Savior that gives us hope and comfort at the loss of a loved one. That testimony must be fresh when death occurs.
 
@@ -90,7 +90,7 @@ Now, one of the reasons my father asked for and received that comfort was becaus
 
 The companionship of the Spirit had more than comforted and guided him. It changed him through the Atonement of Jesus Christ. When we accept that promise of having the Spirit with us always, the Savior can grant us the purification required for eternal life, “the greatest of all the gifts of God” ([[D&C 14.7|D&C 14:7]]).
 
-You remember the Savior’s words: “Now this is the commandment: Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day” ([[3 Nephi 27.20|3 Nephi 27:20]]).
+You remember the Savior’s words: “Now this is the commandment: Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day” ([[3 Nephi 27.20|3 Nephi 27:20]]).
 
 Those commandments come with this promise from the Lord:
 
@@ -98,7 +98,7 @@ Those commandments come with this promise from the Lord:
 
 “Verily, verily, I say unto you, I will impart unto you of my Spirit, which shall enlighten your mind, which shall fill your soul with joy” ([[D&C 11.12|D&C 11:12–13]][[D&C 11.13|]]).
 
-I bear you my testimony that God the Father lives, that the resurrected Jesus Christ leads His Church, that President Thomas S. Monson holds all the keys of the priesthood, and that revelation through the Holy Ghost guides and sustains The Church of Jesus Christ of Latter-day Saints and its humble members.
+I bear you my testimony that God the Father lives, that the resurrected Jesus Christ leads His Church, that President Thomas S. Monson holds all the keys of the priesthood, and that revelation through the Holy Ghost guides and sustains The Church of Jesus Christ of Latter-day Saints and its humble members.
 
 I further testify to you that these wonderful men who have today been speaking to us as witnesses of the Lord Jesus Christ, as members of the Quorum of the Twelve Apostles, are called of God. I know that the Spirit led President Monson to call them. And as you listened to them and their testimonies, the Holy Spirit confirmed to you what I now say to you. They are called of God. I sustain them and love them and know that the Lord loves them and will sustain them in their service. And I do it in the name of the Lord Jesus Christ, amen.
 
@@ -107,8 +107,6 @@ I further testify to you that these wonderful men who have today been speaking t
 
 [^1]: *Handbook 2: Administering the Church* (2010), 20.3.10.
 
-[^2]: See George Q. Cannon, in “Minutes of a Conference,” *Millennial Star,* May 2, 1863, 275–76.
+[^2]: See George Q. Cannon, in “Minutes of a Conference,” *Millennial Star,* May 2, 1863, 275–76.
 
-
-
-#Death #Holy_Ghost #Revelation #Sacrament #Truth
+#Death #HolyGhost #Revelation #Sacrament #Truth

@@ -1,6 +1,5 @@
 # Spring, Sprang, Sprung
 
-
 Truth shall *spring* out of the earth, [[Psalms 85.11|Psalms 85:11]].
 
 now it shall *spring* forth, [[Isaiah 43.19|Isaiah 43:19]].

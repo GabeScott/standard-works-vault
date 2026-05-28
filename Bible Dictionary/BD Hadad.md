@@ -1,0 +1,7 @@
+# Hadad
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/hadad?lang=eng)
+
+Although not mentioned as a pagan deity in the Old Testament, it is learned from the Ras Shamrah tablets that Hadad was the name of the sun god or storm god of Syria and Edom. Hadad appears in the Old Testament in compound with other names and also standing alone, as the name of several persons ([[Genesis 36.35|Gen. 36:35]]; [[1 Kings 11.14|1 Kgs. 11:14–25]][[1 Kings 11.15|]][[1 Kings 11.16|]][[1 Kings 11.17|]][[1 Kings 11.18|]][[1 Kings 11.19|]][[1 Kings 11.20|]][[1 Kings 11.21|]][[1 Kings 11.22|]][[1 Kings 11.23|]][[1 Kings 11.24|]][[1 Kings 11.25|]]; [[1 Kings 15.18|15:18–20]][[1 Kings 15.19|]][[1 Kings 15.20|]]; [[1 Kings 20.1|20:1–34]][[1 Kings 20.2|]][[1 Kings 20.3|]][[1 Kings 20.4|]][[1 Kings 20.5|]][[1 Kings 20.6|]][[1 Kings 20.7|]][[1 Kings 20.8|]][[1 Kings 20.9|]][[1 Kings 20.10|]][[1 Kings 20.11|]][[1 Kings 20.12|]][[1 Kings 20.13|]][[1 Kings 20.14|]][[1 Kings 20.15|]][[1 Kings 20.16|]][[1 Kings 20.17|]][[1 Kings 20.18|]][[1 Kings 20.19|]][[1 Kings 20.20|]][[1 Kings 20.21|]][[1 Kings 20.22|]][[1 Kings 20.23|]][[1 Kings 20.24|]][[1 Kings 20.25|]][[1 Kings 20.26|]][[1 Kings 20.27|]][[1 Kings 20.28|]][[1 Kings 20.29|]][[1 Kings 20.30|]][[1 Kings 20.31|]][[1 Kings 20.32|]][[1 Kings 20.33|]][[1 Kings 20.34|]]; [[1 Chronicles 1.30|1 Chr. 1:30, 46, 50]][[1 Chronicles 1.46|]][[1 Chronicles 1.50|]]; [[Amos 1.4|Amos 1:4]]; [[Zechariah 12.11|Zech. 12:11]]), the most prominent being Benhadad, king of Damascus (Syria).
+
+

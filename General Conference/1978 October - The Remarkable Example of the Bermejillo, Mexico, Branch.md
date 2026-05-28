@@ -1,6 +1,6 @@
 # The Remarkable Example of the Bermejillo, Mexico, Branch
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -89,8 +89,6 @@ The principles of love, service, work, self-reliance, consecration, and stewards
 I am persuaded that any ward or stake in the Church can experience the same kind of success as the branch in Bermejillo. It will come as a result of organizing welfare services committees and of teaching and living the basic principles of welfare services. Many wards and stakes have their own resource people to call on, but where local resource people are not available, welfare services missionaries may be called through proper channels to assist Church units in emerging areas where temporal problems are critical.
 
 May each of us catch the vision of welfare services as these Saints have in Bermejillo. By working together we can fully establish the latter-day Zion. That we may do this, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

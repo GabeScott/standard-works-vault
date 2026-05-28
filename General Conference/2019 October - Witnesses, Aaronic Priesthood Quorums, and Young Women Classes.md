@@ -1,6 +1,6 @@
 # Witnesses, Aaronic Priesthood Quorums, and Young Women Classes
 
-By President Russell M. Nelson
+By President Russell M. Nelson
 
 *Given in the October session of the 2019 General Conference*
 
@@ -26,17 +26,15 @@ In each ward, the Lord’s youth battalion is led by a bishop, a dedicated serva
 
 The adjustments we will now announce are intended to help young men and young women develop their sacred personal potential. We also want to strengthen Aaronic Priesthood quorums and Young Women classes and provide support to bishops and other adult leaders as they serve this rising generation.
 
-Elder Quentin L. Cook will now discuss the adjustments that relate to the young men. And tonight, at the general women’s session, Sister Bonnie H. Cordon, Young Women General President, will discuss the adjustments that relate to the young women.
+Elder Quentin L. Cook will now discuss the adjustments that relate to the young men. And tonight, at the general women’s session, Sister Bonnie H. Cordon, Young Women General President, will discuss the adjustments that relate to the young women.
 
 The First Presidency and the Twelve are united in endorsing these efforts to strengthen our youth. Oh, how we love them and pray for them! They are the “hope of Israel, Zion’s army, children of the promised day.”[^2] We express our complete confidence in our youth and our gratitude for them. In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide devotional for youth, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
+[^1]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide devotional for youth, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
 
-[^2]: “Hope of Israel,” *Hymns,* no. 259.
-
-
+[^2]: “Hope of Israel,” *Hymns,* no. 259.
 
 #Baptism #Temples #Youth

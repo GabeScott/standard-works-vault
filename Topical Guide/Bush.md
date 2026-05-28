@@ -1,7 +1,6 @@
 # Bush
 
-
-*bush* burned with fire, and ... was not consumed, [[Exodus 3.2|Exodus 3:2]] ([[Moses 1.17|Moses 1:17]]).
+*bush* burned with fire, and … was not consumed, [[Exodus 3.2|Exodus 3:2]] ([[Moses 1.17|Moses 1:17]]).
 
 good will of him that dwelt in the *bush*, [[Deuteronomy 33.16|Deuteronomy 33:16]].
 

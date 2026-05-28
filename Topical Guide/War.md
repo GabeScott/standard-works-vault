@@ -1,7 +1,6 @@
 # War
 
-
-*See also* [[Army.md|Army]]; [[Battle.md|Battle]]; [[Blood, Shedding of.md|Blood, Shedding of]]; [[Council in Heaven.md|Council in Heaven]]; [[Defend.md|Defend]]; [[Destroy.md|Destroy]]; [[Destruction.md|Destruction]]; [[Fight, Fought.md|Fight]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]; [[Strife.md|Strife]]; [[Sword.md|Sword]]; [[Violence.md|Violence]]; [BD War in Heaven](https://www.churchofjesuschrist.org/study/scriptures/bd/war-in-heaven?lang=eng)
+*See also* [[Army.md|Army]]; [[Battle.md|Battle]]; [[Blood, Shedding of.md|Blood, Shedding of]]; [[Council in Heaven.md|Council in Heaven]]; [[Defend.md|Defend]]; [[Destroy.md|Destroy]]; [[Destruction.md|Destruction]]; [[Fight.md|Fight]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]; [[Strife.md|Strife]]; [[Sword.md|Sword]]; [[Violence.md|Violence]]; [[BD War in Heaven.md|BD War in Heaven]]
 
 Lord is a man of *war*, [[Exodus 15.3|Exodus 15:3]].
 
@@ -37,7 +36,7 @@ time of *war*, and a time of peace, [[Ecclesiastes 3.8|Ecclesiastes 3:8]].
 
 neither shall they learn *war* any more, [[Isaiah 2.4|Isaiah 2:4]] ([[Micah 4.3|Micah 4:3]]; [[2 Nephi 12.4|2 Nephi 12:4]]).
 
-they fled ... from the grievousness of *war*, [[Isaiah 21.15|Isaiah 21:15]].
+they fled … from the grievousness of *war*, [[Isaiah 21.15|Isaiah 21:15]].
 
 they that *war* against thee shall be as nothing, [[Isaiah 41.12|Isaiah 41:12]].
 
@@ -51,7 +50,7 @@ Proclaim ye this among the Gentiles; Prepare *war*, [[Joel 3.9|Joel 3:9]].
 
 pass by securely as men averse from *war*, [[Micah 2.8|Micah 2:8]].
 
-hear of *wars* and rumours of *wars*, [[Matthew 24.6|Matthew 24:6]] ([[Mark 13.7|Mark 13:7]]; [[Luke 21.9|Luke 21:9]]; [[2 Nephi 25.12|2 Nephi 25:12]]; [[Mormon 8.30|Mormon 8:30]]; [[Joseph Smith Matthew 1.23|Joseph Smith Matthew 1:23]], [[Joseph Smith Matthew 1.28|Joseph Smith Matthew 1:28]]).
+hear of *wars* and rumours of *wars*, [[Matthew 24.6|Matthew 24:6]] ([[Mark 13.7|Mark 13:7]]; [[Luke 21.9|Luke 21:9]]; [[2 Nephi 25.12|2 Nephi 25:12]]; [[Mormon 8.30|Mormon 8:30]]; [[Joseph Smith Matthew 1.23|Joseph Smith Matthew 1:23]]; [[Joseph Smith Matthew 1.28|Joseph Smith Matthew 1:28]]).
 
 what king, going to make *war* against another, [[Luke 14.31|Luke 14:31]].
 
@@ -69,7 +68,7 @@ fleshly lusts, which *war* against the soul, [[1 Peter 2.11|1 Peter 2:11]].
 
 there was *war* in heaven, [[Revelation 12.7|Revelation 12:7]].
 
-dragon ... went to make *war* with the remnant of her seed, [[Revelation 12.17|Revelation 12:17]].
+dragon … went to make *war* with the remnant of her seed, [[Revelation 12.17|Revelation 12:17]].
 
 given unto him to make *war* with the saints, [[Revelation 13.7|Revelation 13:7]].
 
@@ -89,9 +88,9 @@ man of *war*, the judge, and the prophet, [[2 Nephi 13.2|2 Nephi 13:2]].
 
 deliver up your weapons of *war*, [[Alma 44.6|Alma 44:6]].
 
-never to raise the *sword* except ... to preserve their lives, [[Alma 48.14|Alma 48:14]].
+never to raise the *sword* except … to preserve their lives, [[Alma 48.14|Alma 48:14]].
 
-quarrelings ... brought upon them their *wars*, [[Alma 50.21|Alma 50:21]].
+quarrelings … brought upon them their *wars*, [[Alma 50.21|Alma 50:21]].
 
 seek *death* among them until they shall sue for peace, [[Alma 55.3|Alma 55:3]].
 
@@ -103,9 +102,9 @@ Ye hear of *wars* in far countries, [[D&C 38.29|D&C 38:29]].
 
 only people that shall not be at *war*, [[D&C 45.69|D&C 45:69]].
 
-Lord, rule ... among the *armies* of the earth, [[D&C 60.4|D&C 60:4]].
+Lord, rule … among the *armies* of the earth, [[D&C 60.4|D&C 60:4]].
 
-I have ... decreed *wars*, [[D&C 63.33|D&C 63:33]].
+I have … decreed *wars*, [[D&C 63.33|D&C 63:33]].
 
 he maketh *war* with the saints, [[D&C 76.29|D&C 76:29]].
 
@@ -113,7 +112,7 @@ he maketh *war* with the saints, [[D&C 76.29|D&C 76:29]].
 
 renounce *war* and proclaim peace, [[D&C 98.16|D&C 98:16]].
 
-if any nation ... should proclaim *war* against them, [[D&C 98.34|D&C 98:34]].
+if any nation … should proclaim *war* against them, [[D&C 98.34|D&C 98:34]].
 
 all men are justified in *defending* themselves, [[D&C 134.11|D&C 134:11]].
 

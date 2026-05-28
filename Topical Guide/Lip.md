@@ -1,11 +1,10 @@
 # Lip
 
-
 *See also* [[Mouth.md|Mouth]]; [[Tongue.md|Tongue]]
 
-Keep ... thy *lips* from speaking guile, [[Psalms 34.13|Psalms 34:13]] ([[1 Peter 3.10|1 Peter 3:10]]).
+Keep … thy *lips* from speaking guile, [[Psalms 34.13|Psalms 34:13]] ([[1 Peter 3.10|1 Peter 3:10]]).
 
-adders' poison is under their *lips*, [[Psalms 140.3|Psalms 140:3]].
+adders’ poison is under their *lips*, [[Psalms 140.3|Psalms 140:3]].
 
 *lips* of a strange woman drop as an honeycomb, [[Proverbs 5.3|Proverbs 5:3]].
 
@@ -23,7 +22,7 @@ Righteous *lips* are the delight of kings, [[Proverbs 16.13|Proverbs 16:13]].
 
 his *lips* are the snare of his soul, [[Proverbs 18.7|Proverbs 18:7]].
 
-Let another man praise thee ... not thine own *lips*, [[Proverbs 27.2|Proverbs 27:2]].
+Let another man praise thee … not thine own *lips*, [[Proverbs 27.2|Proverbs 27:2]].
 
 I am a man of unclean *lips*, [[Isaiah 6.5|Isaiah 6:5]] ([[2 Nephi 16.5|2 Nephi 16:5]]).
 

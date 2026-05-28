@@ -1,6 +1,6 @@
 # Ladder of Faith
 
-By Elder Larry S. Kacher - *Of the Seventy*
+By Elder Larry S. Kacher - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -36,9 +36,9 @@ But as we move toward true faith in Jesus Christ, our mindset begins to change. 
 
 But there is more. As our faith in the Savior increases, we observe a subtle shift that includes a divine understanding of our relationship with God—a steady movement away from “What do I want?” to “What does God want?” Like the Savior, we want to act “not as I will, but as thou wilt.”[^11] We want to do God’s work and be an instrument in His hands.[^12]
 
-Our progression is an eternal one. President Russell M. Nelson has taught that there is so much more that Heavenly Father wants us to know.[^13] As we progress, we better understand what the Lord taught Joseph Smith: “For if you keep my commandments you shall receive of his fulness, and be glorified in me; … I say unto you, you shall receive grace for grace.”[^14]
+Our progression is an eternal one. President Russell M. Nelson has taught that there is so much more that Heavenly Father wants us to know.[^13] As we progress, we better understand what the Lord taught Joseph Smith: “For if you keep my commandments you shall receive of his fulness, and be glorified in me; … I say unto you, you shall receive grace for grace.”[^14]
 
-How high we climb on the ladder of faith is our decision. Elder Neil L. Andersen taught that “faith is not by chance, but by choice.”[^15] We can choose to make the choices needed to increase our faith in the Savior.
+How high we climb on the ladder of faith is our decision. Elder Neil L. Andersen taught that “faith is not by chance, but by choice.”[^15] We can choose to make the choices needed to increase our faith in the Savior.
 
 Consider the impact of the choices made when Laman and Lemuel descended the ladder of faith while Nephi climbed higher. Is there a clearer representation than the difference between Nephi’s response of “I will go and do”[^16] versus Laman and Lemuel, having just seen an angel, responding with “How is it possible that the Lord will deliver?”[^17]
 
@@ -48,7 +48,7 @@ Even when our faith is weak, the Lord’s hand will always be stretched out.[^18
 
 While he was away, he was in a terrible accident, but he was unharmed. This caused him to consider why his life had been spared. He revisited the decision he had made. He repented and humbly attended the new conference date. And yes, he was called to be the new stake president.
 
-Elder Neal A. Maxwell taught: “Only by aligning our wills with God’s is full happiness to be found. Anything less results in a lesser portion.”[^19]
+Elder Neal A. Maxwell taught: “Only by aligning our wills with God’s is full happiness to be found. Anything less results in a lesser portion.”[^19]
 
 After doing “all things that lie in our power,” then it is time to “stand still … to see the salvation of God.”[^20] I saw this while serving as a ministering brother to the McCormick family. Married for 21 years, Mary Kay served faithfully in her callings. Ken was not a member of the Church and had no interest in becoming one, but loving his wife, he chose to attend church with her.
 
@@ -87,7 +87,7 @@ May we plant the seeds of faith deep in our hearts. May we nourish these seeds a
 
 [^1]: [[D&C 122.9|Doctrine and Covenants 122:9]].
 
-[^2]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^2]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
 [^3]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
@@ -95,9 +95,9 @@ May we plant the seeds of faith deep in our hearts. May we nourish these seeds a
 
 [^5]: See [[Moses 6.34|Moses 6:34]].
 
-[^6]: See Bruce C. and Marie K. Hafen, “[Faith Is Not Blind](https://speeches.byuh.edu/devotional/faith-is-not-blind)” (Brigham Young University–Hawaii devotional, Jan. 24, 2017), speeches.byuh.edu.
+[^6]: See Bruce C. and Marie K. Hafen, “[Faith Is Not Blind](https://speeches.byuh.edu/devotional/faith-is-not-blind)” (Brigham Young University–Hawaii devotional, Jan. 24, 2017), speeches.byuh.edu.
 
-[^7]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^7]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^8]: [[James 2.20|James 2:20]].
 
@@ -109,23 +109,23 @@ May we plant the seeds of faith deep in our hearts. May we nourish these seeds a
 
 [^12]: See [[Alma 29.9|Alma 29:9]].
 
-[^13]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 95.
+[^13]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 95.
 
 [^14]: [[D&C 93.20|Doctrine and Covenants 93:20]].
 
-[^15]: Neil L. Andersen, “[[2015 October - Faith Is Not by Chance, but by Choice.md|Faith Is Not by Chance, but by Choice]],” *Ensign* or *Liahona*, Nov. 2015, 65.
+[^15]: Neil L. Andersen, “[[2015 October - Faith Is Not by Chance, but by Choice.md|Faith Is Not by Chance, but by Choice]],” *Ensign* or *Liahona*, Nov. 2015, 65.
 
-[^16]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^16]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^17]: [[1 Nephi 3.31|1 Nephi 3:31]].
+[^17]: [[1 Nephi 3.31|1 Nephi 3:31]].
 
-[^18]: See [[3 Nephi 9.14|3 Nephi 9:14]].
+[^18]: See [[3 Nephi 9.14|3 Nephi 9:14]].
 
-[^19]: Neal A. Maxwell, “[[1995 October - “Swallowed Up in the Will of the Father”.md|Swallowed Up in the Will of the Father]],” *Ensign*, Nov. 1995, 23.
+[^19]: Neal A. Maxwell, “[[1995 October - “Swallowed Up in the Will of the Father”.md|Swallowed Up in the Will of the Father]],” *Ensign*, Nov. 1995, 23.
 
 [^20]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-[^21]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
+[^21]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
 [^22]: See [[Moroni 6.9|Moroni 6:9]].
 
@@ -133,11 +133,12 @@ May we plant the seeds of faith deep in our hearts. May we nourish these seeds a
 
 [^24]: See [[Alma 32.27|Alma 32:27–28]][[Alma 32.28|]].
 
-[^25]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^25]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
 [^26]: See [[Mosiah 15.7|Mosiah 15:7]].
 
 [^27]: See [[Alma 5.26|Alma 5:26]].
 
+[^28]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
-#Adversity #Faith #Jesus_Christ #Obedience #Plan_Of_Salvation
+#Adversity #Faith #JesusChrist #Obedience #PlanOfSalvation

@@ -80,23 +80,21 @@ President Hinckley reminded us that we can “leave a piece of Church literature
 
 In summary, President Hinckley said every member of the Church can “work constantly at the task of finding and encouraging investigators” (107).
 
-There are other things we can do, especially as we act upon the prophet Mormon’s great statement, “I fear not what man can do; for perfect love casteth out all fear” ([[Moroni 8.16|Moro. 8:16]]; also see [[1 John 4.18|1 Jn. 4:18]]). We can invite friends to Church meetings or Church-related activities. We can make appreciative references to our Church and the effect of its teachings and ask persons if they would like to know more.
+There are other things we can do, especially as we act upon the prophet Mormon’s great statement, “I fear not what man can do; for perfect love casteth out all fear” ([[Moroni 8.16|Moro. 8:16]]; also see [[1 John 4.18|1 Jn. 4:18]]). We can invite friends to Church meetings or Church-related activities. We can make appreciative references to our Church and the effect of its teachings and ask persons if they would like to know more.
 
 Even easier, we can carry a packet of these attractive pass-along cards and give them to persons—even casual acquaintances—with whom we come in contact in the daily activities of our lives. These cards are an ideal way to invite people to investigate the additional truths we have to share. In a nonintrusive way, they offer something precious, but the gift depends upon the choice and initiative of the potential recipient. In our experience, a significant fraction of those who telephone for the offered gift choose to have it delivered by those who can tell them more.
 
-The Church has just announced another way to share the gospel, worldwide, on the Internet. In its potential, this new initiative is as exciting as the publishing of written tracts in the 19th century and our use of radio, television, and film in the 20th. The Church has activated a new Internet site to which we may refer persons interested in obtaining information about the Church and its doctrine and how they can find a place to worship with us. Its address is . For missionaries, the value and use of this new resource will emerge with experience. For members of the Church, it will help us answer the questions of friends directly or by referring them to the site. It will also allow us to send our friends electronic greeting cards that include gospel messages and invitations.
+The Church has just announced another way to share the gospel, worldwide, on the Internet. In its potential, this new initiative is as exciting as the publishing of written tracts in the 19th century and our use of radio, television, and film in the 20th. The Church has activated a new Internet site to which we may refer persons interested in obtaining information about the Church and its doctrine and how they can find a place to worship with us. Its address is [www.mormon.org](https://www.churchofjesuschrist.org/comeuntochrist). For missionaries, the value and use of this new resource will emerge with experience. For members of the Church, it will help us answer the questions of friends directly or by referring them to the site. It will also allow us to send our friends electronic greeting cards that include gospel messages and invitations.
 
 ## IV. Conclusion
 
 We have been asked to redouble our efforts and our effectiveness in sharing the gospel to accomplish the Lord’s purposes in this great work. Until we do so, these wonderful full-time missionaries—our sons and daughters and our noble associates in the Lord’s work—will remain underused in their great assignment to teach the restored gospel of Jesus Christ.
 
-We have spoken about loving desire, heavenly guidance, and ways we can proceed with the divine command to share the gospel with our neighbors. The gospel of Jesus Christ is the brightest light and the only hope for this darkened world. “Wherefore,” as Nephi teaches, we “must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men” ([[2 Nephi 31.20|2 Ne. 31:20]]).
+We have spoken about loving desire, heavenly guidance, and ways we can proceed with the divine command to share the gospel with our neighbors. The gospel of Jesus Christ is the brightest light and the only hope for this darkened world. “Wherefore,” as Nephi teaches, we “must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men” ([[2 Nephi 31.20|2 Ne. 31:20]]).
 
 I testify of Jesus Christ, our Savior, and of His desire that we join wholeheartedly in this, His work, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Conversion #Love #Missionary_Work #Prayer #Preparation #Prophets #Teaching
+#Conversion #Love #MissionaryWork #Preparation #Prayer #Prophets #Teaching

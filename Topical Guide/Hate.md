@@ -1,7 +1,6 @@
 # Hate
 
-
-*See also* [[Abhor.md|Abhor]]; [[Despise.md|Despise]]; [[Malice.md|Malice]]; [[Persecution, Persecute.md|Persecution]]; [[Reviling, Revile.md|Reviling]]
+*See also* [[Abhor.md|Abhor]]; [[Despise.md|Despise]]; [[Malice.md|Malice]]; [[Persecution.md|Persecution]]; [[Reviling.md|Reviling]]
 
 seed possess the gate of those which *hate* them, [[Genesis 24.60|Genesis 24:60]].
 
@@ -57,13 +56,11 @@ your appointed feasts my soul *hateth*, [[Isaiah 1.14|Isaiah 1:14]].
 
 Who *hate* the good, and love the evil, [[Micah 3.2|Micah 3:2]].
 
-I loved Jacob, And I *hated* Esau, [[Malachi 1.2|Mal. 1:2-3]][[Malachi 1.3|]] ([[Romans 9.13|Romans 9:13]]).
-
 do good to them that *hate* you, [[Matthew 5.44|Matthew 5:44]] ([[Luke 6.27|Luke 6:27]]; [[3 Nephi 12.44|3 Nephi 12:44]]).
 
-two masters ... he will *hate* the one, [[Matthew 6.24|Matthew 6:24]] ([[Luke 16.13|Luke 16:13]]).
+two masters … he will *hate* the one, [[Matthew 6.24|Matthew 6:24]] ([[Luke 16.13|Luke 16:13]]).
 
-shall be *hated* of all men for my name's sake, [[Matthew 10.22|Matthew 10:22]] ([[Matthew 24.9|Matthew 24:9]]; [[Mark 13.13|Mark 13:13]]; [[Luke 21.17|Luke 21:17]]; [[Joseph Smith Matthew 1.7|Joseph Smith Matthew 1:7]]).
+shall be *hated* of all men for my name’s sake, [[Matthew 10.22|Matthew 10:22]] ([[Matthew 24.9|Matthew 24:9]]; [[Mark 13.13|Mark 13:13]]; [[Luke 21.17|Luke 21:17]]; [[Joseph Smith Matthew 1.7|Joseph Smith Matthew 1:7]]).
 
 Blessed are ye, when men shall *hate* you, [[Luke 6.22|Luke 6:22]].
 
@@ -87,7 +84,7 @@ no man ever yet *hated* his own flesh, [[Ephesians 5.29|Ephesians 5:29]].
 
 and *hateth* his brother, is in darkness, [[1 John 2.9|1 John 2:9]] ([[1 John 2.11|1 John 2:11]]).
 
-Marvel not ... if the world *hate* you, [[1 John 3.13|1 John 3:13]].
+Marvel not … if the world *hate* you, [[1 John 3.13|1 John 3:13]].
 
 Whosoever *hateth* his brother is a murderer, [[1 John 3.15|1 John 3:15]].
 
@@ -97,7 +94,7 @@ If a man say, I love God, and *hateth* his brother, [[1 John 4.20|1 John 4:20]].
 
 *hatest* the deeds of the Nicolaitans, which I also *hate*, [[Revelation 2.6|Revelation 2:6]] ([[Revelation 2.15|Revelation 2:15]]).
 
-they shall ... be *hated* among all, [[1 Nephi 19.14|1 Nephi 19:14]].
+they shall … be *hated* among all, [[1 Nephi 19.14|1 Nephi 19:14]].
 
 I knew their *hatred* towards me and my children, [[2 Nephi 5.14|2 Nephi 5:14]].
 
@@ -113,13 +110,13 @@ their *hatred* became exceedingly sore, [[Alma 24.2|Alma 24:2]].
 
 teach them an everlasting *hatred* against sin, [[Alma 37.32|Alma 37:32]].
 
-lay down ... their *hatred*, [[Helaman 5.51|Helaman 5:51]].
+lay down … their *hatred*, [[Helaman 5.51|Helaman 5:51]].
 
 because of their *hatred* they put to death every Nephite, [[Moroni 1.2|Moroni 1:2]].
 
-if I ... call upon you to repent, and ye *hate* me, [[D&C 43.21|D&C 43:21]].
+if I … call upon you to repent, and ye *hate* me, [[D&C 43.21|D&C 43:21]].
 
-upon his children's children of all them that *hate* me, [[D&C 98.46|D&C 98:46]].
+upon his children’s children of all them that *hate* me, [[D&C 98.46|D&C 98:46]].
 
 so long as they repent not, and *hate* me, [[D&C 124.50|D&C 124:50]].
 

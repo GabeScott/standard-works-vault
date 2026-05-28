@@ -1,6 +1,5 @@
 # Single
 
-
 *See also* [[Singleness.md|Singleness]]
 
 if therefore thine eye be *single*, [[Matthew 6.22|Matthew 6:22]] ([[Luke 11.34|Luke 11:34]]; [[3 Nephi 13.22|3 Nephi 13:22]]; [[D&C 88.67|D&C 88:67]]).

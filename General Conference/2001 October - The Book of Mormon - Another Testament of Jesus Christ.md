@@ -108,7 +108,7 @@ On the title page my wife read the following handwritten note: “This Bible has
 
 The margins and the open pages were completely filled with notations written in English, Latin, Greek, and Hebrew. One entry particularly touched her. From the bottom of the title page, she read, “The fairest Impression of the Bible is to have it well printed on the Readers heart.”
 
-And then this quote from Corinthians: “Ye are our epistle written in our hearts, known and read of all men: Forasmuch as ye are manifestly declared to be the epistle of Christ ministered by us, written not with ink, but with the Spirit of the living God; not in the tables of stone, but in fleshly tables of the heart” ([[2 Corinthians 3.2|2 Cor. 3:2–3]][[2 Corinthians 3.3|]]).[^18]
+And then this quote from Corinthians: “Ye are our epistle written in our hearts, known and read of all men: Forasmuch as ye are manifestly declared to be the epistle of Christ ministered by us, written not with ink, but with the Spirit of the living God; not in the tables of stone, but in fleshly tables of the heart” ([[2 Corinthians 3.2|2 Cor. 3:2–3]][[2 Corinthians 3.3|]]).[^18]
 
 My Book of Mormon also has many notes in the margins and is heavily underlined. I was in Florida once with President Hinckley. He turned from the pulpit and asked for a copy of the scriptures. I handed him my copy. He thumbed through it for a few seconds, turned and handed it back, saying, “I can’t read this. You have got everything crossed out!”
 
@@ -163,35 +163,35 @@ And that, I assure you, is exactly what we do. In the name of Jesus Christ, amen
 
 
 
-[^1]: See [[Exodus 28.30|Ex. 28:30]]; [[Leviticus 8.8|Lev. 8:8]]; [[Numbers 27.21|Num. 27:21]]; [[Deuteronomy 33.8|Deut. 33:8]]; [[1 Samuel 28.6|1 Sam. 28:6]]; [[Ezra 2.63|Ezra 2:63]]; [[Nehemiah 7.65|Neh. 7:65]].
+[^1]: See [[Exodus 28.30|Ex. 28:30]]; [[Leviticus 8.8|Lev. 8:8]]; [[Numbers 27.21|Num. 27:21]]; [[Deuteronomy 33.8|Deut. 33:8]]; [[1 Samuel 28.6|1 Sam. 28:6]]; [[Ezra 2.63|Ezra 2:63]]; [[Nehemiah 7.65|Neh. 7:65]].
 
 [^2]: John M’Clintock and James Strong, *Cyclopaedia of Biblical, Theological, and Ecclesiastical Literature,* 10 vols. (1867–1881), “Urim and Thummim,” 10:676.
 
 [^3]: [[Moroni 10.4|Moro. 10:4–5]][[Moroni 10.5|]].
 
-[^4]: See [[2 Nephi 2.21|2 Ne. 2:21]]; [[2 Nephi 33.9|33:9]]; [[Alma 12.24|Alma 12:24]]; [[Alma 34.32|34:32]]; [[Alma 42.4|42:4]].
+[^4]: See [[2 Nephi 2.21|2 Ne. 2:21]]; [[2 Nephi 33.9|33:9]]; [[Alma 12.24|Alma 12:24]]; [[Alma 34.32|34:32]]; [[Alma 42.4|42:4]].
 
-[^5]: See [[2 Nephi 9.3|2 Ne. 9:3–7]][[2 Nephi 9.4|]][[2 Nephi 9.5|]][[2 Nephi 9.6|]][[2 Nephi 9.7|]]; [[Mosiah 16.8|Mosiah 16:8]]; [[3 Nephi 11.1|3 Ne. 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
+[^5]: See [[2 Nephi 9.3|2 Ne. 9:3–7]][[2 Nephi 9.4|]][[2 Nephi 9.5|]][[2 Nephi 9.6|]][[2 Nephi 9.7|]]; [[Mosiah 16.8|Mosiah 16:8]]; [[3 Nephi 11.1|3 Ne. 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
 
 [^6]: See [[Alma 34.34|Alma 34:34]]; [[Alma 40.11|40:11–14, 21]][[Alma 40.12|]][[Alma 40.13|]][[Alma 40.14|]][[Alma 40.21|]].
 
-[^7]: See [[2 Nephi 9.12|2 Ne. 9:12]]; [[Alma 40.23|Alma 40:23]]; [[Alma 41.2|41:2]]; [[3 Nephi 11.1|3 Ne. 11:1–16]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]].
+[^7]: See [[2 Nephi 9.12|2 Ne. 9:12]]; [[Alma 40.23|Alma 40:23]]; [[Alma 41.2|41:2]]; [[3 Nephi 11.1|3 Ne. 11:1–16]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]].
 
 [^8]: See [[Mosiah 4.1|Mosiah 4:1–3, 12, 26]][[Mosiah 4.2|]][[Mosiah 4.3|]][[Mosiah 4.12|]][[Mosiah 4.26|]]; [[Alma 4.14|Alma 4:14]].
 
 [^9]: See [[Alma 34.15|Alma 34:15–16]][[Alma 34.16|]]; [[Alma 41.14|41:14]]; [[Alma 42.15|42:15–16, 22–25]][[Alma 42.16|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]].
 
-[^10]: See [[2 Nephi 4.35|2 Ne. 4:35]]; [[2 Nephi 32.8|32:8–9]][[2 Nephi 32.9|]]; [[Enos 1.9|Enos 1:9]]; [[Alma 13.28|Alma 13:28]]; [[Alma 34.17|34:17–27]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]]; [[Alma 37.36|37:36–37]][[Alma 37.37|]]; [[3 Nephi 18.19|3 Ne. 18:19–21]][[3 Nephi 18.20|]][[3 Nephi 18.21|]]; [[Moroni 7.26|Moro. 7:26]].
+[^10]: See [[2 Nephi 4.35|2 Ne. 4:35]]; [[2 Nephi 32.8|32:8–9]][[2 Nephi 32.9|]]; [[Enos 1.9|Enos 1:9]]; [[Alma 13.28|Alma 13:28]]; [[Alma 34.17|34:17–27]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]]; [[Alma 37.36|37:36–37]][[Alma 37.37|]]; [[3 Nephi 18.19|3 Ne. 18:19–21]][[3 Nephi 18.20|]][[3 Nephi 18.21|]]; [[Moroni 7.26|Moro. 7:26]].
 
-[^11]: See [[2 Nephi 6.2|2 Ne. 6:2]]; [[Mosiah 18.18|Mosiah 18:18]]; [[Alma 6.1|Alma 6:1]]; [[Alma 13.1|13]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]][[Alma 13.10|]][[Alma 13.11|]][[Alma 13.12|]][[Alma 13.13|]][[Alma 13.14|]][[Alma 13.15|]][[Alma 13.16|]][[Alma 13.17|]][[Alma 13.18|]][[Alma 13.19|]][[Alma 13.20|]][[Alma 13.21|]][[Alma 13.22|]][[Alma 13.23|]][[Alma 13.24|]][[Alma 13.25|]][[Alma 13.26|]][[Alma 13.27|]][[Alma 13.28|]][[Alma 13.29|]][[Alma 13.30|]][[Alma 13.31|]]; [[3 Nephi 11.21|3 Ne. 11:21]]; [[3 Nephi 18.37|18:37]]; [[Moroni 2.2|Moro. 2:2]]; [[Moroni 3.4|3:4]].
+[^11]: See [[2 Nephi 6.2|2 Ne. 6:2]]; [[Mosiah 18.18|Mosiah 18:18]]; [[Alma 6.1|Alma 6:1]]; [[Alma 13.1|13]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]][[Alma 13.10|]][[Alma 13.11|]][[Alma 13.12|]][[Alma 13.13|]][[Alma 13.14|]][[Alma 13.15|]][[Alma 13.16|]][[Alma 13.17|]][[Alma 13.18|]][[Alma 13.19|]][[Alma 13.20|]][[Alma 13.21|]][[Alma 13.22|]][[Alma 13.23|]][[Alma 13.24|]][[Alma 13.25|]][[Alma 13.26|]][[Alma 13.27|]][[Alma 13.28|]][[Alma 13.29|]][[Alma 13.30|]][[Alma 13.31|]]; [[3 Nephi 11.21|3 Ne. 11:21]]; [[3 Nephi 18.37|18:37]]; [[Moroni 2.2|Moro. 2:2]]; [[Moroni 3.4|3:4]].
 
-[^12]: See [[2 Nephi 11.5|2 Ne. 11:5]]; [[Mosiah 5.5|Mosiah 5:5]]; [[Mosiah 18.13|18:13]]; [[Alma 13.8|Alma 13:8, 16]][[Alma 13.16|]].
+[^12]: See [[2 Nephi 11.5|2 Ne. 11:5]]; [[Mosiah 5.5|Mosiah 5:5]]; [[Mosiah 18.13|18:13]]; [[Alma 13.8|Alma 13:8, 16]][[Alma 13.16|]].
 
-[^13]: See [[2 Nephi 32.2|2 Ne. 32:2–3]][[2 Nephi 32.3|]]; [[Omni 1.25|Omni 1:25]]; [[Moroni 7.25|Moro. 7:25, 37]][[Moroni 7.37|]].
+[^13]: See [[2 Nephi 32.2|2 Ne. 32:2–3]][[2 Nephi 32.3|]]; [[Omni 1.25|Omni 1:25]]; [[Moroni 7.25|Moro. 7:25, 37]][[Moroni 7.37|]].
 
-[^14]: See [[1 Nephi 16.9|1 Ne. 16:9]]; [[1 Nephi 17.44|17:44–45]][[1 Nephi 17.45|]]; [[Enos 1.10|Enos 1:10]]; [[Alma 32.23|Alma 32:23]]; [[Helaman 5.30|Hel. 5:30]]; [[3 Nephi 11.3|3 Ne. 11:3]].
+[^14]: See [[1 Nephi 16.9|1 Ne. 16:9]]; [[1 Nephi 17.44|17:44–45]][[1 Nephi 17.45|]]; [[Enos 1.10|Enos 1:10]]; [[Alma 32.23|Alma 32:23]]; [[Helaman 5.30|Hel. 5:30]]; [[3 Nephi 11.3|3 Ne. 11:3]].
 
-[^15]: See [[1 Nephi 11.13|1 Ne. 11:13–33]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]]; [[2 Nephi 2.6|2 Ne. 2:6–10]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]]; [[Mosiah 3.5|Mosiah 3:5–12]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]][[Mosiah 3.12|]]; [[Alma 7.7|Alma 7:7–13]][[Alma 7.8|]][[Alma 7.9|]][[Alma 7.10|]][[Alma 7.11|]][[Alma 7.12|]][[Alma 7.13|]]; [[3 Nephi 27.13|3 Ne. 27:13–16]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]].
+[^15]: See [[1 Nephi 11.13|1 Ne. 11:13–33]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]]; [[2 Nephi 2.6|2 Ne. 2:6–10]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]]; [[Mosiah 3.5|Mosiah 3:5–12]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]][[Mosiah 3.12|]]; [[Alma 7.7|Alma 7:7–13]][[Alma 7.8|]][[Alma 7.9|]][[Alma 7.10|]][[Alma 7.11|]][[Alma 7.12|]][[Alma 7.13|]]; [[3 Nephi 27.13|3 Ne. 27:13–16]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]].
 
 [^16]: [[John 6.35|John 6:35]].
 
@@ -201,8 +201,6 @@ And that, I assure you, is exactly what we do. In the name of Jesus Christ, amen
 
 [^19]: [[Amos 8.11|Amos 8:11]].
 
-[^20]: The Book of Mormon (1830), 105; see also [[2 Nephi 25.26|2 Ne. 25:26]].
+[^20]: The Book of Mormon (1830), 105; see also [[2 Nephi 25.26|2 Ne. 25:26]].
 
-
-
-#Book_Of_Mormon #Death #Jesus_Christ #Prayer
+#BookOfMormon #Death #JesusChrist #Prayer

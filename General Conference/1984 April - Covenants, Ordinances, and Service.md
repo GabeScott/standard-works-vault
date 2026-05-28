@@ -32,13 +32,13 @@ Did you notice that the three key elements are regular family prayer, regular fa
 
 ## Family Prayer
 
-Parents, we must start each day by kneeling in family prayer. Children need to pray and gain knowledge for *themselves* from the Holy Ghost. Nephi said, “For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray.” ([[2 Nephi 32.8|2 Ne. 32:8]].)
+Parents, we must start each day by kneeling in family prayer. Children need to pray and gain knowledge for *themselves* from the Holy Ghost. Nephi said, “For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray.” ([[2 Nephi 32.8|2 Ne. 32:8]].)
 
 ## Scripture Study
 
 Our opportunity to study the scriptures as a family has been strengthened by the consolidated meeting schedule. A good part of the Sabbath can very appropriately be used for both personal and family scripture study.
 
-Few things sponsor spiritual growth more than studying from the scriptures. The Savior said, “He that hath the scriptures, let him search them, and see. …” ([[3 Nephi 10.14|3 Ne. 10:14]].) The Lord has promised that if you will search, you shall see marvelous spiritual truths that will persuade you to turn to Christ as your great exemplar. You will be strengthened in your desire to make covenants with the Lord, to receive the ordinances, and to serve. Alma taught a great principle when he said to Helaman, “My son, … see that ye look to God and live.” ([[Alma 37.47|Alma 37:47]].)
+Few things sponsor spiritual growth more than studying from the scriptures. The Savior said, “He that hath the scriptures, let him search them, and see. …” ([[3 Nephi 10.14|3 Ne. 10:14]].) The Lord has promised that if you will search, you shall see marvelous spiritual truths that will persuade you to turn to Christ as your great exemplar. You will be strengthened in your desire to make covenants with the Lord, to receive the ordinances, and to serve. Alma taught a great principle when he said to Helaman, “My son, … see that ye look to God and live.” ([[Alma 37.47|Alma 37:47]].)
 
 Parents, when you desire to really teach, what do you do? Should we not do as the Savior did? He used questions. He quoted the scriptures, used parables, told stories, and he testified. He drew on everyday experiences to teach spiritual truths, using all kinds of occasions for teaching. He created an environment for learning—drawing out instead of pouring on.
 
@@ -63,8 +63,6 @@ Parents, if you will keep in mind that you are preparing your sons and daughters
 And when your children do these things, they shall be lifted up at the last day, and shall arise and call you blessed—because you led them to eternal life.
 
 When we as parents have a genuine *desire* to teach the gospel to our children, the Lord will give us entrance into their hearts. Then may we know that as we enter there we stand on holy ground. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -8,9 +8,9 @@ By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/the-power-of-a-personal-testimony?lang=eng)
 
-In the Book of Mormon, we read of young Nephi, who was commanded by the Lord to build a ship. He was quick to obey this commandment, but his brothers were skeptical. “When my brethren saw that I was about to build a ship,” he wrote, “they began to murmur against me, saying: Our brother is a fool, for he thinketh that he can build a ship; yea, and he also thinketh that he can cross these great waters” ([[1 Nephi 17.17|1 Nephi 17:17]]).
+In the Book of Mormon, we read of young Nephi, who was commanded by the Lord to build a ship. He was quick to obey this commandment, but his brothers were skeptical. “When my brethren saw that I was about to build a ship,” he wrote, “they began to murmur against me, saying: Our brother is a fool, for he thinketh that he can build a ship; yea, and he also thinketh that he can cross these great waters” ([[1 Nephi 17.17|1 Nephi 17:17]]).
 
-But Nephi was not discouraged. He had no experience building ships, but he had a strong personal testimony “that the Lord … \[would\] prepare a way … \[to\] accomplish the thing which he commandeth” ([[1 Nephi 3.7|1 Nephi 3:7]]). With this powerful testimony and motivation in his heart, Nephi built a ship in which they crossed the great waters, despite the strong opposition expressed by his faithless brothers.
+But Nephi was not discouraged. He had no experience building ships, but he had a strong personal testimony “that the Lord … \[would\] prepare a way … \[to\] accomplish the thing which he commandeth” ([[1 Nephi 3.7|1 Nephi 3:7]]). With this powerful testimony and motivation in his heart, Nephi built a ship in which they crossed the great waters, despite the strong opposition expressed by his faithless brothers.
 
 Let me share with you a personal experience from my own youth about the power of righteous motives.
 
@@ -54,7 +54,7 @@ As we acquire a deeper knowledge of these truths and of the plan of salvation by
 
 We all know that it is easier to talk about a testimony than to acquire one. The process to receive one is based on the law of the harvest: “For whatsoever a man soweth, that shall he also reap” ([[Galatians 6.7|Galatians 6:7]]). No good thing comes without effort and sacrifice. If we have to work hard to obtain a testimony, it will make us and our testimony even stronger. And if we share our testimony, it will grow.
 
-A testimony is a most precious possession because it is not acquired by logic or reason alone, it cannot be purchased with earthly possessions, and it cannot be given as a present or inherited from our ancestors. We cannot depend on the testimonies of other people. We need to know for ourselves. President Gordon B. Hinckley said, “Every Latter-day Saint has the responsibility to know for himself or herself with a certainty beyond doubt that Jesus is the resurrected, living Son of the living God” (in Conference Report, Apr. 1983, 110; or *Ensign,* May 1983, 80).
+A testimony is a most precious possession because it is not acquired by logic or reason alone, it cannot be purchased with earthly possessions, and it cannot be given as a present or inherited from our ancestors. We cannot depend on the testimonies of other people. We need to know for ourselves. President Gordon B. Hinckley said, “Every Latter-day Saint has the responsibility to know for himself or herself with a certainty beyond doubt that Jesus is the resurrected, living Son of the living God” (in Conference Report, Apr. 1983, [[1983 April - “Fear Not to Do Good”.md|110]]; or *Ensign,* May 1983, 80).
 
 The source of this sure knowledge and firm conviction is divine revelation, “for the testimony of Jesus is the spirit of prophecy” ([[Revelation 19.10|Revelation 19:10]]).
 
@@ -64,27 +64,27 @@ The core of this testimony will always be the faith in and the knowledge of Jesu
 
 So how do we receive a personal testimony rooted in the witness of the Holy Ghost? The pattern is outlined in the scriptures:
 
-**First: Desire to believe.** The Book of Mormon encourages us: “If \[you\] will awake and arouse your faculties, even to an experiment upon my words, and exercise a particle of faith, … even if \[you\] can no more than desire to believe” ([[Alma 32.27|Alma 32:27]]).
+***First: Desire to believe.*** The Book of Mormon encourages us: “If \[you\] will awake and arouse your faculties, even to an experiment upon my words, and exercise a particle of faith, … even if \[you\] can no more than desire to believe” ([[Alma 32.27|Alma 32:27]]).
 
 Some may say, “I cannot believe; I am not a religious person.” Just consider, God promises us divine help even if we have only a desire to believe, but it has to be a true and not a pretended desire.
 
-**Second: Search the scriptures.** Have questions; study them out; search in the scriptures for answers. Again, the Book of Mormon has good advice for us: “If \[you\] give place, that a seed may be planted in your heart” through diligent study of the word of God, the good seed “will begin to swell within your breasts” if you will not resist with unbelief. This good seed will “enlarge \[your\] soul” and “enlighten \[your\] understanding” ([[Alma 32.28|Alma 32:28]]).
+***Second: Search the scriptures.*** Have questions; study them out; search in the scriptures for answers. Again, the Book of Mormon has good advice for us: “If \[you\] give place, that a seed may be planted in your heart” through diligent study of the word of God, the good seed “will begin to swell within your breasts” if you will not resist with unbelief. This good seed will “enlarge \[your\] soul” and “enlighten \[your\] understanding” ([[Alma 32.28|Alma 32:28]]).
 
-**Third: Do the will of God; keep the commandments.** It is not enough to enter into a scholarly debate if we want to know for ourselves that the kingdom of God has been restored upon the earth. Casual study is also not enough. We have to get in on the action ourselves, and that means learning and then doing God’s will.
+***Third: Do the will of God; keep the commandments.*** It is not enough to enter into a scholarly debate if we want to know for ourselves that the kingdom of God has been restored upon the earth. Casual study is also not enough. We have to get in on the action ourselves, and that means learning and then doing God’s will.
 
 We need to come to Christ and follow His teachings. The Savior taught: “My doctrine is not mine, but his that sent me. If any man *will do his will,* he shall know of the doctrine, whether it be of God, or whether I speak of myself” ([[John 7.16|John 7:16–17]][[John 7.17|]]; emphasis added). And He said, “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]).
 
-**Fourth: Ponder, fast, and pray.** To receive knowledge from the Holy Ghost, we must ask Heavenly Father for it. We must trust that God loves us and that He will help us to recognize the promptings of the Holy Ghost. The Book of Mormon reminds us:
+***Fourth: Ponder, fast, and pray.*** To receive knowledge from the Holy Ghost, we must ask Heavenly Father for it. We must trust that God loves us and that He will help us to recognize the promptings of the Holy Ghost. The Book of Mormon reminds us:
 
 “When \[you\] … read these things, … remember how merciful the Lord \[has\] been unto the children of men, from the creation of Adam even down until the time that \[you\] shall receive these things, and ponder it in your hearts.
 
-“… Ask God, the Eternal Father, in the name of Christ, if these things are … true; and if \[you\] … ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost” ([[Moroni 10.3|Moroni 10:3–4]][[Moroni 10.4|]]).
+“… Ask God, the Eternal Father, in the name of Christ, if these things are … true; and if \[you\] … ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost” ([[Moroni 10.3|Moroni 10:3–4]][[Moroni 10.4|]]).
 
 And the prophet Alma said:
 
 “I testify unto you that I do know that these things … are true. And how do \[you\] suppose that I know of their surety?
 
-“… Behold, I have fasted and prayed … that I might know these things of myself. And … the Lord God hath made them manifest unto me by his Holy Spirit; and this is the spirit of revelation” ([[Alma 5.45|Alma 5:45–46]][[Alma 5.46|]]).
+“… Behold, I have fasted and prayed … that I might know these things of myself. And … the Lord God hath made them manifest unto me by his Holy Spirit; and this is the spirit of revelation” ([[Alma 5.45|Alma 5:45–46]][[Alma 5.46|]]).
 
 My dear brothers and sisters, Alma received his witness by fasting and prayer more than 2,000 years ago, and we may have the same sacred experience today.
 
@@ -94,13 +94,11 @@ A testimony provides proper perspective, motivation, and a solid foundation on w
 
 Our personal testimony is a protective shield, and like an iron rod it is guiding us safely through darkness and confusion.
 
-Nephi’s testimony gave him the courage to stand up and be counted as one who obeys the Lord. He did not murmur, doubt, or fear, no matter what the circumstances. When times got tough he said, “I will go and do \[what\] the Lord \[has\] commanded, for I know that the Lord … shall prepare a way … \[to\] accomplish \[it\]” ([[1 Nephi 3.7|1 Nephi 3:7]]).
+Nephi’s testimony gave him the courage to stand up and be counted as one who obeys the Lord. He did not murmur, doubt, or fear, no matter what the circumstances. When times got tough he said, “I will go and do \[what\] the Lord \[has\] commanded, for I know that the Lord … shall prepare a way … \[to\] accomplish \[it\]” ([[1 Nephi 3.7|1 Nephi 3:7]]).
 
 Just as the Lord knew Nephi, God knows us and loves us. This is our time; these are our days. We are where the action is. Our firm personal testimony will motivate us to change ourselves and then bless the world. Of this I testify and leave you my blessing as an Apostle of the Lord, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Holy_Ghost #Testimony
+#HolyGhost #Testimony

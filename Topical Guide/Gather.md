@@ -1,7 +1,6 @@
 # Gather
 
-
-*See also* [[Bring, Brought.md|Bring]]; [[Israel, Gathering of.md|Israel, Gathering of]]
+*See also* [[Bring.md|Bring]]; [[Israel, Gathering of.md|Israel, Gathering of]]
 
 Joseph *gathered* corn as the sand of the sea, [[Genesis 41.49|Genesis 41:49]].
 
@@ -19,7 +18,7 @@ shalt not *gather* the grapes, [[Deuteronomy 28.30|Deuteronomy 28:30]].
 
 *gather* to me all Israel unto mount Carmel, [[1 Kings 18.19|1 Kings 18:19]].
 
-*gather* us ... from the heathen, [[1 Chronicles 16.35|1 Chronicles 16:35]] ([[Psalms 106.47|Psalms 106:47]]).
+*gather* us … from the heathen, [[1 Chronicles 16.35|1 Chronicles 16:35]] ([[Psalms 106.47|Psalms 106:47]]).
 
 *gathereth* her food in the harvest, [[Proverbs 6.8|Proverbs 6:8]].
 
@@ -39,11 +38,11 @@ lest while ye *gather* up the tares, ye root up, [[Matthew 13.29|Matthew 13:29]]
 
 they shall *gather* out of his kingdom all things, [[Matthew 13.41|Matthew 13:41]].
 
-net ... *gathered* of every kind, [[Matthew 13.47|Matthew 13:47]].
+net … *gathered* of every kind, [[Matthew 13.47|Matthew 13:47]].
 
 where two or three are *gathered* together, [[Matthew 18.20|Matthew 18:20]].
 
-*gathered* together ... both bad and good, [[Matthew 22.10|Matthew 22:10]].
+*gathered* together … both bad and good, [[Matthew 22.10|Matthew 22:10]].
 
 eagles be *gathered*, [[Matthew 24.28|Matthew 24:28]] ([[Luke 17.37|Luke 17:37]]; [[Joseph Smith Matthew 1.27|Joseph Smith Matthew 1:27]]).
 
@@ -61,12 +60,12 @@ kingdoms of nations *gathered* together, [[2 Nephi 23.4|2 Nephi 23:4]].
 
 Israel, shall be *gathered* home unto the lands of their possessions; and my word also shall be *gathered* in one, [[2 Nephi 29.14|2 Nephi 29:14]].
 
-one day in every week that was set apart ... *gather* themselves together to teach, [[Mosiah 18.25|Mosiah 18:25]].
+one day in every week that was set apart … *gather* themselves together to teach, [[Mosiah 18.25|Mosiah 18:25]].
 
 *gather* you as a hen *gathereth*, [[3 Nephi 10.6|3 Nephi 10:6]] ([[D&C 10.65|D&C 10:65]]; [[D&C 29.2|D&C 29:2]]).
 
 I *gather* mine elect from the four quarters, [[D&C 33.6|D&C 33:6]].
 
-angels ... to *gather* the tares, [[D&C 38.12|D&C 38:12]].
+angels … to *gather* the tares, [[D&C 38.12|D&C 38:12]].
 
 *gather* together, and stand in holy places, [[D&C 101.22|D&C 101:22]].

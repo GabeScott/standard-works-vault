@@ -1,6 +1,6 @@
 # Proved and Strengthened in Christ
 
-By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
+By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -12,13 +12,13 @@ My dear brothers and sisters, I feel the love of the Lord as we meet together. I
 
 Long ago I sought to learn physics and mathematics in my college years. I felt overwhelmed. I began to feel that I was trying to learn something that was beyond me. The more I felt overwhelmed, the less I felt the strength to keep trying. My discouragement led me to feel that my efforts were almost fruitless. I began to think of quitting, of doing something easier.
 
-I felt weak. As I prayed, I felt the quiet assurance of the Lord. I felt Him say to my mind, “I am proving you, but I am also with you.” 
+I felt weak. As I prayed, I felt the quiet assurance of the Lord. I felt Him say to my mind, “I am proving you, but I am also with you.”
 
-I did not know then all that those words meant. But I knew what to do—I went to work. 
+I did not know then all that those words meant. But I knew what to do—I went to work.
 
 By pondering and working during the years that followed, I came to understand this message of encouragement in the scriptures: “I can do all things through Christ which strengtheneth me.”[^1]
 
-I learned that my struggle with physics was actually a gift from the Lord. He was teaching me that with His help, I could do things that seemed impossible if I had the faith that He would be there to help me. Through this gift, the Lord was working to prove and strengthen me. 
+I learned that my struggle with physics was actually a gift from the Lord. He was teaching me that with His help, I could do things that seemed impossible if I had the faith that He would be there to help me. Through this gift, the Lord was working to prove and strengthen me.
 
 The word *prove* has several meanings. To prove something is not simply to test it. It is to increase its strength. To prove a piece of steel is to place it under strain. Heat, weight, and pressure are added until its true nature is enhanced and revealed. The steel is not weakened by the proving. In fact, it becomes something that can be trusted, something strong enough to bear greater burdens.
 
@@ -44,7 +44,7 @@ In his proving, Moroni’s faith was refined and strengthened. It became more pu
 
 Moroni’s testimony was refined in loneliness, but it shines with light to guide all generations to seek our Father in Heaven and the Savior Jesus Christ.
 
-Another Book of Mormon prophet, Jacob, was proved and strengthened as a child who experienced afflictions and much sorrow. But his father, Lehi, taught him God would bless him through his trials. 
+Another Book of Mormon prophet, Jacob, was proved and strengthened as a child who experienced afflictions and much sorrow. But his father, Lehi, taught him God would bless him through his trials.
 
 “And behold, in thy childhood thou hast suffered afflictions and much sorrow, because of the rudeness of thy brethren.
 
@@ -85,7 +85,7 @@ I testify that God knows you. He knows the trials you face. He is with you. He w
 
 [^2]: [[Moroni 10.1|Moroni 10:1–5]][[Moroni 10.2|]][[Moroni 10.3|]][[Moroni 10.4|]][[Moroni 10.5|]].
 
-[^3]: [[2 Nephi 2.1|2 Nephi 2:1–3]][[2 Nephi 2.2|]][[2 Nephi 2.3|]].
+[^3]: [[2 Nephi 2.1|2 Nephi 2:1–3]][[2 Nephi 2.2|]][[2 Nephi 2.3|]].
 
 [^4]: [[D&C 121.1|Doctrine and Covenants 121:1–2]][[D&C 121.2|]].
 
@@ -95,5 +95,6 @@ I testify that God knows you. He knows the trials you face. He is with you. He w
 
 [^7]: See [[Matthew 26.39|Matthew 26:39]].
 
+[^8]: [[2 Timothy 4.7|2 Timothy 4:7]].
 
-#Adversity #Atonement #Endurance #Jesus_Christ
+#Adversity #Atonement #Endurance #JesusChrist

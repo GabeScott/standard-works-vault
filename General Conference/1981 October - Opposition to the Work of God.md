@@ -1,6 +1,6 @@
 # Opposition to the Work of God
 
-By Elder Carlos E. Asay - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Carlos E. Asay - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -12,7 +12,7 @@ He said, “Yes,” in a very reassuring voice. And then he said, “Carlos, pra
 
 I therefore share with you the results of many prayers, and I do so prayerfully and obediently and very humbly.
 
-On November 1, 1857, Elder George A. Smith delivered a memorable discourse, which included this old Chinese fable:
+On November 1, 1857, Elder George A. Smith delivered a memorable discourse, which included this old Chinese fable:
 
 “A man travelling through the country came to a large city, very rich and splendid; he looked at it and said to his guide, ‘This must be a very righteous people, for I can only see but one little devil in this great city.’
 
@@ -40,17 +40,17 @@ The questions follow: How do we respond to such malicious and evil designs? Do w
 
 1. *Avoid those who would tear down your faith.* Faith-killers are to be shunned. The seeds which they plant in the minds and hearts of men grow like cancer and eat away the Spirit. True messengers of God are builders—not destroyers. We send our missionaries into the world to teach and to assist people in receiving truth line upon line until the fulness of the gospel is received. (See [[D&C 98.12|D&C 98:12]].) As one new convert testified: “My previous church provided me the chapter on mortality. The Church of Jesus Christ of Latter-day Saints added two more chapters pertaining to the premortal and postmortal existences.”
 
-2. *Keep the commandments.* President Brigham Young promised, “All we have to do is to go onward and upward, and keep the commandments of our Father and God; and he will confound our enemies.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1957, p. 347.) If we obey holy laws, we will take upon ourselves “the whole armour of God” and we will be able to stand against the wiles of the devil. (See [[Ephesians 6.11|Eph. 6:11–18]][[Ephesians 6.12|]][[Ephesians 6.13|]][[Ephesians 6.14|]][[Ephesians 6.15|]][[Ephesians 6.16|]][[Ephesians 6.17|]][[Ephesians 6.18|]].) Moreover, obedience ensures us of the guidance and protection of the Holy Spirit.
+2. *Keep the commandments.* President Brigham Young promised, “All we have to do is to go onward and upward, and keep the commandments of our Father and God; and he will confound our enemies.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1957, p. 347.) If we obey holy laws, we will take upon ourselves “the whole armour of God” and we will be able to stand against the wiles of the devil. (See [[Ephesians 6.11|Eph. 6:11–18]][[Ephesians 6.12|]][[Ephesians 6.13|]][[Ephesians 6.14|]][[Ephesians 6.15|]][[Ephesians 6.16|]][[Ephesians 6.17|]][[Ephesians 6.18|]].) Moreover, obedience ensures us of the guidance and protection of the Holy Spirit.
 
-3. *Follow the living prophets, as we have just been admonished.* One Church leader taught: “Always keep your eye on the President of the Church, and if he ever tells you to do anything, and it is wrong, and you do it, the Lord will bless you for it. … But you don’t need to worry. The Lord will never let his mouthpiece lead the people astray.” (Heber J. Grant, quoted by Marion G. Romney in Conference Report, Oct. 1960, p. 78.) We walk in uncharted mine fields and place our souls in jeopardy when we receive the teachings of anyone except he that is ordained of God. (See [[D&C 43.2|D&C 43:2–7]][[D&C 43.3|]][[D&C 43.4|]][[D&C 43.5|]][[D&C 43.6|]][[D&C 43.7|]]; [[D&C 52.9|52:9]].)
+3. *Follow the living prophets, as we have just been admonished.* One Church leader taught: “Always keep your eye on the President of the Church, and if he ever tells you to do anything, and it is wrong, and you do it, the Lord will bless you for it. … But you don’t need to worry. The Lord will never let his mouthpiece lead the people astray.” (Heber J. Grant, quoted by Marion G. Romney in Conference Report, Oct. 1960, p. 78.) We walk in uncharted mine fields and place our souls in jeopardy when we receive the teachings of anyone except he that is ordained of God. (See [[D&C 43.2|D&C 43:2–7]][[D&C 43.3|]][[D&C 43.4|]][[D&C 43.5|]][[D&C 43.6|]][[D&C 43.7|]]; [[D&C 52.9|52:9]].)
 
-4. *Do not contend or debate over points of doctrine.* The Master warned that “the spirit of contention is not of me, but is of the devil.” ([[3 Nephi 11.29|3 Ne. 11:29]].) We are inconsistent if we resort to Satanic tactics in attempting to achieve righteous ends. Such inconsistency results only in frustration, loss of the Spirit, and ultimate defeat. Remember, “We claim the privilege of worshiping Almighty God according to the dictates of our own conscience, and allow all men the same privilege.” (Eleventh Article of Faith.)
+4. *Do not contend or debate over points of doctrine.* The Master warned that “the spirit of contention is not of me, but is of the devil.” ([[3 Nephi 11.29|3 Ne. 11:29]].) We are inconsistent if we resort to Satanic tactics in attempting to achieve righteous ends. Such inconsistency results only in frustration, loss of the Spirit, and ultimate defeat. Remember, “We claim the privilege of worshiping Almighty God according to the dictates of our own conscience, and allow all men the same privilege.” (Eleventh Article of Faith.)
 
 5. *Search the scriptures.* Few of us would go astray or lose our way if we regarded the scriptures as our personal guide or compass. (See [[Alma 37.44|Alma 37:44]].) The iron rod *is* the word of God, and if held to, we will not fall.
 
 6. *Do not be swayed or diverted from the mission of the Church.* There are those who would draw you off course and cause you to waste time and energies. Satan used a diversion ploy when he tempted Christ in the wilderness. The Savior’s decisive response, “Get thee hence, Satan” ([[Matthew 4.10|Matt. 4:10]]), is a proper example for all of us.
 
-7. *Pray for your enemies.* Christ said to the Nephites, “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them who despitefully use you and persecute you.” ([[3 Nephi 12.44|3 Ne. 12:44]]; see also [[Matthew 5.44|Matt. 5:44]]; [[3 Nephi 12.10|3 Ne. 12:10–12]][[3 Nephi 12.11|]][[3 Nephi 12.12|]].) While on the cross, the Savior pled, “Father, forgive them; for they know not what they do.” ([[Luke 23.34|Luke 23:34]].) There are many who are kept from the truth—not because they don’t want it, but because they know not where to find it.
+7. *Pray for your enemies.* Christ said to the Nephites, “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them who despitefully use you and persecute you.” ([[3 Nephi 12.44|3 Ne. 12:44]]; see also [[Matthew 5.44|Matt. 5:44]]; [[3 Nephi 12.10|3 Ne. 12:10–12]][[3 Nephi 12.11|]][[3 Nephi 12.12|]].) While on the cross, the Savior pled, “Father, forgive them; for they know not what they do.” ([[Luke 23.34|Luke 23:34]].) There are many who are kept from the truth—not because they don’t want it, but because they know not where to find it.
 
 8. *Practice “pure religion.”* Involve yourself in Christian service. Succor the needs of the sick and poor; visit the fatherless and widows, and be charitable to all whether in the Church or out of the Church. (See [[James 1.27|James 1:27]] and [[Alma 1.30|Alma 1:30]].)
 
@@ -62,19 +62,21 @@ At the same time—
 
 1. I assure you that opposition to our cause testifies of its divinity. Would satanic powers combine against us if we were not posing a threat to such powers?
 
-2. I assure you that opposition, if met and overcome, has a refining influence upon our lives. A verse in one of our hymns reads:When through fiery trials thy pathway shall lie,My grace, all sufficient, shall be thy supply.The flame shall not hurt thee; I only designThy dross to consume and thy gold to refine.(“How Firm a Foundation,” *Hymns,* no. 66.)The Savior learned obedience by the things which he suffered. (See [[Hebrews 5.8|Heb. 5:8]].) Joseph Smith’s oppositions gave him experience and worked for his good. (See [[D&C 122.7|D&C 122:7]].)
+2. I assure you that opposition, if met and overcome, has a refining influence upon our lives. A verse in one of our hymns reads:
+
+The Savior learned obedience by the things which he suffered. (See [[Hebrews 5.8|Heb. 5:8]].) Joseph Smith’s oppositions gave him experience and worked for his good. (See [[D&C 122.7|D&C 122:7]].)
 
 3. I assure you that the waters in which we are wont to swim are but little puddles when compared with the deep rivers of opposition in which the Prophet Joseph and others swam. (See [[D&C 127.2|D&C 127:2]].)
 
-4. I assure you that our cause is just and it will succeed, regardless of the opposition exerted against us. Earlier Saints were bolstered by these words: “As well might man stretch forth his puny arm to stop the Missouri river in its decreed course, or to turn it up stream, as to hinder the Almighty from pouring down knowledge from heaven upon the heads of the Latter-day Saints.” ([[D&C 121.33|D&C 121:33]].)President Brigham Young said: “Every time you kick ‘Mormonism’ you kick it upstairs; you never kick it downstairs. The Lord Almighty so orders it.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 351.)
+4. I assure you that our cause is just and it will succeed, regardless of the opposition exerted against us. Earlier Saints were bolstered by these words: “As well might man stretch forth his puny arm to stop the Missouri river in its decreed course, or to turn it up stream, as to hinder the Almighty from pouring down knowledge from heaven upon the heads of the Latter-day Saints.” ([[D&C 121.33|D&C 121:33]].)
+
+President Brigham Young said: “Every time you kick ‘Mormonism’ you kick it upstairs; you never kick it downstairs. The Lord Almighty so orders it.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 351.)
 
 With all my heart I implore those who are walking on the fringes of our faith to seek the safety of the center. This can be done best by counseling with your leaders and remaining within the fellowshipping circle of the Saints, and receiving nourishment from the good word of God. Do not permit faithless people to turn you out of the right way or to put you out of existence. (See [[Moroni 6.1|Moro. 6]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]][[Moroni 6.5|]][[Moroni 6.6|]][[Moroni 6.7|]][[Moroni 6.8|]][[Moroni 6.9|]].)
 
-And I pray for those who deal in the highest form of larceny—that of stripping people of their precious testimonies. Such action, if continued, will lead only to the futility and emptiness of the dream of a night vision. (See [[2 Nephi 27.3|2 Ne. 27:3]]; [[Acts 5.33|Acts 5:33–39]][[Acts 5.34|]][[Acts 5.35|]][[Acts 5.36|]][[Acts 5.37|]][[Acts 5.38|]][[Acts 5.39|]].)
+And I pray for those who deal in the highest form of larceny—that of stripping people of their precious testimonies. Such action, if continued, will lead only to the futility and emptiness of the dream of a night vision. (See [[2 Nephi 27.3|2 Ne. 27:3]]; [[Acts 5.33|Acts 5:33–39]][[Acts 5.34|]][[Acts 5.35|]][[Acts 5.36|]][[Acts 5.37|]][[Acts 5.38|]][[Acts 5.39|]].)
 
-God help us all in our war against sin. Though our numbers may be few and our dominions small, may we go forward “armed with righteousness and with the power of God in great glory” ([[1 Nephi 14.14|1 Ne. 14:14]]), is my prayer in the name of Jesus Christ, amen.
-
-
+God help us all in our war against sin. Though our numbers may be few and our dominions small, may we go forward “armed with righteousness and with the power of God in great glory” ([[1 Nephi 14.14|1 Ne. 14:14]]), is my prayer in the name of Jesus Christ, amen.
 
 
 

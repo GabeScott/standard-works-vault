@@ -1,6 +1,6 @@
 # Relief Society in Welfare
 
-By Marian R. Boyer - *First Counselor in the Relief Society General Presidency*
+By Marian R. Boyer - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -12,15 +12,15 @@ How well they accepted the charge is reflected in a report of the Nauvoo “Nece
 
 “Sister Jones, Sister Mecham and myself have visited our ward—went to every house, *found* many sick. … *Found* Sister Miller, an old lady, sick without bed or bedding, no changes of clothing. *Found* Sister Broomley very sick, nothing at all to eat.” (Amy Brown Lyman, comp., Minutes of the General Board of Relief Society, 1842–1892, p. 72.)
 
-The sisters rose one by one and offered the needed donations. Sister Woolley would give “one yard of fine muslin, a flannel petticoat … , 60 cents … , Sister German, “a suit of clothes \[for\] old \[Sister\] Miller.” (Ibid.)
+The sisters rose one by one and offered the needed donations. Sister Woolley would give “one yard of fine muslin, a flannel petticoat … , 60 cents … , Sister German, “a suit of clothes \[for\] old \[Sister\] Miller.” (Ibid.)
 
 A young Nauvoo widow with several children, Sister Ellen Douglas, gives a glimpse of the early Relief Society ministrations in a letter dated April 14, 1844, to her parents in England:
 
-“I was taken very ill. … Sometimes I thot I should die and then I thot of my poor children. I prayed for their sakes that I might live. I didn’t pray alone, but many of my brothers and sisters prayed likewise and our prayers were answered.” (Kate B. Carter, comp., *Our Pioneer Heritage,* Salt Lake City: Daughters of Utah Pioneers, 1960, 3:159.)
+“I was taken very ill. … Sometimes I thot I should die and then I thot of my poor children. I prayed for their sakes that I might live. I didn’t pray alone, but many of my brothers and sisters prayed likewise and our prayers were answered.” (Kate B. Carter, comp., *Our Pioneer Heritage,* Salt Lake City: Daughters of Utah Pioneers, 1960, 3:159.)
 
 After Sister Douglas began to recover, she visited a friend who suggested she “make application to the female Relief Society for some clothing which I needed for myself and family. … I \[reluctantly\] agreed and we went to one of the sisters \[of the Society\]. … I told her … while I was sick my children wore out their clothes because I could not mend them, so she said she would do the best she could for me. … In a few days … they brought a wagon and fetched me such a present as I never received before from no place in the world.” (Ibid.)
 
-In the Salt Lake Valley, the sisters continued their ministrations—sometimes in dramatic ways—as Sister Lucy Meserve Smith, wife of Elder George A. Smith, recalls in her Reminiscences. News of the approach of a handcart company came to President Brigham Young as he was conducting October conference in the old Tabernacle. She stated:
+In the Salt Lake Valley, the sisters continued their ministrations—sometimes in dramatic ways—as Sister Lucy Meserve Smith, wife of Elder George A. Smith, recalls in her Reminiscences. News of the approach of a handcart company came to President Brigham Young as he was conducting October conference in the old Tabernacle. She stated:
 
 “President Young and others were \[so\] excited and anxious for fear those companies would be caught in the snows in the mountains \[that\] they could not go on with the Conference. The president called for men, teams, clothing and provisions. … The sisters stripped off their petticoats, stockings, and every thing they could spare, right there … and piled \[them\] into the wagons to send to the Saints in the mountains.” (Reminiscences of Lucy Meserve Smith, MS, 1886, Historical Department, The Church of Jesus Christ of Latter-day Saints, Salt Lake City.)
 
@@ -50,7 +50,7 @@ Of all the ways Relief Society furthers the welfare cause, its best effort comes
 
 The emotional support and strength that you Relief Society sisters can provide one another can be as important, or more so, than food or shelter. The husband of a sister recently lost his job. In relating the experience, she said the family was financially somewhat prepared, in that they had food storage and some money saved. But they were *not* prepared for the emotional shock of unemployment. The wife recalled that the single greatest help the family received to lessen the trauma of that experience was the love and sympathetic concern shown by the sisters of Relief Society.
 
-In a Spiritual Living lesson a few years ago (1979–80, p. 42), we were told, “Fear that we haven’t enough energy, money, or other means can keep us from giving love.” We may think, “We can’t feed all the hungry, lodge all the homeless, nor comfort all who grieve … ; therefore, \[we\] will help no one.” (Ibid.) But Alma has told us that “by small and simple things are great things brought to pass.” ([[Alma 37.6|Alma 37:6]].)
+In a Spiritual Living lesson a few years ago (1979–80, p. 42), we were told, “Fear that we haven’t enough energy, money, or other means can keep us from giving love.” We may think, “We can’t feed all the hungry, lodge all the homeless, nor comfort all who grieve … ; therefore, \[we\] will help no one.” (Ibid.) But Alma has told us that “by small and simple things are great things brought to pass.” ([[Alma 37.6|Alma 37:6]].)
 
 One dollar given for a welfare assessment or a fast offering, one day of volunteer service, a visit (even without the loaf of bread), multiplied by a million and one-half members, can relieve much suffering.
 
@@ -63,6 +63,4 @@ I ask it in the name of Jesus Christ, amen.
 
 
 
-
-
-#Relief_Society #Welfare
+#ReliefSociety #Welfare

@@ -1,6 +1,6 @@
 # Keep the Commandments
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -20,7 +20,7 @@ I am confident that each of us has as his ultimate goal life everlasting in the 
 
 Although there is no time in our lives when we are exempt from temptation, you young men are at an age when you may be particularly vulnerable. Teenage years are often years of insecurity, of feeling as though you don’t measure up, of trying to find your place with your peers, and of trying to fit in. You may be tempted to lower your standards and to follow the crowd in order to be accepted by those you desire to have as friends. Please be strong, and be alert to *anything* that would rob you of the blessings of eternity. The choices you make here and now are forever important.
 
-We read in [[1 Corinthians 14.10|1 Corinthians:]] “There are … so many kinds of voices in the world.”[^4] We are surrounded by persuasive voices, beguiling voices, belittling voices, sophisticated voices, and confusing voices. I might add that these are *loud* voices. I admonish you to turn the volume down and to be influenced instead by that still, small voice which will guide you to safety. Remember that one with authority placed his hands on your head after you were baptized, confirming you a member of the Church and saying, “Receive the Holy Ghost.”[^5] Open your hearts, even your very souls, to the sound of that special voice which testifies of truth. As the prophet Isaiah promised, “Thine ears shall hear a word … , saying, This is the way, walk ye in it.”[^6] May we ever be in tune, that we might hear this comforting, guiding voice which will keep us safe.
+We read in [[1 Corinthians 14.10|1 Corinthians:]] “There are … so many kinds of voices in the world.”[^4] We are surrounded by persuasive voices, beguiling voices, belittling voices, sophisticated voices, and confusing voices. I might add that these are *loud* voices. I admonish you to turn the volume down and to be influenced instead by that still, small voice which will guide you to safety. Remember that one with authority placed his hands on your head after you were baptized, confirming you a member of the Church and saying, “Receive the Holy Ghost.”[^5] Open your hearts, even your very souls, to the sound of that special voice which testifies of truth. As the prophet Isaiah promised, “Thine ears shall hear a word … , saying, This is the way, walk ye in it.”[^6] May we ever be in tune, that we might hear this comforting, guiding voice which will keep us safe.
 
 Disregard for the commandments has opened the way for what I consider to be the plagues of our day. They include the plague of permissiveness, the plague of pornography, the plague of drugs, the plague of immorality, and the plague of abortion, to name just a few. The scriptures tell us that the adversary is “the founder of all these things.”[^7] We know that he is “the father of all lies, to deceive and to blind men.”[^8]
 
@@ -57,15 +57,15 @@ My brethren, may we keep the commandments! Wonderful and glorious are the reward
 
 [^2]: See [[Exodus 20.1|Exodus 20:1–17]][[Exodus 20.2|]][[Exodus 20.3|]][[Exodus 20.4|]][[Exodus 20.5|]][[Exodus 20.6|]][[Exodus 20.7|]][[Exodus 20.8|]][[Exodus 20.9|]][[Exodus 20.10|]][[Exodus 20.11|]][[Exodus 20.12|]][[Exodus 20.13|]][[Exodus 20.14|]][[Exodus 20.15|]][[Exodus 20.16|]][[Exodus 20.17|]]; [[Matthew 22.39|Matthew 22:39]].
 
-[^3]: [[1 Peter 5.8|1 Peter 5:8]].
+[^3]: [[1 Peter 5.8|1 Peter 5:8]].
 
-[^4]: [[1 Corinthians 14.10|1 Corinthians 14:10]].
+[^4]: [[1 Corinthians 14.10|1 Corinthians 14:10]].
 
 [^5]: See *Handbook 2: Administering the Church* (2010), 20.3.10.
 
 [^6]: [[Isaiah 30.21|Isaiah 30:21]].
 
-[^7]: [[2 Nephi 26.22|2 Nephi 26:22]].
+[^7]: [[2 Nephi 26.22|2 Nephi 26:22]].
 
 [^8]: [[Moses 4.4|Moses 4:4]].
 
@@ -73,6 +73,4 @@ My brethren, may we keep the commandments! Wonderful and glorious are the reward
 
 [^10]: [[Jeremiah 31.34|Jeremiah 31:34]].
 
-
-
-#Atonement #Commandments #Courage #Holy_Ghost #Jesus_Christ #Obedience #Repentance
+#Atonement #Commandments #Courage #HolyGhost #JesusChrist #Obedience #Repentance

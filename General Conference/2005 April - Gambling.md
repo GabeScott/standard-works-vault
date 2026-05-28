@@ -36,7 +36,7 @@ I read to you from a *New York Times* News Service article:
 
 “But last fall, he says, it became the source of a six-figure income and an alternative to law school.
 
-“Sandberg, 22, essentially splits his time between Princeton, where he is a senior and a politics major, and Atlantic City, where he plays high-stakes poker. …
+“Sandberg, 22, essentially splits his time between Princeton, where he is a senior and a politics major, and Atlantic City, where he plays high-stakes poker. …
 
 “Sandberg’s is an extreme example of a gambling revolution on the nation’s college campuses. Sandberg calls it an explosion, one spurred by televised poker championships and a proliferation of Web sites that offer online poker games.
 
@@ -60,7 +60,7 @@ We now have state lotteries on a very large scale. Once the law almost universal
 
 Some 20 years ago, speaking in conference, I said: “Lottery fever recently peaked when New York State announced that three winning tickets would split $41 million. People \[had\] lined up to buy tickets. One winning ticket was held by 21 factory workers, with 778 second-place winners, and 113,000 who received token amounts. That may sound pretty good.
 
-“But there were also 35,998,956 losers, each of whom had paid for a chance to win \[and received nothing\]” (in Conference Report, Oct. 1985, 67; or *Ensign,* Nov. 1985, 52).
+“But there were also 35,998,956 losers, each of whom had paid for a chance to win \[and received nothing\]” (in Conference Report, Oct. 1985, [[1985 October - Questions and Answers.md|67]]; or *Ensign,* Nov. 1985, 52).
 
 Some American states have imposed heavy taxes on casinos as a source of revenue. The operating company also must have its profit. Then comes the winning ticket holder. All others who bought tickets are left empty-handed.
 
@@ -86,7 +86,7 @@ President Joseph F. Smith stated, “The Church does not approve of gambling but
 
 President Heber J. Grant counseled: “The Church has been and now is unalterably opposed to gambling in any form whatever. It is opposed to any game of chance, occupation, or so-called business, which takes money from the person who may be possessed of it without giving value received in return. It is opposed to all practices the tendency of which is to … degrade or weaken the high moral standard which the members of the Church, and our community at large, have always maintained” (in *Messages of the First Presidency,* 5:245).
 
-President Spencer W. Kimball said: “From the beginning we have been advised against gambling of every sort. The deterioration and damage comes to the person, whether he wins or loses, to get something for nothing, something without effort, something without paying the full price” (in Conference Report, Apr. 1975, 6; or *Ensign,* May 1975, 6).
+President Spencer W. Kimball said: “From the beginning we have been advised against gambling of every sort. The deterioration and damage comes to the person, whether he wins or loses, to get something for nothing, something without effort, something without paying the full price” (in Conference Report, Apr. 1975, [[1975 April - “Why Call Ye Me Lord, Lord, and Do Not the Things Which I Say”.md|6]]; or *Ensign,* May 1975, 6).
 
 Elder Dallin H. Oaks, who is with us tonight, in 1987 delivered a masterful discourse on this subject at what was then Ricks College. It was entitled “Gambling—Morally Wrong and Politically Unwise” (see *Ensign,* June 1987, 69–75).
 
@@ -113,8 +113,6 @@ The priesthood which you hold as young men carries with it the privilege of the 
 “Choose the right when a choice is placed before you” (“Choose the Right,” *Hymns,* no. 239).
 
 May heaven’s blessings rest upon you, I humbly pray, as I leave you my testimony of this work and my love for all who are engaged in it, in the sacred name of Jesus Christ, amen.
-
-
 
 
 

@@ -40,7 +40,7 @@ May I comment on each of these. Absolutely basic to our faith is our testimony o
 
 The nails pierced his hands and feet, and he hung in agony and pain, giving himself a ransom for the sins of all men. He died crying, “Father, forgive them; for they know not what they do.” ([[Luke 23.34|Luke 23:34]].)
 
-He was buried in a borrowed tomb and on the third day rose from the grave. He came forth triumphant, in a victory over death, the firstfruits of all that slept. With his resurrection came the promise to all men that life is everlasting, that even as in Adam all die, in Christ all are made alive. (See [[1 Corinthians 15.20|1 Cor. 15:20–22]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].) Nothing in all of human history equals the wonder, the splendor, the magnitude, or the fruits of the matchless life of the Son of God, who died for each of us. He is our Savior. He is our Redeemer. As Isaiah foretold, “His name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].)
+He was buried in a borrowed tomb and on the third day rose from the grave. He came forth triumphant, in a victory over death, the firstfruits of all that slept. With his resurrection came the promise to all men that life is everlasting, that even as in Adam all die, in Christ all are made alive. (See [[1 Corinthians 15.20|1 Cor. 15:20–22]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].) Nothing in all of human history equals the wonder, the splendor, the magnitude, or the fruits of the matchless life of the Son of God, who died for each of us. He is our Savior. He is our Redeemer. As Isaiah foretold, “His name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].)
 
 He is the chief cornerstone of the church which bears his name, The Church of Jesus Christ of Latter-day Saints. There is no other name given among men whereby we can be saved. (See [[Acts 4.12|Acts 4:12]].) He is the author of our salvation, the giver of eternal life. (See [[Hebrews 5.9|Heb. 5:9]].) There is none to equal him. There never has been. There never will be. Thanks be to God for the gift of his Beloved Son, who gave his life that we might live, and who is the chief, immovable cornerstone of our faith and his church.
 
@@ -81,6 +81,4 @@ Of such was the faith of our fathers. Of such is our faith. “Faith of our fath
 
 
 
-
-
-#Book_Of_Mormon #Faith #Jesus_Christ #Joseph_Smith #Priesthood
+#BookOfMormon #Faith #JosephSmith #JesusChrist #Priesthood

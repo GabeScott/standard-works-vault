@@ -1,6 +1,6 @@
 # Children
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -18,11 +18,11 @@ The family is ordained of God. Families are central to our Heavenly Father’s p
 
 This commandment has not been forgotten or set aside in The Church of Jesus Christ of Latter-day Saints.[^4] We express deep gratitude for the enormous faith shown by husbands and wives (especially our wives) in their willingness to have children. When to have a child and how many children to have are private decisions to be made between a husband and wife and the Lord. These are sacred decisions—decisions that should be made with sincere prayer and acted on with great faith.
 
-Years ago, Elder James O. Mason of the Seventy shared this story with me: “The birth of our sixth child was an unforgettable experience. As I gazed on this beautiful, new daughter in the nursery just moments after her birth, I distinctly heard a voice declare, ‘There will yet be another, and it will be a boy.’ Unwisely, I rushed back to the bedside of my absolutely exhausted wife and told her the good news. It was very bad timing on my part.”[^5] Year after year the Masons anticipated the arrival of their seventh child. Three, four, five, six, seven years passed. Finally, after eight years, their seventh child was born—a little boy.
+Years ago, Elder James O. Mason of the Seventy shared this story with me: “The birth of our sixth child was an unforgettable experience. As I gazed on this beautiful, new daughter in the nursery just moments after her birth, I distinctly heard a voice declare, ‘There will yet be another, and it will be a boy.’ Unwisely, I rushed back to the bedside of my absolutely exhausted wife and told her the good news. It was very bad timing on my part.”[^5] Year after year the Masons anticipated the arrival of their seventh child. Three, four, five, six, seven years passed. Finally, after eight years, their seventh child was born—a little boy.
 
-Last April, President Thomas S. Monson declared:
+Last April, President Thomas S. Monson declared:
 
-“Where once the standards of the Church and the standards of society were mostly compatible, now there is a wide chasm between us, and it’s growing ever wider. …
+“Where once the standards of the Church and the standards of society were mostly compatible, now there is a wide chasm between us, and it’s growing ever wider. …
 
 “The Savior of mankind described Himself as being in the world but not of the world. We also can be in the world but not of the world as we reject false concepts and false teachings and remain true to that which God has commanded.”[^6]
 
@@ -38,13 +38,13 @@ To a righteous father, there are no words sufficient to express the gratitude an
 
 Elder Mason had another experience just weeks after his marriage that helped him prioritize his family responsibilities. He said:
 
-“Marie and I had rationalized that to get me through medical school it would be necessary for her to remain in the workplace. Although this was not what we \[wanted\] to do, children would have to come later. \[While looking at a Church magazine at my parents’ home,\] I saw an article by Elder Spencer W. Kimball, then of the Quorum of the Twelve, \[highlighting\] responsibilities associated with marriage. According to Elder Kimball, one sacred responsibility was to multiply and replenish the earth. My parents’ home was \[close to\] the Church Administration Building. I immediately walked to the offices, and 30 minutes after reading his article, I found myself sitting across the desk from Elder Spencer W. Kimball.” (This wouldn’t be so easy today.)
+“Marie and I had rationalized that to get me through medical school it would be necessary for her to remain in the workplace. Although this was not what we \[wanted\] to do, children would have to come later. \[While looking at a Church magazine at my parents’ home,\] I saw an article by Elder Spencer W. Kimball, then of the Quorum of the Twelve, \[highlighting\] responsibilities associated with marriage. According to Elder Kimball, one sacred responsibility was to multiply and replenish the earth. My parents’ home was \[close to\] the Church Administration Building. I immediately walked to the offices, and 30 minutes after reading his article, I found myself sitting across the desk from Elder Spencer W. Kimball.” (This wouldn’t be so easy today.)
 
 “I explained that I wanted to become a doctor. There was no alternative but to postpone having our family. Elder Kimball listened patiently and then responded in a soft voice, ‘Brother Mason, would the Lord want you to break one of his important commandments in order for you to become a doctor? With the help of the Lord, you can have your family and still become a doctor. Where is your faith?’”
 
 Elder Mason continued: “Our first child was born less than a year later. Marie and I worked hard, and the Lord opened the windows of heaven.” The Masons were blessed with two more children before he graduated from medical school four years later.[^9]
 
-Across the world, this is a time of economic instability and financial uncertainty. In April general conference, President Thomas S. Monson said: “If you are concerned about providing financially for a wife and family, may I assure you that there is no shame in a couple having to scrimp and save. It is generally during these challenging times that you will grow closer together as you learn to sacrifice and to make difficult decisions.”[^10]
+Across the world, this is a time of economic instability and financial uncertainty. In April general conference, President Thomas S. Monson said: “If you are concerned about providing financially for a wife and family, may I assure you that there is no shame in a couple having to scrimp and save. It is generally during these challenging times that you will grow closer together as you learn to sacrifice and to make difficult decisions.”[^10]
 
 Elder Kimball’s piercing question, “Where is your faith?” turns us to the holy scriptures.
 
@@ -64,7 +64,7 @@ The bearing of children can also be a heartbreaking subject for righteous couple
 
 We cannot always explain the difficulties of our mortality. Sometimes life seems very unfair—especially when our greatest desire is to do exactly what the Lord has commanded. As the Lord’s servant, I assure you that this promise is certain: “Faithful members whose circumstances do not allow them to receive the blessings of eternal marriage and parenthood in this life will receive all promised blessings in the eternities, \[as\] they keep the covenants they have made with God.”[^17]
 
-President J. Scott Dorius of the Peru Lima West Mission told me their story. He said:
+President J. Scott Dorius of the Peru Lima West Mission told me their story. He said:
 
 “Becky and I were married for 25 years without being able to have \[or adopt\] children. We moved several times. Introducing ourselves in each new setting was awkward and sometimes painful. Ward members wondered why we \[didn’t have\] children. They weren’t the only ones wondering.
 
@@ -74,7 +74,7 @@ President J. Scott Dorius of the Peru Lima West Mission told me their story. He
 
 Brothers and sisters, we should not be judgmental with one another in this sacred and private responsibility.
 
-“And \[Jesus\] took a child … in his arms \[and\] said …
+“And \[Jesus\] took a child … in his arms \[and\] said …
 
 “Whosoever shall receive one of such children in my name, receiveth me: and whosoever shall receive me, receiveth … him that sent me.”[^19]
 
@@ -95,23 +95,23 @@ Families are central to God’s eternal plan. I testify of the great blessing of
 
 [^4]: According to the annual American Community Survey, released by the U.S. Census Bureau, “Utah still has the nation’s largest households, highest fertility rate, lowest median age, youngest age at marriage and most stay-at-home moms” (“Who Are Utahns? Survey Shows We’re Highest, Lowest, Youngest,” *Salt Lake Tribune,* Sept. 22, 2011, A1, A8).
 
-[^5]: E-mail from Elder James O. Mason, June 25, 2011.
+[^5]: E-mail from Elder James O. Mason, June 25, 2011.
 
-[^6]: Thomas S. Monson, in Conference Report, Apr. 2011, 65, 66; or *Ensign,* May 2011, 66, 67.
+[^6]: Thomas S. Monson, in Conference Report, Apr. 2011, [[2011 April - Priesthood Power.md|65, 66]]; or *Ensign,* May 2011, 66, 67.
 
 [^7]: Rachel Jankovic, “Motherhood Is a Calling (and Where Your Children Rank),” July 14, 2011, desiringgod.org.
 
 [^8]: See “Jokes and Funny Stories about Children,” thejokes.co.uk/jokes-about-children.php.
 
-[^9]: E-mail from Elder James O. Mason, June 29, 2011.
+[^9]: E-mail from Elder James O. Mason, June 29, 2011.
 
-[^10]: Thomas S. Monson, in Conference Report, Apr. 2011, 66; or *Ensign,* May 2011, 67.
+[^10]: Thomas S. Monson, in Conference Report, Apr. 2011, [[2011 April - Priesthood Power.md|66]]; or *Ensign,* May 2011, 67.
 
 [^11]: [[Moses 5.1|Moses 5:1, 2]][[Moses 5.2|]].
 
-[^12]: [[2 Nephi 2.1|2 Nephi 2:1]].
+[^12]: [[2 Nephi 2.1|2 Nephi 2:1]].
 
-[^13]: [[2 Nephi 3.1|2 Nephi 3:1]].
+[^13]: [[2 Nephi 3.1|2 Nephi 3:1]].
 
 [^14]: [[Exodus 1.22|Exodus 1:22]].
 
@@ -121,10 +121,8 @@ Families are central to God’s eternal plan. I testify of the great blessing of
 
 [^17]: *Handbook 2: Administering the Church* (2010), 1.3.3.
 
-[^18]: E-mail from President J. Scott Dorius, Aug. 28, 2011.
+[^18]: E-mail from President J. Scott Dorius, Aug. 28, 2011.
 
 [^19]: [[Mark 9.36|Mark 9:36–37]][[Mark 9.37|]].
-
-
 
 #Children #Faith #Family #Marriage #Parenthood #Priorities

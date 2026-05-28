@@ -1,7 +1,6 @@
 # Affliction
 
-
-*See also* [[Adversity.md|Adversity]]; [[Afflicted.md|Afflicted]]; [[Anguish.md|Anguish]]; [[Chastening.md|Chastening]]; [[Distress.md|Distress]]; [[Oppression, Oppress.md|Oppression]]; [[Persecution, Persecute.md|Persecution]]; [[Perseverance.md|Perseverance]]; [[Sorrow.md|Sorrow]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
+*See also* [[Adversity.md|Adversity]]; [[Afflicted.md|Afflicted]]; [[Anguish.md|Anguish]]; [[Chastening.md|Chastening]]; [[Distress.md|Distress]]; [[Oppression.md|Oppression]]; [[Persecution.md|Persecution]]; [[Perseverance.md|Perseverance]]; [[Sorrow.md|Sorrow]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
 
 seen the *affliction* of my people, [[Exodus 3.7|Exodus 3:7]].
 
@@ -35,11 +34,11 @@ great trial of *affliction*, [[2 Corinthians 8.2|2 Corinthians 8:2]].
 
 received the word in much *affliction*, [[1 Thessalonians 1.6|1 Thessalonians 1:6]].
 
-comforted over you in ... *affliction*, [[1 Thessalonians 3.7|1 Thessalonians 3:7]].
+comforted over you in … *affliction*, [[1 Thessalonians 3.7|1 Thessalonians 3:7]].
 
 visit the fatherless and widows in their *affliction*, [[James 1.27|James 1:27]].
 
-*afflicted* ? let him pray, [[James 5.13|James 5:13]].
+*afflicted*? let him pray, [[James 5.13|James 5:13]].
 
 consecrate thine *afflictions* for thy gain, [[2 Nephi 2.2|2 Nephi 2:2]].
 
@@ -57,7 +56,7 @@ in all mine *afflictions*, [[Alma 33.11|Alma 33:11]].
 
 with all manner of *afflictions*, [[Alma 34.40|Alma 34:40]].
 
-shall be supported in ... *afflictions*, [[Alma 36.3|Alma 36:3]].
+shall be supported in … *afflictions*, [[Alma 36.3|Alma 36:3]].
 
 *suffereth* the righteous to be slain, [[Alma 60.13|Alma 60:13]].
 
@@ -70,5 +69,3 @@ the cause of your *affliction*, [[D&C 93.42|D&C 93:42]].
 thine *afflictions* shall be but a small moment, [[D&C 121.7|D&C 121:7]].
 
 these things shall give thee *experience*, [[D&C 122.7|D&C 122:7]].
-
-*See also* [[Nehemiah 9.9|Nehemiah 9:9]]; [[Isaiah 63.9|Isaiah 63:9]]; [[1 Nephi 16.35|1 Nephi 16:35]]; [[Mosiah 1.17|Mosiah 1:17]]; [[Alma 7.11|Alma 7:11]]; [[Alma 53.13|Alma 53:13]]; [[Alma 62.41|Alma 62:41]]; [[3 Nephi 6.13|3 Nephi 6:13]]; [[D&C 25.5|D&C 25:5]]; [[D&C 30.6|D&C 30:6]]; [[D&C 31.9|D&C 31:9]]; [[D&C 64.8|D&C 64:8]]; [[D&C 101.2|D&C 101:2]]; [[Joseph Smith History 1.56|Joseph Smith History 1:56]].

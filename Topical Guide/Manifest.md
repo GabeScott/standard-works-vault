@@ -1,25 +1,24 @@
 # Manifest
 
-
-*See also* [[Manifestation.md|Manifestation]]; [[Show, Shew.md|Show]]
+*See also* [[Manifestation.md|Manifestation]]; [[Show.md|Show]]
 
 nothing hid, which shall not be *manifested*, [[Mark 4.22|Mark 4:22]].
 
 he should be made *manifest* to Israel, [[John 1.31|John 1:31]].
 
-Jesus ... *manifested* forth his glory, [[John 2.11|John 2:11]].
+Jesus … *manifested* forth his glory, [[John 2.11|John 2:11]].
 
 that his deeds may be made *manifest*, [[John 3.21|John 3:21]].
 
 works of God should be made *manifest* in him, [[John 9.3|John 9:3]].
 
-I ... will *manifest* myself to him, [[John 14.21|John 14:21]].
+I … will *manifest* myself to him, [[John 14.21|John 14:21]].
 
 that which may be known of God is *manifest* in them, [[Romans 1.19|Romans 1:19]].
 
 righteousness of God without the law is *manifested*, [[Romans 3.21|Romans 3:21]].
 
-Every man's work shall be made *manifest*, [[1 Corinthians 3.13|1 Corinthians 3:13]].
+Every man’s work shall be made *manifest*, [[1 Corinthians 3.13|1 Corinthians 3:13]].
 
 secrets of his heart made *manifest*, [[1 Corinthians 14.25|1 Corinthians 14:25]].
 
@@ -27,11 +26,11 @@ it is *manifest* that he is excepted, [[1 Corinthians 15.27|1 Corinthians 15:27]
 
 life also of Jesus might be made *manifest* in our body, [[2 Corinthians 4.10|2 Corinthians 4:10]].
 
-made *manifest* unto God ... *manifest* in your consciences, [[2 Corinthians 5.11|2 Corinthians 5:11]].
+made *manifest* unto God … *manifest* in your consciences, [[2 Corinthians 5.11|2 Corinthians 5:11]].
 
 *manifest* by the light: for whatsoever doth make *manifest*, [[Ephesians 5.13|Ephesians 5:13]].
 
-hid ... but now is made *manifest* to his saints, [[Colossians 1.26|Colossians 1:26]].
+hid … but now is made *manifest* to his saints, [[Colossians 1.26|Colossians 1:26]].
 
 God was *manifest* in the flesh, [[1 Timothy 3.16|1 Timothy 3:16]].
 
@@ -73,9 +72,9 @@ shall the greater things be made *manifest*, [[3 Nephi 26.9|3 Nephi 26:9]].
 
 there never were greater things made *manifest*, [[Ether 4.4|Ether 4:4]].
 
-he will *manifest* the truth ... by the power of the Holy Ghost, [[Moroni 10.4|Moroni 10:4]].
+he will *manifest* the truth … by the power of the Holy Ghost, [[Moroni 10.4|Moroni 10:4]].
 
-I have *manifested* unto you ... that the things which you have written are true, [[D&C 18.2|D&C 18:2]].
+I have *manifested* unto you … that the things which you have written are true, [[D&C 18.2|D&C 18:2]].
 
 Holy Ghost, which *manifesteth* all things, [[D&C 18.18|D&C 18:18]].
 
@@ -85,7 +84,7 @@ in the ordinances thereof, the power of godliness is *manifest*, [[D&C 84.20|D&C
 
 the Spirit *manifesteth* truth, [[D&C 91.4|D&C 91:4]].
 
-be *manifest* ... by the voice of the Spirit, those that are chosen, [[D&C 105.36|D&C 105:36]] ([[D&C 109.5|D&C 109:5]]; [[D&C 110.7|D&C 110:7]]).
+be *manifest* … by the voice of the Spirit, those that are chosen, [[D&C 105.36|D&C 105:36]] ([[D&C 109.5|D&C 109:5]]; [[D&C 110.7|D&C 110:7]]).
 
 all things for their glory are *manifest*, past, present, and future, [[D&C 130.7|D&C 130:7]].
 

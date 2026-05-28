@@ -56,7 +56,7 @@ My dear brethren of the priesthood, my beloved fellow disciples of the gentle Ch
 
 ## We Must Not Inhale
 
-When I was called as a General Authority, I was blessed to be tutored by many of the senior Brethren in the Church. One day I had the opportunity to drive President James E. Faust to a stake conference. During the hours we spent in the car, President Faust took the time to teach me some important principles about my assignment. He explained also how gracious the members of the Church are, especially to General Authorities. He said, “They will treat you very kindly. They will say nice things about you.” He laughed a little and then said, “Dieter, be thankful for this. But don’t you ever inhale it.”
+When I was called as a General Authority, I was blessed to be tutored by many of the senior Brethren in the Church. One day I had the opportunity to drive President James E. Faust to a stake conference. During the hours we spent in the car, President Faust took the time to teach me some important principles about my assignment. He explained also how gracious the members of the Church are, especially to General Authorities. He said, “They will treat you very kindly. They will say nice things about you.” He laughed a little and then said, “Dieter, be thankful for this. But don’t you ever inhale it.”
 
 That is a good lesson for us all, brethren, in any calling or life situation. We can be grateful for our health, wealth, possessions, or positions, but when we begin to inhale it—when we become obsessed with our status; when we focus on our own importance, power, or reputation; when we dwell upon our public image and believe our own press clippings—that’s when the trouble begins; that’s when pride begins to corrupt.
 
@@ -94,11 +94,11 @@ Let me conclude with words from President Ezra Taft Benson’s inspired message 
 
 “Pride *is* the great stumbling block to Zion.
 
-“We must cleanse the inner vessel by conquering pride. …[^23]
+“We must cleanse the inner vessel by conquering pride. …[^23]
 
-“We must yield ‘to the enticings of the Holy Spirit,’ put off the prideful ‘natural man,’ become ‘a saint through the atonement of Christ the Lord,’ and become ‘as a child, submissive, meek, humble.’ …[^24]
+“We must yield ‘to the enticings of the Holy Spirit,’ put off the prideful ‘natural man,’ become ‘a saint through the atonement of Christ the Lord,’ and become ‘as a child, submissive, meek, humble.’ …[^24]
 
-“God will have a humble people. … ‘Blessed are they who humble themselves without being compelled to be humble.’ …[^25]
+“God will have a humble people. … ‘Blessed are they who humble themselves without being compelled to be humble.’ …[^25]
 
 “Let us choose to be humble. We can do it. I know we can.”[^26]
 
@@ -109,11 +109,11 @@ My beloved brethren, let us follow the example of our Savior and reach out to se
 
 [^1]: See Ezra Taft Benson, in Conference Report, Apr. 1989, 3; or *Ensign,* May 1989, 4.
 
-[^2]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^2]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
 [^3]: [[Alma 29.9|Alma 29:9]].
 
-[^4]: See [[2 Thessalonians 1.4|2 Thessalonians 1:4]].
+[^4]: See [[2 Thessalonians 1.4|2 Thessalonians 1:4]].
 
 [^5]: See [[Alma 26.1|Alma 26]][[Alma 26.2|]][[Alma 26.3|]][[Alma 26.4|]][[Alma 26.5|]][[Alma 26.6|]][[Alma 26.7|]][[Alma 26.8|]][[Alma 26.9|]][[Alma 26.10|]][[Alma 26.11|]][[Alma 26.12|]][[Alma 26.13|]][[Alma 26.14|]][[Alma 26.15|]][[Alma 26.16|]][[Alma 26.17|]][[Alma 26.18|]][[Alma 26.19|]][[Alma 26.20|]][[Alma 26.21|]][[Alma 26.22|]][[Alma 26.23|]][[Alma 26.24|]][[Alma 26.25|]][[Alma 26.26|]][[Alma 26.27|]][[Alma 26.28|]][[Alma 26.29|]][[Alma 26.30|]][[Alma 26.31|]][[Alma 26.32|]][[Alma 26.33|]][[Alma 26.34|]][[Alma 26.35|]][[Alma 26.36|]][[Alma 26.37|]].
 
@@ -127,11 +127,11 @@ My beloved brethren, let us follow the example of our Savior and reach out to se
 
 [^10]: [[Proverbs 13.10|Proverbs 13:10]].
 
-[^11]: [[1 Peter 5.5|1 Peter 5:5]].
+[^11]: [[1 Peter 5.5|1 Peter 5:5]].
 
 [^12]: [[Moroni 7.44|Moroni 7:44]].
 
-[^13]: [[1 Corinthians 1.27|1 Corinthians 1:27]].
+[^13]: [[1 Corinthians 1.27|1 Corinthians 1:27]].
 
 [^14]: [[D&C 1.19|Doctrine and Covenants 1:19]].
 
@@ -159,8 +159,6 @@ My beloved brethren, let us follow the example of our Savior and reach out to se
 
 [^26]: Ezra Taft Benson, in Conference Report, Apr. 1989, 7, 6.
 
-[^27]: [[1 Timothy 6.11|1 Timothy 6:11]].
-
-
+[^27]: [[1 Timothy 6.11|1 Timothy 6:11]].
 
 #Humility #Pride #Priesthood #Service

@@ -1,6 +1,5 @@
 # Thirsty
 
-
 my flesh longeth for thee in a dry and *thirsty* land, [[Psalms 63.1|Psalms 63:1]].
 
 As cold waters to a *thirsty* soul, so is good news, [[Proverbs 25.25|Proverbs 25:25]].

@@ -1,6 +1,6 @@
 # The Greatest Thing in My Life
 
-By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
+By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -19,8 +19,6 @@ And at this time-hallowed pulpit of the prophets I wish to bear my testimony tha
 I testify that the gospel was restored by Joseph Smith in these the latter days, and that we are, today, guided and directed by a living prophet of the Lord who has my most affectionate loyalty and obedience, as do all of these great Brethren who sit before us.
 
 I offer that witness, this testimony, in the name of Jesus Christ. Amen.
-
-
 
 
 

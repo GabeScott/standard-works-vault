@@ -5,5 +5,5 @@
 [Joseph Smith History 1:48](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.48?lang=eng#p48)
 
 
-[^a]: TG [[Strength]].
-[^b]: [[Acts 9.4|Acts 9:4 (4-8).]]
+[^a]: [[Strength|TG Strength]].  
+[^b]: [[Acts 9.4|Acts 9:4 (4–8)]][[Acts 9.5|]][[Acts 9.6|]][[Acts 9.7|]][[Acts 9.8|]].  

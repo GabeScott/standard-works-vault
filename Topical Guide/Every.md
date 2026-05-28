@@ -1,6 +1,5 @@
 # Every
 
-
 *every* knee shall bow, *every* tongue, [[Isaiah 45.23|Isaiah 45:23]] ([[Romans 14.11|Romans 14:11]]).
 
 preach the gospel to *every* creature, [[Mark 16.15|Mark 16:15]].

@@ -92,7 +92,7 @@ I bear solemn testimony that God lives and is mindful of each one of us. He will
 
 This gospel does not come from man. The doctrine of the Church is not someone’s best guess as to the meaning of ancient scripture. It is the truth of heaven revealed by God Himself. I testify that Joseph Smith saw what he said he saw. He truly looked into the heavens and communed with God the Father and the Son and with angels.
 
-I bear witness that Heavenly Father speaks to those who seek Him in spirit and in truth. I have witnessed with my own eyes and joyfully testify that in our day, God speaks through His prophet, seer, and revelator, even Thomas S. Monson.
+I bear witness that Heavenly Father speaks to those who seek Him in spirit and in truth. I have witnessed with my own eyes and joyfully testify that in our day, God speaks through His prophet, seer, and revelator, even Thomas S. Monson.
 
 My dear brethren, like Nehemiah, we have a great work to do. We stand overlooking the horizon of our age. It is my fervent prayer that in spite of temptations, we will never lower our standards; that in spite of distractions, wherever they may come from, we will not lose focus on what matters most; that we will stand resolute and together, shoulder to shoulder, as we valiantly bear the banner of the Lord Jesus Christ.
 
@@ -105,9 +105,9 @@ I pray that we may be worthy of the holy priesthood of Almighty God and, to a ma
 
 [^2]: [[Romans 6.6|Romans 6:6]].
 
-[^3]: [[James 1.note27g|Joseph Smith Translation, James 1:27]].
+[^3]: [Joseph Smith Translation, James 1:27](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1?lang=eng&id=note27g#note27g).
 
-[^4]: [[1 Thessalonians 4.16|1 Thessalonians 4:16]].
+[^4]: [[1 Thessalonians 4.16|1 Thessalonians 4:16]].
 
 [^5]: [[Nehemiah 2.3|Nehemiah 2:3]].
 
@@ -125,8 +125,6 @@ I pray that we may be worthy of the holy priesthood of Almighty God and, to a ma
 
 [^12]: See [[Nehemiah 6.15|Nehemiah 6:15]].
 
-[^13]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
+[^13]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
 
-
-
-#Commitment #Priorities #Time_Management
+#Commitment #Priorities #TimeManagement

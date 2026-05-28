@@ -77,6 +77,4 @@ In a world of unrest and fear, political turmoil and moral drift, I testify that
 
 [^14]: “We Thank Thee, O God, for a Prophet,” *Hymns,* no. 19.
 
-
-
-#Prophets #Quorum_Of_The_Twelve_Apostles #Restoration #Spirituality
+#QuorumOfTheTwelveApostles #Prophets #Restoration #Spirituality

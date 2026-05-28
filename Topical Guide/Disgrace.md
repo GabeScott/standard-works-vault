@@ -1,4 +1,3 @@
 # Disgrace
 
-
-*See* [[Shame.md|Shame]]
+*See also* [[Shame.md|Shame]]

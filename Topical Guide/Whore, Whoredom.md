@@ -1,13 +1,12 @@
 # Whore, Whoredom
 
-
-*See also* [[Adulterer, Adultery.md|Adulterer]]; [[Carnal Mind.md|Carnal Mind]]; [[Filthiness, Filthy.md|Filthiness]]; [[Fornication.md|Fornication]]; [[Harlot.md|Harlot]]; [[Idolatry, Idol.md|Idolatry]]; [[Lust.md|Lust]]; [[Sexual Immorality.md|Sexual Immorality]]
+*See also* [[Adulterer.md|Adulterer]]; [[Carnal Mind.md|Carnal Mind]]; [[Filthiness.md|Filthiness]]; [[Fornication.md|Fornication]]; [[Harlot.md|Harlot]]; [[Idolatry.md|Idolatry]]; [[Lust.md|Lust]]; [[Sexual Immorality.md|Sexual Immorality]]
 
 land fall to *whoredom*, [[Leviticus 19.29|Leviticus 19:29]].
 
 not take a wife that is a *whore*, [[Leviticus 21.7|Leviticus 21:7]].
 
-Israel ... began to commit *whoredom*, [[Numbers 25.1|Numbers 25:1]].
+Israel … began to commit *whoredom*, [[Numbers 25.1|Numbers 25:1]].
 
 shall be no *whore* of the daughters of Israel, [[Deuteronomy 23.17|Deuteronomy 23:17]].
 
@@ -23,7 +22,7 @@ played the *whore* also with the Assyrians, [[Ezekiel 16.28|Ezekiel 16:28]].
 
 land hath committed great *whoredom*, [[Hosea 1.2|Hosea 1:2]].
 
-*Whoredom* and wine ... take away the heart, [[Hosea 4.11|Hosea 4:11]].
+*Whoredom* and wine … take away the heart, [[Hosea 4.11|Hosea 4:11]].
 
 spirit of *whoredoms* hath caused them to err, [[Hosea 4.12|Hosea 4:12]].
 
@@ -49,11 +48,11 @@ commit *whoredoms*, for they shall be thrust down, [[2 Nephi 9.36|2 Nephi 9:36]]
 
 they who are the *whore* of all the earth, [[2 Nephi 10.16|2 Nephi 10:16]].
 
-God hath commanded ... not commit *whoredoms*, [[2 Nephi 26.32|2 Nephi 26:32]].
+God hath commanded … not commit *whoredoms*, [[2 Nephi 26.32|2 Nephi 26:32]].
 
-because of ... *whoredoms*, they have all gone astray, [[2 Nephi 28.14|2 Nephi 28:14]].
+because of … *whoredoms*, they have all gone astray, [[2 Nephi 28.14|2 Nephi 28:14]].
 
-the *whore* ... must tumble to the earth, [[2 Nephi 28.18|2 Nephi 28:18]].
+the *whore* … must tumble to the earth, [[2 Nephi 28.18|2 Nephi 28:18]].
 
 excuse themselves in committing *whoredoms*, [[Jacob 2.23|Jacob 2:23]].
 
@@ -61,28 +60,28 @@ excuse themselves in committing *whoredoms*, [[Jacob 2.23|Jacob 2:23]].
 
 there should not be *whoredoms* committed among them, [[Jacob 3.5|Jacob 3:5]].
 
-supported ... in their *whoredoms*, by the taxes, [[Mosiah 11.6|Mosiah 11:6]].
+supported … in their *whoredoms*, by the taxes, [[Mosiah 11.6|Mosiah 11:6]].
 
-spent ... their time with *harlots*, [[Mosiah 11.14|Mosiah 11:14]].
+spent … their time with *harlots*, [[Mosiah 11.14|Mosiah 11:14]].
 
-leading away ... many ... to commit *whoredoms*, [[Alma 30.18|Alma 30:18]].
+leading away … many … to commit *whoredoms*, [[Alma 30.18|Alma 30:18]].
 
 commit *whoredoms* and all manner of wickedness, [[Helaman 6.23|Helaman 6:23]].
 
-Gentiles ... shall be filled with ... *whoredoms*, [[3 Nephi 16.10|3 Nephi 16:10]].
+Gentiles … shall be filled with … *whoredoms*, [[3 Nephi 16.10|3 Nephi 16:10]].
 
-all lyings ... and *whoredoms*, shall be done away, [[3 Nephi 21.19|3 Nephi 21:19]].
+all lyings … and *whoredoms*, shall be done away, [[3 Nephi 21.19|3 Nephi 21:19]].
 
-Turn, all ye Gentiles, from your ... *whoredoms*, [[3 Nephi 30.2|3 Nephi 30:2]].
+Turn, all ye Gentiles, from your … *whoredoms*, [[3 Nephi 30.2|3 Nephi 30:2]].
 
-there were no ... *whoredoms*, [[4 Nephi 1.16|4 Nephi 1:16]].
+there were no … *whoredoms*, [[4 Nephi 1.16|4 Nephi 1:16]].
 
-great pollutions upon the face of the earth ... *whoredoms*, [[Mormon 8.31|Mormon 8:31]].
+great pollutions upon the face of the earth … *whoredoms*, [[Mormon 8.31|Mormon 8:31]].
 
 *whoredoms*; wherefore he was cut off, [[Ether 10.11|Ether 10:11]].
 
 *whore* of all the earth, shall be cast down, [[D&C 29.21|D&C 29:21]].
 
-*whoremonger* ... shall have their part in that lake, [[D&C 63.17|D&C 63:17]].
+*whoremonger* … shall have their part in that lake, [[D&C 63.17|D&C 63:17]].
 
-persecutor of the church ... the *whore*, even Babylon, [[D&C 86.3|D&C 86:3]].
+persecutor of the church … the *whore*, even Babylon, [[D&C 86.3|D&C 86:3]].

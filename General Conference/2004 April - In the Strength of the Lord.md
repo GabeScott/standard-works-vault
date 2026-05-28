@@ -32,7 +32,7 @@ Knowing why we are tested and what the test is tells us how to get help. We have
 
 Again, the restored gospel makes plain the simple things we need to do. And it gives us confidence that the help we need will come if we do those things early and persistently, long before the moment of crisis.
 
-The first, the middle, and the last thing to do is to pray. The Savior told us how. One of the clearest instructions is in 3 Nephi:
+The first, the middle, and the last thing to do is to pray. The Savior told us how. One of the clearest instructions is in 3 Nephi:
 
 “Behold, verily, verily, I say unto you, ye must watch and pray always lest ye enter into temptation; for Satan desireth to have you, that he may sift you as wheat.
 
@@ -85,15 +85,16 @@ I know that God the Father lives. I testify that He hears and answers our every 
 
 [^2]: [[Abraham 3.25|Abraham 3:25]].
 
-[^3]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^3]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^4]: [[3 Nephi 18.18|3 Nephi 18:18–21]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]].
+[^4]: [[3 Nephi 18.18|3 Nephi 18:18–21]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]].
 
 [^5]: [[Moroni 10.3|Moroni 10:3–5]][[Moroni 10.4|]][[Moroni 10.5|]].
 
-[^6]: [[3 Nephi 10.6|3 Nephi 10:6]].
+[^6]: [[3 Nephi 10.6|3 Nephi 10:6]].
 
-[^7]: [[3 Nephi 18.22|3 Nephi 18:22]].
+[^7]: [[3 Nephi 18.22|3 Nephi 18:22]].
 
+[^8]: [[Matthew 25.21|Matthew 25:21]].
 
-#Adversity #Endurance #Prayer #Scripture_Study #Service
+#Adversity #Endurance #Prayer #ScriptureStudy #Service

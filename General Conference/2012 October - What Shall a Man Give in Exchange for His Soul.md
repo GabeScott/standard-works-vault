@@ -1,6 +1,6 @@
 # What Shall a Man Give in Exchange for His Soul?
 
-By Elder Robert C. Gay - *Of the Seventy*
+By Elder Robert C. Gay - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -42,7 +42,7 @@ He was about 10 years of age. We found out his father was dead and his mother wa
 
 As I went home that evening, I realized two great truths. First, I knew as never before that God is mindful of each of us and will never forsake us; and second, I knew that we must always hearken to the voice of the Spirit within us and go “straightway”[^15] wherever it takes us, regardless of our fears or any inconvenience.
 
-One day the disciples asked the Savior who was the greatest in the kingdom of heaven. He told them to be converted, humble, and submissive as little children. He then said, “The Son of man is come to save that which \[is\] lost.”[^16] With that one sentence, He defined our mission. We are to go to the rescue—to the lost, the last, and the least. It is not enough to avoid evil; we must “suffer his cross”[^17] and “be anxiously engaged,”[^18] helping others to conversion. With compassion and love we embrace the prodigal,[^19] answer the cries of orphans in hysteria, the pleas of those in darkness and despair,[^20] and the distress calls of family in need. “Satan need not get everyone to be like Cain or Judas,” said Elder Neal A. Maxwell. “He needs only to get able men … to see themselves as sophisticated neutrals.”[^21]
+One day the disciples asked the Savior who was the greatest in the kingdom of heaven. He told them to be converted, humble, and submissive as little children. He then said, “The Son of man is come to save that which \[is\] lost.”[^16] With that one sentence, He defined our mission. We are to go to the rescue—to the lost, the last, and the least. It is not enough to avoid evil; we must “suffer his cross”[^17] and “be anxiously engaged,”[^18] helping others to conversion. With compassion and love we embrace the prodigal,[^19] answer the cries of orphans in hysteria, the pleas of those in darkness and despair,[^20] and the distress calls of family in need. “Satan need not get everyone to be like Cain or Judas,” said Elder Neal A. Maxwell. “He needs only to get able men … to see themselves as sophisticated neutrals.”[^21]
 
 After a recent stake conference, a teenage boy approached me and asked, “Does God love me?” May our lives of service always affirm that God forsakes no one.
 
@@ -61,9 +61,9 @@ On a recent trip to Nicaragua, I noticed a plaque in the modest home of a family
 
 [^4]: [[Moses 5.16|Moses 5:16]].
 
-[^5]: A bottle of milk and its strippings (rich in cream) was at the center of a dispute between Thomas B. Marsh’s wife and Mrs. Harris, who had agreed to combine resources and make cheese. When Mrs. Harris found that Mrs. Marsh didn’t include the strippings with the milk but kept them for herself, Mrs. Harris complained, and the women quarreled. Thomas Marsh took the matter to the bishop, who sided with Mrs. Harris. It went from the bishop to the high council to the First Presidency, all of whom agreed that Mrs. Marsh was in the wrong. This drove a wedge between Thomas Marsh and the Brethren. Soon after that, Thomas Marsh testified before a Missourian magistrate that the Mormons were hostile toward the state of Missouri. (See George A. Smith, “Discourse,” *Deseret News,* Apr. 16, 1856, 44.)
+[^5]: A bottle of milk and its strippings (rich in cream) was at the center of a dispute between Thomas B. Marsh’s wife and Mrs. Harris, who had agreed to combine resources and make cheese. When Mrs. Harris found that Mrs. Marsh didn’t include the strippings with the milk but kept them for herself, Mrs. Harris complained, and the women quarreled. Thomas Marsh took the matter to the bishop, who sided with Mrs. Harris. It went from the bishop to the high council to the First Presidency, all of whom agreed that Mrs. Marsh was in the wrong. This drove a wedge between Thomas Marsh and the Brethren. Soon after that, Thomas Marsh testified before a Missourian magistrate that the Mormons were hostile toward the state of Missouri. (See George A. Smith, “Discourse,” *Deseret News,* Apr. 16, 1856, 44.)
 
-[^6]: When the Prophet Joseph Smith issued a call to Simonds Ryder to serve as a missionary, Ryder discovered that his name was spelled “Rider” in the printed revelation. He became offended, and this led to his apostasy and eventual participation in tarring and feathering the Prophet. Ryder didn’t know that Joseph Smith usually dictated revelations to his scribes and had no part in the spelling. (See Milton V. Backman Jr., *The Heavens Resound: A History of the Latter-day Saints in Ohio, 1830–1838* \[1983\], 93–94; Donald Q. Cannon and Lyndon W. Cook, eds., *Far West Record: Minutes of The Church of Jesus Christ of Latter-day Saints, 1830–1844* \[1983\], 286.)
+[^6]: When the Prophet Joseph Smith issued a call to Simonds Ryder to serve as a missionary, Ryder discovered that his name was spelled “Rider” in the printed revelation. He became offended, and this led to his apostasy and eventual participation in tarring and feathering the Prophet. Ryder didn’t know that Joseph Smith usually dictated revelations to his scribes and had no part in the spelling. (See Milton V. Backman Jr., *The Heavens Resound: A History of the Latter-day Saints in Ohio, 1830–1838* \[1983\], 93–94; Donald Q. Cannon and Lyndon W. Cook, eds., *Far West Record: Minutes of The Church of Jesus Christ of Latter-day Saints, 1830–1844* \[1983\], 286.)
 
 [^7]: In [[Genesis 25.3|Genesis 25]][[Genesis 25.17|]][[Genesis 25.18|]][[Genesis 25.19|]][[Genesis 25.20|]][[Genesis 25.21|]] we learn that Esau sells his birthright to Jacob for “bread and pottage of lentiles” ([[Genesis 25.34|verse 34]]).
 
@@ -93,10 +93,8 @@ On a recent trip to Nicaragua, I noticed a plaque in the modest home of a family
 
 [^20]: See [[Joseph Smith History 1.15|Joseph Smith—History 1:15–16]][[Joseph Smith History 1.16|]].
 
-[^21]: Neal A. Maxwell, *Deposition of a Disciple* (1976), 88.
+[^21]: Neal A. Maxwell, *Deposition of a Disciple* (1976), 88.
 
 [^22]: See [[D&C 19.38|Doctrine and Covenants 19:38]].
-
-
 
 #Humility #Repentance #Sacrifice

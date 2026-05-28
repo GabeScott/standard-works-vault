@@ -1,4 +1,3 @@
 # Ecclesiastes
 
-
-*See* [BD Ecclesiastes](https://www.churchofjesuschrist.org/study/scriptures/bd/ecclesiastes?lang=eng)
+*See also* [[BD Ecclesiastes.md|BD Ecclesiastes]]

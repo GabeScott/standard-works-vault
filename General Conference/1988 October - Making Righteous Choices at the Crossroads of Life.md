@@ -78,11 +78,11 @@ As we study our problems out in our minds, patience and pondering should have an
 
 President Joseph F. Smith gave these sobering words of advice to leaders and members of the Church to help us when making decisions. It is a statement I have had displayed in my office since becoming Presiding Bishop.
 
-“In leaders undue impatience and a gloomy mind are almost unpardonable, and it sometimes takes almost as much courage to wait as to act. It is to be hoped, then, that the leaders of God’s people, and the people themselves, will not feel that they must have at once a solution of every question that arises to disturb the even tenor of their way.” (Joseph F. Smith, *Gospel Doctrine,* Salt Lake City: Deseret Book Co., 1939, p. 156.)
+“In leaders undue impatience and a gloomy mind are almost unpardonable, and it sometimes takes almost as much courage to wait as to act. It is to be hoped, then, that the leaders of God’s people, and the people themselves, will not feel that they must have at once a solution of every question that arises to disturb the even tenor of their way.” (Joseph F. Smith, *Gospel Doctrine,* Salt Lake City: Deseret Book Co., 1939, p. 156.)
 
 And lastly, we must examine our motives. A good check and balance in decision making is to look at our motives for making our decisions. We should ask ourselves, “Are my motives selfish, or is there charity in the decision I am about to make? Is this decision in keeping with the commandments, both in the spirit and the letter of the law? Is my decision basically right, honorable, and compatible with the golden rule? Have I considered the impact of my decision on others?”
 
-“Let all your \[decisions\] be done with charity.” ([[1 Corinthians 16.14|1 Cor. 16:14]].)
+“Let all your \[decisions\] be done with charity.” ([[1 Corinthians 16.14|1 Cor. 16:14]].)
 
 Beware of fear and greed. Be aware of your true motives.
 
@@ -92,7 +92,7 @@ We make poor and irrational decisions if our decision is motivated by greediness
 
 Likewise, we make poor and irrational decisions if we are motivated by fear: fear of man, fear of not being popular, fear of failure, fear of public opinion.
 
-As Saul said to Samuel, “I have sinned: for I have transgressed the commandment of the Lord, and thy words: because I feared the people, and obeyed their voice.” ([[1 Samuel 15.24|1 Sam. 15:24]].)
+As Saul said to Samuel, “I have sinned: for I have transgressed the commandment of the Lord, and thy words: because I feared the people, and obeyed their voice.” ([[1 Samuel 15.24|1 Sam. 15:24]].)
 
 The poet Robert Frost, in the poem “The Road Not Taken,” gives us a vivid, visual image of standing at the crossroads of life, having to make a decision:
 
@@ -111,8 +111,6 @@ The poet Robert Frost, in the poem “The Road Not Taken,” gives us a vivid, v
 When we stand at the crossroads of life and must make a decision whether to go to the great and spacious building of the world’s ways or to walk the straight and narrow path that leads to eternal life, we must realize that we cannot travel *both* roads—although sometimes we try. It is difficult to come back, but we can; and our greatest satisfaction will more than likely come from taking the lonelier road which is less traveled.
 
 May the Lord bless us as we make our decisions in life to constantly keep our goal of eternal life in view. That we may study and pray each day to *know* and *understand* what is right but, more importantly, to *do* what is right; that we may have those who stand by us say, “Thee lift me, and I’ll lift thee, and we’ll ascend together,” is my prayer, in the name of Jesus Christ, amen.
-
-
 
 
 

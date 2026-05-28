@@ -67,7 +67,7 @@ I testify that it’s true and that it does matter. In the name of Jesus Christ,
 
 
 
-[^1]: In Conference Report, Apr. 1973, 72; or *Ensign,* July 1973, 48.
+[^1]: In Conference Report, Apr. 1973, [[1973 April - The True Strength of the Church.md|72]]; or *Ensign,* July 1973, 48.
 
 [^2]: [[D&C 45.9|D&C 45:9]].
 
@@ -75,10 +75,8 @@ I testify that it’s true and that it does matter. In the name of Jesus Christ,
 
 [^4]: [[John 17.3|John 17:3]].
 
-[^5]: In Conference Report, Apr. 1973, 73; or *Ensign,* July 1973, 49.
+[^5]: In Conference Report, Apr. 1973, [[1973 April - The True Strength of the Church.md|73]]; or *Ensign,* July 1973, 49.
 
 [^6]: [[Matthew 6.33|Matthew 6:33]].
-
-
 
 #Faith #Priorities

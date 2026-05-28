@@ -70,7 +70,7 @@ Brother Tuttle served twenty-eight years as a General Authority. He traveled the
 
 Few know the demanding schedule of a temple president. The day may begin at three in the morning and end only too close to that same hour.
 
-It was not that he was presiding *over* the temple but that the calling allowed him to be *in* the temple. He would have been quite content to serve under another. His feelings about that assignment were not due so much to his understanding of what a *call* is, as it was his understanding of what a *covenant* is.
+It was not that he was presiding *over* the temple but that the calling allowed him to be *in* the temple. He would have been quite content to serve under another. His feelings about that assignment were due not so much to his understanding of what a *call* is, as to his understanding of what a *covenant* is.
 
 A covenant is a sacred promise, as used in the scriptures, a solemn, enduring promise between God and man. The fulness of the gospel itself is defined as the new and everlasting covenant (see [[D&C 22.1|D&C 22:1]]; [[D&C 66.2|D&C 66:2]]).
 
@@ -104,7 +104,7 @@ Genealogies, or family histories, as I prefer to call them, are an indispensable
 
 Missionaries and those with small children may not be able to devote much time to this work at present, but you can keep the spirit of it. You can talk to the old folks and record what they say, keep family records, attend the temple.
 
-There is the tendency on the part of some to regard genealogy work as a tedious, onerous burden. And they are quite content to leave it to the aged or to others “who have an interest in such things.”
+There is the tendency on the part of some to regard genealogical work as a tedious, onerous burden. And they are quite content to leave it to the aged or to others “who have an interest in such things.”
 
 Be careful! It may well be that those who have that interest in such things have chosen the better part. And I would say to you, if you are called to other service, or do not have an interest in genealogy, do not belittle or stand in the way of those who do. Give them every encouragement; contribute what you can.
 
@@ -114,7 +114,7 @@ The Spirit of Elijah of which the prophets have spoken is very real and accompan
 
 The more I have to do with genealogical work, the more difficulty I have with that word *dead.* I know of no adequate substitute. I suppose *departed* would suit me as well as any. I have had too many sacred experiences, of the kind of which we never speak lightly, to feel that the word *dead* describes those who have gone beyond the veil.
 
-Temple and genealogy work are visible testimonies of our belief in the resurrection and atonement of the Lord Jesus Christ. Should we doubt that we live again beyond the veil, what reason would we have to do the things we are doing?
+Temple and genealogical work are visible testimonies of our belief in the resurrection and atonement of the Lord Jesus Christ. Should we doubt that we live again beyond the veil, what reason would we have to do the things we are doing?
 
 This work is our witness of the redemptive power of the sacrifice of the Lord Jesus Christ.
 
@@ -127,6 +127,4 @@ God grant that we who have an opportunity to have part in it might seek that opp
 
 
 
-
-
-#Covenants #Faith #Family_History #Prayer #Temple_Work
+#Covenants #Faith #FamilyHistory #Prayer #TempleWork

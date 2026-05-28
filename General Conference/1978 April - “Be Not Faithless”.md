@@ -1,6 +1,6 @@
 # “Be Not Faithless”
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -44,7 +44,7 @@ Believe in him who was the God of Abraham, Isaac, and Jacob, who was the source 
 
 “And the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].)
 
-Doubt not, but believe that it was he who was born to earth in a manger when there was no room in the inn. Well did an angel ask a prophet who had foreseen these things in vision: “Knowest thou the condescension of God?” ([[1 Nephi 11.16|1 Ne. 11:16]].) I suppose none of us can fully understand that—how the great Jehovah should come among men, his birth in a manger, among a hated people, in a vassal state. But at his birth there was an angelic chorus that sang of his glory. There were shepherds who worshiped him. There was a new star in the east. There were wise men who traveled far to bring tribute of gold, frankincense, and myrrh. One can surmise they touched those tiny hands in wonder and awe as they presented their gifts to the newborn king.
+Doubt not, but believe that it was he who was born to earth in a manger when there was no room in the inn. Well did an angel ask a prophet who had foreseen these things in vision: “Knowest thou the condescension of God?” ([[1 Nephi 11.16|1 Ne. 11:16]].) I suppose none of us can fully understand that—how the great Jehovah should come among men, his birth in a manger, among a hated people, in a vassal state. But at his birth there was an angelic chorus that sang of his glory. There were shepherds who worshiped him. There was a new star in the east. There were wise men who traveled far to bring tribute of gold, frankincense, and myrrh. One can surmise they touched those tiny hands in wonder and awe as they presented their gifts to the newborn king.
 
 Herod the Great, who knew of the prophecies, feared those hands and sought to destroy them, and in the horrible slaughter of the innocents brought blood upon his own hands and head.
 
@@ -88,17 +88,15 @@ At some time following his resurrection a voice was heard from the heavens among
 
 “And … they saw a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them,” declaring unto them:
 
-“Behold, I am Jesus Christ, whom the prophets testified shall come into the world.” ([[3 Nephi 11.7|3 Ne. 11:7–8, 10]][[3 Nephi 11.8|]][[3 Nephi 11.10|]].)
+“Behold, I am Jesus Christ, whom the prophets testified shall come into the world.” ([[3 Nephi 11.7|3 Ne. 11:7–8, 10]][[3 Nephi 11.8|]][[3 Nephi 11.10|]].)
 
-He invited them, as he invited Thomas, to feel his hands and side, and they were astonished and cried, “Hosanna! Blessed be the name of the Most High God!” ([[3 Nephi 11.17|3 Ne. 11:17]].)
+He invited them, as he invited Thomas, to feel his hands and side, and they were astonished and cried, “Hosanna! Blessed be the name of the Most High God!” ([[3 Nephi 11.17|3 Ne. 11:17]].)
 
 They doubted not, but believed, as have millions who have read this marvelous witness of the resurrected Lord. If there be those of you out there who are listening who know not of this fifth gospel and desire it, your request will bring it, and it will come with a promise that if you will read prayerfully you shall know of the truth of this remarkable new witness for Christ.
 
 And there is yet another testifier, for as certainly as the voice of God declared the divine Sonship of Jesus at the waters of Jordan, and again on the Mount of Transfiguration, and yet again at the Land Bountiful, even so again that same introduction was made in the opening of this gospel dispensation in a glorious vision in which God the Eternal Father and His Son Jesus Christ appeared and spoke to a young man who had come seeking, and who in the years that followed spoke as a prophet of the risen Lord, even giving his life in testimony of him who had died upon the cross.
 
 With so many evidences, and with the conviction borne in our hearts by the power of the Holy Ghost, we add in words of soberness and sincerity and love our testimony of the Lord Jesus Christ; wherefore, O man, “be not faithless, but believing” in Him who is the living Son of God, our Savior and our Redeemer, I humbly pray and testify in His holy name, even the name of Jesus Christ. Amen.
-
-
 
 
 

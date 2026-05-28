@@ -1,7 +1,6 @@
 # Confound
 
-
-let us ... *confound* their language, [[Genesis 11.7|Genesis 11:7]] ([[Omni 1.22|Omni 1:22]]; [[Mosiah 28.17|Mosiah 28:17]]).
+let us … *confound* their language, [[Genesis 11.7|Genesis 11:7]] ([[Omni 1.22|Omni 1:22]]; [[Mosiah 28.17|Mosiah 28:17]]).
 
 *Confounded* be all they that serve graven images, [[Psalms 97.7|Psalms 97:7]].
 
@@ -9,7 +8,7 @@ every founder is *confounded* by the graven image, [[Jeremiah 10.14|Jeremiah 10:
 
 the multitude came together, and were *confounded*, [[Acts 2.6|Acts 2:6]].
 
-Saul ... *confounded* the Jews which dwelt at Damascus, [[Acts 9.22|Acts 9:22]].
+Saul … *confounded* the Jews which dwelt at Damascus, [[Acts 9.22|Acts 9:22]].
 
 foolish things of the world to *confound* the wise, [[1 Corinthians 1.27|1 Corinthians 1:27]].
 

@@ -1,9 +1,8 @@
 # Avoid
 
-
 *Avoid* it, pass not by it, [[Proverbs 4.15|Proverbs 4:15]].
 
-mark them which cause divisions ... and *avoid* them, [[Romans 16.17|Romans 16:17]].
+mark them which cause divisions … and *avoid* them, [[Romans 16.17|Romans 16:17]].
 
 to *avoid* fornication, let every man have his own wife, [[1 Corinthians 7.2|1 Corinthians 7:2]].
 

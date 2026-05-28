@@ -1,6 +1,6 @@
 # Choose Wisely
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -20,7 +20,7 @@ The ball came down, and as her teammates eagerly looked on, Lucy dropped the bal
 
 This was one of many fly balls Lucy dropped through the years, and she had a new excuse each time.[^2] While always humorous, Lucy’s excuses were rationalizations; they were untrue reasons for her failure to catch the ball.
 
-During the ministry of President Thomas S. Monson, he has often taught that decisions determine destiny.[^3] In that spirit my counsel tonight is to rise above any rationalizations that prevent us from making righteous decisions, especially with respect to serving Jesus Christ. In Isaiah we are taught we must “refuse the evil, and choose the good.”[^4]
+During the ministry of President Thomas S. Monson, he has often taught that decisions determine destiny.[^3] In that spirit my counsel tonight is to rise above any rationalizations that prevent us from making righteous decisions, especially with respect to serving Jesus Christ. In Isaiah we are taught we must “refuse the evil, and choose the good.”[^4]
 
 I believe it is of particular importance in our day, when Satan is raging in the hearts of men in so many new and subtle ways, that our choices and decisions be made carefully, consistent with the goals and objectives by which we profess to live. We need unequivocal commitment to the commandments and strict adherence to sacred covenants. When we allow rationalizations to prevent us from temple endowments, worthy missions, and temple marriage, they are particularly harmful. It is heartbreaking when we profess belief in these goals yet neglect the everyday conduct required to achieve them.[^5]
 
@@ -32,11 +32,11 @@ I recently met a fine teenage young man. His goals were to go on a mission, obta
 
 My concern is not only about the big tipping-point decisions but also the middle ground—the workaday world and seemingly ordinary decisions where we spend most of our time. In these areas, we need to emphasize moderation, balance, and especially wisdom. It is important to rise above rationalizations and make the best choices.
 
-A wonderful example of the need for moderation, balance, and wisdom is the use of the Internet. It can be used to do missionary outreach, to assist with priesthood responsibilities, to find precious ancestors for sacred temple ordinances, and much more. The potential for good is enormous. We also know that it can transmit much that is evil, including pornography, digital cruelty,[^8] and anonymous yakking. It can also perpetuate foolishness. As Brother Randall L. Ridd poignantly taught at the last general conference, speaking of the Internet, “You can get caught up in endless loops of triviality that waste your time and degrade your potential.”[^9]
+A wonderful example of the need for moderation, balance, and wisdom is the use of the Internet. It can be used to do missionary outreach, to assist with priesthood responsibilities, to find precious ancestors for sacred temple ordinances, and much more. The potential for good is enormous. We also know that it can transmit much that is evil, including pornography, digital cruelty,[^8] and anonymous yakking. It can also perpetuate foolishness. As Brother Randall L. Ridd poignantly taught at the last general conference, speaking of the Internet, “You can get caught up in endless loops of triviality that waste your time and degrade your potential.”[^9]
 
 Distractions and opposition to righteousness are not just on the Internet; they are everywhere. They affect not just the youth but all of us. We live in a world that is literally in commotion.[^10] We are surrounded by obsessive portrayals of “fun and games” and immoral and dysfunctional lives. These are presented as normal conduct in much of the media.
 
-Elder David A. Bednar recently cautioned members to be authentic in the use of social media.[^11] A prominent thought leader, Arthur C. Brooks, has emphasized this point. He observes that when using social media, we tend to broadcast the smiling details of our lives but not the hard times at school or work. We portray an incomplete life—sometimes in a self-aggrandizing or fake way. We share this life, and then we consume the “almost exclusively … fake lives of \[our\] social media ‘friends.’” Brooks asserts, “How could it not make you feel worse to spend part of your time pretending to be happier than you are, and the other part of your time seeing how much happier others seem to be than you?”[^12]
+Elder David A. Bednar recently cautioned members to be authentic in the use of social media.[^11] A prominent thought leader, Arthur C. Brooks, has emphasized this point. He observes that when using social media, we tend to broadcast the smiling details of our lives but not the hard times at school or work. We portray an incomplete life—sometimes in a self-aggrandizing or fake way. We share this life, and then we consume the “almost exclusively … fake lives of \[our\] social media ‘friends.’” Brooks asserts, “How could it not make you feel worse to spend part of your time pretending to be happier than you are, and the other part of your time seeing how much happier others seem to be than you?”[^12]
 
 Sometimes it feels like we are drowning in frivolous foolishness, nonsensical noise, and continuous contention. When we turn down the volume and examine the substance, there is very little that will assist us in our eternal quest toward righteous goals. One father wisely responds to his children with their numerous requests to participate in these distractions. He simply asks them, “Will this make you a better person?”
 
@@ -46,7 +46,7 @@ I am particularly concerned with foolishness[^13] and being obsessed with “eve
 
 When the Apostle Paul was invited to speak on Mars Hill in Athens, he found some of the same intellectual pretension and absence of true wisdom that exist today.[^15] In Acts we read this account: “For all the Athenians and strangers which were there spent their time in nothing else, but either to tell, or to hear some new thing.”[^16] Paul’s emphasis was the Resurrection of Jesus Christ. When the crowd realized the religious nature of his message, some mocked him; others essentially dismissed him, saying, “We will hear thee again of this matter.”[^17] Paul left Athens *without any success.* Dean Frederic Farrar wrote of this visit: “At Athens he founded no church, to Athens he wrote no epistle, and in Athens, often as he passed its neighbourhood, he never set foot again.”[^18]
 
-I believe Elder Dallin H. Oaks’s inspired message distinguishing between “good, better, best” provides an effective way to evaluate choices and priorities.[^19] Many choices are not inherently evil, but if they absorb all of our time and keep us from the best choices, then they become insidious.
+I believe Elder Dallin H. Oaks’s inspired message distinguishing between “good, better, best” provides an effective way to evaluate choices and priorities.[^19] Many choices are not inherently evil, but if they absorb all of our time and keep us from the best choices, then they become insidious.
 
 Even worthwhile endeavors need evaluation in order to determine if they have become distractions from the best goals. I had a memorable discussion with my father when I was a teenager. He did not believe enough young people were focused on or preparing for long-term important goals—like employment and providing for families.
 
@@ -73,7 +73,7 @@ My prayer is that as a body of priesthood holders, we will make our conduct cons
 
 [^2]: From the moons of Saturn distracting her to worrying about possible toxic substances in her glove, Lucy always rationalized why she dropped the ball.
 
-[^3]: See “Decisions Determine Destiny,” chapter 8 in *Pathways to Perfection: Discourses of Thomas S. Monson* (1973), 57–65.
+[^3]: See “Decisions Determine Destiny,” chapter 8 in *Pathways to Perfection: Discourses of Thomas S. Monson* (1973), 57–65.
 
 [^4]: [[Isaiah 7.15|Isaiah 7:15]].
 
@@ -83,21 +83,21 @@ My prayer is that as a body of priesthood holders, we will make our conduct cons
 
 [^7]: See *Adjusting to Missionary Life* (booklet, 2013), 23–49.
 
-[^8]: See Stephanie Rosenbloom, “Dealing with Digital Cruelty,” *New York Times,* Aug. 24, 2014, SR1.
+[^8]: See Stephanie Rosenbloom, “Dealing with Digital Cruelty,” *New York Times,* Aug. 24, 2014, SR1.
 
-[^9]: Randall L. Ridd, “The Choice Generation,” *Ensign* or *Liahona,* May 2014, 56.
+[^9]: Randall L. Ridd, “The Choice Generation,” *Ensign* or *Liahona,* May 2014, 56.
 
 [^10]: See [[D&C 45.26|Doctrine and Covenants 45:26]].
 
-[^11]: See David A. Bednar, “To Sweep the Earth as with a Flood” (speech delivered at BYU Campus Education Week, Aug. 19, 2014); [lds.org/prophets-and-apostles/unto-all-the-world/to-sweep-the-earth-as-with-a-flood](https://churchofjesuschrist.org/study/manual/how-to-share/sweep-as-with-a-flood?lang=eng).
+[^11]: See David A. Bednar, “To Sweep the Earth as with a Flood” (speech delivered at BYU Campus Education Week, Aug. 19, 2014); [lds.org/prophets-and-apostles/unto-all-the-world/to-sweep-the-earth-as-with-a-flood](https://www.churchofjesuschrist.org/study/manual/how-to-share/sweep-as-with-a-flood?lang=eng).
 
-[^12]: Arthur C. Brooks, “Love People, Not Pleasure,” *New York Times,* July 20, 2014, SR1.
+[^12]: Arthur C. Brooks, “Love People, Not Pleasure,” *New York Times,* July 20, 2014, SR1.
 
 [^13]: Unfortunately, one diversion that has increased in our day is pure foolishness. When the Savior enumerated some of the things that can defile man, He included foolishness (see [[Mark 7.22|Mark 7:22]]).
 
 [^14]: This happened in ancient Greece and Rome, as well as with the Book of Mormon civilizations.
 
-[^15]: See Frederic W. Farrar, *The Life and Work of St. Paul* (1898), 302. There were philosophers of all kinds, including Epicureans and Stoics, rival groups who some described as the Pharisees and the Sadducees of the pagan world. See also Quentin L. Cook, [“Looking beyond the Mark,”](https://churchofjesuschrist.org/study/ensign/2003/03/looking-beyond-the-mark?lang=eng) *Ensign,* Mar. 2003, 41–44; *Liahona,* Mar. 2003, 21–24.
+[^15]: See Frederic W. Farrar, *The Life and Work of St. Paul* (1898), 302. There were philosophers of all kinds, including Epicureans and Stoics, rival groups who some described as the Pharisees and the Sadducees of the pagan world. See also Quentin L. Cook, “[Looking beyond the Mark](https://www.churchofjesuschrist.org/study/ensign/2003/03/looking-beyond-the-mark?lang=eng),” *Ensign,* Mar. 2003, 41–44; *Liahona,* Mar. 2003, 21–24.
 
 [^16]: [[Acts 17.21|Acts 17:21]].
 
@@ -105,16 +105,14 @@ My prayer is that as a body of priesthood holders, we will make our conduct cons
 
 [^18]: Farrar, *The Life and Work of St. Paul,* 312.
 
-[^19]: See Dallin H. Oaks, [“Good, Better, Best,”](https://churchofjesuschrist.org/study/ensign/2007/11/good-better-best?lang=eng) *Ensign* or *Liahona,* Nov. 2007, 104–8.
+[^19]: See Dallin H. Oaks, “[Good, Better, Best](https://www.churchofjesuschrist.org/study/ensign/2007/11/good-better-best?lang=eng),” *Ensign* or *Liahona,* Nov. 2007, 104–8.
 
-[^20]: Merlin Olsen was a hall of fame football player, actor, and NFL commentator for NBC. He won the Outland Trophy playing football for Utah State University. He played pro football for the Los Angeles Rams. On TV he played Jonathan Garvey opposite Michael Landon on *Little House on the Prairie* and had his own TV program, *Father Murphy.* Merlin is now deceased (Mar. 11, 2010), and we miss him very much.
+[^20]: Merlin Olsen was a hall of fame football player, actor, and NFL commentator for NBC. He won the Outland Trophy playing football for Utah State University. He played pro football for the Los Angeles Rams. On TV he played Jonathan Garvey opposite Michael Landon on *Little House on the Prairie* and had his own TV program, *Father Murphy.* Merlin is now deceased (Mar. 11, 2010), and we miss him very much.
 
 [^21]: See [[D&C 76.5|Doctrine and Covenants 76:5]].
 
 [^22]: See [[Alma 34.32|Alma 34:32]].
 
 [^23]: [[D&C 76.79|Doctrine and Covenants 76:79]].
-
-
 
 #Agency

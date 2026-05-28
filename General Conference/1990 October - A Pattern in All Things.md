@@ -24,7 +24,7 @@ God is truly loving and kind. Part of his pattern is to help us use our gift of 
 
 It is no secret that Satan wages open war with the truth and all those who live righteous lives. He deceives with skill and effectiveness even his own followers. He would have us give up, quit, rebel when setbacks come. Sometimes in life when we are committed to and are following proper patterns, we experience heavy bumps and anxious hours. Many times true winners in life are those who have been hurt and disappointed but have risen above these challenges. Very often in life, God gives us difficulties to bring out the best in us. It is true, life does not determine winners. Winners determine life.
 
-The great Olympic slogan says that the glory of the Olympic Games is not in the victory, but in taking part—taking part like a man. Grantland Rice once wrote, “When the One Great Scorer comes to write against your name, he marks—not that you won or lost—but how you played the game” (in *The Home Book of Quotations,* 8th ed., sel. Burton Stevenson \[New York: Dodd, Mead and Co., 1956\], p. 754).
+The great Olympic slogan says that the glory of the Olympic Games is not in the victory, but in taking part—taking part like a man. Grantland Rice once wrote, “When the One Great Scorer comes to write against your name, he marks—not that you won or lost—but how you played the game” (in *The Home Book of Quotations,* 8th ed., sel. Burton Stevenson \[New York: Dodd, Mead and Co., 1956\], p. 754).
 
 Satan has a way of wrapping enticing diversions with ribbons, bows, and fancy coverings. Inside are immorality, self-destruction, and substandard culture temptations. His established pattern is to deceive at all costs. His calls to “live it up,” “enjoy the ‘now,’” “go for it,” “do your own thing,” and yield to peer pressures are some of his available enticements for the susceptible in the days and hours to come. He cunningly uses damaging deceit in its most dastardly form. He would have us forget that the essential thing in life is not conquering, but steadfast commitment to righteous patterns.
 
@@ -32,7 +32,7 @@ Satan is the author of all programs that dress up evil and wrong to whet our app
 
 Why does a loving God permit children he truly loves to be tempted by Satan and his ways? We have the answer from a great prophet-teacher:
 
-“Wherefore, the Lord God gave unto man that he should act for himself. Wherefore, man could not act for himself save it should be that he was enticed by the one or the other” ([[2 Nephi 2.16|2 Ne. 2:16]]).
+“Wherefore, the Lord God gave unto man that he should act for himself. Wherefore, man could not act for himself save it should be that he was enticed by the one or the other” ([[2 Nephi 2.16|2 Ne. 2:16]]).
 
 Avoid Satan’s territory of deceit. It will never lead to happiness. Evidence to the contrary, there are no successful sinners. All of us must one day stand before God and be judged according to our personal deeds done in the flesh. The burdens of the sinner will never be lighter than that of the saint. Be not deceived by the lures of Satan. God is at the helm and is grieved when we, his children, stray from proven paths of enduring happiness and righteousness. He would have us hold fast to the iron rod with total commitment and strength.
 
@@ -75,8 +75,6 @@ Be not deceived. God is not mocked. He knows what is best for his children and t
 “For behold, it is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant; wherefore he receiveth no reward” ([[D&C 58.26|D&C 58:26]]).
 
 Instead of our being commanded in all things, we are given a pattern in all things. The choice to use these safe paths is ours. God help us to follow his patterns and reap the rewards he has in store for the obedient, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

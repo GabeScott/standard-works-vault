@@ -1,6 +1,6 @@
 # Introductory Message
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -14,7 +14,7 @@ Our Saturday sessions have a history of different purposes and different audienc
 
 For now, this Saturday evening meeting is a session of general conference, not a session of any organization. Like all sessions of general conference, the planning, speakers, and music are designated by the First Presidency.
 
-We have asked President Jean B. Bingham, General President of the Relief Society, to conduct this session. Future Saturday evening sessions may be conducted by one of the other General Officers of the Church, such as members of the General Presidencies of Relief Society, Young Women, and Primary, designated by the First Presidency.
+We have asked President Jean B. Bingham, General President of the Relief Society, to conduct this session. Future Saturday evening sessions may be conducted by one of the other General Officers of the Church, such as members of the General Presidencies of Relief Society, Young Women, and Primary, designated by the First Presidency.
 
 Tonight this Saturday evening session of general conference will concentrate on the concerns of Latter-day Saint women. This will include the doctrine of The Church of Jesus Christ of Latter-day Saints, the policies of the Church that relate specially to women, and the general responsibilities and work of the organizations that include the women and girls of the Church. Though this session is deliberately broadcast to a worldwide audience like all sessions of general conference, the audience invited to be present in the Conference Center for this session is women and girls age 12 and older. We have included some priesthood leaders who preside over the participating organizations.
 
@@ -27,6 +27,4 @@ This is the work of the Lord Jesus Christ. We are His servants, directed by His 
 
 
 
-
-
-#Church_Doctrine #General_Conference #Women
+#ChurchDoctrine #GeneralConference #Women

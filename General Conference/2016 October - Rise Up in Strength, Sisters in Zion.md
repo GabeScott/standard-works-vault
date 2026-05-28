@@ -1,6 +1,6 @@
 # Rise Up in Strength, Sisters in Zion
 
-By Bonnie L. Oscarson - *Young Women General President*
+By Bonnie L. Oscarson - *Young Women General President*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -10,7 +10,7 @@ By Bonnie L. Oscarson - *Young Women General President*
 
 What joy it is to be gathered in this Conference Center with the girls, young women, and women of the Church. We are also very aware that there are thousands of other groups of sisters, gathered throughout the world, watching these proceedings, and I’m grateful for the opportunity and means that allow us to join together in unity and purpose this evening.
 
-In October 2006, President Gordon B. Hinckley gave a talk entitled “Rise Up, O Men of God,” named after a hymn written in 1911.[^1] It was a call to action for the men of the Church to rise up and improve themselves. That talk has echoed in my mind as I have prayed to know what to share with you.
+In October 2006, President Gordon B. Hinckley gave a talk entitled “Rise Up, O Men of God,” named after a hymn written in 1911.[^1] It was a call to action for the men of the Church to rise up and improve themselves. That talk has echoed in my mind as I have prayed to know what to share with you.
 
 Sisters, we live in “perilous times.”[^2] The conditions of our day should not be a surprise to us. They have been foretold for millennia as a warning and admonition so that we can be prepared. The [[Mormon 8.1|8th chapter of Mormon]][[Mormon 8.2|]][[Mormon 8.3|]][[Mormon 8.4|]][[Mormon 8.5|]][[Mormon 8.6|]][[Mormon 8.7|]][[Mormon 8.8|]][[Mormon 8.9|]][[Mormon 8.10|]][[Mormon 8.11|]][[Mormon 8.12|]][[Mormon 8.13|]][[Mormon 8.14|]][[Mormon 8.15|]][[Mormon 8.16|]][[Mormon 8.17|]][[Mormon 8.18|]][[Mormon 8.19|]][[Mormon 8.20|]][[Mormon 8.21|]][[Mormon 8.22|]][[Mormon 8.23|]][[Mormon 8.24|]][[Mormon 8.25|]][[Mormon 8.26|]][[Mormon 8.27|]][[Mormon 8.28|]][[Mormon 8.29|]][[Mormon 8.30|]][[Mormon 8.31|]][[Mormon 8.32|]][[Mormon 8.33|]][[Mormon 8.34|]][[Mormon 8.35|]][[Mormon 8.36|]][[Mormon 8.37|]][[Mormon 8.38|]][[Mormon 8.39|]][[Mormon 8.40|]][[Mormon 8.41|]] gives a disconcertingly accurate description of the conditions of our day. In this chapter, Moroni says he has seen our day, and it includes wars and rumors of wars, great pollutions, murders, robbing, and people who tell us that there is no right or wrong in God’s eyes. He describes people who are filled with pride, caught up in the wearing of expensive clothing, and who make fun of religion. He is shown people who are so obsessed with worldly things that they allow “the needy, and the naked, and the sick and the afflicted to pass by”[^3] without being noticed.
 
@@ -18,9 +18,9 @@ Moroni asks a soul-searching question of us—we who are living in these times. 
 
 Joseph Smith—Matthew indicates that in the last days even the “very elect … according to the covenant”[^5] will be deceived. Those of the covenant include the girls, young women, and sisters of the Church who have been baptized and made covenants with their Heavenly Father. Even *we* are at risk of being deceived by false teachings.
 
-Sisters, I don’t believe that conditions are going to improve going forward. If current trends are an indication, we need to be prepared for the storms that lie ahead. It would be easy to throw our hands up in despair, but as covenant people we need never despair. As Elder Gary E. Stevenson has said, “Heavenly Father’s generous compensation for living in perilous times is that we also live in the fulness of times.”[^6] I love the comfort of that statement.
+Sisters, I don’t believe that conditions are going to improve going forward. If current trends are an indication, we need to be prepared for the storms that lie ahead. It would be easy to throw our hands up in despair, but as covenant people we need never despair. As Elder Gary E. Stevenson has said, “Heavenly Father’s generous compensation for living in perilous times is that we also live in the fulness of times.”[^6] I love the comfort of that statement.
 
-President Russell M. Nelson told us a year ago: “Attacks against the Church, its doctrine, and our way of life are going to increase. Because of this, we need women who have a bedrock understanding of the doctrine of Christ and who will use that understanding to teach and help raise a sin-resistant generation. We need women who can detect deception in all of its forms. We need women who know how to access the power that God makes available to covenant keepers and who express their beliefs with confidence and charity. We need women who have the courage and vision of our Mother Eve.”[^7]
+President Russell M. Nelson told us a year ago: “Attacks against the Church, its doctrine, and our way of life are going to increase. Because of this, we need women who have a bedrock understanding of the doctrine of Christ and who will use that understanding to teach and help raise a sin-resistant generation. We need women who can detect deception in all of its forms. We need women who know how to access the power that God makes available to covenant keepers and who express their beliefs with confidence and charity. We need women who have the courage and vision of our Mother Eve.”[^7]
 
 This message reassures me that despite the conditions of our day, we have many reasons to rejoice and be optimistic. I believe with all of my heart that we sisters do have the innate strength and faith that will allow us to meet the challenges of living in the last days. Sister Sheri Dew has written, “I believe that the moment we learn to unleash the full influence of converted, covenant-keeping women, the kingdom of God will change overnight.”[^8]
 
@@ -57,7 +57,7 @@ I love the gospel of Jesus Christ, and I am eternally grateful for the direction
 
 [^1]: See “Rise Up, O Men of God,” *Hymns,* no. 324.
 
-[^2]: [[2 Timothy 3.1|2 Timothy 3:1]].
+[^2]: [[2 Timothy 3.1|2 Timothy 3:1]].
 
 [^3]: [[Mormon 8.39|Mormon 8:39]]; see also [[Mormon 8.26|verses 26–38]][[Mormon 8.27|]][[Mormon 8.28|]][[Mormon 8.29|]][[Mormon 8.30|]][[Mormon 8.31|]][[Mormon 8.32|]][[Mormon 8.33|]][[Mormon 8.34|]][[Mormon 8.35|]][[Mormon 8.36|]][[Mormon 8.37|]][[Mormon 8.38|]].
 
@@ -65,9 +65,9 @@ I love the gospel of Jesus Christ, and I am eternally grateful for the direction
 
 [^5]: [[Joseph Smith Matthew 1.22|Joseph Smith—Matthew 1:22]].
 
-[^6]: Gary E. Stevenson, “[[2015 October - Plain and Precious Truths.md|Plain and Precious Truths]],” *Ensign* or *Liahona,* Nov. 2015, 92.
+[^6]: Gary E. Stevenson, “[[2015 October - Plain and Precious Truths.md|Plain and Precious Truths]],” *Ensign* or *Liahona,* Nov. 2015, 92.
 
-[^7]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 97.
+[^7]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 97.
 
 [^8]: Sheri Dew, *Women and the Priesthood: What One Mormon Woman Believes* (2013), 163.
 
@@ -77,5 +77,6 @@ I love the gospel of Jesus Christ, and I am eternally grateful for the direction
 
 [^11]: See [[D&C 109.22|Doctrine and Covenants 109:22]].
 
+[^12]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-#Adversity #Covenants #Jesus_Christ #Plan_Of_Salvation #Restoration #Teaching #Temples #Women
+#Adversity #Covenants #JesusChrist #PlanOfSalvation #Restoration #Teaching #Temples #Women

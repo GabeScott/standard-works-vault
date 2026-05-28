@@ -1,7 +1,6 @@
 # Plead
 
-
-*See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Beseech, Besought.md|Beseech]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]
+*See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Beseech.md|Beseech]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]
 
 Will ye *plead* for Baal, [[Judges 6.31|Judges 6:31]].
 
@@ -19,11 +18,11 @@ nor any *pleadeth* for truth, [[Isaiah 59.4|Isaiah 59:4]].
 
 by his sword will the Lord *plead* with all flesh, [[Isaiah 66.16|Isaiah 66:16]].
 
-with your children's children will I *plead*, [[Jeremiah 2.9|Jeremiah 2:9]].
+with your children’s children will I *plead*, [[Jeremiah 2.9|Jeremiah 2:9]].
 
 he will *plead* with all flesh, [[Jeremiah 25.31|Jeremiah 25:31]].
 
-Redeemer ... shall throughly *plead* their cause, [[Jeremiah 50.34|Jeremiah 50:34]].
+Redeemer … shall throughly *plead* their cause, [[Jeremiah 50.34|Jeremiah 50:34]].
 
 there will I *plead* with you face to face, [[Ezekiel 20.35|Ezekiel 20:35]].
 
@@ -37,9 +36,9 @@ God *pleadeth* the cause of his people, [[2 Nephi 8.22|2 Nephi 8:22]].
 
 I *pleaded* before the Father for them, [[D&C 38.4|D&C 38:4]].
 
-Listen to him ... who is *pleading* your cause, [[D&C 45.3|D&C 45:3]].
+Listen to him … who is *pleading* your cause, [[D&C 45.3|D&C 45:3]].
 
-Lord, will ... *plead* with her strong ones, [[D&C 90.36|D&C 90:36]].
+Lord, will … *plead* with her strong ones, [[D&C 90.36|D&C 90:36]].
 
 *plead* the cause of the poor and the needy, [[D&C 124.75|D&C 124:75]].
 

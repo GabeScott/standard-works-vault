@@ -1,6 +1,5 @@
 # Congregation
 
-
 *See also* [[Assembly for Worship.md|Assembly for Worship]]; [[Church.md|Church]]; [[Meetings.md|Meetings]]
 
 rulers of the *congregation* came and told Moses, [[Exodus 16.22|Exodus 16:22]].
@@ -25,4 +24,4 @@ let them preach by the way in every *congregation*, [[D&C 52.10|D&C 52:10]].
 
 among the *congregations* of the wicked, [[D&C 60.8|D&C 60:8]] ([[D&C 61.30|D&C 61:30]]).
 
-Adam stood up in the ... *congregation*, [[D&C 107.56|D&C 107:56]].
+Adam stood up in the … *congregation*, [[D&C 107.56|D&C 107:56]].

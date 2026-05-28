@@ -1,4 +1,3 @@
 # Borne
 
-
-*See* [[Bear, Bare, Born, Borne [verb].md|Bear [verb]]]
+*See also* [[Bear [verb].md|Bear [verb]]]

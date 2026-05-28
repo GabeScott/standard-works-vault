@@ -1,6 +1,6 @@
 # The Name of the Church Is Not Negotiable
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -8,9 +8,9 @@ By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/10/58andersen?lang=eng)
 
-In a press conference on August 16, 2018, President Russell M. Nelson said: “The Lord has impressed upon my mind the importance of the name He has revealed for His Church, even The Church of Jesus Christ of Latter-day Saints.[^1] We have work before us to bring ourselves in harmony with His will.”[^2]
+In a press conference on August 16, 2018, President Russell M. Nelson said: “The Lord has impressed upon my mind the importance of the name He has revealed for His Church, even The Church of Jesus Christ of Latter-day Saints.[^1] We have work before us to bring ourselves in harmony with His will.”[^2]
 
-Two days later, on August 18, I was with President Nelson in Montreal, Canada. Following our member meeting in the impressive Palais de Congrés, President Nelson answered questions from reporters. He acknowledged that it was “going to be a challenge to \[reestablish the name of the Church and\] undo \[a\] tradition of more than a hundred years.” But, he added, “the name of the Church is not negotiable.”[^3]
+Two days later, on August 18, I was with President Nelson in Montreal, Canada. Following our member meeting in the impressive Palais de Congrés, President Nelson answered questions from reporters. He acknowledged that it was “going to be a challenge to \[reestablish the name of the Church and\] undo \[a\] tradition of more than a hundred years.” But, he added, “the name of the Church is not negotiable.”[^3]
 
 Seven weeks later, President Nelson spoke in general conference: “The Lord impressed upon my mind the importance of the name He decreed for His Church, even The Church of Jesus Christ of Latter-day Saints. … It was the Savior Himself who said, ‘For thus shall my church be called.’” Then President Nelson repeated, “The name of the Church is not negotiable.”[^4]
 
@@ -38,13 +38,13 @@ Brother Lauri Ahola from the eastern United States admits that at times he finds
 
 An acquaintance asked, “Are you a Mormon?”
 
-“‘I am a member of The Church of Jesus Christ of Latter-day Saints, yes,’ I said. He started asking me several questions, each beginning with: ‘Does the Mormon Church believe … ?’ And each time, I began my answer with the phrase: ‘In the restored Church of \[Jesus\] Christ, we believe …’
+“‘I am a member of The Church of Jesus Christ of Latter-day Saints, yes,’ I said. He started asking me several questions, each beginning with: ‘Does the Mormon Church believe … ?’ And each time, I began my answer with the phrase: ‘In the restored Church of \[Jesus\] Christ, we believe …’
 
 “… When he noticed that I wasn’t accepting the title ‘Mormon,’ he asked me point-blank, ‘Are you not Mormon?’
 
 “So I asked him if he knew who Mormon was—he didn’t. I told him that Mormon was a prophet … \[and I was\] honored to be associated with \[him\].
 
-“‘But,’ I continued, ‘Mormon didn’t die for my sins. Mormon didn’t … suffer in Gethsemane or die on the cross \[for me\]. … Jesus Christ is my God and my Savior. … And it is by His name that I want to be known. …’
+“‘But,’ I continued, ‘Mormon didn’t die for my sins. Mormon didn’t … suffer in Gethsemane or die on the cross \[for me\]. … Jesus Christ is my God and my Savior. … And it is by His name that I want to be known. …’
 
 “… After a few seconds of silence, \[the acquaintance exclaimed\], ‘So, you are a Christian!’”[^13]
 
@@ -98,55 +98,53 @@ Ten-year-old Iriura Jean resolved to follow the counsel of President Nelson.
 
 “The name of the Church is not negotiable.” Let us go forward in faith. When we willingly follow the counsel of the Lord as revealed through His living prophet, especially if it runs counter to our initial thinking, requiring humility and sacrifice, the Lord blesses us with additional spiritual power and sends His angels to support us and stand by us.[^21] We receive the Lord’s affirmation and His approval.
 
-I am an eyewitness to the power of heaven that rests upon our beloved prophet, President Russell M. Nelson. His most sincere desire is to please the Lord and bless our Heavenly Father’s children. From sacred, personal experience, I testify of the Lord’s love for him. He is the prophet of God.
+I am an eyewitness to the power of heaven that rests upon our beloved prophet, President Russell M. Nelson. His most sincere desire is to please the Lord and bless our Heavenly Father’s children. From sacred, personal experience, I testify of the Lord’s love for him. He is the prophet of God.
 
 I witness that Jesus is the Christ, the Son of God. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See [[3 Nephi 27.7|3 Nephi 27:7–9]][[3 Nephi 27.8|]][[3 Nephi 27.9|]]; [[D&C 115.4|Doctrine and Covenants 115:4]].
+[^1]: See [[3 Nephi 27.7|3 Nephi 27:7–9]][[3 Nephi 27.8|]][[3 Nephi 27.9|]]; [[D&C 115.4|Doctrine and Covenants 115:4]].
 
-[^2]: Russell M. Nelson, in “[The Name of the Church](https://newsroom.churchofjesuschrist.org/article/name-of-the-church),” Newsroom, Aug. 16, 2018, newsroom.ChurchofJesusChrist.org.
+[^2]: Russell M. Nelson, in “[The Name of the Church](https://newsroom.churchofjesuschrist.org/article/name-of-the-church),” Newsroom, Aug. 16, 2018, newsroom.ChurchofJesusChrist.org.
 
-[^3]: “[President Nelson Discusses the Name of the Church](https://newsroom.churchofjesuschrist.org/article/president-nelson-discusses-church-name-canada),” Newsroom, Aug. 21, 2018, newsroom.ChurchofJesusChrist.org.
+[^3]: “[President Nelson Discusses the Name of the Church](https://newsroom.churchofjesuschrist.org/article/president-nelson-discusses-church-name-canada),” Newsroom, Aug. 21, 2018, newsroom.ChurchofJesusChrist.org.
 
-[^4]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87.
+[^4]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87.
 
-[^5]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94.
+[^5]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94.
 
 [^6]: [[D&C 64.32|Doctrine and Covenants 64:32]].
 
-[^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 137.
+[^7]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng)* (2007), 137.
 
-[^8]: [[2 Nephi 27.26|2 Nephi 27:26]].
+[^8]: [[2 Nephi 27.26|2 Nephi 27:26]].
 
-[^9]: [[1 Nephi 15.18|1 Nephi 15:18]].
+[^9]: [[1 Nephi 15.18|1 Nephi 15:18]].
 
 [^10]: [[D&C 101.17|Doctrine and Covenants 101:17]].
 
-[^11]: Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 114.
+[^11]: Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 114.
 
-[^12]: See Henry B. Eyring, “[Thus Shall My Church Be Called](https://churchofjesuschrist.org/study/liahona/2021/10/thus-shall-my-church-be-called?lang=eng),” *Liahona*, Oct. 2021, 6–9.
+[^12]: See Henry B. Eyring, “[Thus Shall My Church Be Called](https://www.churchofjesuschrist.org/study/liahona/2021/10/thus-shall-my-church-be-called?lang=eng),” *Liahona*, Oct. 2021, 6–9.
 
-[^13]: Lauri Ahola, “[Using the Full Name of the Church Was Awkward but Worth It](https://churchofjesuschrist.org/study/liahona/2020/04/digital-only-young-adults/using-the-full-name-of-the-church-was-awkward-but-worth-it?lang=eng&id=p2#p2)” (digital-only article), *Liahona*, Apr. 2020, ChurchofJesusChrist.org.
+[^13]: Lauri Ahola, “[Using the Full Name of the Church Was Awkward but Worth It](https://www.churchofjesuschrist.org/study/liahona/2020/04/digital-only-young-adults/using-the-full-name-of-the-church-was-awkward-but-worth-it?lang=eng&id=p2#p2)” (digital-only article), *Liahona*, Apr. 2020, ChurchofJesusChrist.org.
 
-[^14]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” 89.
+[^14]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” 89.
 
 [^15]: The Church’s Intellectual Property Office had been monitoring the domain name of ChurchofJesusChrist.org since 2006, and it had not been available. It was remarkable that it was offered for sale about the same time as President Nelson’s announcement, and the Church purchased the domain name at a very modest amount.
 
 [^16]: In the October 2018 general conference, President Nelson said:
 
-[^17]: Russell M. Nelson, “[[2020 April - Opening the Heavens for Help.md|Opening the Heavens for Help]],” *Ensign* or *Liahona*, May 2020, 73.
+[^17]: Russell M. Nelson, “[[2020 April - Opening the Heavens for Help.md|Opening the Heavens for Help]],” *Ensign* or *Liahona*, May 2020, 73.
 
-[^18]: See Tad Walch, “‘If We Can’t Get Along, It’s Downright Sinful’: The Partnership between Catholics and Latter-day Saints,” *Deseret News*, July 1, 2021, deseret.com.
+[^18]: See Tad Walch, “‘If We Can’t Get Along, It’s Downright Sinful’: The Partnership between Catholics and Latter-day Saints,” *Deseret News*, July 1, 2021, deseret.com.
 
-[^19]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” 89.
+[^19]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” 89.
 
-[^20]: “[The Correct Name of the Church: A Tahitian Story](https://news-nz.churchofjesuschrist.org/article/using-correct-name-of-the-church-leads-to-baptism),” Pacific Newsroom, Sept. 15, 2019, news-nz.ChurchofJesusChrist.org.
+[^20]: “[The Correct Name of the Church: A Tahitian Story](https://news-nz.churchofjesuschrist.org/article/using-correct-name-of-the-church-leads-to-baptism),” Pacific Newsroom, Sept. 15, 2019, news-nz.ChurchofJesusChrist.org.
 
 [^21]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-
-
-#Jesus_Christ #Name_Of_Church #Revelation
+#JesusChrist #NameOfChurch #Revelation

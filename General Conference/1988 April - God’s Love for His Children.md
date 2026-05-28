@@ -18,12 +18,12 @@ Each rose is a compact chemical-processing factory. Using sunlight, the green le
 
 This experience led me to consider the myriad forms of plant and animal life that thrive in astounding balance upon the earth. My esteem for our little roses took on an element of wonder and reverence. I pondered the power of the creative genius who lovingly provided such marvels for his children. I thought then how important it is for every human soul to see and appreciate the glory and grandeur of God in everything about us. Into my mind came the words and message of a beautiful hymn:
 
->*When thru the woods and forest glades I wander,*
->*And hear the birds sing sweetly in the trees,*
->*When I look down from lofty mountain grandeur*
->*And hear the brook and feel the gentle breeze,*
->*Then sings my soul, my Savior God, to thee,*
->*How great thou art! How great thou art!*
+>When thru the woods and forest glades I wander,
+>And hear the birds sing sweetly in the trees,
+>When I look down from lofty mountain grandeur
+>And hear the brook and feel the gentle breeze,
+>Then sings my soul, my Savior God, to thee,
+>How great thou art! How great thou art!
 >
 
 I felt a deep reverence for both the creation and the Creator. *Reverence* may be defined as a profound respect mingled with love and awe. Other words that add to our understanding of reverence include *gratitude, honor, veneration,* and *admiration.* The root word *revere* also implies an element of fear. Thus, reverence might be understood to mean an attitude of profound respect and love with a desire to honor and show gratitude, with a fear of breaking faith or offending.
@@ -36,10 +36,10 @@ Astronauts viewing the earth from space have stated how incredibly beautiful it 
 
 Again, the words of the hymn came to mind:
 
->*O Lord my God, when I in awesome wonder*
->*Consider all the worlds thy hands have made,*
->*I see the stars, I hear the rolling thunder,*
->*Thy pow’r thruout the universe displayed;*
+>O Lord my God, when I in awesome wonder
+>Consider all the worlds thy hands have made,
+>I see the stars, I hear the rolling thunder,
+>Thy pow’r thruout the universe displayed;
 >
 
 The psalmist wrote, “When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained;
@@ -48,9 +48,9 @@ The psalmist wrote, “When I consider thy heavens, the work of thy fingers, the
 
 “For thou hast made him a little lower than the angels, and hast crowned him with glory and honour” ([[Psalms 8.3|Ps. 8:3–5]][[Psalms 8.4|]][[Psalms 8.5|]]).
 
-The Lord gave an answer to the psalmist’s question; it is recorded in the book of Moses: “For mine own purpose have I made these things. …
+The Lord gave an answer to the psalmist’s question; it is recorded in the book of Moses: “For mine own purpose have I made these things. …
 
-“And by the word of my power, have I created them. …
+“And by the word of my power, have I created them. …
 
 “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man” ([[Moses 1.31|Moses 1:31–32, 39]][[Moses 1.32|]][[Moses 1.39|]]).
 
@@ -88,18 +88,19 @@ Can you imagine what an impact following this instruction would have on society 
 
 Many people, I fear, never come to understand that the commandments of God are for our benefit and that as we sow, so shall we reap.
 
-Our return to our Heavenly Father is through his Son, Jesus Christ. Jesus told his disciples, “I am the way, the truth, and the life: no man cometh unto the Father, but by me” ([[John 14.6|John 14:6]]). He instructed us to keep his commandments if we love him ([[John 14.15|John 14:15]]). He taught further that “He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him” ([[John 14.21|John 14:21]]).
+Our return to our Heavenly Father is through his Son, Jesus Christ. Jesus told his disciples, “I am the way, the truth, and the life: no man cometh unto the Father, but by me” ([[John 14.6|John 14:6]]). He instructed us to keep his commandments if we love him (see [[John 14.15|v. 15]]). He taught further that “He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him” ([[John 14.21|v. 21]]).
 
 In the atonement and the resurrection of Jesus Christ, we can glimpse the reality of his divine mission to redeem all who will come unto him and will honor and reverence God, our Eternal Father.
 
-We may begin to understand the depths of Christ’s love for us when we consider that he was willing to atone and suffer the pain for our sins, “which suffering caused \[him\], even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit” ([[D&C 19.18|D&C 19:18]]). Nevertheless, he gave glory to his Father and partook and finished his preparations unto the children of men ([[D&C 19.19|D&C 19:19]]).
+We may begin to understand the depths of Christ’s love for us when we consider that he was willing to atone and suffer the pain for our sins, “which suffering caused \[him\], even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit” ([[D&C 19.18|D&C 19:18]]). Nevertheless, he gave glory to his Father and partook and finished his preparations unto the children of men (see [[D&C 19.19|v. 19]]).
 
 The crowning words of the inspired hymn continue:
 
->*And when I think that God, his Son not sparing,*
->*Sent him to die, I scarce can take it in,*
->*That on the cross my burden gladly bearing*
->*He bled and died to take away my sin,*
+>And when I think that God, his Son not sparing,
+>Sent him to die, I scarce can take it in,
+>That on the cross my burden gladly bearing
+>He bled and died to take away my sin,
+>*How great thou art! How great thou art!*
 >
 
 Brothers and sisters, on this Easter Sunday, let us give special thanks to God for the atonement and resurrection of his beloved Son, Jesus Christ. For in him, by him, and through him, this temporary mortal condition can be made into a permanent, perfect existence, for which words cannot express our joy.
@@ -115,6 +116,4 @@ We invite all men and women everywhere to know of the restoration of the gospel,
 
 
 
-
-
-#Creation #God_The_Father #Jesus_Christ #Resurrection
+#Creation #GodTheFather #JesusChrist #Resurrection

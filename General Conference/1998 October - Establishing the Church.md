@@ -39,13 +39,13 @@ Now is the time to establish the Lord’s Church by securing a confirmation of t
 
 
 
-[^1]: [[3 Nephi 21.1|3 Ne. 21:1]].
+[^1]: [[3 Nephi 21.1|3 Ne. 21:1]].
 
 [^2]: [[D&C 138.44|D&C 138:44]].
 
 [^3]: [[D&C 10.53|D&C 10:53]].
 
-[^4]: In Conference Report, Apr. 1978, 122; or *Ensign,* May 1978, 81.
+[^4]: In Conference Report, Apr. 1978, [[1978 April - Becoming the Pure in Heart.md|122]]; or *Ensign,* May 1978, 81.
 
 [^5]: Anonymous.
 
@@ -53,6 +53,4 @@ Now is the time to establish the Lord’s Church by securing a confirmation of t
 
 [^7]: In Conference Report, Oct. 1954, 28.
 
-
-
-#Blessings #Church_Organization #Jesus_Christ #Plan_Of_Salvation #Scripture_Study
+#Blessings #ChurchOrganization #JesusChrist #PlanOfSalvation #ScriptureStudy

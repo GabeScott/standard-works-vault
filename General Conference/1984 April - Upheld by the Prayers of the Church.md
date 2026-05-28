@@ -28,13 +28,13 @@ May I suggest to all of the Church, and particularly to you young people and you
 
 “For we have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin.” ([[Hebrews 4.15|Heb. 4:15]].)
 
-I think it was C. S. Lewis—I believe he was quoting George MacDonald—who said that we are like a house. When Christ comes in, it hurts abominably. We knew the roof and the gutters needed fixing, Lewis said, but all of a sudden we find that he starts putting up a new story here, and he shoots out a new wing there. We knew that the cottage needed fixing and those things needed doing, but this? (See *Mere Christianity,* New York: MacMillan Publishing Co., 1943, p. 174.)
+I think it was C. S. Lewis—I believe he was quoting George MacDonald—who said that we are like a house. When Christ comes in, it hurts abominably. We knew the roof and the gutters needed fixing, Lewis said, but all of a sudden we find that he starts putting up a new story here, and he shoots out a new wing there. We knew that the cottage needed fixing and those things needed doing, but this? (See *Mere Christianity,* New York: MacMillan Publishing Co., 1943, p. 174.)
 
 Well, Christ’s love can be tough. What is he trying to do with us? In his best-seller, *The Road Less Traveled* (New York: Simon and Schuster, 1978), Dr. M. Scott Peck said that no matter how much we may pussyfoot around it, all who ask the question “What is God’s love leading to?” come to a single terrifying conclusion: God wants us to become like himself. We are being prepared for godhood, and it hurts; it hurts abominably, but there is peace.
 
 In those early morning hours, there came to my mind the theme from Ralph Rodgers’s play *III Nephi:*
 
->I feel my Savior’s love in all the world around me. …
+>I feel my Savior’s love in all the world around me. …
 >He knows I will follow him, give all my life to him.
 >I feel the Savior’s love, the love He freely gives me.
 >
@@ -44,6 +44,4 @@ On behalf of these brethren who have joined me, we pledge our energy, our love, 
 
 
 
-
-
-#Church_History #Prayer
+#ChurchHistory #Prayer

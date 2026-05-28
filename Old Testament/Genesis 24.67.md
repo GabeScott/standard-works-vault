@@ -5,5 +5,5 @@
 [Genesis 24:67](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.67?lang=eng#p67)
 
 
-[^a]: [[Comfort|TG Comfort]].
-[^b]: [[Genesis 23.2|Gen. 23:2]].
+[^a]: [[Comfort|TG Comfort]].  
+[^b]: [[Genesis 23.2|Gen. 23:2]].  

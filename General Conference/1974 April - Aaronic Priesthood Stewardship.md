@@ -1,6 +1,6 @@
 # Aaronic Priesthood Stewardship
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -8,7 +8,7 @@ By Bishop Victor L. Brown - *Presiding Bishop*
 
 My dear brethren, I am deeply grateful to President Kimball for the opportunity to speak with you tonight. I think I would not be far wrong in estimating that approximately 90 percent of the bishops of the Church are present somewhere in this meeting tonight. I would hope that about the same percentage of Aaronic Priesthood quorum presidencies are present with their bishops. It is to the bishops and quorum presidencies I wish to direct my remarks.
 
-At a meeting in the Salt Lake Temple, called by the First Presidency and attended by the Quorum of the Twelve and some of the other General Authorities on April 9, 1972, President Harold B. Lee charged the Presiding Bishopric with our responsibility in the following words:
+At a meeting in the Salt Lake Temple, called by the First Presidency and attended by the Quorum of the Twelve and some of the other General Authorities on April 9, 1972, President Harold B. Lee charged the Presiding Bishopric with our responsibility in the following words:
 
 “Now to the Presiding Bishopric, there are two great divisions of the priesthood as spelled out in the 107th section of the Doctrine and Covenants, the Melchizedek Priesthood and the Aaronic Priesthood. The ecclesiastical title of those who head the Melchizedek Priesthood is the First Presidency, but their priesthood title is the Presidency of the High Priesthood of the Church. The title Presiding Bishopric is your ecclesiastical title, but your priesthood title is the Presidency of the Aaronic Priesthood of the whole Church. Having that in mind then, you must have clearly in mind that first and foremost of all responsibilities you have is to look after the Aaronic Priesthood. … You will help to bring the focus of the time to young men of these critical ages; and when we refer to the young men, we mean the girls also. We can’t save the boys without the girls. So all through your ministry remember, nothing should be secondary to placing great emphasis on the work of the Aaronic Priesthood, to work with the auxiliaries to see to it that they function in an auxiliary capacity, but always with the thought in mind of magnifying the priesthood and of making certain that no auxiliary takes ascendancy over the priesthood.”
 
@@ -26,7 +26,7 @@ Evidence that this change was divine is just now beginning to break over the hor
 
 In my remarks tonight, I have nothing new to introduce, but if the Lord will bless me, I will attempt to discuss some of the basic principles of the program.
 
-The guiding principle upon which we base all our efforts was given us by the Prophet Joseph Smith in response to a question of how he governed his people. As you know, he said, “I teach them correct principles, and they govern themselves.” (*Priesthood and Church Government,* comp. John A. Widtsoe, Deseret Book Co., 1939, p. 100.) In all we and our associates, the general presidencies and their boards, are doing, we are merely trying to teach correct principles, adding a few suggestions and letting you stake presidencies, bishoprics, branch presidencies, and Aaronic Priesthood quorum presidencies govern yourselves.
+The guiding principle upon which we base all our efforts was given us by the Prophet Joseph Smith in response to a question of how he governed his people. As you know, he said, “I teach them correct principles, and they govern themselves.” (*Priesthood and Church Government,* comp. John A. Widtsoe, Deseret Book Co., 1939, p. 100.) In all we and our associates, the general presidencies and their boards, are doing, we are merely trying to teach correct principles, adding a few suggestions and letting you stake presidencies, bishoprics, branch presidencies, and Aaronic Priesthood quorum presidencies govern yourselves.
 
 A moment ago I quoted President Lee’s charge to the Presiding Bishopric. Except for scope, that same charge applies to every bishopric in the Church. As you bishops were ordained and set apart, in addition to being set apart as the bishop of your ward, you were set apart as the president of the priests quorum of your ward and, with your counselors, as the presidency of the Aaronic Priesthood of your ward. As President Lee said, this is your priesthood title, and it is “first and foremost of all responsibilities.” He further stated, “When we refer to the young men, we mean the girls also.” In other words, the youth of your wards are your first and foremost responsibility.
 
@@ -51,8 +51,6 @@ The lives and influences of these young people justify the faith the Lord has in
 There is another responsibility you bishops have that transcends all others that I feel impelled to mention, and that is the responsibility to your families. A bishop’s wife carries an unusual responsibility in the home. May I caution you to be extra sensitive to her needs. Remember President McKay’s counsel, “No success can compensate for failure in the home.” (*Conference Report,* April 1964, p. 5.)
 
 The bishops’ responsibilities are heavy. However, with proper delegation and careful organization of your time, it is possible to successfully discharge your responsibilities to your family, as well as to the Lord. May your wives and your children and all of the youth over whom you preside be blessed with your wise and sound stewardship, I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

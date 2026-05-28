@@ -76,7 +76,7 @@ I testify that Brother and Sister Lambert, with thousands of faithful couples wh
 
 “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” ([[D&C 18.15|D&C 18:15]].)
 
-Finally, I would like to share with you one more interesting experience, which Brother and Sister Edwin Q. Cannon, Jr., had on their mission in West Africa.
+Finally, I would like to share with you one more interesting experience, which Brother and Sister Edwin Q. Cannon, Jr., had on their mission in West Africa.
 
 The story concerns an outstanding black Latter-day Saint family by the name of Sampson-Davis, who reside in Accra, Ghana.
 
@@ -99,6 +99,4 @@ I humbly pray that the missionary spirit will be with us all in the time ahead a
 
 
 
-
-
-#Missionary_Work
+#MissionaryWork

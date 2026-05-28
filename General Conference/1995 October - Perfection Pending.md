@@ -64,9 +64,9 @@ In latter-day revelation, the Lord was even more explicit. His prophet wrote: �
 
 Our climb up the path to perfection is aided by encouragement from the scriptures. They hold the promise that we shall, if faithful in all things, become like Deity. John the beloved Apostle wrote:
 
-“We should be called the sons \[and daughters\] of God. …
+“We should be called the sons \[and daughters\] of God. …
 
-“… When he shall appear, we shall be like him; for we shall see him as he is.
+“… When he shall appear, we shall be like him; for we shall see him as he is.
 
 “And every man that hath this hope in him purifieth himself, even as he is pure.”[^33]
 
@@ -86,16 +86,16 @@ The *perfect* man described in Paul’s quotation is the completed person—*tel
 
 Moroni taught how to gain this glorious objective. His instruction stands in any age as an antidote for depression and a prescription for joy. I echo his plea: “Come unto Christ, and be perfected in him, and deny yourselves of all ungodliness; … love God with all your might, mind and strength. … \[Then\] ye may be perfect in Christ, … holy, \[and\] without spot.”[^39]
 
-Meanwhile, brothers and sisters, let us do the best we can and try to improve each day. When our imperfections appear, we can keep trying to correct them. We can be more forgiving of flaws in ourselves and among those we love. We can be comforted and forbearing. The Lord taught, “Ye are not able to abide the presence of God now … ; wherefore, continue in patience until ye are perfected.”[^40]
+Meanwhile, brothers and sisters, let us do the best we can and try to improve each day. When our imperfections appear, we can keep trying to correct them. We can be more forgiving of flaws in ourselves and among those we love. We can be comforted and forbearing. The Lord taught, “Ye are not able to abide the presence of God now … ; wherefore, continue in patience until ye are perfected.”[^40]
 
 We need not be dismayed if our earnest efforts toward perfection now seem so arduous and endless. Perfection is pending. It can come in full only after the Resurrection and only through the Lord. It awaits all who love Him and keep His commandments. It includes thrones, kingdoms, principalities, powers, and dominions.[^41] It is the end for which we are to endure.[^42] It is the eternal perfection that God has in store for each of us. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Those words were given additional intensity in the Joseph Smith Translation: “Ye are therefore commanded to be perfect, even as your Father who is in heaven is perfect” ([[Matthew 5.note48a|JST, Matt. 5:50]]).
+[^1]: Those words were given additional intensity in the Joseph Smith Translation: “Ye are therefore commanded to be perfect, even as your Father who is in heaven is perfect” ([JST, Matt. 5:50](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5?lang=eng&id=note48a#note48a)).
 
-[^2]: See [[2 Nephi 2.25|2 Ne. 2:25]].
+[^2]: See [[2 Nephi 2.25|2 Ne. 2:25]].
 
 [^3]: See [[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]].
 
@@ -113,7 +113,7 @@ We need not be dismayed if our earnest efforts toward perfection now seem so ard
 
 [^10]: Incidentally, the feminine form of this noun is *teleia,* the Greek term for a period at the *end* of a sentence.
 
-[^11]: Footnote *b* for [[Matthew 5.48|Matthew 5:48]] states: “gr complete, finished, fully developed” (LDS edition of the King James Version of the Bible \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1979\], p. 1195).
+[^11]: Footnote *b* for [[Matthew 5.48|Matthew 5:48]] states: “gr complete, finished, fully developed” (LDS edition of the King James Version of the Bible \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1979\], p. 1195).
 
 [^12]: A few examples include:
 
@@ -127,7 +127,7 @@ We need not be dismayed if our earnest efforts toward perfection now seem so ard
 
 [^17]: See [[Moses 1.39|Moses 1:39]].
 
-[^18]: See [[3 Nephi 27.13|3 Ne. 27:13]].
+[^18]: See [[3 Nephi 27.13|3 Ne. 27:13]].
 
 [^19]: See [[Moses 4.1|Moses 4:1–2]][[Moses 4.2|]]; [[Moses 7.62|7:62]]; [[Abraham 3.22|Abr. 3:22–28]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]][[Abraham 3.28|]].
 
@@ -135,7 +135,7 @@ We need not be dismayed if our earnest efforts toward perfection now seem so ard
 
 [^21]: [[John 19.30|John 19:30]]. In modern revelation, Jesus used similar language. He said, “I partook and *finished* my preparations unto the children of men” ([[D&C 19.19|D&C 19:19]]; emphasis added).
 
-[^22]: [[3 Nephi 12.48|3 Ne. 12:48]]; emphasis added.
+[^22]: [[3 Nephi 12.48|3 Ne. 12:48]]; emphasis added.
 
 [^23]: See [[Matthew 5.48|Matt. 5:48]].
 
@@ -143,29 +143,29 @@ We need not be dismayed if our earnest efforts toward perfection now seem so ard
 
 [^25]: See [[Leviticus 17.11|Lev. 17:11]].
 
-[^26]: “A resurrection means to become immortal, without blood, yet with a body of flesh and bone” (LDS Bible Dictionary, [p. 761](https://churchofjesuschrist.org/study/scriptures/bd/resurrection?lang=eng)).
+[^26]: “A resurrection means to become immortal, without blood, yet with a body of flesh and bone” (LDS Bible Dictionary, “[[BD Resurrection|Resurrection]],”p. 761).
 
-[^27]: See Joseph Fielding Smith, *The Way to Perfection* (Salt Lake City: Genealogical Society of Utah, 1946), p. 331; Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (Salt Lake City: Bookcraft, 1966), p. 237.
+[^27]: See Joseph Fielding Smith, *The Way to Perfection* (Salt Lake City: Genealogical Society of Utah, 1946), p. 331; Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (Salt Lake City: Bookcraft, 1966), p. 237.
 
-[^28]: Joseph Smith taught, “Being born again, comes by the Spirit of God through ordinances” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 162).
+[^28]: Joseph Smith taught, “Being born again, comes by the Spirit of God through ordinances” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 162).
 
-[^29]: See Joseph Fielding Smith, *Doctrines of Salvation,* 3 vols., comp. Bruce R. McConkie, 3 vols. (Salt Lake City: Bookcraft, 1954–56), 2:45.
+[^29]: See Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (Salt Lake City: Bookcraft, 1954–56), 2:45.
 
 [^30]: [[Hebrews 11.40|Heb. 11:40]]; emphasis added.
 
 [^31]: *Teleioo*
 
-[^32]: [[D&C 128.15|D&C 128:15]]; see also *Teachings of the Prophet Joseph Smith,* p. 159.
+[^32]: [[D&C 128.15|D&C 128:15]]; see also *Teachings of the Prophet Joseph Smith,* p. 159.
 
-[^33]: [[1 John 3.1|1 Jn. 3:1–3]][[1 John 3.2|]][[1 John 3.3|]]. For additional commentary, see Joseph Fielding Smith, *The Way to Perfection,* pp. 7–9.
+[^33]: [[1 John 3.1|1 Jn. 3:1–3]][[1 John 3.2|]][[1 John 3.3|]]. For additional commentary, see Joseph Fielding Smith, *The Way to Perfection,* pp. 7–9.
 
-[^34]: [[1 Peter 1.16|1 Pet. 1:16]]; see also [[Leviticus 11.44|Lev. 11:44–45]][[Leviticus 11.45|]]; [[Leviticus 19.2|19:2]]; [[Leviticus 20.26|20:26]].
+[^34]: [[1 Peter 1.16|1 Pet. 1:16]]; see also [[Leviticus 11.44|Lev. 11:44–45]][[Leviticus 11.45|]]; [[Leviticus 19.2|19:2]]; [[Leviticus 20.26|20:26]].
 
-[^35]: [[3 Nephi 27.27|3 Ne. 27:27]].
+[^35]: [[3 Nephi 27.27|3 Ne. 27:27]].
 
-[^36]: See Neal A. Maxwell, *We Talk of Christ, We Rejoice in Christ* (Salt Lake City: Deseret Book Co., 1984), p. 145; Hugh B. Brown, *The Abundant Life* (Salt Lake City: Bookcraft, 1965), p. 199.
+[^36]: See Neal A. Maxwell, *We Talk of Christ, We Rejoice in Christ* (Salt Lake City: Deseret Book Co., 1984), p. 145; Hugh B. Brown, *The Abundant Life* (Salt Lake City: Bookcraft, 1965), p. 199.
 
-[^37]: [[3 Nephi 12.48|3 Ne. 12:48]].
+[^37]: [[3 Nephi 12.48|3 Ne. 12:48]].
 
 [^38]: [[Ephesians 4.12|Eph. 4:12–13]][[Ephesians 4.13|]]; emphasis added.
 
@@ -177,6 +177,4 @@ We need not be dismayed if our earnest efforts toward perfection now seem so ard
 
 [^42]: This concept is supported by the fact that in verses of the New Testament that refer to the *end* for which we are to endure, the Greek word from which *end* was translated was also derived from *telos* (see [[Matthew 10.22|Matt. 10:22]]; [[Matthew 24.13|24:13]]; [[Mark 13.13|Mark 13:13]]).
 
-
-
-#Atonement #Commandments #Example #Forgiveness #Jesus_Christ #Joy #Plan_Of_Salvation #Resurrection #Temples
+#Atonement #Commandments #Example #Forgiveness #Joy #JesusChrist #PlanOfSalvation #Resurrection #Temples

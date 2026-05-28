@@ -14,7 +14,7 @@ We declare to the world that the heavens are not closed. God continues to reveal
 
 Sometimes we define the communication of God’s will as revelation. Sometimes we refer to such communication as inspiration. Revelation, however, is a much broader term. While inspiration can properly be considered as revelation, revelation can also include visions, dreams, the spoken word, or other spiritual manifestations. Elder Talmage explained:
 
-“*Revelation* signifies the making known of divine truth by communication from the heavens. …
+“*Revelation* signifies the making known of divine truth by communication from the heavens. …
 
 “The word *inspiration* is sometimes invested with a \[significance\] almost identical with that of *revelation,* though by origin and early usage it possessed a distinctive meaning. To inspire is literally to animate with the spirit; a man is inspired when under the influence of a power other than his own. Divine inspiration may be regarded as a lower or less directly intensive operation of spiritual influence upon man than is … revelation. The difference therefore is rather one of degree than of kind.”[^2]
 
@@ -42,7 +42,7 @@ One example is the Lord’s directions to the children of Israel as they journey
 
 “But thou shalt appoint the Levites over the tabernacle of testimony, and over all the vessels thereof, and over all things that belong to it: they shall bear the tabernacle, and all the vessels thereof; and they shall minister unto it, and shall encamp round about the tabernacle.
 
-“And when the tabernacle setteth forward, the Levites shall take it down: and when the tabernacle is to be pitched, the Levites shall set it up. …
+“And when the tabernacle setteth forward, the Levites shall take it down: and when the tabernacle is to be pitched, the Levites shall set it up. …
 
 “And the children of Israel shall pitch their tents, every man by his own camp, and every man by his own standard, throughout their hosts.
 
@@ -66,7 +66,7 @@ After a period of pleading for forgiveness from the Lord, Moses was instructed t
 
 “Write thou these words: for after the tenor of these words I have made a covenant with thee and with Israel.
 
-“… And he wrote upon the tables the words of the covenant, the ten commandments.”[^12]
+“… And he wrote upon the tables the words of the covenant, the ten commandments.”[^12]
 
 Thus the Ten Commandments were given to mankind to follow and use throughout their lives. Obedience finally brought the law of the Lord to the children of Israel. Disobedience only delayed the progress of the children of Israel toward their promised land. They had to be worthy to receive the law of the Lord.
 
@@ -137,16 +137,14 @@ God grant that we may always have the will and the courage to be obedient to Him
 
 [^12]: [[Exodus 34.27|Exodus 34:27–28]][[Exodus 34.28|]].
 
-[^13]: See [[3 Nephi 15.5|3 Nephi 15:5]].
+[^13]: See [[3 Nephi 15.5|3 Nephi 15:5]].
 
 [^14]: [[D&C 59.5|D&C 59:5–13]][[D&C 59.6|]][[D&C 59.7|]][[D&C 59.8|]][[D&C 59.9|]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]][[D&C 59.13|]].
 
-[^15]: [[1 Nephi 4.13|1 Nephi 4:13]].
+[^15]: [[1 Nephi 4.13|1 Nephi 4:13]].
 
-[^16]: [[1 Nephi 4.14|1 Nephi 4:14]].
+[^16]: [[1 Nephi 4.14|1 Nephi 4:14]].
 
-[^17]: [[1 Nephi 4.15|1 Nephi 4:15–16]][[1 Nephi 4.16|]].
+[^17]: [[1 Nephi 4.15|1 Nephi 4:15–16]][[1 Nephi 4.16|]].
 
-
-
-#Commandments #Holy_Ghost #Obedience #Prophets #Spirituality
+#Commandments #HolyGhost #Obedience #Prophets #Spirituality

@@ -1,6 +1,6 @@
 # Miracles of the Gospel of Jesus Christ
 
-By Elder Carlos G. Revillo Jr. - *Of the Seventy*
+By Elder Carlos G. Revillo Jr. - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -8,9 +8,9 @@ By Elder Carlos G. Revillo Jr. - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/10/56revillo?lang=eng)
 
-*Mabuhay*! I bring to you love and warm smiles from the wonderful Saints of the Philippines. This year marks 60 years since the first missionaries arrived in the islands of the Philippines. Today there are 23 missions and more than 800,000 members of the Church in 123 stakes. There are now seven temples in operation, under construction, or announced. This is truly a miracle. We are witnessing the fulfillment of the prophecy in [[2 Nephi 10.21|2 Nephi 10:21]]: “Great are the promises of the Lord unto them who are upon the isles of the sea.”
+*Mabuhay*! I bring to you love and warm smiles from the wonderful Saints of the Philippines. This year marks 60 years since the first missionaries arrived in the islands of the Philippines. Today there are 23 missions and more than 800,000 members of the Church in 123 stakes. There are now seven temples in operation, under construction, or announced. This is truly a miracle. We are witnessing the fulfillment of the prophecy in [[2 Nephi 10.21|2 Nephi 10:21]]: “Great are the promises of the Lord unto them who are upon the isles of the sea.”
 
-This miracle is also a fulfillment of the prophecy given in a prayer by then-Elder Gordon B. Hinckley in Manila in 1961. In that prayer, Elder Hinckley stated: “We invoke Thy blessings upon the people of this land, that they shall be friendly and hospitable and kind and gracious to those who shall come here, and that many, yea, Lord, we pray that there shall be \[many,\] many thousands who shall receive this message and be blessed thereby. Wilt Thou bless them with receptive minds and understanding hearts, and with faith to receive, and with courage to live the principles of the gospel” (dedicatory prayer at American War Memorial Cemetery, Philippines, Apr. 28, 1961).
+This miracle is also a fulfillment of the prophecy given in a prayer by then-Elder Gordon B. Hinckley in Manila in 1961. In that prayer, Elder Hinckley stated: “We invoke Thy blessings upon the people of this land, that they shall be friendly and hospitable and kind and gracious to those who shall come here, and that many, yea, Lord, we pray that there shall be \[many,\] many thousands who shall receive this message and be blessed thereby. Wilt Thou bless them with receptive minds and understanding hearts, and with faith to receive, and with courage to live the principles of the gospel” (dedicatory prayer at American War Memorial Cemetery, Philippines, Apr. 28, 1961).
 
 Beyond the many, many thousands of faithful Latter-day Saints, the miracle of the gospel has brought positive changes to the country and its people. I am a living witness of this. I was six years old when my parents joined the Church in the southern island of Mindanao. At that time, there was only one mission in the entire country and no stakes. I am eternally grateful for my parents’ courage and commitment to follow the Savior. I honor them and all the pioneers of the Church in the Philippines. They paved the way for the succeeding generations to be blessed.
 
@@ -24,7 +24,7 @@ The Obedoza family is a great example of this. Brother Obedoza was my branch pre
 
 They were sealed as a family for time and all eternity in the temple in 1985. In the temple they found joy incomparable—their priceless pearl. And true to Brother Obedoza’s words, the Lord did provide. On their return from Manila, kind acquaintances gave them places to stay, and they eventually acquired their own home. The Lord takes care of those who demonstrate their faith in Him.
 
-The second principle of the gospel is repentance. Repentance is turning away from sin and turning to God for forgiveness. It is a change of mind and heart. As President Russell M. Nelson teaches, it is “doing and being a little better each day” (“[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67).
+The second principle of the gospel is repentance. Repentance is turning away from sin and turning to God for forgiveness. It is a change of mind and heart. As President Russell M. Nelson teaches, it is “doing and being a little better each day” (“[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67).
 
 Repentance is a lot like soap. As a young chemical engineer, I worked in a soap factory in the Philippines. I learned how to make soap and the process of how it works. When you mix oils with an alkali base and add antibacterial agents, it creates a powerful substance that can eliminate bacteria and viruses. Like soap, repentance is a cleaning agent. It allows us the opportunity to get rid of our impurities and our old debris so we are worthy to be with God, as “no unclean thing can inherit the kingdom of \[God\]” ([[Alma 11.37|Alma 11:37]]).
 
@@ -41,6 +41,4 @@ I testify of the reality of Jesus Christ and that He lives and loves each one of
 
 
 
-
-
-#Church_Growth #Conversion #Covenants #Faith #Jesus_Christ #Miracles #Repentance
+#ChurchGrowth #Conversion #Covenants #Faith #JesusChrist #Miracles #Repentance

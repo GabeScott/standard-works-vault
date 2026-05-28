@@ -1,6 +1,6 @@
 # He Took Him by the Hand
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -10,7 +10,7 @@ Last evening in our priesthood meeting President Lee recalled some of the blessi
 
 She was neatly dressed, with her head held just a little higher than would seem to be usual. Her eyes were still dropping meaningful tears following the soul-stirring closing Sunday afternoon session. In her best limited English—and incidently I don’t know now and I didn’t know then from which country she came, and it made no difference then, it makes no difference now except to say that she was one of us—as she shook my hand she said, “President Lee has lifted my soul to new heights. I feel I can now walk in strength beyond my own.”
 
-This touching declaration reminded me of a similar quotation found in the book of Mark: “… Jesus took him by the hand, and lifted him up; and he arose.” ([[Mark 9.27|Mark 9:27]].)
+This touching declaration reminded me of a similar quotation found in the book of Mark: “… Jesus took him by the hand, and lifted him up; and he arose.” ([[Mark 9.27|Mark 9:27]].)
 
 Certainly the day is here when, if we are to follow in his paths, we must take the weary, lonely, depressed, the troubled soul, and the gospel-hungry by the hand and lift and help. Yes, we also need to lift the dishonest, the self-condemning, and those who have chosen expediency over correct principles. Countless numbers today will be able to take their first steps in the right direction when we are willing to provide the lift of confidence and encouragement and give them back that self-respect spoken of by President Lee in the opening session of this conference and to help others retain that self-respect.
 
@@ -20,15 +20,15 @@ Today we can appropriately add, “I was down and ye lifted me up. My soul was s
 
 How beautiful in the eyes of the Lord are the spiritually well, those who have been taken by the hand and lifted up and made spiritually whole. How beautiful in the eyes of the Lord are those who take the time to lift the needy hand. Peace of mind only comes to us when we are spiritually healed. True joy comes from within. Freedom from a troubled soul is a worthy goal of all.
 
-Many were healed physically from ailments and suffering during the Savior’s ministry, but real joy and happiness were not always realized. People may be healed but not lifted. Happiness does not come from physical, social, or economic success. “… a man’s life consisteth not in the abundance of the things which he possesseth.” ([[Luke 12.15|Luke 12:15]].)
+Many were healed physically from ailments and suffering during the Savior’s ministry, but real joy and happiness were not always realized. People may be healed but not lifted. Happiness does not come from physical, social, or economic success. “… a man’s life consisteth not in the abundance of the things which he possesseth.” ([[Luke 12.15|Luke 12:15]].)
 
-Frequently the Savior admonished the physically healed to boast not of their new strength, but rather to go their ways, walking in truth and using their new powers to lift others. Evidence teaches us many were healed physically but remained undisciplined and spiritually ill. “… return unto me, and repent of your sins, and be converted, that I may heal you” ([[3 Nephi 9.13|3 Ne. 9:13]]), the Savior said.
+Frequently the Savior admonished the physically healed to boast not of their new strength, but rather to go their ways, walking in truth and using their new powers to lift others. Evidence teaches us many were healed physically but remained undisciplined and spiritually ill. “… return unto me, and repent of your sins, and be converted, that I may heal you” ([[3 Nephi 9.13|3 Ne. 9:13]]), the Savior said.
 
 Healings are not to be made the subject of pride and boasting. Rather, healings should be used to lift self and others to greater heights and service. May we not appropriately conclude the lift can be more important than the healing.
 
 Certainly the greatest miracles of our day are the lifting and healing of troubled souls. Spiritual strength is a priceless possession available to those who will endure in righteousness. The healing of the troubled soul gives health and strength to those dead in things righteous. Purity, faith, hope, and charity are restored, making the once spiritually sick whole.
 
-This healing comes through conversion to truth and adherence to correct principles. We have the scriptural promise that Christ “shall rise from the dead, with healing in his wings; and all those who shall believe on his name shall be saved in the kingdom of God. …” ([[2 Nephi 25.13|2 Ne. 25:13]].)
+This healing comes through conversion to truth and adherence to correct principles. We have the scriptural promise that Christ “shall rise from the dead, with healing in his wings; and all those who shall believe on his name shall be saved in the kingdom of God. …” ([[2 Nephi 25.13|2 Ne. 25:13]].)
 
 Spiritual death and spiritual sickness vanish for those who would be healed by him and his atoning sacrifice.
 
@@ -84,7 +84,7 @@ Worthy Latter-day Saint marriages are forever, and as we cleave to the one most 
 
 If we keep the commandments of God and walk hand in hand with him in his paths, Satan cannot touch us. Faithful members of the Church do not have to walk alone. The troubled soul need not find its way back alone. God’s hand is available to all if we will but reach out and up.
 
-“… Jesus took him \[one possessed of a foul spirit\] by the hand, and lifted him up; and he arose.
+“… Jesus took him \[one possessed of a foul spirit\] by the hand, and lifted him up; and he arose.
 
 “And when he \[Jesus\] was come into the house, his disciples asked him privately, Why could not we cast him out?
 
@@ -92,9 +92,7 @@ If we keep the commandments of God and walk hand in hand with him in his paths, 
 
 I pray our Heavenly Father to help us so live that we may have that inner strength and power to take those about us by the hand and lift.
 
-I leave you my witness that God lives. This is the Church of Jesus Christ, restored in these latter days for the benefit of all mankind. President Harold B. Lee is a prophet of God. He, as witnessed by that beautiful young woman in Munich and thousands of others, has the God-given capacity to take us all by the hand and lift us to new heights if we will keep the commandments and follow his counsel. To this I declare and testify in the name of Jesus Christ. Amen.
-
-
+I leave you my witness that God lives. This is the Church of Jesus Christ, restored in these latter days for the benefit of all mankind. President Harold B. Lee is a prophet of God. He, as witnessed by that beautiful young woman in Munich and thousands of others, has the God-given capacity to take us all by the hand and lift us to new heights if we will keep the commandments and follow his counsel. To this I declare and testify in the name of Jesus Christ. Amen.
 
 
 

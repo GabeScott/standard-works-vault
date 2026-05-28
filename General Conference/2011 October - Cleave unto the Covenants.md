@@ -34,7 +34,7 @@ In holy temples other sacred ordinances are received and other covenants are mad
 
 “More than 5,000 Saints thronged the Nauvoo Temple after its dedication so they could receive the endowment and the sealing ordinance before embarking on their journey” to the Salt Lake Valley.[^8] President Brigham Young and many Church leaders and temple workers spent their time, day and night, serving in the temple so this important work could be performed for the Saints.
 
-Our covenants sustain us whether in good times or in difficult times. President Boyd K. Packer reminds us that “we are a covenant people. We covenant to give of our resources in time and money and talent—all we are and all we possess—to the interest of the kingdom of God upon the earth. In simple terms, we covenant to do good. We are a covenant people, and the temple is the center of our covenants. It is the source of the covenant.”[^9]
+Our covenants sustain us whether in good times or in difficult times. President Boyd K. Packer reminds us that “we are a covenant people. We covenant to give of our resources in time and money and talent—all we are and all we possess—to the interest of the kingdom of God upon the earth. In simple terms, we covenant to do good. We are a covenant people, and the temple is the center of our covenants. It is the source of the covenant.”[^9]
 
 The scriptures remind us, “And this shall be our covenant—that we will walk in all the ordinances of the Lord.”[^10]
 
@@ -72,7 +72,7 @@ As more and more holy temples have been built across the earth, I have seen the 
 
 In reading from my grandmother’s personal history, I learned of her great joy in her covenants. She loved going to the temple and performing the ordinances for thousands of those who had died. It was her life’s mission. She served as a temple worker for over 20 years in the Manti Utah Temple. She wrote that she had experienced many miraculous healings in order for her to raise her children and to serve others by doing their work in the temple. As her grandchildren, if we knew anything about Grandma Rymer, it was that she was a righteous woman who kept her covenants and wanted us to do the same. When people sift through our possessions after we have died, will they find evidence that we have kept our covenants?
 
-Our beloved prophet, President Thomas S. Monson, told us in our last general conference: “As you and I go to the holy houses of God, as we remember the covenants we make within, we will be more able to bear every trial and to overcome each temptation. In this sacred sanctuary we will find peace; we will be renewed and fortified.”[^22]
+Our beloved prophet, President Thomas S. Monson, told us in our last general conference: “As you and I go to the holy houses of God, as we remember the covenants we make within, we will be more able to bear every trial and to overcome each temptation. In this sacred sanctuary we will find peace; we will be renewed and fortified.”[^22]
 
 Once again: “Lift up thy heart and rejoice, and cleave unto the covenants which thou hast made.”[^23] Keeping covenants is true joy and happiness. This is comfort and peace. This is protection from the evils of the world. Keeping our covenants will help us in times of trial.
 
@@ -85,13 +85,13 @@ Dear sisters, I love you and hope you will experience this great joy in your own
 
 [^1]: [[D&C 25.13|Doctrine and Covenants 25:13]].
 
-[^2]: Patriarchal blessing given by Walter E. Hanks, Oct. 25, 1912, in Lyman, Wayne County, Utah.
+[^2]: Patriarchal blessing given by Walter E. Hanks, Oct. 25, 1912, in Lyman, Wayne County, Utah.
 
-[^3]: Bible Dictionary, “Covenant.”
+[^3]: Bible Dictionary, “[[BD Covenant|Covenant]].”
 
 [^4]: *Merriam-Webster’s Collegiate Dictionary,* 11th ed. (2003), “cleave.”
 
-[^5]: See [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]]; see also Thomas S. Monson, “What Have I Done for Someone Today?” *Liahona* and *Ensign,* Nov. 2009, 85–87.
+[^5]: See [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]]; see also Thomas S. Monson, “What Have I Done for Someone Today?” *Liahona* and *Ensign,* Nov. 2009, 85–87.
 
 [^6]: [[D&C 124.40|Doctrine and Covenants 124:40]].
 
@@ -99,7 +99,7 @@ Dear sisters, I love you and hope you will experience this great joy in your own
 
 [^8]: *Daughters in My Kingdom,* 29.
 
-[^9]: Boyd K. Packer, *The Holy Temple* (1980), 170.
+[^9]: Boyd K. Packer, *The Holy Temple* (1980), 170.
 
 [^10]: [[D&C 136.4|Doctrine and Covenants 136:4]].
 
@@ -125,10 +125,8 @@ Dear sisters, I love you and hope you will experience this great joy in your own
 
 [^21]: [[D&C 110.9|Doctrine and Covenants 110:9–10]][[D&C 110.10|]].
 
-[^22]: Thomas S. Monson, “The Holy Temple—a Beacon to the World,” *Liahona* and *Ensign,* May 2011, 93.
+[^22]: Thomas S. Monson, “The Holy Temple—a Beacon to the World,” *Liahona* and *Ensign,* May 2011, 93.
 
 [^23]: [[D&C 25.13|Doctrine and Covenants 25:13]].
-
-
 
 #Covenants #Temples

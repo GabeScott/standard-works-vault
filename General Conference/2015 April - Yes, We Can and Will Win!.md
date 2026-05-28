@@ -10,13 +10,13 @@ By Elder Ulisses Soares - *Of the Presidency of the Seventy*
 
 Dear brethren, I am humbled by the privilege I have to speak to you, the bearers of the priesthood of God throughout the Church today.
 
-President Thomas S. Monson once said:
+President Thomas S. Monson once said:
 
 “The world can at times be a frightening place in which to live. The moral fabric of society seems to be unraveling at an alarming speed. None—whether young or old or in-between—is exempt from exposure to those things which have the potential to drag us down and destroy us. …
 
-“… But we need not despair. … We are waging a war with sin. … It is a war we can and will win. Our Father in Heaven has given us the tools we need in order to do so.”[^1]
+“… But we need not despair. … We are waging a war with sin. … It is a war we can and will win. Our Father in Heaven has given us the tools we need in order to do so.”[^1]
 
-All of us, young and old, are faced daily with the war mentioned by President Monson. The enemy and his angels are trying to distract us. Their purpose is to encourage us to deviate from the covenants that we have made with the Lord, causing us to lose sight of our eternal inheritance. They know well our Heavenly Father’s plan for His children, for they were present with us in that great Council in Heaven when it was all presented. They try to take advantage of our weaknesses and frailties, deceiving us with “mists of darkness … , which blindeth the eyes, and hardeneth the hearts of the children of men, and leadeth them away into broad roads, that they perish and are lost.”[^2]
+All of us, young and old, are faced daily with the war mentioned by President Monson. The enemy and his angels are trying to distract us. Their purpose is to encourage us to deviate from the covenants that we have made with the Lord, causing us to lose sight of our eternal inheritance. They know well our Heavenly Father’s plan for His children, for they were present with us in that great Council in Heaven when it was all presented. They try to take advantage of our weaknesses and frailties, deceiving us with “mists of darkness … , which blindeth the eyes, and hardeneth the hearts of the children of men, and leadeth them away into broad roads, that they perish and are lost.”[^2]
 
 Despite the opposition we face, as President Monson has taught, this is a war that we can and will win. The Lord trusts in our capacity and determination to do so.
 
@@ -46,7 +46,7 @@ My dear brethren, because of the wave of confusion and doubt spreading throughou
 
 I invite all to find safety in the teachings contained in the scriptures. Captain Moroni aligned his faith in God and his testimony of the truth with the knowledge and wisdom found in the scriptures. In this way, he trusted that he would receive the blessings of the Lord and would obtain many victories, which is what, in fact, happened.
 
-I invite all to find safety in the wise words of our current prophets. President Thomas S. Monson said: “We who have been ordained to the priesthood of God can make a difference. When we maintain our personal purity and honor our priesthood, we become righteous examples for others to follow … \[and we\] help to illuminate an increasingly dark world.”[^13]
+I invite all to find safety in the wise words of our current prophets. President Thomas S. Monson said: “We who have been ordained to the priesthood of God can make a difference. When we maintain our personal purity and honor our priesthood, we become righteous examples for others to follow … \[and we\] help to illuminate an increasingly dark world.”[^13]
 
 I invite all to trust in the merits and in the power of the Atonement of Jesus Christ. Through His atoning sacrifice, we can gain the courage to win all the wars of our time, even in the midst of our difficulties, challenges, and temptations. Let us trust in His love and power to save us. Christ Himself said:
 
@@ -61,9 +61,9 @@ I bear testimony of these truths in the sacred name of Jesus Christ, amen.
 
 
 
-[^1]: Thomas S. Monson, “Looking Back and Moving Forward,” *Ensign* or *Liahona,* May 2008, 90.
+[^1]: Thomas S. Monson, “Looking Back and Moving Forward,” *Ensign* or *Liahona,* May 2008, 90.
 
-[^2]: [[1 Nephi 12.17|1 Nephi 12:17]].
+[^2]: [[1 Nephi 12.17|1 Nephi 12:17]].
 
 [^3]: [[Alma 48.17|Alma 48:17]].
 
@@ -75,7 +75,7 @@ I bear testimony of these truths in the sacred name of Jesus Christ, amen.
 
 [^7]: *For the Strength of Youth* (booklet, 2011), 2.
 
-[^8]: See [[3 Nephi 27.14|3 Nephi 27:14]].
+[^8]: See [[3 Nephi 27.14|3 Nephi 27:14]].
 
 [^9]: [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].
 
@@ -85,14 +85,12 @@ I bear testimony of these truths in the sacred name of Jesus Christ, amen.
 
 [^12]: See [[Luke 22.31|Luke 22:31–32]][[Luke 22.32|]].
 
-[^13]: Thomas S. Monson, “Guided Safely Home,” *Ensign* or *Liahona,* Nov. 2014, 68.
+[^13]: Thomas S. Monson, “Guided Safely Home,” *Ensign* or *Liahona,* Nov. 2014, 68.
 
 [^14]: [[John 14.6|John 14:6]].
 
 [^15]: [[John 8.12|John 8:12]].
 
 [^16]: [[John 16.33|John 16:33]].
-
-
 
 #Agency #Atonement #Pornography #Temptation #Testimony

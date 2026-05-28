@@ -1,12 +1,12 @@
 # God Grant Us Faith
 
-By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1983/10/god-grant-us-faith?lang=eng)
 
-The Tabernacle Choir has sung “The Morning Breaks.” I think I should like to use those marvelous words written by Parley P. Pratt as something of a theme:
+The Tabernacle Choir has sung “The Morning Breaks.” I think I should like to use those marvelous words written by Parley P. Pratt as something of a theme:
 
 >The morning breaks; the shadows flee;
 >Lo, Zion’s standard is unfurled!
@@ -97,11 +97,11 @@ Shall any of us say that with faith we cannot do better than we are now doing?
 
 There is no obstacle too great, no challenge too difficult, that we cannot meet with faith. We live in a world where the standards of the gospel are challenged, where they are ridiculed, where sacred things are mocked. Shall we compromise? Shall we revile those who speak ungraciously of us?
 
-In a more troubled day, the Lord said to Thomas B. Marsh:
+In a more troubled day, the Lord said to Thomas B. Marsh:
 
-“Be patient in afflictions, revile not against those that revile. Govern your house in meekness, and be steadfast. …
+“Be patient in afflictions, revile not against those that revile. Govern your house in meekness, and be steadfast. …
 
-“Go your way whithersoever I will, and it shall be given you by the Comforter what you shall do and whither you shall go. …
+“Go your way whithersoever I will, and it shall be given you by the Comforter what you shall do and whither you shall go. …
 
 “Be faithful unto the end, and lo, I am with you. These words are not of man nor of men, but of me, even Jesus Christ, your Redeemer, by the will of the Father.” ([[D&C 31.9|D&C 31:9, 11, 13]][[D&C 31.11|]][[D&C 31.13|]].)
 
@@ -124,8 +124,6 @@ As our fathers labored in faith with a moving vision of the destiny of this work
 So declared the Lord.
 
 God grant us faith, I humbly pray in the name of Jesus Christ, amen.
-
-
 
 
 

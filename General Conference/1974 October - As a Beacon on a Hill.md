@@ -1,6 +1,6 @@
 # As a Beacon on a Hill
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -63,8 +63,6 @@ Brethren, our success in the priesthood depends on the pattern of our life. When
 In a world of conflict and trouble there will be the giants among men. There will be the peacemakers. There will be those who can calm troubled waters. There will be those whose life’s pattern will be as a beacon on a hill, as a lighthouse in a storm. There will be those who others will look to for strength and guidance. You can be that ray of hope to those around you, especially to your own.
 
 Remember, the brightest light and the clearest signal come from the cleanest instrument. May the Lord guide us and strengthen us as we purify and cleanse our lives. I bear testimony to you, my brethren, that I know God lives. I know he’s in the heavens. And I pray that he’ll bless us to honor the priesthood he’s given us, in the name of Jesus Christ. Amen.
-
-
 
 
 

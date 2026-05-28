@@ -5,6 +5,6 @@
 [Isaiah 26:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.4?lang=eng#p4)
 
 
-[^a]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].
-[^b]: [[Eternity|TG Eternity]].
-[^c]: [[Strength|TG Strength]].
+[^a]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^b]: [[Eternity|TG Eternity]].  
+[^c]: [[Strength|TG Strength]].  

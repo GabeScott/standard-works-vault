@@ -36,9 +36,9 @@ Referring to the Atonement of Jesus Christ, the prophet Alma taught the people i
 
 “Now the Spirit knoweth all things; nevertheless the Son of God suffereth according to the flesh that he might take upon him the sins of his people, that he might blot out their transgressions according to the power of his deliverance; and now behold, this is the testimony which is in me” ([[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]]).
 
-Also speaking of the Atonement, Jacob, the brother of Nephi, taught: “Wherefore, it must needs be an infinite atonement—save it should be an infinite atonement this corruption could not put on incorruption. Wherefore, the first judgment which came upon man must needs have remained to an endless duration. And if so, this flesh must have laid down to rot and to crumble to its mother earth, to rise no more” ([[2 Nephi 9.7|2 Nephi 9:7]]).
+Also speaking of the Atonement, Jacob, the brother of Nephi, taught: “Wherefore, it must needs be an infinite atonement—save it should be an infinite atonement this corruption could not put on incorruption. Wherefore, the first judgment which came upon man must needs have remained to an endless duration. And if so, this flesh must have laid down to rot and to crumble to its mother earth, to rise no more” ([[2 Nephi 9.7|2 Nephi 9:7]]).
 
-The Atonement of Jesus Christ is available to each of us. His Atonement is infinite. It applies to everyone, even you. It can clean, reclaim, and sanctify even you. That is what infinite means—total, complete, all, forever. President Boyd K. Packer has taught: “There is no habit, no addiction, no rebellion, no transgression, no apostasy, no crime exempted from the promise of complete forgiveness. That is the promise of the atonement of Christ” (in Conference Report, Oct. 1995, 23; or *Ensign,* Nov. 1995, 20).
+The Atonement of Jesus Christ is available to each of us. His Atonement is infinite. It applies to everyone, even you. It can clean, reclaim, and sanctify even you. That is what infinite means—total, complete, all, forever. President Boyd K. Packer has taught: “There is no habit, no addiction, no rebellion, no transgression, no apostasy, no crime exempted from the promise of complete forgiveness. That is the promise of the atonement of Christ” (in Conference Report, Oct. 1995, [[1995 October - The Brilliant Morning of Forgiveness.md|23]]; or *Ensign,* Nov. 1995, 20).
 
 Just as the landfill requires dedicated work and attention, laboriously applying layer after layer of fill to reclaim the low-lying ground, our lives also require the same vigilance, continually applying layer after layer of the healing gift of repentance.
 
@@ -47,8 +47,6 @@ Just as the city fathers in Idaho Falls would feel bad about a person trying to 
 When we gratefully accept and use this precious gift, we can enjoy the beauty and usefulness of our lives that God has reclaimed through His infinite love and the Atonement of His Son and our brother, Jesus Christ.
 
 I testify that Jesus is the Christ, the Son of the living God, that His Atonement is real, and that through the miracle of forgiveness, He can make each of us clean again, even you. In the name of Jesus Christ, amen.
-
-
 
 
 

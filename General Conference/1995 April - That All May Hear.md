@@ -12,11 +12,11 @@ With moist eyes and tender hearts, we have said farewell to that gentle giant of
 
 Long years ago a divine command was given by our Lord and Savior, Jesus Christ, as He said to His beloved eleven disciples: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world.”[^1] Mark records that “they went forth, and preached every where, the Lord working with them.”[^2]
 
-This sacred charge has not been rescinded. Rather, it has been reemphasized. The Prophet Joseph Smith set forth the purpose of the Church when he declared: “It is the bringing of men and women to a knowledge of the eternal truth that Jesus is the Christ, the Redeemer and Savior of the world, and that only through belief in Him, and faith which manifests itself in good works, can men and nations enjoy peace.”
+This sacred charge has not been rescinded. Rather, it has been reemphasized. The Prophet Joseph Smith set forth the purpose of the Church when he declared, “It is the bringing of men and women to a knowledge of the eternal truth that Jesus is the Christ, the Redeemer and Savior of the world, and that only through belief in Him, and faith which manifests itself in good works, can men and nations enjoy peace.”
 
 Does the world in which we live stand in need of the teachings of the gospel of Jesus Christ? Almost everywhere one looks there appears an erosion not only of the environment but, even more seriously, an erosion of spirituality and of compliance with eternal commandments. One sees a blatant disregard for the precious souls of mankind.
 
-It is almost as though the faces of many have been turned away from Him—even the Lord—who solemnly declared: “The worth of souls is great in the sight of God.”[^3] The gentle words “Come, follow me,”[^4] fall on many with stopped ears and closed hearts. Such seem to be attuned to another voice.
+It is almost as though the faces of many have been turned away from Him—even the Lord—who solemnly declared, “The worth of souls is great in the sight of God.”[^3] The gentle words “Come, follow me”[^4] fall on many with stopped ears and closed hearts. Such seem to be attuned to another voice.
 
 Do you, with me, remember the story from childhood days of that persuasive musician, the Pied Piper of Hamelin? You will recall that he entered Hamelin and offered, for a specified sum of money, to rid the town of the vermin with which it was plagued. When the contract was agreed upon, he played his pipe and the rats came swarming from the buildings and followed him to the river, where they drowned. When the town leaders refused to pay him for his services, he returned to play his pipe and led the precious children away from the safety of their families and their homes, never to return.
 
@@ -42,11 +42,11 @@ President John Taylor summed up the requirements: “The kind of men we want as 
 
 Second, **teach with testimony.** Peter and John, those converted fishermen who became Apostles, were warned not to preach Jesus Christ and Him crucified. Their answer was firm: “Whether it be right in the sight of God to hearken unto you more than unto God, judge ye. For we cannot but speak the things which we have seen and heard.”[^8]
 
-Paul, the Apostle, that sterling testifier of truth, was speaking to all of us—members and missionaries alike—when he counseled his beloved friend Timothy, “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.”[^9]
+Paul the Apostle, that sterling testifier of truth, was speaking to all of us—members and missionaries alike—when he counseled his beloved friend Timothy, “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.”[^9]
 
 Elder Delbert L. Stapley, who served as a member of the Council of the Twelve a number of years ago, quoted Paul in his epistle to the Romans: “For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation.”[^10] Then Elder Stapley added: “If we are not ashamed of the gospel of Christ, then we should not be ashamed to live it. And if we are not ashamed to live it, then we should not be ashamed to share it.”
 
-Third, **labor with love.** There is no substitute for love. Often this love is kindled in youth by a mother, expanded by a father, and kept vibrant through service to God. Remember the Lord’s counsel: “And faith, hope, charity and love, with an eye single to the glory of God, qualify him for the work.”[^11] Well might each of us ask himself: *Today, have I increased in faith, in hope, in charity, in love?* When our lives comply with God’s standard and we labor with love to bring souls unto Him, those within our sphere of influence will never speak the lament, “The harvest is past, the summer is ended, and we are not saved.”[^12]
+Third, **labor with love.** There is no substitute for love. Often this love is kindled in youth by a mother, expanded by a father, and kept vibrant through service to God. Remember the Lord’s counsel: “And faith, hope, charity and love, with an eye single to the glory of God, qualify him for the work.”[^11] Well might each of us ask himself: *Today have I increased in faith, in hope, in charity, in love?* When our lives comply with God’s standard and we labor with love to bring souls unto Him, those within our sphere of influence will never speak the lament, “The harvest is past, the summer is ended, and we are not saved.”[^12]
 
 Young missionaries always have an idea as to where they would *love* to serve. Usually it’s a faraway place with a strange-sounding name.
 
@@ -109,7 +109,7 @@ Such is the promise to all of us when we pursue our missionary opportunities and
 
 [^8]: [[Acts 4.19|Acts 4:19–20]][[Acts 4.20|]].
 
-[^9]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^9]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^10]: [[Romans 1.16|Rom. 1:16]].
 
@@ -117,10 +117,8 @@ Such is the promise to all of us when we pursue our missionary opportunities and
 
 [^12]: [[Jeremiah 8.20|Jer. 8:20]].
 
-[^13]: [[1 Peter 3.15|1 Pet. 3:15]].
+[^13]: [[1 Peter 3.15|1 Pet. 3:15]].
 
 [^14]: [[D&C 84.88|D&C 84:88]].
 
-
-
-#Conversion #Missionary_Work #Priesthood
+#Conversion #MissionaryWork #Priesthood

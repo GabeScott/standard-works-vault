@@ -44,7 +44,7 @@ Arriving there, I tried to understand: Why did the Restoration have to be here, 
 
 At that time, the most reasonable answer to me was because the U.S. Constitution guaranteed freedom.
 
-That morning I visited the Grandin Building, where the first edition of the Book of Mormon was printed. I went to the Sacred Grove, where I prayed a lot.
+That morning I visited the Grandin Building, where the first edition of the Book of Mormon was printed. I went to the Sacred Grove, where I prayed a lot.
 
 There was hardly anyone on the streets in that small town of Palmyra. Where were the crowds of people that Joseph had mentioned?
 
@@ -88,7 +88,7 @@ During my trip home, scriptures continued to flow into my mind: the promises mad
 
 And for this, temples would be erected so that the divine power might be conferred upon man once again on the earth so that families could be united, not until death do us part but together for all eternity.
 
-“And it shall come to pass in the last days, that the mountain of the Lord’s house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it.”[^6]
+“And it shall come to pass in the last days, that the mountain of the Lord’s house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it.”[^6]
 
 If you who hear me have any questions in your heart, do not give up!
 
@@ -111,12 +111,10 @@ Because of His great love, Jesus Christ atoned for our sins. He is the Savior of
 
 [^4]: [[John 10.14|John 10:14]].
 
-[^5]: See [[Genesis 12.3|Genesis 12:3]]; [[Genesis 17.2|17:2–8]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]]; [[Galatians 3.29|Galatians 3:29]]; [[1 Nephi 15.14|1 Nephi 15:14–18]][[1 Nephi 15.15|]][[1 Nephi 15.16|]][[1 Nephi 15.17|]][[1 Nephi 15.18|]]; [[Abraham 2.9|Abraham 2:9–11]][[Abraham 2.10|]][[Abraham 2.11|]].
+[^5]: See [[Genesis 12.3|Genesis 12:3]]; [[Genesis 17.2|17:2–8]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]]; [[Galatians 3.29|Galatians 3:29]]; [[1 Nephi 15.14|1 Nephi 15:14–18]][[1 Nephi 15.15|]][[1 Nephi 15.16|]][[1 Nephi 15.17|]][[1 Nephi 15.18|]]; [[Abraham 2.9|Abraham 2:9–11]][[Abraham 2.10|]][[Abraham 2.11|]].
 
 [^6]: [[Isaiah 2.2|Isaiah 2:2]].
 
 [^7]: See introduction to the Book of Mormon.
 
-
-
-#Book_Of_Mormon #Joseph_Smith #Prayer #Restoration
+#BookOfMormon #JosephSmith #Prayer #Restoration

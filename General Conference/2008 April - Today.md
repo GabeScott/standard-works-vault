@@ -22,7 +22,7 @@ We radioed for a medical evacuation helicopter. Loading the wounded men on the c
 
 He looked at me, his eyes earnest, pleading. “Please, sir,” he said, and then these words that will forever haunt me: *“They can’t kill a tough old bird like me.”*
 
-The entire scene is etched in my mind like a battle tableau: the jungle clearing; the impatient, throbbing rotor blade of the helicopter; the pilot looking at me expectantly; and my friend begging to stay with his men. I relented. I waved away the chopper with its lifeline to Tomorrow. Before the sun had set that very day, my dear friend Sergeant Arthur Cyrus Morris lay dead upon the ground, felled by hostile fire. And echoing in my mind over and over again, I hear his exclamation, “They can’t kill, they can’t kill, they can’t kill …”
+The entire scene is etched in my mind like a battle tableau: the jungle clearing; the impatient, throbbing rotor blade of the helicopter; the pilot looking at me expectantly; and my friend begging to stay with his men. I relented. I waved away the chopper with its lifeline to Tomorrow. Before the sun had set that very day, my dear friend Sergeant Arthur Cyrus Morris lay dead upon the ground, felled by hostile fire. And echoing in my mind over and over again, I hear his exclamation, “They can’t kill, they can’t kill, they can’t kill …”
 
 Of course, in one sense he was dreadfully wrong. Mortality is so fragile. Only one heartbeat, the drawing of a single breath, separates this world from the next. One moment my friend was a vital, living person; the next, his immortal spirit had fled, leaving the mortal tabernacle a lump of lifeless clay. Death is a curtain through which each must pass, and like Sergeant Arthur Morris, none of us knows when that passage will occur. Of all the challenges we face, perhaps the greatest is a *misguided sense that mortality goes on forever* and its corollary, that we can postpone until tomorrow the seeking and offering of forgiveness, which, as the gospel of Jesus Christ teaches, are among mortality’s central purposes.
 
@@ -30,9 +30,9 @@ This profound truth is taught by Amulek in the Book of Mormon:
 
 “For behold, this life is the time for men to prepare to meet God; yea, behold *the day of this life* is the day for men to perform their labors.
 
-“… Therefore, I beseech of you that ye do not procrastinate the day of your repentance until the end; …
+“… Therefore, I beseech of you that ye do not procrastinate the day of your repentance until the end; …
 
-“… For that same spirit which doth possess your bodies at the time that ye go out of this life, that same spirit will have power to possess your body in that eternal world” ([[Alma 34.32|Alma 34:32–34]][[Alma 34.33|]][[Alma 34.34|]]; emphasis added).
+“… For that same spirit which doth possess your bodies at the time that ye go out of this life, that same spirit will have power to possess your body in that eternal world” ([[Alma 34.32|Alma 34:32–34]][[Alma 34.33|]][[Alma 34.34|]]; emphasis added).
 
 What a pungent expression Amulek uses—“the *day* of this life”! The Apostle James put it this way: “Whereas ye know not what shall be on the morrow. For what is your life? It is even a vapour, that appeareth for a little time, and then vanisheth away” ([[James 4.14|James 4:14]]). And the person we are when we depart this life is the person we will be as we enter the next. Thankfully, we do have Today.
 
@@ -41,8 +41,6 @@ If Sergeant Morris was dreadfully wrong, he was also magnificently right! We rea
 It remains only for you and me to both *seek* and *tender* that forgiveness—to both repent and to extend charity to others—which enables us to pass through the door the Savior holds open, thus to cross the threshold from this life into exaltation. *Today* is the day to forgive others their trespasses, secure in the knowledge that the Lord will thus forgive ours. As Luke significantly recorded, “Be ye therefore *merciful*” ([[Luke 6.36|Luke 6:36]]; emphasis added). Perfection may elude us here, but we can be merciful. And in the end, repenting and forgiving are among God’s chief requirements of us.
 
 My pilgrimage back in time completed, I looked around upon those peaceful fields of Today and saw in their fertility the promise of Tomorrow. I thought of my friend Sergeant Arthur Cyrus Morris. I thought of that fateful Palm Sunday of Yesterday. And I was profoundly grateful for the Redeemer of Easter morning, who grants us life, whose descent below all things makes possible our rising above all things—Tomorrow, if we but seize Today. In the name of Jesus Christ, amen.
-
-
 
 
 

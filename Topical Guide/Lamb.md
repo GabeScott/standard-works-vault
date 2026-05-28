@@ -1,13 +1,12 @@
 # Lamb
 
-
 *See also* [[Goat.md|Goat]]; [[Jesus Christ, Lamb of God.md|Jesus Christ, Lamb of God]]; [[Sheep.md|Sheep]]
 
 My son, God will provide himself a *lamb*, [[Genesis 22.8|Genesis 22:8]].
 
 Your *lamb* shall be without blemish, [[Exodus 12.5|Exodus 12:5]].
 
-take you a *lamb* ... and kill the passover, [[Exodus 12.21|Exodus 12:21]].
+take you a *lamb* … and kill the passover, [[Exodus 12.21|Exodus 12:21]].
 
 *lamb* thou shalt offer in the morning, [[Exodus 29.39|Exodus 29:39]] ([[Numbers 28.4|Numbers 28:4]]).
 

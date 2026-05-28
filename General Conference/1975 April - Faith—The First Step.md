@@ -1,6 +1,6 @@
 # Faith—The First Step
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -32,7 +32,7 @@ The gospel, as brought to the earth by the Savior, is the good news of salvation
 
 “Behold I have given unto you my gospel, and this is the gospel which I have given unto you—that I came into the world to do the will of my Father, because my Father sent me.
 
-“And my Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might draw all men unto me, that as I have been lifted up by men even so should men be lifted up by the Father, to stand before me, to be judged of their works, whether they be good or whether they be evil.” ([[3 Nephi 27.12|3 Ne. 27:12–14]][[3 Nephi 27.13|]][[3 Nephi 27.14|]].)
+“And my Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might draw all men unto me, that as I have been lifted up by men even so should men be lifted up by the Father, to stand before me, to be judged of their works, whether they be good or whether they be evil.” ([[3 Nephi 27.12|3 Ne. 27:12–14]][[3 Nephi 27.13|]][[3 Nephi 27.14|]].)
 
 As we study the scriptures carefully, the understanding comes to us that the basic elements or principles of the gospel taught by the Master consist of the following steps:
 
@@ -79,8 +79,6 @@ In the closing two verses of Matthew is given the account of the final appearanc
 The emphasis is on the words *teach* and *baptize.* Following this scriptural admonition, missionaries of the Church, both young and old, are in the world teaching the principle of faith in the Lord Jesus Christ and the other principles of the gospel to all who will hear. This is according to the pattern established by the Master himself as recorded by Mark: “And he called unto him the twelve, and began to send them forth by two and two.” ([[Mark 6.7|Mark 6:7]].) They went forth and bore witness of his divinity in those days, over 1,900 years ago, and devoted ambassadors of today bear the same witness as they go into the world “two and two.”
 
 The nations of the world will be blessed by the message of the gospel they carry, and every person who has an honest desire for the truth will learn to know the true and living God and that Jesus is the Christ, the Redeemer of all mankind by his atoning sacrifice, if he will give heed to the message. May the faith of each of us be strengthened by conscientious effort, I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

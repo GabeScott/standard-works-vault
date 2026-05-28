@@ -1,6 +1,6 @@
 # Privileges and Responsibilities of Sisters
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -106,7 +106,7 @@ God is the same, yesterday, today, and forever, as are his purposes. It is writt
 
 And Genesis goes on to say something very beautiful about that creation:
 
-“And God blessed them. …
+“And God blessed them. …
 
 “And God said, Behold, I have given you … every thing … upon the earth, wherein there is life, … and it was so.
 
@@ -161,8 +161,6 @@ As Moroni quoted to Joseph Smith from the Prophet Joel, so I quote to you:
 “And also upon the servants and upon the *handmaids* in those days will I pour out my spirit.” ([[Joel 2.28|Joel 2:28–29]][[Joel 2.29|]]; italics added.)
 
 May the Lord bless you and your loved ones this day and always, I humbly pray, in the name of Jesus Christ. Amen.
-
-
 
 
 

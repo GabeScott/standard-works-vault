@@ -56,7 +56,7 @@ I know the power of inspired men and women who unitedly strive to strengthen fam
 
 This is our day, brothers and sisters. It is a time that has been foreseen by holy prophets since the world began. It is the dispensation of the fulness of times, when the final scenes of this world’s history will be played out. Our latter-day prophets, from Joseph Smith to Gordon B. Hinckley, have warned us of the solemn, sobering obligation that is ours to prepare for “the great and dreadful day of the Lord.”[^9] That day is steadily moving toward us, and there is still much to be done. We must be prepared to keep pace with our leaders, stride for their every lengthened stride. Perhaps as never before we need to focus our efforts on those things that matter most and avoid spending time on those things of small concern and of little consequence.
 
-Said the Prophet Joseph Smith: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. …
+Said the Prophet Joseph Smith: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. …
 
 “Behold, the great day of the Lord is at hand. … Let us, … as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple … a book containing the records of our dead, which shall be worthy of all acceptation.”[^10]
 
@@ -65,9 +65,9 @@ I pray that we may join together, brothers and sisters, to do our part to prepar
 
 
 
-[^1]: In Conference Report, Apr. 1998, 115; or *Ensign,* May 1998, 88.
+[^1]: In Conference Report, Apr. 1998, [[1998 April - New Temples to Provide “Crowning Blessings” of the Gospel.md|115]]; or *Ensign,* May 1998, 88.
 
-[^2]: In Conference Report, Apr. 1998, 115–16; or *Ensign,* May 1998, 88.
+[^2]: In Conference Report, Apr. 1998, [[1998 April - New Temples to Provide “Crowning Blessings” of the Gospel.md|115–16]]; or *Ensign,* May 1998, 88.
 
 [^3]: *The Discourses of Wilford Woodruff* (1946), 288–89.
 
@@ -75,9 +75,9 @@ I pray that we may join together, brothers and sisters, to do our part to prepar
 
 [^5]: *The Teachings of Spencer W. Kimball* (1982), 174–75.
 
-[^6]: In Conference Report, Oct. 1994, 118; or *Ensign,* Nov. 1994, 87.
+[^6]: In Conference Report, Oct. 1994, [[1994 October - Follow the Son of God.md|118]]; or *Ensign,* Nov. 1994, 87.
 
-[^7]: In Conference Report, Apr. 1995, 117; or *Ensign,* May 1995, 88.
+[^7]: In Conference Report, Apr. 1995, [[1995 April - We Have a Work to Do.md|117]]; or *Ensign,* May 1995, 88.
 
 [^8]: *Young Women Leadership Handbook* (1995), 4.
 
@@ -85,6 +85,4 @@ I pray that we may join together, brothers and sisters, to do our part to prepar
 
 [^10]: [[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]].
 
-
-
-#Commitment #Conversion #Councils #Covenants #Divine_Nature #Fellowshipping #Jesus_Christ #Last_Days #Priesthood #Temples #Women #Youth
+#Commitment #Councils #Conversion #Covenants #DivineNature #Fellowshipping #JesusChrist #LastDays #Priesthood #Temples #Women #Youth

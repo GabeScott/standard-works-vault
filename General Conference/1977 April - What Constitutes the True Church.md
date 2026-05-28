@@ -1,6 +1,6 @@
 # What Constitutes the True Church
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -40,9 +40,9 @@ Jesus recognized that the various sects did not have a fulness of truth and did 
 
 When this parable was not fully understood, Jesus plainly explained it by saying:
 
-“I am the door of the sheep. …
+“I am the door of the sheep. …
 
-“If any man enter in, he shall be saved, and shall go in and out, and find pasture. …
+“If any man enter in, he shall be saved, and shall go in and out, and find pasture. …
 
 “I am the good shepherd: the good shepherd giveth his life for the sheep.
 
@@ -60,9 +60,9 @@ They were authorized ministers called to teach and officiate in the saving ordin
 
 Because of the universality of these requirements for salvation, the apostle Paul wrote: “There is … one Lord, one faith, one baptism.” ([[Ephesians 4.4|Eph. 4:4–5]][[Ephesians 4.5|]].) On another occasion he wrote: “But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.” ([[Galatians 1.8|Gal. 1:8]].)
 
-One church, one authorized ministry, one orthodox gospel doctrine, and one Holy Ghost characterized the church of Jesus Christ in His time. “For God is not the author of confusion, but of peace, as in all churches of the saints.” ([[1 Corinthians 14.33|1 Cor. 14:33]].) Thus God’s revelation to leaders of the Church of Jesus Christ was reasonable, consistent, and unified.
+One church, one authorized ministry, one orthodox gospel doctrine, and one Holy Ghost characterized the church of Jesus Christ in His time. “For God is not the author of confusion, but of peace, as in all churches of the saints.” ([[1 Corinthians 14.33|1 Cor. 14:33]].) Thus God’s revelation to leaders of the Church of Jesus Christ was reasonable, consistent, and unified.
 
-It was only after the death of Christ’s apostles that revelation ceased. The pure doctrines Christ taught became diluted with the philosophy of the world, and profane innovations appeared in the ordinances of the church. Eventually, that which had once been clear and understandable became mythical and confusing. Confusion is the field where Satan operates to deceive and lead mankind astray. Jesus and His apostles predicted a “falling away” (see [[2 Thessalonians 2.1|2 Thes. 2:1–4]][[2 Thessalonians 2.2|]][[2 Thessalonians 2.3|]][[2 Thessalonians 2.4|]]), which did occur, and Christianity entered a long night of darkness.
+It was only after the death of Christ’s apostles that revelation ceased. The pure doctrines Christ taught became diluted with the philosophy of the world, and profane innovations appeared in the ordinances of the church. Eventually, that which had once been clear and understandable became mythical and confusing. Confusion is the field where Satan operates to deceive and lead mankind astray. Jesus and His apostles predicted a “falling away” (see [[2 Thessalonians 2.1|2 Thes. 2:1–4]][[2 Thessalonians 2.2|]][[2 Thessalonians 2.3|]][[2 Thessalonians 2.4|]]), which did occur, and Christianity entered a long night of darkness.
 
 Today a multiplicity of churches and doctrines abound, all claiming one source. Such a claim, of course, defies reason and contradicts the teachings and pattern established by Jesus Christ. A sincere seeker for truth must ask: “Which, if any, of the varying Christian groups is right?” For guidance, the apostle James gave this counsel: “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.” ([[James 1.5|James 1:5]].) If you sincerely put this promise to the test in seeking light and truth, you will be rewarded.
 
@@ -88,13 +88,13 @@ We must learn the truth for a surety and not merely suppose we are right. It is 
 
 One cannot prayerfully study the scriptures without gaining the knowledge and testimony that there is only one way to exaltation. The scriptures point the way very clearly. It must be God’s way and not man’s way, for God has said: “For my thoughts are not your thoughts, neither are your ways my ways, saith the Lord.” ([[Isaiah 55.8|Isa. 55:8]].)
 
-As an authorized servant and special witness of Jesus Christ in this day, I humbly bear witness that the Church of Jesus Christ is on the earth today. This Church bears all of the identifying marks I have mentioned. Presiding under the direction of Jesus Christ stands a living prophet. His name is Spencer W. Kimball, President of The Church of Jesus Christ of Latter-day Saints.
+As an authorized servant and special witness of Jesus Christ in this day, I humbly bear witness that the Church of Jesus Christ is on the earth today. This Church bears all of the identifying marks I have mentioned. Presiding under the direction of Jesus Christ stands a living prophet. His name is Spencer W. Kimball, President of The Church of Jesus Christ of Latter-day Saints.
 
 We declare that the Church of Jesus Christ has been restored in our time. His original church was lost to the earth by apostasy. Through Joseph Smith, the founding prophet called of God in this modern dispensation, new revelation has come forth from God that has restored the original doctrines and ordinances which belong to the Church of Jesus Christ.
 
 Carrying the message of the Restoration to all nations who permit the restored church entrance, approximately 25,000 missionaries, elders and young women, are called to serve voluntarily, eighteen months for the young women, and two years for the young men.
 
-Our president, Spencer W. Kimball, has stated that our objective is to bring the gospel to all the world. “We invite all to heed the message of the Latter-day Saint missionaries. No message you will ever hear will have greater impact for good in your lives, both here in mortality and in the hereafter.
+Our president, Spencer W. Kimball, has stated that our objective is to bring the gospel to all the world. “We invite all to heed the message of the Latter-day Saint missionaries. No message you will ever hear will have greater impact for good in your lives, both here in mortality and in the hereafter.
 
 “The rewards are priceless for those honest in heart who seek the truth.” (*Ensign,* May 1976, p. 7.)
 
@@ -107,6 +107,4 @@ I bear my solemn witness to you that there is one true shepherd—our Lord Jesus
 
 
 
-
-
-#Church_Organization #Restoration
+#ChurchOrganization #Restoration

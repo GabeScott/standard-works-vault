@@ -1,6 +1,6 @@
 # Motherhood and the Family
 
-By Mary F. Foulger - *Of the Relief Society General Board*
+By Mary F. Foulger - *Of the Relief Society General Board*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -18,7 +18,7 @@ As a mother I have made mistakes. Regardless of culture or country, we all make 
 
 To mothers raising children alone, remember that you and the Lord constitute a majority. As your arms encircle your little ones, his arms are there, too. Feel secure, for his arms are lengthened out toward us all the day long.
 
-Elder John A. Widtsoe said: “Motherhood may be exercised as universally and vicariously as Priesthood” (*Priesthood and Church Government,* rev. ed., Salt Lake City: Deseret Book Company, 1954, p. 85).
+Elder John A. Widtsoe said: “Motherhood may be exercised as universally and vicariously as Priesthood” (*Priesthood and Church Government,* rev. ed., Salt Lake City: Deseret Book Company, 1954, p. 85).
 
 For those who have not yet borne a child—exercise motherhood. Let your arms be an extension of the Savior’s in providing love and security for all his children.
 
@@ -31,8 +31,6 @@ My mother died three weeks before my first child was born. How I longed for her.
 God has called Latter-day Saint women to prepare his children for the challenges of the last days. In order to fulfill this calling, we must be both learners and teachers of eternal truths. We must study the scriptures that we might arm our children with knowledge of Jesus Christ and his gospel. We must guard our homes against any intrusion of evil. We must seek the guidance of the Holy Spirit. We must make our homes holy places in which to stand. Sisters, we must faithfully fulfill here the sacred trust we willingly accepted there.
 
 Let us learn and then teach that the Lord has given us a prophet to guide us back to him; learn and then teach that Jesus is the Christ, that he lives, and that our only security lies in his arms. To this I testify in the holy name of Jesus Christ, amen.
-
-
 
 
 

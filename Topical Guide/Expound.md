@@ -1,6 +1,5 @@
 # Expound
 
-
 he *expounded* all things to his disciples, [[Mark 4.34|Mark 4:34]].
 
 he *expounded* unto them in all the scriptures, [[Luke 24.27|Luke 24:27]].
@@ -16,5 +15,3 @@ Aaron did *expound* unto him the scriptures, [[Alma 22.13|Alma 22:13]] ([[D&C 24
 he did *expound* all things, [[3 Nephi 26.3|3 Nephi 26:3]].
 
 reasoning with and *expounding* all scriptures, [[D&C 68.1|D&C 68:1]].
-
-*See also* [[D&C 20.42|D&C 20:42]], [[D&C 20.46|D&C 20:46]], [[D&C 20.50|D&C 20:50]], [[D&C 20.59|D&C 20:59]].

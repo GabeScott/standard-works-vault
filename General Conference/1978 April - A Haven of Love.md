@@ -1,6 +1,6 @@
 # A Haven of Love
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -59,8 +59,6 @@ May I close with just one other experience. Let me tell you of one elderly broth
 In the process of doing, he started to get a small glimmer of interest in something—in anything—and his eyes raised from the floor. He saw the walls, and he saw the windows. As this process continued, the development of a feeling that everyone needs was nurtured. It wasn’t long until other assignments were given to him which he did very well. In time his faith in himself and his feeling of worth had been restored. He became a supervisor of others.
 
 May the Lord bless these wonderful, special people, and may we be blessed as their leaders, that we, through the work of the Welfare Services program, may bless their lives, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

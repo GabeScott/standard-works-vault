@@ -1,6 +1,6 @@
 # Integrity
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -90,7 +90,7 @@ Let each and every one of us incorporate this admonition into our everyday livin
 
 Among the Prophet’s close associates were those who led our pioneer forefathers across the wilderness to the Great Salt Lake Valley, to become a great and a mighty people according to divine prophecy. They could not have done so by compromising their principles.
 
-One of those who made that first long trek across the plains from the Mississippi River to the Salt Lake Valley was Heber C. Kimball, grandfather of our present-day prophet and leader, President Spencer W. Kimball. On one occasion he said:
+One of those who made that first long trek across the plains from the Mississippi River to the Salt Lake Valley was Heber C. Kimball, grandfather of our present-day prophet and leader, President Spencer W. Kimball. On one occasion he said:
 
 “God … is determined to save those who will take a course to secure their election and heirship to eternal life. All such people will prevail. If they fail in their integrity and firmness to the cause of righteousness, and repent not, they will lose all they have already gained, all they have expected, and all that has ever been promised to them that overcome.” (*Journal of Discourses,* 8:89.)
 
@@ -102,11 +102,9 @@ This applies equally to the multitudes of righteous people throughout the world 
 
 The prophets of the Old and New Testaments, and those of the Book of Mormon, attained that integrity of heart that brought them the companionship of the Holy Spirit. Likewise, those who have presided and today preside over this restored kingdom of God do so with integrity, with complete devotion. Members of The Church of Jesus Christ of Latter-day Saints the world over can be eternally grateful to know of the unwavering faith of these devoted General Authorities who sit upon the rostrum of this great Tabernacle today. They, with thousands of other leaders throughout the Church, are upright, sincere, and devoted to the trust placed upon them. They are unselfish in their service, humble and submissive to the mind and will of our Lord and Savior. Their utmost desire is to seek salvation and exaltation for themselves and their fellowmen.
 
-I bear witness that Jesus Christ, the Son of God, the Savior of the world, is the head of this church and directs its activities through his prophet, President Spencer W. Kimball.
+I bear witness that Jesus Christ, the Son of God, the Savior of the world, is the head of this church and directs its activities through his prophet, President Spencer W. Kimball.
 
 I would this day, with all my soul, pray that the hearts of men everywhere will be touched by that divine spark which will cause them to understand, accept, and live the teachings of Jesus Christ, which will prepare them for eternal life with God, our Heavenly Father. In the name of Jesus Christ, amen.
-
-
 
 
 

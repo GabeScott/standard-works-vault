@@ -1,7 +1,6 @@
 # Proverb
 
-
-*See also* [[Byword.md|Byword]]; [[Parable.md|Parable]]; [BD Proverbs, book of](https://www.churchofjesuschrist.org/study/scriptures/bd/proverbs-book-of?lang=eng)
+*See also* [[Byword.md|Byword]]; [[Parable.md|Parable]]; [[BD Proverbs, book of.md|BD Proverbs, book of]]
 
 they that speak in *proverbs* say, Come into Heshbon, [[Numbers 21.27|Numbers 21:27]].
 

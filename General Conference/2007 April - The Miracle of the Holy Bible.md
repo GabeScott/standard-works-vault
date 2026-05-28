@@ -44,7 +44,7 @@ Brothers and sisters, I am sure many of you have had the experience of hearing p
 
 Jesus taught that we should “search the scriptures; for … they are they which testify of me” ([[John 5.39|John 5:39]]). These words provide insight and inspiration to all who sincerely seek to know and understand the truth about Jesus Christ. The scriptures are rich in history, doctrine, stories, sermons, and testimonies, all of which ultimately focus on the eternal Christ and His physical and spiritual mission to Heavenly Father’s children.
 
-Members of The Church of Jesus Christ of Latter-day Saints believe that “all scripture is given by inspiration of God, and is profitable” ([[2 Timothy 3.16|2 Timothy 3:16]]). We love the Bible and other scriptures. That may be surprising to some who may not be aware of our belief in the Bible as the revealed word of God. It is one of the pillars of our faith, a powerful witness of the Savior and of Christ’s ongoing influence in the lives of those who worship and follow Him. The more we read and study the Bible and its teachings, the more clearly we see the doctrinal underpinnings of the restored gospel of Jesus Christ. We tend to love the scriptures that we spend time with. We may need to balance our study in order to love and understand all scripture.
+Members of The Church of Jesus Christ of Latter-day Saints believe that “all scripture is given by inspiration of God, and is profitable” ([[2 Timothy 3.16|2 Timothy 3:16]]). We love the Bible and other scriptures. That may be surprising to some who may not be aware of our belief in the Bible as the revealed word of God. It is one of the pillars of our faith, a powerful witness of the Savior and of Christ’s ongoing influence in the lives of those who worship and follow Him. The more we read and study the Bible and its teachings, the more clearly we see the doctrinal underpinnings of the restored gospel of Jesus Christ. We tend to love the scriptures that we spend time with. We may need to balance our study in order to love and understand all scripture.
 
 You young people especially, do not discount or devalue the Holy Bible. It is the sacred, holy record of the Lord’s life. The Bible contains hundreds of pages more than all of our other scripture combined. It is the bedrock of all Christianity. We do not criticize or belittle anyone’s beliefs. Our great responsibility as Christians is to share all that God has revealed with all of His sons and daughters.
 
@@ -56,7 +56,7 @@ The second Bible testament of Christ is the New Testament, which records His bir
 
 The third testament of Christ is the Book of Mormon, which also foretells Christ’s coming, confirms the Bible’s account of His saving Atonement, and then reveals the resurrected Lord’s visit to the earth’s other hemisphere. The subtitle of the Book of Mormon, the clarifying purpose statement printed on the cover of every copy, is “Another Testament of Jesus Christ.”
 
-Each of these three testaments is a part of the great, indivisible whole of the Lord’s revealed word to His children. They contain the words of Christ, which we have been admonished to feast upon as a means of qualifying for eternal life (see [[2 Nephi 31.20|2 Nephi 31:20]]). Those who think that one part is more important or more true than the other parts are missing some of the beauty and completeness of the canon of ancient scripture.
+Each of these three testaments is a part of the great, indivisible whole of the Lord’s revealed word to His children. They contain the words of Christ, which we have been admonished to feast upon as a means of qualifying for eternal life (see [[2 Nephi 31.20|2 Nephi 31:20]]). Those who think that one part is more important or more true than the other parts are missing some of the beauty and completeness of the canon of ancient scripture.
 
 And those who think that members of The Church of Jesus Christ of Latter-day Saints do not believe in Jesus Christ or in the Bible should take time to understand the Church, the significance of its name, and the power of its message.
 
@@ -69,6 +69,4 @@ My brothers and sisters, we must help all people, including our own members, und
 
 
 
-
-
-#Bible #Jesus_Christ #Joseph_Smith #Sacrifice #Scriptures
+#Bible #JosephSmith #JesusChrist #Sacrifice #Scriptures

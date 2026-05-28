@@ -1,6 +1,6 @@
 # The Exquisite Gift of the Son
 
-By Elder Matthew S. Holland - *Of the Seventy*
+By Elder Matthew S. Holland - *Of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -26,7 +26,7 @@ Sometimes exquisite pain comes not from sin but from honest mistakes, the action
 
 “… Oh that I had wings like a dove! for then would I fly away, and be at rest.”[^13]
 
-Medical science, professional counseling, or legal rectification can help alleviate such suffering. But note, all good gifts—including these—come from the Savior.[^14] Regardless of the causes of our worst hurts and heartaches, the ultimate source of relief is the same: Jesus Christ. He alone holds the full power and healing balm to correct every mistake, right every wrong, adjust every imperfection, mend every wound, and deliver every delayed blessing. Like witnesses of old, I testify that “we have not an high priest which cannot be touched with the feeling of our infirmities”[^15] but rather a loving Redeemer who descended from His throne above and went forth “suffering pains and afflictions and temptations of every kind … , that he may know … how to succor his people.”[^16]
+Medical science, professional counseling, or legal rectification can help alleviate such suffering. But note, all good gifts—including these—come from the Savior.[^14] Regardless of the causes of our worst hurts and heartaches, the ultimate source of relief is the same: Jesus Christ. He alone holds the full power and healing balm to correct every mistake, right every wrong, adjust every imperfection, mend every wound, and deliver every delayed blessing. Like witnesses of old, I testify that “we have not an high priest which cannot be touched with the feeling of our infirmities”[^15] but rather a loving Redeemer who descended from His throne above and went forth “suffering pains and afflictions and temptations of every kind … , that he may know … how to succor his people.”[^16]
 
 For anyone today with pains so intense or so unique that you feel no one else could fully appreciate them, you may have a point. There may be no family member, friend, or priesthood leader—however sensitive and well-meaning each may be—who knows exactly what you are feeling or has the precise words to help you heal. But know this: there is One who understands perfectly what you are experiencing, who is “mightier than all the earth,”[^17] and who is “able to do exceeding abundantly above all that \[you\] ask or think.”[^18] The process will unfold in His way and on His schedule, but Christ stands ready *always* to heal every ounce and aspect of your agony.
 
@@ -61,13 +61,13 @@ I witness to you that through the staggering goodness of Jesus Christ and His in
 
 [^8]: [[Mosiah 25.10|Mosiah 25:10]].
 
-[^9]: See Orson F. Whitney, *Baptism—the Birth of Water and of Spirit* (1934), 5.
+[^9]: See Orson F. Whitney, *Baptism—the Birth of Water and of Spirit* (1934), 5.
 
 [^10]: [[D&C 19.15|Doctrine and Covenants 19:15–16]][[D&C 19.16|]].
 
 [^11]: See [[Alma 36.24|Alma 36:24–26]][[Alma 36.25|]][[Alma 36.26|]].
 
-[^12]: “I Stand All Amazed,” *Hymns,* no. 193.
+[^12]: “I Stand All Amazed,” *Hymns,* no. 193.
 
 [^13]: [[Psalms 55.4|Psalm 55:4–6]][[Psalms 55.5|]][[Psalms 55.6|]].
 
@@ -77,15 +77,15 @@ I witness to you that through the staggering goodness of Jesus Christ and His in
 
 [^16]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-[^17]: [[1 Nephi 4.1|1 Nephi 4:1]].
+[^17]: [[1 Nephi 4.1|1 Nephi 4:1]].
 
 [^18]: [[Ephesians 3.20|Ephesians 3:20]].
 
-[^19]: Joseph Smith Translation, Hebrews 11:40 (in [[Hebrews 11.40|Hebrews 11:40]], footnote *a*).
+[^19]: Joseph Smith Translation, Hebrews 11:40 (in [[Hebrews 11.40|Hebrews 11:40]], footnote *a*).
 
-[^20]: See [[2 Nephi 2.25|2 Nephi 2:25]]; [[Alma 41.11|Alma 41:11]].
+[^20]: See [[2 Nephi 2.25|2 Nephi 2:25]]; [[Alma 41.11|Alma 41:11]].
 
-[^21]: [[Hebrews 2.10|Hebrews 2:10]]; see also [[Hebrews 5.8|Hebrews 5:8]]; Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign,* Nov. 1995, 86–88.
+[^21]: [[Hebrews 2.10|Hebrews 2:10]]; see also [[Hebrews 5.8|Hebrews 5:8]]; Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign,* Nov. 1995, 86–88.
 
 [^22]: [[Revelation 7.9|Revelation 7:9–10]][[Revelation 7.10|]].
 
@@ -95,5 +95,6 @@ I witness to you that through the staggering goodness of Jesus Christ and His in
 
 [^25]: [[Revelation 21.4|Revelation 21:4]].
 
+[^26]: See [[Isaiah 61.3|Isaiah 61:3]]; [[Joseph Smith History 1.31|Joseph Smith—History 1:31]].
 
-#Adversity #Atonement #Jesus_Christ #Repentance
+#Adversity #Atonement #JesusChrist #Repentance

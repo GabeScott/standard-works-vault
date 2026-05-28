@@ -5,8 +5,8 @@
 [Joseph Smith History 1:25](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.25?lang=eng#p25)
 
 
-[^a]: JS—H 1:17.
-[^b]: TG [[Hate]].
-[^c]: TG [[Adversity]].
-[^d]: TG [[Injustice]].
-[^e]: TG [[Courage, Courageous]]; [[Honesty]]; [[Integrity]].
+[^a]: [[Joseph Smith History 1.17|JS—H 1:17]].  
+[^b]: [[Hate|TG Hate]].  
+[^c]: [[Adversity|TG Adversity]].  
+[^d]: [[Injustice|TG Injustice]].  
+[^e]: [[Courage, Courageous|TG Courage]]; [[Honesty|Honesty]]; [[Integrity|Integrity]].  

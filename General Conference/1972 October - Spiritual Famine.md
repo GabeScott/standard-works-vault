@@ -1,6 +1,6 @@
 # Spiritual Famine
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -12,11 +12,11 @@ One of the most striking prophecies of the Old Testament, which certainly charac
 
 “And they shall wander from sea to sea, and from the north even to the east, they shall run to and fro to seek the word of the Lord, and shall not find it.” ([[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]].)
 
-Famine was one of the common scourges of Old Testament times, and people understood the devastating consequences of crop failure and starving people. Amos brought this understanding into sharp focus by his prediction of a spiritual famine. He said: “… not a famine of bread, nor a thirst for water, but of hearing the words of the Lord.”
+Famine was one of the common scourges of Old Testament times, and people understood the devastating consequences of crop failure and starving people. Amos brought this understanding into sharp focus by his prediction of a spiritual famine. He said: “… not a famine of bread, nor a thirst for water, but of hearing the words of the Lord.”
 
-Long before this time Moses had written: “… man doth not live by bread only, but by every word that proceedeth out of the mouth of the Lord doth man live.” ([[Deuteronomy 8.3|Deut. 8:3]].)
+Long before this time Moses had written: “… man doth not live by bread only, but by every word that proceedeth out of the mouth of the Lord doth man live.” ([[Deuteronomy 8.3|Deut. 8:3]].)
 
-Present-day reports of confusion and frustration of individuals and religious institutions, as they attempt to resolve their religious doubts and conflicts, remind us of these words of Amos: “… they shall run to and fro to seek the word of the Lord, and shall not find it.”
+Present-day reports of confusion and frustration of individuals and religious institutions, as they attempt to resolve their religious doubts and conflicts, remind us of these words of Amos: “… they shall run to and fro to seek the word of the Lord, and shall not find it.”
 
 They seek to find the solution without building on the rock of revelation, as the Lord said must be done, if the gates of hell are not to prevail against it. (See [[Matthew 16.17|Matt. 16:17–18]][[Matthew 16.18|]].) This problem has engaged the minds of good and sincere men before and since the restoration of the gospel of Jesus Christ in this dispensation.
 
@@ -42,7 +42,7 @@ Revelation followed revelation, as recorded in the Doctrine and Covenants. The f
 
 In a little over 140 years, a miracle has been achieved as the priesthood has administered the restored gospel. Temples have been erected on this continent and in other places in the world. Houses of worship dot many lands of the globe. A desert has been made to bloom as a rose. Over 16,000 full-time missionaries are proclaiming the gospel in many lands. Elementary schools, high schools, seminaries, institutes of religion, and colleges in many countries give instruction to more than a quarter of a million young people daily, not only in the elements of secular learning, but in the eternal truths of the gospel.
 
-Most important is the fact that down through its history, including this very day, the Church has had a prophet, seer, and revelator. At the head of the Church is Jesus Christ, who directs his prophet, presently Harold B. Lee. His counselors, the members of the Council of the Twelve, and the Patriarch to the Church are also prophets, seers, and revelators. The more than three million members of the Church do not have to listen to an uncertain trumpet. They can believe the voice of their leaders, knowing they are guided by the Lord.
+Most important is the fact that down through its history, including this very day, the Church has had a prophet, seer, and revelator. At the head of the Church is Jesus Christ, who directs his prophet, presently Harold B. Lee. His counselors, the members of the Council of the Twelve, and the Patriarch to the Church are also prophets, seers, and revelators. The more than three million members of the Church do not have to listen to an uncertain trumpet. They can believe the voice of their leaders, knowing they are guided by the Lord.
 
 The Church of Jesus Christ provides maximum opportunity for involvement of its members. From early youth to the last years of life, satisfying and meaningful activity and responsibility are available to all who are worthy and willing. This promotes the deep satisfaction and emotional well-being which the gospel of Jesus Christ should bring into every human life.
 
@@ -61,6 +61,4 @@ It is my witness that God lives and Jesus is the Christ, the Savior of the world
 
 
 
-
-
-#Church_Organization #Religion #Restoration #Spirituality
+#ChurchOrganization #Religion #Restoration #Spirituality

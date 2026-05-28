@@ -50,7 +50,7 @@ A recent issue of the *Church News* carried the story of a group of farmers in a
 
 “The long arms of the ‘beeters’ stretch out over twelve rows, slicing the tops off sugar beets. Behind them, the harvesters thrust their steel fingers into the soil and scoop up the beets, pulling them up toward a belt and into a waiting truck.
 
-“… This is the Rupert Idaho Welfare Farm, and those who are working here today are volunteers. … At times more than 60 machines \[are\] working in harmony together— … all owned by local farmers.”
+“… This is the Rupert Idaho Welfare Farm, and those who are working here today are volunteers. … At times more than 60 machines \[are\] working in harmony together— … all owned by local farmers.”
 
 The work goes on throughout the day.
 
@@ -103,6 +103,4 @@ May heaven prosper this great program, and may heaven’s blessing rest upon all
 
 
 
-
-
-#Couple_Missionaries #Education #Welfare
+#CoupleMissionaries #Education #Welfare

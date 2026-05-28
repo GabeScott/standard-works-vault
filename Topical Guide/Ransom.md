@@ -1,13 +1,12 @@
 # Ransom
 
-
-*See also* [[Deliver, Deliverance.md|Deliver]]; [[Redeem, Redeemed.md|Redeem]]; [[Redemption.md|Redemption]]; [[Save.md|Save]]
+*See also* [[Deliver.md|Deliver]]; [[Redeem.md|Redeem]]; [[Redemption.md|Redemption]]; [[Save.md|Save]]
 
 give every man a *ransom* for his soul, [[Exodus 30.12|Exodus 30:12]].
 
 I have found a *ransom*, [[Job 33.24|Job 33:24]].
 
-*ransom* of a man's life are his riches, [[Proverbs 13.8|Proverbs 13:8]].
+*ransom* of a man’s life are his riches, [[Proverbs 13.8|Proverbs 13:8]].
 
 wicked shall be a *ransom* for the righteous, [[Proverbs 21.18|Proverbs 21:18]].
 

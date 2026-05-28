@@ -1,13 +1,12 @@
 # Hope
 
-
 *See also* [[Expectation.md|Expectation]]; [[Faith.md|Faith]]; [[Trust.md|Trust]]
 
 what is the *hope* of the hypocrite, [[Job 27.8|Job 27:8]].
 
 my flesh also shall rest in *hope*, [[Psalms 16.9|Psalms 16:9]] ([[Acts 2.26|Acts 2:26]]).
 
-mercy ... according as we *hope* in thee, [[Psalms 33.22|Psalms 33:22]].
+mercy … according as we *hope* in thee, [[Psalms 33.22|Psalms 33:22]].
 
 in thee, O Lord, do I *hope*, [[Psalms 38.15|Psalms 38:15]].
 
@@ -23,7 +22,7 @@ Chasten thy son while there is *hope*, [[Proverbs 19.18|Proverbs 19:18]].
 
 into the pit cannot *hope* for thy truth, [[Isaiah 38.18|Isaiah 38:18]].
 
-Blessed is the man ... whose *hope* the Lord is, [[Jeremiah 17.7|Jeremiah 17:7]].
+Blessed is the man … whose *hope* the Lord is, [[Jeremiah 17.7|Jeremiah 17:7]].
 
 Our bones are dried, and our *hope* is lost, [[Ezekiel 37.11|Ezekiel 37:11]].
 
@@ -43,7 +42,7 @@ we are saved by *hope*: but *hope* that is seen is not *hope*, [[Romans 8.24|Rom
 
 Rejoicing in *hope*, [[Romans 12.12|Romans 12:12]].
 
-through patience and ... scriptures might have *hope*, [[Romans 15.4|Romans 15:4]].
+through patience and … scriptures might have *hope*, [[Romans 15.4|Romans 15:4]].
 
 abound in *hope*, through the power of the Holy Ghost, [[Romans 15.13|Romans 15:13]].
 
@@ -93,21 +92,21 @@ not only we ourselves had a *hope* of his glory, [[Jacob 4.4|Jacob 4:4]].
 
 see that ye have faith, *hope*, and charity, [[Alma 7.24|Alma 7:24]].
 
-bound down under ... vain *hope*, [[Alma 30.13|Alma 30:13]].
+bound down under … vain *hope*, [[Alma 30.13|Alma 30:13]].
 
 ye *hope* for things which are not seen, which are true, [[Alma 32.21|Alma 32:21]].
 
-*hope* for a better world ... which *hope* cometh of faith, [[Ether 12.4|Ether 12:4]].
+*hope* for a better world … which *hope* cometh of faith, [[Ether 12.4|Ether 12:4]].
 
-Gentiles ... show unto them that faith, *hope* and charity, [[Ether 12.28|Ether 12:28]].
+Gentiles … show unto them that faith, *hope* and charity, [[Ether 12.28|Ether 12:28]].
 
 man must *hope*, or he cannot receive an inheritance, [[Ether 12.32|Ether 12:32]].
 
-Mormon ... spake concerning faith, *hope*, and charity, [[Moroni 7.1|Moroni 7:1]].
+Mormon … spake concerning faith, *hope*, and charity, [[Moroni 7.1|Moroni 7:1]].
 
-How ... attain unto faith, save ye shall have *hope*, [[Moroni 7.40|Moroni 7:40]].
+How … attain unto faith, save ye shall have *hope*, [[Moroni 7.40|Moroni 7:40]].
 
-have *hope* through the atonement of Christ and ... his resurrection, [[Moroni 7.41|Moroni 7:41]].
+have *hope* through the atonement of Christ and … his resurrection, [[Moroni 7.41|Moroni 7:41]].
 
 hath neither faith, *hope*, nor charity, [[Moroni 8.14|Moroni 8:14]].
 
@@ -115,12 +114,12 @@ Comforter filleth with *hope* and perfect love, [[Moroni 8.26|Moroni 8:26]].
 
 if there must be faith there must also be *hope*, [[Moroni 10.20|Moroni 10:20]].
 
-faith, *hope*, charity and love ... qualify him, [[D&C 4.5|D&C 4:5]] ([[D&C 6.19|D&C 6:19]]; [[D&C 12.8|D&C 12:8]]).
+faith, *hope*, charity and love … qualify him, [[D&C 4.5|D&C 4:5]] ([[D&C 6.19|D&C 6:19]]; [[D&C 12.8|D&C 12:8]]).
 
 if you have not faith, *hope*, and charity, [[D&C 18.19|D&C 18:19]].
 
 those that have not *hope* of a glorious resurrection, [[D&C 42.45|D&C 42:45]].
 
-giving us consolation ... confirming our *hope*, [[D&C 128.21|D&C 128:21]].
+giving us consolation … confirming our *hope*, [[D&C 128.21|D&C 128:21]].
 
 we *hope* all things, [[Articles of Faith 1.13|Articles of Faith 1:13]].

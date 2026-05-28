@@ -1,6 +1,6 @@
 # A Living Testimony
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -18,7 +18,7 @@ Now, you may not have recognized that as a conscious choice of any great importa
 
 In the hour we have been together, the Lord has deepened your belief in Him and strengthened your testimony. You have heard more than words and music. You have felt the witness of the Spirit to your heart that there are living prophets on the earth in the Lord’s true Church and that the path to happiness lies within His kingdom. Your testimony has grown that this is the only true and living Church on the earth today.
 
-Now, we did not all feel exactly the same things. For some it was a witness of the Spirit that Thomas S. Monson is a prophet of God. For others it was that honesty, virtue, and doing good to all men really are attributes of the Savior. And with that came a greater desire be like Him.
+Now, we did not all feel exactly the same things. For some it was a witness of the Spirit that Thomas S. Monson is a prophet of God. For others it was that honesty, virtue, and doing good to all men really are attributes of the Savior. And with that came a greater desire be like Him.
 
 All of you have a desire for your testimony of the gospel of Jesus Christ to be strengthened. President Brigham Young could see your need many years ago. He was a prophet of God, and with prophetic foresight 142 years ago, he saw you and your needs. He was a loving father and a living prophet.
 
@@ -110,7 +110,7 @@ You will be a light to the world as you share your testimony with others. You wi
 
 In your testimony and your choices lies the hope of the Church and of the generations who will follow your example of hearing and accepting the invitation of the Lord: “Come, follow me.” The Lord knows and loves you.
 
-I leave you my love and my testimony. You are daughters of a loving and living Father in Heaven. I know that His resurrected Son, Jesus Christ, is the Savior and the Light of the World. I testify that the Holy Ghost has sent messages to you tonight confirming truth to your heart. President Thomas S. Monson is the living prophet of God. I so testify in the sacred name of Jesus Christ, amen.
+I leave you my love and my testimony. You are daughters of a loving and living Father in Heaven. I know that His resurrected Son, Jesus Christ, is the Savior and the Light of the World. I testify that the Holy Ghost has sent messages to you tonight confirming truth to your heart. President Thomas S. Monson is the living prophet of God. I so testify in the sacred name of Jesus Christ, amen.
 
 
 
@@ -139,6 +139,4 @@ I leave you my love and my testimony. You are daughters of a loving and living F
 
 [^12]: [[D&C 50.24|Doctrine and Covenants 50:24]].
 
-
-
-#Eternal_Life #Faith #Obedience #Prayer #Testimony #Young_Women
+#EternalLife #Faith #Obedience #Prayer #Testimony #YoungWomen

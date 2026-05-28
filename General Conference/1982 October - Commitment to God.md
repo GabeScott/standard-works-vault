@@ -1,6 +1,6 @@
 # Commitment to God
 
-By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
+By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -40,7 +40,7 @@ Joshua now knew that the miracles of the Lord would continue, just as when Moses
 
 Soon after, when Joshua was directed to destroy the city of Jericho that lay before them, the great walls of the city stood as an imposing and physically impossible barrier to Israel’s success—or at least so it seemed. Not knowing the means, but assured as to the end, Joshua carried out the instructions he had been given by a messenger of the Lord. His commitment was to complete obedience. His concern was to do precisely as he was instructed, that the promise of the Lord would be fulfilled. The instructions no doubt seemed strange, but his faith in the outcome urged him on. The result, of course, was another in a long series of miracles experienced by the Israelites as they were led over many years by Moses, by Joshua, and by many other prophets who were committed to follow the commandments and the directives of the Lord.
 
-As Joshua and his people approached Jericho, the instructions of the Lord were followed precisely, and according to the scriptural account, “the waIl fell down flat, so that the people went up into the city, every man straight before him, and they took the city.” ([[Joshua 6.20|Josh. 6:20]].)
+As Joshua and his people approached Jericho, the instructions of the Lord were followed precisely, and according to the scriptural account, “the wall fell down flat, so that the people went up into the city, every man straight before him, and they took the city.” ([[Joshua 6.20|Josh. 6:20]].)
 
 The record states that after Israel had rested from the wars with their enemies, Joshua, who was now very old, called all Israel together. In his farewell address he reminded them they had been victorious because God had fought for them, but if they now ceased to serve the Lord and keep his law they would be destroyed. He recalled how the Lord God of Israel had led Abraham throughout Canaan and had “multiplied his seed.” ([[Joshua 24.3|Josh. 24:3]].) He reminded them of how Jacob and his children had gone down into Egypt. He told of how the Lord had been with Moses and Aaron and had brought their fathers out of Egypt; how, in all of the battles and conquests, they had prevailed, adding this significant statement: “But not with thy sword, nor with thy bow.” ([[Joshua 24.12|Josh. 24:12]].) They had been led by the Lord to victory. The battles had not been won by swords and bows. He then admonished them: “Fear the Lord, and serve him in sincerity and in truth: and put away the gods which your fathers served on the other side of the flood, and in Egypt; and serve ye the Lord.” ([[Joshua 24.14|Josh. 24:14]].)
 
@@ -65,8 +65,6 @@ We have, then, examples from the scriptures of how we should consider and evalua
 There is good reason to make our decision *now* to serve the Lord. On this Sunday morning, when the complications and temptations of life are somewhat removed, and when we have the time and more of an inclination to take an eternal perspective, we can more clearly evaluate what will bring us the greatest happiness in life. We should decide now, in the light of the morning, how we will act when the darkness of night and when the storms of temptation arrive.
 
 I pray that we will have the strength to decide now to do what we ought to do. I pray that we will decide now to serve the Lord. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -10,7 +10,7 @@ By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 I feel a deep responsibility to speak to you today about a pressing need in the Church. My greatest hope is that as I speak, the Holy Ghost will touch hearts, and somewhere a spouse or two will quietly nudge his or her companion, and a moment of truth will occur. I will speak on the urgent need for more mature couples to serve in the mission field. We wish to express our appreciation for all those valiant couples who are currently serving, those who have served, and those who will yet serve.
 
-In the 93rd section of the Doctrine and Covenants, the Lord rebuked the presiding Brethren of the Church, saying, “I have commanded you to bring up your children in light and truth. …
+In the 93rd section of the Doctrine and Covenants, the Lord rebuked the presiding Brethren of the Church, saying, “I have commanded you to bring up your children in light and truth. …
 
 “And now a commandment I give unto you—if you will be delivered you shall set in order your own house” ([[D&C 93.40|D&C 93:40, 43]][[D&C 93.43|]]).
 
@@ -75,6 +75,4 @@ That you may experience the blessings of missionary service for you and your fam
 
 
 
-
-
-#Charity #Couple_Missionaries #Example #Family #Fear #Joy #Marriage #Sacrifice #Service #Teaching #Testimony
+#Charity #CoupleMissionaries #Example #Family #Fear #Joy #Marriage #Sacrifice #Service #Teaching #Testimony

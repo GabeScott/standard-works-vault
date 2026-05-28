@@ -1,11 +1,10 @@
 # Israel, Land of
 
-
 *See also* [[Lands of Inheritance.md|Lands of Inheritance]]; [[Promised Lands.md|Promised Lands]]
 
-Abram ... Unto thy seed will I give this *land*, [[Genesis 12.7|Genesis 12:7]] ([[Genesis 15.18|Genesis 15:18]]).
+Abram … Unto thy seed will I give this *land*, [[Genesis 12.7|Genesis 12:7]] ([[Genesis 15.18|Genesis 15:18]]).
 
-give unto thee, and to thy seed ... *land* of Canaan, for an everlasting possession, [[Genesis 17.8|Genesis 17:8]] ([[1 Chronicles 16.18|1 Chronicles 16:18]]).
+give unto thee, and to thy seed … *land* of Canaan, for an everlasting possession, [[Genesis 17.8|Genesis 17:8]] ([[1 Chronicles 16.18|1 Chronicles 16:18]]).
 
 unto thy seed, I will give all these *countries*, [[Genesis 26.3|Genesis 26:3]].
 
@@ -13,9 +12,9 @@ will bring thee again into this *land*, [[Genesis 28.15|Genesis 28:15]] ([[Jerem
 
 *land* which I gave Abraham and Isaac, [[Genesis 35.12|Genesis 35:12]].
 
-God shall ... bring you again unto the *land* of your fathers, [[Genesis 48.21|Genesis 48:21]].
+God shall … bring you again unto the *land* of your fathers, [[Genesis 48.21|Genesis 48:21]].
 
-bring you ... unto a *land* flowing with milk and honey, [[Exodus 3.17|Exodus 3:17]] ([[Jeremiah 11.5|Jeremiah 11:5]]).
+bring you … unto a *land* flowing with milk and honey, [[Exodus 3.17|Exodus 3:17]] ([[Jeremiah 11.5|Jeremiah 11:5]]).
 
 *land* is defiled, [[Leviticus 18.25|Leviticus 18:25]].
 
@@ -41,9 +40,9 @@ neither shall thy *land* any more be termed Desolate, [[Isaiah 62.4|Isaiah 62:4]
 
 make thy *land* desolate, [[Jeremiah 4.7|Jeremiah 4:7]].
 
-saith the Lord ... I will give you the *land of Israel*, [[Ezekiel 11.17|Ezekiel 11:17]].
+saith the Lord … I will give you the *land of Israel*, [[Ezekiel 11.17|Ezekiel 11:17]].
 
-*land* which I had given them ... the glory of all *lands*, [[Ezekiel 20.15|Ezekiel 20:15]].
+*land* which I had given them … the glory of all *lands*, [[Ezekiel 20.15|Ezekiel 20:15]].
 
 they shall not enter into the *land of Israel*, [[Ezekiel 20.38|Ezekiel 20:38]].
 
@@ -59,7 +58,7 @@ By faith he sojourned in the *land* of promise, [[Hebrews 11.9|Hebrews 11:9]].
 
 *land* of Jerusalem, which is the promised *land*, [[3 Nephi 20.29|3 Nephi 20:29]].
 
-Jerusalem ... *land* of their inheritance, [[3 Nephi 20.33|3 Nephi 20:33]].
+Jerusalem … *land* of their inheritance, [[3 Nephi 20.33|3 Nephi 20:33]].
 
 built the city of Jerusalem in the *land* of their fathers, [[D&C 77.15|D&C 77:15]].
 

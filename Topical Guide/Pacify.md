@@ -1,7 +1,6 @@
 # Pacify
 
-
-wrath of a king ... a wise man will *pacify* it, [[Proverbs 16.14|Proverbs 16:14]].
+wrath of a king … a wise man will *pacify* it, [[Proverbs 16.14|Proverbs 16:14]].
 
 A gift in secret *pacifieth* anger, [[Proverbs 21.14|Proverbs 21:14]].
 

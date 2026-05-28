@@ -1,6 +1,5 @@
 # Answer
 
-
 God shall give Pharaoh an *answer* of peace, [[Genesis 41.16|Genesis 41:16]].
 
 God that *answereth* by fire, [[1 Kings 18.24|1 Kings 18:24]].
@@ -35,7 +34,7 @@ no thought how or what thing ye shall *answer*, [[Luke 12.11|Luke 12:11]].
 
 not to meditate before what ye shall *answer*, [[Luke 21.14|Luke 21:14]].
 
-questioned with him ... but he *answered* him nothing, [[Luke 23.9|Luke 23:9]].
+questioned with him … but he *answered* him nothing, [[Luke 23.9|Luke 23:9]].
 
 that we may give an *answer* to them that sent us, [[John 1.22|John 1:22]].
 

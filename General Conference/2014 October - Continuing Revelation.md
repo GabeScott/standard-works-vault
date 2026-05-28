@@ -1,6 +1,6 @@
 # Continuing Revelation
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -18,7 +18,7 @@ The very existence of the Church stems from a young boy knowing that was true. Y
 
 Not only was he then called of God to establish the true Church of Jesus Christ, but with it was restored the power to invoke the Holy Ghost so that revelation from God could be continuous.
 
-President Boyd K. Packer described that identifying mark of the true Church this way: “Revelation continues in the Church: the prophet receiving it for the Church; the president for his stake, his mission, or his quorum; the bishop for his ward; the father for his family; the individual for himself.”[^1]
+President Boyd K. Packer described that identifying mark of the true Church this way: “Revelation continues in the Church: the prophet receiving it for the Church; the president for his stake, his mission, or his quorum; the bishop for his ward; the father for his family; the individual for himself.”[^1]
 
 That wonderful process of revelation begins, ends, and continues as we receive personal revelation. Let’s take the great Nephi, son of Lehi, as our example. His father had a dream. Others in Nephi’s family viewed Lehi’s dream as evidence of mental confusion. The dream included a command from God for Lehi’s sons to run the terrible risk of returning to Jerusalem for the plates which contained the word of God so that they could take them on their journey to the promised land.
 
@@ -86,25 +86,23 @@ Let us go back to our starting point. “Revelation continues in the Church: the
 
 I bear you my witness that is true. Heavenly Father hears your prayers. He loves you. He knows your name. Jesus is the Christ, the Son of God, and our Redeemer. He loves you beyond your ability to comprehend.
 
-God pours out revelation, through the Holy Ghost, on His children. He speaks to His prophet on the earth, who today is Thomas S. Monson. I witness that he holds and exercises all the keys of the priesthood on earth.
+God pours out revelation, through the Holy Ghost, on His children. He speaks to His prophet on the earth, who today is Thomas S. Monson. I witness that he holds and exercises all the keys of the priesthood on earth.
 
 As you listen in this conference to the words of those God has called to speak for Him, I pray that you will receive the confirming revelation you need to find your way on the journey home again, to dwell with Him in a sealed family forever. In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: Boyd K. Packer, “We Believe All That God Has Revealed,” *Ensign,* May 1974, 95.
+[^1]: Boyd K. Packer, “We Believe All That God Has Revealed,” *Ensign,* May 1974, 95.
 
-[^2]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^2]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^3]: [[1 Nephi 3.8|1 Nephi 3:8]].
+[^3]: [[1 Nephi 3.8|1 Nephi 3:8]].
 
 [^4]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
 [^5]: [[Matthew 16.19|Matthew 16:19]].
 
-[^6]: Boyd K. Packer, *Ensign,* May 1974, 95.
-
-
+[^6]: Boyd K. Packer, *Ensign,* May 1974, 95.
 
 #Family #Prophets #Revelation

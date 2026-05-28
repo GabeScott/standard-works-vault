@@ -1,6 +1,6 @@
 # Young Women—Real Guardians
 
-By Elder David B. Haight - *Of the Council of the Twelve*
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -62,7 +62,7 @@ As we reflect on life’s real goal, what should our desire be? The Lord, in a r
 
 President Kimball has asked not only for more missionaries but that they arrive in the field better prepared and with a desire to go and serve. The Lord said, “If ye have desires to serve God ye are called to the work.” Missionaries are expected to serve “with all \[their\] heart\[s\], might, mind\[s\] and strength.” ([[D&C 4.3|D&C 4:3, 2]][[D&C 4.2|]].) Wouldn’t it be a great source of satisfaction to you young women to know that you have helped a young man visualize the majesty of his call and have encouraged him to become an outstanding modern missionary. Many of our young men are. We need them all to be that kind of missionary. The Lord has said, “The field is … already to harvest; … he that thrusteth in his sickle with his might, … bringeth salvation to his soul.” ([[D&C 4.4|D&C 4:4]].) President Vaughn Featherstone of the Texas San Antonio Mission remarked: “Let’s not use a sickle. Let’s use a combine.”
 
-President Kimball has said, “If there were no converts the Church would shrivel and die.” (“It Becometh Every Man,” *Ensign,* Oct. 1977, p. 3.) You young women have a vital role in converting the world to the gospel of Jesus Christ. You can encourage, influence, and even shield a young man at a critical time in his life. The Lord holds to this promise: “Eye hath not seen, nor ear heard … the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].) You demonstrate your love for the Lord when you help a young man remain worthy and prepared to serve the Lord.
+President Kimball has said, “If there were no converts the Church would shrivel and die.” (“It Becometh Every Man,” *Ensign,* Oct. 1977, p. 3.) You young women have a vital role in converting the world to the gospel of Jesus Christ. You can encourage, influence, and even shield a young man at a critical time in his life. The Lord holds to this promise: “Eye hath not seen, nor ear heard … the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].) You demonstrate your love for the Lord when you help a young man remain worthy and prepared to serve the Lord.
 
 In Maxwell Anderson’s play about the youthful Joan of Arc, she says, “Every woman gives her life for what she believes. Sometimes people believe in little or nothing, nevertheless, they give up their lives to that little or nothing. One life is all we have, and we live it as we believe in living it, and then it’s gone. But to surrender what you are, and live without belief—that’s more terrible than dying—more terrible than dying young.” (Maxwell Anderson, “Joan of Lorraine,” New York: Dramatists’ Play Service, 1945, act 2, scene 4.)
 
@@ -73,6 +73,4 @@ God’s work cannot fail. His work and purpose will succeed. In the end righteou
 
 
 
-
-
-#Character #Missionary_Work #Morality #Women
+#Character #MissionaryWork #Morality #Women

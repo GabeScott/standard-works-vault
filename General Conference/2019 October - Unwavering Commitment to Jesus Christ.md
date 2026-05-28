@@ -1,6 +1,6 @@
 # Unwavering Commitment to Jesus Christ
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -57,27 +57,27 @@ I invite you to commit to a lifelong process of discipleship. Make and keep cove
 
 
 
-[^1]: The dedication took place on Palm Sunday, April 14, 2019, as assigned by President Russell M. Nelson.
+[^1]: The dedication took place on Palm Sunday, April 14, 2019, as assigned by President Russell M. Nelson.
 
-[^2]: The artist, David Meikle, painted *Congo Falls* working from photos of Kiubu Falls. The Kiubu Falls are located approximately 249 miles (400 km) north of Lubumbashi in the southeastern part of the Democratic Republic of the Congo.
+[^2]: The artist, David Meikle, painted *Congo Falls* working from photos of Kiubu Falls. The Kiubu Falls are located approximately 249 miles (400 km) north of Lubumbashi in the southeastern part of the Democratic Republic of the Congo.
 
 [^3]: These objects were known as *inkisi* in Kikongo and as *fétiches* in French. The word translates into English as “amulets,” “talismans,” or “fetishes.”
 
-[^4]: David Meikle also painted *Nzongo Falls* working from photos of the falls. The Nzongo Falls are located approximately 81 miles (130 km) from Kinshasa, Democratic Republic of the Congo. The river at these falls became known as *Nzadi Inkisi,* or “River of Fetishes.” The name reflects the practice described in the text.
+[^4]: David Meikle also painted *Nzongo Falls* working from photos of the falls. The Nzongo Falls are located approximately 81 miles (130 km) from Kinshasa, Democratic Republic of the Congo. The river at these falls became known as *Nzadi Inkisi,* or “River of Fetishes.” The name reflects the practice described in the text.
 
 [^5]: In AD 1000, the heads of the Icelandic clans met together for their annual, two-week *Allting,* an informal assembly that made laws that would be binding on all. A man named Thorgeir was asked to make the decision for everyone about conversion to Christianity or continuing to worship Norse gods. After three days of seclusion in his tent, Thorgeir announced his decision: the clans would become Christian. As Thorgeir was returning to his village, he took his cherished Norse-god idols and cast them into a waterfall, now known as *Godafoss,* or “Waterfall of the Gods.” This action signified Thorgeir’s complete conversion to Christianity.
 
 [^6]: [[Alma 23.13|Alma 23:13]]; [[Alma 24.17|24:17–18]][[Alma 24.18|]].
 
-[^7]: See [[Alma 23.6|Alma 23:6]]; David A. Bednar, “[[2012 October - Converted unto the Lord.md|Converted unto the Lord]],” *Ensign* or *Liahona,* Nov. 2012, 106–9.
+[^7]: See [[Alma 23.6|Alma 23:6]]; David A. Bednar, “[[2012 October - Converted unto the Lord.md|Converted unto the Lord]],” *Ensign* or *Liahona,* Nov. 2012, 106–9.
 
-[^8]: See [[Ezekiel 11.19|Ezekiel 11:19–20]][[Ezekiel 11.20|]]; [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^8]: See [[Ezekiel 11.19|Ezekiel 11:19–20]][[Ezekiel 11.20|]]; [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
 [^9]: See [[Romans 10.14|Romans 10:14, 17]][[Romans 10.17|]].
 
-[^10]: See [Preach My Gospel: A Guide to Missionary Service,](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-help-people-make-and-keep-commitments?lang=eng&id=figure10_title1#figure10_title1) rev. ed. (2018), 203.
+[^10]: See [Preach My Gospel: A Guide to Missionary Service,](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-help-people-make-and-keep-commitments?lang=eng&id=figure10_title1#figure10_title1) rev. ed. (2018), 203.
 
-[^11]: See Dallin H. Oaks, “[[1985 April - Taking upon Us the Name of Jesus Christ.md|Taking upon Us the Name of Jesus Christ]],” *Ensign,* May 1985, 80–83.
+[^11]: See Dallin H. Oaks, “[[1985 April - Taking upon Us the Name of Jesus Christ.md|Taking upon Us the Name of Jesus Christ]],” *Ensign,* May 1985, 80–83.
 
 [^12]: See [[Alma 5.12|Alma 5:12–14]][[Alma 5.13|]][[Alma 5.14|]].
 
@@ -87,14 +87,12 @@ I invite you to commit to a lifelong process of discipleship. Make and keep cove
 
 [^15]: Joseph Smith Translation, Luke 14:28 (in [[Luke 14.27|Luke 14:27, footnote b]]).
 
-[^16]: See [[2 Nephi 9.18|2 Nephi 9:18]]; Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 81–84. President Nelson said, “Joy is a gift for the faithful” (page 84).
+[^16]: See [[2 Nephi 9.18|2 Nephi 9:18]]; Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 81–84. President Nelson said, “Joy is a gift for the faithful” (page 84).
 
 [^17]: [[Alma 37.9|Alma 37:9]].
 
-[^18]: See [[D&C 20.77|Doctrine and Covenants 20:77]]. In the mission leadership seminar in June 2019, after partaking of the sacrament, before beginning his formal message, President Russell M. Nelson said: “A thought has occurred to me that my making a covenant today is a lot more important than the message that I have prepared. I made a covenant as I partook of the sacrament that I would be willing to take upon me the name of Jesus Christ and that I am willing to obey His commandments. Often, I hear the expression that we partake of the sacrament to renew covenants made at baptism. While that’s true, it’s much more than that. I’ve made a new covenant. You have made new covenants. … Now in return for which He makes the statement that we will always have His Spirit to be with us. What a blessing!”
+[^18]: See [[D&C 20.77|Doctrine and Covenants 20:77]]. In the mission leadership seminar in June 2019, after partaking of the sacrament, before beginning his formal message, President Russell M. Nelson said: “A thought has occurred to me that my making a covenant today is a lot more important than the message that I have prepared. I made a covenant as I partook of the sacrament that I would be willing to take upon me the name of Jesus Christ and that I am willing to obey His commandments. Often, I hear the expression that we partake of the sacrament to renew covenants made at baptism. While that’s true, it’s much more than that. I’ve made a new covenant. You have made new covenants. … Now in return for which He makes the statement that we will always have His Spirit to be with us. What a blessing!”
 
-[^19]: See [[3 Nephi 18.12|3 Nephi 18:12]].
+[^19]: See [[3 Nephi 18.12|3 Nephi 18:12]].
 
-
-
-#Commitment #Conversion #Covenants #Faith #Jesus_Christ
+#Commitment #Conversion #Covenants #Faith #JesusChrist

@@ -1,14 +1,14 @@
 # We Can’t Do It Alone
 
-By Elder Robert D. Hales - *Assistant to the Council of the Twelve*
+By Elder Robert D. Hales - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/we-can-t-do-it-alone?lang=eng)
 
-My brothers and sisters, I am blessed to stand at this pulpit and feel the radiating spirit of those who have gone before over the past 108 years since the first conference was held in this building, and to feel the testimonies which have been borne this day. There is no better man to follow and be next to than Adney Y. Komatsu. He is a man of God, simple and humble, with whom I hope to be able to spend the rest of my life in the service of the Lord. There is a great spirit that comes from the choir. These things make it possible for me to discuss a subject which is close to my heart.
+My brothers and sisters, I am blessed to stand at this pulpit and feel the radiating spirit of those who have gone before over the past 108 years since the first conference was held in this building, and to feel the testimonies which have been borne this day. There is no better man to follow and be next to than Adney Y. Komatsu. He is a man of God, simple and humble, with whom I hope to be able to spend the rest of my life in the service of the Lord. There is a great spirit that comes from the choir. These things make it possible for me to discuss a subject which is close to my heart.
 
-Spend a few thoughtful moments with me, if you would, discussing the phrase “We can’t do it alone.” Many of us have varying degrees of testimonies. We have all been given the Spirit of Christ at birth. It was a gift. We all have a testimony which we have developed ourselves throughout our lives which the Holy Ghost has helped us to obtain. We may know that God lives. We may know that Jesus is the Christ. We may know that he gave his life for our redemption, that he is resurrected that we might live, and that he is alive today. We may know that Joseph Smith has restored The Church of Jesus Christ of Latter-day Saints in the last dispensation of the fulness of times. Yes, we live in that choice period of time which is the “last dispensation” before the second coming of Jesus Christ. We live in the “fulness of times”—a time when the scriptures that have been revealed to us are virtually all the scriptures available to mankind. We may know that President Spencer W. Kimball is a prophet of God who has all the keys of the priesthood vested in him to lead this church by revelation in these latter days. Yet, my brothers and sisters, with all of this knowledge, why is it that some of us fail to learn the very critical point that we did not come to this life to live it alone?
+Spend a few thoughtful moments with me, if you would, discussing the phrase “We can’t do it alone.” Many of us have varying degrees of testimonies. We have all been given the Spirit of Christ at birth. It was a gift. We all have a testimony which we have developed ourselves throughout our lives which the Holy Ghost has helped us to obtain. We may know that God lives. We may know that Jesus is the Christ. We may know that he gave his life for our redemption, that he is resurrected that we might live, and that he is alive today. We may know that Joseph Smith has restored The Church of Jesus Christ of Latter-day Saints in the last dispensation of the fulness of times. Yes, we live in that choice period of time which is the “last dispensation” before the second coming of Jesus Christ. We live in the “fulness of times”—a time when the scriptures that have been revealed to us are virtually all the scriptures available to mankind. We may know that President Spencer W. Kimball is a prophet of God who has all the keys of the priesthood vested in him to lead this church by revelation in these latter days. Yet, my brothers and sisters, with all of this knowledge, why is it that some of us fail to learn the very critical point that we did not come to this life to live it alone?
 
 You can’t hide your actions from self and others. Polonius’ advice to his son, Laertes:
 
@@ -83,9 +83,7 @@ Yes, we started with our Heavenly Father. We came to this life. We take whatever
 
 I have a very simple testimony. I know that God lives. I know that Jesus is the Christ. I know that we came to this life with a purpose and that the greatest joy we will receive will be those acts of love and service that we do for others. Through this love and service we ourselves grow in strength and testimony and have the blessings of our Heavenly Father poured out upon ourselves and our families. I have also found in life that there is none too great to need the help of others. There is none so great that he can “do it alone.”
 
-If only we could live our lives as our prophet, Spencer W. Kimball, does—in the guileless, loving way in which he shows concern for, gives to, and serves all those around him—we would truly understand that we need the help of others and that they need our help. That we might understand this basic principle of the gospel, having love for and allowing ourselves to be loved by our fellowmen, is my prayer in the name of Jesus Christ. Amen.
-
-
+If only we could live our lives as our prophet, Spencer W. Kimball, does—in the guileless, loving way in which he shows concern for, gives to, and serves all those around him—we would truly understand that we need the help of others and that they need our help. That we might understand this basic principle of the gospel, having love for and allowing ourselves to be loved by our fellowmen, is my prayer in the name of Jesus Christ. Amen.
 
 
 

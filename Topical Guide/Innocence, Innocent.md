@@ -1,6 +1,5 @@
 # Innocence, Innocent
 
-
 *See also* [[Guiltless.md|Guiltless]]; [[Harmless.md|Harmless]]
 
 *innocent* and righteous slay thou not, [[Exodus 23.7|Exodus 23:7]].

@@ -1,6 +1,6 @@
 # Address Given by President N. Eldon Tanner at the Welfare Services Meeting Saturday, April 6, 1974
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -29,8 +29,6 @@ I am sorry to report that of over 6,000 requests that have been made for the lea
 I have hesitated to speak as emphatically as I have, but it was necessary. If you are having problems and lack understanding of just what is required, kindly contact Brother Wilford Edling here at headquarters and he will give you what assistance you need.
 
 Now this is The Church of Jesus Christ of Latter-day Saints. He is at the head. May we all learn our duty and act in all diligence in the office in which we have been called and appointed and may His blessings attend us, I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

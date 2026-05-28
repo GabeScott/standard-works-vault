@@ -5,5 +5,5 @@
 [Joseph Smith History 1:30](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.30?lang=eng#p30)
 
 
-[^a]: [[1 Nephi 1.6|1 Ne. 1:6.]]
-[^b]: TG [[Angels]].
+[^a]: [[1 Nephi 1.6|1 Ne. 1:6]].  
+[^b]: [[Angels|TG Angels]].  

@@ -48,13 +48,11 @@ For a moment I speak to anyone that has succumbed to serious temptation. Please 
 
 Now to each of you: at times you may feel lonely and misunderstood—I have—because you don’t fit in with the crowd. Be grateful that your righteous life molds you so that you don’t fit where you don’t belong. This is a temporary period of personal testing and growth. It will be replaced in time with true friends and greater happiness.
 
-The world needs light. Be that light. Your righteousness gives others a confirmation of the goodness of life anchored in eternal truth. If, as a young man, you haven’t yet been a missionary, prepare to be one. You will bless many other lives and crown your own with great, enduring rewards. If you are a young woman, follow the inspired counsel of President Hinckley in the October 1997 conference concerning sister missionaries (in Conference Report, Oct. 1997, 72–73; or *Ensign,* Nov. 1997, 52).
+The world needs light. Be that light. Your righteousness gives others a confirmation of the goodness of life anchored in eternal truth. If, as a young man, you haven’t yet been a missionary, prepare to be one. You will bless many other lives and crown your own with great, enduring rewards. If you are a young woman, follow the inspired counsel of President Hinckley in the October 1997 conference concerning sister missionaries (in Conference Report, Oct. 1997, [[1997 October - Some Thoughts on Temples, Retention of Converts, and Missionary Service.md|72–73]]; or *Ensign,* Nov. 1997, 52).
 
 I bear witness that the Savior lives. He loves you. He will guide you through the Holy Ghost, as you steadfastly choose to do what is right, to a future glorious beyond your dreams. I know He will. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Agency #Dedication #Example #Holy_Ghost #Honesty #Love #Media #Morality #Obedience #Repentance #Satan #Youth
+#Agency #Dedication #Example #HolyGhost #Honesty #Love #Media #Morality #Obedience #Repentance #Satan #Youth

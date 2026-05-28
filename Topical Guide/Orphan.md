@@ -1,6 +1,5 @@
 # Orphan
 
-
 We are *orphans* and fatherless, [[Lamentations 5.3|Lamentations 5:3]].
 
 also *orphans* to mourn before the Lord, [[Mormon 8.40|Mormon 8:40]].

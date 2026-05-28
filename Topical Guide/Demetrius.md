@@ -1,4 +1,3 @@
 # Demetrius
 
-
-*See* [BD Demetrius](https://www.churchofjesuschrist.org/study/scriptures/bd/demetrius?lang=eng)
+*See also* [[BD Demetrius.md|BD Demetrius]]

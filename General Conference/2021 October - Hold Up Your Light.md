@@ -1,6 +1,6 @@
 # Hold Up Your Light
 
-By Elder Marcus B. Nash - *Of the Seventy*
+By Elder Marcus B. Nash - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -32,7 +32,7 @@ When we were baptized, each of us entered into a perpetual[^12] covenant with Go
 
 The Lord commands:
 
-“Hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up—that which ye have seen me do. …
+“Hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up—that which ye have seen me do. …
 
 “… I have commanded that … ye should come unto me, that ye might feel and see; even so shall ye do unto the world; and whosoever breaketh this commandment suffereth himself to be led into temptation.”[^16]
 
@@ -67,19 +67,19 @@ I testify that Jesus Christ is the author and the finisher of our faith.[^28] He
 
 [^2]: See [[Ether 12.36|Ether 12:36–37]][[Ether 12.37|]].
 
-[^3]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [chapter 23](https://churchofjesuschrist.org/study/manual/general-handbook/23?lang=eng), to learn doctrine and principles and to view videos showing examples of ways to hold up the light and share the gospel.
+[^3]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [chapter 23](https://www.churchofjesuschrist.org/study/manual/general-handbook/23?lang=eng), to learn doctrine and principles and to view videos showing examples of ways to hold up the light and share the gospel.
 
-[^4]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” ChurchofJesusChrist.org; see also [[Job 38.4|Job 38:4–7]][[Job 38.5|]][[Job 38.6|]][[Job 38.7|]]; [[Acts 17.29|Acts 17:29]]; [[Romans 8.16|Romans 8:16–17]][[Romans 8.17|]]; [[Hebrews 12.9|Hebrews 12:9]]; [[Abraham 3.18|Abraham 3:18–25]][[Abraham 3.19|]][[Abraham 3.20|]][[Abraham 3.21|]][[Abraham 3.22|]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]].
+[^4]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” ChurchofJesusChrist.org; see also [[Job 38.4|Job 38:4–7]][[Job 38.5|]][[Job 38.6|]][[Job 38.7|]]; [[Acts 17.29|Acts 17:29]]; [[Romans 8.16|Romans 8:16–17]][[Romans 8.17|]]; [[Hebrews 12.9|Hebrews 12:9]]; [[Abraham 3.18|Abraham 3:18–25]][[Abraham 3.19|]][[Abraham 3.20|]][[Abraham 3.21|]][[Abraham 3.22|]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]].
 
 [^5]: See [[Alma 12.30|Alma 12:30]]; [[D&C 14.7|Doctrine and Covenants 14:7]]; [[Moses 1.39|Moses 1:39]]; [[Abraham 3.22|Abraham 3:22–25]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]].
 
 [^6]: “The Living Christ: The Testimony of the Apostles,” ChurchofJesusChrist.org.
 
-[^7]: See [[2 Nephi 9.7|2 Nephi 9:7]].
+[^7]: See [[2 Nephi 9.7|2 Nephi 9:7]].
 
-[^8]: See [[Luke 22.39|Luke 22:39–46]][[Luke 22.40|]][[Luke 22.41|]][[Luke 22.42|]][[Luke 22.43|]][[Luke 22.44|]][[Luke 22.45|]][[Luke 22.46|]]; [[1 Nephi 15.34|1 Nephi 15:34]]; [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]; [[Abraham 3.27|Abraham 3:27]].
+[^8]: See [[Luke 22.39|Luke 22:39–46]][[Luke 22.40|]][[Luke 22.41|]][[Luke 22.42|]][[Luke 22.43|]][[Luke 22.44|]][[Luke 22.45|]][[Luke 22.46|]]; [[1 Nephi 15.34|1 Nephi 15:34]]; [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]; [[Abraham 3.27|Abraham 3:27]].
 
-[^9]: Video interview, Nov. 23, 2019.
+[^9]: Video interview, Nov. 23, 2019.
 
 [^10]: See [[D&C 18.10|Doctrine and Covenants 18:10–16]][[D&C 18.11|]][[D&C 18.12|]][[D&C 18.13|]][[D&C 18.14|]][[D&C 18.15|]][[D&C 18.16|]]; see also [[Alma 36.24|Alma 36:24–28]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]].
 
@@ -93,34 +93,32 @@ I testify that Jesus Christ is the author and the finisher of our faith.[^28] He
 
 [^15]: See [[John 15.4|John 15:4–5]][[John 15.5|]].
 
-[^16]: [[3 Nephi 18.24|3 Nephi 18:24–25]][[3 Nephi 18.25|]].
+[^16]: [[3 Nephi 18.24|3 Nephi 18:24–25]][[3 Nephi 18.25|]].
 
 [^17]: Personal correspondence.
 
 [^18]: See [[D&C 62.3|Doctrine and Covenants 62:3]].
 
-[^19]: [[D&C 123.12|Doctrine and Covenants 123:12]]; see also [[1 Corinthians 14.8|1 Corinthians 14:8]].
+[^19]: [[D&C 123.12|Doctrine and Covenants 123:12]]; see also [[1 Corinthians 14.8|1 Corinthians 14:8]].
 
 [^20]: Personal correspondence.
 
-[^21]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
+[^21]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
 
-[^22]: See “Atheism Doubles among Generation Z,” Barna Group research release, Jan. 24, 2018, barna.com.
+[^22]: See “Atheism Doubles among Generation Z,” Barna Group research release, Jan. 24, 2018, barna.com.
 
 [^23]: See [[Alma 53.20|Alma 53:20–21]][[Alma 53.21|]]; [[Alma 56.46|56:46–47]][[Alma 56.47|]]; [[Alma 57.19|57:19–27]][[Alma 57.20|]][[Alma 57.21|]][[Alma 57.22|]][[Alma 57.23|]][[Alma 57.24|]][[Alma 57.25|]][[Alma 57.26|]][[Alma 57.27|]].
 
-[^24]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p62#p62).”
+[^24]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p62#p62).”
 
 [^25]: See [share.ChurchofJesusChrist.org](https://www.churchofjesuschrist.org/share?lang=eng) for apostolic teaching and video examples showing what fellow Saints across the world are doing to love, share, and invite other individuals to enjoy the blessings of the Church and gospel of Jesus Christ.
 
 [^26]: See [[Isaiah 61.1|Isaiah 61:1–3]][[Isaiah 61.2|]][[Isaiah 61.3|]].
 
-[^27]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^27]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^28]: See [[Moroni 6.4|Moroni 6:4]].
 
 [^29]: See [[Mormon 9.18|Mormon 9:18–21]][[Mormon 9.19|]][[Mormon 9.20|]][[Mormon 9.21|]].
 
-
-
-#Joy #Love #Missionary_Work
+#Joy #Love #MissionaryWork

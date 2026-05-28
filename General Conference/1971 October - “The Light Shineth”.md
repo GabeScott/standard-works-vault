@@ -1,6 +1,6 @@
 # “The Light Shineth”
 
-By Elder Marion G. Romney - *Of the Council of the Twelve*
+By Elder Marion G. Romney - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -10,7 +10,7 @@ My beloved brethren and sisters, members of the Church and nonmembers, if we are
 
 “And the light shineth in darkness; and the darkness comprehended it not.” ([[John 1.5|John 1:5]].) So wrote the disciple whom Jesus loved.
 
-This scripture came to mind recently as I read a statement attributed to Dr. Charles H. Malik, former president of the General Assembly of the United Nations. In it he said that what is needed today is “the challenge of a truly universal message, a vision of something great and tremendous, a call to an heroic mission. … The immediate situation \[he said\] presents the aspect of a final and total judgment: everything is being weighed—one’s life, one’s values, one’s culture, the vitality of the whole civilization to which one belongs.
+This scripture came to mind recently as I read a statement attributed to Dr. Charles H. Malik, former president of the General Assembly of the United Nations. In it he said that what is needed today is “the challenge of a truly universal message, a vision of something great and tremendous, a call to an heroic mission. … The immediate situation \[he said\] presents the aspect of a final and total judgment: everything is being weighed—one’s life, one’s values, one’s culture, the vitality of the whole civilization to which one belongs.
 
 “It is very much then like the last day. And those who believe will tell you that God is there and that most certainly He watches over His own, even if He should sorely chasten them still.” (Quoted in *Public Speaker’s Treasure Chest* \[Harper & Row, 1964\], p. 42.)
 
@@ -24,7 +24,7 @@ What he then said was and is, in his view, of such importance to us that he has 
 
 The circumstances under which he spoke are most impressive. As he went for the last time from Jerusalem to Bethany, he stood with his apostles on the Mount of Olives. Being concerned over his prediction that of the temple buildings there would not be left one stone upon another, they asked him for an explanation. “Tell us,” they said, “when shall these things be? and what shall be the sign of thy coming, and of the end of the world?” ([[Matthew 24.3|Matt. 24:3]].)
 
-I shall not recite what he said about the then-impending destruction of Jerusalem. I do, however, because of its relevance to our present and future welfare, invite you to seriously consider with me what he said about the signs of his second coming “and of the end of the world.” As to these events, he began by saying: “… when the times of the Gentiles is come in, a light shall break forth among them that sit in darkness, and it shall be the fulness of my gospel.” ([[D&C 45.28|D&C 45:28]].)
+I shall not recite what he said about the then-impending destruction of Jerusalem. I do, however, because of its relevance to our present and future welfare, invite you to seriously consider with me what he said about the signs of his second coming “and of the end of the world.” As to these events, he began by saying: “… when the times of the Gentiles is come in, a light shall break forth among them that sit in darkness, and it shall be the fulness of my gospel.” ([[D&C 45.28|D&C 45:28]].)
 
 That this prediction referred to our day is established by the fact that that “light” spoken of broke forth in the spring of 1820 when the Father and the Son appeared to the boy prophet, Joseph Smith. During the years immediately following, “the fulness of \[Christ’s\] gospel” was restored to the earth through the Prophet Joseph Smith.
 
@@ -32,13 +32,13 @@ These great events were to, and did, usher in “the times of the Gentiles”—
 
 But, back to what the Savior said:
 
-“… when the times of the Gentiles is come in, a light shall break forth among them that sit in darkness, and it shall be the fulness of my gospel;
+“… when the times of the Gentiles is come in, a light shall break forth among them that sit in darkness, and it shall be the fulness of my gospel;
 
 “But they receive it not; for they perceive not the light, and they turn their hearts from me because of the precepts of men.” ([[D&C 45.28|D&C 45:28–29]][[D&C 45.29|]].)
 
 The fulfillment of this prediction is painfully evident today. The large majority to whom the gospel has been taken reject it. It is because of this rejection, and not because there is no guiding light, that this generation has been and, unless it reverses its course, will continue to be unable to avoid the calamities foreseen and foretold by Jesus. For, said he, in that generation—that is, in which the gospel is preached—“they perceive not the light” (the Gospel of Jesus Christ) and “turn their hearts from me.
 
-“… there shall be men standing in that generation, that shall not pass until they shall see an overflowing scourge; for a desolating sickness shall cover the land.
+“… there shall be men standing in that generation, that shall not pass until they shall see an overflowing scourge; for a desolating sickness shall cover the land.
 
 “But my disciples shall stand in holy places \[I thought of this as President Lee was talking a few moments ago\], and shall not be moved; but among the wicked, men shall lift up their voices and curse God and die.
 
@@ -76,7 +76,7 @@ The righteous, however, shall not be cut off. Listen to the promises the Lord ma
 
 We are assured by these words that whether we die before he comes or persist in mortality, we shall, if we have been true and faithful, be with him and rejoice at his coming.
 
-And then, after those who are resurrected have come unto him, and the righteous who are living at the time of his coming have come forth from the four quarters of the earth, “… shall the arm of the Lord fall upon the nations.
+And then, after those who are resurrected have come unto him, and the righteous who are living at the time of his coming have come forth from the four quarters of the earth, “… shall the arm of the Lord fall upon the nations.
 
 “And then shall the Lord set his foot upon this mount, and it shall cleave in twain, and the earth shall tremble, and reel to and fro, and the heavens also shall shake.
 
@@ -109,6 +109,4 @@ To this I bear solemn witness as a special witness of Christ, in the name of Jes
 
 
 
-
-
-#Jesus_Christ #Prophets
+#JesusChrist #Prophets

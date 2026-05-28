@@ -10,7 +10,7 @@ By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 I am grateful to be with you tonight. I express to you the love and the gratitude of President Monson and President Uchtdorf. From its founding in 1842, the Relief Society has been blessed by the careful and loving oversight of the prophet of God. At the start in Nauvoo, Joseph Smith instructed the leaders and the assembled members.
 
-Knowing that you have that glorious history, I felt the weight of this invitation from President Monson to speak to you. In one of those early meetings of the society, the Prophet Joseph Smith surprised Bishop Newel K. Whitney by asking him to speak in his place. Bishop Whitney said that he had arrived in happy anticipation of being taught by the Prophet. I understand *his* feelings of disappointment—and perhaps yours.
+Knowing that you have that glorious history, I felt the weight of this invitation from President Monson to speak to you. In one of those early meetings of the society, the Prophet Joseph Smith surprised Bishop Newel K. Whitney by asking him to speak in his place. Bishop Whitney said that he had arrived in happy anticipation of being taught by the Prophet. I understand *his* feelings of disappointment—and perhaps yours.
 
 And so I asked President Monson as I was preparing for this hour what he felt would be most helpful for you to hear. What he said confirmed the impressions which had already come as I studied and prayed.
 
@@ -22,15 +22,15 @@ This society is composed of women whose feelings of charity spring from hearts c
 
 The history of the Relief Society is filled with accounts of such remarkable selfless service. In the terrible days of persecution and deprivation as the faithful moved from Ohio to Missouri to Illinois and then across the deserts going west, the sisters in their poverty and sorrows cared for others. You would weep as I did if I now read to you some of the accounts in your history. You would be touched by their generosity but even more by your recognition of the faith which lifted and sustained them.
 
-They came from a great diversity of circumstances. All faced the universal trials and heartaches of life. Their determination born of faith to serve the Lord and others seemed to take them not around the storms of life but directly into them. Some were young and some old. They were from many lands and peoples, as you are today. But they were of one heart, one mind, and with one intention. They were determined to help the Lord build His Zion, where there could be the happy existence the Book of Mormon had described so vividly for them. You remember some of the scenes from 4 Nephi which they carried in their hearts wherever the Lord led them on the journey to Zion:
+They came from a great diversity of circumstances. All faced the universal trials and heartaches of life. Their determination born of faith to serve the Lord and others seemed to take them not around the storms of life but directly into them. Some were young and some old. They were from many lands and peoples, as you are today. But they were of one heart, one mind, and with one intention. They were determined to help the Lord build His Zion, where there could be the happy existence the Book of Mormon had described so vividly for them. You remember some of the scenes from 4 Nephi which they carried in their hearts wherever the Lord led them on the journey to Zion:
 
 “And it came to pass in the thirty and sixth year, the people were all converted unto the Lord, upon all the face of the land, both Nephites and Lamanites, and there were no contentions and disputations among them, and every man did deal justly one with another.
 
-“And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift. …
+“And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift. …
 
 “And it came to pass that there was no contention in the land, because of the love of God which did dwell in the hearts of the people.”[^2]
 
-The early members of Relief Society did not enter such an idyllic time. But the love of God dwelt in their hearts. So it—and they—endured during the journey west and in the years that followed. Because of hard circumstances, for nearly four decades the Relief Society ceased to function as a Churchwide organization. But in 1868 Brigham Young called Eliza R. Snow to assist bishops in organizing Relief Societies. She was called as the second general president of the Relief Society in 1880. The record of Relief Society shows that when the leaders approached the sisters across the Church to begin again formal Relief Society work, they found that charity in their hearts was undiminished. They had continued to reach out in mercy to those in need. For those who stayed faithful to their covenants, the gift of charity, the pure love of Christ, had endured. It was still theirs.
+The early members of Relief Society did not enter such an idyllic time. But the love of God dwelt in their hearts. So it—and they—endured during the journey west and in the years that followed. Because of hard circumstances, for nearly four decades the Relief Society ceased to function as a Churchwide organization. But in 1868 Brigham Young called Eliza R. Snow to assist bishops in organizing Relief Societies. She was called as the second general president of the Relief Society in 1880. The record of Relief Society shows that when the leaders approached the sisters across the Church to begin again formal Relief Society work, they found that charity in their hearts was undiminished. They had continued to reach out in mercy to those in need. For those who stayed faithful to their covenants, the gift of charity, the pure love of Christ, had endured. It was still theirs.
 
 In the years that followed, the Relief Society grew in numbers and in power to serve those in need. Under the leadership of women of great vision and capacity, the Relief Society took the lead in starting charitable services which did not exist on the frontier for those in need. They created a small hospital. They supported women in going to the East to get medical training to staff it. That was the beginning of one of the great hospital systems in the United States.
 
@@ -70,7 +70,7 @@ The members of Relief Society have always been trusted by local priesthood sheph
 
 A wonderful part of the heritage of Relief Society is evident in the way the priesthood has always shown respect to and received it from the Relief Society in turn. I have seen it as you have. My family’s bishop said to me years ago, with a smile, “Why is it that when I go to someone in the ward in need, your wife always seems to have been there ahead of me?” Every bishop and branch president with any experience at all has felt the gentle prod of inspired example from the sisters of the Relief Society. They help us remember that for all, both women and men, there will be no salvation without compassionate service.
 
-You who are older remember President Marion G. Romney quoting this scripture when he said he was as determined as were the sisters to be faithful in providing that compassionate service. He quoted King Benjamin: “And now, for the sake of these things which I have spoken unto you—that is, for the sake of retaining a remission of your sins from day to day, that ye may walk guiltless before God—I would that ye should impart of your substance to the poor, every man according to that which he hath, such as feeding the hungry, clothing the naked, visiting the sick and administering to their relief, both spiritually and temporally, according to their wants.”[^5]
+You who are older remember President Marion G. Romney quoting this scripture when he said he was as determined as were the sisters to be faithful in providing that compassionate service. He quoted King Benjamin: “And now, for the sake of these things which I have spoken unto you—that is, for the sake of retaining a remission of your sins from day to day, that ye may walk guiltless before God—I would that ye should impart of your substance to the poor, every man according to that which he hath, such as feeding the hungry, clothing the naked, visiting the sick and administering to their relief, both spiritually and temporally, according to their wants.”[^5]
 
 The reason President Romney smiled, if I remember when he did it, was he said he did really want to have his sins remitted. And so he thought he would join the sisters in every act of compassionate service he could.
 
@@ -101,9 +101,9 @@ You have a glorious heritage. I pray to God that He will inspire you to preserve
 
 
 
-[^1]: [[1 Corinthians 13.8|1 Corinthians 13:8]]; [[Moroni 7.46|Moroni 7:46]].
+[^1]: [[1 Corinthians 13.8|1 Corinthians 13:8]]; [[Moroni 7.46|Moroni 7:46]].
 
-[^2]: [[4 Nephi 1.2|4 Nephi 1:2–3, 15]][[4 Nephi 1.3|]][[4 Nephi 1.15|]].
+[^2]: [[4 Nephi 1.2|4 Nephi 1:2–3, 15]][[4 Nephi 1.3|]][[4 Nephi 1.15|]].
 
 [^3]: See Relief Society, Minute Book Mar. 1842–Mar. 1844, entry for Apr. 28, 1842, Church History Library, Salt Lake City, 39.
 
@@ -113,6 +113,4 @@ You have a glorious heritage. I pray to God that He will inspire you to preserve
 
 [^6]: Lucy Mack Smith, in Relief Society, Minute Book Mar. 1842–Mar. 1844, entry for Mar. 24, 1842, 18–19.
 
-
-
-#Relief_Society #Service #Visiting_Teaching
+#ReliefSociety #Service #VisitingTeaching

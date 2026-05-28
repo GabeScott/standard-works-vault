@@ -54,9 +54,9 @@ Here are some thoughts to consider. What mattereth most?
 
 - Wanting more? Or being content with what we have been given?
 
-President Russell M. Nelson teaches:
+President Russell M. Nelson teaches:
 
-“With the Holy Ghost as your companion, you can see right through the celebrity culture that has smitten our society. You can be smarter than previous generations have ever been. …
+“With the Holy Ghost as your companion, you can see right through the celebrity culture that has smitten our society. You can be smarter than previous generations have ever been. …
 
 “Set a standard for the rest of the world!”[^5]
 
@@ -89,22 +89,20 @@ As we center our lives on Jesus Christ, we will be guided to do what mattereth m
 
 
 
-[^1]: [[1 Nephi 2.1|1 Nephi 2:1]]; emphasis added.
+[^1]: [[1 Nephi 2.1|1 Nephi 2:1]]; emphasis added.
 
 [^2]: [[James 1.22|James 1:22]].
 
-[^3]: See [[Alma 5.45|Alma 5:45–46]][[Alma 5.46|]]; Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 39–42.
+[^3]: See [[Alma 5.45|Alma 5:45–46]][[Alma 5.46|]]; Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 39–42.
 
 [^4]: See [[D&C 27.2|Doctrine and Covenants 27:2]]; [[D&C 80.3|80:3]].
 
-[^5]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p107-p108#p107)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
+[^5]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p107-p108#p107)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
 
 [^6]: [[Moroni 6.8|Moroni 6:8]].
 
-[^7]: [[Mosiah 18.9|Mosiah 18:9]]; see also “[Young Women Theme](https://churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng),” ChurchofJesusChrist.org.
+[^7]: [[Mosiah 18.9|Mosiah 18:9]]; see also “[Young Women Theme](https://www.churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng),” ChurchofJesusChrist.org.
 
-[^8]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=p10-p28#p10), ChurchofJesusChrist.org.
-
-
+[^8]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=p10-p28#p10), ChurchofJesusChrist.org.
 
 #Covenants #Discipleship #Joy #Trust

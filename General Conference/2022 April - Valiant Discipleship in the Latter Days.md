@@ -22,7 +22,7 @@ So what about us? Should we be intimidated or afraid? Should we live our religio
 
 The Savior made clear that “whosoever therefore shall confess me before men, him will I confess also before my Father. … But whosoever shall deny me before men, him will I also deny before my Father.”[^19]
 
-Consequently, while some would prefer a God who comes without commandments, let us boldly testify, in the words of Elder D. Todd Christofferson, that “a God who makes no demands is the functional equivalent of a God who does not exist.”[^20]
+Consequently, while some would prefer a God who comes without commandments, let us boldly testify, in the words of Elder D. Todd Christofferson, that “a God who makes no demands is the functional equivalent of a God who does not exist.”[^20]
 
 While some would prefer to be selective in the commandments they follow, let us joyfully accept the Savior’s invitation to “live by *every* word which proceedeth forth out of the mouth of God.”[^21]
 
@@ -36,9 +36,9 @@ Zion and Babylon are incompatible. “No man can serve two masters.”[^26] Let�
 
 Let us demonstrate our love for the Lord through wholehearted, voluntary obedience.
 
-If you feel caught between your discipleship and the world, please remember that your loving Savior “sendeth an invitation … , for the arms of mercy are extended \[to you\], and he saith: Repent, and I will receive you.”[^28]
+If you feel caught between your discipleship and the world, please remember that your loving Savior “sendeth an invitation … , for the arms of mercy are extended \[to you\], and he saith: Repent, and I will receive you.”[^28]
 
-President Russell M. Nelson taught that Jesus Christ “will perform some of His mightiest works between now and when He comes again.”[^29] But he also taught that “those who choose the Lord’s way will likely endure persecution.”[^30] Being “counted worthy to suffer shame for his name”[^31] may at times be our lot as we “allow His voice to take priority over any other.”[^32]
+President Russell M. Nelson taught that Jesus Christ “will perform some of His mightiest works between now and when He comes again.”[^29] But he also taught that “those who choose the Lord’s way will likely endure persecution.”[^30] Being “counted worthy to suffer shame for his name”[^31] may at times be our lot as we “allow His voice to take priority over any other.”[^32]
 
 “Blessed is he,” the Savior said, “whosoever shall *not* be offended in me.”[^33] Elsewhere we learn that “great peace have they which *love* thy law: and *nothing* shall offend them.”[^34] Nothing! So let’s ask ourselves, “Am I enduring for a while, but when tribulation or persecution arises because of the word, by and by am I offended?[^35] Am I firmly built on the rock of Jesus Christ and His servants?”
 
@@ -46,7 +46,7 @@ Moral relativists advocate that truth is merely a social construct, that there a
 
 If we really want to be valiant disciples of Christ, we will find a way. Otherwise, the adversary offers enticing alternatives. But as faithful disciples, “we need not apologize for our beliefs nor back down from that which we know to be true.”[^39]
 
-In conclusion, a word about the 15 servants of God seated behind me. While the worldly “say to the seers, See not; and to the prophets, Prophesy not,”[^40] the faithful are “crowned with blessings from above, yea, and with commandments not a few, and with revelations in their time.”[^41]
+In conclusion, a word about the 15 servants of God seated behind me. While the worldly “say to the seers, See not; and to the prophets, Prophesy not,”[^40] the faithful are “crowned with blessings from above, yea, and with commandments not a few, and with revelations in their time.”[^41]
 
 Not surprisingly, these men frequently become the lightning rods for those unhappy with the word of God as the prophets proclaim it. Those who reject the prophets don’t realize that “no prophecy of the scripture is \[to be\] of any private interpretation” or the result of the will of man “but \[that\] holy men of God \[speak now\] as they \[are\] moved by the Holy Ghost.”[^42]
 
@@ -65,13 +65,13 @@ Brothers and sisters, it’s a good day to be good! In the sacred name of Jesus 
 
 [^1]: See [[D&C 101.78|Doctrine and Covenants 101:78]].
 
-[^2]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^2]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^3]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 214.
+[^3]: See *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-17?lang=eng&id=p32#p32)* (2007), 214.
 
-[^4]: Hugh Nibley, “Beyond Politics,” *BYU Studies*, vol. 15, no. 1 (1974), 8.
+[^4]: Hugh Nibley, “Beyond Politics,” *BYU Studies*, vol. 15, no. 1 (1974), 8.
 
-[^5]: See [[2 Corinthians 9.6|2 Corinthians 9:6]]; [[D&C 6.33|Doctrine and Covenants 6:33]].
+[^5]: See [[2 Corinthians 9.6|2 Corinthians 9:6]]; [[D&C 6.33|Doctrine and Covenants 6:33]].
 
 [^6]: [[Matthew 11.19|Matthew 11:19]].
 
@@ -79,11 +79,11 @@ Brothers and sisters, it’s a good day to be good! In the sacred name of Jesus 
 
 [^8]: [[Acts 28.22|Acts 28:22]].
 
-[^9]: [[2 Nephi 28.7|2 Nephi 28:7]].
+[^9]: [[2 Nephi 28.7|2 Nephi 28:7]].
 
 [^10]: [[D&C 1.38|Doctrine and Covenants 1:38]].
 
-[^11]: [[2 Timothy 4.3|2 Timothy 4:3–4]][[2 Timothy 4.4|]].
+[^11]: [[2 Timothy 4.3|2 Timothy 4:3–4]][[2 Timothy 4.4|]].
 
 [^12]: [[Matthew 15.9|Matthew 15:9]].
 
@@ -93,15 +93,15 @@ Brothers and sisters, it’s a good day to be good! In the sacred name of Jesus 
 
 [^15]: [[Matthew 10.36|Matthew 10:36]].
 
-[^16]: See [[2 Nephi 8.7|2 Nephi 8:7]].
+[^16]: See [[2 Nephi 8.7|2 Nephi 8:7]].
 
 [^17]: [[Romans 8.31|Romans 8:31]].
 
-[^18]: See [[3 Nephi 18.24|3 Nephi 18:24]].
+[^18]: See [[3 Nephi 18.24|3 Nephi 18:24]].
 
 [^19]: [[Matthew 10.32|Matthew 10:32–33]][[Matthew 10.33|]].
 
-[^20]: D. Todd Christofferson, “[[2014 October - Free Forever, to Act for Themselves.md|Free Forever, to Act for Themselves]],” *Ensign* or *Liahona*, Nov. 2014, 18.
+[^20]: D. Todd Christofferson, “[[2014 October - Free Forever, to Act for Themselves.md|Free Forever, to Act for Themselves]],” *Ensign* or *Liahona*, Nov. 2014, 18.
 
 [^21]: [[D&C 98.11|Doctrine and Covenants 98:11]]; emphasis added.
 
@@ -109,7 +109,7 @@ Brothers and sisters, it’s a good day to be good! In the sacred name of Jesus 
 
 [^23]: [[Exodus 23.2|Exodus 23:2]].
 
-[^24]: Neal A. Maxwell, “[[1988 October - “Answer Me”.md|Answer Me]],” *Ensign*, Nov. 1988, 33.
+[^24]: Neal A. Maxwell, “[[1988 October - “Answer Me”.md|Answer Me]],” *Ensign*, Nov. 1988, 33.
 
 [^25]: [[Alma 37.13|Alma 37:13]].
 
@@ -119,13 +119,13 @@ Brothers and sisters, it’s a good day to be good! In the sacred name of Jesus 
 
 [^28]: [[Alma 5.33|Alma 5:33]].
 
-[^29]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^29]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
-[^30]: Russell M. Nelson, “[[2005 April - Now Is the Time to Prepare.md|Now Is the Time to Prepare]],” *Ensign* or *Liahona*, May 2005, 17.
+[^30]: Russell M. Nelson, “[[2005 April - Now Is the Time to Prepare.md|Now Is the Time to Prepare]],” *Ensign* or *Liahona*, May 2005, 17.
 
 [^31]: [[Acts 5.41|Acts 5:41]].
 
-[^32]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
+[^32]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
 [^33]: [[Matthew 11.6|Matthew 11:6]]; emphasis added.
 
@@ -133,31 +133,32 @@ Brothers and sisters, it’s a good day to be good! In the sacred name of Jesus 
 
 [^35]: See [[Matthew 13.20|Matthew 13:20–21]][[Matthew 13.21|]].
 
-[^36]: See [[2 Nephi 2.13|2 Nephi 2:13]].
+[^36]: See [[2 Nephi 2.13|2 Nephi 2:13]].
 
 [^37]: [[Alma 30.17|Alma 30:17]]; see also [[Alma 1.4|Alma 1:4]].
 
-[^38]: Neal A. Maxwell, “[[2004 April - Remember How Merciful the Lord Hath Been.md|Remember How Merciful the Lord Hath Been]],” *Ensign* or *Liahona*, May 2004, 45; see also Neal A. Maxwell, *All These Things Shall Give Thee Experience* (1979), 110.
+[^38]: Neal A. Maxwell, “[[2004 April - Remember How Merciful the Lord Hath Been.md|Remember How Merciful the Lord Hath Been]],” *Ensign* or *Liahona*, May 2004, 45; see also Neal A. Maxwell, *All These Things Shall Give Thee Experience* (1979), 110.
 
-[^39]: M. Russell Ballard, “[[2000 April - “How Is It with Us”.md|How Is It with Us?]],” *Ensign*, May 2000, 33; *Liahona*, July 2000, 40.
+[^39]: M. Russell Ballard, “[[2000 April - “How Is It with Us”.md|How Is It with Us?]],” *Ensign*, May 2000, 33; *Liahona*, July 2000, 40.
 
 [^40]: [[Isaiah 30.10|Isaiah 30:10]].
 
 [^41]: [[D&C 59.4|Doctrine and Covenants 59:4]].
 
-[^42]: [[2 Peter 1.20|2 Peter 1:20–21]][[2 Peter 1.21|]].
+[^42]: [[2 Peter 1.20|2 Peter 1:20–21]][[2 Peter 1.21|]].
 
-[^43]: [[2 Timothy 1.8|2 Timothy 1:8]].
+[^43]: [[2 Timothy 1.8|2 Timothy 1:8]].
 
 [^44]: [[Acts 4.20|Acts 4:20]].
 
 [^45]: [[D&C 21.5|Doctrine and Covenants 21:5–6]][[D&C 21.6|]].
 
-[^46]: *Teachings: Joseph Smith*, 444.
+[^46]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-38?lang=eng&id=p20#p20)*, 444.
 
 [^47]: [[Joshua 24.15|Joshua 24:15]].
 
 [^48]: [[Ephesians 4.14|Ephesians 4:14]].
 
+[^49]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 40–41.
 
-#Adversity #Commandments #Discipleship #Jesus_Christ #Prophets
+#Adversity #Commandments #Discipleship #JesusChrist #Prophets

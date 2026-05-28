@@ -1,6 +1,6 @@
 # The Sure Word of God
 
-By Bishop Vaughn J. Featherstone - *Of the Presiding Bishopric*
+By Bishop Vaughn J. Featherstone - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -14,11 +14,11 @@ Let’s go back first to the young man Enoch. As Enoch journeyed in the land, th
 
 “Why is it that I have found favor in thy sight, and am but a lad, and all the people hate me; for I am slow of speech; wherefore am I thy servant?
 
-“And the Lord said unto Enoch: Go forth and do as I have commanded thee, and no man shall pierce thee. …
+“And the Lord said unto Enoch: Go forth and do as I have commanded thee, and no man shall pierce thee. …
 
-“… and the mountains shall flee before you, and the rivers shall turn from their course; and thou shalt abide in me, and I in you.” ([[Moses 6.31|Moses 6:31–32, 34]][[Moses 6.32|]][[Moses 6.34|]].)
+“… and the mountains shall flee before you, and the rivers shall turn from their course; and thou shalt abide in me, and I in you.” ([[Moses 6.31|Moses 6:31–32, 34]][[Moses 6.32|]][[Moses 6.34|]].)
 
-These powers would be given to Enoch if he would but follow this great lead and accept the call. Enoch accepted the call. And then you will recall the tremendous thing that happened—and I think this is absolutely beautiful, the way it is described in the scriptures, how the people described Enoch after he received the call. They said: “… and there is a strange thing in the land; a wild man hath come among us.” ([[Moses 6.38|Moses 6:38]].) I think that is a tremendous description of one who serves totally and fully in the Lord’s service.
+These powers would be given to Enoch if he would but follow this great lead and accept the call. Enoch accepted the call. And then you will recall the tremendous thing that happened—and I think this is absolutely beautiful, the way it is described in the scriptures, how the people described Enoch after he received the call. They said: “… and there is a strange thing in the land; a wild man hath come among us.” ([[Moses 6.38|Moses 6:38]].) I think that is a tremendous description of one who serves totally and fully in the Lord’s service.
 
 Enoch, of course, had some great associations. He happened one time to be conversing with the Lord, and he said, “How is it that thou canst weep, seeing thou art holy, and from all eternity to all eternity?
 
@@ -26,7 +26,7 @@ Enoch, of course, had some great associations. He happened one time to be conver
 
 I want you to know that when I read those sacred words, I felt and had the feelings, I believe, that Enoch might have had in some small degree. And each of you can have those same feelings.
 
-And then, I believe, later on Enoch had the privilege of seeing all the generations of man and beholding them in their wickedness, and then Enoch wept and stretched out his arms; and the scripture says, “And his heart swelled wide as eternity. …” ([[Moses 7.41|Moses 7:41]].) I think that is a beautiful description.
+And then, I believe, later on Enoch had the privilege of seeing all the generations of man and beholding them in their wickedness, and then Enoch wept and stretched out his arms; and the scripture says, “And his heart swelled wide as eternity. …” ([[Moses 7.41|Moses 7:41]].) I think that is a beautiful description.
 
 I heard our modern prophet say something similar. He wept and then he said, “As I thought about my responsibility, my heart and soul went out to the entire membership of the Church.” Doesn’t that have a familiar ring of the prophets?
 
@@ -50,7 +50,7 @@ Then I want to tell you the type of experience I had when I read the Book of Mor
 
 “And I said: Lord, how is it done?
 
-“And he said unto me: Because of thy faith in Christ. …” ([[Enos 1.1|Enos 1:1–8]][[Enos 1.2|]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].)
+“And he said unto me: Because of thy faith in Christ. …” ([[Enos 1.1|Enos 1:1–8]][[Enos 1.2|]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].)
 
 Young men, did you hear those words? *Because of thy faith in Christ!*
 
@@ -76,11 +76,11 @@ And then a wayward son of another prophet, Alma the Younger, told his son Helama
 
 “Now, as my mind caught hold upon this thought, I cried within my heart, O Jesus, thou Son of God, have mercy on me, who am in the gall of bitterness, and am encircled about by the everlasting chains of death.
 
-“And now, behold, when I thought this, I could remember my pains no more; yea, I was harrowed up by the memory of my sins no more. …
+“And now, behold, when I thought this, I could remember my pains no more; yea, I was harrowed up by the memory of my sins no more. …
 
 “And … my soul was filled with joy as exceeding as was my pain!
 
-“… there could be nothing … so bitter as were my pains. Yea, … my son, that on the other hand, there can be nothing so exquisite and sweet as was my joy.
+“… there could be nothing … so bitter as were my pains. Yea, … my son, that on the other hand, there can be nothing so exquisite and sweet as was my joy.
 
 “Yea, methought I saw, even as our Father Lehi saw, God sitting upon his throne, surrounded with numberless concourses of angels, in the attitude of singing and praising their God, … and my soul did long to be there.” ([[Alma 36.6|Alma 36:6–10, 12–22]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]].)
 
@@ -88,7 +88,7 @@ Now, contrast those two experiences of Alma: one, that he would be banished and 
 
 I believe that the scriptures have every dimension of life that we can cleave unto and find a pattern for living, if we will just go back to the scriptures and study them and learn of them.
 
-Let me tell you the greatest experience I believe I have had in all my readings of the scriptures—and I am sharing something that is very tender with me. I remember the night that I read [[3 Nephi 17.1|3 Nephi, the 17th chapter]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]]. That is when I discovered the Lord Jesus Christ, my Redeemer, the Lord of lords, the King of kings, my Savior, my personal Savior; and I believe that is where I finally found the description of the Savior as I thought him to be.
+Let me tell you the greatest experience I believe I have had in all my readings of the scriptures—and I am sharing something that is very tender with me. I remember the night that I read [[3 Nephi 17.1|3 Nephi, the 17th chapter]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]]. That is when I discovered the Lord Jesus Christ, my Redeemer, the Lord of lords, the King of kings, my Savior, my personal Savior; and I believe that is where I finally found the description of the Savior as I thought him to be.
 
 He had been with the Nephite people all the day long, you will recall, and finally said:
 
@@ -114,7 +114,7 @@ And when he had blessed all those who were sick and halt and blind and leprous, 
 
 “The eye hath never seen, neither hath the ear heard, before, so great and marvelous things as we saw and heard Jesus speak unto the Father.
 
-“… neither can the hearts of men conceive so great and marvelous things as we both saw and heard Jesus speak; and no one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father.”
+“… neither can the hearts of men conceive so great and marvelous things as we both saw and heard Jesus speak; and no one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father.”
 
 And then you will recall, after he had finished praying, he arose, but so great was the joy of the multitude that they were overcome, and he commanded that they should arise, and he said, “And now behold, my joy is full.”
 
@@ -122,13 +122,11 @@ And then Jesus wept. He blessed the little children, one by one, and when he had
 
 “And as they looked to behold they cast their eyes towards heaven, and they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, … and the angels did minister unto them.
 
-“And the multitude did see and hear and bear record … and they were in number about two thousand and five hundred \[and ONE\] souls” who were in that beautiful experience with the Savior. (See [[3 Nephi 17.1|3 Ne. 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]].)
+“And the multitude did see and hear and bear record … and they were in number about two thousand and five hundred \[and ONE\] souls” who were in that beautiful experience with the Savior. (See [[3 Nephi 17.1|3 Ne. 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]].)
 
 I want you to know I was there. I wouldn’t know any more surely if I had been there than I would know having read this book. And I promise you that vicariously every single young man in the Church can read the scriptures and have that same experience with all of the prophets. And you can gain your own testimony, and it need not be pinned on someone else’s coat sleeve. You can actually know. You can know that we have a modern prophet. Read his words. Listen to him.
 
-I want you to know that I have had burned into my soul like nothing else in my life the knowledge that President Harold B. Lee is a prophet. I so testify and admonish you to read the scriptures, to go back to the sure word of God. In the name of Jesus Christ. Amen.
-
-
+I want you to know that I have had burned into my soul like nothing else in my life the knowledge that President Harold B. Lee is a prophet. I so testify and admonish you to read the scriptures, to go back to the sure word of God. In the name of Jesus Christ. Amen.
 
 
 

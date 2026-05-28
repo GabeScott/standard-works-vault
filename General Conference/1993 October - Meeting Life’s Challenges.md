@@ -139,7 +139,7 @@ He lives. He will sustain each of us. May we keep His commandments. May we ever 
 
 [^10]: [[Job 19.25|Job 19:25]].
 
-[^11]: “Worth While,” in Hazel Felleman, sel., *The Best Loved Poems of the American People* (Garden City, N.Y.: Doubleday, 1936), p. 144.
+[^11]: “Worth While,” in Hazel Felleman, sel., *The Best Loved Poems of the American People* (Garden City, N.Y.: Doubleday, 1936), p. 144.
 
 [^12]: [[Isaiah 53.2|Isa. 53:2–5]][[Isaiah 53.3|]][[Isaiah 53.4|]][[Isaiah 53.5|]].
 
@@ -147,6 +147,4 @@ He lives. He will sustain each of us. May we keep His commandments. May we ever 
 
 [^14]: [[John 16.33|John 16:33]].
 
-
-
-#Atonement #Holy_Ghost #Jesus_Christ
+#Atonement #HolyGhost #JesusChrist

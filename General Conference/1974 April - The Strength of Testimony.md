@@ -18,11 +18,11 @@ It is a common error to feel that testimony means full conversion. We many times
 
 Bearing testimony has to do with bearing witness to that which we know to be true. Much of what we call testimony bearing is not really testimony at all—it is a statement or expression of public thanks. It is good to be thankful, but public thanks is not testimony. Testimony comes from the Holy Ghost. The Spirit of Christ, which John testifies is “the true Light, which lighteth every man that cometh into the world” ([[John 1.9|John 1:9]]), will lead a man to Christ and help him get a testimony, and if followed will lead to baptism in Jesus Christ’s church.
 
-Many people feel they receive a witness that Jesus is the Christ, and they think this alone saves them. They say they are “saved.” Of course, it does not. It didn’t save a third of the hosts of heaven. James records, “… the devils also believe, and tremble.” ([[James 2.19|James 2:19]].) What do they believe? That Jesus is the Christ; in fact, they know it.
+Many people feel they receive a witness that Jesus is the Christ, and they think this alone saves them. They say they are “saved.” Of course, it does not. It didn’t save a third of the hosts of heaven. James records, “… the devils also believe, and tremble.” ([[James 2.19|James 2:19]].) What do they believe? That Jesus is the Christ; in fact, they know it.
 
-Peter had a testimony that Jesus is the Christ, which he bore, and it surely came from the Lord, for the Master said, “… flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.17|Matt. 16:17]].) It is very doubtful that Peter was at that time converted, because he could not admit that he knew the Lord Jesus Christ when he felt his own life was in danger. Later the Master confirmed that Peter lacked conversion when, just before going to his agony and death on the cross, he said to Peter, “… when thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].) Peter’s testimony or knowledge that Jesus was the Christ did not “save” him from denying the Master—probably because he was not converted. He did not follow the Lord at the peril of his own life.
+Peter had a testimony that Jesus is the Christ, which he bore, and it surely came from the Lord, for the Master said, “… flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.17|Matt. 16:17]].) It is very doubtful that Peter was at that time converted, because he could not admit that he knew the Lord Jesus Christ when he felt his own life was in danger. Later the Master confirmed that Peter lacked conversion when, just before going to his agony and death on the cross, he said to Peter, “… when thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].) Peter’s testimony or knowledge that Jesus was the Christ did not “save” him from denying the Master—probably because he was not converted. He did not follow the Lord at the peril of his own life.
 
-When we are converted, we sustain and follow the Lord’s anointed servants; we find ourselves in agreement with them. This is one of the real marks of conversion. Many men with testimonies have been unable to do this. In this dispensation, to name a few, Martin Harris, David Whitmer, and Oliver Cowdery (the Three Witnesses to the Book of Mormon) and Thomas B. Marsh (the first president of the Quorum of the Twelve) had this very problem. They refused to sustain the Lord’s anointed servant, and it led to their expulsion from his church.
+When we are converted, we sustain and follow the Lord’s anointed servants; we find ourselves in agreement with them. This is one of the real marks of conversion. Many men with testimonies have been unable to do this. In this dispensation, to name a few, Martin Harris, David Whitmer, and Oliver Cowdery (the Three Witnesses to the Book of Mormon) and Thomas B. Marsh (the first president of the Quorum of the Twelve) had this very problem. They refused to sustain the Lord’s anointed servant, and it led to their expulsion from his church.
 
 Conversion implies a change; as King Benjamin says, it means putting “off the natural man,” which is selfish, conceited, impatient, intemperate, disobedient, and rebellious, so that a person becomes “a saint through the atonement of Christ the Lord.” This would mean becoming even “as a child, submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon him, even as a child doth submit to his father.” ([[Mosiah 3.19|Mosiah 3:19]].)
 
@@ -36,19 +36,19 @@ However, there are recorded instances in which the words of the Father are given
 
 In the particular passage to which I refer, the prophet Nephi explained why it was necessary for Jesus to be baptized by John to “fulfil all righteousness.” He taught that Christ “humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments.
 
-“… Again, it showeth unto the children of men the straightness of the path, and the narrowness of the gate, by which they should enter, he having set the example before them.” Then he said, “… Follow thou me. …” ([[2 Nephi 31.6|2 Ne. 31:6–7, 9–10]][[2 Nephi 31.7|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]].)
+“… Again, it showeth unto the children of men the straightness of the path, and the narrowness of the gate, by which they should enter, he having set the example before them.” Then he said, “… Follow thou me. …” ([[2 Nephi 31.6|2 Ne. 31:6–7, 9–10]][[2 Nephi 31.7|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]].)
 
-Nephi asked, “… Wherefore, my beloved brethren, can we follow Jesus save we shall be willing to keep the commandments of the Father?” ([[2 Nephi 31.10|2 Ne. 31:10]].) Nephi then records the doctrine of the Father: “… Repent ye, repent ye, and be baptized in the name of my Beloved Son.”
+Nephi asked, “… Wherefore, my beloved brethren, can we follow Jesus save we shall be willing to keep the commandments of the Father?” ([[2 Nephi 31.10|2 Ne. 31:10]].) Nephi then records the doctrine of the Father: “… Repent ye, repent ye, and be baptized in the name of my Beloved Son.”
 
-“And also, the voice of the Son came unto me, saying: He that is baptized in my name, to him will the Father give the Holy Ghost, like unto me; wherefore, follow me, and do the things which ye have seen me do.” ([[2 Nephi 31.11|2 Ne. 31:11–12]][[2 Nephi 31.12|]].)
+“And also, the voice of the Son came unto me, saying: He that is baptized in my name, to him will the Father give the Holy Ghost, like unto me; wherefore, follow me, and do the things which ye have seen me do.” ([[2 Nephi 31.11|2 Ne. 31:11–12]][[2 Nephi 31.12|]].)
 
 Further, Nephi records that the voice of the Son came unto him, saying:
 
-“… After ye have repented of your sins, and witnessed unto the Father that ye are willing to keep my commandments, by the baptism of water, and have received the baptism of fire and of the Holy Ghost, and can speak with a new tongue, yea, even with the tongue of angels, and after this should deny me, it would have been better for you that ye had not known me.” ([[2 Nephi 31.14|2 Ne. 31:14]].)
+“… After ye have repented of your sins, and witnessed unto the Father that ye are willing to keep my commandments, by the baptism of water, and have received the baptism of fire and of the Holy Ghost, and can speak with a new tongue, yea, even with the tongue of angels, and after this should deny me, it would have been better for you that ye had not known me.” ([[2 Nephi 31.14|2 Ne. 31:14]].)
 
 Then Nephi records this testimony of the Father concerning the Son:
 
-“And I heard a voice from the Father, saying: Yea, the words of my Beloved are true and faithful. He that endureth to the end, the same shall be saved.” ([[2 Nephi 31.15|2 Ne. 31:15]].)
+“And I heard a voice from the Father, saying: Yea, the words of my Beloved are true and faithful. He that endureth to the end, the same shall be saved.” ([[2 Nephi 31.15|2 Ne. 31:15]].)
 
 Now this is obviously the most important message that God the Father could possibly give to his children: Repent and be baptized in the name of Jesus Christ and then endure to the end. This is the will of the Father. This is what he wants for his children. The mark of real conversion is *endurance.* Only unto him who endures to the end will be brought about the great and eternal plan of redemption.
 
@@ -62,7 +62,7 @@ When we fail to do what we know we should, having the light before us but refusi
 
 In this earth-life probation those who are converted will succeed. The kingdom isn’t going to fail. It is the stone which the prophet Daniel saw was cut out of the mountain without hands, and it rolled forth down the mountain side, gaining momentum as it went. It broke down all other kingdoms; it filled the whole earth and stood forever.
 
-The kingdom of God is a winner. Isn’t it great to be part of a winner? Don’t you love a winner? I do. I confess I hate to lose. I think I’m the worst loser in all the world. I don’t believe in it. Some say it matters not whether you win or lose but how you play the game. Don’t you believe it; it makes a lot of difference whether you win or not. We came to this earth to win, and we will win if we stick with the Lord, because the Lord is not going to lose. He can’t lose. The kingdom is a winner, and when we do it his way, we will win with him. The promise is sure: “… He that endureth to the end, the same shall be saved.” ([[2 Nephi 31.15|2 Ne. 31:15]].)
+The kingdom of God is a winner. Isn’t it great to be part of a winner? Don’t you love a winner? I do. I confess I hate to lose. I think I’m the worst loser in all the world. I don’t believe in it. Some say it matters not whether you win or lose but how you play the game. Don’t you believe it; it makes a lot of difference whether you win or not. We came to this earth to win, and we will win if we stick with the Lord, because the Lord is not going to lose. He can’t lose. The kingdom is a winner, and when we do it his way, we will win with him. The promise is sure: “… He that endureth to the end, the same shall be saved.” ([[2 Nephi 31.15|2 Ne. 31:15]].)
 
 Testimony won’t save us, but testimony coupled with faith and conversion, which includes, staying power, which is endurance, will exalt us.
 
@@ -92,11 +92,9 @@ Listen to the words of the Master:
 
 “And the day shall come when the nations of the earth shall tremble because of her, and shall fear because of her terrible ones. The Lord hath spoken it. Amen. ([[D&C 64.29|D&C 64:29, 33–43]][[D&C 64.33|]][[D&C 64.34|]][[D&C 64.35|]][[D&C 64.36|]][[D&C 64.37|]][[D&C 64.38|]][[D&C 64.39|]][[D&C 64.40|]][[D&C 64.41|]][[D&C 64.42|]][[D&C 64.43|]].)
 
-Does that sound like a loser to you? I tell you it doesn’t. And those who are converted, who can follow the Lord and his anointed servants, these are they who will bring to pass the purposes of God. Before you can be a great leader in the kingdom of God, you must first be a great follower. Obedience is still better than sacrifice and to hearken than the fat of rams. (See [[1 Samuel 15.22|1 Sam. 15:22]].)
+Does that sound like a loser to you? I tell you it doesn’t. And those who are converted, who can follow the Lord and his anointed servants, these are they who will bring to pass the purposes of God. Before you can be a great leader in the kingdom of God, you must first be a great follower. Obedience is still better than sacrifice and to hearken than the fat of rams. (See [[1 Samuel 15.22|1 Sam. 15:22]].)
 
 May the Lord bless us to hold fast and remain faithful as we follow the Lord’s anointed servants, and may we feel good about it. I pray that we will, in Jesus’ name. Amen.
-
-
 
 
 

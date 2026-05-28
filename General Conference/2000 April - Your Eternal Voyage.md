@@ -18,7 +18,7 @@ We who have been ordained to the priesthood of God can make a difference. When w
 
 Though the task seems large, we are strengthened by this truth: “The greatest force in this world today is the power of God as it works through man.” If we are on the Lord’s errand, we are entitled to the Lord’s help. That divine help, however, is predicated upon our worthiness. To sail safely the seas of mortality, to perform a human rescue mission, we need the guidance of that eternal mariner—even the great Jehovah. We reach out, we reach up, to obtain heavenly help.
 
-Are our reaching hands clean? Are our yearning hearts pure? Looking backward in time through the pages of history, a lesson on worthiness is gleaned from the words of the dying King Darius. “Darius, … through the proper rites had been recognized as legitimate King of Egypt; his rival Alexander \[the Great\] had been declared … legitimate Son of Amon—he too was Pharaoh. … Alexander\[, finding\] the defeated Darius on the point of death … , laid his hands upon his head to heal him, commanding him to arise and resume his kingly power, … concluding … : ‘I swear unto thee, Darius, by all the gods that I do these things truly and without faking. …’ \[Darius\] replied with a gentle rebuke: ‘Alexander my boy … do you think you can touch heaven with those hands of yours?’”[^2]
+Are our reaching hands clean? Are our yearning hearts pure? Looking backward in time through the pages of history, a lesson on worthiness is gleaned from the words of the dying King Darius. “Darius, … through the proper rites had been recognized as legitimate King of Egypt; his rival Alexander \[the Great\] had been declared … legitimate Son of Amon—he too was Pharaoh. … Alexander\[, finding\] the defeated Darius on the point of death … , laid his hands upon his head to heal him, commanding him to arise and resume his kingly power, … concluding … : ‘I swear unto thee, Darius, by all the gods that I do these things truly and without faking. …’ \[Darius\] replied with a gentle rebuke: ‘Alexander my boy … do you think you can touch heaven with those hands of yours?’”[^2]
 
 An inspiring lesson is learned from a “Viewpoint” article which appeared some time ago in the *Church News.* May I quote:
 
@@ -99,6 +99,4 @@ May we be wise mariners as we go forth on such a voyage. Let us be pure vessels 
 
 [^9]: [[Ether 12.27|Ether 12:27]].
 
-
-
-#Blessings #Commitment #Faith #Fear #Jesus_Christ #Miracles #Priesthood #Responsibility #Service #Sin #Spirituality #Worthiness
+#Blessings #Commitment #Faith #Fear #JesusChrist #Miracles #Priesthood #Responsibility #Service #Sin #Spirituality #Worthiness

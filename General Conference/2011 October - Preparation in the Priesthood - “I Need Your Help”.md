@@ -1,6 +1,6 @@
 # Preparation in the Priesthood: “I Need Your Help”
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -54,7 +54,7 @@ Listen to what Paul said to Timothy, his younger companion:
 
 “Till I come, give attendance to reading, to exhortation, to doctrine.
 
-“Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands. …
+“Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands. …
 
 “Take heed unto thyself, and unto the doctrine;[^1] continue in them: for in doing this thou shalt both save thyself, and them that hear thee.”[^2]
 
@@ -72,19 +72,19 @@ Great priesthood trainers have shown me how to build that strength: it is to for
 
 You great priesthood leaders who have built that spiritual strength in your youth still possess it when physical strength weakens.
 
-My younger brother was in a small Utah city on business. He got a phone call at his hotel from President Spencer W. Kimball. It was late at night after what was a hard day of work for my brother and surely for President Kimball, who began the conversation this way. He said, “I heard that you were in town. I know it’s late and that you may be in bed, but could you help me? I need you as my companion to see the condition of all our chapels in this city.” My brother went with him that night, lacking knowledge of chapel maintenance or anything about chapels and not knowing why President Kimball would be doing such a thing after his long day or why he needed any help.
+My younger brother was in a small Utah city on business. He got a phone call at his hotel from President Spencer W. Kimball. It was late at night after what was a hard day of work for my brother and surely for President Kimball, who began the conversation this way. He said, “I heard that you were in town. I know it’s late and that you may be in bed, but could you help me? I need you as my companion to see the condition of all our chapels in this city.” My brother went with him that night, lacking knowledge of chapel maintenance or anything about chapels and not knowing why President Kimball would be doing such a thing after his long day or why he needed any help.
 
-Years later I received a similar call late at night in a hotel in Japan. I was then the new commissioner of education for the Church. I knew that President Gordon B. Hinckley was staying somewhere in that same hotel on his separate assignment to Japan. I answered the ringing phone just after I had lain down on the bed to sleep, exhausted by having done all I thought I had the strength to do.
+Years later I received a similar call late at night in a hotel in Japan. I was then the new commissioner of education for the Church. I knew that President Gordon B. Hinckley was staying somewhere in that same hotel on his separate assignment to Japan. I answered the ringing phone just after I had lain down on the bed to sleep, exhausted by having done all I thought I had the strength to do.
 
 President Hinckley asked in his pleasant voice, “Why are you sleeping when I am here reading a manuscript that we have been asked to review?” So I got up and went to work, even though I knew that President Hinckley could give a better review of a manuscript than I could possibly do. But somehow he made me feel that he needed my help.
 
-President Thomas S. Monson, at the end of almost every meeting, asks the secretary to the First Presidency, “Am I up to date on my work?” And he always smiles when the answer comes back: “Oh, yes, President, you are.” President Monson’s pleased smile sends me a message. It makes me think, “Is there something more I could do on my assignments?” And then I go back to my office to work.
+President Thomas S. Monson, at the end of almost every meeting, asks the secretary to the First Presidency, “Am I up to date on my work?” And he always smiles when the answer comes back: “Oh, yes, President, you are.” President Monson’s pleased smile sends me a message. It makes me think, “Is there something more I could do on my assignments?” And then I go back to my office to work.
 
 Great teachers have shown me how to prepare to keep the oath and covenant when time and age will make it harder. They have shown and taught me how to discipline myself to work harder than I thought I could while I still have health and strength.
 
 I can’t be a perfect servant every hour, but I can try to give more effort than I thought I could. With that habit formed early on, I will be prepared for trials later. You and I can be prepared with the strength to keep our oath and covenant through the tests that will surely come as we approach the end of life.
 
-I saw evidence of that in a Church Board of Education meeting. President Spencer W. Kimball by then had given years of service while enduring a series of health challenges only Job would understand. He was chairing the meeting that morning.
+I saw evidence of that in a Church Board of Education meeting. President Spencer W. Kimball by then had given years of service while enduring a series of health challenges only Job would understand. He was chairing the meeting that morning.
 
 Suddenly, he stopped speaking. He slumped in his chair. His eyes closed. His head fell on his chest. I was seated near him. Elder Holland was next to us. The two of us rose to help him. Inexperienced as we were in emergencies, we decided to carry him, still seated in his chair, to his nearby office.
 
@@ -101,12 +101,10 @@ I leave you my blessing that you will be able to recognize the glorious opportun
 
 
 
-[^1]: See [[2 Nephi 32.3|2 Nephi 32:3–6]][[2 Nephi 32.4|]][[2 Nephi 32.5|]][[2 Nephi 32.6|]].
+[^1]: See [[2 Nephi 32.3|2 Nephi 32:3–6]][[2 Nephi 32.4|]][[2 Nephi 32.5|]][[2 Nephi 32.6|]].
 
-[^2]: [[1 Timothy 4.12|1 Timothy 4:12–14, 16]][[1 Timothy 4.13|]][[1 Timothy 4.14|]][[1 Timothy 4.16|]].
+[^2]: [[1 Timothy 4.12|1 Timothy 4:12–14, 16]][[1 Timothy 4.13|]][[1 Timothy 4.14|]][[1 Timothy 4.16|]].
 
 [^3]: [[D&C 84.39|Doctrine and Covenants 84:39]].
-
-
 
 #Duty #Preparation #Priesthood #Service #Work

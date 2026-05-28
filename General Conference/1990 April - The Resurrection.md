@@ -24,9 +24,9 @@ Now Mary Magdalene approached the tomb, but to her utter amazement the huge ston
 
 Peter, the chief Apostle, and John, the beloved Apostle, hurried to the place of burial. The account of Mary was confirmed. The tomb was indeed empty, except for the linens which had been used to wrap the body. Saddened, the two Apostles went away to their own homes.
 
-“But Mary,” who had followed Peter and John back to the garden, “stood without at the sepulchre weeping: and as she wept, she stooped down, and looked into the sepulchre” ([[John 20.11|v. 11]]). Two angels dressed in white sat within the tomb. Seeing her great grief they asked, “Woman, why weepest thou?” Sorrowfully, she answered them, “Because they have taken away my Lord, and I know not where they have laid him” ([[John 20.13|v. 13]]).
+“But Mary,” who had followed Peter and John back to the garden, “stood without at the sepulchre weeping: and as she wept, she stooped down, and looked into the sepulchre” ([[John 20.11|v. 11]]). Two angels dressed in white sat within the tomb. Seeing her great grief they asked, “Woman, why weepest thou?” Sorrowfully, she answered them, “Because they have taken away my Lord, and I know not where they have laid him” ([[John 20.13|v. 13]]).
 
-Still weeping, Mary turned from the tomb, and through her misty eyes she noticed someone standing close by. The person spoke to her, “Woman, why weepest thou? whom seekest thou?” Thinking that perhaps it was the gardener who addressed her, she replied, “Sir, if thou have borne him hence, tell me where thou hast laid him, and I will take him away” ([[John 20.15|v. 15]]).
+Still weeping, Mary turned from the tomb, and through her misty eyes she noticed someone standing close by. The person spoke to her, “Woman, why weepest thou? whom seekest thou?” Thinking that perhaps it was the gardener who addressed her, she replied, “Sir, if thou have borne him hence, tell me where thou hast laid him, and I will take him away” ([[John 20.15|v. 15]]).
 
 In a voice tinctured with pure love and the sweetest tenderness, he simply uttered one word, “Mary.” There was no mistaking the voice; it was Jesus Christ. And thrilled beyond any comprehension, the dear woman could only say, “Rabboni,” which means Master (see [[John 20.16|John 20:16]]).
 
@@ -47,6 +47,4 @@ Such is my humble testimony of the glorious resurrection of the Lord Jesus Chris
 
 
 
-
-
-#Jesus_Christ #Resurrection
+#JesusChrist #Resurrection

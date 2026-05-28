@@ -80,11 +80,26 @@ John the Beloved declared, “Behold the Lamb of God, who taketh away the sin of
 
 Well do I remember an experience while speaking to a group of missionaries. After I had invited questions, one elder stood. With tears in his eyes he asked, “Why did Jesus have to suffer so much?” I asked the elder to open his book of hymns and recite words from “How Great Thou Art.” He read:
 
-And when I think that God, his Son not sparing,Sent him to die, I scarce can take it in,That on the cross, my burden gladly bearing,He bled and died to take away my sin.[^30]
+>And when I think that God, his Son not sparing,
+>Sent him to die, I scarce can take it in,
+>That on the cross, my burden gladly bearing,
+>He bled and died to take away my sin.[^30]
+>
 
 Then I asked this elder to read from “Reverently and Meekly Now.” These words are particularly poignant because they are written as the Lord would express His own answer to the *very* question that had been asked:
 
-Think of me, thou ransomed one;Think what I for thee have done.With my blood that dripped like rain,Sweat in agony of pain,With my body on the treeI have ransomed even thee. …Oh, remember what was doneThat the sinner might be won.On the cross of CalvaryI have suffered death for thee.[^31]
+>Think of me, thou ransomed one;
+>Think what I for thee have done.
+>With my blood that dripped like rain,
+>Sweat in agony of pain,
+>With my body on the tree
+>I have ransomed even thee. …
+>
+>Oh, remember what was done
+>That the sinner might be won.
+>On the cross of Calvary
+>I have suffered death for thee.[^31]
+>
 
 Jesus suffered deeply because He loves us deeply! He wants us to repent and be converted so that He can fully heal us.
 
@@ -113,9 +128,9 @@ I testify that God lives, that Jesus is the Christ—the Master Healer—in the 
 
 [^7]: See [[John 4.46|John 4:46–53]][[John 4.47|]][[John 4.48|]][[John 4.49|]][[John 4.50|]][[John 4.51|]][[John 4.52|]][[John 4.53|]].
 
-[^8]: [[3 Nephi 17.7|3 Nephi 17:7]].
+[^8]: [[3 Nephi 17.7|3 Nephi 17:7]].
 
-[^9]: See [[Matthew 10.5|Matthew 10:5–8]][[Matthew 10.6|]][[Matthew 10.7|]][[Matthew 10.8|]]; [[Mark 16.17|Mark 16:17]]; [[Luke 10.17|Luke 10:17]]; [[4 Nephi 1.5|4 Nephi 1:5]].
+[^9]: See [[Matthew 10.5|Matthew 10:5–8]][[Matthew 10.6|]][[Matthew 10.7|]][[Matthew 10.8|]]; [[Mark 16.17|Mark 16:17]]; [[Luke 10.17|Luke 10:17]]; [[4 Nephi 1.5|4 Nephi 1:5]].
 
 [^10]: See [[D&C 84.65|D&C 84:65–70]][[D&C 84.66|]][[D&C 84.67|]][[D&C 84.68|]][[D&C 84.69|]][[D&C 84.70|]].
 
@@ -123,15 +138,15 @@ I testify that God lives, that Jesus is the Christ—the Master Healer—in the 
 
 [^12]: [[Alma 36.15|Alma 36:15]].
 
-[^13]: [[3 Nephi 25.2|3 Nephi 25:2]]; see also [[Malachi 4.2|Malachi 4:2]].
+[^13]: [[3 Nephi 25.2|3 Nephi 25:2]]; see also [[Malachi 4.2|Malachi 4:2]].
 
 [^14]: [[Luke 4.18|Luke 4:18]]; see also [[Isaiah 61.1|Isaiah 61:1]].
 
 [^15]: [[Matthew 13.15|Matthew 13:15]]; see also [[Isaiah 6.10|Isaiah 6:10]]; [[John 12.40|John 12:40]]; [[Acts 28.27|Acts 28:27]].
 
-[^16]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^16]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
-[^17]: [[3 Nephi 18.32|3 Nephi 18:32]].
+[^17]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
 [^18]: [[Acts 3.21|Acts 3:21]].
 
@@ -143,13 +158,13 @@ I testify that God lives, that Jesus is the Christ—the Master Healer—in the 
 
 [^22]: See [[Mosiah 5.2|Mosiah 5:2]]; [[Alma 5.12|Alma 5:12–14]][[Alma 5.13|]][[Alma 5.14|]].
 
-[^23]: See [[John 3.3|John 3:3–7]][[John 3.4|]][[John 3.5|]][[John 3.6|]][[John 3.7|]]; [[1 Peter 1.23|1 Peter 1:23]]; [[Mosiah 27.24|Mosiah 27:24–26]][[Mosiah 27.25|]][[Mosiah 27.26|]]; [[Alma 5.49|Alma 5:49]]; [[Alma 7.14|7:14]]; [[Moses 6.59|Moses 6:59]]; Joseph Smith Translation, Genesis 6:62 (The Holy Scriptures: Inspired Version).
+[^23]: See [[John 3.3|John 3:3–7]][[John 3.4|]][[John 3.5|]][[John 3.6|]][[John 3.7|]]; [[1 Peter 1.23|1 Peter 1:23]]; [[Mosiah 27.24|Mosiah 27:24–26]][[Mosiah 27.25|]][[Mosiah 27.26|]]; [[Alma 5.49|Alma 5:49]]; [[Alma 7.14|7:14]]; [[Moses 6.59|Moses 6:59]]; Joseph Smith Translation, Genesis 6:62 (The Holy Scriptures: Inspired Version).
 
 [^24]: See [[Romans 6.3|Romans 6:3–4]][[Romans 6.4|]].
 
 [^25]: See [[Mosiah 5.2|Mosiah 5:2–5]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]].
 
-[^26]: See [[3 Nephi 27.21|3 Nephi 27:21, 27]][[3 Nephi 27.27|]].
+[^26]: See [[3 Nephi 27.21|3 Nephi 27:21, 27]][[3 Nephi 27.27|]].
 
 [^27]: See [[D&C 20.37|D&C 20:37]]; [[Mosiah 18.10|Mosiah 18:10]].
 
@@ -169,6 +184,4 @@ I testify that God lives, that Jesus is the Christ—the Master Healer—in the 
 
 [^35]: See [[Alma 11.43|Alma 11:43]]; [[Alma 40.23|40:23]].
 
-
-
-#Atonement #Conversion #Healing #Jesus_Christ #Repentance
+#Atonement #Conversion #Healing #JesusChrist #Repentance

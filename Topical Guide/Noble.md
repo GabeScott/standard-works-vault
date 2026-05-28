@@ -1,6 +1,5 @@
 # Noble
 
-
 *See also* [[Excellent.md|Excellent]]; [[Honorable.md|Honorable]]; [[Nobleman.md|Nobleman]]
 
 By me princes rule, and *nobles*, [[Proverbs 8.16|Proverbs 8:16]].

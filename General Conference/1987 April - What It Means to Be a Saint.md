@@ -56,13 +56,13 @@ There are many ways to be imperfect. After a long sermon of admonition, King Ben
 
 The many imperfections which trouble our daily lives require us to be a repenting as well as a repentant people. We should pay attention to the gentle admonitions as well as the thundering warnings.
 
-At the conclusion of the October 1975 general conference, President Spencer W. Kimball said: “While sitting here, I have made up my mind that when I go home from this conference this night there are many, many areas in my life that I can perfect. I have made a mental list of them, and I expect to go to work as soon as we get through with conference” (in Conference Report, Oct. 1975, p. 164; or *Ensign,* Nov. 1975, p. 111).
+At the conclusion of the October 1975 general conference, President Spencer W. Kimball said: “While sitting here, I have made up my mind that when I go home from this conference this night there are many, many areas in my life that I can perfect. I have made a mental list of them, and I expect to go to work as soon as we get through with conference” (in Conference Report, Oct. 1975, [[1975 October - Spoken from Their Hearts.md|p. 164]]; or *Ensign,* Nov. 1975, p. 111).
 
 So this mortal part of our eternal life is a time of probation. We desired the experience before we were born. Now we are in the midst of the great test. “And we will prove them herewith,” said the Lord, “to see if they will do all things whatsoever the Lord their God shall command them” ([[Abraham 3.25|Abr. 3:25]]).
 
 Great numbers of the Saints throughout the world are doing very well. They take their probation seriously. They have established happy, righteous homes. Children grow up in the “nurture and admonition of the Lord” ([[Enos 1.1|Enos 1:1]]). Their theme song is “Love at Home.” Home evenings, love for the scriptures, association in meetings with their brothers and sisters, payment of their tithes, plans for education and missionary service are the direction of their efforts with their faces steadfastly turned toward the temple.
 
-This is far different from “confessing Christ” as the one single requirement for salvation. *Saints* take literally the parable in the twenty-fifth chapter of Matthew about the Judgment Day (see [[Matthew 25.31|vs. 31–46]][[Matthew 25.32|]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]][[Matthew 25.41|]][[Matthew 25.42|]][[Matthew 25.43|]][[Matthew 25.44|]][[Matthew 25.45|]][[Matthew 25.46|]]). They reach out to one another and to the poor and distressed. Thus, they may be found on the right hand of God. No matter who you are and what you may think, God has established certain conditions or requirements to return to his presence. “They who keep their first estate shall be added upon; … and they who keep their second estate shall have glory added upon their heads for ever and ever” ([[Abraham 3.26|Abr. 3:26]]).
+This is far different from “confessing Christ” as the one single requirement for salvation. *Saints* take literally the parable in the twenty-fifth chapter of Matthew about the Judgment Day (see [[Matthew 25.31|vs. 31–46]][[Matthew 25.32|]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]][[Matthew 25.41|]][[Matthew 25.42|]][[Matthew 25.43|]][[Matthew 25.44|]][[Matthew 25.45|]][[Matthew 25.46|]]). They reach out to one another and to the poor and distressed. Thus, they may be found on the right hand of God. No matter who you are and what you may think, God has established certain conditions or requirements to return to his presence. “They who keep their first estate shall be added upon; … and they who keep their second estate shall have glory added upon their heads for ever and ever” ([[Abraham 3.26|Abr. 3:26]]).
 
 Saints go beyond the required righteous living to enter into the covenants and receive the ordinances of the gospel. These are taught and administered through his authorized servants by the power of the holy priesthood. *Holy* priesthood is not man-made. The ordinances and covenants belong to *this* priesthood. Beyond baptism, without which the Lord said we “cannot enter into the kingdom of God” ([[John 3.5|John 3:5]]), are further gifts and blessings which are received in the temple. There we enter into solemn covenants with God. Through the priesthood we receive the ordinances which direct us toward the veil, that we may enter again into his presence.
 
@@ -70,19 +70,19 @@ Now, of course the ordinances alone do not make us saints. Our actions do that, 
 
 In this second estate, is our perspective short-range or is it eternal? Elder Spencer W. Kimball, then a member of the Quorum of the Twelve, drew this to our attention in 1968: “One day,” he said, “a friend took me to his ranch. He unlocked the door of a large new automobile, slid under the wheel, and said proudly, ‘How do you like my new car?’ We rode in luxurious comfort … to a beautiful new landscaped home, and he said with no little pride, ‘This is my home.’
 
-“He drove to a grassy knoll. The sun was retiring behind the distant hills. He surveyed his vast domain. …
+“He drove to a grassy knoll. The sun was retiring behind the distant hills. He surveyed his vast domain. …
 
-“With a wide sweeping gesture he boasted, ‘From the clump of trees, to the lake, to the bluff, and to the ranch buildings and all between—all this is mine. …
+“With a wide sweeping gesture he boasted, ‘From the clump of trees, to the lake, to the bluff, and to the ranch buildings and all between—all this is mine. …
 
 “I saw him lying in his death,” said President Kimball, “among luxurious furnishings in a palatial home. His had been a vast estate. … I spoke at his funeral, and I followed the cortege … to his grave, a tiny, oblong area the length of a tall man, the width of a heavy one.
 
-“Yesterday I saw that same estate, yellow in grain, green in lucerne, white in cotton, seemingly unmindful of him who had claimed it” (in Conference Report, Apr. 1968, pp. 73–74; or *Improvement Era,* June 1968, pp. 81–82).
+“Yesterday I saw that same estate, yellow in grain, green in lucerne, white in cotton, seemingly unmindful of him who had claimed it” (in Conference Report, Apr. 1968, pp. 73–74; or *Improvement Era,* June 1968, pp. 81–82).
 
 The earth is the Lord’s. We are only stewards.
 
 Some who have made the covenant do not take it seriously. Having received baptism as a form and not as a covenant, they scarcely advance to the sacrament table. Saints will take it seriously. The ordinances of the priesthood and the covenants entered into in the temple direct us toward the consecrated life God expects of those who have taken the name of Jesus Christ.
 
-Speaking in Logan in 1984, President Ezra Taft Benson taught that Adam and his posterity were commanded “to enter into the order of the Son of God. To enter into the order of the Son of God,” he said, “is the equivalent today of entering into the fullness of the Melchizedek Priesthood, which is only received in the house of the Lord” (*Ensign,* Aug. 1985, p. 8).
+Speaking in Logan in 1984, President Ezra Taft Benson taught that Adam and his posterity were commanded “to enter into the order of the Son of God. To enter into the order of the Son of God,” he said, “is the equivalent today of entering into the fullness of the Melchizedek Priesthood, which is only received in the house of the Lord” (*Ensign,* Aug. 1985, p. 8).
 
 “For without this no man can see the face of God, even the Father, and live” ([[D&C 84.22|D&C 84:22]]).
 
@@ -91,6 +91,4 @@ That the Saints will accept this priesthood, receive its ordinances, and keep th
 
 
 
-
-
-#Church_Membership #Covenants
+#ChurchMembership #Covenants

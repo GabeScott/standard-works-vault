@@ -5,5 +5,5 @@
 [Numbers 14:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.18?lang=eng#p18)
 
 
-[^a]: [[Psalms 86.15|Ps. 86:15]].
-[^b]: [[Forgive, Forgiveness|TG Forgive]].
+[^a]: [[Psalms 86.15|Ps. 86:15]].  
+[^b]: [[Forgive, Forgiveness|TG Forgive]].  

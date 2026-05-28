@@ -1,6 +1,6 @@
 # Come, Listen to a Prophet’s Voice
 
-By Bishop Dean M. Davies - *First Counselor in the Presiding Bishopric*
+By Bishop Dean M. Davies - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -14,13 +14,13 @@ In speaking of the President of The Church of Jesus Christ of Latter-day Saints,
 
 “… Yea, to be a seer, a revelator, a translator, and a prophet, *having all the gifts of God which he bestows upon the head of the church*” ([[D&C 107.91|Doctrine and Covenants 107:91–92]][[D&C 107.92|]]; emphasis added).
 
-I have been blessed to witness some of the gifts of God upon His prophets. May I share one such sacred experience with you? Prior to my current calling, I assisted in identifying and recommending future temple sites. After September 11, 2001, crossings along the U.S. borders became more controlled. As a result, it took two to three hours for many Church members to make the crossing from Vancouver, Canada, while going to the Seattle Washington Temple. President Gordon B. Hinckley, President of the Church at that time, suggested that a temple in Vancouver would bless members of the Church. A site search was authorized, and after we examined several Church-owned properties, other sites not owned by the Church were also investigated.
+I have been blessed to witness some of the gifts of God upon His prophets. May I share one such sacred experience with you? Prior to my current calling, I assisted in identifying and recommending future temple sites. After September 11, 2001, crossings along the U.S. borders became more controlled. As a result, it took two to three hours for many Church members to make the crossing from Vancouver, Canada, while going to the Seattle Washington Temple. President Gordon B. Hinckley, President of the Church at that time, suggested that a temple in Vancouver would bless members of the Church. A site search was authorized, and after we examined several Church-owned properties, other sites not owned by the Church were also investigated.
 
 A beautiful site with religious zoning adjacent to the Trans-Canadian Highway was found. The property had excellent access, was dotted with beautiful Canadian pine trees, and enjoyed a prominent location which would make it visible to thousands of passing motorists.
 
 We presented the site with pictures and maps in the monthly Temple Sites Committee meeting. President Hinckley authorized that we place it under contract and complete the necessary studies. In December of that year, we reported back to the committee that the studies were complete, and we sought approval to proceed with the purchase. After hearing our report, President Hinckley said, “I feel I should see this site.”
 
-Later that month, two days after Christmas, we left for Vancouver with President Hinckley; President Thomas S. Monson; and Bill Williams, a temple architect. We were met by Paul Christensen, the local stake president, who transported us to the site. It was a little wet and misty that day, but President Hinckley jumped out of the car and began walking all over the site.
+Later that month, two days after Christmas, we left for Vancouver with President Hinckley; President Thomas S. Monson; and Bill Williams, a temple architect. We were met by Paul Christensen, the local stake president, who transported us to the site. It was a little wet and misty that day, but President Hinckley jumped out of the car and began walking all over the site.
 
 After spending time on the site, I asked President Hinckley if he would like to see some of the other sites that had been considered. He said yes, he would like that. You see, by looking at the other sites, we were able to make a comparison of their virtues.
 
@@ -46,11 +46,11 @@ When the Lord commanded the early Saints in this dispensation to construct a tem
 
 “But let a house be built unto my name according to the pattern which I will show unto them.
 
-“And if my people build it not according to the pattern which I shall show … , I will not accept it at their hands” ([[D&C 115.14|Doctrine and Covenants 115:14–15]][[D&C 115.15|]]).
+“And if my people build it not according to the pattern which I shall show … , I will not accept it at their hands” ([[D&C 115.14|Doctrine and Covenants 115:14–15]][[D&C 115.15|]]).
 
 As with the early Saints, so it is with us today: the Lord has revealed and continues to reveal to the President of the Church the patterns by which the kingdom of God is to be directed in our day. And, at a personal level, he provides guidance as to how each of us should direct our lives, such that our conduct may likewise be acceptable to the Lord.
 
-In April 2013 I spoke about the efforts involved in preparing every temple’s foundation to ensure that it can withstand the storms and calamities to which it will be subjected. But the foundation is just the beginning. A temple is composed of many building blocks, fitted together according to predesigned patterns. If our lives are to become the temples each of us is striving to construct as taught by the Lord (see [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]), we could reasonably ask ourselves, “What building blocks should we put in place in order to make our lives beautiful, majestic, and resistant to the storms of the world?”
+In April 2013 I spoke about the efforts involved in preparing every temple’s foundation to ensure that it can withstand the storms and calamities to which it will be subjected. But the foundation is just the beginning. A temple is composed of many building blocks, fitted together according to predesigned patterns. If our lives are to become the temples each of us is striving to construct as taught by the Lord (see [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]), we could reasonably ask ourselves, “What building blocks should we put in place in order to make our lives beautiful, majestic, and resistant to the storms of the world?”
 
 We can find the answer to this question in the Book of Mormon. Concerning the Book of Mormon, the Prophet Joseph Smith said, “I told the brethren that the Book of Mormon was the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book” (introduction to the Book of Mormon). In the introduction to the Book of Mormon, we are taught that “those who gain \[a\] divine witness from the Holy Spirit \[that the Book of Mormon is the word of God\] will also come to know by the same power that Jesus Christ is the Savior of the world, that Joseph Smith is His revelator and \[prophet of the Restoration\], and that The Church of Jesus Christ of Latter-day Saints is the Lord’s kingdom once again established on the earth.”
 
@@ -70,15 +70,13 @@ The chief cornerstone and building block of the Church and for our lives is Jesu
 
 Now, today, it is our privilege to sustain *him* as the Lord’s living prophet on the earth. We are accustomed to sustaining Church leaders through the divine pattern of raising our arms to the square to manifest our acceptance and support. We did this just a few minutes ago. But true sustaining goes well beyond this physical token. As noted in [[D&C 107.22|Doctrine and Covenants 107:22]], the First Presidency is to be “upheld by the confidence, faith, and prayer of the church.” We come to fully and truly sustain the living prophet as we develop the pattern of confiding in his words, having the faith to act upon them, and then praying for the Lord’s continued blessings upon him.
 
-When I think of President Russell M. Nelson, I take comfort in the words of the Savior when He said, “And if my people will hearken unto my voice, and unto the voice of my servants whom I have appointed to lead my people, behold, verily I say unto you, they shall not be moved out of their place” ([[D&C 124.45|Doctrine and Covenants 124:45]]).
+When I think of President Russell M. Nelson, I take comfort in the words of the Savior when He said, “And if my people will hearken unto my voice, and unto the voice of my servants whom I have appointed to lead my people, behold, verily I say unto you, they shall not be moved out of their place” ([[D&C 124.45|Doctrine and Covenants 124:45]]).
 
 Listening to and hearkening to living prophets will have profound, even life-changing effects in our lives. We are strengthened. We are more assured and confident in the Lord. We hear the word of the Lord. We feel God’s love. We will know how to conduct our lives with purpose.
 
-I love and sustain President Russell M. Nelson and the others who have been called as prophets, seers, and revelators. I testify that he has the gifts the Lord has bestowed upon his head, and I witness that as we solidify in our lives the practice of listening to and heeding the voice of the living prophets, our lives will be built according to the Lord’s divine pattern for us, and we will reap eternal blessings. The invitation is extended to all. Come, listen to a prophet’s voice; yea, come unto Christ and live. In the name of Jesus Christ, amen.
+I love and sustain President Russell M. Nelson and the others who have been called as prophets, seers, and revelators. I testify that he has the gifts the Lord has bestowed upon his head, and I witness that as we solidify in our lives the practice of listening to and heeding the voice of the living prophets, our lives will be built according to the Lord’s divine pattern for us, and we will reap eternal blessings. The invitation is extended to all. Come, listen to a prophet’s voice; yea, come unto Christ and live. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Book_Of_Mormon #Prophets #Revelation #Testimony
+#BookOfMormon #Prophets #Revelation #Testimony

@@ -1,4 +1,3 @@
 # Jude
 
-
-*See* [BD Jude](https://www.churchofjesuschrist.org/study/scriptures/bd/jude?lang=eng); [Jude, Epistle of](https://www.churchofjesuschrist.org/study/scriptures/bd/jude-epistle-of?lang=eng)
+*See also* [[BD Jude.md|BD Jude]]; [[BD Jude, Epistle of.md|BD Jude, Epistle of]]

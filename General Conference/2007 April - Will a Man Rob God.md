@@ -20,7 +20,7 @@ Tithing is such an important commandment that when the Lord appeared on the Amer
 
 In the book of Leviticus, the Lord stated three different times that tithing is “holy unto the Lord.”[^4]
 
-The Lord said, “Prove me now \[or test me now\] … , if I will not open you the windows of heaven.”[^5] Many of us test the Lord in the right way; however, some do not.
+The Lord said, “Prove me now \[or test me now\] … , if I will not open you the windows of heaven.”[^5] Many of us test the Lord in the right way; however, some do not.
 
 Consider, for example, ten apples. Now, all ten of these apples actually belong to the Lord, but He asks us to return to Him only one-tenth, or one apple.
 
@@ -77,26 +77,24 @@ I know that Heavenly Father lives. Therefore, He will bless you. Jesus Christ is
 
 [^1]: [[Malachi 3.8|Malachi 3:8–10]][[Malachi 3.9|]][[Malachi 3.10|]].
 
-[^2]: See [[3 Nephi 24.8|3 Nephi 24:8–10]][[3 Nephi 24.9|]][[3 Nephi 24.10|]].
+[^2]: See [[3 Nephi 24.8|3 Nephi 24:8–10]][[3 Nephi 24.9|]][[3 Nephi 24.10|]].
 
 [^3]: [[D&C 119.4|D&C 119:4]].
 
 [^4]: [[Leviticus 27.30|Leviticus 27:30]]; see also [[Leviticus 27.32|vv. 32–33]][[Leviticus 27.33|]].
 
-[^5]: [[3 Nephi 24.10|3 Nephi 24:10]].
+[^5]: [[3 Nephi 24.10|3 Nephi 24:10]].
 
 [^6]: [[D&C 64.34|D&C 64:34]].
 
 [^7]: [[Ether 6.12|Ether 6:12]].
 
-[^8]: [[2 Chronicles 7.14|2 Chronicles 7:14]].
+[^8]: [[2 Chronicles 7.14|2 Chronicles 7:14]].
 
 [^9]: “Let Virtue Garnish Thy Thoughts Unceasingly,” *Liahona* and *Ensign,* May 2007, 117.
 
-[^10]: In Conference Report, Oct. 1985, 110; or *Ensign,* Nov. 1985, 85.
+[^10]: In Conference Report, Oct. 1985, [[1985 October - “Let Us Move This Work Forward”.md|110]]; or *Ensign,* Nov. 1985, 85.
 
 [^11]: [[D&C 64.23|D&C 64:23]].
-
-
 
 #Faith #Obedience #Tithing

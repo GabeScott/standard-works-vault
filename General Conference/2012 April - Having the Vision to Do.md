@@ -1,6 +1,6 @@
 # Having the Vision to Do
 
-By Elder O. Vincent Haleck - *Of the Seventy*
+By Elder O. Vincent Haleck - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -22,7 +22,7 @@ With that vision, these faithful and devoted disciples were able to do hard thin
 
 There are other examples in the scriptures of those who caught the vision of the gospel and then went out to act upon that vision. The prophet Alma gained his vision when he heard Abinadi boldly teaching and testifying before King Noah. Alma acted on Abinadi’s teachings and went about teaching the things he had learned, baptizing many who believed on his words (see [[Mosiah 17.1|Mosiah 17:1–4]][[Mosiah 17.2|]][[Mosiah 17.3|]][[Mosiah 17.4|]]; [[Mosiah 18.1|18:1–16]][[Mosiah 18.2|]][[Mosiah 18.3|]][[Mosiah 18.4|]][[Mosiah 18.5|]][[Mosiah 18.6|]][[Mosiah 18.7|]][[Mosiah 18.8|]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.11|]][[Mosiah 18.12|]][[Mosiah 18.13|]][[Mosiah 18.14|]][[Mosiah 18.15|]][[Mosiah 18.16|]]). While persecuting the early Saints, the Apostle Paul was converted on the road to Damascus and then acted by teaching and testifying of Christ (see [[Acts 9.1|Acts 9:1–6, 20–22, 29]][[Acts 9.2|]][[Acts 9.3|]][[Acts 9.4|]][[Acts 9.5|]][[Acts 9.6|]][[Acts 9.20|]][[Acts 9.21|]][[Acts 9.22|]][[Acts 9.29|]]).
 
-In our own day many young men, women, and senior couples have answered the call of a prophet of God to serve missions. With faith and courage they leave their homes and everything that is familiar to them because of their faith in the great good they can do as missionaries. As they act on their vision to serve, they bless the lives of many and, in the process, change their own lives. In the last general conference, President Thomas S. Monson thanked us for the service we give to one another and reminded us of our responsibility to be God’s hands in blessing His children here on earth (see “Until We Meet Again,” *Liahona* and *Ensign,* Nov. 2011, 108). The fulfillment of this charge has been heartwarming as members of the Church have acted upon his vision.
+In our own day many young men, women, and senior couples have answered the call of a prophet of God to serve missions. With faith and courage they leave their homes and everything that is familiar to them because of their faith in the great good they can do as missionaries. As they act on their vision to serve, they bless the lives of many and, in the process, change their own lives. In the last general conference, President Thomas S. Monson thanked us for the service we give to one another and reminded us of our responsibility to be God’s hands in blessing His children here on earth (see “Until We Meet Again,” *Liahona* and *Ensign,* Nov. 2011, 108). The fulfillment of this charge has been heartwarming as members of the Church have acted upon his vision.
 
 Before the Savior departed, understanding that we would need help, He said, “I will not leave you comfortless” ([[John 14.18|John 14:18]]). He taught His disciples, “The Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you” ([[John 14.26|John 14:26]]). This is the same Holy Ghost who can empower and motivate us to do the things that the Savior and our modern-day prophets and apostles teach.
 
@@ -34,7 +34,7 @@ As we learned as a family, we act when we fast and pray. Alma spoke of fasting a
 
 We experience hard things in our lives that can sometimes diminish our vision and faith to do the things we should. We become so busy that we often feel overwhelmed and unable to do any more. While each of us is different, I humbly submit that we must focus our vision on the Savior and His teachings. What did He see in Peter, James, and John and the other Apostles that prompted Him to act to invite them to follow Him? Like His vision of them, the Savior has a great vision of who we can become. It will take the same faith and courage the first Apostles had in order for us to refocus on the things that matter most in bringing lasting happiness and great joy.
 
-When we study the life of our Savior and His teachings, we see Him amongst the people teaching, praying, lifting, and healing. When we emulate Him and do the things we see Him do, we begin to see a vision of who we can become. You will be blessed with insight through the help of the Holy Ghost to do more good. Changes will begin to come, and you will bring a different order to your life that will bless you and your family. During His ministry among the Nephites, the Savior asked, “What manner of men ought ye to be?” He replied, “Even as I am” ([[3 Nephi 27.27|3 Nephi 27:27]]). We need His help to become like Him, and He has shown us the way: “Therefore, ask, and ye shall receive; knock, and it shall be opened unto you; for he that asketh, receiveth; and unto him that knocketh, it shall be opened” ([[3 Nephi 27.29|3 Nephi 27:29]]).
+When we study the life of our Savior and His teachings, we see Him amongst the people teaching, praying, lifting, and healing. When we emulate Him and do the things we see Him do, we begin to see a vision of who we can become. You will be blessed with insight through the help of the Holy Ghost to do more good. Changes will begin to come, and you will bring a different order to your life that will bless you and your family. During His ministry among the Nephites, the Savior asked, “What manner of men ought ye to be?” He replied, “Even as I am” ([[3 Nephi 27.27|3 Nephi 27:27]]). We need His help to become like Him, and He has shown us the way: “Therefore, ask, and ye shall receive; knock, and it shall be opened unto you; for he that asketh, receiveth; and unto him that knocketh, it shall be opened” ([[3 Nephi 27.29|3 Nephi 27:29]]).
 
 I know that as we gain a vision of ourselves as the Savior sees us and as we act on that vision, our lives will be blessed in unexpected ways. Because of the vision of my parents, not only was my life blessed by educational experiences, but I was placed in circumstances where I found and embraced the gospel. More important, I learned the significance of good and faithful parents. Simply put, my life was changed forever.
 
@@ -51,6 +51,4 @@ Just as the Savior saw great potential in His early disciples, He also sees the 
 
 
 
-
-
-#Discipleship #Fasting #Missionary_Work #Perspective #Prayer
+#Discipleship #Fasting #MissionaryWork #Perspective #Prayer

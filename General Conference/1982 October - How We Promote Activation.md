@@ -29,6 +29,4 @@ I know that the Aaronic Priesthood and Young Men program works. It has worked in
 
 
 
-
-
 #Priesthood

@@ -1,6 +1,6 @@
 # The Still Small Voice
 
-By Elder S. Dilworth Young - *Of the First Council of the Seventy*
+By Elder S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -8,13 +8,13 @@ By Elder S. Dilworth Young - *Of the First Council of the Seventy*
 
 We welcome the four new members of the First Quorum of the Seventy and assure them of our love, our complete sustaining and acceptance of their appointments, and shall do our best to be cooperative with them in their work.
 
-I read you an experience of Elijah which I find in 1 Kings, the nineteenth chapter.
+I read you an experience of Elijah which I find in 1 Kings, the nineteenth chapter.
 
 “And he said, Go forth, and stand upon the mount before the Lord. And, behold, the Lord passed by, and a great and strong wind rent the mountains, and brake in pieces the rocks before the Lord; but the Lord was not in the wind: and after the wind an earthquake; but the Lord was not in the earthquake:
 
 “And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice.
 
-“And it was so, when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entering in of the cave. And, behold, there came a voice unto him, and said, What doest thou here, Elijah?” ([[1 Kings 19.11|1 Kgs. 19:11–13]][[1 Kings 19.12|]][[1 Kings 19.13|]].)
+“And it was so, when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entering in of the cave. And, behold, there came a voice unto him, and said, What doest thou here, Elijah?” ([[1 Kings 19.11|1 Kgs. 19:11–13]][[1 Kings 19.12|]][[1 Kings 19.13|]].)
 
 When Elijah knew that he was in communication with the Lord, he told him of his great trouble and why he was hiding in the cave. He then received instruction as to just what to do.
 
@@ -28,13 +28,13 @@ First, the Lord will speak by his Spirit, which is the Holy Ghost. In speaking t
 
 “For it is my voice which speaketh them unto you; for they are given by my Spirit unto you.” ([[D&C 18.35|D&C 18:35]].)
 
-Later, in 1832, he instructed the elders, “I who speak even by the voice of my Spirit. …” ([[D&C 75.1|D&C 75:1]].)
+Later, in 1832, he instructed the elders, “I who speak even by the voice of my Spirit. …” ([[D&C 75.1|D&C 75:1]].)
 
 It is important that we learn to understand when the Lord speaks to us through his Spirit, for it is certain he will do this to the righteous and deserving.
 
 Secondly, it will come into the mind of the recipient. For example, the prophet Enos was praying to the Lord and described his experience thus:
 
-“And while I was thus struggling in the spirit, behold, the voice of the Lord came into my mind again, saying …” ([[Enos 1.10|Enos 1:10]].)
+“And while I was thus struggling in the spirit, behold, the voice of the Lord came into my mind again, saying …” ([[Enos 1.10|Enos 1:10]].)
 
 What he told Enos is not my immediate concern, but the means used to tell him is here illustrated. The word of the Lord comes into the mind.
 
@@ -60,7 +60,7 @@ Causing the bosom to burn is another way of saying that feeling is a big part of
 
 Fourthly, in the terrible rebuke given by Nephi to his brothers concerning their murderous intentions, he said:
 
-“Ye are swift to do iniquity but slow to remember the Lord your God. Ye have seen an angel, and he spake unto you; yea, ye have heard his voice from time to time; and he hath spoken unto you in a still small voice, but ye were past feeling, that ye could not feel his words; wherefore, he has spoken unto you like unto the voice of thunder, which did cause the earth to shake as if it were to divide asunder.” ([[1 Nephi 17.45|1 Ne. 17:45]].)
+“Ye are swift to do iniquity but slow to remember the Lord your God. Ye have seen an angel, and he spake unto you; yea, ye have heard his voice from time to time; and he hath spoken unto you in a still small voice, but ye were past feeling, that ye could not feel his words; wherefore, he has spoken unto you like unto the voice of thunder, which did cause the earth to shake as if it were to divide asunder.” ([[1 Nephi 17.45|1 Ne. 17:45]].)
 
 I repeat: “He hath spoken unto you in a still small voice, but ye were past *feeling,* that ye could not *feel* his words.” (Italics added.) Why did he not say, “Ye are past hearing that ye could not hear his words?” Because the assurance comes through feeling.
 
@@ -72,11 +72,9 @@ When do we teach this principle? When we become alert to situations which point 
 
 There are many times as our youth grow when they will need to seek the Spirit to know how to act or what to do. When do all parents start to teach them? How? Home evenings? Yes, but far more important, when the need is on them, at the moment they need it. Then they understand that, *if righteous,* the voice of the Lord comes into their minds with a certain feeling in the breast, accompanied by a peace. They are receiving the word of the Lord to them.
 
-By this means the Prophet Joseph Smith received revelation, as have those who succeeded him as presidents of the Church. And by this means the Church keeps in harmony with the Lord’s will through President Spencer W. Kimball. By this means we may eventually find our way into eternal life, and I pray we may understand. I bear witness of its truth and of the fact that President Spencer W. Kimball is a prophet, in the name of Jesus Christ. Amen.
+By this means the Prophet Joseph Smith received revelation, as have those who succeeded him as presidents of the Church. And by this means the Church keeps in harmony with the Lord’s will through President Spencer W. Kimball. By this means we may eventually find our way into eternal life, and I pray we may understand. I bear witness of its truth and of the fact that President Spencer W. Kimball is a prophet, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Commandments #Holy_Ghost #Spirituality
+#Commandments #HolyGhost #Spirituality

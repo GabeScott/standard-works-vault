@@ -1,6 +1,6 @@
 # Finding Personal Peace
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -82,7 +82,7 @@ The rising generation will become the nurturers of the generation to follow. The
 
 I bear my sure witness the Savior lives and that He leads this Church. I have felt His love in my life and His love and concern for all of Heavenly Father’s children. The Savior’s invitation to come to Him is an offer of peace.
 
-President Russell M. Nelson is the living prophet of God in all the earth. He has said, “I give you my assurance that regardless of the world’s condition and your personal circumstances, you can face the future with optimism and joy.”[^6]
+President Russell M. Nelson is the living prophet of God in all the earth. He has said, “I give you my assurance that regardless of the world’s condition and your personal circumstances, you can face the future with optimism and joy.”[^6]
 
 I express my love to you. Your great faith and love are reaching people and allowing the Lord to change hearts and so gain a desire to offer others the gift of peace that passes all understanding.
 
@@ -101,5 +101,6 @@ I pray that you may find peace, help many others to find it, and pass it along. 
 
 [^5]: [[Proverbs 22.6|Proverbs 22:6]].
 
+[^6]: Russell M. Nelson, “[Look Forward to the Future with Faith](https://www.churchofjesuschrist.org/study/new-era/2018/06/look-forward-to-the-future-with-faith?lang=eng&id=p12#p12),” *New Era*, June 2018, 5.
 
-#Activation #Children #Holy_Ghost #Love #Obedience #Optimism #Peace
+#Activation #Children #HolyGhost #Love #Obedience #Optimism #Peace

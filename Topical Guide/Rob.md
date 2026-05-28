@@ -1,7 +1,6 @@
 # Rob
 
-
-*See also* [[Robber.md|Robber]]; [[Robbery.md|Robbery]]; [[Stealing, Stolen.md|Stealing]]
+*See also* [[Robber.md|Robber]]; [[Robbery.md|Robbery]]; [[Stealing.md|Stealing]]
 
 not defraud thy neighbour, neither *rob* him, [[Leviticus 19.13|Leviticus 19:13]].
 
@@ -27,6 +26,6 @@ he *robbed* our fathers, [[Alma 20.13|Alma 20:13]].
 
 do ye suppose that mercy can *rob* justice, [[Alma 42.25|Alma 42:25]].
 
-object of all those who belonged to his band ... to *rob*, [[Helaman 2.8|Helaman 2:8]] ([[Helaman 6.17|Helaman 6:17]]; [[3 Nephi 4.5|3 Nephi 4:5]]).
+object of all those who belonged to his band … to *rob*, [[Helaman 2.8|Helaman 2:8]] ([[Helaman 6.17|Helaman 6:17]]; [[3 Nephi 4.5|3 Nephi 4:5]]).
 
-if a man or woman shall *rob* ... be delivered up unto the law, [[D&C 42.84|D&C 42:84]].
+if a man or woman shall *rob* … be delivered up unto the law, [[D&C 42.84|D&C 42:84]].

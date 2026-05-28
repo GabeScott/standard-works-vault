@@ -1,6 +1,5 @@
 # Soft, Softer
 
-
 *See also* [[Soften.md|Soften]]
 
 his words were *softer* than oil, [[Psalms 55.21|Psalms 55:21]].

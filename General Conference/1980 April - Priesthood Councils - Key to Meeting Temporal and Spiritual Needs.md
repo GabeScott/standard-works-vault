@@ -1,16 +1,16 @@
 # Priesthood Councils: Key to Meeting Temporal and Spiritual Needs
 
-By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
+By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1980/04/priesthood-councils-key-to-meeting-temporal-and-spiritual-needs?lang=eng)
 
-The ancient Nephite prophet King Benjamin counseled those who had accepted the Savior and received a remission of their sins with these words: “For the sake of retaining a remission of your sins from day to day, … I would that ye should impart of your substance to the poor, every man according to that which he hath, … administering to their relief, both spiritually and temporally. …
+The ancient Nephite prophet King Benjamin counseled those who had accepted the Savior and received a remission of their sins with these words: “For the sake of retaining a remission of your sins from day to day, … I would that ye should impart of your substance to the poor, every man according to that which he hath, … administering to their relief, both spiritually and temporally. …
 
 “And see that all these things are done in wisdom and order” ([[Mosiah 4.26|Mosiah 4:26–27]][[Mosiah 4.27|]]).
 
-Our living prophet of God, Spencer W. Kimball, has said to us who also have hope in Christ: “Welfare Services is not a program, but the essence of the gospel. *It is the gospel in action.*
+Our living prophet of God, Spencer W. Kimball, has said to us who also have hope in Christ: “Welfare Services is not a program, but the essence of the gospel. *It is the gospel in action.*
 
 “It is the crowning principle of a Christian life” (*Ensign,* 1977, p. 77).
 
@@ -56,7 +56,7 @@ The plan defines goals and procedures which have been adopted by common consent,
 
 As we carefully and prayerfully develop a plan to prepare for the times of stress that are ahead, the magnitude of the challenge may seem overwhelming. Providing even temporary assistance to 15 percent or perhaps even 30 percent of the Church members may seem beyond our capability. However, in addition, we must plan to provide meaningful work for those who become unemployed and to assist with the physical, emotional, and social problems that inevitably accompany periods of economic stress.
 
-However, “the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]). Coordinating our effort as temporal and ecclesiastical officers in area councils, we can accept the commandment and find the way.
+However, “the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]). Coordinating our effort as temporal and ecclesiastical officers in area councils, we can accept the commandment and find the way.
 
 The wisdom of Solomon advises that “where there is no vision, the people perish” ([[Proverbs 29.18|Prov. 29:18]]).
 
@@ -87,8 +87,6 @@ Therefore, we must sacrifice our narrow traditions, local interests, and selfish
 The abstract becomes concrete when we identify welfare services principles with people, places, and things we know. Temporal application of spiritual laws transforms theology into religion.
 
 Through priesthood councils we may, in wisdom and order, most effectively use welfare services to administer to the spiritual and temporal needs of the poor, thus experiencing the gospel in action and learning to live the Christian life, to which I testify in the sacred name of our Savior, Jesus Christ, amen.
-
-
 
 
 

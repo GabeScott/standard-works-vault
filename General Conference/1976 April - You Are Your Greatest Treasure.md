@@ -1,6 +1,6 @@
 # You Are Your Greatest Treasure
 
-By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
+By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -38,7 +38,7 @@ The power of the Holy Ghost was alluded to in the Savior’s instructions to his
 
 “Nevertheless I tell you the truth; It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send him unto you.
 
-“And when he is come, he will reprove the world of sin, and of righteousness, and of judgment. …
+“And when he is come, he will reprove the world of sin, and of righteousness, and of judgment. …
 
 “I have yet many things to say unto you, but ye cannot bear them now.
 
@@ -64,9 +64,9 @@ The whole purpose of the gospel plan is to inform mankind that they might act in
 
 The gospel in its fulness provides the help needed to “get yourself determined upon—to find out what you are and what you are for.”
 
-King Benjamin, a prophet in the Book of Mormon, speaking of the attributes of God, said: “If the knowledge of the goodness of God … has awakened you to a sense of your … fallen state, …
+King Benjamin, a prophet in the Book of Mormon, speaking of the attributes of God, said: “If the knowledge of the goodness of God … has awakened you to a sense of your … fallen state, …
 
-“This is the means whereby salvation cometh. …
+“This is the means whereby salvation cometh. …
 
 “Believe in God; believe that he is, and that he created all things, both in heaven and in earth; believe that he has all wisdom, and all power, both in heaven and in earth; believe that man doth not comprehend all the things which the Lord can comprehend.
 
@@ -79,6 +79,4 @@ May God bless us and help us to understand this I humbly pray, in the name of Je
 
 
 
-
-
-#Holy_Ghost #Individual_Worth #Plan_Of_Salvation
+#HolyGhost #IndividualWorth #PlanOfSalvation

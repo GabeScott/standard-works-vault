@@ -1,6 +1,6 @@
 # The Coming Tests and Trials and Glory
 
-By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -32,7 +32,7 @@ We see other angelic ministrants come, bringing keys and powers and authorities 
 
 We see the little stone cut from the mountain without hands beginning to roll forth toward that coming day when it shall smite the Babylonian image, break in pieces the kingdoms of men, and fill the whole earth (see [[Daniel 2.34|Dan. 2:34–35]][[Daniel 2.35|]]).
 
-We see the elders of the kingdom going forth to many nations, crying repentance, gathering Israel, and assembling the faithful in the tops of the mountains where stands the house of the Lord (see [[2 Nephi 12.2|2 Ne. 12:2]]).
+We see the elders of the kingdom going forth to many nations, crying repentance, gathering Israel, and assembling the faithful in the tops of the mountains where stands the house of the Lord (see [[2 Nephi 12.2|2 Ne. 12:2]]).
 
 We see converts and stakes and temples. Gifts and signs and miracles abound. The sick are healed and the dead are raised by the power of God, and the work of the Lord goes forward.
 
@@ -131,6 +131,4 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-#Adversity #Last_Days
+#Adversity #LastDays

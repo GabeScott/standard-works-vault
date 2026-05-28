@@ -1,6 +1,6 @@
 # The Eternal Gift of Testimony
 
-By Elder Kevin G. Brown - *Of the Seventy*
+By Elder Kevin G. Brown - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -16,7 +16,7 @@ He is omniscient and omnipotent. Through the Light of Christ and the ministratio
 
 He sees our past, present, and eternal destiny. *Nothing can be hidden from Him.*[^4]
 
-President Russell M. Nelson’s invitation to “think celestial” encourages us to emulate our Heavenly Father’s vision and nature.[^5]
+President Russell M. Nelson’s invitation to “think celestial” encourages us to emulate our Heavenly Father’s vision and nature.[^5]
 
 Because of His divine attributes, our Heavenly Father gives us every good gift, each with His eternal perspective and vision in mind.
 
@@ -86,9 +86,9 @@ President Nelson taught: “I plead with you to take charge of your testimony. W
 
 To me, the words *take charge, work, care, own, nurture,* and *feed* sound like an *agent* given stewardship for something precious and important.[^26]
 
-In the early Church, Parley P. Pratt felt disgruntled with the Prophet Joseph Smith and *chose* to criticize him and the Church. When John Taylor, whom Parley taught the gospel, came to town, Parley took him aside and warned him not to follow Joseph. John Taylor said to Parley:
+In the early Church, Parley P. Pratt felt disgruntled with the Prophet Joseph Smith and *chose* to criticize him and the Church. When John Taylor, whom Parley taught the gospel, came to town, Parley took him aside and warned him not to follow Joseph. John Taylor said to Parley:
 
-“Before you left Canada, you bore a strong testimony to Joseph Smith being a prophet of God, … and you said you knew these things by revelation and the gift of the Holy Ghost.
+“Before you left Canada, you bore a strong testimony to Joseph Smith being a prophet of God, … and you said you knew these things by revelation and the gift of the Holy Ghost.
 
 “… I now have the same testimony that you then rejoiced in. If the work was true six months ago, it is true today. If Joseph Smith was then a prophet, he is now a prophet.”[^27]
 
@@ -111,31 +111,31 @@ Brothers and sisters, a testimony of Jesus Christ was never meant to be a tempor
 
 [^2]: See [[D&C 84.46|Doctrine and Covenants 84:46–47]][[D&C 84.47|]]; [[D&C 88.12|88:12–13]][[D&C 88.13|]].
 
-[^3]: “Just because God is God, just because Christ is Christ, they cannot do other than care for us and bless us and help us if we will but come unto them, approaching their throne of grace in meekness and lowliness of heart. They can’t help but bless us. They have to. It is their nature” (Jeffrey R. Holland, “[Come unto Me](https://speeches.byu.edu/talks/jeffrey-r-holland/come-unto)” \[Brigham Young University devotional, Mar. 2, 1997\], 4, speeches.byu.edu).
+[^3]: “Just because God is God, just because Christ is Christ, they cannot do other than care for us and bless us and help us if we will but come unto them, approaching their throne of grace in meekness and lowliness of heart. They can’t help but bless us. They have to. It is their nature” (Jeffrey R. Holland, “[Come unto Me](https://speeches.byu.edu/talks/jeffrey-r-holland/come-unto)” \[Brigham Young University devotional, Mar. 2, 1997\], 4, speeches.byu.edu).
 
 [^4]: See [[Luke 12.2|Luke 12:2]]; [[Moroni 7.22|Moroni 7:22]]; [[Abraham 2.8|Abraham 2:8]].
 
-[^5]: “I invite you to adopt the practice of ‘thinking celestial’! Thinking celestial means being spiritually minded. We learn from the Book of Mormon prophet Jacob that ‘to be spiritually-minded is life eternal’” (Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117).
+[^5]: “I invite you to adopt the practice of ‘thinking celestial’! Thinking celestial means being spiritually minded. We learn from the Book of Mormon prophet Jacob that ‘to be spiritually-minded is life eternal’” (Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117).
 
-[^6]: See Topics and Questions, “[Agency and Accountability](https://churchofjesuschrist.org/study/manual/gospel-topics/agency-and-accountability?lang=eng),” Gospel Library; see also [[2 Nephi 2.11|2 Nephi 2:11, 16]][[2 Nephi 2.16|]].
+[^6]: See Topics and Questions, “[Agency and Accountability](https://www.churchofjesuschrist.org/study/manual/gospel-topics/agency-and-accountability?lang=eng),” Gospel Library; see also [[2 Nephi 2.11|2 Nephi 2:11, 16]][[2 Nephi 2.16|]].
 
-[^7]: See [[1 Peter 1.18|1 Peter 1:18–20]][[1 Peter 1.19|]][[1 Peter 1.20|]]; [[Abraham 3.22|Abraham 3:22–28]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]][[Abraham 3.28|]].
+[^7]: See [[1 Peter 1.18|1 Peter 1:18–20]][[1 Peter 1.19|]][[1 Peter 1.20|]]; [[Abraham 3.22|Abraham 3:22–28]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]][[Abraham 3.28|]].
 
-[^8]: See [[1 Corinthians 6.20|1 Corinthians 6:20]].
+[^8]: See [[1 Corinthians 6.20|1 Corinthians 6:20]].
 
 [^9]: See [[D&C 101.78|Doctrine and Covenants 101:78]].
 
-[^10]: “The gospel of Jesus Christ is a plan that shows us how to become what our Heavenly Father desires us to become. …
+[^10]: “The gospel of Jesus Christ is a plan that shows us how to become what our Heavenly Father desires us to become. …
 
 [^11]: See [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].
 
-[^12]: “The Spirit does not need to be limited to words; He can communicate Spirit to spirit with a language that is unmistakable because it has no words. It is a communication of pure knowledge and intelligence from the Spirit, and I have come to know that it truly is the best way to acquire knowledge. It is stronger and longer lasting than touching or seeing; we can come to doubt the physical senses, but we cannot doubt when the Holy Spirit speaks to us. It is the surest witness. Because of this, the unforgivable sin is to deny the Holy Ghost or the testimony of the Holy Ghost” (D. Todd Christofferson, “[Strong Impressions of the Spirit](https://churchofjesuschrist.org/study/liahona/2013/06/youth/strong-impressions-of-the-spirit?lang=eng&id=p7#p7),” *New Era*, June 2013, 3; *Liahona*, June 2013, 49).
+[^12]: “The Spirit does not need to be limited to words; He can communicate Spirit to spirit with a language that is unmistakable because it has no words. It is a communication of pure knowledge and intelligence from the Spirit, and I have come to know that it truly is the best way to acquire knowledge. It is stronger and longer lasting than touching or seeing; we can come to doubt the physical senses, but we cannot doubt when the Holy Spirit speaks to us. It is the surest witness. Because of this, the unforgivable sin is to deny the Holy Ghost or the testimony of the Holy Ghost” (D. Todd Christofferson, “[Strong Impressions of the Spirit](https://www.churchofjesuschrist.org/study/liahona/2013/06/youth/strong-impressions-of-the-spirit?lang=eng&id=p7#p7),” *New Era*, June 2013, 3; *Liahona*, June 2013, 49).
 
-[^13]: See [[John 5.32|John 5:32]]; [[2 Nephi 31.18|2 Nephi 31:18]]; [[3 Nephi 11.36|3 Nephi 11:36]].
+[^13]: See [[John 5.32|John 5:32]]; [[2 Nephi 31.18|2 Nephi 31:18]]; [[3 Nephi 11.36|3 Nephi 11:36]].
 
-[^14]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96. In that same talk he said:
+[^14]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96. In that same talk he said:
 
-[^15]: See David A. Bednar, “[[2011 April - The Spirit of Revelation.md|The Spirit of Revelation]],” *Ensign* or *Liahona*, May 2011, 87–90; Alexander Dushku, “[[2024 April - Pillars and Rays.md|Pillars and Rays]],” *Liahona*, May 2024, 14–16.
+[^15]: See David A. Bednar, “[[2011 April - The Spirit of Revelation.md|The Spirit of Revelation]],” *Ensign* or *Liahona*, May 2011, 87–90; Alexander Dushku, “[[2024 April - Pillars and Rays.md|Pillars and Rays]],” *Liahona*, May 2024, 14–16.
 
 [^16]: “Testimony,” *Hymns*, no. 137.
 
@@ -143,7 +143,7 @@ Brothers and sisters, a testimony of Jesus Christ was never meant to be a tempor
 
 [^18]: See [[D&C 20.28|Doctrine and Covenants 20:28]]; [[Moses 1.3|Moses 1:3]].
 
-[^19]: See [[Matthew 25.14|Matthew 25:14–30]][[Matthew 25.15|]][[Matthew 25.16|]][[Matthew 25.17|]][[Matthew 25.18|]][[Matthew 25.19|]][[Matthew 25.20|]][[Matthew 25.21|]][[Matthew 25.22|]][[Matthew 25.23|]][[Matthew 25.24|]][[Matthew 25.25|]][[Matthew 25.26|]][[Matthew 25.27|]][[Matthew 25.28|]][[Matthew 25.29|]][[Matthew 25.30|]]. “The spiritual witness I gained from the Holy Ghost … has not passed away. In fact, it has grown stronger. The things I learned in my youth about the fundamental principles of the gospel of Jesus Christ have been my firm foundation throughout my life” (Dieter F. Uchtdorf, “[[2024 October - Nourish the Roots, and the Branches Will Grow.md|Nourish the Roots, and the Branches Will Grow]],” *Liahona*, Nov. 2024, 101).
+[^19]: See [[Matthew 25.14|Matthew 25:14–30]][[Matthew 25.15|]][[Matthew 25.16|]][[Matthew 25.17|]][[Matthew 25.18|]][[Matthew 25.19|]][[Matthew 25.20|]][[Matthew 25.21|]][[Matthew 25.22|]][[Matthew 25.23|]][[Matthew 25.24|]][[Matthew 25.25|]][[Matthew 25.26|]][[Matthew 25.27|]][[Matthew 25.28|]][[Matthew 25.29|]][[Matthew 25.30|]]. “The spiritual witness I gained from the Holy Ghost … has not passed away. In fact, it has grown stronger. The things I learned in my youth about the fundamental principles of the gospel of Jesus Christ have been my firm foundation throughout my life” (Dieter F. Uchtdorf, “[[2024 October - Nourish the Roots, and the Branches Will Grow.md|Nourish the Roots, and the Branches Will Grow]],” *Liahona*, Nov. 2024, 101).
 
 [^20]: [[D&C 6.23|Doctrine and Covenants 6:23]].
 
@@ -155,11 +155,11 @@ Brothers and sisters, a testimony of Jesus Christ was never meant to be a tempor
 
 [^24]: See [[D&C 88.33|Doctrine and Covenants 88:33]].
 
-[^25]: Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p65#p65)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+[^25]: Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p65#p65)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
 
 [^26]: See [[D&C 70.3|Doctrine and Covenants 70:3–4]][[D&C 70.4|]].
 
-[^27]: [Saints: The Story of the Church of Jesus Christ in the Latter Days](https://churchofjesuschrist.org/study/history/saints-v1/24-truth-shall-prevail?lang=eng&id=p27#p27), vol. 1, *The Standard of Truth, 1815–1846* (2018), 280–81.
+[^27]: [Saints: The Story of the Church of Jesus Christ in the Latter Days](https://www.churchofjesuschrist.org/study/history/saints-v1/24-truth-shall-prevail?lang=eng&id=p27#p27), vol. 1, *The Standard of Truth, 1815–1846* (2018), 280–81.
 
 [^28]: See [[Mosiah 4.9|Mosiah 4:9–12]][[Mosiah 4.10|]][[Mosiah 4.11|]][[Mosiah 4.12|]].
 
@@ -167,12 +167,10 @@ Brothers and sisters, a testimony of Jesus Christ was never meant to be a tempor
 
 [^30]: See [[Alma 5.46|Alma 5:46–48]][[Alma 5.47|]][[Alma 5.48|]]. Joseph Smith taught that “salvation cannot come without revelation. It is vain for anyone to minister without it. … No man is a minister of Jesus Christ without being a prophet. No man can be the minister of Jesus Christ except he has the testimony of Jesus, and this is the spirit of prophecy” ([The Joseph Smith Papers](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-c-1-2-november-1838-31-july-1842/547#historical-intro), History, 1838–1856, volume C-1 \[2 November 1838–31 July 1842\] \[addenda\], 12, josephsmithpapers.org; spelling, capitalization, and punctuation modernized).
 
-[^31]: “We stand on the summit of the ages, awed by a great and solemn sense of history. This is the last and final dispensation toward which all in the past has pointed” (Gordon B. Hinckley, “[[1999 October - At the Summit of the Ages.md|At the Summit of the Ages]],” *Ensign*, Nov. 1999, 74; *Liahona*, Jan. 2000, 90).
+[^31]: “We stand on the summit of the ages, awed by a great and solemn sense of history. This is the last and final dispensation toward which all in the past has pointed” (Gordon B. Hinckley, “[[1999 October - At the Summit of the Ages.md|At the Summit of the Ages]],” *Ensign*, Nov. 1999, 74; *Liahona*, Jan. 2000, 90).
 
 [^32]: [[Matthew 24.35|Matthew 24:35]].
 
 [^33]: See [[Moroni 10.30|Moroni 10:30]].
 
-
-
-#Agency #God_The_Father #Holy_Ghost #Testimony
+#Agency #GodTheFather #HolyGhost #Testimony

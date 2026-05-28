@@ -1,6 +1,6 @@
 # Family Home Evening
 
-By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
+By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -8,7 +8,7 @@ By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 My dear brethren and sisters, I would like to say something about family home evening this afternoon. As President Kimball addressed the Stockholm Area Conference he pointed out the great need of home teaching and family home evenings to help neutralize the ills of the world. He said: “The spirit of the times is worldliness. Hoodlumism is common. Supposedly good youth from recognized good families express their revolt in destructive acts. Many defy and resist the law-enforcing officers. Respect for authority, secular, religious, and political, seems to be at a low ebb. Immorality, drug addiction, and general moral and spiritual deterioration seem to be increasing, and the world is in turmoil. But in our time the Lord has offered his ageless program in new dress and it gives promise to return the world to sane living, to true family life, family interdependence. It is to return the father to his rightful place at the head of the family, to bring mother home from social life and employment, the children away from unlimited fun and frolic. The home teaching program with its crowning activity, the family home evening will neutralize the ill effects only if people will apply the remedy.” (*Ensign,* Jan. 1975, pp. 3–4.)
 
-In the October conference of 1964 President David O. McKay reintroduced a family home evening program designed to assist parents in teaching the gospel in the home. Since that time this important program has been emphasized by the Church. Monday evening has been set aside by the entire Church for holding family home evening. A beautiful manual is prepared each year by an expert staff of writers.
+In the October conference of 1964 President David O. McKay reintroduced a family home evening program designed to assist parents in teaching the gospel in the home. Since that time this important program has been emphasized by the Church. Monday evening has been set aside by the entire Church for holding family home evening. A beautiful manual is prepared each year by an expert staff of writers.
 
 Over 907,000 copies of the Family Home Evening Manual are now printed each year—about 830,000 in English and 77,000 in seventeen other languages. They are distributed to forty-eight countries.
 
@@ -34,11 +34,11 @@ Many articles have been written by the national and local press praising our eff
 
 “All denominations agree on this. One denomination—The Church of Jesus Christ of Latter-day Saints—is doing something effective to help families fulfill their key role in the religious nurture of children.
 
-“Every Monday, in some 350,000 Mormon homes around the world, parents and children join in observing ‘Family Home Evening’ …
+“Every Monday, in some 350,000 Mormon homes around the world, parents and children join in observing ‘Family Home Evening’ …
 
-“The most impressive aspect of a Mormon Family Home Evening, to this outside observer, is the apparently natural, unself-conscious and willing way in which older teen-agers participate …
+“The most impressive aspect of a Mormon Family Home Evening, to this outside observer, is the apparently natural, unself-conscious and willing way in which older teen-agers participate …
 
-“LDS President Harold B. Lee is a strong proponent of the home evening concept. He told a group of Mormon leaders recently that ‘the most important of the Lord’s work will be that which we do within our own homes.’
+“LDS President Harold B. Lee is a strong proponent of the home evening concept. He told a group of Mormon leaders recently that ‘the most important of the Lord’s work will be that which we do within our own homes.’
 
 “President Lee says family home evenings not only are an invaluable opportunity for religious instruction. They also serve to unite families, to bridge generation gaps, and to maintain communication between parents and children.
 
@@ -64,7 +64,7 @@ A copy of another excellent proclamation was received from the governor of Arizo
 
 “WHEREAS, prominent religious leaders have said; ‘No Success Can Compensate For Failure In the Home’ and ‘The Most Important Work You Will Ever Do Is Within The Walls of Your Own Home;’
 
-“NOW, THEREFORE, I, Jack Williams, Governor of Arizona, do hereby proclaim the week beginning Sunday, June 2, 1974, as FAMILY WEEK and do call upon all serious and right-thinking Americans to reflect upon the meaning of Family Life to themselves, to their children, to their children’s children, and to our great nation. …”
+“NOW, THEREFORE, I, Jack Williams, Governor of Arizona, do hereby proclaim the week beginning Sunday, June 2, 1974, as FAMILY WEEK and do call upon all serious and right-thinking Americans to reflect upon the meaning of Family Life to themselves, to their children, to their children’s children, and to our great nation. …”
 
 The Church has also received from the Senate of the United States a proclamation from the 93rd Congress, “commending the members … for their spirit of pioneering, for their wholesome living, for their concern for their fellowmen, and for their many achievements.”
 
@@ -75,6 +75,4 @@ I bear you my solemn witness, my brothers and sisters, that this is the work of 
 
 
 
-
-
-#Family_Home_Evening
+#FamilyHomeEvening

@@ -1,4 +1,3 @@
 # First Vision
 
-
-*See* [[Vision.md|Vision]]
+*See also* [[Vision.md|Vision]]

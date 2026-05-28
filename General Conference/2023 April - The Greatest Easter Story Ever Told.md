@@ -1,6 +1,6 @@
 # The Greatest Easter Story Ever Told
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -16,7 +16,7 @@ The First Presidency’s letter caught my attention, and it caused me to reflect
 
 ## Christmas and Easter Traditions
 
-​Those thoughts led me to ponder the difference between the way we have celebrated Christmas as compared with Easter. During December, we somehow manage to incorporate the fun of “Jingle Bells,” Christmas stockings, and gifts alongside other, more thoughtful traditions—such as caring for those in need, singing our favorite Christmas carols and hymns, and of course opening the scriptures and reading the Christmas story in [[Luke 2.1|Luke 2]][[Luke 2.2|]][[Luke 2.3|]][[Luke 2.4|]][[Luke 2.5|]][[Luke 2.6|]][[Luke 2.7|]][[Luke 2.8|]][[Luke 2.9|]][[Luke 2.10|]][[Luke 2.11|]][[Luke 2.12|]][[Luke 2.13|]][[Luke 2.14|]][[Luke 2.15|]][[Luke 2.16|]][[Luke 2.17|]][[Luke 2.18|]][[Luke 2.19|]][[Luke 2.20|]][[Luke 2.21|]][[Luke 2.22|]][[Luke 2.23|]][[Luke 2.24|]][[Luke 2.25|]][[Luke 2.26|]][[Luke 2.27|]][[Luke 2.28|]][[Luke 2.29|]][[Luke 2.30|]][[Luke 2.31|]][[Luke 2.32|]][[Luke 2.33|]][[Luke 2.34|]][[Luke 2.35|]][[Luke 2.36|]][[Luke 2.37|]][[Luke 2.38|]][[Luke 2.39|]][[Luke 2.40|]][[Luke 2.41|]][[Luke 2.42|]][[Luke 2.43|]][[Luke 2.44|]][[Luke 2.45|]][[Luke 2.46|]][[Luke 2.47|]][[Luke 2.48|]][[Luke 2.49|]][[Luke 2.50|]][[Luke 2.51|]][[Luke 2.52|]]. Every year as we read this beloved story from a large old Bible, our family does what your family probably does—dressed with towels on our heads and shoulders and donning bathrobes to represent Joseph, Mary, and the many who came to worship the baby Jesus, we reenact the treasured Christmas story of the Savior’s birth.
+​Those thoughts led me to ponder the difference between the way we have celebrated Christmas as compared with Easter. During December, we somehow manage to incorporate the fun of “Jingle Bells,” Christmas stockings, and gifts alongside other, more thoughtful traditions—such as caring for those in need, singing our favorite Christmas carols and hymns, and of course opening the scriptures and reading the Christmas story in [[Luke 2.1|Luke 2]][[Luke 2.2|]][[Luke 2.3|]][[Luke 2.4|]][[Luke 2.5|]][[Luke 2.6|]][[Luke 2.7|]][[Luke 2.8|]][[Luke 2.9|]][[Luke 2.10|]][[Luke 2.11|]][[Luke 2.12|]][[Luke 2.13|]][[Luke 2.14|]][[Luke 2.15|]][[Luke 2.16|]][[Luke 2.17|]][[Luke 2.18|]][[Luke 2.19|]][[Luke 2.20|]][[Luke 2.21|]][[Luke 2.22|]][[Luke 2.23|]][[Luke 2.24|]][[Luke 2.25|]][[Luke 2.26|]][[Luke 2.27|]][[Luke 2.28|]][[Luke 2.29|]][[Luke 2.30|]][[Luke 2.31|]][[Luke 2.32|]][[Luke 2.33|]][[Luke 2.34|]][[Luke 2.35|]][[Luke 2.36|]][[Luke 2.37|]][[Luke 2.38|]][[Luke 2.39|]][[Luke 2.40|]][[Luke 2.41|]][[Luke 2.42|]][[Luke 2.43|]][[Luke 2.44|]][[Luke 2.45|]][[Luke 2.46|]][[Luke 2.47|]][[Luke 2.48|]][[Luke 2.49|]][[Luke 2.50|]][[Luke 2.51|]][[Luke 2.52|]]. Every year as we read this beloved story from a large old Bible, our family does what your family probably does—dressed with towels on our heads and shoulders and donning bathrobes to represent Joseph, Mary, and the many who came to worship the baby Jesus, we reenact the treasured Christmas story of the Savior’s birth.
 
 ​Our family celebrations at Easter, however, have been somewhat different. I feel our family has relied more on “going to church” to provide the meaningful, Christ-centered part of Easter; and then, as a family, we have gathered to share in other Easter-related traditions. I have loved watching our children and now our grandchildren hunt for Easter eggs and dig through their Easter baskets.
 
@@ -28,7 +28,7 @@ Lesa and I have discussed ways that our family can do better during the Easter s
 
 It seems we are all trying. I observe a growing effort among Latter-day Saints toward a more Christ-centered Easter. This includes a greater and more thoughtful recognition of Palm Sunday and Good Friday as practiced by some of our Christian cousins. We might also adopt appropriate Christ-centered Easter traditions found in the cultures and practices of countries worldwide.
 
-New Testament scholar N. T. Wright suggested: “We should be taking steps to celebrate Easter in creative new ways: in art, literature, children’s games, poetry, music, dance, festivals, bells, special concerts. … This is our greatest festival. Take Christmas away, and in biblical terms you lose two chapters at the front of Matthew and Luke, nothing else. Take Easter away, and you don’t have a New Testament; you don’t have a Christianity.”[^3]
+New Testament scholar N. T. Wright suggested: “We should be taking steps to celebrate Easter in creative new ways: in art, literature, children’s games, poetry, music, dance, festivals, bells, special concerts. … This is our greatest festival. Take Christmas away, and in biblical terms you lose two chapters at the front of Matthew and Luke, nothing else. Take Easter away, and you don’t have a New Testament; you don’t have a Christianity.”[^3]
 
 ## Easter, the Bible, and the Book of Mormon
 
@@ -38,21 +38,21 @@ As Lesa and I continued to ponder and seek ways to expand our family Easter cele
 
 And then we had this heavenly epiphany: In addition to the important verses about Easter in the New Testament, we as Latter-day Saints are endowed with a most remarkable Easter gift! A gift of unique witness, another testament of the Easter miracle that contains perhaps the most magnificent Easter scriptures in all of Christianity. I am referring of course to the Book of Mormon and, more specifically, to the account of Jesus Christ appearing to inhabitants in the New World in His resurrected glory.
 
-The Prophet Joseph Smith described the Book of Mormon as “the most correct of any book,”[^5] and beginning with [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], it tells the magnificent story of the resurrected Christ’s visit to the Nephites, the Savior’s Easter ministry. These Easter scriptures bear record of the Resurrection of the Lord Jesus Christ.
+The Prophet Joseph Smith described the Book of Mormon as “the most correct of any book,”[^5] and beginning with [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], it tells the magnificent story of the resurrected Christ’s visit to the Nephites, the Savior’s Easter ministry. These Easter scriptures bear record of the Resurrection of the Lord Jesus Christ.
 
 In these chapters, Christ calls twelve disciples, teaches as He did in His Sermon on the Mount, announces that He has fulfilled the law of Moses, and prophesies about the latter-day gathering of Israel. He heals the sick and prays for the people in such a glorious way that “no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as we both saw and heard Jesus speak; and no one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father.”[^6]
 
-This Easter, our family is going to focus on the [[3 Nephi 11.1|first 17 verses of 3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]], with which you are familiar. You recall the great multitude round about the temple in the land Bountiful who heard the voice of God the Father and saw Jesus Christ descending out of heaven to extend the most beautiful Easter invitation:
+This Easter, our family is going to focus on the [[3 Nephi 11.1|first 17 verses of 3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]], with which you are familiar. You recall the great multitude round about the temple in the land Bountiful who heard the voice of God the Father and saw Jesus Christ descending out of heaven to extend the most beautiful Easter invitation:
 
 “Arise and come forth unto me, … that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am … the God of the whole earth, and have been slain for the sins of the world.
 
-“And … the multitude went forth, … one by one … and did see with their eyes and did feel with their hands, … and did bear record, that it was he. …
+“And … the multitude went forth, … one by one … and did see with their eyes and did feel with their hands, … and did bear record, that it was he. …
 
 “And … they did cry out with one accord, saying:
 
 “Hosanna! Blessed be the name of the Most High God! And they did fall down at the feet of Jesus, and did worship him.”[^7]
 
-Imagine: the Nephites at the temple actually touched the hands of the risen Lord! We hope to make these chapters in 3 Nephi as much a part of our Easter tradition as [[Luke 2.1|Luke 2]][[Luke 2.2|]][[Luke 2.3|]][[Luke 2.4|]][[Luke 2.5|]][[Luke 2.6|]][[Luke 2.7|]][[Luke 2.8|]][[Luke 2.9|]][[Luke 2.10|]][[Luke 2.11|]][[Luke 2.12|]][[Luke 2.13|]][[Luke 2.14|]][[Luke 2.15|]][[Luke 2.16|]][[Luke 2.17|]][[Luke 2.18|]][[Luke 2.19|]][[Luke 2.20|]][[Luke 2.21|]][[Luke 2.22|]][[Luke 2.23|]][[Luke 2.24|]][[Luke 2.25|]][[Luke 2.26|]][[Luke 2.27|]][[Luke 2.28|]][[Luke 2.29|]][[Luke 2.30|]][[Luke 2.31|]][[Luke 2.32|]][[Luke 2.33|]][[Luke 2.34|]][[Luke 2.35|]][[Luke 2.36|]][[Luke 2.37|]][[Luke 2.38|]][[Luke 2.39|]][[Luke 2.40|]][[Luke 2.41|]][[Luke 2.42|]][[Luke 2.43|]][[Luke 2.44|]][[Luke 2.45|]][[Luke 2.46|]][[Luke 2.47|]][[Luke 2.48|]][[Luke 2.49|]][[Luke 2.50|]][[Luke 2.51|]][[Luke 2.52|]] is of our Christmas tradition. In reality, the Book of Mormon shares the greatest Easter story ever told. Let it not be the greatest Easter story never told.
+Imagine: the Nephites at the temple actually touched the hands of the risen Lord! We hope to make these chapters in 3 Nephi as much a part of our Easter tradition as [[Luke 2.1|Luke 2]][[Luke 2.2|]][[Luke 2.3|]][[Luke 2.4|]][[Luke 2.5|]][[Luke 2.6|]][[Luke 2.7|]][[Luke 2.8|]][[Luke 2.9|]][[Luke 2.10|]][[Luke 2.11|]][[Luke 2.12|]][[Luke 2.13|]][[Luke 2.14|]][[Luke 2.15|]][[Luke 2.16|]][[Luke 2.17|]][[Luke 2.18|]][[Luke 2.19|]][[Luke 2.20|]][[Luke 2.21|]][[Luke 2.22|]][[Luke 2.23|]][[Luke 2.24|]][[Luke 2.25|]][[Luke 2.26|]][[Luke 2.27|]][[Luke 2.28|]][[Luke 2.29|]][[Luke 2.30|]][[Luke 2.31|]][[Luke 2.32|]][[Luke 2.33|]][[Luke 2.34|]][[Luke 2.35|]][[Luke 2.36|]][[Luke 2.37|]][[Luke 2.38|]][[Luke 2.39|]][[Luke 2.40|]][[Luke 2.41|]][[Luke 2.42|]][[Luke 2.43|]][[Luke 2.44|]][[Luke 2.45|]][[Luke 2.46|]][[Luke 2.47|]][[Luke 2.48|]][[Luke 2.49|]][[Luke 2.50|]][[Luke 2.51|]][[Luke 2.52|]] is of our Christmas tradition. In reality, the Book of Mormon shares the greatest Easter story ever told. Let it not be the greatest Easter story never told.
 
 I invite you to look at the Book of Mormon in a new light and consider the profound witness it bears of the reality of the risen Christ as well as the richness and depth of the doctrine of Christ.
 
@@ -66,7 +66,7 @@ While standing away some distance from the casket, conversing with others, I not
 
 At this tender age, they found peace in the great plan of happiness and, in their own childlike way, testified of the profound reality and simple beauty of the Resurrection of the Savior. They knew this in their hearts because of thoughtful teachings of loving parents, family, and Primary leaders planting a seed of faith in Jesus Christ and eternal life. Wise beyond their years, these young girls understood truths that come to us through the Easter message and ministry of the resurrected Savior and the words of the prophets as told in the Book of Mormon.
 
-I have observed that when President Russell M. Nelson gives a gift of the Book of Mormon to someone not of our faith, including world leaders, he often turns to 3 Nephi and reads about the appearance of the resurrected Christ to the Nephites. In doing so, the *living* prophet is in essence bearing witness of the *living* Christ.
+I have observed that when President Russell M. Nelson gives a gift of the Book of Mormon to someone not of our faith, including world leaders, he often turns to 3 Nephi and reads about the appearance of the resurrected Christ to the Nephites. In doing so, the *living* prophet is in essence bearing witness of the *living* Christ.
 
 We cannot *stand* as witnesses of Jesus Christ until we can *bear* witness of Him. The Book of Mormon is another witness of Jesus Christ because throughout its sacred pages, one prophet after another testifies not only that Christ would come but that He *did* come.
 
@@ -95,22 +95,20 @@ I close with my testimony of the truthfulness of the Book of Mormon and of Jesus
 
 
 
-[^1]: See First Presidency letter, Feb. 15, 2023.
+[^1]: See First Presidency letter, Feb. 15, 2023.
 
-[^2]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49; emphasis added.
+[^2]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18)* (2007), 49; emphasis added.
 
-[^3]: N. T. Wright, *Surprised by Hope: Rethinking Heaven, the Resurrection, and the Mission of the Church* (2008), 256.
+[^3]: N. T. Wright, *Surprised by Hope: Rethinking Heaven, the Resurrection, and the Mission of the Church* (2008), 256.
 
 [^4]: [[Matthew 28.6|Matthew 28:6]].
 
-[^5]: *Teachings: Joseph Smith*, 64.
+[^5]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-4?lang=eng&id=p19#p19)*, 64.
 
-[^6]: [[3 Nephi 17.17|3 Nephi 17:17]].
+[^6]: [[3 Nephi 17.17|3 Nephi 17:17]].
 
-[^7]: See [[3 Nephi 11.1|3 Nephi 11:1–17]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]].
+[^7]: See [[3 Nephi 11.1|3 Nephi 11:1–17]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]].
 
 [^8]: [[Mosiah 3.20|Mosiah 3:20]].
 
-
-
-#Book_Of_Mormon #Christmas #Easter #Jesus_Christ #Resurrection
+#BookOfMormon #Christmas #Easter #JesusChrist #Resurrection

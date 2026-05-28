@@ -1,4 +1,3 @@
 # Relax
 
-
-*See* [[Rest.md|Rest]]
+*See also* [[Rest.md|Rest]]

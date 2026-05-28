@@ -1,6 +1,6 @@
 # The Priesthood—a Sacred Gift
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -28,7 +28,7 @@ During those years our objective was to become as the sons of Mosiah. Of them it
 
 I cannot think of a more worthy goal for a young man to have than to be described as were the valiant and righteous sons of Mosiah.
 
-As I approached my 18th birthday and prepared to enter the mandatory military service required of young men during World War II, I was recommended to receive the Melchizedek Priesthood, but first I needed to telephone my stake president, Paul C. Child, for an interview. He was one who loved and understood the holy scriptures, and it was his intent that all others should similarly love and understand them. Having heard from some of my friends of his rather detailed and searching interviews, I desired minimum exposure of my scriptural knowledge; therefore, when I called him I suggested we meet the following Sunday at a time I knew was just an hour before his sacrament meeting time.
+As I approached my 18th birthday and prepared to enter the mandatory military service required of young men during World War II, I was recommended to receive the Melchizedek Priesthood, but first I needed to telephone my stake president, Paul C. Child, for an interview. He was one who loved and understood the holy scriptures, and it was his intent that all others should similarly love and understand them. Having heard from some of my friends of his rather detailed and searching interviews, I desired minimum exposure of my scriptural knowledge; therefore, when I called him I suggested we meet the following Sunday at a time I knew was just an hour before his sacrament meeting time.
 
 His response: “Oh, Brother Monson, that would not provide us sufficient time to peruse the scriptures.” He then suggested a time three hours before his sacrament meeting, and he instructed me to bring with me my personally marked and referenced set of scriptures.
 
@@ -65,5 +65,6 @@ As bearers of the priesthood of God, we are engaged in the work of the Lord Jesu
 
 [^1]: “Come, All Ye Sons of God,” *Hymns,* no. 322.
 
+[^2]: [[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]].
 
-#Aaronic_Priesthood #Blessings #Church_Callings #Duty #Priesthood
+#AaronicPriesthood #Blessings #ChurchCallings #Duty #Priesthood

@@ -1,13 +1,12 @@
 # Familiar
 
-
 *See also* [[Spirits, Evil or Unclean.md|Spirits, Evil or Unclean]]; [[Superstitions.md|Superstitions]]
 
 Regard not them that have *familiar* spirits, [[Leviticus 19.31|Leviticus 19:31]].
 
 turneth after such as have *familiar* spirits, [[Leviticus 20.6|Leviticus 20:6]].
 
-hath a *familiar* spirit ... be put to death, [[Leviticus 20.27|Leviticus 20:27]].
+hath a *familiar* spirit … be put to death, [[Leviticus 20.27|Leviticus 20:27]].
 
 consulter with *familiar* spirits, [[Deuteronomy 18.11|Deuteronomy 18:11]].
 

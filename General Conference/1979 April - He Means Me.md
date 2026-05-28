@@ -1,6 +1,6 @@
 # He Means Me
 
-By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -44,7 +44,7 @@ Then, speaking of the woman, he said: “Her sins, which are many, are forgiven;
 
 “And he said unto her, Thy sins are forgiven.
 
-“… Thy faith hath saved thee; go in peace.” ([[Luke 7.47|Luke 7:47–48, 50]][[Luke 7.48|]][[Luke 7.50|]].)
+“… Thy faith hath saved thee; go in peace.” ([[Luke 7.47|Luke 7:47–48, 50]][[Luke 7.48|]][[Luke 7.50|]].)
 
 There is here, of course, no encouragement or condoning of sin. She had been converted by the Lord and sorely repented, and would obey his commandments and accept his forgiveness. And there would be rejoicing in heaven and should be on earth.
 
@@ -58,13 +58,13 @@ The message is consistent through scripture. The noble young prophet-leader Neph
 
 “I am encompassed about, because of the temptations and the sins which do so easily beset me.
 
-“And when I desire to rejoice, my heart groaneth because of my sins; nevertheless, I know in whom I have trusted.” ([[2 Nephi 4.17|2 Ne. 4:17–19]][[2 Nephi 4.18|]][[2 Nephi 4.19|]].)
+“And when I desire to rejoice, my heart groaneth because of my sins; nevertheless, I know in whom I have trusted.” ([[2 Nephi 4.17|2 Ne. 4:17–19]][[2 Nephi 4.18|]][[2 Nephi 4.19|]].)
 
-Nephi understood that true remorse is a gift from God, not a curse, but a blessing. True remorse involves sorrow and suffering; but the sorrow is purposeful, constructive, cleansing, the “godly sorrow” that “worketh repentance to salvation,” and not the “sorrow of the world” ([[2 Corinthians 7.10|2 Cor. 7:10]]).
+Nephi understood that true remorse is a gift from God, not a curse, but a blessing. True remorse involves sorrow and suffering; but the sorrow is purposeful, constructive, cleansing, the “godly sorrow” that “worketh repentance to salvation,” and not the “sorrow of the world” ([[2 Corinthians 7.10|2 Cor. 7:10]]).
 
 Through the prophet Ezekiel, the Lord taught us that he has no “pleasure at all” in the suffering of his children through sin. His joy comes when the sinner “turneth away from all his transgressions” for such an one shall “save his soul” ([[Ezekiel 18.23|Ezek. 18:23, 27–28]][[Ezekiel 18.27|]][[Ezekiel 18.28|]]).
 
-The Apostle Paul was disappointed with certain behavior on the part of the Corinthian saints, and wrote them a letter chastising them. They repented; and when he learned of it, he wrote them again, saying that he was comforted in their comfort: “I rejoice, not that ye were made sorry, but that ye sorrowed to repentance” ([[2 Corinthians 7.9|2 Cor. 7:9]]).
+The Apostle Paul was disappointed with certain behavior on the part of the Corinthian saints, and wrote them a letter chastising them. They repented; and when he learned of it, he wrote them again, saying that he was comforted in their comfort: “I rejoice, not that ye were made sorry, but that ye sorrowed to repentance” ([[2 Corinthians 7.9|2 Cor. 7:9]]).
 
 Alma summed it all up in magnificent instruction given his wayward son Corianton. He concluded that powerful lesson with these significant words—they could be saving words for some:
 
@@ -85,8 +85,6 @@ It is good to remember what Joseph Smith wrote a long time ago to the Saints sca
 “Let everyone labor to prepare himself for the vineyard, sparing a little time to comfort the mourners; to bind up the broken-hearted; to reclaim the backslider; to bring back the wanderer; to re-invite into the kingdom such as have been cut off, by encouraging them to lay to while the day lasts, and work righteousness, and, with one heart and one mind, prepare to help redeem Zion, that goodly land of promise, where the willing and obedient shall be blessed. Souls are as precious in the sight of God as they ever were; and the Elders were never called to drive any down to hell, but to persuade and invite all men everywhere to repent, that they may become the heirs of salvation.” (*History of the Church,* 2:229.)
 
 My child at first did not understand that my invitation was meant for her. She thought it was for someone else. “He didn’t mean me.” If any within the sound of my voice today need assurance that God’s call to repentance and his invitation to mercy and forgiveness and love is for them, I bear you that solemn witness, in the name of Jesus Christ, amen.
-
-
 
 
 

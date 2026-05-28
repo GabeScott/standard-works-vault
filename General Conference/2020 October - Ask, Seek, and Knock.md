@@ -22,9 +22,9 @@ When the Savior visited the Americas after His Resurrection, He repeated an invi
 
 “Ask, and it shall be given unto you; seek, and ye shall find; knock, and it shall be opened unto you.
 
-“For every one that asketh, receiveth; and he that seeketh, findeth; and to him that knocketh, it shall be opened” ([[3 Nephi 14.7|3 Nephi 14:7–8]][[3 Nephi 14.8|]]; see also [[Matthew 7.7|Matthew 7:7–8]][[Matthew 7.8|]]).
+“For every one that asketh, receiveth; and he that seeketh, findeth; and to him that knocketh, it shall be opened” ([[3 Nephi 14.7|3 Nephi 14:7–8]][[3 Nephi 14.8|]]; see also [[Matthew 7.7|Matthew 7:7–8]][[Matthew 7.8|]]).
 
-Our prophet, President Russell M. Nelson, has given a similar invitation in our day. He said: “Pray in the name of Jesus Christ about your concerns, your fears, your weaknesses—yes, the very longings of your heart. And then listen! Write the thoughts that come to your mind. Record your feelings and follow through with actions that you are prompted to take. As you repeat this process day after day, month after month, year after year, you will ‘grow into the principle of revelation.’”[^2]
+Our prophet, President Russell M. Nelson, has given a similar invitation in our day. He said: “Pray in the name of Jesus Christ about your concerns, your fears, your weaknesses—yes, the very longings of your heart. And then listen! Write the thoughts that come to your mind. Record your feelings and follow through with actions that you are prompted to take. As you repeat this process day after day, month after month, year after year, you will ‘grow into the principle of revelation.’”[^2]
 
 President Nelson added, “In coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^3]
 
@@ -42,11 +42,11 @@ The still, small voice is reaffirming, encouraging, and comforting—and many ti
 
 ## Seek
 
-The Lord went on to promise, “He that seeketh, findeth.” Seeking implies mental and spiritual effort—pondering, testing, trying, and studying. We seek because we trust the Lord’s promises. “For he that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him” ([[Hebrews 11.6|Hebrews 11:6]]). When we seek, we are humbly acknowledging that we still have much to learn, and the Lord will expand our understanding, preparing us to receive more. “For behold, thus saith the Lord God: I will give unto the children of men line upon line, precept upon precept, here a little and there a little; … for unto him that receiveth I will give more” ([[2 Nephi 28.30|2 Nephi 28:30]]).
+The Lord went on to promise, “He that seeketh, findeth.” Seeking implies mental and spiritual effort—pondering, testing, trying, and studying. We seek because we trust the Lord’s promises. “For he that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him” ([[Hebrews 11.6|Hebrews 11:6]]). When we seek, we are humbly acknowledging that we still have much to learn, and the Lord will expand our understanding, preparing us to receive more. “For behold, thus saith the Lord God: I will give unto the children of men line upon line, precept upon precept, here a little and there a little; … for unto him that receiveth I will give more” ([[2 Nephi 28.30|2 Nephi 28:30]]).
 
 ## Knock
 
-Finally, the Lord said, “To him that knocketh, it shall be opened.” To knock is to act in faith. When we actively follow Him, the Lord opens the way before us. There is a beautiful hymn that teaches us to “wake up and do something more than dream of \[our\] mansion above. Doing good is a pleasure, a joy beyond measure, a blessing of duty and love.”[^6] Elder Gerrit W. Gong of the Quorum of the Twelve recently explained that revelation often comes while we are in the act of doing good. He said: “As we try to reach out in service to those around us, I think the Lord gives us an extra measure of His love for them and therefore for us. I think we hear His voice—we feel Him in a different way—as we pray to help those around us because that’s one of the prayers that He most wants to answer.”[^7]
+Finally, the Lord said, “To him that knocketh, it shall be opened.” To knock is to act in faith. When we actively follow Him, the Lord opens the way before us. There is a beautiful hymn that teaches us to “wake up and do something more than dream of \[our\] mansion above. Doing good is a pleasure, a joy beyond measure, a blessing of duty and love.”[^6] Elder Gerrit W. Gong of the Quorum of the Twelve recently explained that revelation often comes while we are in the act of doing good. He said: “As we try to reach out in service to those around us, I think the Lord gives us an extra measure of His love for them and therefore for us. I think we hear His voice—we feel Him in a different way—as we pray to help those around us because that’s one of the prayers that He most wants to answer.”[^7]
 
 ## Alma’s Example
 
@@ -59,22 +59,20 @@ It is my testimony that this is the dispensation of the fulness of the gospel. W
 
 
 
-[^1]: [Come, Follow Me—For Individuals and Families: Book of Mormon 2020](https://churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-book-of-mormon-2020/23?lang=eng&id=p6#p6) (2019), 91.
+[^1]: [Come, Follow Me—For Individuals and Families: Book of Mormon 2020](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-book-of-mormon-2020/23?lang=eng&id=p6#p6) (2019), 91.
 
-[^2]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95; quoting [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-10?lang=eng&id=p24#p24) (2007), 132.
+[^2]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95; quoting [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-10?lang=eng&id=p24#p24) (2007), 132.
 
-[^3]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96.
+[^3]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96.
 
-[^4]: See [[2 Nephi 32.5|2 Nephi 32:5]].
+[^4]: See [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^5]: See [[D&C 9.8|Doctrine and Covenants 9:8]].
 
-[^6]: “Have I Done Any Good?” *Hymns,* no. 223.
+[^6]: “Have I Done Any Good?” *Hymns,* no. 223.
 
-[^7]: “[How I \#HearHim: Elder Gerrit W. Gong](https://www.churchofjesuschrist.org/media/video/2020-02-2070-how-i-hearhim-elder-gerrit-w-gong?lang=eng)” (video), ChurchofJesusChrist.org/media.
+[^7]: “[How I #HearHim: Elder Gerrit W. Gong](https://www.churchofjesuschrist.org/media/video/2020-02-2070-how-i-hearhim-elder-gerrit-w-gong?lang=eng)” (video), ChurchofJesusChrist.org/media.
 
 [^8]: See [[Alma 8.10|Alma 8:10–18]][[Alma 8.11|]][[Alma 8.12|]][[Alma 8.13|]][[Alma 8.14|]][[Alma 8.15|]][[Alma 8.16|]][[Alma 8.17|]][[Alma 8.18|]].
-
-
 
 #Faith #Prayer #Revelation

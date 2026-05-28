@@ -1,6 +1,6 @@
 # Abiding in God and Repairing the Breach
 
-By Neill F. Marriott - *Second Counselor in the Young Women General Presidency*
+By Neill F. Marriott - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -63,9 +63,9 @@ Our Father’s infinite love reaches out to us, to bring us back into His glory 
 
 [^2]: [[Moses 6.34|Moses 6:34]].
 
-[^3]: Bruce R. McConkie, “[The Mystery of Godliness](https://speeches.byu.edu/talks/bruce-r-mcconkie_mystery-godliness)” (Brigham Young University fireside, Jan. 6, 1985), 1, speeches.byu.edu.
+[^3]: Bruce R. McConkie, “[The Mystery of Godliness](https://speeches.byu.edu/talks/bruce-r-mcconkie_mystery-godliness)” (Brigham Young University fireside, Jan. 6, 1985), 1, speeches.byu.edu.
 
-[^4]: See Bruce R. McConkie, “[The Mystery of Godliness](https://speeches.byu.edu/talks/bruce-r-mcconkie_mystery-godliness),” 4.
+[^4]: See Bruce R. McConkie, “[The Mystery of Godliness](https://speeches.byu.edu/talks/bruce-r-mcconkie_mystery-godliness),” 4.
 
 [^5]: Author unknown.
 
@@ -81,6 +81,4 @@ Our Father’s infinite love reaches out to us, to bring us back into His glory 
 
 [^11]: See [[Moroni 7.48|Moroni 7:48]].
 
-
-
-#Atonement #God_The_Father #Jesus_Christ #Love
+#Atonement #GodTheFather #JesusChrist #Love

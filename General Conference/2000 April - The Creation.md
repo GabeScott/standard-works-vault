@@ -44,7 +44,7 @@ Period four was a time of further development. Lights in the expanse of the heav
 
 In period five, fish, fowl, and “every living creature” were added.[^31] They were made fruitful and able to multiply—in the sea and on the earth—each after its own kind.[^32]
 
-In the sixth period, creation of life continued. The beasts of the earth were made after their kind, cattle after their kind, and everything which “creepeth upon the earth”—again, after its own kind.[^33] Then the Gods counseled together and said: “Let us go down and form man in our image, after our likeness. …
+In the sixth period, creation of life continued. The beasts of the earth were made after their kind, cattle after their kind, and everything which “creepeth upon the earth”—again, after its own kind.[^33] Then the Gods counseled together and said: “Let us go down and form man in our image, after our likeness. …
 
 “So the Gods went down to organize man in their own image, in the image of the Gods to form they him, male and female to form they them.”[^34] Thus, Adam and Eve were formed.[^35] And they were blessed to “be fruitful, and multiply, and replenish the earth, and subdue it: and have dominion over the fish of the sea, and over the fowl of the air, and over every living thing that moveth upon the earth.”[^36]
 
@@ -95,7 +95,7 @@ I testify that God lives! Jesus is the Christ and Creator! He is Lord over all t
 
 [^3]: See *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 349–50, 365.
 
-[^4]: See [[2 Nephi 9.13|2 Ne. 9:13]]; [[Alma 34.9|Alma 34:9]]; [[Abraham 3.22|Abr. 3:22–27]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]].
+[^4]: See [[2 Nephi 9.13|2 Ne. 9:13]]; [[Alma 34.9|Alma 34:9]]; [[Abraham 3.22|Abr. 3:22–27]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]].
 
 [^5]: See [[Alma 42.8|Alma 42:8, 16]][[Alma 42.16|]].
 
@@ -105,17 +105,17 @@ I testify that God lives! Jesus is the Christ and Creator! He is Lord over all t
 
 [^8]: See [[Alma 41.2|Alma 41:2]].
 
-[^9]: See [[Alma 42.15|Alma 42:15, 31]][[Alma 42.31|]]; [[2 Nephi 9.6|2 Ne. 9:6]].
+[^9]: See [[Alma 42.15|Alma 42:15, 31]][[Alma 42.31|]]; [[2 Nephi 9.6|2 Ne. 9:6]].
 
-[^10]: See [[2 Nephi 11.5|2 Ne. 11:5]].
+[^10]: See [[2 Nephi 11.5|2 Ne. 11:5]].
 
 [^11]: See [[Revelation 14.6|Rev. 14:6]]; [[D&C 27.5|D&C 27:5]]; [[D&C 36.5|36:5]]; [[D&C 68.1|68:1]]; [[D&C 77.8|77:8–9, 11]][[D&C 77.9|]][[D&C 77.11|]]; [[D&C 79.1|79:1]]; [[D&C 84.103|84:103]]; [[D&C 99.1|99:1]]; [[D&C 101.22|101:22, 39]][[D&C 101.39|]]; [[D&C 106.2|106:2]]; [[D&C 109.29|109:29, 65]][[D&C 109.65|]]; [[D&C 124.88|124:88]]; [[D&C 128.17|128:17]]; [[D&C 133.36|133:36]]; [[D&C 135.3|135:3, 7]][[D&C 135.7|]]; [[D&C 138.19|138:19, 25]][[D&C 138.25|]]; [[Joseph Smith History 1.34|JS—H 1:34]].
 
 [^12]: Latter-day revelation affirms that Michael (known also as Adam; see [[D&C 27.11|D&C 27:11]]; [[D&C 107.54|107:54]]; [[D&C 128.21|128:21]]) participated in the process of creation as well.
 
-[^13]: See [[2 Nephi 2.25|2 Ne. 2:25]]; [[Moses 6.48|Moses 6:48]]; JST, Gen. 6:49, The Holy Scriptures: Inspired Version.
+[^13]: See [[2 Nephi 2.25|2 Ne. 2:25]]; [[Moses 6.48|Moses 6:48]]; JST, Gen. 6:49, The Holy Scriptures: Inspired Version.
 
-[^14]: See [[2 Nephi 2.21|2 Ne. 2:21–28]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]].
+[^14]: See [[2 Nephi 2.21|2 Ne. 2:21–28]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]].
 
 [^15]: “Discourse on Abbatôn by Timothy, Archbishop of Alexandria,” in *Coptic Martyrdoms etc. in the Dialect of Upper Egypt,* ed. and trans. E. A. Wallis Budge (1914), 482. Timothy, archbishop of Alexandria, died in a.d. 385. Brackets are included in Budge’s English translation.
 
@@ -123,11 +123,11 @@ I testify that God lives! Jesus is the Christ and Creator! He is Lord over all t
 
 [^17]: [[Moses 1.39|Moses 1:39]].
 
-[^18]: See [[3 Nephi 27.13|3 Ne. 27:13]].
+[^18]: See [[3 Nephi 27.13|3 Ne. 27:13]].
 
 [^19]: For a comprehensive study of the prophecies of prophets pertaining to Christ, see D. Kelly Ogden and R. Val Johnson, “All the Prophets Prophesied of Christ,” *Ensign,* Jan. 1994, 31–37; *Liahona,* Apr. 1994, 10–18.
 
-[^20]: See [[2 Nephi 9.20|2 Ne. 9:20–27]][[2 Nephi 9.21|]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]][[2 Nephi 9.25|]][[2 Nephi 9.26|]][[2 Nephi 9.27|]]; [[Mosiah 26.21|Mosiah 26:21–23]][[Mosiah 26.22|]][[Mosiah 26.23|]]; [[D&C 138.19|D&C 138:19]].
+[^20]: See [[2 Nephi 9.20|2 Ne. 9:20–27]][[2 Nephi 9.21|]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]][[2 Nephi 9.25|]][[2 Nephi 9.26|]][[2 Nephi 9.27|]]; [[Mosiah 26.21|Mosiah 26:21–23]][[Mosiah 26.22|]][[Mosiah 26.23|]]; [[D&C 138.19|D&C 138:19]].
 
 [^21]: [[Moses 3.5|Moses 3:5]]; see also [[Moses 6.51|Moses 6:51]].
 
@@ -181,7 +181,7 @@ I testify that God lives! Jesus is the Christ and Creator! He is Lord over all t
 
 [^46]: [[D&C 121.30|D&C 121:30–31]][[D&C 121.31|]].
 
-[^47]: [[Articles of Faith 1.10|A of F 1:10]].
+[^47]: [[Articles of Faith 1.10|A of F 1:10]].
 
 [^48]: See [[Revelation 21.1|Rev. 21:1]]; [[Ether 13.9|Ether 13:9]]; [[D&C 29.23|D&C 29:23–24]][[D&C 29.24|]].
 
@@ -189,7 +189,7 @@ I testify that God lives! Jesus is the Christ and Creator! He is Lord over all t
 
 [^50]: [[D&C 84.110|D&C 84:110]].
 
-[^51]: [[D&C 84.110|D&C 84:110]]; see also [[1 Corinthians 12.14|1 Cor. 12:14–26]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]].
+[^51]: [[D&C 84.110|D&C 84:110]]; see also [[1 Corinthians 12.14|1 Cor. 12:14–26]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]].
 
 [^52]: See [[Psalms 116.15|Ps. 116:15]]; [[Alma 42.8|Alma 42:8]].
 
@@ -197,12 +197,10 @@ I testify that God lives! Jesus is the Christ and Creator! He is Lord over all t
 
 [^54]: The Lord has entrusted us to care for the earth. He said: “It is expedient that I, the Lord, should make every man accountable, as a steward over earthly blessings, which I have made and prepared for my creatures. I, the Lord, stretched out the heavens, and built the earth, my very handiwork; and all things therein are mine. And it is my purpose to provide for my saints, for all things are mine” ([[D&C 104.13|D&C 104:13–15]][[D&C 104.14|]][[D&C 104.15|]]; see also [[Revelation 7.3|Rev. 7:3]]).
 
-[^55]: See [[John 13.34|John 13:34–35]][[John 13.35|]]; [[John 15.12|15:12]]; [[Romans 12.10|Rom. 12:10–]][[Romans 12.11|]][[Romans 12.12|]][[Romans 12.13|]][[Romans 12.14|]][[Romans 12.15|]][[Romans 12.16|]][[Romans 12.17|]][[Romans 12.18|]][[Romans 12.19|]][[Romans 12.20|]][[Romans 12.21|]][[Romans 13.1|13:8]][[Romans 13.2|]][[Romans 13.3|]][[Romans 13.4|]][[Romans 13.5|]][[Romans 13.6|]][[Romans 13.7|]][[Romans 13.8|]]; [[Galatians 5.13|Gal. 5:13]]; [[1 Thessalonians 4.9|1 Thes. 4:9]]; [[1 John 3.11|1 Jn. 3:11–]][[1 John 3.12|]][[1 John 3.13|]][[1 John 3.14|]][[1 John 3.15|]][[1 John 3.16|]][[1 John 3.17|]][[1 John 3.18|]][[1 John 3.19|]][[1 John 3.20|]][[1 John 3.21|]][[1 John 3.22|]][[1 John 3.23|]][[1 John 3.24|]][[1 John 4.1|4:12]][[1 John 4.2|]][[1 John 4.3|]][[1 John 4.4|]][[1 John 4.5|]][[1 John 4.6|]][[1 John 4.7|]][[1 John 4.8|]][[1 John 4.9|]][[1 John 4.10|]][[1 John 4.11|]][[1 John 4.12|]]; [[Mosiah 4.15|Mosiah 4:15]]; [[D&C 88.123|D&C 88:123]].
+[^55]: See [[John 13.34|John 13:34–35]][[John 13.35|]]; [[John 15.12|15:12]]; [[Romans 12.10|Rom. 12:10–]][[Romans 12.11|]][[Romans 12.12|]][[Romans 12.13|]][[Romans 12.14|]][[Romans 12.15|]][[Romans 12.16|]][[Romans 12.17|]][[Romans 12.18|]][[Romans 12.19|]][[Romans 12.20|]][[Romans 12.21|]][[Romans 13.1|13:8]][[Romans 13.2|]][[Romans 13.3|]][[Romans 13.4|]][[Romans 13.5|]][[Romans 13.6|]][[Romans 13.7|]][[Romans 13.8|]]; [[Galatians 5.13|Gal. 5:13]]; [[1 Thessalonians 4.9|1 Thes. 4:9]]; [[1 John 3.11|1 Jn. 3:11–]][[1 John 3.12|]][[1 John 3.13|]][[1 John 3.14|]][[1 John 3.15|]][[1 John 3.16|]][[1 John 3.17|]][[1 John 3.18|]][[1 John 3.19|]][[1 John 3.20|]][[1 John 3.21|]][[1 John 3.22|]][[1 John 3.23|]][[1 John 3.24|]][[1 John 4.1|4:12]][[1 John 4.2|]][[1 John 4.3|]][[1 John 4.4|]][[1 John 4.5|]][[1 John 4.6|]][[1 John 4.7|]][[1 John 4.8|]][[1 John 4.9|]][[1 John 4.10|]][[1 John 4.11|]][[1 John 4.12|]]; [[Mosiah 4.15|Mosiah 4:15]]; [[D&C 88.123|D&C 88:123]].
 
-[^56]: See [[JST Matthew 6.38|JST, Matt. 6:38]] (KJV, [[Matthew 6.note33a|Matt. 6:33, footnote a]]).
+[^56]: See [[JST Matthew 6.38|JST, Matt. 6:38]] (KJV, [Matt. 6:33, footnote a](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a)).
 
 [^57]: See [[Romans 2.7|Rom. 2:7]]; [[D&C 75.5|D&C 75:5]]; [[D&C 128.12|128:12]]; [[D&C 132.19|132:19–24]][[D&C 132.20|]][[D&C 132.21|]][[D&C 132.22|]][[D&C 132.23|]][[D&C 132.24|]].
 
-
-
-#Atonement #Commandments #Creation #Family #God_The_Father #Plan_Of_Salvation #Responsibility #Scriptures #Temples
+#Atonement #Commandments #Creation #Family #GodTheFather #PlanOfSalvation #Responsibility #Scriptures #Temples

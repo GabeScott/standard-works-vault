@@ -1,6 +1,6 @@
 # How Do You Know?
 
-By Elder William R. Bradford - *Of the First Quorum of the Seventy*
+By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -52,7 +52,7 @@ Since all men have sinned, there is not one who can return to the Father except 
 
 His own declaration comes to us by way of stern commandment:
 
-“Wherefore, I command you to repent, and keep the commandments which you have received by the hand of my servant Joseph Smith, …
+“Wherefore, I command you to repent, and keep the commandments which you have received by the hand of my servant Joseph Smith, …
 
 “And it is by my almighty power that you have received them.” ([[D&C 19.13|D&C 19:13–14]][[D&C 19.14|]].)
 
@@ -64,13 +64,13 @@ Christ, speaking to the Nephite nation as revealed to us in the Book of Mormon, 
 
 “And whoso believeth in me, and is baptized, the same shall be saved; and they are they who shall inherit the kingdom of God.
 
-“And whoso believeth not in me, and is not baptized, shall be damned.” ([[3 Nephi 11.32|3 Ne. 11:32–34]][[3 Nephi 11.33|]][[3 Nephi 11.34|]].)
+“And whoso believeth not in me, and is not baptized, shall be damned.” ([[3 Nephi 11.32|3 Ne. 11:32–34]][[3 Nephi 11.33|]][[3 Nephi 11.34|]].)
 
 To be damned simply means to be stopped in your progress. It means to remain in the condition of fallen man.
 
 Christ continues:
 
-“Verily, verily, I say unto you, that this is my doctrine, and I bear record of it from the Father; and whosoever believeth in me believeth in the Father also; and unto him will the Father bear record of me, for he will visit him with … the Holy Ghost” ([[3 Nephi 11.35|3 Ne. 11:35]])
+“Verily, verily, I say unto you, that this is my doctrine, and I bear record of it from the Father; and whosoever believeth in me believeth in the Father also; and unto him will the Father bear record of me, for he will visit him with … the Holy Ghost” ([[3 Nephi 11.35|3 Ne. 11:35]])
 
 I ask you to ponder the question, “How can anyone understand the role of, or the need for, a savior if he does not first understand what it is he must be saved from?”
 
@@ -81,8 +81,6 @@ The Book of Mormon also contains the fulness of the gospel of Jesus Christ. It o
 Now, O fallen man, with so great a witness, do you yet dare to ask, “How do you know? How do you know?”
 
 The Book of Mormon holds out to us a fulness of what we must be saved from. It gives us a complete understanding of the role of, and the need for, a savior. It is another testament of Jesus Christ, which I proclaim and testify in the sacred name of Jesus Christ, amen.
-
-
 
 
 

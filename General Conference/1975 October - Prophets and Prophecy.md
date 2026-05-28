@@ -16,15 +16,15 @@ Peter said, “We have also a more sure word of prophecy; whereunto ye do well t
 
 “Knowing this first, that no prophecy of the scripture is of any private interpretation. \[That is an important thing.\]
 
-“For prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.19|2 Pet. 1:19–21]][[2 Peter 1.20|]][[2 Peter 1.21|]].) If we have that same power, then we ought to be able to understand prophecy.
+“For prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.19|2 Pet. 1:19–21]][[2 Peter 1.20|]][[2 Peter 1.21|]].) If we have that same power, then we ought to be able to understand prophecy.
 
 Just as the holy prophets foretold the coming of the Savior in the meridian of time, they have foretold many of the important events that were to transpire to prepare the way for his second coming. I would like to refer to some of them.
 
-The prophet Amos said, “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].) Now if we understand that, no one can look for a work here upon this earth that isn’t headed by a prophet. The Lord has never done a work that he has recognized without a prophet at its head. Thank God for our prophets, from the days of the Prophet Joseph Smith down to our present prophet, President Spencer W. Kimball.
+The prophet Amos said, “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].) Now if we understand that, no one can look for a work here upon this earth that isn’t headed by a prophet. The Lord has never done a work that he has recognized without a prophet at its head. Thank God for our prophets, from the days of the Prophet Joseph Smith down to our present prophet, President Spencer W. Kimball.
 
 I have known President Kimball intimately for thirty-seven years, and I don’t think there is a more Christlike man in this world than he; and if the Lord can’t talk through a man like President Kimball, he couldn’t find anyone on this earth more worthy. I thank Him for living prophets.
 
-Now if we understand the words of Peter when he said, “We have also a more sure word of prophecy” ([[2 Peter 1.19|2 Pet. 1:19]]), then in other words, there isn’t any other way in this world that we can know the mind and the will of the Lord as intelligently and assuredly as we can know it through the holy prophets. Then coming back to Amos, “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].)
+Now if we understand the words of Peter when he said, “We have also a more sure word of prophecy” ([[2 Peter 1.19|2 Pet. 1:19]]), then in other words, there isn’t any other way in this world that we can know the mind and the will of the Lord as intelligently and assuredly as we can know it through the holy prophets. Then coming back to Amos, “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].)
 
 Any seeker after truth who believes in these words and the importance that Jesus attaches to prophecy cannot look for a church in the midst of the some 700 there are in this land of ours today without it being a church with a prophet at its head unto whom God can reveal his mind and his will.
 
@@ -68,7 +68,7 @@ And that brings us also to what Isaiah saw when he said, “And it shall come to
 
 This temple on this temple block is that house of the God of Jacob that our pioneer fathers started to build when they were a thousand miles from transportation, and it took them forty years to build it. Isn’t it a glorious thing, one of the most beautiful buildings in the world? Those of us who filled missions in the early days know how literally every convert, as soon as they joined the Church, would want to sell everything they had, saving their money, as I saw in little Holland, by the nickels and the dimes, until they could find enough to come to this land because of the drawing power of that temple, so that they could learn of his ways and walk in his paths.
 
-Now there are many other prophecies, but I would just like to refer to the fact that Isaiah also saw and pronounced “that the Lord shall set his hand again the second time to recover the remnant of his people. …
+Now there are many other prophecies, but I would just like to refer to the fact that Isaiah also saw and pronounced “that the Lord shall set his hand again the second time to recover the remnant of his people. …
 
 “And he shall set up an ensign for the nations, and shall assemble the outcasts of Israel, and gather together the dispersed of Judah.” ([[Isaiah 11.11|Isa. 11:11–12]][[Isaiah 11.12|]].)
 
@@ -82,7 +82,7 @@ So one seeking truth should look for a church that is built upon the foundation 
 
 We have many other prophecies. The apostle Paul said that the Lord had revealed unto him the mystery of his will. (See [[Ephesians 1.9|Eph. 1:9]].) Now that is quite a statement, isn’t it—the mystery of the Lord’s will? “That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth.” ([[Ephesians 1.10|Eph. 1:10]].) No other church in this world has any such program to unite the heavens with that which is upon the earth.
 
-And we read in the prophets about how the Lord’s people would come up as saviors upon Mount Zion. (See [[Obadiah 1.21|Obad. 1:21]].) We read the word of Jesus when he said, “The hour is coming, and now is, when the dead shall hear the voice of the Son of God” ([[John 5.25|John 5:25]]), because all the multitudes who have gone beyond have to hear the gospel. We are told that every knee shall bow and every tongue confess that Jesus is the Christ. (See [[Romans 14.11|Rom. 14:11]].) That gives us to understand in just a little way the meaning of the words of the apostle Paul when he said, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
+And we read in the prophets about how the Lord’s people would come up as saviors upon Mount Zion. (See [[Obadiah 1.21|Obad. 1:21]].) We read the word of Jesus when he said, “The hour is coming, and now is, when the dead shall hear the voice of the Son of God” ([[John 5.25|John 5:25]]), because all the multitudes who have gone beyond have to hear the gospel. We are told that every knee shall bow and every tongue confess that Jesus is the Christ. (See [[Romans 14.11|Rom. 14:11]].) That gives us to understand in just a little way the meaning of the words of the apostle Paul when he said, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 Another great thing that was to happen in this dispensation is that the Lord, speaking through Malachi, said he would send his messenger to prepare the way for his coming, and that he would come swiftly to his temple. “But who may abide the day of his coming? … for he is like a refiner’s fire, and like fullers’ soap.” ([[Malachi 3.1|Mal. 3:1–2]][[Malachi 3.2|]].) Obviously that had no reference to his first coming. He didn’t come swiftly to his temple. All men could abide the day of his coming. But we are told that when he comes in the latter days, the wicked will cry out to the rocks, “Fall on us, and hide us from the face of him that sitteth on the throne.” ([[Revelation 6.16|Rev. 6:16]].)
 
@@ -103,8 +103,6 @@ Then Jeremiah said, “Turn, O backsliding children, saith the Lord; for I am ma
 You people here today have come one of a city and two of a family to learn of the ways of the Lord, and we are the pastors that are teaching you according to his will, I and these Brethren here, my companions and associates on this stand today.
 
 God bless you all, and I hope you realize that the Lord is speaking through his living prophets, that this Church is built upon the foundation of living prophets, and that we speak to the world to bear witness of what He has done because we know of a surety that this is his work. This is my testimony, and I bear it in great humility, and in the name of the Lord Jesus Christ. Amen.
-
-
 
 
 

@@ -12,7 +12,7 @@ In the world today we are victims of many who use their tongues as sharp swords.
 
 Such a popular behavior is indulged in by far too many who bash a neighbor, a family member, a public servant, a community, a country, a church. It is alarming also how often we find children bashing parents and parents bashing children.
 
-We as members of the Church need to be reminded that the words “Nay, speak no ill” are more than a phrase in a musical context but a recommended way of life (see *Hymns,* no. 233). We need to be reminded more than ever before that “if there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]). If we follow that admonition, there is no time for the dastardly hobby of bashing instead of building.
+We as members of the Church need to be reminded that the words “Nay, speak no ill” are more than a phrase in a musical context but a recommended way of life (see *Hymns,* no. 233). We need to be reminded more than ever before that “if there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]). If we follow that admonition, there is no time for the dastardly hobby of bashing instead of building.
 
 Some think the only way to get even, to get attention or advantage, or to win is to bash people. This kind of behavior is never appropriate. Oftentimes character and reputation and almost always self-esteem are destroyed under the hammer of this vicious practice.
 
@@ -30,7 +30,7 @@ We are reminded that Jesus Christ, the only perfect person to ever walk the eart
 
 So what is the antidote for this bashing that hurts feelings, demeans others, destroys relationships, and harms self-esteem? Bashing should be replaced with charity. Moroni described it this way:
 
-“Wherefore, my beloved brethren, if ye have not charity, ye are nothing, for charity never faileth. Wherefore, cleave unto charity, which is the greatest of all. …
+“Wherefore, my beloved brethren, if ye have not charity, ye are nothing, for charity never faileth. Wherefore, cleave unto charity, which is the greatest of all. …
 
 “… Charity is the pure love of Christ, and it endureth forever” ([[Moroni 7.46|Moro. 7:46–47]][[Moroni 7.47|]]).
 
@@ -44,7 +44,7 @@ None of us need one more person bashing or pointing out where we have failed or 
 
 It should come as no surprise that one of the adversary’s tactics in the latter days is stirring up hatred among the children of men. He loves to see us criticize each other, make fun or take advantage of our neighbor’s known flaws, and generally pick on each other. The Book of Mormon is clear about where all anger, malice, greed, and hate come from.
 
-Nephi prophesied that in the last days the devil would “rage in the hearts of the children of men, and stir them up to anger against that which is good” ([[2 Nephi 28.20|2 Ne. 28:20]]). By the looks of what we constantly see depicted in the news media, it appears that Satan is doing a pretty good job. In the name of reporting the news, we are besieged with sometimes graphic depictions—too often in living color—of greed, extortion, violent sexual crimes, and insults between business, athletic, or political opponents.
+Nephi prophesied that in the last days the devil would “rage in the hearts of the children of men, and stir them up to anger against that which is good” ([[2 Nephi 28.20|2 Ne. 28:20]]). By the looks of what we constantly see depicted in the news media, it appears that Satan is doing a pretty good job. In the name of reporting the news, we are besieged with sometimes graphic depictions—too often in living color—of greed, extortion, violent sexual crimes, and insults between business, athletic, or political opponents.
 
 Throughout the scriptures a common thread seems to emerge. Let’s consider first the Sermon on the Mount, which to our knowledge was the first sermon Jesus Christ taught His newly called disciples. The overriding theme of the Savior’s sermon, which in many ways is the ultimate handbook on coming unto Him, seems to center around the virtues of love, compassion, forgiveness, and long-suffering—in other words, those qualities that enable us to deal with our fellowmen more compassionately. Let’s look specifically at the Savior’s message to the Twelve. They (and we) were admonished to “be reconciled to \[our\] brother” ([[Matthew 5.24|Matt. 5:24]]), to “agree with \[our\] adversary quickly” ([[Matthew 5.25|5:25]]), to “love \[our\] enemies, \[to\] bless them that curse \[us\], \[to\] do good to them that hate \[us\], and \[to\] pray for them which despitefully use \[us\], and persecute \[us\]” ([[Matthew 5.44|5:44]]). We are told, “Whosoever shall smite thee on thy right cheek, turn to him the other also” ([[Matthew 5.39|5:39]]).
 
@@ -79,8 +79,6 @@ Let us open our arms to each other, accept each other for who we are, assume eve
 Again James reminds us, “The fruit of righteousness is sown in peace of them that make peace” ([[James 3.18|James 3:18]]).
 
 May God help us individually and collectively to know and teach that bashing should be replaced with charity today and always, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

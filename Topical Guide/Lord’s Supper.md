@@ -1,4 +1,3 @@
 # Lord’s Supper
 
-
-*See* [[Sacrament.md|Sacrament]]
+*See also* [[Sacrament.md|Sacrament]]

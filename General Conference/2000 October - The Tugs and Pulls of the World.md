@@ -4,7 +4,7 @@ By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
 
->*Many individuals preoccupied by the cares of the world are not necessarily in *transgression.* But they certainly are in *diversion* and thus waste “the days of \[their\] probation” ([[2 Nephi 9.27|2 Ne. 9:27]]).*
+>*Many individuals preoccupied by the cares of the world are not necessarily in *transgression.* But they certainly are in *diversion* and thus waste “the days of \[their\] probation” ([[2 Nephi 9.27|2 Ne. 9:27]]).*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2000/10/the-tugs-and-pulls-of-the-world?lang=eng)
 
@@ -14,13 +14,13 @@ Contrastingly, the perks of discipleship are such that if we see a stretch limou
 
 The tugs and pulls of the world are powerful. Worldly lifestyles are cleverly reinforced by the rationalization “everybody is doing it,” thus fanning or feigning a majority. Products are promoted and attitudes engendered by clever niche marketing.
 
-Peter counseled, “Of whom a man is overcome, of the same is he brought in bondage” ([[2 Peter 2.19|2 Pet. 2:19]]). Brothers and sisters, there are so many personalized prisons!
+Peter counseled, “Of whom a man is overcome, of the same is he brought in bondage” ([[2 Peter 2.19|2 Pet. 2:19]]). Brothers and sisters, there are so many personalized prisons!
 
-Scoffers display the shoulder-shrugging attitude foretold by Peter: “Where is the promise of \[Christ’s\] coming? for … all things continue as they were from the beginning of the creation” ([[2 Peter 3.4|2 Pet. 3:4]]). Such cynicism mistakes the successive casts on the mortal stage for the absence of a Director or a script.
+Scoffers display the shoulder-shrugging attitude foretold by Peter: “Where is the promise of \[Christ’s\] coming? for … all things continue as they were from the beginning of the creation” ([[2 Peter 3.4|2 Pet. 3:4]]). Such cynicism mistakes the successive casts on the mortal stage for the absence of a Director or a script.
 
 Like goldfish in a bowl, some are mindless of who changes the water and puts in the pellets (see [[Jacob 4.13|Jacob 4:13–14]][[Jacob 4.14|]]), or, like a kindergarten child whose retrieving parent seems a little late, concluding, “Man is alone in the universe.”
 
-Granted, some sincerely wish for more power in order to do good, but only a few individuals are good enough to be powerful. But craving power and the spotlight sucks out the spiritual oxygen, leaving some “past feeling” ([[Ephesians 4.19|Eph. 4:19]]; [[1 Nephi 17.45|1 Ne. 17:45]]; [[Moroni 9.20|Moro. 9:20]]). Strangely, though desensitized, some are still able to hear the beckoning click of a TV camera at a hundred yards. Doesn’t the churning over the places of mortal power remind us of the childhood game of musical chairs?
+Granted, some sincerely wish for more power in order to do good, but only a few individuals are good enough to be powerful. But craving power and the spotlight sucks out the spiritual oxygen, leaving some “past feeling” ([[Ephesians 4.19|Eph. 4:19]]; [[1 Nephi 17.45|1 Ne. 17:45]]; [[Moroni 9.20|Moro. 9:20]]). Strangely, though desensitized, some are still able to hear the beckoning click of a TV camera at a hundred yards. Doesn’t the churning over the places of mortal power remind us of the childhood game of musical chairs?
 
 Actually, discipleship may keep the honors of the world from us. As Balak told Balaam, “I thought to promote thee unto great honour; but, lo, the Lord hath kept thee back from honour” ([[Numbers 24.11|Num. 24:11–12]][[Numbers 24.12|]]). The rouge of recognition is so easily smeared anyway. We wince as we watch those once flattered by the world, like Judas, being used, despised, and discarded (see [[Matthew 27.3|Matt. 27:3–5]][[Matthew 27.4|]][[Matthew 27.5|]]; [[D&C 121.20|D&C 121:20]]). Nevertheless, when some of these are ready, even their hands need to be lifted up (see [[Hebrews 12.12|Heb. 12:12]]; [[D&C 81.5|D&C 81:5]]).
 
@@ -52,13 +52,13 @@ Even with all of the world’s powerful tugs and pulls, spiritual feelings can a
 
 Further, some who laboriously scale the secular heights find, after all, that they are only squatting atop a small mound of sand! They have worked so hard to get there!
 
-But why covet wealth anyway, if we only “spend money for that which is of no worth … \[and\] which cannot satisfy”? ([[2 Nephi 9.51|2 Ne. 9:51]]).
+But why covet wealth anyway, if we only “spend money for that which is of no worth … \[and\] which cannot satisfy”? ([[2 Nephi 9.51|2 Ne. 9:51]]).
 
 Like Jesus, we can decide, daily or instantly, to give no heed to temptation (see [[D&C 20.22|D&C 20:22]]). We can respond to irritation with a smile instead of a scowl, or by giving warm praise instead of icy indifference. By our being understanding instead of abrupt, others, in turn, may decide to hold on a little longer rather than to give way. Love, patience, and meekness can be just as contagious as rudeness and crudeness.
 
-We can also allow for redemptive turbulence, individually and generally (see [[2 Nephi 28.19|2 Ne. 28:19]]). Hearts set so much upon the things of the world may have to be broken (see [[D&C 121.35|D&C 121:35]]). Preoccupied minds far from Him may be jolted by a “heads up” (see [[Mosiah 5.13|Mosiah 5:13]]).
+We can also allow for redemptive turbulence, individually and generally (see [[2 Nephi 28.19|2 Ne. 28:19]]). Hearts set so much upon the things of the world may have to be broken (see [[D&C 121.35|D&C 121:35]]). Preoccupied minds far from Him may be jolted by a “heads up” (see [[Mosiah 5.13|Mosiah 5:13]]).
 
-Many individuals preoccupied by the cares of the world are not necessarily in *transgression.* But they certainly are in *diversion* and thus waste “the days of \[their\] probation” ([[2 Nephi 9.27|2 Ne. 9:27]]). Yet some proudly live “without God in the world” ([[Alma 41.11|Alma 41:11]]), with gates and doors locked from the inside!
+Many individuals preoccupied by the cares of the world are not necessarily in *transgression.* But they certainly are in *diversion* and thus waste “the days of \[their\] probation” ([[2 Nephi 9.27|2 Ne. 9:27]]). Yet some proudly live “without God in the world” ([[Alma 41.11|Alma 41:11]]), with gates and doors locked from the inside!
 
 Mark it down, brothers and sisters: people too caught up in themselves will inevitably let other people down!
 
@@ -78,11 +78,11 @@ Mercifully, our errors can soon be swallowed up by resilient repentance, showing
 
 It also helps in resisting the tugs and pulls of the world if we, though imperfect, know that currently the course of our life is generally acceptable to the Lord (see *Lectures on Faith* \[1985\], 67). With sufficient dedication, those quiet assurances can come!
 
-The validation of our worth really comes from knowing *who we are,* not solely from *what we do.* Jesus’ searching words remain: “What manner of men \[and women\] ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]; see also [[Matthew 5.48|Matt. 5:48]]; [[3 Nephi 12.48|3 Ne. 12:48]]).
+The validation of our worth really comes from knowing *who we are,* not solely from *what we do.* Jesus’ searching words remain: “What manner of men \[and women\] ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]; see also [[Matthew 5.48|Matt. 5:48]]; [[3 Nephi 12.48|3 Ne. 12:48]]).
 
 Of course, worthwhile doing enhances our character and capacity, but mortal circumstances and opportunities differ so greatly. But amid these differences, we can still become more like Christ in our capacity *to be*—more loving, meek, patient, and submissive.
 
-By paying more attention to what *we are* rather than exclusively to what *we do,* our public and our private persons will be the same—the man or the woman of Christ. Our intrinsic value is *not dependent* upon mortal acclaim anyway; in fact, the world may actually see us as weak and foolish (see [[1 Corinthians 1.27|1 Cor. 1:27]]). Countering, however, are divine affirmations, including this one: “The Spirit itself beareth witness with our spirit, that we are the children of God” ([[Romans 8.16|Rom. 8:16]]).
+By paying more attention to what *we are* rather than exclusively to what *we do,* our public and our private persons will be the same—the man or the woman of Christ. Our intrinsic value is *not dependent* upon mortal acclaim anyway; in fact, the world may actually see us as weak and foolish (see [[1 Corinthians 1.27|1 Cor. 1:27]]). Countering, however, are divine affirmations, including this one: “The Spirit itself beareth witness with our spirit, that we are the children of God” ([[Romans 8.16|Rom. 8:16]]).
 
 God is infinitely more interested in our having a place in His kingdom than with our spot on a mortal organizational chart. We may brood over our personal span of control, but He is concerned with our capacity for self-control. Father wants us to come home, bringing our real résumés—ourselves!
 
@@ -90,7 +90,7 @@ Even so, our mortal jealousies still occur regularly over money, turf, a slight,
 
 True belonging occurs when we know who we are and to whom we really belong! Remember the popular lines in *Fiddler on the Roof* about Anatevka? There, “everyone knows *who* he is and *what* God expects him to *do*” (Joseph Stein, *Fiddler on the Roof* \[1964\], 3; emphasis added), to which might be added “and what God expects him to *be.*”
 
-Yes, we are free to choose the mortal perks with their short shelf life. However, ahead lies that great moment when every knee shall bow and every tongue confess that Jesus is the Christ! (see [[Mosiah 27.31|Mosiah 27:31]]; [[D&C 88.104|D&C 88:104]]). Then the galleries and the mortal thrones will be empty. Even the great and spacious building will fall—and resoundingly! (see [[1 Nephi 8.26|1 Ne. 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]). Then, too, those who have lived without God in the world will confess that God is God! (see [[Mosiah 27.31|Mosiah 27:31]]). Meanwhile, His character and attributes should evoke adoration and emulation from us.
+Yes, we are free to choose the mortal perks with their short shelf life. However, ahead lies that great moment when every knee shall bow and every tongue confess that Jesus is the Christ! (see [[Mosiah 27.31|Mosiah 27:31]]; [[D&C 88.104|D&C 88:104]]). Then the galleries and the mortal thrones will be empty. Even the great and spacious building will fall—and resoundingly! (see [[1 Nephi 8.26|1 Ne. 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]). Then, too, those who have lived without God in the world will confess that God is God! (see [[Mosiah 27.31|Mosiah 27:31]]). Meanwhile, His character and attributes should evoke adoration and emulation from us.
 
 Isn’t it marvelous, brothers and sisters, that God, *who knows everything,* still spends time listening to our prayers? Compared to that cosmic fact, what does the world really have to offer us? One round of applause, one fleeting moment of adulation, or an approving glance from a phantom Caesar?
 
@@ -99,6 +99,4 @@ May God bless us to see things as they really are and as they really will be (se
 
 
 
-
-
-#Atonement #Discipleship #Family #Friendship #Greed #Humility #Jesus_Christ #Love #Marriage #Morality #Prayer #Self-Control #Spirituality #Temptation #Tolerance #Worldliness
+#Atonement #Discipleship #Family #Friendship #Greed #Humility #JesusChrist #Love #Marriage #Morality #Prayer #Self-control #Spirituality #Temptation #Tolerance #Worldliness

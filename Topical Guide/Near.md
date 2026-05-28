@@ -1,6 +1,5 @@
 # Near
 
-
 *See also* [[Nigh.md|Nigh]]
 
 better is a neighbour that is *near*, [[Proverbs 27.10|Proverbs 27:10]].

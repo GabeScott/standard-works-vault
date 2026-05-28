@@ -12,7 +12,7 @@ My brothers and sisters, what a great inspiration you are. As I look into the fa
 
 Before coming into the building this morning, we sealed the cover stone of the cornerstone of the structure, this great new structure. That marks the completion of this building.
 
-We preserve the symbolism of the cornerstone in remembrance of the Son of God, upon whose life and mission this Church is established. He, and He alone, is the Chief Cornerstone. There is built upon Him a strong foundation of apostles and prophets and, above this, “all the building fitly framed together” to constitute The Church of Jesus Christ of Latter-day Saints ([[Ephesians 2.21|Eph. 2:21]]; see also [[Ephesians 2.20|v. 20]]).
+We preserve the symbolism of the cornerstone in remembrance of the Son of God, upon whose life and mission this Church is established. He, and He alone, is the Chief Cornerstone. There is built upon Him a strong foundation of apostles and prophets and, above this, “all the building fitly framed together” to constitute The Church of Jesus Christ of Latter-day Saints ([[Ephesians 2.21|Eph. 2:21]]; see also [[Ephesians 2.20|v. 20]]).
 
 As I reminded the group at the cornerstone this morning, let this symbol be recognized as representing the Redeemer of the world, the Son of God, the Lord Jesus Christ, whose name this Church carries.
 
@@ -64,13 +64,13 @@ And now today, as another significant accomplishment of this millennial year, we
 
 The Tabernacle, which has served us so well for more than a century, simply became inadequate for our needs.
 
-It was a great and serious thing to undertake the building of this structure. We were, of course, aware of all of the electronic means for carrying far and wide the message spoken from the pulpit. However, we were also aware of the desire of so very many to sit in the same hall with the speaker, as evidenced this morning. As I said when announcing the decision to move forward: “The building of this structure has been a bold undertaking. We worried about it. … We listened for the whisperings of the Spirit \[as we prayed about\] it. And only when we felt the confirming voice of the Lord did we determine to go forward” (in Conference Report, Apr. 2000, 3; or *Ensign,* May 2000, 4–5).
+It was a great and serious thing to undertake the building of this structure. We were, of course, aware of all of the electronic means for carrying far and wide the message spoken from the pulpit. However, we were also aware of the desire of so very many to sit in the same hall with the speaker, as evidenced this morning. As I said when announcing the decision to move forward: “The building of this structure has been a bold undertaking. We worried about it. … We listened for the whisperings of the Spirit \[as we prayed about\] it. And only when we felt the confirming voice of the Lord did we determine to go forward” (in Conference Report, Apr. 2000, [[2000 April - To All the World in Testimony.md|3]]; or *Ensign,* May 2000, 4–5).
 
 Announcement of our decision was made in the April 1996 general conference. I said on that occasion:
 
-“I regret that many who wish to meet with us in the Tabernacle this morning are unable to get in. There are very many out on the grounds. …
+“I regret that many who wish to meet with us in the Tabernacle this morning are unable to get in. There are very many out on the grounds. …
 
-“My heart reaches out to those who wish\[ed\] to get in and could not be accommodated. About a year ago I suggested to the Brethren that perhaps the time has come when we should study the feasibility of constructing another dedicated house of worship on a much larger scale that would accommodate three or four times the number who can be seated in this building” (in Conference Report, Apr. 1996, 88–89; or *Ensign,* May 1996, 65).
+“My heart reaches out to those who wish\[ed\] to get in and could not be accommodated. About a year ago I suggested to the Brethren that perhaps the time has come when we should study the feasibility of constructing another dedicated house of worship on a much larger scale that would accommodate three or four times the number who can be seated in this building” (in Conference Report, Apr. 1996, [[1996 April - This Glorious Easter Morn.md|88–89]]; or *Ensign,* May 1996, 65).
 
 It was a little more than a year later when ground was broken. This occurred on the 24th of July, 1997, the 150th anniversary of the arrival of our forebears in this valley.
 
@@ -94,7 +94,7 @@ As I contemplate this marvelous structure adjacent to the temple, there comes to
 
 “And it shall come to pass in the last days, that the mountain of the Lord’s house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it.
 
-“And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the Lord from Jerusalem. …
+“And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the Lord from Jerusalem. …
 
 “O house of Jacob, come ye, and let us walk in the light of the Lord” ([[Isaiah 2.2|Isa. 2:2–3, 5]][[Isaiah 2.3|]][[Isaiah 2.5|]]).
 
@@ -146,7 +146,7 @@ May this great hall be a place of dignified entertainment, a home to those arts 
 
 We dedicate the great organ, the beautiful halls and other rooms, the parking area, and all other features and facilities pertaining to this structure. May it be a thing of beauty to the beholder both inside and out. May it be a house of many uses, a house of culture, a house of art, a house of worship, a house of faith, a house of God.
 
-May it give expression to the declaration of Thy people that “if there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
+May it give expression to the declaration of Thy people that “if there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
 
 Now Father, as we dedicate this Conference Center, we also dedicate the theater which adjoins it. It is a beautiful structure, designed to serve as a meeting place, as a home for the performing arts, and for a variety of uses, all dignified and created to cultivate the beautiful and ennobling. Protect it and bless it as we have prayed concerning the Conference Center.
 
@@ -154,7 +154,7 @@ We likewise on this day dedicate the parking facility built under Main Street an
 
 May this area be looked upon as a place of peace, an oasis in the midst of this bustling city. May it be a place where the weary may sit and contemplate the things of God and the beauties of nature. It is adorned with trees and shrubs, flowers and water, all combined to create an island of quiet beauty in the midst of this great thriving community. May the desire of the people of Thy Church to improve and beautify this area be appreciated by all who pass this way.
 
-We pray that favorable expressions may prevail and grow until there is universal acceptance and appreciation for what has been done. We invoke Thy blessings upon this community and this state. This is the area to which Thy people came seeking asylum from the oppression they had known. Now this has become a great cosmopolitan society to which people from all over the nation and the entire world have gathered. May all who live here and all who come here recognize a community environment that is unique and attractive. May we of Thy Church be hospitable and gracious. May we maintain the standards and practices for which we are known and accord to others the privilege of worshiping who, “where, or what they may” ([[Articles of Faith 1.11|A of F 1:11]]).
+We pray that favorable expressions may prevail and grow until there is universal acceptance and appreciation for what has been done. We invoke Thy blessings upon this community and this state. This is the area to which Thy people came seeking asylum from the oppression they had known. Now this has become a great cosmopolitan society to which people from all over the nation and the entire world have gathered. May all who live here and all who come here recognize a community environment that is unique and attractive. May we of Thy Church be hospitable and gracious. May we maintain the standards and practices for which we are known and accord to others the privilege of worshiping who, “where, or what they may” ([[Articles of Faith 1.11|A of F 1:11]]).
 
 Bless us to reach out as good neighbors and be helpful to all. May we lift up the hands and strengthen the faltering knees of any in distress. May we all live together in peace with appreciation and respect one for another.
 
@@ -167,6 +167,4 @@ Wilt Thou smile with favor upon us, we pray in the sacred name of our Lord Jesus
 
 
 
-
-
-#Commandments #Education #Jesus_Christ #Missionary_Work #Prayer #Temple_Square
+#Commandments #Education #JesusChrist #MissionaryWork #Prayer #TempleSquare

@@ -1,6 +1,6 @@
 # Be Slow to Anger
 
-By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
+By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -20,7 +20,7 @@ Not only does intemperate anger affect us physically and mentally, in a negative
 
 When anger rules, tempered judgment flees. Actually, the person who is composed has a distinct advantage over one who is angered. Somewhere I read this statement: “When one is in the right, he need not lose his temper; and when he is wrong, he cannot afford to.”
 
-Ungoverned anger is seen too often in daily life. President Spencer W. Kimball, in his excellent book *The Miracle of Forgiveness,* tells us in effect that anger is “a sin of thought” which, if not controlled, may be the forerunner of vicious and violent acts.
+Ungoverned anger is seen too often in daily life. President Spencer W. Kimball, in his excellent book *The Miracle of Forgiveness,* tells us in effect that anger is “a sin of thought” which, if not controlled, may be the forerunner of vicious and violent acts.
 
 Anger against *things* is senseless indeed!
 
@@ -38,11 +38,11 @@ Someone has said:
 >What they preach.”
 >
 
-The words of President Brigham Young ring out to us. In regard to this, he said, in appealing to husbands and fathers on behalf of their wives and children: “Cease your anger, and sullenness of temper. … Do not get so angry that you cannot pray. …” (*Discourses of Brigham Young* \[Deseret Book Co., 1941\], pp. 268–69.)
+The words of President Brigham Young ring out to us. In regard to this, he said, in appealing to husbands and fathers on behalf of their wives and children: “Cease your anger, and sullenness of temper. … Do not get so angry that you cannot pray. …” (*Discourses of Brigham Young* \[Deseret Book Co., 1941\], pp. 268–69.)
 
 And I think I have read somewhere where he also said, If you don’t feel like praying together, get on your knees and pray until you do feel like it. I believe that is good counsel. (See *Discourses,* p. 46.)
 
-A few years ago, President David O. McKay made this appeal to fathers and mothers: “Never set an improper example before them \[your children\]. … Never let them hear a cross word. You should control yourself! He is a weak man who flies into a passion … whatever he may be doing. …” (*Improvement Era,* December 1964, p. 1082.)
+A few years ago, President David O. McKay made this appeal to fathers and mothers: “Never set an improper example before them \[your children\]. … Never let them hear a cross word. You should control yourself! He is a weak man who flies into a passion … whatever he may be doing. …” (*Improvement Era,* December 1964, p. 1082.)
 
 >“A little explained,
 >A little endured,
@@ -77,8 +77,6 @@ I agree that this is not naturally easy to do, but, my brothers and sisters, we 
 >
 
 If we will do this, we will be more greatly blessed as individuals and our homes will reflect the sweet spirit of love and harmony and peace. To this I testify, and pray for the help of the Lord in bringing this about, in the name of the Lord, Jesus Christ. Amen.
-
-
 
 
 

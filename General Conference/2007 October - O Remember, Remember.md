@@ -20,7 +20,7 @@ I wrote down a few lines every day for years. I never missed a day no matter how
 
 More than gratitude began to grow in my heart. Testimony grew. I became ever more certain that our Heavenly Father hears and answers prayers. I felt more gratitude for the softening and refining that come because of the Atonement of the Savior Jesus Christ. And I grew more confident that the Holy Ghost can bring all things to our remembrance—even things we did not notice or pay attention to when they happened.
 
-The years have gone by. My boys are grown men. And now and then one of them will surprise me by saying, “Dad, I was reading in my copy of the journal about when …” and then he will tell me about how reading of what happened long ago helped him notice something God had done in his day.
+The years have gone by. My boys are grown men. And now and then one of them will surprise me by saying, “Dad, I was reading in my copy of the journal about when …” and then he will tell me about how reading of what happened long ago helped him notice something God had done in his day.
 
 My point is to urge you to find ways to recognize and remember God’s kindness. It will build our testimonies. You may not keep a journal. You may not share whatever record you keep with those you love and serve. But you and they will be blessed as you remember what the Lord has done. You remember that song we sometimes sing: “Count your many blessings; name them one by one, And it will surprise you what the Lord has done.”[^2]
 
@@ -56,7 +56,7 @@ You might ask, “But how does this process get started in someone who knows not
 
 “For behold, the Spirit of Christ is given to every man, that he may know good from evil; wherefore, I show unto you the way to judge; for every thing which inviteth to do good, and to persuade to believe in Christ, is sent forth by the power and gift of Christ; wherefore ye may know with a perfect knowledge it is of God.
 
-“But whatsoever thing persuadeth men to do evil, and believe not in Christ, and deny him, and serve not God, then ye may know with a perfect knowledge it is of the devil; for after this manner doth the devil work, for he persuadeth no man to do good, no, not one; neither do his angels; neither do they who subject themselves unto him. …
+“But whatsoever thing persuadeth men to do evil, and believe not in Christ, and deny him, and serve not God, then ye may know with a perfect knowledge it is of the devil; for after this manner doth the devil work, for he persuadeth no man to do good, no, not one; neither do his angels; neither do they who subject themselves unto him. …
 
 “Wherefore, I beseech of you, brethren, that ye should search diligently in the light of Christ that ye may know good from evil; and if ye will lay hold upon every good thing, and condemn it not, ye certainly will be a child of Christ.”[^7]
 
@@ -83,6 +83,4 @@ Tonight, and tomorrow night, you might pray and ponder, asking the questions: Di
 
 [^7]: [[Moroni 7.16|Moroni 7:16–17, 19]][[Moroni 7.17|]][[Moroni 7.19|]].
 
-
-
-#Blessings #Family_History #Gratitude #Holy_Ghost #Testimony
+#Blessings #FamilyHistory #Gratitude #HolyGhost #Testimony

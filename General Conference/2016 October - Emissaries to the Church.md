@@ -1,6 +1,6 @@
 # Emissaries to the Church
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/emissaries-to-the-church?lang=eng)
 
-Not long ago a single sister, whom I will call Molly, came home from work only to find two inches (5 cm) of water covering her entire basement floor. Immediately she realized that her neighbors, with whom she shared drainage lines, must have done an inordinate amount of laundry and bathing because she got the backed-up water.
+Not long ago a single sister, whom I will call Molly, came home from work only to find two inches (5 cm) of water covering her entire basement floor. Immediately she realized that her neighbors, with whom she shared drainage lines, must have done an inordinate amount of laundry and bathing because she got the backed-up water.
 
 After Molly called a friend to come and help, the two began bailing and mopping. Just then the doorbell rang. Her friend cried out, “It’s your home teachers!”
 
@@ -38,7 +38,7 @@ Brethren, the appeal I am making tonight is for you to lift your vision of home 
 
 Now, as for what “counts” as home teaching, every good thing you do “counts,” so report it all! Indeed, the report that matters most is how you have blessed and cared for those within your stewardship, which has virtually nothing to do with a specific calendar or a particular location. What matters is that you love your people and are fulfilling the commandment “to watch over the church always.”[^7]
 
-On May 30 of last year, my friend Troy Russell pulled his pickup truck slowly out of his garage on his way to donate goods to the local Deseret Industries. He felt his back tire roll over a bump. Thinking some item had fallen off the truck, he got out only to find his precious nine-year-old son, Austen, lying face down on the pavement. The screams, the priesthood blessing, the paramedic crew, the hospital staff—they were, in this case, to no avail. Austen was gone.
+On May 30 of last year, my friend Troy Russell pulled his pickup truck slowly out of his garage on his way to donate goods to the local Deseret Industries. He felt his back tire roll over a bump. Thinking some item had fallen off the truck, he got out only to find his precious nine-year-old son, Austen, lying face down on the pavement. The screams, the priesthood blessing, the paramedic crew, the hospital staff—they were, in this case, to no avail. Austen was gone.
 
 Unable to sleep, unable to find peace, Troy was inconsolable. He said it was more than he could bear and that he simply could not go on. But into that agonizing breach came three redeeming forces.
 
@@ -59,7 +59,7 @@ My brethren of the holy priesthood, when we speak of home teaching or watchcare 
 
 [^3]: [[D&C 20.53|Doctrine and Covenants 20:53]].
 
-[^4]: First Presidency letter, Dec. 10, 2001; this counsel has been incorporated into *Handbook 2: Administering the Church* (2010), 7.4.3.
+[^4]: First Presidency letter, Dec. 10, 2001; this counsel has been incorporated into *Handbook 2: Administering the Church* (2010), 7.4.3.
 
 [^5]: [[D&C 20.47|Doctrine and Covenants 20:47, 51]][[D&C 20.51|]].
 
@@ -69,6 +69,4 @@ My brethren of the holy priesthood, when we speak of home teaching or watchcare 
 
 [^8]: Personal conversation and email exchange, Apr. 2016.
 
-
-
-#Home_Teaching #Priesthood #Service
+#HomeTeaching #Priesthood #Service

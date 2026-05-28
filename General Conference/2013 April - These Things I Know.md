@@ -1,6 +1,6 @@
 # These Things I Know
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -176,7 +176,7 @@ Of all that I have read and taught and learned, the one most precious and sacred
 
 
 
-[^1]: Boyd K. Packer, “Unfinished Composition,” 2012.
+[^1]: Boyd K. Packer, “Unfinished Composition,” 2012.
 
 [^2]: [[Isaiah 32.17|Isaiah 32:17]].
 
@@ -192,6 +192,4 @@ Of all that I have read and taught and learned, the one most precious and sacred
 
 [^8]: [[Moroni 7.16|Moroni 7:16]].
 
-
-
-#Agency #Family #Holy_Ghost
+#Agency #Family #HolyGhost

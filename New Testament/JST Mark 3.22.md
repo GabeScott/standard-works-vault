@@ -4,6 +4,3 @@
 
 [JST Mark 3:22](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-mark/3?lang=eng)
 
-
-
-

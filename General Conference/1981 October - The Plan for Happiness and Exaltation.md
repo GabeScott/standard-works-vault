@@ -1,6 +1,6 @@
 # The Plan for Happiness and Exaltation
 
-By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
+By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -32,15 +32,13 @@ Our happiness on earth, as well as our eternal salvation, requires many correct 
 
 We must cultivate true humility, not the ability to appear humble, but the sacred gift of true humility.
 
-Humility is the precious, fertile soil of righteous character. It germinates the seeds of personal growth. When cultivated through the exercise of faith, pruned by repentance, and fortified by obedience and good works, such seeds produce the cherished fruit of spirituality. (See [[Alma 26.22|Alma 26:22]].) Divine inspiration and power then result. Inspiration is to know the will of the Lord. Power is the capability to accomplish that inspired will. (See [[D&C 43.15|D&C 43:15–16]][[D&C 43.16|]].) Such power comes from God after we have done “all we can do.” ([[2 Nephi 25.23|2 Ne. 25:23]].)
+Humility is the precious, fertile soil of righteous character. It germinates the seeds of personal growth. When cultivated through the exercise of faith, pruned by repentance, and fortified by obedience and good works, such seeds produce the cherished fruit of spirituality. (See [[Alma 26.22|Alma 26:22]].) Divine inspiration and power then result. Inspiration is to know the will of the Lord. Power is the capability to accomplish that inspired will. (See [[D&C 43.15|D&C 43:15–16]][[D&C 43.16|]].) Such power comes from God after we have done “all we can do.” ([[2 Nephi 25.23|2 Ne. 25:23]].)
 
 May I share these introspective thoughts of an individual that found the path to happiness: “I am truly, deeply loved of the Lord. He will do all that I permit him to do for my happiness. The key to unlock that power is myself. While others will counsel, suggest, exhort, and urge, the Lord has given me the responsibility and the agency to make the basic decisions for my happiness and eternal progress. As I read and ponder the scriptures and with deep faith earnestly seek my Father in prayer, peace envelops my being. With sincere repentance and obedience to the commandments of God, coupled with genuine concern for and service to others, fear is purged from my heart. I am conditioned to receive and to interpret divine aid given to mark my path with clarity. No friend, bishop, stake president, or General Authority can do this for me. It is my divine right to do it for myself. I have learned to be at peace and to be happy. I know I will have a rewarding, productive, meaningful life.”
 
 This individual is not a robot enslaved by adversity, nor need we be as we wisely use our free agency to follow the teachings of the Savior.
 
 With all the love of my heart, I extend an invitation to all to obtain a fulness of an understanding of the plan of happiness and exaltation provided by the Savior. I testify that this fulness is found in The Church of Jesus Christ of Latter-day Saints. I love you and ask you to seek that fulness, in the name of Jesus Christ, amen.
-
-
 
 
 

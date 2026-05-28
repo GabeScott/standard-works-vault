@@ -1,6 +1,6 @@
 # A Witness of God
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -20,13 +20,13 @@ Daniel was taken before the king. “Art thou able to make known unto me the dre
 
 Daniel responded:
 
-“The wise men, the astrologers, the magicians \[cannot tell you what you dreamed\]. …
+“The wise men, the astrologers, the magicians \[cannot tell you what you dreamed\]. …
 
-“But there is a God in heaven that \[can reveal these things, and He\] maketh known to … king Nebuchadnezzar what shall be in the latter days. …
+“But there is a God in heaven that \[can reveal these things, and He\] maketh known to … king Nebuchadnezzar what shall be in the latter days. …
 
 “The God of heaven,” Daniel said, “\[shall\] set up a kingdom, \[a stone cut out without hands, that will become a great mountain and fill the whole earth,\] never \[to\] be destroyed … \[but to\] stand for ever.
 
-“… The dream,” said Daniel, “is certain, and the interpretation … sure.”[^3]
+“… The dream,” said Daniel, “is certain, and the interpretation … sure.”[^3]
 
 With his dream explained and interpreted, the king spoke boldly, “Your God is a God of gods, and a Lord of kings.”[^4]
 
@@ -42,7 +42,7 @@ The gathering of Israel is a miracle. It is like an enormous puzzle whose pieces
 
 Each of us is a piece of the puzzle, and each of us helps to set in place other essential pieces. You are important to this great cause. Our view ahead is now clear. We can see the miracle continuing and the Lord’s hand guiding us as we complete the gaps that remain. Then, “the Great Jehovah shall say the work is done,”[^7] and He will return in majesty and glory.
 
-President Thomas S. Monson has said: “Now is the time for members and missionaries to come together, to work together … to bring souls unto Him. … He will assist us in our labors if we will act in faith to fulfill His work.”[^8]
+President Thomas S. Monson has said: “Now is the time for members and missionaries to come together, to work together … to bring souls unto Him. … He will assist us in our labors if we will act in faith to fulfill His work.”[^8]
 
 The divinely appointed responsibility that once rested primarily upon the shoulders of full-time missionaries now rests upon us all. We all want to share the restored gospel, and gratefully, thousands are baptized each week. But even with this wonderful blessing, our concern for our brothers and sisters and our desire to please God bring a compelling urgency to share and strengthen the kingdom of God across the world.
 
@@ -90,7 +90,7 @@ It is not by chance that you live in Africa; Asia; Europe; North, Central, or So
 
 “The God of heaven \[has\] set up a kingdom, \[a stone cut out without hands, that has become a great mountain and is filling the whole earth,\] never \[to\] be destroyed … \[but to\] stand for ever.
 
-“… The dream is certain, and the interpretation … sure.”[^15]
+“… The dream is certain, and the interpretation … sure.”[^15]
 
 I close with words from the Doctrine and Covenants: “Call upon the Lord, that his kingdom may go forth upon the earth, that the inhabitants thereof may receive it, and be prepared for the days to come, in the which the Son of Man shall come down \[from\] heaven, clothed in the brightness of his glory, to meet the kingdom of God … on the earth.”[^16] In the name of Jesus Christ, amen.
 
@@ -105,13 +105,13 @@ I close with words from the Doctrine and Covenants: “Call upon the Lord, that 
 
 [^4]: [[Daniel 2.47|Daniel 2:47]].
 
-[^5]: See [[1 Nephi 14.12|1 Nephi 14:12–14]][[1 Nephi 14.13|]][[1 Nephi 14.14|]].
+[^5]: See [[1 Nephi 14.12|1 Nephi 14:12–14]][[1 Nephi 14.13|]][[1 Nephi 14.14|]].
 
 [^6]: [[D&C 65.2|Doctrine and Covenants 65:2]]; see also [[D&C 110.11|Doctrine and Covenants 110:11]].
 
-[^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 444; see also Boyd K. Packer, “[[2003 October - “The Standard of Truth Has Been Erected”.md|The Standard of Truth Has Been Erected]],” *Ensign* or *Liahona,* Nov. 2003, 27.
+[^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 444; see also Boyd K. Packer, “[[2003 October - “The Standard of Truth Has Been Erected”.md|The Standard of Truth Has Been Erected]],” *Ensign* or *Liahona,* Nov. 2003, 27.
 
-[^8]: Thomas S. Monson, “[[2013 October - Welcome to Conference.md|Welcome to Conference,]]” *Ensign* or *Liahona,* Nov. 2013, 4.
+[^8]: Thomas S. Monson, “[[2013 October - Welcome to Conference.md|Welcome to Conference,]]” *Ensign* or *Liahona,* Nov. 2013, 4.
 
 [^9]: [[Mosiah 18.9|Mosiah 18:9]].
 
@@ -119,7 +119,7 @@ I close with words from the Doctrine and Covenants: “Call upon the Lord, that 
 
 [^11]: A month ago I was in Santa Maria, Brazil. Brother João Grahl told me that, as a young man, he had attended church for two years, wanting to be baptized, but his father would not allow it. One day he told his sisters, who had the same desire, that they needed to get on their knees and pray that God would soften the heart of their father. They knelt in prayer and went to school.
 
-[^12]: “You succeed when you invite, regardless of how it turns out” (Clayton M. Christensen, *The Power of Everyday Missionaries* \[2012\], 23; see also everydaymissionaries.org).
+[^12]: “You succeed when you invite, regardless of how it turns out” (Clayton M. Christensen, *The Power of Everyday Missionaries* \[2012\], 23; see also everydaymissionaries.org).
 
 [^13]: [[Matthew 28.19|Matthew 28:19]].
 
@@ -129,6 +129,4 @@ I close with words from the Doctrine and Covenants: “Call upon the Lord, that 
 
 [^16]: [[D&C 65.5|Doctrine and Covenants 65:5]].
 
-
-
-#Conversion #House_Of_Israel #Missionary_Work
+#Conversion #HouseOfIsrael #MissionaryWork

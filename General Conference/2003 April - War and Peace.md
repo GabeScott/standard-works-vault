@@ -84,7 +84,7 @@ We know that some have died, and others may yet die in this hot and deadly conte
 
 “Let not your heart be troubled: ye believe in God, believe also in me.
 
-“In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you, … that where I am, there ye may be also. …
+“In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you, … that where I am, there ye may be also. …
 
 “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid” ([[John 14.1|John 14:1–3, 27]][[John 14.2|]][[John 14.3|]][[John 14.27|]]).
 
@@ -107,8 +107,6 @@ This life is but a chapter in the eternal plan of our Father. It is full of conf
 He has said, “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me” ([[D&C 19.23|D&C 19:23]]).
 
 And there, my brothers and sisters, we rest our faith. Regardless of the circumstances, we have the comfort and peace of Christ our Savior, our Redeemer, the living Son of the living God. I so testify in His holy name, even the name of Jesus Christ, amen.
-
-
 
 
 

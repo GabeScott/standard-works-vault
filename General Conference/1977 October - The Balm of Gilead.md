@@ -1,6 +1,6 @@
 # The Balm of Gilead
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -132,7 +132,7 @@ You may need a transfusion of spiritual strength to be able to do this. Then jus
 One of our sacred hymns carries this message:
 
 >Ere you left your room this morning,
->Did you think to pray? …
+>Did you think to pray? …
 >When your soul was full of sorrow,
 >Balm of Gilead did you borrow
 >At the gates of day?
@@ -179,8 +179,6 @@ Consider this:
 “I will not leave you comfortless: I will come to you.” ([[John 14.14|John 14:14–18]][[John 14.15|]][[John 14.16|]][[John 14.17|]][[John 14.18|]].)
 
 I bear witness of Him who is the Great Comforter and as one authorized to bear that witness testify that He lives. In the name of Jesus Christ, amen.
-
-
 
 
 

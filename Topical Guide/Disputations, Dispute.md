@@ -1,9 +1,8 @@
 # Disputations, Dispute
 
-
 *See also* [[Contention.md|Contention]]; [[Strife.md|Strife]]
 
-If there arise a matter ... of *controversy* within thy gates, [[Deuteronomy 17.8|Deuteronomy 17:8]].
+If there arise a matter … of *controversy* within thy gates, [[Deuteronomy 17.8|Deuteronomy 17:8]].
 
 men, between whom the *controversy* is, shall stand before the Lord, [[Deuteronomy 19.17|Deuteronomy 19:17]].
 
@@ -15,9 +14,9 @@ he that soweth *discord*, [[Proverbs 6.19|Proverbs 6:19]].
 
 they had *disputed* among themselves, [[Mark 9.34|Mark 9:34]].
 
-there arose certain ... *disputing* with Stephen, [[Acts 6.9|Acts 6:9]].
+there arose certain … *disputing* with Stephen, [[Acts 6.9|Acts 6:9]].
 
-he ... *disputed* against the Grecians, [[Acts 9.29|Acts 9:29]].
+he … *disputed* against the Grecians, [[Acts 9.29|Acts 9:29]].
 
 Paul and Barnabas had no small dissension and *disputation* with them, [[Acts 15.2|Acts 15:2]].
 
@@ -25,7 +24,7 @@ when there had been much *disputing*, Peter rose, [[Acts 15.7|Acts 15:7]].
 
 *disputed* he in the synagogue with the Jews, [[Acts 17.17|Acts 17:17]].
 
-spake ... three months, *disputing* and persuading, [[Acts 19.8|Acts 19:8]].
+spake … three months, *disputing* and persuading, [[Acts 19.8|Acts 19:8]].
 
 they neither found me in the temple *disputing*, [[Acts 24.12|Acts 24:12]].
 

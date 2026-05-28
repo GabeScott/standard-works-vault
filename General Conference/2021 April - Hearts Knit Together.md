@@ -1,6 +1,6 @@
 # Hearts Knit Together
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -42,7 +42,7 @@ In a secular world, bridges connecting science with gospel truths sometimes seem
 
 ## Hearts Knit Together
 
-When asked, “Master, which is the great commandment?” the Savior replied to “love the Lord thy God with all thy heart,” followed by, “Thou shalt love thy neighbour as thyself.”[^4] The Savior’s response reinforces our heavenly duty. An ancient prophet commanded “that there should be no contention one with another, but that \[we\] should look forward … , having \[our\] *hearts knit together* in unity and in love one towards another.”[^5] We are further taught that “power or influence … ought to be maintained … by gentleness and meekness, … by kindness, … without guile.”[^6]
+When asked, “Master, which is the great commandment?” the Savior replied to “love the Lord thy God with all thy heart,” followed by, “Thou shalt love thy neighbour as thyself.”[^4] The Savior’s response reinforces our heavenly duty. An ancient prophet commanded “that there should be no contention one with another, but that \[we\] should look forward … , having \[our\] *hearts knit together* in unity and in love one towards another.”[^5] We are further taught that “power or influence … ought to be maintained … by gentleness and meekness, … by kindness, … without guile.”[^6]
 
 I believe this principle has a universal application to all Latter-day Saints: adults, youth, and children.
 
@@ -50,7 +50,11 @@ With that in mind, let me speak directly to you who are Primary-age children for
 
 You already understand how important it is to be kind. The chorus of one of your Primary songs, “I’m Trying to Be like Jesus,” teaches:
 
-Love one another as Jesus loves you.Try to show kindness in all that you do.Be gentle and loving in deed and in thought,For these are the things Jesus taught.[^7]
+>Love one another as Jesus loves you.
+>Try to show kindness in all that you do.
+>Be gentle and loving in deed and in thought,
+>For these are the things Jesus taught.[^7]
+>
 
 Even still, you may sometimes have a hard time. Here is a story that might help you about a Primary boy named Minchan Kim from South Korea. His family joined the Church about six years ago.
 
@@ -68,7 +72,7 @@ Isn’t this a good example for you to try to become like Jesus?
 
 Now, for young men and young women, as you grow older, making fun of others can evolve very dangerously. Anxiety, depression, and worse are often the companions of bullying. “While bullying is not a new concept, social media and technology have brought bullying to a new level. It becomes a more constant, ever-present threat—cyberbullying.”[^9]
 
-Clearly, the adversary is using this to hurt your generation. There is no place for this in your cyberspace, neighborhoods, schools, quorums, or classes. Please do all you can to make these places kinder and safer. If you passively observe or participate in any of this, I know of no better advice than that previously given by Elder Dieter F. Uchtdorf:
+Clearly, the adversary is using this to hurt your generation. There is no place for this in your cyberspace, neighborhoods, schools, quorums, or classes. Please do all you can to make these places kinder and safer. If you passively observe or participate in any of this, I know of no better advice than that previously given by Elder Dieter F. Uchtdorf:
 
 “When it comes to hating, gossiping, ignoring, ridiculing, holding grudges, or wanting to cause harm, please apply the following:
 
@@ -78,7 +82,7 @@ Did you hear that? Stop it! As you extend yourself with kindness, care, and comp
 
 Having spoken to Primary children and youth, I now direct my remarks to adults of the Church. We have a primary responsibility to set a tone and be role models of kindness, inclusion, and civility—to teach Christlike behavior to the rising generation in what we say and how we act. It is especially important as we observe a marked societal shift toward division in politics, social class, and nearly every other man-made distinction.
 
-President M. Russell Ballard has also taught that Latter-day Saints must be kind not only to each other but also to everyone around us. He observed: “Occasionally I hear of members offending those of other faiths by overlooking them and leaving them out. This can occur especially in communities where our members are the majority. I have heard about narrow-minded parents who tell children that they cannot play with a particular child in the neighborhood simply because his or her family does not belong to our Church. This kind of behavior is not in keeping with the teachings of the Lord Jesus Christ. I cannot comprehend why any member of our Church would allow these kinds of things to happen. … I have never heard the members of this Church urged to be anything but loving, kind, tolerant, and benevolent to our friends and neighbors of other faiths.”[^11]
+President M. Russell Ballard has also taught that Latter-day Saints must be kind not only to each other but also to everyone around us. He observed: “Occasionally I hear of members offending those of other faiths by overlooking them and leaving them out. This can occur especially in communities where our members are the majority. I have heard about narrow-minded parents who tell children that they cannot play with a particular child in the neighborhood simply because his or her family does not belong to our Church. This kind of behavior is not in keeping with the teachings of the Lord Jesus Christ. I cannot comprehend why any member of our Church would allow these kinds of things to happen. … I have never heard the members of this Church urged to be anything but loving, kind, tolerant, and benevolent to our friends and neighbors of other faiths.”[^11]
 
 The Lord expects us to teach that inclusion is a positive means toward unity and that exclusion leads to division.
 
@@ -117,7 +121,7 @@ Of this I testify—and of Jesus Christ as our Savior and our Redeemer—in the 
 
 [^1]: See Kelli Harding, *The Rabbit Effect* (2019), xxiii–xxiv.
 
-[^2]: See Robert M. Nerem, Murina J. Levesque, and J. Frederick Cornhill, “Social Environment as a Factor in Diet-Induced Atherosclerosis,” *Science*, vol. 208, no. 4451 (June 27, 1980), 1475–76.
+[^2]: See Robert M. Nerem, Murina J. Levesque, and J. Frederick Cornhill, “Social Environment as a Factor in Diet-Induced Atherosclerosis,” *Science*, vol. 208, no. 4451 (June 27, 1980), 1475–76.
 
 [^3]: Harding, *The Rabbit Effect*, xxiv, xxv.
 
@@ -129,13 +133,13 @@ Of this I testify—and of Jesus Christ as our Savior and our Redeemer—in the 
 
 [^7]: “I’m Trying to Be like Jesus,” *Children’s Songbook*, 79.
 
-[^8]: Adapted from Minchan K., “[The Apology](https://churchofjesuschrist.org/study/friend/2020/01/the-apology?lang=eng),” *Friend*, Jan. 2020, 35.
+[^8]: Adapted from Minchan K., “[The Apology](https://www.churchofjesuschrist.org/study/friend/2020/01/the-apology?lang=eng),” *Friend*, Jan. 2020, 35.
 
 [^9]: Frances Dalomba, “Social Media: The Good, the Bad, and the Ugly,” Lifespan, lifespan.org.
 
-[^10]: Dieter F. Uchtdorf, “[[2012 April - The Merciful Obtain Mercy.md|The Merciful Obtain Mercy]],” *Ensign* or *Liahona*, May 2012, 75.
+[^10]: Dieter F. Uchtdorf, “[[2012 April - The Merciful Obtain Mercy.md|The Merciful Obtain Mercy]],” *Ensign* or *Liahona*, May 2012, 75.
 
-[^11]: M. Russell Ballard, “[[2001 October - Doctrine of Inclusion.md|Doctrine of Inclusion]],” *Ensign*, Nov. 2001, 36–37; *Liahona*, Jan. 2002, 41.
+[^11]: M. Russell Ballard, “[[2001 October - Doctrine of Inclusion.md|Doctrine of Inclusion]],” *Ensign*, Nov. 2001, 36–37; *Liahona*, Jan. 2002, 41.
 
 [^12]: [[Luke 6.27|Luke 6:27–28]][[Luke 6.28|]].
 
@@ -143,17 +147,18 @@ Of this I testify—and of Jesus Christ as our Savior and our Redeemer—in the 
 
 [^14]: Wandle Mace autobiography, 33; spelling and capitalization standardized.
 
-[^15]: See Richard E. Bennett, “‘Quincy—the Home of Our Adoption’: A Study of the Mormons in Quincy, Illinois, 1838–40,” *Mormon Historical Studies*, vol. 2, no. 1 (Spring 2001), 110–11.
+[^15]: See Richard E. Bennett, “‘Quincy—the Home of Our Adoption’: A Study of the Mormons in Quincy, Illinois, 1838–40,” *Mormon Historical Studies*, vol. 2, no. 1 (Spring 2001), 110–11.
 
-[^16]: See Susan Easton Black, “Quincy–A City of Refuge,” *Mormon Historical Studies*, vol. 2, no. 1 (Spring 2001), 83–94.
+[^16]: See Susan Easton Black, “Quincy–A City of Refuge,” *Mormon Historical Studies*, vol. 2, no. 1 (Spring 2001), 83–94.
 
 [^17]: [[D&C 78.18|Doctrine and Covenants 78:18]].
 
-[^18]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^18]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
-[^19]: See James E. Talmage, *Jesus the Christ* (1916), 417.
+[^19]: See James E. Talmage, *Jesus the Christ* (1916), 417.
 
 [^20]: [[John 10.14|John 10:14, 15]][[John 10.15|]].
 
+[^21]: [[Psalms 23.1|Psalm 23:1]].
 
-#Adversity #Bullying #Compassion #Jesus_Christ #Kindness #Love #Unity
+#Adversity #Bullying #Compassion #JesusChrist #Kindness #Love #Unity

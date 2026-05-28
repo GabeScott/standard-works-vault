@@ -40,7 +40,7 @@ As we left the classroom, there was a good feeling among the brethren. I heard o
 
 Now these principles taught to us in the organization of a quorum apply not only to a quorum, but the same principles apply to the priesthood leadership in the home. We are under divine command to “bring up \[our\] children in light and truth.”[^6] If fathers do not raise their children in light and truth, then the Lord is displeased with them. This is the message:
 
-“But verily I say unto you, my servant … , you have continued under … condemnation;
+“But verily I say unto you, my servant … , you have continued under … condemnation;
 
 “You have not taught your children light and truth, according to the commandments; and that wicked one hath power, as yet, over you, and this is the cause of your affliction.
 
@@ -116,7 +116,5 @@ May the Lord bless us, as members of His Church, that we may realize what a bles
 [^12]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 130.
 
 [^13]: [[D&C 107.99|D&C 107:99–100]][[D&C 107.100|]].
-
-
 
 #Fatherhood #Leadership #Marriage #Priesthood

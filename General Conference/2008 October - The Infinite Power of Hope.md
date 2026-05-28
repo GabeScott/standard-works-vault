@@ -127,7 +127,7 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 [^10]: See [[Proverbs 10.28|Proverbs 10:28]].
 
-[^11]: See [[1 Thessalonians 5.8|1 Thessalonians 5:8]].
+[^11]: See [[1 Thessalonians 5.8|1 Thessalonians 5:8]].
 
 [^12]: See [[Hebrews 11.1|Hebrews 11:1]]; [[Moroni 7.40|Moroni 7:40]].
 
@@ -135,7 +135,7 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 [^14]: See [[Ether 12.32|Ether 12:32]]; see also [[Romans 8.24|Romans 8:24]].
 
-[^15]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^15]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^16]: See [[Jeremiah 17.13|Jeremiah 17:13]].
 
@@ -145,7 +145,7 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 [^19]: [[Alma 34.41|Alma 34:41]].
 
-[^20]: [[1 Peter 1.3|1 Peter 1:3]].
+[^20]: [[1 Peter 1.3|1 Peter 1:3]].
 
 [^21]: See [[Psalms 146.5|Psalm 146:5]].
 
@@ -153,11 +153,11 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 [^23]: See [[Alma 11.45|Alma 11:45]].
 
-[^24]: See [[2 Nephi 2.6|2 Nephi 2:6–10]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]].
+[^24]: See [[2 Nephi 2.6|2 Nephi 2:6–10]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]].
 
 [^25]: See [[Hebrews 5.9|Hebrews 5:9]].
 
-[^26]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^26]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 [^27]: [[D&C 90.24|D&C 90:24]].
 
@@ -183,14 +183,12 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 [^38]: [[Joel 3.16|Joel 3:16]].
 
-[^39]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^39]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^40]: [[1 John 3.3|1 John 3:3]].
+[^40]: [[1 John 3.3|1 John 3:3]].
 
 [^41]: [[D&C 6.34|D&C 6:34]].
 
 [^42]: See [[Mormon 6.17|Mormon 6:17]].
-
-
 
 #Charity #Faith #Hope

@@ -64,7 +64,7 @@ Describing the promptings from the Holy Ghost to one who has not had them is ver
 
 ## Still, Small Voice
 
-The Holy Ghost speaks with a voice that you *feel* more than you *hear.* It is described as a “still small voice.”[^14] And while we speak of “listening” to the whisperings of the Spirit, most often one describes a spiritual prompting by saying, “I had a *feeling* …”
+The Holy Ghost speaks with a voice that you *feel* more than you *hear.* It is described as a “still small voice.”[^14] And while we speak of “listening” to the whisperings of the Spirit, most often one describes a spiritual prompting by saying, “I had a *feeling* …”
 
 The Prophet Joseph Smith explained: “A person may profit by noticing the first intimation of the spirit of revelation; for instance, when you feel pure intelligence flowing into you, it may give you sudden strokes of ideas, so that by noticing it, you may find it fulfilled the same day or soon; … those things that were presented unto your minds by the Spirit of God, will come to pass; and thus by learning the Spirit of God and understanding it, you may grow into the principle of revelation, until you become perfect in Christ Jesus.”[^15]
 
@@ -171,11 +171,11 @@ I bear witness of the power of the Spirit and thank God that this incomparable g
 
 
 
-[^1]: [[2 Timothy 3.1|2 Tim. 3:1]].
+[^1]: [[2 Timothy 3.1|2 Tim. 3:1]].
 
 [^2]: [[Job 32.9|Job 32:9]].
 
-[^3]: [[2 Timothy 3.7|2 Tim. 3:7]].
+[^3]: [[2 Timothy 3.7|2 Tim. 3:7]].
 
 [^4]: [[Job 32.8|Job 32:8]].
 
@@ -183,11 +183,11 @@ I bear witness of the power of the Spirit and thank God that this incomparable g
 
 [^6]: [[D&C 121.46|D&C 121:46]].
 
-[^7]: [[Moroni 10.5|Moro. 10:5]]; see also [[2 Nephi 32.5|2 Ne. 32:5]].
+[^7]: [[Moroni 10.5|Moro. 10:5]]; see also [[2 Nephi 32.5|2 Ne. 32:5]].
 
-[^8]: [[2 Nephi 32.3|2 Ne. 32:3]].
+[^8]: [[2 Nephi 32.3|2 Ne. 32:3]].
 
-[^9]: [[2 Nephi 31.13|2 Ne. 31:13]]; [[2 Nephi 32.2|32:2]].
+[^9]: [[2 Nephi 31.13|2 Ne. 31:13]]; [[2 Nephi 32.2|32:2]].
 
 [^10]: [[Alma 10.6|Alma 10:6]].
 
@@ -195,13 +195,13 @@ I bear witness of the power of the Spirit and thank God that this incomparable g
 
 [^12]: [[D&C 9.7|D&C 9:7–8]][[D&C 9.8|]]; emphasis added.
 
-[^13]: See [[1 Nephi 14.28|1 Ne. 14:28–30]][[1 Nephi 14.29|]][[1 Nephi 14.30|]]; [[2 Nephi 32.7|2 Ne. 32:7]]; [[Alma 12.9|Alma 12:9–11]][[Alma 12.10|]][[Alma 12.11|]].
+[^13]: See [[1 Nephi 14.28|1 Ne. 14:28–30]][[1 Nephi 14.29|]][[1 Nephi 14.30|]]; [[2 Nephi 32.7|2 Ne. 32:7]]; [[Alma 12.9|Alma 12:9–11]][[Alma 12.10|]][[Alma 12.11|]].
 
 [^14]: [[D&C 85.6|D&C 85:6]].
 
-[^15]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 151.
+[^15]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 151.
 
-[^16]: [[1 Nephi 17.45|1 Ne. 17:45]]; emphasis added.
+[^16]: [[1 Nephi 17.45|1 Ne. 17:45]]; emphasis added.
 
 [^17]: [[D&C 110.1|D&C 110:1]].
 
@@ -213,9 +213,9 @@ I bear witness of the power of the Spirit and thank God that this incomparable g
 
 [^21]: [[Enos 1.10|Enos 1:10]].
 
-[^22]: In Conference Report, Apr. 1964, p. 124; or *Improvement Era,* June 1964, p. 506.
+[^22]: In Conference Report, Apr. 1964, p. 124; or *Improvement Era,* June 1964, p. 506.
 
-[^23]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), p. 457.
+[^23]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), p. 457.
 
 [^24]: See [[Alma 32.27|Alma 32:27–28, 38]][[Alma 32.28|]][[Alma 32.38|]].
 
@@ -237,18 +237,16 @@ I bear witness of the power of the Spirit and thank God that this incomparable g
 
 [^33]: [[Moroni 7.17|Moro. 7:17]].
 
-[^34]: *Teachings of the Prophet Joseph Smith,* p. 205.
+[^34]: *Teachings of the Prophet Joseph Smith,* p. 205.
 
 [^35]: See [[D&C 43.25|D&C 43:25]].
 
 [^36]: [[D&C 1.38|D&C 1:38]].
 
-[^37]: *Teachings of the Prophet Joseph Smith,* p. 21.
+[^37]: *Teachings of the Prophet Joseph Smith,* p. 21.
 
-[^38]: [[1 Nephi 4.6|1 Ne. 4:6]].
+[^38]: [[1 Nephi 4.6|1 Ne. 4:6]].
 
 [^39]: [[John 14.15|John 14:15–18]][[John 14.16|]][[John 14.17|]][[John 14.18|]].
 
-
-
-#Education #Faith #Holy_Ghost #Prayer #Reverence #Spirituality #Word_Of_Wisdom
+#Education #Faith #HolyGhost #Prayer #Reverence #Spirituality #WordOfWisdom

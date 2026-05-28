@@ -36,7 +36,7 @@ A few months later, I married Elaine. She is the love of my life and a choice bl
 
 I am not suggesting that everyone should make a similar list, but I am suggesting—maybe more than suggesting—that we always act when our living prophets speak.
 
-God’s prophet today is President Thomas S. Monson, and we will be blessed by following his counsel with exactness.
+God’s prophet today is President Thomas S. Monson, and we will be blessed by following his counsel with exactness.
 
 ## The Knowledge of the True Nature of God
 
@@ -69,9 +69,9 @@ May we all continue to act upon these essential truths and knowledge, offering o
 
 [^3]: See [[Amos 3.7|Amos 3:7]].
 
-[^4]: See, for example, regarding *instruct:* [[Matthew 28.20|Matthew 28:20]]; [[2 Nephi 9.48|2 Nephi 9:48]]; *guide: Teachings of Presidents of the Church: Gordon B. Hinckley* (2016), 262–63; *warn:* [[Ezekiel 3.17|Ezekiel 3:17]]; *lead:* [[D&C 124.45|Doctrine and Covenants 124:45]].
+[^4]: See, for example, regarding *instruct:* [[Matthew 28.20|Matthew 28:20]]; [[2 Nephi 9.48|2 Nephi 9:48]]; *guide: [Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-19-priesthood-leadership-in-the-church-of-jesus-christ?lang=eng)* (2016), 262–63; *warn:* [[Ezekiel 3.17|Ezekiel 3:17]]; *lead:* [[D&C 124.45|Doctrine and Covenants 124:45]].
 
-[^5]: See [[2 Nephi 3.18|2 Nephi 3:18]].
+[^5]: See [[2 Nephi 3.18|2 Nephi 3:18]].
 
 [^6]: See [[Ezekiel 3.4|Ezekiel 3:4]]; [[Luke 1.70|Luke 1:70]]; [[Acts 3.21|Acts 3:21]]; [[D&C 1.38|Doctrine and Covenants 1:38]].
 
@@ -85,10 +85,8 @@ May we all continue to act upon these essential truths and knowledge, offering o
 
 [^11]: See [[D&C 1.1|Doctrine and Covenants 1:1]].
 
-[^12]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Helaman 14.30|Helaman 14:30]]; [[D&C 58.28|Doctrine and Covenants 58:28]].
+[^12]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Helaman 14.30|Helaman 14:30]]; [[D&C 58.28|Doctrine and Covenants 58:28]].
 
-[^13]: [[2 Nephi 9.10|2 Nephi 9:10]].
+[^13]: [[2 Nephi 9.10|2 Nephi 9:10]].
 
-
-
-#Conversion #Family #God_The_Father #Jesus_Christ #Joseph_Smith #Plan_Of_Salvation #Prophets
+#Conversion #Family #GodTheFather #JosephSmith #JesusChrist #PlanOfSalvation #Prophets

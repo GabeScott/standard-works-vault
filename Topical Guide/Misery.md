@@ -1,6 +1,5 @@
 # Misery
 
-
 *See also* [[Anguish.md|Anguish]]; [[Distress.md|Distress]]; [[Grief.md|Grief]]; [[Sorrow.md|Sorrow]]
 
 light given to him that is in *misery*, [[Job 3.20|Job 3:20]].
@@ -17,7 +16,7 @@ having no joy, for they knew no *misery*, [[2 Nephi 2.23|2 Nephi 2:23]].
 
 to remain with the father of lies, in *misery*, [[2 Nephi 9.9|2 Nephi 9:9]].
 
-shrink ... into a state of *misery* and endless torment, [[Mosiah 3.25|Mosiah 3:25]].
+shrink … into a state of *misery* and endless torment, [[Mosiah 3.25|Mosiah 3:25]].
 
 The man has brought upon himself his *misery*, [[Mosiah 4.17|Mosiah 4:17]].
 
@@ -31,6 +30,6 @@ that *misery* which never dies, [[Mormon 8.38|Mormon 8:38]].
 
 *misery* thereof, they understand not, [[D&C 76.48|D&C 76:48]].
 
-wars that will shortly come to pass ... will eventually terminate in the death and *misery* of many souls, [[D&C 87.1|D&C 87:1]].
+wars that will shortly come to pass … will eventually terminate in the death and *misery* of many souls, [[D&C 87.1|D&C 87:1]].
 
-Adam fell ... we are made partakers of *misery* and woe, [[Moses 6.48|Moses 6:48]].
+Adam fell … we are made partakers of *misery* and woe, [[Moses 6.48|Moses 6:48]].

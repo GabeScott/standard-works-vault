@@ -1,6 +1,5 @@
 # Compass
 
-
 *compassed* this mountain long enough, [[Deuteronomy 2.3|Deuteronomy 2:3]].
 
 seventh day ye shall *compass* the city, [[Joshua 6.4|Joshua 6:4]].

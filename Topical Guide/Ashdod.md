@@ -1,4 +1,3 @@
 # Ashdod
 
-
-*See* [BD Ashdod](https://www.churchofjesuschrist.org/study/scriptures/bd/ashdod?lang=eng)
+*See also* [[BD Ashdod.md|BD Ashdod]]

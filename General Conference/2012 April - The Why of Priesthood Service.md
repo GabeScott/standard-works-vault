@@ -1,6 +1,6 @@
 # The Why of Priesthood Service
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -52,13 +52,13 @@ The *what* informs, but the *why* transforms.
 
 ## An Abundance of “Good” Things to Do
 
-Another priesthood calling that I have been thinking about came to me many years later, when I had my own family. We had moved back to Frankfurt, Germany, and I had just received a promotion at work that would require a great deal of my time and attention. During this busy season of my life, Elder Joseph B. Wirthlin extended a call to me to serve as stake president.
+Another priesthood calling that I have been thinking about came to me many years later, when I had my own family. We had moved back to Frankfurt, Germany, and I had just received a promotion at work that would require a great deal of my time and attention. During this busy season of my life, Elder Joseph B. Wirthlin extended a call to me to serve as stake president.
 
 During my interview with him, many thoughts raced through my mind, not the least of which was the unsettling worry that I might not have the time this calling would require. Although I felt humbled and honored by the call, I briefly wondered if I could accept it. But it was only a fleeting thought because I knew that Elder Wirthlin was called of God and that he was doing the Lord’s work. What could I do but accept?
 
 There are times when we have to step into the darkness in faith, confident that God will place solid ground beneath our feet once we do. And so I accepted gladly, knowing that God would provide.
 
-In the early days of this assignment, we were privileged as a stake to receive training from some of the greatest teachers and leaders in the Church—men like Elder Russell M. Nelson and President Thomas S. Monson came to our area. Their teaching was like the dew from heaven and an inspiration for us. I still have the notes I took during these training sessions. These Brethren gave us the *vision* of what it means to establish the kingdom of God by building personal testimonies and strengthening families. They helped us see how to apply gospel truth and principles to our specific circumstances and for our specific time. To put it another way, inspired leaders helped us to see the *why* of the gospel, and then we had to roll up our sleeves and go to work.
+In the early days of this assignment, we were privileged as a stake to receive training from some of the greatest teachers and leaders in the Church—men like Elder Russell M. Nelson and President Thomas S. Monson came to our area. Their teaching was like the dew from heaven and an inspiration for us. I still have the notes I took during these training sessions. These Brethren gave us the *vision* of what it means to establish the kingdom of God by building personal testimonies and strengthening families. They helped us see how to apply gospel truth and principles to our specific circumstances and for our specific time. To put it another way, inspired leaders helped us to see the *why* of the gospel, and then we had to roll up our sleeves and go to work.
 
 It wasn’t long before we realized that there were a lot of things a stake presidency could do—so many, in fact, that if we didn’t set inspired priorities, we might miss doing the important ones. Competing priorities began to arise, deflecting our focus from the vision shared by the Brethren. There were many “good” things to do, but not all of them mattered most.
 
@@ -119,7 +119,7 @@ As we do so, the infinite power of the Atonement will purify, cleanse, and refin
 
 [^1]: [[Matthew 7.18|Matthew 7:18]].
 
-[^2]: Thomas S. Monson, “To Learn, to Do, to Be,” *Liahona* and *Ensign,* Nov. 2008, 62.
+[^2]: Thomas S. Monson, “To Learn, to Do, to Be,” *Liahona* and *Ensign,* Nov. 2008, 62.
 
 [^3]: [[D&C 84.88|Doctrine and Covenants 84:88]].
 
@@ -131,6 +131,4 @@ As we do so, the infinite power of the Atonement will purify, cleanse, and refin
 
 [^7]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-#Church_Callings #Leadership #Priesthood #Service
+#ChurchCallings #Leadership #Priesthood #Service

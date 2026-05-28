@@ -1,6 +1,6 @@
 # Thou Shalt Not
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -44,7 +44,7 @@ We know that the destructive permissiveness of our present day causes some of ou
 
 These sixty-seven words can be read in less than thirty seconds, and yet if they were followed, they would quickly transform our earth into God’s paradise. But we not only disobey these important laws; many people don’t even know what they are. One man once said to his friend, “I will give you five dollars if you can repeat any one of the Ten Commandments.” His friend accepted the challenge and proceeded to demonstrate his knowledge by saying, “Now I lay me down to sleep. I pray the Lord my soul to keep. If I should die before I wake, I pray the Lord my soul to take.” His friend said, “Here’s the money. I didn’t think that you could do it.”
 
-But because we are breaking the Ten Commandments, the Ten Commandments are also breaking us. We are fulfilling the prophecy of Ezekiel, who said: “… the soul that sinneth, it shall die.” ([[Ezekiel 18.4|Ezek. 18:4]].) Sin is more than ordinarily important, for as Martin Luther once said, “One vice can overcome ten virtues.”
+But because we are breaking the Ten Commandments, the Ten Commandments are also breaking us. We are fulfilling the prophecy of Ezekiel, who said: “… the soul that sinneth, it shall die.” ([[Ezekiel 18.4|Ezek. 18:4]].) Sin is more than ordinarily important, for as Martin Luther once said, “One vice can overcome ten virtues.”
 
 A banker may be able to cancel off one liability with an asset of equal size, but you can’t do that in the more important accounting of life, as several great virtues can all be made unusable by one vice. Recently, three men were being discussed for an important assignment. Of one it was said, “He is a hard worker and he knows his business, *but* he is dishonest.” Of the second it was said, “He is strictly honest and very capable, *but* he won’t work.” Of the third it was said, “He is very capable and well liked, *but* he is immoral.” And while praise is wonderful, yet when the account gets around to the *buts,* everyone had better pay strict attention. You can’t cancel off a little immorality with a little industry, or a little dishonesty with a little ability, or a little atheism with a few good intentions.
 
@@ -61,8 +61,6 @@ If the people who failed to pay their tithing were robbing God then, and we are 
 God himself has said that he cannot look upon sin with the least degree of allowance, and that no sin is ever permitted in his presence. And when we assume wrong attitudes, set bad examples, or do wrong things, we are thwarting his purposes. We are violating that great command that says “Thou shalt not bear false witness” when we claim to be the children of God and then go around acting like orphans, sinners, cowards, and weaklings.
 
 Because of our birthright, our intelligence, our covenants, and our assignments, we are all special witnesses for God and have some very important things that we *should* do. God is our eternal Heavenly Father. We are all his representatives in that greatest of all family enterprises which Jesus referred to as “my Father’s business.” That is the business of building integrity, character, and eternal life into the lives of his children. And one of the things that we should very frequently do is to go in the strength of the Spirit and again stand before Mount Sinai while we take stock of those things that God himself has placed out of bounds. And the emphasis of a little table pounding will help us to more securely make up our minds to eliminate those things that must *not* be done under any circumstances. And may God help us so to do, I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

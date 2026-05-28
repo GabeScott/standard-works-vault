@@ -1,6 +1,5 @@
 # Suffer
 
-
 *See also* [[Suffering.md|Suffering]]
 
 will not *suffer* the destroyer to come, [[Exodus 12.23|Exodus 12:23]].
@@ -11,7 +10,7 @@ proud heart will not I *suffer*, [[Psalms 101.5|Psalms 101:5]].
 
 *Suffer* it to be so now, [[Matthew 3.15|Matthew 3:15]].
 
-*Suffer* little children ... to come unto me, [[Matthew 19.14|Matthew 19:14]] ([[Mark 10.14|Mark 10:14]]; [[Luke 18.16|Luke 18:16]]).
+*Suffer* little children … to come unto me, [[Matthew 19.14|Matthew 19:14]] ([[Mark 10.14|Mark 10:14]]; [[Luke 18.16|Luke 18:16]]).
 
 *suffered* not the devils to speak, [[Mark 1.34|Mark 1:34]].
 

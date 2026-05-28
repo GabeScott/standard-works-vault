@@ -1,6 +1,6 @@
 # Christ the Lord Is Risen Today
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 Dear brothers and sisters, when our sons were very young, I told them bedtime stories about beagle puppies and hummed bedtime hymns, including “Christ the Lord Is Risen Today.”[^1] Sometimes I playfully changed the words: Now it’s time to go to sleep—hallelujah. Usually our sons fell asleep quickly; or at least they knew if I thought they were asleep, I would stop singing.
 
-Words—at least my words—cannot express the overwhelming feelings since President Russell M. Nelson lovingly took my hands in his, my dear Susan at my side, and extended this sacred call from the Lord that took my breath away and has left me weeping many times these past days.
+Words—at least my words—cannot express the overwhelming feelings since President Russell M. Nelson lovingly took my hands in his, my dear Susan at my side, and extended this sacred call from the Lord that took my breath away and has left me weeping many times these past days.
 
 This Easter Sabbath, I joyfully sing, “Alleluia.” The song of our risen Savior’s redeeming love[^2] celebrates the harmony of covenants (that connect us to God and to each other) and the Atonement of Jesus Christ (that helps us put off the natural man and woman and yield to the enticings of the Holy Spirit).[^3]
 
@@ -28,7 +28,7 @@ This day I humbly pledge all the energies and faculties of my soul,[^8] whatever
 
 Everything worthy and eternal is centered in the living reality of God, our loving Eternal Father, and His Son, Jesus Christ, and His Atonement, witnessed by the Holy Ghost.[^9] This is Easter Sunday. I reverently witness and solemnly testify of the living Christ—He who “died, was buried, and rose again the third day, and ascended into heaven.”[^10] He is Alpha and Omega[^11]—with us in the beginning, He is with us to the end.
 
-I testify of latter-day prophets, from the Prophet Joseph Smith to our dear President Russell M. Nelson, whom we joyfully sustain. As our Primary children sing, “Follow the prophet; he knows the way.”[^12] I witness that, as prophesied in the holy scriptures, including in the Book of Mormon: Another Testament of Jesus Christ, “the Lord’s kingdom \[is\] once again established on the earth, preparatory to the Second Coming of the Messiah.”[^13] In the holy and sacred name of Jesus Christ, amen.
+I testify of latter-day prophets, from the Prophet Joseph Smith to our dear President Russell M. Nelson, whom we joyfully sustain. As our Primary children sing, “Follow the prophet; he knows the way.”[^12] I witness that, as prophesied in the holy scriptures, including in the Book of Mormon: Another Testament of Jesus Christ, “the Lord’s kingdom \[is\] once again established on the earth, preparatory to the Second Coming of the Messiah.”[^13] In the holy and sacred name of Jesus Christ, amen.
 
 
 
@@ -47,11 +47,11 @@ I testify of latter-day prophets, from the Prophet Joseph Smith to our dear Pres
 
 [^7]: [[John 1.39|John 1:39]].
 
-[^8]: See [[1 Nephi 15.25|1 Nephi 15:25]].
+[^8]: See [[1 Nephi 15.25|1 Nephi 15:25]].
 
-[^9]: “Ye have received the Holy Ghost, which witnesses of the Father and the Son, unto the fulfilling of the promise which he hath made, that if ye entered in by the way ye should receive” ([[2 Nephi 31.18|2 Nephi 31:18]]).
+[^9]: “Ye have received the Holy Ghost, which witnesses of the Father and the Son, unto the fulfilling of the promise which he hath made, that if ye entered in by the way ye should receive” ([[2 Nephi 31.18|2 Nephi 31:18]]).
 
-[^10]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49.
+[^10]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng)* (2007), 49.
 
 [^11]: See [[D&C 19.1|Doctrine and Covenants 19:1]].
 
@@ -59,6 +59,4 @@ I testify of latter-day prophets, from the Prophet Joseph Smith to our dear Pres
 
 [^13]: Introduction to the Book of Mormon.
 
-
-
-#Atonement #Covenants #Easter #Jesus_Christ
+#Atonement #Covenants #Easter #JesusChrist

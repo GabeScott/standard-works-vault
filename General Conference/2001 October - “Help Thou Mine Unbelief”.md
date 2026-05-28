@@ -59,17 +59,17 @@ I know that the Savior lives and that He helps our unbelief. In the name of Jesu
 
 [^3]: [[D&C 10.5|D&C 10:5]].
 
-[^4]: See [[Articles of Faith 1.4|A of F 1:4]]; Bible Dictionary, “[Faith](https://churchofjesuschrist.org/study/scriptures/bd/faith?lang=eng),” 669–70.
+[^4]: See [[Articles of Faith 1.4|A of F 1:4]]; Bible Dictionary, “[[BD Faith|Faith]],” 669–70.
 
 [^5]: [[Alma 32.21|Alma 32:21]]; see also [[Hebrews 11.1|Heb. 11:1]]; [[Ether 12.6|Ether 12:6]].
 
-[^6]: Bible Dictionary, 670.
+[^6]: Bible Dictionary, [[BD Faith|670]].
 
 [^7]: *Gospel Principles* (1997), 118.
 
-[^8]: See [[Romans 10.17|Rom. 10:17]]; [[Moroni 10.11|Moro. 10:11]]; Bible Dictionary, [669](https://churchofjesuschrist.org/study/scriptures/bd/faith?lang=eng).
+[^8]: See [[Romans 10.17|Rom. 10:17]]; [[Moroni 10.11|Moro. 10:11]]; Bible Dictionary, [[BD Faith|669]].
 
-[^9]: See Bible Dictionary, 669–70.
+[^9]: See Bible Dictionary, [[BD Faith|669–70]].
 
 [^10]: [[Luke 1.31|Luke 1:31–32, 38]][[Luke 1.32|]][[Luke 1.38|]].
 
@@ -79,13 +79,13 @@ I know that the Savior lives and that He helps our unbelief. In the name of Jesu
 
 [^13]: [[Joseph Smith History 1.48|JS—H 1:48–50]][[Joseph Smith History 1.49|]][[Joseph Smith History 1.50|]].
 
-[^14]: See [[1 Nephi 3.7|1 Ne. 3:7]].
+[^14]: See [[1 Nephi 3.7|1 Ne. 3:7]].
 
 [^15]: [[D&C 123.17|D&C 123:17]].
 
 [^16]: [[Matthew 17.21|Matt. 17:21]]; see also [[Mark 9.29|Mark 9:29]].
 
-[^17]: See Bible Dictionary, 669.
+[^17]: See Bible Dictionary, [[BD Faith|669]].
 
 [^18]: [[D&C 27.17|D&C 27:17]].
 
@@ -95,6 +95,4 @@ I know that the Savior lives and that He helps our unbelief. In the name of Jesu
 
 [^21]: [[Helaman 3.35|Hel. 3:35]].
 
-
-
-#Agency #Example #Faith #Fasting #Hope #Jesus_Christ #Obedience #Prayer #Satan #Scripture_Study #Service #Spirituality
+#Agency #Example #Faith #Fasting #Hope #JesusChrist #Obedience #Prayer #Satan #ScriptureStudy #Service #Spirituality

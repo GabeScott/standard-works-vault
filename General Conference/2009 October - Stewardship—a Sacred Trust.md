@@ -20,7 +20,7 @@ This feeling of accountability, which is encompassed by the first great commandm
 
 The War in Heaven was fought after Satan said that he would force everyone to obey his ideas. That was rejected. As a result, we have our moral agency and the freedom to choose our course in this life. But we also are accountable for that agency. The Lord has said we will be “accountable for \[our\] own sins in the day of judgment.”[^4] The principles of accountability and stewardship have great significance in our doctrine.[^5]
 
-In the Church, stewardship is *not* limited to a *temporal* trust or responsibility. President Spencer W. Kimball taught: “We are stewards over our bodies, minds, families, and properties. … A faithful steward is one who exercises righteous dominion, cares for his own, and looks to the poor and needy.”[^6]
+In the Church, stewardship is *not* limited to a *temporal* trust or responsibility. President Spencer W. Kimball taught: “We are stewards over our bodies, minds, families, and properties. … A faithful steward is one who exercises righteous dominion, cares for his own, and looks to the poor and needy.”[^6]
 
 While there are many areas of stewardship, I have chosen to address two. The first is stewardship of ourselves and our families. The second is stewardship for the poor and needy.
 
@@ -54,7 +54,7 @@ I can remember when I was called as a bishop, my predecessor, Bishop Russell Joh
 
 One Saturday another sister called me and said, “Bishop, come quick! Save Sarah!” This sister reported that 80-year-old Sarah was on top of a ladder cleaning out this neighbor’s rain gutters. This sister was terrified that Sarah would fall and wanted the bishop to intervene.
 
-I am not suggesting that everyone can or should imitate Sarah. Some feel guilty because they cannot meet every need immediately. I love the quote Elder Neal A. Maxwell often used from Anne Morrow Lindbergh: “My life cannot implement in action the demands of all the people to whom my heart responds.”[^18] King Benjamin taught, “See that all these things are done in wisdom and order; for it is not requisite that a man should run faster than he has strength.” But he added that we should be diligent.[^19]
+I am not suggesting that everyone can or should imitate Sarah. Some feel guilty because they cannot meet every need immediately. I love the quote Elder Neal A. Maxwell often used from Anne Morrow Lindbergh: “My life cannot implement in action the demands of all the people to whom my heart responds.”[^18] King Benjamin taught, “See that all these things are done in wisdom and order; for it is not requisite that a man should run faster than he has strength.” But he added that we should be diligent.[^19]
 
 My heart rejoices as I observe the Saints all over the Church doing everything they can to provide Christlike service wherever there is a need. Because of member contributions, the Church can quietly and quickly, without fanfare, respond to needs all over the world.[^20] The Church is already responding to the natural disasters in the Philippines, the Pacific Islands, and Indonesia.
 
@@ -77,13 +77,13 @@ I bear my witness of this sacred truth in the name of Jesus Christ, amen.
 
 [^2]: “The Talmud is the repository of thousands of years of Jewish wisdom, and the oral law … finds expression therein” (Adin Steinsaltz, *The Essential Talmud* \[2006\], 4).
 
-[^3]: John Fletcher Moulton, quoted in Clayton M. Christensen, “The Importance of Asking the Right Questions” (speech given at Southern New Hampshire University commencement, May 16, 2009), 3; see also [[Deuteronomy 6.4|Deuteronomy 6:4–7]][[Deuteronomy 6.5|]][[Deuteronomy 6.6|]][[Deuteronomy 6.7|]].
+[^3]: John Fletcher Moulton, quoted in Clayton M. Christensen, “The Importance of Asking the Right Questions” (speech given at Southern New Hampshire University commencement, May 16, 2009), 3; see also [[Deuteronomy 6.4|Deuteronomy 6:4–7]][[Deuteronomy 6.5|]][[Deuteronomy 6.6|]][[Deuteronomy 6.7|]].
 
 [^4]: [[D&C 101.78|D&C 101:78]].
 
 [^5]: See [[D&C 20.71|D&C 20:71]]. All who are accountable should repent and be baptized (see [[D&C 18.42|D&C 18:42]]). Those who die before the age of accountability are saved in the celestial kingdom (see [[D&C 137.10|D&C 137:10]]; see also [[D&C 29.46|D&C 29:46–47, 50]][[D&C 29.47|]][[D&C 29.50|]]).
 
-[^6]: Spencer W. Kimball, in Conference Report, Oct. 1977, 124–25; or *Ensign,* Nov. 1977, 78.
+[^6]: Spencer W. Kimball, in Conference Report, Oct. 1977, [[1977 October - Welfare Services - The Gospel in Action.md|124–25]]; or *Ensign,* Nov. 1977, 78.
 
 [^7]: See Gregory Katz, “U.K. Health Booklet’s Message: Teen Sex Can Be Fun,” *Deseret News,* July 15, 2009, A9.
 
@@ -91,31 +91,32 @@ I bear my witness of this sacred truth in the name of Jesus Christ, amen.
 
 [^9]: “Talk,” in Collected Poems of John Holmes, http://hdl.handle.net/10427/14894.
 
-[^10]: See [[D&C 20.37|D&C 20:37]]; [[2 Nephi 2.7|2 Nephi 2:7]]; [[Alma 39.1|Alma 39]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]][[Alma 39.14|]][[Alma 39.15|]][[Alma 39.16|]][[Alma 39.17|]][[Alma 39.18|]][[Alma 39.19|]]; [[3 Nephi 9.20|3 Nephi 9:20]]. President Ezra Taft Benson defined a broken heart and a contrite spirit this way: “Godly sorrow … is a deep realization that our actions have offended our Father and our God. It is the sharp and keen awareness that … our sins caused Him \[the Savior\] to bleed at every pore. This very real mental and spiritual anguish is what the scriptures refer to as having a ‘broken heart and a contrite spirit’” (“A Mighty Change of Heart,” *Tambuli,* Mar. 1990, 5; *Ensign,* Oct. 1989, 4).
+[^10]: See [[D&C 20.37|D&C 20:37]]; [[2 Nephi 2.7|2 Nephi 2:7]]; [[Alma 39.1|Alma 39]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]][[Alma 39.14|]][[Alma 39.15|]][[Alma 39.16|]][[Alma 39.17|]][[Alma 39.18|]][[Alma 39.19|]]; [[3 Nephi 9.20|3 Nephi 9:20]]. President Ezra Taft Benson defined a broken heart and a contrite spirit this way: “Godly sorrow … is a deep realization that our actions have offended our Father and our God. It is the sharp and keen awareness that … our sins caused Him \[the Savior\] to bleed at every pore. This very real mental and spiritual anguish is what the scriptures refer to as having a ‘broken heart and a contrite spirit’” (“A Mighty Change of Heart,” *Tambuli,* Mar. 1990, 5; *Ensign,* Oct. 1989, 4).
 
 [^11]: [[Alma 42.29|Alma 42:29]].
 
 [^12]: [[D&C 58.42|D&C 58:42]].
 
-[^13]: See Robert D. Hales, “Understandings of the Heart,” in *Brigham Young University 1987–88 Devotional and Fireside Speeches* (1988), 129; see also [[2 Nephi 9.41|2 Nephi 9:41]].
+[^13]: See Robert D. Hales, “Understandings of the Heart,” in *Brigham Young University 1987–88 Devotional and Fireside Speeches* (1988), 129; see also [[2 Nephi 9.41|2 Nephi 9:41]].
 
 [^14]: See Joseph Fielding Smith, *Take Heed to Yourselves!* comp. Joseph Fielding Smith Jr. (1971), 221.
 
 [^15]: See [[Mark 7.20|Mark 7:20–23]][[Mark 7.21|]][[Mark 7.22|]][[Mark 7.23|]].
 
-[^16]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102; see also Russell M. Nelson, in Conference Report, Oct. 2001, 83–87; or *Ensign,* Nov. 2001, 69–71.
+[^16]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102; see also Russell M. Nelson, in Conference Report, Oct. 2001, [[2001 October - “Set in Order Thy House”.md|83–87]]; or *Ensign,* Nov. 2001, 69–71.
 
 [^17]: [[D&C 104.18|D&C 104:18]].
 
-[^18]: Anne Morrow Lindbergh, quoted in Neal A. Maxwell, “Wisdom and Order,” *Liahona,* Dec. 2001, 20; *Ensign,* June 1994, 41.
+[^18]: Anne Morrow Lindbergh, quoted in Neal A. Maxwell, “Wisdom and Order,” *Liahona,* Dec. 2001, 20; *Ensign,* June 1994, 41.
 
 [^19]: See [[Mosiah 4.27|Mosiah 4:27]].
 
-[^20]: Over the last 10 years, the Church has provided over U.S. $900 million in donations and material assistance for humanitarian aid and countless man- and woman-hours of service. For example, with respect to Hurricane Katrina, over 330,000 hours of hard, dedicated service were provided (report of Elder John S. Anderson, Area Seventy, who supervised the relief effort).
+[^20]: Over the last 10 years, the Church has provided over U.S. $900 million in donations and material assistance for humanitarian aid and countless man- and woman-hours of service. For example, with respect to Hurricane Katrina, over 330,000 hours of hard, dedicated service were provided (report of Elder John S. Anderson, Area Seventy, who supervised the relief effort).
 
 [^21]: [[Isaiah 58.9|Isaiah 58:9]].
 
 [^22]: [[Isaiah 58.10|Isaiah 58:10–12]][[Isaiah 58.11|]][[Isaiah 58.12|]].
 
+[^23]: [[D&C 51.19|D&C 51:19]]; see also [[Matthew 25.34|Matthew 25:34–46]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]][[Matthew 25.41|]][[Matthew 25.42|]][[Matthew 25.43|]][[Matthew 25.44|]][[Matthew 25.45|]][[Matthew 25.46|]].
 
 #Accountability #Family #Morality #Service #Virtue

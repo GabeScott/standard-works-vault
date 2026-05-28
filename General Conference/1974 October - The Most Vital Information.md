@@ -1,6 +1,6 @@
 # The Most Vital Information
 
-By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
+By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -18,7 +18,7 @@ I earnestly seek his divine help and guidance that the intent of my heart will n
 
 As I proceed now to share these few thoughts with you, I declare with the apostle Paul as he taught the saints of Rome:
 
-“I am ready to preach the gospel to you. …
+“I am ready to preach the gospel to you. …
 
 “For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation.”
 
@@ -63,8 +63,6 @@ Why not use the same formula suggested by the Savior to test the truth of his ch
 “If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” ([[John 7.16|John 7:16–17]][[John 7.17|]].)
 
 I declare in all kindness and sincerity that your eternal life and the salvation of your family depend upon what happened in the life of Joseph Smith, a prophet of God. May you find out soon is my humble prayer in the name of the Lord Jesus Christ. Amen.
-
-
 
 
 

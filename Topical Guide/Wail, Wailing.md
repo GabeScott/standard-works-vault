@@ -1,7 +1,6 @@
 # Wail, Wailing
 
-
-*See also* [[Cry.md|Cry]]; [[Lament.md|Lament]]; [[Mourning, Mourn.md|Mourning]]; [[Weep, Wept.md|Weep]]
+*See also* [[Cry.md|Cry]]; [[Lament.md|Lament]]; [[Mourning.md|Mourning]]; [[Weep.md|Weep]]
 
 voice of *wailing* is heard out of Zion, [[Jeremiah 9.19|Jeremiah 9:19]].
 

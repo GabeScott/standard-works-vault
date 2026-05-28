@@ -32,7 +32,7 @@ Then Helaman continued to teach his sons “to lay up for yourselves a treasure 
 
 Then he said to them, “My sons, remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation … which is a sure foundation, a foundation whereon if men build they cannot fall.” ([[Helaman 5.12|Hel. 5:12]].)
 
-We have been taught by the prophets concerning foundations. President Joseph F. Smith has said: “But the men and the women who are honest before God, who humbly plod along, doing their duty, paying their tithing, and exercising that pure religion and undefiled before God and the Father, which is to visit the fatherless and the widows in their afflictions and to keep oneself unspotted from the world, and who help look after the poor; and who honor the holy Priesthood, who do not run into excesses, who are prayerful in their families, and who acknowledge the Lord in their hearts, they will build up a foundation that the gates of hell cannot prevail against; and if the floods come and the storms beat upon their house, it shall not fall, for it will be built upon the rock of eternal truth.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, pp. 7–8.)
+We have been taught by the prophets concerning foundations. President Joseph F. Smith has said: “But the men and the women who are honest before God, who humbly plod along, doing their duty, paying their tithing, and exercising that pure religion and undefiled before God and the Father, which is to visit the fatherless and the widows in their afflictions and to keep oneself unspotted from the world, and who help look after the poor; and who honor the holy Priesthood, who do not run into excesses, who are prayerful in their families, and who acknowledge the Lord in their hearts, they will build up a foundation that the gates of hell cannot prevail against; and if the floods come and the storms beat upon their house, it shall not fall, for it will be built upon the rock of eternal truth.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, pp. 7–8.)
 
 One of those great eternal truths which the gospel anchors to a sure foundation is the doctrine of the eternal nature of the family unit. It was to the prophet Malachi the Lord declared:
 
@@ -46,19 +46,19 @@ There is no other way to start an eternal family unit than to be married in the 
 
 “The exalted view of marriage as held by this Church is given expressly in five words found in the 49th section of the Doctrine and Covenants, ‘Marriage is ordained of God.’ …
 
-“It is said that the best and noblest lives are those which are set toward high ideals. Truly no higher ideal regarding marriage can be cherished by young people than to look upon it as a divine institution. In the minds of the young such a standard is a protection to them in courtship, an ever-present influence inducing them to refrain from doing anything which may prevent their going to the temple to have their love \[sealed\] in an enduring and eternal union. It will lead them to seek divine guidance in the selecting of their companions, upon the wise choice of whom their life’s happiness here and hereafter is largely dependent. ‘Our home joys … are the most delightful earth affords, and the joy of parents in their children is the most holy joy of humanity. It makes their hearts pure and good; it lifts them up to their Father in heaven.’ Such joys are within the reach of most men and women if high ideals of marriage and home be properly fostered and cherished.” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, p. 462.)
+“It is said that the best and noblest lives are those which are set toward high ideals. Truly no higher ideal regarding marriage can be cherished by young people than to look upon it as a divine institution. In the minds of the young such a standard is a protection to them in courtship, an ever-present influence inducing them to refrain from doing anything which may prevent their going to the temple to have their love \[sealed\] in an enduring and eternal union. It will lead them to seek divine guidance in the selecting of their companions, upon the wise choice of whom their life’s happiness here and hereafter is largely dependent. ‘Our home joys … are the most delightful earth affords, and the joy of parents in their children is the most holy joy of humanity. It makes their hearts pure and good; it lifts them up to their Father in heaven.’ Such joys are within the reach of most men and women if high ideals of marriage and home be properly fostered and cherished.” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, p. 462.)
 
-As a marriage is blessed with children, we realize even more the necessity of teaching and training in the family. We recall the words of Nephi at the beginning of the Book of Mormon as he said, “I, Nephi, having been born of goodly parents.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
+As a marriage is blessed with children, we realize even more the necessity of teaching and training in the family. We recall the words of Nephi at the beginning of the Book of Mormon as he said, “I, Nephi, having been born of goodly parents.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
 
-What a blessing it would be to have it said of all fathers and mothers that they were goodly parents, righteous parents, active parents, faithful parents, exemplary parents, celestial parents. Then Nephi goes on further to say, “I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
+What a blessing it would be to have it said of all fathers and mothers that they were goodly parents, righteous parents, active parents, faithful parents, exemplary parents, celestial parents. Then Nephi goes on further to say, “I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
 
-Nephi was taught in the ways of the gospel by his father, Lehi. It was this good father, Lehi, who in a dream saw the tree of life whose fruit was most desirable to make one happy. When he partook of the fruit of the tree, he knew it was desirable above all other fruit. After partaking, his first thought was of his family. And he said, “I began to be desirous that my family should partake of it also.” ([[1 Nephi 8.12|1 Ne. 8:12]].)
+Nephi was taught in the ways of the gospel by his father, Lehi. It was this good father, Lehi, who in a dream saw the tree of life whose fruit was most desirable to make one happy. When he partook of the fruit of the tree, he knew it was desirable above all other fruit. After partaking, his first thought was of his family. And he said, “I began to be desirous that my family should partake of it also.” ([[1 Nephi 8.12|1 Ne. 8:12]].)
 
 Lehi wanted more than anything else for his family to partake of the blessings of life—eternal life.
 
 We have another good example in Enos, the son of Jacob, for he also came from a good home:
 
-“I, Enos, knowing my father that he was a just man—for he taught me in his language, and also in the nurture and admonition of the Lord. …
+“I, Enos, knowing my father that he was a just man—for he taught me in his language, and also in the nurture and admonition of the Lord. …
 
 “And the words which I had often heard my father speak concerning eternal life, and the joy of the saints, sunk deep into my heart.
 
@@ -84,9 +84,9 @@ Continue building lasting, loving relationships for all family members. Listen t
 
 The Lord has declared in the Doctrine and Covenants, “I have commanded you to bring up your children in light and truth.” ([[D&C 93.40|D&C 93:40]].)
 
-Jesus, as He appeared to the Nephites, instructed them to “pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.21|3 Ne. 18:21]].)
+Jesus, as He appeared to the Nephites, instructed them to “pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.21|3 Ne. 18:21]].)
 
-“And if ye shall always do these things blessed are ye, for ye are built upon my rock.” ([[3 Nephi 18.12|3 Ne. 18:12]].)
+“And if ye shall always do these things blessed are ye, for ye are built upon my rock.” ([[3 Nephi 18.12|3 Ne. 18:12]].)
 
 These are wise words from the book of Proverbs: “Train up a child in the way he should go: and when he is old, he will not depart from it.” ([[Proverbs 22.6|Prov. 22:6]].) If we want an eternal family, we must work for it. It does not come by chance.
 
@@ -95,8 +95,6 @@ Let us each day search from the scriptures and from the prophets that which it t
 Yes, I was taught in the ways of my father the gospel of Jesus Christ, taught to obey the commandments of God, taught to walk in the ways of an eternal family, taught to walk in light and truth, taught to build my life on a sure foundation as a child of God.
 
 Brothers and sisters, God lives! Jesus is the Christ, the Son of God, the sure foundation upon which all else is built, for He is the cornerstone. Of this I bear solemn witness to you in the name of Jesus Christ, amen.
-
-
 
 
 

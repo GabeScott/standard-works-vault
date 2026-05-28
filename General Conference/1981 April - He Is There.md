@@ -1,6 +1,6 @@
 # He Is There
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -23,8 +23,6 @@ But the one prayer which impressed me was when Joseph Smith went into the woods 
 God the Father and his Son, Jesus Christ, appeared to Joseph—actually appeared to him—and told him they had a work for him to do. He had talked to God; God heard his prayers; his prayers were answered. And I bear testimony to you this morning that these things which I have expressed to you are true. This is the Church of Jesus Christ, under the direction of Christ himself through a prophet of God whom I love, admire, and appreciate.
 
 I love you people out there and humbly pray we may always realize that when we pray to God we are talking to him, and that he is interested in our welfare. The prayer that I pray at this time is that we will all realize who we are and act accordingly and be an example to people in the world. This is the Church of Jesus Christ; and he will hear all who ask, to help them understand who they are and why they are here. This is my prayer in the name of Jesus Christ, amen.
-
-
 
 
 

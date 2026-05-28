@@ -1,6 +1,6 @@
 # Your Holy Places
 
-By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
+By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -20,9 +20,9 @@ Another holy place in Joseph Smith’s life was his own bedroom. This may be har
 
 While watching a Mormon Message for Youth, I witnessed another bedroom that had become a holy place. The video shows Ingrid Delgado, a young woman from El Salvador, sharing her feelings about the temple. She says, “It is good to know we have a place where we can get away from the things of the world and receive sacred ordinances and help those who couldn’t receive them in this life.” As she speaks, the video shows Ingrid reading her scriptures, surrounded by Mormonads, quotations, a Personal Progress book, pictures of her family and the temple, and yes, her favorite stuffed animals.[^5] Perhaps without even realizing it, she has created her holy place away from the things of the world. I wonder how many times Ingrid has read her scriptures, felt the Spirit, and received answers to her prayers in her holy place.
 
-Yet another unexpected holy place in Joseph Smith’s life was Liberty Jail. Elder Jeffrey R. Holland said, “There was no more burdensome time in Joseph’s life than this cruel, illegal, and unjustified incarceration.” Elder Holland went on to explain that Liberty Jail has been referred to as a “prison-temple” because of the sacred experiences the Prophet Joseph Smith had there.[^6]
+Yet another unexpected holy place in Joseph Smith’s life was Liberty Jail. Elder Jeffrey R. Holland said, “There was no more burdensome time in Joseph’s life than this cruel, illegal, and unjustified incarceration.” Elder Holland went on to explain that Liberty Jail has been referred to as a “prison-temple” because of the sacred experiences the Prophet Joseph Smith had there.[^6]
 
-Some of you young women may be experiencing your own Liberty Jail, a place where you face humiliation, a place where you feel no loving-kindness, a place where you are mocked, bullied, or even physically harmed. To you young women I offer Elder Holland’s words: “You can have sacred, revelatory, profoundly instructive experiences with the Lord *in the most miserable experiences of your life* … , while enduring the most painful injustices, when facing the most insurmountable odds and opposition you have ever faced.”[^7] In other words, just like the Prophet Joseph Smith, *you* can create and stand in holy places even in the hardest times you have ever experienced.
+Some of you young women may be experiencing your own Liberty Jail, a place where you face humiliation, a place where you feel no loving-kindness, a place where you are mocked, bullied, or even physically harmed. To you young women I offer Elder Holland’s words: “You can have sacred, revelatory, profoundly instructive experiences with the Lord *in the most miserable experiences of your life* … , while enduring the most painful injustices, when facing the most insurmountable odds and opposition you have ever faced.”[^7] In other words, just like the Prophet Joseph Smith, *you* can create and stand in holy places even in the hardest times you have ever experienced.
 
 A young adult, Kirsten, shared with me her painful experience. High school had been her Liberty Jail. Fortunately, the band room provided relief. She said: “When I stepped into this room, it was as if I stepped into a safe place. There were no degrading or belittling remarks, no profanity. Instead, we heard words of encouragement and love. We exercised kindness. It was a happy place. The band room was filled with the Spirit as we practiced and performed music. The room was like this in large measure because of the influence of the band instructor. He was a good Christian man. Looking back, high school was a refining place. It was difficult, but I learned resilience. I will forever be grateful for my refuge, my holy place, the band room.”[^8]
 
@@ -46,11 +46,11 @@ Tonight, have you been reflecting upon your holy places? I’ve asked hundreds o
 
 - Lastly: “One evening, I summoned the courage to share my feelings about the gospel and a Book of Mormon with my best friend. Later, it was a privilege to attend her baptism. Now we attend church together.”
 
-May I share with you one of my holy places? Once, I was feeling overwhelmed, fearful, and completely alone. Silently, I prayed: “Heavenly Father, I do not know how to do this. Please, please, help me!” Soon, an individual unexpectedly came forward, placed a hand on my shoulder, and offered sincere, encouraging words. In that moment, I felt peace. I felt acknowledged. Everything had changed. The words of President Spencer W. Kimball came to mind: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs.”[^11] For me, that moment, that place, had become holy.
+May I share with you one of my holy places? Once, I was feeling overwhelmed, fearful, and completely alone. Silently, I prayed: “Heavenly Father, I do not know how to do this. Please, please, help me!” Soon, an individual unexpectedly came forward, placed a hand on my shoulder, and offered sincere, encouraging words. In that moment, I felt peace. I felt acknowledged. Everything had changed. The words of President Spencer W. Kimball came to mind: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs.”[^11] For me, that moment, that place, had become holy.
 
 Dear young women, there are countless other holy places I wish we could share with one another. When you return home tonight, I encourage you to record in your journal those places which you are recognizing and remembering. It is clear to me that thousands of *you* are standing in holy places. These places are providing you with protection, strength, and peace in unsettling times. Your testimonies are becoming stronger because you are standing for truth and righteousness in *glorious* ways.
 
-You, the noble youth of the Church, are my heroes. I love you. I feel Heavenly Father’s incredible love for you, and I bear you my testimony that the gospel of Jesus Christ is true. He is waiting, ready to buoy you up as you “stand … in holy places, and be not moved.” I love and sustain President Thomas S. Monson, our true and encouraging prophet. I say these things in the name of Jesus Christ, amen.
+You, the noble youth of the Church, are my heroes. I love you. I feel Heavenly Father’s incredible love for you, and I bear you my testimony that the gospel of Jesus Christ is true. He is waiting, ready to buoy you up as you “stand … in holy places, and be not moved.” I love and sustain President Thomas S. Monson, our true and encouraging prophet. I say these things in the name of Jesus Christ, amen.
 
 
 
@@ -65,9 +65,9 @@ You, the noble youth of the Church, are my heroes. I love you. I feel Heavenly F
 
 [^5]: See “Practice, Celebration, Dedication: Temple Blessings in El Salvador,” [lds.org/youth/video](https://www.churchofjesuschrist.org/media/video/2011-11-0008-practice-celebration-dedication-temple-blessings-in-el-salvador).
 
-[^6]: Jeffrey R. Holland, “Lessons from Liberty Jail,” *Ensign,* Sept. 2009, 26, 28.
+[^6]: Jeffrey R. Holland, “Lessons from Liberty Jail,” *Ensign,* Sept. 2009, 26, 28.
 
-[^7]: Jeffrey R. Holland, “Lessons from Liberty Jail,” 28.
+[^7]: Jeffrey R. Holland, “Lessons from Liberty Jail,” 28.
 
 [^8]: Personal conversation with author.
 
@@ -75,8 +75,6 @@ You, the noble youth of the Church, are my heroes. I love you. I feel Heavenly F
 
 [^10]: [[Isaiah 1.18|Isaiah 1:18]].
 
-[^11]: Spencer W. Kimball, “The Abundant Life,” *Ensign,* July 1978, 4; *Tambuli,* June 1979, 3.
+[^11]: Spencer W. Kimball, “The Abundant Life,” *Ensign,* July 1978, 4; *Tambuli,* June 1979, 3.
 
-
-
-#Holy_Ghost #Sacredness
+#HolyGhost #Sacredness

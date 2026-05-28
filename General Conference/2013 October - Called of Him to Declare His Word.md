@@ -1,6 +1,6 @@
 # Called of Him to Declare His Word
 
-By Elder Randy D. Funk - *Of the Seventy*
+By Elder Randy D. Funk - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Randy D. Funk - *Of the Seventy*
 
 When I was sustained as a General Authority last April, I was serving as a mission president in India. I observed firsthand what another former mission president had told me: “The missionaries of this Church are simply stunning.”[^1]
 
-One of many outstanding missionaries with whom Sister Funk and I served was Elder Pokhrel from Nepal. After being a member of the Church for only two years, he was called to serve in the India Bangalore Mission, an English-speaking mission. He would tell you he was not well prepared. That was understandable. He had never seen a missionary until he was one, because no young missionaries serve in Nepal. He did not read English well enough to understand the instructions included with his call. When he reported to the missionary training center, instead of bringing nice slacks, white shirts, and ties, he packed, in his words, “five pairs of denim jeans, a couple of T-shirts, and a lot of hair gel.”[^2]
+One of many outstanding missionaries with whom Sister Funk and I served was Elder Pokhrel from Nepal. After being a member of the Church for only two years, he was called to serve in the India Bangalore Mission, an English-speaking mission. He would tell you he was not well prepared. That was understandable. He had never seen a missionary until he was one, because no young missionaries serve in Nepal. He did not read English well enough to understand the instructions included with his call. When he reported to the missionary training center, instead of bringing nice slacks, white shirts, and ties, he packed, in his words, “five pairs of denim jeans, a couple of T-shirts, and a lot of hair gel.”[^2]
 
 Even after he obtained appropriate clothing, he said he felt inadequate every day during the first few weeks. He described that time of his mission: “Not only was the English difficult, but the work was just as challenging. … On top of all of that, I was hungry, tired, and homesick. … Even though the circumstances were tough, I was determined. I felt weak and inadequate. I would pray at those times for Heavenly Father to help me. Without fail, every time I prayed, I would feel comforted.”[^3]
 
@@ -38,9 +38,9 @@ The healing power of the Atonement will bring peace to your soul and enable you 
 
 This promise in the Doctrine and Covenants is powerful: “Let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God.”[^12] As you live a virtuous life, you will feel a peaceful confidence in your standing before God and you will have the power of the Spirit to be with you.[^13]
 
-Some who are newer members of the Church or who have recently returned to full activity may say, “I am now worthy and have a desire to serve, but I don’t know if I know enough.” In April President Thomas S. Monson taught us, “A knowledge of truth and the answers to our greatest questions come to us as we are obedient to the commandments of God.”[^14] How reassuring it is to know that through our obedience we gain knowledge.
+Some who are newer members of the Church or who have recently returned to full activity may say, “I am now worthy and have a desire to serve, but I don’t know if I know enough.” In April President Thomas S. Monson taught us, “A knowledge of truth and the answers to our greatest questions come to us as we are obedient to the commandments of God.”[^14] How reassuring it is to know that through our obedience we gain knowledge.
 
-Others may feel they have limited talents, abilities, or experience to offer. If you have such concerns, remember the experience of Elder Pokhrel. Prepare as well as you can, and know that our Heavenly Father will magnify your humble and obedient efforts. Elder Richard G. Scott offered this encouraging counsel: “When we obey the commandments of the Lord and serve His children unselfishly, the natural consequence is power from God—power to do more than we can do by ourselves. Our insights, our talents, our abilities are expanded because we receive strength and power from the Lord.”[^15]
+Others may feel they have limited talents, abilities, or experience to offer. If you have such concerns, remember the experience of Elder Pokhrel. Prepare as well as you can, and know that our Heavenly Father will magnify your humble and obedient efforts. Elder Richard G. Scott offered this encouraging counsel: “When we obey the commandments of the Lord and serve His children unselfishly, the natural consequence is power from God—power to do more than we can do by ourselves. Our insights, our talents, our abilities are expanded because we receive strength and power from the Lord.”[^15]
 
 As you trust in the Lord and His goodness, the Almighty God will bless His children through you.[^16] Elder Hollings from Nevada learned that early in his mission. The day after he arrived in India, he traveled with Sister Funk and me to Rajahmundry, his first area. That afternoon Elder Hollings and Elder Ganaparam went to visit a Church member and her mother. The mother wanted to learn about the Church because she had seen how the gospel blessed the life of her daughter. Sister Funk joined them to provide fellowship. Because the lesson would be taught in English and the mother spoke only Telugu, a brother in the branch was there to interpret what was taught.
 
@@ -57,7 +57,7 @@ I bear witness of our Savior, Jesus Christ, and of His “divine command”[^18]
 
 
 
-[^1]: Personal conversations with Dennis C. Brimhall, president of the Kentucky Louisville Mission, 2005–8.
+[^1]: Personal conversations with Dennis C. Brimhall, president of the Kentucky Louisville Mission, 2005–8.
 
 [^2]: Ashish Pokhrel, “My Name Is Ashish Pokhrel and This Is My Story” (unpublished personal history, Sept. 2011).
 
@@ -71,7 +71,7 @@ I bear witness of our Savior, Jesus Christ, and of His “divine command”[^18]
 
 [^7]: Ezra Taft Benson, in *Preach My Gospel: A Guide to Missionary Service* (2004), 176.
 
-[^8]: Ideas taken from a talk given by Elder Jeffrey R. Holland at the Bountiful Utah North Stake conference, June 8–9, 2013.
+[^8]: Ideas taken from a talk given by Elder Jeffrey R. Holland at the Bountiful Utah North Stake conference, June 8–9, 2013.
 
 [^9]: [[Omni 1.26|Omni 1:26]].
 
@@ -83,22 +83,20 @@ I bear witness of our Savior, Jesus Christ, and of His “divine command”[^18]
 
 [^13]: See [[D&C 121.46|Doctrine and Covenants 121:46]].
 
-[^14]: Thomas S. Monson, “Obedience Brings Blessings,” *Ensign* or *Liahona,* May 2013, 89.
+[^14]: Thomas S. Monson, “Obedience Brings Blessings,” *Ensign* or *Liahona,* May 2013, 89.
 
-[^15]: Richard G. Scott, “For Peace at Home,” *Ensign* or *Liahona,* May 2013, 30.
+[^15]: Richard G. Scott, “For Peace at Home,” *Ensign* or *Liahona,* May 2013, 30.
 
-[^16]: In describing what the many new missionaries will do, Elder Russell M. Nelson said: “They will do what missionaries have always done. They will preach the gospel! They will bless the children of Almighty God!” (“Catch the Wave,” *Ensign* or *Liahona,* May 2013, 45).
+[^16]: In describing what the many new missionaries will do, Elder Russell M. Nelson said: “They will do what missionaries have always done. They will preach the gospel! They will bless the children of Almighty God!” (“Catch the Wave,” *Ensign* or *Liahona,* May 2013, 45).
 
 [^17]: See *Preach My Gospel,* v.
 
-[^18]: Thomas S. Monson, “Come, All Ye Sons of God,” *Ensign* or *Liahona,* May 2013, 66.
+[^18]: Thomas S. Monson, “Come, All Ye Sons of God,” *Ensign* or *Liahona,* May 2013, 66.
 
 [^19]: [[Matthew 28.19|Matthew 28:19]].
 
 [^20]: [[Mormon 1.2|Mormon 1:2]].
 
-[^21]: [[3 Nephi 5.13|3 Nephi 5:13]].
+[^21]: [[3 Nephi 5.13|3 Nephi 5:13]].
 
-
-
-#Atonement #Missionary_Work
+#Atonement #MissionaryWork

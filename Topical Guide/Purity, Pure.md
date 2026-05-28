@@ -1,7 +1,6 @@
 # Purity, Pure
 
-
-*See also* [[Chastity, Chaste.md|Chastity]]; [[Cleanliness.md|Cleanliness]]; [[Holy, Holier, Holiest.md|Holy]]; [[Purification, Purify, Purifying.md|Purification]]; [[Sanctification, Sanctify.md|Sanctification]]; [[Virtue, Virtuous.md|Virtue]]; [[Wash, Washing.md|Wash]]
+*See also* [[Chastity.md|Chastity]]; [[Cleanliness.md|Cleanliness]]; [[Holy.md|Holy]]; [[Purification.md|Purification]]; [[Sanctification.md|Sanctification]]; [[Virtue.md|Virtue]]; [[Wash.md|Wash]]
 
 words of the Lord are *pure*, [[Psalms 12.6|Psalms 12:6]].
 
@@ -23,21 +22,21 @@ I am *pure* from the blood of all men, [[Acts 20.26|Acts 20:26]].
 
 By *pureness*, by knowledge, [[2 Corinthians 6.6|2 Corinthians 6:6]].
 
-whatsoever things are *pure* ... think on these things, [[Philippians 4.8|Philippians 4:8]].
+whatsoever things are *pure* … think on these things, [[Philippians 4.8|Philippians 4:8]].
 
 charity out of a *pure* heart, [[1 Timothy 1.5|1 Timothy 1:5]].
 
-example of the believers ... in *purity*, [[1 Timothy 4.12|1 Timothy 4:12]].
+example of the believers … in *purity*, [[1 Timothy 4.12|1 Timothy 4:12]].
 
 Unto the *pure* all things are *pure*, [[Titus 1.15|Titus 1:15]].
 
-*Pure* religion and undefiled ... visit the fatherless, [[James 1.27|James 1:27]].
+*Pure* religion and undefiled … visit the fatherless, [[James 1.27|James 1:27]].
 
 wisdom that is from above is first *pure*, [[James 3.17|James 3:17]].
 
 love one another with a *pure* heart, [[1 Peter 1.22|1 Peter 1:22]].
 
-angels ... clothed in *pure* and white linen, [[Revelation 15.6|Revelation 15:6]].
+angels … clothed in *pure* and white linen, [[Revelation 15.6|Revelation 15:6]].
 
 shewed me a *pure* river, [[Revelation 22.1|Revelation 22:1]].
 
@@ -63,6 +62,6 @@ raise up unto myself a *pure* people, [[D&C 100.16|D&C 100:16]].
 
 They that remain, and are *pure* in heart, [[D&C 101.18|D&C 101:18]].
 
-save all those ... who have been *pure* in heart, [[D&C 124.54|D&C 124:54]].
+save all those … who have been *pure* in heart, [[D&C 124.54|D&C 124:54]].
 
 marvel not at these things, for ye are not yet *pure*, [[D&C 136.37|D&C 136:37]].

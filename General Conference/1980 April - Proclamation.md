@@ -24,7 +24,7 @@ We affirm the sanctity of the family as a divine creation and declare that God o
 
 We bear witness that all men and women are sons and daughters of God, each accountable to him; that our lives here on earth are part of an eternal plan; that death is not the end, but rather a transition from this to another sphere of purposeful activity made possible through the Atonement of the Redeemer of the world; and that we shall there have the opportunity of working and growing toward perfection.
 
-We testify that the spirit of prophecy and revelation is among us. “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” ([[Articles of Faith 1.9|A of F 1:9]]). The heavens are not sealed; God continues to speak to his children through a prophet empowered to declare his word, now as he did anciently.
+We testify that the spirit of prophecy and revelation is among us. “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” ([[Articles of Faith 1.9|A of F 1:9]]). The heavens are not sealed; God continues to speak to his children through a prophet empowered to declare his word, now as he did anciently.
 
 The mission of the Church today, as it has been from the beginning, is to teach the gospel of Christ to all the world in obedience to the commandment given by the Savior prior to his ascension and repeated in modern revelation: “Go ye into all the world, preach the gospel to every creature, acting in the authority which I have given you, baptizing in the name of the Father, and of the Son, and of the Holy Ghost” ([[D&C 68.8|D&C 68:8]]).
 
@@ -49,8 +49,6 @@ This is God’s work. It is his kingdom we are building. Anciently the prophet D
 “And by the power of the Holy Ghost ye may know the truth of all things” ([[Moroni 10.4|Moro. 10:4–5]][[Moroni 10.5|]]).
 
 We call upon all men and women to forsake evil and turn to God; to work together to build that brotherhood which must be recognized when we truly come to know that God is our Father and we are his children; and to worship him and his Son, the Lord Jesus Christ, the Savior of mankind. In the authority of the Holy Priesthood in us vested, we bless the seekers of truth wherever they may be and invoke the favor of the Almighty upon all men and nations whose God is the Lord, in the name of Jesus Christ, amen.
-
-
 
 
 

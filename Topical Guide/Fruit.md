@@ -1,11 +1,10 @@
 # Fruit
 
-
 *See also* [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Firstfruits.md|Firstfruits]]; [[Good Works.md|Good Works]]; [[Harvest.md|Harvest]]; [[Word of Wisdom.md|Word of Wisdom]]
 
 *fruit* tree yielding *fruit* after his kind, [[Genesis 1.11|Genesis 1:11]] ([[Moses 2.11|Moses 2:11]]; [[Abraham 4.11|Abraham 4:11]]).
 
-of the *fruit* of the tree ... Ye shall not eat, [[Genesis 3.3|Genesis 3:3]].
+of the *fruit* of the tree … Ye shall not eat, [[Genesis 3.3|Genesis 3:3]].
 
 Cain brought of the *fruit* of the ground, [[Genesis 4.3|Genesis 4:3]] ([[Moses 5.19|Moses 5:19]]).
 
@@ -47,7 +46,7 @@ earth is stayed from her *fruit*, [[Haggai 1.10|Haggai 1:10]].
 
 Bring forth therefore *fruits* meet for repentance, [[Matthew 3.8|Matthew 3:8]] ([[Luke 3.8|Luke 3:8]]; [[Alma 13.13|Alma 13:13]]).
 
-shall know them by their *fruits*, [[Matthew 7.16|Matthew 7:16]] ([[Matthew 7.20|Matthew 7:20]]; [[Luke 6.44|Luke 6:44]]; [[3 Nephi 14.16|3 Nephi 14:16]], [[3 Nephi 14.20|3 Nephi 14:20]]).
+shall know them by their *fruits*, [[Matthew 7.16|Matthew 7:16]] ([[Matthew 7.20|Matthew 7:20]]; [[Luke 6.44|Luke 6:44]]; [[3 Nephi 14.16|3 Nephi 14:16]]; [[3 Nephi 14.20|3 Nephi 14:20]]).
 
 every good tree bringeth forth good *fruit*, [[Matthew 7.17|Matthew 7:17]] ([[3 Nephi 14.17|3 Nephi 14:17]]).
 
@@ -59,7 +58,7 @@ fell into good ground, and brought forth *fruit*, [[Matthew 13.8|Matthew 13:8]] 
 
 no *fruit* grow on thee henceforward, [[Matthew 21.19|Matthew 21:19]].
 
-time of the *fruit* drew near ... that they might receive the *fruits*, [[Matthew 21.34|Matthew 21:34]] ([[Mark 12.2|Mark 12:2]]; [[Luke 20.10|Luke 20:10]]).
+time of the *fruit* drew near … that they might receive the *fruits*, [[Matthew 21.34|Matthew 21:34]] ([[Mark 12.2|Mark 12:2]]; [[Luke 20.10|Luke 20:10]]).
 
 not drink henceforth of this *fruit* of the vine, [[Matthew 26.29|Matthew 26:29]] ([[Mark 14.25|Mark 14:25]]; [[Luke 22.18|Luke 22:18]]).
 
@@ -111,7 +110,7 @@ tree of life, which bare twelve manner of *fruits*, [[Revelation 22.2|Revelation
 
 forbidden *fruit* in opposition to the tree of life, [[2 Nephi 2.15|2 Nephi 2:15]].
 
-Pluck off the branches that have not brought forth good *fruit*, [[Jacob 5.26|Jacob 5:26]] ([[Jacob 5.32|Jacob 5:32]], [[Jacob 5.46|Jacob 5:46]], [[Jacob 5.65|Jacob 5:65]]).
+Pluck off the branches that have not brought forth good *fruit*, [[Jacob 5.26|Jacob 5:26]] ([[Jacob 5.32|Jacob 5:32]]; [[Jacob 5.46|Jacob 5:46]]; [[Jacob 5.65|Jacob 5:65]]).
 
 his partaking of the forbidden *fruit*, [[Mosiah 3.26|Mosiah 3:26]].
 
@@ -121,16 +120,16 @@ fall by the partaking of the forbidden *fruit*, [[Alma 12.22|Alma 12:22]].
 
 see the *fruits* of our labors, [[Alma 26.31|Alma 26:31]].
 
-because of your diligence ... ye shall pluck the *fruit*, [[Alma 32.42|Alma 32:42]].
+because of your diligence … ye shall pluck the *fruit*, [[Alma 32.42|Alma 32:42]].
 
 not baptized save they brought forth *fruit*, [[Moroni 6.1|Moroni 6:1]].
 
 I will drink of the *fruit* of the vine, [[D&C 27.5|D&C 27:5]].
 
-Adam ... partook of the forbidden *fruit* and transgressed, [[D&C 29.40|D&C 29:40]].
+Adam … partook of the forbidden *fruit* and transgressed, [[D&C 29.40|D&C 29:40]].
 
 kept and blessed with much *fruit*, [[D&C 52.34|D&C 52:34]].
 
-bring forth *fruit* meet for their Father's kingdom, [[D&C 84.58|D&C 84:58]].
+bring forth *fruit* meet for their Father’s kingdom, [[D&C 84.58|D&C 84:58]].
 
 she took of the *fruit* thereof, [[Moses 4.12|Moses 4:12]].

@@ -1,6 +1,6 @@
 # The Daily Portion of Love
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -44,7 +44,7 @@ May I suggest that parents’ teachings will be listened to more intently and be
 
 Many are waiting for the other to take the first step, to make the first overture. If you are a parent or a child, a husband or wife who has been waiting for the other to give some expression first, please listen to this.
 
-One of the most effective secrets for happiness is contained in the [[1 John 4.19|fourth chapter of 1 John, verse 19]]. It is only eight words long—listen carefully: “We love him, because he first loved us.” This will cause a change to happen because it is right. Do you get the message? “He first loved us.” Your children will love you; your brothers and sisters will love you; your eternal companion will love you—because you first loved them. Now I don’t mean it will all happen in a day, a week, or a year. But it will happen if you do not give up.
+One of the most effective secrets for happiness is contained in the [[1 John 4.19|fourth chapter of 1 John, verse 19]]. It is only eight words long—listen carefully: “We love him, because he first loved us.” This will cause a change to happen because it is right. Do you get the message? “He first loved us.” Your children will love you; your brothers and sisters will love you; your eternal companion will love you—because you first loved them. Now I don’t mean it will all happen in a day, a week, or a year. But it will happen if you do not give up.
 
 If you haven’t been in the habit of expressing your love regularly, start out easily—maybe only as much as an eye-dropper or two at first. At the beginning of this new approach even a glassful could cause a drowning. Build up the dosage as tolerance to accept it grows.
 
@@ -67,8 +67,6 @@ Two weeks ago President Kimball passed me as we were rushing to a meeting. He st
 I felt his spirit; I believed him; my spirit soared to a new height.
 
 If it comes from the heart, it will work, brothers and sisters. It will bring peace and happiness to a troubled soul. Please try again … and again … and again. I know he who set this pattern lives. I know Jesus is the Christ. Of this I testify in the name of Jesus Christ. Amen.
-
-
 
 
 

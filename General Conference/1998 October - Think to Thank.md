@@ -4,7 +4,7 @@ By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1998 General Conference*
 
->*Do we give thanks to God “for his unspeakable gift” \[[[2 Corinthians 9.15|2 Cor. 9:15]]\] and His rich blessings so abundantly bestowed upon us?*
+>*Do we give thanks to God “for his unspeakable gift” \[[[2 Corinthians 9.15|2 Cor. 9:15]]\] and His rich blessings so abundantly bestowed upon us?*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/10/think-to-thank?lang=eng)
 
@@ -90,9 +90,9 @@ A newspaper article highlighted the event. It was entitled “Tears, Cheers and 
 
 “Ted and Ruth Eyre did what any parents would do.
 
-“When their daughter, Shellie, became a finalist for Murray High School homecoming queen, they counseled her to be a good sport in case she didn’t win. They explained only one girl among the 10 … would be selected queen. …
+“When their daughter, Shellie, became a finalist for Murray High School homecoming queen, they counseled her to be a good sport in case she didn’t win. They explained only one girl among the 10 … would be selected queen. …
 
-“As student body officers crowned the school’s homecoming \[royalty\] in the school gym Thursday night, Shellie Eyre experienced, instead, inclusion. The 17-year-old senior, born with Down syndrome, was selected by fellow students as homecoming queen. …
+“As student body officers crowned the school’s homecoming \[royalty\] in the school gym Thursday night, Shellie Eyre experienced, instead, inclusion. The 17-year-old senior, born with Down syndrome, was selected by fellow students as homecoming queen. …
 
 “… As Ted Eyre escorted his daughter onto the gym floor as the candidates were introduced, the gym erupted into deafening cheers and applause. They were greeted with a standing ovation.”
 
@@ -179,9 +179,9 @@ That all may do so is my humble prayer of thanks, in the name of Jesus Christ, a
 
 [^2]: [[Psalms 30.12|Ps. 30:12]].
 
-[^3]: [[2 Corinthians 9.15|2 Cor. 9:15]].
+[^3]: [[2 Corinthians 9.15|2 Cor. 9:15]].
 
-[^4]: [[1 Thessalonians 5.18|1 Thes. 5:18]].
+[^4]: [[1 Thessalonians 5.18|1 Thes. 5:18]].
 
 [^5]: [[Alma 26.37|Alma 26:37]].
 
@@ -221,6 +221,4 @@ That all may do so is my humble prayer of thanks, in the name of Jesus Christ, a
 
 [^23]: [[Matthew 11.28|Matt. 11:28–29]][[Matthew 11.29|]].
 
-
-
-#Children #Death #Family #Gratitude #Jesus_Christ #Peace #Temples
+#Children #Death #Family #Gratitude #JesusChrist #Peace #Temples

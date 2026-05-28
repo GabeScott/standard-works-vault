@@ -18,7 +18,7 @@ When I was away from home attending the university, I received a letter on Mothe
 
 As I read this letter, I realized my mother’s greatest hope was that I remain pure and virtuous. Virtue “is a pattern of thought and behavior based on high moral standards” (*Preach My Gospel* \[2004\], 118). My mother knew that life would be difficult and that to remain virtuous would be a lifelong challenge. She wanted me to have the blessings of the gospel to guide me and help me meet that challenge.
 
-You, my dear young women, have already made many good choices. Now you must establish patterns of virtue that will keep you on this path throughout your life. Seek out “example\[s\] of the believers” ([[1 Timothy 4.12|1 Timothy 4:12]]) who can be at your side to support and help you live a life of virtue.
+You, my dear young women, have already made many good choices. Now you must establish patterns of virtue that will keep you on this path throughout your life. Seek out “example\[s\] of the believers” ([[1 Timothy 4.12|1 Timothy 4:12]]) who can be at your side to support and help you live a life of virtue.
 
 Why is our being virtuous so important not just to our earthly parents but to our Heavenly Father as well? Virtue brings peace, strength of character, and happiness in this life. Our Heavenly Father knew that we would be faced with many choices and challenges, and virtuous living would prepare us to succeed.
 
@@ -28,15 +28,15 @@ Your next step on this journey is to prepare yourself to be worthy to enter the 
 
 Youth is a defining time in which you can develop patterns of virtue that will help you take necessary steps toward eternal life.
 
-In that very well-known vision found in 1 Nephi chapter 8, we are reminded of the difficulty of staying on the strait and narrow path that leads to eternal life. Father Lehi described to his sons the challenges facing different groups of people seeking the tree of life, “whose fruit was desirable to make one happy” ([[1 Nephi 8.10|v. 10]]). This tree represented the love of God (see [[1 Nephi 11.21|1 Nephi 11:21–22]][[1 Nephi 11.22|]]).
+In that very well-known vision found in 1 Nephi chapter 8, we are reminded of the difficulty of staying on the strait and narrow path that leads to eternal life. Father Lehi described to his sons the challenges facing different groups of people seeking the tree of life, “whose fruit was desirable to make one happy” ([[1 Nephi 8.10|v. 10]]). This tree represented the love of God (see [[1 Nephi 11.21|1 Nephi 11:21–22]][[1 Nephi 11.22|]]).
 
-The first group started along the strait and narrow path, but they did not take hold of the iron rod that would keep them on the path, and they got lost in the mists of darkness (see [[1 Nephi 8.21|1 Nephi 8:21–23]][[1 Nephi 8.22|]][[1 Nephi 8.23|]]).
+The first group started along the strait and narrow path, but they did not take hold of the iron rod that would keep them on the path, and they got lost in the mists of darkness (see [[1 Nephi 8.21|1 Nephi 8:21–23]][[1 Nephi 8.22|]][[1 Nephi 8.23|]]).
 
 Some of these mists of darkness, or temptations that Satan uses to obscure the path to eternal life, are specifically directed at women. He makes chastity and moral purity appear old-fashioned. He has made motherhood seem less important. He has been successful in confusing women about their roles in the Lord’s divine plan.
 
-To navigate through these mists of darkness we need the iron rod, which represents the word of God (see [[1 Nephi 15.23|1 Nephi 15:23–24]][[1 Nephi 15.24|]]). We must study and understand the truths and commandments found in the scriptures. We must listen carefully to the words of our latter-day prophets, whose teachings will give us guidance, direction, and protection. And we must hold to the standards found in *For the Strength of Youth.*
+To navigate through these mists of darkness we need the iron rod, which represents the word of God (see [[1 Nephi 15.23|1 Nephi 15:23–24]][[1 Nephi 15.24|]]). We must study and understand the truths and commandments found in the scriptures. We must listen carefully to the words of our latter-day prophets, whose teachings will give us guidance, direction, and protection. And we must hold to the standards found in *For the Strength of Youth.*
 
-Those in the second group of people Lehi saw were clinging to the iron rod. They continued in the right direction, and they were able to partake of the fruit of the tree. They tasted true happiness, but unfortunately their happiness did not last long because as they looked around, they saw those who were making fun of them. (See [[1 Nephi 8.24|1 Nephi 8:24–27]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]].) They were ashamed and caved in to peer pressure.
+Those in the second group of people Lehi saw were clinging to the iron rod. They continued in the right direction, and they were able to partake of the fruit of the tree. They tasted true happiness, but unfortunately their happiness did not last long because as they looked around, they saw those who were making fun of them. (See [[1 Nephi 8.24|1 Nephi 8:24–27]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]].) They were ashamed and caved in to peer pressure.
 
 This is one of Satan’s greatest strategies with youth. Young women, we must be united in righteousness so that we may stand strong when others mock our actions and beliefs.
 
@@ -73,8 +73,6 @@ A few weeks ago, I asked my 86-year-old mother to join me in working on the virt
 Just as the Salt Lake Temple took 40 years to build, stone by stone, you are building a virtuous life, step by step. You have made covenants to be obedient. You have made some good choices. The patterns of virtue you develop now will help you to continually hold fast to the iron rod. You will never be alone on your journey because the Savior will always be with you, and you can repent. You have been blessed with the Holy Ghost to comfort and guide you. Look to the examples of the believers in your life, and seek to help others on their journey.
 
 I bear testimony that we *are* daughters of our Heavenly Father. He loves us and is mindful of each of us, whatever our circumstances. Whether we are 16 or 86, His greatest desire is for our eternal happiness. Of this I humbly testify in the name of Jesus Christ, amen.
-
-
 
 
 

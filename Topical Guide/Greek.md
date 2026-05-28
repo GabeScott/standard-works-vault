@@ -1,6 +1,5 @@
 # Greek
 
-
 letters of *Greek*, and Latin, and Hebrew, [[Luke 23.38|Luke 23:38]] ([[John 19.20|John 19:20]]).
 
 certain *Greeks* among them that came up to worship, [[John 12.20|John 12:20]].

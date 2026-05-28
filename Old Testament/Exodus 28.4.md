@@ -9,4 +9,4 @@
 [^b]: [[Judges 8.27|Judg. 8:27]]; [[1 Samuel 2.18|1 Sam. 2:18, 28]][[1 Samuel 2.28|]]; [[1 Samuel 14.3|14:3]]; [[1 Samuel 22.18|22:18]].  
 [^c]: [[Leviticus 8.7|Lev. 8:7]].  
 [^d]: HEB turban, bound cap.  
-[^e]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^e]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  

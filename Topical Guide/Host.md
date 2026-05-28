@@ -1,11 +1,10 @@
 # Host
 
-
 *See also* [[Army.md|Army]]; [[Multitude.md|Multitude]]
 
 heavens and the earth were finished, and all the *host* of them, [[Genesis 2.1|Genesis 2:1]] ([[Moses 3.1|Moses 3:1]]; [[Abraham 5.1|Abraham 5:1]]).
 
-Jacob ... said, This is God's *host*, [[Genesis 32.2|Genesis 32:2]].
+Jacob … said, This is God’s *host*, [[Genesis 32.2|Genesis 32:2]].
 
 Lord looked unto the *host* of the Egyptians, [[Exodus 14.24|Exodus 14:24]].
 
@@ -29,4 +28,4 @@ made the heavens and all the *hosts* thereof, [[D&C 45.1|D&C 45:1]].
 
 I am the Lord of *Hosts*, [[D&C 64.24|D&C 64:24]].
 
-Michael ... shall gather together his armies, even the *hosts* of heaven, [[D&C 88.112|D&C 88:112]].
+Michael … shall gather together his armies, even the *hosts* of heaven, [[D&C 88.112|D&C 88:112]].

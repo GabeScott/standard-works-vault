@@ -1,6 +1,5 @@
 # Jesus Christ, Mediator
 
-
 *See also* [[Jesus Christ, Advocate.md|Jesus Christ, Advocate]]; [[Jesus Christ, Messenger of the Covenant.md|Jesus Christ, Messenger of the Covenant]]
 
 no man cometh unto the Father, but *by me*, [[John 14.6|John 14:6]].
@@ -16,5 +15,3 @@ Jesus the *mediator* of the new covenant, [[Hebrews 12.24|Hebrews 12:24]] ([[D&C
 ye should look to the great *Mediator*, [[2 Nephi 2.28|2 Nephi 2:28]].
 
 made perfect through Jesus the *mediator* of the new covenant, [[D&C 76.69|D&C 76:69]].
-
-*See also* [[Galatians 3.19|Galatians 3:19]].

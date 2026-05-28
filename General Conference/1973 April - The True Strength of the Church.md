@@ -1,6 +1,6 @@
 # The True Strength of the Church
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -24,7 +24,7 @@ To which he replied, “Then what else matters?”
 
 These are the questions I should like to leave with you this morning: “It’s true, isn’t it? Then what else matters?”
 
-Yesterday the growth statistics of the Church were presented. They are impressive and gratifying. They called to mind a recent broadcast of one of the nation’s popular television programs in which Joe Garragiola interviewed the Reverend Dean M. Kelley of the National Council of Churches, who spoke of the declining membership of some of the larger, well-known religious bodies and also of the accelerating growth of others. He gave as the reason for the decline: “Because they have become permissive; they allow just anybody to become members or remain members. They don’t insist on any rigorous requirements of belief or of contributions.” He pointed out, on the other hand, that those groups which require sacrifice of time and effort and means are enjoying vigorous growth.
+Yesterday the growth statistics of the Church were presented. They are impressive and gratifying. They called to mind a recent broadcast of one of the nation’s popular television programs in which Joe Garragiola interviewed the Reverend Dean M. Kelley of the National Council of Churches, who spoke of the declining membership of some of the larger, well-known religious bodies and also of the accelerating growth of others. He gave as the reason for the decline: “Because they have become permissive; they allow just anybody to become members or remain members. They don’t insist on any rigorous requirements of belief or of contributions.” He pointed out, on the other hand, that those groups which require sacrifice of time and effort and means are enjoying vigorous growth.
 
 He then went on to say: “The fastest growing church \[of\] over a million members in this country is the Mormon Church, the Latter-day Saints, with headquarters in Salt Lake City, which is growing at five percent a year, \[and\] that’s a very rapid increase.”
 
@@ -42,7 +42,7 @@ But that which is positive, which comes of personal conviction, builds and lifts
 
 The remarkable progress of this church, to which the Reverend Kelley referred, is not so much the result of the requirements of the Church upon its members as it is the result of the conviction in the hearts of those members that this is in very deed the work of God, and that happiness and peace and satisfaction are found in righteous service.
 
-We are gathered today on Temple Square in this historic Tabernacle, surrounded by other remarkable buildings, but the strength of the Church is not in these buildings, nor in its thousands of houses of worship across the world, nor in its universities and hospitals. These are all facilities, desirable, means to an end, but only auxiliary to that which is the true strength. As President Lee indicated yesterday, the strength of this church lies in the hearts of its people, in the individual testimony and conviction of the truth of this work. When an individual has that witness and testimony, the requirements of the Church become challenges rather than burdens. Declared the Savior: “… my yoke is easy, and my burden is light.” ([[Matthew 11.30|Matt. 11:30]].)
+We are gathered today on Temple Square in this historic Tabernacle, surrounded by other remarkable buildings, but the strength of the Church is not in these buildings, nor in its thousands of houses of worship across the world, nor in its universities and hospitals. These are all facilities, desirable, means to an end, but only auxiliary to that which is the true strength. As President Lee indicated yesterday, the strength of this church lies in the hearts of its people, in the individual testimony and conviction of the truth of this work. When an individual has that witness and testimony, the requirements of the Church become challenges rather than burdens. Declared the Savior: “… my yoke is easy, and my burden is light.” ([[Matthew 11.30|Matt. 11:30]].)
 
 The yoke of Church responsibility, the burden of Church leadership become opportunities rather than problems to him who wears the mantle of dedicated membership in the Church of Jesus Christ.
 
@@ -60,7 +60,7 @@ Jesus, speaking to the Jews in the temple, said: “My doctrine is not mine, but
 
 “If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” ([[John 7.16|John 7:16–17]][[John 7.17|]].)
 
-This is the wonder of this work, that every man may know for himself. He is not dependent on the teacher or the preacher or the missionary, except as they might instruct and bear witness. As Job declared long ago: “… there is a spirit in man: and the inspiration of the Almighty giveth them understanding.” ([[Job 32.8|Job 32:8]].)
+This is the wonder of this work, that every man may know for himself. He is not dependent on the teacher or the preacher or the missionary, except as they might instruct and bear witness. As Job declared long ago: “… there is a spirit in man: and the inspiration of the Almighty giveth them understanding.” ([[Job 32.8|Job 32:8]].)
 
 Each man may know for himself that it is true through the gift of the Holy Spirit, and with as certain an assurance as that the sun will rise in the morning. And knowing that it is true, he will be inclined to discipline himself as becomes one who has a knowledge of the meaning and purpose of life, of his great responsibility to his fellowmen, of his responsibility to his family, of his responsibility to God.
 
@@ -91,6 +91,4 @@ Of these sacred things I offer my solemn testimony and invoke the blessings of t
 
 
 
-
-
-#Self-Control #Testimony
+#Self-control #Testimony

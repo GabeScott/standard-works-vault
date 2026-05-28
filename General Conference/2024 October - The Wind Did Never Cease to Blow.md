@@ -1,6 +1,6 @@
 # The Wind Did Never Cease to Blow
 
-By Elder Aroldo B. Cavalcante - *Of the Seventy*
+By Elder Aroldo B. Cavalcante - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Aroldo B. Cavalcante - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/10/27cavalcante?lang=eng)
 
-In 2015, in the state of Pernambuco, Brazil, 62 members of the J. Reuben Clark Law Society[^1] cooperated with the state Prosecutor’s Office in investigating the legal challenges of residents in four different nursing homes. For five hours one Saturday, these attorneys interviewed over 200 residents *one by one*, each of whom had been functionally forgotten by society.
+In 2015, in the state of Pernambuco, Brazil, 62 members of the J. Reuben Clark Law Society[^1] cooperated with the state Prosecutor’s Office in investigating the legal challenges of residents in four different nursing homes. For five hours one Saturday, these attorneys interviewed over 200 residents *one by one*, each of whom had been functionally forgotten by society.
 
 During their interviews, they discovered several crimes that had been committed against the elderly residents, such as abandonment, mistreatment, and misappropriation of funds. A key pillar of this law society is to care for the poor and in need. Just two months later, the prosecutor successfully filed charges against the responsible parties.
 
@@ -44,7 +44,7 @@ This beloved brother served at my side until my release as bishop. Today, he con
 
 Whether we are well-known or forgotten, trials will inevitably come to each one of us.[^9] As we turn to the Savior, He can “consecrate \[our\] afflictions for \[our\] gain” and help us respond to our trials in a way that facilitates our spiritual progression.[^10] Whether for nursing home residents, a misjudged Church member, or anyone else, we can be “the wind \[that\] did never cease to blow,” bringing hope and guiding others to the covenant path.
 
-Our beloved prophet, President Russell M. Nelson, made an exciting and inspiring invitation to the youth: “I reaffirm strongly that the Lord has asked *every* worthy, able young man to prepare for and serve a mission. For Latter-day Saint young men, missionary service is a priesthood responsibility. … For you young and able sisters, a mission is also a powerful, but *optional*, opportunity.”[^11]
+Our beloved prophet, President Russell M. Nelson, made an exciting and inspiring invitation to the youth: “I reaffirm strongly that the Lord has asked *every* worthy, able young man to prepare for and serve a mission. For Latter-day Saint young men, missionary service is a priesthood responsibility. … For you young and able sisters, a mission is also a powerful, but *optional*, opportunity.”[^11]
 
 Every day, thousands of young men and women answer the Lord’s prophetic call by serving as missionaries. You are brilliant, and as President Nelson has said, you can “have more impact on the world than any previous generation!”[^12] Of course, that does not mean you will be the best version of *yourselves* the moment you step foot in the missionary training center.
 
@@ -52,7 +52,7 @@ Instead, you might feel like Nephi, “led by the Spirit, not knowing beforehand
 
 Perhaps you feel insecure like Jeremiah did and want to say, “I cannot speak: for I am a child.”[^14]
 
-You might even see your personal shortcomings and want to cry out like Moses did: “O my Lord, I am not eloquent … : but I am slow of speech, and of a slow tongue.”[^15]
+You might even see your personal shortcomings and want to cry out like Moses did: “O my Lord, I am not eloquent … : but I am slow of speech, and of a slow tongue.”[^15]
 
 If any of you beloved and mighty young men and women is having a thought like this right now, remember that the Lord has answered, “Say not, I am a child: for thou shalt go to all that I shall send thee.”[^16] And He promises, “Therefore go, and I will be with thy mouth, and teach thee what thou shalt say.”[^17]
 
@@ -64,7 +64,7 @@ In the “land that floweth with milk and honey”[^22] you will serve in on you
 
 Though some may wait “a long time” for relief, for they “have no man”[^24] that can yet help, the Lord Jesus Christ has taught us that no one is ever forgotten by Him. On the contrary, He was a perfect example of seeking out the one in every moment of His mortal ministry.
 
-Each of us—and those around us[^25]—faces our own storms of opposition and waves of trials that submerge us daily. But “the wind \[will not\] cease to blow towards the promised land … ; and thus \[we shall be\] driven forth before the wind.”[^26]
+Each of us—and those around us[^25]—faces our own storms of opposition and waves of trials that submerge us daily. But “the wind \[will not\] cease to blow towards the promised land … ; and thus \[we shall be\] driven forth before the wind.”[^26]
 
 Each of us can be a part of this wind—the same wind that blessed the Jaredites in their journey and the same wind that, with our help, will bless the unrecognized and forgotten[^27] to reach their own promised lands.
 
@@ -73,7 +73,7 @@ I testify that Jesus Christ is our Advocate with the Father. He is a living God 
 
 
 
-[^1]: The J. Reuben Clark Law Society is a nonprofit association formed by lawyers and law students and organized into more than 100 chapters through the world. It was named in honor of Joshua Reuben Clark Jr., who served for many years as a counselor in the First Presidency of The Church of Jesus Christ of Latter-day Saints.
+[^1]: The J. Reuben Clark Law Society is a nonprofit association formed by lawyers and law students and organized into more than 100 chapters through the world. It was named in honor of Joshua Reuben Clark Jr., who served for many years as a counselor in the First Presidency of The Church of Jesus Christ of Latter-day Saints.
 
 [^2]: [[Mosiah 2.17|Mosiah 2:17]].
 
@@ -83,7 +83,7 @@ I testify that Jesus Christ is our Advocate with the Father. He is a living God 
 
 [^5]: [[Ether 6.5|Ether 6:5]].
 
-[^6]: See [[2 Nephi 2.14|2 Nephi 2:14, 16]][[2 Nephi 2.16|]].
+[^6]: See [[2 Nephi 2.14|2 Nephi 2:14, 16]][[2 Nephi 2.16|]].
 
 [^7]: [[Ether 6.8|Ether 6:8]].
 
@@ -91,13 +91,13 @@ I testify that Jesus Christ is our Advocate with the Father. He is a living God 
 
 [^9]: See [[Abraham 3.25|Abraham 3:25]].
 
-[^10]: [[2 Nephi 2.2|2 Nephi 2:2]]; see also [[D&C 122.7|Doctrine and Covenants 122:7]].
+[^10]: [[2 Nephi 2.2|2 Nephi 2:2]]; see also [[D&C 122.7|Doctrine and Covenants 122:7]].
 
-[^11]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
+[^11]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
 
-[^12]: Russel M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p117#p117)” (worldwide youth devotional, June 3, 2018), Gospel Library.
+[^12]: Russel M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p117#p117)” (worldwide youth devotional, June 3, 2018), Gospel Library.
 
-[^13]: [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]].
+[^13]: [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]].
 
 [^14]: [[Jeremiah 1.6|Jeremiah 1:6]].
 
@@ -109,15 +109,15 @@ I testify that Jesus Christ is our Advocate with the Father. He is a living God 
 
 [^18]: See [[Mosiah 3.19|Mosiah 3:19]].
 
-[^19]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^19]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^20]: See [[Alma 26.22|Alma 26:22]].
 
-[^21]: Neil L. Andersen, “The Faith to Find and Baptize Converts” (address given at the seminar for new mission presidents, June 25, 2016), 6.
+[^21]: Neil L. Andersen, “The Faith to Find and Baptize Converts” (address given at the seminar for new mission presidents, June 25, 2016), 6.
 
 [^22]: See [[Deuteronomy 11.8|Deuteronomy 11:8–9]][[Deuteronomy 11.9|]].
 
-[^23]: See “[Becoming Lifelong Disciples of Jesus Christ](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/11-chapter-3-lesson-4?lang=eng),” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 76–100.
+[^23]: See “[Becoming Lifelong Disciples of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/11-chapter-3-lesson-4?lang=eng),” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 76–100.
 
 [^24]: [[John 5.6|John 5:6–7]][[John 5.7|]].
 
@@ -125,5 +125,6 @@ I testify that Jesus Christ is our Advocate with the Father. He is a living God 
 
 [^26]: [[Ether 6.8|Ether 6:8]].
 
+[^27]: President Dallin H. Oaks mentioned a painting by Maynard Dixon titled *Forgotten Man*, which hangs in his office in the Church Administration Building in Salt Lake City: “You see the sun shining on his head. His Heavenly Father knows he’s there. He is forgotten by the passing crowd, but in his struggles, his Heavenly Father knows he’s there. … I have been with that painting for close to 40 years, and it speaks to me and reminds me of things that I need to remember” (in Sarah Jane Weaver, “What I Learned from President Oaks about the ‘Forgotten Man,’” *Church News*, Sept. 18, 2022, thechurchnews.com).
 
-#Adversity #Missionary_Service #Service #Spiritual_Growth #Youth
+#Adversity #MissionaryService #Service #SpiritualGrowth #Youth

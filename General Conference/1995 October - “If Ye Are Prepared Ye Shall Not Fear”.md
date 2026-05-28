@@ -12,7 +12,7 @@ Lehi had a marvelous dream while he journeyed with his family into the wildernes
 
 “And it came to pass that I did go forth and partake of the fruit thereof; and I beheld that it was most sweet, above all that I ever before tasted. Yea, and I beheld that the fruit thereof was white, to exceed all the whiteness that I had ever seen.
 
-“And as I partook of the fruit thereof it filled my soul with exceedingly great joy; wherefore, I began to be desirous that my family should partake of it also; for I knew that it was desirable above all other fruit” ([[1 Nephi 8.10|1 Ne. 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]).
+“And as I partook of the fruit thereof it filled my soul with exceedingly great joy; wherefore, I began to be desirous that my family should partake of it also; for I knew that it was desirable above all other fruit” ([[1 Nephi 8.10|1 Ne. 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]).
 
 In Lehi’s dream, he beheld many seeking to come forward to partake of this delicious fruit, which was defined as the love of God. A rod of iron, meaning the word of God, would lead them to the tree. However, there was also a mist of darkness, or temptation, along the path that caused many to become lost along the way. Again the scriptures record:
 
@@ -24,7 +24,7 @@ In Lehi’s dream, he beheld many seeking to come forward to partake of this del
 
 “And it was filled with people, both old and young, both male and female; and their manner of dress was exceedingly fine; and they were in the attitude of mocking and pointing their fingers towards those who had come at and were partaking of the fruit.
 
-“And after they had tasted of the fruit they were ashamed, because of those that were scoffing at them; and they fell away into forbidden paths and were lost” ([[1 Nephi 8.24|1 Ne. 8:24–28]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]).
+“And after they had tasted of the fruit they were ashamed, because of those that were scoffing at them; and they fell away into forbidden paths and were lost” ([[1 Nephi 8.24|1 Ne. 8:24–28]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]).
 
 It is this part of Lehi’s dream I would like to comment on today. The current cries we hear coming from the great and spacious building tempt us to compete for ownership in the things of this world. We think we need a larger home with a three-car garage and a recreational vehicle parked next to it. We long for designer clothes, extra TV sets (all with VCRs), the latest model computers, and the newest car. Often these items are purchased with borrowed money without giving any thought to providing for our future needs. The result of all this instant gratification is overloaded bankruptcy courts and families that are far too preoccupied with their financial burdens.
 
@@ -32,7 +32,7 @@ We live in a most exciting and challenging period in human history. As technolog
 
 “In reviewing the Lord’s counsel to us on the importance of preparedness, I am impressed with the plainness of the message. The Savior made it clear that we cannot place sufficient oil in our preparedness lamps by simply avoiding evil. We must also be anxiously engaged in a positive program of preparation.”
 
-President Kimball also said: “The Lord will not translate one’s good hopes and desires and intentions into works. Each of us must do that for himself” (*The Miracle of Forgiveness* \[Salt Lake City: Bookcraft, 1969\], p. 8).
+President Kimball also said: “The Lord will not translate one’s good hopes and desires and intentions into works. Each of us must do that for himself” (*The Miracle of Forgiveness* \[Salt Lake City: Bookcraft, 1969\], p. 8).
 
 On a daily basis we witness widely fluctuating inflation; wars; interpersonal conflicts; national disasters; variances in weather conditions; innumerable forces of immorality, crime, and violence; attacks and pressures on the family and individuals; technological advances that make occupations obsolete; and so on. The need for preparation is abundantly clear. The great blessing of being prepared gives us freedom from fear, as guaranteed to us by the Lord in the Doctrine and Covenants: “If ye are prepared ye shall not fear” ([[D&C 38.30|D&C 38:30]]).
 
@@ -46,9 +46,9 @@ Second, live strictly within your income and save something for a rainy day. Inc
 
 Third, avoid excessive debt. Necessary debt should be incurred only after careful, thoughtful prayer and after obtaining the best possible advice. We need the discipline to stay well within our ability to pay. Wisely we have been counseled to avoid debt as we would avoid the plague. President J. Reuben Clark fearlessly and repeatedly counseled members of the Church to take action:
 
-“Live within your means. Get out of debt. Keep out of debt. Lay by for a rainy day which has always come and will come again. Practice and increase your habits of thrift, industry, economy, and frugality” (in Conference Report, Oct. 1937, p. 107). We should have displayed in a prominent place President Clark’s description of interest:
+“Live within your means. Get out of debt. Keep out of debt. Lay by for a rainy day which has always come and will come again. Practice and increase your habits of thrift, industry, economy, and frugality” (in Conference Report, Oct. 1937, p. 107). We should have displayed in a prominent place President Clark’s description of interest:
 
-“Interest never sleeps nor sickens nor dies. … Once in debt, interest is your companion every minute of the day and night; you cannot shun it or slip away from it; you cannot dismiss it; it yields neither to entreaties, demands, or orders; and whenever you get in its way or cross its course or fail to meet its demands, it crushes you” (in Conference Report, Apr. 1938, p. 103).
+“Interest never sleeps nor sickens nor dies. … Once in debt, interest is your companion every minute of the day and night; you cannot shun it or slip away from it; you cannot dismiss it; it yields neither to entreaties, demands, or orders; and whenever you get in its way or cross its course or fail to meet its demands, it crushes you” (in Conference Report, Apr. 1938, p. 103).
 
 Incurrence of debt is such an enticement. Accompanying the ease with which we can obtain debt should be the great caution of avoidance. Take the opportunity to compute how much you would add to your personal net worth if your home mortgage was only for ten or fifteen years instead of thirty. Compute the value of sweat equity if your time and your talents are invested in adding to the size and comfort of your home.
 
@@ -60,7 +60,7 @@ Careers are ever changing. They tell me that young people entering the work forc
 
 President Lee, in commenting on Lehi’s great vision, said this:
 
-“If there is any one thing most needed in this time of tumult and frustration, when men and women and youth and young adults are desperately seeking for answers to the problems which afflict mankind, it is an ‘iron rod’ as a safe guide along the straight path on the way to eternal life, amidst the strange and devious roadways that would eventually lead to destruction and to the ruin of all that is ‘virtuous, lovely, or of good report’” (in Conference Report, Apr. 1971, p. 90; or *Ensign,* June 1971, p. 7).
+“If there is any one thing most needed in this time of tumult and frustration, when men and women and youth and young adults are desperately seeking for answers to the problems which afflict mankind, it is an ‘iron rod’ as a safe guide along the straight path on the way to eternal life, amidst the strange and devious roadways that would eventually lead to destruction and to the ruin of all that is ‘virtuous, lovely, or of good report’” (in Conference Report, Apr. 1971, [[1971 April - The Iron Rod.md|p. 90]]; or *Ensign,* June 1971, p. 7).
 
 Unfortunately there are too many of us that are like the scoffers in Lehi’s vision. They stand aloof and are inclined to hold in derision the faithful who have chosen to accept Church authorities as God’s special witnesses of the gospel and His agents in directing the affairs of the Church. My sincere counsel to you today is to remember the good basic principles we have been taught from the very beginning—principles of thrift, industry, and integrity that have served mankind in every period of time. Avoid the great and spacious building that is the pride of the world, for it will fall, and great will be the fall thereof.
 
@@ -69,6 +69,4 @@ May God bless us with the wisdom to follow the counsel we have received as we pr
 
 
 
-
-
-#Education #Employment #Financial_Management #Goals #Preparation #Self-Reliance #Worldliness
+#Education #Employment #FinancialManagement #Goals #Preparation #Self-reliance #Worldliness

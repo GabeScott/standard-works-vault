@@ -12,13 +12,13 @@ Many years ago a certain group of worthy priesthood holders taught with great po
 
 We can learn a great deal from these children of Lehi. By doing what they did, we can become more powerful in blessing the lives of our Heavenly Father’s sons and daughters, more powerful in serving others, more powerful in rescuing others, and more powerful in becoming more Christlike men.
 
-Alma the Younger teaches us one of the things they did to become so successful: they used the records from which the Book of Mormon was taken. When he gave the record that would eventually become the Book of Mormon to his son Helaman, he taught that without these plates, “Ammon and his brethren could not have convinced so many thousands … ; yea, these records and their words brought them unto repentance.”[^3]
+Alma the Younger teaches us one of the things they did to become so successful: they used the records from which the Book of Mormon was taken. When he gave the record that would eventually become the Book of Mormon to his son Helaman, he taught that without these plates, “Ammon and his brethren could not have convinced so many thousands … ; yea, these records and their words brought them unto repentance.”[^3]
 
 God showed His power through the plates by fulfilling one purpose, “even … the restoration of many thousands … to the knowledge of the truth.” Alma then prophesied that God would “still show forth his power in them unto future generations.”[^4] Thus, the records were preserved, and you and I are part of those future generations. Just as in the days of old, we can be more powerful priesthood holders by using the Book of Mormon.
 
-The process of bringing to light the Book of Mormon cannot be compared to any literary work by any author in human history. We could say that it is a book that was shepherded by the very finger of our God. During His visit to the ancient Americas, the Lord asked Nephi to bring the records that they were keeping and place them before Him. Jesus then looked at them and commanded that certain events and passages be added.[^5] “And \[the Savior\] saith: These scriptures, which ye had not with you, the Father commanded that I should give unto you; for it was wisdom in him that they should be given unto future generations.”[^6] I feel everlasting gratitude to belong to those future generations. I am a member of the Church thanks to the Book of Mormon. I will never forget my feelings when, as a young boy in Uruguay, I read this sacred book for the very first time. I did not have to read much in 1 Nephi to experience such a joy that it cannot be expressed with words. It was as if the book was permeated with the Spirit of the Lord and made me feel closer to God.
+The process of bringing to light the Book of Mormon cannot be compared to any literary work by any author in human history. We could say that it is a book that was shepherded by the very finger of our God. During His visit to the ancient Americas, the Lord asked Nephi to bring the records that they were keeping and place them before Him. Jesus then looked at them and commanded that certain events and passages be added.[^5] “And \[the Savior\] saith: These scriptures, which ye had not with you, the Father commanded that I should give unto you; for it was wisdom in him that they should be given unto future generations.”[^6] I feel everlasting gratitude to belong to those future generations. I am a member of the Church thanks to the Book of Mormon. I will never forget my feelings when, as a young boy in Uruguay, I read this sacred book for the very first time. I did not have to read much in 1 Nephi to experience such a joy that it cannot be expressed with words. It was as if the book was permeated with the Spirit of the Lord and made me feel closer to God.
 
-This experience added meaning to the statement made by the Prophet Joseph Smith about this book when he declared that “a man would get nearer to God by abiding by its precepts, than by any other book.”[^7] I also recognize the relevance of President Thomas S. Monson’s promise when he said that “as we read the Book of Mormon and the other standard works, as we put the teachings to the test, then we will know of the doctrine, for this is our promise; we will know whether it be of man or whether it be of God.”[^8]
+This experience added meaning to the statement made by the Prophet Joseph Smith about this book when he declared that “a man would get nearer to God by abiding by its precepts, than by any other book.”[^7] I also recognize the relevance of President Thomas S. Monson’s promise when he said that “as we read the Book of Mormon and the other standard works, as we put the teachings to the test, then we will know of the doctrine, for this is our promise; we will know whether it be of man or whether it be of God.”[^8]
 
 These promises bring us joy now and in our future. Once I received a testimony of the Book of Mormon, the natural feeling that followed was a desire to apply the teachings of the book by making covenants. I made covenants by being baptized and confirmed a member of the Church. These covenants, made through priesthood ordinances, along with knowledge gained from the Book of Mormon changed my life.
 
@@ -41,7 +41,7 @@ You and I, as part of those future generations spoken about, can be more powerfu
 
 
 
-[^1]: See [[3 Nephi 7.18|3 Nephi 7:18]].
+[^1]: See [[3 Nephi 7.18|3 Nephi 7:18]].
 
 [^2]: See [[Alma 23.5|Alma 23:5–6]][[Alma 23.6|]].
 
@@ -49,28 +49,26 @@ You and I, as part of those future generations spoken about, can be more powerfu
 
 [^4]: [[Alma 37.19|Alma 37:19]].
 
-[^5]: See [[3 Nephi 23.6|3 Nephi 23:6–14]][[3 Nephi 23.7|]][[3 Nephi 23.8|]][[3 Nephi 23.9|]][[3 Nephi 23.10|]][[3 Nephi 23.11|]][[3 Nephi 23.12|]][[3 Nephi 23.13|]][[3 Nephi 23.14|]].
+[^5]: See [[3 Nephi 23.6|3 Nephi 23:6–14]][[3 Nephi 23.7|]][[3 Nephi 23.8|]][[3 Nephi 23.9|]][[3 Nephi 23.10|]][[3 Nephi 23.11|]][[3 Nephi 23.12|]][[3 Nephi 23.13|]][[3 Nephi 23.14|]].
 
-[^6]: [[3 Nephi 26.2|3 Nephi 26:2]].
+[^6]: [[3 Nephi 26.2|3 Nephi 26:2]].
 
 [^7]: Introduction to the Book of Mormon.
 
-[^8]: Thomas S. Monson, “Decisions Determine Destiny,” *New Era,* Nov. 1979, 5.
+[^8]: Thomas S. Monson, “Decisions Determine Destiny,” *New Era,* Nov. 1979, 5.
 
-[^9]: See [[3 Nephi 11.18|3 Nephi 11:18–22]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]].
+[^9]: See [[3 Nephi 11.18|3 Nephi 11:18–22]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]].
 
-[^10]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^10]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^11]: See [[1 Nephi 3.28|1 Nephi 3:28]].
+[^11]: See [[1 Nephi 3.28|1 Nephi 3:28]].
 
-[^12]: [[1 Nephi 2.12|1 Nephi 2:12]].
+[^12]: [[1 Nephi 2.12|1 Nephi 2:12]].
 
 [^13]: See [[Ether 3.12|Ether 3:12]].
 
-[^14]: [[3 Nephi 28.29|3 Nephi 28:29]].
+[^14]: [[3 Nephi 28.29|3 Nephi 28:29]].
 
 [^15]: See [[Enos 1.3|Enos 1:3–8]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].
 
-
-
-#Book_Of_Mormon #Missionary_Work #Priesthood
+#BookOfMormon #MissionaryWork #Priesthood

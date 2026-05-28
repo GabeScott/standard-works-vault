@@ -72,17 +72,17 @@ Judgment, the weightier matter of the law mentioned by the Savior, cannot be sep
 
 One of the great examples of mercy in our time was extended by the Prophet Joseph to W. W. Phelps during the troubles of the Saints in the state of Missouri. Elder Phelps fell into apostasy. After suffering buffetings, on June 29, 1840, while in Dayton, Ohio, W. W. Phelps wrote to the Prophet Joseph:
 
-“I have seen the folly of my way, and I tremble at the gulf I have passed. … I will repent and live, and ask my old brethren to forgive me, and though they chasten me to death, yet I will die with them, for their God is my God. The least place with them is enough for me, yea, it is bigger and better than all Babylon. …
+“I have seen the folly of my way, and I tremble at the gulf I have passed. … I will repent and live, and ask my old brethren to forgive me, and though they chasten me to death, yet I will die with them, for their God is my God. The least place with them is enough for me, yea, it is bigger and better than all Babylon. …
 
-“… I have done wrong and I am sorry. … I have not walked along with my friends according to my holy anointing. I ask forgiveness in the name of Jesus Christ of all the Saints, for I will do right, God helping me. I want your fellowship; if you cannot grant that, grant me your peace and friendship, for we are brethren, and our communion used to be sweet.”[^21]
+“… I have done wrong and I am sorry. … I have not walked along with my friends according to my holy anointing. I ask forgiveness in the name of Jesus Christ of all the Saints, for I will do right, God helping me. I want your fellowship; if you cannot grant that, grant me your peace and friendship, for we are brethren, and our communion used to be sweet.”[^21]
 
 To this the Prophet Joseph replied:
 
-“It is true, that we have suffered much in consequence of your behavior—the cup of gall, already full enough … , was indeed filled to overflowing when you turned against us. One with whom we had oft taken sweet counsel together, and enjoyed many refreshing seasons from the Lord—‘had it been an enemy, we could have borne it.’ …
+“It is true, that we have suffered much in consequence of your behavior—the cup of gall, already full enough … , was indeed filled to overflowing when you turned against us. One with whom we had oft taken sweet counsel together, and enjoyed many refreshing seasons from the Lord—‘had it been an enemy, we could have borne it.’ …
 
 “However, the cup has been drunk, the will of our Father has been done, and we are yet alive. … And having been delivered from the hands of wicked men by the mercy of our God, we say it is your privilege to be delivered from the powers of the adversary, … and again take your stand among the Saints of the Most High, and by diligence, humility, and love unfeigned, commend yourself to our God, and your God, and to the Church of Jesus Christ.
 
-“Believing your confession to be real, and your repentance genuine, I shall be happy once again to give you the right hand of fellowship, and rejoice over the returning prodigal. …
+“Believing your confession to be real, and your repentance genuine, I shall be happy once again to give you the right hand of fellowship, and rejoice over the returning prodigal. …
 
 “‘Come on, dear brother, since the war is past,
 
@@ -135,13 +135,13 @@ Those who extend judgment, mercy, faith, and forgiveness exhibit a greatness of 
 
 [^8]: [[D&C 121.41|D&C 121:41]].
 
-[^9]: [[2 Nephi 2.25|2 Ne. 2:25]].
+[^9]: [[2 Nephi 2.25|2 Ne. 2:25]].
 
 [^10]: See [[John 4.14|John 4:14]].
 
 [^11]: [[Matthew 23.23|Matt. 23:23–24]][[Matthew 23.24|]].
 
-[^12]: [[2 Corinthians 3.6|2 Cor. 3:6]].
+[^12]: [[2 Corinthians 3.6|2 Cor. 3:6]].
 
 [^13]: [[D&C 59.23|D&C 59:23]].
 
@@ -173,8 +173,6 @@ Those who extend judgment, mercy, faith, and forgiveness exhibit a greatness of 
 
 [^27]: [[Matthew 4.17|Matt. 4:17]].
 
-[^28]: [[2 Nephi 9.41|2 Ne. 9:41]].
+[^28]: [[2 Nephi 9.41|2 Ne. 9:41]].
 
-
-
-#Agency #Commandments #Faith #Family #Forgiveness #Holy_Ghost #Home #Honesty #Jesus_Christ #Judging #Love #Mercy #Priesthood
+#Agency #Commandments #Faith #Family #Forgiveness #HolyGhost #Honesty #Home #Judging #JesusChrist #Love #Mercy #Priesthood

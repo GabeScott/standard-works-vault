@@ -12,7 +12,7 @@ Serving in the Presiding Bishopric, I have had the privilege of meeting Latter-d
 
 My dear friends, if you ever feel limited or disadvantaged by the circumstances of your life, I want you to know this: The Lord loves you personally. He knows your circumstances, and the door to His blessings remains wide open to you no matter the challenges you face.
 
-I have learned this truth through a personal experience that, though seemingly insignificant, left a lasting impression on me. At the age of 22, while serving in the French Air Force in Paris, I was thrilled to learn that Elder Neal A. Maxwell, an Apostle of the Lord, would be speaking at a conference on the Champs-Élysées. However, just before the event, I received orders to drive a senior officer to the airport at the exact time the conference was set to take place.
+I have learned this truth through a personal experience that, though seemingly insignificant, left a lasting impression on me. At the age of 22, while serving in the French Air Force in Paris, I was thrilled to learn that Elder Neal A. Maxwell, an Apostle of the Lord, would be speaking at a conference on the Champs-Élysées. However, just before the event, I received orders to drive a senior officer to the airport at the exact time the conference was set to take place.
 
 I was disappointed. But determined to attend, I dropped the officer off and rushed to the conference. After finding a parking spot, I sprinted down the Champs-Élysées to the meeting place and arrived breathless with only five minutes left before the meeting ended. Just as I entered, I heard Elder Maxwell say, “I will now give you an apostolic blessing.” In that instant, I had a beautiful, unforgettable spiritual experience. I was overcome by the Spirit, and the words of the blessing seemed to penetrate every fiber of my soul as though they were meant just for me.
 
@@ -22,13 +22,13 @@ This reassuring truth is grounded in three key principles found in the restored 
 
 1. **God loves each of us perfectly.** “He inviteth \[us\] all to come unto him and partake of his goodness.”[^2] His plan of redemption ensures that everyone, without exception, will be granted a just opportunity to one day receive the blessings of salvation and exaltation.
 
-2. **Because God is both just and merciful and His plan is perfect,** He will not hold us accountable for things beyond our control. Elder Neal A. Maxwell explained that “God … takes into merciful account not only our desires and our performance, but also the degrees of difficulty which our varied circumstances impose upon us.”[^3]
+2. **Because God is both just and merciful and His plan is perfect,** He will not hold us accountable for things beyond our control. Elder Neal A. Maxwell explained that “God … takes into merciful account not only our desires and our performance, but also the degrees of difficulty which our varied circumstances impose upon us.”[^3]
 
 3. **Through Jesus Christ and His Atonement, we can find the strength to endure and ultimately overcome all of life’s challenges.** As Alma taught, the Savior took upon Himself not only the sins of the repentant but also “the pains and the sicknesses of his people” and “their infirmities.”[^4] Thus, beyond redeeming us from our mistakes, the Lord’s mercy and grace sustain us through injustices, deficiencies, and limitations imposed by our mortal experience.
 
 Receiving these compensating blessings comes with certain conditions. The Lord asks us to do “all we can”[^5] and to “offer \[our\] whole souls as an offering unto him.”[^6] This requires a deep desire, a sincere and faithful heart, and our utmost diligence in keeping His commandments and aligning our will with His.[^7]
 
-When our earnest efforts fall short of our aspirations due to circumstances beyond our control, the Lord still accepts the desires of our hearts as a worthy offering. President Dallin H. Oaks taught, “We will be blessed for the righteous desires of our hearts even though some outside circumstance has made it impossible for us to carry those desires into action.”[^8]
+When our earnest efforts fall short of our aspirations due to circumstances beyond our control, the Lord still accepts the desires of our hearts as a worthy offering. President Dallin H. Oaks taught, “We will be blessed for the righteous desires of our hearts even though some outside circumstance has made it impossible for us to carry those desires into action.”[^8]
 
 As the Prophet Joseph Smith worried about his brother Alvin, who had died without receiving essential gospel ordinances, he received this comforting revelation: “All that shall die henceforth without a knowledge of \[the gospel\], who would have received it with all their hearts, shall be heirs of \[the celestial kingdom of God\].”[^9] The Lord then added, “For I, the Lord, will judge all men according to their works, according to the desire of their hearts.”[^10]
 
@@ -44,7 +44,7 @@ When facing limitations and challenges, may we recognize our *own* blessings—o
 
 One of the most powerful ways we may contribute to God’s compensating blessings is through the vicarious work we do for our ancestors in the house of the Lord. As we perform ordinances on their behalf, we actively participate in the Lord’s great work of salvation, using our gifts and abilities to provide blessings to those who did not have the opportunity to receive them during their mortal lives.
 
-The loving service we offer in holy temples reminds us that the Savior’s grace extends beyond this life. In the life to come, we may be given new opportunities to accomplish what we could not do in this mortal life. Speaking to sisters who had not yet found an eternal companion, President Lorenzo Snow lovingly said: “There is no Latter-day Saint who dies after having lived a faithful life who will lose anything because of having failed to do certain things when opportunities were not furnished him or her. … They will have all the blessings, exaltation and glory that any man or woman will have who had this opportunity.”[^12]
+The loving service we offer in holy temples reminds us that the Savior’s grace extends beyond this life. In the life to come, we may be given new opportunities to accomplish what we could not do in this mortal life. Speaking to sisters who had not yet found an eternal companion, President Lorenzo Snow lovingly said: “There is no Latter-day Saint who dies after having lived a faithful life who will lose anything because of having failed to do certain things when opportunities were not furnished him or her. … They will have all the blessings, exaltation and glory that any man or woman will have who had this opportunity.”[^12]
 
 This message of hope and comfort is for all of us, children of God. None of us can escape the challenges and limitations of mortality. After all, we are all born with an inherent incapacity to save ourselves. Yet we have a loving Savior, and “we know that it is by \[His\] grace that we are saved, after all we can do.”[^13]
 
@@ -55,27 +55,28 @@ I testify that while many circumstances in life may be beyond our control, none 
 
 [^1]: See [[Alma 29.4|Alma 29:4]].
 
-[^2]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^2]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^3]: Neal A. Maxwell, “[[1996 October - “According to the Desire of -[Our-] Hearts”.md|According to the Desires of [Our] Hearts]],” *Ensign*, Nov. 1996, 21.
+[^3]: Neal A. Maxwell, “[[1996 October - “According to the Desire of (Our) Hearts”.md|According to the Desires of (Our) Hearts]],” *Ensign*, Nov. 1996, 21.
 
 [^4]: [[Alma 7.11|Alma 7:11, 12]][[Alma 7.12|]].
 
-[^5]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^5]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^6]: [[Omni 1.26|Omni 1:26]].
 
 [^7]: See [[D&C 64.34|Doctrine and Covenants 64:34]].
 
-[^8]: Dallin H. Oaks, “[The Desires of Our Hearts](https://speeches.byu.edu/talks/dallin-h-oaks/desires-hearts)” (Brigham Young University devotional, Oct. 8, 1985), 6, speeches.byu.edu.
+[^8]: Dallin H. Oaks, “[The Desires of Our Hearts](https://speeches.byu.edu/talks/dallin-h-oaks/desires-hearts)” (Brigham Young University devotional, Oct. 8, 1985), 6, speeches.byu.edu.
 
 [^9]: [[D&C 137.8|Doctrine and Covenants 137:8]].
 
-[^10]: [[D&C 137.9|Doctrine and Covenants 137:9]]. “That judgment will consider not only your actions, but also your innermost intent and heartfelt desires. … The Lord knows the desires of our hearts. At the time of judgment, surely the special yearnings of single sisters and childless couples, for example, will be given compassionate consideration by Him” (Russell M. Nelson, “[[1990 October - Choices.md|Choices]],” *Ensign*, Nov. 1990, 75).
+[^10]: [[D&C 137.9|Doctrine and Covenants 137:9]]. “That judgment will consider not only your actions, but also your innermost intent and heartfelt desires. … The Lord knows the desires of our hearts. At the time of judgment, surely the special yearnings of single sisters and childless couples, for example, will be given compassionate consideration by Him” (Russell M. Nelson, “[[1990 October - Choices.md|Choices]],” *Ensign*, Nov. 1990, 75).
 
 [^11]: [[D&C 124.49|Doctrine and Covenants 124:49]]; emphasis added.
 
-[^12]: [Teachings of Presidents of the Church: Lorenzo Snow](https://churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-lorenzo-snow/chapter-9-sacred-family-relationships?lang=eng&id=p7#p7) (2012), 130.
+[^12]: [Teachings of Presidents of the Church: Lorenzo Snow](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-lorenzo-snow/chapter-9-sacred-family-relationships?lang=eng&id=p7#p7) (2012), 130.
 
+[^13]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
-#Adversity #Blessings #Temple_Work
+#Adversity #Blessings #TempleWork

@@ -1,4 +1,3 @@
 # Spirit of Truth
 
-
-*See* [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]
+*See also* [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]

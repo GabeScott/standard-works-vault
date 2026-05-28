@@ -1,6 +1,6 @@
 # The Doctrines of the Kingdom
 
-By Shirley W. Thomas - *Second Counselor in the Relief Society General Presidency*
+By Shirley W. Thomas - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -10,7 +10,7 @@ By Shirley W. Thomas - *Second Counselor in the Relief Society General Presiden
 
 In our anxiety to find ready solutions to the problems we face, we do sometimes overlook fundamental truths and thereby fail to learn the sure way. Love one another; sow and you will reap; uphold the priesthood—these and other doctrines of the kingdom become a firm foundation. In their truth lie answers and solutions. As we learn and live these truths, we can bless the lives of others.
 
-At a meeting recently, a friend told of how, facing a particularly difficult problem, he asked Elder Boyd K. Packer for direction. In giving his counsel, Elder Packer asked, “Would it make any difference if you remember that this is truly the Church of Jesus Christ?” Set clearly against the reality of truth, the problem was easily confronted.
+At a meeting recently, a friend told of how, facing a particularly difficult problem, he asked Elder Boyd K. Packer for direction. In giving his counsel, Elder Packer asked, “Would it make any difference if you remember that this is truly the Church of Jesus Christ?” Set clearly against the reality of truth, the problem was easily confronted.
 
 Perhaps we could apply this same kind of test to a Relief Society problem: does a woman need an education or career-related training if she is to be a housewife and rear a family? Would the answer to the question become clear if we remember that we are children of an Eternal Father, striving to return to his presence?
 
@@ -30,7 +30,7 @@ Our President Kimball has strongly urged us, each one, to become well informed a
 
 A young woman came to our office recently to talk about Relief Society; and when asked if she might like to help with a project we had to do, she replied, “I would like very much to do that, but I should tell you that I will ask some hard questions.” We could tell her that we do not turn from hard questions. Fortified by the true principles of the gospel, Relief Society women must accept the challenges of the day.
 
-As President Joseph F. Smith said years ago, “\[Relief Society\] shall have women who are not only imbued with the … testimony of Christ in their hearts, but also with youth, vigor, and intelligence to enable them to discharge the great duties and responsibilities that rest upon them. … women of faith, of courage and of purity …” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 387).
+As President Joseph F. Smith said years ago, “\[Relief Society\] shall have women who are not only imbued with the … testimony of Christ in their hearts, but also with youth, vigor, and intelligence to enable them to discharge the great duties and responsibilities that rest upon them. … women of faith, of courage and of purity …” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 387).
 
 This *is* the Church of Jesus Christ.
 
@@ -43,8 +43,6 @@ We have the charge and stewardship to teach the doctrines of the kingdom and to 
 It is both our strength and our privilege to support the priesthood of God.
 
 There is joy and fulfillment in this work, I testify, in the name of Jesus Christ, amen.
-
-
 
 
 

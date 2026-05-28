@@ -1,6 +1,6 @@
 # Address Given by President Spencer W. Kimball at Welfare Services Meeting Saturday, October 5, 1974
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -29,8 +29,6 @@ And that is true, brethren and sisters. In my feeling, the gospel is the answer 
 We are grateful for all that you do in carrying forward this work. We hope that the bishops will never forget that one of their very most important duties is to look after the people in their communities, in their wards, and see that they do not suffer. See that they do not have luxuries, but see that they do have the actual necessities.
 
 God bless you, brethren, in this great and holy cause, in the name of Jesus Christ. Amen.
-
-
 
 
 

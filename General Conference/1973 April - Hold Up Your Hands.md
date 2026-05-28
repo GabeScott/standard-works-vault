@@ -1,6 +1,6 @@
 # Hold Up Your Hands
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -28,11 +28,11 @@ You will recall that your mother used to make an interesting adaptation of this 
 
 When I raise up my hand to make my personal covenant with the Lord, I try to imagine which phylacteries he would most like to see on my hand, and here are some of the things that I have been thinking about.
 
-The first finger on the hand is the thumb. The thumb serves as the anchor man of the hand. And the first law of any success says that “you *must* know your business.” Lord Bacon said, “Knowledge is power.” Jesus said, “… this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].)
+The first finger on the hand is the thumb. The thumb serves as the anchor man of the hand. And the first law of any success says that “you *must* know your business.” Lord Bacon said, “Knowledge is power.” Jesus said, “… this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].)
 
-Dr. Henry C. Link once pointed out that “nothing puts so much order into human life as to live by a set of sound principles.” And the most sound principles are the principles of the gospel of Jesus Christ. However, before we can live by them very effectively, we must know what they are.
+Dr. Henry C. Link once pointed out that “nothing puts so much order into human life as to live by a set of sound principles.” And the most sound principles are the principles of the gospel of Jesus Christ. However, before we can live by them very effectively, we must know what they are.
 
-The first question that Adam and Eve were asked to decide when they were placed in the Garden of Eden was whether or not they would eat the fruit from the tree of knowledge of good and evil. And after they had eaten, God said, “… the man is become as one of us, to know good and evil.” ([[Genesis 3.22|Gen. 3:22]].)
+The first question that Adam and Eve were asked to decide when they were placed in the Garden of Eden was whether or not they would eat the fruit from the tree of knowledge of good and evil. And after they had eaten, God said, “… the man is become as one of us, to know good and evil.” ([[Genesis 3.22|Gen. 3:22]].)
 
 I would just like to point out in passing that the right kind of knowledge still tends to have that effect upon people. It still tends to make men and women become as God. A flaming sword was placed in the Garden of Eden to guard the tree of life, but fortunately for us there is no flaming sword guarding the tree of knowledge, and each one of us may eat to his heart’s content. And maybe you can think of something more exciting than that, but I don’t know what it would be. In this great age of restoration and enlightenment we can know about as much as we want to know about any subject, including God and his program for our eternal exaltation.
 
@@ -42,7 +42,7 @@ Jesus said to Peter, “Simon, … when thou art converted, strengthen thy breth
 
 The third finger is the big finger. This is the power finger. It has the best location on the hand. The third law of success says that you must WANT to succeed—in capital letters. If I want to succeed in letters an inch high, I will fail. But if I want to succeed in letters a yard high, then I will succeed.
 
-The Lord said, “… if ye have desires to serve God ye are called to the work.” ([[D&C 4.3|D&C 4:3]].) If we don’t WANT to do it we can’t do it. Alma said that God grants unto every man according to his desires. (See [[Alma 29.4|Alma 29:4]].) And we ought to spend a lot more time than we ordinarily do in increasing the volume and intensity of our righteous desires.
+The Lord said, “… if ye have desires to serve God ye are called to the work.” ([[D&C 4.3|D&C 4:3]].) If we don’t WANT to do it we can’t do it. Alma said that God grants unto every man according to his desires. (See [[Alma 29.4|Alma 29:4]].) And we ought to spend a lot more time than we ordinarily do in increasing the volume and intensity of our righteous desires.
 
 A young man once came to Socrates and said, “Mr. Socrates, I have come sixteen hundred miles to talk to you about wisdom and learning.” He said, “You are a man of wisdom and learning and I would like to be a man of wisdom and learning. Would you teach me how to be a man of wisdom and learning?”
 
@@ -71,8 +71,6 @@ As I sit here on this platform each conference and raise up my hand to make my p
 And I would remind everyone of that thrilling occasion when Moses was leading the children of Israel in their battle against the Amalekites. Moses took the rod of God in his hands and went to the top of a sacred mount, where he held up his hands to God over the battle; and as long as Moses held up his hands, Israel prevailed. But when he let his hands down, the Amalekites prevailed. And as Moses’ arms became heavy with weariness, Aaron and Hur stood on either side of Moses and helped him to hold up his hands until the battle was won. (See [[Exodus 17.8|Ex. 17:8–12]][[Exodus 17.9|]][[Exodus 17.10|]][[Exodus 17.11|]][[Exodus 17.12|]].)
 
 If we all hold up clean, honest, industrious hands to God, then his work will prevail. And then it will not be long before the prayer of the Master is fulfilled wherein he said to his Father, “Thy kingdom come. Thy will be done in earth, as it is in heaven.” ([[Matthew 6.10|Matt. 6:10]].) And may God bless you, my brothers and sisters, that all of us together may effectively hold up our hands to God and that our covenants may be acceptable to him. For this I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

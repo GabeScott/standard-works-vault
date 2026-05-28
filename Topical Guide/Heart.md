@@ -1,17 +1,16 @@
 # Heart
 
+*See also* [[Conversion.md|Conversion]]; [[Hardheartedness.md|Hardheartedness]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]
 
-*See also* [[Conversion, Convert.md|Conversion]]; [[Hardheartedness, Harden, Hardness.md|Hardheartedness]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]
-
-every imagination ... of his *heart* was only evil, [[Genesis 6.5|Genesis 6:5]].
+every imagination … of his *heart* was only evil, [[Genesis 6.5|Genesis 6:5]].
 
 if thou seek him with all thy *heart*, [[Deuteronomy 4.29|Deuteronomy 4:29]].
 
-love the Lord thy God with all thine *heart*, [[Deuteronomy 6.5|Deuteronomy 6:5]] ([[Deuteronomy 6.3|6:3-7]][[Deuteronomy 6.4|]][[Deuteronomy 6.5|]][[Deuteronomy 6.6|]][[Deuteronomy 6.7|]]; [[Matthew 22.37|Matthew 22:37]]; [[Luke 10.27|Luke 10:27]]; [[D&C 59.5|D&C 59:5]]).
+love the Lord thy God with all thine *heart*, [[Deuteronomy 6.5|Deuteronomy 6:5]] ([[Matthew 22.37|Matthew 22:37]]; [[Luke 10.27|Luke 10:27]]; [[D&C 59.5|D&C 59:5]]).
 
 lay up these my words in your *heart*, [[Deuteronomy 11.18|Deuteronomy 11:18]].
 
-word is very nigh ... in thy *heart*, [[Deuteronomy 30.14|Deuteronomy 30:14]] ([[Romans 10.8|Romans 10:8]]).
+word is very nigh … in thy *heart*, [[Deuteronomy 30.14|Deuteronomy 30:14]] ([[Romans 10.8|Romans 10:8]]).
 
 Set your *hearts* unto all the words which I testify, [[Deuteronomy 32.46|Deuteronomy 32:46]].
 
@@ -33,7 +32,7 @@ he knoweth the secrets of the *heart*, [[Psalms 44.21|Psalms 44:21]].
 
 smoother than butter, but war was in his *heart*, [[Psalms 55.21|Psalms 55:21]].
 
-both the inward thought ... and the *heart*, is deep, [[Psalms 64.6|Psalms 64:6]].
+both the inward thought … and the *heart*, is deep, [[Psalms 64.6|Psalms 64:6]].
 
 your *heart* shall live that seek God, [[Psalms 69.32|Psalms 69:32]].
 
@@ -79,7 +78,7 @@ triest the reins and the *heart*, [[Jeremiah 11.20|Jeremiah 11:20]].
 
 write it in their *hearts*, [[Jeremiah 31.33|Jeremiah 31:33]] ([[Hebrews 8.10|Hebrews 8:10]]; [[Hebrews 10.16|Hebrews 10:16]]).
 
-take the stony *heart* out ... give them an *heart* of flesh, [[Ezekiel 11.19|Ezekiel 11:19]] ([[Ezekiel 36.26|Ezekiel 36:26]]).
+take the stony *heart* out … give them an *heart* of flesh, [[Ezekiel 11.19|Ezekiel 11:19]] ([[Ezekiel 36.26|Ezekiel 36:26]]).
 
 make you a new *heart* and a new spirit, [[Ezekiel 18.31|Ezekiel 18:31]] ([[Ezekiel 36.26|Ezekiel 36:26]]).
 
@@ -135,7 +134,7 @@ with the *heart* man believeth unto righteousness, [[Romans 10.10|Romans 10:10]]
 
 neither have entered into the *heart* of man, the things which God hath prepared, [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
-written ... in fleshy tables of the *heart*, [[2 Corinthians 3.3|2 Corinthians 3:3]].
+written … in fleshy tables of the *heart*, [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
 veil is upon their *heart*, [[2 Corinthians 3.15|2 Corinthians 3:15]].
 
@@ -145,7 +144,7 @@ Christ may dwell in your *hearts* by faith, [[Ephesians 3.17|Ephesians 3:17]].
 
 because of the blindness of their *heart*, [[Ephesians 4.18|Ephesians 4:18]].
 
-singing ... in your *heart* to the Lord, [[Ephesians 5.19|Ephesians 5:19]] ([[Colossians 3.16|Colossians 3:16]]).
+singing … in your *heart* to the Lord, [[Ephesians 5.19|Ephesians 5:19]] ([[Colossians 3.16|Colossians 3:16]]).
 
 in singleness of *heart*, fearing God, [[Colossians 3.22|Colossians 3:22]].
 
@@ -183,7 +182,7 @@ many that harden their *hearts*, [[2 Nephi 33.2|2 Nephi 33:2]].
 
 ye are lifted up in the pride of your *hearts*, [[Jacob 2.13|Jacob 2:13]] ([[Alma 4.8|Alma 4:8]]; [[Helaman 4.12|Helaman 4:12]]; [[3 Nephi 16.10|3 Nephi 16:10]]).
 
-open ... your *hearts* that ye may understand, [[Mosiah 2.9|Mosiah 2:9]].
+open … your *hearts* that ye may understand, [[Mosiah 2.9|Mosiah 2:9]].
 
 our *hearts* may be purified; for we believe, [[Mosiah 4.2|Mosiah 4:2]].
 
@@ -199,11 +198,11 @@ experienced this mighty change in your *hearts*, [[Alma 5.14|Alma 5:14]].
 
 prepare their *hearts* to receive the word, [[Alma 16.16|Alma 16:16]].
 
-that a seed may be planted in your *heart*, [[Alma 32.28|Alma 32:28]] ([[Alma 32.1|32:1-43]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]]).
+that a seed may be planted in your *heart*, [[Alma 32.28|Alma 32:28]].
 
-let your *hearts* be full, drawn out in prayer, [[Alma 34.27|Alma 34:27]] ([[Alma 34.18|34:18-27]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]]).
+let your *hearts* be full, drawn out in prayer, [[Alma 34.27|Alma 34:27]].
 
-how quick to ... set their *hearts* upon the vain things, [[Helaman 12.4|Helaman 12:4]].
+how quick to … set their *hearts* upon the vain things, [[Helaman 12.4|Helaman 12:4]].
 
 sacrifice unto me a broken *heart* and a contrite spirit, [[3 Nephi 9.20|3 Nephi 9:20]] ([[3 Nephi 12.19|3 Nephi 12:19]]; [[Ether 4.15|Ether 4:15]]; [[Moroni 6.2|Moroni 6:2]]).
 
@@ -221,15 +220,15 @@ come unto the Lord with all your *heart*, [[Mormon 9.27|Mormon 9:27]].
 
 receive these things, and ponder it in your *hearts*, [[Moroni 10.3|Moroni 10:3]].
 
-there is no ... *heart* that shall not be penetrated, [[D&C 1.2|D&C 1:2]].
+there is no … *heart* that shall not be penetrated, [[D&C 1.2|D&C 1:2]].
 
 serve him with all your *heart*, [[D&C 4.2|D&C 4:2]].
 
-God that knowest ... the intents of thy *heart*, [[D&C 6.16|D&C 6:16]].
+God that knowest … the intents of thy *heart*, [[D&C 6.16|D&C 6:16]].
 
 I will tell you in your mind and in your *heart*, [[D&C 8.2|D&C 8:2]].
 
-put it into their *hearts* ... to tempt the Lord, [[D&C 10.15|D&C 10:15]].
+put it into their *hearts* … to tempt the Lord, [[D&C 10.15|D&C 10:15]].
 
 treasure up in your *heart*, [[D&C 11.26|D&C 11:26]].
 
@@ -241,7 +240,7 @@ they turn their *hearts* from me because of the precepts of men, [[D&C 45.29|D&C
 
 his sins, which are unbelief and blindness of *heart*, [[D&C 58.15|D&C 58:15]].
 
-do these things ... with cheerful *hearts* and countenances, [[D&C 59.15|D&C 59:15]].
+do these things … with cheerful *hearts* and countenances, [[D&C 59.15|D&C 59:15]].
 
 Lord, require the *hearts* of the children of men, [[D&C 64.22|D&C 64:22]] ([[D&C 64.34|D&C 64:34]]).
 
@@ -249,7 +248,7 @@ turn their *hearts* away from the truth, [[D&C 78.10|D&C 78:10]].
 
 their evil *hearts* of unbelief, [[D&C 84.76|D&C 84:76]].
 
-men's *hearts* shall fail them, [[D&C 88.91|D&C 88:91]].
+men’s *hearts* shall fail them, [[D&C 88.91|D&C 88:91]].
 
 this is Zion—the pure in *heart*, [[D&C 97.21|D&C 97:21]].
 
@@ -266,5 +265,3 @@ they were of one *heart* and one mind, [[Moses 7.18|Moses 7:18]].
 their *hearts* were set to do evil, [[Abraham 1.6|Abraham 1:6]].
 
 because they have turned their *hearts* away, [[Abraham 1.17|Abraham 1:17]].
-
-*See also* [[Proverbs 4.23|Proverbs 4:23]]; [[Alma 36.18|Alma 36:18]].

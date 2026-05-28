@@ -1,6 +1,5 @@
 # Violence
 
-
 earth was filled with *violence*, [[Genesis 6.11|Genesis 6:11]].
 
 him that loveth *violence* his soul hateth, [[Psalms 11.5|Psalms 11:5]].
@@ -17,9 +16,9 @@ do no *violence* to the stranger, [[Jeremiah 22.3|Jeremiah 22:3]].
 
 *Violence* is risen up into a rod of wickedness, [[Ezekiel 7.11|Ezekiel 7:11]].
 
-desolate ... because of the *violence* of all them, [[Ezekiel 12.19|Ezekiel 12:19]].
+desolate … because of the *violence* of all them, [[Ezekiel 12.19|Ezekiel 12:19]].
 
-they know not to do right ... who store up *violence*, [[Amos 3.10|Amos 3:10]].
+they know not to do right … who store up *violence*, [[Amos 3.10|Amos 3:10]].
 
 covet fields, and take them by *violence*, [[Micah 2.2|Micah 2:2]].
 
@@ -33,7 +32,7 @@ kingdom of heaven suffereth *violence*, [[Matthew 11.12|Matthew 11:12]].
 
 Do *violence* to no man, [[Luke 3.14|Luke 3:14]].
 
-with *violence* shall ... Babylon be thrown down, [[Revelation 18.21|Revelation 18:21]].
+with *violence* shall … Babylon be thrown down, [[Revelation 18.21|Revelation 18:21]].
 
 whosoever shall lay their hands upon you by *violence*, [[D&C 24.16|D&C 24:16]].
 

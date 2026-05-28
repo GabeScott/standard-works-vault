@@ -1,13 +1,12 @@
 # Prophecy
 
+*See also* [[Declare.md|Declare]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Inspiration.md|Inspiration]]; [[Jesus Christ, Prophecies about.md|Jesus Christ, Prophecies about]]; [[Preaching.md|Preaching]]; [[Proclaim.md|Proclaim]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Revelation.md|Revelation]]
 
-*See also* [[Declare.md|Declare]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Inspiration, Inspire.md|Inspiration]]; [[Jesus Christ, Prophecies about.md|Jesus Christ, Prophecies about]]; [[Preaching, Preach.md|Preaching]]; [[Proclaim.md|Proclaim]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Revelation.md|Revelation]]
-
-he shall be thy *spokesman* ... instead of God, [[Exodus 4.16|Exodus 4:16]].
+he shall be thy *spokesman* … instead of God, [[Exodus 4.16|Exodus 4:16]].
 
 Aaron thy brother shall be thy *prophet*, [[Exodus 7.1|Exodus 7:1]].
 
-would God that all the Lord's people were *prophets*, [[Numbers 11.29|Numbers 11:29]].
+would God that all the Lord’s people were *prophets*, [[Numbers 11.29|Numbers 11:29]].
 
 Spirit of God came upon him, and he *prophesied*, [[1 Samuel 10.10|1 Samuel 10:10]].
 
@@ -51,13 +50,13 @@ whether there be *prophecies*, they shall fail, [[1 Corinthians 13.8|1 Corinthia
 
 he that *prophesieth* speaketh unto men to edification, [[1 Corinthians 14.3|1 Corinthians 14:3]].
 
-I would ... rather that ye *prophesied*, [[1 Corinthians 14.5|1 Corinthians 14:5]].
+I would … rather that ye *prophesied*, [[1 Corinthians 14.5|1 Corinthians 14:5]].
 
-*prophesying* serveth ... for them which believe, [[1 Corinthians 14.22|1 Corinthians 14:22]].
+*prophesying* serveth … for them which believe, [[1 Corinthians 14.22|1 Corinthians 14:22]].
 
 Despise not *prophesyings*, [[1 Thessalonians 5.20|1 Thessalonians 5:20]].
 
-gift ... given thee by *prophecy*, [[1 Timothy 4.14|1 Timothy 4:14]].
+gift … given thee by *prophecy*, [[1 Timothy 4.14|1 Timothy 4:14]].
 
 a more sure word of *prophecy*, [[2 Peter 1.19|2 Peter 1:19]] ([[D&C 131.5|D&C 131:5]]).
 
@@ -73,7 +72,7 @@ heareth the words of the *prophecy* of this book, [[Revelation 22.18|Revelation 
 
 by the Spirit are all things made known unto the *prophets*, [[1 Nephi 22.2|1 Nephi 22:2]].
 
-words of Isaiah ... plain ... with the spirit of *prophecy*, [[2 Nephi 25.4|2 Nephi 25:4]].
+words of Isaiah … plain … with the spirit of *prophecy*, [[2 Nephi 25.4|2 Nephi 25:4]].
 
 we have many revelations and the spirit of *prophecy*, [[Jacob 4.6|Jacob 4:6]].
 
@@ -83,9 +82,9 @@ Search the *prophecies* of Isaiah, [[Mormon 8.23|Mormon 8:23]].
 
 whether by mine own *voice* or by the voice of my servants, [[D&C 1.38|D&C 1:38]].
 
-Deny not the spirit ... of *prophecy*, [[D&C 11.25|D&C 11:25]].
+Deny not the spirit … of *prophecy*, [[D&C 11.25|D&C 11:25]].
 
-*prophets*, who spake as they were inspired by the ... Holy Ghost, [[D&C 20.26|D&C 20:26]].
+*prophets*, who spake as they were inspired by the … Holy Ghost, [[D&C 20.26|D&C 20:26]].
 
 his *word* ye shall receive, as if from mine own mouth, [[D&C 21.5|D&C 21:5]].
 
@@ -94,5 +93,3 @@ to others it is given to *prophesy*, [[D&C 46.22|D&C 46:22]].
 a man must be called of God, by *prophecy*, [[Articles of Faith 1.5|Articles of Faith 1:5]].
 
 We believe in the gift of tongues, *prophecy*, [[Articles of Faith 1.7|Articles of Faith 1:7]].
-
-*See also* [[Exodus 4.12|Exodus 4:12]]; [[1 Corinthians 14.39|1 Corinthians 14:39]].

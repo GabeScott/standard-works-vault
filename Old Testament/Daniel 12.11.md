@@ -5,5 +5,5 @@
 [Daniel 12:11](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.11?lang=eng#p11)
 
 
-[^a]: [[Daniel 8.11|Dan. 8:11]].
-[^b]: [[Abomination of Desolation|TG Abomination of Desolation]].
+[^a]: [[Daniel 8.11|Dan. 8:11]].  
+[^b]: [[Abomination of Desolation|TG Abomination of Desolation]].  

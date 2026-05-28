@@ -1,13 +1,12 @@
 # Shed
 
-
-Whoso *sheddeth* man's blood, by man shall his blood be *shed*, [[Genesis 9.6|Genesis 9:6]].
+Whoso *sheddeth* man’s blood, by man shall his blood be *shed*, [[Genesis 9.6|Genesis 9:6]].
 
 Manasseh *shed* innocent blood, [[2 Kings 21.16|2 Kings 21:16]].
 
 they make haste to *shed* innocent blood, [[Isaiah 59.7|Isaiah 59:7]].
 
-my blood ... which is *shed* for many, [[Matthew 26.28|Matthew 26:28]] ([[Mark 14.24|Mark 14:24]]; [[Luke 22.20|Luke 22:20]]).
+my blood … which is *shed* for many, [[Matthew 26.28|Matthew 26:28]] ([[Mark 14.24|Mark 14:24]]; [[Luke 22.20|Luke 22:20]]).
 
 blood of all the prophets, which was *shed*, [[Luke 11.50|Luke 11:50]].
 

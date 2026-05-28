@@ -72,7 +72,7 @@ I let my imagination go and seemed to see a band of destroying angels loosed fro
 
 The leader looked me squarely in the eye and challenged, “By what right do you ask us to hold? Have you not seen the evil of the land?”
 
-I replied, “Yes, I know of the sordidness of the world. I see the constant mocking of God’s laws, the merchandising on his holy day, the constant breaking of his commandments. I see the evil that exists almost universally. Yes, yes, all these things are true, still …” Then I became concerned. What right had I to ask them to hold?
+I replied, “Yes, I know of the sordidness of the world. I see the constant mocking of God’s laws, the merchandising on his holy day, the constant breaking of his commandments. I see the evil that exists almost universally. Yes, yes, all these things are true, still …” Then I became concerned. What right had I to ask them to hold?
 
 My eyes began to fall from his penetrating gaze, but something inside kept searching, searching, until finally a laserlike beam locked onto a misty memory made many months ago and faithfully filed away for such a time as this. A vista of a beautiful green valley passed before me and moved to the front of my consciousness.
 
@@ -85,8 +85,6 @@ There was no hesitation, no anger, no look of surprise, no disappointment, only 
 Oh, my dear brothers and sisters, there is power in keeping the Sabbath day holy—power to help others as well as ourselves. If we would have God’s blessings and protection as individuals, as families, as communities, and as nations, we must keep His Sabbath day holy.
 
 May we all live that someday, someway, somewhere, somehow, as we face that which is very serious, we may be able to say, “Hold, hold, hold”; and, when challenged as to why (even by ourselves), be able—through obedience and the confidence of the Spirit—to say in our own way, “For I have been through Cache Valley on a Sunday afternoon,” I do humbly pray in the name of our Savior, who lives. I know he lives, even Jesus Christ, amen.
-
-
 
 
 

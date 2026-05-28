@@ -26,9 +26,9 @@ I admire the courage my father had to be baptized into the Church in spite of th
 
 How could he make such a decision in the face of so many unfavorable circumstances? The answer is simple: it was because my father read the Book of Mormon. When he read it, he came to know of the truthfulness of the message of the Restoration. The Book of Mormon is a proof that The Church of Jesus Christ of Latter-day Saints is true. *Preach My Gospel* teaches that “the Book of Mormon, combined with the Spirit, is \[the\] most powerful resource in conversion” (\[2004\], 104).
 
-President Gordon B. Hinckley declared: “Those who have read \[the Book of Mormon\] prayerfully, be they rich or poor, learned or unlearned, have grown under its power. …
+President Gordon B. Hinckley declared: “Those who have read \[the Book of Mormon\] prayerfully, be they rich or poor, learned or unlearned, have grown under its power. …
 
-“… Without reservation I promise you that if you will prayerfully read the Book of Mormon, regardless of how many times you previously have read it, there will come into your hearts … the Spirit of the Lord. There will come a strengthened resolution to walk in obedience to his commandments, and there will come a stronger testimony of the living reality of the Son of God” (“The Power of the Book of Mormon,” *Ensign,* June 1988, 6; see also “The Book of Mormon,” *Tambuli,* Oct. 1988, 7).
+“… Without reservation I promise you that if you will prayerfully read the Book of Mormon, regardless of how many times you previously have read it, there will come into your hearts … the Spirit of the Lord. There will come a strengthened resolution to walk in obedience to his commandments, and there will come a stronger testimony of the living reality of the Son of God” (“The Power of the Book of Mormon,” *Ensign,* June 1988, 6; see also “The Book of Mormon,” *Tambuli,* Oct. 1988, 7).
 
 These promises came true for my father and for my family. In accordance with what we have been taught, we read the scriptures as a family every day. We have done so for many years. We have read the Book of Mormon several times in our home, and we will continue to do so. As promised, the Spirit of the Lord has come into the heart of our family, and we have felt a strengthened resolution to walk in obedience to His commandments and a stronger testimony of the living reality of the Son of God.
 
@@ -50,11 +50,9 @@ Why do I love and honor the name of my father? Because my father read and acted 
 
 I invite all who hear me today to read the Book of Mormon and to apply the promise it contains. Those who do will know that the book is true.
 
-I bear my testimony that the Book of Mormon is the word of God. Because of this, I know that Joseph Smith is a prophet of God. I know that he did not write the Book of Mormon but translated it by the power of God. I know that Thomas S. Monson is a prophet of God on the earth today, the only man on the earth who holds all the keys of the priesthood and has the right to exercise them. I know that Jesus Christ is our Savior and that He lives. I know that God lives and loves us. In the name of Jesus Christ, amen.
+I bear my testimony that the Book of Mormon is the word of God. Because of this, I know that Joseph Smith is a prophet of God. I know that he did not write the Book of Mormon but translated it by the power of God. I know that Thomas S. Monson is a prophet of God on the earth today, the only man on the earth who holds all the keys of the priesthood and has the right to exercise them. I know that Jesus Christ is our Savior and that He lives. I know that God lives and loves us. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Book_Of_Mormon #Conversion #Testimony
+#BookOfMormon #Conversion #Testimony

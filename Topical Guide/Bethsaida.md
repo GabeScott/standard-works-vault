@@ -1,4 +1,3 @@
 # Bethsaida
 
-
-*See* [BD Bethsaida](https://www.churchofjesuschrist.org/study/scriptures/bd/bethsaida?lang=eng)
+*See also* [[BD Bethsaida.md|BD Bethsaida]]

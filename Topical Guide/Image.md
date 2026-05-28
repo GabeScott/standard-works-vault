@@ -1,17 +1,16 @@
 # Image
 
+*See also* [[god.md|god]]; [[Idolatry.md|Idolatry]]; [[Likeness.md|Likeness]]
 
-*See also* [[god.md|god]]; [[Idolatry, Idol.md|Idolatry]]; [[Likeness.md|Likeness]]
+Let us make man in our *image*, [[Genesis 1.26|Genesis 1:26]] ([[Genesis 1.27|Genesis 1:27]]; [[Genesis 9.6|Genesis 9:6]]).
 
-Let us make man in our *image*, [[Genesis 1.26|Genesis 1:26]] ([[Genesis 1.27|Genesis 1:27]]; [[Genesis 9.6|Genesis 9:6]]; [[Moses 2.26|Moses 2:26-27]][[Moses 2.27|]]; [[Abraham 4.26|Abr. 4:26-27]][[Abraham 4.27|]]).
-
-had stolen the *images* that were her father's, [[Genesis 31.19|Genesis 31:19]].
+had stolen the *images* that were her father’s, [[Genesis 31.19|Genesis 31:19]].
 
 not make unto thee any graven *image*, [[Exodus 20.4|Exodus 20:4]] ([[Deuteronomy 5.8|Deuteronomy 5:8]]; [[Mosiah 13.12|Mosiah 13:12]]).
 
 graven *image*, neither rear you up a standing *image*, [[Leviticus 26.1|Leviticus 26:1]].
 
-Lest ye ... make you a graven *image*, [[Deuteronomy 4.16|Deuteronomy 4:16]].
+Lest ye … make you a graven *image*, [[Deuteronomy 4.16|Deuteronomy 4:16]].
 
 Confounded be all they that serve graven *images*, [[Psalms 97.7|Psalms 97:7]].
 
@@ -27,9 +26,9 @@ his molten *image* is falsehood, [[Jeremiah 10.14|Jeremiah 10:14]] ([[Jeremiah 5
 
 madest to thyself *images* of men, [[Ezekiel 16.17|Ezekiel 16:17]].
 
-O king ... behold a great *image*, [[Daniel 2.31|Daniel 2:31]].
+O king … behold a great *image*, [[Daniel 2.31|Daniel 2:31]].
 
-graven *images* ... cut off, and thy standing *images*, [[Micah 5.13|Micah 5:13]] ([[3 Nephi 21.17|3 Nephi 21:17]]).
+graven *images* … cut off, and thy standing *images*, [[Micah 5.13|Micah 5:13]] ([[3 Nephi 21.17|3 Nephi 21:17]]).
 
 What profiteth the graven *image*, [[Habakkuk 2.18|Habakkuk 2:18]].
 
@@ -61,8 +60,8 @@ man was created after the *image* of God, [[Mosiah 7.27|Mosiah 7:27]] ([[D&C 20.
 
 Have ye received his *image* in your countenances, [[Alma 5.14|Alma 5:14]] ([[Alma 5.19|Alma 5:19]]).
 
-men were created ... after mine own *image*, [[Ether 3.15|Ether 3:15]].
+men were created … after mine own *image*, [[Ether 3.15|Ether 3:15]].
 
-every man walketh ... after the *image* of his own god, [[D&C 1.16|D&C 1:16]].
+every man walketh … after the *image* of his own god, [[D&C 1.16|D&C 1:16]].
 
-In the *image* of his own body ... created he them, [[Moses 6.9|Moses 6:9]].
+In the *image* of his own body … created he them, [[Moses 6.9|Moses 6:9]].

@@ -1,4 +1,3 @@
 # Ezra
 
-
-*See* [BD Ezra](https://www.churchofjesuschrist.org/study/scriptures/bd/ezra?lang=eng)
+*See also* [[BD Ezra.md|BD Ezra]]

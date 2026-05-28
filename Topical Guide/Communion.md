@@ -1,7 +1,6 @@
 # Communion
 
-
-*See also* [[Sacrament.md|Sacrament]]; [BD Communion](https://www.churchofjesuschrist.org/study/scriptures/bd/communion?lang=eng)
+*See also* [[Sacrament.md|Sacrament]]; [[BD Communion.md|BD Communion]]
 
 is it not the *communion* of the blood of Christ, [[1 Corinthians 10.16|1 Corinthians 10:16]].
 

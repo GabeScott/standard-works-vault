@@ -1,4 +1,3 @@
 # Beelzebub
 
-
-*See* [BD Beelzebub](https://www.churchofjesuschrist.org/study/scriptures/bd/beelzebub?lang=eng)
+*See also* [[BD Beelzebub.md|BD Beelzebub]]

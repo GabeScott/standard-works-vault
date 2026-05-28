@@ -1,6 +1,6 @@
 # “An Honest Man—God’s Noblest Work”
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -50,13 +50,13 @@ Even following the miracle of Pentecost, deception was manifest among some who h
 
 “Whiles it remained, was it not thine own? and after it was sold, was it not in thine own power? Why hast thou conceived this thing in thine heart? Thou has not lied unto men, but unto God.
 
-“And Ananias hearing these words fell down, and gave up the ghost. …
+“And Ananias hearing these words fell down, and gave up the ghost. …
 
 “And it was about the space of three hours after, when his wife, not knowing what was done, came in.
 
 “And Peter answered unto her, Tell me whether ye sold the land for so much? And she said, Yea, for so much.
 
-“Then Peter said unto her, How is it that ye have agreed together to tempt the Spirit of the Lord? …
+“Then Peter said unto her, How is it that ye have agreed together to tempt the Spirit of the Lord? …
 
 “Then she fell down straightway at his feet, and yielded up the ghost.” ([[Acts 5.1|Acts 5:1–10]][[Acts 5.2|]][[Acts 5.3|]][[Acts 5.4|]][[Acts 5.5|]][[Acts 5.6|]][[Acts 5.7|]][[Acts 5.8|]][[Acts 5.9|]][[Acts 5.10|]].)
 
@@ -99,8 +99,6 @@ We cannot be less than honest, we cannot be less than true, we cannot be less th
 To those within the sound of my voice who are living this principle, the Lord bless you. Yours is the precious right to hold your heads in the sunlight of truth, unashamed before any man. On the other hand, if there be need for reformation, let it begin where we now stand. God will help us if we will seek that strength which comes from him. Sweet then will be our peace of mind. Blessed will be those with whom we live and associate.
 
 I leave you my testimony of the truth of the cause in which we labor, of the living reality of our Father who is our God, to whom someday each of us must make an accounting, and of his beloved Son, who is our Savior and Redeemer, the Author of Truth. In the name of Jesus Christ. Amen.
-
-
 
 
 

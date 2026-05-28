@@ -36,7 +36,7 @@ You may plan on marriage, and hope for it, but you are not certain that it will 
 
 The next item is the payment of tithing. Glorious is the promise of the Lord concerning those who pay their tithes. He says in modern revelation that they “shall not be burned” (see [[D&C 64.23|D&C 64:23]]).
 
-His great promise is found in the words of Malachi. Said He: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
+His great promise is found in the words of Malachi. Said He: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
 
 “Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it” ([[Malachi 3.8|Malachi 3:8, 10]][[Malachi 3.10|]]).
 
@@ -63,8 +63,6 @@ All of this is symbolized in the partaking of the sacrament. All other items in 
 If you will do these four things, I promise you that your lives will be fruitful, that your happiness will be great, and that your accomplishments will be tremendous and satisfying in every respect.
 
 May the Lord bless you, my dear young sisters; may His blessings attend you at all times and in all conditions. We love you. We pray for you. May heaven smile upon you, I humbly ask in the sacred name of Jesus Christ, amen.
-
-
 
 
 

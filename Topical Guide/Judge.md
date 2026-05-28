@@ -1,19 +1,18 @@
 # Judge
 
-
 *See also* [[Accuse.md|Accuse]]; [[Bishop.md|Bishop]]; [[Condemn.md|Condemn]]; [[Good Works.md|Good Works]]; [[Jesus Christ, Judge.md|Jesus Christ, Judge]]; [[Judgment.md|Judgment]]; [[Judgment, the Last.md|Judgment, the Last]]; [[Justice.md|Justice]]
 
 Lord *judge* between me and thee, [[Genesis 16.5|Genesis 16:5]] ([[1 Samuel 24.12|1 Samuel 24:12]]).
 
-Who made thee ... a *judge* over us, [[Exodus 2.14|Exodus 2:14]] ([[Acts 7.27|Acts 7:27]]).
+Who made thee … a *judge* over us, [[Exodus 2.14|Exodus 2:14]] ([[Acts 7.27|Acts 7:27]]).
 
 Moses sat to *judge* the people, [[Exodus 18.13|Exodus 18:13]].
 
-let them *judge* the people at all seasons, [[Exodus 18.22|Exodus 18:22]] ([[Exodus 18.19|18:19-26]][[Exodus 18.20|]][[Exodus 18.21|]][[Exodus 18.22|]][[Exodus 18.23|]][[Exodus 18.24|]][[Exodus 18.25|]][[Exodus 18.26|]]).
+let them *judge* the people at all seasons, [[Exodus 18.22|Exodus 18:22]].
 
 in righteousness shalt thou *judge* thy neighbour, [[Leviticus 19.15|Leviticus 19:15]].
 
-I charged your *judges* ... *judge* righteously, [[Deuteronomy 1.16|Deuteronomy 1:16]] ([[Deuteronomy 16.18|Deuteronomy 16:18]]).
+I charged your *judges* … *judge* righteously, [[Deuteronomy 1.16|Deuteronomy 1:16]] ([[Deuteronomy 16.18|Deuteronomy 16:18]]).
 
 *judges* shall make diligent inquisition, [[Deuteronomy 19.18|Deuteronomy 19:18]].
 
@@ -37,7 +36,7 @@ do ye *judge* uprightly, [[Psalms 58.1|Psalms 58:1]].
 
 God is the *judge*, [[Psalms 75.7|Psalms 75:7]].
 
-God ... *judgeth* among the gods, [[Psalms 82.1|Psalms 82:1]].
+God … *judgeth* among the gods, [[Psalms 82.1|Psalms 82:1]].
 
 He shall *judge* among the heathen, [[Psalms 110.6|Psalms 110:6]].
 
@@ -57,7 +56,7 @@ right of the needy do they not *judge*, [[Jeremiah 5.28|Jeremiah 5:28]].
 
 *judge* thee according to thy ways, [[Ezekiel 7.3|Ezekiel 7:3]] ([[Ezekiel 7.8|Ezekiel 7:8]]; [[Ezekiel 36.19|Ezekiel 36:19]]).
 
-saviours shall ... *judge* the mount of Esau, [[Obadiah 1.21|Obadiah 1:21]].
+saviours shall … *judge* the mount of Esau, [[Obadiah 1.21|Obadiah 1:21]].
 
 adversary deliver thee to the *judge*, and the *judge* deliver thee to the officer, [[Matthew 5.25|Matthew 5:25]] ([[Luke 12.58|Luke 12:58]]).
 
@@ -103,11 +102,11 @@ become *judges* of evil thoughts, [[James 2.4|James 2:4]].
 
 they that shall be *judged* by the law of liberty, [[James 2.12|James 2:12]].
 
-He that ... *judgeth* his brother ... *judgeth* the law: but if thou *judge* the law, thou art not a doer of the law, [[James 4.11|James 4:11]].
+He that … *judgeth* his brother … *judgeth* the law: but if thou *judge* the law, thou art not a doer of the law, [[James 4.11|James 4:11]].
 
 the *judge* standeth before the door, [[James 5.9|James 5:9]].
 
-without respect of persons *judgeth* according to every man's work, [[1 Peter 1.17|1 Peter 1:17]].
+without respect of persons *judgeth* according to every man’s work, [[1 Peter 1.17|1 Peter 1:17]].
 
 committed himself to him that *judgeth* righteously, [[1 Peter 2.23|1 Peter 2:23]].
 
@@ -117,9 +116,9 @@ time of the dead, that they should be *judged*, [[Revelation 11.18|Revelation 11
 
 book of life: and the dead were *judged*, [[Revelation 20.12|Revelation 20:12]].
 
-Son of ... God was *judged* of the world, [[1 Nephi 11.32|1 Nephi 11:32]].
+Son of … God was *judged* of the world, [[1 Nephi 11.32|1 Nephi 11:32]].
 
-twelve apostles ... shall *judge* the twelve tribes of Israel, [[1 Nephi 12.9|1 Nephi 12:9]].
+twelve apostles … shall *judge* the twelve tribes of Israel, [[1 Nephi 12.9|1 Nephi 12:9]].
 
 stand before God, to be *judged*, [[1 Nephi 15.33|1 Nephi 15:33]].
 
@@ -133,11 +132,11 @@ if ye *judge* the man who putteth up his petition to you, [[Mosiah 4.22|Mosiah 4
 
 whosoever transgresseth against me, him shall ye *judge*, [[Mosiah 26.29|Mosiah 26:29]].
 
-appoint *judges*, to *judge* ... wise men to be *judges*, that will *judge*, [[Mosiah 29.11|Mosiah 29:11]] ([[Mosiah 29.28|Mosiah 29:28]]).
+appoint *judges*, to *judge* … wise men to be *judges*, that will *judge*, [[Mosiah 29.11|Mosiah 29:11]] ([[Mosiah 29.28|Mosiah 29:28]]).
 
 better that a man should be *judged* of God than of man, [[Mosiah 29.12|Mosiah 29:12]].
 
-rise from the dead and ... be *judged*, [[Alma 11.41|Alma 11:41]].
+rise from the dead and … be *judged*, [[Alma 11.41|Alma 11:41]].
 
 men should be *judged* according to their works, [[Alma 41.3|Alma 41:3]].
 
@@ -147,25 +146,25 @@ deal justly, *judge* righteously, [[Alma 41.14|Alma 41:14]].
 
 stand before God, to be *judged*, [[3 Nephi 26.4|3 Nephi 26:4]].
 
-out of the books ... shall the world be *judged*, [[3 Nephi 27.26|3 Nephi 27:26]].
+out of the books … shall the world be *judged*, [[3 Nephi 27.26|3 Nephi 27:26]].
 
-twelve tribes of Israel, who shall be *judged* ... by the twelve whom Jesus chose, [[Mormon 3.18|Mormon 3:18]].
+twelve tribes of Israel, who shall be *judged* … by the twelve whom Jesus chose, [[Mormon 3.18|Mormon 3:18]].
 
-this people ... *judged* by the twelve whom Jesus chose in this land, [[Mormon 3.19|Mormon 3:19]].
+this people … *judged* by the twelve whom Jesus chose in this land, [[Mormon 3.19|Mormon 3:19]].
 
 that *judgeth* rashly shall be *judged* rashly, [[Mormon 8.19|Mormon 8:19]].
 
-man shall not ... *judge*; for judgment is mine, [[Mormon 8.20|Mormon 8:20]].
+man shall not … *judge*; for judgment is mine, [[Mormon 8.20|Mormon 8:20]].
 
 it is given unto you to *judge*, [[Moroni 7.15|Moroni 7:15]].
 
-I show unto you the way to *judge*, [[Moroni 7.16|Moroni 7:16]] ([[Moroni 7.14|7:14-18]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]]).
+I show unto you the way to *judge*, [[Moroni 7.16|Moroni 7:16]].
 
 same judgment which ye *judge* ye shall also be *judged*, [[Moroni 7.18|Moroni 7:18]].
 
 great Jehovah, the Eternal *Judge*, [[Moroni 10.34|Moroni 10:34]].
 
-Spirit which leadeth ... to *judge* righteously, [[D&C 11.12|D&C 11:12]].
+Spirit which leadeth … to *judge* righteously, [[D&C 11.12|D&C 11:12]].
 
 by them shall the world be *judged*, [[D&C 20.13|D&C 20:13]].
 
@@ -175,7 +174,7 @@ appointed to be a *judge* in Israel, [[D&C 58.17|D&C 58:17]].
 
 let God *judge* between me and thee, [[D&C 64.11|D&C 64:11]].
 
-made my church ... like unto a *judge* ... to *judge* the nations, [[D&C 64.37|D&C 64:37]] ([[D&C 64.38|D&C 64:38]]).
+made my church … like unto a *judge* … to *judge* the nations, [[D&C 64.37|D&C 64:37]] ([[D&C 64.38|D&C 64:38]]).
 
 be *judged* according to men in the flesh, [[D&C 88.99|D&C 88:99]] ([[1 Peter 4.6|1 Peter 4:6]]; [[D&C 138.34|D&C 138:34]]).
 

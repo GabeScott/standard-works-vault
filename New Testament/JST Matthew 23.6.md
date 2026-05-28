@@ -4,6 +4,3 @@
 
 [JST Matthew 23:6](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/23?lang=eng)
 
-
-
-

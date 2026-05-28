@@ -1,7 +1,6 @@
 # Ask
 
-
-*See also* [[Beg.md|Beg]]; [[Beseech, Besought.md|Beseech]]; [[Entreat.md|Entreat]]; [[Inquire.md|Inquire]]; [[Petition.md|Petition]]; [[Plead.md|Plead]]; [[Prayer, Pray.md|Prayer]]; [[Problem-Solving.md|Problem-Solving]]; [[Question.md|Question]]; [[Request.md|Request]]; [[Seek, Sought.md|Seek]]
+*See also* [[Beg.md|Beg]]; [[Beseech.md|Beseech]]; [[Entreat.md|Entreat]]; [[Inquire.md|Inquire]]; [[Petition.md|Petition]]; [[Plead.md|Plead]]; [[Prayer.md|Prayer]]; [[Problem-Solving.md|Problem-Solving]]; [[Question.md|Question]]; [[Request.md|Request]]; [[Seek.md|Seek]]
 
 when thy son *asketh* thee, [[Exodus 13.14|Exodus 13:14]].
 
@@ -17,9 +16,9 @@ Give to him that *asketh* thee, [[Matthew 5.42|Matthew 5:42]] ([[Luke 6.30|Luke 
 
 *Ask*, and it shall be given you, [[Matthew 7.7|Matthew 7:7]] ([[D&C 4.7|D&C 4:7]]).
 
-promised ... to give her whatsoever she would *ask*, [[Matthew 14.7|Matthew 14:7]] ([[Mark 6.22|Mark 6:22]]).
+promised … to give her whatsoever she would *ask*, [[Matthew 14.7|Matthew 14:7]] ([[Mark 6.22|Mark 6:22]]).
 
-*asked* his disciples ... Whom do men say that I ... am, [[Matthew 16.13|Matthew 16:13]] ([[Mark 8.27|Mark 8:27]]; [[Luke 9.18|Luke 9:18]]).
+*asked* his disciples … Whom do men say that I … am, [[Matthew 16.13|Matthew 16:13]] ([[Mark 8.27|Mark 8:27]]; [[Luke 9.18|Luke 9:18]]).
 
 Ye know not what ye *ask*, [[Matthew 20.22|Matthew 20:22]] ([[Mark 10.38|Mark 10:38]]).
 
@@ -51,6 +50,6 @@ whatsoever things ye shall *ask* the Father in my name, [[3 Nephi 27.28|3 Nephi 
 
 took no thought save it was to *ask* me, [[D&C 9.7|D&C 9:7]].
 
-hearts are corrupt ... therefore they will not *ask* of me, [[D&C 10.21|D&C 10:21]].
+hearts are corrupt … therefore they will not *ask* of me, [[D&C 10.21|D&C 10:21]].
 
 commanded in all things to *ask* of God, [[D&C 46.7|D&C 46:7]].

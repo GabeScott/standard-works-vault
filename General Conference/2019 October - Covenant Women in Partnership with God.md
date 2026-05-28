@@ -1,6 +1,6 @@
 # Covenant Women in Partnership with God
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -16,7 +16,7 @@ When you came out of the water, you had accepted another call to serve. As a new
 
 For each one who makes these covenants, the service that the Lord calls him or her to do will be suited perfectly to that person. The covenant daughters and sons of God, however, all share one important and joyful call. It is to serve others for Him.
 
-Speaking to sisters, President Russell M. Nelson gave a wonderful summary of the Lord’s call to you to join Him in His work. President Nelson described your call in this way: “The Lord said, ‘My work and my glory \[is\] to bring to pass the immortality and eternal life of man.’ ([[Moses 1.39|Moses 1:39]].) So His devoted daughter-disciple may truly say, ‘My work and my glory is to help my loved ones reach that heavenly goal.’
+Speaking to sisters, President Russell M. Nelson gave a wonderful summary of the Lord’s call to you to join Him in His work. President Nelson described your call in this way: “The Lord said, ‘My work and my glory \[is\] to bring to pass the immortality and eternal life of man.’ ([[Moses 1.39|Moses 1:39]].) So His devoted daughter-disciple may truly say, ‘My work and my glory is to help my loved ones reach that heavenly goal.’
 
 “To help another human being reach one’s celestial potential is part of the divine mission of woman. As mother, teacher, or nurturing Saint, she molds living clay to the shape of her hopes. In partnership with God, her divine mission is to help spirits live and souls be lifted. This is the measure of her creation. It is ennobling, edifying, and exalting.”[^2]
 
@@ -48,21 +48,19 @@ As nearly as I can discern, my wife, Kathleen, has followed that charge, given t
 
 Becoming a covenant woman in partnership with God is how great and good daughters of God have always mothered, led, and ministered, serving in whatever way and place He has prepared for them. I promise that you will find joy in your journey to your heavenly home as you return to Him as a covenant-keeping daughter of God.
 
-I testify that God the Father lives and He loves you. He will answer your prayers. His Beloved Son leads, in every detail, The Church of Jesus Christ of Latter-day Saints. President Russell M. Nelson is His living prophet. And Joseph Smith saw and spoke with God the Father and Jesus Christ in a grove of trees in Palmyra, New York. I know that is true. I also testify that Jesus Christ is your Savior; He loves you. And through His Atonement, you can be purified and lifted to the high and holy callings which will come to you. I so testify in the sacred name of Jesus Christ, amen.
+I testify that God the Father lives and He loves you. He will answer your prayers. His Beloved Son leads, in every detail, The Church of Jesus Christ of Latter-day Saints. President Russell M. Nelson is His living prophet. And Joseph Smith saw and spoke with God the Father and Jesus Christ in a grove of trees in Palmyra, New York. I know that is true. I also testify that Jesus Christ is your Savior; He loves you. And through His Atonement, you can be purified and lifted to the high and holy callings which will come to you. I so testify in the sacred name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[D&C 20.73|Doctrine and Covenants 20:73]].
 
-[^2]: Russell M. Nelson, “[[1989 October - Woman—Of Infinite Worth.md|Woman—Of Infinite Worth]],” *Ensign,* Nov. 1989, 22.
+[^2]: Russell M. Nelson, “[[1989 October - Woman—Of Infinite Worth.md|Woman—Of Infinite Worth]],” *Ensign,* Nov. 1989, 22.
 
 [^3]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
-[^4]: See [[1 Nephi 3.7|1 Nephi 3:7]].
+[^4]: See [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^5]: Russell M. Nelson, “[[1989 October - Woman—Of Infinite Worth.md|Woman—Of Infinite Worth]],” 22.
-
-
+[^5]: Russell M. Nelson, “[[1989 October - Woman—Of Infinite Worth.md|Woman—Of Infinite Worth]],” 22.
 
 #Covenants #Motherhood #Service #Women

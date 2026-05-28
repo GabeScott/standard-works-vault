@@ -1,6 +1,6 @@
 # “Is Any Thing Too Hard for the Lord?”
 
-By Douglas W. DeHaan - *President, Portland Oregon East Stake*
+By Douglas W. DeHaan - *President, Portland Oregon East Stake*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -35,8 +35,6 @@ The welfare programs of the Church are considered vital by the Lord, and if we w
 Most of the blessings of the Lord seem to come in the second mile. The first mile is doing what is expected of us. As we move beyond the first mile in faith and determination, we may draw down the powers of heaven, but this only so far as we are in spiritual condition to do so.
 
 Finally, I bear my solemn witness that there is nothing too hard for the Lord. In the name of Jesus Christ, amen.
-
-
 
 
 

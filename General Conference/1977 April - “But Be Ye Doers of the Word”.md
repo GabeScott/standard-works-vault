@@ -1,6 +1,6 @@
 # “But Be Ye Doers of the Word”
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -38,7 +38,7 @@ As those who have received the light of the gospel, we should be especially moti
 
 First, as husbands and wives: Our knowledge of this eternal relationship should cause us to be *most* determined to make a success of this important responsibility in our earthly existence.
 
-President Kimball has said, “Marriage is perhaps the most vital of all decisions and has the most far-reaching effects for it has to do not only with immediate happiness, but eternal joys as well. It affects not only the two people involved, but also their families and particularly their children and their children’s children down through the many generations.” (Spencer W. Kimball, *Marriage and Divorce,* Deseret Book Co., 1976, p. 10.)
+President Kimball has said, “Marriage is perhaps the most vital of all decisions and has the most far-reaching effects for it has to do not only with immediate happiness, but eternal joys as well. It affects not only the two people involved, but also their families and particularly their children and their children’s children down through the many generations.” (Spencer W. Kimball, *Marriage and Divorce,* Deseret Book Co., 1976, p. 10.)
 
 There is a devilish and all-too-popular plan today which would strike at the very roots of this essential and basic organization. Satan in his clever plan to destroy mankind has infiltrated the sacred ground of our homes. He is attempting to glamorize infidelity, make divorce commonplace, and popularize relationships outside of the marriage covenant. History gives abundant evidence that such a course will destroy mankind. Surely with our knowledge concerning the eternal nature of this sacred union between husband and wife, we should try with all diligence to make our marriages worthy of a celestial blessing.
 
@@ -64,7 +64,7 @@ Third—after love, understanding, and honesty in marriage—next in order of im
 
 Fathers, be honest in your business dealings. Be loyal to your employers. Determine to be the best in your chosen field of endeavor. Each day make a *full* effort to be more productive than you were the day before. I challenge you to be leaders in your chosen professions and occupations.
 
-Fourth, we have embraced the gospel of Jesus Christ. We have willingly placed our hand on the plow. We have accepted the obligation of building the kingdom of God here on earth. The scriptures tell us, “But covet earnestly the best gifts: and yet shew I unto you a more excellent way.” ([[1 Corinthians 12.31|1 Cor. 12:31]].) Surely only the standard of excellence is the goal we should be attempting to achieve in the assignment we have been given in Church service. I challenge you to enthusiastically accept Church calls and with diligence make every effort to achieve the highest level of performance.
+Fourth, we have embraced the gospel of Jesus Christ. We have willingly placed our hand on the plow. We have accepted the obligation of building the kingdom of God here on earth. The scriptures tell us, “But covet earnestly the best gifts: and yet shew I unto you a more excellent way.” ([[1 Corinthians 12.31|1 Cor. 12:31]].) Surely only the standard of excellence is the goal we should be attempting to achieve in the assignment we have been given in Church service. I challenge you to enthusiastically accept Church calls and with diligence make every effort to achieve the highest level of performance.
 
 Finally, our children deserve the right to grow up in a clean and wholesome environment. We have an obligation and a responsibility to safeguard this privilege for them.
 
@@ -77,8 +77,6 @@ I received a most interesting letter from a mother a few months ago reporting to
 We have been blessed with the light of the gospel to lead us and to guide and direct our lives. Through our understanding and study of the scriptures, we have a knowledge of the laws of the Lord by which we should govern our earthly conduct. With this great blessing comes an obligation to be a part of the communities in which we live. Our influence should be felt to safeguard the moral standards in the villages, in the towns, and in the cities where our homes are located in all parts of the world. I challenge you to become involved in lifting the moral standards of the communities where your homes are.
 
 May the light of the gospel help us to see the great potential the Lord has blessed us with. There is power in righteous living. May we again commit ourselves to be doers of the word—quality builders in our Father in heaven’s kingdom. May our lives be filled with the joy of accomplishment. May our knowledge of the gospel help us to be the best of whatever the Lord has called us to be, I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

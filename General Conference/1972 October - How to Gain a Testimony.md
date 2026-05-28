@@ -1,6 +1,6 @@
 # How to Gain a Testimony
 
-By President Loren C. Dunn - *Of the First Council of the Seventy*
+By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -8,7 +8,7 @@ By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 My brothers and sisters, I pray for the inspiration and strength and Spirit of the Lord during the few minutes that I am before you this afternoon.
 
-In a recent area general conference held in Mexico, President Harold B. Lee made this statement:
+In a recent area general conference held in Mexico, President Harold B. Lee made this statement:
 
 “The strength of the Church is not to be measured by the amount of money paid as tithing by faithful members, nor by the number of the total membership of the Church, or the number of Church chapels and temple buildings.
 
@@ -59,8 +59,6 @@ And finally, may Latter-day Saint parents bear their testimonies to their childr
 And may I add that the family setting is an ideal place to read the Book of Mormon. We as a family recently finished reading the Book of Mormon. Although two of our children are not old enough to read yet, we find that they understand more than we thought they would, for the spirit and truth of this great book enlighten all ages.
 
 What greater inheritance can parents give their children than the spiritual heritage which the children have a right to receive! To all men, both member and nonmember, comes the invitation from the God of this earth to learn for themselves the truth. May all who have not received the knowledge accept the invitation of the Savior is my prayer in the name of Jesus Christ. Amen.
-
-
 
 
 

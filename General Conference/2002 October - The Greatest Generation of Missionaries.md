@@ -26,9 +26,9 @@ Brethren, today we are fighting a battle that in many ways is more perilous, mor
 
 “Without natural affection, trucebreakers, false accusers, incontinent, fierce, despisers of those that are good,
 
-“… lovers of pleasures more than lovers of God;
+“… lovers of pleasures more than lovers of God;
 
-“Having a form of godliness, but denying the power thereof: from such turn away” ([[2 Timothy 3.2|2 Timothy 3:2–5]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]]).
+“Having a form of godliness, but denying the power thereof: from such turn away” ([[2 Timothy 3.2|2 Timothy 3:2–5]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]]).
 
 Does this sound familiar, brethren? To me it sounds like a night of prime-time television.
 
@@ -83,6 +83,4 @@ My brethren, I have spoken plainly tonight. I hope you can feel the love and the
 
 
 
-
-
-#Fatherhood #Missionary_Work #Preparation #Worthiness
+#Fatherhood #MissionaryWork #Preparation #Worthiness

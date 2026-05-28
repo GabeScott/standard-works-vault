@@ -1,6 +1,6 @@
 # The Blessings of Peace
 
-By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -28,7 +28,7 @@ We can be a peacemaker by avoiding criticism. Remember that Jesus in the Sermon 
 
 We can be a peacemaker by practicing and teaching forgiveness. Jesus was asked how many times one should be forgiven, and he replied that we should forgive without limit. Forgive him “seventy times seven.” ([[Matthew 18.22|Matt. 18:22]].) An important part of forgiving is forgetting. In some ways, being able to forget is almost as valuable as being able to remember.
 
-In dedicating the Hyde Park chapel in London, among other things, President David O. McKay said, “If you want peace, yours is the responsibility to obtain it. The Restored Gospel teaches that our homes should become warm nests where children may be protected and grow into noble men and women; where … old age \[may find\] repose; where prayer will find an altar.” (*Church News,* 11 Mar. 1961, p. 15.)
+In dedicating the Hyde Park chapel in London, among other things, President David O. McKay said, “If you want peace, yours is the responsibility to obtain it. The Restored Gospel teaches that our homes should become warm nests where children may be protected and grow into noble men and women; where … old age \[may find\] repose; where prayer will find an altar.” (*Church News,* 11 Mar. 1961, p. 15.)
 
 A very wise bishop called several young people into his office and said to them, “I would like you to help me in an experiment. I would like to prove the impact and influence of one member on the spirit of the family. For one month I would like each one of you to be the peacemaker in your home. Now don’t say anything about this to your family, but be thoughtful, kind, and considerate. Be an example. Where there is quarreling or bickering among members of your family, do whatever you can to overcome these faults by creating an atmosphere of love, harmony, and happiness.
 
@@ -54,11 +54,9 @@ Possibly there is a greater need of peacemakers today than ever before. If this 
 
 The blessed part of being a peacemaker is that those who are peacemakers and who live the gospel principles receive a testimony borne of the Holy Ghost. They enjoy the peace that surpasseth all understanding, relief from inner tensions, joy and happiness, contentment, growth, and development. I personally know this to be true.
 
-I bear you my witness that God the Father and his Son Jesus Christ live, and that through the instrumentality of the Prophet Joseph Smith the fullness of the gospel of Jesus Christ and the power to act in the name of God have been restored to this earth and, further, that President Spencer W. Kimball is a living prophet guiding and directing the affairs of the church of Jesus Christ on the earth today. May the Lord’s choicest blessings be with him, and may we have the courage and good judgment to follow his counsel and advice.
+I bear you my witness that God the Father and his Son Jesus Christ live, and that through the instrumentality of the Prophet Joseph Smith the fullness of the gospel of Jesus Christ and the power to act in the name of God have been restored to this earth and, further, that President Spencer W. Kimball is a living prophet guiding and directing the affairs of the church of Jesus Christ on the earth today. May the Lord’s choicest blessings be with him, and may we have the courage and good judgment to follow his counsel and advice.
 
 May each of us in our daily lives assume the role of a peacemaker and enjoy the peace that surpasseth all understanding, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Humble Souls at Altars Kneel
 
-By Elder Jeremy R. Jaggi - *Of the Seventy*
+By Elder Jeremy R. Jaggi - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -22,7 +22,7 @@ Abraham built an altar, bound Isaac, and was ready to sacrifice his only son, bu
 
 During His Sermon on the Mount, the Savior invited us to reconcile with our brothers and sisters before we approach the altar.[^6] Paul taught that we are “sanctified” at the altar through the Atonement of Jesus Christ.[^7]
 
-The prophet Lehi “left his house … and his precious things. … \[Then\] he built an altar …⁠ and made an offering … , and gave thanks unto the Lord.”[^8]
+The prophet Lehi “left his house … and his precious things. … \[Then\] he built an altar …⁠ and made an offering … , and gave thanks unto the Lord.”[^8]
 
 The Bible and the Book of Mormon teach us to worship the Son of God at altars. Why?
 
@@ -48,11 +48,11 @@ A young adult in Tonga or Samoa is much more likely to be sealed in the house of
 
 ## Reflection and Sanctification
 
-When we humbly and symbolically kneel at the altars of the Lord, it is an opportunity for reflection, “checked as to the pride of \[our\] hearts, … \[humbling ourselves\] before God.”[^22] Before I went out with my friends as a youth, my mother would often say, “Remember who you are, and check in when you get home.” Some nights I missed my check-in because I arrived home too late. I regret missing those important visits with Mom.
+When we humbly and symbolically kneel at the altars of the Lord, it is an opportunity for reflection, “checked as to the pride of \[our\] hearts, … \[humbling ourselves\] before God.”[^22] Before I went out with my friends as a youth, my mother would often say, “Remember who you are, and check in when you get home.” Some nights I missed my check-in because I arrived home too late. I regret missing those important visits with Mom.
 
-Today I look forward to check-in connections with Heavenly Father. In my daily pattern of personal worship, I kneel in prayer, next to my bed or gathered with family, and I envision myself kneeling at the altars, reflecting on and examining my life.[^23] I think about the sacrament, even whole pieces of bread, broken and torn for us, each a symbol of our Savior’s broken body. I’m reminded of President Dallin H. Oaks’s teaching that “each piece of bread is unique, just as the individuals who partake of it are unique.”[^24] When I kneel in prayer, I think on how I can give God my will.
+Today I look forward to check-in connections with Heavenly Father. In my daily pattern of personal worship, I kneel in prayer, next to my bed or gathered with family, and I envision myself kneeling at the altars, reflecting on and examining my life.[^23] I think about the sacrament, even whole pieces of bread, broken and torn for us, each a symbol of our Savior’s broken body. I’m reminded of President Dallin H. Oaks’s teaching that “each piece of bread is unique, just as the individuals who partake of it are unique.”[^24] When I kneel in prayer, I think on how I can give God my will.
 
-Elder David A. Bednar taught that “the ordinance of the sacrament is a holy and repeated invitation to repent sincerely and to be renewed spiritually. The act of partaking of the sacrament, in and of itself, does not remit sins. But as we prepare conscientiously and participate in this holy ordinance with a broken heart and a contrite spirit, then the promise is that we may *always* have the Spirit of the Lord to be with us. And by the sanctifying power of the Holy Ghost as our constant companion, we can *always* retain a remission of our sins.”[^25]
+Elder David A. Bednar taught that “the ordinance of the sacrament is a holy and repeated invitation to repent sincerely and to be renewed spiritually. The act of partaking of the sacrament, in and of itself, does not remit sins. But as we prepare conscientiously and participate in this holy ordinance with a broken heart and a contrite spirit, then the promise is that we may *always* have the Spirit of the Lord to be with us. And by the sanctifying power of the Holy Ghost as our constant companion, we can *always* retain a remission of our sins.”[^25]
 
 When Amy and I look closely at our life experiences, we celebrate the gift of Jesus Christ’s perfect love and sacrifice. We also see how hell’s fury has been loosed. How can we overcome stares of judgment, anxiety, depression, cancer, diabetes, online bullying, stolen identity, lost pregnancies, the loss of a child, a brother, and a father? Because Jesus took of the bitter cup of trembling, the cup of fury—for me, for my family, for all of us![^26]
 
@@ -64,11 +64,11 @@ Sister Patricia Holland said, “My deepest prayer for you and for myself today 
 
 When we come to the altar, we aren’t earning a reward; we are learning about the Gift Giver.[^31] In that learning and covenant binding comes healing. Nephi said, “He hath filled me with his love, even unto the consuming of my flesh.”[^32] And our loving Savior invited, “Will ye not now return unto me, and repent of your sins, and be converted, that I may heal you?”[^33]
 
-When our two oldest daughters, Mackenzie and Emma, were little, one of their favorite stories was *The Chronicles of Narnia: The Lion, the Witch and the Wardrobe*. We all fell in love with the lion, Aslan. One of our most memorable nights reading the book was when the great lion gave his life for Edmund. Memorable because parents and daughters shed tears as the lion’s life was taken on the Stone Table by the Witch. Memorable because hope persisted, despite the tragedy, until the spectacular happened. Squeals of joy resounded in that little bedroom when Aslan was resurrected and said, “If \[the Witch knew the true meaning of sacrifice\], … she would \[know\] that \[if\] a willing victim who had committed no treachery \[died\] in a traitor’s stead, the \[Stone\] Table would crack and Death itself would \[begin to unwind\].”[^34]
+When our two oldest daughters, Mackenzie and Emma, were little, one of their favorite stories was *The Chronicles of Narnia: The Lion, the Witch and the Wardrobe*. We all fell in love with the lion, Aslan. One of our most memorable nights reading the book was when the great lion gave his life for Edmund. Memorable because parents and daughters shed tears as the lion’s life was taken on the Stone Table by the Witch. Memorable because hope persisted, despite the tragedy, until the spectacular happened. Squeals of joy resounded in that little bedroom when Aslan was resurrected and said, “If \[the Witch knew the true meaning of sacrifice\], … she would \[know\] that \[if\] a willing victim who had committed no treachery \[died\] in a traitor’s stead, the \[Stone\] Table would crack and Death itself would \[begin to unwind\].”[^34]
 
 Jesus Christ heals all wounds. Jesus Christ makes it possible to live again.
 
-In his October 2022 general conference talk, President Russell M. Nelson described a tour group coming through a temple open house. A young boy was there. President Nelson taught:
+In his October 2022 general conference talk, President Russell M. Nelson described a tour group coming through a temple open house. A young boy was there. President Nelson taught:
 
 “When the tour group entered an endowment room, the boy pointed to the altar, where people kneel to make covenants with God, and said, ‘Oh, that’s nice. Here is a place for people to *rest* on their temple journey.’
 
@@ -85,82 +85,80 @@ In his October 2022 general conference talk, President Russell M. Nelson descri
 
 
 
-[^1]: See [[3 Nephi 18.4|3 Nephi 18:4–9]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]].
+[^1]: See [[3 Nephi 18.4|3 Nephi 18:4–9]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]].
 
-[^2]: “[Bread of Life, Living Water](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/bread-of-life-living-water?lang=eng&id=figure1_p21-figure1_p22#figure1_p21),” *Hymns—For Home and Church*, Gospel Library.
+[^2]: “[Bread of Life, Living Water](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/bread-of-life-living-water?lang=eng&id=figure1_p21-figure1_p22#figure1_p21),” *Hymns—For Home and Church*, Gospel Library.
 
-[^3]: See [[Moroni 4.1|Moroni 4]][[Moroni 4.2|]][[Moroni 4.3|]]; [[Moroni 5.1|5.]][[Moroni 5.2|]]
+[^3]: See [[Moroni 4.1|Moroni 4]][[Moroni 4.2|]][[Moroni 4.3|]]; [[Moroni 5.1|5.]][[Moroni 5.2|]]
 
 [^4]: [[Genesis 22.11|Genesis 22:11]].
 
-[^5]: See [[Genesis 31.11|Genesis 31:11]]; [[Genesis 46.2|46:2]]; [[Exodus 3.4|Exodus 3:4]]; [[1 Samuel 3.4|1 Samuel 3:4–10]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]]; [[Isaiah 6.8|Isaiah 6:8]]; [[Abraham 3.27|Abraham 3:27]].
+[^5]: See [[Genesis 31.11|Genesis 31:11]]; [[Genesis 46.2|46:2]]; [[Exodus 3.4|Exodus 3:4]]; [[1 Samuel 3.4|1 Samuel 3:4–10]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]]; [[Isaiah 6.8|Isaiah 6:8]]; [[Abraham 3.27|Abraham 3:27]].
 
 [^6]: See [[Matthew 5.23|Matthew 5:23–24]][[Matthew 5.24|]].
 
 [^7]: See [[Hebrews 10.10|Hebrews 10:10–14]][[Hebrews 10.11|]][[Hebrews 10.12|]][[Hebrews 10.13|]][[Hebrews 10.14|]].
 
-[^8]: [[1 Nephi 2.4|1 Nephi 2:4, 7]][[1 Nephi 2.7|]].
+[^8]: [[1 Nephi 2.4|1 Nephi 2:4, 7]][[1 Nephi 2.7|]].
 
-[^9]: See [[Moses 5.5|Moses 5:5]]; Topical Guide, “[Jesus Christ, Types of, in Anticipation](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng).”
+[^9]: See [[Moses 5.5|Moses 5:5]]; Topical Guide, “[[Jesus Christ, Types of, in Anticipation|Jesus Christ, Types of, in Anticipation]].”
 
 [^10]: [[Moses 5.5|Moses 5:5–8]][[Moses 5.6|]][[Moses 5.7|]][[Moses 5.8|]].
 
-[^11]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [27.2](https://churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11), Gospel Library.
+[^11]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [27.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11), Gospel Library.
 
-[^12]: See [[1 Timothy 5.15|1 Timothy 5:15]]; [[3 Nephi 6.16|3 Nephi 6:16]]; [[3 Nephi 11.29|11:29–30]][[3 Nephi 11.30|]].
+[^12]: See [[1 Timothy 5.15|1 Timothy 5:15]]; [[3 Nephi 6.16|3 Nephi 6:16]]; [[3 Nephi 11.29|11:29–30]][[3 Nephi 11.30|]].
 
-[^13]: See “[Take My Heart and Let It Be Consecrated](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/take-my-heart-and-let-it-be-consecrated-release-3?lang=eng),” *Hymns—For Home and Church*.
+[^13]: See “[Take My Heart and Let It Be Consecrated](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/take-my-heart-and-let-it-be-consecrated?lang=eng),” *Hymns—For Home and Church*.
 
-[^14]: Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power Through Covenants]],” *Liahona*, May 2023, 37.
+[^14]: Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power Through Covenants]],” *Liahona*, May 2023, 37.
 
 [^15]: [[Alma 15.17|Alma 15:17]].
 
-[^16]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94.
+[^16]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94.
 
-[^17]: See [[Isaiah 28.10|Isaiah 28:10, 13]][[Isaiah 28.13|]].
+[^17]: See [[Isaiah 28.10|Isaiah 28:10, 13]][[Isaiah 28.13|]].
 
-[^18]: See Quentin L. Cook, “Missionary Purpose and Lessons Learned” (address given at the seminar for new mission leaders, June 19, 2025).
+[^18]: See Quentin L. Cook, “Missionary Purpose and Lessons Learned” (address given at the seminar for new mission leaders, June 19, 2025).
 
-[^19]: See *General Handbook*, [27.2](https://churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11).
+[^19]: See *General Handbook*, [27.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11).
 
-[^20]: See D. Todd Christofferson, “[[2023 April - One in Christ.md|One in Christ]],” *Liahona*, May 2023, 77–80.
+[^20]: See D. Todd Christofferson, “[[2023 April - One in Christ.md|One in Christ]],” *Liahona*, May 2023, 77–80.
 
-[^21]: See Neil L. Andersen, “[[2024 April - Temples, Houses of the Lord Dotting the Earth.md|Temples, Houses of the Lord Dotting the Earth]],” *Liahona*, May 2024, 111–14.
+[^21]: See Neil L. Andersen, “[[2024 April - Temples, Houses of the Lord Dotting the Earth.md|Temples, Houses of the Lord Dotting the Earth]],” *Liahona*, May 2024, 111–14.
 
 [^22]: [[Alma 15.17|Alma 15:17]].
 
-[^23]: See [[1 Corinthians 11.28|1 Corinthians 11:28]].
+[^23]: See [[1 Corinthians 11.28|1 Corinthians 11:28]].
 
-[^24]: Dallin H. Oaks, “Introductory Message” (address given at the seminar for new mission leaders, June 25, 2017).
+[^24]: Dallin H. Oaks, “Introductory Message” (address given at the seminar for new mission leaders, June 25, 2017).
 
-[^25]: David A. Bednar, “[[2016 April - Always Retain a Remission of Your Sins.md|Always Retain a Remission of Your Sins]],” *Ensign* or *Liahona*, May 2016, 61–62.
+[^25]: David A. Bednar, “[[2016 April - Always Retain a Remission of Your Sins.md|Always Retain a Remission of Your Sins]],” *Ensign* or *Liahona*, May 2016, 61–62.
 
-[^26]: See [[Isaiah 51.17|Isaiah 51:17, 22]][[Isaiah 51.22|]]; [[3 Nephi 11.11|3 Nephi 11:11]].
+[^26]: See [[Isaiah 51.17|Isaiah 51:17, 22]][[Isaiah 51.22|]]; [[3 Nephi 11.11|3 Nephi 11:11]].
 
 [^27]: [[D&C 19.18|Doctrine and Covenants 19:18]].
 
-[^28]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88.
+[^28]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88.
 
-[^29]: [[3 Nephi 27.20|3 Nephi 27:20]].
+[^29]: [[3 Nephi 27.20|3 Nephi 27:20]].
 
-[^30]: *An Eye Single: Thoughts and Teachings from Patricia T. Holland*, comp. Mary Alice Holland McCann (2025), 135.
+[^30]: *An Eye Single: Thoughts and Teachings from Patricia T. Holland*, comp. Mary Alice Holland McCann (2025), 135.
 
 [^31]: See [[D&C 88.33|Doctrine and Covenants 88:33.]]
 
-[^32]: [[2 Nephi 4.21|2 Nephi 4:21]].
+[^32]: [[2 Nephi 4.21|2 Nephi 4:21]].
 
-[^33]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^33]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
 [^34]: *The Lion, the Witch and the Wardrobe* (New York: HarperCollins, 1994), 178–79.
 
-[^35]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–96.
+[^35]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–96.
 
 [^36]: Matthew 8:20, New International Version.
 
 [^37]: See Luke 22:14, New International Version. *Recline* comes from the Greek *anapipto*, indicating freedom and rest. The act of reclining was a reminder of the Israelites’ liberation from Egyptian slavery.
 
-[^38]: “[Welcome Home](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/welcome-home-release-3?lang=eng&id=figure1_p12#figure1_p12),” *Hymns—For Home and Church*.
+[^38]: “[Welcome Home](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/welcome-home?lang=eng&id=figure1_p12#figure1_p12),” *Hymns—For Home and Church*.
 
-
-
-#Atonement #Covenants #Healing #Humility #Jesus_Christ #Sacrament #Worship
+#Atonement #Covenants #Healing #Humility #JesusChrist #Sacrament #Worship

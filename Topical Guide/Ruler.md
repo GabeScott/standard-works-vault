@@ -1,6 +1,5 @@
 # Ruler
 
-
 *See also* [[Citizenship.md|Citizenship]]; [[Governments.md|Governments]]; [[Jesus Christ, Authority of.md|Jesus Christ, Authority of]]; [[Jesus Christ, King.md|Jesus Christ, King]]; [[Kings, Earthly.md|Kings, Earthly]]; [[Leadership.md|Leadership]]; [[Lord.md|Lord]]; [[Rule.md|Rule]]
 
 made him *ruler* over all the land of Egypt, [[Genesis 41.43|Genesis 41:43]].
@@ -11,11 +10,11 @@ nor curse the *ruler* of thy people, [[Exodus 22.28|Exodus 22:28]] ([[Acts 23.5|
 
 When a *ruler* hath sinned, [[Leviticus 4.22|Leviticus 4:22]].
 
-Lord ... shall have appointed thee *ruler* over Israel, [[1 Samuel 25.30|1 Samuel 25:30]].
+Lord … shall have appointed thee *ruler* over Israel, [[1 Samuel 25.30|1 Samuel 25:30]].
 
 he hath chosen Judah to be the *ruler*, [[1 Chronicles 28.4|1 Chronicles 28:4]].
 
-of thee shall he come ... to be *ruler* in Israel, [[Micah 5.2|Micah 5:2]].
+of thee shall he come … to be *ruler* in Israel, [[Micah 5.2|Micah 5:2]].
 
 there came a certain *ruler*, [[Matthew 9.18|Matthew 9:18]] ([[Mark 5.22|Mark 5:22]]; [[Luke 8.41|Luke 8:41]]).
 
@@ -41,13 +40,13 @@ Thou shalt not speak evil of the *ruler*, [[Acts 23.5|Acts 23:5]].
 
 *rulers* are not a terror to good works, [[Romans 13.3|Romans 13:3]].
 
-we wrestle ... against the *rulers* of the darkness, [[Ephesians 6.12|Ephesians 6:12]].
+we wrestle … against the *rulers* of the darkness, [[Ephesians 6.12|Ephesians 6:12]].
 
 thou shalt be made a *ruler* and a teacher, [[1 Nephi 2.22|1 Nephi 2:22]] ([[1 Nephi 3.29|1 Nephi 3:29]]).
 
 Nephi, who has taken it upon him to be our *ruler*, [[1 Nephi 16.37|1 Nephi 16:37]].
 
-gospel might be proclaimed ... before kings and *rulers*, [[D&C 1.23|D&C 1:23]].
+gospel might be proclaimed … before kings and *rulers*, [[D&C 1.23|D&C 1:23]].
 
 ye shall have no king nor *ruler*, [[D&C 38.21|D&C 38:21]].
 
@@ -61,4 +60,4 @@ I give unto my servant Joseph that he shall be made *ruler* over many things, [[
 
 These I will make my *rulers*, [[Abraham 3.23|Abraham 3:23]].
 
-We believe in being subject to ... *rulers*, [[Articles of Faith 1.12|Articles of Faith 1:12]].
+We believe in being subject to … *rulers*, [[Articles of Faith 1.12|Articles of Faith 1:12]].

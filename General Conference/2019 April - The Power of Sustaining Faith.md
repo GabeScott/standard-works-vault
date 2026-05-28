@@ -1,12 +1,12 @@
 # The Power of Sustaining Faith
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2019 General Conference*
 
 >*By raising your hand to sustain, you make a promise with God, whose servants these are, that you will sustain them.*
 
-[Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/34eyring)
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/34eyring?lang=eng)
 
 Many times I have heard priesthood leaders give thanks for the sustaining faith of those they serve. From the emotion in their voices, you know their gratitude is deep and real. My purpose today is to convey the Lord’s appreciation for your sustaining His servants in His Church. And it is also to encourage you to exercise and grow in that power to sustain others with your faith.
 
@@ -42,7 +42,7 @@ My counsel is that you ask those questions of yourself beforehand, with careful 
 
 Those questions will, for most of us, lead to some uneasiness and a need to repent. We are commanded by God not to judge others unrighteously, but in practice, we find that hard to avoid. Almost everything we do in working with people leads us to evaluate them. And in almost every aspect of our lives, we compare ourselves with others. We may do so for many reasons, some of them reasonable, but it often leads us to be critical.
 
-President George Q. Cannon gave a warning that I pass on to you as my own. I believe he spoke the truth: “God has chosen His servants. He claims it as His prerogative to condemn them, if they need condemnation. He has not given it to us individually to censure and condemn them. No man, however strong he may be in the faith, however high in the Priesthood, can speak evil of the Lord’s anointed and find fault with God’s authority on the earth without incurring His displeasure. The Holy Spirit will withdraw himself from such a man, and he will go into darkness. This being the case, do you not see how important it is that we should be careful?”[^1]
+President George Q. Cannon gave a warning that I pass on to you as my own. I believe he spoke the truth: “God has chosen His servants. He claims it as His prerogative to condemn them, if they need condemnation. He has not given it to us individually to censure and condemn them. No man, however strong he may be in the faith, however high in the Priesthood, can speak evil of the Lord’s anointed and find fault with God’s authority on the earth without incurring His displeasure. The Holy Spirit will withdraw himself from such a man, and he will go into darkness. This being the case, do you not see how important it is that we should be careful?”[^1]
 
 My observation is that the members of the Church across the world are generally loyal to each other and to those who preside over them. There are, however, improvements we could and must make. We could rise higher in our power to sustain each other. It will take faith and effort. Here are four suggestions I make for us to act on at this conference.
 
@@ -74,7 +74,5 @@ I testify that Heavenly Father knows and loves you. Jesus is the living Christ. 
 [^1]: *Gospel Truth: Discourses and Writings of President George Q. Cannon,* ed. Jerreld L. Newquist (1974), 1:278.
 
 [^2]: See [[D&C 35.2|Doctrine and Covenants 35:2]].
-
-
 
 #Faith #Family

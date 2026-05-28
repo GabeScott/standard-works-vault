@@ -12,9 +12,9 @@ From [[D&C 46.11|Doctrine and Covenants 46:11–12]][[D&C 46.12|]], we have this
 
 “To some is given one, and to some is given another, that all may be profited thereby.”
 
-God has given each of us one or more special talents. Socrates made the famous statement, “The unexamined life is not worth living” (“Apology,” *The Dialogues of Plato,* trans. Benjamin Jowett, Chicago: Encyclopaedia Britannica, 1952, p. 210). It is up to each of us to search for and build upon the gifts which God has given. We must remember that each of us is made in the image of God, that there are no unimportant persons. Everyone matters to God and to his fellowmen.
+God has given each of us one or more special talents. Socrates made the famous statement, “The unexamined life is not worth living” (“Apology,” *The Dialogues of Plato,* trans. Benjamin Jowett, Chicago: Encyclopaedia Britannica, 1952, p. 210). It is up to each of us to search for and build upon the gifts which God has given. We must remember that each of us is made in the image of God, that there are no unimportant persons. Everyone matters to God and to his fellowmen.
 
-From the Book of Mormon, particularly [[3 Nephi 11.1|3 Nephi, chapters 11 through 26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], when the Savior Jesus Christ showed himself to the people on the American continent, many gifts are referred to as being very real and most useful. Taken at random, let me mention a few gifts that are not always evident or noteworthy but that are very important. Among these may be your gifts—gifts not so evident but nevertheless real and valuable.
+From the Book of Mormon, particularly [[3 Nephi 11.1|3 Nephi, chapters 11 through 26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], when the Savior Jesus Christ showed himself to the people on the American continent, many gifts are referred to as being very real and most useful. Taken at random, let me mention a few gifts that are not always evident or noteworthy but that are very important. Among these may be your gifts—gifts not so evident but nevertheless real and valuable.
 
 Let us review some of these less-conspicuous gifts: the gift of asking; the gift of listening; the gift of hearing and using a still, small voice; the gift of being able to weep; the gift of avoiding contention; the gift of being agreeable; the gift of avoiding vain repetition; the gift of seeking that which is righteous; the gift of not passing judgment; the gift of looking to God for guidance; the gift of being a disciple; the gift of caring for others; the gift of being able to ponder; the gift of offering prayer; the gift of bearing a mighty testimony; and the gift of receiving the Holy Ghost.
 
@@ -26,7 +26,7 @@ Time will permit my emphasizing only a few of these God-given gifts.
 
 As I study the scriptures, I am challenged and moved by the word *ponder* used so frequently in the Book of Mormon. Dictionaries say that *ponder* means to weigh mentally, think deeply about, deliberate, meditate.
 
-When Jesus Christ came to teach the Nephites, he said, “Therefore, go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand, and prepare your minds for the morrow, and I come unto you again” ([[3 Nephi 17.3|3 Ne. 17:3]]).
+When Jesus Christ came to teach the Nephites, he said, “Therefore, go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand, and prepare your minds for the morrow, and I come unto you again” ([[3 Nephi 17.3|3 Ne. 17:3]]).
 
 Moroni used this term as he closed his record. “Behold, I would exhort you that when ye shall read these things, … ye would remember how merciful the Lord hath been unto the children of men, … and ponder it in your hearts” ([[Moroni 10.3|Moro. 10:3]]).
 
@@ -42,7 +42,7 @@ How often have we ourselves said or have heard others exclaim in times of crisis
 
 If we will just use it, there is a gift available to all of us—the gift of looking to God for direction. Here is an avenue of strength, comfort, and guidance.
 
-“Behold, I am the law, and the light. Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life” ([[3 Nephi 15.9|3 Ne. 15:9]]).
+“Behold, I am the law, and the light. Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life” ([[3 Nephi 15.9|3 Ne. 15:9]]).
 
 “Look to God and live.” This is the wonderful promise given so often in the scriptures.
 
@@ -54,7 +54,7 @@ What a spiritual comfort and blessing it is to know that, if we look to our Savi
 
 Still, small heavenly voices penetrate the heart with their gentle, convincing declarations:
 
-“And it came to pass that while they were thus conversing one with another, they heard a voice as if it came out of heaven; and they cast their eyes round about, for they understood not the voice which they heard; and it was not a harsh voice, neither was it a loud voice; nevertheless, and notwithstanding it being a small voice it did pierce them that did hear to the center, insomuch that there was no part of their frame that it did not cause to quake; yea, it did pierce them to the very soul, and did cause their hearts to burn” ([[3 Nephi 11.3|3 Ne. 11:3]]).
+“And it came to pass that while they were thus conversing one with another, they heard a voice as if it came out of heaven; and they cast their eyes round about, for they understood not the voice which they heard; and it was not a harsh voice, neither was it a loud voice; nevertheless, and notwithstanding it being a small voice it did pierce them that did hear to the center, insomuch that there was no part of their frame that it did not cause to quake; yea, it did pierce them to the very soul, and did cause their hearts to burn” ([[3 Nephi 11.3|3 Ne. 11:3]]).
 
 Most often, hope, encouragement, and direction come from a soft, piercing voice.
 
@@ -74,7 +74,7 @@ Remember that one of our greatest gifts is the small voice of the Holy Ghost whi
 
 What a majestic gift it is to be able to calm others! We thank God for those who are calm instead of contentious.
 
-“For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another” ([[3 Nephi 11.29|3 Ne. 11:29]]).
+“For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another” ([[3 Nephi 11.29|3 Ne. 11:29]]).
 
 Contention is a tool of the adversary. Peace is a tool of our Savior. What a wonderful tribute we pay people when we describe them as being gentle, firm, and calm!
 
@@ -92,7 +92,7 @@ We should learn to talk together, listen together, pray together, decide togethe
 
 There has never been a time when it is more important for us as members of The Church of Jesus Christ of Latter-day Saints to take a stand, remain firm in our convictions, and conduct ourselves with calm assurance under all circumstances. We must not be manipulated or enraged by those who subtly foster contention over issues of the day.
 
-“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away” ([[3 Nephi 11.30|3 Ne. 11:30]]).
+“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away” ([[3 Nephi 11.30|3 Ne. 11:30]]).
 
 “Ye should live in peace one with another” ([[Mosiah 2.20|Mosiah 2:20]]). Those with the gift of being calm make lasting peace possible.
 
@@ -119,8 +119,6 @@ Then the presenter asked all those whom Sister Keefer had ever taught and cared 
 “And to every man is given a gift” ([[D&C 46.11|D&C 46:11]]). This is true. God help us to recognize, develop, and share our gifts that all may profit thereby is my earnest hope and plea.
 
 God does live. He does bless us with gifts. As we develop and share our God-given gifts and benefit from the gifts of those around us, the world can be a better place and God’s work will move forward at a more rapid pace. To these truths I bear my testimony and leave my personal witness in the name of Jesus Christ, amen.
-
-
 
 
 

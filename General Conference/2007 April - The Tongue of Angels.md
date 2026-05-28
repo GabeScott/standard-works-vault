@@ -22,7 +22,7 @@ Continuing the imagery of the bridle, he writes: “Behold, we put bits in the h
 
 Then James makes his point: “The tongue is \[also\] a little member. … \[But\] behold, how great a \[forest (Greek)\] a little fire \[can burn\]!
 
-“… So is the tongue \[a fire\] among our members, … it defileth the whole body, … it is set on fire of hell.
+“… So is the tongue \[a fire\] among our members, … it defileth the whole body, … it is set on fire of hell.
 
 “For every kind of beasts, and of birds, and of serpents, and of things in the sea … hath been tamed of mankind:
 
@@ -50,9 +50,9 @@ I have often thought that Nephi’s being bound with cords and beaten by rods mu
 
 Paul put it candidly but very hopefully. He said to all of us: “Let no corrupt communication proceed out of your mouth, but \[only\] that which is good … \[and\] edifying, that it may minister grace unto the hearers.
 
-“And grieve not the holy Spirit of God. …
+“And grieve not the holy Spirit of God. …
 
-“Let all bitterness, and wrath, and anger, and clamour, and evil speaking, be put away from you. …
+“Let all bitterness, and wrath, and anger, and clamour, and evil speaking, be put away from you. …
 
 “And be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ’s sake hath forgiven you.”[^10]
 
@@ -79,15 +79,16 @@ So, brothers and sisters, in this long eternal quest to be more like our Savior,
 
 [^8]: [[Matthew 14.27|Matthew 14:27]]; [[Mark 6.50|Mark 6:50]]; [[John 16.33|John 16:33]].
 
-[^9]: See [[1 Nephi 3.28|1 Nephi 3:28–31]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]]; [[1 Nephi 18.11|18:11–15]][[1 Nephi 18.12|]][[1 Nephi 18.13|]][[1 Nephi 18.14|]][[1 Nephi 18.15|]].
+[^9]: See [[1 Nephi 3.28|1 Nephi 3:28–31]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]]; [[1 Nephi 18.11|18:11–15]][[1 Nephi 18.12|]][[1 Nephi 18.13|]][[1 Nephi 18.14|]][[1 Nephi 18.15|]].
 
 [^10]: [[Ephesians 4.29|Ephesians 4:29–32]][[Ephesians 4.30|]][[Ephesians 4.31|]][[Ephesians 4.32|]].
 
-[^11]: [[2 Nephi 31.13|2 Nephi 31:13–14]][[2 Nephi 31.14|]]; [[2 Nephi 32.2|32:2–3]][[2 Nephi 32.3|]].
+[^11]: [[2 Nephi 31.13|2 Nephi 31:13–14]][[2 Nephi 31.14|]]; [[2 Nephi 32.2|32:2–3]][[2 Nephi 32.3|]].
 
 [^12]: [[John 1.1|John 1:1]].
 
-[^13]: See [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
+[^13]: See [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
 
+[^14]: See [[Matthew 25.40|Matthew 25:40]].
 
 #Abuse #Attitude #Family #Marriage #Respect

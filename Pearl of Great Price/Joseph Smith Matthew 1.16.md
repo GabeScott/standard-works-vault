@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:16](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.16?lang=eng#p16)
 
 
-[^a]: [[Luke 23.29|Luke 23:29 (29-31).]]
+[^a]: [[Luke 23.29|Luke 23:29 (29–31)]][[Luke 23.30|]][[Luke 23.31|]].  

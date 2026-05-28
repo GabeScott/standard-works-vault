@@ -54,7 +54,7 @@ Be a *true* Latter-day Saint. Stand up for your beliefs. One of my favorite Prim
 >Angels will hasten the story to tell.
 >
 
-Remember, Satan does not want you to be happy. He does not want you to dare to do right. He wants you to be miserable, as he is. He has captured the hearts of wicked men and women who would have you participate in bad things such as pornography, drugs, profanity, and immorality. Stay away from these evils. Avoid books, magazines, videos, movies, and television shows that are not good. As the scriptures tell us, avoid the very *appearance* of evil. (See [[1 Thessalonians 5.22|1 Thes. 5:22]].)
+Remember, Satan does not want you to be happy. He does not want you to dare to do right. He wants you to be miserable, as he is. He has captured the hearts of wicked men and women who would have you participate in bad things such as pornography, drugs, profanity, and immorality. Stay away from these evils. Avoid books, magazines, videos, movies, and television shows that are not good. As the scriptures tell us, avoid the very *appearance* of evil. (See [[1 Thessalonians 5.22|1 Thes. 5:22]].)
 
 Dress modestly. Choose clothing that covers your body properly. Behave in a courteous and polite way. Live the Word of Wisdom. Keep the Sabbath day holy. Listen to good music. Do your best to be good.
 
@@ -68,7 +68,7 @@ Primary boys, plan and look forward to serving a full-time mission for the Lord.
 
 Now I want to say something to you children who do not feel safe and who are frightened or hurt and do not know what to do. Sometimes you may feel all alone. You need to know that even when it seems that no one else cares, your Heavenly Father does. He will always love you. He wants you to be protected and safe. If you are not, please talk to someone who can help you—a parent, a teacher, your bishop, or a friend. They will help you.
 
-I am sure each of you has favorite stories from the scriptures. One of my favorite stories is found in the seventeenth chapter of 3 Nephi in the Book of Mormon. It tells about the visit of Jesus to the people on the American continent after His resurrection. It tells about Jesus healing the sick and teaching the people and praying to Heavenly Father for them.
+I am sure each of you has favorite stories from the scriptures. One of my favorite stories is found in the seventeenth chapter of 3 Nephi in the Book of Mormon. It tells about the visit of Jesus to the people on the American continent after His resurrection. It tells about Jesus healing the sick and teaching the people and praying to Heavenly Father for them.
 
 Now, this is one of my favorite parts of that story:
 
@@ -84,7 +84,7 @@ Now, this is one of my favorite parts of that story:
 
 “And he spake unto the multitude, and said unto them: Behold your little ones.
 
-“And as they looked to behold they cast their eyes towards heaven, and they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, and they were encircled about with fire; and the angels did minister unto them.” ([[3 Nephi 17.18|3 Ne. 17:18–24]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]].)
+“And as they looked to behold they cast their eyes towards heaven, and they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, and they were encircled about with fire; and the angels did minister unto them.” ([[3 Nephi 17.18|3 Ne. 17:18–24]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]].)
 
 I promise you, dear children, that angels will minister unto you also. You may not see them, but they will be there to help you, and you will feel of their presence.
 
@@ -139,6 +139,4 @@ For this I fervently pray for the children of the Church, in the name of Jesus C
 
 
 
-
-
-#Book_Of_Mormon #Children #Family #Obedience #Plan_Of_Salvation
+#BookOfMormon #Children #Family #Obedience #PlanOfSalvation

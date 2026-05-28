@@ -12,7 +12,7 @@ No Father would send His children off to a distant, dangerous land for a lifetim
 
 The Restoration began with the prayer of a 14-year-old boy and a vision of the Father and the Son. The dispensation of the fulness of times was ushered in.
 
-The Restoration of the gospel brought knowledge of the premortal existence. From the scriptures, we know of the Council in Heaven and the decision to send the sons and daughters of God into mortality to receive a body and to be tested.[^2] We are children of God. We have a spirit body housed, for now, in an earthly tabernacle of flesh. The scriptures say, “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Corinthians 3:16]]).
+The Restoration of the gospel brought knowledge of the premortal existence. From the scriptures, we know of the Council in Heaven and the decision to send the sons and daughters of God into mortality to receive a body and to be tested.[^2] We are children of God. We have a spirit body housed, for now, in an earthly tabernacle of flesh. The scriptures say, “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Corinthians 3:16]]).
 
 As children of God, we learn we are part of His “great plan of happiness” ([[Alma 42.8|Alma 42:8]]).
 
@@ -26,7 +26,7 @@ We were given our agency.[^3] We must use it wisely and remain close to the Spir
 
 “For behold, the Spirit of Christ is given to every man, that he may know good from evil; wherefore, I show unto you the way to judge; for every thing which inviteth to do good, and to persuade to believe in Christ, is sent forth by the power and gift of Christ; wherefore ye may know with a perfect knowledge it is of God” ([[Moroni 7.16|Moroni 7:16]]).
 
-There is a perfect manner of communication through the Spirit, “for the Spirit searcheth all things, yea, the deep things of God” ([[1 Corinthians 2.10|1 Corinthians 2:10]]).
+There is a perfect manner of communication through the Spirit, “for the Spirit searcheth all things, yea, the deep things of God” ([[1 Corinthians 2.10|1 Corinthians 2:10]]).
 
 Following baptism into The Church of Jesus Christ of Latter-day Saints, there comes a second ordinance: “Laying on of hands for the gift of the Holy Ghost” ([[Articles of Faith 1.4|Articles of Faith 1:4]]).
 
@@ -64,7 +64,7 @@ And Enos recorded, “While I was thus struggling in the spirit, behold, the voi
 
 You can know the things you need to know. Pray that you will learn to receive that inspiration and remain worthy to receive it. Keep that channel—your mind—clean and free from the clutter of the world.
 
-Elder Graham W. Doxey, who once served in the Second Quorum of the Seventy, told me of an experience. His mother, who was later a counselor in the Primary general presidency, also told me of this experience.
+Elder Graham W. Doxey, who once served in the Second Quorum of the Seventy, told me of an experience. His mother, who was later a counselor in the Primary general presidency, also told me of this experience.
 
 During World War II, he was in the navy posted to China. He and several others went by train to the city of Tientsin to look around.
 
@@ -110,7 +110,7 @@ She said, “After I prayed about it, I went out and kicked that old trap all to
 
 Pray even if you are young and wayward like the prophet Alma or have a closed mind like Amulek, who “knew concerning these things, yet … would not know” ([[Alma 10.6|Alma 10:6]]).
 
-Learn to pray. Pray often. Pray in your mind, in your heart. Pray on your knees. Prayer is your personal key to heaven. The lock is on your side of the veil. And I have learned to conclude all my prayers with “Thy will be done” ([[Matthew 6.10|Matthew 6:10]]; see also [[Luke 11.2|Luke 11:2]]; [[3 Nephi 13.10|3 Nephi 13:10]]).
+Learn to pray. Pray often. Pray in your mind, in your heart. Pray on your knees. Prayer is your personal key to heaven. The lock is on your side of the veil. And I have learned to conclude all my prayers with “Thy will be done” ([[Matthew 6.10|Matthew 6:10]]; see also [[Luke 11.2|Luke 11:2]]; [[3 Nephi 13.10|3 Nephi 13:10]]).
 
 Do not expect to be free entirely from trouble and disappointment and pain and discouragement, for these are the things that we were sent to earth to endure.
 
@@ -123,11 +123,11 @@ Someone wrote:
 >“Be quiet, man, while I untie the knot.”[^11]
 >
 
-The scriptures promise, “There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it” ([[1 Corinthians 10.13|1 Corinthians 10:13]]).
+The scriptures promise, “There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it” ([[1 Corinthians 10.13|1 Corinthians 10:13]]).
 
 The Savior said, “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
 
-We began this session of conference with the sustaining of the authorities. The first one sustained was Thomas S. Monson as President of The Church of Jesus Christ of Latter-day Saints. I know President Monson, I think, as well as any man on earth knows him, and I want to bear a special witness that he was “called of God, by prophecy” ([[Articles of Faith 1.5|Articles of Faith 1:5]]). He needs our prayers—and his wife, Frances, and their family—in the tremendous load that is upon him.
+We began this session of conference with the sustaining of the authorities. The first one sustained was Thomas S. Monson as President of The Church of Jesus Christ of Latter-day Saints. I know President Monson, I think, as well as any man on earth knows him, and I want to bear a special witness that he was “called of God, by prophecy” ([[Articles of Faith 1.5|Articles of Faith 1:5]]). He needs our prayers—and his wife, Frances, and their family—in the tremendous load that is upon him.
 
 I pray that he will be sustained in body and in mind and in spirit and that it will be obvious to the Church, as it is obvious to those who are very close to him, that he was “called of God, by prophecy.” Then, “by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” ([[Articles of Faith 1.5|Articles of Faith 1:5]]), he was installed in his office.
 
@@ -142,11 +142,11 @@ May the Lord bless us and sustain President Monson and his family in every way t
 
 [^3]: See [[D&C 101.78|D&C 101:78]].
 
-[^4]: See [[1 Corinthians 2.14|1 Corinthians 2:14]]; [[D&C 8.2|D&C 8:2]]; [[D&C 9.8|9:8–9]][[D&C 9.9|]].
+[^4]: See [[1 Corinthians 2.14|1 Corinthians 2:14]]; [[D&C 8.2|D&C 8:2]]; [[D&C 9.8|9:8–9]][[D&C 9.9|]].
 
 [^5]: See [[D&C 11.13|D&C 11:13]]; [[D&C 100.5|100:5]].
 
-[^6]: See [[1 Nephi 17.45|1 Nephi 17:45]].
+[^6]: See [[1 Nephi 17.45|1 Nephi 17:45]].
 
 [^7]: See Wilford Woodruff, in Conference Report, Apr. 1898, 30; see also *Deseret Weekly,* Sept. 5, 1891, 323.
 
@@ -156,8 +156,6 @@ May the Lord bless us and sustain President Monson and his family in every way t
 
 [^10]: See [[D&C 25.12|D&C 25:12]].
 
-[^11]: Author unknown, in Jack M. Lyon and others, eds., *Best-Loved Poems of the LDS People* (1996), 304.
+[^11]: Author unknown, in Jack M. Lyon and others, eds., *Best-Loved Poems of the LDS People* (1996), 304.
 
-
-
-#Holy_Ghost #Prayer #Spirituality
+#HolyGhost #Prayer #Spirituality

@@ -1,6 +1,6 @@
 # The Lord Jesus Christ Teaches Us to Pray
 
-By Elder Juan A. Uceda - *Of the Seventy*
+By Elder Juan A. Uceda - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -26,7 +26,7 @@ But in reality our Father in Heaven saved me. He listened to my voice. I had hea
 
 We returned to Machu Picchu very carefully and in silence. On the return trip I remained silent, and the idea came to my mind that He had paid attention to my voice but that I had not paid any attention to His. There was a deep pain in my heart for disobeying His voice and at the same time a deep sense of gratitude for His mercy. He did not exercise His justice upon me, but in His great mercy, He had saved my life (see [[Alma 26.20|Alma 26:20]]).
 
-At the end of the day, when it was time for my personal prayer, I prayed from the heart to “the Father of mercies, and the God of all comfort” ([[2 Corinthians 1.3|2 Corinthians 1:3]]). I prayed “with a sincere heart, with real intent, having faith in Christ” ([[Moroni 10.4|Moroni 10:4]]).
+At the end of the day, when it was time for my personal prayer, I prayed from the heart to “the Father of mercies, and the God of all comfort” ([[2 Corinthians 1.3|2 Corinthians 1:3]]). I prayed “with a sincere heart, with real intent, having faith in Christ” ([[Moroni 10.4|Moroni 10:4]]).
 
 In the early morning of that same day, I had prayed with my lips, and when I was about to perish, I prayed from the heart to Him. I pondered my life to that point. I found that on many occasions, our Father in Heaven had been so merciful to me. He taught me many lessons that day in Machu Picchu and in Cusco, Peru. One of the greatest lessons was that I should always, always pray “with a sincere heart, with real intent, \[exercising\] faith in Christ.”
 
@@ -44,7 +44,7 @@ Jesus prepared Himself to make important decisions by praying to His Father.
 
 Do you prepare yourself to make important decisions by praying to your Heavenly Father? Do you prepare yourself for a moment of prayer?
 
-When Jesus came to the American continent, He taught the people to pray. “And Jesus said unto them: Pray on; nevertheless they did not cease to pray” ([[3 Nephi 19.26|3 Nephi 19:26]]).
+When Jesus came to the American continent, He taught the people to pray. “And Jesus said unto them: Pray on; nevertheless they did not cease to pray” ([[3 Nephi 19.26|3 Nephi 19:26]]).
 
 Jesus invites us to “pray always” ([[D&C 10.5|D&C 10:5]]). Jesus knows that our Heavenly Father hears and gives what is best for us. Why is it that sometimes we don’t want to receive? Why?
 
@@ -57,6 +57,4 @@ That we all may pray as Jesus has taught us to pray is my hope and my prayer in 
 
 
 
-
-
-#Holy_Ghost #Jesus_Christ #Prayer
+#HolyGhost #JesusChrist #Prayer

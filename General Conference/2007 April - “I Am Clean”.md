@@ -38,9 +38,9 @@ Hawaii was not a tourist center then. It was populated by the native Hawaiians, 
 
 “‘Yes, but I am clean—I am clean!’
 
-“He clasped my hand and drew me in, then closed the great door. I felt his hand just as tangible as I ever felt the hand of man. I knew him, and when I entered I saw my father, and Brigham \[Young\] and Heber \[C. Kimball\], and Willard \[Richards\], and other good men that I had known, standing in a row. I looked as if it were across this valley, and it seemed to be filled with a vast multitude of people, but on the stage were all the people that I had known. My mother was there, and she sat with a child in her lap; and I could name over as many as I remember of their names, who sat there, who seemed to be among the chosen, among the exalted. …
+“He clasped my hand and drew me in, then closed the great door. I felt his hand just as tangible as I ever felt the hand of man. I knew him, and when I entered I saw my father, and Brigham \[Young\] and Heber \[C. Kimball\], and Willard \[Richards\], and other good men that I had known, standing in a row. I looked as if it were across this valley, and it seemed to be filled with a vast multitude of people, but on the stage were all the people that I had known. My mother was there, and she sat with a child in her lap; and I could name over as many as I remember of their names, who sat there, who seemed to be among the chosen, among the exalted. …
 
-“\[When I had this dream,\] I was alone on a mat, away up in the mountains of Hawaii—no one was with me. But in this vision I pressed my hand up against the Prophet, and I saw a smile cross his countenance. …
+“\[When I had this dream,\] I was alone on a mat, away up in the mountains of Hawaii—no one was with me. But in this vision I pressed my hand up against the Prophet, and I saw a smile cross his countenance. …
 
 “When I awoke that morning I was a man, although only \[still\] a boy. There was not anything in the world that I feared \[after that\]. I could meet any man or woman or child and look them in the face, feeling in my soul that I was a man every whit. That vision, that manifestation and witness that I enjoyed at that time has made me what I am, if I am anything that is good, or clean, or upright before the Lord, if there is anything good in me. That has helped me out in every trial and through every difficulty” (*Gospel Doctrine,* 5th ed. \[1939\], 542–43).
 
@@ -81,8 +81,6 @@ And so, my dear brethren, I might go on. I might discuss with you what is happen
 Now, my dear brethren, may the Lord bless you. To you boys I say, get on with your education. When you marry, yours will be the obligation to provide for your family. The world of opportunity lies ahead of you, and education is the key that will unlock that door. It will be the door of the mansion of which Joseph F. Smith dreamed when he was a boy sleeping on a mountain in Hawaii.
 
 God bless you, my beloved brethren. Speak with the Lord in prayer. Cultivate kinship with Him. He is the Almighty, who has power to lift and help. I pray that it may be so in the name of Jesus Christ, amen.
-
-
 
 
 

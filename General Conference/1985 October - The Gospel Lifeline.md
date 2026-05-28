@@ -48,17 +48,17 @@ The fulness of God’s blessings and promises in the lives of our wives and chil
 
 President N. Eldon Tanner, in addressing a priesthood assembly, said:
 
-“You cannot realize and appreciate the influence the priesthood in this church could have on the whole world if every man would magnify his priesthood. Brethren, the priesthood, if magnified, is a stabilizing influence and strength. It should be. Every wife and mother has a perfect right and responsibility to look to her husband who holds the priesthood for guidance, for strength, and for direction. And he has the responsibility of magnifying his priesthood so he might be able to give this direction, this security, this strength that is needed in the home.” (*Seek Ye First the Kingdom of God,* Salt Lake City: Deseret Book Co., 1973, p. 177.)
+“You cannot realize and appreciate the influence the priesthood in this church could have on the whole world if every man would magnify his priesthood. Brethren, the priesthood, if magnified, is a stabilizing influence and strength. It should be. Every wife and mother has a perfect right and responsibility to look to her husband who holds the priesthood for guidance, for strength, and for direction. And he has the responsibility of magnifying his priesthood so he might be able to give this direction, this security, this strength that is needed in the home.” (*Seek Ye First the Kingdom of God,* Salt Lake City: Deseret Book Co., 1970, p. 53.)
 
-Some recent studies done for the Church’s Priesthood Executive Council sought to determine what factors in a young man’s background in the Church might predict his future course. (See *Ensign,* Dec. 1984, pp. 66–68.)
+Some recent studies done for the Church’s Priesthood Executive Council sought to determine what factors in a young man’s background in the Church might predict his future course. (See *Ensign,* Dec. 1984, pp. 66–68.)
 
 We have learned that there are two factors which exert the greatest influence on whether young men desire to be morally clean, serve a mission, and marry in the temple. These are (1) religious activity in the home (such as family prayer, family home evening, family scripture study) and (2) agreement with parents on values and on goals for the future. These two influences were found to have a greater impact than all other factors combined in creating these essential desires.
 
 These findings affirm the importance of a father, as patriarch to his family and its chief priesthood officer, setting a righteous example by making the gospel lifeline operative and effective in his own life and then extending it to his family. Just as Lehi in the Book of Mormon saw in a vision the significance of the fruit of the gospel of Jesus Christ and then invited his family to partake, so should fathers in the Church today partake of the fruit of the gospel and hold out this lifeline to their wives and children. And, just as Nephi was obedient to his father and came forward faithfully and partook of the gospel’s fruit and received its blessings, so should every son today grasp firmly the iron rod, the lifeline of the gospel spoken of by Nephi, and, like Nephi, follow his father’s and his priesthood leaders’ righteous examples.
 
-President Tanner told the young men of the priesthood: “Boys, we have a responsibility to our sisters.” He said that young women should be able to look to one who holds the priesthood, whether he is twelve years of age or older, and that “she has a right to expect in him a living example of what the priesthood should be, and to look to him for strength and counsel and direction and to feel safe with him.” (*Seek Ye First the Kingdom of God,* p. 177.)
+President Tanner told the young men of the priesthood: “Boys, we have a responsibility to our sisters.” He said that young women should be able to look to one who holds the priesthood, whether he is twelve years of age or older, and that “she has a right to expect in him a living example of what the priesthood should be, and to look to him for strength and counsel and direction and to feel safe with him.” (*Seek Ye First the Kingdom of God,* p. 177.)
 
-He said every sweetheart should be able to feel a bearer of the priesthood would do anything, “even to the giving of his life, to protect her womanhood and her virtue, and would never think of depriving her of it, if he is magnifying his priesthood; and he will not be tempted if he is thinking of the priesthood that he holds and the responsibility that he has.” (In Conference Report, Apr. 1973, p. 124.)
+He said every sweetheart should be able to feel a bearer of the priesthood would do anything, “even to the giving of his life, to protect her womanhood and her virtue, and would never think of depriving her of it, if he is magnifying his priesthood; and he will not be tempted if he is thinking of the priesthood that he holds and the responsibility that he has.” (In Conference Report, Apr. 1970, p. 53.)
 
 A priesthood holder acts as a type of mediator between the people and God, representing them officially in worship and in holy ordinances. Because he represents God, he cannot take this office to himself but must be called of God. In a special sense, a bearer of this priesthood power and authority delegated by God belongs to God. He must be holy and clean before Him. He represents the Lord and acts as His agent when officiating in or performing his priestly duties. Such priesthood rights are inseparably connected with the powers of heaven and can, therefore, be handled or utilized effectively only on the basis of personal righteousness. (See [[D&C 121.36|D&C 121:36]].)
 
@@ -132,11 +132,6 @@ I shall close with words from one of my favorite poets.
 In the name of Jesus Christ, amen.
 
 
-
-
-
-
-#Discipleship #Jesus_Christ
 
 
 #Example #Priesthood

@@ -1,6 +1,6 @@
 # Our Personal Ministries
 
-By Elder Hugo E. Martinez - *Of the Seventy*
+By Elder Hugo E. Martinez - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -8,23 +8,23 @@ By Elder Hugo E. Martinez - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/our-personal-ministries?lang=eng)
 
-In The Church of Jesus Christ of Latter-day Saints, we are given the opportunity and personal blessing to serve. For as long as I have been a member, I have served in many ways. Like Brother Udine Falabella, father of Elder Enrique R. Falabella, used to say, “He who serves in some thing is good for something; he who serves in no thing is good for nothing.” These are words that we need to keep in our minds and in our hearts.
+In The Church of Jesus Christ of Latter-day Saints, we are given the opportunity and personal blessing to serve. For as long as I have been a member, I have served in many ways. Like Brother Udine Falabella, father of Elder Enrique R. Falabella, used to say, “He who serves in some thing is good for something; he who serves in no thing is good for nothing.” These are words that we need to keep in our minds and in our hearts.
 
 As I have sought guidance during my service, I have found comfort in remembering that the Savior focuses on the individual and the family. His love and tender attention to the individual have taught me that He recognizes the great worth of each of Heavenly Father’s children and that it is essential for us to ensure that each individual is ministered to and strengthened by the gospel of Jesus Christ.
 
 In the scriptures we read:
 
-“Remember the worth of souls is great in the sight of God. …
+“Remember the worth of souls is great in the sight of God. …
 
 “And if it so be that you should labor *all* your days … and bring, *save it be one* soul unto me, how great shall be your joy with him in the kingdom of my Father!”[^1]
 
 Every soul is of great worth to God, for we are His children and we have the potential to become as He is.[^2]
 
-The love of Jesus Christ must be our guide if we are to become aware of the needs of those we can help in some way. The teachings of our Lord, Jesus Christ, show us the way. And that is how our personal ministry begins: discovering needs, then tending to them. As Sister Linda K. Burton, Relief Society general president, said, “First observe, then serve.”[^3]
+The love of Jesus Christ must be our guide if we are to become aware of the needs of those we can help in some way. The teachings of our Lord, Jesus Christ, show us the way. And that is how our personal ministry begins: discovering needs, then tending to them. As Sister Linda K. Burton, Relief Society general president, said, “First observe, then serve.”[^3]
 
-President Thomas S. Monson is a great example of this principle. In January of 2005, he was presiding over a priesthood leadership conference in Puerto Rico when he demonstrated how the Savior and His servants render service through personal ministry. At the conclusion of that wonderful meeting, President Monson began to greet all the priesthood leaders in attendance. Suddenly, he noticed that one of them was watching everything from afar, off by himself.
+President Thomas S. Monson is a great example of this principle. In January of 2005, he was presiding over a priesthood leadership conference in Puerto Rico when he demonstrated how the Savior and His servants render service through personal ministry. At the conclusion of that wonderful meeting, President Monson began to greet all the priesthood leaders in attendance. Suddenly, he noticed that one of them was watching everything from afar, off by himself.
 
-President Monson walked away from the group, toward that brother, and spoke to him. With emotion, José R. Zayas told him it was a miracle that he had approached him and an answer to the prayers that he and his wife, Yolanda, had offered before the meeting. He told President Monson that his daughter was in very poor health and that he had with him a letter from his wife that she wanted delivered to President Monson. Brother Zayas had told his wife that it would be impossible since President Monson would be too busy. President Monson listened to the story and asked for the letter, which he read silently. Then he put it in his suit pocket and told Brother Zayas that he would take care of their request.
+President Monson walked away from the group, toward that brother, and spoke to him. With emotion, José R. Zayas told him it was a miracle that he had approached him and an answer to the prayers that he and his wife, Yolanda, had offered before the meeting. He told President Monson that his daughter was in very poor health and that he had with him a letter from his wife that she wanted delivered to President Monson. Brother Zayas had told his wife that it would be impossible since President Monson would be too busy. President Monson listened to the story and asked for the letter, which he read silently. Then he put it in his suit pocket and told Brother Zayas that he would take care of their request.
 
 In this way, that family was touched by our Lord, Jesus Christ, through His servant. I believe the words of the Savior in the parable of the good Samaritan apply to us: “Go, and do thou likewise.”[^4]
 
@@ -71,13 +71,13 @@ That we may do so is my prayer in the name of Jesus Christ, amen.
 
 [^1]: [[D&C 18.10|Doctrine and Covenants 18:10, 15]][[D&C 18.15|]]; emphasis added.
 
-[^2]: See Guide to the Scriptures, [“Soul”](https://churchofjesuschrist.org/study/scriptures/gs/soul?lang=eng); scriptures.lds.org.
+[^2]: See Guide to the Scriptures, “[Soul](https://www.churchofjesuschrist.org/study/scriptures/gs/soul?lang=eng)”; scriptures.lds.org.
 
-[^3]: Linda K. Burton, “First Observe, Then Serve,” *Ensign* or *Liahona,* Nov. 2012, 78.
+[^3]: Linda K. Burton, “First Observe, Then Serve,” *Ensign* or *Liahona,* Nov. 2012, 78.
 
 [^4]: [[Luke 10.37|Luke 10:37]].
 
-[^5]: Alexander B. Morrison, “Nourish the Flock of Christ,” *Ensign,* May 1992, 13.
+[^5]: Alexander B. Morrison, “Nourish the Flock of Christ,” *Ensign,* May 1992, 13.
 
 [^6]: [[D&C 1.23|Doctrine and Covenants 1:23]].
 
@@ -87,6 +87,4 @@ That we may do so is my prayer in the name of Jesus Christ, amen.
 
 [^9]: [[Matthew 25.32|Matthew 25:32–40]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].
 
-
-
-#Discipleship #Jesus_Christ #Love #Service
+#Discipleship #JesusChrist #Love #Service

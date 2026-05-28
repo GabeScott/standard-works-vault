@@ -1,6 +1,5 @@
 # Day of the Lord
 
-
 *See also* [[Jesus Christ, Second Coming.md|Jesus Christ, Second Coming]]; [[Judgment.md|Judgment]]; [[Last Days.md|Last Days]]
 
 *day of the Lord* of hosts shall be upon every one that is proud, [[Isaiah 2.12|Isaiah 2:12]] ([[2 Nephi 12.12|2 Nephi 12:12]]).
@@ -9,7 +8,7 @@ in that *day* there shall be a root of Jesse, [[Isaiah 11.10|Isaiah 11:10]] ([[2
 
 *day of the Lord* is at hand, [[Isaiah 13.6|Isaiah 13:6]] ([[Joel 1.15|Joel 1:15]]; [[Zephaniah 1.7|Zephaniah 1:7]]; [[2 Nephi 23.6|2 Nephi 23:6]]; [[D&C 128.24|D&C 128:24]]).
 
-*day of the Lord's* vengeance, [[Isaiah 34.8|Isaiah 34:8]].
+*day of the Lord’s* vengeance, [[Isaiah 34.8|Isaiah 34:8]].
 
 that *day* is great, [[Jeremiah 30.7|Jeremiah 30:7]].
 
@@ -55,7 +54,7 @@ In that *day* the Lord will take away the bravery, [[2 Nephi 13.18|2 Nephi 13:18
 
 in that *day* they shall roar against them, [[2 Nephi 15.30|2 Nephi 15:30]].
 
-I will send you Elijah ... before ... the great and dreadful *day of the Lord*, [[3 Nephi 25.5|3 Nephi 25:5]].
+I will send you Elijah … before … the great and dreadful *day of the Lord*, [[3 Nephi 25.5|3 Nephi 25:5]].
 
 *day* when the Lord shall come to recompense, [[D&C 1.10|D&C 1:10]] ([[D&C 1.35|D&C 1:35]]).
 
@@ -75,6 +74,4 @@ a *day* of wrath, a *day* of burning, [[D&C 112.24|D&C 112:24]].
 
 *day* of vengeance which was in my heart, [[D&C 133.51|D&C 133:51]].
 
-before the ... great and dreadful *day of the Lord*, [[D&C 138.46|D&C 138:46]].
-
-*See also* [[Isaiah 24.6|Isaiah 24:6]], [[Isaiah 24.21|Isaiah 24:21]]; [[Ezekiel 36.33|Ezekiel 36:33]]; [[Obadiah 1.15|Obadiah 1:15]]; [[3 Nephi 26.3|3 Nephi 26:3]].
+before the … great and dreadful *day of the Lord*, [[D&C 138.46|D&C 138:46]].

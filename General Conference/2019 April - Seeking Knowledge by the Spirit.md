@@ -40,7 +40,7 @@ Seeing all this, we could find no fault in the Church. On the contrary, we liked
 
 But, even in our indecision, the Lord was patiently preparing us, He was molding us, and He was helping us to discover that we should learn to discern the truth not only through our rational minds but also through the very still and small voice of the Spirit, which speaks especially to our hearts.
 
-That voice and the resulting feeling came one evening after 10 months of learning the gospel, when we read in Mosiah 18, “As ye are desirous to … bear one another’s burdens, … and comfort those that stand in need of comfort, … if this be the desire of your hearts, what have you against being baptized in the name of the Lord?”[^3]
+That voice and the resulting feeling came one evening after 10 months of learning the gospel, when we read in Mosiah 18, “As ye are desirous to … bear one another’s burdens, … and comfort those that stand in need of comfort, … if this be the desire of your hearts, what have you against being baptized in the name of the Lord?”[^3]
 
 That passage from the Book of Mormon entered our hearts and souls, and we suddenly felt and knew that there was really no reason not to be baptized. We realized that the desires mentioned in these verses were also the wishes of our hearts and that those things were what really mattered. They were more important than understanding everything because we already knew enough. We had always relied on the guiding hand of a loving Heavenly Father and were confident that He would continue to guide us.
 
@@ -60,7 +60,7 @@ When these two perspectives are then combined in our souls, one complete picture
 
 In my 31 years as a member of the Church, I have experienced many times that if we rely only on our rational mind and deny or neglect the spiritual understanding we can receive through the whisperings and impressions of the Holy Ghost, it is as if we were going through life with only one eye. But figuratively speaking, we have actually been given two eyes. Only the combination of both views can give us the true and complete picture of all truths and of everything we experience in our lives, as well as of the whole and profound understanding of our identity and purpose as children of a living Heavenly Father.
 
-I am reminded of what President Russell M. Nelson taught us a year ago when he said that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^6]
+I am reminded of what President Russell M. Nelson taught us a year ago when he said that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^6]
 
 I have come to know with absolute certainty that:
 
@@ -72,7 +72,7 @@ I have come to know with absolute certainty that:
 
 - The Book of Mormon is a second witness of Jesus Christ, and families are meant to remain together forever.
 
-- Our Lord, Jesus Christ, leads this, His restored Church, through our living prophet, President Russell M. Nelson, today.
+- Our Lord, Jesus Christ, leads this, His restored Church, through our living prophet, President Russell M. Nelson, today.
 
 These and many other precious truths have become spiritual building blocks of what God is helping me to become. And I look forward to the many new teachings that He still wants me—and you—to receive as we go through this wonderful life and “learn … even by study and also by faith.”
 
@@ -83,16 +83,14 @@ I know these things to be true and testify of them in the name of Jesus Christ, 
 
 [^1]: [[D&C 109.7|Doctrine and Covenants 109:7]]; see also [[D&C 88.118|Doctrine and Covenants 88:118]].
 
-[^2]: [[3 Nephi 14.16|3 Nephi 14:16]].
+[^2]: [[3 Nephi 14.16|3 Nephi 14:16]].
 
 [^3]: [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]].
 
-[^4]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^4]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^5]: [[Moroni 10.5|Moroni 10:5]].
 
-[^6]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
+[^6]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
 
-
-
-#Holy_Ghost #Inspiration #Knowledge #Revelation
+#HolyGhost #Inspiration #Knowledge #Revelation

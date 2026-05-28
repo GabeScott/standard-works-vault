@@ -1,6 +1,6 @@
 # Within the Clasp of Your Arms
 
-By Jeffrey R. Holland - *President of Brigham Young University*
+By Jeffrey R. Holland - *President of Brigham Young University*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -50,15 +50,13 @@ But I dreaded the older man’s gaze, which followed my every move. I tried to s
 
 With that, the dream ended, and I shot upright in bed. *My* pillow was now stained, whether with perspiration or tears I do not know. I threw off the covers and ran to the little metal camp cot that was my son’s bed. There on my knees and through my tears I cradled him in my arms and spoke to him while he slept. I told him that every dad makes mistakes but that they don’t mean to. I told him it wasn’t his fault I had had a bad day. I told him that when boys are five or fifteen, dads sometimes forget and think they are fifty. I told him that I wanted him to be a small boy for a long, long time, because all too soon he would grow up and be a man and wouldn’t be playing on the floor with his toys when I came home. I told him that I loved him and his mother and his sister more than anything in the world and that whatever challenges we had in life we would face them together. I told him that never again would I withhold my affection or my forgiveness from him, and never, I prayed, would he withhold them from me. I told him I was honored to be his father and that I would try with all my heart to be worthy of such a great responsibility.
 
-Well, I have not proven to be the perfect father I vowed to be that night and a thousand nights before and since. But I still want to be, and I believe this wise counsel from President Joseph F. Smith:
+Well, I have not proven to be the perfect father I vowed to be that night and a thousand nights before and since. But I still want to be, and I believe this wise counsel from President Joseph F. Smith:
 
-“Brethren, … If you will keep your \[children\] close to your heart, within the clasp of your arms; if you will make them … feel that you love them … and keep them near to you, they will not go very far from you, and they will not commit any very great sin. But it is when you turn them out of the home, turn them out of your affection … that \[is what\] drives them from you. …
+“Brethren, … If you will keep your \[children\] close to your heart, within the clasp of your arms; if you will make them … feel that you love them … and keep them near to you, they will not go very far from you, and they will not commit any very great sin. But it is when you turn them out of the home, turn them out of your affection … that \[is what\] drives them from you. …
 
 “Fathers, if you wish your children to be taught in the principles of the gospel, if you wish them to love the truth and understand it, if you wish them to be obedient to and united with you, love them! and prove … that you do love them by your every word and act to\[ward\] them.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1966, pp. 282, 316.)
 
 Brethren, we all know fatherhood is not an easy assignment, but it ranks among the most imperative ever given, in time or eternity. We must not pull away from our children. We must keep trying, keep reaching, keep praying, keep listening. We must keep them “within the clasp of our arms.” That is what friends are for. Of this I bear witness in the name of Jesus Christ, amen.
-
-
 
 
 

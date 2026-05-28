@@ -5,5 +5,5 @@
 [Daniel 5:27](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.27?lang=eng#p27)
 
 
-[^a]: Aramaic: shekel, or weight.
-[^b]: [[Job 31.6|Job 31:6]].
+[^a]: Aramaic: shekel, or weight.  
+[^b]: [[Job 31.6|Job 31:6]].  

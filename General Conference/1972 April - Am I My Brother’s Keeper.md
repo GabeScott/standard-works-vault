@@ -1,6 +1,6 @@
 # Am I My Brother’s Keeper?
 
-By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
+By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -57,8 +57,6 @@ How will we respond? Will we be like the priest and like the Levite described by
 Or will we follow the example of the Good Samaritan and thoughtfully and sympathetically assist our neighbors and brothers in their time of trial, and thus receive approbation and the blessings of our Heavenly Father?
 
 The choice is ours to make. May the Lord bless us that our decisions will be correct and righteous ones, for which I humbly pray, in the name of the Lord Jesus Christ. Amen.
-
-
 
 
 

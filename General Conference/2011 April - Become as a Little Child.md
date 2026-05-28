@@ -1,6 +1,6 @@
 # Become as a Little Child
 
-By Jean A. Stevens - *First Counselor in the Primary General Presidency*
+By Jean A. Stevens - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -46,11 +46,11 @@ Among the transcendent events of the Savior’s visit to the Americas, His tende
 
 “And he took their little children, one by one, and blessed them, and prayed unto the Father for them.
 
-“And when he had done this he wept. …
+“And when he had done this he wept. …
 
-“And he spake unto the multitude, and said unto them: Behold your little ones” ([[3 Nephi 17.21|3 Nephi 17:21–23]][[3 Nephi 17.22|]][[3 Nephi 17.23|]]).
+“And he spake unto the multitude, and said unto them: Behold your little ones” ([[3 Nephi 17.21|3 Nephi 17:21–23]][[3 Nephi 17.22|]][[3 Nephi 17.23|]]).
 
-Elder M. Russell Ballard has taught us the importance of the Savior’s admonition to “behold your little ones” when he said: “Notice that He didn’t say ‘glance at them’ or ‘casually observe them’ or ‘occasionally take a look in their general direction.’ He said to *behold* them. To me that means that we should embrace them with our eyes and with our hearts; we should see and appreciate them for who they really are: spirit children of our Heavenly Father, with divine attributes” (“Behold Your Little Ones,” *Tambuli,* Oct. 1994, 40; emphasis added; “Great Shall Be the Peace of Thy Children,” *Ensign,* Apr. 1994, 59).
+Elder M. Russell Ballard has taught us the importance of the Savior’s admonition to “behold your little ones” when he said: “Notice that He didn’t say ‘glance at them’ or ‘casually observe them’ or ‘occasionally take a look in their general direction.’ He said to *behold* them. To me that means that we should embrace them with our eyes and with our hearts; we should see and appreciate them for who they really are: spirit children of our Heavenly Father, with divine attributes” (“Behold Your Little Ones,” *Tambuli,* Oct. 1994, 40; emphasis added; “Great Shall Be the Peace of Thy Children,” *Ensign,* Apr. 1994, 59).
 
 There is not a more perfect place to behold our little ones than in our families. Home is a place where we can all learn and grow together. One of our beautiful Primary songs teaches this truth:
 
@@ -65,8 +65,6 @@ Have some of life’s experiences taken from you the believing heart and childli
 I will always be grateful for the blessing of my own children. The example of each one has taught me lessons I need. They have helped me to change for the better.
 
 I bear my humble but certain testimony that Jesus is the Christ. He is the one perfect Son—submissive, meek, humble, patient, and so full of love. May each of us have a heart to follow His example, to become as a little child, and thereby return to our heavenly home, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

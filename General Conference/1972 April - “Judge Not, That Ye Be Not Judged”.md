@@ -1,6 +1,6 @@
 # “Judge Not, That Ye Be Not Judged”
 
-By President N. Eldon Tanner - *Second Counselor in the First Presidency*
+By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -25,7 +25,7 @@ Then I thought of the words of one of our hymns:
 >How lenient our own faults we view,
 >And conscience’s voice adeptly smother;
 >Yet, oh, how harshly we review
->The selfsame failings in another! …
+>The selfsame failings in another! …
 >So first improve yourself today
 >And then improve your friends tomorrow.”
 >
@@ -34,7 +34,7 @@ It seems common practice for people to talk about their friends and neighbors an
 
 Let me give you one or two examples of unjust criticism and judging without the facts.
 
-There is a little story about Sister McKay, the wife of President David O. McKay, when she began teaching school. As the principal introduced her to the class, he pointed to a certain boy and said he was a troublemaker. She sensed the boy’s embarrassment and feared he would live up to his reputation, so she wrote a note and slipped it to him as she passed his desk. It said, “Earl, I think the principal was mistaken about your being a bad boy. I trust you, and know that you are going to help me make this room the best in the school.” Earl not only became a paragon of scholastic virtue but also one of the town’s most important people.
+There is a little story about Sister McKay, the wife of President David O. McKay, when she began teaching school. As the principal introduced her to the class, he pointed to a certain boy and said he was a troublemaker. She sensed the boy’s embarrassment and feared he would live up to his reputation, so she wrote a note and slipped it to him as she passed his desk. It said, “Earl, I think the principal was mistaken about your being a bad boy. I trust you, and know that you are going to help me make this room the best in the school.” Earl not only became a paragon of scholastic virtue but also one of the town’s most important people.
 
 I should like to give you another example. One of our most respected community-minded citizens began to act as though his feelings had been hurt and to stay away from socials where, in the past, he had gone and taken a most active part. People started accusing him of being a sorehead, a poor sport, antisocial, etc., and even evaded him whenever possible. Later, a medical diagnosis showed he was suffering from a brain tumor, which had been the cause of his lack of interest in activities that he had previously attended and even sponsored.
 
@@ -60,7 +60,7 @@ These examples show how important it is that we do not judge, but encourage rath
 
 It seems he is saying that unless we are without fault, we are not qualified to judge. By referring to Samuel’s experience while choosing a king, we may get a better understanding of the fact that man is not qualified to judge. The Lord had rejected Saul as king of Israel and instructed the prophet Samuel to choose a new king. He told him to go to the house of Jesse, who had eight sons, and that while there the anointed one would pass before him and Samuel would know who was to be chosen. When the first son, Eliab, came before him, Samuel thought he was the chosen one, but the Lord refused him and then gave the prophet Samuel the key as to how to judge:
 
-“Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
+“Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
 
 Each of the seven sons then passed before Samuel and was rejected. Then David, the youngest, was sent for and was approved by the Lord.
 
@@ -90,11 +90,11 @@ Let us examine our own lives and actions, bring ourselves in tune with righteous
 
 Gossip is the worst form of judging. The tongue is the most dangerous, destructive, and deadly weapon available to man. A vicious tongue can ruin the reputation and even the future of the one attacked. Insidious attacks against one’s reputation, loathsome innuendoes, half-lies about an individual are as deadly as those insect parasites that kill the heart and life of a mighty oak. They are so stealthy and cowardly that one cannot guard against them. As someone has said, “It is easier to dodge an elephant than a microbe.”
 
-What a different world it would be if we would put into practice what we have all heard so many times: “… whatsoever ye would that men should do to you, do ye even so to them: for this is the law and the prophets.” ([[Matthew 7.12|Matt. 7:12]].) Instead, we are all so inclined to judge others by a standard different from the one by which we would wish or be willing to be judged.
+What a different world it would be if we would put into practice what we have all heard so many times: “… whatsoever ye would that men should do to you, do ye even so to them: for this is the law and the prophets.” ([[Matthew 7.12|Matt. 7:12]].) Instead, we are all so inclined to judge others by a standard different from the one by which we would wish or be willing to be judged.
 
 When the woman accused of adultery was brought before Christ, he was indignant because of the accusers’ injustice. They were wanting the woman to be judged on the basis of standards different from those by which they were willing to be judged and on a matter of which some were guilty.
 
-He said: “He that is without sin among you, let him first cast a stone at her.” Then, after stooping and writing in the sand, he looked up and said, “… where are those thine accusers?” ([[John 8.7|John 8:7, 10]][[John 8.10|]].)
+He said: “He that is without sin among you, let him first cast a stone at her.” Then, after stooping and writing in the sand, he looked up and said, “… where are those thine accusers?” ([[John 8.7|John 8:7, 10]][[John 8.10|]].)
 
 If Jesus were to stand by and be asked to judge those whom we accuse and should say to us, “He that is without sin among you, let him first cast a stone at her,” and then should stoop and write in the sand, how many of us would feel to steal away ashamed, convicted in our own conscience? How sound is his counsel!
 
@@ -120,7 +120,7 @@ May I humbly say in all sincerity that I love the Lord with all my heart and tha
 
 To all the world, and especially to those who do not understand but who ridicule the teachings of The Church of Jesus Christ of Latter-day Saints, I wish to bear my witness and issue a challenge that you judge not until you know and understand those teachings which are contained in the restored gospel. We believe, with you, that God lives and that Jesus Christ is his Only, but truly, Begotten Son in the flesh, who came and gave his life and was resurrected so that all mankind might enjoy immortality.
 
-He said, “… this is my work and my glory—to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]), and he gave us the gospel plan by which we can prepare ourselves to go back into his presence and enjoy eternal life.
+He said, “… this is my work and my glory—to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]), and he gave us the gospel plan by which we can prepare ourselves to go back into his presence and enjoy eternal life.
 
 Yes, the gospel in its fullness is restored and is here upon the earth today. I bear witness that the Bible is the word of God, given to us through his prophets, and also that the Book of Mormon is the word of God and is a translated and true record of God’s dealings with the ancient American people, containing the gospel in its fullness. It was written by way of commandment and also by the spirit of prophecy and by revelation, to the convincing of the Jew and the gentile that Jesus is the Christ, the Eternal God, manifesting himself unto all nations.
 
@@ -133,8 +133,6 @@ These things I know, and I humbly bear my testimony that they are true; and I in
 “And by the power of the Holy Ghost ye may know the truth of all things.” ([[Moroni 10.4|Moro. 10:4–5]][[Moroni 10.5|]].)
 
 This promise, and my testimony, I leave with you in the name of Jesus Christ. Amen.
-
-
 
 
 

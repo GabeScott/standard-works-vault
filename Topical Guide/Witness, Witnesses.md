@@ -1,13 +1,12 @@
 # Witness, Witnesses
 
-
 *See also* [[Apostles.md|Apostles]]; [[Book of Mormon.md|Book of Mormon]]; [[Confession.md|Confession]]; [[Evidence.md|Evidence]]; [[False.md|False]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Holy Ghost, Source of Testimony.md|Holy Ghost, Source of Testimony]]; [[Revelation.md|Revelation]]; [[Testify.md|Testify]]; [[Testimony.md|Testimony]]; [[Witness of the Father.md|Witness of the Father]]
 
 that they may be a *witness* unto me, [[Genesis 21.30|Genesis 21:30]].
 
 Thou shalt not bear false *witness*, [[Exodus 20.16|Exodus 20:16]] ([[Deuteronomy 5.20|Deuteronomy 5:20]]; [[Matthew 19.18|Matthew 19:18]]; [[Mark 10.19|Mark 10:19]]; [[Luke 18.20|Luke 18:20]]; [[Romans 13.9|Romans 13:9]]).
 
-put not thine hand ... to be an unrighteous *witness*, [[Exodus 23.1|Exodus 23:1]].
+put not thine hand … to be an unrighteous *witness*, [[Exodus 23.1|Exodus 23:1]].
 
 murderer shall be put to death by the mouth of *witnesses*, [[Numbers 35.30|Numbers 35:30]].
 
@@ -29,7 +28,7 @@ I have given him for a *witness* to the people, [[Isaiah 55.4|Isaiah 55:4]].
 
 I will be a swift *witness* against the sorcerers, [[Malachi 3.5|Malachi 3:5]] ([[3 Nephi 24.5|3 Nephi 24:5]]).
 
-gospel ... preached ... for a *witness* unto all nations, [[Matthew 24.14|Matthew 24:14]] ([[Joseph Smith Matthew 1.31|Joseph Smith Matthew 1:31]]).
+gospel … preached … for a *witness* unto all nations, [[Matthew 24.14|Matthew 24:14]] ([[Joseph Smith Matthew 1.31|Joseph Smith Matthew 1:31]]).
 
 what further need have we of *witnesses*, [[Matthew 26.65|Matthew 26:65]] ([[Mark 14.63|Mark 14:63]]; [[Luke 22.71|Luke 22:71]]).
 
@@ -63,13 +62,13 @@ we cannot but speak the things which we have *seen* and heard, [[Acts 4.20|Acts 
 
 apostles *witness* of the resurrection of the Lord, [[Acts 4.33|Acts 4:33]].
 
-we are his *witnesses* ... so is also the Holy Ghost, [[Acts 5.32|Acts 5:32]].
+we are his *witnesses* … so is also the Holy Ghost, [[Acts 5.32|Acts 5:32]].
 
-we are *witnesses* of all things which he did, [[Acts 10.39|Acts 10:39]] ([[Acts 10.39|10:39-44]][[Acts 10.40|]][[Acts 10.41|]][[Acts 10.42|]][[Acts 10.43|]][[Acts 10.44|]]; [[D&C 14.8|D&C 14:8]]).
+we are *witnesses* of all things which he did, [[Acts 10.39|Acts 10:39]] ([[D&C 14.8|D&C 14:8]]).
 
 To him give all the prophets *witness*, [[Acts 10.43|Acts 10:43]].
 
-he was seen many days of them ... who are his *witnesses*, [[Acts 13.31|Acts 13:31]].
+he was seen many days of them … who are his *witnesses*, [[Acts 13.31|Acts 13:31]].
 
 he left not himself without *witness*, [[Acts 14.17|Acts 14:17]].
 
@@ -77,7 +76,7 @@ Holy Ghost *witnesseth* in every city, [[Acts 20.23|Acts 20:23]].
 
 thou shalt be his *witness* unto all men, [[Acts 22.15|Acts 22:15]].
 
-I have appeared ... to make thee a minister and a *witness*, [[Acts 26.16|Acts 26:16]].
+I have appeared … to make thee a minister and a *witness*, [[Acts 26.16|Acts 26:16]].
 
 their conscience also bearing *witness*, [[Romans 2.15|Romans 2:15]].
 
@@ -159,20 +158,18 @@ no *witness* until after the trial of your faith, [[Ether 12.6|Ether 12:6]].
 
 three *witnesses* of the church did condemn them, [[Moroni 6.7|Moroni 6:7]].
 
-Joseph Smith ... stand as a *witness* of these things, [[D&C 5.2|D&C 5:2]] ([[D&C 14.8|D&C 14:8]]).
+Joseph Smith … stand as a *witness* of these things, [[D&C 5.2|D&C 5:2]] ([[D&C 14.8|D&C 14:8]]).
 
 What greater *witness* can you have, [[D&C 6.23|D&C 6:23]].
 
 with your eyes, you shall *testify* of them, [[D&C 17.3|D&C 17:3]].
 
-*witness* ... they are willing to take upon them, [[D&C 20.77|D&C 20:77]].
+*witness* … they are willing to take upon them, [[D&C 20.77|D&C 20:77]].
 
-apostles ... especial *witnesses* of my name, [[D&C 27.12|D&C 27:12]].
+apostles … especial *witnesses* of my name, [[D&C 27.12|D&C 27:12]].
 
 two *witnesses* of the church, and not of the enemy, [[D&C 42.80|D&C 42:80]].
 
 What is to be understood by the two *witnesses*, [[D&C 77.15|D&C 77:15]].
 
 special *witnesses* of the name of Christ in all the world, [[D&C 107.23|D&C 107:23]].
-
-*See also* [[1 Corinthians 2.11|1 Corinthians 2:11]]; [[2 Nephi 29.12|2 Ne. 29:12-14]][[2 Nephi 29.13|]][[2 Nephi 29.14|]]; [[3 Nephi 11.27|3 Nephi 11:27]], [[3 Nephi 11.32|3 Nephi 11:32]], [[3 Nephi 11.35|3 Nephi 11:35]], [[3 Nephi 11.36|3 Nephi 11:36]]; [[Moroni 10.4|Moro. 10:4-5]][[Moroni 10.5|]]; [[Joseph Smith History 1.3|JS—H 1:3-54]][[Joseph Smith History 1.4|]][[Joseph Smith History 1.5|]][[Joseph Smith History 1.6|]][[Joseph Smith History 1.7|]][[Joseph Smith History 1.8|]][[Joseph Smith History 1.9|]][[Joseph Smith History 1.10|]][[Joseph Smith History 1.11|]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]][[Joseph Smith History 1.21|]][[Joseph Smith History 1.22|]][[Joseph Smith History 1.23|]][[Joseph Smith History 1.24|]][[Joseph Smith History 1.25|]][[Joseph Smith History 1.26|]][[Joseph Smith History 1.27|]][[Joseph Smith History 1.28|]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.43|]][[Joseph Smith History 1.44|]][[Joseph Smith History 1.45|]][[Joseph Smith History 1.46|]][[Joseph Smith History 1.47|]][[Joseph Smith History 1.48|]][[Joseph Smith History 1.49|]][[Joseph Smith History 1.50|]][[Joseph Smith History 1.51|]][[Joseph Smith History 1.52|]][[Joseph Smith History 1.53|]][[Joseph Smith History 1.54|]].

@@ -49,11 +49,11 @@ May we teach and live the commandments so that together with our families we may
 
 
 
-[^1]: [[2 Nephi 2.25|2 Ne. 2:25]]; compare [[Moses 5.10|Moses 5:10]]; [[Moses 6.48|6:48]].
+[^1]: [[2 Nephi 2.25|2 Ne. 2:25]]; compare [[Moses 5.10|Moses 5:10]]; [[Moses 6.48|6:48]].
 
-[^2]: Dennis Rasmussen, “An Elder among the Rabbis,” *Brigham Young University Studies,* Summer 1981, pp. 344–45.
+[^2]: Dennis Rasmussen, “An Elder among the Rabbis,” *Brigham Young University Studies,* Summer 1981, pp. 344–45.
 
-[^3]: See [[Jacob 5.75|Jacob 5:75]]; Joseph F. Smith, *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), pp. 276–77.
+[^3]: See [[Jacob 5.75|Jacob 5:75]]; Joseph F. Smith, *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), pp. 276–77.
 
 [^4]: See [[Moses 5.1|Moses 5:1–5]][[Moses 5.2|]][[Moses 5.3|]][[Moses 5.4|]][[Moses 5.5|]]; [[Moses 6.57|6:57–62]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]]; [[D&C 20.19|D&C 20:19]].
 
@@ -63,9 +63,9 @@ May we teach and live the commandments so that together with our families we may
 
 [^7]: [[Exodus 20.3|Ex. 20:3]].
 
-[^8]: See James E. Talmage, *The Articles of Faith,* 12th ed. (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924), p. 487.
+[^8]: See James E. Talmage, *The Articles of Faith,* 12th ed. (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924), p. 487.
 
-[^9]: See [[Exodus 20.4|Ex. 20:4–5]][[Exodus 20.5|]]; [[Matthew 19.16|Matt. 19:16–22]][[Matthew 19.17|]][[Matthew 19.18|]][[Matthew 19.19|]][[Matthew 19.20|]][[Matthew 19.21|]][[Matthew 19.22|]]; [[2 Nephi 27.25|2 Ne. 27:25]]; [[Acts 17.29|Acts 17:29]]; [[D&C 93.19|D&C 93:19]].
+[^9]: See [[Exodus 20.4|Ex. 20:4–5]][[Exodus 20.5|]]; [[Matthew 19.16|Matt. 19:16–22]][[Matthew 19.17|]][[Matthew 19.18|]][[Matthew 19.19|]][[Matthew 19.20|]][[Matthew 19.21|]][[Matthew 19.22|]]; [[2 Nephi 27.25|2 Ne. 27:25]]; [[Acts 17.29|Acts 17:29]]; [[D&C 93.19|D&C 93:19]].
 
 [^10]: See [[D&C 59.21|D&C 59:21]]; [[Alma 31.5|Alma 31:5]].
 
@@ -79,7 +79,7 @@ May we teach and live the commandments so that together with our families we may
 
 [^15]: [[Exodus 20.12|Ex. 20:12]].
 
-[^16]: See [[Proverbs 22.6|Prov. 22:6]]; *Discourses of Brigham Young,* sel. John A. Widtsoe (Salt Lake City: Deseret Book Co., 1941), p. 207; [[Hebrews 12.9|Heb. 12:9]].
+[^16]: See [[Proverbs 22.6|Prov. 22:6]]; *Discourses of Brigham Young,* sel. John A. Widtsoe (Salt Lake City: Deseret Book Co., 1941), p. 207; [[Hebrews 12.9|Heb. 12:9]].
 
 [^17]: See [[D&C 132.19|D&C 132:19]].
 
@@ -93,13 +93,13 @@ May we teach and live the commandments so that together with our families we may
 
 [^22]: [[Exodus 20.14|Ex. 20:14]]; see also [[D&C 42.24|D&C 42:24]].
 
-[^23]: See [[1 Corinthians 6.19|1 Cor. 6:19]].
+[^23]: See [[1 Corinthians 6.19|1 Cor. 6:19]].
 
 [^24]: See [[D&C 49.15|D&C 49:15–17]][[D&C 49.16|]][[D&C 49.17|]].
 
 [^25]: [[Exodus 20.15|Ex. 20:15]]; see also [[Matthew 19.18|Matt. 19:18]]; [[D&C 42.20|D&C 42:20]]; [[D&C 119.1|D&C 119]][[D&C 119.2|]][[D&C 119.3|]][[D&C 119.4|]][[D&C 119.5|]][[D&C 119.6|]][[D&C 119.7|]]; [[Malachi 3.8|Mal. 3:8–11]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]].
 
-[^26]: See *Discourses of Brigham Young,* p. 43.
+[^26]: See *Discourses of Brigham Young,* p. 43.
 
 [^27]: See [[Matthew 5.42|Matt. 5:42]]; [[Acts 20.35|Acts 20:35]].
 
@@ -111,12 +111,10 @@ May we teach and live the commandments so that together with our families we may
 
 [^31]: [[Exodus 20.17|Ex. 20:17]]; see also [[D&C 19.25|D&C 19:25]].
 
-[^32]: See [[2 Nephi 9.18|2 Ne. 9:18–24]][[2 Nephi 9.19|]][[2 Nephi 9.20|]][[2 Nephi 9.21|]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]].
+[^32]: See [[2 Nephi 9.18|2 Ne. 9:18–24]][[2 Nephi 9.19|]][[2 Nephi 9.20|]][[2 Nephi 9.21|]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]].
 
-[^33]: See [[2 Nephi 31.20|2 Ne. 31:20]].
+[^33]: See [[2 Nephi 31.20|2 Ne. 31:20]].
 
-[^34]: See [[D&C 88.19|D&C 88:19]]; John Taylor, *The Government of God* (Liverpool: S. W. Richards, 1852), pp. 32–46.
+[^34]: See [[D&C 88.19|D&C 88:19]]; John Taylor, *The Government of God* (Liverpool: S. W. Richards, 1852), pp. 32–46.
 
-
-
-#Atonement #Children #Commandments #God_The_Father #Honesty #Jesus_Christ #Joy #Morality #Ordinances #Parenthood #Repentance #Sabbath #Truth #Worship
+#Atonement #Children #Commandments #GodTheFather #Honesty #Joy #JesusChrist #Morality #Ordinances #Parenthood #Repentance #Sabbath #Truth #Worship

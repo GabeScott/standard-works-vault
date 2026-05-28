@@ -95,6 +95,4 @@ Brothers and sisters, never hesitate to bear your testimony with sincerity and l
 
 
 
-
-
 #Example #Faith #Family #Truth

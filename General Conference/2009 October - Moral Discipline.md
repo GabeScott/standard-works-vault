@@ -8,7 +8,7 @@ By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/10/moral-discipline?lang=eng)
 
-During World War II, President James E. Faust, then a young enlisted man in the United States Army, applied for officer candidate school. He appeared before a board of inquiry composed of what he described as “hard-bitten career soldier\[s\].” After a while their questions turned to matters of religion. The final questions were these:
+During World War II, President James E. Faust, then a young enlisted man in the United States Army, applied for officer candidate school. He appeared before a board of inquiry composed of what he described as “hard-bitten career soldier\[s\].” After a while their questions turned to matters of religion. The final questions were these:
 
 “In times of war should not the moral code be relaxed? Does not the stress of battle justify men in doing things that they would not do when at home under normal situations?”
 
@@ -16,7 +16,7 @@ President Faust relates:
 
 “I recognized that here was a chance perhaps to make some points and look broad-minded. I knew perfectly well that the men who were asking me this question did not live by the standards that I had been taught. The thought flashed through my mind that perhaps I could say that I had my own beliefs but did not wish to impose them on others. But there seemed to flash before my mind the faces of the many people to whom I had taught the law of chastity as a missionary. In the end I simply said, ‘I do not believe there is a double standard of morality.’
 
-“I left the hearing resigned to the fact that \[they\] would not like the answers I had given … and would surely score me very low. A few days later when the scores were posted, to my astonishment I had passed. I was in the first group taken for officer’s candidate school! …
+“I left the hearing resigned to the fact that \[they\] would not like the answers I had given … and would surely score me very low. A few days later when the scores were posted, to my astonishment I had passed. I was in the first group taken for officer’s candidate school! …
 
 “This was one of the critical crossroads of my life.”[^1]
 
@@ -28,11 +28,11 @@ Jesus’s own moral discipline was rooted in His discipleship to the Father. To 
 
 The societies in which many of us live have for more than a generation failed to foster moral discipline. They have taught that truth is relative and that everyone decides for himself or herself what is right. Concepts such as sin and wrong have been condemned as “value judgments.” As the Lord describes it, “Every man walketh in his own way, and after the image of his own god” ([[D&C 1.16|D&C 1:16]]).
 
-As a consequence, self-discipline has eroded and societies are left to try to maintain order and civility by compulsion. The lack of internal control by individuals breeds external control by governments. One columnist observed that “gentlemanly behavior,” for example, once “protected women from coarse behavior. Today, we expect sexual harassment laws to restrain coarse behavior. …
+As a consequence, self-discipline has eroded and societies are left to try to maintain order and civility by compulsion. The lack of internal control by individuals breeds external control by governments. One columnist observed that “gentlemanly behavior,” for example, once “protected women from coarse behavior. Today, we expect sexual harassment laws to restrain coarse behavior. …
 
 “Policemen and laws can never replace customs, traditions and moral values as a means for regulating human behavior. At best, the police and criminal justice system are the last desperate line of defense for a civilized society. Our increased reliance on laws to regulate behavior is a measure of how uncivilized we’ve become.”[^2]
 
-In most of the world, we have been experiencing an extended and devastating economic recession. It was brought on by multiple causes, but one of the major causes was widespread dishonest and unethical conduct, particularly in the U.S. housing and financial markets. Reactions have focused on enacting more and stronger regulation. Perhaps that may dissuade some from unprincipled conduct, but others will simply get more creative in their circumvention.[^3] There could never be enough rules so finely crafted as to anticipate and cover every situation, and even if there were, enforcement would be impossibly expensive and burdensome. This approach leads to diminished freedom for everyone. In the memorable phrase of Bishop Fulton J. Sheen, “We would not accept the yoke of Christ; so now we must tremble at the yoke of Caesar.”[^4]
+In most of the world, we have been experiencing an extended and devastating economic recession. It was brought on by multiple causes, but one of the major causes was widespread dishonest and unethical conduct, particularly in the U.S. housing and financial markets. Reactions have focused on enacting more and stronger regulation. Perhaps that may dissuade some from unprincipled conduct, but others will simply get more creative in their circumvention.[^3] There could never be enough rules so finely crafted as to anticipate and cover every situation, and even if there were, enforcement would be impossibly expensive and burdensome. This approach leads to diminished freedom for everyone. In the memorable phrase of Bishop Fulton J. Sheen, “We would not accept the yoke of Christ; so now we must tremble at the yoke of Caesar.”[^4]
 
 In the end, it is only an internal moral compass in each individual that can effectively deal with the root causes as well as the symptoms of societal decay. Societies will struggle in vain to establish the common good until sin is denounced as sin and moral discipline takes its place in the pantheon of civic virtues.[^5]
 
@@ -48,9 +48,9 @@ Moral discipline is learned at home. While we cannot control what others may or 
 
 Here we find a standard for what should happen in our homes and in the Church. Our teaching should draw upon our own faith and focus first and foremost on instilling faith in God in the rising generation. We must declare the essential need to keep the commandments of God and to walk uprightly before Him in soberness, or in other words, with reverence. Each must be persuaded that service and sacrifice for the well-being and happiness of others are far superior to making one’s own comfort and possessions the highest priority.
 
-This requires more than an occasional reference to one or another gospel principle. There must be *constant* teaching, mostly by example. President Henry B. Eyring expressed the vision we strive to attain:
+This requires more than an occasional reference to one or another gospel principle. There must be *constant* teaching, mostly by example. President Henry B. Eyring expressed the vision we strive to attain:
 
-“The pure gospel of Jesus Christ must go down into the hearts of \[our children\] by the power of the Holy Ghost. It will not be enough for them to have had a spiritual witness of the truth and to want good things later. It will not be enough for them to hope for some future cleansing and strengthening. Our aim must be for them to become truly converted to the restored gospel of Jesus Christ while they are with us. …
+“The pure gospel of Jesus Christ must go down into the hearts of \[our children\] by the power of the Holy Ghost. It will not be enough for them to have had a spiritual witness of the truth and to want good things later. It will not be enough for them to hope for some future cleansing and strengthening. Our aim must be for them to become truly converted to the restored gospel of Jesus Christ while they are with us. …
 
 “Then they will have gained a strength from what they are, not only from what they know. They will become disciples of Christ.”[^6]
 
@@ -62,31 +62,29 @@ I can share with you a simple example from my own life of what parents can do. W
 
 All of us experience temptations. So did the Savior, but He “gave no heed unto them” ([[D&C 20.22|D&C 20:22]]). Similarly, we do not have to yield simply because a temptation surfaces. We may want to, but we don’t have to. An incredulous female friend asked a young adult woman, committed to living the law of chastity, how it was possible that she had never “slept with anybody.” “Don’t you *want* to?” the friend asked. The young woman thought: “The question intrigued me, because it was so utterly beside the point. … Mere wanting is hardly a proper guide for moral conduct.”[^7]
 
-In some cases, temptation may have the added force of potential or actual addiction. I am grateful that for an increasing number of people the Church can provide therapeutic help of various kinds to aid them in avoiding or coping with addictions. Even so, while therapy can support a person’s will, it cannot substitute for it. Always and ever, there must be an exercise of discipline—moral discipline founded on faith in God the Father and the Son and what They can achieve with us through the atoning grace of Jesus Christ. In Peter’s words, “The Lord knoweth how to deliver the godly out of temptations” ([[2 Peter 2.9|2 Peter 2:9]]).
+In some cases, temptation may have the added force of potential or actual addiction. I am grateful that for an increasing number of people the Church can provide therapeutic help of various kinds to aid them in avoiding or coping with addictions. Even so, while therapy can support a person’s will, it cannot substitute for it. Always and ever, there must be an exercise of discipline—moral discipline founded on faith in God the Father and the Son and what They can achieve with us through the atoning grace of Jesus Christ. In Peter’s words, “The Lord knoweth how to deliver the godly out of temptations” ([[2 Peter 2.9|2 Peter 2:9]]).
 
 We cannot presume that the future will resemble the past—that things and patterns we have relied upon economically, politically, socially will remain as they have been. Perhaps our moral discipline, if we will cultivate it, will have an influence for good and inspire others to pursue the same course. We may thereby have an impact on future trends and events. At a minimum, moral discipline will be of immense help to us as we deal with whatever stresses and challenges may come in a disintegrating society.
 
-We have heard thoughtful and inspired messages during this conference, and in a moment President Thomas S. Monson will provide concluding words of counsel. As we prayerfully consider what we have learned and relearned, I believe that the Spirit will shed further light on those things that have particular application for each of us individually. We will be fortified in the moral discipline needed to walk uprightly before the Lord and be at one with Him and the Father.
+We have heard thoughtful and inspired messages during this conference, and in a moment President Thomas S. Monson will provide concluding words of counsel. As we prayerfully consider what we have learned and relearned, I believe that the Spirit will shed further light on those things that have particular application for each of us individually. We will be fortified in the moral discipline needed to walk uprightly before the Lord and be at one with Him and the Father.
 
 I stand with my brethren and with you, my brothers and sisters, as a witness that God is our Father and that His Son, Jesus, is our Redeemer. Their law is immutable, Their truth is everlasting, and Their love is infinite. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: James E. Faust, *Stories from My Life* (2001), 2–3.
+[^1]: James E. Faust, *Stories from My Life* (2001), 2–3.
 
 [^2]: Walter Williams, “Laws Are a Poor Substitute for Common Decency, Moral Values,” *Deseret News,* Apr. 29, 2009, A15.
 
-[^3]: Speaking some years ago to members of the legal profession, President James E. Faust cautioned: “There is a great risk in justifying what we do individually and professionally on the basis of what is ‘legal’ rather than what is ‘right.’ In so doing, we put our very souls at risk. The philosophy that what is legal is also right will rob us of what is highest and best in our nature. What conduct is actually legal is, in many instances, way below the standards of a civilized society and light years below the teachings of the Christ. If you accept what is legal as your standard of personal or professional conduct, you will deny yourself of that which is truly noble in your personal dignity and worth” (“Be Healers,” *Clark Memorandum,* spring 2003, 3).
+[^3]: Speaking some years ago to members of the legal profession, President James E. Faust cautioned: “There is a great risk in justifying what we do individually and professionally on the basis of what is ‘legal’ rather than what is ‘right.’ In so doing, we put our very souls at risk. The philosophy that what is legal is also right will rob us of what is highest and best in our nature. What conduct is actually legal is, in many instances, way below the standards of a civilized society and light years below the teachings of the Christ. If you accept what is legal as your standard of personal or professional conduct, you will deny yourself of that which is truly noble in your personal dignity and worth” (“Be Healers,” *Clark Memorandum,* spring 2003, 3).
 
 [^4]: “Bishop Fulton John Sheen Makes a Wartime Plea,” in William Safire, sel., *Lend Me Your Ears: Great Speeches in History,* rev. ed. (1997), 478.
 
 [^5]: Editorial writers at the *Wall Street Journal* once observed:
 
-[^6]: Henry B. Eyring, in Shaun D. Stahle, “Inspiring Students to Stand Strong amid Torrent of Temptation,” *Church News,* Aug. 18, 2001, 5.
+[^6]: Henry B. Eyring, in Shaun D. Stahle, “Inspiring Students to Stand Strong amid Torrent of Temptation,” *Church News,* Aug. 18, 2001, 5.
 
-[^7]: Sarah E. Hinlicky, “Subversive Virginity,” *First Things,* Oct. 1998, 14.
-
-
+[^7]: Sarah E. Hinlicky, “Subversive Virginity,” *First Things,* Oct. 1998, 14.
 
 #Agency #Honesty #Morality #Virtue

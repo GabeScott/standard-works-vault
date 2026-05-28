@@ -1,6 +1,6 @@
 # The Atoning Love of Jesus Christ
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/10/35andersen?lang=eng)
 
-I express my love for President Russell M. Nelson and my gratefulness for the remarkable influence he has had on each of us. And for all of us, I thank God for preserving and magnifying the noble life of President Dallin H. Oaks.
+I express my love for President Russell M. Nelson and my gratefulness for the remarkable influence he has had on each of us. And for all of us, I thank God for preserving and magnifying the noble life of President Dallin H. Oaks.
 
 With each passing year, I feel greater love for our Savior, Jesus Christ, and for His merciful Atonement. His supreme sacrifice, securing victory over death and sin, is the most consequential contribution of all human history. Understanding His divine gift is for me an open-ended heavenly tutorial that will continue beyond the grave.
 
@@ -42,11 +42,11 @@ As I was preparing this talk, I received an unexpected email from someone in the
 
 He shared with me how his priesthood leader “felt impressed to \[ask him\] to prayerfully consider what \[more he could do for his former wife and children\].” With permission, I share a part of his email:
 
-“I \[first\] thought the \[money\] I gave up in the divorce decree was more than generous, but my branch president encouraged me to fast and pray about it. …
+“I \[first\] thought the \[money\] I gave up in the divorce decree was more than generous, but my branch president encouraged me to fast and pray about it. …
 
 “Initially, I struggled with the idea of further restitution. Since my sins weren’t financial, I wondered what a ‘generous restitution’ truly meant … \[but\] I soon realized it wasn’t just about money.
 
-“My priesthood leaders met with \[my former wife\] and my children and realized they were still struggling and hadn’t healed. …
+“My priesthood leaders met with \[my former wife\] and my children and realized they were still struggling and hadn’t healed. …
 
 “My new goal was to move forward with faith. … I simply expressed my desire to help with no strings attached. … I decided to \[send my former wife a specific amount\] per paycheck, which was a significant portion of my net pay. Just before making the first payment, the Lord \[impressed upon my mind that I needed\] to pay \[twice that amount\].
 
@@ -76,11 +76,11 @@ Our beloved brothers and sisters of Grand Blanc, Michigan, with their undaunted 
 
 As you continue to place your trust in Him, your clouds of darkness and anguished sobbing in the night will be transformed into cascading tears of joy and peace in the morning’s light.[^20] “Your sorrow shall be turned into joy. … And your joy no \[one\] taketh from you.”[^21] That moment will come. I testify that it will come.
 
-The atoning love of Jesus Christ can be found in the most difficult situations, but we all constantly need the atoning grace of our Savior. President Dallin H. Oaks has taught: “Because of His atoning experience in mortality, our Savior is able to comfort, heal, and strengthen all men and women everywhere, but I believe He does so only for those who seek Him and ask for His help. The Apostle James taught, ‘Humble yourselves in the sight of the Lord, and he shall lift you up’ (James 4:10). We qualify for that blessing when we believe in Him and pray for His help.”[^22]
+The atoning love of Jesus Christ can be found in the most difficult situations, but we all constantly need the atoning grace of our Savior. President Dallin H. Oaks has taught: “Because of His atoning experience in mortality, our Savior is able to comfort, heal, and strengthen all men and women everywhere, but I believe He does so only for those who seek Him and ask for His help. The Apostle James taught, ‘Humble yourselves in the sight of the Lord, and he shall lift you up’ (James 4:10). We qualify for that blessing when we believe in Him and pray for His help.”[^22]
 
-## Elder Robert E. Wells
+## Elder Robert E. Wells
 
-I received permission from my dear friend and emeritus General Authority Seventy, Elder Robert E. Wells, now 97 years old, to share his experience of more than 60 years ago:
+I received permission from my dear friend and emeritus General Authority Seventy, Elder Robert E. Wells, now 97 years old, to share his experience of more than 60 years ago:
 
 While living in Paraguay in 1960 and employed as an international banker, Robert Wells, then 32 years old, and his wife, Meryl, were each a pilot in two different planes, flying home from Uruguay to Paraguay. Encountering thick clouds, Robert and Meryl lost visual and radio contact with each other. Robert quickly landed, where he learned his wife’s plane had crashed. Neither his wife nor the two friends flying with her had survived. His children, at home in Asunción, were ages seven, five, and two.
 
@@ -98,9 +98,9 @@ Robert said:
 
 In time, Robert was blessed with a deeply spiritual experience. He recounted:
 
-“One evening, about one year later, while on my knees in prayer, a miracle occurred. While praying and pleading to my Heavenly Father, I felt as though the Savior came to my side and I heard an audible voice speaking these words to my soul and to my ears: ‘Robert, my atoning sacrifice paid for your sins and your mistakes. Your wife forgives you. Your friends forgive you. I will lift your burden. …’
+“One evening, about one year later, while on my knees in prayer, a miracle occurred. While praying and pleading to my Heavenly Father, I felt as though the Savior came to my side and I heard an audible voice speaking these words to my soul and to my ears: ‘Robert, my atoning sacrifice paid for your sins and your mistakes. Your wife forgives you. Your friends forgive you. I will lift your burden. …’
 
-“From that moment, the burden of guilt \[and despair\] was amazingly lifted from me. I had been rescued! I immediately understood the encompassing power of the Savior’s Atonement and … that it applied directly to me. … I … experienced light and joy like I had never before known. … I had been given an unearned gift—the Lord’s gift of grace. … I didn’t deserve it—I had done nothing to merit it, but He gave it to me nonetheless.”[^23]
+“From that moment, the burden of guilt \[and despair\] was amazingly lifted from me. I had been rescued! I immediately understood the encompassing power of the Savior’s Atonement and … that it applied directly to me. … I … experienced light and joy like I had never before known. … I had been given an unearned gift—the Lord’s gift of grace. … I didn’t deserve it—I had done nothing to merit it, but He gave it to me nonetheless.”[^23]
 
 Brothers and sisters, may we each be “sanctified in Christ by the grace of God, through the shedding of the blood of Christ, … \[becoming\] holy, without spot.”[^24]
 
@@ -109,7 +109,7 @@ I testify of the love, the mercy, and the grace of our Savior and Redeemer. He l
 
 
 
-[^1]: “Hereby perceive we the love of God, because he laid down his life for us” ([[1 John 3.16|1 John 3:16]]).
+[^1]: “Hereby perceive we the love of God, because he laid down his life for us” ([[1 John 3.16|1 John 3:16]]).
 
 [^2]: “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more” ([[D&C 58.42|Doctrine and Covenants 58:42]]; see also [[Mosiah 26.30|Mosiah 26:30]]).
 
@@ -129,13 +129,13 @@ I testify of the love, the mercy, and the grace of our Savior and Redeemer. He l
 
 [^10]: “Yea, I tell thee, that thou mayest know that there is none else save God that knowest thy thoughts and the intents of thy heart” ([[D&C 6.16|Doctrine and Covenants 6:16]]).
 
-[^11]: See [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 59.8|Doctrine and Covenants 59:8]].
+[^11]: See [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 59.8|Doctrine and Covenants 59:8]].
 
-[^12]: See [[2 Corinthians 7.8|2 Corinthians 7:8–11]][[2 Corinthians 7.9|]][[2 Corinthians 7.10|]][[2 Corinthians 7.11|]].
+[^12]: See [[2 Corinthians 7.8|2 Corinthians 7:8–11]][[2 Corinthians 7.9|]][[2 Corinthians 7.10|]][[2 Corinthians 7.11|]].
 
 [^13]: [[Mosiah 27.35|Mosiah 27:35]].
 
-[^14]: Personal email received on August 22, 2025.
+[^14]: Personal email received on August 22, 2025.
 
 [^15]: [[Mosiah 21.14|Mosiah 21:14–15]][[Mosiah 21.15|]].
 
@@ -151,12 +151,10 @@ I testify of the love, the mercy, and the grace of our Savior and Redeemer. He l
 
 [^21]: [[John 16.20|John 16:20, 22]][[John 16.22|]].
 
-[^22]: Dallin H. Oaks, “[[2015 October - Strengthened by the Atonement of Jesus Christ.md|Strengthened by the Atonement of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2015, 64.
+[^22]: Dallin H. Oaks, “[[2015 October - Strengthened by the Atonement of Jesus Christ.md|Strengthened by the Atonement of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2015, 64.
 
-[^23]: See Neil L. Andersen, *The Divine Gift of Forgiveness* (2019), 260–61.
+[^23]: See Neil L. Andersen, *The Divine Gift of Forgiveness* (2019), 260–61.
 
 [^24]: [[Moroni 10.33|Moroni 10:33]].
 
-
-
-#Atonement #Forgiveness #Healing #Jesus_Christ #Repentance
+#Atonement #Forgiveness #Healing #JesusChrist #Repentance

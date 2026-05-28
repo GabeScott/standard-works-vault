@@ -1,6 +1,6 @@
 # The Father
 
-By Brian K. Ashton - *Second Counselor in the Sunday School General Presidency*
+By Brian K. Ashton - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -91,11 +91,11 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 
 
-[^1]: Notes in possession of the author; see also D. Melinda Ashton, “The Holy Ghost: Direction, Correction, and Warning” (Brigham Young University Women’s Conference, Apr. 28, 2016), byutv.org.
+[^1]: Notes in possession of the author; see also D. Melinda Ashton, “The Holy Ghost: Direction, Correction, and Warning” (Brigham Young University Women’s Conference, Apr. 28, 2016), byutv.org.
 
 [^2]: *Lectures on Faith* (1985), 38.
 
-[^3]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145; “[Mother in Heaven](https://www.lds.org/topics/mother-in-heaven),” Gospel Topics, topics.lds.org.
+[^3]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145; “[Mother in Heaven](https://www.lds.org/topics/mother-in-heaven),” Gospel Topics, topics.lds.org.
 
 [^4]: The Apostle Paul indicated that we knew the Father so well that our souls still yearn to call him *Abba,* which means “Daddy,” a term reserved for fathers with whom we are exceedingly familiar (see [[Romans 8.15|Romans 8:15]]).
 
@@ -103,11 +103,11 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^6]: See [[D&C 132.19|Doctrine and Covenants 132:19–20]][[D&C 132.20|]].
 
-[^7]: See [[Matthew 5.48|Matthew 5:48]]; see also [[2 Peter 1.3|2 Peter 1:3–8]][[2 Peter 1.4|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]].
+[^7]: See [[Matthew 5.48|Matthew 5:48]]; see also [[2 Peter 1.3|2 Peter 1:3–8]][[2 Peter 1.4|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]].
 
-[^8]: These conditions included keeping our first estate (see [[Abraham 3.26|Abraham 3:26]]) and then in mortality exercising faith in Jesus Christ and His Atonement, repenting, being baptized by immersion by someone holding the priesthood authority of God, receiving the gift of the Holy Ghost, and enduring to the end (see [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]).
+[^8]: These conditions included keeping our first estate (see [[Abraham 3.26|Abraham 3:26]]) and then in mortality exercising faith in Jesus Christ and His Atonement, repenting, being baptized by immersion by someone holding the priesthood authority of God, receiving the gift of the Holy Ghost, and enduring to the end (see [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]).
 
-[^9]: President Dallin H. Oaks has taught: “Some who are listening to this message are probably saying, ‘But what about me?’ We know that many worthy and wonderful Latter-day Saints currently lack the ideal opportunities and essential requirements for their progress. Singleness, childlessness, death, and divorce frustrate ideals and postpone the fulfillment of promised blessings. … But these frustrations are only temporary. The Lord has promised that in the eternities no blessing will be denied his sons and daughters who keep the commandments, are true to their covenants, and desire what is right” (“[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign,* Nov. 1993, 75).
+[^9]: President Dallin H. Oaks has taught: “Some who are listening to this message are probably saying, ‘But what about me?’ We know that many worthy and wonderful Latter-day Saints currently lack the ideal opportunities and essential requirements for their progress. Singleness, childlessness, death, and divorce frustrate ideals and postpone the fulfillment of promised blessings. … But these frustrations are only temporary. The Lord has promised that in the eternities no blessing will be denied his sons and daughters who keep the commandments, are true to their covenants, and desire what is right” (“[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign,* Nov. 1993, 75).
 
 [^10]: See [[Mosiah 2.41|Mosiah 2:41]].
 
@@ -117,7 +117,7 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^13]: See, for example, [[Hebrews 5.8|Hebrews 5:8]]; [[Hebrews 12.11|12:11]]; [[Ether 12.27|Ether 12:27]]. At least at first, some of the challenges we face in mortality may seem with our limited understanding that they would preclude us from obtaining some of our most hoped-for promised blessings. In spite of these seeming contradictions, God will give us every promised blessing if we remain faithful.
 
-[^14]: See [[Luke 1.31|Luke 1:31–35]][[Luke 1.32|]][[Luke 1.33|]][[Luke 1.34|]][[Luke 1.35|]]; [[John 1.14|John 1:14]]; [[1 Nephi 11.18|1 Nephi 11:18–21]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]]; Guide to the Scriptures, “Jesus Christ,” scriptures.lds.org.
+[^14]: See [[Luke 1.31|Luke 1:31–35]][[Luke 1.32|]][[Luke 1.33|]][[Luke 1.34|]][[Luke 1.35|]]; [[John 1.14|John 1:14]]; [[1 Nephi 11.18|1 Nephi 11:18–21]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]]; Guide to the Scriptures, “Jesus Christ,” scriptures.lds.org.
 
 [^15]: See [[D&C 93.4|Doctrine and Covenants 93:4–5, 16–17, 19–20]][[D&C 93.5|]][[D&C 93.16|]][[D&C 93.17|]][[D&C 93.19|]][[D&C 93.20|]].
 
@@ -133,7 +133,7 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^21]: See [[Luke 11.10|Luke 11:10–13]][[Luke 11.11|]][[Luke 11.12|]][[Luke 11.13|]]; [[James 1.17|James 1:17]].
 
-[^22]: See [[Luke 11.5|Luke 11:5–10]][[Luke 11.6|]][[Luke 11.7|]][[Luke 11.8|]][[Luke 11.9|]][[Luke 11.10|]]; Joseph Smith Translation, [[Luke 11.5|Luke 11:5–6]][[Luke 11.6|]] (in Luke 11:5, footnote *a*); [[3 Nephi 13.6|3 Nephi 13:6]].
+[^22]: See [[Luke 11.5|Luke 11:5–10]][[Luke 11.6|]][[Luke 11.7|]][[Luke 11.8|]][[Luke 11.9|]][[Luke 11.10|]]; Joseph Smith Translation, [[Luke 11.5|Luke 11:5–6]][[Luke 11.6|]] (in Luke 11:5, footnote *a*); [[3 Nephi 13.6|3 Nephi 13:6]].
 
 [^23]: See [[Matthew 6.13|Matthew 6:13]].
 
@@ -149,19 +149,19 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^29]: See [[Alma 37.12|Alma 37:12, 37]][[Alma 37.37|]].
 
-[^30]: See [[John 14.26|John 14:26]]; [[2 Nephi 31.12|2 Nephi 31:12]].
+[^30]: See [[John 14.26|John 14:26]]; [[2 Nephi 31.12|2 Nephi 31:12]].
 
 [^31]: See [[John 17.21|John 17:21–23, 26]][[John 17.22|]][[John 17.23|]][[John 17.26|]]; [[D&C 93.36|Doctrine and Covenants 93:36]].
 
 [^32]: See [[D&C 76.53|Doctrine and Covenants 76:53]]; [[D&C 88.67|88:67–68]][[D&C 88.68|]].
 
-[^33]: See [[1 Peter 4.6|1 Peter 4:6]]. Elder Melvin J. Ballard, speaking of why a man he baptized had joined the Church, said, “It was made known to me that his ancestors in the spirit world had accepted the Gospel years ago and had been praying that some one of their family on earth would open the door for them, and that their prayers had availed and the Lord had directed the missionaries to this man’s door” (in Melvin R. Ballard, *Melvin J. Ballard, Crusader for Righteousness* \[1966\], 250).
+[^33]: See [[1 Peter 4.6|1 Peter 4:6]]. Elder Melvin J. Ballard, speaking of why a man he baptized had joined the Church, said, “It was made known to me that his ancestors in the spirit world had accepted the Gospel years ago and had been praying that some one of their family on earth would open the door for them, and that their prayers had availed and the Lord had directed the missionaries to this man’s door” (in Melvin R. Ballard, *Melvin J. Ballard, Crusader for Righteousness* \[1966\], 250).
 
-[^34]: See [[Mormon 7.5|Mormon 7:5–6]][[Mormon 7.6|]]; see also [[John 5.21|John 5:21, 26]][[John 5.26|]]; [[1 Corinthians 6.14|1 Corinthians 6:14]]; [[2 Nephi 9.11|2 Nephi 9:11–12]][[2 Nephi 9.12|]]; [[Alma 40.2|Alma 40:2–3]][[Alma 40.3|]]; [[3 Nephi 27.14|3 Nephi 27:14]].
+[^34]: See [[Mormon 7.5|Mormon 7:5–6]][[Mormon 7.6|]]; see also [[John 5.21|John 5:21, 26]][[John 5.26|]]; [[1 Corinthians 6.14|1 Corinthians 6:14]]; [[2 Nephi 9.11|2 Nephi 9:11–12]][[2 Nephi 9.12|]]; [[Alma 40.2|Alma 40:2–3]][[Alma 40.3|]]; [[3 Nephi 27.14|3 Nephi 27:14]].
 
 [^35]: See [[John 5.22|John 5:22]]; [[Jacob 6.9|Jacob 6:9]]; [[Alma 11.44|Alma 11:44]]; [[Helaman 14.15|Helaman 14:15–18]][[Helaman 14.16|]][[Helaman 14.17|]][[Helaman 14.18|]]. The Atonement of Christ overcomes all the effects of the Fall of Adam, including both physical and spiritual death, which both must be overcome to allow us to return to the presence of our Heavenly Father. Those who have repented of their sins will dwell with the Father and the Son in eternity. However, those who have failed to repent will suffer the second death, which is brought about by their own sins (see [[Helaman 14.15|Helaman 14:15–18]][[Helaman 14.16|]][[Helaman 14.17|]][[Helaman 14.18|]]).
 
-[^36]: [[2 Nephi 2.8|2 Nephi 2:8]].
+[^36]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^37]: See [[D&C 76.56|Doctrine and Covenants 76:56]]; [[D&C 88.28|88:28–29]][[D&C 88.29|]].
 
@@ -175,7 +175,7 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^42]: See [[Psalms 103.6|Psalm 103:6–8]][[Psalms 103.7|]][[Psalms 103.8|]]; [[Luke 6.36|Luke 6:36]]; [[Moses 7.30|Moses 7:30]].
 
-[^43]: See [[1 John 4.16|1 John 4:16]].
+[^43]: See [[1 John 4.16|1 John 4:16]].
 
 [^44]: See [[D&C 84.40|Doctrine and Covenants 84:40]].
 
@@ -185,7 +185,7 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^47]: See [[Acts 10.34|Acts 10:34–35]][[Acts 10.35|]].
 
-[^48]: See [[1 Nephi 9.6|1 Nephi 9:6]]; [[D&C 130.7|Doctrine and Covenants 130:7]].
+[^48]: See [[1 Nephi 9.6|1 Nephi 9:6]]; [[D&C 130.7|Doctrine and Covenants 130:7]].
 
 [^49]: Dictionary.com defines *intelligence* as the “capacity for learning, reasoning, understanding, and similar forms of mental activity; aptitude in grasping truths, relationships, facts, meanings, etc.” and “knowledge.”
 
@@ -205,7 +205,7 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^57]: See [[John 4.23|John 4:23]]; [[D&C 18.40|Doctrine and Covenants 18:40]]; [[D&C 20.29|20:29]].
 
-[^58]: See [[3 Nephi 11.11|3 Nephi 11:11]]; [[D&C 93.11|Doctrine and Covenants 93:11–19]][[D&C 93.12|]][[D&C 93.13|]][[D&C 93.14|]][[D&C 93.15|]][[D&C 93.16|]][[D&C 93.17|]][[D&C 93.18|]][[D&C 93.19|]].
+[^58]: See [[3 Nephi 11.11|3 Nephi 11:11]]; [[D&C 93.11|Doctrine and Covenants 93:11–19]][[D&C 93.12|]][[D&C 93.13|]][[D&C 93.14|]][[D&C 93.15|]][[D&C 93.16|]][[D&C 93.17|]][[D&C 93.18|]][[D&C 93.19|]].
 
 [^59]: Repentance is the process by which we change our very nature so that we become like God. Thus, we should be continually repenting, not just repenting when we “do something wrong.”
 
@@ -219,12 +219,10 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^64]: Why can’t or won’t God reveal more about the process of becoming like Him? I don’t honestly know all the reasons. But there are at least two that I do understand. The first is that some things are simply incomprehensible in our mortal estate (see [[D&C 78.17|Doctrine and Covenants 78:17]]). It might be akin to trying to explain the internet to someone who lived in the Middle Ages. The context and perspective are just not there. And the second is that gifts of grace often come to us precisely because we must agonize and struggle through not knowing.
 
-[^65]: The sacrifices we are asked to make may be essential to achieving perfection (see Joseph Smith Translation, [[Hebrews 11.40|Hebrews 11:40]] \[in [[Hebrews 11.40|Hebrews 11:40]], footnote *a*\]).
+[^65]: The sacrifices we are asked to make may be essential to achieving perfection (see Joseph Smith Translation, [[Hebrews 11.40|Hebrews 11:40]] \[in [[Hebrews 11.40|Hebrews 11:40]], footnote *a*\]).
 
 [^66]: See [[Romans 8.18|Romans 8:18]].
 
 [^67]: [[D&C 78.17|Doctrine and Covenants 78:17–18]][[D&C 78.18|]].
 
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Premortal_Existence #Resurrection
+#GodTheFather #HolyGhost #JesusChrist #PremortalExistence #Resurrection

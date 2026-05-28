@@ -5,5 +5,5 @@
 [Alma 11:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p4#p4)
 
 
-[^a]: [BD Money](https://www.churchofjesuschrist.org/study/scriptures/bd/money?lang=eng).  
+[^a]: [[BD Money|BD Money]].  
 [^b]: [[Mosiah 29.40|Mosiah 29:41 (40–44)]][[Mosiah 29.41|]][[Mosiah 29.42|]][[Mosiah 29.43|]][[Mosiah 29.44|]].  

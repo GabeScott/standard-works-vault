@@ -1,25 +1,24 @@
 # Levite
 
+*See also* [[Priest, Aaronic Priesthood.md|Priest, Aaronic Priesthood]]; [[BD Levites.md|BD Levites]]
 
-*See also* [[Priest, Aaronic Priesthood.md|Priest, Aaronic Priesthood]]; [BD Levites](https://www.churchofjesuschrist.org/study/scriptures/bd/levites?lang=eng)
-
-*Levites* ... were not numbered among them, [[Numbers 1.47|Numbers 1:47]].
+*Levites* … were not numbered among them, [[Numbers 1.47|Numbers 1:47]].
 
 give the *Levites* unto Aaron and to his sons, [[Numbers 3.9|Numbers 3:9]].
 
 take the *Levites* for me, [[Numbers 3.41|Numbers 3:41]].
 
-separate the *Levites* ... the *Levites* shall be mine, [[Numbers 8.14|Numbers 8:14]].
+separate the *Levites* … the *Levites* shall be mine, [[Numbers 8.14|Numbers 8:14]].
 
 taken the *Levites* for all the firstborn, [[Numbers 8.18|Numbers 8:18]].
 
-they give unto the *Levites* ... cities to dwell in, [[Numbers 35.2|Numbers 35:2]].
+they give unto the *Levites* … cities to dwell in, [[Numbers 35.2|Numbers 35:2]].
 
 thou forsake not the *Levite* as long as thou livest, [[Deuteronomy 12.19|Deuteronomy 12:19]].
 
-*Levites* ... shall have no part nor inheritance, [[Deuteronomy 18.1|Deuteronomy 18:1]].
+*Levites* … shall have no part nor inheritance, [[Deuteronomy 18.1|Deuteronomy 18:1]].
 
-certain *Levite* ... who took to him a concubine, [[Judges 19.1|Judges 19:1]].
+certain *Levite* … who took to him a concubine, [[Judges 19.1|Judges 19:1]].
 
 *Levites* were appointed unto all manner of service, [[1 Chronicles 6.48|1 Chronicles 6:48]].
 

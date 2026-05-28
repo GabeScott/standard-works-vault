@@ -1,6 +1,6 @@
 # Come, Join with Us
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -167,7 +167,7 @@ I earnestly pray that your own search for truth will impress upon your heart the
 
 [^2]: See [[D&C 84.20|Doctrine and Covenants 84:20]].
 
-[^3]: See [[2 Nephi 33.10|2 Nephi 33:10]].
+[^3]: See [[2 Nephi 33.10|2 Nephi 33:10]].
 
 [^4]: See “Have I Done Any Good?” *Hymns,* no. 223.
 
@@ -177,7 +177,7 @@ I earnestly pray that your own search for truth will impress upon your heart the
 
 [^7]: See [[Hebrews 11.1|Hebrews 11:1]]; [[Alma 32.21|Alma 32:21]].
 
-[^8]: See F. F. Bosworth, *Christ the Healer* (1924), 23.
+[^8]: See F. F. Bosworth, *Christ the Healer* (1924), 23.
 
 [^9]: [[Jacob 2.8|Jacob 2:8]].
 
@@ -185,5 +185,6 @@ I earnestly pray that your own search for truth will impress upon your heart the
 
 [^11]: [[John 6.67|John 6:67–68]][[John 6.68|]].
 
+[^12]: See [[Matthew 16.24|Matthew 16:24]].
 
 #Activation #Belonging #Faith

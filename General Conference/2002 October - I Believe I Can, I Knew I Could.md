@@ -16,7 +16,7 @@ I first heard the wonderful story of *The Little Engine That Could* when I was a
 
 Then a little blue engine came down the track, and she was asked to pull the cars over the mountain to the children on the other side. The little engine responded, “I’m not very big. … They use me only for switching in the yard. I have never been over the mountain.” But she was concerned about disappointing the children on the other side of the mountain if they didn’t get all of the goodies in the cars. So she said, “I think I can. I think I can. I think I can.” And she hooked herself to the little train. “Puff, puff, chug, chug, went the Little Blue Engine. ‘I think I can—I think I can—I think I can—I think I can—I think I can—I think I can—I think I can.’” With this attitude, the little engine reached the top of the mountain and went down the other side, saying, “I thought I could. I thought I could. I thought I could. I thought I could. I thought I could. I thought I could.”[^2]
 
-At times all of us are called upon to stretch ourselves and do more than we think we can. I’m reminded of President Theodore Roosevelt’s quip, “I am only an average man but, by George, I work harder at it than the average man.”[^3] We develop our talents first by thinking we can. We are all familiar with the parable of the talents. The Master gave one five talents, another two, and another one, “every man according to his several ability. …
+At times all of us are called upon to stretch ourselves and do more than we think we can. I’m reminded of President Theodore Roosevelt’s quip, “I am only an average man but, by George, I work harder at it than the average man.”[^3] We develop our talents first by thinking we can. We are all familiar with the parable of the talents. The Master gave one five talents, another two, and another one, “every man according to his several ability. …
 
 “Then he that had received the five talents went and traded with the same, and made them other five talents.
 
@@ -101,7 +101,7 @@ Brethren, great is our work, and heavy are our priesthood responsibilities. I ho
 
 [^7]: See [[Matthew 25.15|Matthew 25:15]].
 
-[^8]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^8]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^9]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 475.
 
@@ -117,11 +117,12 @@ Brethren, great is our work, and heavy are our priesthood responsibilities. I ho
 
 [^15]: [[D&C 132.47|D&C 132:47]].
 
-[^16]: [[2 Nephi 9.41|2 Nephi 9:41]].
+[^16]: [[2 Nephi 9.41|2 Nephi 9:41]].
 
-[^17]: Meade McGuire, quoted in Thomas S. Monson, in Conference Report, Oct. 1986, 50; or *Ensign,* May 1986, 39.
+[^17]: Meade McGuire, quoted in Thomas S. Monson, in Conference Report, Apr. 1986, [[1986 April - The Call of Duty.md|50]]; or *Ensign,* May 1986, 39.
 
-[^18]: [[3 Nephi 12.41|3 Nephi 12:41]].
+[^18]: [[3 Nephi 12.41|3 Nephi 12:41]].
 
+[^19]: [[2 Nephi 16.8|2 Nephi 16:8]].
 
 #Accountability #Priesthood #Service #Talents

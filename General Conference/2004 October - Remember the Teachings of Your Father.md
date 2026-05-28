@@ -32,7 +32,7 @@ First, I’d like to refer to the story of Helaman and his 2,060 stripling warri
 
 “And as the remainder of our army were about to give way before the Lamanites, behold, those two thousand and sixty were firm and undaunted.
 
-“Yea, and they did obey and observe to perform every word of command with exactness; yea, and even according to their faith it was done unto them; and I did remember the words which they said unto me that their mothers had taught them. …
+“Yea, and they did obey and observe to perform every word of command with exactness; yea, and even according to their faith it was done unto them; and I did remember the words which they said unto me that their mothers had taught them. …
 
 “And now, their preservation was astonishing to our whole army. … And we do justly ascribe it to the miraculous power of God, because of their exceeding faith in that which they had been taught to believe” ([[Alma 57.20|Alma 57:20–21, 26]][[Alma 57.21|]][[Alma 57.26|]]).
 
@@ -40,9 +40,9 @@ If I were to ask you who it was that taught these great young warriors, all of y
 
 Second, we are familiar with Alma’s teaching on faith, challenging the people:
 
-“Behold, if ye will awake and arouse your faculties, even to an experiment upon my words, and exercise a particle of faith, yea, even if ye can no more than desire to believe, let this desire work in you. …
+“Behold, if ye will awake and arouse your faculties, even to an experiment upon my words, and exercise a particle of faith, yea, even if ye can no more than desire to believe, let this desire work in you. …
 
-“Now, we will compare the word unto a seed. Now, if ye give place, that a seed may be planted in your heart, behold, if it be a true seed, or a good seed, if ye do not cast it out by your unbelief, that ye will resist the Spirit of the Lord, behold, it will begin to swell within your breasts; and when you feel these swelling motions, ye will begin to say within yourselves—It must needs be that this is a good seed. …
+“Now, we will compare the word unto a seed. Now, if ye give place, that a seed may be planted in your heart, behold, if it be a true seed, or a good seed, if ye do not cast it out by your unbelief, that ye will resist the Spirit of the Lord, behold, it will begin to swell within your breasts; and when you feel these swelling motions, ye will begin to say within yourselves—It must needs be that this is a good seed. …
 
 “Therefore, if a seed groweth it is good, but if it groweth not, behold it is not good, therefore it is cast away” ([[Alma 32.27|Alma 32:27–28, 32]][[Alma 32.28|]][[Alma 32.32|]]).
 
@@ -67,6 +67,4 @@ The reason Satan has fought and continues to fight against the Book of Mormon is
 
 
 
-
-
-#Book_Of_Mormon #Faith #Parenthood #Scripture_Study #Testimony
+#BookOfMormon #Faith #Parenthood #ScriptureStudy #Testimony

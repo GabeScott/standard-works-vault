@@ -1,6 +1,5 @@
 # Charge
 
-
 *See also* [[Accusation.md|Accusation]]; [[Command.md|Command]]
 
 gave them a *charge* unto the children of Israel, [[Exodus 6.13|Exodus 6:13]].
@@ -31,4 +30,4 @@ that it may not be laid to their *charge*, [[2 Timothy 4.16|2 Timothy 4:16]].
 
 give unto them every one his *charge*, [[Alma 35.16|Alma 35:16]].
 
-I have given ... mine angels *charge* concerning you, [[D&C 84.42|D&C 84:42]] ([[D&C 109.22|D&C 109:22]]).
+I have given … mine angels *charge* concerning you, [[D&C 84.42|D&C 84:42]] ([[D&C 109.22|D&C 109:22]]).

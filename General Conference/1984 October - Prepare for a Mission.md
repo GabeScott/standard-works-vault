@@ -45,6 +45,4 @@ Now brethren, in my career I have had many wonderful things happen to me, many m
 
 
 
-
-
-#Adversity #Leadership #Missionary_Work #Success
+#Adversity #Leadership #MissionaryWork #Success

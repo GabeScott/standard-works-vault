@@ -1,7 +1,6 @@
 # Clothe
 
-
-*See also* [[Array.md|Array]]; [[Gird, Girt.md|Gird]]
+*See also* [[Array.md|Array]]; [[Gird.md|Gird]]
 
 he hath *clothed* me with the garments of salvation, [[Isaiah 61.10|Isaiah 61:10]].
 
@@ -31,6 +30,6 @@ woman *clothed* with the sun, [[Revelation 12.1|Revelation 12:1]].
 
 *clothe* yourselves with the bond of charity, [[D&C 88.125|D&C 88:125]].
 
-bones ... *clothed* upon with flesh, [[D&C 138.43|D&C 138:43]].
+bones … *clothed* upon with flesh, [[D&C 138.43|D&C 138:43]].
 
 make coats of skins, and *clothed* them, [[Moses 4.27|Moses 4:27]].

@@ -35,10 +35,8 @@ I echo the feelings of one and all, President Benson, in saying we love you and 
 
 
 
-[^1]: “What I Hope You Will Teach Your Children about the Temple,” *Ensign,* Aug. 1985, p. 8.
+[^1]: “What I Hope You Will Teach Your Children about the Temple,” *Ensign,* Aug. 1985, p. 8.
 
 [^2]: “Temple Memories” (address given at the Denver Colorado Temple dedication, 25 Oct. 1986).
 
-
-
-#Peace #Temple_Work #Temples
+#Peace #Temples #TempleWork

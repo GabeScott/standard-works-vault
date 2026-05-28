@@ -1,7 +1,6 @@
 # Heavy, Heavier
 
-
-Moses' hands were *heavy*, [[Exodus 17.12|Exodus 17:12]].
+Moses’ hands were *heavy*, [[Exodus 17.12|Exodus 17:12]].
 
 this thing is too *heavy* for thee, [[Exodus 18.18|Exodus 18:18]].
 
@@ -9,7 +8,7 @@ it is too *heavy* for me, [[Numbers 11.14|Numbers 11:14]].
 
 singeth songs to an *heavy* heart, [[Proverbs 25.20|Proverbs 25:20]].
 
-A stone is *heavy* ... but a fool's wrath is *heavier*, [[Proverbs 27.3|Proverbs 27:3]].
+A stone is *heavy* … but a fool’s wrath is *heavier*, [[Proverbs 27.3|Proverbs 27:3]].
 
 make their ears *heavy*, [[Isaiah 6.10|Isaiah 6:10]] ([[2 Nephi 16.10|2 Nephi 16:10]]).
 

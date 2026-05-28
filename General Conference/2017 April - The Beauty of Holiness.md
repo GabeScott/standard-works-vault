@@ -1,6 +1,6 @@
 # The Beauty of Holiness
 
-By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
+By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -14,7 +14,7 @@ I see the beauty of holiness in sisters whose hearts are centered on all that is
 
 The God of heaven commanded the children of Israel, “For I am the Lord your God: ye shall therefore sanctify yourselves, and ye shall be holy; for I am holy: neither shall ye defile yourselves.”[^6]
 
-Elder D. Todd Christofferson has taught: “Our Heavenly Father is a God of high expectations. … He proposes to make us holy so that we may ‘abide a celestial glory’ ([[D&C 88.22|D&C 88:22]]) and ‘dwell in his presence’ ([[Moses 6.57|Moses 6:57]]).”[^7] *Lectures on Faith* explains, “No being can enjoy his glory without possessing his perfections and holiness.”[^8] Our Father in Heaven knows us. He loves us, and He has provided for us all that is required so that we can become holy as He is holy.
+Elder D. Todd Christofferson has taught: “Our Heavenly Father is a God of high expectations. … He proposes to make us holy so that we may ‘abide a celestial glory’ ([[D&C 88.22|D&C 88:22]]) and ‘dwell in his presence’ ([[Moses 6.57|Moses 6:57]]).”[^7] *Lectures on Faith* explains, “No being can enjoy his glory without possessing his perfections and holiness.”[^8] Our Father in Heaven knows us. He loves us, and He has provided for us all that is required so that we can become holy as He is holy.
 
 We are daughters of Heavenly Father, and each of us has a divine heritage of holiness. Our Father in Heaven has declared, “Behold, I am God; Man of Holiness is my name.”[^9] In the premortal world, we loved our Father and worshipped Him. We desired to be like Him. Out of perfect paternal love, He gave His Beloved Son, Jesus Christ, to be our Savior and Redeemer. He is the Son of Man of Holiness.[^10] His “name is Holy,”[^11] “the Holy One of Israel.”[^12]
 
@@ -61,7 +61,7 @@ Heavenly Father has given each of us the capacity to become holy. May we do our 
 
 
 
-[^1]: [[1 Chronicles 16.29|1 Chronicles 16:29]].
+[^1]: [[1 Chronicles 16.29|1 Chronicles 16:29]].
 
 [^2]: See [[D&C 20.31|Doctrine and Covenants 20:31–34]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]].
 
@@ -69,11 +69,11 @@ Heavenly Father has given each of us the capacity to become holy. May we do our 
 
 [^4]: [[Mosiah 3.19|Mosiah 3:19]].
 
-[^5]: Brigham Young, “Remarks,” *Deseret News,* Apr. 2, 1862, 313; see also James E. Faust, “[[2005 April - Standing in Holy Places.md|Standing in Holy Places]],” *Ensign* or *Liahona,* May 2005, 62.
+[^5]: Brigham Young, “Remarks,” *Deseret News,* Apr. 2, 1862, 313; see also James E. Faust, “[[2005 April - Standing in Holy Places.md|Standing in Holy Places]],” *Ensign* or *Liahona,* May 2005, 62.
 
 [^6]: [[Leviticus 11.44|Leviticus 11:44]].
 
-[^7]: D. Todd Christofferson, “[[2011 April - “As Many as I Love, I Rebuke and Chasten”.md|As Many as I Love, I Rebuke and Chasten]],” *Ensign* or *Liahona,* May 2011, 97.
+[^7]: D. Todd Christofferson, “[[2011 April - “As Many as I Love, I Rebuke and Chasten”.md|As Many as I Love, I Rebuke and Chasten]],” *Ensign* or *Liahona,* May 2011, 97.
 
 [^8]: *Lectures on Faith* (1985), 77.
 
@@ -83,11 +83,11 @@ Heavenly Father has given each of us the capacity to become holy. May we do our 
 
 [^11]: [[Isaiah 57.15|Isaiah 57:15]].
 
-[^12]: [[1 Nephi 22.21|1 Nephi 22:21, 24, 26, 28]][[1 Nephi 22.24|]][[1 Nephi 22.26|]][[1 Nephi 22.28|]].
+[^12]: [[1 Nephi 22.21|1 Nephi 22:21, 24, 26, 28]][[1 Nephi 22.24|]][[1 Nephi 22.26|]][[1 Nephi 22.28|]].
 
 [^13]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^14]: See [[2 Peter 1.4|2 Peter 1:4]].
+[^14]: See [[2 Peter 1.4|2 Peter 1:4]].
 
 [^15]: See [[D&C 84.20|Doctrine and Covenants 84:20]].
 
@@ -101,9 +101,9 @@ Heavenly Father has given each of us the capacity to become holy. May we do our 
 
 [^20]: [[D&C 82.14|Doctrine and Covenants 82:14]].
 
-[^21]: See [[2 Nephi 8.24|2 Nephi 8:24]].
+[^21]: See [[2 Nephi 8.24|2 Nephi 8:24]].
 
-[^22]: [[2 Nephi 9.14|2 Nephi 9:14]].
+[^22]: [[2 Nephi 9.14|2 Nephi 9:14]].
 
 [^23]: See [[Luke 10.38|Luke 10:38–42]][[Luke 10.39|]][[Luke 10.40|]][[Luke 10.41|]][[Luke 10.42|]].
 
@@ -115,6 +115,4 @@ Heavenly Father has given each of us the capacity to become holy. May we do our 
 
 [^27]: [[Mosiah 4.2|Mosiah 4:2]].
 
-
-
-#Atonement #Covenants #Divine_Nature #Holy_Ghost #Jesus_Christ
+#Atonement #Covenants #DivineNature #HolyGhost #JesusChrist

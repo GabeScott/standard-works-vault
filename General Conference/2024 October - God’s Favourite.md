@@ -1,6 +1,6 @@
 # God’s Favourite
 
-By Elder Karl D. Hirst - *Of the Seventy*
+By Elder Karl D. Hirst - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -53,31 +53,31 @@ Let’s become “rooted and grounded”[^22] in our Jesus and in His love. Let�
 
 [^1]: [[John 21.20|John 21:20]]; see also [[John 13.23|John 13:23]]; [[John 19.26|19:26]]; [[John 20.2|20:2]]; [[John 21.7|21:7]].
 
-[^2]: [[2 Nephi 33.6|2 Nephi 33:6]]; emphasis added.
+[^2]: [[2 Nephi 33.6|2 Nephi 33:6]]; emphasis added.
 
-[^3]: Bible Dictionary, “[Charity](https://churchofjesuschrist.org/study/scriptures/bd/charity?lang=eng).”
+[^3]: Bible Dictionary, “[[BD Charity|Charity]].”
 
-[^4]: In the Holy Land: [[Matthew 14.15|Matthew 14:15–20.]][[Matthew 14.16|]][[Matthew 14.17|]][[Matthew 14.18|]][[Matthew 14.19|]][[Matthew 14.20|]] And in the Americas: [[3 Nephi 27.16|3 Nephi 27:16]].
+[^4]: In the Holy Land: [[Matthew 14.15|Matthew 14:15–20.]][[Matthew 14.16|]][[Matthew 14.17|]][[Matthew 14.18|]][[Matthew 14.19|]][[Matthew 14.20|]] And in the Americas: [[3 Nephi 27.16|3 Nephi 27:16]].
 
 [^5]: See [[Matthew 22.35|Matthew 22:35–40]][[Matthew 22.36|]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-[^6]: See [[1 John 4.12|1 John 4:12]].
+[^6]: See [[1 John 4.12|1 John 4:12]].
 
-[^7]: [For the Strength of Youth: A Guide for Making Choices](https://churchofjesuschrist.org/study/manual/for-the-strength-of-youth/04-neighbor?lang=eng&id=p6#p6) asks that we “help \[others\] feel Heavenly Father’s love through \[us\]” (\[2022\], 12).
+[^7]: *For the Strength of Youth: A Guide for Making Choices* asks that we “help \[others\] feel Heavenly Father’s love through \[us\]” (\[2022\], 12).
 
-[^8]: “Jesus of Nazareth, Savior and King,” *Hymns*, no. 181; see also [[Isaiah 53.5|Isaiah 53:5]]; [[Matthew 26.26|Matthew 26:26]].
+[^8]: “Jesus of Nazareth, Savior and King,” *Hymns*, no. 181; see also [[Isaiah 53.5|Isaiah 53:5]]; [[Matthew 26.26|Matthew 26:26]].
 
-[^9]: President Russell M. Nelson explained: “Just prior to \[the Savior’s\] crucifixion, He said that on ‘the third day I *shall be perfected*’ \[[[Luke 13.32|Luke 13:32]]; emphasis added\]. Think of that! The sinless, errorless Lord—already perfect by our mortal standards—proclaimed his own state of perfection yet to be in the future. His *eternal* perfection would follow his resurrection and receipt of ‘all power … in heaven and in earth’ \[[[Matthew 28.18|Matthew 28:18]]; see also [[D&C 93.2|Doctrine and Covenants 93:2–23]][[D&C 93.3|]][[D&C 93.4|]][[D&C 93.5|]][[D&C 93.6|]][[D&C 93.7|]][[D&C 93.8|]][[D&C 93.9|]][[D&C 93.10|]][[D&C 93.11|]][[D&C 93.12|]][[D&C 93.13|]][[D&C 93.14|]][[D&C 93.15|]][[D&C 93.16|]][[D&C 93.17|]][[D&C 93.18|]][[D&C 93.19|]][[D&C 93.20|]][[D&C 93.21|]][[D&C 93.22|]][[D&C 93.23|]]\]” (“[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign*, Nov. 1995, 87). The prophet Moroni invited all to “come unto Christ, and be perfected in him, and deny yourselves of all ungodliness; and if ye shall deny yourselves of all ungodliness, and love God with all your might, mind and strength, then is his grace sufficient for you, that by his grace ye may be perfect in Christ” ([[Moroni 10.32|Moroni 10:32]]).
+[^9]: President Russell M. Nelson explained: “Just prior to \[the Savior’s\] crucifixion, He said that on ‘the third day I *shall be perfected*’ \[[[Luke 13.32|Luke 13:32]]; emphasis added\]. Think of that! The sinless, errorless Lord—already perfect by our mortal standards—proclaimed his own state of perfection yet to be in the future. His *eternal* perfection would follow his resurrection and receipt of ‘all power … in heaven and in earth’ \[[[Matthew 28.18|Matthew 28:18]]; see also [[D&C 93.2|Doctrine and Covenants 93:2–23]][[D&C 93.3|]][[D&C 93.4|]][[D&C 93.5|]][[D&C 93.6|]][[D&C 93.7|]][[D&C 93.8|]][[D&C 93.9|]][[D&C 93.10|]][[D&C 93.11|]][[D&C 93.12|]][[D&C 93.13|]][[D&C 93.14|]][[D&C 93.15|]][[D&C 93.16|]][[D&C 93.17|]][[D&C 93.18|]][[D&C 93.19|]][[D&C 93.20|]][[D&C 93.21|]][[D&C 93.22|]][[D&C 93.23|]]\]” (“[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign*, Nov. 1995, 87). The prophet Moroni invited all to “come unto Christ, and be perfected in him, and deny yourselves of all ungodliness; and if ye shall deny yourselves of all ungodliness, and love God with all your might, mind and strength, then is his grace sufficient for you, that by his grace ye may be perfect in Christ” ([[Moroni 10.32|Moroni 10:32]]).
 
 [^10]: “Savior of My Soul,” *2024 Youth Album*, ChurchofJesusChrist.org.
 
 [^11]: See [[Isaiah 59.1|Isaiah 59:1]].
 
-[^12]: “Where Can I Turn for Peace?,” *Hymns*, no. 129.
+[^12]: “Where Can I Turn for Peace?,” *Hymns*, no. 129.
 
 [^13]: [[Isaiah 54.10|Isaiah 54:10]].
 
-[^14]: For example, Nephi (see [[1 Nephi 17.7|1 Nephi 17:7]]), Moses (see [[Exodus 19.3|Exodus 19:3]]), the eleven disciples (see [[Matthew 28.16|Matthew 28:16]]), and the Saviour (see [[Matthew 14.23|Matthew 14:23]]); see also [[Psalms 24.3|Psalm 24:3]].
+[^14]: For example, Nephi (see [[1 Nephi 17.7|1 Nephi 17:7]]), Moses (see [[Exodus 19.3|Exodus 19:3]]), the eleven disciples (see [[Matthew 28.16|Matthew 28:16]]), and the Saviour (see [[Matthew 14.23|Matthew 14:23]]); see also [[Psalms 24.3|Psalm 24:3]].
 
 [^15]: [[Isaiah 2.2|Isaiah 2:2]]; see also [[Isaiah 2.3|verse 3]]. This symbolism causes me to consider further the Lord’s purposes in providing hundreds of temples for His children throughout the world.
 
@@ -85,22 +85,20 @@ Let’s become “rooted and grounded”[^22] in our Jesus and in His love. Let�
 
 [^17]: President Nelson has assured us:
 
-[^18]: See [[Mosiah 18.8|Mosiah 18:8–10, 13]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.13|]]. “The baptismal covenant is a public witness to Heavenly Father of three specific commitments: to serve God, to keep His commandments, and to be willing to take on the name of Jesus Christ. The other facets that are frequently associated with the baptismal covenant—that we ‘bear one another’s burdens,’ ‘mourn with those that mourn,’ and ‘comfort those that \[are\] in need of comfort’ \[[[Mosiah 18.8|Mosiah 18:8, 9]][[Mosiah 18.9|]]\]—are fruits of making the covenant rather than part of the actual covenant. These facets are important because they are what a converted soul would naturally do” (Dale G. Renlund, “[Stronger and Closer Connection to God through Multiple Covenants](https://speeches.byu.edu/talks/dale-g-renlund/stronger-and-closer-connection-to-god-through-multiple-covenants)” \[Brigham Young University devotional, Mar. 5, 2024\], speeches.byu.edu).
+[^18]: See [[Mosiah 18.8|Mosiah 18:8–10, 13]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.13|]]. “The baptismal covenant is a public witness to Heavenly Father of three specific commitments: to serve God, to keep His commandments, and to be willing to take on the name of Jesus Christ. The other facets that are frequently associated with the baptismal covenant—that we ‘bear one another’s burdens,’ ‘mourn with those that mourn,’ and ‘comfort those that \[are\] in need of comfort’ \[[[Mosiah 18.8|Mosiah 18:8, 9]][[Mosiah 18.9|]]\]—are fruits of making the covenant rather than part of the actual covenant. These facets are important because they are what a converted soul would naturally do” (Dale G. Renlund, “[Stronger and Closer Connection to God through Multiple Covenants](https://speeches.byu.edu/talks/dale-g-renlund/stronger-and-closer-connection-to-god-through-multiple-covenants)” \[Brigham Young University devotional, Mar. 5, 2024\], speeches.byu.edu).
 
-[^19]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 4–11.
+[^19]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 4–11.
 
-[^20]: See Russell M. Nelson “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117, 118.
+[^20]: See Russell M. Nelson “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117, 118.
 
 [^21]: [[Matthew 16.25|Matthew 16:25]].
 
 [^22]: [[Ephesians 3.17|Ephesians 3:17]].
 
-[^23]: See [[2 Nephi 2.25|2 Nephi 2:25]]; Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 81–84.
+[^23]: See [[2 Nephi 2.25|2 Nephi 2:25]]; Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 81–84.
 
 [^24]: [[Mosiah 2.4|Mosiah 2:4]].
 
 [^25]: See [[Moroni 7.48|Moroni 7:48]].
 
-
-
-#Individual_Worth #Jesus_Christ #Love
+#IndividualWorth #JesusChrist #Love

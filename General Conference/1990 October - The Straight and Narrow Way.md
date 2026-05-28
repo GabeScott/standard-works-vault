@@ -18,7 +18,7 @@ The Savior taught this principle when he said,
 
 In modern-day revelation he taught further, “For strait is the gate, and narrow the way that leadeth unto the exaltation and continuation of the lives, and few there be that find it” ([[D&C 132.22|D&C 132:22]]).
 
-King Josiah was a king of Judah who reigned in righteousness. When he was only eight years old, he succeeded his father as king. Scripture tells us that although he was just a boy, Josiah “did that which was right in the sight of the Lord, … and turned not aside to the right hand or to the left” ([[2 Kings 22.2|2 Kgs. 22:2]]).
+King Josiah was a king of Judah who reigned in righteousness. When he was only eight years old, he succeeded his father as king. Scripture tells us that although he was just a boy, Josiah “did that which was right in the sight of the Lord, … and turned not aside to the right hand or to the left” ([[2 Kings 22.2|2 Kgs. 22:2]]).
 
 The Lord revealed to the Prophet Joseph Smith, “For God doth not walk in crooked paths, neither doth he turn to the right hand nor to the left, neither doth he vary from that which he hath said, therefore his paths are straight, and his course is one eternal round” ([[D&C 3.2|D&C 3:2]]).
 
@@ -34,11 +34,11 @@ Another activity that can detract us from the proper way is watching television 
 
 Another temptation to detour us is placing improper emphasis on the obtaining of material possessions. For example, we may build a beautiful, spacious home that is far larger than we need. We may spend far too much to decorate, furnish, and landscape it. And even if we are blessed enough to afford such luxury, we may be misdirecting resources that could be better used to build the kingdom of God or to feed and clothe our needy brothers and sisters.
 
-Jacob, the Book of Mormon prophet, warned us, “Do not spend money for that which is of no worth, nor your labor for that which cannot satisfy” ([[2 Nephi 9.51|2 Ne. 9:51]]). And in even stronger words, he said:
+Jacob, the Book of Mormon prophet, warned us, “Do not spend money for that which is of no worth, nor your labor for that which cannot satisfy” ([[2 Nephi 9.51|2 Ne. 9:51]]). And in even stronger words, he said:
 
 “Because some of you have obtained more abundantly than … your brethren ye are lifted up in the pride of your hearts, and wear stiff necks and high heads because of the costliness of your apparel, and persecute your brethren because ye suppose that ye are better than they.
 
-“And now, my brethren, do ye suppose that God justifieth you in this thing? Behold, I say unto you, Nay. But he condemneth you. …
+“And now, my brethren, do ye suppose that God justifieth you in this thing? Behold, I say unto you, Nay. But he condemneth you. …
 
 “Do ye not suppose that such things are abominable unto him who created all flesh? And the one being is as precious in his sight as the other” ([[Jacob 2.13|Jacob 2:13–14, 21]][[Jacob 2.14|]][[Jacob 2.21|]]).
 
@@ -50,7 +50,7 @@ Many of us have made sacred covenants to live the laws of sacrifice and consecra
 
 The scriptures are full of warnings against worldliness and pride because they, too, can lead us off course. The Lord explained to the Prophet Joseph Smith that many people veer from the path “because their hearts are set so much \[on\] the things of this world” ([[D&C 121.35|D&C 121:35]]).
 
-My brothers and sisters, I plead with you also to be certain that you do not cross over the lines of safety into the paths of immorality. Our living prophet, President Ezra Taft Benson, said from this pulpit: “The plaguing sin of this generation is sexual immorality. … It permeates our society” (in Conference Report, Apr. 1986, p. 4; or *Ensign,* May 1986, p. 4). The broken hearts and broken families that come to my attention likewise demonstrate that immorality is, indeed, a very serious problem in the world and even among some Church members. Remember, “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]). “You cannot do wrong and feel right” (Ezra Taft Benson, “To ‘the Rising Generation,’” *New Era,* June 1986, p. 5).
+My brothers and sisters, I plead with you also to be certain that you do not cross over the lines of safety into the paths of immorality. Our living prophet, President Ezra Taft Benson, said from this pulpit: “The plaguing sin of this generation is sexual immorality. … It permeates our society” (in Conference Report, Apr. 1986, [[1986 April - Cleansing the Inner Vessel.md|p. 4]]; or *Ensign,* May 1986, p. 4). The broken hearts and broken families that come to my attention likewise demonstrate that immorality is, indeed, a very serious problem in the world and even among some Church members. Remember, “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]). “You cannot do wrong and feel right” (Ezra Taft Benson, “To ‘the Rising Generation,’” *New Era,* June 1986, p. 5).
 
 The first deviation toward moral breakdown in a man or woman is similar to a spark that ignites a devastating forest fire. On a hot, windy summer day this year in Midway, Utah, embers from a small campground fire were fanned into a raging forest fire that soon swept over the entire mountainside. Before the flames were brought under control, the lives of two outstanding members of the Church were lost. The roaring fire had destroyed the beautiful autumn foliage, plus eighteen homes. We risk similar damage to our moral integrity when we let our guard down for even one brief moment. The spark of an evil thought can enter our mind and could ignite and destroy the moral fiber of our soul.
 
@@ -60,7 +60,7 @@ In the Book of Mormon, the word of God is referred to as an iron rod. In interpr
 
 “And they said unto me: What meaneth the rod of iron which our father saw, that led to the tree?
 
-“And I said unto them that it was the word of God; and whoso would hearken unto the word of God, and would hold fast unto it, they would never perish; neither could the temptations and the fiery darts of the adversary overpower them unto blindness, to lead them away to destruction” ([[1 Nephi 15.23|1 Ne. 15:23–24]][[1 Nephi 15.24|]]).
+“And I said unto them that it was the word of God; and whoso would hearken unto the word of God, and would hold fast unto it, they would never perish; neither could the temptations and the fiery darts of the adversary overpower them unto blindness, to lead them away to destruction” ([[1 Nephi 15.23|1 Ne. 15:23–24]][[1 Nephi 15.24|]]).
 
 In other words, Nephi taught that by clinging to the word of God, as though it be a handrail, we would be able to avoid temptations and not lose our way in darkness. Thus, we would remain on the narrow path.
 
@@ -68,7 +68,7 @@ Using another apt symbol, the Psalmist wrote, “Thy word is a lamp unto my feet
 
 God’s word, then, is the light for our path, the iron rod or railing to which we can cling. It provides the limiting lines that we must not cross if we are to reach our destination.
 
-Through daily study of the scriptures and the words of the modern-day prophets, we can keep our values in line with the will of our Heavenly Father. The scriptures lead us “to the fountain of living waters, or to the tree of life; which waters are a representation of the love of God” ([[1 Nephi 11.25|1 Ne. 11:25]]).
+Through daily study of the scriptures and the words of the modern-day prophets, we can keep our values in line with the will of our Heavenly Father. The scriptures lead us “to the fountain of living waters, or to the tree of life; which waters are a representation of the love of God” ([[1 Nephi 11.25|1 Ne. 11:25]]).
 
 Daily prayers can help us keep on the path that leads to eternal life. In Proverbs we read, “In all thy ways acknowledge him, and he shall direct thy paths” ([[Proverbs 3.6|Prov. 3:6]]). Daily prayer in private and as families will help us stay close to our Heavenly Father and help us know what is of most value to us and to him. We are very unlikely to stray if we offer a humble, simple prayer at least each morning and evening to express thanks and to seek divine guidance.
 
@@ -94,9 +94,9 @@ As you pray, occasionally take a personal inventory to see how you measure up in
 
 I know that each of us has much to do. Sometimes we feel overwhelmed by the tasks we face. But if we keep our priorities in order, we can accomplish all that we should. We can endure to the end regardless of temptations, problems, and challenges. Those who remain faithful will receive God’s greatest blessing, eternal life, and the privilege of living with our Heavenly Father and His Beloved Son in the celestial kingdom.
 
-Elder Marion G. Romney said, “When earth life is over and things appear in their true perspective, we shall more clearly see … that the fruits of the gospel are the only objectives worthy of life’s full efforts” (in Conference Report, Oct. 1949, p. 39).
+Elder Marion G. Romney said, “When earth life is over and things appear in their true perspective, we shall more clearly see … that the fruits of the gospel are the only objectives worthy of life’s full efforts” (in Conference Report, Oct. 1949, p. 39).
 
-The Book of Mormon prophet Jacob declared: “O then, my beloved brethren, come unto the Lord, the Holy One. Remember that his paths are righteous. Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there” ([[2 Nephi 9.41|2 Ne. 9:41]]).
+The Book of Mormon prophet Jacob declared: “O then, my beloved brethren, come unto the Lord, the Holy One. Remember that his paths are righteous. Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there” ([[2 Nephi 9.41|2 Ne. 9:41]]).
 
 I pray that we may all enjoy the fruits of the gospel. Let us be faithful and true to our covenants. Let us each be mindful of the straight and narrow way and do all we can to stay within the straight lines in the midst of the storms and temptations of life. Let us study the scriptures, hold to the rod of the word of God, be prayerful in all we do, and perform Christlike acts of service. May we be filled with charity, the pure love of Christ, and may that love be reflected in our actions. We then will observe the “weightier matters” of God’s law while not leaving the rest undone ([[Matthew 23.23|Matt. 23:23]]).
 
@@ -105,6 +105,4 @@ I bear solemn testimony that Jesus is the Holy One of Israel, our Savior, and ou
 
 
 
-
-
-#Morality #Obedience #Prayer #Pride #Prophets #Scriptures #Service #Temptation #Worldliness
+#Morality #Obedience #Pride #Prayer #Prophets #Scriptures #Service #Temptation #Worldliness

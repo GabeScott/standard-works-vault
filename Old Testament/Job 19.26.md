@@ -5,6 +5,6 @@
 [Job 19:26](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.26?lang=eng#p26)
 
 
-[^a]: [[Mortality|TG Mortality]].
-[^b]: [[Flesh|TG Flesh]]; [[Immortality, Immortal|Immortality]]; [[Resurrection|Resurrection]].
-[^c]: [[1 John 3.2|1 Jn. 3:2]].
+[^a]: [[Mortality|TG Mortality]].  
+[^b]: [[Flesh|TG Flesh]]; [[Immortality, Immortal|Immortality]]; [[Resurrection|Resurrection]].  
+[^c]: [[1 John 3.2|1 Jn. 3:2]].  

@@ -1,11 +1,10 @@
 # Lion
 
-
-Judah is a *lion's* whelp ... he couched as a *lion*, [[Genesis 49.9|Genesis 49:9]].
+Judah is a *lion’s* whelp … he couched as a *lion*, [[Genesis 49.9|Genesis 49:9]].
 
 he lay down as a *lion*, [[Numbers 24.9|Numbers 24:9]].
 
-Dan is a *lion's* whelp, [[Deuteronomy 33.22|Deuteronomy 33:22]].
+Dan is a *lion’s* whelp, [[Deuteronomy 33.22|Deuteronomy 33:22]].
 
 what is stronger than a *lion*, [[Judges 14.18|Judges 14:18]].
 
@@ -25,11 +24,11 @@ living dog is better than a dead *lion*, [[Ecclesiastes 9.4|Ecclesiastes 9:4]].
 
 he shall come up like a *lion*, [[Jeremiah 49.19|Jeremiah 49:19]].
 
-God ... able to deliver thee from the *lions*, [[Daniel 6.20|Daniel 6:20]].
+God … able to deliver thee from the *lions*, [[Daniel 6.20|Daniel 6:20]].
 
-My God ... hath shut the *lions'* mouths, [[Daniel 6.22|Daniel 6:22]].
+My God … hath shut the *lions’* mouths, [[Daniel 6.22|Daniel 6:22]].
 
-first was like a *lion*, and had eagle's wings, [[Daniel 7.4|Daniel 7:4]].
+first was like a *lion*, and had eagle’s wings, [[Daniel 7.4|Daniel 7:4]].
 
 as a young *lion* to the house of Judah, [[Hosea 5.14|Hosea 5:14]].
 

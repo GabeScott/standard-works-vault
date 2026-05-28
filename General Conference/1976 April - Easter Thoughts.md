@@ -1,6 +1,6 @@
 # Easter Thoughts
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -14,7 +14,7 @@ To know God the Father and his Beloved Son Jesus Christ, our Redeemer and Savior
 
 When Philip said unto Christ, “Lord, shew us the Father, and it sufficeth us,” Jesus answered, “Have I been so long time with you, and yet hast thou not known me, Philip? he that hath seen me hath seen the Father; and how sayest thou then, Shew us the Father?” ([[John 14.8|John 14:8–9]][[John 14.9|]].)
 
-Paul declared to the Corinthian saints that Christ is “the image of God” ([[2 Corinthians 4.4|2 Cor. 4:4]]), and to the Hebrews that Christ is “the express image of \[God’s\] person.” ([[Hebrews 1.3|Heb. 1:3]].) It is logical for the Only Begotten Son of the Eternal God to be in “the express image of his \[Father’s\] person.” Like produces like, and any earthly son we know—and the earthly is typical of the heavenly—is in the image of his father. It is true in mortal life that some sons are in the express image of their father’s person.
+Paul declared to the Corinthian saints that Christ is “the image of God” ([[2 Corinthians 4.4|2 Cor. 4:4]]), and to the Hebrews that Christ is “the express image of \[God’s\] person.” ([[Hebrews 1.3|Heb. 1:3]].) It is logical for the Only Begotten Son of the Eternal God to be in “the express image of his \[Father’s\] person.” Like produces like, and any earthly son we know—and the earthly is typical of the heavenly—is in the image of his father. It is true in mortal life that some sons are in the express image of their father’s person.
 
 In modern revelation we learn that Seth, the son of Adam, “was a perfect man, and his likeness was the express likeness of his father, insomuch that he seemed to be like unto his father in all things, and could be distinguished from him only by his age.” ([[D&C 107.43|D&C 107:43]].) Could that be what Christ meant when he said to Philip, “He that hath seen me hath seen the Father”? ([[John 14.9|John 14:9]].) This statement also accords with modern-day revelation that God “the Father has a body of flesh and bones as tangible as man’s.” ([[D&C 130.22|D&C 130:22]].)
 
@@ -34,9 +34,9 @@ The works and the miracles of Christ, the evidences and testimonies of faithful,
 
 Now, the other evidences and testimonies of true witnesses who saw the risen, resurrected Lord prove that he is alive today; just as the angel Gabriel declared to Mary, the mother of Jesus, “of his kingdom there shall be no end.” ([[Luke 1.33|Luke 1:33]].) There were many appearances of the risen Lord to his disciples after his passion. I shall mention a few very briefly: First, to Mary Magdalene. ([[John 20.16|John 20:16–18]][[John 20.17|]][[John 20.18|]].) Second, to the two disciples on their way to Emmaus. ([[Luke 24.13|Luke 24:13–35]][[Luke 24.14|]][[Luke 24.15|]][[Luke 24.16|]][[Luke 24.17|]][[Luke 24.18|]][[Luke 24.19|]][[Luke 24.20|]][[Luke 24.21|]][[Luke 24.22|]][[Luke 24.23|]][[Luke 24.24|]][[Luke 24.25|]][[Luke 24.26|]][[Luke 24.27|]][[Luke 24.28|]][[Luke 24.29|]][[Luke 24.30|]][[Luke 24.31|]][[Luke 24.32|]][[Luke 24.33|]][[Luke 24.34|]][[Luke 24.35|]].) Third, to his disciples who were gathered together following his resurrection. He invited them to “behold my hands and my feet, … handle me, and see; for a spirit hath not flesh and bones, as ye see me have.” ([[Luke 24.36|Luke 24:36–40]][[Luke 24.37|]][[Luke 24.38|]][[Luke 24.39|]][[Luke 24.40|]].)
 
-Fourth, Luke tells us that Christ, after his passion, “shewed himself alive … by many infallible proofs, being seen of them forty days, and speaking of the things pertaining to the kingdom of God.” ([[Acts 1.3|Acts 1:3]].) Fifth, Paul the apostle testifies that after Christ’s resurrection “he was seen of Cephas, then of the twelve, \[then\] of above five hundred brethren at once; …
+Fourth, Luke tells us that Christ, after his passion, “shewed himself alive … by many infallible proofs, being seen of them forty days, and speaking of the things pertaining to the kingdom of God.” ([[Acts 1.3|Acts 1:3]].) Fifth, Paul the apostle testifies that after Christ’s resurrection “he was seen of Cephas, then of the twelve, \[then\] of above five hundred brethren at once; …
 
-“After that, … of James, then of all the apostles,” and last of all by Paul himself. ([[1 Corinthians 15.5|1 Cor. 15:5–8]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]].)
+“After that, … of James, then of all the apostles,” and last of all by Paul himself. ([[1 Corinthians 15.5|1 Cor. 15:5–8]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]].)
 
 Sixth, the concluding New Testament account of witnesses for our consideration is highly significant, for it furnishes hope and faith to all God’s children for the future. It deals with an important event subsequent to Christ’s resurrection and following the forty days spent with his disciples, teaching and instructing them in the things of his kingdom. “And when he had spoken these things, while they beheld, he was taken up; and a cloud received him out of their sight.
 
@@ -46,15 +46,15 @@ Sixth, the concluding New Testament account of witnesses for our consideration i
 
 “Then shall they know that I am the Lord; for I will say unto them: These wounds are the wounds with which I was wounded in the house of my friends. I am he who was lifted up. I am Jesus that was crucified. I am the Son of God.” ([[D&C 45.51|D&C 45:51–52]][[D&C 45.52|]]; see also [[Zechariah 13.6|Zech. 13:6]].)
 
-In the Book of Mormon, one of four standard works of scriptures of The Church of Jesus Christ of Latter-day Saints, there is recorded a beautiful account of Christ’s visit to the people on this continent after his resurrection from the grave. At that appearance, God the Father spoke from heaven, declaring, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
+In the Book of Mormon, one of four standard works of scriptures of The Church of Jesus Christ of Latter-day Saints, there is recorded a beautiful account of Christ’s visit to the people on this continent after his resurrection from the grave. At that appearance, God the Father spoke from heaven, declaring, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
 
-On that occasion Jesus Christ also announced himself, saying, “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.” ([[3 Nephi 11.10|3 Ne. 11:10]].) At the invitation of their Lord, a large number were privileged to come forward, in order, according to the historical account, “that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world.” ([[3 Nephi 11.14|3 Ne. 11:14]].)
+On that occasion Jesus Christ also announced himself, saying, “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.” ([[3 Nephi 11.10|3 Ne. 11:10]].) At the invitation of their Lord, a large number were privileged to come forward, in order, according to the historical account, “that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world.” ([[3 Nephi 11.14|3 Ne. 11:14]].)
 
 “And when they had all gone forth and had witnessed for themselves, they did cry out with one accord, saying:
 
-“Hosanna! Blessed be the name of the Most High God! And they did fall down at the feet of Jesus, and did worship him.” ([[3 Nephi 11.16|3 Ne. 11:16–17]][[3 Nephi 11.17|]].)
+“Hosanna! Blessed be the name of the Most High God! And they did fall down at the feet of Jesus, and did worship him.” ([[3 Nephi 11.16|3 Ne. 11:16–17]][[3 Nephi 11.17|]].)
 
-By this friendly and compelling demonstration, Jesus assured the people assembled that he was truly their risen Lord, as several of their prophets had foretold. All these evidences and testimonies of witnesses are persuasive and convincing to the seeker of truth, light, and knowledge concerning God and his Beloved Son. Mankind need not struggle in the dark to gain faith in the only true God and Jesus Christ, nor in the gospel plan of life and salvation. The Comforter, or the Holy Ghost, which Christ promised to send, is the Spirit of truth and is to guide his followers into all truth. The Holy Ghost is to testify of the Father and the Son and is a teacher, also a revelator. Witness Peter’s statement that “holy men of God spake as they were moved by the Holy Ghost” ([[2 Peter 1.21|2 Pet. 1:21]]), and Paul’s declaration, “No man can say that Jesus is the Lord, but by the Holy Ghost” ([[1 Corinthians 12.3|1 Cor. 12:3]]). John, the beloved apostle, taught, “It is the Spirit that beareth witness, because the Spirit is truth.” ([[1 John 5.6|1 Jn. 5:6]].)
+By this friendly and compelling demonstration, Jesus assured the people assembled that he was truly their risen Lord, as several of their prophets had foretold. All these evidences and testimonies of witnesses are persuasive and convincing to the seeker of truth, light, and knowledge concerning God and his Beloved Son. Mankind need not struggle in the dark to gain faith in the only true God and Jesus Christ, nor in the gospel plan of life and salvation. The Comforter, or the Holy Ghost, which Christ promised to send, is the Spirit of truth and is to guide his followers into all truth. The Holy Ghost is to testify of the Father and the Son and is a teacher, also a revelator. Witness Peter’s statement that “holy men of God spake as they were moved by the Holy Ghost” ([[2 Peter 1.21|2 Pet. 1:21]]), and Paul’s declaration, “No man can say that Jesus is the Lord, but by the Holy Ghost” ([[1 Corinthians 12.3|1 Cor. 12:3]]). John, the beloved apostle, taught, “It is the Spirit that beareth witness, because the Spirit is truth.” ([[1 John 5.6|1 Jn. 5:6]].)
 
 According to these statements of scripture, the witness of the Holy Ghost, which all who are worthy can enjoy, has the power to bestow knowledge, understanding, faith, and the testimony of truth to those who prayerfully seek it. A prophet-writer of Book of Mormon history and doctrine gave this wise and understanding counsel and admonition: “I would exhort you that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost.
 
@@ -67,6 +67,4 @@ In closing, I join with the first prophet of this latter-day dispensation in dec
 
 
 
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ
+#GodTheFather #HolyGhost #JesusChrist

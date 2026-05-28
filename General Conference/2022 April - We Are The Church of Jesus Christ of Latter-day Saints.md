@@ -1,6 +1,6 @@
 # We Are The Church of Jesus Christ of Latter-day Saints
 
-By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
+By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -24,7 +24,7 @@ Relief Society is not limited to a room in a building, a Sunday lesson, an activ
 
 Similar belonging exists in elders quorums and organizations of the Church for all ages, including our children and youth. The Church is more than the buildings and the ecclesiastical structure; the Church is *us*, the members. *We* are The Church of Jesus Christ of Latter-day Saints, with Christ at the head and the prophet as His mouthpiece. The Lord has said:
 
-“Behold, this is my doctrine—whosoever repenteth and cometh unto me, the same is my church. …
+“Behold, this is my doctrine—whosoever repenteth and cometh unto me, the same is my church. …
 
 “And … whosoever is of my church, and endureth of my church to the end, him will I establish upon my rock.”[^15]
 
@@ -42,7 +42,7 @@ Our purpose in His kingdom should be to bring each other to Christ. As we read i
 
 “Have ye any that are sick among you? Bring them hither. Have ye any that are … afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you; my bowels are filled with mercy.
 
-“… I see that your faith is sufficient that I should heal you.”[^18]
+“… I see that your faith is sufficient that I should heal you.”[^18]
 
 Do we not all have afflictions that can be brought to the Savior’s feet? While some of us have physical challenges, many more battle with emotional strife, others struggle to nurture social connections, and we all seek respite when our spirits are challenged. We are *all* afflicted in some manner.
 
@@ -56,7 +56,7 @@ My dear sisters and brothers, let us follow Jesus Christ’s invitation to bring
 
 As “the peaceable followers of Christ,”[^20] we are striving to become “of one heart and one mind”[^21] and to be humble; submissive; gentle; easy to be entreated; full of patience and long-suffering; temperate in all things; diligent in keeping the commandments of God at all times; full of faith, hope, and charity; and abounding in good works.[^22] We are striving to become like Jesus Christ.
 
-I testify that as Christ’s Church, we are the means through which, as President Russell M. Nelson taught, “our Savior and Redeemer, Jesus Christ, will perform some of His mightiest works between now and when He comes again.”[^23]
+I testify that as Christ’s Church, we are the means through which, as President Russell M. Nelson taught, “our Savior and Redeemer, Jesus Christ, will perform some of His mightiest works between now and when He comes again.”[^23]
 
 The Lord has said:
 
@@ -69,43 +69,43 @@ May we respond to this divine invitation and joyfully assemble, organize, prepar
 
 
 
-[^1]: [[John 1.46|John 1:46]]; see also Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 15–18; David A. Bednar, “[[2014 October - Come and See.md|Come and See]],” *Ensign* or *Liahona*, Nov. 2014, 107–10.
+[^1]: [[John 1.46|John 1:46]]; see also Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 15–18; David A. Bednar, “[[2014 October - Come and See.md|Come and See]],” *Ensign* or *Liahona*, Nov. 2014, 107–10.
 
 [^2]: [[Isaiah 25.4|Isaiah 25:4]]; [[D&C 115.6|Doctrine and Covenants 115:6]].
 
 [^3]: [[Moroni 6.4|Moroni 6:4]].
 
-[^4]: See Gordon B. Hinckley, “[[1997 April - Converts and Young Men.md|Converts and Young Men]],” *Ensign*, May 1997, 47–50.
+[^4]: See Gordon B. Hinckley, “[[1997 April - Converts and Young Men.md|Converts and Young Men]],” *Ensign*, May 1997, 47–50.
 
-[^5]: See, for example, [[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]]; [[Ephesians 4.11|Ephesians 4:11–13]][[Ephesians 4.12|]][[Ephesians 4.13|]]; [[Jacob 5.61|Jacob 5:61–62, 71–72]][[Jacob 5.62|]][[Jacob 5.71|]][[Jacob 5.72|]]; [[3 Nephi 26.20|3 Nephi 26:20–21]][[3 Nephi 26.21|]]; [[3 Nephi 27.5|27:5–8]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]]; [[3 Nephi 28.23|28:23]]; [[D&C 20.1|Doctrine and Covenants 20]][[D&C 20.2|]][[D&C 20.3|]][[D&C 20.4|]][[D&C 20.5|]][[D&C 20.6|]][[D&C 20.7|]][[D&C 20.8|]][[D&C 20.9|]][[D&C 20.10|]][[D&C 20.11|]][[D&C 20.12|]][[D&C 20.13|]][[D&C 20.14|]][[D&C 20.15|]][[D&C 20.16|]][[D&C 20.17|]][[D&C 20.18|]][[D&C 20.19|]][[D&C 20.20|]][[D&C 20.21|]][[D&C 20.22|]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]][[D&C 20.26|]][[D&C 20.27|]][[D&C 20.28|]][[D&C 20.29|]][[D&C 20.30|]][[D&C 20.31|]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]][[D&C 20.35|]][[D&C 20.36|]][[D&C 20.37|]][[D&C 20.38|]][[D&C 20.39|]][[D&C 20.40|]][[D&C 20.41|]][[D&C 20.42|]][[D&C 20.43|]][[D&C 20.44|]][[D&C 20.45|]][[D&C 20.46|]][[D&C 20.47|]][[D&C 20.48|]][[D&C 20.49|]][[D&C 20.50|]][[D&C 20.51|]][[D&C 20.52|]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]][[D&C 20.60|]][[D&C 20.61|]][[D&C 20.62|]][[D&C 20.63|]][[D&C 20.64|]][[D&C 20.65|]][[D&C 20.66|]][[D&C 20.67|]][[D&C 20.68|]][[D&C 20.69|]][[D&C 20.70|]][[D&C 20.71|]][[D&C 20.72|]][[D&C 20.73|]][[D&C 20.74|]][[D&C 20.75|]][[D&C 20.76|]][[D&C 20.77|]][[D&C 20.78|]][[D&C 20.79|]][[D&C 20.80|]][[D&C 20.81|]][[D&C 20.82|]][[D&C 20.83|]][[D&C 20.84|]]; [[D&C 21.1|21]][[D&C 21.2|]][[D&C 21.3|]][[D&C 21.4|]][[D&C 21.5|]][[D&C 21.6|]][[D&C 21.7|]][[D&C 21.8|]][[D&C 21.9|]][[D&C 21.10|]][[D&C 21.11|]][[D&C 21.12|]]; [[D&C 88.73|88:73–74]][[D&C 88.74|]]; [[D&C 115.4|115:4]]; [[D&C 138.30|138:30–35, 55–56]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.55|]][[D&C 138.56|]]; [[Moses 5.58|Moses 5:58–59]][[Moses 5.59|]]; [[Moses 6.22|6:22–23]][[Moses 6.23|]]; [[Abraham 3.22|Abraham 3:22–28]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]][[Abraham 3.28|]]; [[Abraham 4.1|4]][[Abraham 4.2|]][[Abraham 4.3|]][[Abraham 4.4|]][[Abraham 4.5|]][[Abraham 4.6|]][[Abraham 4.7|]][[Abraham 4.8|]][[Abraham 4.9|]][[Abraham 4.10|]][[Abraham 4.11|]][[Abraham 4.12|]][[Abraham 4.13|]][[Abraham 4.14|]][[Abraham 4.15|]][[Abraham 4.16|]][[Abraham 4.17|]][[Abraham 4.18|]][[Abraham 4.19|]][[Abraham 4.20|]][[Abraham 4.21|]][[Abraham 4.22|]][[Abraham 4.23|]][[Abraham 4.24|]][[Abraham 4.25|]][[Abraham 4.26|]][[Abraham 4.27|]][[Abraham 4.28|]][[Abraham 4.29|]][[Abraham 4.30|]][[Abraham 4.31|]].
+[^5]: See, for example, [[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]]; [[Ephesians 4.11|Ephesians 4:11–13]][[Ephesians 4.12|]][[Ephesians 4.13|]]; [[Jacob 5.61|Jacob 5:61–62, 71–72]][[Jacob 5.62|]][[Jacob 5.71|]][[Jacob 5.72|]]; [[3 Nephi 26.20|3 Nephi 26:20–21]][[3 Nephi 26.21|]]; [[3 Nephi 27.5|27:5–8]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]]; [[3 Nephi 28.23|28:23]]; [[D&C 20.1|Doctrine and Covenants 20]][[D&C 20.2|]][[D&C 20.3|]][[D&C 20.4|]][[D&C 20.5|]][[D&C 20.6|]][[D&C 20.7|]][[D&C 20.8|]][[D&C 20.9|]][[D&C 20.10|]][[D&C 20.11|]][[D&C 20.12|]][[D&C 20.13|]][[D&C 20.14|]][[D&C 20.15|]][[D&C 20.16|]][[D&C 20.17|]][[D&C 20.18|]][[D&C 20.19|]][[D&C 20.20|]][[D&C 20.21|]][[D&C 20.22|]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]][[D&C 20.26|]][[D&C 20.27|]][[D&C 20.28|]][[D&C 20.29|]][[D&C 20.30|]][[D&C 20.31|]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]][[D&C 20.35|]][[D&C 20.36|]][[D&C 20.37|]][[D&C 20.38|]][[D&C 20.39|]][[D&C 20.40|]][[D&C 20.41|]][[D&C 20.42|]][[D&C 20.43|]][[D&C 20.44|]][[D&C 20.45|]][[D&C 20.46|]][[D&C 20.47|]][[D&C 20.48|]][[D&C 20.49|]][[D&C 20.50|]][[D&C 20.51|]][[D&C 20.52|]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]][[D&C 20.60|]][[D&C 20.61|]][[D&C 20.62|]][[D&C 20.63|]][[D&C 20.64|]][[D&C 20.65|]][[D&C 20.66|]][[D&C 20.67|]][[D&C 20.68|]][[D&C 20.69|]][[D&C 20.70|]][[D&C 20.71|]][[D&C 20.72|]][[D&C 20.73|]][[D&C 20.74|]][[D&C 20.75|]][[D&C 20.76|]][[D&C 20.77|]][[D&C 20.78|]][[D&C 20.79|]][[D&C 20.80|]][[D&C 20.81|]][[D&C 20.82|]][[D&C 20.83|]][[D&C 20.84|]]; [[D&C 21.1|21]][[D&C 21.2|]][[D&C 21.3|]][[D&C 21.4|]][[D&C 21.5|]][[D&C 21.6|]][[D&C 21.7|]][[D&C 21.8|]][[D&C 21.9|]][[D&C 21.10|]][[D&C 21.11|]][[D&C 21.12|]]; [[D&C 88.73|88:73–74]][[D&C 88.74|]]; [[D&C 115.4|115:4]]; [[D&C 138.30|138:30–35, 55–56]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.55|]][[D&C 138.56|]]; [[Moses 5.58|Moses 5:58–59]][[Moses 5.59|]]; [[Moses 6.22|6:22–23]][[Moses 6.23|]]; [[Abraham 3.22|Abraham 3:22–28]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]][[Abraham 3.28|]]; [[Abraham 4.1|4]][[Abraham 4.2|]][[Abraham 4.3|]][[Abraham 4.4|]][[Abraham 4.5|]][[Abraham 4.6|]][[Abraham 4.7|]][[Abraham 4.8|]][[Abraham 4.9|]][[Abraham 4.10|]][[Abraham 4.11|]][[Abraham 4.12|]][[Abraham 4.13|]][[Abraham 4.14|]][[Abraham 4.15|]][[Abraham 4.16|]][[Abraham 4.17|]][[Abraham 4.18|]][[Abraham 4.19|]][[Abraham 4.20|]][[Abraham 4.21|]][[Abraham 4.22|]][[Abraham 4.23|]][[Abraham 4.24|]][[Abraham 4.25|]][[Abraham 4.26|]][[Abraham 4.27|]][[Abraham 4.28|]][[Abraham 4.29|]][[Abraham 4.30|]][[Abraham 4.31|]].
 
 [^6]: [[Moses 1.39|Moses 1:39]].
 
 [^7]: See, for example, [[Exodus 25.8|Exodus 25:8]]; [[Deuteronomy 12.5|Deuteronomy 12:5–14]][[Deuteronomy 12.6|]][[Deuteronomy 12.7|]][[Deuteronomy 12.8|]][[Deuteronomy 12.9|]][[Deuteronomy 12.10|]][[Deuteronomy 12.11|]][[Deuteronomy 12.12|]][[Deuteronomy 12.13|]][[Deuteronomy 12.14|]]; [[D&C 59.9|Doctrine and Covenants 59:9]]; [[D&C 109.8|109:8]].
 
-[^8]: See Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–96; David A. Bednar, “[[2021 October - With the Power of God in Great Glory.md|With the Power of God in Great Glory]],” *Liahona*, Nov. 2021, 28–30.
+[^8]: See Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–96; David A. Bednar, “[[2021 October - With the Power of God in Great Glory.md|With the Power of God in Great Glory]],” *Liahona*, Nov. 2021, 28–30.
 
-[^9]: [[D&C 84.20|Doctrine and Covenants 84:20]]; see also [[1 Nephi 14.14|1 Nephi 14:14]]; [[D&C 95.8|Doctrine and Covenants 95:8]]; *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, 3.5, 27.2, ChurchofJesusChrist.org.
+[^9]: [[D&C 84.20|Doctrine and Covenants 84:20]]; see also [[1 Nephi 14.14|1 Nephi 14:14]]; [[D&C 95.8|Doctrine and Covenants 95:8]]; *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, 3.5, 27.2, ChurchofJesusChrist.org.
 
-[^10]: See [[Mosiah 18.25|Mosiah 18:25]]; [[Alma 6.6|Alma 6:6]]; [[Alma 15.18|15:18]]; [[4 Nephi 1.12|4 Nephi 1:12]]; [[Moroni 6.4|Moroni 6:4–6]][[Moroni 6.5|]][[Moroni 6.6|]]; [[D&C 20.75|Doctrine and Covenants 20:75]]; [[D&C 59.9|59:9]]; [[D&C 101.22|101:22]].
+[^10]: See [[Mosiah 18.25|Mosiah 18:25]]; [[Alma 6.6|Alma 6:6]]; [[Alma 15.18|15:18]]; [[4 Nephi 1.12|4 Nephi 1:12]]; [[Moroni 6.4|Moroni 6:4–6]][[Moroni 6.5|]][[Moroni 6.6|]]; [[D&C 20.75|Doctrine and Covenants 20:75]]; [[D&C 59.9|59:9]]; [[D&C 101.22|101:22]].
 
-[^11]: L. Tom Perry, “[The Tradition of Light and Testimony](https://churchofjesuschrist.org/study/liahona/2012/12/the-tradition-of-light-and-testimony?lang=eng&id=p12#p12),” *Ensign*, Dec. 2012, 30; *Liahona*, Dec. 2012, 12.
+[^11]: L. Tom Perry, “[The Tradition of Light and Testimony](https://www.churchofjesuschrist.org/study/liahona/2012/12/the-tradition-of-light-and-testimony?lang=eng&id=p12#p12),” *Ensign*, Dec. 2012, 30; *Liahona*, Dec. 2012, 12.
 
-[^12]: “[The Role of Women](https://churchofjesuschrist.org/study/manual/muslims-and-latter-day-saints/12-the-role-of-women?lang=eng&id=p2#p2),” *Muslims and Latter-day Saints: Beliefs, Values, and Lifestyles*, ChurchofJesusChrist.org.
+[^12]: “[The Role of Women](https://www.churchofjesuschrist.org/study/manual/muslims-and-latter-day-saints/12-the-role-of-women?lang=eng&id=p2#p2),” *Muslims and Latter-day Saints: Beliefs, Values, and Lifestyles*, ChurchofJesusChrist.org.
 
 [^13]: See *General Handbook*, 9.1.1.
 
-[^14]: John A. Widtsoe, *Evidences and Reconciliations*, arr. G. Homer Durham, 3 vols. in 1 (1960), 308.
+[^14]: John A. Widtsoe, *Evidences and Reconciliations*, arr. G. Homer Durham, 3 vols. in 1 (1960), 308.
 
-[^15]: [[D&C 10.67|Doctrine and Covenants 10:67, 69]][[D&C 10.69|]]; see also [[1 Corinthians 12.12|1 Corinthians 12:12–31]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]][[1 Corinthians 12.28|]][[1 Corinthians 12.29|]][[1 Corinthians 12.30|]][[1 Corinthians 12.31|]]; [[Mosiah 18.17|Mosiah 18:17]]; [[3 Nephi 18.5|3 Nephi 18:5–16]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]][[3 Nephi 18.15|]][[3 Nephi 18.16|]]; [[3 Nephi 26.21|26:21]].
+[^15]: [[D&C 10.67|Doctrine and Covenants 10:67, 69]][[D&C 10.69|]]; see also [[1 Corinthians 12.12|1 Corinthians 12:12–31]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]][[1 Corinthians 12.28|]][[1 Corinthians 12.29|]][[1 Corinthians 12.30|]][[1 Corinthians 12.31|]]; [[Mosiah 18.17|Mosiah 18:17]]; [[3 Nephi 18.5|3 Nephi 18:5–16]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]][[3 Nephi 18.15|]][[3 Nephi 18.16|]]; [[3 Nephi 26.21|26:21]].
 
-[^16]: [[1 Corinthians 12.14|1 Corinthians 12:14]].
+[^16]: [[1 Corinthians 12.14|1 Corinthians 12:14]].
 
-[^17]: See Reyna I. Aburto, *Reaching for the Savior* (2021), 89–90.
+[^17]: See Reyna I. Aburto, *Reaching for the Savior* (2021), 89–90.
 
-[^18]: [[3 Nephi 17.7|3 Nephi 17:7–8]][[3 Nephi 17.8|]].
+[^18]: [[3 Nephi 17.7|3 Nephi 17:7–8]][[3 Nephi 17.8|]].
 
-[^19]: [[3 Nephi 17.9|3 Nephi 17:9–10]][[3 Nephi 17.10|]]; emphasis added.
+[^19]: [[3 Nephi 17.9|3 Nephi 17:9–10]][[3 Nephi 17.10|]]; emphasis added.
 
 [^20]: [[Moroni 7.3|Moroni 7:3]].
 
@@ -113,10 +113,8 @@ May we respond to this divine invitation and joyfully assemble, organize, prepar
 
 [^22]: See [[Alma 7.23|Alma 7:23–24]][[Alma 7.24|]].
 
-[^23]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^23]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
 [^24]: [[D&C 88.73|Doctrine and Covenants 88:73–74]][[D&C 88.74|]].
 
-
-
-#Church_Membership #Discipleship #Healing #Jesus_Christ #Relief_Society
+#ChurchMembership #Discipleship #Healing #JesusChrist #ReliefSociety

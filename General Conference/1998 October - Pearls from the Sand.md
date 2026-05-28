@@ -43,6 +43,4 @@ I know that He lives and guides His Church through His prophet, President Gordon
 
 
 
-
-
-#Fellowshipping #Holy_Ghost #Jesus_Christ #Missionary_Work
+#Fellowshipping #HolyGhost #JesusChrist #MissionaryWork

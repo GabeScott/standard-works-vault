@@ -1,6 +1,6 @@
 # The Lord Offers Everyone a Way Back from Sin
 
-By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
+By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -36,7 +36,7 @@ The message I am sharing with you today is that the gospel protects us and that 
 
 “It isn’t easy to admit past sins even to ourselves. I found that it was as hard for me to admit the exact nature of my sins to myself as it was to admit them to the bishop. I didn’t want to think about them.
 
-“After my confession the bishop commended me on taking the first step toward returning to my Heavenly Father and outlined additional steps to prepare me for the day when I would realize that I had truly been forgiven. He emphasized that he, himself, could not forgive me. That was the Lord’s decision. He helped me to understand that I *could* be forgiven, that my Heavenly Father loves me, that I could gain an awareness of my future goals and not constantly condemn myself all of my life, thus halting my eternal progression. He asked me to read the *Miracle of Forgiveness* by President Spencer W. Kimball. It helped a great deal in making me aware of the process of forgiveness. We had several appointments, the bishop and I, so that he could help me to see my course toward reestablishing myself in good standing in the Church.
+“After my confession the bishop commended me on taking the first step toward returning to my Heavenly Father and outlined additional steps to prepare me for the day when I would realize that I had truly been forgiven. He emphasized that he, himself, could not forgive me. That was the Lord’s decision. He helped me to understand that I *could* be forgiven, that my Heavenly Father loves me, that I could gain an awareness of my future goals and not constantly condemn myself all of my life, thus halting my eternal progression. He asked me to read the *Miracle of Forgiveness* by President Spencer W. Kimball. It helped a great deal in making me aware of the process of forgiveness. We had several appointments, the bishop and I, so that he could help me to see my course toward reestablishing myself in good standing in the Church.
 
 “Following my interview with the bishop, I found myself alternating between depression in which I wondered if I would ever be forgiven and becoming lax in doing the things I should be doing. I have learned that ‘to change’ isn’t easy. It takes time. One must learn to ‘try’ and ‘try again.’
 
@@ -75,8 +75,6 @@ The steps of repentance have been clearly defined in the scriptures:
 I give you my testimony that I know God lives and that Jesus is the Christ, our Redeemer. I testify that they love us and have given us the gospel to protect us from taking the long, dark journeys in our life. I further testify that whether you be a member or a nonmember the gospel principle of repentance has the power to bring us back from the depths of despair, to give us peace in this world and eternal life in the world to come even though our journeys may have been long and dark. These principles can apply to all of us—to nonmembers who experience the remission of sins through repentance and baptism, as well as members who repent of their sins. I ask the Lord’s blessings to be with all those who are reaching out to know that they may come back.
 
 May our Heavenly Father bless us to dedicate our lives today. There is no better time to start than today. That we may remain valiant all the days of our lives and endure to the end is my prayer, in the name of Jesus Christ. Amen.
-
-
 
 
 

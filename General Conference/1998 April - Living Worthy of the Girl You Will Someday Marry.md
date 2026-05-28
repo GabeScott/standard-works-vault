@@ -8,9 +8,9 @@ By President Gordon B. Hinckley - *President of the Church*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/04/living-worthy-of-the-girl-you-will-someday-marry?lang=eng)
 
-A week ago President Faust and the Young Women general presidency spoke to the young women of the Church in this tabernacle.
+A week ago President Faust and the Young Women general presidency spoke to the young women of the Church in this Tabernacle.
 
-As I looked at that gathering of beautiful young women the question moved through my mind, “Are we rearing a generation of young men worthy of them?”
+As I looked at that gathering of beautiful young women, the question moved through my mind, “Are we rearing a generation of young men worthy of them?”
 
 Those girls are so fresh and vibrant. They are beautiful. They are bright. They are able. They are faithful. They are virtuous. They are true. They are simply wonderful and delightful young women.
 
@@ -18,7 +18,7 @@ And so tonight, in this great priesthood meeting, I wish to speak to you young m
 
 The girl you marry will take a terrible chance on you. She will give her all to the young man she marries. He will largely determine the remainder of her life. She will even surrender her name to his name.
 
-As Adam declared in the Garden of Eden: “This is now bone of my bones, and flesh of my flesh. …
+As Adam declared in the Garden of Eden: “This is now bone of my bones, and flesh of my flesh. …
 
 “Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh” ([[Genesis 2.23|Gen. 2:23–24]][[Genesis 2.24|]]).
 
@@ -56,7 +56,7 @@ If you have a temper, now is the time to learn to control it. The more you do so
 
 I constantly deal with those cases of members of the Church who have been married in the temple and who later divorce and then apply for a cancellation of their temple sealing. When first married, they are full of great expectations, with a wonderful spirit of happiness. But the flower of love fades in an atmosphere of criticism and carping, of mean words and uncontrolled anger. Love flies out the window as contention enters. I repeat, my brethren, if any of you young men have trouble controlling your temper, I plead with you to begin the work of making that correction now. Otherwise you will bring only tears and sorrow into the homes which you will someday establish. Jacob, in the Book of Mormon, condemns his people for their wickedness in marriage. Says he: “Behold, ye have done greater iniquities than the Lamanites, our brethren. Ye have broken the hearts of your tender wives, and lost the confidence of your children, because of your bad examples before them; and the sobbings of their hearts ascend up to God against you. And because of the strictness of the word of God, which cometh down against you, many hearts died, pierced with deep wounds” ([[Jacob 2.35|Jacob 2:35]]).
 
-Work for an education. Get all the training that you can. The world will largely pay you what it thinks you are worth. Paul did not mince words when he wrote to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Tim. 5:8]]).
+Work for an education. Get all the training that you can. The world will largely pay you what it thinks you are worth. Paul did not mince words when he wrote to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Tim. 5:8]]).
 
 It is your primary obligation to provide for your family.
 
@@ -66,7 +66,7 @@ Education is the key to economic opportunity. The Lord has laid a mandate upon u
 
 Be modest in your wants. You do not need a big home with a big mortgage as you begin your lives together. You can and should avoid overwhelming debt. There is nothing that will cause greater tensions in marriage than grinding debt, which will make of you a slave to your creditors. You may have to borrow money to begin ownership of a home. But do not let it be so costly that it will preoccupy your thoughts day and night.
 
-When I was married my wise father said to me, “Get a modest home and pay off the mortgage so that if economic storms should come, your wife and children will have a roof over their heads.”
+When I was married, my wise father said to me, “Get a modest home and pay off the mortgage so that if economic storms should come, your wife and children will have a roof over their heads.”
 
 The girl who marries you will not wish to be married to a tightwad. Neither will she wish to be married to a spendthrift. She is entitled to know all about family finances. She will be your partner. Unless there is full and complete understanding between you and your wife on these matters, there likely will come misunderstandings and suspicions that will cause trouble that can lead to greater problems.
 
@@ -97,6 +97,4 @@ God bless you, my dear young men. I could wish for you nothing more wonderful th
 
 
 
-
-
-#Anger #Education #Family #Financial_Management #Joy #Love #Loyalty #Marriage #Media #Missionary_Work #Priesthood #Profanity #Temples #Word_Of_Wisdom #Youth
+#Anger #Education #Family #FinancialManagement #Joy #Loyalty #Love #Marriage #Media #MissionaryWork #Priesthood #Profanity #Temples #WordOfWisdom #Youth

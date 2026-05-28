@@ -41,6 +41,4 @@ It will now be our pleasure to hear from our beloved associate Elder David B. Ha
 
 
 
-
-
-#Church_Growth #Education #Morality #Service #Youth
+#ChurchGrowth #Education #Morality #Service #Youth

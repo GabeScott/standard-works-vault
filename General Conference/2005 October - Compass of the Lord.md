@@ -43,14 +43,12 @@ I stand today as a witness that our Father’s promises will all be fulfilled; t
 
 [^3]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-[^4]: See [[1 Nephi 16.9|1 Nephi 16:9–16]][[1 Nephi 16.10|]][[1 Nephi 16.11|]][[1 Nephi 16.12|]][[1 Nephi 16.13|]][[1 Nephi 16.14|]][[1 Nephi 16.15|]][[1 Nephi 16.16|]].
+[^4]: See [[1 Nephi 16.9|1 Nephi 16:9–16]][[1 Nephi 16.10|]][[1 Nephi 16.11|]][[1 Nephi 16.12|]][[1 Nephi 16.13|]][[1 Nephi 16.14|]][[1 Nephi 16.15|]][[1 Nephi 16.16|]].
 
-[^5]: [[1 Nephi 16.29|1 Nephi 16:29]].
+[^5]: [[1 Nephi 16.29|1 Nephi 16:29]].
 
 [^6]: See [[Alma 37.38|Alma 37:38–41]][[Alma 37.39|]][[Alma 37.40|]][[Alma 37.41|]].
 
 [^7]: [[Alma 37.46|Alma 37:46–47]][[Alma 37.47|]].
 
-
-
-#Dedication #Faith #General_Conference #Obedience
+#Dedication #Faith #GeneralConference #Obedience

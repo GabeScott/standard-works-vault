@@ -1,14 +1,14 @@
 # What This Work Is All About
 
-By President Gordon B. Hinckley - *Counselor in the First Presidency*
+By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/10/what-this-work-is-all-about?lang=eng)
 
-My brethren and sisters, I am confident that I speak for all of you when I express appreciation to President Kimball for his message just read by his able and faithful secretary, D. Arthur Haycock.
+My brethren and sisters, I am confident that I speak for all of you when I express appreciation to President Kimball for his message just read by his able and faithful secretary, D. Arthur Haycock.
 
-Thank you, President Kimball, for your counsel, and particularly for your testimony of God our Eternal Father and his Beloved Son, our Savior and Redeemer. We add our witness to yours that we too know that God lives and that he is the Ruler of the universe, our Father in Heaven; that Jesus Christ, his Only Begotten in the flesh, was born in Bethlehem of Judea as the promised Messiah; that he was the Man of miracles, the one perfect Man who has lived upon the earth; that he was crucified and gave his life as a sacrifice for the sins of all men; that through that great act of atonement, he became the Redeemer of all mankind; that he arose from the grave the third day, thus becoming “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]); that he was seen by many in and about Jerusalem, and in this hemisphere also, who testified that they saw and felt and were instructed by the risen Lord. By the power of the Holy Spirit, which has borne witness to us, we can and do testify of these great, transcendent truths. And we add our witness that this, “the dispensation of the fulness of times” ([[D&C 112.30|D&C 112:30]]), spoken of in the scripture, was ushered in by a glorious visitation of the Father and the Son for the blessing of all who will seek and learn.
+Thank you, President Kimball, for your counsel, and particularly for your testimony of God our Eternal Father and his Beloved Son, our Savior and Redeemer. We add our witness to yours that we too know that God lives and that he is the Ruler of the universe, our Father in Heaven; that Jesus Christ, his Only Begotten in the flesh, was born in Bethlehem of Judea as the promised Messiah; that he was the Man of miracles, the one perfect Man who has lived upon the earth; that he was crucified and gave his life as a sacrifice for the sins of all men; that through that great act of atonement, he became the Redeemer of all mankind; that he arose from the grave the third day, thus becoming “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]); that he was seen by many in and about Jerusalem, and in this hemisphere also, who testified that they saw and felt and were instructed by the risen Lord. By the power of the Holy Spirit, which has borne witness to us, we can and do testify of these great, transcendent truths. And we add our witness that this, “the dispensation of the fulness of times” ([[D&C 112.30|D&C 112:30]]), spoken of in the scripture, was ushered in by a glorious visitation of the Father and the Son for the blessing of all who will seek and learn.
 
 President Kimball, we assure you that the prayers of this people across the world ascend to our Father in Heaven in your behalf. We sing anew the beautiful hymn of Evan Stephens, written for Wilford Woodruff’s ninetieth birthday:
 
@@ -89,6 +89,7 @@ Is not this what the work is all about? Said the Savior, “I am come that they 
 I do not know whether the two men who served as Jack’s bishops know what has become of him. If they know where he is, there must be sweet satisfaction in their hearts. There are thousands of bishops like them, who serve night and day in this great work of reactivation. And there are tens of thousands of Jacks in this Church whose hearts are touched and who are brought back into activity by a great sense of concern, a quiet expression of love, and a challenge to serve from bishops and others. But there are many, many more who need similar attention.
 
 This work of ours is a great work of redemption. All of us must do more because the consequences can be so remarkable and everlasting. This is our Father’s work, and he has laid upon us a divine injunction to seek out and strengthen those in need and those who are weak. As we do so, the homes of our people will be filled with an increased measure of love; the nation, whatever nation it be, will be strengthened by reason of the virtue of such people; and the Church and kingdom of God will roll forward in majesty and power on its divinely appointed mission. Of this I testify and for this I pray, in the name of Jesus Christ, amen.
+
 
 
 

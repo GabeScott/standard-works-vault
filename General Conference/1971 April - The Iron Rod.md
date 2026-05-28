@@ -1,6 +1,6 @@
 # The Iron Rod
 
-By President Harold B. Lee - *First Counselor in the First Presidency*
+By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -14,7 +14,7 @@ Sometime ago there appeared in the *Wall Street Journal* a thought-provoking art
 
 “What people come to religion for, is an ultimate metaphysical hunger, and when that hunger is not satisfied, religion declines … the moment that clerics become more worldly, the world goes to hades the faster.
 
-“… Religion represents the accumulation of man’s insight over thousands of years into such questions as the nature of man, the meaning of life, the individual’s place in the universe. That is, precisely, the question at the root of man’s restlessness.
+“… Religion represents the accumulation of man’s insight over thousands of years into such questions as the nature of man, the meaning of life, the individual’s place in the universe. That is, precisely, the question at the root of man’s restlessness.
 
 “Man seeks something to end his state of confusion and emptiness … in the latest parlance, an antidote for aimlessness. We do not know if the truths of religious tradition can be interpreted to satisfy this need, but we are sure that here, not in political activism, is religion’s path to relevance.”
 
@@ -28,7 +28,7 @@ As with many other ancient prophets in biblical history, dreams or visions of th
 
 The rod of iron as seen in the vision interpreted was the word of God, or the gospel of Jesus Christ, which led to the tree of life that the Master explained to the woman at the well in Samaria was as “a well of \[living\] water springing up into everlasting life.” ([[John 4.14|John 4:14]].)
 
-Those, as seen in the vision, who were across the river pointing fingers of scorn represented the multitudes of the earth which are gathered together to fight against the apostles of the Lamb of God. The scorners, so the Lord revealed, represented the so-called wisdom of the world, and the building itself in which they were gathered was the “pride of the world.” (See [[1 Nephi 11.1|1 Ne. 11–12]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].)
+Those, as seen in the vision, who were across the river pointing fingers of scorn represented the multitudes of the earth which are gathered together to fight against the apostles of the Lamb of God. The scorners, so the Lord revealed, represented the so-called wisdom of the world, and the building itself in which they were gathered was the “pride of the world.” (See [[1 Nephi 11.1|1 Ne. 11–12]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].)
 
 If there is any one thing most needed in this time of tumult and frustration, when men and women and youth and young adults are desperately seeking for answers to the problems which afflict mankind, it is an “iron rod” as a safe guide along the straight path on the way to eternal life, amidst the strange and devious roadways that would eventually lead to destruction and to the ruin of all that is “virtuous, lovely, or of good report.”
 
@@ -36,7 +36,7 @@ These conditions as they would be found in the earth when these scriptures, now 
 
 “And I know that ye do walk in the pride of your hearts; and there are none save a few only who do not lift themselves up in the pride of their hearts; unto … envying, and strifes, and malice, and persecutions, and all manner of iniquities … because of the pride of your hearts.
 
-“… behold, ye do love money, and your substance, and your fine apparel, and the adorning of your churches, more than ye love the poor and the needy, the sick and the afflicted.” ([[Mormon 8.36|Morm. 8:36–37]][[Mormon 8.37|]].)
+“… behold, ye do love money, and your substance, and your fine apparel, and the adorning of your churches, more than ye love the poor and the needy, the sick and the afflicted.” ([[Mormon 8.36|Morm. 8:36–37]][[Mormon 8.37|]].)
 
 The apostle Paul also spoke of a time of peril when “men \[would\] be lovers of their own selves, covetous, boasters, proud, blasphemers, disobedient to parents, unthankful, unholy,
 
@@ -44,17 +44,17 @@ The apostle Paul also spoke of a time of peril when “men \[would\] be lovers o
 
 “Traitors, heady, highminded, lovers of pleasures more than lovers of God;
 
-“Having a form of godliness, but denying the power thereof. …” ([[2 Timothy 3.2|2 Tim. 3:2–5]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
+“Having a form of godliness, but denying the power thereof. …” ([[2 Timothy 3.2|2 Tim. 3:2–5]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
 
 There are many who profess to be religious and speak of themselves as Christians, and, according to one such, “as accepting the scriptures only as sources of inspiration and moral truth,” and then ask in their smugness: “Do the revelations of God give us a handrail to the kingdom of God, as the Lord’s messenger told Lehi, or merely a compass?”
 
 Unfortunately, some are among us who claim to be Church members but are somewhat like the scoffers in Lehi’s vision—standing aloof and seemingly inclined to hold in derision the faithful who choose to accept Church authorities as God’s special witnesses of the gospel and his agents in directing the affairs of the Church.
 
-There are those in the Church who speak of themselves as liberals who, as one of our former presidents has said, “read by the lamp of their own conceit.” (Joseph F. Smith, *Gospel Doctrine* \[Deseret Book Co., 1939\], p. 373.) One time I asked one of our Church educational leaders how he would define a liberal in the Church. He answered in one sentence: “A liberal in the Church is merely one who does not have a testimony.”
+There are those in the Church who speak of themselves as liberals who, as one of our former presidents has said, “read by the lamp of their own conceit.” (Joseph F. Smith, *Gospel Doctrine* \[Deseret Book Co., 1939\], p. 373.) One time I asked one of our Church educational leaders how he would define a liberal in the Church. He answered in one sentence: “A liberal in the Church is merely one who does not have a testimony.”
 
-Dr. John A. Widtsoe, former member of the Quorum of the Twelve and an eminent educator, made a statement relative to this word *liberal* as it applied to those in the Church. This is what he said:
+Dr. John A. Widtsoe, former member of the Quorum of the Twelve and an eminent educator, made a statement relative to this word *liberal* as it applied to those in the Church. This is what he said:
 
-“The self-called liberal \[in the Church\] is usually one who has broken with the fundamental principles or guiding philosophy of the group to which he belongs. … He claims membership in an organization but does not believe in its basic concepts; and sets out to reform it by changing its foundations. …
+“The self-called liberal \[in the Church\] is usually one who has broken with the fundamental principles or guiding philosophy of the group to which he belongs. … He claims membership in an organization but does not believe in its basic concepts; and sets out to reform it by changing its foundations. …
 
 “It is folly to speak of a liberal religion, if that religion claims that it rests upon unchanging truth.”
 
@@ -72,7 +72,7 @@ I heard one of our own eminent scientists say something to the effect that he be
 
 There were evidently similar questions and controversies in the Master’s time. In one terse answer, he gave the essential ingredients to safety amidst the maze of uncertainty:
 
-To settle an apparent controversy among his disciples as to who would be the greatest in the kingdom of God, he said: “… except ye be converted, and become as little children, ye shall not enter into the kingdom of \[God\].” ([[Matthew 18.3|Matt. 18:3]].)
+To settle an apparent controversy among his disciples as to who would be the greatest in the kingdom of God, he said: “… except ye be converted, and become as little children, ye shall not enter into the kingdom of \[God\].” ([[Matthew 18.3|Matt. 18:3]].)
 
 To become converted, according to the scriptures, meant having a change of heart and the moral character of a person turned from the controlled power of sin into a righteous life. It meant to “wait patiently on the Lord” until one’s prayers can be answered and until his heart, as Cyprian, a defender of the faith in the Apostolic Period, testified, and I quote, “Into my heart, purified of all sin, there entered a light which came from on high, and then suddenly and in a marvelous manner, I saw certainty succeed doubt.”
 
@@ -84,15 +84,15 @@ The Master warned: “But whoso shall offend one of these little ones which beli
 
 The Master was impressing the fact that rather than ruin the soul of a true believer, it were better for a person to suffer an earthly death than to incur the penalty of jeopardizing his own eternal destiny.
 
-The apostle Paul impressed also the danger of false teachings by bad example. Said he: “But take heed lest by any means this liberty of yours become a stumblingblock to them that are weak. …
+The apostle Paul impressed also the danger of false teachings by bad example. Said he: “But take heed lest by any means this liberty of yours become a stumblingblock to them that are weak. …
 
 “And through thy knowledge shall the weak … perish, for whom Christ died?
 
 “But when ye sin so against the brethren, and wound their weak conscience, ye sin against Christ.” ([[1 Corinthians 8.9|1 Cor. 8:9, 11–12]][[1 Corinthians 8.11|]][[1 Corinthians 8.12|]].)
 
-Speaking to the learned and highly sophisticated generation in his time, the prophet Jacob said something which seems to be so often needed to be repeated today: “… When they are learned they think they are wise, and they hearken not unto the counsel of God, for they set it aside, supposing they know of themselves, wherefore, their wisdom is foolishness and it profiteth them not. …
+Speaking to the learned and highly sophisticated generation in his time, the prophet Jacob said something which seems to be so often needed to be repeated today: “… When they are learned they think they are wise, and they hearken not unto the counsel of God, for they set it aside, supposing they know of themselves, wherefore, their wisdom is foolishness and it profiteth them not. …
 
-“But to be learned is good if they hearken to the counsels of God.” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]].)
+“But to be learned is good if they hearken to the counsels of God.” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]].)
 
 We fervently thank the Lord for the faithfulness and devotion of many in and out of the Church who are in high places in business, in governmental circles, in the legal profession, doctors, trained social workers, nurses, and those in the fields of the sciences and the arts. Particularly are we grateful for those who accept positions of leadership in the Church, who serve as home teachers or class leaders in the priesthood or in the auxiliaries, who make themselves available for volunteer service in helping to care for the unfortunate in all lands and among minorities within and without the Church, and in giving particular attention to the needs of the widows and the orphans.
 
@@ -108,21 +108,21 @@ Therein, it is my conviction, is the challenge to all who achieve distinction in
 
 Remember, as George Moore said of Washington, “We can become educated persons, regardless of our stations in life, if we never quit learning.”
 
-The late President Dwight D. Eisenhower wrote this: “Any man who does his work well, who is justifiably self-confident and not unduly disturbed by the jeers of the cynics and the shirkers, any man who stays true to decent motives and is considerate of others is, in essence, a leader. Whether or not he is ever singled out for prominence, he is bound to achieve great inner satisfaction in turning out superior work.
+The late President Dwight D. Eisenhower wrote this: “Any man who does his work well, who is justifiably self-confident and not unduly disturbed by the jeers of the cynics and the shirkers, any man who stays true to decent motives and is considerate of others is, in essence, a leader. Whether or not he is ever singled out for prominence, he is bound to achieve great inner satisfaction in turning out superior work.
 
 “And that, by the way, is what the good Lord put us on this earth for.” (“What Is Leadership?” *Reader’s Digest,* June 1965, p. 54.)
 
-With the restoration of the true gospel of Jesus Christ and the establishment of the Church in the dispensation of the fulness of times, we were given instructions by revelation, the magnitude of which, as the late President Brigham H. Roberts explained, was “not merely as to whether baptism should be by immersion or for the forgiveness of sins, but the rubbish of accumulated ages was swept aside, the rocks made bare, and the foundations of the Kingdom of God were relaid.”
+With the restoration of the true gospel of Jesus Christ and the establishment of the Church in the dispensation of the fulness of times, we were given instructions by revelation, the magnitude of which, as the late President Brigham H. Roberts explained, was “not merely as to whether baptism should be by immersion or for the forgiveness of sins, but the rubbish of accumulated ages was swept aside, the rocks made bare, and the foundations of the Kingdom of God were relaid.”
 
 It may seem preposterous to many to declare that within the teachings of The Church of Jesus Christ of Latter-day Saints may be found a bulwark to safeguard against the pitfalls, the frustrations, and the wickedness in the world. The plan of salvation formed in the heavens points clearly to the straight and narrow path that leads to eternal life, even though there are many who refuse to follow that way.
 
 In a great revelation, the Lord gave instruction by commandment to the leaders of the Church of that early day that they should be seekers after truth in many fields.
 
-First, of course, he commanded that they should “teach one another the doctrine of the kingdom … in all things that pertain \[to\] the kingdom of God. …” ([[D&C 88.77|D&C 88:77–78]][[D&C 88.78|]].)
+First, of course, he commanded that they should “teach one another the doctrine of the kingdom … in all things that pertain \[to\] the kingdom of God. …” ([[D&C 88.77|D&C 88:77–78]][[D&C 88.78|]].)
 
 Then he counsels as to the wide sweep of learning about which we should seek. His church was not to be an ignorant ministry in various fields of secular learning.
 
-And then the Lord addressed his revelation to all others who may not have faith: “… seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].)
+And then the Lord addressed his revelation to all others who may not have faith: “… seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].)
 
 One might well ask: How does one get “learning by faith”? One prophet explains the process: First, one must arouse his faculties and experiment on the words of the Lord and desire to believe. Let this desire work in you until ye believe in a manner that you can give place even to a portion of the word of the Lord; then, like a planted seed, it must be cultivated and not resist the Spirit of the Lord, which is that which lighteneth everyone born into the world; you can then begin to feel within yourselves that it must be good, for it enlarges your soul and enlightens your understanding and, like the fruit of the tree in Lehi’s vision, it becomes delicious to the taste. (See [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].)
 
@@ -136,7 +136,7 @@ The mission of this church is to bear witness of the truths of the gospel and pu
 
 My fervent prayer is that I may hold up that true Light of Christ to all the world. I would that all may know with assurance, as I, from study, prayer, and faith, know for a certainty, as the Master declared to Martha, who was mourning the death of Lazarus, that the Lord and Master is indeed “the resurrection, and the life; \[and\] he that believeth in \[him\], though he were dead, yet shall he live:
 
-“And whosoever liveth and believeth in \[him\] shall never die. …” ([[John 11.25|John 11:25–26]][[John 11.26|]].)
+“And whosoever liveth and believeth in \[him\] shall never die. …” ([[John 11.25|John 11:25–26]][[John 11.26|]].)
 
 I thank the Lord that I can answer, as did Martha and as did Peter of old: “Thou art the Christ, the Son of the living God.” ([[Matthew 16.16|Matt. 16:16]].)
 
@@ -147,6 +147,4 @@ To this I do bear my solemn witness, in the sacred name of our Lord and Master, 
 
 
 
-
-
-#Conversion #Education #Evil #Faith #Obedience #Plan_Of_Salvation #Testimony
+#Conversion #Education #Evil #Faith #Obedience #PlanOfSalvation #Testimony

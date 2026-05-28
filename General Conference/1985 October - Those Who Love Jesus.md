@@ -40,7 +40,7 @@ In the center of the main hall, inscribed for all to see, is the message of the 
 
 Today, the challenge which we face and must meet is not that we should go forth on the battlefield of war and lay down our lives. Rather, it is that we, on the battlefield of life, so live and serve that our lives and actions reflect a true love of God, of His Son, Jesus Christ, and of our fellowmen. This is not accomplished by clever signs printed on bumper stickers affixed to automobiles.
 
-Jesus teaches us: “If ye love me, keep my commandments. …
+Jesus teaches us: “If ye love me, keep my commandments. …
 
 “He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.” ([[John 14.15|John 14:15, 21]][[John 14.21|]].)
 
@@ -86,25 +86,23 @@ Full cooperation of government officials was forthcoming. President Spencer W. K
 
 During the actual dedicatory services when President Gordon B. Hinckley offered the dedicatory prayer, hymns of praise, testimonies of truth, tears of gratitude, and prayers of thanksgiving marked the historic event. To understand *how,* to comprehend *why,* it is necessary to know the faith, the devotion, the love of the members of the Church in that nation. Though fewer than five thousand in number, the activity levels exceed those found anywhere else in the world.
 
-During the many years I have served on assignment in that area, I have noted the absence of spacious chapels with multiple teaching stations and grounds featuring the greenery of lawns and the blossoms of flowers. The meetinghouse libraries, as well as the personal libraries of our members, consist only of the standard works, a hymnbook, and one or two other volumes. These books do not remain on bookcase shelves. Their teachings are engraved on the hearts of members. They are displayed in their daily lives. Service is a privilege. A branch president, forty-two years of age, has served in his calling for twenty-one years—half his life. Never a complaint—just gratitude. In Leipzig, when the meetinghouse furnace failed one cold winter day, the meetings were not dismissed. Rather, the members met in the chill of the unheated building, sitting shoulder to shoulder, wearing their coats, singing the hymns of Zion and worshiping Him who counseled, “Be not weary in well doing,” “Follow me,” “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers.” ([[2 Thessalonians 3.13|2 Thes. 3:13]]; [[Matthew 4.19|Matt. 4:19]]; [[D&C 112.10|D&C 112:10]].)
+During the many years I have served on assignment in that area, I have noted the absence of spacious chapels with multiple teaching stations and grounds featuring the greenery of lawns and the blossoms of flowers. The meetinghouse libraries, as well as the personal libraries of our members, consist only of the standard works, a hymnbook, and one or two other volumes. These books do not remain on bookcase shelves. Their teachings are engraved on the hearts of members. They are displayed in their daily lives. Service is a privilege. A branch president, forty-two years of age, has served in his calling for twenty-one years—half his life. Never a complaint—just gratitude. In Leipzig, when the meetinghouse furnace failed one cold winter day, the meetings were not dismissed. Rather, the members met in the chill of the unheated building, sitting shoulder to shoulder, wearing their coats, singing the hymns of Zion and worshiping Him who counseled, “Be not weary in well doing,” “Follow me,” “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers.” ([[2 Thessalonians 3.13|2 Thes. 3:13]]; [[Matthew 4.19|Matt. 4:19]]; [[D&C 112.10|D&C 112:10]].)
 
-The Apostle Paul taught the Corinthians, “If any man love God, the same is known of him.” ([[1 Corinthians 8.3|1 Cor. 8:3]].) The love which these faithful members have for God, for His Son, Jesus Christ, and for His everlasting gospel is confirmed by their very lives. It is reminiscent of the love demonstrated by the brother of Jared as described in the Book of Mormon. The blessings of a loving, caring, and just Heavenly Father simply could not be withheld. Faith preceded the miracle. Eternal ordinances are now performed. Everlasting covenants are now made. The love of God has again blessed His people.
+The Apostle Paul taught the Corinthians, “If any man love God, the same is known of him.” ([[1 Corinthians 8.3|1 Cor. 8:3]].) The love which these faithful members have for God, for His Son, Jesus Christ, and for His everlasting gospel is confirmed by their very lives. It is reminiscent of the love demonstrated by the brother of Jared as described in the Book of Mormon. The blessings of a loving, caring, and just Heavenly Father simply could not be withheld. Faith preceded the miracle. Eternal ordinances are now performed. Everlasting covenants are now made. The love of God has again blessed His people.
 
 For those who love Jesus, these prophetic words have sublime meaning:
 
 “Hear, O ye heavens, and give ear, O earth, and rejoice ye inhabitants thereof, for the Lord is God, and beside him there is no Savior.
 
-“Great is his wisdom, marvelous are his ways. …
+“Great is his wisdom, marvelous are his ways. …
 
-“His purposes fail not. …
+“His purposes fail not. …
 
 “For thus saith the Lord—I, the Lord, am merciful and gracious unto those who fear me, and delight to honor those who serve me in righteousness and in truth unto the end.
 
 “Great shall be their reward and eternal shall be their glory.” ([[D&C 76.1|D&C 76:1–3, 5–6]][[D&C 76.2|]][[D&C 76.3|]][[D&C 76.5|]][[D&C 76.6|]].)
 
 Such is the blessing reserved for those who love Jesus. May each of us qualify for this great reward, this eternal glory, I pray in the name of Jesus Christ, whom I love and of whom I testify, amen.
-
-
 
 
 

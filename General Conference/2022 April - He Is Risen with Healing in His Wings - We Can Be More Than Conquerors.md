@@ -30,13 +30,13 @@ The answer is *yes*. You can survive. You have in fact already been rescued; you
 
 The Apostle Paul asks:
 
-“Who shall separate us from the love of Christ? shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword? …
+“Who shall separate us from the love of Christ? shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword? …
 
 “Nay, in *all* these things we are *more than conquerors through him that loved us*.”[^3]
 
 ## The Promises to Covenant Israel
 
-You will remember when President Russell M. Nelson issued the following invitation in general conference. He said: “As you study your scriptures … , I encourage you to make a list of all that the Lord has promised He will do for covenant Israel. I think you will be astounded!”[^4]
+You will remember when President Russell M. Nelson issued the following invitation in general conference. He said: “As you study your scriptures … , I encourage you to make a list of all that the Lord has promised He will do for covenant Israel. I think you will be astounded!”[^4]
 
 Here are just a few of the powerful and comforting promises our family found. Imagine the Lord speaking these words to you—to *you* who are surviving—because they *are* for you:
 
@@ -102,30 +102,30 @@ For the falsely accused, the unspeakable gravity of these accusations brings its
 
 But unrepentant abusers will stand before the Lord to account for their heinous crimes.
 
-The Lord Himself is crystal clear in His condemnation of abuse of any kind: “But whoso shall offend one of these little ones … , it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.”[^19]
+The Lord Himself is crystal clear in His condemnation of abuse of any kind: “But whoso shall offend one of these little ones … , it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.”[^19]
 
 ## Conclusion
 
-Dear friends who have been so terribly wounded—and for that matter, anyone who has borne the injustices of life—you can have a new beginning and a fresh start. In Gethsemane and on Calvary, Jesus “took upon Himself … *all* of the anguish and suffering *ever* experienced by you and me,”[^20] and He has overcome it all! With arms outstretched, the Savior offers the gift of healing to you. With courage, patience, and faithful focus on Him, before too long you can come to fully accept this gift. You can let go of your pain and leave it at His feet.
+Dear friends who have been so terribly wounded—and for that matter, anyone who has borne the injustices of life—you can have a new beginning and a fresh start. In Gethsemane and on Calvary, Jesus “took upon Himself … *all* of the anguish and suffering *ever* experienced by you and me,”[^20] and He has overcome it all! With arms outstretched, the Savior offers the gift of healing to you. With courage, patience, and faithful focus on Him, before too long you can come to fully accept this gift. You can let go of your pain and leave it at His feet.
 
 Your gentle Savior declared, “The thief cometh not, but for to steal, and to kill, and to destroy: I am come that \[you\] might have life, and that \[you\] might have it more abundantly.”[^21] You are a survivor, you can heal, and you can trust that with the power and grace of Jesus Christ, you will overcome and conquer.
 
 Jesus specializes in the seemingly impossible. He came here to make the impossible possible, the irredeemable redeemable, to heal the unhealable, to right the unrightable, to promise the unpromisable.[^22] And He’s really good at it. In fact, He’s perfect at it. In the name of Jesus Christ, our Healer, amen.
 
-*For more information and resources, see “” in the Life Help section at ChurchofJesusChrist.org and in the Gospel Library app.*
+*For more information and resources, see “[Abuse](https://www.churchofjesuschrist.org/study/life-help/abuse?lang=eng)” in the Life Help section at ChurchofJesusChrist.org and in the Gospel Library app.*
 
 
 
 
-[^1]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]. President Russell M. Nelson taught: “\[Jesus Christ\] was brutally reviled, mocked, spit upon, and scourged. In the Garden of Gethsemane, our Savior took upon Himself *every* pain, *every* sin, and *all* of the anguish and suffering *ever* experienced by you and me and by everyone who has ever lived or will ever live. Under the weight of that excruciating burden, He bled from every pore \[see [[D&C 19.18|Doctrine and Covenants 19:18]]\]. All of this suffering was intensified as He was cruelly crucified on Calvary’s cross” (“[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88).
+[^1]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]. President Russell M. Nelson taught: “\[Jesus Christ\] was brutally reviled, mocked, spit upon, and scourged. In the Garden of Gethsemane, our Savior took upon Himself *every* pain, *every* sin, and *all* of the anguish and suffering *ever* experienced by you and me and by everyone who has ever lived or will ever live. Under the weight of that excruciating burden, He bled from every pore \[see [[D&C 19.18|Doctrine and Covenants 19:18]]\]. All of this suffering was intensified as He was cruelly crucified on Calvary’s cross” (“[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88).
 
 [^2]: See [[John 16.33|John 16:33]]; [[Philippians 4.13|Philippians 4:13]].
 
 [^3]: [[Romans 8.35|Romans 8:35, 37]][[Romans 8.37|]]; emphasis added.
 
-[^4]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 95.
+[^4]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 95.
 
-[^5]: See [[Isaiah 41.10|Isaiah 41:10]]; [[2 Nephi 8.7|2 Nephi 8:7]].
+[^5]: See [[Isaiah 41.10|Isaiah 41:10]]; [[2 Nephi 8.7|2 Nephi 8:7]].
 
 [^6]: See [[Exodus 3.7|Exodus 3:7–8]][[Exodus 3.8|]].
 
@@ -145,19 +145,20 @@ Jesus specializes in the seemingly impossible. He came here to make the impossib
 
 [^14]: [[Malachi 4.2|Malachi 4:2]].
 
-[^15]: Elder Dale G. Renlund testified that “all that is unfair about life can be made right through the Atonement of Jesus Christ” (“[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Liahona*, May 2021, 43); see also [Preach My Gospel: A Guide to Missionary Service](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-2-the-plan-of-salvation?lang=eng&id=p19#p19) \[2019\], 52; [[Isaiah 61.1|Isaiah 61:1–3]][[Isaiah 61.2|]][[Isaiah 61.3|]]; [[Revelation 21.4|Revelation 21:4]]).
+[^15]: Elder Dale G. Renlund testified that “all that is unfair about life can be made right through the Atonement of Jesus Christ” (“[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Liahona*, May 2021, 43); see also [Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-2-the-plan-of-salvation?lang=eng&id=p19#p19) \[2019\], 52; [[Isaiah 61.1|Isaiah 61:1–3]][[Isaiah 61.2|]][[Isaiah 61.3|]]; [[Revelation 21.4|Revelation 21:4]]).
 
 [^16]: See [[D&C 88.6|Doctrine and Covenants 88:6]]; [[D&C 122.5|122:5–8]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]].
 
 [^17]: See [[Alma 18.32|Alma 18:32]]; [[Alma 39.8|39:8]].
 
-[^18]: See [[2 Nephi 9.17|2 Nephi 9:17]]; [[D&C 1.1|Doctrine and Covenants 1:1–3]][[D&C 1.2|]][[D&C 1.3|]].
+[^18]: See [[2 Nephi 9.17|2 Nephi 9:17]]; [[D&C 1.1|Doctrine and Covenants 1:1–3]][[D&C 1.2|]][[D&C 1.3|]].
 
-[^19]: [[Matthew 18.6|Matthew 18:6]]. “The terrible, vicious practice of sexual abuse … is beyond understanding. … It is a violation of that which is sacred and divine. … It is reprehensible and worthy of the most severe condemnation. Shame on any man or woman who would sexually abuse a child. In doing so, the abuser not only does the most serious kind of injury. He or she also stands condemned before the Lord” (Gordon B. Hinckley, “[[1994 October - Save the Children.md|Save the Children]],” *Ensign*, Nov. 1994, 54).
+[^19]: [[Matthew 18.6|Matthew 18:6]]. “The terrible, vicious practice of sexual abuse … is beyond understanding. … It is a violation of that which is sacred and divine. … It is reprehensible and worthy of the most severe condemnation. Shame on any man or woman who would sexually abuse a child. In doing so, the abuser not only does the most serious kind of injury. He or she also stands condemned before the Lord” (Gordon B. Hinckley, “[[1994 October - Save the Children.md|Save the Children]],” *Ensign*, Nov. 1994, 54).
 
-[^20]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” 88.
+[^20]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” 88.
 
 [^21]: [[John 10.10|John 10:10]].
 
+[^22]: See [[Luke 4.16|Luke 4:16–19]][[Luke 4.17|]][[Luke 4.18|]][[Luke 4.19|]].
 
-#Abuse #Adversity #Atonement #Healing #Jesus_Christ
+#Abuse #Adversity #Atonement #Healing #JesusChrist

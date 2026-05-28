@@ -1,11 +1,10 @@
 # Prevail
 
-
 the waters *prevailed*, [[Genesis 7.18|Genesis 7:18]].
 
 power with God and with men, and hast *prevailed*, [[Genesis 32.28|Genesis 32:28]].
 
-when Moses held up his hand ... Israel *prevailed*, [[Exodus 17.11|Exodus 17:11]].
+when Moses held up his hand … Israel *prevailed*, [[Exodus 17.11|Exodus 17:11]].
 
 David *prevailed* over the Philistine with a sling, [[1 Samuel 17.50|1 Samuel 17:50]].
 
@@ -15,7 +14,7 @@ gates of hell shall not *prevail*, [[Matthew 16.18|Matthew 16:18]] ([[3 Nephi 11
 
 mightily grew the word of God and *prevailed*, [[Acts 19.20|Acts 19:20]].
 
-tribe of Juda ... hath *prevailed* to open the book, [[Revelation 5.5|Revelation 5:5]].
+tribe of Juda … hath *prevailed* to open the book, [[Revelation 5.5|Revelation 5:5]].
 
 I am their advocate with the Father, and nothing shall *prevail* against them, [[D&C 32.3|D&C 32:3]].
 

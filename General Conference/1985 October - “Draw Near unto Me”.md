@@ -6,7 +6,7 @@ By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/10/draw-near-unto-me?lang=eng)
 
-“And a little child shall lead them.” ([[2 Nephi 21.6|2 Ne. 21:6]].) Can you imagine the joy our Heavenly Father must feel when we come to him with the tender faith of a little child and accept the love he has for each of us? He wants us to come to him and has promised that he will be there to welcome us. In the Doctrine and Covenants he has said, “Draw near unto me and I will draw near unto you.” ([[D&C 88.63|D&C 88:63]].) This is our invitation from our Father in Heaven to share in the wondrous blessings he has in store for us. He then gives explicit directions on how we can find him: “*Seek* me diligently and ye shall find me; *ask,* and ye shall receive; *knock,* and it shall be opened unto you.” ([[D&C 88.63|D&C 88:63]]; italics added.) *Seek, Ask, Knock.*
+“And a little child shall lead them.” ([[2 Nephi 21.6|2 Ne. 21:6]].) Can you imagine the joy our Heavenly Father must feel when we come to him with the tender faith of a little child and accept the love he has for each of us? He wants us to come to him and has promised that he will be there to welcome us. In the Doctrine and Covenants he has said, “Draw near unto me and I will draw near unto you.” ([[D&C 88.63|D&C 88:63]].) This is our invitation from our Father in Heaven to share in the wondrous blessings he has in store for us. He then gives explicit directions on how we can find him: “*Seek* me diligently and ye shall find me; *ask,* and ye shall receive; *knock,* and it shall be opened unto you.” ([[D&C 88.63|D&C 88:63]]; italics added.) *Seek, Ask, Knock.*
 
 With this scriptural instruction, he has outlined the steps we should follow to draw near unto him. We *seek* him by studying the scriptures and listening to his prophets, through which we learn about him and his eternal plan for us. We *ask* through prayer and receive the guidance of his Spirit. And as we *knock,* the way is opened for us to gain eternal life and return to the Lord’s presence through obedience to his commandments.
 
@@ -41,3 +41,4 @@ In the sacred name of Jesus Christ, amen.
 
 
 
+#Spirituality

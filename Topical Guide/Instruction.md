@@ -1,6 +1,5 @@
 # Instruction
 
-
 *See also* [[Counsel.md|Counsel]]; [[Instruct.md|Instruct]]
 
 fools despise wisdom and *instruction*, [[Proverbs 1.7|Proverbs 1:7]].
@@ -21,13 +20,13 @@ Whoso loveth *instruction* loveth knowledge, [[Proverbs 12.1|Proverbs 12:1]].
 
 Poverty and shame shall be to him that refuseth *instruction*, [[Proverbs 13.18|Proverbs 13:18]].
 
-fool despiseth his father's *instruction*, [[Proverbs 15.5|Proverbs 15:5]].
+fool despiseth his father’s *instruction*, [[Proverbs 15.5|Proverbs 15:5]].
 
 He that refuseth *instruction* despiseth his own soul, [[Proverbs 15.32|Proverbs 15:32]].
 
 Apply thine heart unto *instruction*, [[Proverbs 23.12|Proverbs 23:12]].
 
-scripture is given ... for *instruction* in righteousness, [[2 Timothy 3.16|2 Timothy 3:16]] ([[D&C 33.16|D&C 33:16]]).
+scripture is given … for *instruction* in righteousness, [[2 Timothy 3.16|2 Timothy 3:16]] ([[D&C 33.16|D&C 33:16]]).
 
 built, according to the *instructions* of the Lord, [[Ether 2.16|Ether 2:16]].
 

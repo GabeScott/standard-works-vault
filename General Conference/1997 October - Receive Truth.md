@@ -60,9 +60,9 @@ This testimony, and so many others we have received from the four corners of the
 
 President Gordon B. Hinckley has said this about our seminary and institute programs:
 
-“Take advantage of every opportunity to enlarge your understanding of the gospel. Make the effort to participate in seminary and institute programs” (in Conference Report, Apr. 1982, 63; or *Ensign,* May 1982, 42).
+“Take advantage of every opportunity to enlarge your understanding of the gospel. Make the effort to participate in seminary and institute programs” (in Conference Report, Apr. 1982, [[1982 April - Tithing - An Opportunity to Prove Our Faithfulness.md|63]]; or *Ensign,* May 1982, 42).
 
-“Our great program of Church education moves forward. The work of training students through the seminary and institute program is constantly being enlarged. … We urge all for whom it is available to take advantage of it. We do not hesitate to promise that your knowledge of the gospel will be increased, your faith will be strengthened, and you will develop wonderful associations and friendships” (in Conference Report, Apr. 1984, 69; or *Ensign,* May 1984, 47).
+“Our great program of Church education moves forward. The work of training students through the seminary and institute program is constantly being enlarged. … We urge all for whom it is available to take advantage of it. We do not hesitate to promise that your knowledge of the gospel will be increased, your faith will be strengthened, and you will develop wonderful associations and friendships” (in Conference Report, Apr. 1984, [[1984 April - The Miracle Made Possible by Faith.md|69]]; or *Ensign,* May 1984, 47).
 
 I would like to add my testimony to that of our great prophet-leader. I know the power that comes from associations in the seminary and institute programs. It has enriched my life, and I know it will do the same for you. It will put a shield of protection around you to keep you free from the temptations and trials of the world. There is a great blessing in having a knowledge of the gospel. And I know of no better place for the young people of the Church to gain a special knowledge of sacred things than in the institute and seminary programs of the Church.
 
@@ -75,6 +75,4 @@ Plan on completing the full four years of seminary. You know the institute is av
 
 
 
-
-
-#Education #Institute #Jesus_Christ #Scriptures #Seminary
+#Education #Institute #JesusChrist #Scriptures #Seminary

@@ -1,7 +1,6 @@
 # Instruct
 
-
-*See also* [[Command.md|Command]]; [[Instruction.md|Instruction]]; [[Teaching, Teach, Taught.md|Teaching]]
+*See also* [[Command.md|Command]]; [[Instruction.md|Instruction]]; [[Teaching.md|Teaching]]
 
 hear his voice, that he might *instruct* thee, [[Deuteronomy 4.36|Deuteronomy 4:36]].
 

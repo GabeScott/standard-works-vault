@@ -1,6 +1,6 @@
 # Inspiring Music—Worthy Thoughts
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -34,7 +34,7 @@ Some have been critical when *our* leaders have exercised restraint on the kind 
 
 I would remind all such that it is not the privilege of those called as leaders to slide the Church about as though it were on casters, hoping to put it into the path that men or youth will be safe within it.
 
-President J. Reuben Clark said:
+President J. Reuben Clark said:
 
 “We may not, under our duty, provide or tolerate an unwholesome amusement on the theory that if we do not provide it the youth will go elsewhere to get it. We could hardly set up a roulette table in the Church amusement hall for gambling purposes, with the excuse that if we do not provide it the youth would go to a gambling hall to gamble. We can never really hold our youth thus. Our task is to help the home to plant better standards in the minds of the youth.”
 
@@ -76,7 +76,7 @@ Parents ought to foster good music in the home and cultivate a desire to have th
 
 The time for music lessons seems to come along when there are so many other expenses for the family with little children. But we encourage parents to include musical training in the lives of their children.
 
-Somehow Andrew and Olive Kimball did, and Spencer learned to play. Somehow Samuel and Louisa Lee managed to do it, and Harold learned to play. And now, as the leaders of the Church assemble for our sacred meetings in the upper room of the temple, we always sing a hymn. At the organ is President Spencer W. Kimball or President Harold B. Lee.
+Somehow Andrew and Olive Kimball did, and Spencer learned to play. Somehow Samuel and Louisa Lee managed to do it, and Harold learned to play. And now, as the leaders of the Church assemble for our sacred meetings in the upper room of the temple, we always sing a hymn. At the organ is President Spencer W. Kimball or President Harold B. Lee.
 
 How wonderful is the music instructor who will teach children and youth to play and will acquaint them with good music in their formative years, including the music of worship. To have such music as a part of one’s life is a great blessing.
 
@@ -155,8 +155,6 @@ From this he clung to faith, the one essential ingredient to courage.
 There are many references in the scriptures, both ancient and modern, that attest to the influence of righteous music. The Lord, Himself, was prepared for His greatest test through its influence, for the scripture records: “And when they had sung an hymn, they went out into the mount of Olives.” ([[Mark 14.26|Mark 14:26]].)
 
 I bear witness that God is our Father, that we are His children, that He loves us and has provided great and glorious things in this life. I know this, and I thank Him for the uplifting influence of good music in my life and in the lives of my children. There are many things we can do together as a family; inspired music we can feel together. In the name of Jesus Christ. Amen.
-
-
 
 
 

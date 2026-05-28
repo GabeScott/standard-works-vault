@@ -1,7 +1,6 @@
 # Holy, Holier, Holiest
 
-
-*See also* [[Clean.md|Clean]]; [[Hallow, Hallowed.md|Hallow]]; [[Holiness.md|Holiness]]; [[Purity, Pure.md|Purity]]
+*See also* [[Clean.md|Clean]]; [[Hallow.md|Hallow]]; [[Holiness.md|Holiness]]; [[Purity.md|Purity]]
 
 whereon thou standest is *holy* ground, [[Exodus 3.5|Exodus 3:5]] ([[Joshua 5.15|Joshua 5:15]]; [[Acts 7.33|Acts 7:33]]; [[D&C 115.7|D&C 115:7]]).
 
@@ -19,7 +18,7 @@ They shall be *holy* unto their God, [[Leviticus 21.6|Leviticus 21:6]].
 
 tenth shall be *holy* unto the Lord, [[Leviticus 27.32|Leviticus 27:32]].
 
-All the days of the vow ... he shall be *holy*, [[Numbers 6.5|Numbers 6:5]].
+All the days of the vow … he shall be *holy*, [[Numbers 6.5|Numbers 6:5]].
 
 Lord will shew who are his, and who is *holy*, [[Numbers 16.5|Numbers 16:5]].
 
@@ -49,7 +48,7 @@ devil taketh him up into the *holy* city, [[Matthew 4.5|Matthew 4:5]].
 
 Give not that which is *holy* unto the dogs, [[Matthew 7.6|Matthew 7:6]] ([[3 Nephi 14.6|3 Nephi 14:6]]).
 
-abomination of desolation ... in the *holy* place, [[Matthew 24.15|Matthew 24:15]].
+abomination of desolation … in the *holy* place, [[Matthew 24.15|Matthew 24:15]].
 
 come in his glory, and all the *holy* angels, [[Matthew 25.31|Matthew 25:31]].
 
@@ -61,7 +60,7 @@ that *holy* thing which shall be born, [[Luke 1.35|Luke 1:35]].
 
 spake by the mouth of his *holy* prophets, [[Luke 1.70|Luke 1:70]].
 
-Every male ... shall be called *holy* to the Lord, [[Luke 2.23|Luke 2:23]].
+Every male … shall be called *holy* to the Lord, [[Luke 2.23|Luke 2:23]].
 
 ye denied the *Holy* One and the Just, [[Acts 3.14|Acts 3:14]].
 
@@ -83,7 +82,7 @@ thou hast known the *holy* scriptures, [[2 Timothy 3.15|2 Timothy 3:15]].
 
 *holy* brethren, partakers of the heavenly, [[Hebrews 3.1|Hebrews 3:1]].
 
-as he ... is *holy*, so be ye *holy*, [[1 Peter 1.15|1 Peter 1:15]].
+as he … is *holy*, so be ye *holy*, [[1 Peter 1.15|1 Peter 1:15]].
 
 built up a spiritual house, an *holy* priesthood, [[1 Peter 2.5|1 Peter 2:5]].
 
@@ -113,7 +112,7 @@ many *holy* men in the land, [[Words of Mormon 1.17|Words of Mormon 1:17]].
 
 angel said unto me he is a *holy* man, [[Alma 10.9|Alma 10:9]].
 
-according to their faith ... and their *holy* works, [[Alma 12.30|Alma 12:30]].
+according to their faith … and their *holy* works, [[Alma 12.30|Alma 12:30]].
 
 ordained priests, after his *holy* order, [[Alma 13.1|Alma 13:1]].
 
@@ -121,7 +120,7 @@ according to the *holy* order of God, [[Alma 13.18|Alma 13:18]].
 
 sanctified in the flesh, that they were *holy*, [[3 Nephi 28.39|3 Nephi 28:39]].
 
-blood of Christ ... that ye become *holy*, [[Moroni 10.33|Moroni 10:33]].
+blood of Christ … that ye become *holy*, [[Moroni 10.33|Moroni 10:33]].
 
 call them to his *holy* work, [[D&C 20.11|D&C 20:11]].
 
@@ -131,13 +130,13 @@ reserved unto myself, *holy* men, [[D&C 49.8|D&C 49:8]].
 
 sacraments upon my *holy* day, [[D&C 59.9|D&C 59:9]].
 
-lifting up *holy* hands ... I am able to make you *holy*, [[D&C 60.7|D&C 60:7]].
+lifting up *holy* hands … I am able to make you *holy*, [[D&C 60.7|D&C 60:7]].
 
-inheritance ... in the *holy* city, [[D&C 63.49|D&C 63:49]].
+inheritance … in the *holy* city, [[D&C 63.49|D&C 63:49]].
 
 little children are *holy*, [[D&C 74.7|D&C 74:7]].
 
-build them ... upon *holy* places, [[D&C 101.64|D&C 101:64]].
+build them … upon *holy* places, [[D&C 101.64|D&C 101:64]].
 
 do not pollute this *holy* house, [[D&C 110.8|D&C 110:8]].
 
@@ -146,5 +145,3 @@ oracles in your most *holy* places, [[D&C 124.39|D&C 124:39]].
 consecrate that spot that it shall be made *holy*, [[D&C 124.44|D&C 124:44]].
 
 I shall prepare, an *Holy* City, [[Moses 7.62|Moses 7:62]].
-
-*See also* [[D&C 41.6|D&C 41:6]].

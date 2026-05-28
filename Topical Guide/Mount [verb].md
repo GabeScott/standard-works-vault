@@ -1,6 +1,5 @@
 # Mount [verb]
 
-
 *See also* [[Ascend.md|Ascend]]
 
 they shall *mount* up with wings as eagles, [[Isaiah 40.31|Isaiah 40:31]].

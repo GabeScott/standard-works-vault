@@ -1,6 +1,5 @@
 # Terrify
 
-
 *See also* [[Afraid.md|Afraid]]; [[Terror.md|Terror]]
 
 neither be ye *terrified* because of them, [[Deuteronomy 20.3|Deuteronomy 20:3]].

@@ -44,7 +44,7 @@ The knowledge that Heavenly Father loves us and that we are His children gives u
 
 “Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God: therefore the world knoweth us not, because it knew him not.
 
-“Beloved, now are we the sons of God” ([[1 John 3.1|1 John 3:1–2]][[1 John 3.2|]]).
+“Beloved, now are we the sons of God” ([[1 John 3.1|1 John 3:1–2]][[1 John 3.2|]]).
 
 You are important to a loving Father in Heaven! Young men, pray always! Your prayers both morning and night will help you come to know that you are a son of God.
 
@@ -56,9 +56,9 @@ As part of Heavenly Father’s plan, you are sent to an earthly home and to a fa
 
 Third, do you know who you are as a member of The Church of Jesus Christ of Latter-day Saints?
 
-You have been baptized and have received the Holy Ghost. You are a member of the restored Church of Jesus Christ. It is His Church, and He has given us a prophet of God to teach, lead, and guide us and to direct His work here on earth. I testify that President Thomas S. Monson is our prophet in these “perilous times” ([[2 Timothy 3.1|2 Timothy 3:1]]). Listen to him. He and other modern-day prophets will teach you who you are and how to become like the Savior.
+You have been baptized and have received the Holy Ghost. You are a member of the restored Church of Jesus Christ. It is His Church, and He has given us a prophet of God to teach, lead, and guide us and to direct His work here on earth. I testify that President Thomas S. Monson is our prophet in these “perilous times” ([[2 Timothy 3.1|2 Timothy 3:1]]). Listen to him. He and other modern-day prophets will teach you who you are and how to become like the Savior.
 
-You are a member of The Church of Jesus Christ of Latter-day Saints and have been ordained to hold the priesthood of God. President Monson has said, “We have been entrusted to bear the priesthood and to act in the name of God. We are the recipients of a sacred trust. Much is expected of us” (in Conference Report, Oct. 2007, 63; or *Ensign,* Nov. 2007, 59).
+You are a member of The Church of Jesus Christ of Latter-day Saints and have been ordained to hold the priesthood of God. President Monson has said, “We have been entrusted to bear the priesthood and to act in the name of God. We are the recipients of a sacred trust. Much is expected of us” (in Conference Report, Oct. 2007, [[2007 October - A Royal Priesthood.md|63]]; or *Ensign,* Nov. 2007, 59).
 
 You belong to a priesthood quorum of young men, where you can feel the brotherhood and friendship of other priesthood holders. The quorum is a protection for you against worldly influences. You are able to serve one another and participate in the ordinances of the priesthood. In your quorums you are also taught the principles of the gospel of Jesus Christ, which help you understand who you are. Young men, honor the priesthood of God.
 
@@ -69,6 +69,4 @@ May we all be able to know and understand who we really are. May the Spirit we f
 
 
 
-
-
-#Covenants #Divine_Nature #Priesthood
+#Covenants #DivineNature #Priesthood

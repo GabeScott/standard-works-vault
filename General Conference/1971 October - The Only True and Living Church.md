@@ -1,6 +1,6 @@
 # The Only True and Living Church
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -32,9 +32,9 @@ The position that The Church of Jesus Christ of Latter-day Saints is the only tr
 
 Now to those who think us uncharitable, we say that it was not devised by us; it was declared by Him, for he gave commandments to the early brethren, and I quote:
 
-“… to lay the foundation of this church, and to bring it forth out of obscurity and out of darkness, the only true and living church upon the face of the whole earth, with which I, the Lord, am well pleased, speaking unto the church collectively and not individually.” ([[D&C 1.30|D&C 1:30]].)
+“… to lay the foundation of this church, and to bring it forth out of obscurity and out of darkness, the only true and living church upon the face of the whole earth, with which I, the Lord, am well pleased, speaking unto the church collectively and not individually.” ([[D&C 1.30|D&C 1:30]].)
 
-Now this is not to say that the churches, all of them, are without some truth. They have some truth—some of them very much of it. They have a form of godliness. Often the clergy and adherents are not without dedication, and many of them practice remarkably well the virtues of Christianity. They are, nonetheless, incomplete. By his declaration, “… they teach for doctrines the commandments of men, having a form of godliness, but they deny the power thereof.” ([[Joseph Smith History 1.19|JS—H 1:19]].)
+Now this is not to say that the churches, all of them, are without some truth. They have some truth—some of them very much of it. They have a form of godliness. Often the clergy and adherents are not without dedication, and many of them practice remarkably well the virtues of Christianity. They are, nonetheless, incomplete. By his declaration, “… they teach for doctrines the commandments of men, having a form of godliness, but they deny the power thereof.” ([[Joseph Smith History 1.19|JS—H 1:19]].)
 
 The gospel might be likened to the keyboard of a piano—a full keyboard with a selection of keys on which one who is trained can play a variety without limits; a ballad to express love, a march to rally, a melody to soothe, and a hymn to inspire; an endless variety to suit every mood and satisfy every need.
 
@@ -50,7 +50,7 @@ We would never hold that baptism is not essential, absolutely essential, for it 
 
 Now we do not say they are wrong so much as we say they are incomplete. The fullness of the gospel has been restored. The power and the authority to act for Him is present with us. The power and the authority of the priesthood rests upon this church. The Lord revealed:
 
-“… this greater priesthood administereth the gospel and holdeth the key of the mysteries of the kingdom, even the key of the knowledge of God.
+“… this greater priesthood administereth the gospel and holdeth the key of the mysteries of the kingdom, even the key of the knowledge of God.
 
 “Therefore, in the ordinances thereof, the power of godliness is manifest.
 
@@ -68,7 +68,7 @@ They want to hear that key played over and over again. It will give them little 
 
 Now that danger is not limited to investigators alone. Some members of the Church who should know better pick out a hobby key or two and tap them incessantly, to the irritation of those around them. They can dull their own spiritual sensitivities. They lose track that there is a fullness of the gospel and become as individuals, like many churches have become. They may reject the fullness in preference to a favorite note. This becomes exaggerated and distorted, leading them away into apostasy.
 
-I counseled, think about this matter. More than that, I would urge you to pray about this matter. Thinking alone can be the basis for man’s wisdom. There is another more perfect manner of communication through the spirit: “… for the Spirit searcheth all things, yea, the deep things of God.” ([[1 Corinthians 2.10|1 Cor. 2:10]].)
+I counseled, think about this matter. More than that, I would urge you to pray about this matter. Thinking alone can be the basis for man’s wisdom. There is another more perfect manner of communication through the spirit: “… for the Spirit searcheth all things, yea, the deep things of God.” ([[1 Corinthians 2.10|1 Cor. 2:10]].)
 
 Paul, speaking to the Corinthians, said: “Which things also we speak, not in the words which man’s wisdom teacheth, but which the Holy Ghost teacheth; comparing spiritual things with spiritual.
 
@@ -83,6 +83,4 @@ I bear witness that he is a prophet of God. I have a witness that Jesus is the C
 
 [^1]: “To an Atheist,” in *The Search* (Trilogy Arts, 1970), p. 34.
 
-
-
-#Church_Organization
+#ChurchOrganization

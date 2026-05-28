@@ -1,6 +1,6 @@
 # The Value of People
 
-By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
+By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -55,6 +55,4 @@ May we remember together to “make a joyful noise unto the Lord, all ye lands.
 
 
 
-
-
-#Agency #Commandments #Individual_Worth #Sacrifice
+#Agency #Commandments #IndividualWorth #Sacrifice

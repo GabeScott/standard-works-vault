@@ -4,6 +4,3 @@
 
 [JST 1 John 3:9](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-jn/3?lang=eng)
 
-
-
-

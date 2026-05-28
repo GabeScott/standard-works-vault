@@ -1,6 +1,6 @@
 # Priesthood Power
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -40,9 +40,9 @@ Now, I have thought a lot lately about you young men who are of an age to marry 
 
 This is not a new situation. Much has been said concerning this matter by past Presidents of the Church. I share with you just one or two examples of their counsel.
 
-Said President Harold B. Lee, “We are not doing our duty as holders of the priesthood when we go beyond the marriageable age and withhold ourselves from an honorable marriage to these lovely women.”[^6]
+Said President Harold B. Lee, “We are not doing our duty as holders of the priesthood when we go beyond the marriageable age and withhold ourselves from an honorable marriage to these lovely women.”[^6]
 
-President Gordon B. Hinckley said this: “My heart reaches out to … our single sisters, who long for marriage and cannot seem to find it. … I have far less sympathy for the young men, who under the customs of our society have the prerogative to take the initiative in these matters but in so many cases fail to do so.”[^7]
+President Gordon B. Hinckley said this: “My heart reaches out to … our single sisters, who long for marriage and cannot seem to find it. … I have far less sympathy for the young men, who under the customs of our society have the prerogative to take the initiative in these matters but in so many cases fail to do so.”[^7]
 
 I realize there are many reasons why you may be hesitating to take that step of getting married. If you are concerned about providing financially for a wife and family, may I assure you that there is no shame in a couple having to scrimp and save. It is generally during these challenging times that you will grow closer together as you learn to sacrifice and to make difficult decisions. Perhaps you are afraid of making the wrong choice. To this I say that you need to exercise faith. Find someone with whom you can be compatible. Realize that you will not be able to anticipate every challenge which may arise, but be assured that almost anything can be worked out if you are resourceful and if you are committed to making your marriage work.
 
@@ -58,9 +58,9 @@ The vast majority of requests for cancellations of sealings come from women who 
 
 Choose a companion carefully and prayerfully; and when you are married, be fiercely loyal one to another. Priceless advice comes from a small framed plaque I once saw in the home of an uncle and aunt. It read, “Choose your love; love your choice.” There is great wisdom in those few words. Commitment in marriage is absolutely essential.
 
-Your wife is your equal. In marriage neither partner is superior nor inferior to the other. You walk side by side as a son and a daughter of God. She is not to be demeaned or insulted but should be respected and loved. Said President Gordon B. Hinckley: “Any man in this Church who … exercises unrighteous dominion over \[his wife\] is unworthy to hold the priesthood. Though he may have been ordained, the heavens will withdraw, the Spirit of the Lord will be grieved, and it will be amen to the authority of the priesthood of that man.”[^8]
+Your wife is your equal. In marriage neither partner is superior nor inferior to the other. You walk side by side as a son and a daughter of God. She is not to be demeaned or insulted but should be respected and loved. Said President Gordon B. Hinckley: “Any man in this Church who … exercises unrighteous dominion over \[his wife\] is unworthy to hold the priesthood. Though he may have been ordained, the heavens will withdraw, the Spirit of the Lord will be grieved, and it will be amen to the authority of the priesthood of that man.”[^8]
 
-President Howard W. Hunter said this about marriage: “Being happily and successfully married is generally not so much a matter of marrying the right person as it *is being the right person.”* I like that. “The conscious effort to do one’s part fully is the greatest element contributing to success.”[^9]
+President Howard W. Hunter said this about marriage: “Being happily and successfully married is generally not so much a matter of marrying the right person as it *is being the right person.”* I like that. “The conscious effort to do one’s part fully is the greatest element contributing to success.”[^9]
 
 Many years ago in the ward over which I presided as the bishop, there lived a couple who often had very serious, heated disagreements. I mean real disagreements. Each of the two was certain of his or her position. Neither one would yield to the other. When they weren’t arguing, they maintained what I would call an uneasy truce.
 
@@ -74,7 +74,7 @@ In unison they asked, “Whose ceremony?”
 
 I responded, “I don’t know. It will be for whoever is getting married that morning.”
 
-On the following Wednesday at the appointed hour, we met at the Salt Lake Temple. The three of us went into one of the beautiful sealing rooms, not knowing a soul in the room except Elder ElRay L. Christiansen, then an Assistant to the Quorum of the Twelve, a General Authority position which existed at that time. Elder Christiansen was scheduled to perform a sealing ceremony for a bride and groom in that very room that morning. I am confident the bride and her family thought, “These must be friends of the groom” and that the groom’s family thought, “These must be friends of the bride.” My couple were seated on a little bench with about a full two feet (0.6 m) of space between them.
+On the following Wednesday at the appointed hour, we met at the Salt Lake Temple. The three of us went into one of the beautiful sealing rooms, not knowing a soul in the room except Elder ElRay L. Christiansen, then an Assistant to the Quorum of the Twelve, a General Authority position which existed at that time. Elder Christiansen was scheduled to perform a sealing ceremony for a bride and groom in that very room that morning. I am confident the bride and her family thought, “These must be friends of the groom” and that the groom’s family thought, “These must be friends of the bride.” My couple were seated on a little bench with about a full two feet (0.6 m) of space between them.
 
 Elder Christiansen began by providing counsel to the couple who were being married, and he did so in a beautiful fashion. He mentioned how a husband should love his wife, how he should treat her with respect and courtesy, honoring her as the heart of the home. Then he talked to the bride about how she should honor her husband as the head of the home and be of support to him in every way.
 
@@ -105,16 +105,14 @@ My beloved brethren, may righteousness guide our every step as we journey throug
 
 [^5]: See [[John 17.14|John 17:14]]; [[D&C 49.5|Doctrine and Covenants 49:5]].
 
-[^6]: Harold B. Lee, in Conference Report, Oct. 1973, 119–20; or *Ensign,* Jan. 1974, 100.
+[^6]: Harold B. Lee, in Conference Report, Oct. 1973, [[1973 October - President Harold B. Lee’s General Priesthood Address.md|119–20]]; or *Ensign,* Jan. 1974, 100.
 
-[^7]: Gordon B. Hinckley, in Conference Report, Apr. 1991, 94; or *Ensign,* May 1991, 71.
+[^7]: Gordon B. Hinckley, in Conference Report, Apr. 1991, [[1991 April - What God Hath Joined Together.md|94]]; or *Ensign,* May 1991, 71.
 
-[^8]: Gordon B. Hinckley, in Conference Report, Apr. 2002, 64; or *Ensign,* May 2002, 54.
+[^8]: Gordon B. Hinckley, in Conference Report, Apr. 2002, [[2002 April - Personal Worthiness to Exercise the Priesthood.md|64]]; or *Ensign,* May 2002, 54.
 
-[^9]: *The Teachings of Howard W. Hunter,* ed. Clyde J. Williams (1997), 130.
+[^9]: *The Teachings of Howard W. Hunter,* ed. Clyde J. Williams (1997), 130.
 
-[^10]: See Gordon B. Hinckley, in Conference Report, Apr. 2002, 62–66; or *Ensign,* May 2002, 52–59.
-
-
+[^10]: See Gordon B. Hinckley, in Conference Report, Apr. 2002, [[2002 April - Personal Worthiness to Exercise the Priesthood.md|62–66]]; or *Ensign,* May 2002, 52–59.
 
 #Marriage #Priesthood #Testimony #Worthiness

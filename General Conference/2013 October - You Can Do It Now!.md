@@ -1,6 +1,6 @@
 # You Can Do It Now!
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -91,15 +91,15 @@ My dear friends and brethren, no matter how many times you have slipped or falle
 
 
 
-[^1]: F. Scott Fitzgerald, *The Great Gatsby* (1925), 180.
+[^1]: F. Scott Fitzgerald, *The Great Gatsby* (1925), 180.
 
 [^2]: “The Voiceless,” in *The Complete Poetical Works of Oliver Wendell Holmes* (1908), 99.
 
-[^3]: [[2 Corinthians 7.10|2 Corinthians 7:10]]; emphasis added.
+[^3]: [[2 Corinthians 7.10|2 Corinthians 7:10]]; emphasis added.
 
 [^4]: See [[Acts 3.19|Acts 3:19]].
 
-[^5]: See [[Ezekiel 36.26|Ezekiel 36:26]]; [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 3.19|Mosiah 3:19]].
+[^5]: See [[Ezekiel 36.26|Ezekiel 36:26]]; [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 3.19|Mosiah 3:19]].
 
 [^6]: See [[Mosiah 5.2|Mosiah 5:2]].
 
@@ -107,5 +107,6 @@ My dear friends and brethren, no matter how many times you have slipped or falle
 
 [^8]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
+[^9]: [[Colossians 3.23|Colossians 3:23]].
 
 #Adversity #Goals #Repentance

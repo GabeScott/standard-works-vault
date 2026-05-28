@@ -5,5 +5,5 @@
 [Joseph Smith History 1:58](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.58?lang=eng#p58)
 
 
-[^a]: TG [[Hate]]; [[Persecution, Persecute]].
-[^b]: TG [[Industry, Industrious]].
+[^a]: [[Hate|TG Hate]]; [[Persecution, Persecute|Persecution]].  
+[^b]: [[Industry, Industrious|TG Industry]].  

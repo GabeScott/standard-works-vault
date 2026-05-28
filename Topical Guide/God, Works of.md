@@ -1,7 +1,6 @@
 # God, Works of
 
-
-*heaven* ... is the Lord's thy God, the *earth* also, [[Deuteronomy 10.14|Deuteronomy 10:14]].
+*heaven* … is the Lord’s thy God, the *earth* also, [[Deuteronomy 10.14|Deuteronomy 10:14]].
 
 consider the wondrous *works of God*, [[Job 37.14|Job 37:14]].
 
@@ -21,21 +20,21 @@ My Father *worketh* hitherto, and I *work*, [[John 5.17|John 5:17]].
 
 destroy not the *work of God*, [[Romans 14.20|Romans 14:20]].
 
-great and a marvelous *work* ... a *work* which shall be everlasting, [[1 Nephi 14.7|1 Nephi 14:7]].
+great and a marvelous *work* … a *work* which shall be everlasting, [[1 Nephi 14.7|1 Nephi 14:7]].
 
-Father *work* a *work* ... a great and a marvelous *work*, [[3 Nephi 21.9|3 Nephi 21:9]].
+Father *work* a *work* … a great and a marvelous *work*, [[3 Nephi 21.9|3 Nephi 21:9]].
 
-The *works ... of God* cannot be frustrated, [[D&C 3.1|D&C 3:1]].
+The *works … of God* cannot be frustrated, [[D&C 3.1|D&C 3:1]].
 
 my *work* shall go forth, [[D&C 3.16|D&C 3:16]].
 
-doubt not, for it is the gift of God ... the *work of God*, [[D&C 8.8|D&C 8:8]].
+doubt not, for it is the gift of God … the *work of God*, [[D&C 8.8|D&C 8:8]].
 
 I will not suffer that they shall destroy my *work*, [[D&C 10.43|D&C 10:43]].
 
 assist to bring forth my *work*, [[D&C 11.9|D&C 11:9]].
 
-bring about my righteous purposes ... in this *work*, [[D&C 17.4|D&C 17:4]].
+bring about my righteous purposes … in this *work*, [[D&C 17.4|D&C 17:4]].
 
 great and marvelous are the *works* of the Lord, [[D&C 76.114|D&C 76:114]].
 
@@ -45,8 +44,6 @@ no man can behold all my *works*, except he behold all, [[Moses 1.5|Moses 1:5]].
 
 *worlds* without number have I created, [[Moses 1.33|Moses 1:33]].
 
-this is my *work* and my glory ... immortality and eternal life, [[Moses 1.39|Moses 1:39]].
+this is my *work* and my glory … immortality and eternal life, [[Moses 1.39|Moses 1:39]].
 
 in the beginning I *created* the heaven, and the earth, [[Moses 2.1|Moses 2:1]].
-
-*See also* [[Psalms 50.12|Psalms 50:12]]; [[1 Corinthians 10.26|1 Corinthians 10:26]]; [[Alma 5.50|Alma 5:50]]; [[D&C 4.3|D&C 4:3]]; [[D&C 67.2|D&C 67:2]]; [[D&C 84.66|D&C 84:66]].

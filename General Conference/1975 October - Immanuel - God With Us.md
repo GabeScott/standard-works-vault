@@ -1,12 +1,12 @@
 # Immanuel: God With Us
 
-By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
+By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/immanuel-god-with-us?lang=eng)
 
-As in all ages of history, youth today are faced with making many important and far-reaching decisions. President Spencer W. Kimball has announced that the Church has need of more missionaries. He declared that the time has come now when we should “lengthen our stride, … change our sights and raise our goals.”
+As in all ages of history, youth today are faced with making many important and far-reaching decisions. President Spencer W. Kimball has announced that the Church has need of more missionaries. He declared that the time has come now when we should “lengthen our stride, … change our sights and raise our goals.”
 
 As President Kimball issued this challenge in April 1974, he said, “Today we have 18,600 missionaries.” (The members accepted this challenge and today we have in excess of 21,000.) He then said: “We can send more. Many more! … When I ask for more missionaries, I am not asking for more testimony-barren or unworthy missionaries. … the young people will understand that it is a great privilege to go on a mission and that they must be physically well, mentally well, spiritually well, and that ‘the Lord cannot look upon sin with the least degree of allowance.’”
 
@@ -24,7 +24,7 @@ I shall always be grateful for being born of goodly parents who taught their chi
 
 Now it’s a natural thing for prospective missionaries to have a preference for a certain area in which to labor. That was true in my case. Three of my grandparents were born in England. Here they heard the gospel. Here they were converted, then joined the Church. Later my father filled a mission there.
 
-So later when my call came from President Heber J. Grant, it was to the eastern states and not to England. Momentarily I was disappointed. However, I had been taught that missionaries are called by inspiration to labor where the Lord wants them. The words of a favorite hymn came to mind: “I’ll go where you want me to go, dear Lord.” (See “It May Not Be on a Mountain Height,” *Hymns,* no. 75.) I was reconciled and satisfied with my mission call.
+So later when my call came from President Heber J. Grant, it was to the eastern states and not to England. Momentarily I was disappointed. However, I had been taught that missionaries are called by inspiration to labor where the Lord wants them. The words of a favorite hymn came to mind: “I’ll go where you want me to go, dear Lord.” (See “It May Not Be on a Mountain Height,” *Hymns,* no. 75.) I was reconciled and satisfied with my mission call.
 
 What a tremendous blessing my call to the Eastern States Mission has been in my life. The mission was then presided over by one of the General Authorities of the Church, Elder B. H. Roberts. At that time he was senior president of the First Council of the Seventy and a most effective missionary. The Lord blessed me with the privilege of a close association with this great leader and missionary. I gained a deep respect, admiration, and love for him.
 
@@ -53,6 +53,4 @@ It is my prayer that every young man may prepare himself to accept a mission cal
 
 
 
-
-
-#Missionary_Work #Spirituality
+#MissionaryWork #Spirituality

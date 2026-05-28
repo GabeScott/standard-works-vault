@@ -1,6 +1,6 @@
 # Why Not Now?
 
-By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
+By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -79,6 +79,4 @@ Meanwhile, may we be different in order to make a difference in the world. And m
 
 
 
-
-
-#Repentance #Time_Management
+#Repentance #TimeManagement

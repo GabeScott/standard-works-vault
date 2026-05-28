@@ -40,7 +40,7 @@ Enoch declared:
 
 “And were it possible that man could number the … millions of earths like this, it would not be a beginning to the number of thy creations; and thy curtains are stretched out still; and yet … thou art just; thou art merciful and kind forever;
 
-“… And naught but peace, justice, and truth is the habitation of thy throne; and mercy shall go before thy face and have no end; how is it thou canst weep?
+“… And naught but peace, justice, and truth is the habitation of thy throne; and mercy shall go before thy face and have no end; how is it thou canst weep?
 
 “The Lord said unto Enoch: Behold these thy brethren; they are the workmanship of mine own hands, and I gave unto them their knowledge, … and … gave I unto man his agency;
 
@@ -48,9 +48,9 @@ Enoch declared:
 
 Well did God the Father say unto Moses:
 
-“Worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten. …
+“Worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten. …
 
-“… There are many worlds … , and innumerable are they unto man; but all things are numbered unto me, for they are mine and I know them.”[^5]
+“… There are many worlds … , and innumerable are they unto man; but all things are numbered unto me, for they are mine and I know them.”[^5]
 
 A knowledge of truth is of little value unless we apply it in making correct decisions. Consider for a moment a man, heavily overweight, approaching a bakery display. In his mind are these thoughts: The doctor told you not to eat any more of that. It’s not good for you. It just gives you momentary gratification of appetite. You’ll feel uncomfortable the rest of the day after it. You’ve decided not to have any more. But then he hears himself say, “I’ll have two of those almond twists and a couple of those chocolate doughnuts. One more time won’t hurt. I’ll do it just once more, and this will be the last time.”
 
@@ -82,7 +82,5 @@ I love our Father in Heaven beyond my capacity to express. In all humility, I so
 [^5]: [[Moses 1.33|Moses 1:33, 35]][[Moses 1.35|]].
 
 [^6]: See [[Alma 42.31|Alma 42:31]].
-
-
 
 #Character #Spirituality #Truth

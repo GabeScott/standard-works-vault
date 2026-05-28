@@ -1,6 +1,6 @@
 # That the Scriptures Might Be Fulfilled
 
-By Elder S. Dilworth Young - *Of the First Council of the Seventy*
+By Elder S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -16,17 +16,17 @@ He would make the temple a house of prayer, driving the moneychangers from it in
 
 In spite of the Roman custom of breaking the bones of those they crucified, the prophets proclaimed that not one of his bones would be broken. (See [[Exodus 12.46|Ex. 12:46]], [[Psalms 34.20|Ps. 34:20]], and [[John 19.33|John 19:33–36]][[John 19.34|]][[John 19.35|]][[John 19.36|]].) He was to make his grave with the rich. (See [[Isaiah 53.9|Isa. 53:9]].) And after all this he would be called by Isaiah, “Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].)
 
-As the two apostles wrote about the Lord, they pointed out that the Savior of mankind had fulfilled to the minutest detail those events foretold by the prophets. Luke summarized the Savior’s life in these words, “… that all things which are written may be fulfilled.” ([[Luke 21.22|Luke 21:22]].)
+As the two apostles wrote about the Lord, they pointed out that the Savior of mankind had fulfilled to the minutest detail those events foretold by the prophets. Luke summarized the Savior’s life in these words, “… that all things which are written may be fulfilled.” ([[Luke 21.22|Luke 21:22]].)
 
 While not in so much detail, other great events of importance to the progress of the Lord’s work have been prophesied. Isaiah outlined the fact that some of his people would be brought down and that they should speak out of the dust and that this voice would be as a familiar spirit, speaking out of the ground. (See [[Isaiah 29.4|Isa. 29:4]].) Ezekiel spoke of the sticks of Judah and Ephraim which, having been written on, should become one in the hand of the Lord. (See [[Ezekiel 37.16|Ezek. 37:16–17]][[Ezekiel 37.17|]].)
 
-The Lord said unto Enoch, as though to confirm what would be said by Isaiah, that “righteousness will I send down out of heaven; and truth will I send forth out of the earth, to bear testimony of mine Only Begotten; his resurrection from the dead; yea, and also the resurrection of all men; and righteousness and truth will I cause to sweep the earth as with a flood. …” ([[Moses 7.62|Moses 7:62]].)
+The Lord said unto Enoch, as though to confirm what would be said by Isaiah, that “righteousness will I send down out of heaven; and truth will I send forth out of the earth, to bear testimony of mine Only Begotten; his resurrection from the dead; yea, and also the resurrection of all men; and righteousness and truth will I cause to sweep the earth as with a flood. …” ([[Moses 7.62|Moses 7:62]].)
 
-Lehi quotes Joseph, the son of Jacob, as speaking of a great prophet of the latter days who would be his descendant and be named after Joseph himself, and that the father of this great prophet would be named Joseph also. (See [[2 Nephi 3.15|2 Ne. 3:15]].)
+Lehi quotes Joseph, the son of Jacob, as speaking of a great prophet of the latter days who would be his descendant and be named after Joseph himself, and that the father of this great prophet would be named Joseph also. (See [[2 Nephi 3.15|2 Ne. 3:15]].)
 
 The only event that has welded all of these separate prophecies into a coherent whole has been the appearance of Moroni, an ancient Nephite prophet, to Joseph Smith, and his subsequent guidance of the young prophet as he literally brought forth out of the ground the Book of Mormon, which has indeed a familiar spirit, as one speaking out of the dust for a remnant of Israel long since dead. The later joining of this Book of Mormon, the history of the dealings of Christ with a people who were, as Ezekiel said, of Ephraim, with the account of Christ’s dealings with Judah, the Bible, is a literal fulfillment of the prophecies I have just mentioned by Isaiah, Ezekiel, and Enoch.
 
-While the choosing of Joseph Smith, a son of Joseph Smith, is a fulfillment of the prophecy of Joseph, son of Jacob, recorded in 2 Nephi, the connection of these two histories with the Prophet Joseph Smith is miraculous. No man could have brought it about nor have foreseen the events by which it was restored to the earth. Nothing like it has ever been done before; and yet after its accomplishment, we know that it could have taken place in no other way.
+While the choosing of Joseph Smith, a son of Joseph Smith, is a fulfillment of the prophecy of Joseph, son of Jacob, recorded in 2 Nephi, the connection of these two histories with the Prophet Joseph Smith is miraculous. No man could have brought it about nor have foreseen the events by which it was restored to the earth. Nothing like it has ever been done before; and yet after its accomplishment, we know that it could have taken place in no other way.
 
 We can take comfort that the great events of the future have been prophesied in considerable detail, and that when they are fulfilled, the events of that fulfillment will occur as naturally and as surely as have those of the distant past. There will be scoffers and disbelievers in that day also, who will, up until the very moment of the appearance of the Son of Man, declare that the believers are fools for believing.
 
@@ -36,15 +36,15 @@ The prophecy of Joseph Smith that the Saints would be driven to the Rocky Mounta
 
 There have been prophecies about men in these latter days of equal import. Given by pure inspiration to loyal and pure people, they are as prophetic as if they were made by the major prophets.
 
-Eliza R. Snow, seeing the small son of Rachel Ivins Grant playing on the floor in the home of William C. Staines, prophesied in tongues that he would grow up to become an apostle. Zina D. Young interpreted the prophecy. That small boy was President Heber J. Grant. (See *Conference Report,* April 1927, pp. 17–18.)
+Eliza R. Snow, seeing the small son of Rachel Ivins Grant playing on the floor in the home of William C. Staines, prophesied in tongues that he would grow up to become an apostle. Zina D. Young interpreted the prophecy. That small boy was President Heber J. Grant. (See *Conference Report,* April 1927, pp. 17–18.)
 
-In 1887 Patriarch John Smith said to a young man, age 13, “For the eye of the Lord is upon thee—the Lord has a work for thee to do, in which thou shalt see much of the world. It shall be thy lot to sit in council with thy brethren, and preside among the people, and exhort the saints to faithfulness.” (Llewelyn R. McKay, *Highlights in the Life of President David O. McKay,* Deseret Book Co., 1966, p. 38.) A confirmation of this took place in far-off Scotland, in a meeting high in spiritual manifestation, when a Latter-day Saint of Scotch ancestry spoke. Those who were there heard President James L. McMurrin address one of those present and prophesy that he would sit in the highest councils of the Church. That *one* sat in the highest councils of the Church in the person of President David O. McKay. (See *Highlights in the Life of President David O. McKay,* pp. 37–38.)
+In 1887 Patriarch John Smith said to a young man, age 13, “For the eye of the Lord is upon thee—the Lord has a work for thee to do, in which thou shalt see much of the world. It shall be thy lot to sit in council with thy brethren, and preside among the people, and exhort the saints to faithfulness.” (Llewelyn R. McKay, *Highlights in the Life of President David O. McKay,* Deseret Book Co., 1966, p. 38.) A confirmation of this took place in far-off Scotland, in a meeting high in spiritual manifestation, when a Latter-day Saint of Scotch ancestry spoke. Those who were there heard President James L. McMurrin address one of those present and prophesy that he would sit in the highest councils of the Church. That *one* sat in the highest councils of the Church in the person of President David O. McKay. (See *Highlights in the Life of President David O. McKay,* pp. 37–38.)
 
-About 65 years ago, Sister Mary Kimball, wife of Crozier Kimball, watched a small boy climb into a buggy driven by his father, Andrew. As they drove away, she turned to her husband and was inspired to say, “That boy will some day be the prophet of the Lord.” That boy sits here today, presiding over this conference as the President of the Church, President Spencer W. Kimball.
+About 65 years ago, Sister Mary Kimball, wife of Crozier Kimball, watched a small boy climb into a buggy driven by his father, Andrew. As they drove away, she turned to her husband and was inspired to say, “That boy will some day be the prophet of the Lord.” That boy sits here today, presiding over this conference as the President of the Church, President Spencer W. Kimball.
 
 Constantly in the lives of the members, prophetic statements have been made. Is a person who is ill given a blessing? Inspired promises are often made by the elder pronouncing it. Is a baby given a name? The blessing following may be and is often prophetic. Does a father give what we call a “father’s blessing”? Then in his patriarchal position, he may be as prophetic as was Jacob in blessing his twelve sons. Promises made when inspired of the Holy Ghost will be fulfilled if the persons to whom they are given keep in harmony with divine principles.
 
-There have been many occasions when people have had direct revelation to themselves as to important events to take place in their own lives about which they had no previous warning. Many men and women in this audience can testify that they knew beforehand of the call to be made upon them and the requirements of the call. As with Enos, “the voice of the Lord came into \[their\] mind\[s\]. …” ([[Enos 1.10|Enos 1:10]].) In each case, the words were sure and clear to the recipient.
+There have been many occasions when people have had direct revelation to themselves as to important events to take place in their own lives about which they had no previous warning. Many men and women in this audience can testify that they knew beforehand of the call to be made upon them and the requirements of the call. As with Enos, “the voice of the Lord came into \[their\] mind\[s\]. …” ([[Enos 1.10|Enos 1:10]].) In each case, the words were sure and clear to the recipient.
 
 And finally unto many of the faithful comes the inspiration as to callings and positions to be given to people who are important to the Church. Men and women have known by the power of the Holy Ghost who would fill an apostolic vacancy or one of stake or ward importance. They do not voice these inspirations, but have the deep satisfaction of recognizing the source and the joy of having the Lord share with them, in advance, the foretold action.
 
@@ -52,7 +52,7 @@ All of these variations of the gift of prophecy come to those whose lives merit 
 
 All of these prophecies, great and small, bear witness that the Lord has known the end from the beginning and has warned and forewarned those who would listen of the solemn and sure march of the work of Christ to its certain and ultimate conclusion. We who sit here today are a part of that great movement. If we play our part well and sustain the Lord Jesus Christ and his living prophet, all will be well with us.
 
-I desire to include a prayer for President Spencer W. Kimball as I close these remarks.
+I desire to include a prayer for President Spencer W. Kimball as I close these remarks.
 
 >Thy servant, Lord,
 >Has answered to thy call
@@ -76,6 +76,4 @@ In the name of Jesus Christ. Amen.
 
 
 
-
-
-#Jesus_Christ #Prophecy
+#JesusChrist #Prophecy

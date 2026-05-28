@@ -1,9 +1,8 @@
 # Heathen
 
-
 *See also* [[Gentiles.md|Gentiles]]; [[Nations.md|Nations]]
 
-bondmen, and thy bondmaids ... shall be of the *heathen*, [[Leviticus 25.44|Leviticus 25:44]].
+bondmen, and thy bondmaids … shall be of the *heathen*, [[Leviticus 25.44|Leviticus 25:44]].
 
 according to the abominations of the *heathen*, [[2 Kings 16.3|2 Kings 16:3]].
 
@@ -63,7 +62,7 @@ then shall the *heathen* nations be redeemed, [[D&C 45.54|D&C 45:54]].
 
 more tolerable for the *heathen* in the day of judgment, [[D&C 75.22|D&C 75:22]].
 
-convincing ... *heathen* nations, [[D&C 90.10|D&C 90:10]].
+convincing … *heathen* nations, [[D&C 90.10|D&C 90:10]].
 
 worshiping of the gods of the *heathen*, [[Abraham 1.5|Abraham 1:5]].
 

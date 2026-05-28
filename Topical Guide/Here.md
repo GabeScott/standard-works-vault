@@ -1,9 +1,8 @@
 # Here
 
+Moses … said, *Here* am I, [[Exodus 3.4|Exodus 3:4]].
 
-Moses ... said, *Here* am I, [[Exodus 3.4|Exodus 3:4]].
-
-Samuel ... answered, *Here* am I, [[1 Samuel 3.4|1 Samuel 3:4]].
+Samuel … answered, *Here* am I, [[1 Samuel 3.4|1 Samuel 3:4]].
 
 *Here* am I; send me, [[Isaiah 6.8|Isaiah 6:8]] ([[2 Nephi 16.8|2 Nephi 16:8]]).
 

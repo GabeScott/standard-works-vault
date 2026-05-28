@@ -1,6 +1,6 @@
 # The Savor of Men
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -110,7 +110,7 @@ If we oppose Church policies and defy our chosen leaders, what becomes of our �
 
 If we withdraw from the Church and accept the destructive teachings of false prophets, do we not abdicate our place in the Lord’s kingdom? And does that give the Lord a sweet savor?
 
-When speaking of the preservation of our place in the Kingdom of God, President Heber J. Grant said:
+When speaking of the preservation of our place in the Kingdom of God, President Heber J. Grant said:
 
 “I have seen men, no matter how high the position … they have reached, neglect their duties and turn away, and become enemies of the Church” because they did not keep the commandments of God. “My most earnest prayer,” President Grant continued, “is that every man and every woman will get it into his or her heart that they are in very deed the architects of their lives. … There are two spirits striving with all of us. There is no labor in which we engage but that there is a spirit telling us, ‘Oh, you do not need to do that; it is a waste of time, and you ought to be engaged in something else.’
 
@@ -119,8 +119,6 @@ When speaking of the preservation of our place in the Kingdom of God, President 
 And again Lincoln said: “Remember to call upon and confide in our great and good and merciful Maker, Who will not turn away from \[us\] in any extremity. He notes the fall of the sparrow, and numbers the hairs of our heads. He will not forget the dying man who puts his trust in Him.” (Hill, p. 334.)
 
 May we have sufficient common sense to trust and obey the Lord our God! It is the only way to security, both for nations and for individuals. To this I testify, in the sacred name of Jesus Christ. Amen.
-
-
 
 
 

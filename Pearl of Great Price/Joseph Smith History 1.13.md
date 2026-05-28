@@ -5,5 +5,5 @@
 [Joseph Smith History 1:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.13?lang=eng#p13)
 
 
-[^a]: [[Micah 7.8|Micah 7:8.]]
-[^b]: TG [[Communication]].
+[^a]: [[Micah 7.8|Micah 7:8]].  
+[^b]: [[Communication|TG Communication]].  

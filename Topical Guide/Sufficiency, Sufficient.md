@@ -1,6 +1,5 @@
 # Sufficiency, Sufficient
 
-
 *See also* [[Enough.md|Enough]]
 
 lend him *sufficient* for his need, [[Deuteronomy 15.8|Deuteronomy 15:8]].
@@ -13,7 +12,7 @@ Two hundred pennyworth of bread is not *sufficient*, [[John 6.7|John 6:7]].
 
 who is *sufficient* for these things, [[2 Corinthians 2.16|2 Corinthians 2:16]].
 
-Not that we are *sufficient* of ourselves ... our *sufficiency* is of God, [[2 Corinthians 3.5|2 Corinthians 3:5]].
+Not that we are *sufficient* of ourselves … our *sufficiency* is of God, [[2 Corinthians 3.5|2 Corinthians 3:5]].
 
 ye, always having all *sufficiency* in all things, [[2 Corinthians 9.8|2 Corinthians 9:8]].
 

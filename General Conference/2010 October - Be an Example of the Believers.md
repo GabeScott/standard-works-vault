@@ -40,7 +40,7 @@ Parents, grandparents, and leaders, your message must be clear. Clarity can only
 
 Next, be an example of the believers in purity. The only way for us to become pure is through the Atonement of our Savior. For each of us, the process of becoming pure begins with faith, repentance, and our first covenant of baptism.
 
-To help our children live their baptismal covenant, Elder Robert D. Hales advised: “We teach that the moment they step out of the water, they step out of the world and into the kingdom of God. By covenant, they agree to obey His commandments.”[^14]
+To help our children live their baptismal covenant, Elder Robert D. Hales advised: “We teach that the moment they step out of the water, they step out of the world and into the kingdom of God. By covenant, they agree to obey His commandments.”[^14]
 
 “Covenants place us under a strong obligation to honor our commitments to God. To keep our covenants, we must give up activities or interests that prevent us from honoring those covenants.”[^15]
 
@@ -56,7 +56,7 @@ We also model that which is virtuous and lovely by our dress and appearance. As 
 
 Covenant keepers strive to be obedient “at all times … and in all places”[^18] because of their love of God and His promised blessings. One evening, while walking with my husband, we passed by an outdoor wedding reception in progress. We didn’t know these people, yet there was an immediate impression of virtue. Their choices of music and dress were lovely. The radiant bride’s gown was unquestionably modest, as were her bridal attendants’ dresses. This family chose not to mix the ways of the world with the sanctity of that day.
 
-Now, may I say a word to the marvelous youth of our Church. Thank you for your righteous examples to your friends, teachers, leaders, and families. I recognize that many of you are the only member of the Church in your family. You may even attend church alone. I commend you for your commitment and righteous example. Be patient and continue to live righteously. There are many who can help you. President Thomas S. Monson said, “Even an exemplary family … can use all the supportive help they can get from good men \[and women\] who genuinely care.”[^19]
+Now, may I say a word to the marvelous youth of our Church. Thank you for your righteous examples to your friends, teachers, leaders, and families. I recognize that many of you are the only member of the Church in your family. You may even attend church alone. I commend you for your commitment and righteous example. Be patient and continue to live righteously. There are many who can help you. President Thomas S. Monson said, “Even an exemplary family … can use all the supportive help they can get from good men \[and women\] who genuinely care.”[^19]
 
 Look around in your ward and stake for leaders and friends who are examples of the believers and learn from them.
 
@@ -75,11 +75,11 @@ I am grateful for the plan of happiness, and I testify it is the only way that R
 
 [^2]: See [[Proverbs 31.10|Proverbs 31:10]].
 
-[^3]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^3]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^4]: *Teachings of Presidents of the Church: Brigham Young* (1997), 173.
 
-[^5]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^5]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^6]: See Lucy Mack Smith, *History of Joseph Smith by His Mother,* ed. Scot Facer Proctor and Maurine Jensen Proctor (1996), 50.
 
@@ -91,24 +91,22 @@ I am grateful for the plan of happiness, and I testify it is the only way that R
 
 [^10]: “The Iron Rod,” *Hymns,* no. 274.
 
-[^11]: [[1 Nephi 8.30|1 Nephi 8:30]].
+[^11]: [[1 Nephi 8.30|1 Nephi 8:30]].
 
-[^12]: [[1 Nephi 11.25|1 Nephi 11:25]].
+[^12]: [[1 Nephi 11.25|1 Nephi 11:25]].
 
 [^13]: [[Jacob 2.35|Jacob 2:35]].
 
-[^14]: Robert D. Hales, *Return: Four Phases of Our Mortal Journey Home* (2010), 60.
+[^14]: Robert D. Hales, *Return: Four Phases of Our Mortal Journey Home* (2010), 60.
 
 [^15]: *Preach My Gospel: A Guide to Missionary Service* (2004), 63.
 
 [^16]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-[^17]: See [[1 Corinthians 3.16|1 Corinthians 3:16]].
+[^17]: See [[1 Corinthians 3.16|1 Corinthians 3:16]].
 
 [^18]: [[Mosiah 18.9|Mosiah 18:9]].
 
-[^19]: Thomas S. Monson, in Conference Report, Apr. 2008, 67; or *Ensign,* May 2008, 66.
-
-
+[^19]: Thomas S. Monson, in Conference Report, Apr. 2008, [[2008 April - Examples of Righteousness.md|67]]; or *Ensign,* May 2008, 66.
 
 #Example #Faith #Morality #Standards #Youth

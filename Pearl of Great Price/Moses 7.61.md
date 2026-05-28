@@ -6,6 +6,6 @@
 
 
 [^a]: [[Rest|TG Rest]].  
-[^b]: [[Micah 3.6|Micah 3:6]]; [[D&C 38.11|D&C 38:11 (11–12)]]; [[D&C 112.23|112:23]].  
+[^b]: [[Micah 3.6|Micah 3:6]]; [[D&C 38.11|D&C 38:11 (11–12)]][[D&C 38.12|]]; [[D&C 112.23|112:23]].  
 [^c]: [[Veil|TG Veil]].  
-[^d]: [[1 Nephi 22.17|1 Ne. 22:17 (15–22)]]; [[2 Nephi 30.10|2 Ne. 30:10]]. [[Protection, Divine|TG Protection, Divine]].  
+[^d]: [[1 Nephi 22.15|1 Ne. 22:17 (15–22)]][[1 Nephi 22.16|]][[1 Nephi 22.17|]][[1 Nephi 22.18|]][[1 Nephi 22.19|]][[1 Nephi 22.20|]][[1 Nephi 22.21|]][[1 Nephi 22.22|]]; [[2 Nephi 30.10|2 Ne. 30:10]]. [[Protection, Divine|TG Protection, Divine]].  

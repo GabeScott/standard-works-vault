@@ -53,21 +53,22 @@ I give you my witness that Jesus is the Christ, that He lives and loves us, and 
 
 
 
-[^1]: [[2 Nephi 33.1|2 Nephi 33:1]].
+[^1]: [[2 Nephi 33.1|2 Nephi 33:1]].
 
 [^2]: [[D&C 38.24|D&C 38:24]].
 
-[^3]: See Thomas S. Monson, regional representatives’ seminar, Apr. 3, 1981, 2.
+[^3]: See Thomas S. Monson, regional representatives’ seminar, Apr. 3, 1981, 2.
 
-[^4]: Stephen L Richards, in Conference Report, Oct. 1938, 118; see also L. Tom Perry, in Conference Report, Oct. 2004, 24–27; or *Ensign,* Nov. 2004, 23–26; D. Todd Christofferson, in Conference Report, Oct. 1998, 53–56; or *Ensign,* Nov. 1998, 40–42; Robert L. Backman, in Conference Report, Oct. 1982, 53–58; or *Ensign,* Nov. 1982, 38–41; Robert L. Backman, in Conference Report, Apr. 1973, 109–12; or *Ensign,* July 1973, 84–85.
+[^4]: Stephen L Richards, in Conference Report, Oct. 1938, 118; see also L. Tom Perry, in Conference Report, Oct. 2004, [[2004 October - What Is a Quorum.md|24–27]]; or *Ensign,* Nov. 2004, 23–26; D. Todd Christofferson, in Conference Report, Oct. 1998, [[1998 October - The Priesthood Quorum.md|53–56]]; or *Ensign,* Nov. 1998, 40–42; Robert L. Backman, in Conference Report, Oct. 1982, [[1982 October - Revitalizing Aaronic Priesthood Quorums.md|53–58]]; or *Ensign,* Nov. 1982, 38–41; Robert L. Backman, in Conference Report, Apr. 1973, [[1973 April - Youth’s Opportunity to Serve.md|109–12]]; or *Ensign,* July 1973, 84–85.
 
 [^5]: [[D&C 107.85|D&C 107:85]]; see also [[D&C 107.86|vv. 86–89]][[D&C 107.87|]][[D&C 107.88|]][[D&C 107.89|]].
 
-[^6]: See Henry B. Eyring, “Elder David A. Bednar: Going Forward in the Strength of the Lord,” *Liahona,* Mar. 2005, 14–19; *Ensign,* Mar. 2005, 16–21; Neal A. Maxwell, “Jesus, the Perfect Mentor,” *Ensign,* Feb. 2001, 8–17; David A. Bednar, in Conference Report, Apr. 2008, 94–97; or *Ensign,* May 2008, 94–97.
+[^6]: See Henry B. Eyring, “Elder David A. Bednar: Going Forward in the Strength of the Lord,” *Liahona,* Mar. 2005, 14–19; *Ensign,* Mar. 2005, 16–21; Neal A. Maxwell, “Jesus, the Perfect Mentor,” *Ensign,* Feb. 2001, 8–17; David A. Bednar, in Conference Report, Apr. 2008, [[2008 April - Ask in Faith.md|94–97]]; or *Ensign,* May 2008, 94–97.
 
-[^7]: See Robert L. Backman, in Conference Report, Oct. 1982, 53–58; or *Ensign,* Nov. 1982, 38–41; Robert L. Backman, in Conference Report, Apr. 1973, 109–12; or *Ensign,* July 1973, 84–85.
+[^7]: See Robert L. Backman, in Conference Report, Oct. 1982, [[1982 October - Revitalizing Aaronic Priesthood Quorums.md|53–58]]; or *Ensign,* Nov. 1982, 38–41; Robert L. Backman, in Conference Report, Apr. 1973, [[1973 April - Youth’s Opportunity to Serve.md|109–12]]; or *Ensign,* July 1973, 84–85.
 
-[^8]: See Ezra Taft Benson, in Conference Report, Apr. 1986, 55–60; or *Ensign,* May 1986, 43–46; “Aaronic Priesthood,” section 2 of the *Church Handbook of Instructions, Book 2: Priesthood and Auxiliary Leaders* (1998), 175–92; see also note 7.
+[^8]: See Ezra Taft Benson, in Conference Report, Apr. 1986, [[1986 April - To the “Youth of the Noble Birthright”.md|55–60]]; or *Ensign,* May 1986, 43–46; “Aaronic Priesthood,” section 2 of the *Church Handbook of Instructions, Book 2: Priesthood and Auxiliary Leaders* (1998), 175–92; see also note 7.
 
+[^9]: See Thomas S. Monson, in Conference Report, Oct. 1982, [[1982 October - “Run, Boy, Run!”.md|25–29]]; or *Ensign,* Nov. 1982, 19–21; *Scouting Handbook* (1997); see also note 8.
 
 #Activation #Priesthood

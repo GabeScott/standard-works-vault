@@ -34,13 +34,11 @@ The living waters can bring peace and joy even when the wellspring within us see
 
 It may take a lifetime—and longer—to refine our spirits fully, but the living water is available to all, including the young. I’m inspired when I watch young women of the Church, after receiving spiritual training from childhood, enter the Relief Society and immediately bring added strength to more experienced women. I’m overjoyed when I watch those same young women realize how much they can learn from women older than themselves. Peace comes to us from the Lord, but we can help each other feel that peace as we share our burdens and our happiness.
 
-Christ’s promise is simple and sublime: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid” ([[John 14.27|John 14:27]]). Brothers and sisters, turmoil is raging all about us. Economies are in distress; families are struggling; we are living in, as President Hinckley has said, “perilous times” (in Conference Report, Oct. 2001, 87; or *Ensign,* Nov. 2001, 72). But the living waters still offer peace and joy. When we live righteously, when we have done all we can do, one of the gifts we receive is confidence. The Lord tells us, “Be still and know that I am God” ([[D&C 101.16|D&C 101:16]]). In the midst of chaos, we must pause. We must listen for the Spirit that tells us, “All is well!” (“Come, Come, Ye Saints,” *Hymns,* no. 30) just as the early Saints had to do. There is cause to be concerned, but there is greater reason to be at peace.
+Christ’s promise is simple and sublime: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid” ([[John 14.27|John 14:27]]). Brothers and sisters, turmoil is raging all about us. Economies are in distress; families are struggling; we are living in, as President Hinckley has said, “perilous times” (in Conference Report, Oct. 2001, [[2001 October - The Times in Which We Live.md|87]]; or *Ensign,* Nov. 2001, 72). But the living waters still offer peace and joy. When we live righteously, when we have done all we can do, one of the gifts we receive is confidence. The Lord tells us, “Be still and know that I am God” ([[D&C 101.16|D&C 101:16]]). In the midst of chaos, we must pause. We must listen for the Spirit that tells us, “All is well!” (“Come, Come, Ye Saints,” *Hymns,* no. 30) just as the early Saints had to do. There is cause to be concerned, but there is greater reason to be at peace.
 
 The Samaritan woman looked into the face of Christ, listened to His voice, and recognized Him at a time when most others rejected all He taught. We know Him too, or we can, if we allow His healing power, His nourishing strength, His peace and joy, to flow through us like “a well of water springing up into everlasting life” ([[John 4.14|John 4:14]]). That we may do so is my prayer, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Healing #Holy_Ghost #Jesus_Christ #Joy #Peace
+#Healing #HolyGhost #Joy #JesusChrist #Peace

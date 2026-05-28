@@ -1,4 +1,3 @@
 # Luxury
 
-
-*See* [[Treasure.md|Treasure]]; [[Worldliness.md|Worldliness]]
+*See also* [[Treasure.md|Treasure]]; [[Worldliness.md|Worldliness]]

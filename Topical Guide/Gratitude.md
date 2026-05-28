@@ -1,4 +1,3 @@
 # Gratitude
 
-
-*See* [[Ingratitude.md|Ingratitude]]; [[Thanksgiving.md|Thanksgiving]]
+*See also* [[Ingratitude.md|Ingratitude]]; [[Thanksgiving.md|Thanksgiving]]

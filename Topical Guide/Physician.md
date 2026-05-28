@@ -1,7 +1,6 @@
 # Physician
 
-
-Joseph commanded ... *physicians* to embalm his father, [[Genesis 50.2|Genesis 50:2]].
+Joseph commanded … *physicians* to embalm his father, [[Genesis 50.2|Genesis 50:2]].
 
 ye are all *physicians* of no value, [[Job 13.4|Job 13:4]].
 

@@ -1,9 +1,8 @@
 # God, Perfection of
 
+*See also* [[God, Foreknowledge of.md|God, Foreknowledge of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Power of.md|God, Power of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Perfection.md|Perfection]]
 
-*See also* [[God, Foreknowledge of.md|God, Foreknowledge of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Power of.md|God, Power of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Perfection, Perfect, Perfectly.md|Perfection]]
-
-his work is *perfect* ... a God of truth and without iniquity, [[Deuteronomy 32.4|Deuteronomy 32:4]].
+his work is *perfect* … a God of truth and without iniquity, [[Deuteronomy 32.4|Deuteronomy 32:4]].
 
 Strength of Israel will *not lie* nor repent, [[1 Samuel 15.29|1 Samuel 15:29]].
 
@@ -15,11 +14,11 @@ I am the Lord, I *change* not, [[Malachi 3.6|Malachi 3:6]] ([[Mormon 9.19|Mormon
 
 your Father which is in heaven is *perfect*, [[Matthew 5.48|Matthew 5:48]] ([[3 Nephi 12.48|3 Nephi 12:48]]).
 
-there is none *good* but ... God, [[Matthew 19.17|Matthew 19:17]] ([[Luke 18.19|Luke 18:19]]).
+there is none *good* but … God, [[Matthew 19.17|Matthew 19:17]] ([[Luke 18.19|Luke 18:19]]).
 
 he abideth faithful: he *cannot deny* himself, [[2 Timothy 2.13|2 Timothy 2:13]].
 
-being made *perfect* ... author of eternal salvation, [[Hebrews 5.9|Hebrews 5:9]].
+being made *perfect* … author of eternal salvation, [[Hebrews 5.9|Hebrews 5:9]].
 
 God is *not unrighteous* to forget your work, [[Hebrews 6.10|Hebrews 6:10]].
 
@@ -46,5 +45,3 @@ Lord, promise the faithful and *cannot lie*, [[D&C 62.6|D&C 62:6]].
 From eternity to eternity he is the *same*, [[D&C 76.4|D&C 76:4]].
 
 even the glory of God, the *highest* of all, [[D&C 76.70|D&C 76:70]].
-
-*See also* [[Numbers 23.19|Numbers 23:19]]; [[Ephesians 4.13|Ephesians 4:13]]; [[Titus 1.2|Titus 1:2]].

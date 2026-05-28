@@ -1,4 +1,3 @@
 # Sadducee
 
-
-*See* [BD Sadducees](https://www.churchofjesuschrist.org/study/scriptures/bd/sadducees?lang=eng)
+*See also* [[BD Sadducees.md|BD Sadducees]]

@@ -1,7 +1,6 @@
 # Stretch
 
-
-God ... take him a nation ... by a *stretched* out arm, [[Deuteronomy 4.34|Deuteronomy 4:34]].
+God … take him a nation … by a *stretched* out arm, [[Deuteronomy 4.34|Deuteronomy 4:34]].
 
 he *stretched* himself upon the child three times, [[1 Kings 17.21|1 Kings 17:21]] ([[2 Kings 4.34|2 Kings 4:34]]).
 
@@ -19,7 +18,7 @@ let them *stretch* forth the curtains of thine habitations, [[Isaiah 54.2|Isaiah
 
 *Stretch* forth thine hand, [[Matthew 12.13|Matthew 12:13]] ([[Mark 3.5|Mark 3:5]]; [[Luke 6.10|Luke 6:10]]).
 
-led out of bondage ... with a *stretched-* out arm, [[D&C 103.17|D&C 103:17]].
+led out of bondage … with a *stretched-*out arm, [[D&C 103.17|D&C 103:17]].
 
 As well might man *stretch* forth his puny arm to stop the Missouri, [[D&C 121.33|D&C 121:33]].
 

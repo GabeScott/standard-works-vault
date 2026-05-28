@@ -16,7 +16,7 @@ So, President Hinckley, your announcement from the First Presidency should get c
 
 A wide array of feelings has flashed through my heart since I heard the call that will change my life. The first feeling is that of personal inadequacy. That feeling is intensified as I think of the incomparable power of Elders LeGrand Richards and Mark E. Petersen, whose absence we keenly sense. They were, to me, dear friends as well as esteemed leaders. Then, as I look about and see the strength of those more qualified and able than I, I truly am humbled by this calling.
 
-Fortunately, these feelings are blanketed by feelings of faith, for I know the words of Nephi are true: “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].) I have implicit faith in the Lord and in His prophets. I have learned not to put question marks but to use exclamation points when calls are issued through inspired channels of priesthood government.
+Fortunately, these feelings are blanketed by feelings of faith, for I know the words of Nephi are true: “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].) I have implicit faith in the Lord and in His prophets. I have learned not to put question marks but to use exclamation points when calls are issued through inspired channels of priesthood government.
 
 About twenty years ago, two members of the Quorum of the Twelve were assigned to select a new president of the Bonneville stake in which we lived. They were Elders Spencer W. Kimball and LeGrand Richards. That call they extended to me. Now, I am to be ordained an Apostle under the hand of President Spencer W. Kimball, to fill a chair vacated by the passing of Elder LeGrand Richards.
 
@@ -45,6 +45,4 @@ The testimony that I bear is but an echo of the resounding testimonies of the ei
 
 
 
-
-
-#Quorum_Of_The_Twelve_Apostles
+#QuorumOfTheTwelveApostles

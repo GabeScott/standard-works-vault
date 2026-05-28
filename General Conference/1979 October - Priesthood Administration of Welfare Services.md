@@ -1,6 +1,6 @@
 # Priesthood Administration of Welfare Services
 
-By Elder J. Thomas Fyans - *Of the First Quorum of the Seventy*
+By Elder J. Thomas Fyans - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -73,8 +73,6 @@ You see, our total protection cannot come solely from the production of the welf
 May we capture the vision of our individual responsibilities in this great work. May we actively and consistently apply the welfare points of emphasis laid down by the Brethren. May we encircle the children of our Heavenly Father with this protecting temporal—no, spiritual—shield, because after all, all things are spiritual (see [[D&C 29.34|D&C 29:34]]).
 
 I bear my witness of the divinity of this, and I do so in the name of Jesus Christ, amen.
-
-
 
 
 

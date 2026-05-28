@@ -1,6 +1,6 @@
 # Do We Know What We Have?
 
-By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
+By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -14,9 +14,9 @@ We need baptism. When we are immersed in the waters of baptism, we covenant to t
 
 We need the gift of the Holy Ghost. Through that ordinance, we can have access to the constant companionship of the Spirit. President Wilford Woodruff taught: “Every man or woman that has ever entered into the church of God and been baptized for the remission of sins has a right to revelation, a right to the Spirit of God, to assist them in their labors, in their administrations to their children, in counseling their children and those over whom they are called upon to preside. The Holy Ghost is not restricted to men, nor to apostles or prophets; it belongs to every faithful man and woman, and to every child who is old enough to receive the gospel of Christ.”[^3]
 
-We need to receive the temple endowment. Elder M. Russell Ballard said: “When men and women go to the temple, they are both endowed with the same power, which by definition is priesthood power. … The endowment is literally a gift of power.”[^4]
+We need to receive the temple endowment. Elder M. Russell Ballard said: “When men and women go to the temple, they are both endowed with the same power, which by definition is priesthood power. … The endowment is literally a gift of power.”[^4]
 
-We need the sealing ordinance, which leads to eternal life, “the greatest of all the gifts of God.”[^5] This priesthood ordinance is received only by a man and a woman together. Elder Russell M. Nelson taught, “Priesthood authority has been restored so that families can be sealed eternally.”[^6]
+We need the sealing ordinance, which leads to eternal life, “the greatest of all the gifts of God.”[^5] This priesthood ordinance is received only by a man and a woman together. Elder Russell M. Nelson taught, “Priesthood authority has been restored so that families can be sealed eternally.”[^6]
 
 We need the opportunity to renew our covenants each week as we partake of the sacrament. Latter-day prophets and apostles have taught that when we worthily partake of the sacrament, we can renew not only our baptismal covenant but “all covenants entered into with the Lord.”[^7]
 
@@ -42,7 +42,7 @@ There exists today a great need for men and women to cultivate respect for each 
 
 He has a plan for us, and when we exercise our faith and trust in His plan, our reverence for Him and for His priesthood power and authority will be strengthened.
 
-In the worldwide leadership training *Strengthening the Family and the Church through the Priesthood,* we were taught that sisters who don’t have priesthood holders in their homes need never feel alone. They are blessed and strengthened through the ordinances they have received and the covenants they keep. They should not hesitate to reach out when help is needed. Elder M. Russell Ballard taught that every woman in the Church needs to know that she has a bishop, an elders quorum president, a home teacher, and other worthy priesthood holders whom she can rely on to come into her home and assist her and, as Sister Rosemary M. Wixom added, to “give a blessing.”[^9]
+In the worldwide leadership training *Strengthening the Family and the Church through the Priesthood,* we were taught that sisters who don’t have priesthood holders in their homes need never feel alone. They are blessed and strengthened through the ordinances they have received and the covenants they keep. They should not hesitate to reach out when help is needed. Elder M. Russell Ballard taught that every woman in the Church needs to know that she has a bishop, an elders quorum president, a home teacher, and other worthy priesthood holders whom she can rely on to come into her home and assist her and, as Sister Rosemary M. Wixom added, to “give a blessing.”[^9]
 
 Elder Ballard also taught: “Our Father in Heaven is generous with His power. All men and all women have access to this power for help in our own lives. All who have made sacred covenants with the Lord and who honor those covenants are eligible to receive personal revelation, to be blessed by the ministering of angels, \[and\] to commune with God.”[^10]
 
@@ -58,9 +58,9 @@ As covenant sons and daughters, do we have faith in our Heavenly Father and His 
 
 We are beloved spirit sons and daughters of heavenly parents, with a divine nature and destiny. Our Savior, Jesus Christ, loved us enough to give His life for us. His Atonement provides the way for us to progress on the path to our heavenly home, through sacred priesthood ordinances and covenants.
 
-These priesthood ordinances and covenants were restored to the earth through the Prophet Joseph Smith, and today President Thomas S. Monson holds all the keys of the priesthood on the earth.
+These priesthood ordinances and covenants were restored to the earth through the Prophet Joseph Smith, and today President Thomas S. Monson holds all the keys of the priesthood on the earth.
 
-Elder D. Todd Christofferson taught: “In The Church of Jesus Christ of Latter-day Saints is found the priesthood authority to administer the ordinances by which we can enter into binding covenants with our Heavenly Father in the name of His Holy Son. … God will keep His promises to you as you honor your covenants with Him.”[^13]
+Elder D. Todd Christofferson taught: “In The Church of Jesus Christ of Latter-day Saints is found the priesthood authority to administer the ordinances by which we can enter into binding covenants with our Heavenly Father in the name of His Holy Son. … God will keep His promises to you as you honor your covenants with Him.”[^13]
 
 Of these things I testify in the name of Jesus Christ, amen.
 
@@ -73,26 +73,24 @@ Of these things I testify in the name of Jesus Christ, amen.
 
 [^3]: *Teachings of Presidents of the Church: Wilford Woodruff* (2004), 49.
 
-[^4]: M. Russell Ballard, “Let Us Think Straight” (Brigham Young University Education Week devotional, Aug. 20, 2013); [speeches.byu.edu](http://speeches.byu.edu).
+[^4]: M. Russell Ballard, “Let Us Think Straight” (Brigham Young University Education Week devotional, Aug. 20, 2013); [speeches.byu.edu](https://speeches.byu.edu).
 
 [^5]: [[D&C 14.7|Doctrine and Covenants 14:7]]; see also [[D&C 131.1|Doctrine and Covenants 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]].
 
-[^6]: Russell M. Nelson, “Nurturing Marriage,” *Ensign* or *Liahona,* May 2006, 37; or in *Daughters in My Kingdom: The History and Work of Relief Society* (2011), 134.
+[^6]: Russell M. Nelson, “Nurturing Marriage,” *Ensign* or *Liahona,* May 2006, 37; or in *Daughters in My Kingdom: The History and Work of Relief Society* (2011), 134.
 
-[^7]: Delbert L. Stapley, in Conference Report, Oct. 1965, 14; quoted in L. Tom Perry, “As Now We Take the Sacrament,” *Ensign* or *Liahona,* May 2006, 41; see also *Teachings of Gordon B. Hinckley* (1997), 561; *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 220.
+[^7]: Delbert L. Stapley, in Conference Report, Oct. 1965, 14; quoted in L. Tom Perry, “As Now We Take the Sacrament,” *Ensign* or *Liahona,* May 2006, 41; see also *Teachings of Gordon B. Hinckley* (1997), 561; *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 220.
 
 [^8]: See [[D&C 109.22|Doctrine and Covenants 109:22]].
 
-[^9]: See M. Russell Ballard and Rosemary M. Wixom, “Blessings of the Priesthood in Every Home,” in *Strengthening the Family and the Church through the Priesthood* (worldwide leadership training, 2013); [lds.org/broadcasts](http://lds.org/training/wwlt/2013).
+[^9]: See M. Russell Ballard and Rosemary M. Wixom, “Blessings of the Priesthood in Every Home,” in *Strengthening the Family and the Church through the Priesthood* (worldwide leadership training, 2013); [lds.org/broadcasts](https://www.churchofjesuschrist.org/study/video/worldwide-leadership-training/2013/february-2013/2013-02-0060-blessings-of-the-priesthood-in-every-home?lang=eng).
 
-[^10]: M. Russell Ballard, “Let Us Think Straight”; [speeches.byu.edu](http://speeches.byu.edu).
+[^10]: M. Russell Ballard, “Let Us Think Straight”; [speeches.byu.edu](https://speeches.byu.edu).
 
 [^11]: See also [[D&C 46.9|Doctrine and Covenants 46:9, 12]][[D&C 46.12|]].
 
 [^12]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
 [^13]: D. Todd Christofferson, “The Power of Covenants,” *Ensign* or *Liahona,* May 2009, 22.
-
-
 
 #Covenants #Ordinances #Priesthood #Temples

@@ -1,9 +1,8 @@
 # Sabbath
 
+*See also* [[Sabbatical Year.md|Sabbatical Year]]; [[BD Sabbath.md|BD Sabbath]]; [[BD Sabbath day’s journey.md|BD Sabbath day’s journey]]
 
-*See also* [[Sabbatical Year.md|Sabbatical Year]]; [BD Sabbath](https://www.churchofjesuschrist.org/study/scriptures/bd/sabbath?lang=eng); [Sabbath day's journey](https://www.churchofjesuschrist.org/study/scriptures/bd/sabbath-days-journey?lang=eng)
-
-on the *seventh* day God ended his work ... and he rested, [[Genesis 2.2|Genesis 2:2]] ([[Genesis 2.3|Genesis 2:3]]; [[Exodus 31.17|Exodus 31:17]]; [[Exodus 35.2|Exodus 35:2]]; [[D&C 77.12|D&C 77:12]]; [[Moses 3.2|Moses 3:2]]; [[Abraham 5.2|Abraham 5:2]]).
+on the *seventh* day God ended his work … and he rested, [[Genesis 2.2|Genesis 2:2]] ([[Genesis 2.3|Genesis 2:3]]; [[Exodus 31.17|Exodus 31:17]]; [[Exodus 35.2|Exodus 35:2]]; [[D&C 77.12|D&C 77:12]]; [[Moses 3.2|Moses 3:2]]; [[Abraham 5.2|Abraham 5:2]]).
 
 To morrow is the rest of the holy *sabbath*, [[Exodus 16.23|Exodus 16:23]].
 
@@ -17,7 +16,7 @@ gathered sticks upon the *sabbath*, [[Numbers 15.32|Numbers 15:32]].
 
 madest known unto them thy holy *sabbath*, [[Nehemiah 9.14|Nehemiah 9:14]].
 
-people ... bring ware or any victuals on the *sabbath* day to sell, [[Nehemiah 10.31|Nehemiah 10:31]].
+people … bring ware or any victuals on the *sabbath* day to sell, [[Nehemiah 10.31|Nehemiah 10:31]].
 
 some treading wine presses on the *sabbath*, [[Nehemiah 13.15|Nehemiah 13:15]].
 
@@ -43,11 +42,11 @@ end of the *sabbath*, as it began to dawn, [[Matthew 28.1|Matthew 28:1]] ([[Luke
 
 be loosed from this bond on the *sabbath*, [[Luke 13.16|Luke 13:16]].
 
-fallen into a pit ... pull him out on the *sabbath*, [[Luke 14.5|Luke 14:5]].
+fallen into a pit … pull him out on the *sabbath*, [[Luke 14.5|Luke 14:5]].
 
-they ... rested the *sabbath* day according to the commandment, [[Luke 23.56|Luke 23:56]].
+they … rested the *sabbath* day according to the commandment, [[Luke 23.56|Luke 23:56]].
 
-*sabbath* ... not lawful for thee to carry thy bed, [[John 5.10|John 5:10]].
+*sabbath* … not lawful for thee to carry thy bed, [[John 5.10|John 5:10]].
 
 man on the *sabbath* day receive circumcision, [[John 7.23|John 7:23]].
 
@@ -61,18 +60,18 @@ Gentiles besought that these words might be preached to them the next *sabbath*,
 
 reasoned in the synagogue every *sabbath*, [[Acts 18.4|Acts 18:4]].
 
-*first day* of the week ... Paul preached, [[Acts 20.7|Acts 20:7]].
+*first day* of the week … Paul preached, [[Acts 20.7|Acts 20:7]].
 
 *first day* of the week let every one of you lay by him in store, [[1 Corinthians 16.2|1 Corinthians 16:2]].
 
-Let no man therefore judge you ... in respect of ... *sabbath* days, [[Colossians 2.16|Colossians 2:16]].
+Let no man therefore judge you … in respect of … *sabbath* days, [[Colossians 2.16|Colossians 2:16]].
 
 spake in a certain place of the *seventh day*, [[Hebrews 4.4|Hebrews 4:4]].
 
-I was in the Spirit on the *Lord's day*, [[Revelation 1.10|Revelation 1:10]].
+I was in the Spirit on the *Lord’s day*, [[Revelation 1.10|Revelation 1:10]].
 
 observed to keep the law of Moses and the *sabbath*, [[Jarom 1.5|Jarom 1:5]].
 
-offer up thy sacraments upon my *holy day*, [[D&C 59.9|D&C 59:9]] ([[D&C 59.9|59:9-13]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]][[D&C 59.13|]]).
+offer up thy sacraments upon my *holy day*, [[D&C 59.9|D&C 59:9]].
 
 Zion shall also observe the *Sabbath*, [[D&C 68.29|D&C 68:29]].

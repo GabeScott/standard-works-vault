@@ -1,6 +1,6 @@
 # Receiving a Testimony of Light and Truth
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -123,7 +123,7 @@ Your personal testimony of light and truth will not only bless you and your post
 
 [^5]: See [[John 14.6|John 14:6]].
 
-[^6]: See [[3 Nephi 17.3|3 Nephi 17:3]].
+[^6]: See [[3 Nephi 17.3|3 Nephi 17:3]].
 
 [^7]: [[Alma 32.27|Alma 32:27]].
 
@@ -135,11 +135,11 @@ Your personal testimony of light and truth will not only bless you and your post
 
 [^11]: See [[D&C 82.10|Doctrine and Covenants 82:10]].
 
-[^12]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^12]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^13]: [[D&C 50.24|Doctrine and Covenants 50:24]].
 
-[^14]: [[1 Corinthians 1.18|1 Corinthians 1:18]].
+[^14]: [[1 Corinthians 1.18|1 Corinthians 1:18]].
 
 [^15]: [[Moroni 10.32|Moroni 10:32]]; see also [[D&C 20.59|Doctrine and Covenants 20:59]].
 
@@ -147,6 +147,4 @@ Your personal testimony of light and truth will not only bless you and your post
 
 [^17]: See [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Testimony
+#GodTheFather #HolyGhost #JesusChrist #Testimony

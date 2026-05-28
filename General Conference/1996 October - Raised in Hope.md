@@ -26,7 +26,7 @@ The Lord told the ancient Israelites, after giving them the laws and commandment
 
 “That thou mayest love the Lord thy God, and that thou mayest obey his voice, and that thou mayest cleave unto him: for he is thy life, and the length of thy days” ([[Deuteronomy 30.19|Deut. 30:19–20]][[Deuteronomy 30.20|]]; emphasis added).
 
-Why is this so? Why is hope so intimately tangled with the roots of life itself? The Book of Mormon tells us that we are “free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all … might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).
+Why is this so? Why is hope so intimately tangled with the roots of life itself? The Book of Mormon tells us that we are “free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all … might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).
 
 Hope is one of the three great Christian virtues because Christ Himself is the master of life and therefore the master of hope. We are free to choose because we were made free from the beginning, and He honors our agency and our right and ability to choose. The choice He offers is life, and life offers hope. Any other choice is a choice of spiritual death that will bring us into the power of the devil.
 
@@ -69,6 +69,4 @@ I testify that my Christ is my hope. He is my hope on rainy Monday mornings, my 
 
 
 
-
-
-#Agency #Atonement #Death #Hope #Jesus_Christ #Women
+#Agency #Atonement #Death #Hope #JesusChrist #Women

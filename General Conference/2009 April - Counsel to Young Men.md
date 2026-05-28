@@ -20,7 +20,7 @@ There are many accounts in the scriptures of young men serving. Samuel served in
 
 Paul told young Timothy, “Let no man despise thy youth.”[^8]
 
-When I began my teaching career, President J. Reuben Clark Jr., the First Counselor in the First Presidency, had spoken to teachers. His words went into my heart and influenced me ever since.
+When I began my teaching career, President J. Reuben Clark Jr., the First Counselor in the First Presidency, had spoken to teachers. His words went into my heart and influenced me ever since.
 
 President Clark described youth as “hungry for things of the Spirit \[and\] eager to learn the gospel.” He said: “They want it straight, undiluted. They want to know … about our beliefs; they want to gain testimonies of their truth. They are not now doubters but inquirers, seekers after truth.”
 
@@ -133,9 +133,9 @@ At noon today four young men, all grandsons, came to visit us. Three of them had
 
 [^2]: [[D&C 107.20|D&C 107:20]].
 
-[^3]: See [[1 Samuel 1.24|1 Samuel 1:24–28]][[1 Samuel 1.25|]][[1 Samuel 1.26|]][[1 Samuel 1.27|]][[1 Samuel 1.28|]].
+[^3]: See [[1 Samuel 1.24|1 Samuel 1:24–28]][[1 Samuel 1.25|]][[1 Samuel 1.26|]][[1 Samuel 1.27|]][[1 Samuel 1.28|]].
 
-[^4]: See [[1 Samuel 17.1|1 Samuel 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]].
+[^4]: See [[1 Samuel 17.1|1 Samuel 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]].
 
 [^5]: See [[Mormon 1.2|Mormon 1:2]].
 
@@ -143,19 +143,19 @@ At noon today four young men, all grandsons, came to visit us. Three of them had
 
 [^7]: See [[Luke 2.41|Luke 2:41–52]][[Luke 2.42|]][[Luke 2.43|]][[Luke 2.44|]][[Luke 2.45|]][[Luke 2.46|]][[Luke 2.47|]][[Luke 2.48|]][[Luke 2.49|]][[Luke 2.50|]][[Luke 2.51|]][[Luke 2.52|]].
 
-[^8]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^8]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
-[^9]: J. Reuben Clark Jr., *The Charted Course of the Church in Education* (address delivered to seminary and institute leaders at Aspen Grove, Utah, Aug. 8, 1938, pamphlet, 2004), 3, 9.
+[^9]: J. Reuben Clark Jr., *The Charted Course of the Church in Education* (address delivered to seminary and institute leaders at Aspen Grove, Utah, Aug. 8, 1938, pamphlet, 2004), 3, 9.
 
 [^10]: [[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]].
 
-[^11]: [[1 Corinthians 6.19|1 Corinthians 6:19]].
+[^11]: [[1 Corinthians 6.19|1 Corinthians 6:19]].
 
 [^12]: See [[Moroni 7.17|Moroni 7:17]].
 
 [^13]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 211.
 
-[^14]: [[2 Nephi 2.5|2 Nephi 2:5]].
+[^14]: [[2 Nephi 2.5|2 Nephi 2:5]].
 
 [^15]: [[Articles of Faith 1.4|Articles of Faith 1:4]].
 
@@ -173,6 +173,4 @@ At noon today four young men, all grandsons, came to visit us. Three of them had
 
 [^22]: [[Alma 42.8|Alma 42:8]].
 
-
-
-#Faith #Priesthood #Responsibility #Word_Of_Wisdom
+#Faith #Priesthood #Responsibility #WordOfWisdom

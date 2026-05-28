@@ -46,15 +46,15 @@ The prodigal son parable is well known to all of us. He left and wasted his subs
 
 “And am no more worthy to be called thy son: \[but I am more of an adult now\] …
 
-“And he arose, and came to his father. … His father saw him, and had compassion, and ran, and fell on his neck, and kissed him” ([[Luke 15.17|vs. 17–20]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]]).
+“And he arose, and came to his father. … His father saw him, and had compassion, and ran, and fell on his neck, and kissed him” ([[Luke 15.17|vs. 17–20]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]]).
 
-I believe it appropriate to say the father, too, had become more mature during the separation. Think, too, of the maturing and the becoming of more of an adult on the part of the elder son when he witnessed and participated in the Christ-like example of his father (see [[Luke 15.25|vs. 25–32]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]).
+I believe it appropriate to say the father, too, had become more mature during the separation. Think, too, of the maturing and the becoming of more of an adult on the part of the elder son when he witnessed and participated in the Christ-like example of his father (see [[Luke 15.25|vs. 25–32]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]).
 
 There is no doubt in my mind that one of the primary reasons Laman and Lemuel murmured and spoke harsh words to their brother Nephi and did smite him with a rod was because they were older and more adult than Nephi, so they supposed. Can’t you just hear Laman saying, “Nephi, you can’t treat me like that. I am an adult now.”
 
 Nephi displayed real maturity when he declared, “I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.
 
-“And it came to pass that when my father had heard these words he was exceedingly glad, for he knew that I had been blessed of the Lord” ([[1 Nephi 3.7|1 Ne. 3:7–8]][[1 Nephi 3.8|]]). Lehi was adult enough to know which son was the most mature and who would be blessed of the Lord accordingly.
+“And it came to pass that when my father had heard these words he was exceedingly glad, for he knew that I had been blessed of the Lord” ([[1 Nephi 3.7|1 Ne. 3:7–8]][[1 Nephi 3.8|]]). Lehi was adult enough to know which son was the most mature and who would be blessed of the Lord accordingly.
 
 Too many of us fail to realize adult conduct is a process, not a status. To become a disciple of Jesus Christ, we must continue in righteousness and in His word. When someone shares with enthusiasm his joy in now being an active member of the Church, the thought crosses my mind, “Wonderful, but for how long will you stay that way?” Incidentally, some years ago I was contacted by an insurance agent. When he started his sales approach with “I am an active member of the Church,” the first thought that crossed my mind was, “Who said so?”
 
@@ -77,8 +77,6 @@ My young friends, in a spirit of love I make the suggestion that we avoid the pl
 Mothers, fathers, and family members, maturity does not necessarily come with age. Let us communicate in words and deeds our concern and love for each other. Threats, ears that do not hear, eyes that do not see, and hearts that do not feel will never bring joy, unity, and growth. Patience with others, self, and God brings eternal maturity. Let God and our daily actions determine the authenticity of the statement “I am an adult now.”
 
 God is our Father. Jesus is the Christ. May our knowledge of them on a continuing basis give us Christ-centered adult conduct, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

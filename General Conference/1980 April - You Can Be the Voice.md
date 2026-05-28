@@ -1,6 +1,6 @@
 # You Can Be the Voice
 
-By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
+By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -51,6 +51,7 @@ The light of the Lord is real, my brethren. He will lead every soul out of the c
 Life’s flight pattern can be changed. The instruments we use in saving souls are love and sharing our testimonies of the divine mission of our Savior and Redeemer, Jesus Christ. Thousands of our lost brethren, both men and boys, can be led to a safe landing if we will keep the commitments that we have made tonight. The power of the priesthood that is within each one of us is a greater power than any radar, radio, or any other communication system. Nothing is more important to the Lord than saving souls.
 
 God bless us to keep this commitment, my brethren, to bring into full fellowship one precious son of God, I pray, in the name of Jesus Christ, amen.
+
 
 
 

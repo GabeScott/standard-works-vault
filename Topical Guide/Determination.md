@@ -1,4 +1,3 @@
 # Determination
 
-
-*See* [[Commitment.md|Commitment]]; [[Determine.md|Determine]]
+*See also* [[Commitment.md|Commitment]]; [[Determine.md|Determine]]

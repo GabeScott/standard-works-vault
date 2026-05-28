@@ -18,7 +18,7 @@ This same light led the way for 15-year-old Mary Elizabeth Rollins and her 13-ye
 
 Mary Elizabeth and Caroline had been hiding by the fence, frightened spectators to all this destruction. Even though she was terrified, Mary Elizabeth’s eye was fixed on those precious pages. She and her sister ran out from their hiding place, gathered up the scriptures, and bolted. Some of the mob saw them and ordered them to stop. But the brave girls ran into a large cornfield, where they dropped breathlessly to the ground. They carefully laid the pages of revelations between the tall rows of corn and then covered the pages by lying on them. The relentless mobsters looked and looked for the girls, coming quite close at times, but never did find them. Eventually they gave up their search to see what further damage they could do to the town.
 
-I believe the light of the Lord directed Mary Elizabeth and Caroline as to what to do and where to go for safety. Sisters, that light shines for you, and it will guide you as it did the Rollins girls. It will keep you safe even when danger lurks. As the Master promised, “I will also be your light … ; and I will prepare the way before you, if it so be that ye shall keep my commandments; … ye shall know that it is by me that ye are led.”[^2]
+I believe the light of the Lord directed Mary Elizabeth and Caroline as to what to do and where to go for safety. Sisters, that light shines for you, and it will guide you as it did the Rollins girls. It will keep you safe even when danger lurks. As the Master promised, “I will also be your light … ; and I will prepare the way before you, if it so be that ye shall keep my commandments; … ye shall know that it is by me that ye are led.”[^2]
 
 My dear young friends, you can stand apart from evil, just as the Rollins sisters did, if you will develop your own testimony of the Savior. As you do so, you will grow in spiritual strength. Cherish spirituality, and you will learn how sweet it is.
 
@@ -50,11 +50,11 @@ The parable tells what happened as all ten young women waited for the bridegroom
 
 The late President Spencer W. Kimball defined those drops of oil for us a few years ago when he said:
 
-“There are oils that keep the gospel burning brightly. One type of oil is the oil of family prayer. It illuminates us and makes us bright and cheery but is difficult to obtain at midnight. One drop or two will not keep the lamp burning long. …
+“There are oils that keep the gospel burning brightly. One type of oil is the oil of family prayer. It illuminates us and makes us bright and cheery but is difficult to obtain at midnight. One drop or two will not keep the lamp burning long. …
 
-“Another type of oil is the oil of fasting. The last midnight is late to start disciplining our lives in preparation for the great day of the Lord. …
+“Another type of oil is the oil of fasting. The last midnight is late to start disciplining our lives in preparation for the great day of the Lord. …
 
-“Another oil that is not available at midnight is the indispensable oil of home service. This rare oil of service is accumulated through visits to the sick, through lending a helping hand. …
+“Another oil that is not available at midnight is the indispensable oil of home service. This rare oil of service is accumulated through visits to the sick, through lending a helping hand. …
 
 “There is another oil that all will need—rich or poor, sick or well. Its light is brilliant and increases with use. The more that is used, the more that is left. It is easy to purchase in the day but not available at night. This is the tithing oil.
 
@@ -75,7 +75,7 @@ I hope and pray that the Lord’s choicest blessings will be with you wonderful 
 
 [^1]: [[D&C 115.5|D&C 115:5]].
 
-[^2]: [[1 Nephi 17.13|1 Nephi 17:13]].
+[^2]: [[1 Nephi 17.13|1 Nephi 17:13]].
 
 [^3]: [[Moroni 7.18|Moroni 7:18]].
 
@@ -89,8 +89,6 @@ I hope and pray that the Lord’s choicest blessings will be with you wonderful 
 
 [^8]: In “Gospel’s Rare Oils Difficult to Obtain ‘at Midnight,’” *Church News,* May 13, 1995, 14.
 
-[^9]: See [[2 Peter 1.4|2 Peter 1:4]].
+[^9]: See [[2 Peter 1.4|2 Peter 1:4]].
 
-
-
-#Conscience #Divine_Nature #Preparation #Spirituality
+#Conscience #DivineNature #Preparation #Spirituality

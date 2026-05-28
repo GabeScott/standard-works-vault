@@ -12,7 +12,7 @@ Today I would like to talk about sacrament meeting. Your bishop organizes and ov
 
 Sacrament meeting is the most important meeting of the week, the one the Lord has *commanded* us to attend. It’s a time to worship the Savior. What does that mean, to worship? It means to reverently show love and allegiance to him, to think about him, to honor him, to remember his sacrifice for each of us, and to thank him.
 
-In sacrament meeting we often do this through prayer, music, talks, scripture, and our testimony. His Spirit should be there. We partake of the sacrament in remembrance of his body and blood, symbolizing his resurrection and atonement. We should think about his life and sacrifice during the passing of the sacrament. Our sacrament meeting should be a time to talk of Christ, rejoice in Christ, preach of Christ, and prophesy of Christ, to paraphrase Nephi (see [[2 Nephi 25.26|2 Ne. 25:26]]). It’s also a time to learn the doctrines of the Church, to feel the Spirit, and to be spiritually enlightened.
+In sacrament meeting we often do this through prayer, music, talks, scripture, and our testimony. His Spirit should be there. We partake of the sacrament in remembrance of his body and blood, symbolizing his resurrection and atonement. We should think about his life and sacrifice during the passing of the sacrament. Our sacrament meeting should be a time to talk of Christ, rejoice in Christ, preach of Christ, and prophesy of Christ, to paraphrase Nephi (see [[2 Nephi 25.26|2 Ne. 25:26]]). It’s also a time to learn the doctrines of the Church, to feel the Spirit, and to be spiritually enlightened.
 
 Sacrament meeting is so important that the Lord revealed specific instructions about the meeting to Joseph Smith. That message is recorded in the 59th section of the Doctrine and Covenants:
 
@@ -57,6 +57,4 @@ I believe with all my soul in Jesus Christ, our elder brother. May we understand
 
 
 
-
-
-#Jesus_Christ #Sabbath #Sacrament #Worship
+#JesusChrist #Sabbath #Sacrament #Worship

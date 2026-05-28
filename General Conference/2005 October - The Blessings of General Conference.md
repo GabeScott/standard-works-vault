@@ -63,6 +63,4 @@ I know that our Heavenly Father loves us and has a perfect plan for His children
 
 [^6]: [[John 6.68|John 6:68]].
 
-
-
-#General_Conference #Media #Obedience #Prophets #Spirituality
+#GeneralConference #Media #Obedience #Prophets #Spirituality

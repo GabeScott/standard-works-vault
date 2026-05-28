@@ -82,11 +82,35 @@ We should pray in accord with the will of our Heavenly Father.[^32] He wants to 
 
 I have felt impressed to conclude this message on prayer with a prayer—presented as a hymn. The Lord has said that “the song of the righteous is a prayer unto me.”[^34] The music comes from our book of *Hymns,*[^35] for which I have written new words. With thanks to Craig Jessop, Mack Wilberg, and other dear friends in the Tabernacle Choir, we may hear that song of prayer. Brother Jessop, please:
 
-Our Prayer to TheeWe pray to Thee, our Heavenly Father,With grateful hearts and fond emotion.We thank Thee for our great Exemplar—Thy beloved and atoning Son—Who gave Himself as sacred ransom,That we could live again with Thee!Our joy is full, our song so gladsome;Renew our faith and hope in Thee.We pray to Thee, our Heavenly Father,With thankful hearts and adoration.We thank Thee for our loving Savior,Who redeemed us from death and sin;He gave to us His truth to brightenOur path, to help us walk His way,To love and serve, to lift and lightenThe lives of all who will obey.We pray to Thee, our Heavenly Father,With gratitude and deep devotionFor loving faith and endless splendor—Eternal glory—bound as one!We pray for mercy and forgivenessAnd hope to know Thy holy will.We yearn for Thee, we plead in meekness,Thy trust in us may we fulfill.
+>We pray to Thee, our Heavenly Father,
+>With grateful hearts and fond emotion.
+>We thank Thee for our great Exemplar—
+>Thy beloved and atoning Son—
+>Who gave Himself as sacred ransom,
+>That we could live again with Thee!
+>Our joy is full, our song so gladsome;
+>Renew our faith and hope in Thee.
+>
+>With thankful hearts and adoration.
+>We thank Thee for our loving Savior,
+>Who redeemed us from death and sin;
+>He gave to us His truth to brighten
+>Our path, to help us walk His way,
+>To love and serve, to lift and lighten
+>The lives of all who will obey.
+>
+>With gratitude and deep devotion
+>For loving faith and endless splendor—
+>Eternal glory—bound as one!
+>We pray for mercy and forgiveness
+>And hope to know Thy holy will.
+>We yearn for Thee, we plead in meekness,
+>Thy trust in us may we fulfill.
+>
 
 In the name of Jesus Christ, amen.
 
-*For an arrangement of Elder Russell M. Nelson’s hymn text, see the  of this magazine.*
+*For an arrangement of Elder Russell M. Nelson’s hymn text, see the [inside back cover](https://www.churchofjesuschrist.org/study/ensign/2003/05/our-prayer-to-thee?lang=eng) of this magazine.*
 
 
 
@@ -95,13 +119,13 @@ In the name of Jesus Christ, amen.
 
 [^2]: [[Helaman 13.22|Helaman 13:22]].
 
-[^3]: For examples, see [[Jeremiah 29.11|Jeremiah 29:11–13]][[Jeremiah 29.12|]][[Jeremiah 29.13|]]; [[Joel 2.32|Joel 2:32]]; [[Philippians 4.6|Philippians 4:6]]; [[1 Nephi 15.8|1 Nephi 15:8–11]][[1 Nephi 15.9|]][[1 Nephi 15.10|]][[1 Nephi 15.11|]]; [[Alma 37.37|Alma 37:37]].
+[^3]: For examples, see [[Jeremiah 29.11|Jeremiah 29:11–13]][[Jeremiah 29.12|]][[Jeremiah 29.13|]]; [[Joel 2.32|Joel 2:32]]; [[Philippians 4.6|Philippians 4:6]]; [[1 Nephi 15.8|1 Nephi 15:8–11]][[1 Nephi 15.9|]][[1 Nephi 15.10|]][[1 Nephi 15.11|]]; [[Alma 37.37|Alma 37:37]].
 
 [^4]: As Jesus wrought the Atonement, He maintained prayerful communication with His Father both in Gethsemane (see [[Luke 22.39|Luke 22:39–44]][[Luke 22.40|]][[Luke 22.41|]][[Luke 22.42|]][[Luke 22.43|]][[Luke 22.44|]]) and on Calvary’s cross (see [[Luke 23.33|Luke 23:33–34, 46]][[Luke 23.34|]][[Luke 23.46|]]).
 
-[^5]: See [[Matthew 6.9|Matthew 6:9]]; [[Luke 11.2|Luke 11:2]]; [[3 Nephi 13.9|3 Nephi 13:9]].
+[^5]: See [[Matthew 6.9|Matthew 6:9]]; [[Luke 11.2|Luke 11:2]]; [[3 Nephi 13.9|3 Nephi 13:9]].
 
-[^6]: See [[Jacob 4.4|Jacob 4:4–5]][[Jacob 4.5|]]; [[3 Nephi 20.31|3 Nephi 20:31]]; [[3 Nephi 27.9|27:9]]; [[Moses 5.8|Moses 5:8]].
+[^6]: See [[Jacob 4.4|Jacob 4:4–5]][[Jacob 4.5|]]; [[3 Nephi 20.31|3 Nephi 20:31]]; [[3 Nephi 27.9|27:9]]; [[Moses 5.8|Moses 5:8]].
 
 [^7]: See [[Moroni 6.9|Moroni 6:9]]; [[Moroni 10.4|10:4–5]][[Moroni 10.5|]].
 
@@ -115,21 +139,21 @@ In the name of Jesus Christ, amen.
 
 [^12]: [[Moroni 7.48|Moroni 7:48]].
 
-[^13]: [[2 Nephi 33.3|2 Nephi 33:3]]; see also [[Jacob 3.1|Jacob 3:1]]; [[Alma 31.38|Alma 31:38]]; [[D&C 37.2|D&C 37:2]].
+[^13]: [[2 Nephi 33.3|2 Nephi 33:3]]; see also [[Jacob 3.1|Jacob 3:1]]; [[Alma 31.38|Alma 31:38]]; [[D&C 37.2|D&C 37:2]].
 
-[^14]: See [[Matthew 17.21|Matthew 17:21]]; [[Mark 9.29|Mark 9:29]]; [[1 Corinthians 7.5|1 Corinthians 7:5]]; [[Mosiah 27.22|Mosiah 27:22–23]][[Mosiah 27.23|]]; [[Alma 5.46|Alma 5:46]]; [[3 Nephi 27.1|3 Nephi 27:1]]; [[D&C 88.76|D&C 88:76]].
+[^14]: See [[Matthew 17.21|Matthew 17:21]]; [[Mark 9.29|Mark 9:29]]; [[1 Corinthians 7.5|1 Corinthians 7:5]]; [[Mosiah 27.22|Mosiah 27:22–23]][[Mosiah 27.23|]]; [[Alma 5.46|Alma 5:46]]; [[3 Nephi 27.1|3 Nephi 27:1]]; [[D&C 88.76|D&C 88:76]].
 
 [^15]: One of our hymns recounts that “Prayer is the soul’s sincere desire, / Uttered or unexpressed, / … The upward glancing of an eye / When none but God is near” (“Prayer Is the Soul’s Sincere Desire,” *Hymns,* no. 145).
 
 [^16]: As may be appropriate for the occasion.
 
-[^17]: For other helpful instruction, see Dallin H. Oaks, in Conference Report, Apr. 1993, 16–20; or *Ensign,* May 1993, 15–18.
+[^17]: For other helpful instruction, see Dallin H. Oaks, in Conference Report, Apr. 1993, [[1993 April - The Language of Prayer.md|16–20]]; or *Ensign,* May 1993, 15–18.
 
 [^18]: See *The American Heritage Dictionary of the English Language,* 4th ed. (2000), 57: “amen. … Used at the end of a prayer or a statement to express assent or approval. \[Middle English, from Old English, from Late Latin *amen,* from Greek, from Hebrew *‘amen,* certainly, verily, from *‘aman,* to be firm.\]”
 
 [^19]: [[D&C 90.24|D&C 90:24]]; emphasis added.
 
-[^20]: [[Alma 37.37|Alma 37:37]]; emphasis added. See also [[Mosiah 26.39|Mosiah 26:39]]; [[Alma 26.22|Alma 26:22]]. For comparable teaching from Paul, see [[1 Thessalonians 5.17|1 Thessalonians 5:17]].
+[^20]: [[Alma 37.37|Alma 37:37]]; emphasis added. See also [[Mosiah 26.39|Mosiah 26:39]]; [[Alma 26.22|Alma 26:22]]. For comparable teaching from Paul, see [[1 Thessalonians 5.17|1 Thessalonians 5:17]].
 
 [^21]: While his words may not have been quoted *verbatim,* this is an accurate representation of his declaration.
 
@@ -139,13 +163,13 @@ In the name of Jesus Christ, amen.
 
 [^24]: The Lord said, “If thou shalt ask, thou shalt receive revelation upon revelation, knowledge upon knowledge” ([[D&C 42.61|D&C 42:61]]). For an example, refer to section 9 of the Doctrine and Covenants. The Lord explained that “you must study it out in your mind; then you must ask me if it be right, and if it is right I will cause that your bosom shall burn within you; therefore, you shall feel that it is right. But if it be not right you shall have no such feelings, but you shall have a stupor of thought” ([[D&C 9.8|vv. 8–9]][[D&C 9.9|]]). See also [[Jacob 4.10|Jacob 4:10]].
 
-[^25]: See [[Exodus 15.26|Exodus 15:26]]; [[Deuteronomy 13.17|Deuteronomy 13:17–18]][[Deuteronomy 13.18|]]; [[1 Samuel 15.22|1 Samuel 15:22]]; [[Jeremiah 26.4|Jeremiah 26:4–6]][[Jeremiah 26.5|]][[Jeremiah 26.6|]]; [[Omni 1.13|Omni 1:13]]; [[D&C 41.1|D&C 41:1]]; [[D&C 133.16|133:16]].
+[^25]: See [[Exodus 15.26|Exodus 15:26]]; [[Deuteronomy 13.17|Deuteronomy 13:17–18]][[Deuteronomy 13.18|]]; [[1 Samuel 15.22|1 Samuel 15:22]]; [[Jeremiah 26.4|Jeremiah 26:4–6]][[Jeremiah 26.5|]][[Jeremiah 26.6|]]; [[Omni 1.13|Omni 1:13]]; [[D&C 41.1|D&C 41:1]]; [[D&C 133.16|133:16]].
 
 [^26]: See [[Joseph Smith History 1.15|Joseph Smith—History 1:15–20]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]].
 
 [^27]: See [[D&C 89.1|D&C 89]][[D&C 89.2|]][[D&C 89.3|]][[D&C 89.4|]][[D&C 89.5|]][[D&C 89.6|]][[D&C 89.7|]][[D&C 89.8|]][[D&C 89.9|]][[D&C 89.10|]][[D&C 89.11|]][[D&C 89.12|]][[D&C 89.13|]][[D&C 89.14|]][[D&C 89.15|]][[D&C 89.16|]][[D&C 89.17|]][[D&C 89.18|]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]].
 
-[^28]: See [Official Declaration 2](https://churchofjesuschrist.org/study/scriptures/dc-testament/od/2?lang=eng).
+[^28]: See [[Official Declaration 2.1|Official Declaration 2]].
 
 [^29]: See *Church News,* 1 Aug. 1998, 3, 12; 13 Mar. 1999, 9; 4 Mar. 2000, 7; 24 June 2000, 9.
 
@@ -160,7 +184,5 @@ In the name of Jesus Christ, amen.
 [^34]: [[D&C 25.12|D&C 25:12]].
 
 [^35]: *Hymns,* no. 337; music composed by Joseph Parry; tune: Swansea.
-
-
 
 #Faith #Music #Obedience #Prayer

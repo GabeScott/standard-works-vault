@@ -1,4 +1,3 @@
 # Bound [verb]
 
-
-*See* [[Bind, Bound.md|Bind]]
+*See also* [[Bind.md|Bind]]

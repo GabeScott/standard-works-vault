@@ -69,6 +69,4 @@ Our Heavenly Father lives. He also loves you and even knows you by name. Jesus i
 
 
 
-
-
-#Example #Missionary_Work #Obedience #Service
+#Example #MissionaryWork #Obedience #Service

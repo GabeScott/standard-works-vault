@@ -1,15 +1,14 @@
 # Stone
 
-
 *See also* [[Cornerstone.md|Cornerstone]]; [[Jesus Christ, Rock.md|Jesus Christ, Rock]]; [[Rock.md|Rock]]; [[Stony.md|Stony]]
 
 they had brick for *stone*, [[Genesis 11.3|Genesis 11:3]].
 
-Jacob ... took the *stone* that he had put for his pillows, [[Genesis 28.18|Genesis 28:18]].
+Jacob … took the *stone* that he had put for his pillows, [[Genesis 28.18|Genesis 28:18]].
 
 they sank into the bottom as a *stone*, [[Exodus 15.5|Exodus 15:5]].
 
-make me an altar ... not build it of hewn *stone*, [[Exodus 20.25|Exodus 20:25]].
+make me an altar … not build it of hewn *stone*, [[Exodus 20.25|Exodus 20:25]].
 
 congregation shall *stone* him with *stones*, [[Numbers 15.35|Numbers 15:35]].
 
@@ -41,7 +40,7 @@ lest thou dash thy foot against a *stone*, [[Psalms 91.12|Psalms 91:12]] ([[Matt
 
 *stone* is heavy, and the sand weighty, [[Proverbs 27.3|Proverbs 27:3]].
 
-I will lay thy *stones* ... and lay thy foundations, [[Isaiah 54.11|Isaiah 54:11]] ([[3 Nephi 22.11|3 Nephi 22:11]]).
+I will lay thy *stones* … and lay thy foundations, [[Isaiah 54.11|Isaiah 54:11]] ([[3 Nephi 22.11|3 Nephi 22:11]]).
 
 gather out the *stones*, [[Isaiah 62.10|Isaiah 62:10]].
 
@@ -69,7 +68,7 @@ great *stone* to the door of the sepulchre, [[Matthew 27.60|Matthew 27:60]] ([[J
 
 made the sepulchre sure, sealing the *stone*, [[Matthew 27.66|Matthew 27:66]].
 
-angel ... rolled back the *stone*, [[Matthew 28.2|Matthew 28:2]].
+angel … rolled back the *stone*, [[Matthew 28.2|Matthew 28:2]].
 
 *stone* was rolled away, [[Mark 16.4|Mark 16:4]] ([[Luke 24.2|Luke 24:2]]; [[John 20.1|John 20:1]]).
 
@@ -93,7 +92,7 @@ cast him out of the city, and *stoned* him, [[Acts 7.58|Acts 7:58]].
 
 having *stoned* Paul, drew him out of the city, [[Acts 14.19|Acts 14:19]].
 
-not to think that the Godhead is like unto ... *stone*, [[Acts 17.29|Acts 17:29]].
+not to think that the Godhead is like unto … *stone*, [[Acts 17.29|Acts 17:29]].
 
 not in tables of *stone*, but in fleshy tables of the heart, [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
@@ -105,25 +104,25 @@ give him a white *stone*, and in the *stone* a new name, [[Revelation 2.17|Revel
 
 he built an altar of *stones*, [[1 Nephi 2.7|1 Nephi 2:7]].
 
-slaying food by the way, with ... our *stones*, [[1 Nephi 16.15|1 Nephi 16:15]].
+slaying food by the way, with … our *stones*, [[1 Nephi 16.15|1 Nephi 16:15]].
 
 we will build with hewn *stones*, [[2 Nephi 19.10|2 Nephi 19:10]].
 
-cast out the prophets ... and *stone* them, [[2 Nephi 26.3|2 Nephi 26:3]] ([[3 Nephi 7.14|3 Nephi 7:14]]; [[Ether 8.25|Ether 8:25]]).
+cast out the prophets … and *stone* them, [[2 Nephi 26.3|2 Nephi 26:3]] ([[3 Nephi 7.14|3 Nephi 7:14]]; [[Ether 8.25|Ether 8:25]]).
 
 we have been *stoned*, [[Alma 26.29|Alma 26:29]].
 
-O that I had ... not killed the prophets, and *stoned* them, [[Helaman 13.33|Helaman 13:33]].
+O that I had … not killed the prophets, and *stoned* them, [[Helaman 13.33|Helaman 13:33]].
 
-Samuel ... they cast *stones* at him, [[Helaman 16.2|Helaman 16:2]].
+Samuel … they cast *stones* at him, [[Helaman 16.2|Helaman 16:2]].
 
-brother of Jared ... did molten out of a rock sixteen small *stones*, [[Ether 3.1|Ether 3:1]].
+brother of Jared … did molten out of a rock sixteen small *stones*, [[Ether 3.1|Ether 3:1]].
 
 these two *stones* will I give unto thee, [[Ether 3.23|Ether 3:23]].
 
-things ... written from that *stone* are not of me, [[D&C 28.11|D&C 28:11]].
+things … written from that *stone* are not of me, [[D&C 28.11|D&C 28:11]].
 
-white *stone* ... will become a Urim and Thummim, [[D&C 130.10|D&C 130:10]].
+white *stone* … will become a Urim and Thummim, [[D&C 130.10|D&C 130:10]].
 
 not bow down to worship gods of wood or of *stone*, [[Abraham 1.11|Abraham 1:11]].
 

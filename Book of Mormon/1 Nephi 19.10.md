@@ -11,7 +11,7 @@
 [^d]: [[Jesus Christ, Condescension of|TG Jesus Christ, Condescension of]].  
 [^e]: [[Jesus Christ, Betrayal of|TG Jesus Christ, Betrayal of]].  
 [^f]: [[3 Nephi 27.14|3 Ne. 27:14]]; [[3 Nephi 28.6|28:6]].  
-[^g]: [BD Lost books](https://www.churchofjesuschrist.org/study/scriptures/bd/lost-books?lang=eng). See also [[Alma 33.15|Alma 33:15]]; [[Alma 34.7|34:7]]; [[Helaman 8.19|Hel. 8:20 (19–20)]][[Helaman 8.20|]]; [[3 Nephi 10.15|3 Ne. 10:16 (15–16)]][[3 Nephi 10.16|]].  
+[^g]: [[BD Lost Books|BD Lost books]]. See also [[Alma 33.15|Alma 33:15]]; [[Alma 34.7|34:7]]; [[Helaman 8.19|Hel. 8:20 (19–20)]][[Helaman 8.20|]]; [[3 Nephi 10.15|3 Ne. 10:16 (15–16)]][[3 Nephi 10.16|]].  
 [^h]: [[2 Nephi 6.9|2 Ne. 6:9]]; [[Mosiah 3.9|Mosiah 3:9]]. [[Jesus Christ, Crucifixion of|TG Jesus Christ, Crucifixion of]].  
 [^i]: [[Matthew 27.60|Matt. 27:60]]; [[Luke 23.53|Luke 23:53]]; [[2 Nephi 25.13|2 Ne. 25:13]].  
 [^j]: [[Jacob 5.1|Jacob 5:1]]; [[Jacob 6.1|6:1]]; [[Helaman 15.11|Hel. 15:11]].  

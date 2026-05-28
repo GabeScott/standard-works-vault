@@ -6,7 +6,7 @@ By Elder Alexander B. Morrison - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1992/04/nourish-the-flock-of-christ?lang=eng)
 
-One of the abiding tragedies of Nephite society was its failure to maintain spiritual strength through constant spiritual nourishment. As strength waned, the effects of spiritual malnutrition were quick to be felt. In the book of Mosiah we read that during *one* period *of relative spiritual strength,* “there began to be much peace again in the land; …
+One of the abiding tragedies of Nephite society was its failure to maintain spiritual strength through constant spiritual nourishment. As strength waned, the effects of spiritual malnutrition were quick to be felt. In the book of Mosiah we read that during *one* period *of relative spiritual strength,* “there began to be much peace again in the land; …
 
 “And the Lord did visit them and prosper them” ([[Mosiah 27.6|Mosiah 27:6–7]][[Mosiah 27.7|]]).
 
@@ -38,7 +38,7 @@ Faithful servants of the master use the scriptures to learn and teach the grand 
 
 “All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness:
 
-“That the man of God may be perfect” ([[2 Timothy 3.16|2 Tim. 3:16–17]][[2 Timothy 3.17|]]).
+“That the man of God may be perfect” ([[2 Timothy 3.16|2 Tim. 3:16–17]][[2 Timothy 3.17|]]).
 
 The gift of the scriptures, which testify of Christ, is free to all. “Whosoever will may lay hold upon the word of God, which is quick and powerful, which shall divide asunder all the cunning and the snares and the wiles of the devil, and lead the man of Christ in a strait and narrow course across that everlasting gulf of misery which is prepared to engulf the wicked—
 
@@ -46,7 +46,7 @@ The gift of the scriptures, which testify of Christ, is free to all. “Whosoeve
 
 Christ is at the center of the scriptures. Said He of them, “Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me” ([[John 5.39|John 5:39]]).
 
-Indeed, *all* truth, both spiritual and temporal, testifies of Him. When we learn to read the “signs, and wonders, and types, and shadows” properly ([[Mosiah 3.15|Mosiah 3:15]]), with the eyes of faith, we will realize that all of history, all of science, all of nature, all divinely revealed knowledge of any sort testifies of Him. He is the very personification of truth and light, of life and love, of beauty and goodness. All that He did was done out of love. In Nephi’s words, “He doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him” ([[2 Nephi 26.24|2 Ne. 26:24]]).
+Indeed, *all* truth, both spiritual and temporal, testifies of Him. When we learn to read the “signs, and wonders, and types, and shadows” properly ([[Mosiah 3.15|Mosiah 3:15]]), with the eyes of faith, we will realize that all of history, all of science, all of nature, all divinely revealed knowledge of any sort testifies of Him. He is the very personification of truth and light, of life and love, of beauty and goodness. All that He did was done out of love. In Nephi’s words, “He doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him” ([[2 Nephi 26.24|2 Ne. 26:24]]).
 
 Faithful undershepherds nourish through commitment to sacred covenants which bind the children of God to their Father and His glorious Son. In a remarkable revelation given to the Prophet Joseph Smith on April 26, 1832, Jesus pointed out the supernal power of sacred and solemn agreements between man and God: “I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise” ([[D&C 82.10|D&C 82:10]]).
 
@@ -77,6 +77,4 @@ May we all love, care for, and serve each other that all may receive the bread o
 
 
 
-
-
-#Jesus_Christ #Spirituality
+#JesusChrist #Spirituality

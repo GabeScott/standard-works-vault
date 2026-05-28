@@ -30,7 +30,7 @@ Could not, should not, Father become the hero to his family? A father worthy of 
 
 First of all, a generous amount of your time is required—not a superficial moment here and there, not the tired and worn-out phrase, “We’ll talk about that later,” but an honest, generous piece of your day on a continuing basis, even at the sacrifice of things social, things personally entertaining, or even things financially rewarding. All of the money in the world, significant worldly accomplishments which may include the upper rungs of the success ladder, or the personal enjoyment of athletic and sporting activities, will not return you and your family intact to live with Heavenly Father.
 
-President Joseph F. Smith quoted from the Savior, as stated in Mark: “For what shall it profit a man, if he shall gain the whole world, and lose his own soul?” ([[Mark 8.36|Mark 8:36]]). Then President Smith continued: “What would it profit me, though I should go out into the world and win strangers to the fold of God and lose my own children? Oh! God, let me not lose my own. I can not afford to lose mine, whom God has given to me and whom I am responsible for before the Lord, and who are dependent upon me for guidance, for instruction, for proper influence” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], p. 462).
+President Joseph F. Smith quoted from the Savior, as stated in Mark: “For what shall it profit a man, if he shall gain the whole world, and lose his own soul?” ([[Mark 8.36|Mark 8:36]]). Then President Smith continued: “What would it profit me, though I should go out into the world and win strangers to the fold of God and lose my own children? Oh! God, let me not lose my own. I can not afford to lose mine, whom God has given to me and whom I am responsible for before the Lord, and who are dependent upon me for guidance, for instruction, for proper influence” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], p. 462).
 
 The salvation of our families will require all that we have to save all that we have. So you will make the time commitment. Great! Positive, wonderful benefits will begin to flow to you and your family almost immediately.
 
@@ -43,8 +43,6 @@ Finally, what better resource for direction could we have than a living prophet?
 Well, that’s it, Dad. You must become the family hero, worthy of not only their attention but their emulation. This will require your constant investment of sufficient time, complete emotional and physical fidelity, with unity of purpose between you and your eternal companion. This will require your constant dependency upon the Lord, demonstrated through scripture study and prayer. This will require that you follow the Brethren in every sense of the word—hearing, understanding, and doing. This simple formula will unite and strengthen your beloved family and bring countless blessings from our Father.
 
 May God bless all fathers to righteously obtain and maintain this patriarchal key to the blessing of families throughout the Church. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -6,7 +6,7 @@ By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/10/the-only-true-church?lang=eng)
 
-“We believe that a man must \[not could be, or might be, but must\] be called of God, by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof.” ([[Articles of Faith 1.5|A of F 1:5]].) In this manner we receive our commissions to move forward.
+“We believe that a man must \[not could be, or might be, but must\] be called of God, by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof.” ([[Articles of Faith 1.5|A of F 1:5]].) In this manner we receive our commissions to move forward.
 
 Today we have all participated in the sustaining of Elder M. Russell Ballard as a new member of the Quorum of the Twelve Apostles. I’m sure Brother Bruce R. McConkie, with whom Brother Ballard worked on a daily basis in missionary work, is rejoicing this day in what has transpired.
 
@@ -159,6 +159,4 @@ If we can stand without shame, without hesitancy, without embarrassment, without
 
 
 
-
-
-#Church_Organization #Jesus_Christ #Testimony
+#ChurchOrganization #JesusChrist #Testimony

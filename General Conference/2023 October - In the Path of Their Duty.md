@@ -14,9 +14,9 @@ I earnestly pray for the help of the Holy Ghost as I now express my love, admira
 
 The year 1947 marked the 100th anniversary of the first Latter-day Saint pioneers arriving in the Salt Lake Valley. Many memorable celebrations were held during that year, and countless expressions of gratitude were offered for the devoted disciples of Jesus Christ who blazed trails, built homes, planted crops in the barren desert, and settled communities.
 
-President J. Reuben Clark, First Counselor in the First Presidency, gave one of the most memorable and touching tributes to these faithful pioneers in the October 1947 general conference.
+President J. Reuben Clark, First Counselor in the First Presidency, gave one of the most memorable and touching tributes to these faithful pioneers in the October 1947 general conference.
 
-In his message, President Clark briefly acknowledged the well-known leaders who guided the westward migration, such as Brigham Young, Heber C. Kimball, Wilford Woodruff, Parley P. Pratt, and many others. However, his primary purpose was not to recount the accomplishments of these noteworthy individuals. Rather, he focused his remarks on the stalwart souls whose names are neither known nor officially recorded in Church history. The instructive title of his message is “They of the Last Wagon.”[^1]
+In his message, President Clark briefly acknowledged the well-known leaders who guided the westward migration, such as Brigham Young, Heber C. Kimball, Wilford Woodruff, Parley P. Pratt, and many others. However, his primary purpose was not to recount the accomplishments of these noteworthy individuals. Rather, he focused his remarks on the stalwart souls whose names are neither known nor officially recorded in Church history. The instructive title of his message is “They of the Last Wagon.”[^1]
 
 President Clark described in great detail the characteristics of and the challenges faced by the migrants who traveled in the last covered wagon in each of the long wagon trains that crossed the plains. He praised these anonymous and uncelebrated heroes who, day after day, week after week, and month after month, choked on the dust stirred up by all of the wagons rolling in front of them—and who overcame the relentless obstacles they encountered along the way.
 
@@ -26,7 +26,7 @@ He concluded his message with this stirring commendation: “To these humble sou
 
 ## No Less Serviceable
 
-In 1990, President Howard W. Hunter, then President of the Quorum of the Twelve Apostles, delivered a message about the indispensable contributions of countless Church members who serve diligently and faithfully and who receive little or no public acknowledgment or acclaim.
+In 1990, President Howard W. Hunter, then President of the Quorum of the Twelve Apostles, delivered a message about the indispensable contributions of countless Church members who serve diligently and faithfully and who receive little or no public acknowledgment or acclaim.
 
 President Hunter explained:
 
@@ -91,15 +91,15 @@ I joyfully witness that Heavenly Father and His Beloved Son live and Their promi
 
 
 
-[^1]: J. Reuben Clark, “They of the Last Wagon,” *Improvement Era*, Nov. 1947, 704–5, 747–48; see also J. Reuben Clark, in Conference Report, Oct. 1947, 154–60; “[To Them of the Last Wagon](https://churchofjesuschrist.org/study/ensign/1997/07/to-them-of-the-last-wagon?lang=eng),” *Ensign*, July 1997, 34–39.
+[^1]: J. Reuben Clark, “They of the Last Wagon,” *Improvement Era*, Nov. 1947, 704–5, 747–48; see also J. Reuben Clark, in Conference Report, Oct. 1947, 154–60; “[To Them of the Last Wagon](https://www.churchofjesuschrist.org/study/ensign/1997/07/to-them-of-the-last-wagon?lang=eng),” *Ensign*, July 1997, 34–39.
 
-[^2]: J. Reuben Clark, “They of the Last Wagon,” 705.
+[^2]: J. Reuben Clark, “They of the Last Wagon,” 705.
 
-[^3]: J. Reuben Clark, “They of the Last Wagon,” 748.
+[^3]: J. Reuben Clark, “They of the Last Wagon,” 748.
 
-[^4]: Howard W. Hunter, “No Less Serviceable” (Brigham Young University devotional, Sept. 2, 1990), 1–2, speeches.byu.edu.
+[^4]: Howard W. Hunter, “No Less Serviceable” (Brigham Young University devotional, Sept. 2, 1990), 1–2, speeches.byu.edu.
 
-[^5]: Howard W. Hunter, “No Less Serviceable,” 6.
+[^5]: Howard W. Hunter, “No Less Serviceable,” 6.
 
 [^6]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
@@ -111,13 +111,13 @@ I joyfully witness that Heavenly Father and His Beloved Son live and Their promi
 
 [^10]: See [[Moroni 10.30|Moroni 10:30, 32]][[Moroni 10.32|]].
 
-[^11]: [[1 Nephi 8.28|1 Nephi 8:28]].
+[^11]: [[1 Nephi 8.28|1 Nephi 8:28]].
 
 [^12]: See [[D&C 64.33|Doctrine and Covenants 64:33]].
 
 [^13]: [[D&C 109.24|Doctrine and Covenants 109:24]].
 
-[^14]: [[1 Nephi 10.3|1 Nephi 10:3]]; see also [[3 Nephi 5.25|3 Nephi 5:25]]; [[3 Nephi 20.29|20:29]].
+[^14]: [[1 Nephi 10.3|1 Nephi 10:3]]; see also [[3 Nephi 5.25|3 Nephi 5:25]]; [[3 Nephi 20.29|20:29]].
 
 [^15]: [[Psalms 30.5|Psalm 30:5]].
 
@@ -131,16 +131,14 @@ I joyfully witness that Heavenly Father and His Beloved Son live and Their promi
 
 [^20]: [[Mark 9.36|Mark 9:36–37]][[Mark 9.37|]].
 
-[^21]: Julie B. Beck, “Choose Ye This Day to Serve the Lord” (Brigham Young University Women’s Conference, Apr. 29, 2010), 4, womensconference.byu.edu.
+[^21]: Julie B. Beck, “Choose Ye This Day to Serve the Lord” (Brigham Young University Women’s Conference, Apr. 29, 2010), 4, womensconference.byu.edu.
 
-[^22]: See Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 15–18.
+[^22]: See Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 15–18.
 
 [^23]: [[Omni 1.26|Omni 1:26]].
 
 [^24]: [[Helaman 3.35|Helaman 3:35]].
 
 [^25]: [[D&C 121.29|Doctrine and Covenants 121:29]].
-
-
 
 #Covenants #Discipleship #Duty #Endurance #Pioneers #Service

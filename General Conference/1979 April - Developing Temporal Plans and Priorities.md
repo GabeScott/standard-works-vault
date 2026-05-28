@@ -1,6 +1,6 @@
 # Developing Temporal Plans and Priorities
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -97,8 +97,6 @@ The results today are that a chapel is under construction with most of the work 
 Now may I turn to an example here in the United States where conditions are considerably different. The Georgia-Alabama multiregion undertook the seven-step process of master planning. After the plan was approved at headquarters, it was implemented through the Welfare Services director, his agents, and in concert with stake welfare services committees and the two region councils that comprise this multiregion. In the fifteen succeeding months, they have acquired twenty-three production projects. Previously they had none. They have raised funds for a storehouse which is presently under construction and should be open by late summer. An LDS Social Services office has also been opened. Bishops have been better trained in caring for the needy, and the Saints have felt a great upsurge of security by being a part of this effort. They all have less need to fear than they had fifteen months ago, for the Lord said, “If ye are prepared ye shall not fear” ([[D&C 38.30|D&C 38:30]]).
 
 As we witness what takes place when priesthood and temporal leaders first catch the vision of what the Lord expects, then, working in the proper councils, plan well, and then execute the plan, we see the fulfillment of the teachings of modern prophets as well as those of ancient times. May we go forth from this conference with a desire to “learn \[our\] duty, and … act in the office in which \[we are\] appointed, in all diligence” ([[D&C 107.99|D&C 107:99]]). I pray. In the name of Jesus Christ, amen.
-
-
 
 
 

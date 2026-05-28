@@ -1,4 +1,3 @@
 # Jesus Christ, Testimony of
 
-
-*See* [[Testimony.md|Testimony]]
+*See also* [[Testimony.md|Testimony]]

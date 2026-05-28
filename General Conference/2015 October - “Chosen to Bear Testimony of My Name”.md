@@ -1,6 +1,6 @@
 # “Chosen to Bear Testimony of My Name”
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -8,11 +8,11 @@ By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/10/chosen-to-bear-testimony-of-my-name?lang=eng)
 
-In 1996 President Gordon B. Hinckley appeared on the national television news program *60 Minutes.* Mike Wallace, an experienced and tenacious journalist, interviewed President Hinckley about a number of important topics.
+In 1996 President Gordon B. Hinckley appeared on the national television news program *60 Minutes.* Mike Wallace, an experienced and tenacious journalist, interviewed President Hinckley about a number of important topics.
 
 Near the end of their conversation, Mr. Wallace remarked, “There are those who say, ‘This is a gerontocracy. This is a church run by old men.’”
 
-President Hinckley responded cheerfully and without hesitation, “Isn’t it wonderful to have a man of maturity at the head, a man of judgment who isn’t blown about by every wind of doctrine?” (broadcast on Apr. 7, 1996).
+President Hinckley responded cheerfully and without hesitation, “Isn’t it wonderful to have a man of maturity at the head, a man of judgment who isn’t blown about by every wind of doctrine?” (broadcast on Apr. 7, 1996).
 
 My purpose is to explain why indeed it is wonderful to have older men of great spiritual maturity and judgment serving in the senior leadership positions of the restored Church of Jesus Christ—and why we should “hear” and “hearken” ([[Mosiah 2.9|Mosiah 2:9]]) to the teachings of these men whom the Lord has “chosen to bear testimony of \[His\] name … among all nations, kindreds, tongues, and people” ([[D&C 112.1|D&C 112:1]]).
 
@@ -22,7 +22,7 @@ I pray we may all be instructed by the Holy Ghost as we consider together this s
 
 I speak about this topic from a decidedly distinctive perspective. For the last 11 years, I have been the youngest member of the Twelve in terms of chronological age. During my years of service, the average age of the men serving in the First Presidency and the Quorum of the Twelve Apostles has been 77 years—the oldest average age of the Apostles over an 11-year interval in this dispensation.
 
-I have been blessed by the collective apostolic, personal, and professional experience and insight of the quorum members with whom I serve. An example from my association with Elder Robert D. Hales highlights the remarkable opportunities I have to learn from and serve with these leaders.
+I have been blessed by the collective apostolic, personal, and professional experience and insight of the quorum members with whom I serve. An example from my association with Elder Robert D. Hales highlights the remarkable opportunities I have to learn from and serve with these leaders.
 
 Several years ago I spent a Sunday afternoon with Elder Hales in his home as he was recovering from a serious illness. We discussed our families, our quorum responsibilities, and important experiences.
 
@@ -52,13 +52,13 @@ I am blessed to observe on a daily basis the individual personalities, capacitie
 
 ## An Additional Lesson
 
-I have now witnessed six of my Brethren receive a transfer through physical death to new responsibilities in the spirit world: President James E. Faust, President Gordon B. Hinckley, Elder Joseph B. Wirthlin, Elder L. Tom Perry, President Boyd K. Packer, and Elder Richard G. Scott.
+I have now witnessed six of my Brethren receive a transfer through physical death to new responsibilities in the spirit world: President James E. Faust, President Gordon B. Hinckley, Elder Joseph B. Wirthlin, Elder L. Tom Perry, President Boyd K. Packer, and Elder Richard G. Scott.
 
 These valiant Brethren devoted their “whole souls” ([[Omni 1.26|Omni 1:26]]) to testifying of the name of Jesus Christ in all the world. The totality of their teachings is priceless.
 
 These servants shared with us in the concluding years of their mortal ministries powerful spiritual summaries of lessons learned through decades of consecrated service. These leaders imparted truths of great worth at a time when some may believe they had the least to give.
 
-Consider the final teachings of great prophets in the scriptures. For example, Nephi concluded his record with these words: “For thus hath the Lord commanded me, and I must obey” ([[2 Nephi 33.15|2 Nephi 33:15]]).
+Consider the final teachings of great prophets in the scriptures. For example, Nephi concluded his record with these words: “For thus hath the Lord commanded me, and I must obey” ([[2 Nephi 33.15|2 Nephi 33:15]]).
 
 Near the end of his life, Jacob admonished:
 
@@ -74,7 +74,7 @@ I am not suggesting the final messages of these beloved men necessarily were the
 
 In his last general conference address, in April of 2007, President Faust declared:
 
-“The Savior has offered to all of us a precious peace through His Atonement, but this can come only as we are willing to cast out negative feelings of anger, spite, or revenge. …
+“The Savior has offered to all of us a precious peace through His Atonement, but this can come only as we are willing to cast out negative feelings of anger, spite, or revenge. …
 
 “Let us remember that we need to forgive to be forgiven. … With all my heart and soul, I believe in the healing power that can come to us as we follow the counsel of the Savior ‘to forgive all men’ \[[[D&C 64.10|D&C 64:10]]\]” (“The Healing Power of Forgiveness,” *Ensign* or *Liahona,* May 2007, 69).
 
@@ -88,7 +88,7 @@ Elder Wirthlin delivered his final general conference message in October of 2008
 
 “I still remember \[my mother’s\] advice to me given on that day long ago when my team lost a football game: ‘Come what may, and love it.’
 
-“… Adversity, if handled correctly, can be a blessing in our lives. …
+“… Adversity, if handled correctly, can be a blessing in our lives. …
 
 “As we look for humor, seek for the eternal perspective, understand the principle of compensation, and draw near to our Heavenly Father, we can endure hardship and trial. We can say, as did my mother, ‘Come what may, and love it’” (“Come What May, and Love It,” *Ensign* or *Liahona,* Nov. 2008, 28).
 
@@ -104,7 +104,7 @@ Elder Perry’s message is a powerful lesson of a lifetime from a man I love and
 
 President Packer emphasized in general conference six months ago the Father’s plan of happiness, the Savior’s Atonement, and eternal families:
 
-“I bear witness that Jesus is the Christ and the Son of the living God. He stands at the head of the Church. Through His Atonement and the power of the priesthood, families which are begun in mortality can be together through the eternities. …
+“I bear witness that Jesus is the Christ and the Son of the living God. He stands at the head of the Church. Through His Atonement and the power of the priesthood, families which are begun in mortality can be together through the eternities. …
 
 “I am so grateful for … the Atonement which can wash clean every stain no matter how difficult or how long or how many times repeated. The Atonement can put you free again to move forward, cleanly and worthily” (“The Plan of Happiness,” *Ensign* or *Liahona,* May 2015, 28).
 
@@ -123,6 +123,4 @@ With all the energy of my soul, I witness the resurrected and living Christ dire
 
 
 
-
-
-#Church_Organization #Prophets
+#ChurchOrganization #Prophets

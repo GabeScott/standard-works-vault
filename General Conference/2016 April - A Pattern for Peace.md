@@ -1,6 +1,6 @@
 # A Pattern for Peace
 
-By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
+By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -12,7 +12,7 @@ A few years ago, our daughter and son-in-law were asked to team teach a Primary 
 
 During one especially rough class, after a number of warnings to an energetic little boy, our son-in-law escorted the four-year-old out of the classroom. Once outside the room, and about to talk to the little boy about his behavior and the need to find his parents, the little boy stopped our son-in-law before he could say a word and, with his hand up in the air, and with great emotion, blurted out, “Sometimes—sometimes—it’s just hard for me to think about Jesus!”
 
-In our journey through mortality, as glorious as our intended destination may be and as exhilarating as the journey may prove, we will all be subject to trials and sorrow along the way. Elder Joseph B. Wirthlin taught: “The dial on the wheel of sorrow eventually points to each of us. At one time or another, everyone must experience sorrow. No one is exempt.”[^1] “The Lord in His wisdom does not shield anyone from grief or sadness.”[^2] However, our ability to travel this road in peace is, in large part, dependent on whether or not we too have a hard time thinking about Jesus.
+In our journey through mortality, as glorious as our intended destination may be and as exhilarating as the journey may prove, we will all be subject to trials and sorrow along the way. Elder Joseph B. Wirthlin taught: “The dial on the wheel of sorrow eventually points to each of us. At one time or another, everyone must experience sorrow. No one is exempt.”[^1] “The Lord in His wisdom does not shield anyone from grief or sadness.”[^2] However, our ability to travel this road in peace is, in large part, dependent on whether or not we too have a hard time thinking about Jesus.
 
 Peace of mind, peace of conscience, and peace of heart are not determined by our ability to avoid trials, sorrow, or heartache. Despite our sincere pleas, not every storm will change course, not every infirmity will be healed, and we may not fully understand every doctrine, principle, or practice taught by prophets, seers, and revelators. Nevertheless, we have been promised peace—with a condition attached.
 
@@ -28,7 +28,7 @@ In Isaiah we read, “And many people shall go and say, Come ye, and let us go u
 
 In the ever-increasing number of temples dotting the earth, we learn of Jesus Christ and His role in the Father’s plan as the Creator of this world, as our Savior and Redeemer, and as the source of our peace.
 
-President Thomas S. Monson has taught: “The world can be a challenging and difficult place in which to live. … As you and I go to the holy houses of God, as we remember the covenants we make within, we will be more able to bear every trial and to overcome each temptation. In this sacred sanctuary we will find peace.”[^7]
+President Thomas S. Monson has taught: “The world can be a challenging and difficult place in which to live. … As you and I go to the holy houses of God, as we remember the covenants we make within, we will be more able to bear every trial and to overcome each temptation. In this sacred sanctuary we will find peace.”[^7]
 
 During a stake conference assignment a few years ago while serving in South America, I met a couple that was grieving the recent death of their infant son.
 
@@ -42,23 +42,23 @@ Sunday afternoon, following the conference, I met with Sister Tumiri and explain
 
 Sister Tumiri, though heartbroken by the death of her son, left our meeting with tears of gratitude and filled with peace because of the sacred ordinances of the temple, made possible by our Savior and Redeemer.
 
-Each time we attend the temple—in all that we hear, do, and say; in every ordinance in which we participate; and in every covenant that we make—we are pointed to Jesus Christ. We feel peace as we hear His words and learn from His example. President Gordon B. Hinckley taught, “Go to the house of the Lord and there feel of His Spirit and commune with Him and you will know a peace that you will find nowhere else.”[^8]
+Each time we attend the temple—in all that we hear, do, and say; in every ordinance in which we participate; and in every covenant that we make—we are pointed to Jesus Christ. We feel peace as we hear His words and learn from His example. President Gordon B. Hinckley taught, “Go to the house of the Lord and there feel of His Spirit and commune with Him and you will know a peace that you will find nowhere else.”[^8]
 
 ## Second Step: “Listen to My Words”
 
 In the Doctrine and Covenants we read, “Whether by mine own voice or by the voice of my servants, it is the same.”[^9] From the days of Adam and down through the ages to our current prophet, Thomas Spencer Monson, the Lord has spoken through His authorized representatives. Those who choose to listen and give heed to the words of the Lord, as delivered through His prophets, will find safety and peace.
 
-In the Book of Mormon we find many examples of the importance of following prophetic counsel and standing with the prophet, including a lesson learned from Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi chapter 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]]. Never has the great and spacious building been more crowded or the noise coming from its open windows more misguided, mocking, and confusing than in our day. In this passage we read of two groups of people and their responses to the shouts from the building.
+In the Book of Mormon we find many examples of the importance of following prophetic counsel and standing with the prophet, including a lesson learned from Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi chapter 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]]. Never has the great and spacious building been more crowded or the noise coming from its open windows more misguided, mocking, and confusing than in our day. In this passage we read of two groups of people and their responses to the shouts from the building.
 
-Beginning in [[1 Nephi 8.26|verse 26]], we read:
+Beginning in [[1 Nephi 8.26|verse 26]], we read:
 
-“And I also cast my eyes round about, and beheld, on the other side of the river of water, a great and spacious building. …
+“And I also cast my eyes round about, and beheld, on the other side of the river of water, a great and spacious building. …
 
 “And it was filled with people, … and they were in the attitude of mocking and pointing their fingers towards those who had come … and were partaking of the fruit.
 
 “And after they had *tasted* of the fruit they were ashamed, because of those that were scoffing at them; and they fell away into forbidden paths and were lost.”[^10]
 
-In [[1 Nephi 8.33|verse 33]] we read of others who had a different response to the scoffing and mocking coming from the building. The prophet Lehi explains that those in the building “did point the finger of scorn at me and those that were *partaking* of the fruit also; but we heeded them not.”[^11]
+In [[1 Nephi 8.33|verse 33]] we read of others who had a different response to the scoffing and mocking coming from the building. The prophet Lehi explains that those in the building “did point the finger of scorn at me and those that were *partaking* of the fruit also; but we heeded them not.”[^11]
 
 A key difference between those who were ashamed, fell away, and were lost and those who did not heed the mocking from the building and stood with the prophet is found in two phrases: first, “after they had *tasted,*” and second, “those that were *partaking.*”
 
@@ -80,13 +80,13 @@ Alma the Younger was compelled to confront his sins when visited by an angel of 
 
 “My soul was harrowed up to the greatest degree and racked with all my sins.
 
-“… Yea, I saw that I had rebelled against my God, and that I had not kept his holy commandments.”[^15]
+“… Yea, I saw that I had rebelled against my God, and that I had not kept his holy commandments.”[^15]
 
 As serious as his sins were, and in the midst of this ordeal, he continues:
 
 “I remembered also to have heard my father prophesy unto the people concerning the coming of one Jesus Christ, a Son of God, to atone for the sins of the world.
 
-“… I cried within my heart: O Jesus, thou Son of God, have mercy on me.”[^16]
+“… I cried within my heart: O Jesus, thou Son of God, have mercy on me.”[^16]
 
 “And never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But behold, I did cry unto him and *I did find peace to my soul.*”[^17]
 
@@ -99,9 +99,9 @@ I testify that Jesus Christ is “the way, the truth, and the life”[^18] and t
 
 
 
-[^1]: Joseph B. Wirthlin, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” *Ensign* or *Liahona,* Nov. 2008, 27.
+[^1]: Joseph B. Wirthlin, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” *Ensign* or *Liahona,* Nov. 2008, 27.
 
-[^2]: Joseph B. Wirthlin, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” 26.
+[^2]: Joseph B. Wirthlin, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” 26.
 
 [^3]: [[John 16.33|John 16:33]]; emphasis added.
 
@@ -111,19 +111,19 @@ I testify that Jesus Christ is “the way, the truth, and the life”[^18] and t
 
 [^6]: [[Isaiah 2.3|Isaiah 2:3]].
 
-[^7]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 93.
+[^7]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 93.
 
-[^8]: Gordon B. Hinckley, in “[Rejoice in the Blessings of the Temple](https://churchofjesuschrist.org/study/liahona/2002/12/rejoice-in-the-blessings-of-the-temple?lang=eng),” *Ensign,* Dec. 2002, 63; *Liahona,* Dec. 2002, 33.
+[^8]: Gordon B. Hinckley, in “[Rejoice in the Blessings of the Temple](https://www.churchofjesuschrist.org/study/liahona/2002/12/rejoice-in-the-blessings-of-the-temple?lang=eng),” *Ensign,* Dec. 2002, 63; *Liahona,* Dec. 2002, 33.
 
 [^9]: [[D&C 1.38|Doctrine and Covenants 1:38]].
 
-[^10]: [[1 Nephi 8.26|1 Nephi 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]; emphasis added.
+[^10]: [[1 Nephi 8.26|1 Nephi 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]; emphasis added.
 
-[^11]: [[1 Nephi 8.33|1 Nephi 8:33]]; emphasis added.
+[^11]: [[1 Nephi 8.33|1 Nephi 8:33]]; emphasis added.
 
 [^12]: “Keep the Commandments,” *Children’s Songbook,* 147; emphasis added.
 
-[^13]: [[1 John 1.8|1 John 1:8]].
+[^13]: [[1 John 1.8|1 John 1:8]].
 
 [^14]: [[Isaiah 1.18|Isaiah 1:18]].
 
@@ -133,5 +133,6 @@ I testify that Jesus Christ is “the way, the truth, and the life”[^18] and t
 
 [^17]: [[Alma 38.8|Alma 38:8]]; emphasis added.
 
+[^18]: [[John 14.6|John 14:6]].
 
-#Adversity #Atonement #Covenants #Jesus_Christ #Peace #Prophets #Repentance #Temples
+#Adversity #Atonement #Covenants #JesusChrist #Peace #Prophets #Repentance #Temples

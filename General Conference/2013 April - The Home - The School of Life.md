@@ -1,6 +1,6 @@
 # The Home: The School of Life
 
-By Elder Enrique R. Falabella - *Of the Seventy*
+By Elder Enrique R. Falabella - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -18,7 +18,7 @@ As I travel back to the past on the wings of my memory, I recall cherished momen
 
 When I returned from my mission, I met a beautiful young woman with long black hair down to her waist. She had beautiful, big honey eyes and a contagious smile. She captivated me from the first moment I saw her.
 
-My wife had set the goal to get married in the temple, although back then the nearest temple required a trip of over 4,000 miles (6,400 km).
+My wife had set the goal to get married in the temple, although back then the nearest temple required a trip of over 4,000 miles (6,400 km).
 
 Our civil marriage ceremony was both happy and sad, for we were married with an expiration date. The officer pronounced the words “And now I declare you husband and wife,” but immediately after, he said, “until death do you part.”
 
@@ -123,9 +123,9 @@ These and many other lessons are learned in a home—the place that can become a
 
 [^4]: [[D&C 25.12|Doctrine and Covenants 25:12]].
 
-[^5]: “I Am a Child of God,” *Hymns,* no. 301.
+[^5]: “I Am a Child of God,” *Hymns,* no. 301.
 
-[^6]: [[Matthew 3.17|Matthew 3:17]]; see also [[Mark 1.11|Mark 1:11]]; [[3 Nephi 11.7|3 Nephi 11:7]].
+[^6]: [[Matthew 3.17|Matthew 3:17]]; see also [[Mark 1.11|Mark 1:11]]; [[3 Nephi 11.7|3 Nephi 11:7]].
 
 [^7]: [[John 5.39|John 5:39]].
 
@@ -133,8 +133,6 @@ These and many other lessons are learned in a home—the place that can become a
 
 [^9]: [[Matthew 7.24|Matthew 7:24]].
 
-[^10]: See *Teachings of Presidents of the Church: David O. McKay* (2003), 43, 150.
-
-
+[^10]: See *Teachings of Presidents of the Church: David O. McKay* (2003), 43, 150.
 
 #Children #Family #Home #Marriage #Scriptures

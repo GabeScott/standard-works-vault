@@ -34,7 +34,7 @@ I think of them whenever I read the words: “Anger doesn’t solve anything. It
 
 We’ve all felt anger. It can come when things don’t turn out the way we want. It might be a reaction to something which is said of us or to us. We may experience it when people don’t behave the way we want them to behave. Perhaps it comes when we have to wait for something longer than we expected. We might feel angry when others can’t see things from our perspective. There seem to be countless possible reasons for anger.
 
-There are times when we can become upset at imagined hurts or perceived injustices. President Heber J. Grant, seventh President of the Church, told of a time as a young adult when he did some work for a man who then sent him a check for $500 with a letter apologizing for not being able to pay him more. Then President Grant did some work for another man—work which he said was 10 times more difficult, involving 10 times more labor and a great deal more time. This second man sent him a check for $150. Young Heber felt he had been treated most unfairly. He was at first insulted and then incensed.
+There are times when we can become upset at imagined hurts or perceived injustices. President Heber J. Grant, seventh President of the Church, told of a time as a young adult when he did some work for a man who then sent him a check for $500 with a letter apologizing for not being able to pay him more. Then President Grant did some work for another man—work which he said was 10 times more difficult, involving 10 times more labor and a great deal more time. This second man sent him a check for $150. Young Heber felt he had been treated most unfairly. He was at first insulted and then incensed.
 
 He recounted the experience to an older friend, who asked, “Did that man intend to insult you?”
 
@@ -42,11 +42,11 @@ President Grant replied, “No. He told my friends he had rewarded me handsomely
 
 To this the older friend replied, “A man’s a fool who takes an insult that isn’t intended.”[^3]
 
-The Apostle Paul asks in [[Ephesians 4.note26a|Ephesians, chapter 4, verse 26 of the Joseph Smith Translation]]: “Can ye be angry, and not sin? let not the sun go down upon your wrath.” I ask, is it possible to feel the Spirit of our Heavenly Father when we are angry? I know of no instance where such would be the case.
+The Apostle Paul asks in [Ephesians, chapter 4, verse 26 of the Joseph Smith Translation](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4?lang=eng&id=note26a#note26a): “Can ye be angry, and not sin? let not the sun go down upon your wrath.” I ask, is it possible to feel the Spirit of our Heavenly Father when we are angry? I know of no instance where such would be the case.
 
-From 3 Nephi in the Book of Mormon, we read:
+From 3 Nephi in the Book of Mormon, we read:
 
-“There shall be no disputations among you. …
+“There shall be no disputations among you. …
 
 “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
@@ -56,7 +56,7 @@ To be angry is to yield to the influence of Satan. No one can *make* us angry. I
 
 Anger, Satan’s tool, is destructive in so many ways.
 
-I believe most of us are familiar with the sad account of Thomas B. Marsh and his wife, Elizabeth. Brother Marsh was one of the first modern-day Apostles called after the Church was restored to the earth. He eventually became President of the Quorum of the Twelve Apostles.
+I believe most of us are familiar with the sad account of Thomas B. Marsh and his wife, Elizabeth. Brother Marsh was one of the first modern-day Apostles called after the Church was restored to the earth. He eventually became President of the Quorum of the Twelve Apostles.
 
 While the Saints were in Far West, Missouri, Elizabeth Marsh, Thomas’s wife, and her friend Sister Harris decided they would exchange milk in order to make more cheese than they otherwise could. To be certain all was done fairly, they agreed that they should not save what were called the strippings, but that the milk and strippings should all go together. Strippings came at the end of the milking and were richer in cream.
 
@@ -64,9 +64,9 @@ Sister Harris was faithful to the agreement, but Sister Marsh, desiring to make 
 
 Thomas Marsh appealed to the high council, and the men comprising this council confirmed the bishop’s decision. He then appealed to the First Presidency of the Church. Joseph Smith and his counselors considered the case and upheld the decision of the high council.
 
-Elder Thomas B. Marsh, who sided with his wife through all of this, became angrier with each successive decision—so angry, in fact, that he went before a magistrate and swore that the Mormons were hostile toward the state of Missouri. His affidavit led to—or at least was a factor in—Governor Lilburn Boggs’s cruel extermination order, which resulted in over 15,000 Saints being driven from their homes, with all the terrible suffering and consequent death that followed. All of this occurred because of a disagreement over the exchange of milk and cream.[^5]
+Elder Thomas B. Marsh, who sided with his wife through all of this, became angrier with each successive decision—so angry, in fact, that he went before a magistrate and swore that the Mormons were hostile toward the state of Missouri. His affidavit led to—or at least was a factor in—Governor Lilburn Boggs’s cruel extermination order, which resulted in over 15,000 Saints being driven from their homes, with all the terrible suffering and consequent death that followed. All of this occurred because of a disagreement over the exchange of milk and cream.[^5]
 
-After 19 years of rancor and loss, Thomas B. Marsh made his way to the Salt Lake Valley and asked President Brigham Young for forgiveness. Brother Marsh also wrote to Heber C. Kimball, First Counselor in the First Presidency, of the lesson he had learned. Said Brother Marsh: “The Lord could get along very well without me and He … lost nothing by my falling out of the ranks; But O what have I lost?! Riches, greater riches than all this world or many planets like this could afford.”[^6]
+After 19 years of rancor and loss, Thomas B. Marsh made his way to the Salt Lake Valley and asked President Brigham Young for forgiveness. Brother Marsh also wrote to Heber C. Kimball, First Counselor in the First Presidency, of the lesson he had learned. Said Brother Marsh: “The Lord could get along very well without me and He … lost nothing by my falling out of the ranks; But O what have I lost?! Riches, greater riches than all this world or many planets like this could afford.”[^6]
 
 Apropos are the words of the poet John Greenleaf Whittier: “Of all sad words of tongue or pen, the saddest are these: ‘It might have been!’”[^7]
 
@@ -76,7 +76,7 @@ Many years ago I read the following Associated Press dispatch which appeared in 
 
 May we make a conscious decision, each time such a decision must be made, to refrain from anger and to leave unsaid the harsh and hurtful things we may be tempted to say.
 
-I love the words of the hymn written by Elder Charles W. Penrose, who served in the Quorum of the Twelve and in the First Presidency during the early years of the 20th century:
+I love the words of the hymn written by Elder Charles W. Penrose, who served in the Quorum of the Twelve and in the First Presidency during the early years of the 20th century:
 
 >School thy feelings, O my brother;
 >Train thy warm, impulsive soul.
@@ -113,13 +113,13 @@ Brethren, great promises await us if we are true and faithful to the oath and co
 
 [^2]: Lawrence Douglas Wilder, quoted in “Early Hardships Shaped Candidates,” *Deseret News,* Dec. 7, 1991, A2.
 
-[^3]: See Heber J. Grant, *Gospel Standards,* comp. G. Homer Durham (1941), 288–89.
+[^3]: See Heber J. Grant, *Gospel Standards,* comp. G. Homer Durham (1941), 288–89.
 
-[^4]: [[3 Nephi 11.28|3 Nephi 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].
+[^4]: [[3 Nephi 11.28|3 Nephi 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].
 
-[^5]: See George A. Smith, *Deseret News,* Apr. 16, 1856, 44.
+[^5]: See George A. Smith, *Deseret News,* Apr. 16, 1856, 44.
 
-[^6]: Thomas B. Marsh to Heber C. Kimball, May 5, 1857, Brigham Young Collection, Church History Library.
+[^6]: Thomas B. Marsh to Heber C. Kimball, May 5, 1857, Brigham Young Collection, Church History Library.
 
 [^7]: “Maud Muller,” *The Complete Poetical Works of John Greenleaf Whittier* (1876), 206.
 
@@ -129,6 +129,4 @@ Brethren, great promises await us if we are true and faithful to the oath and co
 
 [^10]: [[John 13.35|John 13:35]].
 
-
-
-#Anger #Priesthood #Self-Control #Sin
+#Anger #Priesthood #Self-control #Sin

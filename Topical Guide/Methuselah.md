@@ -1,4 +1,3 @@
 # Methuselah
 
-
-*See* [BD Methuselah](https://www.churchofjesuschrist.org/study/scriptures/bd/methuselah?lang=eng)
+*See also* [[BD Methuselah.md|BD Methuselah]]

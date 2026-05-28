@@ -1,6 +1,5 @@
 # Preeminence
 
-
 a man hath no *preeminence* above a beast, [[Ecclesiastes 3.19|Ecclesiastes 3:19]].
 
 that in all things he might have the *preeminence*, [[Colossians 1.18|Colossians 1:18]].

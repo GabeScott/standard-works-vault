@@ -1,6 +1,5 @@
 # New and Everlasting Covenant
 
-
 *See also* [[Covenants.md|Covenants]]; [[Gospel.md|Gospel]]
 
 remember the *everlasting covenant*, [[Genesis 9.16|Genesis 9:16]].
@@ -29,7 +28,7 @@ I have sent mine *everlasting covenant* into the world, [[D&C 45.9|D&C 45:9]] ([
 
 *everlasting covenant*, even the fulness of my gospel, [[D&C 66.2|D&C 66:2]] ([[D&C 133.57|D&C 133:57]]).
 
-received not ... the *everlasting covenant*, [[D&C 76.101|D&C 76:101]].
+received not … the *everlasting covenant*, [[D&C 76.101|D&C 76:101]].
 
 called unto mine *everlasting* gospel, and *covenant*, [[D&C 101.39|D&C 101:39]].
 
@@ -39,4 +38,4 @@ abide not that *covenant*, then are ye damned, [[D&C 132.4|D&C 132:4]].
 
 as pertaining to the *new and everlasting covenant*, [[D&C 132.6|D&C 132:6]].
 
-marry a wife by ... *new and everlasting covenant*, [[D&C 132.19|D&C 132:19]].
+marry a wife by … *new and everlasting covenant*, [[D&C 132.19|D&C 132:19]].

@@ -6,7 +6,7 @@ By Elder Carlos H. Amado - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1993/10/an-eternal-vision?lang=eng)
 
-*Servant* and *service* are common words in the restored church. Someone said, “The one who doesn’t live to serve doesn’t serve to live”—wise words which are applied to each priesthood holder. Another word to describe the priesthood is *service;* literally, every man who receives the priesthood is “called to serve.” The Apostle Peter said about you, “But ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people” ([[1 Peter 2.9|1 Pet. 2:9]]). I will illustrate with one story.
+*Servant* and *service* are common words in the restored church. Someone said, “The one who doesn’t live to serve doesn’t serve to live”—wise words which are applied to each priesthood holder. Another word to describe the priesthood is *service;* literally, every man who receives the priesthood is “called to serve.” The Apostle Peter said about you, “But ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people” ([[1 Peter 2.9|1 Pet. 2:9]]). I will illustrate with one story.
 
 María Coj was a seventeen-year-old member of the Church, the oldest of eight children. She was sick with cysticercosis, a parasitic infection that comes from eating contaminated food, that with time spread to her brain, causing terrible headaches and then blindness. To give her relief from the pain, it was necessary to move her from her home in Sololá to Guatemala City. Because of convulsions caused by the advances of the illness, her condition worsened, and it was only with life-support systems that she was kept alive. It was evident that she could not live long under those conditions.
 
@@ -26,7 +26,7 @@ In each priesthood holder should burn the personal conviction that the mission o
 
 He died at an early age; He was strong and young, of unlimited wisdom. When you are thirty-three, you will understand better. His sacrifice was painful but indispensable. He was the first to be resurrected, clothed in glory and eternal life.
 
-The atonement of the Son of God opened the possibility that all mankind could return to the presence of the Father. Now He teaches us, “Follow me, and do the things which ye have seen me do” ([[2 Nephi 31.12|2 Ne. 31:12]]).
+The atonement of the Son of God opened the possibility that all mankind could return to the presence of the Father. Now He teaches us, “Follow me, and do the things which ye have seen me do” ([[2 Nephi 31.12|2 Ne. 31:12]]).
 
 It will be your privilege to serve two years as a missionary with an eye single to glorify God and build His kingdom (see [[D&C 4.5|D&C 4:5]]). During that time, Christ will refine your spirit. He will mold your character and plant in your heart the principles that will permit you to live in righteousness and joy in this life and for eternity.
 
@@ -47,6 +47,4 @@ My beloved youth, I promise you that as you serve with faith as did Elder Coy, a
 
 
 
-
-
-#Faith #Missionary_Work #Spirituality #Testimony
+#Faith #MissionaryWork #Spirituality #Testimony

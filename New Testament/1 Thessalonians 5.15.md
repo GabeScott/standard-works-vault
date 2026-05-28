@@ -5,6 +5,6 @@
 [1 Thessalonians 5:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.15?lang=eng#p15)
 
 
-[^a]: [[Retribution|TG Retribution]].
-[^b]: [[Forbear, Forbearance|TG Forbear]].
-[^c]: [[Enemies, Enemy|TG Enemies]].
+[^a]: [[Retribution|TG Retribution]].  
+[^b]: [[Forbear, Forbearance|TG Forbear]].  
+[^c]: [[Enemies, Enemy|TG Enemies]].  

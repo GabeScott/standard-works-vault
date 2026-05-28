@@ -1,4 +1,3 @@
 # Zerubbabel
 
-
-*See* [BD Zerubbabel](https://www.churchofjesuschrist.org/study/scriptures/bd/zerubbabel?lang=eng)
+*See also* [[BD Zerubbabel.md|BD Zerubbabel]]

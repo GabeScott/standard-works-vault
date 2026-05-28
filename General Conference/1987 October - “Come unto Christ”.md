@@ -20,65 +20,65 @@ Let us consider some of the attributes of our Lord, as found in the Book of Morm
 
 He is *Alive:* “The life of the world, … a life which is endless” ([[Mosiah 16.9|Mosiah 16:9]]).
 
-He is *Constant:* “The same yesterday, today, and forever” ([[2 Nephi 27.23|2 Ne. 27:23]]).
+He is *Constant:* “The same yesterday, today, and forever” ([[2 Nephi 27.23|2 Ne. 27:23]]).
 
 He is the *Creator:* “He created all things, both in heaven and in earth” ([[Mosiah 4.9|Mosiah 4:9]]).
 
-He is the *Exemplar:* He “set the example. … He said unto the children of men: Follow thou me” ([[2 Nephi 31.9|2 Ne. 31:9, 10]][[2 Nephi 31.10|]]).
+He is the *Exemplar:* He “set the example. … He said unto the children of men: Follow thou me” ([[2 Nephi 31.9|2 Ne. 31:9, 10]][[2 Nephi 31.10|]]).
 
-He is *Generous:* “He commandeth none that they shall not partake of his salvation” ([[2 Nephi 26.24|2 Ne. 26:24]]).
+He is *Generous:* “He commandeth none that they shall not partake of his salvation” ([[2 Nephi 26.24|2 Ne. 26:24]]).
 
-He is *Godly:* He is God (see [[2 Nephi 27.23|2 Ne. 27:23]]).
+He is *Godly:* He is God (see [[2 Nephi 27.23|2 Ne. 27:23]]).
 
 He is *Good:* “All things which are good cometh of God” ([[Moroni 7.12|Moro. 7:12]]).
 
-He is *Gracious:* “He is full of grace” ([[2 Nephi 2.6|2 Ne. 2:6]]).
+He is *Gracious:* “He is full of grace” ([[2 Nephi 2.6|2 Ne. 2:6]]).
 
-He is the *Healer:* The “sick, and … afflicted with all manner of diseases … devils and unclean spirits … were healed by the power of the Lamb of God” ([[1 Nephi 11.31|1 Ne. 11:31]]).
+He is the *Healer:* The “sick, and … afflicted with all manner of diseases … devils and unclean spirits … were healed by the power of the Lamb of God” ([[1 Nephi 11.31|1 Ne. 11:31]]).
 
-He is *Holy:* “O how great the holiness of our God!” ([[2 Nephi 9.20|2 Ne. 9:20]]).
+He is *Holy:* “O how great the holiness of our God!” ([[2 Nephi 9.20|2 Ne. 9:20]]).
 
-He is *Humble:* “He humbleth himself before the Father” ([[2 Nephi 31.7|2 Ne. 31:7]]).
+He is *Humble:* “He humbleth himself before the Father” ([[2 Nephi 31.7|2 Ne. 31:7]]).
 
-He is *Joyful:* “The Father hath given” Him a “fulness of joy” ([[3 Nephi 28.10|3 Ne. 28:10]]).
+He is *Joyful:* “The Father hath given” Him a “fulness of joy” ([[3 Nephi 28.10|3 Ne. 28:10]]).
 
 He is our *Judge:* We “shall be brought to stand before the bar of God, to be judged of him” ([[Mosiah 16.10|Mosiah 16:10]]).
 
 He is *Just:* “The judgments of God are always just” ([[Mosiah 29.12|Mosiah 29:12]]).
 
-He is *Kind:* He has “loving kindness … towards the children of men” ([[1 Nephi 19.9|1 Ne. 19:9]]).
+He is *Kind:* He has “loving kindness … towards the children of men” ([[1 Nephi 19.9|1 Ne. 19:9]]).
 
-He is the *Lawgiver:* He “gave the law” ([[3 Nephi 15.5|3 Ne. 15:5]]).
+He is the *Lawgiver:* He “gave the law” ([[3 Nephi 15.5|3 Ne. 15:5]]).
 
 He is the *Liberator:* “There is no other head whereby ye can be made free” ([[Mosiah 5.8|Mosiah 5:8]]).
 
 He is the *Light:* “The light … of the world; yea, a light that is endless, that can never be darkened” ([[Mosiah 16.9|Mosiah 16:9]]).
 
-He is *Loving:* “He loveth the world, even that he layeth down his own life” ([[2 Nephi 26.24|2 Ne. 26:24]]).
+He is *Loving:* “He loveth the world, even that he layeth down his own life” ([[2 Nephi 26.24|2 Ne. 26:24]]).
 
-He is the *Mediator:* “The great Mediator of all men” ([[2 Nephi 2.27|2 Ne. 2:27]]).
+He is the *Mediator:* “The great Mediator of all men” ([[2 Nephi 2.27|2 Ne. 2:27]]).
 
-He is *Merciful:* There is a “multitude of his tender mercies” ([[1 Nephi 8.8|1 Ne. 8:8]]).
+He is *Merciful:* There is a “multitude of his tender mercies” ([[1 Nephi 8.8|1 Ne. 8:8]]).
 
-He is *Mighty:* “Mightier than all the earth” ([[1 Nephi 4.1|1 Ne. 4:1]]).
+He is *Mighty:* “Mightier than all the earth” ([[1 Nephi 4.1|1 Ne. 4:1]]).
 
-He is *Miraculous:* A “God of miracles” ([[2 Nephi 27.23|2 Ne. 27:23]]).
+He is *Miraculous:* A “God of miracles” ([[2 Nephi 27.23|2 Ne. 27:23]]).
 
-He is *Obedient:* Obedient unto the Father “in keeping his commandments” ([[2 Nephi 31.7|2 Ne. 31:7]]).
+He is *Obedient:* Obedient unto the Father “in keeping his commandments” ([[2 Nephi 31.7|2 Ne. 31:7]]).
 
 He is *Omnipotent:* He has “all power, both in heaven and in earth” ([[Mosiah 4.9|Mosiah 4:9]]).
 
-He is *Omniscient:* “The Lord knoweth all things from the beginning” ([[1 Nephi 9.6|1 Ne. 9:6]]).
+He is *Omniscient:* “The Lord knoweth all things from the beginning” ([[1 Nephi 9.6|1 Ne. 9:6]]).
 
-He is our *Redeemer:* “All mankind were in a lost and in a fallen state, and ever would be save they should rely on this Redeemer” ([[1 Nephi 10.6|1 Ne. 10:6]]).
+He is our *Redeemer:* “All mankind were in a lost and in a fallen state, and ever would be save they should rely on this Redeemer” ([[1 Nephi 10.6|1 Ne. 10:6]]).
 
-He is the *Resurrection:* He brought to pass “the resurrection of the dead, being the first that should rise” ([[2 Nephi 2.8|2 Ne. 2:8]]).
+He is the *Resurrection:* He brought to pass “the resurrection of the dead, being the first that should rise” ([[2 Nephi 2.8|2 Ne. 2:8]]).
 
-He is *Righteous:* “His ways are righteousness forever” ([[2 Nephi 1.19|2 Ne. 1:19]]).
+He is *Righteous:* “His ways are righteousness forever” ([[2 Nephi 1.19|2 Ne. 1:19]]).
 
-He is the *Ruler:* He rules “in the heavens above and in the earth beneath” ([[2 Nephi 29.7|2 Ne. 29:7]]).
+He is the *Ruler:* He rules “in the heavens above and in the earth beneath” ([[2 Nephi 29.7|2 Ne. 29:7]]).
 
-He is our *Savior:* “There is none other name given under heaven save it be this Jesus Christ … whereby man can be saved” ([[2 Nephi 25.20|2 Ne. 25:20]]).
+He is our *Savior:* “There is none other name given under heaven save it be this Jesus Christ … whereby man can be saved” ([[2 Nephi 25.20|2 Ne. 25:20]]).
 
 He is *Sinless:* He “suffereth temptation, and yieldeth not to the temptation” ([[Mosiah 15.5|Mosiah 15:5]]).
 
@@ -102,7 +102,7 @@ We have an increasing number who have been convinced, through the Book of Mormon
 
 Let us turn again to the Book of Mormon, this time to learn some principles about coming unto Christ, being committed to Him, centered in Him, and consumed in Him. We will quote but a few of the numerous passages on the matter.
 
-First we need to know that Christ invites us to come unto Him. “Behold, he sendeth an invitation unto all men, for the arms of mercy are extended towards them … . Yea, he saith: Come unto me and ye shall partake of the fruit of the tree of life” ([[Alma 5.33|Alma 5:33–34]][[Alma 5.34|]]).
+First we need to know that Christ invites us to come unto Him. “Behold, he sendeth an invitation unto all men, for the arms of mercy are extended towards them … . Yea, he saith: Come unto me and ye shall partake of the fruit of the tree of life” ([[Alma 5.33|Alma 5:33–34]][[Alma 5.34|]]).
 
 Come, for he stands “with open arms to receive you” ([[Mormon 6.17|Morm. 6:17]]).
 
@@ -116,13 +116,13 @@ In Moroni’s closing words written toward the end of the Nephite civilization, 
 
 Those who are committed to Christ “stand as witnesses of God at all times and in all things, and in all places” that they may be in “even until death” ([[Mosiah 18.9|Mosiah 18:9]]). They “retain the name” of Christ “written always” in their hearts ([[Mosiah 5.12|Mosiah 5:12]]). They take upon themselves “the name of Christ, having a determination to serve him to the end” ([[Moroni 6.3|Moro. 6:3]]).
 
-When we live a Christ-centered life, “we talk of Christ, we rejoice in Christ, we preach of Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]). We “receive the pleasing word of God, and feast upon his love” ([[Jacob 3.2|Jacob 3:2]]). Even when Nephi’s soul was grieved because of his iniquities, he said, “I know in whom I have trusted. My God hath been my support” ([[2 Nephi 4.19|2 Ne. 4:19–20]][[2 Nephi 4.20|]]).
+When we live a Christ-centered life, “we talk of Christ, we rejoice in Christ, we preach of Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]). We “receive the pleasing word of God, and feast upon his love” ([[Jacob 3.2|Jacob 3:2]]). Even when Nephi’s soul was grieved because of his iniquities, he said, “I know in whom I have trusted. My God hath been my support” ([[2 Nephi 4.19|2 Ne. 4:19–20]][[2 Nephi 4.20|]]).
 
 We remember Alma’s counsel: “Let all thy doings be unto the Lord, and whithersoever thou goest let it be in the Lord; yea, let all thy thoughts be directed unto the Lord; yea, let the affections of thy heart be placed upon the Lord forever. Counsel with the Lord in all thy doings” ([[Alma 37.36|Alma 37:36–37]][[Alma 37.37|]]).
 
 “Remember, remember,” said Helaman, “that it is upon the rock of our Redeemer, who is Christ, … that ye must build your foundation; that when the devil shall send forth his mighty winds, … \[they\] shall have no power over you to drag you down to the gulf of misery” ([[Helaman 5.12|Hel. 5:12]]).
 
-Nephi said, the Lord “hath filled me with his love, even unto the consuming of my flesh” ([[2 Nephi 4.21|2 Ne. 4:21]]). Those who are consumed in Christ “are made alive in Christ” ([[2 Nephi 25.25|2 Ne. 25:25]]). They “suffer no manner of afflictions, save it were swallowed up in the joy of Christ” ([[Alma 31.38|Alma 31:38]]). They are “clasped in the arms of Jesus” ([[Mormon 5.11|Morm. 5:11]]). Nephi said, “I glory in my Jesus, for he hath redeemed my soul” ([[2 Nephi 33.6|2 Ne. 33:6]]). Lehi said, “I am encircled about eternally in the arms of his love” ([[2 Nephi 1.15|2 Ne. 1:15]]).
+Nephi said, the Lord “hath filled me with his love, even unto the consuming of my flesh” ([[2 Nephi 4.21|2 Ne. 4:21]]). Those who are consumed in Christ “are made alive in Christ” ([[2 Nephi 25.25|2 Ne. 25:25]]). They “suffer no manner of afflictions, save it were swallowed up in the joy of Christ” ([[Alma 31.38|Alma 31:38]]). They are “clasped in the arms of Jesus” ([[Mormon 5.11|Morm. 5:11]]). Nephi said, “I glory in my Jesus, for he hath redeemed my soul” ([[2 Nephi 33.6|2 Ne. 33:6]]). Lehi said, “I am encircled about eternally in the arms of his love” ([[2 Nephi 1.15|2 Ne. 1:15]]).
 
 Now, my beloved brethren and sisters, let us read the Book of Mormon and be convinced that Jesus is the Christ. Let us continually reread the Book of Mormon so that we might more fully come to Christ, be committed to Him, centered in Him, and consumed in Him.
 
@@ -141,6 +141,4 @@ My prayer for each of us is that we too will follow that inspired counsel: “Be
 
 
 
-
-
-#Book_Of_Mormon #Jesus_Christ #Testimony
+#BookOfMormon #JesusChrist #Testimony

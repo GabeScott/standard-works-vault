@@ -20,7 +20,16 @@ Ours is the commandment and the blessing to “meet together oft, to fast and to
 
 Of course, our best friends are those with whom we live as members of our family. Loving parents, brothers and sisters, children, and the extended family help to shape our destiny. My best friend is Elisa—my eternal companion. She is the heart of our home and has inspired us to draw nearer to the Lord. “Motherhood is near to Divinity. It is the highest, holiest service to be assumed by mankind. It places her who honors its holy calling and service next to the angels.”[^3] Her service is exemplified by the words of a familiar hymn:
 
-Each life that touches ours for goodReflects thine own great mercy, Lord;Thou sendest blessings from aboveThru words and deeds of those who love.What greater gift dost thou bestow,What greater goodness can we knowThan Christlike friends, whose gentle waysStrengthen our faith, enrich our days.[^4]
+>Each life that touches ours for good
+>Reflects thine own great mercy, Lord;
+>Thou sendest blessings from above
+>Thru words and deeds of those who love.
+>
+>What greater gift dost thou bestow,
+>What greater goodness can we know
+>Than Christlike friends, whose gentle ways
+>Strengthen our faith, enrich our days.[^4]
+>
 
 The sweet companionship of eternal marriage is one of the greatest blessings God has granted to His children. Certainly, the many years I have shared with my beautiful companion have brought me the deepest joys of my life. From the beginning of time, marital companionship of husband and wife has been fundamental to our Heavenly Father’s great plan of happiness.
 
@@ -85,13 +94,13 @@ I bear you my witness that God lives, that He loves His children. I know that Go
 
 [^2]: [[Moroni 6.5|Moro. 6:5]].
 
-[^3]: “Message of the First Presidency,” in *Deseret News: Weekly Church Edition,* 3 Oct. 1942, 5. Quoted in Conference Report, Apr. 1974, 9; or *Ensign,* May 1974, 8. See also Gordon B. Hinckley, in Conference Report, Oct. 1996, 90–95; or *Ensign,* Nov. 1996, 67–70.
+[^3]: “Message of the First Presidency,” in *Deseret News: Weekly Church Edition,* 3 Oct. 1942, 5. Quoted in Conference Report, Apr. 1974, [[1974 April - Guidelines to Carry Forth the Work of God in Cleanliness.md|9]]; or *Ensign,* May 1974, 8. See also Gordon B. Hinckley, in Conference Report, Oct. 1996, [[1996 October - Women of the Church.md|90–95]]; or *Ensign,* Nov. 1996, 67–70.
 
 [^4]: “Each Life That Touches Ours for Good,” *Hymns,* no. 293.
 
 [^5]: See [[John 15.14|John 15:14]]; [[D&C 84.63|D&C 84:63]]; [[D&C 93.45|93:45]].
 
-[^6]: [[2 Corinthians 13.1|2 Cor. 13:1]]; [[D&C 6.28|D&C 6:28]].
+[^6]: [[2 Corinthians 13.1|2 Cor. 13:1]]; [[D&C 6.28|D&C 6:28]].
 
 [^7]: [[Luke 24.6|Luke 24:6]].
 
@@ -101,15 +110,15 @@ I bear you my witness that God lives, that He loves His children. I know that Go
 
 [^10]: [[Romans 15.1|Rom. 15:1]].
 
-[^11]: In Conference Report, Oct. 1996, 118; or *Ensign,* Nov. 1996, 86.
+[^11]: In Conference Report, Oct. 1996, [[1996 October - “Reach with a Rescuing Hand”.md|118]]; or *Ensign,* Nov. 1996, 86.
 
 [^12]: [[Mark 16.15|Mark 16:15]].
 
 [^13]: [[Alma 17.2|Alma 17:2]].
 
-[^14]: [[2 Nephi 31.19|2 Ne. 31:19–20]][[2 Nephi 31.20|]].
+[^14]: [[2 Nephi 31.19|2 Ne. 31:19–20]][[2 Nephi 31.20|]].
 
-[^15]: In Conference Report, Apr. 1997, 66; or *Ensign,* May 1997, 47.
+[^15]: In Conference Report, Apr. 1997, [[1997 April - Converts and Young Men.md|66]]; or *Ensign,* May 1997, 47.
 
 [^16]: See [[Moroni 6.4|Moro. 6:4]].
 
@@ -119,9 +128,9 @@ I bear you my witness that God lives, that He loves His children. I know that Go
 
 [^19]: See [[Alma 5.13|Alma 5:13]]; see also [[Alma 5.12|Alma 5:12, 14]][[Alma 5.14|]]; [[Mosiah 5.2|Mosiah 5:2]].
 
-[^20]: In Conference Report, Apr. 1997, 68; or *Ensign,* May 1997, 48.
+[^20]: In Conference Report, Apr. 1997, [[1997 April - Converts and Young Men.md|68]]; or *Ensign,* May 1997, 48.
 
-[^21]: See [[2 Nephi 2.11|2 Ne. 2:11]].
+[^21]: See [[2 Nephi 2.11|2 Ne. 2:11]].
 
 [^22]: See [[Luke 15.13|Luke 15:13]].
 
@@ -131,6 +140,4 @@ I bear you my witness that God lives, that He loves His children. I know that Go
 
 [^25]: *Hymns,* no. 152.
 
-
-
-#Blessings #Family #Fellowshipping #Friendship #Holy_Ghost #Home_Teaching #Love #Marriage #Missionary_Work #Pioneers #Prayer #Visiting_Teaching
+#Blessings #Family #Fellowshipping #Friendship #HolyGhost #HomeTeaching #Love #Marriage #MissionaryWork #Pioneers #Prayer #VisitingTeaching

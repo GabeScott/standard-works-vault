@@ -1,4 +1,3 @@
 # Ahungered
 
-
-*See* [[Hunger.md|Hunger]]
+*See also* [[Hunger.md|Hunger]]

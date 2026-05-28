@@ -12,19 +12,19 @@ Since being a very small boy, probably age five, I came to conference, and I rem
 
 A key document of the restoration of the gospel is a letter the Prophet Joseph Smith wrote in reply to a request of John Wentworth, editor of a Chicago newspaper. In the Wentworth letter, the Prophet wrote a “sketch of the rise, progress, persecution, and faith of the Latter-day Saints” (*History of the Church,* 4:535). It apparently was the first published account of principal events that occurred in the 36-year-period after the Prophet’s birth. The last part of the letter, the Articles of Faith, is a concise statement of fundamental beliefs of the Church. The fact that one heaven-inspired person rather than a council of scholars produced this remarkable document is another evidence of Joseph Smith’s divine calling (see *History of the Church,* 4:535 note).
 
-The last part of the thirteenth article of faith states, “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
+The last part of the thirteenth article of faith states, “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
 
 The word *seek* means to go in search of, try to discover, try to acquire. It requires an active, assertive approach to life. For example, Abraham “sought for the blessings of the fathers … and to be a greater follower of righteousness” ([[Abraham 1.2|Abr. 1:2]]). It is the opposite of passively waiting for something good to come to us, with no effort on our part.
 
 We can fill our lives with good, leaving no room for anything else. We have so much good from which to choose that we need never partake of evil. Elder Richard L. Evans declared: “There is evil in the world. There is also good. It is for us to learn and choose between the two; to increase in self-discipline, in competence, in kindness; to keep going—putting one foot in front of the other—one day, one hour, one moment, one task at a time” (*Thoughts for One Hundred Days,* 5 vols. \[Salt Lake City: Publishers Press, 1966–72\], 4:199).
 
-If we seek things that are virtuous and lovely, we surely will find them. Conversely, if we seek for evil, we will find that also. Lucifer understands how to tempt and drag many of our Heavenly Father’s children down to where he and his followers are. He rebelled and was cast out; he wants to make us as miserable as he is (see [[2 Nephi 2.18|2 Ne. 2:18]]).
+If we seek things that are virtuous and lovely, we surely will find them. Conversely, if we seek for evil, we will find that also. Lucifer understands how to tempt and drag many of our Heavenly Father’s children down to where he and his followers are. He rebelled and was cast out; he wants to make us as miserable as he is (see [[2 Nephi 2.18|2 Ne. 2:18]]).
 
 My message may be the opposite of the worldly message of Satan’s fallacy. Nephi described it when he wrote:
 
 “Many … shall say: Eat, drink, and be merry, for tomorrow we die; and it shall be well with us.
 
-“… Nevertheless, fear God—he will justify in committing a little sin; yea, lie a little, take the advantage of one … ; there is no harm in this; and do all these things, for tomorrow we die; and if it so be that we are guilty, God will beat us with a few stripes, and at last we shall be saved in the kingdom of God” ([[2 Nephi 28.7|2 Ne. 28:7–8]][[2 Nephi 28.8|]]).
+“… Nevertheless, fear God—he will justify in committing a little sin; yea, lie a little, take the advantage of one … ; there is no harm in this; and do all these things, for tomorrow we die; and if it so be that we are guilty, God will beat us with a few stripes, and at last we shall be saved in the kingdom of God” ([[2 Nephi 28.7|2 Ne. 28:7–8]][[2 Nephi 28.8|]]).
 
 Though we live in the world, we must not be of the world. For members of the Church, seeking the good is more than a lofty ideal. It is an obligation we accepted when we entered the waters of baptism; we renew it each time we partake of the sacrament. We must remember: “The Lord cannot look upon sin with the least degree of allowance;
 
@@ -42,15 +42,15 @@ We can seek to provide selfless service because of the love we have for our fell
 
 “On these two commandments hang all the law and the prophets” ([[Matthew 22.37|Matt. 22:37–40]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]).
 
-Regarding these two commandments, we read in the book of 1 John: “If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?
+Regarding these two commandments, we read in the book of 1 John: “If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?
 
-“And this commandment have we from him, That he who loveth God love his brother also” ([[1 John 4.20|1 Jn. 4:20–21]][[1 John 4.21|]]).
+“And this commandment have we from him, That he who loveth God love his brother also” ([[1 John 4.20|1 Jn. 4:20–21]][[1 John 4.21|]]).
 
-Serving others should become a natural part of the life of every follower of our Savior. When we subordinate personal interests out of love and give of ourselves with no thought of receiving in return, we are moving toward becoming true disciples. “The Lord has … commanded his people to care for the poor and needy. He said, ‘And remember in all things the poor and the needy, the sick and the afflicted, for he that doeth not these things, the same is not my disciple.’ ([[D&C 52.40|D&C 52:40]])” (*Providing in the Lord’s Way: A Leader’s Guide to Welfare* \[1990\], p. 3). In a stake I visited recently, the unemployment rate was high. However, the faithful Saints and leaders there have joined together in a liberal fast-offering contribution to make sure that no one goes without necessities.
+Serving others should become a natural part of the life of every follower of our Savior. When we subordinate personal interests out of love and give of ourselves with no thought of receiving in return, we are moving toward becoming true disciples. “The Lord has … commanded his people to care for the poor and needy. He said, ‘And remember in all things the poor and the needy, the sick and the afflicted, for he that doeth not these things, the same is not my disciple.’ ([[D&C 52.40|D&C 52:40]])” (*Providing in the Lord’s Way: A Leader’s Guide to Welfare* \[1990\], p. 3). In a stake I visited recently, the unemployment rate was high. However, the faithful Saints and leaders there have joined together in a liberal fast-offering contribution to make sure that no one goes without necessities.
 
 We should seek to become self-reliant, so far as possible, rather than depend on someone else to provide for us. Some people seem to have the notion that we have a right to everything in life without making any effort to produce it ourselves. Many believe the government and others should take care of us: they think they should provide food, health care, and housing. Of course, society must care for some of its people, but the general population should get away from the idea of depending on the government for things they can provide for themselves and their families.
 
-We should seek to be happy and cheerful and not allow Satan to overcome us with discouragement, despair, or depression. As President Benson said, “Of all people, we as Latter-day Saints should be the most optimistic and the least pessimistic” (“Do Not Despair,” *Ensign,* Oct. 1986, p. 2). Where sin is the cause of unhappiness, we need to repent and return to a righteous life because “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]). “You cannot do wrong and feel right. It is impossible.” (Ezra Taft Benson, “To ‘The Rising Generation,’” *New Era,* June 1986, p. 5).
+We should seek to be happy and cheerful and not allow Satan to overcome us with discouragement, despair, or depression. As President Benson said, “Of all people, we as Latter-day Saints should be the most optimistic and the least pessimistic” (“Do Not Despair,” *Ensign,* Oct. 1986, p. 2). Where sin is the cause of unhappiness, we need to repent and return to a righteous life because “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]). “You cannot do wrong and feel right. It is impossible.” (Ezra Taft Benson, “To ‘The Rising Generation,’” *New Era,* June 1986, p. 5).
 
 I believe happiness comes from a clear conscience and from being without guile or deception. It means avoiding jealousy and envy. It means cultivating peace in our homes and enjoying the peace in our hearts that righteousness brings. It comes from a knowledge and assurance, given by the Spirit, that the life we are pursuing accords with God’s will and is acceptable to him (see Joseph Smith, *Lectures on Faith,* 3:5). After all, the Prophet Joseph’s oft-quoted statement remains in force; he said, “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God” (*History of the Church,* 5:134–35). We need not feel depressed or discouraged about conditions in the world, for the Lord will help us find the good that will lead us to happiness.
 
@@ -76,13 +76,11 @@ As spirit children of our Heavenly Father, we should seek always to recognize th
 
 We should seek the Holy Ghost, who can be the constant companion of all members of the Church who are obedient and righteous. He can reveal all truth to us in our minds and in our hearts, comfort us in times of distress, prompt us in making correct choices and decisions, and help us purify ourselves from sin. I know of no greater blessing that can come to us in mortality than the companionship of the Holy Ghost.
 
-Surely we live in troubled times, but we can seek and obtain the good despite Satan’s temptations and snares. He cannot tempt us beyond our power to resist (see [[1 Corinthians 10.13|1 Cor. 10:13]]). When we seek “anything virtuous, lovely, or of good report or praiseworthy,” we are seeking to emulate the Savior and follow his teachings. Then we are on the path that can lead us to eternal life.
+Surely we live in troubled times, but we can seek and obtain the good despite Satan’s temptations and snares. He cannot tempt us beyond our power to resist (see [[1 Corinthians 10.13|1 Cor. 10:13]]). When we seek “anything virtuous, lovely, or of good report or praiseworthy,” we are seeking to emulate the Savior and follow his teachings. Then we are on the path that can lead us to eternal life.
 
 I bear humble witness that our Heavenly Father knows and loves each of his children and that his Beloved Son, Jesus Christ, is our Savior and Redeemer. Joseph Smith is the prophet of the restoration of the gospel of Jesus Christ. His successors, from Brigham Young to our present prophet, President Ezra Taft Benson, are also modern-day prophets of God. They teach us to seek that which is good. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Joy #Obedience #Service #Temple_Work
+#Joy #Obedience #Service #TempleWork

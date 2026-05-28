@@ -1,6 +1,6 @@
 # What Temples Are For
 
-By Elder W. Grant Bangerter - *Of the First Quorum of the Seventy*
+By Elder W. Grant Bangerter - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -77,6 +77,4 @@ May God bless this people to embrace the blessings and perform the sacred servic
 
 
 
-
-
-#Temple_Work
+#TempleWork

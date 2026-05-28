@@ -4,6 +4,3 @@
 
 [JST Mark 8:37](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-mark/8?lang=eng)
 
-
-
-

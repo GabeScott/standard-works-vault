@@ -5,7 +5,7 @@
 [Joseph Smith History 1:14](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.14?lang=eng#p14)
 
 
-[^a]: [[Matthew 14.23|Matt. 14:23.]]
-[^b]: TG [[Beauty]].
-[^c]: TG [[Prayer, Pray]].
-[^d]: [[Psalms 77.1|Ps. 77:1.]]
+[^a]: [[Matthew 14.23|Matt. 14:23]].  
+[^b]: [[Beauty|TG Beauty]].  
+[^c]: [[Prayer, Pray|TG Prayer]].  
+[^d]: [[Psalms 77.1|Ps. 77:1]].  

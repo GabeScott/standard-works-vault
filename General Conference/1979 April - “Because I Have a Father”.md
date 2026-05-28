@@ -1,6 +1,6 @@
 # “Because I Have a Father”
 
-By Elder Paul H. Dunn - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Paul H. Dunn - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -115,8 +115,6 @@ Think, too, when Christ was preaching to the multitude and then performed the mi
 Well, our frustrations and disappointments may be just pinpricks in the eternal scheme of things, but since they do not seem that way to us, they do not seem that way to the Lord. Quit thinking that tomorrow your problems will go away and life will begin in earnest. The Lord is waiting to help you cope today if you will lay your human-size needs at his divine feet. Pray in specifics about the problems, little or big, that impede your progress and dull your best dreams. Knock, seek, and you shall find the answer to your prayers. That I promise you because you really are his child. He will give you the comfort and the counsel that you need, the courage to lift up your head and face your todays with faith and hope.
 
 You see, my bright-eyed, three-year-old friend was right all along. Why will you make it in today’s world? Why will you be able to cope? Cory’s answer was right: *“Because you have a Father,”* to which I testify, in the holy name of Jesus Christ, amen.
-
-
 
 
 

@@ -16,7 +16,7 @@ Repeat the Young Women Theme or the Aaronic Priesthood Quorum Theme.
 
 ## Counsel together
 
-Led by the person conducting the meeting, the class or quorum spends 5 to 10 minutes counseling together about their responsibilities in God’s work of salvation and exaltation. This is an opportunity for the class or quorum presidency to follow up on items discussed in presidency meetings or ward youth council meetings.
+Led by the person conducting the meeting, the class or quorum spends 5 to 10 minutes counseling together about their responsibilities in God’s work of salvation and exaltation. This is an opportunity for the class or quorum presidency to follow up on items discussed in presidency meetings or ward youth council meetings.
 
 The person conducting could also use one or more of these questions:
 
@@ -54,7 +54,7 @@ The person conducting could also use one or more of these questions:
 
 ## Learn together
 
-An adult leader or a member of the quorum or class leads instruction about this week’s *Come, Follow Me* reading. They use the study ideas in *Come, Follow Me—For Home and Church*. The study idea with this  icon is aligned with seminary and is especially relevant to youth. However, any of the study ideas may be used. This portion of the meeting usually takes about 35 to 40 minutes.
+An adult leader or a member of the quorum or class leads instruction about this week’s *Come, Follow Me* reading. They use the study ideas in *Come, Follow Me—For Home and Church*. The study idea with this  icon is aligned with seminary and is especially relevant to youth. However, any of the study ideas may be used. This portion of the meeting usually takes about 35 to 40 minutes.
 
 ## Closing
 

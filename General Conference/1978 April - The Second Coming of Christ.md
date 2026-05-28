@@ -16,7 +16,7 @@ And Peter said:
 
 “Knowing this first, that no prophecy of the scripture is of any private interpretation.
 
-“For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.19|2 Pet. 1:19–21]][[2 Peter 1.20|]][[2 Peter 1.21|]].)
+“For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.19|2 Pet. 1:19–21]][[2 Peter 1.20|]][[2 Peter 1.21|]].)
 
 Well, if prophecy is the most sure way of knowing what is to happen—and Isaiah said that the Lord had declared the end from the beginning (see [[Isaiah 46.10|Isa. 46:10]])—it’s all there when we understand it. And so I think that if Jesus pronounced such judgment upon those who failed to understand the scriptures relating to his first coming, how would he feel toward us and the world if we fail to recognize the value of the words of the holy prophets relating to his second coming? And so I thought I would like to just mention one or two of the things that the prophets have foretold.
 
@@ -56,11 +56,9 @@ Just think of all that Malachi saw when he saw the coming of Elijah. What a cons
 
 We are advised to study the scriptures, the older scriptures and the modern scriptures, to see what the prophets have said. Remember the words of Peter, that we have a more sure word of prophecy and that we do well to take heed. I want to bear you my testimony here that this is the work of God the Eternal Father.
 
-As I stand here as an apostle of the Lord Jesus Christ, I bear you my witness that the prophecies of Malachi that I have referred to have been fulfilled in the restoration of the gospel at the hands of the Prophet Joseph Smith and the holy prophets who have succeeded him at the head of this church, even to our present prophet, President Spencer W. Kimball, whom I honor with all my heart, as I do all my brethren of the General Authorities. So I leave with you that witness, and pray God to give us the strength and the faith to do our part in the preparation of his kingdom. In the name of the Lord, Jesus Christ, amen.
+As I stand here as an apostle of the Lord Jesus Christ, I bear you my witness that the prophecies of Malachi that I have referred to have been fulfilled in the restoration of the gospel at the hands of the Prophet Joseph Smith and the holy prophets who have succeeded him at the head of this church, even to our present prophet, President Spencer W. Kimball, whom I honor with all my heart, as I do all my brethren of the General Authorities. So I leave with you that witness, and pray God to give us the strength and the faith to do our part in the preparation of his kingdom. In the name of the Lord, Jesus Christ, amen.
 
 
 
 
-
-
-#Last_Days #Prophets
+#LastDays #Prophets

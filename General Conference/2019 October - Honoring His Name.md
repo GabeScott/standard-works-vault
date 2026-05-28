@@ -1,6 +1,6 @@
 # Honoring His Name
 
-By Lisa L. Harkness - *First Counselor in the Primary General Presidency*
+By Lisa L. Harkness - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -30,7 +30,7 @@ Thus, with covenant identity and belonging, we are called by the name of Jesus C
 
 The name of Jesus was known long before His birth. To King Benjamin, an angel prophesied, “And he shall be called Jesus Christ, the Son of God, … and his mother shall be called Mary.”[^7] His work of “redeeming love”[^8] was also made known to God’s children whenever the gospel has been on the earth, from the days of Adam and Eve until our present day, so they could “know to what source they may look for a remission of their sins.”[^9]
 
-Last year, President Russell M. Nelson extended “a prophetic plea” to the sisters “to shape the future by helping to gather scattered Israel.” He invited us to read the Book of Mormon and “mark each verse that speaks of or refers to the Savior.” He asked that we “be intentional about talking of Christ, rejoicing in Christ, and preaching of Christ with \[our family\] and friends.” Perhaps you have begun to recognize the fruits of his promise that “you and they will be drawn closer to the Savior. … And changes, even miracles, will begin to happen.”[^10]
+Last year, President Russell M. Nelson extended “a prophetic plea” to the sisters “to shape the future by helping to gather scattered Israel.” He invited us to read the Book of Mormon and “mark each verse that speaks of or refers to the Savior.” He asked that we “be intentional about talking of Christ, rejoicing in Christ, and preaching of Christ with \[our family\] and friends.” Perhaps you have begun to recognize the fruits of his promise that “you and they will be drawn closer to the Savior. … And changes, even miracles, will begin to happen.”[^10]
 
 Our promise to always remember the Savior gives us strength to stand for truth and righteousness—whether we are in a large crowd or in our solitary places, where no one knows our actions except for God. When we remember Him and His name we bear, we have no place for self-degrading comparisons or overbearing judgments. With our eyes on the Savior, we see ourselves for who we really are—a cherished child of God.
 
@@ -52,7 +52,7 @@ President George Albert Smith taught, “Honor the names that you bear, because 
 
 Like the carefully chosen names of Nephi and Lehi, can it be said and written of us that we are true disciples of the Lord Jesus Christ? Do we honor the name of Jesus Christ that we have willingly taken upon ourselves? Are we both “a minister and a witness”[^18] of His loving-kindness and His redeeming power?
 
-Not long ago, I was listening to the Book of Mormon. In the last chapter of 2 Nephi, I *heard* Nephi say something that I had never *read* the same way before. All throughout his record, he teaches and testifies of the “Redeemer,” the “Holy One of Israel,” the “Lamb of God,” and the “Messiah.” But as he closed his account, I heard him say these words: “I glory in plainness; I glory in truth; I glory in *my Jesus,* for he hath redeemed my soul.”[^19] When I heard these words, my heart rejoiced and I had to listen over and over again. I recognized and responded to that verse just as I recognize and respond to my own name.
+Not long ago, I was listening to the Book of Mormon. In the last chapter of 2 Nephi, I *heard* Nephi say something that I had never *read* the same way before. All throughout his record, he teaches and testifies of the “Redeemer,” the “Holy One of Israel,” the “Lamb of God,” and the “Messiah.” But as he closed his account, I heard him say these words: “I glory in plainness; I glory in truth; I glory in *my Jesus,* for he hath redeemed my soul.”[^19] When I heard these words, my heart rejoiced and I had to listen over and over again. I recognized and responded to that verse just as I recognize and respond to my own name.
 
 The Lord has said, “Yea, blessed is this people who are willing to bear my name; for in my name shall they be called; and they are mine.”[^20]
 
@@ -65,7 +65,7 @@ As members of The Church of Jesus Christ of Latter-day Saints, may we “gladly 
 
 [^2]: [[Galatians 3.27|Galatians 3:27–28]][[Galatians 3.28|]].
 
-[^3]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona,* May 2009, 20.
+[^3]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona,* May 2009, 20.
 
 [^4]: [[Romans 6.4|Romans 6:4]].
 
@@ -77,34 +77,32 @@ As members of The Church of Jesus Christ of Latter-day Saints, may we “gladly 
 
 [^8]: [[Alma 26.13|Alma 26:13]].
 
-[^9]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^9]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^10]: Russell M. Nelson, “[[2018 October - Sisters’ Participation in the Gathering of Israel.md|Sisters’ Participation in the Gathering of Israel]],” *Ensign* or *Liahona,* Nov. 2018, 69–70.
+[^10]: Russell M. Nelson, “[[2018 October - Sisters’ Participation in the Gathering of Israel.md|Sisters’ Participation in the Gathering of Israel]],” *Ensign* or *Liahona,* Nov. 2018, 69–70.
 
 [^11]: [[Alma 26.35|Alma 26:35]].
 
-[^12]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 68.
+[^12]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 68.
 
-[^13]: Russell M. Nelson, “[Disciples of Jesus Christ—Defenders of Marriage](https://speeches.byu.edu/talks/russell-m-nelson/disciples-jesus-christ-defenders-of-marriage)” (Brigham Young University commencement, Aug. 14, 2014), 3, speeches.byu.edu.
+[^13]: Russell M. Nelson, “[Disciples of Jesus Christ—Defenders of Marriage](https://speeches.byu.edu/talks/russell-m-nelson/disciples-jesus-christ-defenders-of-marriage)” (Brigham Young University commencement, Aug. 14, 2014), 3, speeches.byu.edu.
 
 [^14]: [[Galatians 3.27|Galatians 3:27]].
 
 [^15]: [[Alma 5.19|Alma 5:19]].
 
-[^16]: [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]].
+[^16]: [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]].
 
 [^17]: George Albert Smith, “Your Good Name,” *Improvement Era,* Mar. 1947, 139.
 
 [^18]: [[Acts 26.16|Acts 26:16]].
 
-[^19]: [[2 Nephi 33.6|2 Nephi 33:6]]; emphasis added.
+[^19]: [[2 Nephi 33.6|2 Nephi 33:6]]; emphasis added.
 
 [^20]: [[Mosiah 26.18|Mosiah 26:18]].
 
 [^21]: [[Alma 46.15|Alma 46:15]].
 
-[^22]: [[1 Nephi 11.21|1 Nephi 11:21]].
+[^22]: [[1 Nephi 11.21|1 Nephi 11:21]].
 
-
-
-#Covenants #Jesus_Christ
+#Covenants #JesusChrist

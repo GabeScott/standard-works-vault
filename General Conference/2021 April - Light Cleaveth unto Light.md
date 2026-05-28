@@ -1,6 +1,6 @@
 # Light Cleaveth unto Light
 
-By Elder Timothy J. Dyches - *Of the Seventy*
+By Elder Timothy J. Dyches - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -12,7 +12,7 @@ My dear brothers and sisters, I rejoice with you on this blessed Easter Sunday i
 
 During His mortal ministry, Jesus declared, “I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life.”[^1] The Spirit of Christ “is in all things \[and\] giveth life to all things.”[^2] It conquers the darkness that otherwise would surround us.
 
-Years ago, in search of adventure, my two sons and I accompanied a Young Men group to the Moaning Cavern, so named for a sound that at one time echoed out of its mouth. The cavern is a chimney cave which opens into a 180-foot-deep (55 m) vertical chamber, the largest single-cave chamber in California.
+Years ago, in search of adventure, my two sons and I accompanied a Young Men group to the Moaning Cavern, so named for a sound that at one time echoed out of its mouth. The cavern is a chimney cave which opens into a 180-foot-deep (55 m) vertical chamber, the largest single-cave chamber in California.
 
 There are only two ways down: the safe circular staircase or rappelling to the cavern’s floor; my sons and I chose to rappel. My older son went first, while my younger son and I purposely went last so that we would descend together.
 
@@ -32,13 +32,13 @@ We know that sunlight is vital to all life on earth. Equally vital to our spirit
 
 As we intensify our faith in Christ, we receive light in intensifying measure until it dispels all darkness that might gather around us. “That which is of God is light; and he that receiveth light, and continueth in God, receiveth more light; and that light groweth brighter and brighter until the perfect day.”[^6]
 
-The Light of Christ prepares us to receive the ministering influence of the Holy Ghost, which is “the convincing power of God … of the truth of the Gospel.”[^7] The third member of the Godhead, the Holy Ghost “is a personage of Spirit.”[^8] The greatest source of light that Heavenly Father imparts to you in mortality comes through the Holy Ghost, whose influence “shall enlighten your mind \[and\] fill your soul with joy.”[^9]
+The Light of Christ prepares us to receive the ministering influence of the Holy Ghost, which is “the convincing power of God … of the truth of the Gospel.”[^7] The third member of the Godhead, the Holy Ghost “is a personage of Spirit.”[^8] The greatest source of light that Heavenly Father imparts to you in mortality comes through the Holy Ghost, whose influence “shall enlighten your mind \[and\] fill your soul with joy.”[^9]
 
 In The Church of Jesus Christ of Latter-day Saints, through restored priesthood authority, you are baptized by immersion for the remission of sins. Then hands are laid upon your head and this wonderful, “unspeakable gift”[^10] of the Holy Ghost is bestowed upon you.
 
 Thereafter, when your desires and actions are centered on the covenant path, the Holy Ghost, as a light within you, will reveal and testify of truth,[^11] warn of danger, comfort[^12] and cleanse,[^13] and provide peace[^14] to your soul.
 
-Because “light cleaveth unto light,”[^15] the constant companionship of the Holy Ghost will lead you to make choices that will tend to keep you in the light; conversely, choices made without the Holy Ghost’s influence will tend to lead you into shadows and darkness. Elder Robert D. Hales taught: “When light is present, darkness is vanquished and must depart. … When the spiritual light of the Holy Ghost is present, the darkness of Satan departs.”[^16]
+Because “light cleaveth unto light,”[^15] the constant companionship of the Holy Ghost will lead you to make choices that will tend to keep you in the light; conversely, choices made without the Holy Ghost’s influence will tend to lead you into shadows and darkness. Elder Robert D. Hales taught: “When light is present, darkness is vanquished and must depart. … When the spiritual light of the Holy Ghost is present, the darkness of Satan departs.”[^16]
 
 May I suggest that perhaps this is the time to ask yourself: Do I have that light in my life? If not, when was the last time I did?
 
@@ -52,11 +52,11 @@ There is sunshine in your soul every time you share the gospel and bear your tes
 
 As you live to merit the companionship of the Holy Ghost, you truly “increase your spiritual capacity to receive revelation.”[^20]
 
-Life presents challenges and setbacks, and we all must face some dark days and storms. Through it all, if we “let God prevail in our lives,”[^21] the light of the Holy Ghost will reveal that there is purpose and meaning in our trials, that they will ultimately transform us into better, more complete individuals with a firmer faith and brighter hope in Christ, knowing that God was there with us in our dark days all along. As President Russell M. Nelson has counseled, “The increasing darkness that accompanies tribulation makes the light of Jesus Christ shine ever brighter.”[^22]
+Life presents challenges and setbacks, and we all must face some dark days and storms. Through it all, if we “let God prevail in our lives,”[^21] the light of the Holy Ghost will reveal that there is purpose and meaning in our trials, that they will ultimately transform us into better, more complete individuals with a firmer faith and brighter hope in Christ, knowing that God was there with us in our dark days all along. As President Russell M. Nelson has counseled, “The increasing darkness that accompanies tribulation makes the light of Jesus Christ shine ever brighter.”[^22]
 
 Seasons of our lives can take us to places both unexpected and undesirable. If sin has led you there, pull back the curtain of darkness and begin now to humbly approach your Heavenly Father with a broken heart and a contrite spirit and repent. He will hear your earnest prayer. With courage today, “draw near unto \[Him\] and \[He\] will draw near unto you.”[^23] You are never beyond the healing power of the Atonement of Jesus Christ.
 
-I come from goodly parents and from faithful ancestors who responded to the light of Jesus Christ and His gospel, and it blessed their lives and the generations that have followed with spiritual resilience. My dad often talked about his father, Milo T Dyches, and shared how his faith in God was a light to him day and night. Grandpa was a forest ranger and often rode alone in the mountains, entrusting his life without question to God’s direction and care.
+I come from goodly parents and from faithful ancestors who responded to the light of Jesus Christ and His gospel, and it blessed their lives and the generations that have followed with spiritual resilience. My dad often talked about his father, Milo T Dyches, and shared how his faith in God was a light to him day and night. Grandpa was a forest ranger and often rode alone in the mountains, entrusting his life without question to God’s direction and care.
 
 Late one fall, Grandpa was alone in the high mountains. Winter had already shown its face when he saddled one of his favorite horses, old Prince, and rode to a sawmill to scale and measure logs before they could be sawed into lumber.
 
@@ -103,25 +103,25 @@ I bear witness that Jesus Christ fulfilled Heavenly Father’s plan as our Savio
 
 [^12]: See [[John 14.16|John 14:16]]; [[Moroni 8.26|Moroni 8:26]].
 
-[^13]: See [[2 Nephi 31.17|2 Nephi 31:17]].
+[^13]: See [[2 Nephi 31.17|2 Nephi 31:17]].
 
 [^14]: See [[D&C 36.2|Doctrine and Covenants 36:2]].
 
 [^15]: [[D&C 88.40|Doctrine and Covenants 88:40]].
 
-[^16]: Robert D. Hales, “[[2002 April - Out of Darkness into His Marvelous Light.md|Out of Darkness into His Marvelous Light]],” *Ensign*, May 2002, 70; *Liahona*, July 2002, 78.
+[^16]: Robert D. Hales, “[[2002 April - Out of Darkness into His Marvelous Light.md|Out of Darkness into His Marvelous Light]],” *Ensign*, May 2002, 70; *Liahona*, July 2002, 78.
 
-[^17]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 89.
+[^17]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 89.
 
 [^18]: [[D&C 136.4|Doctrine and Covenants 136:4]].
 
 [^19]: Unknown author.
 
-[^20]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^20]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
-[^21]: Russell M. Nelson “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 95.
+[^21]: Russell M. Nelson “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 95.
 
-[^22]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” 88.
+[^22]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” 88.
 
 [^23]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
@@ -131,12 +131,10 @@ I bear witness that Jesus Christ fulfilled Heavenly Father’s plan as our Savio
 
 [^26]: [[John 1.5|John 1:5]].
 
-[^27]: [[1 Peter 2.9|1 Peter 2:9]].
+[^27]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^28]: See [[D&C 93.9|Doctrine and Covenants 93:9]].
 
-[^29]: See [[2 Nephi 10.14|2 Nephi 10:14]].
+[^29]: See [[2 Nephi 10.14|2 Nephi 10:14]].
 
-
-
-#Faith #Holy_Ghost #Jesus_Christ #Light_Of_Christ
+#Faith #HolyGhost #JesusChrist #LightOfChrist

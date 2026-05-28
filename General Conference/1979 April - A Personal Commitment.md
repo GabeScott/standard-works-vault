@@ -1,6 +1,6 @@
 # A Personal Commitment
 
-By Elder James M. Paramore - *Of the First Quorum of the Seventy*
+By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -72,11 +72,9 @@ Everyone who truly commits himself to the gospel finds his life expanding and hi
 
 “That which is of God is light; and he that receiveth light, and continueth in God, receiveth more light; and that light groweth brighter and brighter until the perfect day” ([[D&C 50.24|D&C 50:24]]).
 
-Brothers and sisters, a committed person makes goodness look attractive. He builds an inner confidence as he learns light and truth and then practices it. He becomes more like our prophet today, Spencer W. Kimball, who over a lifetime has translated desire into firm commitment to do everything he can do to demonstrate his love for the Lord and all of His children.
+Brothers and sisters, a committed person makes goodness look attractive. He builds an inner confidence as he learns light and truth and then practices it. He becomes more like our prophet today, Spencer W. Kimball, who over a lifetime has translated desire into firm commitment to do everything he can do to demonstrate his love for the Lord and all of His children.
 
 We, too, can resolve this day to declare ourselves, give ourselves, devote ourselves; to commit ourselves to do what *everyone can do.* In the name of the Lord Jesus Christ, amen.
-
-
 
 
 

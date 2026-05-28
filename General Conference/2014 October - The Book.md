@@ -1,6 +1,6 @@
 # The Book
 
-By Elder Allan F. Packer - *Of the Seventy*
+By Elder Allan F. Packer - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -22,9 +22,9 @@ As explained in the Church handbook: “In fulfilling its purpose to help indivi
 
 During this conference we are being taught about changes that will help us all be better prepared.
 
-The family is the center of the plan of salvation and perhaps why it is also called the “great plan of happiness.”[^10] President Boyd K. Packer has said, “The ultimate end of all activity in the Church is that a man and his wife and their children can be happy at home.”[^11]
+The family is the center of the plan of salvation and perhaps why it is also called the “great plan of happiness.”[^10] President Boyd K. Packer has said, “The ultimate end of all activity in the Church is that a man and his wife and their children can be happy at home.”[^11]
 
-President Spencer W. Kimball said, “Our success, individually and as a Church, will largely be determined by how faithfully we focus on living the gospel in the home.”[^12] Temple and family history work is part of living the gospel at home. It should be a family activity far more than a Church activity.
+President Spencer W. Kimball said, “Our success, individually and as a Church, will largely be determined by how faithfully we focus on living the gospel in the home.”[^12] Temple and family history work is part of living the gospel at home. It should be a family activity far more than a Church activity.
 
 There has been a renewed emphasis on family history and temple work from the First Presidency and the Quorum of the Twelve.[^13] Your response to this emphasis will increase your individual and family joy and happiness.
 
@@ -40,7 +40,7 @@ Family history is more than genealogy, rules, names, dates, and places. It is mo
 
 Like partaking of the sacrament, attending meetings, reading the scriptures, and saying personal prayers, doing family history and temple work should be a regular part of our personal worship. The response of our youth and others to prophetic invitations has been inspiring and proves this work *can and should* be done by *all* members at *any* age.
 
-As Elder Quentin L. Cook explained, “We \[now\] have the doctrine, the temples, and the technology.”[^16] Doing the work now is much easier and limited only by the number of members who make this a priority. The work still takes time and sacrifice, but *all* can do it, and with relative ease compared to just a few years ago.
+As Elder Quentin L. Cook explained, “We \[now\] have the doctrine, the temples, and the technology.”[^16] Doing the work now is much easier and limited only by the number of members who make this a priority. The work still takes time and sacrifice, but *all* can do it, and with relative ease compared to just a few years ago.
 
 To assist members, the Church has gathered records and provided tools so that much of the work can be done in our own homes or in the ward buildings and the temple. Most obstacles have been removed. *Whatever* your past perception, it is different now!
 
@@ -56,7 +56,7 @@ With few exceptions, everyone—*everyone*—can do this!
 
 There are tangible blessings which attend this work. Many parents and leaders are concerned about current world conditions and the impact on families and youth.
 
-Elder David A. Bednar has promised: “I invite the young people of the Church to learn about and experience the Spirit of Elijah. … I promise \[that\] you will be protected against the intensifying influence of the adversary. As you participate in and love this holy work, you will be safeguarded in your youth and throughout your lives.”[^20]
+Elder David A. Bednar has promised: “I invite the young people of the Church to learn about and experience the Spirit of Elijah. … I promise \[that\] you will be protected against the intensifying influence of the adversary. As you participate in and love this holy work, you will be safeguarded in your youth and throughout your lives.”[^20]
 
 Brothers and sisters, it’s time to take the cover off our hatchets and go to work. We must not sacrifice our exaltation or that of our families for less important interests.
 
@@ -75,9 +75,9 @@ Jesus Christ is the King! I testify of Him in the name of Jesus Christ, amen.
 
 
 
-[^1]: See [[2 Nephi 2.22|2 Nephi 2:22–25]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]]; [[2 Nephi 9.18|9:18]]; [[Mosiah 2.41|Mosiah 2:41]].
+[^1]: See [[2 Nephi 2.22|2 Nephi 2:22–25]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]]; [[2 Nephi 9.18|9:18]]; [[Mosiah 2.41|Mosiah 2:41]].
 
-[^2]: See Guide to the Scriptures, “[Plan of Redemption](https://churchofjesuschrist.org/study/scriptures/gs/plan-of-redemption?lang=eng)”; scriptures.lds.org.
+[^2]: See Guide to the Scriptures, “[Plan of Redemption](https://www.churchofjesuschrist.org/study/scriptures/gs/plan-of-redemption?lang=eng)”; scriptures.lds.org.
 
 [^3]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
@@ -89,34 +89,32 @@ Jesus Christ is the King! I testify of Him in the name of Jesus Christ, amen.
 
 [^7]: See [[D&C 107.25|Doctrine and Covenants 107:25–26]][[D&C 107.26|]].
 
-[^8]: See Guide to the Scriptures, “[First Presidency](https://churchofjesuschrist.org/study/scriptures/gs/first-presidency?lang=eng),” “[Apostle](https://churchofjesuschrist.org/study/scriptures/gs/apostle?lang=eng),” “[Seventy](https://churchofjesuschrist.org/study/scriptures/gs/seventy?lang=eng)”; scriptures.lds.org.
+[^8]: See Guide to the Scriptures, “[First Presidency](https://www.churchofjesuschrist.org/study/scriptures/gs/first-presidency?lang=eng),” “[Apostle](https://www.churchofjesuschrist.org/study/scriptures/gs/apostle?lang=eng),” “[Seventy](https://www.churchofjesuschrist.org/study/scriptures/gs/seventy?lang=eng)”; scriptures.lds.org.
 
 [^9]: *Handbook 2: Administering the Church* (2010), 2.2.
 
 [^10]: [[Alma 42.8|Alma 42:8]].
 
-[^11]: Boyd K. Packer, “The Witness,” *Ensign* or *Liahona,* May 2014, 95.
+[^11]: Boyd K. Packer, “The Witness,” *Ensign* or *Liahona,* May 2014, 95.
 
-[^12]: Spencer W. Kimball, “Living the Gospel in the Home,” *Ensign,* May 1978, 101.
+[^12]: Spencer W. Kimball, “Living the Gospel in the Home,” *Ensign,* May 1978, 101.
 
-[^13]: See Thomas S. Monson, [“Hastening the Work,”](https://churchofjesuschrist.org/study/ensign/2014/06/hastening-the-work?lang=eng) *Ensign* or *Liahona,* June 2014, 4–5; Henry B. Eyring, [“The Promise of Hearts Turning,”](https://churchofjesuschrist.org/study/ensign/2014/07/the-promise-of-hearts-turning?lang=eng) *Ensign* or *Liahona,* July 2014, 4–5; Russell M. Nelson, “It All Starts with Love” (video), [lds.org/prophets-and-apostles/unto-all-the-world/it-all-starts-with-love](https://www.churchofjesuschrist.org/media/video/2013-05-011-unto-all-the-world-finding-peace-in-temple-work); Russell M. Nelson, “Adding ‘Family’ to Family History Work” (video), [lds.org/prophets-and-apostles/unto-all-the-world/adding-family-to-family-history-work](https://www.churchofjesuschrist.org/prophets-and-apostles/unto-all-the-world/adding-family-to-family-history-work); Russell M. Nelson, [“Generations Linked in Love,”](https://churchofjesuschrist.org/study/ensign/2010/05/sunday-afternoon-session/generations-linked-in-love?lang=eng) *Ensign* or *Liahona,* May 2010, 91–94; Richard G. Scott, [“The Joy of Redeeming the Dead,”](https://churchofjesuschrist.org/study/ensign/2012/11/sunday-afternoon-session/the-joy-of-redeeming-the-dead?lang=eng) *Ensign* or *Liahona,* Nov. 2012, 93–95; Quentin L. Cook, [“Roots and Branches,”](https://churchofjesuschrist.org/study/ensign/2014/05/saturday-afternoon-session/roots-and-branches?lang=eng) *Ensign* or *Liahona,* May 2014, 44–48; David A. Bednar, [“The Hearts of the Children Shall Turn,”](https://churchofjesuschrist.org/study/ensign/2011/11/saturday-afternoon-session/the-hearts-of-the-children-shall-turn?lang=eng) *Ensign* or *Liahona,* Nov. 2011, 24–27; Neil L. Andersen, “A Classroom of Faith, Hope, and Charity” (address to Church Educational System religious educators), [lds.org/broadcasts](https://rsc.byu.edu/vol-15-no-3-2014/classroom-faith-hope-charity); Neil L. Andersen, “Find Our Cousins!” (address at RootsTech Family History Conference, Feb. 8, 2014), [lds.org/prophets-and-apostles/unto-all-the-world/find-our-cousins](https://www.churchofjesuschrist.org/media/video/2014-02-0111-elder-andersen-youth-devotional-find-our-cousins).
+[^13]: See Thomas S. Monson, “[Hastening the Work](https://www.churchofjesuschrist.org/study/ensign/2014/06/hastening-the-work?lang=eng),” *Ensign* or *Liahona,* June 2014, 4–5; Henry B. Eyring, “[The Promise of Hearts Turning](https://www.churchofjesuschrist.org/study/ensign/2014/07/the-promise-of-hearts-turning?lang=eng),” *Ensign* or *Liahona,* July 2014, 4–5; Russell M. Nelson, “It All Starts with Love” (video), [lds.org/prophets-and-apostles/unto-all-the-world/it-all-starts-with-love](https://www.churchofjesuschrist.org/media/video/2013-05-011-unto-all-the-world-finding-peace-in-temple-work); Russell M. Nelson, “Adding ‘Family’ to Family History Work” (video), [lds.org/prophets-and-apostles/unto-all-the-world/adding-family-to-family-history-work](https://www.churchofjesuschrist.org/prophets-and-apostles/unto-all-the-world/adding-family-to-family-history-work); Russell M. Nelson, “[Generations Linked in Love](https://www.churchofjesuschrist.org/study/ensign/2010/05/sunday-afternoon-session/generations-linked-in-love?lang=eng),” *Ensign* or *Liahona,* May 2010, 91–94; Richard G. Scott, “[The Joy of Redeeming the Dead](https://www.churchofjesuschrist.org/study/ensign/2012/11/sunday-afternoon-session/the-joy-of-redeeming-the-dead?lang=eng),” *Ensign* or *Liahona,* Nov. 2012, 93–95; Quentin L. Cook, “[Roots and Branches](https://www.churchofjesuschrist.org/study/ensign/2014/05/saturday-afternoon-session/roots-and-branches?lang=eng),” *Ensign* or *Liahona,* May 2014, 44–48; David A. Bednar, “[The Hearts of the Children Shall Turn](https://www.churchofjesuschrist.org/study/ensign/2011/11/saturday-afternoon-session/the-hearts-of-the-children-shall-turn?lang=eng),” *Ensign* or *Liahona,* Nov. 2011, 24–27; Neil L. Andersen, “A Classroom of Faith, Hope, and Charity” (address to Church Educational System religious educators), [lds.org/broadcasts](https://rsc.byu.edu/vol-15-no-3-2014/classroom-faith-hope-charity); Neil L. Andersen, “Find Our Cousins!” (address at RootsTech Family History Conference, Feb. 8, 2014), lds.org/prophets-and-apostles/unto-all-the-world/find-our-cousins.
 
 [^14]: [[D&C 128.24|Doctrine and Covenants 128:24]].
 
 [^15]: [[D&C 128.18|Doctrine and Covenants 128:18]].
 
-[^16]: Quentin L. Cook, *Ensign* or *Liahona,* May 2014, 47.
+[^16]: Quentin L. Cook, *Ensign* or *Liahona,* May 2014, 47.
 
 [^17]: [[D&C 128.24|Doctrine and Covenants 128:24]].
 
-[^18]: See Quentin L. Cook, *Ensign* or *Liahona,* May 2014, 47.
+[^18]: See Quentin L. Cook, *Ensign* or *Liahona,* May 2014, 47.
 
 [^19]: [[D&C 128.18|Doctrine and Covenants 128:18]].
 
-[^20]: David A. Bednar, “The Hearts of the Children Shall Turn,” *Ensign* or *Liahona,* Nov. 2011, 26, 27.
+[^20]: David A. Bednar, “The Hearts of the Children Shall Turn,” *Ensign* or *Liahona,* Nov. 2011, 26, 27.
 
 [^21]: “Rise Up, O Men of God,” *Hymns,* no. 324.
 
-
-
-#Family #Family_History #Home #Temple_Work
+#Family #FamilyHistory #Home #TempleWork

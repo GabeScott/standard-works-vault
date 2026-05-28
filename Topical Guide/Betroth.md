@@ -1,6 +1,5 @@
 # Betroth
 
-
 *See also* [[Espouse.md|Espouse]]; [[Marriage, Marry.md|Marriage, Marry]]
 
 If she please not her master, who hath *betrothed* her, [[Exodus 21.8|Exodus 21:8]].

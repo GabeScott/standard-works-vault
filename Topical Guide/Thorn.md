@@ -1,6 +1,5 @@
 # Thorn
 
-
 *Thorns* also and thistles shall it bring forth, [[Genesis 3.18|Genesis 3:18]] ([[Moses 4.24|Moses 4:24]]).
 
 shall be pricks in your eyes, and *thorns* in your sides, [[Numbers 33.55|Numbers 33:55]] ([[Judges 2.3|Judges 2:3]]).

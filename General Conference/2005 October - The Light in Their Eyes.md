@@ -79,7 +79,7 @@ I know with all my heart and soul that God lives. I believe He will enlighten ou
 
 [^5]: See [[D&C 20.37|D&C 20:37]].
 
-[^6]: [[1 Nephi 10.17|1 Nephi 10:17]].
+[^6]: [[1 Nephi 10.17|1 Nephi 10:17]].
 
 [^7]: *Key to the Science of Theology: A Voice of Warning* (1978), 61.
 
@@ -89,11 +89,11 @@ I know with all my heart and soul that God lives. I believe He will enlighten ou
 
 [^10]: *Merriam-Webster’s Collegiate Dictionary,* 11th ed. (2003), “secularism,” 1123.
 
-[^11]: [[2 Nephi 13.9|2 Nephi 13:9]].
+[^11]: [[2 Nephi 13.9|2 Nephi 13:9]].
 
 [^12]: [[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]].
 
-[^13]: [[1 Peter 2.9|1 Peter 2:9]].
+[^13]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^14]: See Paul Harvey, news broadcast, Dec. 8, 1967.
 
@@ -113,9 +113,9 @@ I know with all my heart and soul that God lives. I believe He will enlighten ou
 
 [^22]: Brigham Young’s Office Journal, Jan. 28, 1857, Archives of The Church of Jesus Christ of Latter-day Saints.
 
-[^23]: Neal A. Maxwell, in Conference Report, Oct. 1982, 97; or *Ensign,* Nov. 1982, 67.
+[^23]: Neal A. Maxwell, in Conference Report, Oct. 1982, [[1982 October - “Be of Good Cheer”.md|97]]; or *Ensign,* Nov. 1982, 67.
 
-[^24]: [[3 Nephi 12.16|3 Nephi 12:16]].
+[^24]: [[3 Nephi 12.16|3 Nephi 12:16]].
 
 [^25]: See [[Alma 5.14|Alma 5:14]].
 
@@ -125,6 +125,4 @@ I know with all my heart and soul that God lives. I believe He will enlighten ou
 
 [^28]: *Discourses of Brigham Young,* 31.
 
-
-
-#Covenants #Holy_Ghost #Jesus_Christ #Joy #Spirituality
+#Covenants #HolyGhost #Joy #JesusChrist #Spirituality

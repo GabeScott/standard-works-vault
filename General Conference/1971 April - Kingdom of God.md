@@ -1,6 +1,6 @@
 # Kingdom of God
 
-By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -20,7 +20,7 @@ He foretold the death of his apostles, which we now know actually took place. Be
 
 “That ye be not soon shaken in mind, or be troubled, neither by spirit, nor by word, nor by letter as from us, as that the day of Christ is at hand.
 
-“Let no man deceive you by any means; for that day shall not come, except there come a falling away first. …” ([[2 Thessalonians 2.2|2 Thes. 2:2–3]][[2 Thessalonians 2.3|]].)
+“Let no man deceive you by any means; for that day shall not come, except there come a falling away first. …” ([[2 Thessalonians 2.2|2 Thes. 2:2–3]][[2 Thessalonians 2.3|]].)
 
 The literal fulfillment of the scriptural predictions of a universal apostasy is made so plain by a reasonable study of ecclesiastical history as to be unmistakable. Nevertheless, Daniel’s prophetic interpretation of Nebuchadnezzar’s dream must eventually go into fulfillment. The question to be answered is: When?
 
@@ -59,6 +59,4 @@ To those not yet members of the Church, I ask you to examine your own hearts. Yo
 
 
 
-
-
-#Plan_Of_Salvation #Restoration #Temple_Work
+#PlanOfSalvation #Restoration #TempleWork

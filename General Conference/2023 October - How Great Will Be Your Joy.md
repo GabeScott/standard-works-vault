@@ -1,6 +1,6 @@
 # How Great Will Be Your Joy
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/28rasband?lang=eng)
 
-My dear brothers and sisters, my thoughts today are on the gathering of Israel, what President Russell M. Nelson calls “the most important thing taking place on earth today. Nothing else compares in magnitude, nothing else compares in importance, nothing else compares in majesty.”[^1]
+My dear brothers and sisters, my thoughts today are on the gathering of Israel, what President Russell M. Nelson calls “the most important thing taking place on earth today. Nothing else compares in magnitude, nothing else compares in importance, nothing else compares in majesty.”[^1]
 
 The gathering is the ultimate recognition that “the worth of souls is great in the sight of God.”[^2] It is as simple as that. We are gathering God’s children in these last days that they might have “blessings poured out upon their heads”[^3] and the promises of “the riches of eternity.”[^4] It follows that to gather Israel we need missionaries—many more than are serving.[^5] Today I am speaking to the many seasoned seniors in the Church who could serve as missionaries. The Lord needs you. We need you in New York and Chicago, Australia and Africa, Thailand and Mexico, and everywhere in between.
 
@@ -18,7 +18,7 @@ He responded, “300.”
 
 That sobering moment has stayed with me: 10 couples to fill 300 requests.
 
-President Russell M. Nelson has encouraged couples to “get on their knees and ask Heavenly Father if the time is right for them to serve a mission.”[^7] Of all the qualifications, he said, “a *desire* to serve may be the most important.”[^8]
+President Russell M. Nelson has encouraged couples to “get on their knees and ask Heavenly Father if the time is right for them to serve a mission.”[^7] Of all the qualifications, he said, “a *desire* to serve may be the most important.”[^8]
 
 As the scripture says, “If ye have desires to serve God ye are called to the work.”[^9] That work is all about the law of the harvest. We read in John, “Both he that soweth and he that reapeth may rejoice together.”[^10]
 
@@ -40,7 +40,7 @@ Rebecca invited them in, and my missionary parents shared a message with her, he
 
 Rebecca described to me: “Both your parents were wonderful in explaining any questions we had. I can still see their faces as if there was light surrounding them. We always hugged your mother when she left, and she always made a point of helping my mother feel comfortable and respected. Your father always had a sparkle in his eyes as he was teaching us about Jesus Christ. He tried to include my father in discussions and eventually won him over. My father was a chef at a local country club and started cooking dinners for your parents, including making your father’s favorite, key lime pie.”[^16]
 
-When Elder and Sister Rasband asked Rebecca and her family to read the Book of Mormon, Rebecca did so in five days. She wanted to be baptized immediately, but the other members of her family were not ready. After four months, Rebecca insisted she be baptized and join the true Church. She recalled, “Every fiber of my soul knew it was true.”[^17] On April 5, 1979, missionaries baptized 19-year-old Rebecca, her mother, and two sisters. My father was a witness at the baptism.
+When Elder and Sister Rasband asked Rebecca and her family to read the Book of Mormon, Rebecca did so in five days. She wanted to be baptized immediately, but the other members of her family were not ready. After four months, Rebecca insisted she be baptized and join the true Church. She recalled, “Every fiber of my soul knew it was true.”[^17] On April 5, 1979, missionaries baptized 19-year-old Rebecca, her mother, and two sisters. My father was a witness at the baptism.
 
 When I met Rebecca and her family at church, we took a photograph of her family with me. I took it home to my elderly mother, and she held it close to her heart. Then she said to me, “Ronnie, this is one of the happiest days of my life.”
 
@@ -71,21 +71,21 @@ I also promise that as you serve, you will feel the love of the Lord in your lif
 
 
 
-[^1]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), Gospel Library.
+[^1]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), Gospel Library.
 
 [^2]: [[D&C 18.10|Doctrine and Covenants 18:10]].
 
-[^3]: [[3 Nephi 10.18|3 Nephi 10:18]].
+[^3]: [[3 Nephi 10.18|3 Nephi 10:18]].
 
 [^4]: [[D&C 78.18|Doctrine and Covenants 78:18]].
 
 [^5]: The Church has 71,000 full-time missionaries in 414 missions across the world, from North and South America to Europe and Africa, Asia, and Australia/Oceania. There are 34,000 senior Church-service missionaries. (Missionary Department data, Sept. 2023.)
 
-[^6]: See Ronald A. Rasband, “[[2010 April - The Divine Call of a Missionary.md|The Divine Call of a Missionary]],” *Ensign* or *Liahona*, May 2010, 52–53.
+[^6]: See Ronald A. Rasband, “[[2010 April - The Divine Call of a Missionary.md|The Divine Call of a Missionary]],” *Ensign* or *Liahona*, May 2010, 52–53.
 
-[^7]: Russell M. Nelson, “[Senior Missionary Moments](https://churchofjesuschrist.org/study/liahona/2016/04/senior-missionary-moments?lang=eng),” *Ensign*, Apr. 2016, 67; *Liahona*, Apr. 2016, 27.
+[^7]: Russell M. Nelson, “[Senior Missionary Moments](https://www.churchofjesuschrist.org/study/liahona/2016/04/senior-missionary-moments?lang=eng),” *Ensign*, Apr. 2016, 67; *Liahona*, Apr. 2016, 27.
 
-[^8]: Russell M. Nelson, “[[2004 October - Senior Missionaries and the Gospel.md|Senior Missionaries and the Gospel]],” *Ensign* or *Liahona*, Nov. 2004, 81.
+[^8]: Russell M. Nelson, “[[2004 October - Senior Missionaries and the Gospel.md|Senior Missionaries and the Gospel]],” *Ensign* or *Liahona*, Nov. 2004, 81.
 
 [^9]: [[D&C 4.3|Doctrine and Covenants 4:3]].
 
@@ -93,23 +93,23 @@ I also promise that as you serve, you will feel the love of the Lord in your lif
 
 [^11]: I was in New York, USA, attending the baptism of granddaughter Brooklyn and the blessing of granddaughter Ella, April 2006.
 
-[^12]: Letter from Rebecca Guzman to Elder Ronald A. Rasband, Sept. 8, 2009.
+[^12]: Letter from Rebecca Guzman to Elder Ronald A. Rasband, Sept. 8, 2009.
 
 [^13]: My parents served in the Florida Fort Lauderdale Mission in 1979.
 
 [^14]: The Osmond family was a popular American music group known for their pop songs. The group reached the height of fame in the mid-1970s, performing on television variety shows. Donny and Marie continued with television with stage careers, while the brothers performed for decades as country artists in Branson, Missouri.
 
-[^15]: Letter from Rebecca Guzman, Sept. 8, 2009.
+[^15]: Letter from Rebecca Guzman, Sept. 8, 2009.
 
-[^16]: Letter from Rebecca Guzman, Sept. 8, 2009.
+[^16]: Letter from Rebecca Guzman, Sept. 8, 2009.
 
-[^17]: Letter from Rebecca Guzman, Sept. 8, 2009.
+[^17]: Letter from Rebecca Guzman, Sept. 8, 2009.
 
 [^18]: [[D&C 64.29|Doctrine and Covenants 64:29]].
 
 [^19]: Senior missionary opportunities take many forms, and couples or senior sisters may list preferences as well as a full-time or Church-service assignment. Ultimately, the prophet of the Church issues the call for full-time service. Stake presidents issue Church-service assignments. Service can range from 6 months to 23 months, and senior missionaries have more flexibility and less strenuous activity than young missionaries. See [seniormissionary.ChurchofJesusChrist.org](https://seniormissionary.churchofjesuschrist.org).
 
-[^20]: Russell M. Nelson, “[[2004 October - Senior Missionaries and the Gospel.md|Senior Missionaries and the Gospel]],” *Ensign* or *Liahona*, Nov. 2004, 79.
+[^20]: Russell M. Nelson, “[[2004 October - Senior Missionaries and the Gospel.md|Senior Missionaries and the Gospel]],” *Ensign* or *Liahona*, Nov. 2004, 79.
 
 [^21]: See [seniormissionary.ChurchofJesusChrist.org](https://seniormissionary.churchofjesuschrist.org).
 
@@ -117,7 +117,7 @@ I also promise that as you serve, you will feel the love of the Lord in your lif
 
 [^23]: See [[Jude 1.22|Jude 1:22]]; [[Mosiah 4.20|Mosiah 4:20]].
 
-[^24]: See “I’ll Go Where You Want Me to Go,” *Hymns*, no. 270.
+[^24]: See “I’ll Go Where You Want Me to Go,” *Hymns*, no. 270.
 
 [^25]: [[D&C 18.15|Doctrine and Covenants 18:15]].
 
@@ -131,6 +131,4 @@ I also promise that as you serve, you will feel the love of the Lord in your lif
 
 [^30]: [[Jude 1.2|Jude 1:2]].
 
-
-
-#Gathering #Joy #Missionary_Work #Senior_Missionaries #Service
+#Gathering #Joy #MissionaryWork #SeniorMissionaries #Service

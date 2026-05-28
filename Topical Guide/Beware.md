@@ -1,6 +1,5 @@
 # Beware
 
-
 *Beware* of him, and obey his voice, [[Exodus 23.21|Exodus 23:21]].
 
 *beware* lest thou forget the Lord, [[Deuteronomy 6.12|Deuteronomy 6:12]].
@@ -23,4 +22,4 @@
 
 *beware* lest ye are deceived, [[D&C 46.8|D&C 46:8]].
 
-let all men *beware* how they take my name, [[D&C 63.61|D&C 63:61]] ([[D&C 63.61|63:61-64]][[D&C 63.62|]][[D&C 63.63|]][[D&C 63.64|]]).
+let all men *beware* how they take my name, [[D&C 63.61|D&C 63:61]].

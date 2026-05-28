@@ -1,6 +1,5 @@
 # Reverence
 
-
 *See also* [[Courtesy.md|Courtesy]]; [[Fear of God.md|Fear of God]]; [[Honor.md|Honor]]; [[Respect.md|Respect]]
 
 *fear* of God is not in this place, [[Genesis 20.11|Genesis 20:11]].
@@ -23,7 +22,7 @@ Be not highminded, but *fear*, [[Romans 11.20|Romans 11:20]].
 
 wife see that she *reverence* her husband, [[Ephesians 5.33|Ephesians 5:33]].
 
-fathers of our flesh ... we gave them *reverence*, [[Hebrews 12.9|Hebrews 12:9]].
+fathers of our flesh … we gave them *reverence*, [[Hebrews 12.9|Hebrews 12:9]].
 
 serve God acceptably with *reverence* and godly fear, [[Hebrews 12.28|Hebrews 12:28]].
 
@@ -39,7 +38,7 @@ if he will bow down before me, and *humble* himself, [[D&C 5.24|D&C 5:24]].
 
 Before whose throne all things bow in humble *reverence*, [[D&C 76.93|D&C 76:93]].
 
-you have treated *lightly* the things ... received, [[D&C 84.54|D&C 84:54]].
+you have treated *lightly* the things … received, [[D&C 84.54|D&C 84:54]].
 
 out of respect or *reverence* to the name of the Supreme Being, [[D&C 107.4|D&C 107:4]].
 

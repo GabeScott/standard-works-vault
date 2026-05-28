@@ -1,6 +1,6 @@
 # Light and Truth
 
-By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
+By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -10,7 +10,7 @@ In our church we often speak of light and truth, but just what do these words me
 
 When I was a young boy, I went with my father to inspect a mine in Nevada. We each had flashlights, but took no extra batteries with us, for we did not expect to be in the mine very long. But the tunnel was longer, colder, and deeper than we anticipated. Before we got to the end of the mine, where the mineral was, father told me to turn off my flashlight to save my batteries. By the time father had finished inspecting the mine, his flashlight began to dim, and he suggested we had better turn back. Before long his flashlight gave out completely, and I can still remember—until I again turned on my light—the panic I felt to be in such cold and utter blackness. Although my own batteries gave out before we reached the mine entrance, we were by then guided by the dim light coming from the mouth of the tunnel. How good it felt to see the light increase as we made our way back to the entrance and found ourselves in warm, brilliant sunlight.
 
-I have since wondered how anyone could knowingly prefer to live where it is dark and cold. How could anybody willingly prefer darkness and misery over light and warmth? Yet darkness, cold, and misery will be the lot of those who willingly and knowingly reject the Lord. John wrote, “God is light, and in him is no darkness at all.” ([[1 John 1.5|1 Jn. 1:5]].)
+I have since wondered how anyone could knowingly prefer to live where it is dark and cold. How could anybody willingly prefer darkness and misery over light and warmth? Yet darkness, cold, and misery will be the lot of those who willingly and knowingly reject the Lord. John wrote, “God is light, and in him is no darkness at all.” ([[1 John 1.5|1 Jn. 1:5]].)
 
 I would like to speak about God’s realm of light in contrast to the dark realm of Satan. Those who follow Satan will be cast into outer darkness, “where there is weeping, and wailing, and gnashing of teeth.” ([[D&C 133.73|D&C 133:73]].) How terrible to live in such a place of darkness and cold. It is entirely different from what we usually think of as “burning in hell.” That burning is the lasting regret one feels who has chosen the darkness of Satan in preference to the light of Christ.
 
@@ -75,8 +75,6 @@ Let me come back, then, to absolute zero, where, theoretically, there is no heat
 To summarize then, light and truth is, simply, pure intelligence.
 
 Now, there are those who believe that this is just another church. There are even some members within the Church who regard the restored gospel as just another religious philosophy. As one of the especial witnesses, I testify to you in all earnestness that this Church was divinely founded. It is not just another church. It is *the* Church of Jesus Christ. The gospel doctrine it teaches is the divine word of God. It is light. It is truth. To ignore it or treat it as just another religious philosophy is one of the greatest mistakes a person can make. This doctrine I bear to you is the light and truth I have received to strengthen my own witness, in the name of Jesus Christ, amen.
-
-
 
 
 

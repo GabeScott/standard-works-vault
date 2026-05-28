@@ -22,7 +22,7 @@ The answer was the one President Lee had sought. He then counseled our son, “R
 
 When I was a boy, I looked forward to passing the sacrament to the ward members. We deacons were trained as to our duties. One of the men in our ward, Louis, suffered from palsy. His head and hands shook so violently that he could not, by himself, partake of the sacrament. Each deacon knew that his duty in serving Louis was to hold the bread to his lips so that he might partake and to similarly place the cup of water to his mouth with one hand, while steadying his head with the other, the tray being held by another deacon while doing so. Always Louis would say, “Thank you.”
 
-It was 40 years ago this conference time when President David O. McKay called me to serve as a member of the Quorum of the Twelve Apostles. At the first meeting of the Presidency and Twelve which I attended where the sacrament was served, President McKay announced, “Before we partake of the sacrament, I would like to ask our newest member of this body, Brother Monson, if he would instruct the First Presidency and Twelve on the atoning sacrifice of our Lord and Savior Jesus Christ.” It was then that I gained a true understanding of the old adage: “When the time for decision arrives, the time for preparation is past.” It was also the time to remember the counsel found in 1 Peter: “Be ready always to give an answer to every man that asketh you a reason of the hope that is in you.”[^2]
+It was 40 years ago this conference time when President David O. McKay called me to serve as a member of the Quorum of the Twelve Apostles. At the first meeting of the Presidency and Twelve which I attended where the sacrament was served, President McKay announced, “Before we partake of the sacrament, I would like to ask our newest member of this body, Brother Monson, if he would instruct the First Presidency and Twelve on the atoning sacrifice of our Lord and Savior Jesus Christ.” It was then that I gained a true understanding of the old adage: “When the time for decision arrives, the time for preparation is past.” It was also the time to remember the counsel found in 1 Peter: “Be ready always to give an answer to every man that asketh you a reason of the hope that is in you.”[^2]
 
 I began my remarks by referring to a letter which I had received from one of the servicemen from our ward who was serving on the front lines in Korea during that sometimes forgotten war. The writer told how, amidst the shelling on Sunday morning, several in his platoon partook of the bread and then the water, both served from a helmet. Each remembered the significance of the blessing pronounced on the sacred emblems and his individual responsibility to keep the commandments of the Lord and to follow the Lord’s example of service to others.
 
@@ -62,7 +62,7 @@ From Mount Sinai there thunders in our ears, “Honour thy father and thy mother
 
 Brethren, ours is the responsibility, yes, even the solemn duty, to reach out to those who have slipped into inactivity or strayed from the family circle.
 
-Recall with me the beautiful words of the Lord’s revelation from section 18 of the Doctrine and Covenants: “Remember the worth of souls is great in the sight of God. …
+Recall with me the beautiful words of the Lord’s revelation from section 18 of the Doctrine and Covenants: “Remember the worth of souls is great in the sight of God. …
 
 “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!
 
@@ -131,7 +131,7 @@ And within our hearts we will recognize His unspoken plea: *Bring him home.* In 
 
 [^1]: In Conference Report, Apr. 1937, 46.
 
-[^2]: [[1 Peter 3.15|1 Peter 3:15]].
+[^2]: [[1 Peter 3.15|1 Peter 3:15]].
 
 [^3]: Kim Gannon and Walter Kent, “I’ll Be Home for Christmas,” 1943.
 
@@ -147,5 +147,6 @@ And within our hearts we will recognize His unspoken plea: *Bring him home.* In 
 
 [^9]: Herbert Kretzmer, “Bring Him Home.”
 
+[^10]: [[Matthew 25.21|Matthew 25:21]].
 
 #Activation #Family #Home #Priesthood #Sacrament #Service

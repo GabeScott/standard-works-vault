@@ -1,6 +1,5 @@
 # Bribe, Bribery
 
-
 thou shalt take no *gift*, [[Exodus 23.8|Exodus 23:8]].
 
 have I received any *bribe* to blind mine, [[1 Samuel 12.3|1 Samuel 12:3]].
@@ -26,5 +25,3 @@ lucre which doth *corrupt* the soul, [[Mosiah 29.40|Mosiah 29:40]].
 these will I *give* thee if thou wilt deny, [[Alma 11.22|Alma 11:22]].
 
 touch not the evil *gift*, nor the unclean thing, [[Moroni 10.30|Moroni 10:30]].
-
-*See also* [[Acts 24.26|Acts 24:26]]; [[2 Nephi 26.10|2 Nephi 26:10]]; [[Helaman 7.5|Helaman 7:5]]; [[Helaman 9.20|Helaman 9:20]]; [[Ether 9.11|Ether 9:11]].

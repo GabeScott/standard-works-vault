@@ -1,6 +1,6 @@
 # Are You Sleeping through the Restoration?
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -16,7 +16,7 @@ Rip makes his way back to his village only to discover that everything has chang
 
 Rip Van Winkle had been sleeping for 20 years! And in the process, he had missed one of the most exciting periods in the history of his country—he had slept through the American Revolution.
 
-In May 1966, Dr. Martin Luther King Jr. used this story as an illustration for his speech “Don’t Sleep Through the Revolution.”[^1]
+In May 1966, Dr. Martin Luther King Jr. used this story as an illustration for his speech “Don’t Sleep Through the Revolution.”[^1]
 
 Today, I would like to take the same theme and propose a question to all of us who hold God’s priesthood: are you sleeping through the Restoration?
 
@@ -68,15 +68,13 @@ It saddens our Heavenly Father to see how willingly some of His noble sons exten
 
 Brethren, we bear the eternal priesthood of Almighty God. We are truly sons of the Most High and are endowed with unspeakable potential. We are designed to soar freely through the heavens. We are not meant to be shackled to the earth, imprisoned in straitjackets of our own making.
 
-What is the remedy?
-
 The first thing we must understand is that addictions are so much easier to prevent than to cure. In the Savior’s words, “Suffer none of these things to enter into your heart.”[^6]
 
-Several years ago, President Thomas S. Monson and I were offered an opportunity to tour Air Force One—the magnificent aircraft that transports the president of the United States. There were painstaking security checks by the Secret Service, and I smiled a little as agents searched our dear prophet prior to boarding.
+Several years ago, President Thomas S. Monson and I were offered an opportunity to tour Air Force One—the magnificent aircraft that transports the president of the United States. There were painstaking security checks by the Secret Service, and I smiled a little as agents searched our dear prophet prior to boarding.
 
 Then the pilot in command invited me to take the captain’s seat. It was a remarkable experience to again sit at the helm of a wonderful flying machine like the kind I had flown for so many years. Memories of flights across oceans and continents filled my heart and mind. I envisioned exciting takeoffs and landings at airports all over the world.
 
-Almost unconsciously, I placed my hands on the four throttles of the 747. Just then, a beloved and unmistakable voice came from behind—the voice of Thomas S. Monson.
+Almost unconsciously, I placed my hands on the four throttles of the 747. Just then, a beloved and unmistakable voice came from behind—the voice of Thomas S. Monson.
 
 “Dieter,” he said, “don’t even think about it.”
 
@@ -103,8 +101,6 @@ They will not sleep through the Restoration.
 A third obstacle that prevents us from fully engaging in this work is the many competing priorities we face. Some of us are so busy that we feel like a cart pulled by a dozen work animals—each straining in a different direction. A lot of energy is expended, but the cart doesn’t go anywhere.
 
 Often we devote our best efforts in pursuit of a hobby, a sport, vocational interests, and community or political issues. All these things may be good and honorable, but are they leaving us time and energy for what should be our highest priorities?
-
-What is the remedy?
 
 Once again, it comes from the words of the Savior:
 
@@ -145,19 +141,19 @@ Let us be awake and not be weary of well-doing, for we “are laying the foundat
 
 
 
-[^1]: See Martin Luther King Jr., “Don’t Sleep Through the Revolution” (1966 Ware Lecture, Unitarian Universalist Association General Assembly, Hollywood, Florida, May 18, 1966).
+[^1]: See Martin Luther King Jr., “Don’t Sleep Through the Revolution” (1966 Ware Lecture, Unitarian Universalist Association General Assembly, Hollywood, Florida, May 18, 1966).
 
 [^2]: [[Articles of Faith 1.9|Articles of Faith 1:9]].
 
 [^3]: See blog.oxforddictionaries.com/press-releases/oxford-dictionaries-word-of-the-year-2013.
 
-[^4]: [[2 Nephi 26.29|2 Nephi 26:29]].
+[^4]: [[2 Nephi 26.29|2 Nephi 26:29]].
 
 [^5]: [[Mark 8.34|Mark 8:34–35]][[Mark 8.35|]].
 
-[^6]: [[3 Nephi 12.29|3 Nephi 12:29]].
+[^6]: [[3 Nephi 12.29|3 Nephi 12:29]].
 
-[^7]: See, for example, [lds.org/topics/addiction](https://churchofjesuschrist.org/study/manual/gospel-topics/addiction?lang=eng).
+[^7]: See, for example, [lds.org/topics/addiction](https://www.churchofjesuschrist.org/study/manual/gospel-topics/addiction?lang=eng).
 
 [^8]: [[Matthew 22.37|Matthew 22:37–39]][[Matthew 22.38|]][[Matthew 22.39|]].
 
@@ -165,7 +161,8 @@ Let us be awake and not be weary of well-doing, for we “are laying the foundat
 
 [^10]: See [[D&C 84.33|Doctrine and Covenants 84:33, 38]][[D&C 84.38|]].
 
-[^11]: [[2 Nephi 1.23|2 Nephi 1:23]].
+[^11]: [[2 Nephi 1.23|2 Nephi 1:23]].
 
+[^12]: See [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-#Addiction #Jesus_Christ #Priorities #Restoration
+#Addiction #JesusChrist #Priorities #Restoration

@@ -1,17 +1,16 @@
 # Soul
 
-
 *See also* [[Breath of Life.md|Breath of Life]]; [[Heart.md|Heart]]; [[Person.md|Person]]; [[Spirit.md|Spirit]]; [[Worth of Souls.md|Worth of Souls]]
 
 man became a living *soul*, [[Genesis 2.7|Genesis 2:7]] ([[1 Corinthians 15.45|1 Corinthians 15:45]]; [[Moses 3.7|Moses 3:7]]; [[Abraham 5.7|Abraham 5:7]]).
 
-love the Lord ... with all thy *soul*, [[Deuteronomy 6.5|Deuteronomy 6:5]] ([[Matthew 22.37|Matthew 22:37]]; [[Mark 12.30|Mark 12:30]]; [[Luke 10.27|Luke 10:27]]).
+love the Lord … with all thy *soul*, [[Deuteronomy 6.5|Deuteronomy 6:5]] ([[Matthew 22.37|Matthew 22:37]]; [[Mark 12.30|Mark 12:30]]; [[Luke 10.27|Luke 10:27]]).
 
-serve the Lord ... with all thy *soul*, [[Deuteronomy 10.12|Deuteronomy 10:12]] ([[Deuteronomy 11.13|Deuteronomy 11:13]]; [[2 Nephi 25.29|2 Nephi 25:29]]).
+serve the Lord … with all thy *soul*, [[Deuteronomy 10.12|Deuteronomy 10:12]] ([[Deuteronomy 11.13|Deuteronomy 11:13]]; [[2 Nephi 25.29|2 Nephi 25:29]]).
 
 his *soul* within him shall mourn, [[Job 14.22|Job 14:22]].
 
-thou wilt not leave my *soul* in hell, [[Psalms 16.10|Psalms 16:10]] ([[Acts 2.27|Acts 2:27]], [[Acts 2.31|Acts 2:31]]).
+thou wilt not leave my *soul* in hell, [[Psalms 16.10|Psalms 16:10]] ([[Acts 2.27|Acts 2:27]]; [[Acts 2.31|Acts 2:31]]).
 
 law of the Lord is perfect, converting the *soul*, [[Psalms 19.7|Psalms 19:7]].
 
@@ -41,7 +40,7 @@ My *soul* is exceeding sorrowful, [[Matthew 26.38|Matthew 26:38]] ([[Mark 14.34|
 
 Mary said, My *soul* doth magnify the Lord, [[Luke 1.46|Luke 1:46]].
 
-this night thy *soul* shall be required, [[Luke 12.20|Luke 12:20]] ([[Luke 12.15|12:15-21]][[Luke 12.16|]][[Luke 12.17|]][[Luke 12.18|]][[Luke 12.19|]][[Luke 12.20|]][[Luke 12.21|]]).
+this night thy *soul* shall be required, [[Luke 12.20|Luke 12:20]].
 
 multitude of them that believed were of one heart and of one *soul*, [[Acts 4.32|Acts 4:32]].
 
@@ -55,7 +54,7 @@ they watch for your *souls*, [[Hebrews 13.17|Hebrews 13:17]].
 
 engrafted word, which is able to save your *souls*, [[James 1.21|James 1:21]].
 
-he which converteth ... shall save a *soul* from death, [[James 5.20|James 5:20]].
+he which converteth … shall save a *soul* from death, [[James 5.20|James 5:20]].
 
 ye have purified your *souls* in obeying, [[1 Peter 1.22|1 Peter 1:22]].
 
@@ -93,9 +92,9 @@ state of the *soul* between death and the resurrection, [[Alma 40.11|Alma 40:11]
 
 *soul* shall be restored to the body, [[Alma 40.23|Alma 40:23]].
 
-punishment ... eternal as the life of the *soul*, [[Alma 42.16|Alma 42:16]].
+punishment … eternal as the life of the *soul*, [[Alma 42.16|Alma 42:16]].
 
-eateth and drinketh ... unworthily ... damnation to his *soul*, [[3 Nephi 18.29|3 Nephi 18:29]].
+eateth and drinketh … unworthily … damnation to his *soul*, [[3 Nephi 18.29|3 Nephi 18:29]].
 
 eateth of my body to his *soul*, [[3 Nephi 20.8|3 Nephi 20:8]].
 
@@ -107,7 +106,7 @@ bless and sanctify this wine to the *souls* of all those who drink, [[Moroni 5.2
 
 bringeth salvation to his *soul*, [[D&C 4.4|D&C 4:4]].
 
-declare repentance ... that you may bring *souls* unto me, [[D&C 15.6|D&C 15:6]].
+declare repentance … that you may bring *souls* unto me, [[D&C 15.6|D&C 15:6]].
 
 worth of *souls* is great, [[D&C 18.10|D&C 18:10]].
 
@@ -115,7 +114,7 @@ joy if you should bring many *souls* unto me, [[D&C 18.16|D&C 18:16]].
 
 my *soul* delighteth in the song of the heart, [[D&C 25.12|D&C 25:12]].
 
-words ... to be answered upon your *souls*, [[D&C 41.12|D&C 41:12]].
+words … to be answered upon your *souls*, [[D&C 41.12|D&C 41:12]].
 
 your riches will canker your *souls*, [[D&C 56.16|D&C 56:16]].
 

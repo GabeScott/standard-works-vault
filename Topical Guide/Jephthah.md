@@ -1,4 +1,3 @@
 # Jephthah
 
-
-*See* [BD Jephthah](https://www.churchofjesuschrist.org/study/scriptures/bd/jephthah?lang=eng)
+*See also* [[BD Jephthah.md|BD Jephthah]]

@@ -1,6 +1,6 @@
 # Waiting on the Lord
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/10/57holland?lang=eng)
 
-My beloved brothers and sisters, we are all eager—no one more than I—to hear concluding remarks from our beloved prophet, President Russell M. Nelson. This has been a marvelous conference, but it is the second time that COVID-19 has altered our traditional proceedings. We are so tired of this contagion, we feel like tearing our hair out. And apparently, some of my Brethren have already taken that course of action. Please know that we do pray constantly for those who have been affected in any way, especially for any who have lost loved ones. Everyone agrees that this has gone on much, much too long.
+My beloved brothers and sisters, we are all eager—no one more than I—to hear concluding remarks from our beloved prophet, President Russell M. Nelson. This has been a marvelous conference, but it is the second time that COVID-19 has altered our traditional proceedings. We are so tired of this contagion, we feel like tearing our hair out. And apparently, some of my Brethren have already taken that course of action. Please know that we do pray constantly for those who have been affected in any way, especially for any who have lost loved ones. Everyone agrees that this has gone on much, much too long.
 
 How long do we wait for relief from hardships that come upon us? What about enduring personal trials while we wait and wait, and help seems so slow in coming? Why the delay when burdens seem more than we can bear?
 
@@ -26,7 +26,7 @@ The answer to such questions is “Yes, God can provide miracles instantaneously
 
 The point? The point is that faith means trusting God in good times and bad, even if that includes some suffering until we see His arm revealed in our behalf.[^9] That can be difficult in our modern world when many have come to believe that the highest good in life is to avoid all suffering, that no one should ever anguish over anything.[^10] But that belief will never lead us to “the measure of the stature of the fulness of Christ.”[^11]
 
-With apologies to Elder Neal A. Maxwell for daring to modify and enlarge something he once said, I too suggest that “one’s life … cannot be both faith-filled and stress-free.” It simply will not work “to glide naively through life,” saying as we sip another glass of lemonade, “Lord, give me all thy choicest virtues, but be certain not to give me grief, nor sorrow, nor pain, nor opposition. Please do not let anyone dislike me or betray me, and above all, do not ever let me feel forsaken by Thee or those I love. In fact, Lord, be careful to keep me from all the experiences that made Thee divine. And then, when the rough sledding by everyone else is over, please let me come and dwell with Thee, where I can boast about how similar our strengths and our characters are as I float along on my cloud of comfortable Christianity.”[^12]
+With apologies to Elder Neal A. Maxwell for daring to modify and enlarge something he once said, I too suggest that “one’s life … cannot be both faith-filled and stress-free.” It simply will not work “to glide naively through life,” saying as we sip another glass of lemonade, “Lord, give me all thy choicest virtues, but be certain not to give me grief, nor sorrow, nor pain, nor opposition. Please do not let anyone dislike me or betray me, and above all, do not ever let me feel forsaken by Thee or those I love. In fact, Lord, be careful to keep me from all the experiences that made Thee divine. And then, when the rough sledding by everyone else is over, please let me come and dwell with Thee, where I can boast about how similar our strengths and our characters are as I float along on my cloud of comfortable Christianity.”[^12]
 
 My beloved brothers and sisters, Christianity is comforting, but it is often not comfortable. The path to holiness and happiness here and hereafter is a long and sometimes rocky one. It takes time and tenacity to walk it. But, of course, the reward for doing so is monumental. This truth is taught clearly and persuasively in the [[Alma 32.1|32nd chapter of Alma]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]] in the Book of Mormon. There this great high priest teaches that if the word of God is planted in our hearts as a mere seed, and if we care enough to water, weed, nourish, and encourage it, it will *in the future* bear fruit “which is most precious, … sweet above all that is sweet,” the consuming of which leads to a condition of no more thirst and no more hunger.[^13]
 
@@ -51,17 +51,17 @@ As we now hear our beloved prophet close this conference, may we remember, as Ru
 
 [^6]: See [[Mosiah 17.1|Mosiah 17]][[Mosiah 17.2|]][[Mosiah 17.3|]][[Mosiah 17.4|]][[Mosiah 17.5|]][[Mosiah 17.6|]][[Mosiah 17.7|]][[Mosiah 17.8|]][[Mosiah 17.9|]][[Mosiah 17.10|]][[Mosiah 17.11|]][[Mosiah 17.12|]][[Mosiah 17.13|]][[Mosiah 17.14|]][[Mosiah 17.15|]][[Mosiah 17.16|]][[Mosiah 17.17|]][[Mosiah 17.18|]][[Mosiah 17.19|]][[Mosiah 17.20|]].
 
-[^7]: See [[1 Kings 18.17|1 Kings 18:17–40]][[1 Kings 18.18|]][[1 Kings 18.19|]][[1 Kings 18.20|]][[1 Kings 18.21|]][[1 Kings 18.22|]][[1 Kings 18.23|]][[1 Kings 18.24|]][[1 Kings 18.25|]][[1 Kings 18.26|]][[1 Kings 18.27|]][[1 Kings 18.28|]][[1 Kings 18.29|]][[1 Kings 18.30|]][[1 Kings 18.31|]][[1 Kings 18.32|]][[1 Kings 18.33|]][[1 Kings 18.34|]][[1 Kings 18.35|]][[1 Kings 18.36|]][[1 Kings 18.37|]][[1 Kings 18.38|]][[1 Kings 18.39|]][[1 Kings 18.40|]].
+[^7]: See [[1 Kings 18.17|1 Kings 18:17–40]][[1 Kings 18.18|]][[1 Kings 18.19|]][[1 Kings 18.20|]][[1 Kings 18.21|]][[1 Kings 18.22|]][[1 Kings 18.23|]][[1 Kings 18.24|]][[1 Kings 18.25|]][[1 Kings 18.26|]][[1 Kings 18.27|]][[1 Kings 18.28|]][[1 Kings 18.29|]][[1 Kings 18.30|]][[1 Kings 18.31|]][[1 Kings 18.32|]][[1 Kings 18.33|]][[1 Kings 18.34|]][[1 Kings 18.35|]][[1 Kings 18.36|]][[1 Kings 18.37|]][[1 Kings 18.38|]][[1 Kings 18.39|]][[1 Kings 18.40|]].
 
-[^8]: See [[1 Kings 17.1|1 Kings 17:1–7]][[1 Kings 17.2|]][[1 Kings 17.3|]][[1 Kings 17.4|]][[1 Kings 17.5|]][[1 Kings 17.6|]][[1 Kings 17.7|]].
+[^8]: See [[1 Kings 17.1|1 Kings 17:1–7]][[1 Kings 17.2|]][[1 Kings 17.3|]][[1 Kings 17.4|]][[1 Kings 17.5|]][[1 Kings 17.6|]][[1 Kings 17.7|]].
 
 [^9]: See [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-[^10]: See Rankin Wilbourne and Brian Gregor, “Jesus Didn’t Suffer to Prove a Philosophical Point,” *Christianity Today,* Sept. 20, 2019, christianitytoday.com.
+[^10]: See Rankin Wilbourne and Brian Gregor, “Jesus Didn’t Suffer to Prove a Philosophical Point,” *Christianity Today,* Sept. 20, 2019, christianitytoday.com.
 
 [^11]: [[Ephesians 4.13|Ephesians 4:13]].
 
-[^12]: Elder Jeffrey R. Holland’s modification of Elder Neal A. Maxwell’s text; see Neal A. Maxwell, “[Lest Ye Be Wearied and Faint in Your Minds](https://churchofjesuschrist.org/study/ensign/1991/05/lest-ye-be-wearied-and-faint-in-your-minds?lang=eng),” *Ensign,* May 1991, 88.
+[^12]: Elder Jeffrey R. Holland’s modification of Elder Neal A. Maxwell’s text; see Neal A. Maxwell, “[Lest Ye Be Wearied and Faint in Your Minds](https://www.churchofjesuschrist.org/study/ensign/1991/05/lest-ye-be-wearied-and-faint-in-your-minds?lang=eng),” *Ensign,* May 1991, 88.
 
 [^13]: [[Alma 32.42|Alma 32:42]].
 
@@ -73,5 +73,6 @@ As we now hear our beloved prophet close this conference, may we remember, as Ru
 
 [^17]: [[Alma 32.42|Alma 32:42]].
 
+[^18]: [[Isaiah 40.31|Isaiah 40:31]]; emphasis added; see also [[Isaiah 40.28|Isaiah 40:28–30]][[Isaiah 40.29|]][[Isaiah 40.30|]].
 
 #Adversity #Faith #Patience

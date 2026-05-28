@@ -1,6 +1,6 @@
 # Peacemakers Needed
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -44,7 +44,7 @@ Brothers and sisters, we can literally change the world—one person and one int
 
 Differences of opinion are part of life. I work every day with dedicated servants of the Lord who do not always see an issue the same way. They know I want to hear their ideas and honest feelings about everything we discuss—*especially* sensitive issues.
 
-My two noble counselors, President Dallin H. Oaks and President Henry B. Eyring, are exemplary in the way they express their feelings—especially when they may differ. They do so with pure love for each other. Neither suggests that he knows best and therefore must rigorously defend his position. Neither evidences the need to compete with the other. Because each is filled with charity, “the pure love of Christ,”[^12] our deliberations can be guided by the Spirit of the Lord. How I love and honor these two great men!
+My two noble counselors, President Dallin H. Oaks and President Henry B. Eyring, are exemplary in the way they express their feelings—especially when they may differ. They do so with pure love for each other. Neither suggests that he knows best and therefore must rigorously defend his position. Neither evidences the need to compete with the other. Because each is filled with charity, “the pure love of Christ,”[^12] our deliberations can be guided by the Spirit of the Lord. How I love and honor these two great men!
 
 Charity is the antidote to contention. Charity is the spiritual gift that helps us to cast off the natural man, who is selfish, defensive, prideful, and jealous. Charity is the principal characteristic of a true follower of Jesus Christ.[^13] Charity defines a peacemaker.
 
@@ -75,11 +75,11 @@ God lives! Jesus is the Christ. He stands at the head of this Church. We are His
 
 
 
-[^1]: [[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]]. The Savior’s promise to peacemakers is that they will “be called the children of God.”
+[^1]: [[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]]. The Savior’s promise to peacemakers is that they will “be called the children of God.”
 
-[^2]: [[Matthew 5.39|Matthew 5:39]]; see also [[3 Nephi 12.39|3 Nephi 12:39]].
+[^2]: [[Matthew 5.39|Matthew 5:39]]; see also [[3 Nephi 12.39|3 Nephi 12:39]].
 
-[^3]: [[Matthew 5.44|Matthew 5:44]]; see also [[3 Nephi 12.44|3 Nephi 12:44]].
+[^3]: [[Matthew 5.44|Matthew 5:44]]; see also [[3 Nephi 12.44|3 Nephi 12:44]].
 
 [^4]: See [[John 13.34|John 13:34]].
 
@@ -89,9 +89,9 @@ God lives! Jesus is the Christ. He stands at the head of this Church. We are His
 
 [^7]: See [[Mosiah 3.19|Mosiah 3:19]].
 
-[^8]: [[3 Nephi 11.29|3 Nephi 11:29]]. John the Revelator saw in vision that the devil would come to earth “having great wrath” ([[Revelation 12.12|Revelation 12:12]]).
+[^8]: [[3 Nephi 11.29|3 Nephi 11:29]]. John the Revelator saw in vision that the devil would come to earth “having great wrath” ([[Revelation 12.12|Revelation 12:12]]).
 
-[^9]: [[3 Nephi 13.24|3 Nephi 13:24]].
+[^9]: [[3 Nephi 13.24|3 Nephi 13:24]].
 
 [^10]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
@@ -103,7 +103,7 @@ God lives! Jesus is the Christ. He stands at the head of this Church. We are His
 
 [^14]: See [[Moroni 7.48|Moroni 7:48]].
 
-[^15]: See [[Moroni 7.45|Moroni 7:45]]; see also [[1 Corinthians 13.4|1 Corinthians 13:4–5]][[1 Corinthians 13.5|]].
+[^15]: See [[Moroni 7.45|Moroni 7:45]]; see also [[1 Corinthians 13.4|1 Corinthians 13:4–5]][[1 Corinthians 13.5|]].
 
 [^16]: [[Mosiah 18.8|Mosiah 18:8]].
 
@@ -115,14 +115,12 @@ God lives! Jesus is the Christ. He stands at the head of this Church. We are His
 
 [^20]: See [[Alma 24.19|Alma 24:19]]; [[Alma 25.14|25:14]].
 
-[^21]: See [[1 Corinthians 13.11|1 Corinthians 13:11]].
+[^21]: See [[1 Corinthians 13.11|1 Corinthians 13:11]].
 
 [^22]: See [[D&C 109.22|Doctrine and Covenants 109:22, 26]][[D&C 109.26|]].
 
-[^23]: [[3 Nephi 12.14|3 Nephi 12:14]].
+[^23]: [[3 Nephi 12.14|3 Nephi 12:14]].
 
-[^24]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^24]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-
-
-#Anger #Charity #Contention #Discipleship #Jesus_Christ #Love #Peace #Peacemaking
+#Anger #Charity #Contention #Discipleship #JesusChrist #Love #Peace #Peacemaking

@@ -1,4 +1,3 @@
 # Combination
 
-
-*See* [[Secret Combinations.md|Secret Combinations]]
+*See also* [[Secret Combinations.md|Secret Combinations]]

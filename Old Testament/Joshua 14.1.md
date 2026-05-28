@@ -5,5 +5,5 @@
 [Joshua 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/14.1?lang=eng#p1)
 
 
-[^a]: [[Numbers 34.17|Num. 34:17]].
-[^b]: [[Numbers 11.28|Num. 11:28]]; [[Numbers 27.18|27:18]].
+[^a]: [[Numbers 34.17|Num. 34:17]].  
+[^b]: [[Numbers 11.28|Num. 11:28]]; [[Numbers 27.18|27:18]].  

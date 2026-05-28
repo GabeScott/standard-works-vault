@@ -1,4 +1,3 @@
 # Reliance
 
-
-*See* [[Dependability.md|Dependability]]
+*See also* [[Dependability.md|Dependability]]

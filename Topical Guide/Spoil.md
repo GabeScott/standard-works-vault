@@ -1,13 +1,12 @@
 # Spoil
 
-
 *See also* [[Prey.md|Prey]]
 
-sons of Jacob came ... and *spoiled* the city, [[Genesis 34.27|Genesis 34:27]].
+sons of Jacob came … and *spoiled* the city, [[Genesis 34.27|Genesis 34:27]].
 
 they *spoiled* the Egyptians, [[Exodus 12.36|Exodus 12:36]].
 
-Better ... to divide the *spoil* with the proud, [[Proverbs 16.19|Proverbs 16:19]].
+Better … to divide the *spoil* with the proud, [[Proverbs 16.19|Proverbs 16:19]].
 
 *spoil* of the poor is in your houses, [[Isaiah 3.14|Isaiah 3:14]] ([[2 Nephi 13.14|2 Nephi 13:14]]).
 
@@ -19,11 +18,11 @@ he shall divide the *spoil* with the strong, [[Isaiah 53.12|Isaiah 53:12]] ([[Mo
 
 they that *spoil* thee shall be a *spoil*, [[Jeremiah 30.16|Jeremiah 30:16]].
 
-Because thou hast *spoiled* many nations, all the remnant ... shall *spoil* thee, [[Habakkuk 2.8|Habakkuk 2:8]].
+Because thou hast *spoiled* many nations, all the remnant … shall *spoil* thee, [[Habakkuk 2.8|Habakkuk 2:8]].
 
 thy *spoil* shall be divided, [[Zechariah 14.1|Zechariah 14:1]].
 
-enter into a ... house, and *spoil* his goods, [[Matthew 12.29|Matthew 12:29]] ([[Mark 3.27|Mark 3:27]]).
+enter into a … house, and *spoil* his goods, [[Matthew 12.29|Matthew 12:29]] ([[Mark 3.27|Mark 3:27]]).
 
 lest any man *spoil* you through philosophy, [[Colossians 2.8|Colossians 2:8]].
 

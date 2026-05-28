@@ -1,6 +1,6 @@
 # All Things for Our Good
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/04/25gong?lang=eng)
 
-Today is April 6, the anniversary of Jesus Christ restoring His latter-day Church—and part of the Easter season, when we joyfully testify of Jesus Christ’s perfect life, atoning sacrifice, and glorious Resurrection.
+Today is April 6, the anniversary of Jesus Christ restoring His latter-day Church—and part of the Easter season, when we joyfully testify of Jesus Christ’s perfect life, atoning sacrifice, and glorious Resurrection.
 
 A Chinese story begins as a man’s son finds a beautiful horse.
 
@@ -77,12 +77,12 @@ Our sacred music echoes His assurance that all things can work together for our 
 >Come, come, ye Saints, no toil nor labor fear;
 >But with joy wend your way.
 >Though hard to you this journey may appear,
->Grace shall be as your day. …
+>Grace shall be as your day. …
 >And should we die before our journey’s through,
 >Happy day! All is well![^21]
 >
 
-The Book of Mormon is evidence we can hold in our hand that Jesus is the Christ and God fulfills His prophecies. Written by inspired prophets who saw our day, the Book of Mormon begins with raw drama—a family dealing with deep differences. Yet, as we study and ponder 1 Nephi 1 through to Moroni 10, we are drawn to Jesus Christ with a firm testimony that what happened there and then can bless us here and now.
+The Book of Mormon is evidence we can hold in our hand that Jesus is the Christ and God fulfills His prophecies. Written by inspired prophets who saw our day, the Book of Mormon begins with raw drama—a family dealing with deep differences. Yet, as we study and ponder 1 Nephi 1 through to Moroni 10, we are drawn to Jesus Christ with a firm testimony that what happened there and then can bless us here and now.
 
 As the Lord, through His living prophet, brings more houses of the Lord closer in more places, temple blessings work together for our good. We come by covenant and ordinance to God our Father and Jesus Christ and gain eternal perspective on mortality. One by one, name by name, we offer beloved family members—ancestors—sacred ordinances and covenant blessings in the Lord’s pattern of saviors on Mount Zion.[^22]
 
@@ -90,7 +90,7 @@ As temples come closer to us in many places, a temple sacrifice we can offer is 
 
 Also, where your circumstances permit, please consider the blessing of owning your own temple clothes.[^23] A grandmother from a humble family said of anything in the world, what she most wanted were her own temple clothes. Her grandson said, “Grandma whispered, ‘I will serve in my own temple clothes, and after I die, I will be buried in them.’” And when the time came, she was.
 
-As President Russell M. Nelson teaches, “*Everything* we believe and *every* promise God has made to His covenant people come together in the temple.”[^24]
+As President Russell M. Nelson teaches, “*Everything* we believe and *every* promise God has made to His covenant people come together in the temple.”[^24]
 
 In time and eternity, the purpose of Creation and the nature of God Himself are to bring all things together for our good.
 
@@ -111,7 +111,7 @@ When life is cluttered and purpose isn’t clear, when you want to live better b
 
 [^5]: See [[Alma 7.11|Alma 7:11]].
 
-[^6]: See [[2 Nephi 9.10|2 Nephi 9:10–12]][[2 Nephi 9.11|]][[2 Nephi 9.12|]]. God respects moral agency, sometimes allowing even the unrighteous acts of others to affect us. But as we willingly seek to do all we can, Jesus Christ’s grace and His enabling and atoning power can cleanse, heal, bind up, reconcile us with ourselves and each other, on both sides of the veil.
+[^6]: See [[2 Nephi 9.10|2 Nephi 9:10–12]][[2 Nephi 9.11|]][[2 Nephi 9.12|]]. God respects moral agency, sometimes allowing even the unrighteous acts of others to affect us. But as we willingly seek to do all we can, Jesus Christ’s grace and His enabling and atoning power can cleanse, heal, bind up, reconcile us with ourselves and each other, on both sides of the veil.
 
 [^7]: See [[Moroni 7.6|Moroni 7:6, 10–12]][[Moroni 7.10|]][[Moroni 7.11|]][[Moroni 7.12|]]. Professor Terry Warner writes perceptively on this topic.
 
@@ -119,7 +119,7 @@ When life is cluttered and purpose isn’t clear, when you want to live better b
 
 [^9]: See [[Moroni 10.32|Moroni 10:32]].
 
-[^10]: See [[D&C 122.4|Doctrine and Covenants 122:4, 7]][[D&C 122.7|]].
+[^10]: See [[D&C 122.4|Doctrine and Covenants 122:4, 7]][[D&C 122.7|]].
 
 [^11]: We learn by experiences we would never choose. Sometimes bearing burdens with the Lord’s help can increase our capacity to bear those burdens; [[Mosiah 24.10|Mosiah 24:10–15]][[Mosiah 24.11|]][[Mosiah 24.12|]][[Mosiah 24.13|]][[Mosiah 24.14|]][[Mosiah 24.15|]] illustrates the Lord’s promise to “visit my people in their afflictions” and to “strengthen them that they could bear up their burdens.” [[Alma 33.23|Alma 33:23]] teaches that our “burdens may be light, through the joy of his Son.” [[Mosiah 18.8|Mosiah 18:8]] reminds us that when we are “willing to bear one another’s burdens … they may be light.”
 
@@ -127,7 +127,7 @@ When life is cluttered and purpose isn’t clear, when you want to live better b
 
 [^13]: [[D&C 122.4|Doctrine and Covenants 122:4]]. Believing trials may be for what is in eternity a “small moment” does not mean to downplay or make less trying or challenging the agonizing pain or suffering we may experience day after day in this life, the unbearable sleepless nights, or the excruciating uncertainties of each new day. Perhaps the promise of being able to look back and see our mortal suffering in light of God’s compassion and eternal view adds some perspective to our understanding of mortality and our hope to endure with faith and trust in Him to the end. Also, when we have eyes to see, there is often good in the now; we need not necessarily wait for a future time to see good.
 
-[^14]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^14]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
 [^15]: See [[Matthew 7.9|Matthew 7:9–10]][[Matthew 7.10|]]. Letting God prevail in our lives is not passively to accept whatever comes. It is actively to believe that Heavenly Father and our Savior, Jesus Christ, want only and always what is best for us. When tragedy strikes, we can ask with faith, not “Why me?” but “What can I learn?” And we can mourn with broken hearts and contrite spirits, knowing, in His time and way, compensating blessings and opportunities will come.
 
@@ -139,13 +139,14 @@ When life is cluttered and purpose isn’t clear, when you want to live better b
 
 [^19]: Faith in the face of difficulty is the opposite of the existential anguish and despair the Book of Mormon describes of those who “curse God, and wish to die” but who “nevertheless … would struggle with the sword for their lives” ([[Mormon 2.14|Mormon 2:14]]).
 
-[^20]: “Be Still, My Soul,” *Hymns*, no. 124.
+[^20]: “Be Still, My Soul,” *Hymns*, no. 124.
 
-[^21]: “Come, Come, Ye Saints,” *Hymns*, no. 30. Consider also:
+[^21]: “Come, Come, Ye Saints,” *Hymns*, no. 30. Consider also:
 
-[^22]: See [[Obadiah 1.21|Obadiah 1:21]]. The Prophet Joseph Smith taught: “How are they \[the Latter-day Saints\] to become saviors on Mount Zion? By building their temples, erecting their baptismal fonts, and going forth and receiving all the ordinances … in behalf of all their progenitors who are dead” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 473).
+[^22]: See [[Obadiah 1.21|Obadiah 1:21]]. The Prophet Joseph Smith taught: “How are they \[the Latter-day Saints\] to become saviors on Mount Zion? By building their temples, erecting their baptismal fonts, and going forth and receiving all the ordinances … in behalf of all their progenitors who are dead” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-41?lang=eng&id=p18#p18)* \[2007\], 473).
 
 [^23]: Members attending the temple for the first time can purchase temple clothes at a significant discount.
 
+[^24]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94.
 
-#Adversity #Atonement #God_The_Father #Jesus_Christ #Plan_Of_Salvation #Temple_Work #Temples
+#Adversity #Atonement #GodTheFather #JesusChrist #PlanOfSalvation #Temples #TempleWork

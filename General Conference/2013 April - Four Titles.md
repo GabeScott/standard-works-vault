@@ -1,6 +1,6 @@
 # Four Titles
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -127,7 +127,7 @@ I pray that as you ponder the many titles of a worthy priesthood holder, you wil
 
 [^9]: [[D&C 84.33|Doctrine and Covenants 84:33, 35, 37–38]][[D&C 84.35|]][[D&C 84.37|]][[D&C 84.38|]].
 
-[^10]: [[1 Corinthians 1.27|1 Corinthians 1:27]].
+[^10]: [[1 Corinthians 1.27|1 Corinthians 1:27]].
 
 [^11]: See [[Romans 8.31|Romans 8:31]].
 
@@ -137,6 +137,4 @@ I pray that as you ponder the many titles of a worthy priesthood holder, you wil
 
 [^14]: [[Ephesians 4.13|Ephesians 4:13]].
 
-
-
-#Discipleship #Divine_Nature #Healing #Service
+#Discipleship #DivineNature #Healing #Service

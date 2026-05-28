@@ -92,13 +92,13 @@ The words of a Primary hymn express the feelings of a child’s heart:
 >All in the lovelight of Jesus’ face.
 >
 
-I know of no more touching passage in scripture than the account of the Savior blessing the children, as recorded in 3 Nephi. The Master spoke movingly to the vast multitude of men, women, and children. Then, responding to their faith and the desire that He tarry longer, He invited them to bring to Him their lame, their blind, and their sick, that He might heal them. With joy they accepted His invitation. The record reveals that “he did heal them every one” ([[3 Nephi 17.9|3 Ne. 17:9]]). There followed His mighty prayer to His Father. The multitude bore record: “The eye hath never seen, neither hath the ear heard, before, so great and marvelous things as we saw and heard Jesus speak unto the Father” ([[3 Nephi 17.16|v. 16]]).
+I know of no more touching passage in scripture than the account of the Savior blessing the children, as recorded in 3 Nephi. The Master spoke movingly to the vast multitude of men, women, and children. Then, responding to their faith and the desire that He tarry longer, He invited them to bring to Him their lame, their blind, and their sick, that He might heal them. With joy they accepted His invitation. The record reveals that “he did heal them every one” ([[3 Nephi 17.9|3 Ne. 17:9]]). There followed His mighty prayer to His Father. The multitude bore record: “The eye hath never seen, neither hath the ear heard, before, so great and marvelous things as we saw and heard Jesus speak unto the Father” ([[3 Nephi 17.16|v. 16]]).
 
-Concluding this magnificent event, Jesus “wept, … and he took their little children, one by one, and blessed them, and prayed unto the Father for them. …
+Concluding this magnificent event, Jesus “wept, … and he took their little children, one by one, and blessed them, and prayed unto the Father for them. …
 
 “And he spake unto the multitude, and said unto them: Behold your little ones.
 
-“And as they looked to behold they cast their eyes towards heaven, and they saw the heavens open, and they saw angels descending out of heaven … ; and they came down and encircled those little ones … ; and the angels did minister unto them” ([[3 Nephi 17.21|vs. 21, 23–24]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
+“And as they looked to behold they cast their eyes towards heaven, and they saw the heavens open, and they saw angels descending out of heaven … ; and they came down and encircled those little ones … ; and the angels did minister unto them” ([[3 Nephi 17.21|vs. 21, 23–24]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
 
 Over and over in my mind I pondered the phrase, “Whosoever shall not receive the kingdom of God as a little child, he shall not enter therein” ([[Mark 10.15|Mark 10:15]]).
 
@@ -126,4 +126,5 @@ Peace will then be their blessing. It will be our blessing, also, as we remember
 
 
 
-#Abuse #Example #Love #Missionary_Work #Service
+
+#Abuse #Example #Love #MissionaryWork #Service

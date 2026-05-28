@@ -1,10 +1,10 @@
 # Welcome to Conference
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2012 General Conference*
 
->*May we listen attentively to the messages … , that we may feel the Spirit of the Lord and gain the knowledge He would desire for us.*
+>*May we listen attentively to the messages … , that we may feel the Spirit of the Lord and gain the knowledge He would desire for us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/welcome-to-conference?lang=eng)
 
@@ -16,7 +16,7 @@ How good it is, my brothers and sisters, to welcome you to the 182nd Semiannual 
 
 Since we met six months ago, three new temples have been dedicated, and one temple has been rededicated. In May, it was my privilege to dedicate the beautiful Kansas City Missouri Temple and to attend the cultural celebration associated with it. I will mention that celebration in greater detail in my remarks tomorrow morning.
 
-In June, President Dieter F. Uchtdorf dedicated the long-awaited temple in Manaus, Brazil, and in early September, President Henry B. Eyring rededicated the newly refurbished temple in Buenos Aires, Argentina, a temple which I had the privilege to dedicate nearly 27 years ago. Just two weeks ago, President Boyd K. Packer dedicated the lovely Brigham City Temple in the hometown where he was born and raised.
+In June, President Dieter F. Uchtdorf dedicated the long-awaited temple in Manaus, Brazil, and in early September, President Henry B. Eyring rededicated the newly refurbished temple in Buenos Aires, Argentina, a temple which I had the privilege to dedicate nearly 27 years ago. Just two weeks ago, President Boyd K. Packer dedicated the lovely Brigham City Temple in the hometown where he was born and raised.
 
 As I have indicated previously, no Church-built facility is more important than a temple, and we are pleased to have 139 temples in operation throughout the world, with 27 more announced or under construction. We are grateful for these sacred edifices and the blessings they bring into our lives.
 
@@ -41,6 +41,4 @@ Now, my brothers and sisters, may we listen attentively to the messages which wi
 
 
 
-
-
-#Couple_Missionaries #Missionary_Work #Temples
+#CoupleMissionaries #MissionaryWork #Temples

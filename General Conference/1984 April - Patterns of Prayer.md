@@ -127,6 +127,4 @@ And such is my prayer for myself and my family and for all Israel. In the name o
 
 
 
-
-
 #Prayer

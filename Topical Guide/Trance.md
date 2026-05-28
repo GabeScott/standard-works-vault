@@ -1,6 +1,5 @@
 # Trance
 
-
 *See also* [[Dream.md|Dream]]; [[Vision.md|Vision]]
 
 vision of the Almighty, falling into a *trance*, [[Numbers 24.4|Numbers 24:4]].

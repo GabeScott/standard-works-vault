@@ -1,11 +1,10 @@
 # Name of the Lord
 
-
 *See also* [[Name.md|Name]]
 
 began men to call upon the *name of the Lord*, [[Genesis 4.26|Genesis 4:26]].
 
-an altar ... and called upon the *name of the Lord*, [[Genesis 12.8|Genesis 12:8]].
+an altar … and called upon the *name of the Lord*, [[Genesis 12.8|Genesis 12:8]].
 
 this is my *name* for ever, [[Exodus 3.15|Exodus 3:15]].
 
@@ -37,7 +36,7 @@ In Jerusalem will I put my *name*, [[2 Kings 21.4|2 Kings 21:4]].
 
 Give unto the *Lord* the glory due unto his *name*, [[1 Chronicles 16.29|1 Chronicles 16:29]] ([[Psalms 29.2|Psalms 29:2]]; [[Psalms 96.8|Psalms 96:8]]).
 
-prophesied ... in the *name* of the God of Israel, [[Ezra 5.1|Ezra 5:1]].
+prophesied … in the *name* of the God of Israel, [[Ezra 5.1|Ezra 5:1]].
 
 they that know thy *name* will put their trust in thee, [[Psalms 9.10|Psalms 9:10]].
 
@@ -47,13 +46,13 @@ His *name* shall endure for ever, [[Psalms 72.17|Psalms 72:17]] ([[Psalms 135.13
 
 thou, whose *name* alone is Jehovah, art the most high, [[Psalms 83.18|Psalms 83:18]].
 
-give thanks ... call upon his *name*, [[Psalms 105.1|Psalms 105:1]].
+give thanks … call upon his *name*, [[Psalms 105.1|Psalms 105:1]].
 
 holy and reverend is his *name*, [[Psalms 111.9|Psalms 111:9]].
 
 Blessed be he that cometh in the *name of the Lord*, [[Psalms 118.26|Psalms 118:26]].
 
-a virgin shall ... bear a son, and shall call his *name* Immanuel, [[Isaiah 7.14|Isaiah 7:14]] ([[Matthew 1.23|Matthew 1:23]]; [[2 Nephi 17.14|2 Nephi 17:14]]).
+a virgin shall … bear a son, and shall call his *name* Immanuel, [[Isaiah 7.14|Isaiah 7:14]] ([[Matthew 1.23|Matthew 1:23]]; [[2 Nephi 17.14|2 Nephi 17:14]]).
 
 his *name* shall be called Wonderful, Counsellor, [[Isaiah 9.6|Isaiah 9:6]] ([[2 Nephi 19.6|2 Nephi 19:6]]).
 
@@ -69,7 +68,7 @@ they were not called by thy *name*, [[Isaiah 63.19|Isaiah 63:19]].
 
 a nation that was not called by my *name*, [[Isaiah 65.1|Isaiah 65:1]].
 
-nations ... gathered unto it, to the *name of the Lord*, [[Jeremiah 3.17|Jeremiah 3:17]].
+nations … gathered unto it, to the *name of the Lord*, [[Jeremiah 3.17|Jeremiah 3:17]].
 
 shall call on the *name of the Lord*, [[Joel 2.32|Joel 2:32]] ([[Romans 10.13|Romans 10:13]]).
 
@@ -87,35 +86,35 @@ Hallowed be thy *name*, [[Matthew 6.9|Matthew 6:9]] ([[Luke 11.2|Luke 11:2]]; [[
 
 in thy *name* have cast out devils, [[Matthew 7.22|Matthew 7:22]] ([[3 Nephi 14.22|3 Nephi 14:22]]).
 
-hated of all men for my *name's* sake, [[Matthew 10.22|Matthew 10:22]].
+hated of all men for my *name’s* sake, [[Matthew 10.22|Matthew 10:22]].
 
 in his *name* shall the Gentiles trust, [[Matthew 12.21|Matthew 12:21]].
 
-receive ... child in my *name* receiveth me, [[Matthew 18.5|Matthew 18:5]] ([[Luke 9.48|Luke 9:48]]).
+receive … child in my *name* receiveth me, [[Matthew 18.5|Matthew 18:5]] ([[Luke 9.48|Luke 9:48]]).
 
 gathered together in my *name*, there am I, [[Matthew 18.20|Matthew 18:20]] ([[D&C 6.32|D&C 6:32]]).
 
-forsaken ... for my *name's* sake, shall receive an hundredfold, [[Matthew 19.29|Matthew 19:29]].
+forsaken … for my *name’s* sake, shall receive an hundredfold, [[Matthew 19.29|Matthew 19:29]].
 
 many shall come in my *name*, [[Matthew 24.5|Matthew 24:5]] ([[Joseph Smith Matthew 1.6|Joseph Smith Matthew 1:6]]).
 
 teach all nations, baptizing them in the *name* of the Father, [[Matthew 28.19|Matthew 28:19]].
 
-no man which shall do a miracle in my *name* ... speak evil of me, [[Mark 9.39|Mark 9:39]].
+no man which shall do a miracle in my *name* … speak evil of me, [[Mark 9.39|Mark 9:39]].
 
 In my *name* shall they cast out devils, [[Mark 16.17|Mark 16:17]].
 
-Jesus ... so *named* of the angel before he was conceived, [[Luke 2.21|Luke 2:21]].
+Jesus … so *named* of the angel before he was conceived, [[Luke 2.21|Luke 2:21]].
 
 to them that believe on his *name*, [[John 1.12|John 1:12]].
 
 many believed in his *name*, when they saw the miracles, [[John 2.23|John 2:23]].
 
-works that I do in my Father's *name*, [[John 10.25|John 10:25]].
+works that I do in my Father’s *name*, [[John 10.25|John 10:25]].
 
 whatsoever ye shall ask in my *name*, that will I do, [[John 14.13|John 14:13]].
 
-Holy Ghost ... Father will send in my *name*, [[John 14.26|John 14:26]].
+Holy Ghost … Father will send in my *name*, [[John 14.26|John 14:26]].
 
 ask of the Father in my *name*, [[John 15.16|John 15:16]].
 
@@ -123,13 +122,13 @@ I have declared unto them thy *name*, [[John 17.26|John 17:26]].
 
 believing ye might have life through his *name*, [[John 20.31|John 20:31]].
 
-be baptized ... in the *name* of Jesus Christ, [[Acts 2.38|Acts 2:38]].
+be baptized … in the *name* of Jesus Christ, [[Acts 2.38|Acts 2:38]].
 
 In the *name* of Jesus Christ of Nazareth rise up and walk, [[Acts 3.6|Acts 3:6]] ([[Acts 4.10|Acts 4:10]]).
 
 By what power, or by what *name*, have ye done this, [[Acts 4.7|Acts 4:7]].
 
-there is none other *name* ... whereby we must be saved, [[Acts 4.12|Acts 4:12]] ([[2 Nephi 25.20|2 Nephi 25:20]]; [[2 Nephi 31.21|2 Nephi 31:21]]; [[Mosiah 3.17|Mosiah 3:17]]).
+there is none other *name* … whereby we must be saved, [[Acts 4.12|Acts 4:12]] ([[2 Nephi 25.20|2 Nephi 25:20]]; [[2 Nephi 31.21|2 Nephi 31:21]]; [[Mosiah 3.17|Mosiah 3:17]]).
 
 that ye should not teach in this *name*, [[Acts 5.28|Acts 5:28]].
 
@@ -137,7 +136,7 @@ worthy to suffer shame for his *name*, [[Acts 5.41|Acts 5:41]].
 
 chosen vessel unto me, to bear my *name* before the Gentiles, [[Acts 9.15|Acts 9:15]].
 
-through his *name* whosoever believeth ... receive remission of sins, [[Acts 10.43|Acts 10:43]].
+through his *name* whosoever believeth … receive remission of sins, [[Acts 10.43|Acts 10:43]].
 
 Gentiles, to take out of them a people for his *name*, [[Acts 15.14|Acts 15:14]].
 
@@ -145,7 +144,7 @@ do many things contrary to the *name* of Jesus, [[Acts 26.9|Acts 26:9]].
 
 *name* of God is blasphemed among the Gentiles, [[Romans 2.24|Romans 2:24]].
 
-Far above ... every *name* that is *named*, [[Ephesians 1.21|Ephesians 1:21]] ([[Philippians 2.9|Philippians 2:9]]).
+Far above … every *name* that is *named*, [[Ephesians 1.21|Ephesians 1:21]] ([[Philippians 2.9|Philippians 2:9]]).
 
 do all in the *name of the Lord*, [[Colossians 3.17|Colossians 3:17]].
 
@@ -165,7 +164,7 @@ thou holdest fast my *name*, [[Revelation 2.13|Revelation 2:13]].
 
 to blaspheme his *name*, [[Revelation 13.6|Revelation 13:6]].
 
-having his Father's *name* written in their foreheads, [[Revelation 14.1|Revelation 14:1]].
+having his Father’s *name* written in their foreheads, [[Revelation 14.1|Revelation 14:1]].
 
 a *name* written, that no man knew, but he himself, [[Revelation 19.12|Revelation 19:12]].
 
@@ -179,7 +178,7 @@ I will not suffer my *name* to be polluted, [[1 Nephi 20.11|1 Nephi 20:11]].
 
 he cannot be deceived, for the *Lord* God is his *name*, [[2 Nephi 9.41|2 Nephi 9:41]].
 
-Christ— ... angel spake unto me that this should be his *name*, [[2 Nephi 10.3|2 Nephi 10:3]].
+Christ— … angel spake unto me that this should be his *name*, [[2 Nephi 10.3|2 Nephi 10:3]].
 
 his *name* shall be Jesus Christ, [[2 Nephi 25.19|2 Nephi 25:19]].
 
@@ -217,15 +216,13 @@ ask God, the Eternal Father, in the *name* of Christ, [[Moroni 10.4|Moroni 10:4]
 
 that every man might speak in the *name* of God the *Lord*, [[D&C 1.20|D&C 1:20]].
 
-in the *name* of Messiah I confer the Priesthood of Aaron, ([[Joseph Smith History 1.69|Joseph Smith History 1:69]]).
-
 Ask the Father in my *name*, [[D&C 18.18|D&C 18:18]].
 
 Jesus Christ is the *name* which is given of the Father, [[D&C 18.23|D&C 18:23]].
 
 Twelve shall be my disciples, and they shall take upon them my *name*, [[D&C 18.27|D&C 18:27]].
 
-I am endless ... for Endless is my *name*, [[D&C 19.10|D&C 19:10]] ([[Moses 1.3|Moses 1:3]]).
+I am endless … for Endless is my *name*, [[D&C 19.10|D&C 19:10]] ([[Moses 1.3|Moses 1:3]]).
 
 honor, power and glory be rendered to his holy *name*, [[D&C 20.36|D&C 20:36]].
 
@@ -237,7 +234,7 @@ Believe on the *name of the Lord* Jesus, [[D&C 49.12|D&C 49:12]].
 
 beware how they take my *name* in their lips, [[D&C 63.61|D&C 63:61]].
 
-condemnation, who use the *name of the Lord* ... in vain, [[D&C 63.62|D&C 63:62]].
+condemnation, who use the *name of the Lord* … in vain, [[D&C 63.62|D&C 63:62]].
 
 They are they who received the testimony of Jesus, and believed on his *name*, [[D&C 76.51|D&C 76:51]].
 
@@ -247,7 +244,7 @@ That your incomings may be in the *name of the Lord*, [[D&C 88.120|D&C 88:120]] 
 
 build a house unto me in the *name of the Lord*, [[D&C 97.15|D&C 97:15]].
 
-treasury ... consecrate it unto my *name*, [[D&C 104.60|D&C 104:60]].
+treasury … consecrate it unto my *name*, [[D&C 104.60|D&C 104:60]].
 
 that thy *name* may be upon them, [[D&C 109.22|D&C 109:22]].
 
@@ -261,9 +258,9 @@ I will magnify my *name* upon all those who receive, [[D&C 132.64|D&C 132:64]].
 
 Call upon God in the *name* of mine Only Begotten, [[Moses 1.17|Moses 1:17]].
 
-Jesus Christ, the only *name* ... whereby salvation shall come, [[Moses 6.52|Moses 6:52]].
+Jesus Christ, the only *name* … whereby salvation shall come, [[Moses 6.52|Moses 6:52]].
 
-Man of Holiness is my *name*; Man of Counsel ... Endless and Eternal, [[Moses 7.35|Moses 7:35]].
+Man of Holiness is my *name*; Man of Counsel … Endless and Eternal, [[Moses 7.35|Moses 7:35]].
 
 be baptized in the *name* of Jesus Christ, [[Moses 8.24|Moses 8:24]].
 

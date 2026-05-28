@@ -38,15 +38,15 @@ He was a man of miracles. He reached out to those in distress. He healed the sic
 
 We look upon His matchless life and say with the prophet Isaiah:
 
-“He hath borne our griefs, and carried our sorrows. …
+“He hath borne our griefs, and carried our sorrows. …
 
-“… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed” ([[Isaiah 53.4|Isa. 53:4–5]][[Isaiah 53.5|]]).
+“… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed” ([[Isaiah 53.4|Isa. 53:4–5]][[Isaiah 53.5|]]).
 
 When the great War in Heaven was fought, Lucifer, the son of the morning, came forth with a plan that was rejected. The Father of us all, with love for us, His children, offered a better plan under which we would have freedom to choose the course of our lives. His Firstborn Son, our Elder Brother, was the key to that plan. Man would have his agency, and with that agency would go accountability. Man would walk the ways of the world and sin and stumble. But the Son of God would take upon Himself flesh and offer Himself a sacrifice to atone for the sins of all men. Through unspeakable suffering He would become the great Redeemer, the Savior of all mankind.
 
 With some small understanding of that incomparable gift, that marvelous gift of redemption, we bow in reverent love before Him.
 
-As a Church we have critics, many of them. They say we do not believe in the traditional Christ of Christianity. There is some substance to what they say. Our faith, our knowledge is not based on ancient tradition, the creeds which came of a finite understanding and out of the almost infinite discussions of men trying to arrive at a definition of the risen Christ. Our faith, our knowledge comes of the witness of a prophet in this dispensation who saw before him the great God of the universe and His Beloved Son, the resurrected Lord Jesus Christ. They spoke to him. He spoke with Them. He testified openly, unequivocally, and unabashedly of that great vision. It was a vision of the Almighty and of the Redeemer of the world, glorious beyond our understanding but certain and unequivocating in the knowledge which it brought. It is out of that knowledge, rooted deep in the soil of modern revelation, that we, in the words of Nephi, “talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that \[we and\] our children may know to what source \[we\] may look for a remission of \[our\] sins” ([[2 Nephi 25.26|2 Ne. 25:26]]).
+As a Church we have critics, many of them. They say we do not believe in the traditional Christ of Christianity. There is some substance to what they say. Our faith, our knowledge is not based on ancient tradition, the creeds which came of a finite understanding and out of the almost infinite discussions of men trying to arrive at a definition of the risen Christ. Our faith, our knowledge comes of the witness of a prophet in this dispensation who saw before him the great God of the universe and His Beloved Son, the resurrected Lord Jesus Christ. They spoke to him. He spoke with Them. He testified openly, unequivocally, and unabashedly of that great vision. It was a vision of the Almighty and of the Redeemer of the world, glorious beyond our understanding but certain and unequivocating in the knowledge which it brought. It is out of that knowledge, rooted deep in the soil of modern revelation, that we, in the words of Nephi, “talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that \[we and\] our children may know to what source \[we\] may look for a remission of \[our\] sins” ([[2 Nephi 25.26|2 Ne. 25:26]]).
 
 And so, my brothers and sisters, as we bid you good-bye for a season, we repeat our firm and enduring testimony. We do it as individuals with a sure and certain knowledge. As I have said many times before, and as I now say again, I know that God our Eternal Father lives. He is the great God of the universe. He is the Father of our spirits, with whom we may speak in prayer.
 
@@ -57,6 +57,4 @@ Of these things I testify in solemnity as I leave with you, my beloved associate
 
 
 
-
-
-#Faith #Jesus_Christ #Testimony
+#Faith #JesusChrist #Testimony

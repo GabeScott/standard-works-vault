@@ -1,7 +1,6 @@
 # Hymn
 
-
-*See also* [[Music.md|Music]]; [[Singing, Sing, Sang, Sung.md|Singing]]; [BD Hymns](https://www.churchofjesuschrist.org/study/scriptures/bd/hymns?lang=eng)
+*See also* [[Music.md|Music]]; [[Singing.md|Singing]]; [[BD Hymns.md|BD Hymns]]
 
 had sung an *hymn*, they went out, [[Matthew 26.30|Matthew 26:30]] ([[Mark 14.26|Mark 14:26]]).
 

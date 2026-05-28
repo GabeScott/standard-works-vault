@@ -1,6 +1,6 @@
 # Your Sorrow Shall Be Turned to Joy
 
-By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
+By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -34,13 +34,13 @@ On one occasion Elder LeGrand Richards, who was being helped into a wheelchair a
 
 We are told that out of suffering, sorrow, and sadness that joy will come. Sometimes we cannot understand that mortal suffering can bring eternal blessings. Jesus told his Apostles:
 
-“A little while, and ye shall not see me. …
+“A little while, and ye shall not see me. …
 
 “I say unto you, That ye shall weep and lament, but the world shall rejoice: and ye shall be sorrowful, but your sorrow shall be turned into joy.” ([[John 16.16|John 16:16, 20]][[John 16.20|]].)
 
 Jesus likened this to a woman’s travail and suffering before her hour of delivery: as soon as she gives birth, “she remembereth no more the anguish.” ([[John 16.21|John 16:21]].)
 
-After the Crucifixion, the earth was rent by earthquakes and eruptions that caused death and destruction. (See [[Matthew 27.51|Matt. 27:51]].) How could those who experienced such suffering have any comprehension of the joyous scene described by President Joseph F. Smith’s vision of the Savior’s visit to the spirits of the dead in the spirit world while his body lay in the tomb?
+After the Crucifixion, the earth was rent by earthquakes and eruptions that caused death and destruction. (See [[Matthew 27.51|Matt. 27:51]].) How could those who experienced such suffering have any comprehension of the joyous scene described by President Joseph F. Smith’s vision of the Savior’s visit to the spirits of the dead in the spirit world while his body lay in the tomb?
 
 “All these had departed the mortal life, firm in the hope of a glorious resurrection, through the grace of God the Father and his Only Begotten Son, Jesus Christ.
 
@@ -88,7 +88,7 @@ Jesus was born of heavenly parents in a premortal world—he was the firstborn o
 
 In the study of the Atonement, most of us have probably asked the question, “Why is it so easy for the world to see and believe that in Adam all men died and were cast out from the presence of our Heavenly Father, yet it is so hard for the world to understand how Jesus Christ can bring us back in the same manner?” The scriptures are clear on this.
 
-“For as by one man’s disobedience \[Adam\] many were made sinners, so by the obedience of one shall many be made righteous. …
+“For as by one man’s disobedience \[Adam\] many were made sinners, so by the obedience of one shall many be made righteous. …
 
 “That as sin hath reigned unto death, even so might grace reign through righteousness unto eternal life by Jesus Christ our Lord.” ([[Romans 5.19|Rom. 5:19, 21]][[Romans 5.21|]].)
 
@@ -119,8 +119,6 @@ In the study of the Atonement, most of us have probably asked the question, “W
 >
 
 It is my prayer that our sorrow and suffering will strengthen our faith in the Lord Jesus Christ, that our sorrow shall be turned to joy, in the name of Jesus Christ, amen.
-
-
 
 
 

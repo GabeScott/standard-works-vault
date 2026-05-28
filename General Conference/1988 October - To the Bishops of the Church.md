@@ -34,7 +34,7 @@ The requirements of a bishop today are as they were in the days of Paul, who wro
 
 “(For if a man know not how to rule his own house, how shall he take care of the church of God?)
 
-“Not a novice, lest being lifted up with pride he fall into the condemnation of the devil.” ([[1 Timothy 3.2|1 Tim. 3:2–6]][[1 Timothy 3.3|]][[1 Timothy 3.4|]][[1 Timothy 3.5|]][[1 Timothy 3.6|]].)
+“Not a novice, lest being lifted up with pride he fall into the condemnation of the devil.” ([[1 Timothy 3.2|1 Tim. 3:2–6]][[1 Timothy 3.3|]][[1 Timothy 3.4|]][[1 Timothy 3.5|]][[1 Timothy 3.6|]].)
 
 In his letter to Titus, Paul adds that “a bishop must be blameless, as the steward of God; …
 
@@ -62,7 +62,7 @@ You must be their counselor, their comforter, their anchor and strength in times
 
 “As you know, I had left the Church at the age of seventeen and had broken just about every rule and commandment that there was in my search for happiness and fulfillment. Instead of happiness, my life was filled with misery, anguish, and despair. There was no hope or future for me. I even pleaded with God to let me die, to take me out of my misery. Not even he wanted me. I felt that he had rejected me, too.
 
-“That’s when I turned to you and the Church. …
+“That’s when I turned to you and the Church. …
 
 “You listened with understanding, you counseled, you guided, you helped.
 
@@ -101,8 +101,6 @@ I bear testimony of the strength and goodness of the bishops of this church. I p
 Someday you will be released. It will be a time of sadness for you. But there will be comfort as your people thank you. Nor will they ever forget you. They will remember you and speak with appreciation through years to come, for among all Church officers you are nearest to them. You have been called, ordained, and set apart as shepherds to the flock. You have been endowed with discernment, judgment, and love to bless their lives. In the process, you will bless your own.
 
 I bear testimony of the divine nature of your calling and of the magnificent way in which you fulfill it. May you, your counselors, your wives, your children be blessed as you serve the children of the Lord, I humbly pray in the name of Jesus Christ, amen.
-
-
 
 
 

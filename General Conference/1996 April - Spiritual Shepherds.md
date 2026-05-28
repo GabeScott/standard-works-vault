@@ -48,7 +48,7 @@ There is a compelling desire to belong—to be one of the group. If he can get j
 
 Don’t be deceived. Don’t be influenced with this kind of enticement. Keep your eyes above the crowd. Be your own person. You have been taught correct principles. Stick with those principles.
 
-There is no neutral area between good and evil. If you are on the devil’s turf, get off it as fast as you can. As strong as Nephi was, I can’t forget his humble prayer: “O Lord, wilt thou … make me that I may shake at the appearance of sin?” ([[2 Nephi 4.31|2 Ne. 4:31]]).
+There is no neutral area between good and evil. If you are on the devil’s turf, get off it as fast as you can. As strong as Nephi was, I can’t forget his humble prayer: “O Lord, wilt thou … make me that I may shake at the appearance of sin?” ([[2 Nephi 4.31|2 Ne. 4:31]]).
 
 Some foolishly try to justify conduct they know is wrong with, “It’s such a little sin; it won’t matter.” While it may be true that the particular conduct is not at the top of the scale, the more dangerous part is the road that it puts you on. “Little wrongs” just seem to have a way of leading into “bigger wrongs.”
 
@@ -58,7 +58,7 @@ Now, my young brethren, you know what is right. You have been taught well. You h
 
 One of the greatest blessings of this dispensation is the presence of living prophets to provide direction and guidance. President Gordon B. Hinckley is our beloved prophet today. He loves you. Listen to his counsel:
 
-“Prove your strength, show your independence, by saying no when enticement from peers comes your way. Your own strength will add strength to those who are weak. Your own example will give determination to others” (in Conference Report, Apr. 1987, 59; or *Ensign,* May 1987, 48).
+“Prove your strength, show your independence, by saying no when enticement from peers comes your way. Your own strength will add strength to those who are weak. Your own example will give determination to others” (in Conference Report, Apr. 1987, [[1987 April - Reverence and Morality.md|59]]; or *Ensign,* May 1987, 48).
 
 “You can determine the kind of life you will have in your thirties or forties by what you do in your teens” (quoted in *Ensign,* Dec. 1995, 66).
 
@@ -69,6 +69,4 @@ This is the true Church of Jesus Christ. This is His work. Of that I testify in 
 
 
 
-
-
-#Evil #Friendship #Parents #Peer_Pressure #Priesthood #Prophets #Youth
+#Evil #Friendship #Parents #PeerPressure #Priesthood #Prophets #Youth

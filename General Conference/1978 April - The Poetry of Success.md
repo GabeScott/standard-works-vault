@@ -1,12 +1,12 @@
 # The Poetry of Success
 
-By Elder Sterling W. Sill - *Of the First Quorum of the Seventy*
+By Elder Sterling W. Sill - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/04/the-poetry-of-success?lang=eng)
 
-Sometime ago I read a very helpful book written by New York psychiatrist Smiley Blanton, under the title of *The Healing Power of Poetry* (New York: Thomas Y. Crowell Co., 1960). In his book Dr. Blanton explains how for forty years he had used great ideas to heal people of their emotional difficulties and psychiatric problems. These ideas were not all in poetic form. He also used the great scriptures, the great prose, and the great hymns.
+Sometime ago I read a very helpful book written by New York psychiatrist Smiley Blanton, under the title of *The Healing Power of Poetry* (New York: Thomas Y. Crowell Co., 1960). In his book Dr. Blanton explains how for forty years he had used great ideas to heal people of their emotional difficulties and psychiatric problems. These ideas were not all in poetic form. He also used the great scriptures, the great prose, and the great hymns.
 
 I suppose this healing power of the psychiatrist might be related to the practice of a medical doctor who writes prescriptions for people to be filled not at drugstores but at bookstores, for he has discovered that there is frequently more healing power in books than in bottles. A mother heals the bumps and bruises of her children by her caresses and her loving expressions of sympathy.
 
@@ -62,7 +62,7 @@ But, said he:
 >And nothing in the steel-clad fist of fate can make me quit.
 >
 
-It has been said that the poets stand next to the prophets in their ability to lift us up. I have never heard of Eliza R. Snow being sustained as a prophet, and yet she wrote “O My Father.” Sometimes we merely read these great lyrics out of the hymnbook instead of memorizing them and loving them and frequently saying them over to ourselves. Just think what would happen in the world if each person made his own selection of those ninety great poems of faith that most thrill him. I am sure that this afternoon you would not like to hear me try to sing “O My Father,” but I hope you will not object if I recite to you those great words of faith and worship, wherein Sister Snow said:
+It has been said that the poets stand next to the prophets in their ability to lift us up. I have never heard of Eliza R. Snow being sustained as a prophet, and yet she wrote “O My Father.” Sometimes we merely read these great lyrics out of the hymnbook instead of memorizing them and loving them and frequently saying them over to ourselves. Just think what would happen in the world if each person made his own selection of those ninety great poems of faith that most thrill him. I am sure that this afternoon you would not like to hear me try to sing “O My Father,” but I hope you will not object if I recite to you those great words of faith and worship, wherein Sister Snow said:
 
 >O my Father, thou that dwellest
 >In the high and glorious place,
@@ -172,8 +172,6 @@ And I would like to extend to each of you my own blessing and appreciation in th
 >
 
 And that it may always be so I sincerely pray in the name of Jesus Christ. Amen.
-
-
 
 
 

@@ -1,4 +1,3 @@
 # Song
 
-
-*See* [[Singing, Sing, Sang, Sung.md|Singing]]
+*See also* [[Singing.md|Singing]]

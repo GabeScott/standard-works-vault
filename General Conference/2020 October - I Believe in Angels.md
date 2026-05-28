@@ -1,6 +1,6 @@
 # I Believe in Angels
 
-By Elder Carlos A. Godoy - *Of the Presidency of the Seventy*
+By Elder Carlos A. Godoy - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Carlos A. Godoy - *Of the Presidency of the Seventy*
 
 Brothers and sisters, I believe in angels, and I would like to share with you my experiences with them. In doing so, I hope and pray that we will recognize the importance of angels in our lives.
 
-Here are Elder Jeffrey R. Holland’s words from a past general conference: “When we speak of those who are instruments in the hand of God, we are reminded that not all angels are from the other side of the veil. Some of them we walk with and talk with—here, now, every day. Some of them reside in our own neighborhoods. … Indeed heaven never seems closer than when we see the love of God manifested in the kindness and devotion of people so good and so pure that *angelic* is the only word that comes to mind” (“[[2008 October - The Ministry of Angels.md|The Ministry of Angels]],” *Ensign* or *Liahona,* Nov. 2008, 30).
+Here are Elder Jeffrey R. Holland’s words from a past general conference: “When we speak of those who are instruments in the hand of God, we are reminded that not all angels are from the other side of the veil. Some of them we walk with and talk with—here, now, every day. Some of them reside in our own neighborhoods. … Indeed heaven never seems closer than when we see the love of God manifested in the kindness and devotion of people so good and so pure that *angelic* is the only word that comes to mind” (“[[2008 October - The Ministry of Angels.md|The Ministry of Angels]],” *Ensign* or *Liahona,* Nov. 2008, 30).
 
 It is about angels on this side of the veil that I want to talk. The angels that walk among us in our everyday lives are powerful reminders of God’s love for us.
 
@@ -38,7 +38,7 @@ Thanks to all these angels, and many others I encountered during those important
 
 And by the way, that young angel girl, Mônica? After we both served missions, she became my wife.
 
-I don’t think it was a coincidence that good friends, Church responsibilities, and nurturing by the good word of God were part of that process. President Gordon B. Hinckley wisely taught: “It is not an easy thing to make the transition incident to joining this Church. It means cutting old ties. It means leaving friends. It may mean setting aside cherished beliefs. It may require a change of habits and a suppression of appetites. In so many cases it means loneliness and even fear of the unknown. There must be nurturing and strengthening during this difficult season of a convert’s life” (“,” *Ensign,* Oct. 1987, 5).
+I don’t think it was a coincidence that good friends, Church responsibilities, and nurturing by the good word of God were part of that process. President Gordon B. Hinckley wisely taught: “It is not an easy thing to make the transition incident to joining this Church. It means cutting old ties. It means leaving friends. It may mean setting aside cherished beliefs. It may require a change of habits and a suppression of appetites. In so many cases it means loneliness and even fear of the unknown. There must be nurturing and strengthening during this difficult season of a convert’s life” (“[There Must Be Messengers](https://www.churchofjesuschrist.org/study/ensign/1987/10/there-must-be-messengers?lang=eng&id=p31#p31),” *Ensign,* Oct. 1987, 5).
 
 Later he also taught, “Every one of them needs three things: a friend, a responsibility, and nurturing with ‘the good word of God’” (“[[1997 April - Converts and Young Men.md|Converts and Young Men]],” *Ensign,* May 1997, 47).
 
@@ -58,15 +58,13 @@ Of course, we can always count on our missionaries. They are always there, the f
 
 If you look around carefully, you will find many in need of an angel’s help. These people may not be wearing white shirts, dresses, or any standard Sunday attire. They may be sitting alone, toward the back of the chapel or classroom, sometimes feeling as if they are invisible. Maybe their hairstyle is a little extreme or their vocabulary is different, but they are there, and they are trying.
 
-Some may be wondering, “Should I keep coming back? Should I keep trying?” Others may be wondering if one day they will feel accepted and loved. Angels are needed, right now; angels who are willing to leave their comfort zone to embrace them; “\[people who are\] so good and so pure that *angelic* is the only word that comes to mind \[to describe them\]” (Jeffrey R. Holland, “[[2008 October - The Ministry of Angels.md|The Ministry of Angels]],” 30).
+Some may be wondering, “Should I keep coming back? Should I keep trying?” Others may be wondering if one day they will feel accepted and loved. Angels are needed, right now; angels who are willing to leave their comfort zone to embrace them; “\[people who are\] so good and so pure that *angelic* is the only word that comes to mind \[to describe them\]” (Jeffrey R. Holland, “[[2008 October - The Ministry of Angels.md|The Ministry of Angels]],” 30).
 
 Brothers and sisters, I believe in angels! We are all here today, a giant army of angels set apart for these latter days, to minister to others as extensions of the hands of a loving Creator. I promise that if we are willing to serve, the Lord will give us opportunities to be ministering angels. He knows who needs angelic help, and He will put them in our path. The Lord puts those who need angelic help in our path daily.
 
 I am so grateful for the many angels that the Lord has put in my path throughout my life. They were needed. I am also grateful for His gospel that helps us to change and gives us the chance to be better.
 
 This is a gospel of love, a gospel of ministering. Of this I testify in the name of Jesus Christ, amen.
-
-
 
 
 

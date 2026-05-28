@@ -1,6 +1,5 @@
 # Fill
 
-
 Joseph commanded to *fill* their sacks, [[Genesis 42.25|Genesis 42:25]].
 
 glory of the Lord *filled* the tabernacle, [[Exodus 40.34|Exodus 40:34]].
@@ -9,11 +8,11 @@ earth shall be *filled* with the glory of the Lord, [[Numbers 14.21|Numbers 14:2
 
 glory of the Lord had *filled* the house, [[1 Kings 8.11|1 Kings 8:11]] ([[2 Chronicles 5.14|2 Chronicles 5:14]]; [[Ezekiel 43.5|Ezekiel 43:5]]; [[Ezekiel 44.4|Ezekiel 44:4]]).
 
-backslider ... shall be *filled* with his own ways, [[Proverbs 14.14|Proverbs 14:14]].
+backslider … shall be *filled* with his own ways, [[Proverbs 14.14|Proverbs 14:14]].
 
 Do not I *fill* heaven and earth, [[Jeremiah 23.24|Jeremiah 23:24]].
 
-stone that smote the image ... *filled* the whole earth, [[Daniel 2.35|Daniel 2:35]].
+stone that smote the image … *filled* the whole earth, [[Daniel 2.35|Daniel 2:35]].
 
 earth shall be *filled* with the knowledge, [[Habakkuk 2.14|Habakkuk 2:14]].
 
@@ -43,13 +42,13 @@ ye have *filled* Jerusalem with your doctrine, [[Acts 5.28|Acts 5:28]].
 
 be ye warmed and *filled*, [[James 2.16|James 2:16]].
 
-great pit ... *filled* by those who digged it, [[1 Nephi 14.3|1 Nephi 14:3]].
+great pit … *filled* by those who digged it, [[1 Nephi 14.3|1 Nephi 14:3]].
 
 they shall be *filled* with the Holy Ghost, [[3 Nephi 12.6|3 Nephi 12:6]].
 
 roll forth, until it has *filled* the whole earth, [[D&C 65.2|D&C 65:2]].
 
-being *filled* with the Holy Ghost from his mother's womb, [[D&C 84.27|D&C 84:27]].
+being *filled* with the Holy Ghost from his mother’s womb, [[D&C 84.27|D&C 84:27]].
 
 to *fill* the immensity of space, [[D&C 88.12|D&C 88:12]].
 

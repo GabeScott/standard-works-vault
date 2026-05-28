@@ -14,13 +14,13 @@ In that spirit my message today is to say that *we* sustain *you,* that we retur
 
 I have struggled to find an adequate way to tell you how loved of God you are and how grateful we on this stand are for you. I am trying to be voice for the very angels of heaven in thanking you for every good thing you have ever done, for every kind word you have ever said, for every sacrifice you have ever made in extending to someone—to anyone—the beauty and blessings of the gospel of Jesus Christ.
 
-I am grateful for Young Women leaders who go to girls camp and, without shampoo, showers, or mascara, turn smoky, campfire testimony meetings into some of the most riveting spiritual experiences those girls—or those leaders—will experience in their lifetime. I am grateful for *all* the women of the Church who in my life have been as strong as Mount Sinai and as compassionate as the Mount of Beatitudes. We smile sometimes about our sisters’ stories—you know, green Jell-O, quilts, and funeral potatoes. But my family has been the grateful recipient of each of those items at one time or another—and in one case, the quilt and the funeral potatoes on the same day. It was just a small quilt—tiny, really—to make my deceased baby brother’s journey back to his heavenly home as warm and comfortable as our Relief Society sisters wanted him to be. The food provided for our family after the service, voluntarily given without a single word from us, was gratefully received. Smile, if you will, about our traditions, but somehow the too-often unheralded women in this Church are *always* there when hands hang down and knees are feeble.[^1] They seem to grasp instinctively the divinity in Christ’s declaration: “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.”[^2]
+I am grateful for Young Women leaders who go to girls camp and, without shampoo, showers, or mascara, turn smoky, campfire testimony meetings into some of the most riveting spiritual experiences those girls—or those leaders—will experience in their lifetime. I am grateful for *all* the women of the Church who in my life have been as strong as Mount Sinai and as compassionate as the Mount of Beatitudes. We smile sometimes about our sisters’ stories—you know, green Jell-O, quilts, and funeral potatoes. But my family has been the grateful recipient of each of those items at one time or another—and in one case, the quilt and the funeral potatoes on the same day. It was just a small quilt—tiny, really—to make my deceased baby brother’s journey back to his heavenly home as warm and comfortable as our Relief Society sisters wanted him to be. The food provided for our family after the service, voluntarily given without a single word from us, was gratefully received. Smile, if you will, about our traditions, but somehow the too-often unheralded women in this Church are *always* there when hands hang down and knees are feeble.[^1] They seem to grasp instinctively the divinity in Christ’s declaration: “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.”[^2]
 
 And no less the brethren of the priesthood. I think, for example, of the leaders of our young men who, depending on the climate and continent, either take bone-rattling 50-mile (80 km) hikes or dig—and actually try to sleep in—ice caves for what have to be the longest nights of human experience. I am grateful for memories of my own high priests group, which a few years ago took turns for weeks sleeping on a small recliner in the bedroom of a dying quorum member so that his aged and equally fragile wife could get some sleep through those final weeks of her sweetheart’s life. I am grateful for the Church’s army of teachers, officers, advisers, and clerks, to say nothing of people who are forever setting up tables and taking down chairs. I am grateful for ordained patriarchs, musicians, family historians, and osteoporotic couples who trundle off to the temple at 5:00 in the morning with little suitcases now almost bigger than they are. I am grateful for selfless parents who—perhaps for a lifetime—care for a challenged child, sometimes with more than one challenge and sometimes with more than one child. I am grateful for children who close ranks later in life to give back to ill or aging parents.
 
 And to the near-perfect elderly sister who almost apologetically whispered recently, “I have never been a leader of anything in the Church. I guess I’ve only been a helper,” I say, “Dear sister, God bless you and all the ‘helpers’ in the kingdom.” Some of us who *are* leaders hope someday to have the standing before God that you have already attained.
 
-Too often I have failed to express gratitude for the faith and goodness of such people in my life. President James E. Faust stood at this pulpit 13 years ago and said, “As a small boy … , I remember my grandmother … cooking our delicious meals on a hot woodstove. When the wood box next to the stove became empty, Grandmother would silently … go out to refill it from the pile of cedar wood outside, and bring the heavily laden box back into the house. I was so insensitive … \[that\] I sat there and let my beloved grandmother refill \[that\] box.” Then, his voice choking with emotion, he said, “I feel ashamed of myself and have regretted my omission for all of my life. I hope someday to ask for her forgiveness.”[^3]
+Too often I have failed to express gratitude for the faith and goodness of such people in my life. President James E. Faust stood at this pulpit 13 years ago and said, “As a small boy … , I remember my grandmother … cooking our delicious meals on a hot woodstove. When the wood box next to the stove became empty, Grandmother would silently … go out to refill it from the pile of cedar wood outside, and bring the heavily laden box back into the house. I was so insensitive … \[that\] I sat there and let my beloved grandmother refill \[that\] box.” Then, his voice choking with emotion, he said, “I feel ashamed of myself and have regretted my omission for all of my life. I hope someday to ask for her forgiveness.”[^3]
 
 If a man as perfect as I felt President Faust was can acknowledge his youthful oversight, I can do no less than make a similar admission and pay a long-overdue tribute of my own today.
 
@@ -40,7 +40,7 @@ My thanks to all you wonderful members of the Church—and legions of good peopl
 
 As Jesus said to the Nephites, so say I today:
 
-“Because of your faith … , my joy is full.
+“Because of your faith … , my joy is full.
 
 “And when he had said these words, he wept.”[^5]
 
@@ -53,12 +53,10 @@ Brothers and sisters, seeing your example, I pledge anew *my* determination to b
 
 [^2]: [[Matthew 25.40|Matthew 25:40]].
 
-[^3]: James E. Faust, in Conference Report, Oct. 1997, 78; or *Ensign,* Nov. 1997, 59.
+[^3]: James E. Faust, in Conference Report, Oct. 1997, [[1997 October - The Weightier Matters of the Law - Judgment, Mercy, and Faith.md|78]]; or *Ensign,* Nov. 1997, 59.
 
-[^4]: [[1 Corinthians 13.8|1 Corinthians 13:8]]; see also [[Moroni 7.46|Moroni 7:46–47]][[Moroni 7.47|]].
+[^4]: [[1 Corinthians 13.8|1 Corinthians 13:8]]; see also [[Moroni 7.46|Moroni 7:46–47]][[Moroni 7.47|]].
 
-[^5]: [[3 Nephi 17.20|3 Nephi 17:20–21]][[3 Nephi 17.21|]].
+[^5]: [[3 Nephi 17.20|3 Nephi 17:20–21]][[3 Nephi 17.21|]].
 
-
-
-#Gratitude #Individual_Worth #Sacrifice #Service
+#Gratitude #IndividualWorth #Sacrifice #Service

@@ -12,7 +12,7 @@ Last summer Sister Oaks and I returned from two years in the Philippines. We lov
 
 We were concerned to see the inroads pornography had made in the United States while we were away. For many years our Church leaders have warned against the dangers of images and words intended to arouse sexual desires. Now the corrupting influence of pornography, produced and disseminated for commercial gain, is sweeping over our society like an avalanche of evil.
 
-At our last conference, President Gordon B. Hinckley devoted an entire talk to this subject, warning in the plainest terms that “this is a very serious problem even among us” (in Conference Report, Oct. 2004, 64; or *Ensign,* Nov. 2004, 61). Most of the bishops we meet in stake conferences now report major concerns with this problem.
+At our last conference, President Gordon B. Hinckley devoted an entire talk to this subject, warning in the plainest terms that “this is a very serious problem even among us” (in Conference Report, Oct. 2004, [[2004 October - A Tragic Evil among Us.md|64]]; or *Ensign,* Nov. 2004, 61). Most of the bishops we meet in stake conferences now report major concerns with this problem.
 
 My fellow holders of the Melchizedek Priesthood, and also our young men, I wish to speak to you today about pornography. I know that many of you are exposed to this and that many of you are being stained by it.
 
@@ -22,7 +22,7 @@ In the second chapter of the book that bears his name, Jacob condemns men for th
 
 What were these grossly wicked “whoredoms”? No doubt some men were already guilty of evil acts. But the main focus of Jacob’s great sermon was not with evil acts *completed,* but with evil acts *contemplated.*
 
-Jacob began his sermon by telling the men that “as yet, \[they had\] been obedient unto the word of the Lord” ([[Jacob 2.4|Jacob 2:4]]). However, he then told them he knew their thoughts, that they were “beginning to labor in sin, which sin appeareth very abominable … unto God” ([[Jacob 2.5|Jacob 2:5]]). “I must testify unto you concerning the wickedness of your hearts” ([[Jacob 2.6|Jacob 2:6]]), he added. Jacob was speaking as Jesus spoke when He said, “Whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart” ([[Matthew 5.28|Matthew 5:28]]; see also [[3 Nephi 12.28|3 Nephi 12:28]]; [[D&C 59.6|D&C 59:6]]; [[D&C 63.16|63:16]]).
+Jacob began his sermon by telling the men that “as yet, \[they had\] been obedient unto the word of the Lord” ([[Jacob 2.4|Jacob 2:4]]). However, he then told them he knew their thoughts, that they were “beginning to labor in sin, which sin appeareth very abominable … unto God” ([[Jacob 2.5|Jacob 2:5]]). “I must testify unto you concerning the wickedness of your hearts” ([[Jacob 2.6|Jacob 2:6]]), he added. Jacob was speaking as Jesus spoke when He said, “Whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart” ([[Matthew 5.28|Matthew 5:28]]; see also [[3 Nephi 12.28|3 Nephi 12:28]]; [[D&C 59.6|D&C 59:6]]; [[D&C 63.16|63:16]]).
 
 More than 30 years ago, I urged BYU students to avoid the “promotional literature of illicit sexual relations” in what they read and viewed. I gave this analogy:
 
@@ -46,13 +46,13 @@ The Savior continues His denunciation of those who treat what is visible but neg
 
 The immediate spiritual consequences of such hypocrisy are devastating. Those who seek out and use pornography forfeit the power of their priesthood. The Lord declares: “When we undertake to cover our sins, … behold, the heavens withdraw themselves; the Spirit of the Lord is grieved; and when it is withdrawn, Amen to the priesthood or the authority of that man” ([[D&C 121.37|D&C 121:37]]).
 
-Patrons of pornography also lose the companionship of the Spirit. Pornography produces fantasies that destroy spirituality. “To be carnally minded is death”—spiritual death ([[Romans 8.6|Romans 8:6]]; see also [[2 Nephi 9.39|2 Nephi 9:39]]).
+Patrons of pornography also lose the companionship of the Spirit. Pornography produces fantasies that destroy spirituality. “To be carnally minded is death”—spiritual death ([[Romans 8.6|Romans 8:6]]; see also [[2 Nephi 9.39|2 Nephi 9:39]]).
 
 The scriptures repeatedly teach that the Spirit of the Lord will not dwell in an unclean tabernacle. When we worthily partake of the sacrament, we are promised that we will “always have his Spirit to be with \[us\].” To qualify for that promise we covenant that we will “always remember him” ([[D&C 20.77|D&C 20:77]]). Those who seek out and use pornography for sexual stimulation obviously violate that covenant. They also violate a sacred covenant to refrain from unholy and impure practices. They cannot have the Spirit of the Lord to be with them. All such need to heed the Apostle Peter’s plea: “Repent therefore of this thy wickedness, and pray God, if perhaps the thought of thine heart may be forgiven thee” ([[Acts 8.22|Acts 8:22]]).
 
 Brethren, you have noticed that I am not discussing the effects of pornography on mental health or criminal behavior. I am discussing its effects on spirituality—on our ability to have the companionship of the Spirit of the Lord and our capacity to exercise the power of the priesthood.
 
-Pornography also inflicts mortal wounds on our most precious personal relationships. In his talk to men of the priesthood last October, President Hinckley quoted the letter of a woman who asked him to warn Church members that pornography “has the effect of damaging hearts and souls to their very depths, strangling the life out of relationships” (in Conference Report, Oct. 2004, 64; or *Ensign,* Nov. 2004, 60).
+Pornography also inflicts mortal wounds on our most precious personal relationships. In his talk to men of the priesthood last October, President Hinckley quoted the letter of a woman who asked him to warn Church members that pornography “has the effect of damaging hearts and souls to their very depths, strangling the life out of relationships” (in Conference Report, Oct. 2004, [[2004 October - A Tragic Evil among Us.md|64]]; or *Ensign,* Nov. 2004, 60).
 
 At a recent stake conference a woman handed me a similar letter. Her husband had also served in important Church callings for many years while addicted to pornography. She told of great difficulty in getting priesthood leaders to take this problem of pornography seriously: “I got all kinds of responses—like I was overreacting or it was my fault. The bishop we have now has been great. And now after 15 years my husband is trying to deal with his addiction, but now it is 15 years harder to quit for him, and the loss has been incalculable.”
 
@@ -64,15 +64,15 @@ Some seek to justify their indulgence by arguing that they are only viewing “s
 
 King Benjamin’s great sermon describes the terrible consequences. When we withdraw from the Spirit of the Lord, we become an enemy to righteousness, we have a lively sense of our guilt, and we “shrink from the presence of the Lord” (see [[Mosiah 2.36|Mosiah 2:36–38]][[Mosiah 2.37|]][[Mosiah 2.38|]]). “Mercy hath no claim on that man,” he concluded; “therefore his final doom is to endure a never-ending torment” ([[Mosiah 2.39|v. 39]]).
 
-Consider the tragic example of King David. Though a spiritual giant in Israel, he allowed himself to look upon something he should not have viewed (see [[2 Samuel 11.1|2 Samuel 11]][[2 Samuel 11.2|]][[2 Samuel 11.3|]][[2 Samuel 11.4|]][[2 Samuel 11.5|]][[2 Samuel 11.6|]][[2 Samuel 11.7|]][[2 Samuel 11.8|]][[2 Samuel 11.9|]][[2 Samuel 11.10|]][[2 Samuel 11.11|]][[2 Samuel 11.12|]][[2 Samuel 11.13|]][[2 Samuel 11.14|]][[2 Samuel 11.15|]][[2 Samuel 11.16|]][[2 Samuel 11.17|]][[2 Samuel 11.18|]][[2 Samuel 11.19|]][[2 Samuel 11.20|]][[2 Samuel 11.21|]][[2 Samuel 11.22|]][[2 Samuel 11.23|]][[2 Samuel 11.24|]][[2 Samuel 11.25|]][[2 Samuel 11.26|]][[2 Samuel 11.27|]]). Tempted by what he saw, he violated two of the Ten Commandments, beginning with “Thou shalt not commit adultery” ([[Exodus 20.14|Exodus 20:14]]). In this way a prophet-king fell from his exaltation (see [[D&C 132.39|D&C 132:39]]).
+Consider the tragic example of King David. Though a spiritual giant in Israel, he allowed himself to look upon something he should not have viewed (see [[2 Samuel 11.1|2 Samuel 11]][[2 Samuel 11.2|]][[2 Samuel 11.3|]][[2 Samuel 11.4|]][[2 Samuel 11.5|]][[2 Samuel 11.6|]][[2 Samuel 11.7|]][[2 Samuel 11.8|]][[2 Samuel 11.9|]][[2 Samuel 11.10|]][[2 Samuel 11.11|]][[2 Samuel 11.12|]][[2 Samuel 11.13|]][[2 Samuel 11.14|]][[2 Samuel 11.15|]][[2 Samuel 11.16|]][[2 Samuel 11.17|]][[2 Samuel 11.18|]][[2 Samuel 11.19|]][[2 Samuel 11.20|]][[2 Samuel 11.21|]][[2 Samuel 11.22|]][[2 Samuel 11.23|]][[2 Samuel 11.24|]][[2 Samuel 11.25|]][[2 Samuel 11.26|]][[2 Samuel 11.27|]]). Tempted by what he saw, he violated two of the Ten Commandments, beginning with “Thou shalt not commit adultery” ([[Exodus 20.14|Exodus 20:14]]). In this way a prophet-king fell from his exaltation (see [[D&C 132.39|D&C 132:39]]).
 
 But the good news is that no one needs to follow the evil, downward descent to torment. Everyone caught on that terrible escalator has the key to reverse his course. He can escape. Through repentance he can be clean.
 
 Alma the Younger described it:
 
-“Yea, I did remember all my sins and iniquities, for which I was tormented with the pains of hell. …
+“Yea, I did remember all my sins and iniquities, for which I was tormented with the pains of hell. …
 
-“… The very thought of coming into the presence of my God did rack my soul with inexpressible horror. …
+“… The very thought of coming into the presence of my God did rack my soul with inexpressible horror. …
 
 “And it came to pass that as I was thus racked with torment, while I was harrowed up by the memory of my many sins, behold, I remembered also to have heard my father prophesy unto the people concerning the coming of one Jesus Christ, a Son of God, to atone for the sins of the world.
 
@@ -88,7 +88,7 @@ My brethren who are caught in this addiction or troubled by this temptation, the
 
 *Second,* seek the help of the Lord and His servants. Hear and heed President Hinckley’s words:
 
-“Plead with the Lord out of the depths of your soul that He will remove from you the addiction which enslaves you. And may you have the courage to seek the loving guidance of your bishop and, if necessary, the counsel of caring professionals” (in Conference Report, Oct. 2004, 66; or *Ensign,* Nov. 2004, 62).
+“Plead with the Lord out of the depths of your soul that He will remove from you the addiction which enslaves you. And may you have the courage to seek the loving guidance of your bishop and, if necessary, the counsel of caring professionals” (in Conference Report, Oct. 2004, [[2004 October - A Tragic Evil among Us.md|66]]; or *Ensign,* Nov. 2004, 62).
 
 *Third,* do all that you can to avoid pornography. If you ever find yourself in its presence—which can happen to anyone in the world in which we live—follow the example of Joseph of Egypt. When temptation caught him in her grip, he left temptation and “got him out” ([[Genesis 39.12|Genesis 39:12]]).
 
@@ -107,10 +107,8 @@ I testify that this is what we should do to enjoy the blessings of Him whom we w
 
 [^1]: *Challenges for the Year Ahead* (pamphlet, 1974), 4–5; reprinted in “Things They’re Saying,” *New Era,* Feb. 1974, 18.
 
-[^2]: See, for example, Gordon B. Hinckley, in Conference Report, Oct. 2004, 63–67; or *Ensign,* Nov. 2004, 59–62; David E. Sorensen, in Conference Report, Apr. 2001, 53–56; or *Ensign,* May 2001, 41–42; Thomas S. Monson, in Conference Report, Oct. 1979, 95–98; or *Ensign,* Nov. 1979, 66–67; David B. Haight, in Conference Report, Oct. 1984, 87–91; or *Ensign,* Nov. 1984, 70–73.
+[^2]: See, for example, Gordon B. Hinckley, in Conference Report, Oct. 2004, [[2004 October - A Tragic Evil among Us.md|63–67]]; or *Ensign,* Nov. 2004, 59–62; David E. Sorensen, in Conference Report, Apr. 2001, [[2001 April - You Can’t Pet a Rattlesnake.md|53–56]]; or *Ensign,* May 2001, 41–42; Thomas S. Monson, in Conference Report, Oct. 1979, [[1979 October - Pornography—the Deadly Carrier.md|95–98]]; or *Ensign,* Nov. 1979, 66–67; David B. Haight, in Conference Report, Oct. 1984, [[1984 October - Personal Morality.md|87–91]]; or *Ensign,* Nov. 1984, 70–73.
 
 [^3]: See, for example, Rory C. Reid, “The Road Back: Abandoning Pornography,” *Liahona,* Feb. 2005, 28–33; *Ensign,* Feb. 2005, 46–51; Arianne B. Cope, “Internet Café,” *New Era,* Mar. 2005, 34–37; Nycole S. Larsen, “The Decision,” *Friend,* Mar. 2004, 40–41.
-
-
 
 #Evil #Media #Repentance #Temptation

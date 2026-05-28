@@ -36,17 +36,17 @@ Number of ordinances performed in 13 operating temples
 
 ## Those Who Have Passed Away
 
-Elder Richard L. Evans, member of the Council of the Twelve Apostles
+Elder Richard L. Evans, member of the Council of the Twelve Apostles
 
 Jessie Evans Smith, wife of President Joseph Fielding Smith
 
 Leona Ballantyne Woolley Sonne, wife of Elder Alma Sonne, Assistant to the Council of the Twelve
 
-George R. Hill, former general superintendent of the Deseret Sunday School Union
+George R. Hill, former general superintendent of the Deseret Sunday School Union
 
-Albert B. Crandall, president of the Oklahoma Mission
+Albert B. Crandall, president of the Oklahoma Mission
 
-Harold M. Wright, former Regional Representative of the Twelve
+Harold M. Wright, former Regional Representative of the Twelve
 
 Bertha Anderson Kleinman, noted poetess and author
 

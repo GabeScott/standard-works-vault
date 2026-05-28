@@ -10,7 +10,7 @@ We have gathered here in the historic Tabernacle on Temple Square in Salt Lake C
 
 Following a previous conference we received a letter from England. May I read it? The writer says:
 
-“This last weekend, just a short while after our 40th wedding anniversary, we had the great pleasure to gather our children and grandchildren together to watch the general conference broadcast in our own home. …
+“This last weekend, just a short while after our 40th wedding anniversary, we had the great pleasure to gather our children and grandchildren together to watch the general conference broadcast in our own home. …
 
 “We had the wonderful blessing of being able to stand and raise our arms to the square as a family and sustain a living prophet, his counselors, together with the Quorum of the Twelve, and in our own home too!
 
@@ -37,8 +37,6 @@ I invite you to listen, listen if you will by the power of the Spirit, to the sp
 We have become as a great family spread across this vast world. We speak different tongues. We live under a variety of circumstances. But in the heart of each of us beats a common testimony: You and I know that God lives and is at the helm of this His holy work. We know that Jesus is our Redeemer, who stands at the head of this Church which carries His name. We know that Joseph Smith was a prophet and is a prophet who stands at the head of this, the dispensation of the fulness of times. We know that the priesthood was restored upon his head and that it has come down to us in this day in an unbroken line. We know that the Book of Mormon is a true testament of the reality and divinity of the Lord Jesus Christ. Our testimony of these and other matters will be strengthened, our faith will be deepened as we participate together in this great and sacred convocation.
 
 For this I pray in the name of Jesus Christ, amen.
-
-
 
 
 

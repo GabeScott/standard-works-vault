@@ -26,11 +26,11 @@ The meaning and importance of reverence for what is sacred is well outlined thro
 
 As a church we strive to hold the Father and the Son in the utmost sacredness and respect in every aspect, including how we depict Their images. The guidance of the Holy Ghost is a crucial component in determining how these images should reflect the sacred nature, character, and godly attributes of the Father and of the Son. We are very careful to avoid portraying elements that could distract from our primary focus on our Heavenly Father and His Son, Jesus Christ, and Their teachings, including how we apply advanced tools offered by technology, such as using artificial intelligence (AI) to generate content and images.
 
-This same principle is applied to any source of information available through the official communication channels of the Church. Every lesson, book, manual, and message is carefully developed and approved under the direction of the Spirit to make sure we maintain the sacred virtue, values, and standards of the gospel of Jesus Christ. In a recent message for the young adults of the Church, Elder David A. Bednar taught, “To navigate the complex intersection of spirituality and technology, Latter-day Saints should humbly and prayerfully (1) identify gospel principles that can guide their use of artificial intelligence and (2) strive sincerely for the companionship of the Holy Ghost and the spiritual gift of revelation.”[^8]
+This same principle is applied to any source of information available through the official communication channels of the Church. Every lesson, book, manual, and message is carefully developed and approved under the direction of the Spirit to make sure we maintain the sacred virtue, values, and standards of the gospel of Jesus Christ. In a recent message for the young adults of the Church, Elder David A. Bednar taught, “To navigate the complex intersection of spirituality and technology, Latter-day Saints should humbly and prayerfully (1) identify gospel principles that can guide their use of artificial intelligence and (2) strive sincerely for the companionship of the Holy Ghost and the spiritual gift of revelation.”[^8]
 
 My dear brothers and sisters, as sophisticated as modern technology has become, it simply cannot simulate the wonder, awe, and amazement found in the kind of reverence born from the influence of the Holy Ghost. As followers of Christ, we need to be careful not to weaken our connection with God and His Son by using AI-generated content and images inappropriately. We should remember that relying on a modern technological “arm of flesh” is an inadequate and disrespectful substitute for the inspiration, edification, and witness that can be received only through the power of the Holy Ghost. As Nephi declared: “O Lord, I have trusted in thee, and I will trust in thee forever. I will not put my trust in the arm of flesh.”[^9]
 
-In another revelation, the Prophet Joseph Smith was instructed that temples erected unto the Lord should be a place of reverence to Him.[^10] Throughout his ministry, our dear prophet, President Russell M. Nelson, has strongly emphasized our worship in reverence in the sacred temple.[^11] In the house of the Lord, we are taught about entering into the holy presence of the Father and the Son. I have always found it instructive and even inspiring that one of the first things we do upon entering the temple and preparing ourselves to participate in the sacred ordinances there is to remove our shoes and change into our white clothing. Like Moses, if we are intentional, we can recognize that taking off our worldly shoes is the beginning of stepping onto holy ground and being transformed in higher and holier ways.
+In another revelation, the Prophet Joseph Smith was instructed that temples erected unto the Lord should be a place of reverence to Him.[^10] Throughout his ministry, our dear prophet, President Russell M. Nelson, has strongly emphasized our worship in reverence in the sacred temple.[^11] In the house of the Lord, we are taught about entering into the holy presence of the Father and the Son. I have always found it instructive and even inspiring that one of the first things we do upon entering the temple and preparing ourselves to participate in the sacred ordinances there is to remove our shoes and change into our white clothing. Like Moses, if we are intentional, we can recognize that taking off our worldly shoes is the beginning of stepping onto holy ground and being transformed in higher and holier ways.
 
 Brothers and sisters, we do not need to climb to the top of a mountain, like Moses did, to discover reverence for sacred things and convert our discipleship into a deeper level of spirituality and devotion. We can find it, for example, as we strive to protect our home environment from worldly influences. This can be accomplished by sincerely and fervently praying before our Heavenly Father in the name of Jesus Christ and seeking to better know our Savior through our diligent study of the word of God found in the scriptures and in the teachings of our prophets. Additionally, such spiritual transformation can come as we strive to honor the covenants we have made with the Lord by living in obedience to the commandments. These efforts can bring a quiet and certain stillness to our hearts. Focusing on such actions can surely help transform our homes into reverent places of spiritual refuge—personal sanctuaries of faith where the Spirit resides,[^12] much like the mountain experience of Moses.
 
@@ -53,26 +53,24 @@ I testify to you that as we strive to incorporate such virtue into our daily liv
 
 [^3]: “Reverence Is Love,” *Children’s Songbook*, 31.
 
-[^4]: See *Teachings of Presidents of the Church: David O. McKay* (2003), 31.
+[^4]: See *[Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-4?lang=eng&id=p13#p13)* (2003), 31.
 
 [^5]: See [[D&C 63.64|Doctrine and Covenants 63:64]].
 
-[^6]: See Boyd K. Packer, “[[1991 October - Reverence Invites Revelation.md|Reverence Invites Revelation]],” *Ensign*, Nov. 1991, 22; Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 81–84.
+[^6]: See Boyd K. Packer, “[[1991 October - Reverence Invites Revelation.md|Reverence Invites Revelation]],” *Ensign*, Nov. 1991, 22; Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 81–84.
 
 [^7]: See [[D&C 76.92|Doctrine and Covenants 76:92–95]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]].
 
-[^8]: David A. Bednar, “[Things as They Really Are 2.0](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2024/11/13bednar?lang=eng&id=p29#p29)” (worldwide devotional for young adults, Nov. 3, 2024), Gospel Library; see also Gerrit W. Gong and John C. Pingree Jr., “Principles for Church Use of Artificial Intelligence” (Leadership Enrichment Series, Mar. 13, 2024); Gerrit W. Gong, “Artificial Intelligence—Opportunities, Cautions, Church Guiding Principles” (general conference leadership meeting, Apr. 5, 2024).
+[^8]: David A. Bednar, “[Things as They Really Are 2.0](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2024/11/13bednar?lang=eng&id=p29#p29)” (worldwide devotional for young adults, Nov. 3, 2024), Gospel Library; see also Gerrit W. Gong and John C. Pingree Jr., “Principles for Church Use of Artificial Intelligence” (Leadership Enrichment Series, Mar. 13, 2024); Gerrit W. Gong, “Artificial Intelligence—Opportunities, Cautions, Church Guiding Principles” (general conference leadership meeting, Apr. 5, 2024).
 
-[^9]: [[2 Nephi 4.34|2 Nephi 4:34]].
+[^9]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
 [^10]: See [[D&C 109.13|Doctrine and Covenants 109:13, 16–21]][[D&C 109.16|]][[D&C 109.17|]][[D&C 109.18|]][[D&C 109.19|]][[D&C 109.20|]][[D&C 109.21|]].
 
-[^11]: See Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 114; “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 96.
+[^11]: See Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 114; “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 96.
 
-[^12]: See Russell M. Nelson, “[[2020 October - Embrace the Future with Faith.md|Embrace the Future with Faith]],” *Ensign* or *Liahona*, Nov. 2020, 74–75.
+[^12]: See Russell M. Nelson, “[[2020 October - Embrace the Future with Faith.md|Embrace the Future with Faith]],” *Ensign* or *Liahona*, Nov. 2020, 74–75.
 
 [^13]: See [[D&C 136.28|Doctrine and Covenants 136:28]].
 
-
-
-#Discipleship #Joy #Reverence #Spiritual_Growth
+#Discipleship #Joy #Reverence #SpiritualGrowth

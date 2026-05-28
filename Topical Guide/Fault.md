@@ -1,11 +1,10 @@
 # Fault
 
-
 they could find none occasion nor *fault*, [[Daniel 6.4|Daniel 6:4]].
 
 if thy brother shall trespass against thee, go and tell him his *fault*, [[Matthew 18.15|Matthew 18:15]].
 
-eat ... with unwashen, hands, they found *fault*, [[Mark 7.2|Mark 7:2]].
+eat … with unwashen, hands, they found *fault*, [[Mark 7.2|Mark 7:2]].
 
 I find no *fault* in this man, [[Luke 23.4|Luke 23:4]] ([[John 18.38|John 18:38]]; [[John 19.4|John 19:4]]).
 

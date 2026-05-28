@@ -1,6 +1,6 @@
 # Nourishing and Bearing Your Testimony
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -96,13 +96,13 @@ Obstacles to sharing your testimony may include uncertainty about what to say. M
 
 “I said, ‘What do you do when your mind goes blank?’
 
-“He said, ‘You stand up there and with all the fervor of your soul, you bear witness that Joseph Smith was a prophet of the living God, and thoughts will flood into your mind and words to your mouth … to the heart of everyone who listens.’ And so my mind, being mostly blank during my … mission … , gave me the opportunity to bear testimony to the greatest event in the history of the world since the crucifixion of the Master. Try it sometime, fellows and girls. If you don’t have anything else to say, testify that Joseph Smith was the prophet of God, and the whole history of the Church will flood into your mind.”[^6]
+“He said, ‘You stand up there and with all the fervor of your soul, you bear witness that Joseph Smith was a prophet of the living God, and thoughts will flood into your mind and words to your mouth … to the heart of everyone who listens.’ And so my mind, being mostly blank during my … mission … , gave me the opportunity to bear testimony to the greatest event in the history of the world since the crucifixion of the Master. Try it sometime, fellows and girls. If you don’t have anything else to say, testify that Joseph Smith was the prophet of God, and the whole history of the Church will flood into your mind.”[^6]
 
-Likewise, President Dallin H. Oaks shared, “Some testimonies are better gained on the feet bearing them than on the knees praying for them.”[^7] The Spirit bears witness to the speaker and listener alike.
+Likewise, President Dallin H. Oaks shared, “Some testimonies are better gained on the feet bearing them than on the knees praying for them.”[^7] The Spirit bears witness to the speaker and listener alike.
 
 Another obstacle, as Kevin’s story emphasized, is fear. As Paul wrote to Timothy:
 
-“God hath not given us the spirit of fear; but of power, and of love. …
+“God hath not given us the spirit of fear; but of power, and of love. …
 
 “Be not thou therefore ashamed of the testimony of our Lord.”[^8]
 
@@ -114,13 +114,13 @@ I believe a testimony is innate within us, yet, in order to keep it and more ful
 
 Each beloved member of the First Presidency has provided us with direction on how to keep a testimony.
 
-President Henry B. Eyring lovingly taught us that “feasting on the word of God, heartfelt prayer, and obedience to the Lord’s commandments must be applied evenly and continually for your testimony to grow and prosper.”[^12]
+President Henry B. Eyring lovingly taught us that “feasting on the word of God, heartfelt prayer, and obedience to the Lord’s commandments must be applied evenly and continually for your testimony to grow and prosper.”[^12]
 
-President Dallin H. Oaks reminded us that to retain our testimony, “we need to partake of the sacrament each week (see [[D&C 59.9|D&C 59:9]]) to qualify for the precious promise that we will ‘always have his Spirit to be with \[us\]’ ([[D&C 20.77|D&C 20:77]]).”[^13]
+President Dallin H. Oaks reminded us that to retain our testimony, “we need to partake of the sacrament each week (see [[D&C 59.9|D&C 59:9]]) to qualify for the precious promise that we will ‘always have his Spirit to be with \[us\]’ ([[D&C 20.77|D&C 20:77]]).”[^13]
 
-And President Russell M. Nelson kindly counseled recently:
+And President Russell M. Nelson kindly counseled recently:
 
-“Feed \[your testimony\] truth. …
+“Feed \[your testimony\] truth. …
 
 “… Nourish yourself in the words of ancient and modern prophets. Ask the Lord to teach you how to hear Him better. Spend more time in the temple and in family history work.
 
@@ -134,7 +134,7 @@ We are blessed to have countless examples of ancient and modern-day prophets who
 
 Following Christ’s death, Peter stood and testified:
 
-“Be it known unto you all … that by the name of Jesus Christ of Nazareth, whom ye crucified, whom God raised from the dead, … doth this man stand here before you. …
+“Be it known unto you all … that by the name of Jesus Christ of Nazareth, whom ye crucified, whom God raised from the dead, … doth this man stand here before you. …
 
 “… For there is none other name under heaven given among men, whereby we must be saved.”[^15]
 
@@ -150,16 +150,16 @@ Brothers and sisters, I invite you to seek opportunities to bear your testimony 
 
 When a moment like this comes, grab it and embrace it. You will feel the warmth of the Comforter inside you when you do.
 
-I offer my testimony and witness to you—God is our Heavenly Father, Jesus Christ lives, and The Church of Jesus Christ of Latter-day Saints is God’s Church on the earth today led by our dear prophet, President Russell M. Nelson. In the name of Jesus Christ, amen.
+I offer my testimony and witness to you—God is our Heavenly Father, Jesus Christ lives, and The Church of Jesus Christ of Latter-day Saints is God’s Church on the earth today led by our dear prophet, President Russell M. Nelson. In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: See [[Romans 1.16|Romans 1:16]].
 
-[^2]: Personal conversation and correspondence with Kevin Mumford, Sept. 2022; see also Kevin Mumford, “[How I Know: I’m Not Ashamed](https://churchofjesuschrist.org/study/new-era/1999/01/im-not-ashamed?lang=eng),” *New Era*, Jan. 1999, 26–27.
+[^2]: Personal conversation and correspondence with Kevin Mumford, Sept. 2022; see also Kevin Mumford, “[How I Know: I’m Not Ashamed](https://www.churchofjesuschrist.org/study/new-era/1999/01/im-not-ashamed?lang=eng),” *New Era*, Jan. 1999, 26–27.
 
-[^3]: [[1 Kings 19.12|1 Kings 19:12]].
+[^3]: [[1 Kings 19.12|1 Kings 19:12]].
 
 [^4]: [[Moroni 10.32|Moroni 10:32]].
 
@@ -167,9 +167,9 @@ I offer my testimony and witness to you—God is our Heavenly Father, Jesus Chri
 
 [^6]: Matthew Cowley, in Joseph Fielding McConkie, *Here We Stand* (1995), 189.
 
-[^7]: Dallin H. Oaks, “[[2008 April - Testimony.md|Testimony]],” *Ensign* or *Liahona*, May 2008, 27.
+[^7]: Dallin H. Oaks, “[[2008 April - Testimony.md|Testimony]],” *Ensign* or *Liahona*, May 2008, 27.
 
-[^8]: [[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]].
+[^8]: [[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]].
 
 [^9]: See [[Alma 32.37|Alma 32:37]].
 
@@ -177,11 +177,11 @@ I offer my testimony and witness to you—God is our Heavenly Father, Jesus Chri
 
 [^11]: [[Alma 32.38|Alma 32:38]].
 
-[^12]: Henry B. Eyring, “[[2011 April - A Living Testimony.md|A Living Testimony]],” *Ensign* or *Liahona*, May 2011, 126.
+[^12]: Henry B. Eyring, “[[2011 April - A Living Testimony.md|A Living Testimony]],” *Ensign* or *Liahona*, May 2011, 126.
 
-[^13]: Dallin H. Oaks, “[[2008 April - Testimony.md|Testimony]],” *Ensign* or *Liahona*, May 2008, 27.
+[^13]: Dallin H. Oaks, “[[2008 April - Testimony.md|Testimony]],” *Ensign* or *Liahona*, May 2008, 27.
 
-[^14]: Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
+[^14]: Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
 [^15]: [[Acts 4.10|Acts 4:10, 12]][[Acts 4.12|]].
 
@@ -191,6 +191,4 @@ I offer my testimony and witness to you—God is our Heavenly Father, Jesus Chri
 
 [^18]: [[D&C 42.17|Doctrine and Covenants 42:17]].
 
-
-
-#Faith #Fear #Jesus_Christ #Joseph_Smith #Testimony
+#Faith #Fear #JosephSmith #JesusChrist #Testimony

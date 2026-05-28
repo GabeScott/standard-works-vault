@@ -1,7 +1,6 @@
 # Falsely
 
-
-swear ... thou wilt not deal *falsely* with me, [[Genesis 21.23|Genesis 21:23]].
+swear … thou wilt not deal *falsely* with me, [[Genesis 21.23|Genesis 21:23]].
 
 lieth concerning it, and sweareth *falsely*, [[Leviticus 6.3|Leviticus 6:3]].
 

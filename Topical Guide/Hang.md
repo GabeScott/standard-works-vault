@@ -1,11 +1,10 @@
 # Hang
 
-
 he *hanged* the chief baker, [[Genesis 40.22|Genesis 40:22]].
 
 that is *hanged* is accursed of God, [[Deuteronomy 21.23|Deuteronomy 21:23]] ([[Galatians 3.13|Galatians 3:13]]).
 
-king ... *hanged* on a tree, [[Joshua 8.29|Joshua 8:29]].
+king … *hanged* on a tree, [[Joshua 8.29|Joshua 8:29]].
 
 I saw Absalom *hanged* in an oak, [[2 Samuel 18.10|2 Samuel 18:10]].
 
@@ -21,4 +20,4 @@ Jesus, whom ye slew and *hanged* on a tree, [[Acts 5.30|Acts 5:30]] ([[Acts 10.3
 
 lift up the hands which *hang* down, [[Hebrews 12.12|Hebrews 12:12]] ([[D&C 81.5|D&C 81:5]]).
 
-their leader ... taken and *hanged*, [[3 Nephi 4.28|3 Nephi 4:28]].
+their leader … taken and *hanged*, [[3 Nephi 4.28|3 Nephi 4:28]].

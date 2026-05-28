@@ -40,7 +40,7 @@ Jesus Christ is *the* magnificent example of courage in hearkening to the will o
 
 The wise Psalmist said, “Be of good *courage,* and he shall strengthen your heart, all ye that hope in the Lord” ([[Psalms 31.24|Ps. 31:24]]; emphasis added).
 
-President Thomas S. Monson explained *courage* by saying, “Courage becomes a living and attractive virtue when it is regarded not as a willingness to die manfully, but the determination to live decently” (in Conference Report, Apr. 1972, p. 72; or *Ensign,* July 1972, p. 70).
+President Thomas S. Monson explained *courage* by saying, “Courage becomes a living and attractive virtue when it is regarded not as a willingness to die manfully, but the determination to live decently” (in Conference Report, Apr. 1972, [[1972 April - “Finishers Wanted”.md|p. 72]]; or *Ensign,* July 1972, p. 70).
 
 In latter-day scriptures, the Lord often uses action words in the first sentences of his revelations. Interestingly, *hearken* is used a number of times in this fashion. We are counseled by the Lord, through the Prophet Joseph Smith, to *behold,* to *hearken,* to *listen,* to *hear,* in over sixty revelations.
 
@@ -56,19 +56,19 @@ Someone once said that the *courageous* man finds a way, and the ordinary man fi
 
 In the Boise Idaho North Stake, a loving stake presidency helped their youth have a better understanding of the pitfalls of being continually bombarded by the degrading lyrics of many of today’s popular songs and the indecent images portrayed in some movies and videos. They were taught that these mediums can produce much that is positive, inspiring, uplifting, and attractive; or they can also desensitize the mind and make what is wrong and evil look normal, exciting, and acceptable.
 
-Many of the young people hearkened to their stake presidency and courageously destroyed their tapes, discs, and videos which were not “virtuous, lovely, or of good report or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]).
+Many of the young people hearkened to their stake presidency and courageously destroyed their tapes, discs, and videos which were not “virtuous, lovely, or of good report or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]).
 
-Young people, please don’t listen to music that contains ideas that contradict principles of the gospel. “Don’t listen to music that promotes Satanism or other evil practices, encourages immorality, uses foul and offensive language, or drives away the Spirit” (*For the Strength of Youth* \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990\], p. 14).
+Young people, please don’t listen to music that contains ideas that contradict principles of the gospel. “Don’t listen to music that promotes Satanism or other evil practices, encourages immorality, uses foul and offensive language, or drives away the Spirit” (*For the Strength of Youth* \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990\], p. 14).
 
-Some may feel they are too intelligent or sophisticated to be influenced by the craftiness of Satan. What a tragic miscalculation. Nephi warned us of the perils of this misjudgment when he said: “O that cunning plan of the evil one! O the vainness, and the frailties, and the foolishness of men! When they are learned they think they are wise, and they *hearken* not unto the counsel of God. …
+Some may feel they are too intelligent or sophisticated to be influenced by the craftiness of Satan. What a tragic miscalculation. Nephi warned us of the perils of this misjudgment when he said: “O that cunning plan of the evil one! O the vainness, and the frailties, and the foolishness of men! When they are learned they think they are wise, and they *hearken* not unto the counsel of God. …
 
-“But to be learned is good if they *hearken* unto the counsels of God” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]]; emphasis added).
+“But to be learned is good if they *hearken* unto the counsels of God” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]]; emphasis added).
 
-President Hinckley said: “One of the great tragedies we witness almost daily is the tragedy of men of high aim and low achievement. Their motives are noble. Their proclaimed ambition is praiseworthy. Their capacity is great. But their discipline is weak. They succumb to indolence. Appetite robs them of will” (in Conference Report, Apr. 1979, p. 88; or *Ensign,* May 1979, p. 65).
+President Hinckley said: “One of the great tragedies we witness almost daily is the tragedy of men of high aim and low achievement. Their motives are noble. Their proclaimed ambition is praiseworthy. Their capacity is great. But their discipline is weak. They succumb to indolence. Appetite robs them of will” (in Conference Report, Apr. 1979, [[1979 April - And Peter Went Out and Wept Bitterly.md|p. 88]]; or *Ensign,* May 1979, p. 65).
 
 Perhaps the greatest obstacle to our ability to *hearken courageously* to the word of the Lord involves our egos, vain ambitions, and pride. It seems that the proud find it burdensome to hear and accept the instruction of God. We are told in Proverbs that “pride goeth before destruction” ([[Proverbs 16.18|Prov. 16:18]]). The proud are more anxious about man’s judgment than they are of God’s judgment.
 
-You may remember a story about a ship’s captain who had a problem with his pride. One night at sea, this captain saw what looked like the light of another ship heading toward him. He had his signalman blink to the other ship: “Change your course 10 degrees south.” The reply came back, “Change *your* course 10 degrees north.” The ship’s captain answered, “I am a *captain.* Change *your* course south.” To which the reply came, “Well, I am a seaman first class. Change *your* course north.” This so infuriated the captain, he signaled back, “I say change *your* course south. I am on a battleship!” To which the reply came back, “And I say change *your* course north. I am in a lighthouse” (adapted from *Hope Health Letter* \[Kalamazoo, Mich.: Hope Health Institute\], Oct. 1993, p. 1).
+You may remember a story about a ship’s captain who had a problem with his pride. One night at sea, this captain saw what looked like the light of another ship heading toward him. He had his signalman blink to the other ship: “Change your course 10 degrees south.” The reply came back, “Change *your* course 10 degrees north.” The ship’s captain answered, “I am a *captain.* Change *your* course south.” To which the reply came, “Well, I am a seaman first class. Change *your* course north.” This so infuriated the captain, he signaled back, “I say change *your* course south. I am on a battleship!” To which the reply came back, “And I say change *your* course north. I am in a lighthouse” (adapted from *Hope Health Letter* \[Kalamazoo, Mich.: Hope Health Institute\], Oct. 1993, p. 1).
 
 Like the captain, if we fail to modify our course and purge ourselves of pride, we may find ourselves shipwrecked upon the shoals of life, unable to *courageously hearken* to the beckonings of the Savior to “come unto me” ([[Matthew 11.28|Matt. 11:28]]). I like what Edgar A. Guest said in a few lines of his poem entitled “Equipment”:
 
@@ -97,6 +97,4 @@ May we all “get hold of \[ourselves\],” as Edgar Guest so beautifully sugges
 
 
 
-
-
-#Adversity #Courage #Joseph_Smith #Media #Music #Pride #Satan
+#Adversity #Courage #JosephSmith #Media #Music #Pride #Satan

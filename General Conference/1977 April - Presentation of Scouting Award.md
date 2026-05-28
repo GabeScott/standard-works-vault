@@ -20,7 +20,7 @@ I would like at this time to ask Mr. William Jackson, who is chairman of the rel
 
 Today we pay tribute to your esteemed president, whose support and sincere belief in Scouting continue to make this fine relationship possible. President Kimball, would you please come forward? Spencer Woolley Kimball, world religious leader, author, humanitarian, friend of Scouting, the Boy Scouts of America salute you and confer upon you the Silver World Award, our highest honor for distinguished service to youth on a global basis. You, sir, are recognized among distinguished citizens of the world who have contributed so substantially to the spirit of unity and brotherhood among the youth of over 113 nations of this great world. We are honored to make this presentation.
 
-**President Spencer W. Kimball:** Thank you very much. I think I would like to ask all the Scouts in this room to please stand a moment. \[Most of the audience stood.\] Thank you very much.
+**President Spencer W. Kimball:** Thank you very much. I think I would like to ask all the Scouts in this room to please stand a moment. \[Most of the audience stood.\] Thank you very much.
 
 I deeply appreciate this recognition and this act of courtesy on the part of the Boy Scouts of America. I have enjoyed a long and respectful relationship with Scouting. I believe in its potential to motivate young men to live with effectiveness and integrity and to help them prepare for their manhood. There are some lines from a poet that reflect my feelings about boys:
 

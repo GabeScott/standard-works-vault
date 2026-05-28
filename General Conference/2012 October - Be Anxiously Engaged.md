@@ -1,6 +1,6 @@
 # Be Anxiously Engaged
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -22,13 +22,13 @@ Though seemingly insignificant when compared to the total, each bee’s one-twel
 
 The beehive has always been an important symbol in our Church history. We learn in the Book of Mormon that the Jaredites carried honeybees with them (see [[Ether 2.3|Ether 2:3]]) when they journeyed to the Americas thousands of years ago. Brigham Young chose the beehive as a symbol to encourage and inspire the cooperative energy necessary among the pioneers to transform the barren desert wasteland surrounding the Great Salt Lake into the fertile valleys we have today. We are the beneficiaries of their collective vision and industry.
 
-The beehive symbol is found in both the interiors and exteriors of many of our temples. This podium where I stand is made from the wood of a walnut tree grown in President Gordon B. Hinckley’s backyard and is adorned with carved beehive images.
+The beehive symbol is found in both the interiors and exteriors of many of our temples. This podium where I stand is made from the wood of a walnut tree grown in President Gordon B. Hinckley’s backyard and is adorned with carved beehive images.
 
 All of this symbolism attests to one fact: great things are brought about and burdens are lightened through the efforts of many hands “anxiously engaged in a good cause” ([[D&C 58.27|D&C 58:27]]). Imagine what the millions of Latter-day Saints could accomplish in the world if we functioned like a beehive in our focused, concentrated commitment to the teachings of the Lord Jesus Christ.
 
 The Savior taught that the first and great commandment is:
 
-“Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
+“Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
 
 “And the second is like unto it, Thou shalt love thy neighbour as thyself.
 
@@ -68,19 +68,17 @@ How do we make this change? How do we ingrain this love of Christ into our heart
 
 That simple practice is: In your morning prayer each new day, ask Heavenly Father to guide you to recognize an opportunity to serve one of His precious children. Then go throughout the day with your heart full of faith and love, looking for someone to help. Stay focused, just like the honeybees focus on the flowers from which to gather nectar and pollen. If you do this, your spiritual sensitivities will be enlarged and you will discover opportunities to serve that you never before realized were possible.
 
-President Thomas S. Monson has taught that in many instances Heavenly Father answers another person’s prayers through us—through you and me—through our kind words and deeds, through our simple acts of service and love.
+President Thomas S. Monson has taught that in many instances Heavenly Father answers another person’s prayers through us—through you and me—through our kind words and deeds, through our simple acts of service and love.
 
-And President Spencer W. Kimball said: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other” (*Teachings of Presidents of the Church: Spencer W. Kimball* \[2006\], 82).
+And President Spencer W. Kimball said: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other” (*Teachings of Presidents of the Church: Spencer W. Kimball* \[2006\], 82).
 
 I know that if you do this—at home, at school, at work, and at church—the Spirit will guide you, and you will be able to discern those in need of a particular service that only you may be able to give. You will be prompted by the Spirit and magnificently motivated to help pollinate the world with the pure love of Christ and His gospel.
 
 And remember, like the little honeybee’s one-twelfth teaspoon of honey provided to the hive, if we multiply our efforts by tens of thousands, even millions of prayerful efforts to share God’s love for His children through Christian service, there will be a compounding effect of good that will bring the Light of Christ to this ever-darkening world. Bound together, we will bring love and compassion to our own family and to the lonely, the poor, the broken, and to those of our Heavenly Father’s children who are searching for truth and peace.
 
-It is my humble prayer, brothers and sisters, that we will ask in our daily prayers for the inspiration to find someone for whom we can provide some meaningful service, including the service of sharing the gospel truths and our testimonies. At the end of each day, may we be able to say yes to the questions: “Have I done any good in the world today? Have I helped anyone in need?” (*Hymns,* no. 223).
+It is my humble prayer, brothers and sisters, that we will ask in our daily prayers for the inspiration to find someone for whom we can provide some meaningful service, including the service of sharing the gospel truths and our testimonies. At the end of each day, may we be able to say yes to the questions: “Have I done any good in the world today? Have I helped anyone in need?” (*Hymns,* no. 223).
 
 This is God’s work. May we be about it as faithfully as the dedicated little honeybees go about theirs, I humbly pray in the name of Jesus Christ, amen.
-
-
 
 
 

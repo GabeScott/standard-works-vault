@@ -1,6 +1,5 @@
 # Royal
 
-
 Herod, arrayed in *royal* apparel, [[Acts 12.21|Acts 12:21]].
 
 If ye fulfil the *royal* law, [[James 2.8|James 2:8]].

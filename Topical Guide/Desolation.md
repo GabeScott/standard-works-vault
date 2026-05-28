@@ -1,13 +1,12 @@
 # Desolation
 
-
 *See also* [[Abomination of Desolation.md|Abomination of Desolation]]; [[Destruction.md|Destruction]]; [[Ruin.md|Ruin]]; [[Waste.md|Waste]]
 
-Joshua burnt Ai, and made it ... a *desolation*, [[Joshua 8.28|Joshua 8:28]].
+Joshua burnt Ai, and made it … a *desolation*, [[Joshua 8.28|Joshua 8:28]].
 
 brought into *desolation*, as in a moment, [[Psalms 73.19|Psalms 73:19]].
 
-In that day ... there shall be *desolation*, [[Isaiah 17.9|Isaiah 17:9]].
+In that day … there shall be *desolation*, [[Isaiah 17.9|Isaiah 17:9]].
 
 *desolation* shall come upon thee suddenly, [[Isaiah 47.11|Isaiah 47:11]].
 
@@ -21,7 +20,7 @@ accomplish seventy years in the *desolations*, [[Daniel 9.2|Daniel 9:2]].
 
 a day of wasteness and *desolation*, [[Zephaniah 1.15|Zephaniah 1:15]].
 
-kingdom divided ... brought to *desolation*, [[Matthew 12.25|Matthew 12:25]] ([[Luke 11.17|Luke 11:17]]).
+kingdom divided … brought to *desolation*, [[Matthew 12.25|Matthew 12:25]] ([[Luke 11.17|Luke 11:17]]).
 
 the abomination of *desolation*, [[Matthew 24.15|Matthew 24:15]] ([[Mark 13.14|Mark 13:14]]; [[Joseph Smith Matthew 1.12|Joseph Smith Matthew 1:12]]).
 

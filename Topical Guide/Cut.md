@@ -1,17 +1,16 @@
 # Cut
 
+*See also* [[Hew.md|Hew]]
 
-*See also* [[Hew, Hewn.md|Hew]]
+uncircumcised … shall be *cut* off from his people, [[Genesis 17.14|Genesis 17:14]].
 
-uncircumcised ... shall be *cut* off from his people, [[Genesis 17.14|Genesis 17:14]].
-
-commit any of these abominations ... shall be *cut* off, [[Leviticus 18.29|Leviticus 18:29]].
+commit any of these abominations … shall be *cut* off, [[Leviticus 18.29|Leviticus 18:29]].
 
 not make any *cuttings* in your flesh, [[Leviticus 19.28|Leviticus 19:28]] ([[Deuteronomy 14.1|Deuteronomy 14:1]]).
 
-Lord ... shall *cut* off the nations, [[Deuteronomy 12.29|Deuteronomy 12:29]].
+Lord … shall *cut* off the nations, [[Deuteronomy 12.29|Deuteronomy 12:29]].
 
-*cut* off the skirt of Saul's robe, [[1 Samuel 24.4|1 Samuel 24:4]].
+*cut* off the skirt of Saul’s robe, [[1 Samuel 24.4|1 Samuel 24:4]].
 
 will I *cut* off Israel out of the land, [[1 Kings 9.7|1 Kings 9:7]].
 
@@ -57,13 +56,13 @@ truth to be hard, for it *cutteth*, [[1 Nephi 16.2|1 Nephi 16:2]].
 
 by the temporal law they were *cut* off, [[2 Nephi 2.5|2 Nephi 2:5]].
 
-not keep my commandments ... *cut* off, [[Alma 50.20|Alma 50:20]].
+not keep my commandments … *cut* off, [[Alma 50.20|Alma 50:20]].
 
-not hear the voice of the Lord ... be *cut* off, [[D&C 1.14|D&C 1:14]].
+not hear the voice of the Lord … be *cut* off, [[D&C 1.14|D&C 1:14]].
 
 he that watches not for me shall be *cut* off, [[D&C 45.44|D&C 45:44]].
 
-hypocrites ... be *cut* off, [[D&C 50.8|D&C 50:8]].
+hypocrites … be *cut* off, [[D&C 50.8|D&C 50:8]].
 
 not obey shall be *cut* off, [[D&C 56.3|D&C 56:3]].
 
@@ -71,6 +70,6 @@ rebellious shall be *cut* off, [[D&C 64.35|D&C 64:35]].
 
 my work, which shall be *cut* short, [[D&C 84.97|D&C 84:97]].
 
-*cut* off from the church ... not find an inheritance, [[D&C 85.11|D&C 85:11]].
+*cut* off from the church … not find an inheritance, [[D&C 85.11|D&C 85:11]].
 
 *cut* off for transgression, [[D&C 104.9|D&C 104:9]].

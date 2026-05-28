@@ -14,7 +14,7 @@ As I have occasion to be with wonderful people throughout the world, I am often 
 
 Lehi’s words to his son Jacob include a profound truth: “All things have been done in the wisdom of him who knoweth all things.
 
-“Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.24|2 Ne. 2:24–25]][[2 Nephi 2.25|]].)
+“Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.24|2 Ne. 2:24–25]][[2 Nephi 2.25|]].)
 
 Our wise and loving Father in Heaven is concerned for the welfare of his children. He desires to see us happy. The very purpose of our lives can be defined in terms of happiness. The Prophet Joseph Smith said, “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it.” (*History of the Church,* 5:134.)
 
@@ -36,7 +36,7 @@ I am acquainted with a man who rebelled from the Church when he was a youth. He 
 
 “I am encompassed about, because of the temptations and the sins which do so easily beset me.
 
-“And when I desire to rejoice, my heart groaneth because of my sins.” ([[2 Nephi 4.18|2 Ne. 4:18–19]][[2 Nephi 4.19|]].)
+“And when I desire to rejoice, my heart groaneth because of my sins.” ([[2 Nephi 4.18|2 Ne. 4:18–19]][[2 Nephi 4.19|]].)
 
 Finally, in a night of spiritual turmoil, the man confessed to himself that he had never fully forsaken his sins. Although he had not committed sins worthy of Church court action, he still harbored attitudes and thoughts that robbed him of spirituality, and he went through cycles of guilt and despair that dampened his happiness. He made up his mind to change, and he kept his resolve. He broke the chain of sin and despair and, for the first time in memory, began to experience a real, true happiness. If someone had asked him, “Are we having fun, experiencing happiness, yet?” he could have answered, “Yes, more happiness, or joy, than I could have imagined.”
 
@@ -50,23 +50,21 @@ The next morning the wagon master said they would hold a short funeral and bury 
 
 Now, both the mother and the father experienced the same trials, but the father became withdrawn, cantankerous, and bitter. He stopped going to church, found fault with Church leaders. He became caught up in his own miseries, and the light of Christ grew dimmer and dimmer in his life.
 
-On the other hand, the mother’s faith increased. Each new problem seemed to make her stronger. She became an angel of mercy—filled with empathy, compassion, and charity. She was a light to those around her. Her family gravitated toward her and looked to her as their leader. She was happy; he was miserable. (See Steve Dunn Hanson, *Ensign,* Feb. 1981, pp. 54–55.)
+On the other hand, the mother’s faith increased. Each new problem seemed to make her stronger. She became an angel of mercy—filled with empathy, compassion, and charity. She was a light to those around her. Her family gravitated toward her and looked to her as their leader. She was happy; he was miserable. (See Steve Dunn Hanson, *Ensign,* Feb. 1981, pp. 54–55.)
 
-I would offer one key to maintaining your happiness in spite of adversity. Christ said, “For whosoever will save his life shall lose it: but whosoever will lose his life for my sake, the same shall save it.” ([[Luke 9.24|Luke 9:24]].) If you would find happiness and joy, lose your life in some noble cause. A worthy purpose must be at the center of every worthy life. President Stephen L. Richards noted that life is a mission, not a career. (See *Where Is Wisdom,* Salt Lake City: Deseret Book Co., 1955, p. 74.) As Church members, our mission should be the greatest, noblest mission in the universe—the salvation of souls. President David O. McKay was fond of quoting the poet Robert Browning, who said, “There is an answer to the passionate longings of the heart for fullness, and I knew it, and the answer is this: Live in all things outside yourself by love, and you will have joy. That is the life of God; it ought to be our life. In him it is accomplished and perfect; but in all created things it is a lesson learned slowly and through difficulty.” (Quoted in *Stepping Stones to an Abundant Life,* comp. Llewelyn R. McKay, Salt Lake City: Deseret Book Co., 1971, p. 119.)
+I would offer one key to maintaining your happiness in spite of adversity. Christ said, “For whosoever will save his life shall lose it: but whosoever will lose his life for my sake, the same shall save it.” ([[Luke 9.24|Luke 9:24]].) If you would find happiness and joy, lose your life in some noble cause. A worthy purpose must be at the center of every worthy life. President Stephen L. Richards noted that life is a mission, not a career. (See *Where Is Wisdom,* Salt Lake City: Deseret Book Co., 1955, p. 74.) As Church members, our mission should be the greatest, noblest mission in the universe—the salvation of souls. President David O. McKay was fond of quoting the poet Robert Browning, who said, “There is an answer to the passionate longings of the heart for fullness, and I knew it, and the answer is this: Live in all things outside yourself by love, and you will have joy. That is the life of God; it ought to be our life. In him it is accomplished and perfect; but in all created things it is a lesson learned slowly and through difficulty.” (Quoted in *Stepping Stones to an Abundant Life,* comp. Llewelyn R. McKay, Salt Lake City: Deseret Book Co., 1971, p. 119.)
 
 Service helps us forget our own travails; it enlarges our souls and gives us greater capacity to endure our own trials.
 
 Now, I have spoken of our Father’s plan of happiness by which he guides us into eternal joy. I have talked about overcoming sin through repentance and self-mastery, and I have spoken of taking the edge off adversity through selfless service. Self-mastery and service are keys to our Father’s plan. Christ told his disciples:
 
-“If ye keep my commandments, ye shall abide in my love. …
+“If ye keep my commandments, ye shall abide in my love. …
 
 “These things I have spoken unto you, that my joy might remain in you, and that your joy might be full.” ([[John 15.10|John 15:10–11]][[John 15.11|]].)
 
 The commandments are guides to happiness. I implore you to follow them.
 
 “Are we having fun yet, experiencing true happiness?” I certainly am. I find great joy in life in obeying and serving. I pray that you may also discover the elusive treasure of true happiness through the means that were ordained by our Father, in the name of Jesus Christ, amen.
-
-
 
 
 

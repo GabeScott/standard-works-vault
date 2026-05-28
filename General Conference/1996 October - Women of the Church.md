@@ -38,7 +38,7 @@ No man who engages in such evil and unbecoming behavior is worthy of the priesth
 
 There are many women among us who are single. Generally, this is not of their own choice. Some have never had the opportunity to marry one with whom they would wish to spend eternity.
 
-To you single women who wish to be married, I repeat what I recently said in a meeting for singles in this Tabernacle: “Do not give up hope. And do not give up trying. But do give up being obsessed with it. The chances are that if you forget about it and become anxiously engaged in other activities, the prospects will brighten immeasurably. …
+To you single women who wish to be married, I repeat what I recently said in a meeting for singles in this Tabernacle: “Do not give up hope. And do not give up trying. But do give up being obsessed with it. The chances are that if you forget about it and become anxiously engaged in other activities, the prospects will brighten immeasurably. …
 
 “I believe that for most of us the best medicine for loneliness is work, service in behalf of others. I do not minimize your problems, but I do not hesitate to say that there are many others whose problems are more serious than are yours. Reach out to serve them, to help them, to encourage them. There are so many boys and girls who fail in school for want of a little personal attention and encouragement. There are so many elderly people who live in misery and loneliness and fear for whom a simple conversation would bring a measure of hope and happiness” (Salt Lake Valley single adult fireside, 22 Sept. 1996).
 
@@ -46,7 +46,7 @@ Included among the women of the Church are those who have lost their husbands th
 
 I received a letter from one who counts herself fortunate, and indeed fortunate she is. She writes:
 
-“Although I have been raising our four boys as a single parent, … I am not alone. I have a wonderful ‘ward family’ that has rallied around us. …
+“Although I have been raising our four boys as a single parent, … I am not alone. I have a wonderful ‘ward family’ that has rallied around us. …
 
 “My Relief Society president has been there for me through my greatest hardships, encouraging my spiritual growth, personal prayer, and temple attendance.
 
@@ -62,7 +62,7 @@ I received a letter from one who counts herself fortunate, and indeed fortunate 
 
 “We are always met with loving hearts and warm handshakes. The Christlike attitude of the stake and our ward has helped us through trials we never imagined possible.
 
-“Life has been hard, … but we put on the whole armor of God as we kneel in family prayer … , asking for help and guidance and sharing thanks for the blessings we have received. I pray daily for the constant companionship of the Holy Ghost to guide me as I raise these boys to be missionaries and encourage them to be true to the gospel and the priesthood they hold.
+“Life has been hard, … but we put on the whole armor of God as we kneel in family prayer … , asking for help and guidance and sharing thanks for the blessings we have received. I pray daily for the constant companionship of the Holy Ghost to guide me as I raise these boys to be missionaries and encourage them to be true to the gospel and the priesthood they hold.
 
 “I am proud to say I am a member of The Church of Jesus Christ of Latter-day Saints. I know this Church is true. I sustain my Church leaders. We are doing well, and I thank everyone for their love, and prayers, and acceptance.”
 
@@ -100,4 +100,5 @@ And so, my beloved sisters, please know how much we appreciate you. You bring a 
 
 
 
-#Abuse #Home_Teaching #Leadership #Loneliness #Motherhood #Plan_Of_Salvation #Single_Members #Women #Work
+
+#Abuse #HomeTeaching #Leadership #Loneliness #Motherhood #PlanOfSalvation #SingleMembers #Work #Women

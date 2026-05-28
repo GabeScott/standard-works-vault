@@ -1,13 +1,12 @@
 # Garden
 
-
-*See also* [[Eden.md|Eden]]; [BD Eden, Garden of](https://www.churchofjesuschrist.org/study/scriptures/bd/eden-garden-of?lang=eng); [Gethsemane](https://www.churchofjesuschrist.org/study/scriptures/bd/gethsemane?lang=eng)
+*See also* [[Eden.md|Eden]]; [[BD Eden, Garden of.md|BD Eden, Garden of]]; [[BD Gethsemane.md|BD Gethsemane]]
 
 God planted a *garden* eastward in Eden, [[Genesis 2.8|Genesis 2:8]] ([[Genesis 2.15|Genesis 2:15]]; [[Moses 3.8|Moses 3:8]]; [[Abraham 5.8|Abraham 5:8]]).
 
 God sent him forth from the *garden* of Eden, [[Genesis 3.23|Genesis 3:23]].
 
-not as the land of Egypt ... a *garden* of herbs, [[Deuteronomy 11.10|Deuteronomy 11:10]].
+not as the land of Egypt … a *garden* of herbs, [[Deuteronomy 11.10|Deuteronomy 11:10]].
 
 as a *garden* that hath no water, [[Isaiah 1.30|Isaiah 1:30]].
 
@@ -29,4 +28,4 @@ driven out of the *garden* of Eden, [[2 Nephi 2.19|2 Nephi 2:19]] ([[2 Nephi 2.2
 
 caused that he should be cast out from the *Garden* of Eden, [[D&C 29.41|D&C 29:41]].
 
-good things which come of the earth ... for *gardens*, [[D&C 59.17|D&C 59:17]].
+good things which come of the earth … for *gardens*, [[D&C 59.17|D&C 59:17]].

@@ -1,15 +1,14 @@
 # Eat, Eaten
 
-
 *See also* [[Consume.md|Consume]]; [[Devour.md|Devour]]
 
-tree of the knowledge ... thou shalt not *eat*, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]).
+tree of the knowledge … thou shalt not *eat*, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]).
 
 in the day ye *eat* thereof, then your eyes shall be opened, [[Genesis 3.5|Genesis 3:5]] ([[Moses 4.11|Moses 4:11]]).
 
 blood thereof, shall ye not *eat*, [[Genesis 9.4|Genesis 9:4]].
 
-Egyptians ... not *eat* bread with the Hebrews, [[Genesis 43.32|Genesis 43:32]].
+Egyptians … not *eat* bread with the Hebrews, [[Genesis 43.32|Genesis 43:32]].
 
 passover: There shall no stranger *eat* thereof, [[Exodus 12.43|Exodus 12:43]].
 
@@ -53,13 +52,13 @@ fathers have *eaten* a sour grape, [[Jeremiah 31.29|Jeremiah 31:29]] ([[Ezekiel 
 
 Son of man, *eat* that thou findest; *eat* this roll, [[Ezekiel 3.1|Ezekiel 3:1]].
 
-Nebuchadnezzar ... did *eat* grass as oxen, [[Daniel 4.33|Daniel 4:33]].
+Nebuchadnezzar … did *eat* grass as oxen, [[Daniel 4.33|Daniel 4:33]].
 
 For they shall *eat*, and not have enough, [[Hosea 4.10|Hosea 4:10]] ([[Haggai 1.6|Haggai 1:6]]).
 
 Thou shalt *eat*, but not be satisfied, [[Micah 6.14|Micah 6:14]].
 
-no thought ... what ye shall *eat*, [[Matthew 6.25|Matthew 6:25]] ([[Luke 12.22|Luke 12:22]]; [[D&C 84.81|D&C 84:81]]).
+no thought … what ye shall *eat*, [[Matthew 6.25|Matthew 6:25]] ([[Luke 12.22|Luke 12:22]]; [[D&C 84.81|D&C 84:81]]).
 
 that did *eat* were four thousand men, [[Matthew 15.38|Matthew 15:38]] ([[Mark 8.9|Mark 8:9]]).
 
@@ -79,7 +78,7 @@ Blessed is he that shall *eat* bread in the kingdom, [[Luke 14.15|Luke 14:15]].
 
 This man receiveth sinners, and *eateth* with them, [[Luke 15.2|Luke 15:2]].
 
-fatted calf ... let us *eat*, [[Luke 15.23|Luke 15:23]].
+fatted calf … let us *eat*, [[Luke 15.23|Luke 15:23]].
 
 his disciples prayed him, saying, Master, *eat*, [[John 4.31|John 4:31]].
 
@@ -107,17 +106,17 @@ their word will *eat* as doth a canker, [[2 Timothy 2.17|2 Timothy 2:17]].
 
 *eat* of the hidden manna, [[Revelation 2.17|Revelation 2:17]].
 
-book out of the angel's hand, and *ate* it up, [[Revelation 10.10|Revelation 10:10]] ([[D&C 77.14|D&C 77:14]]).
+book out of the angel’s hand, and *ate* it up, [[Revelation 10.10|Revelation 10:10]] ([[D&C 77.14|D&C 77:14]]).
 
 *eat* every man the flesh of his own arm, [[2 Nephi 19.20|2 Nephi 19:20]].
 
-if ye know that a man is unworthy to *eat* ... of my flesh, [[3 Nephi 18.29|3 Nephi 18:29]].
+if ye know that a man is unworthy to *eat* … of my flesh, [[3 Nephi 18.29|3 Nephi 18:29]].
 
 that they may *eat* in remembrance, [[Moroni 4.3|Moroni 4:3]] ([[D&C 20.77|D&C 20:77]]).
 
 mattereth not what ye shall *eat*, [[D&C 27.2|D&C 27:2]].
 
-flies ... shall *eat* their flesh, [[D&C 29.18|D&C 29:18]].
+flies … shall *eat* their flesh, [[D&C 29.18|D&C 29:18]].
 
 he that is idle shall not *eat* the bread, [[D&C 42.42|D&C 42:42]].
 
@@ -125,6 +124,6 @@ willing and obedient shall *eat* the good of the land, [[D&C 64.34|D&C 64:34]].
 
 book which was *eaten* by John, [[D&C 77.14|D&C 77:14]].
 
-plant vineyards, and ... *eat* the fruit, [[D&C 101.101|D&C 101:101]].
+plant vineyards, and … *eat* the fruit, [[D&C 101.101|D&C 101:101]].
 
-woman ... did *eat*, and also gave unto her husband, [[Moses 4.12|Moses 4:12]].
+woman … did *eat*, and also gave unto her husband, [[Moses 4.12|Moses 4:12]].

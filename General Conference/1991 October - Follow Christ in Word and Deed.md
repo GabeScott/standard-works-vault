@@ -16,7 +16,7 @@ The author’s reason for placing Jesus third in importance is as follows:
 
 “The impact of Jesus on human history is so obvious and so enormous that few people would question his placement near the top of the list. Indeed, the more likely question is why Jesus … has not been placed first.”
 
-The author acknowledges that the teachings of Jesus Christ are “surely among the most remarkable and original ethical ideas ever presented. If they were widely followed, I would have had no hesitation in placing Jesus first in this book” (\[New York City: Hart Publishing Co., 1978\], pp. 47, 50).
+The author acknowledges that the teachings of Jesus Christ are “surely among the most remarkable and original ethical ideas ever presented. If they were widely followed, I would have had no hesitation in placing Jesus first in this book” (\[New York City: Hart Publishing Co., 1978\], pp. 47, 50).
 
 What a searing and likely very true observation: If Jesus’ teachings were widely followed, Mr. Hart would have no hesitation in placing Jesus first!
 
@@ -36,7 +36,7 @@ Acts of Christian service should be part of our everyday agenda. In the [[Acts 1
 
 These planned acts of service generated through Church programs are important and commendable. They are the mark of a Christian people. The Church has a function in service and renders assistance that cannot be provided by individuals alone. These opportunities of the Church as an institution, however, cannot fulfill the responsibility you and I have for personal acts of Christlike kindness. These lift our soul and renew our relationship with our Heavenly Father and with His Son, Jesus Christ.
 
-President Spencer W. Kimball said, “The major strides which must be made by the Church will follow upon the major strides to be made by … individuals” (in Conference Report, Apr. 1979, p. 114; or *Ensign,* May 1979, p. 82).
+President Spencer W. Kimball said, “The major strides which must be made by the Church will follow upon the major strides to be made by … individuals” (in Conference Report, Apr. 1979, [[1979 April - Let Us Move Forward and Upward.md|p. 114]]; or *Ensign,* May 1979, p. 82).
 
 Perhaps the greatest of Christian acts are those we never hear about. They are deeds done quietly, spontaneously, anonymously, without expectation of recognition or compensation. Christian acts begin with Christlike thoughts in our hearts. Then Christ’s teachings and His characteristics will be reflected naturally in our actions. Soon there will be more friendly smiles, more kindly words, more courteous responses from us—all seemingly small, insignificant acts, yet they can have a great impact in all our lives. President Rex Lee of BYU has said, “Christlike niceness is … the cornerstone of \[Christ’s\] teachings” (address given at a Brigham Young University devotional, 10 Sept. 1991).
 
@@ -81,6 +81,4 @@ I pray that we, who have taken upon us His name and His marvelous priesthood aut
 
 
 
-
-
-#Example #Faith #Jesus_Christ #Love #Obedience #Priesthood #Temptation
+#Example #Faith #JesusChrist #Love #Obedience #Priesthood #Temptation

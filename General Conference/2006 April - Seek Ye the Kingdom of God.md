@@ -83,15 +83,13 @@ Now, in conclusion, I hope that all of you will remember that on this Sabbath da
 
 It was the resurrected Lord who was introduced by His Father, the great God of the universe. For the first time in recorded history, both the Father and the Son appeared together to part the curtains and open this, the last and final dispensation, the dispensation of the fulness of times.
 
-The Book of Mormon is all that it purports to be—a work recorded by prophets who lived anciently and whose words have come forth “to the convincing of the Jew and Gentile that Jesus is the Christ, the Eternal God, manifesting himself unto all nations” (Book of Mormon [title page](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng)).
+The Book of Mormon is all that it purports to be—a work recorded by prophets who lived anciently and whose words have come forth “to the convincing of the Jew and Gentile that Jesus is the Christ, the Eternal God, manifesting himself unto all nations” (Book of Mormon [title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng)).
 
 The priesthood has been restored under the hands of John the Baptist and Peter, James, and John. All the keys and authority pertaining to eternal life are exercised in this Church.
 
 Joseph Smith was and is a prophet, the great Prophet of this dispensation. This Church, which carries the name of the Redeemer, is true.
 
 I leave you my testimony, my witness, and my love for each of you, in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -4,6 +4,3 @@
 
 [JST Luke 2:46](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/2?lang=eng)
 
-
-
-

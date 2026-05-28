@@ -83,9 +83,9 @@ Exaltation in the Father’s kingdom includes kingdoms, thrones, dominions, prin
 
 [^8]: *Sharing the Gospel with Others,* sel. Preston Nibley (1948), 43.
 
-[^9]: [[2 Nephi 28.8|2 Ne. 28:8]].
+[^9]: [[2 Nephi 28.8|2 Ne. 28:8]].
 
-[^10]: [[2 Nephi 28.10|2 Ne. 28:10]].
+[^10]: [[2 Nephi 28.10|2 Ne. 28:10]].
 
 [^11]: See [[D&C 132.7|D&C 132:7]].
 
@@ -101,6 +101,4 @@ Exaltation in the Father’s kingdom includes kingdoms, thrones, dominions, prin
 
 [^17]: See *Teachings of Presidents of the Church: Brigham Young* (1997), 72.
 
-
-
-#Covenants #Home_Teaching #Honesty #Media #Obedience #Priesthood #Repentance #Satan #Self-Control #Temptation #Word_Of_Wisdom
+#Covenants #HomeTeaching #Honesty #Media #Obedience #Priesthood #Repentance #Satan #Self-control #Temptation #WordOfWisdom

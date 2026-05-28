@@ -4,6 +4,3 @@
 
 [JST Luke 18:27](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/18?lang=eng)
 
-
-
-

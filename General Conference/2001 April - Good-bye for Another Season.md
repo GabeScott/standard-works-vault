@@ -35,6 +35,4 @@ As we return to our homes, may we experience a strengthening of our faith in the
 
 
 
-
-
-#Church_Growth #Faith #General_Conference #Home #Jesus_Christ #Joseph_Smith #Loyalty #Obedience #Prayer #Spirituality #Testimony
+#ChurchGrowth #Faith #GeneralConference #Home #JosephSmith #JesusChrist #Loyalty #Obedience #Prayer #Spirituality #Testimony

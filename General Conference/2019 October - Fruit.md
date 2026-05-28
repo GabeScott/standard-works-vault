@@ -1,6 +1,6 @@
 # Fruit
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -48,7 +48,7 @@ Here are Jason’s words about an event that changed his life:
 
 “\[At age 15\] I \[was\] in a diving accident. … I \[broke\] my neck and was paralyzed from the chest down. I lost complete control of my legs and partial control of my arms. I could no longer walk, stand, … or feed myself. I could barely breathe or speak.”[^14]
 
-“‘Dear Father \[in Heaven\],’ I begged, ‘if I could only have my hands, I know I could make it. Please, Father, please. …
+“‘Dear Father \[in Heaven\],’ I begged, ‘if I could only have my hands, I know I could make it. Please, Father, please. …
 
 “… ‘Keep my legs, Father; I just \[pray for\] the use of my hands.’”[^15]
 
@@ -66,13 +66,13 @@ Coleman concluded: “Every night since I was a baby, my dad said to me, ‘Dad 
 
 ## Joy Comes Because of Jesus Christ
 
-President Russell M. Nelson described why the Hall family feels joy and hope. He said:
+President Russell M. Nelson described why the Hall family feels joy and hope. He said:
 
 “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.
 
-“When the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him. He is the source of all joy. …
+“When the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him. He is the source of all joy. …
 
-“If we look to the world … , we will never know joy. … \[Joy\] is the gift that comes from intentionally trying to live a righteous life, as taught by Jesus Christ.”[^19]
+“If we look to the world … , we will never know joy. … \[Joy\] is the gift that comes from intentionally trying to live a righteous life, as taught by Jesus Christ.”[^19]
 
 ## A Promise as You Return
 
@@ -88,7 +88,7 @@ Speaking this morning to the members of the Church across the world, President N
 
 We love you, President Nelson.
 
-I am an eyewitness to the power of revelation that rests upon our dear President. He is the prophet of God. Like Lehi of old, President Russell M. Nelson beckons to us and all of God’s family to come and partake of the fruit of the tree. May we have the humility and strength to follow his counsel.
+I am an eyewitness to the power of revelation that rests upon our dear President. He is the prophet of God. Like Lehi of old, President Russell M. Nelson beckons to us and all of God’s family to come and partake of the fruit of the tree. May we have the humility and strength to follow his counsel.
 
 I humbly witness that Jesus Christ is the Son of God. His love, His power, and His grace bring all things of lasting worth. I so testify in the name of Jesus Christ, amen.
 
@@ -101,29 +101,29 @@ I humbly witness that Jesus Christ is the Son of God. His love, His power, and H
 
 [^3]: [[John 4.36|John 4:36]].
 
-[^4]: In early January 2007, while preparing for a Brigham Young University devotional address as a member of the Presidency of the Seventy to be given on March 4, 2007, I asked Elder David A. Bednar what he was preparing for his February 4, 2007, address before the same audience. I was taken aback when he responded that his talk was about holding fast to the iron rod. This was the exact title I had chosen for my talk. After sharing our text with one another, we realized that our approaches were different. His talk, entitled “[A Reservoir of Living Water](https://speeches.byu.edu/talks/david-a-bednar/reservoir-living-water),” emphasized the rod of iron, or the word of God, as encompassing the scriptures. In his talk he asked, “Are you and I daily reading, studying, and searching the scriptures in a way that enables us to hold fast to the rod of iron?” (speeches.byu.edu).
+[^4]: In early January 2007, while preparing for a Brigham Young University devotional address as a member of the Presidency of the Seventy to be given on March 4, 2007, I asked Elder David A. Bednar what he was preparing for his February 4, 2007, address before the same audience. I was taken aback when he responded that his talk was about holding fast to the iron rod. This was the exact title I had chosen for my talk. After sharing our text with one another, we realized that our approaches were different. His talk, entitled “[A Reservoir of Living Water](https://speeches.byu.edu/talks/david-a-bednar/reservoir-living-water),” emphasized the rod of iron, or the word of God, as encompassing the scriptures. In his talk he asked, “Are you and I daily reading, studying, and searching the scriptures in a way that enables us to hold fast to the rod of iron?” (speeches.byu.edu).
 
-[^5]: See [[1 Nephi 8.4|1 Nephi 8:4–12]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
+[^5]: See [[1 Nephi 8.4|1 Nephi 8:4–12]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
 
-[^6]: [[1 Nephi 11.25|1 Nephi 11:25]].
+[^6]: [[1 Nephi 11.25|1 Nephi 11:25]].
 
 [^7]: [[John 3.16|John 3:16]].
 
-[^8]: See David A. Bednar, “[Lehi’s Dream: Holding Fast to the Rod](https://churchofjesuschrist.org/study/ensign/2011/10/lehis-dream-holding-fast-to-the-rod?lang=eng),” *Ensign* or *Liahona,* Oct. 2011, 32–37.
+[^8]: See David A. Bednar, “[Lehi’s Dream: Holding Fast to the Rod](https://www.churchofjesuschrist.org/study/ensign/2011/10/lehis-dream-holding-fast-to-the-rod?lang=eng),” *Ensign* or *Liahona,* Oct. 2011, 32–37.
 
-[^9]: [[1 Nephi 11.23|1 Nephi 11:23]].
+[^9]: [[1 Nephi 11.23|1 Nephi 11:23]].
 
-[^10]: [[1 Nephi 8.28|1 Nephi 8:28]].
+[^10]: [[1 Nephi 8.28|1 Nephi 8:28]].
 
-[^11]: See Boyd K. Packer, “[Lehi’s Dream and You](https://speeches.byu.edu/talks/boyd-k-packer/lehis-dream)” (Brigham Young University devotional, Jan. 16, 2007), speeches.byu.edu.
+[^11]: See Boyd K. Packer, “[Lehi’s Dream and You](https://speeches.byu.edu/talks/boyd-k-packer/lehis-dream)” (Brigham Young University devotional, Jan. 16, 2007), speeches.byu.edu.
 
-[^12]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 68.
+[^12]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 68.
 
-[^13]: [[1 Nephi 8.33|1 Nephi 8:33]].
+[^13]: [[1 Nephi 8.33|1 Nephi 8:33]].
 
-[^14]: Stephen Jason Hall, “[The Gift of Home](https://churchofjesuschrist.org/study/new-era/1994/12/the-gift-of-home?lang=eng),” *New Era,* Dec. 1994, 12.
+[^14]: Stephen Jason Hall, “[The Gift of Home](https://www.churchofjesuschrist.org/study/new-era/1994/12/the-gift-of-home?lang=eng),” *New Era,* Dec. 1994, 12.
 
-[^15]: Stephen Jason Hall, “[Helping Hands](https://churchofjesuschrist.org/study/new-era/1995/10/helping-hands?lang=eng),” *New Era,* Oct. 1995, 46, 47.
+[^15]: Stephen Jason Hall, “[Helping Hands](https://www.churchofjesuschrist.org/study/new-era/1995/10/helping-hands?lang=eng),” *New Era,* Oct. 1995, 46, 47.
 
 [^16]: Personal correspondence to Elder Andersen from Kolette Hall.
 
@@ -131,17 +131,18 @@ I humbly witness that Jesus Christ is the Son of God. His love, His power, and H
 
 [^18]: Funeral talk by Coleman Hall, shared with Elder Andersen by Kolette Hall.
 
-[^19]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82, 84.
+[^19]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82, 84.
 
-[^20]: [[3 Nephi 21.6|3 Nephi 21:6]].
+[^20]: [[3 Nephi 21.6|3 Nephi 21:6]].
 
-[^21]: See [[2 Nephi 26.25|2 Nephi 26:25, 33]][[2 Nephi 26.33|]].
+[^21]: See [[2 Nephi 26.25|2 Nephi 26:25, 33]][[2 Nephi 26.33|]].
 
 [^22]: [[D&C 6.36|Doctrine and Covenants 6:36]].
 
-[^23]: [[1 Nephi 15.36|1 Nephi 15:36]].
+[^23]: [[1 Nephi 15.36|1 Nephi 15:36]].
 
 [^24]: [[John 15.5|John 15:5]].
 
+[^25]: Russell M. Nelson, “The Second Great Commandment,” *Ensign* or *Liahona,* Nov. 2019, 100.
 
-#Activation #Faith #Jesus_Christ #Joy #Love #Opposition
+#Activation #Faith #Joy #JesusChrist #Love #Opposition

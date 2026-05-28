@@ -1,6 +1,6 @@
 # Behold the Man!
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 My beloved brothers and sisters, dear friends, I am grateful to be with you on this wonderful general conference weekend. Harriet and I rejoice with you in sustaining Elders Gong and Soares and the many brothers and sisters who have received significant new callings during this general conference.
 
-Although I miss my dear friend President Thomas S. Monson, I love, sustain, and support our prophet and President, Russell M. Nelson, and his noble counselors.
+Although I miss my dear friend President Thomas S. Monson, I love, sustain, and support our prophet and President, Russell M. Nelson, and his noble counselors.
 
 I am also thankful and honored to once again work more closely with my beloved fellow Brethren of the Quorum of the Twelve.
 
@@ -157,9 +157,9 @@ I leave you my testimony and blessing that as we “behold the man,” we will f
 
 [^4]: See [[Revelation 21.4|Revelation 21:4]].
 
-[^5]: See [[1 Corinthians 15.21|1 Corinthians 15:21–23]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]].
+[^5]: See [[1 Corinthians 15.21|1 Corinthians 15:21–23]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]].
 
-[^6]: [[3 Nephi 27.19|3 Nephi 27:19]].
+[^6]: [[3 Nephi 27.19|3 Nephi 27:19]].
 
 [^7]: See [[John 4.14|John 4:14]].
 
@@ -183,7 +183,8 @@ I leave you my testimony and blessing that as we “behold the man,” we will f
 
 [^17]: [[Isaiah 40.29|Isaiah 40:29]].
 
-[^18]: See Dieter F. Uchtdorf, “[The Adventure of Mortality](https://www.lds.org/broadcasts/article/worldwide-devotionals/2018/01/the-adventure-of-mortality)” (worldwide devotional for young adults, Jan. 14, 2018), broadcasts.lds.org.
+[^18]: See Dieter F. Uchtdorf, “[The Adventure of Mortality](https://www.lds.org/broadcasts/article/worldwide-devotionals/2018/01/the-adventure-of-mortality)” (worldwide devotional for young adults, Jan. 14, 2018), broadcasts.lds.org.
 
+[^19]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-#Adversity #Atonement #Death #Discipleship #Easter #Jesus_Christ #Repentance #Resurrection
+#Adversity #Atonement #Death #Discipleship #Easter #JesusChrist #Repentance #Resurrection

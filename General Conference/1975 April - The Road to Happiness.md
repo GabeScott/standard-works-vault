@@ -52,9 +52,9 @@ In the Book of Mormon we read of the establishment of the Lord’s church upon t
 
 “And it came to pass that there was no contention in the land, because of the love of God which did dwell in the hearts of the people.
 
-“And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a *happier* people among all the people who had been created by the hand of God.” ([[4 Nephi 1.15|4 Ne. 1:15–16]][[4 Nephi 1.16|]]. Italics added.)
+“And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a *happier* people among all the people who had been created by the hand of God.” ([[4 Nephi 1.15|4 Ne. 1:15–16]][[4 Nephi 1.16|]]. Italics added.)
 
-After about 210 years had passed away following the coming of the Savior, “they \[the people\] did deny the more parts of his gospel, insomuch that they did receive all manner of wickedness.” ([[4 Nephi 1.27|4 Ne. 1:27]].) As a result of their wickedness there were wars and contentions, and finally destruction came upon the descendants of Lehi who occupied this continent.
+After about 210 years had passed away following the coming of the Savior, “they \[the people\] did deny the more parts of his gospel, insomuch that they did receive all manner of wickedness.” ([[4 Nephi 1.27|4 Ne. 1:27]].) As a result of their wickedness there were wars and contentions, and finally destruction came upon the descendants of Lehi who occupied this continent.
 
 One of the dangers facing the world is the deterioration of the home and the family. Latter-day Saints look upon the family as the greatest institution of civilization. Subversion of this great institution can do nothing less than bring destruction upon the world. The plan of life and salvation teaches that marriage is for time and eternity.
 
@@ -67,8 +67,6 @@ There is a difference between immortality and eternal life. We cannot accomplish
 One has true joy when he knows that he pleases God, and again, when he is assured that God is pleased with him.
 
 The day will come when the Lord shall compensate every man according to his work. His arm shall be revealed. May we adopt and follow the true road to happiness, which is to fear God and keep his commandments and thereby attain the great goal given us by the Lord, namely, life eternal and everlasting joy in the presence of our Heavenly Father and his Beloved Son, I humbly pray in the name of the Lord Jesus Christ. Amen.
-
-
 
 
 

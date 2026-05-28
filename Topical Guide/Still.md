@@ -1,6 +1,5 @@
 # Still
 
-
 *See also* [[Quiet.md|Quiet]]
 
 stand *still*, and see the salvation of the Lord, [[Exodus 14.13|Exodus 14:13]].

@@ -18,13 +18,13 @@ To that precious grandchild, one of many, and to everyone else who is trying to 
 
 It was Christ who in the premortal state presented Himself to become the Savior of men, saying, “Here am I, send me. And another answered and said: Here am I, send me. And the Lord said: I will send the first” ([[Abraham 3.27|Abr. 3:27]]). From that time forth it was proclaimed that the Son of Man would come to earth to sacrifice Himself as an atonement for the sins of all men (see [[Mosiah 3.1|Mosiah 3]][[Mosiah 3.2|]][[Mosiah 3.3|]][[Mosiah 3.4|]][[Mosiah 3.5|]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]][[Mosiah 3.12|]][[Mosiah 3.13|]][[Mosiah 3.14|]][[Mosiah 3.15|]][[Mosiah 3.16|]][[Mosiah 3.17|]][[Mosiah 3.18|]][[Mosiah 3.19|]][[Mosiah 3.20|]][[Mosiah 3.21|]][[Mosiah 3.22|]][[Mosiah 3.23|]][[Mosiah 3.24|]][[Mosiah 3.25|]][[Mosiah 3.26|]][[Mosiah 3.27|]]).
 
-As the day of His mortal birth approached, Nephi heard the voice saying, “Lift up your head and be of good cheer; for behold, … on the morrow come I into the world” ([[3 Nephi 1.13|3 Ne. 1:13]]).
+As the day of His mortal birth approached, Nephi heard the voice saying, “Lift up your head and be of good cheer; for behold, … on the morrow come I into the world” ([[3 Nephi 1.13|3 Ne. 1:13]]).
 
 Thus, on the next day in Bethlehem of Judea, a tiny babe lay in a manger while an attentive mother gloried in the presence of her newborn son, the Only Begotten of the Father in the flesh, a God come to earth.
 
 “And the child grew, and waxed strong in spirit, filled with wisdom: and the grace of God was upon him” ([[Luke 2.40|Luke 2:40]]).
 
-In succeeding years “Jesus increased in wisdom and stature, and in favour with God and man” ([[Luke 2.52|Luke 2:52]]). At the age of thirty, He began His ministry, teaching the great plan of happiness—faith, repentance, baptism by immersion, the laying on of hands to receive the gift of the Holy Ghost, and enduring to the end (see [[3 Nephi 27.1|3 Ne. 27]][[3 Nephi 27.2|]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]][[3 Nephi 27.9|]][[3 Nephi 27.10|]][[3 Nephi 27.11|]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]][[3 Nephi 27.23|]][[3 Nephi 27.24|]][[3 Nephi 27.25|]][[3 Nephi 27.26|]][[3 Nephi 27.27|]][[3 Nephi 27.28|]][[3 Nephi 27.29|]][[3 Nephi 27.30|]][[3 Nephi 27.31|]][[3 Nephi 27.32|]][[3 Nephi 27.33|]]).
+In succeeding years “Jesus increased in wisdom and stature, and in favour with God and man” ([[Luke 2.52|Luke 2:52]]). At the age of thirty, He began His ministry, teaching the great plan of happiness—faith, repentance, baptism by immersion, the laying on of hands to receive the gift of the Holy Ghost, and enduring to the end (see [[3 Nephi 27.1|3 Ne. 27]][[3 Nephi 27.2|]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]][[3 Nephi 27.9|]][[3 Nephi 27.10|]][[3 Nephi 27.11|]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]][[3 Nephi 27.23|]][[3 Nephi 27.24|]][[3 Nephi 27.25|]][[3 Nephi 27.26|]][[3 Nephi 27.27|]][[3 Nephi 27.28|]][[3 Nephi 27.29|]][[3 Nephi 27.30|]][[3 Nephi 27.31|]][[3 Nephi 27.32|]][[3 Nephi 27.33|]]).
 
 Being obedient to the commandment, He was baptized by immersion in the river Jordan by John the Baptist (see [[Matthew 3.1|Matt. 3]][[Matthew 3.2|]][[Matthew 3.3|]][[Matthew 3.4|]][[Matthew 3.5|]][[Matthew 3.6|]][[Matthew 3.7|]][[Matthew 3.8|]][[Matthew 3.9|]][[Matthew 3.10|]][[Matthew 3.11|]][[Matthew 3.12|]][[Matthew 3.13|]][[Matthew 3.14|]][[Matthew 3.15|]][[Matthew 3.16|]][[Matthew 3.17|]]).
 
@@ -75,6 +75,4 @@ Can we do too much for the Lord? Certainly we all love Him. Therefore, I implore
 
 
 
-
-
-#Apostasy #Jesus_Christ #Love #Plan_Of_Salvation #Restoration
+#Apostasy #JesusChrist #Love #PlanOfSalvation #Restoration

@@ -1,4 +1,3 @@
 # Council of the Twelve
 
-
-*See* [[Apostles.md|Apostles]]
+*See also* [[Apostles.md|Apostles]]

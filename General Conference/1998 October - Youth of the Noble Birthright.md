@@ -26,7 +26,7 @@ On the first day there was not much interest in discussions, but the momentum se
 
 The Lord has blessed us with lands of promise to enjoy during our mortal probation. The nations of the earth, if they would continue to follow the ways of the Lord, could be a blessing to His children here. You special young sons and daughters, He expects you to be especially mindful of the bounteous blessings you have received from Him.
 
-With these blessings, of course, come responsibilities. We are expected to be subject to kings, presidents, rulers, and magistrates, and obey, honor, and sustain the law (see [[Articles of Faith 1.12|A of F 1:12]]). To obey, honor, and sustain, we must know the law and live it. We must be good citizens in our church, schools, and communities. We must also be prepared to make our contribution by giving service to others.
+With these blessings, of course, come responsibilities. We are expected to be subject to kings, presidents, rulers, and magistrates, and obey, honor, and sustain the law (see [[Articles of Faith 1.12|A of F 1:12]]). To obey, honor, and sustain, we must know the law and live it. We must be good citizens in our church, schools, and communities. We must also be prepared to make our contribution by giving service to others.
 
 The best way I know of to make a contribution to the land we live in is to be prepared for the future. The Lord has promised us if we are prepared we should have no fear (see [[D&C 38.30|D&C 38:30]]). If we make an effort to obtain the best education available to us, we are in a better position to be self-sufficient and not to become a burden on the society in which we live.
 
@@ -34,7 +34,7 @@ I read in a newspaper a few weeks ago of the earning potential with increased le
 
 *Topic number 2: Self-esteem.* In the eighth Psalm of David, he gave us a vision of who we are and the eternal opportunities which are ours. He said:
 
-“O Lord our Lord, how excellent is thy name in all the earth! who hast set thy glory above the heavens. …
+“O Lord our Lord, how excellent is thy name in all the earth! who hast set thy glory above the heavens. …
 
 “When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained;
 
@@ -72,7 +72,7 @@ Learning to appreciate what it means to belong to an eternal family is of great 
 
 The final topic I included in the binder was under the heading of “Love of God.” From the revelations received by the Prophet Joseph Smith in 1831, we read, “Wherefore, I give unto them a commandment, saying thus: Thou shalt love the Lord thy God with all thy heart, with all thy might, mind, and strength; and in the name of Jesus Christ thou shalt serve him” ([[D&C 59.5|D&C 59:5]]).
 
-The Lord has used the heart as a way of describing the innermost nature of His children. The scriptures are filled with references to the heart, such as the pure in heart, an abundant heart, a cheerful heart, and so forth. In 1 Samuel we read, “For the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Sam. 16:7]]).
+The Lord has used the heart as a way of describing the innermost nature of His children. The scriptures are filled with references to the heart, such as the pure in heart, an abundant heart, a cheerful heart, and so forth. In 1 Samuel we read, “For the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Sam. 16:7]]).
 
 In our hearts do we feel a sense of gratitude and devotion to the Father? Are we of one heart with Him to whom we owe everything? The test of our devotion to the Lord seems to be the way we serve Him.
 
@@ -86,4 +86,5 @@ My final entry in the binder I presented to my grandchildren was my personal tes
 
 
 
-#Accountability #Education #Family #Hope #Joy #Laws #Love #Self-Esteem #Self-Reliance #Service #Youth
+
+#Accountability #Education #Family #Hope #Joy #Laws #Love #Self-esteem #Self-reliance #Service #Youth

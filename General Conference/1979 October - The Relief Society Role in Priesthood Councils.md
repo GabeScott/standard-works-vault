@@ -1,6 +1,6 @@
 # The Relief Society Role in Priesthood Councils
 
-By Barbara B. Smith - *Relief Society General President*
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -89,8 +89,6 @@ The Lord accepted her offering, for he said, “Verily I say unto you, That this
 The Lord herein points the way for the sons and daughters of God. If we who believe will give all that we have, a way will be opened so that we can alleviate suffering as it comes to our attention. None of us is exempt from dedicating our lives to this principle.
 
 Brethren, the Relief Society presidents of the Church are anxious to share of their abundance and even all their “living” as you place them in a situation where they can act with you in the priesthood councils of the Church to successfully accomplish this great work of love. I so testify in the name of Jesus Christ, amen.
-
-
 
 
 

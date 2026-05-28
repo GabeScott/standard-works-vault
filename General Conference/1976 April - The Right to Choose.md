@@ -1,6 +1,6 @@
 # The Right to Choose
 
-By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
+By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -71,8 +71,6 @@ Yes, we do have the privilege of making decisions. Will they be good and be plea
 Joshua, an ancient prophet, determined that he would try to live righteously, and after making this decision he proclaimed: “choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord.” ([[Joshua 24.15|Josh. 24:15]].)
 
 May we be inspired to make wise decisions that will meet with the approval of the Lord and be for our best good and the blessing of our fellowmen. For this I pray, in the name of our Lord and Savior, Jesus Christ. Amen.
-
-
 
 
 

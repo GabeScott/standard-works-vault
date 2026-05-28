@@ -157,7 +157,7 @@ God bless you millions of youth in our Church who worthily follow the patterns o
 
 [^14]: See [[Moses 1.30|Moses 1:30–39]][[Moses 1.31|]][[Moses 1.32|]][[Moses 1.33|]][[Moses 1.34|]][[Moses 1.35|]][[Moses 1.36|]][[Moses 1.37|]][[Moses 1.38|]][[Moses 1.39|]].
 
-[^15]: [[Alma 42.8|Alma 42:8]]; see also [[2 Nephi 11.5|2 Nephi 11:5]]; [[Alma 12.25|Alma 12:25]]; [[Alma 17.16|17:16]]; [[Alma 34.9|34:9]]; [[Alma 41.2|41:2]]; [[Alma 42.5|42:5, 11–13, 15, 31]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.15|]][[Alma 42.31|]]; [[D&C 101.22|D&C 101:22]]; [[Moses 6.62|Moses 6:62]].
+[^15]: [[Alma 42.8|Alma 42:8]]; see also [[2 Nephi 11.5|2 Nephi 11:5]]; [[Alma 12.25|Alma 12:25]]; [[Alma 17.16|17:16]]; [[Alma 34.9|34:9]]; [[Alma 41.2|41:2]]; [[Alma 42.5|42:5, 11–13, 15, 31]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.15|]][[Alma 42.31|]]; [[D&C 101.22|D&C 101:22]]; [[Moses 6.62|Moses 6:62]].
 
 [^16]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
@@ -167,23 +167,23 @@ God bless you millions of youth in our Church who worthily follow the patterns o
 
 [^19]: See “The Family: A Proclamation to the World,” *Liahona,* Oct. 1998, 24; *Ensign,* Nov. 1995, 102.
 
-[^20]: [[2 Nephi 2.5|2 Nephi 2:5]].
+[^20]: [[2 Nephi 2.5|2 Nephi 2:5]].
 
 [^21]: See [[Jacob 3.12|Jacob 3:12]]; [[D&C 42.24|D&C 42:24]]; [[D&C 104.8|104:8–9]][[D&C 104.9|]].
 
-[^22]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^22]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 [^23]: See [[Joseph Smith History 1.15|Joseph Smith—History 1:15–16]][[Joseph Smith History 1.16|]].
 
 [^24]: See [[James 4.7|James 4:7]].
 
-[^25]: See [[D&C 10.22|D&C 10:22]]; see also [[Luke 22.3|Luke 22:3]]; [[2 Nephi 2.17|2 Nephi 2:17–18, 27]][[2 Nephi 2.18|]][[2 Nephi 2.27|]]; [[3 Nephi 18.18|3 Nephi 18:18]]; [[D&C 50.3|D&C 50:3]].
+[^25]: See [[D&C 10.22|D&C 10:22]]; see also [[Luke 22.3|Luke 22:3]]; [[2 Nephi 2.17|2 Nephi 2:17–18, 27]][[2 Nephi 2.18|]][[2 Nephi 2.27|]]; [[3 Nephi 18.18|3 Nephi 18:18]]; [[D&C 50.3|D&C 50:3]].
 
 [^26]: See [[Alma 41.10|Alma 41:10]].
 
 [^27]: See [[Genesis 1.26|Genesis 1:26–27]][[Genesis 1.27|]]; [[Moses 2.26|Moses 2:26–27]][[Moses 2.27|]]; [[Moses 6.9|6:9]]; [[Abraham 4.26|Abraham 4:26–27]][[Abraham 4.27|]].
 
-[^28]: See [[2 Nephi 2.1|2 Nephi 2:1–6]][[2 Nephi 2.2|]][[2 Nephi 2.3|]][[2 Nephi 2.4|]][[2 Nephi 2.5|]][[2 Nephi 2.6|]].
+[^28]: See [[2 Nephi 2.1|2 Nephi 2:1–6]][[2 Nephi 2.2|]][[2 Nephi 2.3|]][[2 Nephi 2.4|]][[2 Nephi 2.5|]][[2 Nephi 2.6|]].
 
 [^29]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
@@ -193,14 +193,12 @@ God bless you millions of youth in our Church who worthily follow the patterns o
 
 [^32]: [[Mormon 8.3|Mormon 8:3]].
 
-[^33]: See [[2 Timothy 1.7|2 Timothy 1:7]]; [[D&C 68.6|D&C 68:6]].
+[^33]: See [[2 Timothy 1.7|2 Timothy 1:7]]; [[D&C 68.6|D&C 68:6]].
 
-[^34]: [[1 Peter 2.9|1 Peter 2:9]].
+[^34]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^35]: Joseph Smith, *History of the Church,* 4:540.
 
 [^36]: “True to the Faith,” *Hymns,* no. 254.
 
-
-
-#Atonement #Morality #Plan_Of_Salvation #Restoration #Standards #Truth
+#Atonement #Morality #PlanOfSalvation #Restoration #Standards #Truth

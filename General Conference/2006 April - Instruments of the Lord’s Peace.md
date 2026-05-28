@@ -41,9 +41,9 @@ In the name of Jesus Christ, amen.
 
 
 
-[^1]: See [[2 Nephi 28.20|2 Nephi 28:20]]; [[D&C 10.24|D&C 10:24]].
+[^1]: See [[2 Nephi 28.20|2 Nephi 28:20]]; [[D&C 10.24|D&C 10:24]].
 
-[^2]: See [[1 Nephi 16.37|1 Nephi 16:37–38]][[1 Nephi 16.38|]].
+[^2]: See [[1 Nephi 16.37|1 Nephi 16:37–38]][[1 Nephi 16.38|]].
 
 [^3]: [[Alma 48.1|Alma 48:1]].
 
@@ -63,7 +63,7 @@ In the name of Jesus Christ, amen.
 
 [^11]: [[D&C 123.12|D&C 123:12]]; see also [[D&C 98.10|98:10]].
 
-[^12]: See [[1 Nephi 8.26|1 Nephi 8:26–33]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]]; [[1 Nephi 11.36|11:36]].
+[^12]: See [[1 Nephi 8.26|1 Nephi 8:26–33]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]]; [[1 Nephi 11.36|11:36]].
 
 [^13]: [[Jude 1.18|Jude 1:18–19]][[Jude 1.19|]].
 
@@ -79,14 +79,12 @@ In the name of Jesus Christ, amen.
 
 [^19]: See [[Moses 7.62|Moses 7:62]].
 
-[^20]: [[1 Peter 2.9|1 Peter 2:9–10]][[1 Peter 2.10|]].
+[^20]: [[1 Peter 2.9|1 Peter 2:9–10]][[1 Peter 2.10|]].
 
-[^21]: See [[1 Corinthians 13.4|1 Corinthians 13:4–6]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]]; [[Moroni 7.45|Moroni 7:45–47]][[Moroni 7.46|]][[Moroni 7.47|]].
+[^21]: See [[1 Corinthians 13.4|1 Corinthians 13:4–6]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]]; [[Moroni 7.45|Moroni 7:45–47]][[Moroni 7.46|]][[Moroni 7.47|]].
 
-[^22]: In Conference Report, Apr. 2003, 84; or *Ensign,* May 2003, 80.
+[^22]: In Conference Report, Apr. 2003, [[2003 April - War and Peace.md|84]]; or *Ensign,* May 2003, 80.
 
-[^23]: [[2 Peter 1.8|2 Peter 1:8–9]][[2 Peter 1.9|]].
-
-
+[^23]: [[2 Peter 1.8|2 Peter 1:8–9]][[2 Peter 1.9|]].
 
 #Peace #Tolerance #Unity

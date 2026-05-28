@@ -38,7 +38,7 @@ C. S. Lewis put it this way: “\[God\] has infinite attention to spare for each
 
 Are there scriptural accounts of this conversion working among the Saints? We have a number of examples. The account of the Saints in King Benjamin’s time will illustrate. We read the response of the Saints after listening to their king and prophet teach of the commandments and of the Atonement of Jesus Christ:
 
-“And they all cried with one voice, saying: Yea, *we believe all the words* which thou hast spoken unto us; and also, *we know of their surety and truth, because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, or in our hearts,* that we have no more disposition to do evil, but to do good continually. …
+“And they all cried with one voice, saying: Yea, *we believe all the words* which thou hast spoken unto us; and also, *we know of their surety and truth, because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, or in our hearts,* that we have no more disposition to do evil, but to do good continually. …
 
 “*And we are willing to enter into a covenant with our God to do his will, and to be obedient to his commandments in all things that he shall command us, all the remainder of our days*” ([[Mosiah 5.2|Mosiah 5:2, 5]][[Mosiah 5.5|]]; emphasis added).
 
@@ -48,7 +48,7 @@ The blessings and promises of conversion are received by covenant through baptis
 
 Somebody once asked President Romney how one could know when he is converted. President Romney answered: “He may be assured of it when by the power of the Holy Spirit his soul is healed. When this occurs, he will recognize it by the way he feels, for he will feel as the people of Benjamin felt when they received remission of sins. The record says, ‘… the Spirit of the Lord came upon them, and they were filled with joy, having received a remission of their sins, and having peace of conscience. …’ ([[Mosiah 4.3|Mosiah 4:3]].)” (in Conference Report, Oct. 1963, 25).
 
-Peter describes what happens in a full conversion: We become “partakers of the divine nature” ([[2 Peter 1.4|2 Peter 1:4]]; see also [[2 Peter 1.1|vv. 1–3, 5–9]][[2 Peter 1.2|]][[2 Peter 1.3|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]][[2 Peter 1.9|]]).
+Peter describes what happens in a full conversion: We become “partakers of the divine nature” ([[2 Peter 1.4|2 Peter 1:4]]; see also [[2 Peter 1.1|vv. 1–3, 5–9]][[2 Peter 1.2|]][[2 Peter 1.3|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]][[2 Peter 1.9|]]).
 
 It is through this total conversion experience that we truly come to personally know and feel the character and greatness of God. It is the means whereby we become not only servants of the Lord but His friends as well. To the Saints of the early restoration period, the Lord defined His relationship with them: “And again I say unto you, my friends, for from henceforth I shall call you friends” ([[D&C 84.77|D&C 84:77]]).
 
@@ -63,8 +63,6 @@ We have a rich treasure of marvelous teachings and thoughts left to us by the ho
 Their testimonies serve to strengthen our faith. Please listen to their words and testimonies. They will help to lead you toward peace and healing to your soul.
 
 It is my personal witness that the Spirit of the Lord is real and unmistakable. I testify that the Father and the Son are knowable and love you. I feel that love through the power of the Spirit. Of these truths I testify in the sacred name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,5 @@
 # Saying
 
-
 they are written among the *sayings* of the seers, [[2 Chronicles 33.19|2 Chronicles 33:19]].
 
 I will utter dark *sayings* of old, [[Psalms 78.2|Psalms 78:2]].

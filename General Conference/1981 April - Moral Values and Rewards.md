@@ -1,6 +1,6 @@
 # Moral Values and Rewards
 
-By Elder Royden G. Derrick - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Royden G. Derrick - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -64,21 +64,21 @@ How could any thinking person who loves his family not want such a precious gift
 
 The scriptures say, “All covenants, contracts, bonds, obligations, oaths, vows, performances, connections, associations, or expectations, that are not made and entered into and sealed by the Holy Spirit of promise, … by revelation and commandment through the medium of mine anointed, whom I have appointed on the earth to hold this power … are of no efficacy, virtue, or force in and after the resurrection from the dead; for all contracts that are not made unto this end have an end when men are dead.” ([[D&C 132.7|D&C 132:7]].)
 
-I testify that the authority from God to seal by the Holy Spirit of Promise for time and all eternity is vested in our prophet, Spencer W. Kimball. He has properly delegated that authority today so that this sacred work of sealing families for time and all eternity goes forward daily in the holy temples of God.
+I testify that the authority from God to seal by the Holy Spirit of Promise for time and all eternity is vested in our prophet, Spencer W. Kimball. He has properly delegated that authority today so that this sacred work of sealing families for time and all eternity goes forward daily in the holy temples of God.
 
 How I wish that my friends who are not in the Church would listen to this important message—that you can be with your families forever. All you have to do to qualify is to keep the commandments of the Lord.
 
 The scriptures tell us, “And the spirit and the body are the soul of man.” ([[D&C 88.15|D&C 88:15]].) When a man dies, his body goes to the grave and his spirit goes to a place of waiting. We call that place paradise.
 
-President Joseph F. Smith was privileged to look into the spirit world back to the time of the advent of the Savior into that great world of the spirits of the dead about the time of the Crucifixion: “And I saw the hosts of the dead, both small and great,” he wrote.
+President Joseph F. Smith was privileged to look into the spirit world back to the time of the advent of the Savior into that great world of the spirits of the dead about the time of the Crucifixion: “And I saw the hosts of the dead, both small and great,” he wrote.
 
-“And there were gathered together in one place an innumerable company of the spirits of the just, who had been faithful in the testimony of Jesus while they lived in mortality. …
+“And there were gathered together in one place an innumerable company of the spirits of the just, who had been faithful in the testimony of Jesus while they lived in mortality. …
 
-“All these had departed the mortal life, firm in the hope of a glorious resurrection, through the grace of God the Father and his Only Begotten Son, Jesus Christ. …
+“All these had departed the mortal life, firm in the hope of a glorious resurrection, through the grace of God the Father and his Only Begotten Son, Jesus Christ. …
 
-“While this vast multitude waited and conversed, rejoicing in the hour of their deliverance from the chains of death, the Son of God appeared, declaring liberty to the captives who had been faithful. …
+“While this vast multitude waited and conversed, rejoicing in the hour of their deliverance from the chains of death, the Son of God appeared, declaring liberty to the captives who had been faithful. …
 
-“But unto the wicked he did not go, and among the ungodly and the unrepentant who had defiled themselves while in the flesh, his voice was not raised. …
+“But unto the wicked he did not go, and among the ungodly and the unrepentant who had defiled themselves while in the flesh, his voice was not raised. …
 
 “But behold, from among the righteous, he organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth and carry the light of the gospel to them that were in darkness, even to all the spirits of men; and thus was the gospel preached to the dead.
 
@@ -97,8 +97,6 @@ One of the major missions of the Church is to uniquely identify these individual
 One of the ordinances performed in the temples of the Lord is the sealing of wives to husbands and the sealing of children to parents for the living and by proxy for the dead, thus uniting families for the eternities according to their willingness to conform to gospel principles.
 
 And so, when members of a society serve the Lord according to the commandments he has given them, and uphold proper moral values, they receive very special rewards both in this life and in the life to come. This is not man’s program; it is the Lord’s program of salvation, which exalts and brings freedom, in every sense of the word, to those who will hear his voice and follow him, to which I testify in the name of him who gave his life that these things might be, even the Lord, Jesus Christ, amen.
-
-
 
 
 

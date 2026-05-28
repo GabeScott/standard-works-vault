@@ -66,7 +66,7 @@ You must have faith to pray. You must have faith to ponder the word of God. You 
 
 I promise you that within the next few days you will feel the illumination of the Spirit of Christ and the Holy Ghost in your everyday life. When you walk in the light, you will feel at that moment some of the warmth and the happiness that will finally be yours when you are welcomed home again with the hundreds and perhaps thousands of others whom you will bring with you, who have walked in the light because you did.
 
-This is the true Church of Jesus Christ. There is a living prophet, Thomas S. Monson. And there are both true servants and angels to help you along the lighted path. I so testify in the sacred name of Jesus Christ, amen.
+This is the true Church of Jesus Christ. There is a living prophet, Thomas S. Monson. And there are both true servants and angels to help you along the lighted path. I so testify in the sacred name of Jesus Christ, amen.
 
 
 
@@ -75,5 +75,6 @@ This is the true Church of Jesus Christ. There is a living prophet, Thomas S. M
 
 [^2]: [[Moroni 7.16|Moroni 7:16–17]][[Moroni 7.17|]].
 
+[^3]: [[Moroni 7.18|Moroni 7:18–20]][[Moroni 7.19|]][[Moroni 7.20|]].
 
-#Accountability #Holy_Ghost #Jesus_Christ
+#Accountability #HolyGhost #JesusChrist

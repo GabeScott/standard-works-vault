@@ -1,4 +1,3 @@
 # Nicolaitans
 
-
-*See* [BD Nicolaitans](https://www.churchofjesuschrist.org/study/scriptures/bd/nicolaitans?lang=eng)
+*See also* [[BD Nicolaitans.md|BD Nicolaitans]]

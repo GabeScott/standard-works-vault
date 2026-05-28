@@ -1,6 +1,6 @@
 # The Cost—and Blessings—of Discipleship
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -24,9 +24,9 @@ In keeping with the Savior’s own experience, there has been a long history of 
 
 “\[They\] who … stopped the mouths of lions,
 
-“Quenched the violence of fire, escaped the edge of the sword, … waxed valiant in fight, turned \[armies\] to flight …
+“Quenched the violence of fire, escaped the edge of the sword, … waxed valiant in fight, turned \[armies\] to flight …
 
-“\[Saw\] their dead raised to life \[while\] others were tortured, …
+“\[Saw\] their dead raised to life \[while\] others were tortured, …
 
 “And … had trial of cruel mockings and scourgings, … of bonds and imprisonment:
 
@@ -64,16 +64,16 @@ At the zenith of His mortal ministry, Jesus said, “Love one another, as I have
 
 Friends, especially my young friends, take heart. Pure Christlike love flowing from true righteousness can change the world. I testify that the true and living gospel of Jesus Christ is on the earth and you are members of His true and living Church, trying to share it. I bear witness of that gospel and that Church, with a particular witness of restored priesthood keys which unlock the power and efficacy of saving ordinances. I am more certain that those keys have been restored and that those ordinances are once again available through The Church of Jesus Christ of Latter-day Saints than I am certain I stand before you at this pulpit and you sit before me in this conference.
 
-Be strong. Live the gospel faithfully even if others around you don’t live it at all. Defend your beliefs with courtesy and with compassion, but defend them. A long history of inspired voices, including those you will hear in this conference and the voice you just heard in the person of President Thomas S. Monson, point you toward the path of Christian discipleship. It is a strait path, and it is a narrow path without a great deal of latitude at some points, but it can be thrillingly and successfully traveled, “with … steadfastness in Christ, … a perfect brightness of hope, and a love of God and of all men.”[^19] In courageously pursuing such a course, you will forge unshakable faith, you will find safety against ill winds that blow, even shafts in the whirlwind, and you will feel the rock-like strength of our Redeemer, upon whom if you build your unflagging discipleship, you *cannot* fall.[^20] In the sacred name of Jesus Christ, amen.
+Be strong. Live the gospel faithfully even if others around you don’t live it at all. Defend your beliefs with courtesy and with compassion, but defend them. A long history of inspired voices, including those you will hear in this conference and the voice you just heard in the person of President Thomas S. Monson, point you toward the path of Christian discipleship. It is a strait path, and it is a narrow path without a great deal of latitude at some points, but it can be thrillingly and successfully traveled, “with … steadfastness in Christ, … a perfect brightness of hope, and a love of God and of all men.”[^19] In courageously pursuing such a course, you will forge unshakable faith, you will find safety against ill winds that blow, even shafts in the whirlwind, and you will feel the rock-like strength of our Redeemer, upon whom if you build your unflagging discipleship, you *cannot* fall.[^20] In the sacred name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[Jacob 1.8|Jacob 1:8]].
 
-[^2]: [[1 Nephi 19.9|1 Nephi 19:9]].
+[^2]: [[1 Nephi 19.9|1 Nephi 19:9]].
 
-[^3]: [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Ether 12.11|Ether 12:11]].
+[^3]: [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Ether 12.11|Ether 12:11]].
 
 [^4]: [[Hebrews 11.32|Hebrews 11:32–38]][[Hebrews 11.33|]][[Hebrews 11.34|]][[Hebrews 11.35|]][[Hebrews 11.36|]][[Hebrews 11.37|]][[Hebrews 11.38|]].
 
@@ -83,7 +83,7 @@ Be strong. Live the gospel faithfully even if others around you don’t live it 
 
 [^7]: See [[Exodus 20.3|Exodus 20:3–17]][[Exodus 20.4|]][[Exodus 20.5|]][[Exodus 20.6|]][[Exodus 20.7|]][[Exodus 20.8|]][[Exodus 20.9|]][[Exodus 20.10|]][[Exodus 20.11|]][[Exodus 20.12|]][[Exodus 20.13|]][[Exodus 20.14|]][[Exodus 20.15|]][[Exodus 20.16|]][[Exodus 20.17|]].
 
-[^8]: [[2 Chronicles 18.7|2 Chronicles 18:7]].
+[^8]: [[2 Chronicles 18.7|2 Chronicles 18:7]].
 
 [^9]: [[Mosiah 13.4|Mosiah 13:4]].
 
@@ -105,7 +105,8 @@ Be strong. Live the gospel faithfully even if others around you don’t live it 
 
 [^18]: [[Matthew 5.19|Matthew 5:19]]; emphasis added.
 
-[^19]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^19]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
+[^20]: See [[Helaman 5.12|Helaman 5:12]].
 
-#Adversity #Discipleship #Jesus_Christ #Spirituality
+#Adversity #Discipleship #JesusChrist #Spirituality

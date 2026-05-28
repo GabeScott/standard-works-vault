@@ -1,6 +1,6 @@
 # Sacred Keys of the Aaronic Priesthood
 
-By Larry M. Gibson - *First Counselor in the Young Men General Presidency*
+By Larry M. Gibson - *First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -26,17 +26,23 @@ He thought, then responded, “Where do I find it?”
 
 After some discussion, he realized that he would find direction from the scriptures, the words of the living prophets, and answers to prayer. We determined to find a scripture that would be a starting place for his search to learn the responsibilities of his new calling.
 
-We turned to the 107th section of the Doctrine and Covenants, [[D&C 107.85|verse 85]]. It mentions that a deacons quorum president is to sit in council with his quorum members and teach them their duties. We noted that his quorum is not only a class but also a council of young men, and they are to strengthen and edify one another under the president’s direction. I expressed confidence that he would be an outstanding president who would rely on the inspiration from the Lord and magnify his sacred calling as he taught his fellow deacons their duties.
+We turned to the 107th section of the Doctrine and Covenants, [[D&C 107.85|verse 85]]. It mentions that a deacons quorum president is to sit in council with his quorum members and teach them their duties. We noted that his quorum is not only a class but also a council of young men, and they are to strengthen and edify one another under the president’s direction. I expressed confidence that he would be an outstanding president who would rely on the inspiration from the Lord and magnify his sacred calling as he taught his fellow deacons their duties.
 
 Then I asked, “Knowing you are to teach the deacons their duties, do you know what those duties are?”
 
 Again we turned to the scriptures and found:
 
-1. A deacon is appointed to watch over and be a standing minister in the Church (see [[D&C 84.111|D&C 84:111]]).Because the family is the basic unit of the Church, the most important setting in which an Aaronic Priesthood holder can fulfill this duty is in his own home. He provides priesthood service to his father and mother as they lead the family. He also watches over his brothers and sisters, the young men of his quorum, and the other members of the ward.
+1. A deacon is appointed to watch over and be a standing minister in the Church (see [[D&C 84.111|D&C 84:111]]).
 
-2. A deacon assists the teacher in all his duties in the Church if occasion requires (see [[D&C 20.57|D&C 20:57]]).We determined that if a deacon is to assist with the teachers’ duties, he needs to know their duties. We looked in the scriptures and quickly identified over a dozen duties for the office of teacher (see [[D&C 20.53|D&C 20:53–59]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]]; [[D&C 84.111|84:111]]). What a powerful experience it would be for every young man—and his father, advisers, and all of us—to do exactly what this young man did: go to the scriptures and discover for ourselves what our duties are. I suspect that many of us will be surprised—and inspired—by what we find. Duty to God contains helpful summaries of Aaronic Priesthood duties and is a great resource for spiritual development. I urge you to consistently use it.
+Because the family is the basic unit of the Church, the most important setting in which an Aaronic Priesthood holder can fulfill this duty is in his own home. He provides priesthood service to his father and mother as they lead the family. He also watches over his brothers and sisters, the young men of his quorum, and the other members of the ward.
 
-3. Deacons and teachers are also to “warn, expound, exhort, and teach, and invite all to come unto Christ” ([[D&C 20.59|D&C 20:59]]; see [[D&C 20.46|verses 46 and 68]][[D&C 20.68|]] for priests).Many young men think that their missionary experience starts when they turn 19 and enter the missionary training center. We learn from the scriptures that it starts long before that. The Lord wants every Aaronic Priesthood holder to invite all to come unto Christ—beginning with his own family.
+2. A deacon assists the teacher in all his duties in the Church if occasion requires (see [[D&C 20.57|D&C 20:57]]).
+
+We determined that if a deacon is to assist with the teachers’ duties, he needs to know their duties. We looked in the scriptures and quickly identified over a dozen duties for the office of teacher (see [[D&C 20.53|D&C 20:53–59]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]]; [[D&C 84.111|84:111]]). What a powerful experience it would be for every young man—and his father, advisers, and all of us—to do exactly what this young man did: go to the scriptures and discover for ourselves what our duties are. I suspect that many of us will be surprised—and inspired—by what we find. Duty to God contains helpful summaries of Aaronic Priesthood duties and is a great resource for spiritual development. I urge you to consistently use it.
+
+3. Deacons and teachers are also to “warn, expound, exhort, and teach, and invite all to come unto Christ” ([[D&C 20.59|D&C 20:59]]; see [[D&C 20.46|verses 46 and 68]][[D&C 20.68|]] for priests).
+
+Many young men think that their missionary experience starts when they turn 19 and enter the missionary training center. We learn from the scriptures that it starts long before that. The Lord wants every Aaronic Priesthood holder to invite all to come unto Christ—beginning with his own family.
 
 Next, to help this young president understand that he and he alone was the presiding officer in the quorum, I suggested he read three times the first duty listed in [[D&C 107.85|Doctrine and Covenants 107:85]]. He read, “Preside over twelve deacons.” I asked, “What is the Lord telling you personally about your duty as president?”
 
@@ -60,7 +66,7 @@ My thoughts turn to a scripture as I think of our wonderful young men and women 
 
 What “popped into” this young president’s head was a vision of what Heavenly Father wants his quorum to be. It was the revelation he needed to strengthen the active members of his quorum, to rescue those who were struggling, and to invite all to come unto Christ. Thus inspired, he made plans to carry out the Lord’s will.
 
-The Lord taught this young president that *priesthood* means reaching out to serve others. As our beloved prophet, President Thomas S. Monson, explains: “The priesthood is not really so much a gift as it is a commission to serve, a privilege to lift, and an opportunity to bless the lives of others” (in Conference Report, Apr. 2006, 60; or *Ensign,* May 2006, 57).
+The Lord taught this young president that *priesthood* means reaching out to serve others. As our beloved prophet, President Thomas S. Monson, explains: “The priesthood is not really so much a gift as it is a commission to serve, a privilege to lift, and an opportunity to bless the lives of others” (in Conference Report, Apr. 2006, [[2006 April - Our Sacred Priesthood Trust.md|60]]; or *Ensign,* May 2006, 57).
 
 Service is the very foundation of the priesthood—service to others as exemplified by the Savior. I testify that it is His priesthood, we are on His errand, and He has shown all priesthood holders the way of faithful priesthood service.
 
@@ -70,7 +76,7 @@ You wonderful young men hold the Aaronic Priesthood, restored by John the Baptis
 
 Why? Listen to the words of our beloved First Presidency, given to each one of you in your Duty to God:
 
-“You have the authority to administer the ordinances of the Aaronic Priesthood. … You will greatly bless the lives of those around you. …
+“You have the authority to administer the ordinances of the Aaronic Priesthood. … You will greatly bless the lives of those around you. …
 
 “Heavenly Father has great trust and confidence in you and has an important mission for you to fulfill” (*Fulfilling My Duty to God: For Aaronic Priesthood Holders* \[2010\], 5).
 
@@ -78,4 +84,5 @@ I know these words are true, and I pray that each of us will have that same witn
 
 
 
-#Aaronic_Priesthood #Duty #Leadership #Priesthood
+
+#AaronicPriesthood #Duty #Leadership #Priesthood

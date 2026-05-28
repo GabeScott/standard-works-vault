@@ -81,6 +81,4 @@ God bless you that you will have the courage to live the way you should and be a
 
 
 
-
-
-#Priesthood #Word_Of_Wisdom
+#Priesthood #WordOfWisdom

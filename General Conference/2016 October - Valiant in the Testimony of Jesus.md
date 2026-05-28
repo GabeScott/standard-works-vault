@@ -1,6 +1,6 @@
 # Valiant in the Testimony of Jesus
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -34,15 +34,15 @@ The Apostle Paul was a sure witness of Jesus Christ because of a miraculous and 
 
 “That your faith should not stand in the wisdom of men, but in the power of God.”[^10]
 
-Some of the most magnificent scriptural accounts of the Savior and His mission are set forth in [[1 Corinthians 15.1|1 Corinthians]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]][[1 Corinthians 15.9|]][[1 Corinthians 15.10|]][[1 Corinthians 15.11|]][[1 Corinthians 15.12|]][[1 Corinthians 15.13|]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.16|]][[1 Corinthians 15.17|]][[1 Corinthians 15.18|]][[1 Corinthians 15.19|]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]][[1 Corinthians 15.24|]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]][[1 Corinthians 15.27|]][[1 Corinthians 15.28|]][[1 Corinthians 15.29|]][[1 Corinthians 15.30|]][[1 Corinthians 15.31|]][[1 Corinthians 15.32|]][[1 Corinthians 15.33|]][[1 Corinthians 15.34|]][[1 Corinthians 15.35|]][[1 Corinthians 15.36|]][[1 Corinthians 15.37|]][[1 Corinthians 15.38|]][[1 Corinthians 15.39|]][[1 Corinthians 15.40|]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]][[1 Corinthians 15.43|]][[1 Corinthians 15.44|]][[1 Corinthians 15.45|]][[1 Corinthians 15.46|]][[1 Corinthians 15.47|]][[1 Corinthians 15.48|]][[1 Corinthians 15.49|]][[1 Corinthians 15.50|]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]][[1 Corinthians 15.55|]][[1 Corinthians 15.56|]][[1 Corinthians 15.57|]][[1 Corinthians 15.58|]]. One chapter—[[1 Corinthians 15.1|15]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]][[1 Corinthians 15.9|]][[1 Corinthians 15.10|]][[1 Corinthians 15.11|]][[1 Corinthians 15.12|]][[1 Corinthians 15.13|]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.16|]][[1 Corinthians 15.17|]][[1 Corinthians 15.18|]][[1 Corinthians 15.19|]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]][[1 Corinthians 15.24|]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]][[1 Corinthians 15.27|]][[1 Corinthians 15.28|]][[1 Corinthians 15.29|]][[1 Corinthians 15.30|]][[1 Corinthians 15.31|]][[1 Corinthians 15.32|]][[1 Corinthians 15.33|]][[1 Corinthians 15.34|]][[1 Corinthians 15.35|]][[1 Corinthians 15.36|]][[1 Corinthians 15.37|]][[1 Corinthians 15.38|]][[1 Corinthians 15.39|]][[1 Corinthians 15.40|]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]][[1 Corinthians 15.43|]][[1 Corinthians 15.44|]][[1 Corinthians 15.45|]][[1 Corinthians 15.46|]][[1 Corinthians 15.47|]][[1 Corinthians 15.48|]][[1 Corinthians 15.49|]][[1 Corinthians 15.50|]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]][[1 Corinthians 15.55|]][[1 Corinthians 15.56|]][[1 Corinthians 15.57|]][[1 Corinthians 15.58|]]—has received worldwide attention through performances of George Frideric Handel’s *Messiah.*[^11] It contains profound doctrine about the Savior. In the third part of *Messiah,* immediately following the “Hallelujah Chorus,” most of the scriptures used are from [[1 Corinthians 15.1|1 Corinthians 15]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]][[1 Corinthians 15.9|]][[1 Corinthians 15.10|]][[1 Corinthians 15.11|]][[1 Corinthians 15.12|]][[1 Corinthians 15.13|]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.16|]][[1 Corinthians 15.17|]][[1 Corinthians 15.18|]][[1 Corinthians 15.19|]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]][[1 Corinthians 15.24|]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]][[1 Corinthians 15.27|]][[1 Corinthians 15.28|]][[1 Corinthians 15.29|]][[1 Corinthians 15.30|]][[1 Corinthians 15.31|]][[1 Corinthians 15.32|]][[1 Corinthians 15.33|]][[1 Corinthians 15.34|]][[1 Corinthians 15.35|]][[1 Corinthians 15.36|]][[1 Corinthians 15.37|]][[1 Corinthians 15.38|]][[1 Corinthians 15.39|]][[1 Corinthians 15.40|]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]][[1 Corinthians 15.43|]][[1 Corinthians 15.44|]][[1 Corinthians 15.45|]][[1 Corinthians 15.46|]][[1 Corinthians 15.47|]][[1 Corinthians 15.48|]][[1 Corinthians 15.49|]][[1 Corinthians 15.50|]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]][[1 Corinthians 15.55|]][[1 Corinthians 15.56|]][[1 Corinthians 15.57|]][[1 Corinthians 15.58|]]. In a few of these verses, Paul beautifully describes some of what the Savior accomplished:
+Some of the most magnificent scriptural accounts of the Savior and His mission are set forth in [[1 Corinthians 15.1|1 Corinthians]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]][[1 Corinthians 15.9|]][[1 Corinthians 15.10|]][[1 Corinthians 15.11|]][[1 Corinthians 15.12|]][[1 Corinthians 15.13|]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.16|]][[1 Corinthians 15.17|]][[1 Corinthians 15.18|]][[1 Corinthians 15.19|]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]][[1 Corinthians 15.24|]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]][[1 Corinthians 15.27|]][[1 Corinthians 15.28|]][[1 Corinthians 15.29|]][[1 Corinthians 15.30|]][[1 Corinthians 15.31|]][[1 Corinthians 15.32|]][[1 Corinthians 15.33|]][[1 Corinthians 15.34|]][[1 Corinthians 15.35|]][[1 Corinthians 15.36|]][[1 Corinthians 15.37|]][[1 Corinthians 15.38|]][[1 Corinthians 15.39|]][[1 Corinthians 15.40|]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]][[1 Corinthians 15.43|]][[1 Corinthians 15.44|]][[1 Corinthians 15.45|]][[1 Corinthians 15.46|]][[1 Corinthians 15.47|]][[1 Corinthians 15.48|]][[1 Corinthians 15.49|]][[1 Corinthians 15.50|]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]][[1 Corinthians 15.55|]][[1 Corinthians 15.56|]][[1 Corinthians 15.57|]][[1 Corinthians 15.58|]]. One chapter—[[1 Corinthians 15.1|15]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]][[1 Corinthians 15.9|]][[1 Corinthians 15.10|]][[1 Corinthians 15.11|]][[1 Corinthians 15.12|]][[1 Corinthians 15.13|]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.16|]][[1 Corinthians 15.17|]][[1 Corinthians 15.18|]][[1 Corinthians 15.19|]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]][[1 Corinthians 15.24|]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]][[1 Corinthians 15.27|]][[1 Corinthians 15.28|]][[1 Corinthians 15.29|]][[1 Corinthians 15.30|]][[1 Corinthians 15.31|]][[1 Corinthians 15.32|]][[1 Corinthians 15.33|]][[1 Corinthians 15.34|]][[1 Corinthians 15.35|]][[1 Corinthians 15.36|]][[1 Corinthians 15.37|]][[1 Corinthians 15.38|]][[1 Corinthians 15.39|]][[1 Corinthians 15.40|]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]][[1 Corinthians 15.43|]][[1 Corinthians 15.44|]][[1 Corinthians 15.45|]][[1 Corinthians 15.46|]][[1 Corinthians 15.47|]][[1 Corinthians 15.48|]][[1 Corinthians 15.49|]][[1 Corinthians 15.50|]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]][[1 Corinthians 15.55|]][[1 Corinthians 15.56|]][[1 Corinthians 15.57|]][[1 Corinthians 15.58|]]—has received worldwide attention through performances of George Frideric Handel’s *Messiah.*[^11] It contains profound doctrine about the Savior. In the third part of *Messiah,* immediately following the “Hallelujah Chorus,” most of the scriptures used are from [[1 Corinthians 15.1|1 Corinthians 15]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]][[1 Corinthians 15.9|]][[1 Corinthians 15.10|]][[1 Corinthians 15.11|]][[1 Corinthians 15.12|]][[1 Corinthians 15.13|]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.16|]][[1 Corinthians 15.17|]][[1 Corinthians 15.18|]][[1 Corinthians 15.19|]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]][[1 Corinthians 15.24|]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]][[1 Corinthians 15.27|]][[1 Corinthians 15.28|]][[1 Corinthians 15.29|]][[1 Corinthians 15.30|]][[1 Corinthians 15.31|]][[1 Corinthians 15.32|]][[1 Corinthians 15.33|]][[1 Corinthians 15.34|]][[1 Corinthians 15.35|]][[1 Corinthians 15.36|]][[1 Corinthians 15.37|]][[1 Corinthians 15.38|]][[1 Corinthians 15.39|]][[1 Corinthians 15.40|]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]][[1 Corinthians 15.43|]][[1 Corinthians 15.44|]][[1 Corinthians 15.45|]][[1 Corinthians 15.46|]][[1 Corinthians 15.47|]][[1 Corinthians 15.48|]][[1 Corinthians 15.49|]][[1 Corinthians 15.50|]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]][[1 Corinthians 15.55|]][[1 Corinthians 15.56|]][[1 Corinthians 15.57|]][[1 Corinthians 15.58|]]. In a few of these verses, Paul beautifully describes some of what the Savior accomplished:
 
 “\[For\] now is Christ risen from the dead, … the firstfruits of them that slept.
 
-“… Since by man came death, by man came also the resurrection of the dead.
+“… Since by man came death, by man came also the resurrection of the dead.
 
-“For as in Adam all die, even so in Christ shall all be made alive. …
+“For as in Adam all die, even so in Christ shall all be made alive. …
 
-“O death, where is thy sting? O grave, where is thy victory? …
+“O death, where is thy sting? O grave, where is thy victory? …
 
 “But thanks be to God, \[who\] giveth us the victory through our Lord Jesus Christ.”[^12]
 
@@ -50,13 +50,13 @@ We know the Apostasy occurred in part because the philosophies of men were eleva
 
 At the dawn of the Restoration, many at least professed to follow the Savior’s teachings. Many countries considered themselves Christian nations. But even then there was prophecy of a more difficult time for our day.
 
-Heber C. Kimball was one of the original Twelve Apostles of this dispensation and First Counselor to President Brigham Young. He warned: “The time is coming when … it will be difficult to tell the face of a Saint from the face of an enemy to the people of God. Then … look out for the great sieve, for there will be a great sifting time, and many will fall.” He concluded that there is “a TEST coming.”[^14]
+Heber C. Kimball was one of the original Twelve Apostles of this dispensation and First Counselor to President Brigham Young. He warned: “The time is coming when … it will be difficult to tell the face of a Saint from the face of an enemy to the people of God. Then … look out for the great sieve, for there will be a great sifting time, and many will fall.” He concluded that there is “a TEST coming.”[^14]
 
 In our day, the influence of Christianity in many countries, including the United States, is significantly reduced. Without religious beliefs, there is no feeling of accountability to God. Accordingly, it is hard to establish universal values about how to live. Philosophies which are deeply held often conflict with each other.
 
 Unfortunately, this also happens with some members of the Church who lose their bearings and become influenced by the cause of the moment—many of which are clearly not righteous.
 
-In line with Heber C. Kimball’s prophecy, Elder Neal A. Maxwell said in 1982: “Much sifting will occur because of lapses in righteous behavior which go unrepented of. A few will give up instead of holding out to the end. A few will be deceived by defectors. Likewise, others will be offended, for sufficient unto each dispensation are the stumbling blocks thereof!”[^15]
+In line with Heber C. Kimball’s prophecy, Elder Neal A. Maxwell said in 1982: “Much sifting will occur because of lapses in righteous behavior which go unrepented of. A few will give up instead of holding out to the end. A few will be deceived by defectors. Likewise, others will be offended, for sufficient unto each dispensation are the stumbling blocks thereof!”[^15]
 
 ## Another Stumbling Block Is Refusing to See Sin in Its True Light
 
@@ -109,21 +109,21 @@ For us, being valiant in our testimony of Jesus is a stepping-stone toward quali
 
 [^7]: See [[Acts 9.1|Acts 9:1–9]][[Acts 9.2|]][[Acts 9.3|]][[Acts 9.4|]][[Acts 9.5|]][[Acts 9.6|]][[Acts 9.7|]][[Acts 9.8|]][[Acts 9.9|]]; [[Acts 26.13|26:13–18]][[Acts 26.14|]][[Acts 26.15|]][[Acts 26.16|]][[Acts 26.17|]][[Acts 26.18|]].
 
-[^8]: See Frederic W. Farrar, *The Life and Work of St. Paul* (1898), 319.
+[^8]: See Frederic W. Farrar, *The Life and Work of St. Paul* (1898), 319.
 
 [^9]: See Farrar, *Life and Work of St. Paul,* 319–20.
 
-[^10]: [[1 Corinthians 2.4|1 Corinthians 2:4–5]][[1 Corinthians 2.5|]].
+[^10]: [[1 Corinthians 2.4|1 Corinthians 2:4–5]][[1 Corinthians 2.5|]].
 
 [^11]: See George Frideric Handel, *Messiah,* ed. T. Tertius Noble (1912).
 
-[^12]: [[1 Corinthians 15.20|1 Corinthians 15:20–22, 55, 57]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.55|]][[1 Corinthians 15.57|]].
+[^12]: [[1 Corinthians 15.20|1 Corinthians 15:20–22, 55, 57]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.55|]][[1 Corinthians 15.57|]].
 
 [^13]: Will Durant, *The Story of Civilization,* vol. 3, *Caesar and Christ* (1944), 595.
 
-[^14]: Heber C. Kimball, in Orson F. Whitney, *Life of Heber C. Kimball* (1945), 446.
+[^14]: Heber C. Kimball, in Orson F. Whitney, *Life of Heber C. Kimball* (1945), 446.
 
-[^15]: Neal A. Maxwell, “[Be of Good Cheer](https://churchofjesuschrist.org/study/ensign/1982/11/be-of-good-cheer?lang=eng),” *Ensign,* Nov. 1982, 68.
+[^15]: Neal A. Maxwell, “[Be of Good Cheer](https://www.churchofjesuschrist.org/study/ensign/1982/11/be-of-good-cheer?lang=eng),” *Ensign,* Nov. 1982, 68.
 
 [^16]: [[Mosiah 27.29|Mosiah 27:29]].
 
@@ -137,25 +137,26 @@ For us, being valiant in our testimony of Jesus is a stepping-stone toward quali
 
 [^21]: [[Alma 42.24|Alma 42:24.]] Note that the personal pronoun for justice is *his* (male) and the personal pronoun for mercy is *her* (female).
 
-[^22]: Robert Louis Stevenson, in Carla Carlisle, “A Banquet of Consequences,” *Country Life,* July 6, 2016, 48. Mrs. Carlisle credits Robert Louis Stevenson for the quote. Some give credit to others.
+[^22]: Robert Louis Stevenson, in Carla Carlisle, “A Banquet of Consequences,” *Country Life,* July 6, 2016, 48. Mrs. Carlisle credits Robert Louis Stevenson for the quote. Some give credit to others.
 
 [^23]: [[Alma 42.29|Alma 42:29]].
 
 [^24]: [[Jacob 4.14|Jacob 4:14]].
 
-[^25]: In an article I wrote for Church magazines in 2003, I emphasized four areas that could create theological blindness and the stumbling that Jacob described: substituting the philosophies of men for gospel truths, gospel extremism, heroic gestures as a substitute for daily consecration, and elevating rules over doctrine (see “[Looking beyond the Mark](https://churchofjesuschrist.org/study/liahona/2003/03/looking-beyond-the-mark?lang=eng),” *Ensign,* Mar. 2003, 41–44; *Liahona,* Mar. 2003, 21–24).
+[^25]: In an article I wrote for Church magazines in 2003, I emphasized four areas that could create theological blindness and the stumbling that Jacob described: substituting the philosophies of men for gospel truths, gospel extremism, heroic gestures as a substitute for daily consecration, and elevating rules over doctrine (see “[Looking beyond the Mark](https://www.churchofjesuschrist.org/study/liahona/2003/03/looking-beyond-the-mark?lang=eng),” *Ensign,* Mar. 2003, 41–44; *Liahona,* Mar. 2003, 21–24).
 
-[^26]: Quentin L. Cook, “[Looking beyond the Mark](https://churchofjesuschrist.org/study/liahona/2003/03/looking-beyond-the-mark?lang=eng),” *Ensign,* Mar. 2003, 42; *Liahona,* Mar. 2003, 22.
+[^26]: Quentin L. Cook, “[Looking beyond the Mark](https://www.churchofjesuschrist.org/study/liahona/2003/03/looking-beyond-the-mark?lang=eng),” *Ensign,* Mar. 2003, 42; *Liahona,* Mar. 2003, 22.
 
 [^27]: [[D&C 10.68|Doctrine and Covenants 10:68]].
 
 [^28]: [[D&C 76.79|Doctrine and Covenants 76:79]].
 
-[^29]: See [[2 Nephi 31.17|2 Nephi 31:17–21]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
+[^29]: See [[2 Nephi 31.17|2 Nephi 31:17–21]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
 
-[^30]: See [[2 Nephi 31.20|2 Nephi 31:20–21]][[2 Nephi 31.21|]].
+[^30]: See [[2 Nephi 31.20|2 Nephi 31:20–21]][[2 Nephi 31.21|]].
 
 [^31]: Henry Ward Beecher, in Tryon Edwards, *A Dictionary of Thoughts* (1891), 586.
 
+[^32]: See [[2 Nephi 31.21|2 Nephi 31:21]]; [[Mosiah 3.17|Mosiah 3:17]].
 
-#Adversity #Atonement #Jesus_Christ #Repentance #Testimony
+#Adversity #Atonement #JesusChrist #Repentance #Testimony

@@ -26,13 +26,13 @@ But for the most part, the Nephites “harden\[ed\] their hearts”[^6] and beca
 
 In those days as in ours, some naysayers, called anti-Christs, convinced others that there was no need for a Savior and His Atonement. When Samuel’s prophecy was finally fulfilled and there was a “day and a night and a day, as if it were one day,”[^9] what joy must have filled the hearts of those who had believed in the prophets! “It had come to pass, yea, all things, every whit, according to the words of the prophets. And it came to pass also that a new star did appear, according to the word.”[^10]
 
-Those who believed the words of the prophets recognized the Savior throughout His life and ministry and were blessed to follow Him. But sometimes the faith of even the most devoted followers was tested. After the Crucifixion, Thomas heard his brethren testify that the Savior had risen from the tomb. But instead of believing their words, Thomas declared, “Except I shall see … , I will not believe.”[^11] Later this beloved Apostle was given the opportunity to touch the prints of the nails in the Savior’s hands and confessed, “My Lord and my God.”[^12] The Savior then lovingly taught him as He has taught all of us what it means to have faith: “Because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed.”[^13]
+Those who believed the words of the prophets recognized the Savior throughout His life and ministry and were blessed to follow Him. But sometimes the faith of even the most devoted followers was tested. After the Crucifixion, Thomas heard his brethren testify that the Savior had risen from the tomb. But instead of believing their words, Thomas declared, “Except I shall see … , I will not believe.”[^11] Later this beloved Apostle was given the opportunity to touch the prints of the nails in the Savior’s hands and confessed, “My Lord and my God.”[^12] The Savior then lovingly taught him as He has taught all of us what it means to have faith: “Because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed.”[^13]
 
 Believers on the American continent faced similar tests of faith. As Samuel had prophesied, there were great “thunderings and lightnings,”[^14] and darkness covered “the whole earth for the space of three days.”[^15] But those who had “received the prophets and stoned them not”[^16] did not fear or flee. They recognized this was “the sign \[that\] had been given concerning \[the Savior’s\] death”[^17] and gathered to the temple, marveling together. And there He appeared to them, saying:
 
 “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“… I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world. …
+“… I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world. …
 
 “And it came to pass that when Jesus had spoken these words the whole multitude fell to the earth; for they remembered that it had been prophesied among them that Christ should show himself unto them after his ascension into heaven.”[^18]
 
@@ -60,11 +60,11 @@ When the challenges of mortality come, and they come for all of us, it may seem 
 
 Let us consider a few of these prophetic witnesses of the effects of the Atonement in our lives. As we do I invite you to let them sink deep into your heart and fill whatever hunger and thirsting there may be in your soul.
 
-“And in that day the Holy Ghost fell upon Adam, which beareth record of the Father and the Son, saying: I am the Only Begotten of the Father from the beginning, … that as thou hast fallen thou mayest be redeemed.”[^31]
+“And in that day the Holy Ghost fell upon Adam, which beareth record of the Father and the Son, saying: I am the Only Begotten of the Father from the beginning, … that as thou hast fallen thou mayest be redeemed.”[^31]
 
 And “the Lord showed himself unto \[the brother of Jared\], and said: … Behold, I am he who was prepared from the foundation of the world to redeem my people. … In me shall all mankind have life, and that eternally, even they who shall believe on my name.”[^32]
 
-Abinadi witnessed: “I would that ye should understand that God himself shall come down among the children of men, and shall redeem his people. … Yea, even so he shall be led, crucified, and slain … ; giving \[him\] power to make intercession for the children of men … , having redeemed them, and satisfied the demands of justice.”[^33]
+Abinadi witnessed: “I would that ye should understand that God himself shall come down among the children of men, and shall redeem his people. … Yea, even so he shall be led, crucified, and slain … ; giving \[him\] power to make intercession for the children of men … , having redeemed them, and satisfied the demands of justice.”[^33]
 
 And finally, Joseph Smith. As a 14-year-old boy, he exercised unwavering faith and followed the prophet James’s direction to “ask of God.”[^34] Because of Joseph’s prophetic calling, God the Father and His Son, Jesus Christ, appeared to him and gave him instructions. How glorious was this First Vision to the first prophet of this last dispensation! Sixteen years later in the Kirtland Temple, Joseph was visited again by the Savior and testified: “We saw the Lord. … And his voice was as the sound of the rushing of great waters, even the voice of Jehovah, saying: I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.”[^35]
 
@@ -93,7 +93,7 @@ Jesus Christ did come. He did live. And He will come again. This I know and give
 
 [^9]: [[Helaman 14.4|Helaman 14:4]].
 
-[^10]: [[3 Nephi 1.20|3 Nephi 1:20–21]][[3 Nephi 1.21|]].
+[^10]: [[3 Nephi 1.20|3 Nephi 1:20–21]][[3 Nephi 1.21|]].
 
 [^11]: [[John 20.25|John 20:25]].
 
@@ -105,11 +105,11 @@ Jesus Christ did come. He did live. And He will come again. This I know and give
 
 [^15]: [[Helaman 14.27|Helaman 14:27]].
 
-[^16]: [[3 Nephi 10.12|3 Nephi 10:12]].
+[^16]: [[3 Nephi 10.12|3 Nephi 10:12]].
 
-[^17]: [[3 Nephi 11.2|3 Nephi 11:2]].
+[^17]: [[3 Nephi 11.2|3 Nephi 11:2]].
 
-[^18]: [[3 Nephi 11.10|3 Nephi 11:10–12]][[3 Nephi 11.11|]][[3 Nephi 11.12|]].
+[^18]: [[3 Nephi 11.10|3 Nephi 11:10–12]][[3 Nephi 11.11|]][[3 Nephi 11.12|]].
 
 [^19]: [[D&C 95.6|D&C 95:6]].
 
@@ -125,7 +125,7 @@ Jesus Christ did come. He did live. And He will come again. This I know and give
 
 [^25]: [[Enos 1.4|Enos 1:4]].
 
-[^26]: [[3 Nephi 12.6|3 Nephi 12:6]].
+[^26]: [[3 Nephi 12.6|3 Nephi 12:6]].
 
 [^27]: [[Enos 1.4|Enos 1:4]].
 
@@ -147,6 +147,4 @@ Jesus Christ did come. He did live. And He will come again. This I know and give
 
 [^36]: [[Ether 12.41|Ether 12:41]].
 
-
-
-#Faith #Jesus_Christ #Prayer #Prophets #Testimony
+#Faith #JesusChrist #Prayer #Prophets #Testimony

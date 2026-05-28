@@ -1,9 +1,8 @@
 # Overtake, Overtook, Overtaken
 
-
 Laban *overtook* Jacob, [[Genesis 31.25|Genesis 31:25]].
 
-if a man be *overtaken* in a fault ... restore such, [[Galatians 6.1|Galatians 6:1]].
+if a man be *overtaken* in a fault … restore such, [[Galatians 6.1|Galatians 6:1]].
 
 that day should *overtake* you as a thief, [[1 Thessalonians 5.4|1 Thessalonians 5:4]] ([[D&C 106.5|D&C 106:5]]).
 

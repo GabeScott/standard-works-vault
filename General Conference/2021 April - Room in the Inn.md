@@ -1,6 +1,6 @@
 # Room in the Inn
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -91,7 +91,7 @@ As we create room in His Inn, welcoming all, our Good Samaritan can heal us on o
 
 [^4]: See the parable of the good Samaritan in [[Luke 10.30|Luke 10:30–37]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]].
 
-[^5]: See Hugh Nibley, *Since Cumorah*, 2nd ed., vol. 7 of *The Collected Works of Hugh Nibley* (1988), 100, in John W. Welch, “The Good Samaritan: A Type and Shadow of the Plan of Salvation,” *BYU Studies*, vol. 38, no. 2 (1999), 54.
+[^5]: See Hugh Nibley, *Since Cumorah*, 2nd ed., vol. 7 of *The Collected Works of Hugh Nibley* (1988), 100, in John W. Welch, “The Good Samaritan: A Type and Shadow of the Plan of Salvation,” *BYU Studies*, vol. 38, no. 2 (1999), 54.
 
 [^6]: [[Luke 10.35|Luke 10:35]].
 
@@ -103,7 +103,7 @@ As we create room in His Inn, welcoming all, our Good Samaritan can heal us on o
 
 [^10]: See [[Moroni 10.8|Moroni 10:8–18]][[Moroni 10.9|]][[Moroni 10.10|]][[Moroni 10.11|]][[Moroni 10.12|]][[Moroni 10.13|]][[Moroni 10.14|]][[Moroni 10.15|]][[Moroni 10.16|]][[Moroni 10.17|]][[Moroni 10.18|]]; [[D&C 46.11|Doctrine and Covenants 46:11–26]][[D&C 46.12|]][[D&C 46.13|]][[D&C 46.14|]][[D&C 46.15|]][[D&C 46.16|]][[D&C 46.17|]][[D&C 46.18|]][[D&C 46.19|]][[D&C 46.20|]][[D&C 46.21|]][[D&C 46.22|]][[D&C 46.23|]][[D&C 46.24|]][[D&C 46.25|]][[D&C 46.26|]].
 
-[^11]: See [General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints](https://churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title3#title3), 38.1.1, ChurchofJesusChrist.org.
+[^11]: See [General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints](https://www.churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title3#title3), 38.1.1, ChurchofJesusChrist.org.
 
 [^12]: See [[Alma 34.14|Alma 34:14–16]][[Alma 34.15|]][[Alma 34.16|]].
 
@@ -115,7 +115,7 @@ As we create room in His Inn, welcoming all, our Good Samaritan can heal us on o
 
 [^16]: [[Isaiah 40.31|Isaiah 40:31]].
 
-[^17]: See [[2 Nephi 2.7|2 Nephi 2:7]]; [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 59.8|Doctrine and Covenants 59:8]].
+[^17]: See [[2 Nephi 2.7|2 Nephi 2:7]]; [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 59.8|Doctrine and Covenants 59:8]].
 
 [^18]: See [[Alma 34.16|Alma 34:16]].
 
@@ -125,6 +125,4 @@ As we create room in His Inn, welcoming all, our Good Samaritan can heal us on o
 
 [^21]: [[D&C 132.23|Doctrine and Covenants 132:23]].
 
-
-
-#Belonging #Discipleship #Diversity #Fellowshipping #Good_Samaritan #Jesus_Christ #Single_Adults
+#Belonging #Discipleship #Diversity #Fellowshipping #GoodSamaritan #JesusChrist #SingleAdults

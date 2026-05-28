@@ -1,6 +1,6 @@
 # Just as He Did
 
-By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
+By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -18,11 +18,11 @@ Shortly after his arrival, Mike was visited by John Holbrook, the ward mission l
 
 In early December of last year, following months of procedures, Mike decided to stop the cancer treatments, which were causing severe side effects, and to just let nature take its course. We were informed by his doctor that Mike had approximately three months to live. In the meantime, the gospel questions continued—as did the visits and support of his local priesthood leaders. On our visits with Mike, we often saw an open copy of the Book of Mormon on the bedstand as we discussed the Restoration of the gospel, priesthood keys, temple ordinances, and the eternal nature of man.
 
-By mid-December, with his patriarchal blessing in hand, Mike actually appeared to be gaining strength, and his prognosis of at least another three months seemed likely. We even made plans for him to join us for Christmas, for New Year’s, and beyond. On December 16, I received an unexpected call from Bishop Sharp, who informed me that he and the stake president had interviewed Mike, had found him worthy to receive the Melchizedek Priesthood, and asked when I would be available to participate. The ordinance was scheduled for that Friday, December 21.
+By mid-December, with his patriarchal blessing in hand, Mike actually appeared to be gaining strength, and his prognosis of at least another three months seemed likely. We even made plans for him to join us for Christmas, for New Year’s, and beyond. On December 16, I received an unexpected call from Bishop Sharp, who informed me that he and the stake president had interviewed Mike, had found him worthy to receive the Melchizedek Priesthood, and asked when I would be available to participate. The ordinance was scheduled for that Friday, December 21.
 
 When the day arrived, my wife, Carol, and I arrived at the care facility and were immediately met in the hallway near his room and informed that Mike had no pulse. We entered the room to find the patriarch, his bishop, and his stake president already waiting—and then Mike opened his eyes. He recognized me and acknowledged that he could hear me and was ready to receive the priesthood. Fifty years after Mike had been ordained a priest in the Aaronic Priesthood, I had the privilege, assisted by his local leaders, to confer the Melchizedek Priesthood and ordain my brother to the office of elder. Five hours later, Mike passed away, crossing the veil to meet our parents as a holder of the Melchizedek Priesthood.
 
-Just one year ago, a call was extended by President Russell M. Nelson for each of us to care for our brothers and sisters in a “higher, holier way.”[^3] Speaking of the Savior, President Nelson taught that “because it is His Church, we as His servants will minister to the one, just as He did. We will minister in His name, with His power and authority, and with His loving-kindness.”[^4]
+Just one year ago, a call was extended by President Russell M. Nelson for each of us to care for our brothers and sisters in a “higher, holier way.”[^3] Speaking of the Savior, President Nelson taught that “because it is His Church, we as His servants will minister to the one, just as He did. We will minister in His name, with His power and authority, and with His loving-kindness.”[^4]
 
 In response to that invitation from a prophet of God, remarkable efforts to minister to the one are taking place all over the world, in both coordinated efforts, as members faithfully fulfill their ministering assignments, as well as in what I’ll call “impromptu” ministering, as so many demonstrate Christlike love in response to unexpected opportunities. In our own family, we witnessed, up close, this type of ministering.
 
@@ -30,7 +30,7 @@ John, who was Mike’s friend, ministering brother, and a former mission preside
 
 It isn’t necessary for someone to be suffering, like my brother, from a life-threatening disease in order to be in need of ministering service. Those needs come in a variety of shapes, sizes, and conditions. A single parent; a less-active couple; a struggling teen; an overwhelmed mother; a trial of faith; or financial, health, or marriage issues—the list is almost endless. However, like Mike, no one is too far gone, and it’s never too late for the Savior’s loving reach.
 
-We are taught on the ministering website of the Church that “while there are many purposes of ministering, our efforts should be guided by the desire to help others achieve a deeper individual conversion and become more like the Savior.”[^6] Elder Neil L. Andersen said it this way:
+We are taught on the ministering website of the Church that “while there are many purposes of ministering, our efforts should be guided by the desire to help others achieve a deeper individual conversion and become more like the Savior.”[^6] Elder Neil L. Andersen said it this way:
 
 “A person with a good heart can help someone fix a tire, take a roommate to the doctor, have lunch with someone who is sad, or smile and say hello to brighten a day.
 
@@ -42,21 +42,21 @@ As we seek to minister just as He did,[^9] we will be provided opportunities to 
 
 “Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:
 
-“For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in. …
+“For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in. …
 
 “Then shall the righteous answer him, saying, Lord, when saw we thee an hungred, and fed thee? or thirsty, and gave thee drink?
 
-“When saw we thee a stranger, and took thee in? …
+“When saw we thee a stranger, and took thee in? …
 
 “And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.”[^10]
 
 Whether we serve as ministering brothers or sisters, or simply when we are made aware of someone in need, we are encouraged to seek the guidance and direction of the Spirit—and then to act. We may wonder how best to serve, but the Lord knows, and through His Spirit we will be directed in our efforts. Like Nephi, who “was led by the Spirit, not knowing beforehand the things which \[he\] should do,”[^11] we will also be led by the Spirit as we strive to become instruments in the Lord’s hands to bless His children. As we seek the guidance of the Spirit and trust the Lord, we will be placed in situations and circumstances where we can act and bless—in other words, minister.
 
-There may be other times when we recognize a need but feel inadequate to respond, assuming that what we have to offer is insufficient. To do just as He did,[^12] however, is to minister by giving what we are capable of giving and to trust that the Lord will magnify our efforts to bless our “fellow travelers on this mortal journey.”[^13] For some, it may be giving the gift of time and talents; for others, it may be a kind word or a strong back. Although we may feel that our efforts are inadequate, President Dallin H. Oaks shared an important principle regarding “small and simple.” He taught that small and simple acts are powerful because they invite “the companionship of the Holy Ghost,”[^14] a companion who blesses both the giver and the receiver.
+There may be other times when we recognize a need but feel inadequate to respond, assuming that what we have to offer is insufficient. To do just as He did,[^12] however, is to minister by giving what we are capable of giving and to trust that the Lord will magnify our efforts to bless our “fellow travelers on this mortal journey.”[^13] For some, it may be giving the gift of time and talents; for others, it may be a kind word or a strong back. Although we may feel that our efforts are inadequate, President Dallin H. Oaks shared an important principle regarding “small and simple.” He taught that small and simple acts are powerful because they invite “the companionship of the Holy Ghost,”[^14] a companion who blesses both the giver and the receiver.
 
 Knowing that he would soon die, my brother Mike commented, “It’s amazing how pancreatic cancer can make you focus on what’s most important.”[^15] Thanks to wonderful men and women who saw a need, did not judge, and ministered like the Savior, it wasn’t too late for Mike. For some, change may come sooner; for others, perhaps beyond the veil. However, we must remember that it is never too late and no one has ever wandered so far from the path that he or she is beyond the reach of the infinite Atonement of Jesus Christ, which is limitless in its duration and scope.
 
-In last October’s general conference, Elder Dale G. Renlund taught that “no matter how long we have been off the path … , the moment we decide to change, God helps us return.”[^16] That decision to change, however, is often the result of an invitation such as “I think you’d enjoy hearing the gospel message.” Just as it is never too late for the Savior, it is never too soon for us to extend an invitation.
+In last October’s general conference, Elder Dale G. Renlund taught that “no matter how long we have been off the path … , the moment we decide to change, God helps us return.”[^16] That decision to change, however, is often the result of an invitation such as “I think you’d enjoy hearing the gospel message.” Just as it is never too late for the Savior, it is never too soon for us to extend an invitation.
 
 This Easter season provides us, once again, a wonderful opportunity to reflect on the great atoning sacrifice of our Savior, Jesus Christ, and what He did for each of us at such a tremendous cost—a cost that He Himself declared “caused \[Him\], the greatest of all, to tremble because of pain.” “Nevertheless,” He states, “I partook and finished my preparations unto the children of men.”[^17]
 
@@ -69,36 +69,34 @@ I testify that because He “finished,” there is always hope. In the name of J
 
 [^2]: Conversation with John Holbrook.
 
-[^3]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 6.
+[^3]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 6.
 
-[^4]: Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 69.
+[^4]: Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 69.
 
 [^5]: Conversation with John Holbrook.
 
-[^6]: “[Ministering Principles: The Purpose That Will Change Our Ministering](https://churchofjesuschrist.org/study/ensign/2019/01/the-purpose-that-will-change-our-ministering?lang=eng),” *Ensign* or *Liahona,* Jan. 2019, 8; see also ministering.ChurchofJesusChrist.org.
+[^6]: “[Ministering Principles: The Purpose That Will Change Our Ministering](https://www.churchofjesuschrist.org/study/ensign/2019/01/the-purpose-that-will-change-our-ministering?lang=eng),” *Ensign* or *Liahona,* Jan. 2019, 8; see also ministering.ChurchofJesusChrist.org.
 
-[^7]: Neil L. Andersen, “[A Holier Approach to Ministering](https://speeches.byu.edu/talks/neil-l-andersen_a-holier-approach-to-ministering)” (Brigham Young University devotional, Apr. 10, 2018), 3, speeches.byu.edu.
+[^7]: Neil L. Andersen, “[A Holier Approach to Ministering](https://speeches.byu.edu/talks/neil-l-andersen_a-holier-approach-to-ministering)” (Brigham Young University devotional, Apr. 10, 2018), 3, speeches.byu.edu.
 
-[^8]: See “[The Purpose That Will Change Our Ministering](https://churchofjesuschrist.org/study/ensign/2019/01/the-purpose-that-will-change-our-ministering?lang=eng),” 8–10.
+[^8]: See “[The Purpose That Will Change Our Ministering](https://www.churchofjesuschrist.org/study/ensign/2019/01/the-purpose-that-will-change-our-ministering?lang=eng),” 8–10.
 
-[^9]: See [[3 Nephi 17.9|3 Nephi 17:9–10, 20–21]][[3 Nephi 17.10|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]].
+[^9]: See [[3 Nephi 17.9|3 Nephi 17:9–10, 20–21]][[3 Nephi 17.10|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]].
 
 [^10]: [[Matthew 25.34|Matthew 25:34–35, 37–38, 40]][[Matthew 25.35|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.40|]].
 
-[^11]: [[1 Nephi 4.6|1 Nephi 4:6]].
+[^11]: [[1 Nephi 4.6|1 Nephi 4:6]].
 
-[^12]: See [[3 Nephi 17.9|3 Nephi 17:9–10, 20–21]][[3 Nephi 17.10|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]].
+[^12]: See [[3 Nephi 17.9|3 Nephi 17:9–10, 20–21]][[3 Nephi 17.10|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]].
 
-[^13]: Thomas S. Monson, “[[2014 April - Love—the Essence of the Gospel.md|Love—the Essence of the Gospel]],” *Ensign* or *Liahona,* May 2014, 91.
+[^13]: Thomas S. Monson, “[[2014 April - Love—the Essence of the Gospel.md|Love—the Essence of the Gospel]],” *Ensign* or *Liahona,* May 2014, 91.
 
-[^14]: Dallin H. Oaks, “[[2018 April - Small and Simple Things.md|Small and Simple Things]],” *Ensign* or *Liahona,* May 2018, 90.
+[^14]: Dallin H. Oaks, “[[2018 April - Small and Simple Things.md|Small and Simple Things]],” *Ensign* or *Liahona,* May 2018, 90.
 
 [^15]: Personal conversation.
 
-[^16]: Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona,* Nov. 2018, 106.
+[^16]: Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona,* Nov. 2018, 106.
 
 [^17]: [[D&C 19.18|Doctrine and Covenants 19:18–19]][[D&C 19.19|]].
 
-
-
-#Conversion #Jesus_Christ #Ministering #Service
+#Conversion #JesusChrist #Ministering #Service

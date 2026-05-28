@@ -1,7 +1,6 @@
 # Record
 
-
-*See also* [[Account.md|Account]]; [[Book of Life.md|Book of Life]]; [[Book of Mormon.md|Book of Mormon]]; [[Book of Remembrance.md|Book of Remembrance]]; [[Genealogy and Temple Work.md|Genealogy and Temple Work]]; [[Reckon, Reckoning.md|Reckon]]; [[Record Keeping.md|Record Keeping]]; [[Scriptures, Writing of.md|Scriptures, Writing of]]
+*See also* [[Account.md|Account]]; [[Book of Life.md|Book of Life]]; [[Book of Mormon.md|Book of Mormon]]; [[Book of Remembrance.md|Book of Remembrance]]; [[Genealogy and Temple Work.md|Genealogy and Temple Work]]; [[Reckon.md|Reckon]]; [[Record Keeping.md|Record Keeping]]; [[Scriptures, Writing of.md|Scriptures, Writing of]]
 
 in all places where I *record* my name, [[Exodus 20.24|Exodus 20:24]].
 
@@ -29,27 +28,27 @@ bear *record* that he had baptized the Lamb, [[1 Nephi 10.10|1 Nephi 10:10]].
 
 bear *record* that it is the Son, [[1 Nephi 11.7|1 Nephi 11:7]].
 
-Messiah ... of whom the Holy Ghost beareth *record*, [[1 Nephi 12.18|1 Nephi 12:18]].
+Messiah … of whom the Holy Ghost beareth *record*, [[1 Nephi 12.18|1 Nephi 12:18]].
 
 Father beareth *record* of me, [[3 Nephi 11.32|3 Nephi 11:32]] ([[3 Nephi 11.36|3 Nephi 11:36]]).
 
 multitude did see and hear and bear *record*, [[3 Nephi 17.25|3 Nephi 17:25]].
 
-power of God ... of which the Father, and the Son, and the Holy Ghost bear *record*, [[Ether 5.4|Ether 5:4]].
+power of God … of which the Father, and the Son, and the Holy Ghost bear *record*, [[Ether 5.4|Ether 5:4]].
 
 Lord is God, and the Spirit beareth *record*, [[D&C 1.39|D&C 1:39]] ([[D&C 59.24|D&C 59:24]]).
 
 Holy Ghost, which beareth *record* of the Father and of the Son, [[D&C 20.27|D&C 20:27]] ([[Moses 1.24|Moses 1:24]]; [[Moses 5.9|Moses 5:9]]).
 
-Comforter ... beareth *record* of the Father and of the Son, [[D&C 42.17|D&C 42:17]].
+Comforter … beareth *record* of the Father and of the Son, [[D&C 42.17|D&C 42:17]].
 
 bear *record* of me, even Jesus Christ, [[D&C 68.6|D&C 68:6]].
 
-of as many as the Father shall bear *record* ... seal them up unto eternal life, [[D&C 68.12|D&C 68:12]].
+of as many as the Father shall bear *record* … seal them up unto eternal life, [[D&C 68.12|D&C 68:12]].
 
 we heard the voice bearing *record*, [[D&C 76.23|D&C 76:23]].
 
-the gospel ... which the voice out of the heavens bore *record*, [[D&C 76.40|D&C 76:40]].
+the gospel … which the voice out of the heavens bore *record*, [[D&C 76.40|D&C 76:40]].
 
 John saw and bore *record* of the fulness of my glory, [[D&C 93.6|D&C 93:6]].
 

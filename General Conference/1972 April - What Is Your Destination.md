@@ -1,6 +1,6 @@
 # What Is Your Destination?
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -26,7 +26,7 @@ Have you arrived when you go to the temple? Is temple marriage your destination?
 
 To qualify one’s self to go to the temple is a lofty ambition, a worthy achievement. We need to remind ourselves of its eternal purposes. However, we have not arrived when we share the blessings of the temple. Oftentimes there are real dangers in our lives when we allow lofty ideals and goals, such as temple marriage, to become an end instead of a means. All of our priorities must be properly placed within the framework of eternity if we are to avoid the stagnations of arriving.
 
-I think it was Louis J. Halle who said, “To snatch the passing moment and examine it for signs of eternity is the noblest of occupations.” To gain exaltation after celestial marriage, continued devotion and righteousness are required. It is a continuing process, not a state of arrival.
+I think it was Louis J. Halle who said, “To snatch the passing moment and examine it for signs of eternity is the noblest of occupations.” To gain exaltation after celestial marriage, continued devotion and righteousness are required. It is a continuing process, not a state of arrival.
 
 Have you arrived when you receive your call to serve in the mission field? Have you reached your destination when you have completed an honorable mission? May we emphatically state that a worthily completed mission is a signal accomplishment along life’s journey. It should be fortification for greater personal service and strength. It should more firmly entrench the feet of the missionary in the paths that continue onward and upward to eternal happiness. It should prepare him for the enjoyment of pure religion.
 
@@ -36,7 +36,7 @@ I am reminded of a missionary friend who had difficulty remaining busily engaged
 
 What an important day it is in the life of a missionary when he realizes that an honorable release is a commencement. To our fellow missionaries, past and present, we humbly pray that you will never allow yourselves the dangerous luxury of self-declaring, “I have given my two years to the Church.” If a returned missionary will set his sights high for life, he will generally take the proper steps to get there. A mission can be the happiest two years in a missionary’s life if he not only serves his God and fellowmen selflessly but if he is also walking in truth and preparing himself for eternal progress, which I declare is underway today.
 
-“I have no greater joy than to hear that my children walk in truth.” ([[3 John 1.4|3 Jn. 1:4]].)
+“I have no greater joy than to hear that my children walk in truth.” ([[3 John 1.4|3 Jn. 1:4]].)
 
 May we emphasize that the joy is in the walking and in the traveling in truth, and not in anticipated arrival.
 
@@ -83,6 +83,4 @@ What is your destination? I humbly pray our Heavenly Father to help each one of 
 
 
 
-
-
-#Goals #Missionary_Work
+#Goals #MissionaryWork

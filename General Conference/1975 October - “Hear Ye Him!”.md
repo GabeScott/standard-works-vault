@@ -1,6 +1,6 @@
 # “Hear Ye Him!”
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -42,9 +42,9 @@ We operate a consistent missionary program. We now have 133 missions with congre
 
 Our congregations generally are divided into what we call branches, wards, and stakes—the branches and wards being somewhat comparable to parishes, the stakes being likened to dioceses. Ten years ago we had 6,000 wards and branches, and now we have nearly 8,000. Ten years ago we had 412 stakes, the larger units; now we have over 700. They are found in nations from South America to Scandinavia and from Alaska to South Africa to Australia and the islands of the South Seas.
 
-We are generally a healthy people. Dr. James E. Enstrom of the UCLA School of Public Health reported in the Pasadena *Star-News* last April 9 that the incidence of cancer among the Mormons is 50 percent lower than the national average. In Utah the cancer death rate is the lowest in America.
+We are generally a healthy people. Dr. James E. Enstrom of the UCLA School of Public Health reported in the Pasadena *Star-News* last April 9 that the incidence of cancer among the Mormons is 50 percent lower than the national average. In Utah the cancer death rate is the lowest in America.
 
-With respect to lung cancer, LDS women have only 31 percent of the national average, the men only 38 percent of the national average. For cancer of the esophagus related to alcohol usage, the figure for Latter-day Saints is only 11 percent of the national average for women and 34 percent for the men. These figures are provided by Dr. Joseph F. Lyon, director of the Utah Cancer Registry.
+With respect to lung cancer, LDS women have only 31 percent of the national average, the men only 38 percent of the national average. For cancer of the esophagus related to alcohol usage, the figure for Latter-day Saints is only 11 percent of the national average for women and 34 percent for the men. These figures are provided by Dr. Joseph F. Lyon, director of the Utah Cancer Registry.
 
 The *Statistical Abstract* of the United States for the year 1971 (Bureau of the Census) reports some interesting figures in which Utah and the rest of the nation are compared. All states in the union are listed according to frequency of incidence of the diseases which I shall mention, with the states placed lowest on the list having the least number of cases.
 
@@ -70,9 +70,9 @@ When Dr. Clark Kerr, chairman of the Carnegie Council on Policy Studies in Highe
 
 “Utah stands first in the nation in the total population ages 3 to 34 enrolled in school.
 
-“Utah stands first in the percentage of the total population enrolled in school at every age level except ages 16–17, where Minnesota ranks first. …
+“Utah stands first in the percentage of the total population enrolled in school at every age level except ages 16–17, where Minnesota ranks first. …
 
-“Utah stands first in the average years of school completed for all of its citizens age 25 and older. …
+“Utah stands first in the average years of school completed for all of its citizens age 25 and older. …
 
 “Utah stands first in expenditures on the operating programs of medical schools per $100,000 of personal income in the state.”
 
@@ -84,7 +84,7 @@ Then he asked, “Why has Utah done so well? It is neither the richest, nor the 
 
 This educational background is reflected in the number of our people who have reached places of prominence in the United States, Canada, and the world.
 
-Mark W. Cannon, in a discussion entitled “Mormons in the Executive Suite,” said that a recent study shows that among the 471 leading business institutions of America, more of their presidents were born in Utah, in relation to its population, than in any other state of the union. Utah produced one such president for each 62,000 persons of population compared to one for each 205,000 nationally. Currently sixty-one Latter-day Saint men are holding positions as either president, chairman of the board, or vice-chairman of the board for American companies listing assets of more than $10 million. Many Latter-day Saints hold major positions in corporations with assets exceeding $75 million.
+Mark W. Cannon, in a discussion entitled “Mormons in the Executive Suite,” said that a recent study shows that among the 471 leading business institutions of America, more of their presidents were born in Utah, in relation to its population, than in any other state of the union. Utah produced one such president for each 62,000 persons of population compared to one for each 205,000 nationally. Currently sixty-one Latter-day Saint men are holding positions as either president, chairman of the board, or vice-chairman of the board for American companies listing assets of more than $10 million. Many Latter-day Saints hold major positions in corporations with assets exceeding $75 million.
 
 Latter-day Saints have filled cabinet positions in the United States and other important positions in Canada. We have our generals and admirals in the military forces. Our people have served regularly in the U.S. Congress over the years, as well as in governing bodies in Canada. For example, in 1952 there were fifteen holding seats in Congress and in other top federal positions. Now there are twenty-eight.
 
@@ -100,7 +100,7 @@ You will be pleased to know that Mormon women were the first women anywhere to r
 
 We believe that Mormon women are less circumscribed and are possessed of greater liberty than any women in the world. They understand the true meaning of liberty and justice for all, because it is part of their religion and is fundamental in their daily routine.
 
-We have in our church an organization especially for women, operated and directed by the women themselves. It is known as the women’s Relief Society. It has nearly a million members. Leaders of this organization have served prominently in the World Council of Women, and one of them, Mrs. Belle S. Spafford, recently served as president of the National Council of Women in the United States.
+We have in our church an organization especially for women, operated and directed by the women themselves. It is known as the women’s Relief Society. It has nearly a million members. Leaders of this organization have served prominently in the World Council of Women, and one of them, Mrs. Belle S. Spafford, recently served as president of the National Council of Women in the United States.
 
 The purpose of this Relief Society organization is to provide compassionate service for those in need, but it also promotes the cultural development of the women, helping them to achieve their desired goals in life and to establish high ideals in the family circle.
 
@@ -117,6 +117,4 @@ We testify that God does live. He is the Creator of the world. We testify that J
 
 
 
-
-
-#Church_Growth #Restoration
+#ChurchGrowth #Restoration

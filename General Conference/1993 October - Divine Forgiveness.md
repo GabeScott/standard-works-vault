@@ -28,9 +28,9 @@ Enos recorded for us his experience, alone in the forest, remembering the words 
 
 “And my soul hungered; and I kneeled down before my Maker, and I cried unto him in mighty prayer and supplication for mine own soul; …
 
-“And there came a voice unto me, saying: Enos, thy sins are forgiven thee. …
+“And there came a voice unto me, saying: Enos, thy sins are forgiven thee. …
 
-“… Wherefore, my guilt was swept away.
+“… Wherefore, my guilt was swept away.
 
 “And I said: Lord, how is it done?
 
@@ -38,7 +38,7 @@ Enos recorded for us his experience, alone in the forest, remembering the words 
 
 How is it done? The question each of us may ponder. Again we turn to the Book of Mormon for additional understanding.
 
-Father Lehi teaches us that the divine purpose of our mortal probation requires us to experience opposition in all things and, knowing good from evil, to exercise our moral agency, make choices, and be accountable for the consequences (see [[2 Nephi 2.1|2 Ne. 2]][[2 Nephi 2.2|]][[2 Nephi 2.3|]][[2 Nephi 2.4|]][[2 Nephi 2.5|]][[2 Nephi 2.6|]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]][[2 Nephi 2.11|]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]][[2 Nephi 2.19|]][[2 Nephi 2.20|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]][[2 Nephi 2.29|]][[2 Nephi 2.30|]]).
+Father Lehi teaches us that the divine purpose of our mortal probation requires us to experience opposition in all things and, knowing good from evil, to exercise our moral agency, make choices, and be accountable for the consequences (see [[2 Nephi 2.1|2 Ne. 2]][[2 Nephi 2.2|]][[2 Nephi 2.3|]][[2 Nephi 2.4|]][[2 Nephi 2.5|]][[2 Nephi 2.6|]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]][[2 Nephi 2.11|]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]][[2 Nephi 2.19|]][[2 Nephi 2.20|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]][[2 Nephi 2.29|]][[2 Nephi 2.30|]]).
 
 We learn from the prophet Alma that we are subject to divine law, which all have transgressed in some respect, making us subject to the demands of justice (see [[Alma 42.14|Alma 42:14, 18]][[Alma 42.18|]]). God’s justice is based upon divine laws, under which we receive what we deserve according to our disobedience or obedience to the law.
 
@@ -52,7 +52,7 @@ Father Lehi taught his son Jacob:
 
 “Wherefore, redemption cometh in and through the Holy Messiah; for he is full of grace and truth.
 
-“Behold, he offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit” ([[2 Nephi 2.6|2 Ne. 2:6–7]][[2 Nephi 2.7|]]).
+“Behold, he offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit” ([[2 Nephi 2.6|2 Ne. 2:6–7]][[2 Nephi 2.7|]]).
 
 The beginning and completion of repentance leading to forgiveness is faith in Jesus Christ, who is the “author and the finisher of \[our\] faith” ([[Moroni 6.4|Moro. 6:4]]). Our faith in him as Savior and Redeemer engenders in us godly sorrow for our transgressions, a broken heart and a contrite spirit, and a sense of personal accountability. There follows a change in attitude and a turning toward God.
 
@@ -62,21 +62,21 @@ If our past behavior is such as to affect our standing in the Church, we confess
 
 Throughout the repentance process we have feelings of regret, remorse, and guilt, which cause us to suffer. However, our individual suffering does not satisfy the demands of justice which follow disobedience to divine law. We cannot pay the price for our sins.
 
-The resurrected Christ has said, “For behold, I, God, have suffered these things for all, that they might not suffer if they would repent” ([[D&C 19.16|D&C 19:16]]). To the Nephites he declared, “Return unto me, and repent of your sins, and be converted, that *I may heal you*” ([[3 Nephi 9.13|3 Ne. 9:13]]; italics added).
+The resurrected Christ has said, “For behold, I, God, have suffered these things for all, that they might not suffer if they would repent” ([[D&C 19.16|D&C 19:16]]). To the Nephites he declared, “Return unto me, and repent of your sins, and be converted, that *I may heal you*” ([[3 Nephi 9.13|3 Ne. 9:13]]; italics added).
 
 The Lord’s gift of forgiveness, however, is not complete until it is accepted. True and complete repentance is a process by which we may become reconciled with God and accept the divine gift of forgiveness.
 
-In the words of Nephi, “It is by grace that we are saved, after all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]).
+In the words of Nephi, “It is by grace that we are saved, after all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]).
 
 The effect of the infinite, atoning sacrifice was twofold: First, resurrection and immortality for all, unconditionally granted. Second, eternal life for each one who fulfills the prescribed conditions, which are faith in Jesus Christ as Savior and Redeemer, followed by repentance.
 
 Then we must qualify for and receive the saving and exalting ordinances of the gospel with their associated covenants, continuously striving to keep those covenants and obey the commandments of God.
 
-Being mortal, and despite our resolve and efforts, we will continue to fall short of perfection. However, with Nephi of old, conscious of our weaknesses, temptations, and past mistakes, we may say, “Nevertheless, I know in whom I have trusted” ([[2 Nephi 4.19|2 Ne. 4:19]]). There follows a natural resolve to renew our efforts.
+Being mortal, and despite our resolve and efforts, we will continue to fall short of perfection. However, with Nephi of old, conscious of our weaknesses, temptations, and past mistakes, we may say, “Nevertheless, I know in whom I have trusted” ([[2 Nephi 4.19|2 Ne. 4:19]]). There follows a natural resolve to renew our efforts.
 
 Essential to receiving divine forgiveness are personal, individual recognition and acceptance of our Father’s mercy, made available to us by the atoning sacrifice of Jesus Christ and a renewed covenant to obey the principles of the gospel.
 
-Examples of this process and its results are found in the Book of Mormon. Having been taught the doctrine of the Atonement, the people of King Benjamin, conscious of their past transgressions, pleaded for mercy that by the atoning blood of Christ they might receive forgiveness of their sins, for, said they: “We believe in Jesus Christ, the Son of God. …
+Examples of this process and its results are found in the Book of Mormon. Having been taught the doctrine of the Atonement, the people of King Benjamin, conscious of their past transgressions, pleaded for mercy that by the atoning blood of Christ they might receive forgiveness of their sins, for, said they: “We believe in Jesus Christ, the Son of God. …
 
 “\[And\] the Spirit of the Lord came upon them, and they were filled with joy, having received a remission of their sins, and having peace of conscience, because of the exceeding faith which they had in Jesus Christ” ([[Mosiah 4.2|Mosiah 4:2–3]][[Mosiah 4.3|]]).
 
@@ -94,13 +94,13 @@ The ancient prophet Isaiah taught us:
 
 “Cease to do evil;
 
-“Learn to do well. …
+“Learn to do well. …
 
 “… Though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool” ([[Isaiah 1.16|Isa. 1:16–18]][[Isaiah 1.17|]][[Isaiah 1.18|]]).
 
 And further:
 
-“Surely he hath borne our griefs, and carried our sorrows. …
+“Surely he hath borne our griefs, and carried our sorrows. …
 
 “… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed” ([[Isaiah 53.4|Isa. 53:4–5]][[Isaiah 53.5|]]).
 
@@ -108,7 +108,7 @@ The prophet of this dispensation, Joseph Smith, and his companion Sidney Rigdon 
 
 “And this is the gospel, …
 
-“That he came into the world, even Jesus, to be crucified for \[me\], and to bear \[my\] sins … , and to sanctify \[me\], and to cleanse \[me\] from all unrighteousness;
+“That he came into the world, even Jesus, to be crucified for \[me\], and to bear \[my\] sins … , and to sanctify \[me\], and to cleanse \[me\] from all unrighteousness;
 
 “That through him \[I\] might be saved” ([[D&C 76.40|D&C 76:40–42]][[D&C 76.41|]][[D&C 76.42|]]).
 
@@ -117,7 +117,7 @@ In conclusion, these verses from a favorite hymn:
 >How gentle God’s commands!
 >How kind his precepts are!
 >Come, cast your burdens on the Lord
->And trust his constant care. …
+>And trust his constant care. …
 >
 >Why should this anxious load
 >Press down your weary mind?
@@ -131,8 +131,6 @@ In conclusion, these verses from a favorite hymn:
 >
 
 To these truths which I have sought to teach I bear solemn, personal witness, in the sacred name of our Lord and Savior, Jesus Christ, amen.
-
-
 
 
 

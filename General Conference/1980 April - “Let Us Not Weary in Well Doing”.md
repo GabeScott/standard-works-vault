@@ -1,6 +1,6 @@
 # “Let Us Not Weary in Well Doing”
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -23,8 +23,6 @@ Now, my brothers and sisters, as we move into the last half of the Church’s se
 Let us hold fast to the iron rod. The Savior urged us to put our hand to the plow without looking back. In that spirit we are being asked to have humility and a deep and abiding faith in the Lord and to move forward—trusting in him, refusing to be diverted from our course, either by the *ways* of the world or the *praise* of the world. I see that quality of readiness and devotion in our people today. There is so much yet to be done! let us, then, move forward; let us continue the journey with lengthened stride. The Lord will lead us along, and he will be in our midst and not forsake us.
 
 I know with all my soul that Jesus Christ is the Son of God, that he died on the cross and was resurrected from the dead. He is the risen Lord, the Great Presiding High Priest, and he stands at the head of the Church. Of this I testify this beautiful Easter Sunday, on this great anniversary of the restoration and organization of the Church on this very spot 150 years ago. In the name of Jesus Christ. Amen.
-
-
 
 
 

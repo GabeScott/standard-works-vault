@@ -1,9 +1,8 @@
 # Backsliding
 
-
 thy *backslidings* shall reprove thee, [[Jeremiah 2.19|Jeremiah 2:19]].
 
-is this people ... slidden back by a perpetual *backsliding*, [[Jeremiah 8.5|Jeremiah 8:5]].
+is this people … slidden back by a perpetual *backsliding*, [[Jeremiah 8.5|Jeremiah 8:5]].
 
 for our *backslidings* are many, [[Jeremiah 14.7|Jeremiah 14:7]].
 

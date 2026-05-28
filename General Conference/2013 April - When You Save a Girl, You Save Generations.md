@@ -1,6 +1,6 @@
 # When You Save a Girl, You Save Generations
 
-By Mary N. Cook - *First Counselor in the Young Women General Presidency*
+By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -8,7 +8,7 @@ By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/04/when-you-save-a-girl-you-save-generations?lang=eng)
 
-It is an honor for me to address the valiant young women of the Church. We see you progressing on the path of those who honor their covenants, and we know your virtuous lives will bless your ancestors, your families now, and family members yet to come, for as President Gordon B. Hinckley stated, “When you save a girl, you save generations.”[^1]
+It is an honor for me to address the valiant young women of the Church. We see you progressing on the path of those who honor their covenants, and we know your virtuous lives will bless your ancestors, your families now, and family members yet to come, for as President Gordon B. Hinckley stated, “When you save a girl, you save generations.”[^1]
 
 Your covenant path began at the time when you were baptized and received the gift of the Holy Ghost. It continues weekly in sacrament meeting, a holy place where you renew your baptismal covenant. Now is the time for you to prepare to make temple covenants. The “sacred ordinances and covenants available in holy temples make it possible for \[us\] to return to the presence of God and for \[our\] families to be united eternally.”[^2]
 
@@ -44,7 +44,7 @@ These consistent choices, like those of the wise virgin, added oil to Kate’s l
 
 The trials didn’t end, however. When Kate was 21 and submitting her mission papers, her mother was diagnosed with cancer. Kate had to make an important decision in her life. Should she stay home and support her mother or go on her mission? Her mother was given a priesthood blessing promising that she would survive the illness. Assured by this blessing, Kate went forward with faith and continued her plans to serve a mission.
 
-Kate said: “It was taking a step in the dark, but while I was on my mission, the light eventually came and I received news that my mother’s blessing was realized. I was so glad that I didn’t put off serving the Lord. When hard things come, I think it’s easy to become stagnant and not really want to move forward, but if you put the Lord first, the adversities can lead to beautiful blessings. You can see His hand and witness miracles.” Kate experienced the reality of President Thomas S. Monson’s words: “Our most significant opportunities will be found in times of greatest difficulty.”[^6]
+Kate said: “It was taking a step in the dark, but while I was on my mission, the light eventually came and I received news that my mother’s blessing was realized. I was so glad that I didn’t put off serving the Lord. When hard things come, I think it’s easy to become stagnant and not really want to move forward, but if you put the Lord first, the adversities can lead to beautiful blessings. You can see His hand and witness miracles.” Kate experienced the reality of President Thomas S. Monson’s words: “Our most significant opportunities will be found in times of greatest difficulty.”[^6]
 
 Kate had this kind of faith because she understood the plan of salvation. She knew we lived before, that earth is a time of testing, and that we will live again. She had faith that her mother would be blessed, but from her experience with her father, she knew that if her mother were to pass away, it would be all right. She said: “I didn’t just survive my dad’s death; it became part of my identity for good, and had my mom been taken away, it would have done the same thing. It would have woven a greater testimony into my life.”[^7]
 
@@ -54,26 +54,27 @@ Not much happened the night I introduced Kate to Chris, but in seeking another h
 
 “When you save a girl, you save generations.” Kate’s decision as a 14-year-old to stay on the path, to consistently add oil to her lamp, and to stand in holy places *has* and *will* save generations. Seeking out her ancestors and serving in the temple have woven her heart with theirs. Participating in family history and temple work will likewise weave your hearts together and give your ancestors the opportunity of eternal life.
 
-Living the gospel in your home will also add oil to your lamp and weave spiritual strength into your home now and bless your future family in countless ways. And furthermore, as Elder Robert D. Hales has said, “If the example we have received from our parents was not good, it is our responsibility to break the cycle … and teach correct traditions for the generations that follow.”[^8]
+Living the gospel in your home will also add oil to your lamp and weave spiritual strength into your home now and bless your future family in countless ways. And furthermore, as Elder Robert D. Hales has said, “If the example we have received from our parents was not good, it is our responsibility to break the cycle … and teach correct traditions for the generations that follow.”[^8]
 
 Decide now to do all you can to fill your lamps, that your strong testimony and example may be woven into the lives of many generations—past, present, and future. I testify that your virtuous life will not only save generations, but it will also save *your* eternal life, for it is the only way to return to our Father in Heaven and find true joy now and throughout eternity. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Gordon B. Hinckley, “Standing Strong and Immovable,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20; see also Gordon B. Hinckley, “Our Responsibility to Our Young Women,” *Ensign,* Sept. 1988, 10.
+[^1]: Gordon B. Hinckley, “Standing Strong and Immovable,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20; see also Gordon B. Hinckley, “Our Responsibility to Our Young Women,” *Ensign,* Sept. 1988, 10.
 
 [^2]: “The Family: A Proclamation to the World,” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^3]: Russell M. Nelson, “Generations Linked in Love,” *Ensign* or *Liahona,* May 2010, 92.
+[^3]: Russell M. Nelson, “Generations Linked in Love,” *Ensign* or *Liahona,* May 2010, 92.
 
 [^4]: See [[Matthew 25.1|Matthew 25:1–13]][[Matthew 25.2|]][[Matthew 25.3|]][[Matthew 25.4|]][[Matthew 25.5|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]][[Matthew 25.11|]][[Matthew 25.12|]][[Matthew 25.13|]].
 
 [^5]: See “I Love to See the Temple,” *Children’s Songbook,* 95.
 
-[^6]: Thomas S. Monson, “Meeting Your Goliath,” *New Era,* June 2008, 7.
+[^6]: Thomas S. Monson, “Meeting Your Goliath,” *New Era,* June 2008, 7.
 
 [^7]: Personal interview with author, 2013.
 
+[^8]: Robert D. Hales, “How Will Our Children Remember Us?” *Ensign,* Nov. 1993, 10.
 
-#Adversity #Death #Family #Family_History
+#Adversity #Death #Family #FamilyHistory

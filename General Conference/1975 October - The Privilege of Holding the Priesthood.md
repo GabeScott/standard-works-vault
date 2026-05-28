@@ -1,6 +1,6 @@
 # The Privilege of Holding the Priesthood
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -30,17 +30,17 @@ And the boy said, “Yes, I am.” There was pride in his voice.
 
 The gentleman said, “Well, that’s interesting. I’ve wondered about the Mormons and what they believe. I’ve been through their beautiful city; I’ve noticed the beautiful buildings, the treelined streets, the lovely homes, the beautiful rose and flower gardens, but I’ve never stopped to find out what makes them as they are. I wish I knew what they believe.”
 
-And the boy said to him, “Well, sir, I can tell you what they believe. ‘We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost.’” ([[Articles of Faith 1.1|A of F 1:1]].
+And the boy said to him, “Well, sir, I can tell you what they believe. ‘We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost.’” ([[Articles of Faith 1.1|A of F 1:1]].
 
-The businessman was a bit surprised but listened intently, and the boy continued, “‘We believe that men will be punished for their own sins, and not for Adam’s transgression.’” ([[Articles of Faith 1.2|A of F 1:2]].)
+The businessman was a bit surprised but listened intently, and the boy continued, “‘We believe that men will be punished for their own sins, and not for Adam’s transgression.’” ([[Articles of Faith 1.2|A of F 1:2]].)
 
 And the traveling companion thought, “This is rather unusual for a mere boy to know these important things.”
 
-The boy went on: “‘We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.’” ([[Articles of Faith 1.3|A of F 1:3]].) And the gentleman was amazed at the knowledge and understanding of a mere boy—he was yet to be a Scout. But he continued and gave the [[Articles of Faith 1.4|fourth Article of Faith]] and said, “‘We believe that the first principles and ordinances of the Gospel are: first, Faith in the Lord Jesus Christ; second, Repentance; third, Baptism by immersion for the remission of sins; fourth, Laying on of hands for the gift of the Holy Ghost.’”
+The boy went on: “‘We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.’” ([[Articles of Faith 1.3|A of F 1:3]].) And the gentleman was amazed at the knowledge and understanding of a mere boy—he was yet to be a Scout. But he continued and gave the [[Articles of Faith 1.4|fourth Article of Faith]] and said, “‘We believe that the first principles and ordinances of the Gospel are: first, Faith in the Lord Jesus Christ; second, Repentance; third, Baptism by immersion for the remission of sins; fourth, Laying on of hands for the gift of the Holy Ghost.’”
 
 “That is wonderful,” said the gentleman. “I am amazed that you know so well the doctrines of your church. I commend you.”
 
-With a good start and with encouragement, Johnny continued. “‘We believe that a man must be called of God, by prophecy, and by the laying on of hands, by those who are in authority to preach the Gospel and administer in the ordinances thereof.’” ([[Articles of Faith 1.5|A of F 1:5]].)
+With a good start and with encouragement, Johnny continued. “‘We believe that a man must be called of God, by prophecy, and by the laying on of hands, by those who are in authority to preach the Gospel and administer in the ordinances thereof.’” ([[Articles of Faith 1.5|A of F 1:5]].)
 
 “That’s very solid doctrine, my boy,” the gentleman said. “I am curious now to know how they get called of God. I can understand how they would receive the call and be established with the laying on of hands, but I wonder who has the authority to preach the gospel and administer in the ordinances thereof.”
 
@@ -48,7 +48,7 @@ They discussed the matter of calling and sustaining and laying on of hands. Then
 
 The gentleman thought that was very unusual for a boy in these tender years to know what the Church taught, and he said, “Yes, go on.”
 
-So Johnny quoted, “‘We believe in the same organization that existed in the Primitive Church, viz., apostles, prophets, pastors, teachers, evangelists, etc.’” ([[Articles of Faith 1.6|A of F 1:6]].)
+So Johnny quoted, “‘We believe in the same organization that existed in the Primitive Church, viz., apostles, prophets, pastors, teachers, evangelists, etc.’” ([[Articles of Faith 1.6|A of F 1:6]].)
 
 That brought some other discussion. “You mean that your church has apostles such as James and John and Peter and Paul, and prophets such as Moses, Abraham, Isaac, and Daniel, and also evangelists?”
 
@@ -56,15 +56,15 @@ And the boy responded quickly, “Yes, even evangelists. We call them patriarchs
 
 The gentleman came back with these questions: “Do you speak in tongues? Do you believe in revelations and prophecies?”
 
-And the boy brightened up as he quoted, “‘We believe in the gift of tongues, prophecy, revelation, visions, healing, interpretation of tongues, etc.’” ([[Articles of Faith 1.7|A of F 1:7]].)
+And the boy brightened up as he quoted, “‘We believe in the gift of tongues, prophecy, revelation, visions, healing, interpretation of tongues, etc.’” ([[Articles of Faith 1.7|A of F 1:7]].)
 
 The gentleman gasped. “This sounds like you believe in the Bible!”
 
-And the boy repeated again, “We do. ‘We believe the Bible to be the word of God as far as it is translated correctly; we also believe the Book of Mormon to be the word of God.’” ([[Articles of Faith 1.8|A of F 1:8]].)
+And the boy repeated again, “We do. ‘We believe the Bible to be the word of God as far as it is translated correctly; we also believe the Book of Mormon to be the word of God.’” ([[Articles of Faith 1.8|A of F 1:8]].)
 
-The gentleman discerned that we believe both in the scriptures and in revelation. And the boy quoted, “‘We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God.’” ([[Articles of Faith 1.9|A of F 1:9]].) And then he continued, “‘We believe \[also\] in the literal gathering of Israel and in the restoration of the Ten Tribes; that Zion will be built upon this \[the American\] continent; that Christ will reign personally upon the earth; and, that the earth will be renewed and receive its paradisiacal glory.’” ([[Articles of Faith 1.10|A of F 1:10]].)
+The gentleman discerned that we believe both in the scriptures and in revelation. And the boy quoted, “‘We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God.’” ([[Articles of Faith 1.9|A of F 1:9]].) And then he continued, “‘We believe \[also\] in the literal gathering of Israel and in the restoration of the Ten Tribes; that Zion will be built upon this \[the American\] continent; that Christ will reign personally upon the earth; and, that the earth will be renewed and receive its paradisiacal glory.’” ([[Articles of Faith 1.10|A of F 1:10]].)
 
-The gentleman was listening intently. He showed no interest in crossing the aisle back to his own seat. Then Johnny came in again. He said, “‘We claim the privilege of worshiping Almighty God according to the dictates of our own conscience, and allow all men the same privilege, let them worship how, where, or what they may.’” ([[Articles of Faith 1.11|A of F 1:11]].) He then continued, “‘We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.’” ([[Articles of Faith 1.12|A of F 1:12]].)
+The gentleman was listening intently. He showed no interest in crossing the aisle back to his own seat. Then Johnny came in again. He said, “‘We claim the privilege of worshiping Almighty God according to the dictates of our own conscience, and allow all men the same privilege, let them worship how, where, or what they may.’” ([[Articles of Faith 1.11|A of F 1:11]].) He then continued, “‘We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.’” ([[Articles of Faith 1.12|A of F 1:12]].)
 
 And then as a final contribution, the boy repeated the [[Articles of Faith 1.13|thirteenth Article of Faith]]. “‘We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men; indeed, we may say that we follow the admonition of Paul—We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things. If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.’”
 
@@ -118,7 +118,7 @@ And so through Abraham, Isaac, and Jacob, through David finally, the Lord became
 
 “Wherefore, holy brethren, partakers of the holy calling, consider the Apostle and High Priest of our profession, Christ Jesus \[Jesus, a high priest like you are high priests, many of you; he was an apostle like these brethren on the stand are apostles\].
 
-“For this man was counted worthy of more glory than Moses, inasmuch as he who hath builded the house hath more honour than the house. …
+“For this man was counted worthy of more glory than Moses, inasmuch as he who hath builded the house hath more honour than the house. …
 
 “Wherefore I was grieved with that generation \[the Lord said, speaking of the people who were in Egypt and were subject to the bondage of that country.\]—“Wherefore, I was grieved with that generation, and said, They do alway err in their heart; and they have not known my ways.
 
@@ -144,11 +144,11 @@ So Abraham had to leave. He left Chaldea and went north up the river until he ca
 
 Now if I haven’t wearied you with this reading, I should like to read another two or three lines and then close.
 
-“And his voice was unto me \[after the Lord struck down the man who was taking Abraham’s life on the altar.—“His voice came to me and he said\]: … my name is Jehovah, and I have heard thee, and have come down to deliver thee, and to take thee away from thy father’s house, and from all thy kinsfolk, into a strange land which thou knowest not of. …
+“And his voice was unto me \[after the Lord struck down the man who was taking Abraham’s life on the altar.—“His voice came to me and he said\]: … my name is Jehovah, and I have heard thee, and have come down to deliver thee, and to take thee away from thy father’s house, and from all thy kinsfolk, into a strange land which thou knowest not of. …
 
 “As it was with Noah so shall it be with thee; but through thy ministry my name shall be known in the earth forever.” ([[Abraham 1.16|Abr. 1:16, 19]][[Abraham 1.19|]].) And he says, “I will … put upon thee my name.” ([[Abraham 1.18|Abr. 1:18]].) *My name.* The name of Jesus Christ. The priesthood is called the “Holy Priesthood, after the Order of the Son of God.” ([[D&C 107.3|D&C 107:3]].) And then Melchizedek’s name was given to the priesthood so we wouldn’t repeat too often the name of the Son of God. And in connection with that, I frequently think we use the names of Deity a little too much, probably; a little too intimately, I think. There is a good example, that the Lord gave the priesthood the name of the Melchizedek Priesthood to avoid the repetition.
 
-Now, one other thought before I close, and that is this: “I shall endeavor, hereafter,” Abraham said, “to delineate the chronology running back from myself to the beginning of the creation, for the records have come into my hands, which I hold unto this present time \[and this is very important in connection with some of the other work we have considered during this conference\]. …
+Now, one other thought before I close, and that is this: “I shall endeavor, hereafter,” Abraham said, “to delineate the chronology running back from myself to the beginning of the creation, for the records have come into my hands, which I hold unto this present time \[and this is very important in connection with some of the other work we have considered during this conference\]. …
 
 “But the records of the fathers, even the patriarchs, concerning the right of Priesthood, the Lord my God preserved in mine own hands; therefore a knowledge of the beginning of the creation, and also of the planets, and of the stars, as they were made known unto the fathers, have I kept even unto this day, and I shall endeavor to write some of these things upon this record, for the benefit of my posterity that shall come after me.” ([[Abraham 1.28|Abr. 1:28, 31]][[Abraham 1.31|]].)
 
@@ -159,6 +159,4 @@ Now this comes from the doctrines we possess. The Lord has said, “I am the Alm
 
 
 
-
-
-#Articles_Of_Faith #Priesthood
+#ArticlesOfFaith #Priesthood

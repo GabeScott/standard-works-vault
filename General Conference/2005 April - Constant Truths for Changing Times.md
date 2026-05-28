@@ -12,7 +12,7 @@ My dear brothers and sisters, both within my view and assembled throughout the w
 
 I begin by expressing commendation to all of you. In this challenging world, the youth of the Church are the very best ever. The faith, the service, and the actions of our members are praiseworthy. We are a prayerful and faith-filled people, ever striving to be decent and honest. We take care of each other. We try to show love to our neighbors.
 
-However, lest we become complacent, may I quote from 2 Nephi in the Book of Mormon:
+However, lest we become complacent, may I quote from 2 Nephi in the Book of Mormon:
 
 “At that day shall \[the devil\] … lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls.”[^1]
 
@@ -30,7 +30,7 @@ I like this thought: “Your mind is a cupboard, and you stock the shelves.” L
 
 Next, I address the subject of debt. This is a day of borrowing, a day when multiple credit card offers arrive in our mailboxes each week. They generally offer a very low rate of interest which may apply for a short period of time; but what one usually doesn’t realize is that after that period has expired, the rates increase dramatically. I share with you a statement made by President J. Reuben Clark Jr., who many years ago was a member of the First Presidency. Its truth is timeless. Said he:
 
-“It is a rule of our financial and economic life in all the world that interest is to be paid on borrowed money. …
+“It is a rule of our financial and economic life in all the world that interest is to be paid on borrowed money. …
 
 “Interest never sleeps nor sickens nor dies; it never goes to the hospital; it works on Sundays and holidays; it never takes a vacation; it never visits nor travels; it takes no pleasure; it is never laid off work nor discharged from employment; it never works on reduced hours. … Once in debt, interest is your companion every minute of the day and night; you cannot shun it or slip away from it; you cannot dismiss it; it yields neither to entreaties, demands, or orders; and whenever you get in its way or cross its course or fail to meet its demands, it crushes you.”[^4]
 
@@ -105,7 +105,7 @@ Now is the time. This is the place. May we follow Him, I pray, in the name of Je
 
 
 
-[^1]: [[2 Nephi 28.20|2 Nephi 28:20–21]][[2 Nephi 28.21|]].
+[^1]: [[2 Nephi 28.20|2 Nephi 28:20–21]][[2 Nephi 28.21|]].
 
 [^2]: First Presidency letter, Feb. 11, 1999; see *Liahona,* Dec. 1999, 1; *Ensign,* June 1999, 80.
 
@@ -119,12 +119,10 @@ Now is the time. This is the place. May we follow Him, I pray, in the name of Je
 
 [^7]: “Behold Your Little Ones,” *Liahona,* Mar. 2001, 2; *Ensign,* June 2001, 2.
 
-[^8]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^8]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^9]: [[Luke 2.52|Luke 2:52]].
 
 [^10]: [[Acts 10.38|Acts 10:38]].
 
-
-
-#Children #Family_History #Family_Home_Evening #Financial_Management #Truth
+#Children #FamilyHomeEvening #FamilyHistory #FinancialManagement #Truth

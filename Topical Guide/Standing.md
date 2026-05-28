@@ -1,6 +1,5 @@
 # Standing
 
-
 on the same *standing* with their brethren, [[Alma 13.5|Alma 13:5]].
 
 regular members and in good *standing*, [[D&C 20.84|D&C 20:84]].

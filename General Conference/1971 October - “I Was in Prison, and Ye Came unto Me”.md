@@ -1,6 +1,6 @@
 # “I Was in Prison, and Ye Came unto Me”
 
-By Bishop Victor L. Brown - *Of the Presiding Bishopric*
+By Bishop Victor L. Brown - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -47,6 +47,4 @@ This freedom can only be found by accepting the divine plan and keeping the comm
 
 
 
-
-
-#Freedom #Repentance #Social_Services
+#Freedom #Repentance #SocialServices

@@ -65,11 +65,11 @@ Obtain His forgiveness by repenting *now.* In the name of Jesus Christ, amen.
 
 [^1]: See [[Mosiah 5.10|Mosiah 5:10–13]][[Mosiah 5.11|]][[Mosiah 5.12|]][[Mosiah 5.13|]].
 
-[^2]: See [[2 Nephi 2.10|2 Ne. 2:10]].
+[^2]: See [[2 Nephi 2.10|2 Ne. 2:10]].
 
-[^3]: See [[2 Nephi 9.7|2 Ne. 9:7–9]][[2 Nephi 9.8|]][[2 Nephi 9.9|]].
+[^3]: See [[2 Nephi 9.7|2 Ne. 9:7–9]][[2 Nephi 9.8|]][[2 Nephi 9.9|]].
 
-[^4]: See [[2 Nephi 2.5|2 Ne. 2:5–8]][[2 Nephi 2.6|]][[2 Nephi 2.7|]][[2 Nephi 2.8|]].
+[^4]: See [[2 Nephi 2.5|2 Ne. 2:5–8]][[2 Nephi 2.6|]][[2 Nephi 2.7|]][[2 Nephi 2.8|]].
 
 [^5]: See [[Alma 42.15|Alma 42:15]].
 
@@ -83,7 +83,7 @@ Obtain His forgiveness by repenting *now.* In the name of Jesus Christ, amen.
 
 [^10]: [[D&C 82.7|D&C 82:7]].
 
-[^11]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 148.
+[^11]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 148.
 
 [^12]: [[Proverbs 28.13|Prov. 28:13]].
 
@@ -91,16 +91,14 @@ Obtain His forgiveness by repenting *now.* In the name of Jesus Christ, amen.
 
 [^14]: [[Alma 38.8|Alma 38:8]].
 
-[^15]: See [[Alma 11.40|Alma 11:40]]; [[2 Nephi 9.22|2 Ne. 9:22–24]][[2 Nephi 9.23|]][[2 Nephi 9.24|]].
+[^15]: See [[Alma 11.40|Alma 11:40]]; [[2 Nephi 9.22|2 Ne. 9:22–24]][[2 Nephi 9.23|]][[2 Nephi 9.24|]].
 
 [^16]: [[D&C 58.42|D&C 58:42]].
 
-[^17]: *The Miracle of Forgiveness* (Salt Lake City: Bookcraft, 1969), p. 353.
+[^17]: *The Miracle of Forgiveness* (Salt Lake City: Bookcraft, 1969), p. 353.
 
-[^18]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), p. 85.
+[^18]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), p. 85.
 
 [^19]: [[Helaman 3.35|Hel. 3:35]].
 
-
-
-#Agency #Atonement #Forgiveness #Healing #Jesus_Christ #Mercy #Morality #Obedience #Repentance #Sin #Temptation
+#Agency #Atonement #Forgiveness #Healing #JesusChrist #Mercy #Morality #Obedience #Repentance #Sin #Temptation

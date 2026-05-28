@@ -1,6 +1,6 @@
 # “Thy Will Be Done, O Lord”
 
-By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -10,7 +10,7 @@ My dear brothers and sisters, I come before you with a humble heart and rejoice 
 
 I am grateful for the blessings of this day. I am thankful for my knowledge and testimony that God lives and that through the atoning sacrifice of our Lord and Savior Jesus Christ, we may enjoy eternal life as we are obedient to the laws and ordinances of the gospel. We are blessed to be living in this dispensation when the gospel, the Church, and the priesthood, which is the power to act in the name of God, have been restored through the instrumentality of the Prophet Joseph Smith, one of the great leaders of all time.
 
-And today, in a world where there are millions of God’s children who are frustrated and discouraged and are looking for an explanation of life, we are blessed to be led and guided by another prophet, our beloved President Harold B. Lee. May the Lord bless and sustain him.
+And today, in a world where there are millions of God’s children who are frustrated and discouraged and are looking for an explanation of life, we are blessed to be led and guided by another prophet, our beloved President Harold B. Lee. May the Lord bless and sustain him.
 
 In considering the purpose of life, the Prophet Joseph Smith said: “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God.” (*Documentary History of the Church,* vol. 5, pp. 134–35.)
 
@@ -38,13 +38,13 @@ Live so that the Holy Ghost will guide and direct you.
 
 Seek to grow in knowledge, wisdom, and understanding by continuous study and contemplation of the words of Christ and those whom God has appointed to teach and instruct us.
 
-And pray always, remembering the promise given to us: “Draw near unto me and I will draw near unto you. …” ([[D&C 88.63|D&C 88:63]].)
+And pray always, remembering the promise given to us: “Draw near unto me and I will draw near unto you. …” ([[D&C 88.63|D&C 88:63]].)
 
 As we live in this type of environment, we will know God’s will and have the desire and courage to conform. This doctrine or philosophy requires one to deeply love the Lord and have great faith in his judgment.
 
 Let me illustrate:
 
-In the prayer offered by the Prophet Joseph Smith at the dedication of the Kirtland Temple, which prayer was given to him by revelation, he said, “… Help thy servants to say, with thy grace assisting them: Thy will be done, O Lord, and not ours.” ([[D&C 109.44|D&C 109:44]].)
+In the prayer offered by the Prophet Joseph Smith at the dedication of the Kirtland Temple, which prayer was given to him by revelation, he said, “… Help thy servants to say, with thy grace assisting them: Thy will be done, O Lord, and not ours.” ([[D&C 109.44|D&C 109:44]].)
 
 In the fall of 1834 the Prophet was busily engaged in preparing for the school of the elders and wrote in his diary, “No month ever found me more busily engaged than November; but as my life consisted of activity and unyielding exertions, I made this my rule: *When the Lord commands, do it.*” (*DHC,* vol. 2, p. 170.)
 
@@ -68,7 +68,7 @@ After prayerful consideration I declined the appointment, as I felt it was the w
 
 I will be eternally grateful for the call I received, because it was in the mission field that I learned to love the gospel, learned the power of faith, and felt the happiness and peace that come when one is responsive to the whisperings of the Holy Spirit. The pattern I set in the mission field has been a guide to me throughout my life.
 
-My mission president, Brigham H. Roberts, in his letter of release to me, promised me that I would “find new beginnings from time to time … even more missions.” As I left the mission field I prayed fervently and at length that this promise might be fulfilled. Twenty-four years later it was partially fulfilled when I was called to be the stake mission president of the East Mill Creek Stake. At that time Elder Gordon B. Hinckley was president of that stake, and also at that time President Harold B. Lee gave me a beautiful blessing as he set me apart.
+My mission president, Brigham H. Roberts, in his letter of release to me, promised me that I would “find new beginnings from time to time … even more missions.” As I left the mission field I prayed fervently and at length that this promise might be fulfilled. Twenty-four years later it was partially fulfilled when I was called to be the stake mission president of the East Mill Creek Stake. At that time Elder Gordon B. Hinckley was president of that stake, and also at that time President Harold B. Lee gave me a beautiful blessing as he set me apart.
 
 Four years later it was further realized when I was called to preside over the Northwestern States Mission. And one of the choicest and most inspiring experiences of our lives was when Sister Richards and I spent approximately ten days with President and Sister Lee in touring our mission.
 
@@ -78,7 +78,7 @@ In my opinion, the strength and vitality of the Church is due, to a large extent
 
 In 1959 when I received my call to preside over the Northwestern States Mission, it came at a most inconvenient time. But both Sister Richards and I felt that if the Lord wanted us to go, then we should go.
 
-Many of our friends, Church members and nonmembers, indicated that they felt we were making a real sacrifice. We felt otherwise, and as President McKay set me apart, he promised me that it would be the happiest time of our lives. And it was, because our entire time was spent in serving our fellowmen. And we remembered the words of King Benjamin, “… when ye are in the service of your fellow beings ye are only in the service of your God.” ([[Mosiah 2.17|Mosiah 2:17]].)
+Many of our friends, Church members and nonmembers, indicated that they felt we were making a real sacrifice. We felt otherwise, and as President McKay set me apart, he promised me that it would be the happiest time of our lives. And it was, because our entire time was spent in serving our fellowmen. And we remembered the words of King Benjamin, “… when ye are in the service of your fellow beings ye are only in the service of your God.” ([[Mosiah 2.17|Mosiah 2:17]].)
 
 Why should we consider it a sacrifice to enjoy such happiness, growth, and development?
 
@@ -105,8 +105,6 @@ In conclusion, let me again repeat the words of the Prophet Joseph Smith: “Hap
 By loving the Lord, keeping his commandments, and serving our fellow beings, we are doing his will, and this will bring us great happiness and eternal life.
 
 I bear you this witness in the name of Jesus Christ. Amen.
-
-
 
 
 

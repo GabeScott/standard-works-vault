@@ -30,7 +30,7 @@ Alma explained to his followers that baptism requires that we serve others, that
 
 As we progress and become more like the Savior, we can strengthen every group with whom we associate, including families and friends. The Lord places us in these communities of Saints where we can learn and apply gospel principles to our everyday lives. These groups are at the same time a school, a proving ground, and a laboratory where we both learn and do as we practice living the gospel.
 
-Writing to the Corinthians, Paul pleaded for unity in the Church and for members to serve one another, “that there should be no schism in the body; but that the members should have the same care one for another. And whether one member suffer, all the members suffer … ; or one member be honoured, all the members rejoice.”[^16] We are only as strong as each member of the body, or church, of Christ. We should do all we can to help every member realize his or her divine potential as “heirs of God, and joint-heirs with Christ.”[^17]
+Writing to the Corinthians, Paul pleaded for unity in the Church and for members to serve one another, “that there should be no schism in the body; but that the members should have the same care one for another. And whether one member suffer, all the members suffer … ; or one member be honoured, all the members rejoice.”[^16] We are only as strong as each member of the body, or church, of Christ. We should do all we can to help every member realize his or her divine potential as “heirs of God, and joint-heirs with Christ.”[^17]
 
 In giving our service to others, we need to remember President Hinckley’s counsel to extend the hand of fellowship and to share our love with the hundreds of thousands who join the Church as converts each year. The greatest tool the Lord has to welcome new converts warmly and “keep them in the right way”[^18] is the love each of us extends by taking the time to introduce ourselves to new members, learn their names, listen to them, and learn something about them.
 
@@ -91,11 +91,11 @@ The Savior lives and loves each of us. This I know with all my heart. We are chi
 
 [^2]: [[Abraham 3.25|Abr. 3:25]].
 
-[^3]: [[1 Nephi 10.19|1 Ne. 10:19]].
+[^3]: [[1 Nephi 10.19|1 Ne. 10:19]].
 
 [^4]: [[Moroni 7.22|Moro. 7:22]].
 
-[^5]: [[2 Nephi 2.25|2 Ne. 2:25]].
+[^5]: [[2 Nephi 2.25|2 Ne. 2:25]].
 
 [^6]: *History of the Church,* 5:134–35.
 
@@ -105,11 +105,11 @@ The Savior lives and loves each of us. This I know with all my heart. We are chi
 
 [^9]: See [[D&C 14.7|D&C 14:7]].
 
-[^10]: [[Matthew 5.48|Matt. 5:48]]; see also [[3 Nephi 12.48|3 Ne. 12:48]].
+[^10]: [[Matthew 5.48|Matt. 5:48]]; see also [[3 Nephi 12.48|3 Ne. 12:48]].
 
 [^11]: [[Matthew 5.48|Matt. 5:48]], footnote *b.*
 
-[^12]: [[3 Nephi 27.21|3 Ne. 27:21]].
+[^12]: [[3 Nephi 27.21|3 Ne. 27:21]].
 
 [^13]: [[Moroni 10.32|Moro. 10:32]].
 
@@ -117,7 +117,7 @@ The Savior lives and loves each of us. This I know with all my heart. We are chi
 
 [^15]: [[Moroni 7.47|Moro. 7:47]].
 
-[^16]: [[1 Corinthians 12.25|1 Cor. 12:25–26]][[1 Corinthians 12.26|]]; see also [[1 Corinthians 12.12|vv. 12–27]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]].
+[^16]: [[1 Corinthians 12.25|1 Cor. 12:25–26]][[1 Corinthians 12.26|]]; see also [[1 Corinthians 12.12|vv. 12–27]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]].
 
 [^17]: [[Romans 8.17|Rom. 8:17]].
 
@@ -141,10 +141,8 @@ The Savior lives and loves each of us. This I know with all my heart. We are chi
 
 [^27]: [[James 1.8|James 1:8]].
 
-[^28]: Quoted by Hans B. Ringger, in Conference Report, Apr. 1990, 32; or *Ensign,* May 1990, 26.
+[^28]: Quoted by Hans B. Ringger, in Conference Report, Apr. 1990, [[1990 April - “Choose You This Day”.md|32]]; or *Ensign,* May 1990, 26.
 
-[^29]: [[John 7.17|John 7:17]]; see also [[John 7.14|vv. 14–16]][[John 7.15|]][[John 7.16|]].
+[^29]: [[John 7.17|John 7:17]]; see also [[John 7.14|vv. 14–16]][[John 7.15|]][[John 7.16|]].
 
-
-
-#Agency #Atonement #Conversion #Death #Faith #Fellowshipping #Jesus_Christ #Plan_Of_Salvation #Preparation #Repentance
+#Agency #Atonement #Conversion #Death #Faith #Fellowshipping #JesusChrist #PlanOfSalvation #Preparation #Repentance

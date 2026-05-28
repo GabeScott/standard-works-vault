@@ -78,7 +78,7 @@ Even those who think their spouse is entirely to blame should not act hastily. O
 
 The power of hope expressed in these examples is sometimes rewarded with repentance and reformation, but sometimes it is not. Personal circumstances vary greatly. We cannot control and we are not responsible for the choices of others, even when they impact us so painfully. I am sure the Lord loves and blesses husbands and wives who lovingly try to help spouses struggling with such deep problems as pornography or other addictive behavior or with the long-term consequences of childhood abuse.
 
-Whatever the outcome and no matter how difficult your experiences, you have the promise that you will not be denied the blessings of eternal family relationships if you love the Lord, keep His commandments, and just do the best you can. When young Jacob “suffered afflictions and much sorrow” from the actions of other family members, Father Lehi assured him, “Thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.1|2 Nephi 2:1–2]][[2 Nephi 2.2|]]). Similarly, the Apostle Paul assured us that “all things work together for good to them that love God” ([[Romans 8.28|Romans 8:28]]).
+Whatever the outcome and no matter how difficult your experiences, you have the promise that you will not be denied the blessings of eternal family relationships if you love the Lord, keep His commandments, and just do the best you can. When young Jacob “suffered afflictions and much sorrow” from the actions of other family members, Father Lehi assured him, “Thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.1|2 Nephi 2:1–2]][[2 Nephi 2.2|]]). Similarly, the Apostle Paul assured us that “all things work together for good to them that love God” ([[Romans 8.28|Romans 8:28]]).
 
 ## IV.
 
@@ -106,7 +106,5 @@ From personal experience, I testify to the sweetness of the marriage and family 
 [^7]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 194.
 
 [^8]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
-
-
 
 #Divorce #Healing #Marriage

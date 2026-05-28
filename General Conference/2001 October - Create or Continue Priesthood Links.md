@@ -4,7 +4,7 @@ By Elder Keith K. Hilbig - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
 
->*When we serve righteously … , we are strengthening our priesthood link and connecting it ever more securely to those who have preceded and who will follow us.*
+>*When we serve righteously … , we are strengthening our priesthood link and connecting it ever more securely to those who have preceded and who will follow us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/10/create-or-continue-priesthood-links?lang=eng)
 
@@ -41,8 +41,6 @@ President J. Reuben Clark Jr. wisely taught at the April 1951 general conference
 When we serve righteously with all our heart, whatever the responsibility apportioned to us, we are strengthening our priesthood link and connecting it ever more securely to those who have preceded and who will follow us.
 
 I bear solemn testimony of the Savior’s divinity and atoning sacrifice and of the restoration of His priesthood which we are privileged to bear—and pray that every son and father participating in this meeting will determine this night to serve the Lord by faithfully honoring the priesthood and firmly connecting his personal link to the priesthood chain which will bind him, his forefathers, and his posterity together throughout eternity. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -2,7 +2,7 @@
 
 ([[D&C 121.29|Doctrine and Covenants 121:29]])
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -95,7 +95,7 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 
 
-[^1]: [[3 Nephi 15.9|3 Nephi 15:9]].
+[^1]: [[3 Nephi 15.9|3 Nephi 15:9]].
 
 [^2]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
@@ -117,11 +117,11 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 [^11]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
-[^12]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 27.26|Mosiah 27:26]].
+[^12]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 27.26|Mosiah 27:26]].
 
-[^13]: [[2 Nephi 2.8|2 Nephi 2:8]].
+[^13]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
-[^14]: Topics and Questions, “[Spiritual Gifts](https://churchofjesuschrist.org/study/manual/gospel-topics/spiritual-gifts?lang=eng),” Gospel Library.
+[^14]: Topics and Questions, “[Spiritual Gifts](https://www.churchofjesuschrist.org/study/manual/gospel-topics/spiritual-gifts?lang=eng),” Gospel Library.
 
 [^15]: [[Moroni 7.47|Moroni 7:47]].
 
@@ -141,7 +141,7 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 [^23]: [[Moroni 7.48|Moroni 7:48]].
 
-[^24]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
+[^24]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
 
 [^25]: [[D&C 93.21|Doctrine and Covenants 93:21]].
 
@@ -157,15 +157,16 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 [^31]: [[Matthew 10.22|Matthew 10:22]]; emphasis added.
 
-[^32]: [[2 Nephi 31.15|2 Nephi 31:15]]; emphasis added.
+[^32]: [[2 Nephi 31.15|2 Nephi 31:15]]; emphasis added.
 
 [^33]: [[Alma 32.13|Alma 32:13]]; emphasis added.
 
-[^34]: See [[Alma 26.11|Alma 26:11]]; [[Alma 27.18|27:18]]; [[3 Nephi 27.30|3 Nephi 27:30]].
+[^34]: See [[Alma 26.11|Alma 26:11]]; [[Alma 27.18|27:18]]; [[3 Nephi 27.30|3 Nephi 27:30]].
 
-[^35]: [[3 Nephi 9.22|3 Nephi 9:22]].
+[^35]: [[3 Nephi 9.22|3 Nephi 9:22]].
 
 [^36]: See [[Mosiah 5.2|Mosiah 5:2]].
 
 [^37]: [[D&C 121.29|Doctrine and Covenants 121:29]]; emphasis added.
 
+#Charity #Discipleship #Endurance #Grace #Love #SpiritualGifts

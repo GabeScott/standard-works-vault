@@ -1,13 +1,12 @@
 # Fool
 
-
 *See also* [[Folly.md|Folly]]; [[Foolish.md|Foolish]]; [[Foolishness.md|Foolishness]]
 
-said Saul ... I have played the *fool*, [[1 Samuel 26.21|1 Samuel 26:21]].
+said Saul … I have played the *fool*, [[1 Samuel 26.21|1 Samuel 26:21]].
 
 *fool* hath said in his heart, There is no God, [[Psalms 14.1|Psalms 14:1]] ([[Psalms 53.1|Psalms 53:1]]).
 
-*Fools* because of their transgression ... are afflicted, [[Psalms 107.17|Psalms 107:17]].
+*Fools* because of their transgression … are afflicted, [[Psalms 107.17|Psalms 107:17]].
 
 *fools* despise wisdom and instruction, [[Proverbs 1.7|Proverbs 1:7]].
 
@@ -23,7 +22,7 @@ folly of *fools* is deceit, [[Proverbs 14.8|Proverbs 14:8]].
 
 *Fools* make a mock at sin, [[Proverbs 14.9|Proverbs 14:9]].
 
-*fool* despiseth his father's instruction, [[Proverbs 15.5|Proverbs 15:5]].
+*fool* despiseth his father’s instruction, [[Proverbs 15.5|Proverbs 15:5]].
 
 He that begetteth a *fool* doeth it to his sorrow, [[Proverbs 17.21|Proverbs 17:21]].
 
@@ -31,7 +30,7 @@ He that begetteth a *fool* doeth it to his sorrow, [[Proverbs 17.21|Proverbs 17:
 
 *fool* hath no delight in understanding, [[Proverbs 18.2|Proverbs 18:2]].
 
-*fool's* lips enter into contention, [[Proverbs 18.6|Proverbs 18:6]].
+*fool’s* lips enter into contention, [[Proverbs 18.6|Proverbs 18:6]].
 
 every *fool* will be meddling, [[Proverbs 20.3|Proverbs 20:3]].
 
@@ -59,17 +58,17 @@ Ye *fools* and blind: for whether is greater, [[Matthew 23.17|Matthew 23:17]].
 
 O *fools*, and slow of heart to believe, [[Luke 24.25|Luke 24:25]].
 
-Professing ... to be wise, they became *fools*, [[Romans 1.22|Romans 1:22]].
+Professing … to be wise, they became *fools*, [[Romans 1.22|Romans 1:22]].
 
 let him become a *fool*, that he may be wise, [[1 Corinthians 3.18|1 Corinthians 3:18]].
 
-We are *fools* for Christ's sake, [[1 Corinthians 4.10|1 Corinthians 4:10]].
+We are *fools* for Christ’s sake, [[1 Corinthians 4.10|1 Corinthians 4:10]].
 
 I would desire to glory, I shall not be a *fool*, [[2 Corinthians 12.6|2 Corinthians 12:6]].
 
 ye walk circumspectly, not as *fools*, [[Ephesians 5.15|Ephesians 5:15]].
 
-wise ... consider themselves *fools*, [[2 Nephi 9.42|2 Nephi 9:42]].
+wise … consider themselves *fools*, [[2 Nephi 9.42|2 Nephi 9:42]].
 
 ye *fools*, ye uncircumcised of heart, [[Helaman 9.21|Helaman 9:21]].
 

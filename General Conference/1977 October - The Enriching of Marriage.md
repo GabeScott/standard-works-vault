@@ -1,6 +1,6 @@
 # The Enriching of Marriage
 
-By Elder James E. Faust - *Of the Presidency of the First Quorum of the Seventy*
+By Elder James E. Faust - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -73,8 +73,6 @@ In the enriching of marriage the big things are the little things. It is a const
 The Savior has said, “Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.” ([[Revelation 3.20|Rev. 3:20]].)
 
 May the presence of God be found enriching and blessing all marriages and homes, especially those of His Saints, as part of His eternal plan, I pray humbly in the sacred name of Jesus Christ. Amen.
-
-
 
 
 

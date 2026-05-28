@@ -1,6 +1,6 @@
 # Drink of the Pure Water
 
-By President Loren C. Dunn - *Of the First Council of the Seventy*
+By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -30,7 +30,7 @@ Speaking of the Savior, the prophet Alma says:
 
 “Yea, he saith: Come unto me and ye shall partake of the fruit of the tree of life; yea, ye shall eat and drink of the bread and the waters of life freely;
 
-“Behold, I say unto you, that the good shepherd doth call you; yea, and in his own name he doth call you, which is the name of Christ. …” ([[Alma 5.33|Alma 5:33–34, 38]][[Alma 5.34|]][[Alma 5.38|]].)
+“Behold, I say unto you, that the good shepherd doth call you; yea, and in his own name he doth call you, which is the name of Christ. …” ([[Alma 5.33|Alma 5:33–34, 38]][[Alma 5.34|]][[Alma 5.38|]].)
 
 And after Alma teaches the people those things relative to the gospel of Jesus Christ and what they can do in order to nourish their souls, and find peace, and prepare for eternal life, he then says:
 
@@ -90,15 +90,13 @@ Anticipating what might happen, I said, “Now, if you feel disposed to tell you
 
 Of course, what was really hoped for was the experience that every member has a right to enjoy and everyone else has the right to receive, and that is the knowledge of a personal testimony. I think Brigham Young described it best when he said:
 
-“There is no other experience known to mortal man that can be compared with the testimony or witness of the Holy Ghost. It is as powerful as a two-edged sword and burns in the breast of man like a consuming fire. It destroys fear and doubt, leaving in their stead absolute unqualified, and incontrovertible knowledge that a principle or thing is true. …
+“There is no other experience known to mortal man that can be compared with the testimony or witness of the Holy Ghost. It is as powerful as a two-edged sword and burns in the breast of man like a consuming fire. It destroys fear and doubt, leaving in their stead absolute unqualified, and incontrovertible knowledge that a principle or thing is true. …
 
 “This same testimony has sustained faithful saints to the present day and will be a lamp to their path forever. The effect of this testimony reaches above and beyond all physical or earthly things and makes relationship with God the Father a literal, pulsing fact. Every fiber of both body and spirit respond to the witness of that testimony and the soul knows and lives the truth.”
 
 And so to those who have tasted the water at many wells only to find that the unquenching thirst of the soul drives them on in search of that which will bring peace and nourishment to the heart—to you, whoever you are, member or nonmember—will you come and drink from this well, and taste and experiment and see if you have not found the waters of life where you can drink to your soul and thirst no more but be full with the joy of the true knowledge of Jesus Christ and his teachings and the purpose of your own life?
 
 And to this invitation I bear you my witness that I know God lives. I know he lives and that Jesus Christ is our Redeemer and his Son. Joseph Smith saw what he said he saw, and we have a prophet of God sitting with us, presiding today. I bear you that witness in the name of Jesus Christ. Amen.
-
-
 
 
 

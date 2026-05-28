@@ -1,6 +1,6 @@
 # Do Justly, Love Mercy, and Walk Humbly with God
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -59,7 +59,7 @@ When you do these things, you will follow the covenant path and qualify to “dw
 
 
 
-[^1]: See Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67–69.
+[^1]: See Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67–69.
 
 [^2]: [[Mosiah 2.41|Mosiah 2:41]].
 
@@ -67,27 +67,27 @@ When you do these things, you will follow the covenant path and qualify to “dw
 
 [^4]: [[Micah 6.7|Micah 6:7]].
 
-[^5]: See [[Ephesians 2.8|Ephesians 2:8]]; [[2 Nephi 31.19|2 Nephi 31:19]]; [[Alma 22.14|Alma 22:14]]; [[Alma 42.14|42:14]]; [[3 Nephi 18.32|3 Nephi 18:32]]; [[Moroni 6.4|Moroni 6:4]]; [[D&C 3.20|Doctrine and Covenants 3:20]].
+[^5]: See [[Ephesians 2.8|Ephesians 2:8]]; [[2 Nephi 31.19|2 Nephi 31:19]]; [[Alma 22.14|Alma 22:14]]; [[Alma 42.14|42:14]]; [[3 Nephi 18.32|3 Nephi 18:32]]; [[Moroni 6.4|Moroni 6:4]]; [[D&C 3.20|Doctrine and Covenants 3:20]].
 
-[^6]: See [[3 Nephi 27.19|3 Nephi 27:19]].
+[^6]: See [[3 Nephi 27.19|3 Nephi 27:19]].
 
 [^7]: See [[Alma 41.8|Alma 41:8]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^8]: See [[1 Corinthians 15.22|1 Corinthians 15:22]]; [[Alma 11.42|Alma 11:42–45]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]].
+[^8]: See [[1 Corinthians 15.22|1 Corinthians 15:22]]; [[Alma 11.42|Alma 11:42–45]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]].
 
 [^9]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
 [^10]: [[Micah 6.8|Micah 6:8]]; see similar admonitions in [[Alma 41.14|Alma 41:14]]; [[D&C 11.12|Doctrine and Covenants 11:12]]; [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-[^11]: See [[Matthew 22.35|Matthew 22:35–40]][[Matthew 22.36|]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]. For a discussion of the relationship between the first and second great commandments, see Russell M. Nelson, “[[1994 April - “Teach Us Tolerance and Love”.md|Teach Us Tolerance and Love]],” *Ensign,* May 1994, 69–71; Dallin H. Oaks, “[[2019 October - Two Great Commandments.md|Two Great Commandments]],” *Ensign* or *Liahona,* Nov. 2019, 73–76.
+[^11]: See [[Matthew 22.35|Matthew 22:35–40]][[Matthew 22.36|]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]. For a discussion of the relationship between the first and second great commandments, see Russell M. Nelson, “[[1994 April - “Teach Us Tolerance and Love”.md|Teach Us Tolerance and Love]],” *Ensign,* May 1994, 69–71; Dallin H. Oaks, “[[2019 October - Two Great Commandments.md|Two Great Commandments]],” *Ensign* or *Liahona,* Nov. 2019, 73–76.
 
 [^12]: See [[Ezekiel 18.8|Ezekiel 18:8–9]][[Ezekiel 18.9|]].
 
-[^13]: [[3 Nephi 9.19|3 Nephi 9:19–20]][[3 Nephi 9.20|]]; see also [[D&C 59.8|Doctrine and Covenants 59:8]].
+[^13]: [[3 Nephi 9.19|3 Nephi 9:19–20]][[3 Nephi 9.20|]]; see also [[D&C 59.8|Doctrine and Covenants 59:8]].
 
-[^14]: See [[2 Nephi 32.5|2 Nephi 32:5]].
+[^14]: See [[2 Nephi 32.5|2 Nephi 32:5]].
 
-[^15]: See [[2 Nephi 2.7|2 Nephi 2:7]].
+[^15]: See [[2 Nephi 2.7|2 Nephi 2:7]].
 
 [^16]: [[Micah 7.18|Micah 7:18–19]][[Micah 7.19|]].
 
@@ -97,11 +97,11 @@ When you do these things, you will follow the covenant path and qualify to “dw
 
 [^19]: The names for Mr. Jackson, Dr. Cohen, and Dr. Jones are not their own.
 
-[^20]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^20]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^21]: [[Mosiah 23.7|Mosiah 23:7]].
 
-[^22]: See Joseph Smith, “[History, 1838–1856, volume D-1 [1 August 1842–1 July 1843]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-d-1-1-august-1842-1-july-1843/102),” 1459, josephsmithpapers.org.
+[^22]: See Joseph Smith, “[History, 1838–1856, volume D-1 \[1 August 1842–1 July 1843\]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-d-1-1-august-1842-1-july-1843/102),” 1459, josephsmithpapers.org.
 
 [^23]: See [[Luke 15.1|Luke 15:1–2]][[Luke 15.2|]].
 
@@ -111,7 +111,7 @@ When you do these things, you will follow the covenant path and qualify to “dw
 
 [^26]: [[D&C 20.32|Doctrine and Covenants 20:32–34]][[D&C 20.33|]][[D&C 20.34|]].
 
-[^27]: See Boyd K. Packer, “[[2015 April - The Plan of Happiness.md|The Plan of Happiness]],” *Ensign* or *Liahona,* May 2015, 28. President Packer said: “When the repentance process is complete, no scars remain because of the Atonement of Jesus Christ. … The Atonement … can wash clean every stain no matter how difficult or how long or how many times repeated. The Atonement can put you free again to move forward, cleanly and worthily, to pursue that path that you have chosen in life.”
+[^27]: See Boyd K. Packer, “[[2015 April - The Plan of Happiness.md|The Plan of Happiness]],” *Ensign* or *Liahona,* May 2015, 28. President Packer said: “When the repentance process is complete, no scars remain because of the Atonement of Jesus Christ. … The Atonement … can wash clean every stain no matter how difficult or how long or how many times repeated. The Atonement can put you free again to move forward, cleanly and worthily, to pursue that path that you have chosen in life.”
 
 [^28]: *Lectures on Faith* (1985), 38.
 
@@ -120,7 +120,5 @@ When you do these things, you will follow the covenant path and qualify to “dw
 [^30]: See [[Alma 19.6|Alma 19:6]].
 
 [^31]: See [[D&C 11.13|Doctrine and Covenants 11:13]].
-
-
 
 #Humility #Mercy #Spirituality

@@ -1,6 +1,6 @@
 # Be a Friend, a Servant, a Son of the Savior
 
-By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
+By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 This is The Church of Jesus Christ of Latter-day Saints. We are Christians. We know additional details about the Savior’s role in the premortal existence before we came here: we have new information about His part in the creation of the world under the direction of our Father; we can identify Him as Jehovah of the Old Testament, communicating with the prophets of Israel. We have the Book of Mormon, which is another testament of Jesus Christ, which has great illuminating doctrines and information about the Savior. Our modern prophets have given revealed explanations, doctrines, light, and knowledge on the Christ as the Redeemer to whom we look for the remission of our sins. We have a wealth of information of tremendous value to all Christian churches. We do not diminish or tear down the faith others have in Christ, but seek only to share with them our additional knowledge of the Lamb, the Shepherd, the Holy One of Israel (see [[Psalms 71.22|Ps. 71:22]])—for their benefit and salvation.
 
-Like Nephi of old, “we believe in Christ, we … look forward with steadfastness unto Christ. … We are made alive in Christ because of our faith. … We talk of Christ, we rejoice in Christ, we preach of Christ. … We … look forward unto that life which is in Christ.” ([[2 Nephi 25.24|2 Ne. 25:24–27]][[2 Nephi 25.25|]][[2 Nephi 25.26|]][[2 Nephi 25.27|]].) Can anyone doubt that we are Christians in the full sense of the word?
+Like Nephi of old, “we believe in Christ, we … look forward with steadfastness unto Christ. … We are made alive in Christ because of our faith. … We talk of Christ, we rejoice in Christ, we preach of Christ. … We … look forward unto that life which is in Christ.” ([[2 Nephi 25.24|2 Ne. 25:24–27]][[2 Nephi 25.25|]][[2 Nephi 25.26|]][[2 Nephi 25.27|]].) Can anyone doubt that we are Christians in the full sense of the word?
 
 Some time ago, I was on an airplane over the Colombian jungle of South America. I had been telling my seat companion about the Church. At one point in my enthusiastic gospel conversation, my friend commented, “You Mormons have surely built a magnificent shrine at Joseph Smith’s grave site.”
 
@@ -42,13 +42,13 @@ King Benjamin made this clear:
 
 How can we possibly be a servant to the Savior if we have not served Him, if we are strangers to Him, if we keep Him far from the daily thoughts and intents of our hearts?
 
-President Harold B. Lee was the kind of person who so knew the Savior and had been a servant for such a long period of time that he knew instinctively what the Savior would say or do in any given situation.
+President Harold B. Lee was the kind of person who so knew the Savior and had been a servant for such a long period of time that he knew instinctively what the Savior would say or do in any given situation.
 
 For example, shortly after becoming President of the Church, President Lee held his first press conference as the new prophet of the Church. The reporters posed for President Lee what could have been a difficult question: “What is your position with regard to the Vietnam war?” You recall that at that time the war was underway, and there were those who supported it and those who were against our involvement.
 
 If President Lee said, “I am in favor of our government’s position,” the reporters could say, “How strange—a spiritual leader in favor of war?” If he answered, “I am against our government’s involvement,” the reporters could also raise doubts by saying, “How unusual—a religious leader who pretends to support his government, but does not?”
 
-When the people of the press presented the question, President Lee responded as a servant of the Savior would, knowing how to use the very words of the Lord in an inspired manner. His answer disarmed them, impressed them. As I remember, he said, “We, together with the entire Christian world, abhor war.” And he went on, “The Savior said, ‘In the world ye shall have tribulations.’ But He also said, ‘In me ye might have peace’.” (See [[John 16.33|John 16:33]].) Continuing, President Lee quoted from John 14: “‘Peace I leave with you, my peace I give unto you: not as the world giveth, give I \[peace\] unto you.’” ([[John 14.27|Verse 27]].)
+When the people of the press presented the question, President Lee responded as a servant of the Savior would, knowing how to use the very words of the Lord in an inspired manner. His answer disarmed them, impressed them. As I remember, he said, “We, together with the entire Christian world, abhor war.” And he went on, “The Savior said, ‘In the world ye shall have tribulations.’ But He also said, ‘In me ye might have peace’.” (See [[John 16.33|John 16:33]].) Continuing, President Lee quoted from John 14: “‘Peace I leave with you, my peace I give unto you: not as the world giveth, give I \[peace\] unto you.’” ([[John 14.27|Verse 27]].)
 
 And then President Lee taught a great principle. And he said to them: “The Savior was not speaking of the kind of peace which is won with armies or navies or force; nor was He speaking of the kind of peace which can be negotiated in the halls of congresses. He was speaking of the kind of peace we each can have in our hearts only when we live His commandments to such a degree that we know He is pleased with us.” President Lee, speaking as a true servant of the Prince of Peace, had answered them with inspiration.
 
@@ -67,6 +67,4 @@ To this I testify humbly and with love, in the name of Jesus Christ, our Master 
 
 
 
-
-
-#Jesus_Christ #Service
+#JesusChrist #Service

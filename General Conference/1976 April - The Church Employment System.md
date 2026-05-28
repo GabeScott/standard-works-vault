@@ -1,6 +1,6 @@
 # The Church Employment System
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -59,8 +59,6 @@ Many years ago, the Church established a very special type of employment opportu
 The children of God will never need be ashamed of honorable employment experiences.
 
 May we be blessed to teach these principles, in the name of Jesus Christ. Amen.
-
-
 
 
 

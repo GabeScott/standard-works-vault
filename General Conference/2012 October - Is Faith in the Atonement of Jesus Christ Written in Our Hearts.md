@@ -1,6 +1,6 @@
 # Is Faith in the Atonement of Jesus Christ Written in Our Hearts?
 
-By Linda K. Burton - *Relief Society General President*
+By Linda K. Burton - *Relief Society General President*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -14,13 +14,13 @@ One of the precious gifts associated with this calling is the assurance that Hea
 
 Like you, I love the scriptures! In the book of Jeremiah we find a scripture that is very dear to my heart. Jeremiah lived in a difficult time and place, but the Lord allowed him to foresee “a time of hope during the latter-day gathering of Israel”[^2]—our day. Jeremiah prophesied:
 
-“After those days, saith the Lord, I will put my law in their inward parts, and *write it in their hearts;* and will be their God, and they shall be my people. …
+“After those days, saith the Lord, I will put my law in their inward parts, and *write it in their hearts;* and will be their God, and they shall be my people. …
 
-“… They shall all know me, from the least of them unto the greatest of them, saith the Lord: for I will forgive their iniquity, and I will remember their sin no more.”[^3]
+“… They shall all know me, from the least of them unto the greatest of them, saith the Lord: for I will forgive their iniquity, and I will remember their sin no more.”[^3]
 
 We are the people Jeremiah saw. Have we invited the Lord to write the law, or doctrine, in our hearts? Do we believe that the forgiveness available through the Atonement that Jeremiah refers to applies to us personally?
 
-A few years ago, Elder Jeffrey R. Holland shared his feelings about the deep-rooted faith of pioneers who pushed toward the Salt Lake Valley even after the deaths of their children. He said, “They didn’t do that for a program, they didn’t do it for a social activity, they did it because the faith of the gospel of Jesus Christ was in their soul, it was in the marrow of their bones.”
+A few years ago, Elder Jeffrey R. Holland shared his feelings about the deep-rooted faith of pioneers who pushed toward the Salt Lake Valley even after the deaths of their children. He said, “They didn’t do that for a program, they didn’t do it for a social activity, they did it because the faith of the gospel of Jesus Christ was in their soul, it was in the marrow of their bones.”
 
 He expressed, with tender emotion:
 
@@ -38,9 +38,9 @@ How can we expect to strengthen families or help others unless we first have wri
 
 We, with you, bear witness of the Atonement of our Savior, Jesus Christ. Our testimonies, like yours, have been written in our hearts as we have faced assorted soul-stretching challenges and adversities. Without an understanding of Heavenly Father’s perfect plan of happiness and the Savior’s Atonement as the central feature of that plan, these challenges could seem unfair. We all share in the trials of life together. But in faithful hearts is written, “All that is unfair about life can be made right through the Atonement of Jesus Christ.”
 
-Why does the Lord allow suffering and adversity to come to us in this life? Simply put, it is part of the plan for our growth and progress! We “shouted for joy”[^6] when we knew we would have the opportunity to come to earth to experience mortality. Elder Dallin H. Oaks taught, “Our needed conversions are often achieved more readily by suffering and adversity than by comfort and tranquillity.”[^7]
+Why does the Lord allow suffering and adversity to come to us in this life? Simply put, it is part of the plan for our growth and progress! We “shouted for joy”[^6] when we knew we would have the opportunity to come to earth to experience mortality. Elder Dallin H. Oaks taught, “Our needed conversions are often achieved more readily by suffering and adversity than by comfort and tranquillity.”[^7]
 
-The example of a faithful pioneer sister illustrates this truth. Mary Lois Walker was married at age 17 to John T. Morris in St. Louis, Missouri. They crossed the plains with the Saints in 1853, entering the Salt Lake Valley shortly after their first anniversary. On their journey they had suffered the privations typical of other Saints. But their sufferings and adversity did not end when they reached the Salt Lake Valley. The following year Mary, then 19, wrote: “A son was born to us. … One evening when he was two or three months old … something whispered to me, ‘You will lose that little one.’”
+The example of a faithful pioneer sister illustrates this truth. Mary Lois Walker was married at age 17 to John T. Morris in St. Louis, Missouri. They crossed the plains with the Saints in 1853, entering the Salt Lake Valley shortly after their first anniversary. On their journey they had suffered the privations typical of other Saints. But their sufferings and adversity did not end when they reached the Salt Lake Valley. The following year Mary, then 19, wrote: “A son was born to us. … One evening when he was two or three months old … something whispered to me, ‘You will lose that little one.’”
 
 During the winter the baby’s health declined. “We did all we could, … but the baby grew steadily worse. … On the second of February he passed away … and so I drank the bitter cup of parting from my own flesh and blood.” But her trials were still not over. Mary’s husband was also stricken, and three weeks after losing her baby, he died.
 
@@ -58,7 +58,7 @@ There is a way to know when we have learned a doctrine or principle of the gospe
 
 “We are like the \[woman\] in the pit. Sinning is like falling into the pit, and we can’t get out by ourselves. Just as the kind passerby heard the \[woman’s\] cry for help, Heavenly Father sent his Only Begotten Son to provide the means of escape. Jesus Christ’s atonement could be compared to lowering a ladder into the pit; it gives us the means to climb out.”[^10] But the Savior does more than lower the ladder, He “comes down into the pit and makes it possible for us to use the ladder to escape.”[^11] “Just as the \[woman\] in the pit had to climb up the ladder, we must repent of our sins and obey the gospel principles and ordinances to climb out of our pit and make the Atonement work in our lives. Thus, after all we can do, the Atonement makes it possible for us to become worthy to return to Heavenly Father’s presence.”[^12]
 
-Recently I was privileged to meet a modern-day pioneer, a beloved daughter of God and recent convert to the Church in Chile. She is a single mother with two young sons. Through the power of the Atonement, she has been enabled to put her past behind her and is now earnestly striving to become a true disciple of Jesus Christ. As I think of her, a principle taught by Elder David A. Bednar comes to mind: “It is one thing to know that Jesus Christ came to earth to *die* for us—that is fundamental and foundational to the doctrine of Christ. But we also need to appreciate that the Lord desires, through His Atonement and by the power of the Holy Ghost, to *live* in us—not only to direct us but also to empower us.”[^13]
+Recently I was privileged to meet a modern-day pioneer, a beloved daughter of God and recent convert to the Church in Chile. She is a single mother with two young sons. Through the power of the Atonement, she has been enabled to put her past behind her and is now earnestly striving to become a true disciple of Jesus Christ. As I think of her, a principle taught by Elder David A. Bednar comes to mind: “It is one thing to know that Jesus Christ came to earth to *die* for us—that is fundamental and foundational to the doctrine of Christ. But we also need to appreciate that the Lord desires, through His Atonement and by the power of the Holy Ghost, to *live* in us—not only to direct us but also to empower us.”[^13]
 
 As this Chilean sister and I discussed how to stay on the path leading to eternal life, she enthusiastically assured me that she was determined to continue on the path. She had been off the path most of her life, and she declared that there was nothing “out there” off the path that she wanted to have back in her life again. The enabling power of the Atonement is living inside of her. It is being written in her heart.
 
@@ -70,7 +70,7 @@ We would do well to ponder this stirring thought from Elder Oaks: “Think how i
 
 That supreme act of love ought to send each of us to our knees in humble prayer to thank our Heavenly Father for loving us enough that He sent His Only Begotten and perfect Son to suffer for our sins, our heartaches, and all that seems unfair in our own individual lives.
 
-Remember the woman President Dieter F. Uchtdorf spoke of recently? He said: “One woman who had been through years of trial and sorrow said through her tears, ‘I have come to realize that I am like an old 20-dollar bill—crumpled, torn, dirty, abused, and scarred. But I am still a 20-dollar bill. I am worth something. Even though I may not look like much and even though I have been battered and used, I am still worth the full 20 dollars.’”[^15]
+Remember the woman President Dieter F. Uchtdorf spoke of recently? He said: “One woman who had been through years of trial and sorrow said through her tears, ‘I have come to realize that I am like an old 20-dollar bill—crumpled, torn, dirty, abused, and scarred. But I am still a 20-dollar bill. I am worth something. Even though I may not look like much and even though I have been battered and used, I am still worth the full 20 dollars.’”[^15]
 
 This woman knows that she is a beloved daughter of her Heavenly Father and that she was worth enough to Him to send His Son to atone for her, individually. Every sister in the Church should know what this woman knows—that she is a beloved daughter of God. How does knowing our worth to Him change how we keep our covenants? How does knowing our worth to Him affect our desire to minister to others? How does knowing our worth to Him increase our desire to help those who need to understand the Atonement as we do—way down deep? When each of us has the doctrine of the Atonement written deep in our hearts, then we will begin to become the kind of people the Lord wants us to be when He comes again. He will recognize us as His true disciples.
 
@@ -93,29 +93,29 @@ May the Atonement of Jesus Christ cause a “mighty change” to be wrought in o
 
 [^3]: [[Jeremiah 31.33|Jeremiah 31:33–34]][[Jeremiah 31.34|]]; emphasis added.
 
-[^4]: Jeffrey R. Holland, “Roundtable Discussion,” *Worldwide Leadership Training Meeting,* Feb. 9, 2008, 28.
+[^4]: Jeffrey R. Holland, “Roundtable Discussion,” *Worldwide Leadership Training Meeting,* Feb. 9, 2008, 28.
 
 [^5]: *Preach My Gospel: A Guide to Missionary Service* (2004), 52.
 
 [^6]: [[Job 38.7|Job 38:7]].
 
-[^7]: Dallin H. Oaks, [[2000 October - The Challenge to Become.md|“The Challenge to Become,”]] *Liahona,* Jan. 2001, 42; *Ensign,* Nov. 2000, 33.
+[^7]: Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Liahona,* Jan. 2001, 42; *Ensign,* Nov. 2000, 33.
 
 [^8]: Autobiography of Mary Lois Walker Morris (copy in possession of Linda Kjar Burton).
 
-[^9]: See David A. Bednar, [“The Atonement and the Journey of Mortality,”](https://churchofjesuschrist.org/study/ensign/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng) *Liahona,* Apr. 2012, 12–19; *Ensign,* Apr. 2012, 40–47.
+[^9]: See David A. Bednar, “[The Atonement and the Journey of Mortality,](https://www.churchofjesuschrist.org/study/ensign/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng)” *Liahona,* Apr. 2012, 12–19; *Ensign,* Apr. 2012, 40–47.
 
 [^10]: *Primary 7: New Testament* (1997), 104.
 
-[^11]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 1:123.
+[^11]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 1:123.
 
 [^12]: *Primary 7,* 104.
 
-[^13]: David A. Bednar, *Liahona,* Apr. 2012, 14; *Ensign,* Apr. 2012, 42.
+[^13]: David A. Bednar, *Liahona,* Apr. 2012, 14; *Ensign,* Apr. 2012, 42.
 
-[^14]: Dallin H. Oaks, “Love and Law,” *Liahona* and *Ensign,* Nov. 2009, 26.
+[^14]: Dallin H. Oaks, “Love and Law,” *Liahona* and *Ensign,* Nov. 2009, 26.
 
-[^15]: Dieter F. Uchtdorf, “You Are My Hands,” *Liahona* and *Ensign,* May 2010, 69.
+[^15]: Dieter F. Uchtdorf, “You Are My Hands,” *Liahona* and *Ensign,* May 2010, 69.
 
 [^16]: See [[Alma 5.12|Alma 5:12–14]][[Alma 5.13|]][[Alma 5.14|]].
 
@@ -127,12 +127,10 @@ May the Atonement of Jesus Christ cause a “mighty change” to be wrought in o
 
 [^20]: *Preach My Gospel,* 52.
 
-[^21]: See David A. Bednar, *Liahona,* Apr. 2012, 12–19; *Ensign,* Apr. 2012, 40–47.
+[^21]: See David A. Bednar, *Liahona,* Apr. 2012, 12–19; *Ensign,* Apr. 2012, 40–47.
 
-[^22]: See Dallin H. Oaks, *Liahona* and *Ensign,* Nov. 2009, 26.
+[^22]: See Dallin H. Oaks, *Liahona* and *Ensign,* Nov. 2009, 26.
 
 [^23]: [[Jeremiah 31.33|Jeremiah 31:33]]; emphasis added.
 
-
-
-#Atonement #Faith #Jesus_Christ
+#Atonement #Faith #JesusChrist

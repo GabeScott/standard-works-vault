@@ -22,19 +22,19 @@ This is the heaven-decreed destiny of this church and kingdom.
 
 Not all men will perceive the hand of God in this latter-day work. Jesus told Nicodemus, “Except a man be born again, he cannot see the kingdom of God.” ([[John 3.3|John 3:3]].) Without the guidance and inspiration of the Holy Ghost, there will be some who will see nothing more to the progress of the Church than a social curiosity.
 
-We may expect to see the righteousness of the Saints and the progress of the kingdom of God continue unabated, but it will not be without opposition. The Council of the Twelve proclaimed in 1845: “As this work progresses in its onward course, and becomes more and more an object of political and religious interest … no king, ruler, or subject, no community or individual, will stand *neutral.* All will … be influenced by one spirit or the other; and will take sides either for or against the kingdom of God.” (James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 5 vols., Salt Lake City: Bookcraft, 1965–70, 1:257.)
+We may expect to see the righteousness of the Saints and the progress of the kingdom of God continue unabated, but it will not be without opposition. The Council of the Twelve proclaimed in 1845: “As this work progresses in its onward course, and becomes more and more an object of political and religious interest … no king, ruler, or subject, no community or individual, will stand *neutral.* All will … be influenced by one spirit or the other; and will take sides either for or against the kingdom of God.” (James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 5 vols., Salt Lake City: Bookcraft, 1965–70, 1:257.)
 
 Yes, as the Lord declared, “Zion *must* increase in beauty, and in holiness; her borders *must* be enlarged; her stakes *must* be strengthened.” ([[D&C 82.14|D&C 82:14]]; italics added.) As righteousness will increase, so will evil. We see evidences of this all about us. It sometimes causes members of the Church to despair. We may be assured, however, that the Lord will take care of this in His own time and in His own way. Hear His decree:
 
-“I, the Lord, am angry with the wicked. …
+“I, the Lord, am angry with the wicked. …
 
 “I have sworn in my wrath, and decreed wars upon the face of the earth, and the wicked shall slay the wicked, and fear shall come upon every man;
 
 “*And the saints also shall hardly escape;* nevertheless, I, the Lord, am with them, and will come down in heaven from the presence of my Father and consume the wicked with unquenchable fire.” ([[D&C 63.32|D&C 63:32–34]][[D&C 63.33|]][[D&C 63.34|]]; italics added.)
 
-We may not be too far from the day prophesied by Heber C. Kimball, grandfather of President Spencer W. Kimball and member of the First Presidency. He said:
+We may not be too far from the day prophesied by Heber C. Kimball, grandfather of President Spencer W. Kimball and member of the First Presidency. He said:
 
-“The Saints will be put to tests that will try the integrity of the best of them. The pressure will become so great that the more righteous among them will cry unto the Lord day and night until deliverance comes.” (“Prophecy of Heber C. Kimball,” *Deseret News,* Church Section, May 23, 1931, p. 3.)
+“The Saints will be put to tests that will try the integrity of the best of them. The pressure will become so great that the more righteous among them will cry unto the Lord day and night until deliverance comes.” (“Prophecy of Heber C. Kimball,” *Deseret News,* Church Section, May 23, 1931, p. 3.)
 
 But remember the Lord has said in modern revelation, “If ye are prepared ye shall not fear.” ([[D&C 38.30|D&C 38:30]].) Are we prepared? God help us to be so for the tests of the days ahead.
 
@@ -52,7 +52,7 @@ There is an urgent need for the development of a more firm and virtuous influenc
 
 Too many heads of families are not involving themselves in the affairs of their communities on the ground that they have not received specific instructions from Church leaders. The Lord, however, has declared:
 
-“It is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant. …
+“It is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant. …
 
 “Men should be anxiously engaged in a good cause, and do many things of their own free will, and bring to pass much righteousness;
 
@@ -70,9 +70,9 @@ When Jesus stood before Pilate, the Roman governor asked him whether or not He w
 
 The days ahead will be sobering and will test the faith of the Saints. But we may obtain strength from the Lord’s assurances found in modern revelation. I quote:
 
-“He will preserve the righteous by his power. … Wherefore, the righteous need not fear; … they shall be saved, even if it so be … by fire.” ([[1 Nephi 22.17|1 Ne. 22:17]].)
+“He will preserve the righteous by his power. … Wherefore, the righteous need not fear; … they shall be saved, even if it so be … by fire.” ([[1 Nephi 22.17|1 Ne. 22:17]].)
 
-“I will fight your battles.” ([[D&C 105.14|D&C 105:14]].) “No weapon that is formed against thee shall prosper; … This is the heritage of the servants of the Lord.” ([[3 Nephi 22.17|3 Ne. 22:17]].)
+“I will fight your battles.” ([[D&C 105.14|D&C 105:14]].) “No weapon that is formed against thee shall prosper; … This is the heritage of the servants of the Lord.” ([[3 Nephi 22.17|3 Ne. 22:17]].)
 
 “Great tribulations shall be among the children of men, *but my people will I preserve.*” ([[Moses 7.61|Moses 7:61]]; italics added.)
 
@@ -97,6 +97,4 @@ I bear humble witness that The Church of Jesus Christ of Latter-day Saints is th
 
 
 
-
-
-#Kingdom_Of_God
+#KingdomOfGod

@@ -1,6 +1,6 @@
 # Hearts So Similar
 
-By Barbara B. Smith - *Relief Society General President*
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -44,7 +44,7 @@ This testimony gives us hearts so similar that, as Paul said:
 
 Being many … with differing gifts, yet having hearts so similar; hearts testifying of the Lord Jesus Christ … that his teachings are true … his way of life—a way of truth, of love, of light.
 
-An examination of the many individual lives of those who would be his disciples testifies that nothing about the gospel is designed to “make reason stare” as Eliza R. Snow observed so many years ago. (*Hymns,* no. 139.) The gospel, correctly understood, embraces all that is virtuous, lovely, of good report and praiseworthy. (See [[Articles of Faith 1.13|A of F 1:13]].) The gospel is heaven-sent. It is the light by which we find our way through darkness and difficult times. The light of truth discloses our eternal nature. If we work hard enough and long enough, and pray diligently enough, the excellence that is our divine potential is possible to each one of us.
+An examination of the many individual lives of those who would be his disciples testifies that nothing about the gospel is designed to “make reason stare” as Eliza R. Snow observed so many years ago. (*Hymns,* no. 139.) The gospel, correctly understood, embraces all that is virtuous, lovely, of good report and praiseworthy. (See [[Articles of Faith 1.13|A of F 1:13]].) The gospel is heaven-sent. It is the light by which we find our way through darkness and difficult times. The light of truth discloses our eternal nature. If we work hard enough and long enough, and pray diligently enough, the excellence that is our divine potential is possible to each one of us.
 
 The uniqueness of each human being is a condition of God’s creation, even though the differences sometimes cause us to wonder. One beautiful Oriental sister came to the United States and for the first time in her life she encountered blonde-haired, blue-eyed persons. The blue eyes seemed so unusual to her, she later confided, that although she now thinks them lovely, she had at first wondered if people could actually see out of them.
 
@@ -89,6 +89,4 @@ We can be good women, elect women, and even holy women. Though we are women of g
 
 
 
-
-
-#Church_Growth #Relief_Society
+#ChurchGrowth #ReliefSociety

@@ -1,6 +1,6 @@
 # Teaching in the Home—a Joyful and Sacred Responsibility
 
-By Devin G. Durrant - *First Counselor in the Sunday School General Presidency*
+By Devin G. Durrant - *First Counselor in the Sunday School General Presidency*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -24,7 +24,7 @@ I recall one of my favorite family home evening activities. Dad would invite one
 
 I loved it when it was my turn. I wanted to get every step just right, and I cherished the moment when I could say, “Dad, I did it!” This activity helped build my confidence and made it easier for a restless boy to pay attention when Mom or Dad taught a gospel principle.
 
-President Gordon B. Hinckley counseled: “If you have any doubt about the virtue of family home evening, try it. Gather your children about you, teach them, bear testimony to them, read the scriptures together and have a good time together.”[^5]
+President Gordon B. Hinckley counseled: “If you have any doubt about the virtue of family home evening, try it. Gather your children about you, teach them, bear testimony to them, read the scriptures together and have a good time together.”[^5]
 
 There will always be opposition to holding family home evening.[^6] Regardless, I invite you to find a way around the obstacles and make family home evening a priority—and make fun a key ingredient.
 
@@ -32,7 +32,7 @@ There will always be opposition to holding family home evening.[^6] Regardless, 
 
 Family prayer is another prime opportunity to teach.
 
-I love how President N. Eldon Tanner’s father taught him during family prayer. President Tanner said this:
+I love how President N. Eldon Tanner’s father taught him during family prayer. President Tanner said this:
 
 “I remember one evening when we were kneeling in family prayer, my father said to the Lord, ‘Eldon did something today he shouldn’t have done; he’s sorry, and if you will forgive him, he won’t do it anymore.’
 
@@ -58,7 +58,7 @@ I love the Apostle Peter’s invitation: “Be ready always to give an answer to
 
 When I was a teenager, my dad and I enjoyed challenging each other to see who had the strongest grip. We would squeeze the other’s hand as tightly as possible in an effort to make the other grimace in pain. It doesn’t seem like much fun now, but somehow it was at the time. After one such battle, Dad looked me in the eyes and said, “You have strong hands, Son. I hope your hands always have the strength to never touch a young lady inappropriately.” He then invited me to stay morally clean and help others do the same.
 
-Elder Douglas L. Callister shared this about his father: “While traveling home from work one day Father spontaneously said, ‘I paid my tithing today. I wrote “thank you” on the tithing check. I am so grateful to the Lord for blessing our family.’”
+Elder Douglas L. Callister shared this about his father: “While traveling home from work one day Father spontaneously said, ‘I paid my tithing today. I wrote “thank you” on the tithing check. I am so grateful to the Lord for blessing our family.’”
 
 Elder Callister then paid this tribute to his father-teacher: “He taught both acts and attitudes of obedience.”[^15]
 
@@ -68,11 +68,11 @@ I think it wise to ask ourselves occasionally, “What will I teach, or what am 
 
 Family scripture study is an ideal forum for teaching doctrine in the home.
 
-President Russell M. Nelson said, “Not only are parents to cling to the word of the Lord, but they have a divine mandate to teach it to their children.”[^16]
+President Russell M. Nelson said, “Not only are parents to cling to the word of the Lord, but they have a divine mandate to teach it to their children.”[^16]
 
 As Julie and I raised our children, we tried to be consistent and creative. One year we decided to read the Book of Mormon in Spanish as a family. Was that why the Lord called each of our children who served a full-time mission to a Spanish-speaking mission? *Es posible.*
 
-I was deeply touched when Brother Brian K. Ashton shared with me that he and his father read every page of the Book of Mormon together during his senior year of high school. Brother Ashton loves the scriptures. They are written in his mind and on his heart. His father planted that seed when Brother Ashton was a teenager, and that seed[^17] has grown into a deep-rooted tree of truth. Brother Ashton has done the same with his older children.[^18] His eight-year-old son recently asked him, “Dad, when do I get to read the Book of Mormon with you?”
+I was deeply touched when Brother Brian K. Ashton shared with me that he and his father read every page of the Book of Mormon together during his senior year of high school. Brother Ashton loves the scriptures. They are written in his mind and on his heart. His father planted that seed when Brother Ashton was a teenager, and that seed[^17] has grown into a deep-rooted tree of truth. Brother Ashton has done the same with his older children.[^18] His eight-year-old son recently asked him, “Dad, when do I get to read the Book of Mormon with you?”
 
 ## Example Teaching
 
@@ -80,11 +80,11 @@ Lastly, our most impactful parental teaching is our example. We are counseled to
 
 During a recent trip, Julie and I attended church and saw this verse in action. A young man, soon to leave for his mission, spoke in sacrament meeting.
 
-He said, “You all think my dad is such a good man at church, but …” He paused, and I anxiously wondered what he might say next. He continued and said, “He’s a better man at home.”
+He said, “You all think my dad is such a good man at church, but …” He paused, and I anxiously wondered what he might say next. He continued and said, “He’s a better man at home.”
 
 I thanked this young man afterward for the inspiring tribute he had paid his father. I then found out that his father was the bishop of the ward. Even though this bishop was serving his ward faithfully, his son felt that his best work was done at home.[^20]
 
-Elder D. Todd Christofferson counsels: “We have many avenues for teaching the … rising generation, and we should devote our best thinking and effort to taking full advantage of them. Above all, we must continue to encourage and help parents be better and more consistent teachers … especially by example.”[^21]
+Elder D. Todd Christofferson counsels: “We have many avenues for teaching the … rising generation, and we should devote our best thinking and effort to taking full advantage of them. Above all, we must continue to encourage and help parents be better and more consistent teachers … especially by example.”[^21]
 
 That’s how the Savior teaches.[^22]
 
@@ -98,7 +98,7 @@ As parents cherish each other and offer righteous examples, children are eternal
 
 For all of you who are striving to do your best to teach in your homes, may you find peace and joy in your efforts. And if you feel you have room for improvement or need greater preparation, please humbly respond as the Spirit prompts you and bind yourself to act.[^23]
 
-Elder L. Tom Perry said, “The health of any society, the happiness of its people, their prosperity, and their peace all find common roots in the teaching of children in the home.”[^24]
+Elder L. Tom Perry said, “The health of any society, the happiness of its people, their prosperity, and their peace all find common roots in the teaching of children in the home.”[^24]
 
 Yes, my home nest is now empty, but I’m still on call, ready and eager to find additional precious opportunities to teach my grown children, their children, and someday, I hope, their children.
 
@@ -109,52 +109,50 @@ I plead for heaven’s help as we strive to be Christlike teachers in our homes.
 
 [^1]: See [[D&C 68.25|Doctrine and Covenants 68:25]]; [[D&C 93.40|93:40]].
 
-[^2]: See Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
+[^2]: See Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
-[^3]: Elder David A. Bednar said: “Today if you could ask our adult sons what they remember about family prayer, scripture study, and family home evening, I believe I know how they would answer. They likely would not identify a particular prayer or a specific instance of scripture study or an especially meaningful family home evening lesson as the defining moment in their spiritual development. What they would say they remember is that as a family we were consistent” (“[[2009 October - More Diligent and Concerned at Home.md|More Diligent and Concerned at Home]],” *Ensign* or *Liahona,* Nov. 2009, 19).
+[^3]: Elder David A. Bednar said: “Today if you could ask our adult sons what they remember about family prayer, scripture study, and family home evening, I believe I know how they would answer. They likely would not identify a particular prayer or a specific instance of scripture study or an especially meaningful family home evening lesson as the defining moment in their spiritual development. What they would say they remember is that as a family we were consistent” (“[[2009 October - More Diligent and Concerned at Home.md|More Diligent and Concerned at Home]],” *Ensign* or *Liahona,* Nov. 2009, 19).
 
 [^4]: See “Home Can Be a Heaven on Earth,” *Hymns,* no. 298.
 
-[^5]: *Teachings of Presidents of the Church: Gordon B. Hinckley* (2016), 171.
+[^5]: *[Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-11-home-the-basis-of-a-righteous-life?lang=eng)* (2016), 171.
 
-[^6]: See [[2 Nephi 2.11|2 Nephi 2:11]].
+[^6]: See [[2 Nephi 2.11|2 Nephi 2:11]].
 
-[^7]: N. Eldon Tanner, “[Never Be Ashamed of the Gospel of Christ](https://churchofjesuschrist.org/study/ensign/1980/02/never-be-ashamed-of-the-gospel-of-christ?lang=eng),” *Ensign,* Feb. 1980, 4.
+[^7]: N. Eldon Tanner, “[Never Be Ashamed of the Gospel of Christ](https://www.churchofjesuschrist.org/study/ensign/1980/02/never-be-ashamed-of-the-gospel-of-christ?lang=eng),” *Ensign,* Feb. 1980, 4.
 
-[^8]: See [[3 Nephi 18.21|3 Nephi 18:21]].
+[^8]: See [[3 Nephi 18.21|3 Nephi 18:21]].
 
-[^9]: See [[Matthew 3.16|Matthew 3:16–17]][[Matthew 3.17|]]; [[3 Nephi 11.6|3 Nephi 11:6–8]][[3 Nephi 11.7|]][[3 Nephi 11.8|]]; [[D&C 18.34|Doctrine and Covenants 18:34–36]][[D&C 18.35|]][[D&C 18.36|]]; [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
+[^9]: See [[Matthew 3.16|Matthew 3:16–17]][[Matthew 3.17|]]; [[3 Nephi 11.6|3 Nephi 11:6–8]][[3 Nephi 11.7|]][[3 Nephi 11.8|]]; [[D&C 18.34|Doctrine and Covenants 18:34–36]][[D&C 18.35|]][[D&C 18.36|]]; [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-[^10]: “Take Advantage of Spontaneous Teaching Moments,” *Teaching in the Savior’s Way* (2016), 16. *Teaching in the Savior’s Way* includes a variety of tips and tools for teaching in the home.
+[^10]: “Take Advantage of Spontaneous Teaching Moments,” *Teaching in the Savior’s Way* (2016), 16. *Teaching in the Savior’s Way* includes a variety of tips and tools for teaching in the home.
 
 [^11]: See [[D&C 11.21|Doctrine and Covenants 11:21]]; [[D&C 84.85|84:85]].
 
-[^12]: *Teaching in the Savior’s Way,* 16.
+[^12]: *Teaching in the Savior’s Way,* 16.
 
-[^13]: See “Listen,” *Preach My Gospel: A Guide to Missionary Service* (2004), 185–86.
+[^13]: See “Listen,” *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-can-i-improve-my-teaching-skills?lang=eng)* (2004), 185–86.
 
-[^14]: [[1 Peter 3.15|1 Peter 3:15]].
+[^14]: [[1 Peter 3.15|1 Peter 3:15]].
 
-[^15]: Douglas L. Callister, “[Most Influential Teacher—Emeritus Seventy Pays Tribute to Father](https://www.lds.org/church/news/most-influential-teacher-emeritus-seventy-pays-tribute-to-father),” Aug. 29, 2016, news.lds.org.
+[^15]: Douglas L. Callister, “[Most Influential Teacher—Emeritus Seventy Pays Tribute to Father](https://www.lds.org/church/news/most-influential-teacher-emeritus-seventy-pays-tribute-to-father),” Aug. 29, 2016, news.lds.org.
 
-[^16]: Russell M. Nelson, “[[2001 October - “Set in Order Thy House”.md|Set in Order Thy House]],” *Ensign,* Nov. 2001, 70; *Liahona,* Jan. 2002, 81.
+[^16]: Russell M. Nelson, “[[2001 October - “Set in Order Thy House”.md|Set in Order Thy House]],” *Ensign,* Nov. 2001, 70; *Liahona,* Jan. 2002, 81.
 
 [^17]: See [[Alma 32.28|Alma 32:28–43]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
 [^18]: Sister Melinda Ashton pinch-hits when her husband, Brother Ashton, is out of town.
 
-[^19]: [[1 Timothy 4.12|1 Timothy 4:12]]; see also [[Alma 17.11|Alma 17:11]].
+[^19]: [[1 Timothy 4.12|1 Timothy 4:12]]; see also [[Alma 17.11|Alma 17:11]].
 
-[^20]: Bishop Jeffrey L. Stewart serves in the Southgate Second Ward in St. George, Utah. Samuel, his son, is now serving in the Colombia Medellín Mission.
+[^20]: Bishop Jeffrey L. Stewart serves in the Southgate Second Ward in St. George, Utah. Samuel, his son, is now serving in the Colombia Medellín Mission.
 
-[^21]: D. Todd Christofferson, “Strengthening the Faith and Long-Term Conversion of the Rising Generation,” general conference leadership meeting, Sept. 2017.
+[^21]: D. Todd Christofferson, “Strengthening the Faith and Long-Term Conversion of the Rising Generation,” general conference leadership meeting, Sept. 2017.
 
-[^22]: See [[3 Nephi 27.21|3 Nephi 27:21, 27]][[3 Nephi 27.27|]].
+[^22]: See [[3 Nephi 27.21|3 Nephi 27:21, 27]][[3 Nephi 27.27|]].
 
 [^23]: See [[D&C 43.8|Doctrine and Covenants 43:8–9]][[D&C 43.9|]].
 
-[^24]: L. Tom Perry, “[[2010 April - Mothers Teaching Children in the Home.md|Mothers Teaching Children in the Home]],” 30.
+[^24]: L. Tom Perry, “[[2010 April - Mothers Teaching Children in the Home.md|Mothers Teaching Children in the Home]],” 30.
 
-
-
-#Example #Family #Family_Home_Evening #Home #Prayer #Scripture_Study #Teaching
+#Example #FamilyHomeEvening #Family #Home #Prayer #ScriptureStudy #Teaching

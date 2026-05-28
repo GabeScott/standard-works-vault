@@ -1,7 +1,6 @@
 # Intercession
 
-
-*See also* [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Meditation, Meditate.md|Meditation]]; [[Prayer, Pray.md|Prayer]]; [[Supplication.md|Supplication]]
+*See also* [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Meditation.md|Meditation]]; [[Prayer.md|Prayer]]; [[Supplication.md|Supplication]]
 
 made *intercession* for the transgressors, [[Isaiah 53.12|Isaiah 53:12]] ([[Mosiah 14.12|Mosiah 14:12]]).
 
@@ -13,7 +12,7 @@ maketh *intercession* for the saints according to the will of God, [[Romans 8.27
 
 God, who also maketh *intercession* for us, [[Romans 8.34|Romans 8:34]].
 
-Elias ... maketh *intercession* to God against Israel, [[Romans 11.2|Romans 11:2]].
+Elias … maketh *intercession* to God against Israel, [[Romans 11.2|Romans 11:2]].
 
 seeing he ever liveth to make *intercession* for them, [[Hebrews 7.25|Hebrews 7:25]].
 

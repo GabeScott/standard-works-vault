@@ -1,4 +1,3 @@
 # Cults
 
-
-*See* [[False Priesthoods.md|False Priesthoods]]
+*See also* [[False Priesthoods.md|False Priesthoods]]

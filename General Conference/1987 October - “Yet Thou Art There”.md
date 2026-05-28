@@ -34,11 +34,11 @@ Even so, the pages of scripture rustle with reassurances, such as were tenderly 
 
 Whatever the scale of things, the Lord is there! Whether in speaking of how sun, moon, and stars show “God moving in his majesty and power” ([[D&C 88.47|D&C 88:47]]) or in describing the lilies of the field as being better arrayed than Solomon in all his finery, who is better qualified than the Creator to make such descriptions of the heaven and such comparisons between raiment and flowers (see [[Matthew 6.28|Matt. 6:28–29]][[Matthew 6.29|]])?
 
-A solitary Samaritan woman was one of the very first to learn from His lips that Jesus was in fact the Messiah. She marveled how Jesus “told me all things that ever I did” ([[John 4.29|John 4:29]]). Jesus had been there in her life for a long time. To hasten recognition, the resurrected Jesus told Peter where to lower his fishing nets to harvest a particular school of fish (see [[John 21.6|John 21:6–8]][[John 21.7|]][[John 21.8|]]). Deity called Samuel, Mary Magdalene, Saul, and Joseph Smith by their first names (see [[1 Samuel 3.4|1 Sam. 3:4]]; [[John 20.16|John 20:16]]; [[Acts 9.4|Acts 9:4]]; [[Joseph Smith History 1.17|JS—H 1:17]]).
+A solitary Samaritan woman was one of the very first to learn from His lips that Jesus was in fact the Messiah. She marveled how Jesus “told me all things that ever I did” ([[John 4.29|John 4:29]]). Jesus had been there in her life for a long time. To hasten recognition, the resurrected Jesus told Peter where to lower his fishing nets to harvest a particular school of fish (see [[John 21.6|John 21:6–8]][[John 21.7|]][[John 21.8|]]). Deity called Samuel, Mary Magdalene, Saul, and Joseph Smith by their first names (see [[1 Samuel 3.4|1 Sam. 3:4]]; [[John 20.16|John 20:16]]; [[Acts 9.4|Acts 9:4]]; [[Joseph Smith History 1.17|JS—H 1:17]]).
 
 Macrolove with such micromanifestations!
 
-God is not only there in the mildest expressions of His presence, but also in those seemingly harsh expressions. For example, when truth “cutteth … to the very center” ([[1 Nephi 16.2|1 Ne. 16:2]]), this may signal that spiritual surgery is underway, painfully severing pride from the soul.
+God is not only there in the mildest expressions of His presence, but also in those seemingly harsh expressions. For example, when truth “cutteth … to the very center” ([[1 Nephi 16.2|1 Ne. 16:2]]), this may signal that spiritual surgery is underway, painfully severing pride from the soul.
 
 God is there also when true but hard words break open the chained door of a mind taken over by a single obsession. Sometimes, brothers and sisters, instead of the mind’s wrapping itself around an idea, an idea wraps itself tightly around the mind—another way in which “pride compasseth … about as \[with\] a chain” ([[Psalms 73.6|Ps. 73:6]]).
 
@@ -54,9 +54,9 @@ The ultimate human questions are really the “why” questions! The gospel is p
 
 No wonder we should “live in thanksgiving daily” ([[Alma 34.38|Alma 34:38]]) because “all things denote there is a God; yea, even the earth, and all things that are upon the face of it, yea, and its motion, yea, and also all the planets which move in their regular form do witness that there is a Supreme Creator” ([[Alma 30.44|Alma 30:44]]).
 
-Furthermore, “all things which have been given of God from the beginning of the world, unto man, are the typifying of \[Christ\]” ([[2 Nephi 11.4|2 Ne. 11:4]]).
+Furthermore, “all things which have been given of God from the beginning of the world, unto man, are the typifying of \[Christ\]” ([[2 Nephi 11.4|2 Ne. 11:4]]).
 
-Providing adequate oxygen for us on this planet is a form of God’s “lending \[us\] breath,” as in King Benjamin’s litany ([[Mosiah 2.21|Mosiah 2:21]]). God keeps this planet habitable, “preserving \[us\] from day to day” ([[Mosiah 2.21|v. 21]]). Given all He has done, no wonder we are, comparatively, “unprofitable servants” ([[Mosiah 2.21|v. 21]]).
+Providing adequate oxygen for us on this planet is a form of God’s “lending \[us\] breath,” as in King Benjamin’s litany ([[Mosiah 2.21|Mosiah 2:21]]). God keeps this planet habitable, “preserving \[us\] from day to day” ([[Mosiah 2.21|v. 21]]). Given all He has done, no wonder we are, comparatively, “unprofitable servants” ([[Mosiah 2.21|v. 21]]).
 
 Even given our unprofitability, our Redeemer is still there. In fact, Jesus’ transcending service to us stretches back to premortal days. When God brought before us His plan of salvation, Jesus was there, volunteering meekly and humbly, “Here am I, send me” ([[Abraham 3.27|Abr. 3:27]]), saying, “Father, thy will be done, and the glory be thine forever” ([[Moses 4.2|Moses 4:2]]). The Father, ever anxious that all be free to choose, gave Lucifer opportunity to campaign:
 
@@ -84,11 +84,11 @@ To those of you who so suffer and who, nevertheless, so endure and so testify by
 
 Jesus’ promised peace is a special form of rest amid unrest. Even when other things are in commotion, His disciples can still stand (see [[D&C 45.26|D&C 45:26, 32]][[D&C 45.32|]]). His disciples know the Lord is there in latter-days. “I am he who led the children of Israel out of the land of Egypt; and my arm is stretched out in the last days, to save my people Israel” ([[D&C 136.22|D&C 136:22]]).
 
-We can confidently cast our cares upon the Lord because, through the agonizing events of Gethsemane and Calvary, atoning Jesus is already familiar with our sins, sicknesses, and sorrows (see [[1 Peter 5.7|1 Pet. 5:7]]; [[2 Nephi 9.21|2 Ne. 9:21]]; [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]). He can carry them now because He has successfully carried them before (see [[2 Nephi 9.8|2 Ne. 9:8]])!
+We can confidently cast our cares upon the Lord because, through the agonizing events of Gethsemane and Calvary, atoning Jesus is already familiar with our sins, sicknesses, and sorrows (see [[1 Peter 5.7|1 Pet. 5:7]]; [[2 Nephi 9.21|2 Ne. 9:21]]; [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]). He can carry them now because He has successfully carried them before (see [[2 Nephi 9.8|2 Ne. 9:8]])!
 
 Yes, God’s creations are “stretched out,” but so is his redeeming arm (see [[Exodus 6.6|Ex. 6:6]]; [[Psalms 136.6|Ps. 136:6]])!
 
-He who is ever there is perfect in His love. Moreover, “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him” ([[1 Corinthians 2.9|1 Cor. 2:9]]; see also [[Isaiah 64.4|Isa. 64:4]]).
+He who is ever there is perfect in His love. Moreover, “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him” ([[1 Corinthians 2.9|1 Cor. 2:9]]; see also [[Isaiah 64.4|Isa. 64:4]]).
 
 The Restoration is thus filled with such abundant assurances about God, about life, about the universe, and about us.
 
@@ -96,21 +96,19 @@ As you and I dash about the wonder-filled landscape of the Restoration, exclaimi
 
 As we rove amid the tall timber of truth, the pervasive scent of pine is inevitably upon us. Our pockets are bulging with souvenir rocks and cones. And we are filled with childish glee. There is no way to survey it all—in one tour or several. Besides, further familiarization will only increase our wonder. After all, One not given to hyperbole used the word *marvelous* to describe the Restoration!
 
-Further reconnoitering, in fact, produces a hushed expectancy because, one day, the faithful will have it all. “The day cometh that … all things shall be revealed unto the children of men which ever have been … and which ever will be even unto the end of the earth” ([[2 Nephi 27.11|2 Ne. 27:11]]).
+Further reconnoitering, in fact, produces a hushed expectancy because, one day, the faithful will have it all. “The day cometh that … all things shall be revealed unto the children of men which ever have been … and which ever will be even unto the end of the earth” ([[2 Nephi 27.11|2 Ne. 27:11]]).
 
-Like Moses, Nephi was atop “exceedingly high mountains” and “beheld great things … too great for man” ([[2 Nephi 4.25|2 Ne. 4:25]]). Like Enoch, Nephi cited the attributes of God, who is there amid worlds without number, declaring:
+Like Moses, Nephi was atop “exceedingly high mountains” and “beheld great things … too great for man” ([[2 Nephi 4.25|2 Ne. 4:25]]). Like Enoch, Nephi cited the attributes of God, who is there amid worlds without number, declaring:
 
-“O how great the goodness of our God!” ([[2 Nephi 9.10|2 Ne. 9:10]]).
+“O how great the goodness of our God!” ([[2 Nephi 9.10|2 Ne. 9:10]]).
 
-“O the greatness of the mercy of our God!” ([[2 Nephi 9.19|2 Ne. 9:19]]).
+“O the greatness of the mercy of our God!” ([[2 Nephi 9.19|2 Ne. 9:19]]).
 
-“O how great the plan of our God!” ([[2 Nephi 9.13|2 Ne. 9:13]]).
+“O how great the plan of our God!” ([[2 Nephi 9.13|2 Ne. 9:13]]).
 
 Gladly and firmly, I add my small voice of witness to these wonderful declarations of adoration, in the name of Jesus Christ, amen!
 
 
 
 
-
-
-#Conscience #Holy_Ghost #Jesus_Christ #Love
+#Conscience #HolyGhost #JesusChrist #Love

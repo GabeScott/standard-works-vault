@@ -1,6 +1,6 @@
 # Reading the Scriptures
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -59,6 +59,4 @@ May the Lord bless us in our study and righteous quest to seek him, I pray in th
 
 
 
-
-
-#Scripture_Study
+#ScriptureStudy

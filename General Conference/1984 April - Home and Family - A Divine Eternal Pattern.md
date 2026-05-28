@@ -30,7 +30,7 @@ Brothers and sisters, for just a moment, please imagine yourselves as if you wer
 
 1. “Marriage on earth will be ordained of God unto man.” (See [[D&C 49.15|D&C 49:15–16]][[D&C 49.16|]]; [[D&C 131.1|D&C 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]].)
 
-2. “By divine decree, you will be copartners with God in bringing children to earth.” (See [[Genesis 1.22|Gen. 1:22, 28]][[Genesis 1.28|]]; [[2 Nephi 2.22|2 Ne. 2:22–23]][[2 Nephi 2.23|]]; [[D&C 132.63|D&C 132:63]].)
+2. “By divine decree, you will be copartners with God in bringing children to earth.” (See [[Genesis 1.22|Gen. 1:22, 28]][[Genesis 1.28|]]; [[2 Nephi 2.22|2 Ne. 2:22–23]][[2 Nephi 2.23|]]; [[D&C 132.63|D&C 132:63]].)
 
 3. “The family unit will be the principal agency for the spiritual and temporal nurturing of the individual.” (See [[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]]; [[D&C 68.25|D&C 68:25, 28]][[D&C 68.28|]].)
 
@@ -40,7 +40,7 @@ The Father, perhaps continuing, might have said: “When you go to earth—
 
 5. “And to love and to serve one another.” (See [[Mosiah 4.15|Mosiah 4:15]].)
 
-6. “Pray in your families, both morning, mid-day, and evening, and I will quicken your memory of these teachings.” (See [[3 Nephi 18.21|3 Ne. 18:21]]; [[Alma 34.21|Alma 34:21, 27]][[Alma 34.27|]]; [[D&C 68.28|D&C 68:28]].)
+6. “Pray in your families, both morning, mid-day, and evening, and I will quicken your memory of these teachings.” (See [[3 Nephi 18.21|3 Ne. 18:21]]; [[Alma 34.21|Alma 34:21, 27]][[Alma 34.27|]]; [[D&C 68.28|D&C 68:28]].)
 
 7. “On earth, teach them repentance, faith in Christ, baptism, the gift of the Holy Ghost, priesthood covenants, and temple ordinances.” (See [[D&C 68.25|D&C 68:25, 27]][[D&C 68.27|]]; [[D&C 132.19|D&C 132:19]].) Grandparents, uncles and aunts, you can help.
 
@@ -52,7 +52,9 @@ The Father, perhaps continuing, might have said: “When you go to earth—
 
 Perhaps He continued, saying:
 
-11. “*Fathers* to be, you will learn what *true spiritual leadership* is mostly at home, not so much in the world.“*Mothers,* yours will be a sacred call unlike any other, *to raise these little children so that they will be like I am.* Unless you all become as little children, you will not be able to return home to me.”
+11. “*Fathers* to be, you will learn what *true spiritual leadership* is mostly at home, not so much in the world.
+
+“*Mothers,* yours will be a sacred call unlike any other, *to raise these little children so that they will be like I am.* Unless you all become as little children, you will not be able to return home to me.”
 
 12. *“Learn your duty from living prophets and from the scriptures.”*
 
@@ -64,7 +66,7 @@ Perhaps the Father continued, saying, “My children, there are also a number of
 
 2. “On earth, remember to keep your family responsibilities as a *priority.* There will be many who will want to encroach upon your responsibility *for teaching* and *providing activities* for your family. Never forget that yours is the primary responsibility and that your ultimate success in all other endeavors will be in direct proportion to the attention given these *divinely appointed relationships.*” (See [[D&C 88.119|D&C 88:119]].)
 
-3. “*Strive to be together.* Avoid activities and those that would pull you apart. Remember, where love runs deep, so can hurt feelings and frictions, as love may become frustrated.” (See [[2 Nephi 1.14|2 Ne. 1:14, 21]][[2 Nephi 1.21|]].)
+3. “*Strive to be together.* Avoid activities and those that would pull you apart. Remember, where love runs deep, so can hurt feelings and frictions, as love may become frustrated.” (See [[2 Nephi 1.14|2 Ne. 1:14, 21]][[2 Nephi 1.21|]].)
 
 4. “As children, be sure to *give heed to your father and mother,* remembering that I, the Lord, have placed them over you. Honor them.” (See [[Exodus 20.12|Ex. 20:12]].)
 
@@ -72,7 +74,9 @@ Perhaps the Father continued, saying, “My children, there are also a number of
 
 Brothers and sisters, perhaps he concluded,
 
-6. “My children, don’t be too concerned about remembering these things. You will find that when these things are taught to you they will seem strangely familiar, as if you always knew them. You did, because you experienced it all here in your heavenly home.” (See [[1 Nephi 15.8|1 Ne. 15:8, 11]][[1 Nephi 15.11|]].)“You will suffer affliction with your children in allowing them to grow and develop, just as I have suffered affliction with you. (See [[D&C 133.52|D&C 133:52–53]][[D&C 133.53|]].) But don’t be afraid; I have given mine angels charge concerning you. Those sent from my very presence to be round about you, to bear you up. (See [[D&C 84.42|D&C 84:42, 88]][[D&C 84.88|]]; [[D&C 133.53|133:53]].) This is your opportunity to experience what we have taught you. Follow the promptings. We love you.”
+6. “My children, don’t be too concerned about remembering these things. You will find that when these things are taught to you they will seem strangely familiar, as if you always knew them. You did, because you experienced it all here in your heavenly home.” (See [[1 Nephi 15.8|1 Ne. 15:8, 11]][[1 Nephi 15.11|]].)
+
+“You will suffer affliction with your children in allowing them to grow and develop, just as I have suffered affliction with you. (See [[D&C 133.52|D&C 133:52–53]][[D&C 133.53|]].) But don’t be afraid; I have given mine angels charge concerning you. Those sent from my very presence to be round about you, to bear you up. (See [[D&C 84.42|D&C 84:42, 88]][[D&C 84.88|]]; [[D&C 133.53|133:53]].) This is your opportunity to experience what we have taught you. Follow the promptings. We love you.”
 
 Brothers and sisters, in conclusion may I say, where possible:
 
@@ -108,8 +112,6 @@ And lastly, may the day come when these praises about home and family we will al
 >
 
 In the name of Jesus Christ, amen.
-
-
 
 
 

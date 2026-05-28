@@ -8,7 +8,7 @@ By Elder F. David Stanley - *Of the Seventy*
 
 More than 6,000 years ago, father Adam received the commandment, “In the sweat of thy face shalt thou eat bread” ([[Genesis 3.19|Gen. 3:19]]).
 
-Some 2,700 years ago, a Greek poet observed that “in front of excellence the immortal gods have put sweat, and long and steep is the way to it” (Hesiod, *Works and Days,* 1.287, in John Bartlett, comp., *Familiar Quotations,* 14th ed. \[Boston: Little, Brown and Co., 1968\], p. 67).
+Some 2,700 years ago, a Greek poet observed that “in front of excellence the immortal gods have put sweat, and long and steep is the way to it” (Hesiod, *Works and Days,* 1.287, in John Bartlett, comp., *Familiar Quotations,* 14th ed. \[Boston: Little, Brown and Co., 1968\], p. 67).
 
 My young friends of the Aaronic Priesthood and you trainers of this great army of Christ, the principle of work has been taught from the foundation of the world. It is the bottom line of any forward motion of success. The frightening disappearance of work as a part of our basic ethic is alarming. We constantly hear the statements “It’s too hard,” “Give me something easier,” “I want it now,” “I can’t wait that long” coming from our young people. The ugly disease of “nothing to do” is growing in epidemic proportions among us. It undermines the basic fabric of our nations. The prophet Ezekiel clearly defined iniquity as an “abundance of idleness” ([[Ezekiel 16.49|Ezek. 16:49]]).
 
@@ -24,11 +24,11 @@ My answer was then and always will be, “You must work hard, be diligent, be hu
 
 Young men, are you spending too much time desiring what you want to be instead of establishing a course of discipline and working hard on what you are going to be? As I sat with two of our missionaries in a home one night, they challenged a young investigator to begin reading the Book of Mormon. His answer overwhelmed us as he sat in his recliner sipping from a twelve-ounce container from the corner convenience store. He said, “It’s too hard.”
 
-Someone once said, “Thou, O God, \[doth give us\] all good things at the price of labor” (David Hume, *Human Nature,* in Burton Stevenson, sel., *The Macmillan Book of Proverbs, Maxims, and Famous Phrases* \[New York: The Macmillan Co., 1948\], p. 1331).
+Someone once said, “Thou, O God, \[doth give us\] all good things at the price of labor” (David Hume, *Human Nature,* in Burton Stevenson, sel., *The Macmillan Book of Proverbs, Maxims, and Famous Phrases* \[New York: The Macmillan Co., 1948\], p. 1331).
 
 This young man had felt the Spirit; but, alas, the seed was sown on stony ground, and he was not willing to work hard and pay the price to gain his individual testimony. We feared that evening that by saying “It’s too hard,” he may have made a decision that could jeopardize his eternal life.
 
-Among the saddest events for all mission presidents is to observe elders and sisters coming into the mission field not having learned how to work. President Ezra Taft Benson gave us a powerful key in one of his addresses on missionary work: “One of the greatest secrets of missionary work is work! If a missionary works, he will get the Spirit; if he gets the Spirit, he will teach by the Spirit; and if he teaches by the Spirit, he will touch the hearts of the people and he will be happy. There will be no homesickness, no worrying about families, for all time and talents and interest are centered on the work of the ministry. Work, work, work—there is no satisfactory substitute, especially in missionary work” (*The Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], p. 200).
+Among the saddest events for all mission presidents is to observe elders and sisters coming into the mission field not having learned how to work. President Ezra Taft Benson gave us a powerful key in one of his addresses on missionary work: “One of the greatest secrets of missionary work is work! If a missionary works, he will get the Spirit; if he gets the Spirit, he will teach by the Spirit; and if he teaches by the Spirit, he will touch the hearts of the people and he will be happy. There will be no homesickness, no worrying about families, for all time and talents and interest are centered on the work of the ministry. Work, work, work—there is no satisfactory substitute, especially in missionary work” (*The Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], p. 200).
 
 There you have it, fathers and trainers of future missionaries. There you have it, my young friends who are now preparing for your missions and you who are currently serving. If you want to be successful, start with the bottom line of *work.* Recently we noticed a surge in baptisms in one of our missions. The mission president was asked the reason for the surge. He said, “Baptisms come from hard work. We must work smarter and much harder.”
 
@@ -53,6 +53,4 @@ God lives, and I know it. This is his work, and he expects each of us to do it. 
 
 
 
-
-
-#Missionary_Work #Service #Work
+#MissionaryWork #Service #Work

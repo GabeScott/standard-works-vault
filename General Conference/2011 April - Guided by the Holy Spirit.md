@@ -1,6 +1,6 @@
 # Guided by the Holy Spirit
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -26,9 +26,9 @@ In the Book of Mormon, the Lord revisited the Nephites because they prayed to th
 
 “And they said unto him: Lord, we will that thou wouldst tell us the name whereby we shall call this church; for there are disputations among the people concerning this matter.
 
-“And the Lord said … , why is it that the people should murmur and dispute because of this thing?
+“And the Lord said … , why is it that the people should murmur and dispute because of this thing?
 
-“Have they not read the scriptures, which say ye must take upon you the name of Christ … ? For by this name shall ye be called at the last day. …
+“Have they not read the scriptures, which say ye must take upon you the name of Christ … ? For by this name shall ye be called at the last day. …
 
 “Therefore, whatsoever ye shall do, ye shall do it in my name; therefore ye shall call the church in my name; and ye shall call upon the Father in my name that he will bless the church for my sake.
 
@@ -38,7 +38,7 @@ Obedient to revelation, we call ourselves The Church of Jesus Christ of Latter-d
 
 The First Presidency stated:
 
-“The use of the revealed name, The Church of Jesus Christ of Latter-day Saints ([[D&C 115.4|D&C 115:4]]), is increasingly important in our responsibility to proclaim the name of the Savior throughout all the world. Accordingly, we ask that when we refer to the Church we use its full name wherever possible. …
+“The use of the revealed name, The Church of Jesus Christ of Latter-day Saints ([[D&C 115.4|D&C 115:4]]), is increasingly important in our responsibility to proclaim the name of the Savior throughout all the world. Accordingly, we ask that when we refer to the Church we use its full name wherever possible. …
 
 “When referring to Church members, we suggest ‘members of The Church of Jesus Christ of Latter-day Saints.’ As a shortened reference, ‘Latter-day Saints’ is preferred.”[^4]
 
@@ -115,13 +115,13 @@ If you are carrying some burden, forget it, let it alone. Do a lot of forgiving 
 
 [^2]: In Daniell, introduction to *Tyndale’s New Testament,* ix.
 
-[^3]: [[3 Nephi 27.2|3 Nephi 27:2–5, 7–8]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]].
+[^3]: [[3 Nephi 27.2|3 Nephi 27:2–5, 7–8]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]].
 
 [^4]: First Presidency letter, Feb. 23, 2001.
 
-[^5]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^5]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^6]: See [[Moses 5.8|Moses 5:8]]; baptism: see [[2 Nephi 31.12|2 Nephi 31:12]]; [[3 Nephi 11.27|3 Nephi 11:27]]; [[3 Nephi 18.16|18:16]]; blessing the sick: see [[D&C 42.44|Doctrine and Covenants 42:44]]; bestowing the Holy Ghost: see [[Moroni 2.2|Moroni 2:2]]; priesthood ordination: see [[Moroni 3.1|Moroni 3:1–3]][[Moroni 3.2|]][[Moroni 3.3|]]; sacrament: see [[Moroni 4.1|Moroni 4:1–3]][[Moroni 4.2|]][[Moroni 4.3|]]; miracles: see [[D&C 84.66|Doctrine and Covenants 84:66–69]][[D&C 84.67|]][[D&C 84.68|]][[D&C 84.69|]].
+[^6]: See [[Moses 5.8|Moses 5:8]]; baptism: see [[2 Nephi 31.12|2 Nephi 31:12]]; [[3 Nephi 11.27|3 Nephi 11:27]]; [[3 Nephi 18.16|18:16]]; blessing the sick: see [[D&C 42.44|Doctrine and Covenants 42:44]]; bestowing the Holy Ghost: see [[Moroni 2.2|Moroni 2:2]]; priesthood ordination: see [[Moroni 3.1|Moroni 3:1–3]][[Moroni 3.2|]][[Moroni 3.3|]]; sacrament: see [[Moroni 4.1|Moroni 4:1–3]][[Moroni 4.2|]][[Moroni 4.3|]]; miracles: see [[D&C 84.66|Doctrine and Covenants 84:66–69]][[D&C 84.67|]][[D&C 84.68|]][[D&C 84.69|]].
 
 [^7]: See [[Articles of Faith 1.6|Articles of Faith 1:6]].
 
@@ -157,6 +157,4 @@ If you are carrying some burden, forget it, let it alone. Do a lot of forgiving 
 
 [^23]: [[Alma 42.8|Alma 42:8]].
 
-
-
-#Church_Organization #Holy_Ghost #Priesthood #Scriptures #Standards
+#ChurchOrganization #HolyGhost #Priesthood #Scriptures #Standards

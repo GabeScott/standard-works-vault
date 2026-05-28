@@ -22,7 +22,7 @@ Evidently when fire hit the treetops, the pinecones exploded, scattering seed to
 
 As we drove through the park, I thought of the wonders of nature, of the rhythm of our lives. We grow old, and I am among those who have done so. Our vitality and our powers slacken. But a new generation is at our feet. These are children. These too are sons and daughters of God whose time has come to take their place on earth. They are like the new growth in the park—young, tender, sensitive, beautiful, and full of promise.
 
-As Tagore, the poet of India, once observed, “Every child comes with the message that God is not yet discouraged of man” (in Charles L. Wallis, ed., *The Treasure Chest* \[New York: Harper and Row, 1965\], p. 49). Children are the promise of the future. They are the future itself. The tragedy is that so many are born to lives of sorrow, of hunger, of fear and trouble and want. Children become the victims, in so many, many cases, of man’s inhumanity to man. In recent months we have seen them on our television screens—the children of Somalia, their bodies bloated, their eyes staring with the stare of death. More recently we have seen them in Rwanda, the victims of raging cholera and vicious and unrelenting hunger. Uncounted numbers have died.
+As Tagore, the poet of India, once observed, “Every child comes with the message that God is not yet discouraged of man” (in Charles L. Wallis, ed., *The Treasure Chest* \[New York: Harper and Row, 1965\], p. 49). Children are the promise of the future. They are the future itself. The tragedy is that so many are born to lives of sorrow, of hunger, of fear and trouble and want. Children become the victims, in so many, many cases, of man’s inhumanity to man. In recent months we have seen them on our television screens—the children of Somalia, their bodies bloated, their eyes staring with the stare of death. More recently we have seen them in Rwanda, the victims of raging cholera and vicious and unrelenting hunger. Uncounted numbers have died.
 
 These were the promise of a new and better generation in these lands, where disease, malnutrition, bullets, and neglect have mowed them down like tender plants before the sharp blade of the sickle.
 
@@ -48,11 +48,11 @@ One major problem is the now-common phenomenon of children bearing children, of 
 
 The burdens that fall upon a young woman who alone must rear her child are unbelievably heavy and consuming. They are likewise heavy upon society through taxes levied to meet the needs of such children and their mothers.
 
-In the United States “in the six years between 1985 and 1990, estimated public outlays related to teenage child-bearing totalled more than $120 billion. …
+In the United States “in the six years between 1985 and 1990, estimated public outlays related to teenage child-bearing totalled more than $120 billion. …
 
 “Of unmarried teens who give birth, 73 percent will be on welfare within four years \[that is almost three out of every four\].
 
-“In 1991, federal and state expenditures for Aid to Families with Dependent Children … totalled $20 billion plus administrative costs of $2.6 billion” (*Starting Points: Meeting the Needs of Our Youngest Children* \[New York: Carnegie Corporation, Apr. 1994\], p. 21).
+“In 1991, federal and state expenditures for Aid to Families with Dependent Children … totalled $20 billion plus administrative costs of $2.6 billion” (*Starting Points: Meeting the Needs of Our Youngest Children* \[New York: Carnegie Corporation, Apr. 1994\], p. 21).
 
 The obstacles facing children born and reared in such circumstances are formidable, to say the least.
 
@@ -76,7 +76,7 @@ In terms of physical abuse, I have never accepted the principle of “spare the 
 
 I am persuaded that violent fathers produce violent sons. I am satisfied that such punishment in most instances does more damage than good. Children don’t need beating. They need love and encouragement. They need fathers to whom they can look with respect rather than fear. Above all, they need example.
 
-I recently read a biography of George H. Brimhall, who at one time served as president of Brigham Young University. Concerning him, someone said that he reared “his boys with a rod, but it \[was\] a fishing rod” (Raymond Brimhall Holbrook and Esther Hamilton Holbrook, *The Tall Pine Tree: The Life and Work of George H. Brimhall* \[n.p., 1988\], p. 62). That says it all.
+I recently read a biography of George H. Brimhall, who at one time served as president of Brigham Young University. Concerning him, someone said that he reared “his boys with a rod, but it \[was\] a fishing rod” (Raymond Brimhall Holbrook and Esther Hamilton Holbrook, *The Tall Pine Tree: The Life and Work of George H. Brimhall* \[n.p., 1988\], p. 62). That says it all.
 
 And then there is the terrible, vicious practice of sexual abuse. It is beyond understanding. It is an affront to the decency that ought to exist in every man and woman. It is a violation of that which is sacred and divine. It is destructive in the lives of children. It is reprehensible and worthy of the most severe condemnation.
 
@@ -88,13 +88,13 @@ If there be any within the sound of my voice who may be guilty of such practice,
 
 When the resurrected Lord appeared on this hemisphere and taught the people, the record states that as he spoke to them, “he wept, … and he took their little children, one by one, and blessed them, and prayed unto the Father for them.
 
-“And when he had done this he wept again” ([[3 Nephi 17.21|3 Ne. 17:21–22]][[3 Nephi 17.22|]]).
+“And when he had done this he wept again” ([[3 Nephi 17.21|3 Ne. 17:21–22]][[3 Nephi 17.22|]]).
 
 There is no more tender and beautiful picture in all of sacred writing than this simple language describing the love of the Savior for little children.
 
 Of all the joys of life, none other equals that of happy parenthood. Of all the responsibilities with which we struggle, none other is so serious. To rear children in an atmosphere of love, security, and faith is the most rewarding of all challenges. The good result from such efforts becomes life’s most satisfying compensation.
 
-President Joseph F. Smith said on one occasion: “After all, to do well those things which God ordained to be the common lot of all man-kind, is the truest greatness. To be a successful father or a successful mother is greater than to be a successful general or a successful statesman. One is universal and eternal greatness, the other is ephemeral” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], p. 285).
+President Joseph F. Smith said on one occasion: “After all, to do well those things which God ordained to be the common lot of all man-kind, is the truest greatness. To be a successful father or a successful mother is greater than to be a successful general or a successful statesman. One is universal and eternal greatness, the other is ephemeral” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], p. 285).
 
 I am satisfied that no other experiences of life draw us nearer to heaven than those that exist between happy parents and happy children.
 
@@ -117,6 +117,7 @@ You may not have a mountain to look at where you live. You may not have an apple
 The old forest burns and dies. But there is a new one at its roots—one filled with wondrous potential. It is a thing beautiful to look upon—and destined to grow. It is the handiwork of God, a part of his divine plan.
 
 Save the children. Too many suffer and weep. God bless us to be mindful of them, to lift them and guide them as they walk in dangerous paths, to pray for them, to bless them, to love them, to keep them secure until they can run with strength of their own, I pray in the name of him who loves them so very much, even the Lord Jesus Christ, amen.
+
 
 
 

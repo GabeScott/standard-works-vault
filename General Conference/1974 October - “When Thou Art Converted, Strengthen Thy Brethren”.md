@@ -1,6 +1,6 @@
 # “When Thou Art Converted, Strengthen Thy Brethren”
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -86,23 +86,21 @@ Finally Peter understood: “when thou art converted”—a condition carries wi
 
 In the lives of many of our great Church leaders of this dispensation we’ve seen this process of conversion interpreted into a powerful desire to strengthen the lives of the brethren. One example that has always impressed me is the story of John Taylor.
 
-The gospel was first introduced to Brother Taylor and his family in Toronto, Canada, by Elder Parley P. Pratt in April of 1836. At that time John Taylor was engaged as a minister and investigated very carefully the teachings of Elder Pratt. He wrote down eight sermons which Elder Pratt preached and compared them to the Bible to see if he could find anything that was contrary to the scriptures. He made his investigation of the Church a regular business for three weeks and then was satisfied and was baptized.
+The gospel was first introduced to Brother Taylor and his family in Toronto, Canada, by Elder Parley P. Pratt in April of 1836. At that time John Taylor was engaged as a minister and investigated very carefully the teachings of Elder Pratt. He wrote down eight sermons which Elder Pratt preached and compared them to the Bible to see if he could find anything that was contrary to the scriptures. He made his investigation of the Church a regular business for three weeks and then was satisfied and was baptized.
 
-About a year later John Taylor visited Kirtland, Ohio. The gloom of apostasy was hanging over the city and, sadly, this dissension had affected Parley P. Pratt as he returned from his mission to Canada. Elder Pratt tried to show Brother Taylor why he thought the Prophet Joseph was in error. To this John Taylor steadfastly replied:
+About a year later John Taylor visited Kirtland, Ohio. The gloom of apostasy was hanging over the city and, sadly, this dissension had affected Parley P. Pratt as he returned from his mission to Canada. Elder Pratt tried to show Brother Taylor why he thought the Prophet Joseph was in error. To this John Taylor steadfastly replied:
 
 “I am surprised to hear you speak so Brother Parley. Before you left Canada you bore a strong testimony to Joseph Smith being a Prophet of God, and to the truth of the work he has inaugurated: and you said you knew those things by revelation, and the gift of the Holy Ghost. You gave me a strict charge to the effect that though you or an angel from Heaven was to declare anything else, I was not to believe it.
 
 Now, Brother Parley, it is not man I am following but the Lord. The principles you taught me led me to Him; and I now have the same testimony that you then rejoiced in. If the work was true six months ago, it is true today; if Joseph was then a prophet, he is now a prophet.” (B. H. Roberts, *Life of John Taylor,* Bookcraft, 1963, pp. 39–40.)
 
-Parley P. Pratt saw the error of his ways and was strengthened and went to the Prophet Joseph with tears in his eyes and asked for forgiveness and reaffirmed his allegiance to the prophet-leader of the Church. Truly the words of a converted John Taylor had an inspirational effect in the life of Brother Parley P. Pratt.
+Parley P. Pratt saw the error of his ways and was strengthened and went to the Prophet Joseph with tears in his eyes and asked for forgiveness and reaffirmed his allegiance to the prophet-leader of the Church. Truly the words of a converted John Taylor had an inspirational effect in the life of Brother Parley P. Pratt.
 
 “When thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].)
 
 All of the abundance, fullness, and plenty of this earth was given to us by God to be enjoyed in righteousness. We in turn are expected to love him; to be converted to him and his ways and to feed his sheep; to multiply, replenish, and strengthen our brethren. I pray that we may all catch the vision of what conversion means and focus our service on the effort to build the kingdom of God here on earth; that we may be likened unto Alma, Peter, or President John Taylor and the other great prophets and leaders of the Church throughout the dispensations of time who caught sight of his marvelous work and proceeded to dedicate their lives for its purposes.
 
-May I add my witness to this conference that God lives, that Jesus is the Savior of this world, that Spencer W. Kimball, who conducts this conference session here today, is a prophet. Think of it—a prophet of the Lord on the earth today! May I give this witness as I know it, in the name of Jesus Christ. Amen.
-
-
+May I add my witness to this conference that God lives, that Jesus is the Savior of this world, that Spencer W. Kimball, who conducts this conference session here today, is a prophet. Think of it—a prophet of the Lord on the earth today! May I give this witness as I know it, in the name of Jesus Christ. Amen.
 
 
 

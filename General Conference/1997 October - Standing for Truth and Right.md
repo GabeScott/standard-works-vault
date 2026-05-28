@@ -12,7 +12,7 @@ It is a privilege, brethren, to speak to you this evening. Brethren, holding the
 
 When we covenant in the waters of baptism to “stand as witnesses of God at all times and in all things, and in all places,” we’re not talking solely about fast and testimony meetings. It may not always be easy, convenient, or politically correct to stand for truth and right, but it is always the right thing to do—always.
 
-Joseph F. Smith was 19 when he returned from his mission in Hawaii. As he traveled from California to his home in Utah, he was confronted one morning by a “wagonload of profane drunks … , shooting their guns, yelling wildly, and cursing the Mormons.” One of the drunks, “waving a pistol,” came toward him. Although Joseph “was terrified, he felt it would be unwise and useless to run … , and so he advanced toward the gunman as if he found nothing out of the ordinary in his conduct. ‘Are you a ——— ——— ——— Mormon?’ the stranger demanded. Mustering all the composure he could, Joseph answered evenly while looking the man straight in the eye, ‘Yes, siree; dyed in the wool; true blue, through and through.’ Almost stunned by this wholly unexpected response, the gunman stopped, dropped his hands to his sides, and, after looking incredulously at Joseph for a moment, said in a subdued tone, ‘Well, you are the ——— ——— pleasantest man I ever met! Shake. I am glad to see a fellow stand for his convictions.’ So saying, he turned and walked away.”[^3]
+Joseph F. Smith was 19 when he returned from his mission in Hawaii. As he traveled from California to his home in Utah, he was confronted one morning by a “wagonload of profane drunks … , shooting their guns, yelling wildly, and cursing the Mormons.” One of the drunks, “waving a pistol,” came toward him. Although Joseph “was terrified, he felt it would be unwise and useless to run … , and so he advanced toward the gunman as if he found nothing out of the ordinary in his conduct. ‘Are you a ——— ——— ——— Mormon?’ the stranger demanded. Mustering all the composure he could, Joseph answered evenly while looking the man straight in the eye, ‘Yes, siree; dyed in the wool; true blue, through and through.’ Almost stunned by this wholly unexpected response, the gunman stopped, dropped his hands to his sides, and, after looking incredulously at Joseph for a moment, said in a subdued tone, ‘Well, you are the ——— ——— pleasantest man I ever met! Shake. I am glad to see a fellow stand for his convictions.’ So saying, he turned and walked away.”[^3]
 
 As priesthood holders, we have a sacred duty to always stand for truth and right. The priesthood, by definition, is God’s authority given to man to do the things that He would do if He were here. That means we are not only His witnesses, we are His representatives.
 
@@ -42,7 +42,7 @@ I know it is sometimes hard to stand for truth and right. Yet we need to be posi
 
 As a boy growing up in Nauvoo, George Q. Cannon learned to cope with those who would do harm to others. In his own words, he tells how he and a group of boys his age did their part to defend the Saints against potential troublemakers:
 
-“It was … a common practice … , when engaged in conversation or in making a bargain, to take out … pocket knives and commence whittling; frequently, … accompanying the whittling by whistling. No person could object, therefore, to the practices of whittling and whistling. Many of the boys of the city had each a large bowie knife made, and when a man came to town who was known to be a villain, and was there for evil purposes, a few of them would get together, and go to where the obnoxious person was, and having previously provided themselves with pine shingles, would commence whittling. The presence of a number of boys, each \[harmlessly\] whittling … was not a sight to escape the notice of a stranger. … His first \[reaction\] … would be to … ask what this meant. The boys would make no reply, but with grave faces, keep up their \[harmless\] whistling. … What could the man do? If he was armed, he could shoot; but the resolute expression of the boys’ faces, and the gleaming knives … would convince him that discretion was the better part of valor. … The most we ever knew them to do was to stand for awhile and curse and threaten. … Then they would walk off … , followed by the troop of boys vigorously whittling and whistling.”[^13]
+“It was … a common practice … , when engaged in conversation or in making a bargain, to take out … pocket knives and commence whittling; frequently, … accompanying the whittling by whistling. No person could object, therefore, to the practices of whittling and whistling. Many of the boys of the city had each a large bowie knife made, and when a man came to town who was known to be a villain, and was there for evil purposes, a few of them would get together, and go to where the obnoxious person was, and having previously provided themselves with pine shingles, would commence whittling. The presence of a number of boys, each \[harmlessly\] whittling … was not a sight to escape the notice of a stranger. … His first \[reaction\] … would be to … ask what this meant. The boys would make no reply, but with grave faces, keep up their \[harmless\] whistling. … What could the man do? If he was armed, he could shoot; but the resolute expression of the boys’ faces, and the gleaming knives … would convince him that discretion was the better part of valor. … The most we ever knew them to do was to stand for awhile and curse and threaten. … Then they would walk off … , followed by the troop of boys vigorously whittling and whistling.”[^13]
 
 Now, I’m not suggesting that we begin issuing bowie knives to our deacons. But I am suggesting that George Q. Cannon and his youthful associates exhibited great courage and faith by their actions. They saw something that needed to be done, and they did it safely within the context of what was appropriate for the times. I’m impressed by their willingness to take a stand against wicked intentions of others.
 
@@ -65,22 +65,20 @@ These are difficult times in which we are living. In some respects, it is perhap
 
 [^5]: [[Helaman 6.38|Hel. 6:38]].
 
-[^6]: [[3 Nephi 1.30|3 Ne. 1:30]].
+[^6]: [[3 Nephi 1.30|3 Ne. 1:30]].
 
-[^7]: [[Helaman 6.30|Hel. 6:30]]; see [[2 Nephi 26.22|2 Ne. 26:22]].
+[^7]: [[Helaman 6.30|Hel. 6:30]]; see [[2 Nephi 26.22|2 Ne. 26:22]].
 
 [^8]: [[Helaman 6.30|Hel. 6:30]].
 
-[^9]: See [[2 Nephi 9.9|2 Ne. 9:9]].
+[^9]: See [[2 Nephi 9.9|2 Ne. 9:9]].
 
 [^10]: [[Helaman 6.37|Hel. 6:37]].
 
 [^11]: [[D&C 35.24|D&C 35:24]].
 
-[^12]: [[1 Nephi 22.26|1 Ne. 22:26]].
+[^12]: [[1 Nephi 22.26|1 Ne. 22:26]].
 
 [^13]: “History of the Church,” *Juvenile Instructor,* 30 Sept. 1871, 158.
 
-
-
-#Children #Commandments #Covenants #Example #Fellowshipping #Jesus_Christ #Parenthood #Priesthood #Satan #Sin #Truth #Youth
+#Children #Commandments #Covenants #Example #Fellowshipping #JesusChrist #Parenthood #Priesthood #Satan #Sin #Truth #Youth

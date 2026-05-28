@@ -14,7 +14,7 @@ David declares in one of his beautiful and moving psalms, “O Lord our Lord, ho
 
 Job, that righteous man of old, joined in the question when he asked, “What is man, that thou shouldest magnify him? and that thou shouldest set thine heart upon him?” ([[Job 7.17|Job 7:17]]).
 
-One need not grope for answers to these penetrating questions when in your presence here in the historic Tabernacle or with you in the many meeting places throughout the world where you have assembled. “Ye are a chosen generation, a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Pet. 2:9]]). “Ye … are … a spiritual house, an holy priesthood” ([[1 Peter 2.5|1 Pet. 2:5]]).
+One need not grope for answers to these penetrating questions when in your presence here in the historic Tabernacle or with you in the many meeting places throughout the world where you have assembled. “Ye are a chosen generation, a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Pet. 2:9]]). “Ye … are … a spiritual house, an holy priesthood” ([[1 Peter 2.5|1 Pet. 2:5]]).
 
 As bearers of the priesthood, we have been placed on earth in troubled times. We live in a complex world with currents of conflict everywhere to be found. Political machinations ruin the stability of nations, despots grasp for power, and segments of society seem forever downtrodden, deprived of opportunity and left with a feeling of failure.
 
@@ -24,7 +24,7 @@ Though the task looms large, we are strengthened by the truth: “The greatest f
 
 Are our reaching hands clean? Are our yearning hearts pure? Looking backward in time through the pages of history, we glean a lesson on worthiness from the words of the dying King Darius.
 
-“Darius … through the proper rites had been recognized as legitimate King of Egypt; his rival Alexander had been declared the legitimate Son of Amon—he too was Pharaoh. … Alexander found the defeated Darius on the point of death in his tent, and … laid his hands upon his head to heal him, commanding him to arise and resume his kingly power, and concluding his blessing: ‘I swear unto thee, Darius, by all the gods, that I do these things truly and without faking.’ \[Darius\] replied with a gentle rebuke: ‘Alexander my boy … do you think you can touch heaven with those hands of yours?’” (in Hugh Nibley, *Abraham in Egypt,* Salt Lake City: Deseret Book Co., 1981, p. 192).
+“Darius … through the proper rites had been recognized as legitimate King of Egypt; his rival Alexander had been declared the legitimate Son of Amon—he too was Pharaoh. … Alexander found the defeated Darius on the point of death in his tent, and … laid his hands upon his head to heal him, commanding him to arise and resume his kingly power, and concluding his blessing: ‘I swear unto thee, Darius, by all the gods, that I do these things truly and without faking.’ \[Darius\] replied with a gentle rebuke: ‘Alexander my boy … do you think you can touch heaven with those hands of yours?’” (in Hugh Nibley, *Abraham in Egypt,* Salt Lake City: Deseret Book Co., 1981, p. 192).
 
 An inspiring lesson is learned from a “Viewpoint” article which appeared recently in the *Church News* section of the *Deseret News.* May I quote:
 
@@ -36,15 +36,15 @@ An inspiring lesson is learned from a “Viewpoint” article which appeared rec
 
 “Sins are like those barnacles. Hardly anyone goes through life without picking up some. They increase the drag, slow our progress, decrease our efficiency. Unrepented, building up one on another, they can eventually sink us.
 
-“In His infinite love and mercy, our Lord has provided a harbor where, through repentance, our barnacles fall away and are forgotten. With our souls lightened and renewed, we can go efficiently about our work and His” (“Harbor of Forgiveness,” 30 Jan. 1988, p. 16).
+“In His infinite love and mercy, our Lord has provided a harbor where, through repentance, our barnacles fall away and are forgotten. With our souls lightened and renewed, we can go efficiently about our work and His” (“Harbor of Forgiveness,” 30 Jan. 1988, p. 16).
 
 A loving Heavenly Father has provided for our guidance models to follow, men who made a difference in their own times. I choose to call these noble souls “pioneers.” Webster defines a pioneer: “One who goes before, showing others the way to follow.”
 
 With faith as their moving power, they sailed upstream against the currents of doubt which surrounded them. We cannot help but be inspired in our efforts as we remember their examples.
 
-From Nephi: “I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]).
+From Nephi: “I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]).
 
-From Samuel: “To obey is better than sacrifice, and to hearken than the fat of rams” ([[1 Samuel 15.22|1 Sam. 15:22]]).
+From Samuel: “To obey is better than sacrifice, and to hearken than the fat of rams” ([[1 Samuel 15.22|1 Sam. 15:22]]).
 
 From Paul: “For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation” ([[Romans 1.16|Rom. 1:16]]).
 
@@ -68,7 +68,7 @@ The influence of your personal testimonies is ever so far-reaching. The Lord ins
 
 He also cautioned us, “With some I am not well pleased, for they will not open their mouths, but they hide the talent which I have given unto them, because of the fear of man” ([[D&C 60.2|D&C 60:2]]).
 
-You never know when your turn will come to comply with the admonition of Peter to “be ready always to give an answer to every man that asketh you a reason of the hope that is in you” ([[1 Peter 3.15|1 Pet. 3:15]]).
+You never know when your turn will come to comply with the admonition of Peter to “be ready always to give an answer to every man that asketh you a reason of the hope that is in you” ([[1 Peter 3.15|1 Pet. 3:15]]).
 
 Some years ago I had the opportunity to address a business convention in Dallas, Texas, sometimes called “the city of churches.” After the convention, I took a sightseeing bus ride about the city’s suburbs. Our driver would comment, “On the left you see the Methodist church,” or “There on the right is the Catholic cathedral.”
 
@@ -97,9 +97,7 @@ Brethren, let us hearken to the hymn, “Improve the Shining Moments”:
 >’Tis as a single day.
 >
 
-As we leave this general priesthood meeting, let us all determine to shed any barnacles of sin, to prepare for our time of opportunity, and to honor the priesthood we bear through the service we render, the lives we bless, and the souls we are privileged to help save. You are “a chosen generation, a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Pet. 2:9]]), and you can make a difference. To these truths I testify, in the name of Jesus Christ, amen.
-
-
+As we leave this general priesthood meeting, let us all determine to shed any barnacles of sin, to prepare for our time of opportunity, and to honor the priesthood we bear through the service we render, the lives we bless, and the souls we are privileged to help save. You are “a chosen generation, a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Pet. 2:9]]), and you can make a difference. To these truths I testify, in the name of Jesus Christ, amen.
 
 
 

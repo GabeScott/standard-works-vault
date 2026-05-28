@@ -1,7 +1,6 @@
 # Ponder
 
-
-*See also* [[Meditation, Meditate.md|Meditation]]; [[Think, Thought.md|Think]]
+*See also* [[Meditation.md|Meditation]]; [[Think.md|Think]]
 
 *Ponder* the path of thy feet, [[Proverbs 4.26|Proverbs 4:26]].
 
@@ -33,4 +32,4 @@ leave these sayings with you to *ponder*, [[D&C 88.62|D&C 88:62]].
 
 I sat in my room *pondering* over the scriptures, [[D&C 138.1|D&C 138:1]].
 
-third visit ... I was again left to *ponder*, [[Joseph Smith History 1.47|Joseph Smith History 1:47]].
+third visit … I was again left to *ponder*, [[Joseph Smith History 1.47|Joseph Smith History 1:47]].

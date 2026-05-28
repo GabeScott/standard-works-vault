@@ -1,13 +1,12 @@
 # Worth
 
-
-*See also* [[Value.md|Value]]; [[Worthiness, Worthy.md|Worthiness]]; [[Worth of Souls.md|Worth of Souls]]
+*See also* [[Value.md|Value]]; [[Worthiness.md|Worthiness]]; [[Worth of Souls.md|Worth of Souls]]
 
 thou art *worth* ten thousand of us, [[2 Samuel 18.3|2 Samuel 18:3]].
 
 heart of the wicked is little *worth*, [[Proverbs 10.20|Proverbs 10:20]].
 
-records ... of great *worth*, [[1 Nephi 5.21|1 Nephi 5:21]].
+records … of great *worth*, [[1 Nephi 5.21|1 Nephi 5:21]].
 
 of *worth* unto the children of men, [[2 Nephi 25.8|2 Nephi 25:8]].
 

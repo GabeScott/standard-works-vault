@@ -16,11 +16,11 @@ Wherever we live in this world, we see the glorious rising sun, which bears reco
 
 But of all God’s remarkable creations, only we, His children, are created in His image and likeness. Only we, His children, have the capacity to develop our own spiritual convictions. And only we, His children, can give voice and expression to our witness of Him. We, His children, rejoice in our privilege and sacred obligation to bear record of Him and His gospel.
 
-Not long ago our granddaughter Susie received a copy of the scriptures. She lives in an area where her classmates and teacher are not members of the Church, so she wanted to share with them the Articles of Faith that were recorded in her new scriptures. She decided it would be appropriate to do this at school during the time that was scheduled for sharing something newsworthy. When the time came, eight-year-old Susie stood before her classmates and began, “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]). She continued, but when she got to the seventh article of faith, one classmate loudly complained, “This isn’t a current event!” The teacher quickly responded, “Well, it’s news to me!”
+Not long ago our granddaughter Susie received a copy of the scriptures. She lives in an area where her classmates and teacher are not members of the Church, so she wanted to share with them the Articles of Faith that were recorded in her new scriptures. She decided it would be appropriate to do this at school during the time that was scheduled for sharing something newsworthy. When the time came, eight-year-old Susie stood before her classmates and began, “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]). She continued, but when she got to the seventh article of faith, one classmate loudly complained, “This isn’t a current event!” The teacher quickly responded, “Well, it’s news to me!”
 
 Each of us can share the good news of the gospel and give words to our convictions. If we are sensitive to the whisperings of the Spirit, we can find opportunities to humbly express our beliefs. Even a shy eight-year-old child felt the desire to share the articles of her faith.
 
-When we bear record of the good news of the gospel, our spoken testimony invites the Holy Ghost to bear His witness of the truth of the message. It is not our words that carry the power but rather the Spirit of God that accompanies our words and confirms them in the hearts of the listeners. Nephi explained in the Book of Mormon, “For when a man speaketh by the power of the Holy Ghost the power of the Holy Ghost carrieth it unto the hearts of the children of men” ([[2 Nephi 33.1|2 Ne. 33:1]]).
+When we bear record of the good news of the gospel, our spoken testimony invites the Holy Ghost to bear His witness of the truth of the message. It is not our words that carry the power but rather the Spirit of God that accompanies our words and confirms them in the hearts of the listeners. Nephi explained in the Book of Mormon, “For when a man speaketh by the power of the Holy Ghost the power of the Holy Ghost carrieth it unto the hearts of the children of men” ([[2 Nephi 33.1|2 Ne. 33:1]]).
 
 When we declare where we stand and humbly give words to what we believe and feel, the Spirit also bears witness to our own souls that what we speak is true. Elder Boyd K. Packer said it simply, “A testimony is to be *found* in the *bearing* of it!” (“The Candle of the Lord,” *Ensign,* Jan. 1983, 54).
 
@@ -65,6 +65,4 @@ In His sacred name, Jesus Christ, amen.
 
 
 
-
-
-#Children #Creation #Family_Home_Evening #Holy_Ghost #Jesus_Christ #Love #Parenthood #Prayer #Scripture_Study #Testimony
+#Children #Creation #FamilyHomeEvening #HolyGhost #JesusChrist #Love #Parenthood #Prayer #ScriptureStudy #Testimony

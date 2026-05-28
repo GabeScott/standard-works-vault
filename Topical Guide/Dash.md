@@ -1,7 +1,6 @@
 # Dash
 
-
-*dash* them in pieces like a potter's vessel, [[Psalms 2.9|Psalms 2:9]].
+*dash* them in pieces like a potter’s vessel, [[Psalms 2.9|Psalms 2:9]].
 
 lest thou *dash* thy foot, [[Psalms 91.12|Psalms 91:12]] ([[Matthew 4.6|Matthew 4:6]]; [[Luke 4.11|Luke 4:11]]).
 

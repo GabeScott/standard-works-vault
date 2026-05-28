@@ -1,6 +1,6 @@
 # No Other Gods
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -46,13 +46,13 @@ Because of what we understand about the potentially eternal role of the family, 
 
 - In many countries and cultures (1) the traditional family of a married mother and father and children is coming to be the exception rather than the rule, (2) the pursuit of a career instead of marriage and the bearing of children is an increasing choice of many young women, and (3) the role and perceived necessity of fathers is diminishing.
 
-In the midst of these concerning trends, we are also conscious that God’s plan is for all of His children and that God loves all of His children, everywhere.[^6] The first chapter of the Book of Mormon declares that God’s “power, and goodness, and mercy are over all the inhabitants of the earth” ([[1 Nephi 1.14|1 Nephi 1:14]]). A later chapter declares that “he hath given \[his salvation\] free for all men” and that “all men are privileged the one like unto the other, and none are forbidden” ([[2 Nephi 26.27|2 Nephi 26:27–28]][[2 Nephi 26.28|]]). Consequently, the scriptures teach that we are responsible to be compassionate and charitable (loving) toward all men (see [[1 Thessalonians 3.12|1 Thessalonians 3:12]]; [[1 John 3.17|1 John 3:17]]; [[D&C 121.45|D&C 121:45]]).
+In the midst of these concerning trends, we are also conscious that God’s plan is for all of His children and that God loves all of His children, everywhere.[^6] The first chapter of the Book of Mormon declares that God’s “power, and goodness, and mercy are over all the inhabitants of the earth” ([[1 Nephi 1.14|1 Nephi 1:14]]). A later chapter declares that “he hath given \[his salvation\] free for all men” and that “all men are privileged the one like unto the other, and none are forbidden” ([[2 Nephi 26.27|2 Nephi 26:27–28]][[2 Nephi 26.28|]]). Consequently, the scriptures teach that we are responsible to be compassionate and charitable (loving) toward all men (see [[1 Thessalonians 3.12|1 Thessalonians 3:12]]; [[1 John 3.17|1 John 3:17]]; [[D&C 121.45|D&C 121:45]]).
 
 ## IV.
 
 We are also respectful of the religious beliefs of all people, even of those increasing numbers who profess no belief in God. We know that through the God-given power of choice, many will hold beliefs contrary to ours, but we are hopeful that others will be equally respectful of our religious beliefs and understand that our beliefs compel us to some different choices and behaviors than theirs. For example, we believe that, as an essential part of His plan of salvation, God has established an eternal standard that sexual relations should occur only between a man and a woman who are married.
 
-The power to create mortal life is the most exalted power God has given to His children. Its use was mandated by God’s first commandment to Adam and Eve (see [[Genesis 1.28|Genesis 1:28]]), but other important commandments were given to forbid its misuse (see [[Exodus 20.14|Exodus 20:14]]; [[1 Thessalonians 4.3|1 Thessalonians 4:3]]). The emphasis we place on the law of chastity is explained by our understanding of the purpose of our procreative powers in the accomplishment of God’s plan. Outside the bonds of marriage between a man and a woman, all uses of our procreative powers are to one degree or another sinful and contrary to God’s plan for the exaltation of His children.
+The power to create mortal life is the most exalted power God has given to His children. Its use was mandated by God’s first commandment to Adam and Eve (see [[Genesis 1.28|Genesis 1:28]]), but other important commandments were given to forbid its misuse (see [[Exodus 20.14|Exodus 20:14]]; [[1 Thessalonians 4.3|1 Thessalonians 4:3]]). The emphasis we place on the law of chastity is explained by our understanding of the purpose of our procreative powers in the accomplishment of God’s plan. Outside the bonds of marriage between a man and a woman, all uses of our procreative powers are to one degree or another sinful and contrary to God’s plan for the exaltation of His children.
 
 The importance we attach to the law of chastity explains our commitment to the pattern of marriage that originated with Adam and Eve and has continued through the ages as God’s pattern for the procreative relationship between His sons and daughters and for the nurturing of His children. Fortunately, many persons affiliated with other denominations or organizations agree with us on the nature and importance of marriage, some on the basis of religious doctrine and others on the basis of what they deem best for society.
 
@@ -68,7 +68,7 @@ Our [[Articles of Faith 1.12|twelfth article of faith]] states our belief in bei
 
 In this determination we may be misunderstood, and we may incur accusations of bigotry, suffer discrimination, or have to withstand invasions of our free exercise of religion. If so, I think we should remember our first priority—to serve God—and, like our pioneer predecessors, push our personal handcarts forward with the same fortitude they exhibited.
 
-A teaching of President Thomas S. Monson applies to this circumstance. At this conference 27 years ago, he boldly declared: “Let us have the courage to defy the consensus, the courage to stand for principle. Courage, not compromise, brings the smile of God’s approval. Courage becomes a living and an attractive virtue when it is regarded not only as a willingness to die manfully, but as the determination to live decently. A moral coward is one who is afraid to do what he thinks is right because others will disapprove or laugh. Remember that all men have their fears, but those who face their fears with dignity have courage as well.”[^11]
+A teaching of President Thomas S. Monson applies to this circumstance. At this conference 27 years ago, he boldly declared: “Let us have the courage to defy the consensus, the courage to stand for principle. Courage, not compromise, brings the smile of God’s approval. Courage becomes a living and an attractive virtue when it is regarded not only as a willingness to die manfully, but as the determination to live decently. A moral coward is one who is afraid to do what he thinks is right because others will disapprove or laugh. Remember that all men have their fears, but those who face their fears with dignity have courage as well.”[^11]
 
 I pray that we will not let the temporary challenges of mortality cause us to forget the great commandments and priorities we have been given by our Creator and our Savior. We must not set our hearts so much on the things of the world and aspire to the honors of men (see [[D&C 121.35|D&C 121:35]]) that we stop trying to achieve our eternal destiny. We who know God’s plan for His children—we who have made covenants to participate in it—have a clear responsibility. We must never deviate from our paramount desire, which is to achieve eternal life.[^12] We must never dilute our first priority—to have no other gods and to serve no other priorities ahead of God the Father and His Son, our Savior, Jesus Christ.
 
@@ -79,17 +79,17 @@ May God help us to understand this priority and to be understood by others as we
 
 [^1]: See, for example, [[D&C 124.84|Doctrine and Covenants 124:84]].
 
-[^2]: See Joyce A. Martin and others, “Births: Final Data for 2011,” *National Vital Statistics Reports,* vol. 62, no. 1 (June 28, 2013), 4; Gloria Goodale, “Behind a Looming Baby Bust,” *Christian Science Monitor Weekly,* Feb. 4, 2013, 21, 23.
+[^2]: See Joyce A. Martin and others, “Births: Final Data for 2011,” *National Vital Statistics Reports,* vol. 62, no. 1 (June 28, 2013), 4; Gloria Goodale, “Behind a Looming Baby Bust,” *Christian Science Monitor Weekly,* Feb. 4, 2013, 21, 23.
 
 [^3]: See Population Reference Bureau, “2012 World Population Data Sheet,” www.prb.org/Publications/Datasheets/2012/world-population-data-sheet/data-sheet.aspx.
 
-[^4]: See D’Vera Cohn and others, “Barely Half of U.S. Adults Are Married—a Record Low,” Pew Research Center, Social and Demographic Trends, Dec. 14, 2011, available at www.pewsocialtrends.org/2011/12/14/barely-half-of-u-s-adults-are-married-a-record-low; “Rash Retreat from Marriage,” *Christian Science Monitor,* Jan. 2 and 9, 2012, 34.
+[^4]: See D’Vera Cohn and others, “Barely Half of U.S. Adults Are Married—a Record Low,” Pew Research Center, Social and Demographic Trends, Dec. 14, 2011, available at www.pewsocialtrends.org/2011/12/14/barely-half-of-u-s-adults-are-married-a-record-low; “Rash Retreat from Marriage,” *Christian Science Monitor,* Jan. 2 and 9, 2012, 34.
 
 [^5]: U.S. Census Bureau, “Estimated Median Age at First Marriage, by Sex: 1890 to the Present,” available at www.census.gov/population/socdemo/hh-fam/ms2.xls.
 
-[^6]: See Dallin H. Oaks, [“All Men Everywhere,”](https://churchofjesuschrist.org/study/ensign/2006/05/all-men-everywhere?lang=eng) *Ensign* or *Liahona,* May 2006, 77–80.
+[^6]: See Dallin H. Oaks, [“All Men Everywhere,”](https://www.churchofjesuschrist.org/study/ensign/2006/05/all-men-everywhere?lang=eng) *Ensign* or *Liahona,* May 2006, 77–80.
 
-[^7]: See Dallin H. Oaks, [“The Great Plan of Happiness,”](https://churchofjesuschrist.org/study/ensign/1993/11/the-great-plan-of-happiness?lang=eng) *Ensign,* Nov. 1993, 72–75.
+[^7]: See Dallin H. Oaks, [“The Great Plan of Happiness,”](https://www.churchofjesuschrist.org/study/ensign/1993/11/the-great-plan-of-happiness?lang=eng) *Ensign,* Nov. 1993, 72–75.
 
 [^8]: See Martin, “Births: Final Data for 2011,” 4.
 
@@ -97,10 +97,8 @@ May God help us to understand this priority and to be understood by others as we
 
 [^10]: See *The State of Our Unions,* 101, 102.
 
-[^11]: Thomas S. Monson, “Courage Counts,” *Ensign,* Nov. 1986, 41.
+[^11]: Thomas S. Monson, “Courage Counts,” *Ensign,* Nov. 1986, 41.
 
-[^12]: See Dallin H. Oaks, [“Desire,”](https://churchofjesuschrist.org/study/ensign/2011/05/saturday-afternoon-session/desire?lang=eng) *Ensign* or *Liahona,* May 2011, 42–45.
+[^12]: See Dallin H. Oaks, [“Desire,”](https://www.churchofjesuschrist.org/study/ensign/2011/05/saturday-afternoon-session/desire?lang=eng) *Ensign* or *Liahona,* May 2011, 42–45.
 
-
-
-#Commandments #Marriage #Morality #Plan_Of_Salvation
+#Commandments #Marriage #Morality #PlanOfSalvation

@@ -14,7 +14,7 @@ We learn in the proclamation on the family that “the family is central to the 
 
 The family is also Satan’s primary target. He is waging war on the family. One of his schemes is the subtle and cunning way he has of sneaking behind enemy lines and entering our very homes and lives.
 
-He damages and often destroys families within the walls of their own homes. His strategy is to stir up *anger* between family members. Satan is “the father of contention, and he stirreth up the hearts of men to contend with *anger,* one with another” ([[3 Nephi 11.29|3 Ne. 11:29]]; emphasis added). The verb *stir* sounds like a recipe for disaster: Put tempers on medium heat, stir in a few choice words, and bring to a boil; continue stirring until thick; cool off; let feelings chill for several days; serve cold; lots of leftovers.
+He damages and often destroys families within the walls of their own homes. His strategy is to stir up *anger* between family members. Satan is “the father of contention, and he stirreth up the hearts of men to contend with *anger,* one with another” ([[3 Nephi 11.29|3 Ne. 11:29]]; emphasis added). The verb *stir* sounds like a recipe for disaster: Put tempers on medium heat, stir in a few choice words, and bring to a boil; continue stirring until thick; cool off; let feelings chill for several days; serve cold; lots of leftovers.
 
 A cunning part of his strategy is to dissociate anger from agency, making us believe that we are victims of an emotion that we cannot control. We hear, “I lost my temper.” Losing one’s temper is an interesting choice of words that has become a widely used idiom. To “lose something” implies “not meaning to,” “accidental,” “involuntary,” “not responsible”—careless perhaps but “not responsible.”
 
@@ -28,11 +28,11 @@ In his sophomore year Wilbanks tried out for the high school basketball team and
 
 In the [[JST Ephesians 4.26|Joseph Smith Translation of Ephesians 4:26]], Paul asks the question, “Can ye be angry, and not sin?” The Lord is very clear on this issue: “He that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
-“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away” ([[3 Nephi 11.29|3 Ne. 11:29–30]][[3 Nephi 11.30|]]).
+“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away” ([[3 Nephi 11.29|3 Ne. 11:29–30]][[3 Nephi 11.30|]]).
 
 This doctrine or command from the Lord presupposes agency and is an appeal to the conscious mind to make a decision. The Lord expects us to make the choice *not* to become angry.
 
-Nor can becoming angry be justified. In [[Matthew 5.22|Matthew 5, verse 22]], the Lord says, “But I say unto you, That whosoever is angry with his brother *without a cause* shall be in danger of the judgment” (emphasis added). How interesting that the phrase “without a cause” is not found in the inspired Joseph Smith Translation (see [[Matthew 5.note22b|Matt. 5:24]]), nor in the [[3 Nephi 12.22|3 Nephi 12:22]] version. When the Lord eliminates the phrase “without a cause,” He leaves us without an excuse. “But this is my doctrine, that such things should be done away” ([[3 Nephi 11.30|3 Ne. 11:30]]). We can “do away” with anger, for He has so taught and commanded us.
+Nor can becoming angry be justified. In [[Matthew 5.22|Matthew 5, verse 22]], the Lord says, “But I say unto you, That whosoever is angry with his brother *without a cause* shall be in danger of the judgment” (emphasis added). How interesting that the phrase “without a cause” is not found in the inspired Joseph Smith Translation (see [Matt. 5:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5?lang=eng&id=note22b#note22b)), nor in the [[3 Nephi 12.22|3 Nephi 12:22]] version. When the Lord eliminates the phrase “without a cause,” He leaves us without an excuse. “But this is my doctrine, that such things should be done away” ([[3 Nephi 11.30|3 Ne. 11:30]]). We can “do away” with anger, for He has so taught and commanded us.
 
 Anger is a yielding to Satan’s influence by surrendering our self-control. It is the thought-sin that leads to hostile feelings or behavior. It is the detonator of road rage on the freeway, flare-ups in the sports arena, and domestic violence in homes.
 
@@ -54,4 +54,5 @@ May each child’s dream of having a family here on earth that is good to them c
 
 
 
-#Abuse #Accountability #Agency #Anger #Family #Jesus_Christ #Satan
+
+#Abuse #Agency #Accountability #Anger #Family #JesusChrist #Satan

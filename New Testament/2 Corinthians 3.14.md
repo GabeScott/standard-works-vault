@@ -5,7 +5,7 @@
 [2 Corinthians 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/3.14?lang=eng#p14)
 
 
-[^a]: [[Mind, Minded|TG Mind]].
-[^b]: [[Spiritual Blindness|TG Spiritual Blindness]].
-[^c]: [[Acts 15.21|Acts 15:21]].
-[^d]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]]; [[Veil|Veil]].
+[^a]: [[Mind, Minded|TG Mind]].  
+[^b]: [[Spiritual Blindness|TG Spiritual Blindness]].  
+[^c]: [[Acts 15.21|Acts 15:21]].  
+[^d]: [[Jesus Christ, Types of, in Anticipation|TG Jesus Christ, Types of, in Anticipation]]; [[Veil|Veil]].  

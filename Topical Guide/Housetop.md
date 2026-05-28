@@ -1,6 +1,5 @@
 # Housetop
 
-
 worship the host of heaven upon the *housetops*, [[Zephaniah 1.5|Zephaniah 1:5]].
 
 preach ye upon the *housetops*, [[Matthew 10.27|Matthew 10:27]] ([[Luke 12.3|Luke 12:3]]).

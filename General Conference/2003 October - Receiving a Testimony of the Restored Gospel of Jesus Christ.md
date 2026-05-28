@@ -24,7 +24,7 @@ Joseph Smith was born in that nation and, at the age of 14, found himself caught
 
 Joseph turned to the Bible for answers. “If any of you lack wisdom,” he read in the Epistle of James, “let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.”[^5]
 
-Following James’s direction, Joseph went to a grove of trees near his home and prayed. As he called upon God, “a pillar of light … descended,” brighter than the noonday sun, and “two Personages” appeared. “One of them spake … , calling \[Joseph\] by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^6]
+Following James’s direction, Joseph went to a grove of trees near his home and prayed. As he called upon God, “a pillar of light … descended,” brighter than the noonday sun, and “two Personages” appeared. “One of them spake … , calling \[Joseph\] by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^6]
 
 God the Father and His Son, Jesus Christ, conversed with Joseph. They answered his question. They taught him that the true Church of Christ had been lost from the earth. Joseph learned that these members of the Godhead were separate and distinct beings, They knew him by name, and They were willing to answer his prayers. The heavens were opened, the night of apostasy was over, and the light of the gospel began to shine forth.
 
@@ -91,7 +91,7 @@ Jesus Christ lives. This is His work. Of this I bear my special witness, in the 
 
 [^1]: [[Joseph Smith History 1.6|Joseph Smith—History 1:6]].
 
-[^2]: [[2 Thessalonians 2.3|2 Thessalonians 2:3]].
+[^2]: [[2 Thessalonians 2.3|2 Thessalonians 2:3]].
 
 [^3]: [[Ephesians 1.10|Ephesians 1:10]].
 
@@ -133,13 +133,13 @@ Jesus Christ lives. This is His work. Of this I bear my special witness, in the 
 
 [^22]: See [[D&C 110.1|D&C 110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-[^23]: [[1 Nephi 11.1|1 Nephi 11:1–2]][[1 Nephi 11.2|]]; emphasis added.
+[^23]: [[1 Nephi 11.1|1 Nephi 11:1–2]][[1 Nephi 11.2|]]; emphasis added.
 
 [^24]: [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].
 
 [^25]: [[D&C 130.22|D&C 130:22]].
 
-[^26]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^26]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^27]: [[Helaman 4.24|Helaman 4:24]].
 
@@ -147,8 +147,6 @@ Jesus Christ lives. This is His work. Of this I bear my special witness, in the 
 
 [^29]: See [[D&C 18.15|D&C 18:15]].
 
-[^30]: [[1 Nephi 15.11|1 Nephi 15:11]].
+[^30]: [[1 Nephi 15.11|1 Nephi 15:11]].
 
-
-
-#Conversion #Holy_Ghost #Joseph_Smith #Prayer #Restoration #Scripture_Study #Testimony #Worthiness
+#Conversion #HolyGhost #JosephSmith #Prayer #Restoration #ScriptureStudy #Testimony #Worthiness

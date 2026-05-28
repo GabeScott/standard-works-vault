@@ -1,4 +1,3 @@
 # Abner
 
-
-*See* [BD Abner](https://www.churchofjesuschrist.org/study/scriptures/bd/abner?lang=eng)
+*See also* [[BD Abner.md|BD Abner]]

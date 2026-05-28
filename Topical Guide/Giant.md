@@ -1,6 +1,5 @@
 # Giant
 
-
 *giants* in the earth in those days, [[Genesis 6.4|Genesis 6:4]] ([[Moses 8.18|Moses 8:18]]).
 
 we saw the *giants*, the sons of Anak, [[Numbers 13.33|Numbers 13:33]].

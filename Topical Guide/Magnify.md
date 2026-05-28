@@ -1,6 +1,5 @@
 # Magnify
 
-
 *See also* [[Exalt.md|Exalt]]; [[Glorify.md|Glorify]]; [[Praise.md|Praise]]; [[Priesthood, Magnifying Callings within.md|Priesthood, Magnifying Callings within]]
 
 Joshua, This day will I begin to *magnify* thee, [[Joshua 3.7|Joshua 3:7]].
@@ -27,11 +26,11 @@ my heart doth *magnify* his holy name, [[2 Nephi 25.13|2 Nephi 25:13]].
 
 *magnify* our office unto the Lord, [[Jacob 1.19|Jacob 1:19]] ([[Jacob 2.2|Jacob 2:2]]).
 
-I will cause ... that these stones shall *magnify*, [[Ether 3.24|Ether 3:24]].
+I will cause … that these stones shall *magnify*, [[Ether 3.24|Ether 3:24]].
 
 *Magnify* thine office, [[D&C 24.3|D&C 24:3]] ([[D&C 66.11|D&C 66:11]]).
 
-faithful unto the obtaining these two priesthoods ... and the *magnifying* their calling, [[D&C 84.33|D&C 84:33]].
+faithful unto the obtaining these two priesthoods … and the *magnifying* their calling, [[D&C 84.33|D&C 84:33]].
 
 I shall send you again to *magnify* the calling, [[D&C 88.80|D&C 88:80]].
 

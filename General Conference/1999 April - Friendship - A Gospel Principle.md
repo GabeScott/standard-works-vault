@@ -45,9 +45,9 @@ Our Savior, shortly before His Crucifixion, said to His disciples: “Greater lo
 
 [^1]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 316.
 
-[^2]: [[1 Corinthians 13.4|1 Cor. 13:4–5, 8]][[1 Corinthians 13.5|]][[1 Corinthians 13.8|]].
+[^2]: [[1 Corinthians 13.4|1 Cor. 13:4–5, 8]][[1 Corinthians 13.5|]][[1 Corinthians 13.8|]].
 
-[^3]: John Gottman, as cited in Karen S. Peterson, “Friendship Makes Marriages a Success,” *USA Today,* 1 Apr. 1999, p. 1D.
+[^3]: John Gottman, as cited in Karen S. Peterson, “Friendship Makes Marriages a Success,” *USA Today,* 1 Apr. 1999, p. 1D.
 
 [^4]: Quoted in Daniel H. Ludlow, ed., *Encyclopedia of Mormonism,* 5 vols. (1992), 3:1345.
 
@@ -55,6 +55,4 @@ Our Savior, shortly before His Crucifixion, said to His disciples: “Greater lo
 
 [^6]: [[John 15.13|John 15:13–14]][[John 15.14|]].
 
-
-
-#Conversion #Family #Friendship #Jesus_Christ #Marriage #Missionary_Work
+#Conversion #Family #Friendship #JesusChrist #Marriage #MissionaryWork

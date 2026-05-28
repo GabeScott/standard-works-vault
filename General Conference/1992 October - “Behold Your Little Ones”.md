@@ -6,7 +6,7 @@ By Michaelene P. Grassli - *Primary General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1992/10/behold-your-little-ones?lang=eng)
 
-A bishop told me about extending a call to a woman in his ward. Together they read from the Book of Mormon, 3 Nephi, chapter 17.
+A bishop told me about extending a call to a woman in his ward. Together they read from the Book of Mormon, 3 Nephi, chapter 17.
 
 They read how the Savior invited the Nephites to bring their children to him, how Jesus prayed for the children and blessed them, and how angels appeared and ministered to them within the fire that encircled them. Those familiar words are powerful, poetic verses.
 
@@ -14,25 +14,25 @@ Then, interestingly, the bishop said, “Sister Breinholt, the Savior cannot per
 
 When I heard that extraordinary experience, I wanted to study those verses again to understand better what the Savior did with the Nephite children and what he would do for our children if he were here. The Savior’s example and the bishop’s admonition apply to all of us—whether we love and serve children in our families, as neighbors or friends, or at church. Children belong to all of us.
 
-With that in mind, let us examine together some verses in the seventeenth chapter of 3 Nephi \[[[3 Nephi 17.1|3 Ne. 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]]\]. Let us discover together the pattern the Savior gave us.
+With that in mind, let us examine together some verses in the seventeenth chapter of 3 Nephi \[[[3 Nephi 17.1|3 Ne. 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]]\]. Let us discover together the pattern the Savior gave us.
 
-His invitation in verse 11 \[[[3 Nephi 17.11|3 Ne. 17:11]]\] was neither casual nor inconsequential. “He *commanded* that their little children should be brought.” (Emphasis added.) And notice what verse 11 *doesn’t* say. It doesn’t say never mind the little ones because they aren’t accountable yet. It doesn’t say the children were to be taken elsewhere so they wouldn’t disrupt the proceedings. And it doesn’t imply that the children won’t understand. But it *does* teach that children need to learn the significant things of the kingdom.
+His invitation in verse 11 \[[[3 Nephi 17.11|3 Ne. 17:11]]\] was neither casual nor inconsequential. “He *commanded* that their little children should be brought.” (Emphasis added.) And notice what verse 11 *doesn’t* say. It doesn’t say never mind the little ones because they aren’t accountable yet. It doesn’t say the children were to be taken elsewhere so they wouldn’t disrupt the proceedings. And it doesn’t imply that the children won’t understand. But it *does* teach that children need to learn the significant things of the kingdom.
 
 God’s children share with all of us the divine right to spiritual enlightenment.
 
-“So they brought their little children and set them down upon the ground round about him, and Jesus stood in the midst.” ([[3 Nephi 17.12|3 Ne. 17:12]].) Do any of us ever consider serving children to be beneath us? Clearly the Savior felt that the Nephite children were worthy not only to be in his presence, but they were also worthy of his time and his attention. The children needed *him,* and he stood right in their midst.
+“So they brought their little children and set them down upon the ground round about him, and Jesus stood in the midst.” ([[3 Nephi 17.12|3 Ne. 17:12]].) Do any of us ever consider serving children to be beneath us? Clearly the Savior felt that the Nephite children were worthy not only to be in his presence, but they were also worthy of his time and his attention. The children needed *him,* and he stood right in their midst.
 
 Verse 12 also indicates that Jesus waited “till they had *all* been brought to him.” He wasn’t looking for a representative sample, and he wasn’t content with just some of the children. He wanted them *all* to be there, and he ministered to them *all*.
 
-Then Jesus prayed unto the Father so powerfully that “no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things.” ([[3 Nephi 17.17|3 Ne. 17:17]].) And the children were there! They heard that prayer; they saw that event, and they were affected by it. Children can understand and should witness marvelous events—events like priesthood blessings, special ward and family fasts, the testimonies and prayers of their parents and leaders, and gospel discussions with people they love.
+Then Jesus prayed unto the Father so powerfully that “no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things.” ([[3 Nephi 17.17|3 Ne. 17:17]].) And the children were there! They heard that prayer; they saw that event, and they were affected by it. Children can understand and should witness marvelous events—events like priesthood blessings, special ward and family fasts, the testimonies and prayers of their parents and leaders, and gospel discussions with people they love.
 
-“He took their little children, one by one, and blessed them, and prayed unto the Father for them.” ([[3 Nephi 17.21|3 Ne. 17:21]].) Jesus was ministering to a group of about 2,500 men, women, and children. Consider how much time it must have taken for him to bless and pray over each child, “one by one.” He must have held many of them in his arms or on his lap. And he wept because he was overcome with joy.
+“He took their little children, one by one, and blessed them, and prayed unto the Father for them.” ([[3 Nephi 17.21|3 Ne. 17:21]].) Jesus was ministering to a group of about 2,500 men, women, and children. Consider how much time it must have taken for him to bless and pray over each child, “one by one.” He must have held many of them in his arms or on his lap. And he wept because he was overcome with joy.
 
-“He spake unto the multitude, and said unto them: Behold your little ones.” ([[3 Nephi 17.23|3 Ne. 17:23]].) Jesus specifically directed the attention of the multitude to the children. To me, the word *behold* is significant. It implies more than just “look and see.” When the Lord instructed the Nephites to *behold* their little ones, I believe he told them to give attention to their children, to contemplate them, to look beyond the present and see their eternal possibilities.
+“He spake unto the multitude, and said unto them: Behold your little ones.” ([[3 Nephi 17.23|3 Ne. 17:23]].) Jesus specifically directed the attention of the multitude to the children. To me, the word *behold* is significant. It implies more than just “look and see.” When the Lord instructed the Nephites to *behold* their little ones, I believe he told them to give attention to their children, to contemplate them, to look beyond the present and see their eternal possibilities.
 
-“And as they looked to behold … they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, and they were encircled about with fire; and the angels did minister unto them.” ([[3 Nephi 17.24|3 Ne. 17:24]].)
+“And as they looked to behold … they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, and they were encircled about with fire; and the angels did minister unto them.” ([[3 Nephi 17.24|3 Ne. 17:24]].)
 
-I can’t help but wonder what would have happened if the multitude had just looked and not *beheld* with spiritual eyes. Would they have seen the angels descend? Could they have watched their children encircled about with fire? Would they have been able to observe as the angels ministered to their children? It’s significant to me that later the Savior gave the most sacred teachings only to the children, then loosed their tongues so they could teach the multitude. (See [[3 Nephi 26.14|3 Ne. 26:14]].)
+I can’t help but wonder what would have happened if the multitude had just looked and not *beheld* with spiritual eyes. Would they have seen the angels descend? Could they have watched their children encircled about with fire? Would they have been able to observe as the angels ministered to their children? It’s significant to me that later the Savior gave the most sacred teachings only to the children, then loosed their tongues so they could teach the multitude. (See [[3 Nephi 26.14|3 Ne. 26:14]].)
 
 Is it any wonder that following the Savior’s visit to the Nephites, they lived in peace and righteousness for two hundred years? Because of miraculous instructions, blessings, and attention they and their children received, righteousness was perpetuated by their children’s children for many generations.
 
@@ -65,6 +65,4 @@ Sisters, by ministering to children we too can help the gospel live for many gen
 
 
 
-
-
-#Children #Jesus_Christ #Teaching
+#Children #JesusChrist #Teaching

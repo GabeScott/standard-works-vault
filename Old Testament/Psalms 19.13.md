@@ -5,6 +5,6 @@
 [Psalms 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.13?lang=eng#p13)
 
 
-[^a]: JST Ps. 19:13 … acts …
-[^b]: [[Psalms 119.133|Ps. 119:133]].
-[^c]: [[Transgress, Transgression|TG Transgress]].
+[^a]: JST Ps. 19:13 … acts …  
+[^b]: [[Psalms 119.133|Ps. 119:133]].  
+[^c]: [[Transgress, Transgression|TG Transgress]].  

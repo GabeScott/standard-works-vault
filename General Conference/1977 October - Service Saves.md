@@ -1,6 +1,6 @@
 # Service Saves
 
-By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
+By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -22,7 +22,7 @@ An elderly couple, remembering their temple vows, said: “We have sent seven of
 
 A mother wrote, “After October conference, in family council, we decided to *earn* some money not to spend it for Christmas, but to send it to missionaries. The boys, ages five and six, gathered cans for refunds, stacked wood, raked leaves, vacuumed the car, and swept the garage. Two-year-old Becky stacked wood and set the table. Mom gave piano lessons. Daddy cracked his piggy bank of eight years. One boy lost a tooth, and Daddy paid him a quarter for it. He promptly loosened and removed two more for an additional fifty cents! We are sending our total earnings ($81.85). It’s been a pleasure.”
 
-The shortest letter read, “Per your instructions last general conference. Sincerely. …”
+The shortest letter read, “Per your instructions last general conference. Sincerely. …”
 
 Aside from some concern about possible toothless youngsters, I commend you all. Thank you, brothers and sisters.
 
@@ -50,11 +50,9 @@ Our Savior taught that service saves: “For behold the field is white already t
 
 “And now, if your joy will be great with one soul that you have brought unto me into the kingdom of my Father, how great will be *your* joy if you should bring many souls unto me!” ([[D&C 18.15|D&C 18:15–16]][[D&C 18.16|]]; italics added.)
 
-I know that we are in the service of the Master. I know that Jesus is the Christ, that he lives and directs his work through his living prophet, President Spencer W. Kimball. To this I testify in the name of Jesus Christ. Amen.
+I know that we are in the service of the Master. I know that Jesus is the Christ, that he lives and directs his work through his living prophet, President Spencer W. Kimball. To this I testify in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Missionary_Work
+#MissionaryWork

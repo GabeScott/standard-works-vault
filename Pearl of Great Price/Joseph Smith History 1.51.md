@@ -5,4 +5,4 @@
 [Joseph Smith History 1:51](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.51?lang=eng#p51)
 
 
-[^a]: [[D&C 128.20|D&C 128:20.]]
+[^a]: [[D&C 128.20|D&C 128:20]].  

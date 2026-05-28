@@ -1,6 +1,5 @@
 # Perceive
 
-
 Lord hath not given you an heart to *perceive*, [[Deuteronomy 29.4|Deuteronomy 29:4]].
 
 This day we *perceive* that the Lord is among us, [[Joshua 22.31|Joshua 22:31]].
@@ -27,7 +26,7 @@ when Jesus *perceived* their thoughts, [[Luke 5.22|Luke 5:22]].
 
 hid from them, that they *perceived* it not, [[Luke 9.45|Luke 9:45]].
 
-woman saith ... I *perceive* that thou art a prophet, [[John 4.19|John 4:19]].
+woman saith … I *perceive* that thou art a prophet, [[John 4.19|John 4:19]].
 
 *perceived* that they were unlearned and ignorant, [[Acts 4.13|Acts 4:13]].
 
@@ -35,7 +34,7 @@ I *perceive* that thou art in the gall of bitterness, [[Acts 8.23|Acts 8:23]].
 
 I *perceive* that God is no respecter of persons, [[Acts 10.34|Acts 10:34]].
 
-Paul ... *perceiving* that he had faith to be healed, [[Acts 14.9|Acts 14:9]].
+Paul … *perceiving* that he had faith to be healed, [[Acts 14.9|Acts 14:9]].
 
 see ye indeed, but they *perceived* not, [[2 Nephi 16.9|2 Nephi 16:9]].
 
@@ -47,7 +46,7 @@ I *perceive* that they are not written in your hearts, [[Mosiah 13.11|Mosiah 13:
 
 I *perceive* that ye are in the paths of righteousness, [[Alma 7.19|Alma 7:19]].
 
-Amulek ... *perceived* their thoughts, [[Alma 10.17|Alma 10:17]].
+Amulek … *perceived* their thoughts, [[Alma 10.17|Alma 10:17]].
 
 I *perceive* that thy mind is worried, [[Alma 40.1|Alma 40:1]] ([[Alma 41.1|Alma 41:1]]; [[Alma 42.1|Alma 42:1]]).
 

@@ -12,17 +12,17 @@ I have lived a long time and watched the standards upon which civilization must 
 
 We live in a day when the age-old standards of morality, marriage, home, and family suffer defeat after defeat in courts and councils, in parliaments and classrooms. Our happiness depends upon living those very standards.
 
-The Apostle Paul prophesied that in our day, these last days, men would be “disobedient to parents, … without natural affection, … despisers of those that are good, … lovers of pleasures more than lovers of God” ([[2 Timothy 3.2|2 Timothy 3:2–4]][[2 Timothy 3.3|]][[2 Timothy 3.4|]]).
+The Apostle Paul prophesied that in our day, these last days, men would be “disobedient to parents, … without natural affection, … despisers of those that are good, … lovers of pleasures more than lovers of God” ([[2 Timothy 3.2|2 Timothy 3:2–4]][[2 Timothy 3.3|]][[2 Timothy 3.4|]]).
 
-And he warned: “Evil men and seducers shall wax worse and worse, deceiving, and being deceived” ([[2 Timothy 3.13|2 Timothy 3:13]]). He was right. Nevertheless, when I think of the future, I am overwhelmed with a feeling of positive optimism.
+And he warned: “Evil men and seducers shall wax worse and worse, deceiving, and being deceived” ([[2 Timothy 3.13|2 Timothy 3:13]]). He was right. Nevertheless, when I think of the future, I am overwhelmed with a feeling of positive optimism.
 
-Paul told young Timothy to continue in the things he had learned from the Apostles and said he would be safe because “from a child thou hast known the holy scriptures, which are able to make thee wise unto salvation through faith which is in Christ Jesus” ([[2 Timothy 3.15|2 Timothy 3:15]]).
+Paul told young Timothy to continue in the things he had learned from the Apostles and said he would be safe because “from a child thou hast known the holy scriptures, which are able to make thee wise unto salvation through faith which is in Christ Jesus” ([[2 Timothy 3.15|2 Timothy 3:15]]).
 
 A knowledge of the scriptures is important. From them we learn about spiritual guidance.
 
 I have heard people say, “I would have willingly endured persecution and trials if I might have lived in the early years of the Church when there was such a flow of revelation published as scripture. Why is that not happening now?”
 
-The revelations that came through the Prophet Joseph Smith, printed as scripture, laid the permanent foundation of the Church through which the gospel of Jesus Christ could go forth to “every nation” ([[2 Nephi 26.13|2 Nephi 26:13]]).[^1]
+The revelations that came through the Prophet Joseph Smith, printed as scripture, laid the permanent foundation of the Church through which the gospel of Jesus Christ could go forth to “every nation” ([[2 Nephi 26.13|2 Nephi 26:13]]).[^1]
 
 The scriptures define the office of the prophet and president and his counselors, the Quorum of the Twelve Apostles, the Quorums of the Seventy, the Presiding Bishopric, and the stakes and wards and branches. They define the offices of the Melchizedek and Aaronic Priesthoods. They establish the channels through which inspiration and revelation can flow to the leaders and teachers and parents and to individuals.
 
@@ -64,9 +64,9 @@ Several years into the project, we asked how they were progressing with the tedi
 
 Original manuscripts of the Book of Mormon came into our hands. These made possible the correction of printers’ errors which creep into scriptural translations.
 
-Most notable in the Topical Guide are the 18 pages, single-spaced, small print, under the heading “Jesus Christ,” the most comprehensive compilation of scriptural information on the name Jesus Christ that has ever been assembled in the history of the world. Follow these references, and you will open the door to whose Church this is, what it teaches, and by what authority—all anchored to the sacred name of Jesus Christ, the Son of God, the Messiah, the Redeemer, our Lord.
+Most notable in the Topical Guide are the 18 pages, single-spaced, small print, under the heading “[[Jesus Christ|Jesus Christ]],” the most comprehensive compilation of scriptural information on the name Jesus Christ that has ever been assembled in the history of the world. Follow these references, and you will open the door to whose Church this is, what it teaches, and by what authority—all anchored to the sacred name of Jesus Christ, the Son of God, the Messiah, the Redeemer, our Lord.
 
-Two new revelations were added to the Doctrine and Covenants—section 137, a vision given to Joseph Smith the Prophet on the occasion of the administration of the endowment, and section 138, President Joseph F. Smith’s vision of the redemption of the dead. Then, just as this work was being closed for printing, the marvelous revelation on the priesthood was received and announced in an official declaration (see D&C [Official Declaration 2](https://churchofjesuschrist.org/study/scriptures/dc-testament/od/2?lang=eng)), proving that the scriptures are not closed.
+Two new revelations were added to the Doctrine and Covenants—section 137, a vision given to Joseph Smith the Prophet on the occasion of the administration of the endowment, and section 138, President Joseph F. Smith’s vision of the redemption of the dead. Then, just as this work was being closed for printing, the marvelous revelation on the priesthood was received and announced in an official declaration (see D&C [[Official Declaration 2.1|Official Declaration 2]]), proving that the scriptures are not closed.
 
 Then came the enormous challenge of translation into the languages of the Church. Now the triple combination, with the Guide to the Scriptures, has been published in 24 languages, with others to follow. The Book of Mormon is now printed in 106 languages. Forty-nine translations are under way.
 
@@ -119,7 +119,7 @@ Each can receive assurance which comes through inspiration and testifies that Je
 
 
 
-[^1]: See also [[Revelation 5.9|Revelation 5:9]]; [[Revelation 14.6|14:6]]; [[1 Nephi 19.17|1 Nephi 19:17]]; [[Mosiah 3.13|Mosiah 3:13, 20]][[Mosiah 3.20|]]; [[Mosiah 15.28|15:28]]; [[Mosiah 16.1|16:1]]; [[Alma 9.20|Alma 9:20]]; [[Alma 37.4|37:4]]; [[D&C 10.51|D&C 10:51]]; [[D&C 77.8|77:8, 11]][[D&C 77.11|]]; [[D&C 133.37|133:37]].
+[^1]: See also [[Revelation 5.9|Revelation 5:9]]; [[Revelation 14.6|14:6]]; [[1 Nephi 19.17|1 Nephi 19:17]]; [[Mosiah 3.13|Mosiah 3:13, 20]][[Mosiah 3.20|]]; [[Mosiah 15.28|15:28]]; [[Mosiah 16.1|16:1]]; [[Alma 9.20|Alma 9:20]]; [[Alma 37.4|37:4]]; [[D&C 10.51|D&C 10:51]]; [[D&C 77.8|77:8, 11]][[D&C 77.11|]]; [[D&C 133.37|133:37]].
 
 [^2]: In David Daniell, introduction to *Tyndale’s New Testament,* trans. William Tyndale (1989), viii.
 
@@ -135,6 +135,4 @@ Each can receive assurance which comes through inspiration and testifies that Je
 
 [^8]: *Hymns,* no. 83.
 
-
-
-#Book_Of_Mormon #Church_Growth #Jesus_Christ #Preparation #Scripture_Study #Spirituality
+#BookOfMormon #ChurchGrowth #JesusChrist #Preparation #ScriptureStudy #Spirituality

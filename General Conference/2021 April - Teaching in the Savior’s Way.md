@@ -1,6 +1,6 @@
 # Teaching in the Savior’s Way
 
-By Jan E. Newman - *Second Counselor in the Sunday School General Presidency*
+By Jan E. Newman - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -14,7 +14,7 @@ A few months ago, a former classmate from my hometown of Overton, Nevada, sugges
 
 I had another exceptional teacher while attending Ricks College many years ago. I was preparing to serve a mission and thought it would be helpful to attend a missionary preparation class. What I experienced changed my life.
 
-From the first day of class, I realized I was in the presence of a master teacher. The teacher was Brother F. Melvin Hammond. I knew Brother Hammond loved the Lord and he loved me. I could see it in his face and hear it in his voice. When he taught, the Spirit enlightened my mind. He taught doctrine, but he also invited me to learn it on my own. That invitation helped me clearly see my responsibility to learn the Lord’s doctrine for myself. That experience changed me forever. Thank you, Brother Hammond, for teaching in the Savior’s way.
+From the first day of class, I realized I was in the presence of a master teacher. The teacher was Brother F. Melvin Hammond. I knew Brother Hammond loved the Lord and he loved me. I could see it in his face and hear it in his voice. When he taught, the Spirit enlightened my mind. He taught doctrine, but he also invited me to learn it on my own. That invitation helped me clearly see my responsibility to learn the Lord’s doctrine for myself. That experience changed me forever. Thank you, Brother Hammond, for teaching in the Savior’s way.
 
 Brothers and sisters, everyone deserves to have this kind of learning experience both at home and at church.
 
@@ -36,19 +36,19 @@ My next suggestion can be illustrated with an experience I had a few months ago 
 
 An hour or so later I received this text message from his sweet wife: “Brother Newman, thanks for coming over. We should have invited you in, but I want to share with you what we were doing. Since the pandemic we have been discussing *Come, Follow Me* with our adult children every Sunday over Zoom. It has literally been working miracles. I think it is the first time our daughter has read the Book of Mormon on her own. Today was the last lesson on the Book of Mormon, and we were just finishing when you came by. … I thought you would be interested to hear how *Come, Follow Me*, Zoom, and a pandemic have provided the opportunity at the right time to change a heart. … It makes me wonder how many little miracles have been taking place during this odd time.”
 
-This sounds to me like a fulfillment of the promise President Russell M. Nelson made in October 2018. He said that home-centered, Church-supported gospel learning “has the potential to unleash the power of families, as each family follows through conscientiously and carefully to transform their home into a sanctuary of faith. I promise that as you diligently work to remodel your home into a center of gospel learning, over time *your* Sabbath days will truly be a delight. *Your* children will be excited to learn and to live the Savior’s teachings. … Changes in your family will be dramatic and sustaining.”[^3] What a beautiful promise!
+This sounds to me like a fulfillment of the promise President Russell M. Nelson made in October 2018. He said that home-centered, Church-supported gospel learning “has the potential to unleash the power of families, as each family follows through conscientiously and carefully to transform their home into a sanctuary of faith. I promise that as you diligently work to remodel your home into a center of gospel learning, over time *your* Sabbath days will truly be a delight. *Your* children will be excited to learn and to live the Savior’s teachings. … Changes in your family will be dramatic and sustaining.”[^3] What a beautiful promise!
 
 To be truly life-changing, conversion to Jesus Christ must involve our whole soul and permeate every aspect of our lives. This is why it must be focused at the center of our lives—our families and homes.
 
 ## Remember That Conversion Is Personal
 
-My final suggestion is to remember that conversion must come from within. As illustrated in the parable of the ten virgins, we cannot give someone else the oil of our conversion, as much as we might want to. As Elder David A. Bednar taught: “This precious oil is acquired one drop at a time … patiently and persistently. No shortcut is available; no last-minute flurry of preparation is possible.”[^4]
+My final suggestion is to remember that conversion must come from within. As illustrated in the parable of the ten virgins, we cannot give someone else the oil of our conversion, as much as we might want to. As Elder David A. Bednar taught: “This precious oil is acquired one drop at a time … patiently and persistently. No shortcut is available; no last-minute flurry of preparation is possible.”[^4]
 
 *Come, Follow Me* is based on that truth. I compare it to the angel who helped Nephi learn about Jesus Christ by saying, “Look!”[^5] Like that angel, *Come, Follow Me* invites us to look in the scriptures and the words of the modern-day prophets in order to find the Savior and hear Him. Like Nephi, we will be personally tutored by the Spirit while reading and pondering the word of God. *Come, Follow Me* is the springboard that helps each of us to dive deeply into the living waters of the doctrine of Christ.
 
 A parent’s responsibility is similar in many ways. Children inherit many things from their parents, but a testimony is not one of them. We can’t give our children a testimony any more than we can make a seed grow. But we can provide a nourishing environment, with good soil, free of thorns that would “choke the word.” We can strive to create the ideal conditions so that our children—and others we love—can find place for the seed, “\[hear\] the word, and \[understand\] it”[^6] and discover for themselves “that the seed is good.”[^7]
 
-Several years ago, my son Jack and I had the opportunity to play the Old Course at St. Andrews in Scotland, where the game of golf began. It was simply amazing! Upon my return I tried to convey to others the magnitude of the experience. But I couldn’t. Photos, videos, and my best descriptions were totally inadequate. I finally realized the only way for someone to know the grandeur of St. Andrews is to experience it—to see the vast fairways, breathe the air, feel the wind in their face, and hit a few errant shots into the cavernous bunkers and burly gorse bushes, which we did with great efficiency.
+Several years ago, my son Jack and I had the opportunity to play the Old Course at St. Andrews in Scotland, where the game of golf began. It was simply amazing! Upon my return I tried to convey to others the magnitude of the experience. But I couldn’t. Photos, videos, and my best descriptions were totally inadequate. I finally realized the only way for someone to know the grandeur of St. Andrews is to experience it—to see the vast fairways, breathe the air, feel the wind in their face, and hit a few errant shots into the cavernous bunkers and burly gorse bushes, which we did with great efficiency.
 
 So it is with the word of God. We can teach it, we can preach it, we can explain it. We can talk about it, we can describe it, we can even testify of it. But until a person feels the sacred word of God distill upon his or her soul like the dews from heaven through the power of the Spirit,[^8] it will be like looking at a postcard or someone else’s vacation photos. You have to go there yourself. Conversion is a personal journey—a journey of gathering.
 
@@ -63,15 +63,15 @@ My dear friends in Christ, the responsibility rests squarely upon each of us to 
 
 
 
-[^1]: [Come, Follow Me—For Individuals and Families: Doctrine and Covenants 2021](https://churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-doctrine-and-covenants-2021/intro?lang=eng&id=p1#p1), vi.
+[^1]: [Come, Follow Me—For Individuals and Families: Doctrine and Covenants 2021](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-doctrine-and-covenants-2021/intro?lang=eng&id=p1#p1), vi.
 
-[^2]: [[4 Nephi 1.2|4 Nephi 1:2]].
+[^2]: [[4 Nephi 1.2|4 Nephi 1:2]].
 
-[^3]: Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 113.
+[^3]: Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 113.
 
-[^4]: David A. Bednar, “[[2012 October - Converted unto the Lord.md|Converted unto the Lord]],” *Ensign* or *Liahona*, Nov. 2012, 109.
+[^4]: David A. Bednar, “[[2012 October - Converted unto the Lord.md|Converted unto the Lord]],” *Ensign* or *Liahona*, Nov. 2012, 109.
 
-[^5]: See [[1 Nephi 11.8|1 Nephi 11:8–36]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].
+[^5]: See [[1 Nephi 11.8|1 Nephi 11:8–36]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].
 
 [^6]: [[Matthew 13.18|Matthew 13:18–23]][[Matthew 13.19|]][[Matthew 13.20|]][[Matthew 13.21|]][[Matthew 13.22|]][[Matthew 13.23|]].
 
@@ -81,10 +81,8 @@ My dear friends in Christ, the responsibility rests squarely upon each of us to 
 
 [^9]: [[Moroni 10.5|Moroni 10:5]].
 
-[^10]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
+[^10]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
 [^11]: [[Moroni 7.48|Moroni 7:48]].
 
-
-
-#Conversion #Family #Jesus_Christ #Learning #Teaching
+#Conversion #Family #JesusChrist #Learning #Teaching

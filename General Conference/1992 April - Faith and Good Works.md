@@ -16,7 +16,7 @@ Recently we moved and found ourselves in new surroundings. Several days later I 
 
 Life provides for each of us a full-length, wide-screen panorama of opportunities to run into ourselves. The eminent philosopher Pogo expressed it this way: “We have met the enemy, and he is us!” (Walt Kelly).
 
-In more eloquent terms, Moroni was told by the Lord: “And if men come unto me I will show unto them their weakness … ; for if they humble themselves before me, and have faith in me, then will I make weak things become strong unto them” ([[Ether 12.27|Ether 12:27]]).
+In more eloquent terms, Moroni was told by the Lord: “And if men come unto me I will show unto them their weakness … ; for if they humble themselves before me, and have faith in me, then will I make weak things become strong unto them” ([[Ether 12.27|Ether 12:27]]).
 
 As we look into the mirror at the accumulation of bumps and bruises that evidence our weaknesses, may we be reminded that there are two great stabilizing forces that can anchor our souls.
 
@@ -41,8 +41,6 @@ The race finished in the stadium. Two or three hundred of us were in the stands 
 One day each of us will cross the finish line. Will it likewise be to the cheers and encouragement of those we have loved and served? Hopefully it will be to the approbation of our Savior, who because of our faith and our good works will say, “Well done, thou good and faithful servant” ([[Matthew 25.21|Matt. 25:21]]).
 
 I add my witness to the many that have been borne from this pulpit: I know God lives. Jesus Christ is his Son—our Savior and our Redeemer. He has the power to lift us up if we will come unto him in faith, with good works, and with all of our hearts. I so testify in the sacred name of Jesus Christ, amen.
-
-
 
 
 

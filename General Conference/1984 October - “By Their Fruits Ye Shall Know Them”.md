@@ -6,7 +6,7 @@ By Elder Royden G. Derrick - *Of the First Quorum of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1984/10/by-their-fruits-ye-shall-know-them?lang=eng)
 
-Our revered leader of years past, President David O. McKay, often said, “The mission of the Gospel of Jesus Christ \[is\] to make evil-minded men good and to make good men better.” (*Millennial Star,* Oct. 1961, p. 469.)
+Our revered leader of years past, President David O. McKay, often said, “The mission of the Gospel of Jesus Christ \[is\] to make evil-minded men good and to make good men better.” (*Millennial Star,* Oct. 1961, p. 469.)
 
 The Lord said to the people of ancient America, “And whatsoever thing persuadeth men to do good is of me; for good cometh of none save it be of me. I am the same that leadeth men to all good.” ([[Ether 4.12|Ether 4:12]].)
 
@@ -32,7 +32,7 @@ Envision yourself some time later in the temple in Jerusalem. The weather is hot
 
 “The Pharisees therefore said unto him, Thou bearest record of thyself; thy record is not true.
 
-“Jesus answered and said unto them, Though I bear record of myself, yet my record is true: for I know whence I came, and whither I go; but ye cannot tell whence I come, and whither I go. …
+“Jesus answered and said unto them, Though I bear record of myself, yet my record is true: for I know whence I came, and whither I go; but ye cannot tell whence I come, and whither I go. …
 
 “It is also written in your law, that the testimony of two men is true.
 
@@ -46,9 +46,9 @@ Brigham Young taught: “All true wisdom that mankind have they have received fr
 
 To those who pursue and apply gospel principles, the Lord says, “And if your eye be single to my glory, your whole bodies shall be filled with light, and there shall be no darkness in you; and that body which is filled with light comprehendeth all things.” ([[D&C 88.67|D&C 88:67]].)
 
-President Joseph F. Smith said: “\[The\] knowledge of truth, combined with proper regard for it, and its faithful observance, constitutes true education. The mere stuffing of the mind with a knowledge of facts is not education. The mind must not only possess a knowledge of truth, but the soul must revere it, cherish it, love it as a priceless gem; and this human life must be guided and shaped by it in order to fulfil its destiny.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 269.)
+President Joseph F. Smith said: “\[The\] knowledge of truth, combined with proper regard for it, and its faithful observance, constitutes true education. The mere stuffing of the mind with a knowledge of facts is not education. The mind must not only possess a knowledge of truth, but the soul must revere it, cherish it, love it as a priceless gem; and this human life must be guided and shaped by it in order to fulfil its destiny.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 269.)
 
-Of what value is truth unless it is assimilated into the minds and hearts of men? “Truth is the rock foundation of every great character,” wrote William George Jordan. “It is loyalty to the right as we see it; it is courageous living of our lives in harmony with our ideals.” (*The Power of Truth,* Salt Lake City: Deseret Book Co., 1943, p. 3.)
+Of what value is truth unless it is assimilated into the minds and hearts of men? “Truth is the rock foundation of every great character,” wrote William George Jordan. “It is loyalty to the right as we see it; it is courageous living of our lives in harmony with our ideals.” (*The Power of Truth,* Salt Lake City: Deseret Book Co., 1943, p. 3.)
 
 The Lord says:
 
@@ -106,13 +106,11 @@ The Lord said to the people in his day, and to us too: “By their fruits ye sha
 
 “For a good tree bringeth not forth corrupt fruit; neither doth a corrupt tree bring forth good fruit.
 
-“… Every tree is known by his own fruit.” ([[Luke 6.43|Luke 6:43–44]][[Luke 6.44|]].)
+“… Every tree is known by his own fruit.” ([[Luke 6.43|Luke 6:43–44]][[Luke 6.44|]].)
 
 May I suggest a formula for bringing forth good fruit and helping one to gain eternal salvation? (1) Have faith in the Lord Jesus Christ and in yourself, (2) study eternal truths, (3) ponder and pray for understanding, (4) strive to incorporate principles of truth into daily living, (5) exercise integrity in all that you do, and (6) strive to do everything you do to a standard of excellence.
 
 Let us diligently strive to understand the wonderful things of God. The jewels of the gospel of Jesus Christ are within our reach. But we must seek—ask and strive for—and live the principles of truth. When we do so, we will become better men and better women and contribute to a better community, a better nation, and a better world, for which I pray in the name of Jesus Christ, amen.
-
-
 
 
 

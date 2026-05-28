@@ -1,6 +1,5 @@
 # Trumpet
 
-
 *See also* [[Trump.md|Trump]]
 
 voice of the *trumpet* exceeding loud, [[Exodus 19.16|Exodus 19:16]].
@@ -13,7 +12,7 @@ Make thee two *trumpets* of silver, [[Numbers 10.2|Numbers 10:2]].
 
 priests, shall blow with the *trumpets*, [[Numbers 10.8|Numbers 10:8]].
 
-he put a *trumpet* in every man's hand, [[Judges 7.16|Judges 7:16]].
+he put a *trumpet* in every man’s hand, [[Judges 7.16|Judges 7:16]].
 
 in that day, that the great *trumpet* shall be blown, [[Isaiah 27.13|Isaiah 27:13]].
 

@@ -1,6 +1,6 @@
 # Activating Young Men of the Aaronic Priesthood
 
-By C. Frederick Pingel - *Bishop, Beavercreek Ward, Dayton Ohio East Stake*
+By C. Frederick Pingel - *Bishop, Beavercreek Ward, Dayton Ohio East Stake*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -77,6 +77,7 @@ The father answered the door, and we explained our purpose. Brethren, he couldn�
 We decided we had hit upon a rather effective activation technique. We also decided to use it next week on the other young man. During the week the word about what we were going to do got out. Next Sunday, for the first time since I had been the bishop, 100 percent of our quorum members were at priesthood meeting. I can report to you that one of these young men is presently serving a full-time mission and the other will soon be serving.
 
 Remember the sister that I used to home teach? The one who told me that talk is cheap? Brethren, don’t be guilty of cheap talk concerning your young men. Get involved, activate them, establish one-to-one relationships with them. It’s a great key to activation. In the name of Jesus Christ, amen.
+
 
 
 

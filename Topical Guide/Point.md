@@ -1,6 +1,5 @@
 # Point
 
-
 with the *point* of a diamond: it is graven, [[Jeremiah 17.1|Jeremiah 17:1]].
 
 daughter lieth at the *point* of death, [[Mark 5.23|Mark 5:23]].
@@ -13,7 +12,7 @@ offend in one *point*, he is guilty of all, [[James 2.10|James 2:10]].
 
 they did *point* the finger of scorn at me, [[1 Nephi 8.33|1 Nephi 8:33]].
 
-Nephi, beheld the *pointers*, [[1 Nephi 16.28|1 Nephi 16:28]] ([[Alma 37.40|Alma 37:40-44]][[Alma 37.41|]][[Alma 37.42|]][[Alma 37.43|]][[Alma 37.44|]]).
+Nephi, beheld the *pointers*, [[1 Nephi 16.28|1 Nephi 16:28]].
 
 law of Moses, it *pointing* our souls to him, [[Jacob 4.5|Jacob 4:5]].
 

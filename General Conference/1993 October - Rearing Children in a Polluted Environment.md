@@ -10,9 +10,9 @@ Not long ago, I had an impromptu conversation with a group of young parents who 
 
 We all hear and read a great deal these days about our polluted physical environment—acid rain, smog, toxic wastes. But these parents recognize that there is another kind of pollution that is much more dangerous—the moral and spiritual.
 
-In a recent conference, Elder Boyd K. Packer said, “As we test the *moral* environment, we find the *pollution* index is spiraling upward” (in Conference Report, Apr. 1992, p. 91; or *Ensign,* May 1992, p. 66). The Apostle Paul foresaw “that in the last days perilous times shall come” ([[2 Timothy 3.1|2 Tim. 3:1]]). And speaking of the last days, the prophet Moroni declared, “Yea, it shall come in a day when there shall be great pollutions upon the face of the earth” ([[Mormon 8.31|Morm. 8:31]]).
+In a recent conference, Elder Boyd K. Packer said, “As we test the *moral* environment, we find the *pollution* index is spiraling upward” (in Conference Report, Apr. 1992, p. 91; or *Ensign,* May 1992, p. 66). The Apostle Paul foresaw “that in the last days perilous times shall come” ([[2 Timothy 3.1|2 Tim. 3:1]]). And speaking of the last days, the prophet Moroni declared, “Yea, it shall come in a day when there shall be great pollutions upon the face of the earth” ([[Mormon 8.31|Morm. 8:31]]).
 
-Sadly, the effects of this great pollution are perhaps most evident in the mass media, films, television, and popular music. Of this, Senator Robert D. Byrd said, “If we in this nation continue to sow the images of murder, violence, drug abuse, … perversion, \[and\] pornography … before the eyes of millions of children, year after year and day after day, we should not be surprised if the foundations of our society rot away as if from leprosy” (in Michael Medved, *Hollywood vs. America* \[New York: Harper Perennial, 1992\], p. 194).
+Sadly, the effects of this great pollution are perhaps most evident in the mass media, films, television, and popular music. Of this, Senator Robert D. Byrd said, “If we in this nation continue to sow the images of murder, violence, drug abuse, … perversion, \[and\] pornography … before the eyes of millions of children, year after year and day after day, we should not be surprised if the foundations of our society rot away as if from leprosy” (in Michael Medved, *Hollywood vs. America* \[New York: Harper Perennial, 1992\], p. 194).
 
 Although there are some uplifting exceptions, in most areas of the mass media there seems to be a declaration of war against almost everything the majority treasures most: the family, religion, and patriotism. Marriage is degraded, while premarital and extramarital relations are encouraged and glamorized. Profanity and the foulest of vulgar gutter language bombard the ears of all who listen. Reportedly, in one R-rated movie, the most common, vulgar four-letter word was spoken 256 times! Human life itself is trivialized by the constant barrage of violence and killings. Remember that anything that is not good for children is rarely good for adults.
 
@@ -24,7 +24,7 @@ Parents who really want to receive assistance must return to the basics—the fu
 
 First, *do not be afraid to set clear moral standards and guidelines.* Be sure to say no when it is needed. As Dr. John Rosemond counseled:
 
-“\[Give\] your children regular, daily doses of Vitamin N. This vital nutrient consists simply of the most character-building two-letter word in the English language: \[*No*\]. … Unfortunately, many, if not most, of today’s children suffer from Vitamin N deficiency. They’ve been overindulged by well-meaning parents who’ve given them far too much of what they want and far too little of what they truly need” (*John Rosemond’s Six-Point Plan for Raising Happy, Healthy Children* \[Kansas City, Mo.: Andrews and McMeel, 1989\], p. 114).
+“\[Give\] your children regular, daily doses of Vitamin N. This vital nutrient consists simply of the most character-building two-letter word in the English language: \[*No*\]. … Unfortunately, many, if not most, of today’s children suffer from Vitamin N deficiency. They’ve been overindulged by well-meaning parents who’ve given them far too much of what they want and far too little of what they truly need” (*John Rosemond’s Six-Point Plan for Raising Happy, Healthy Children* \[Kansas City, Mo.: Andrews and McMeel, 1989\], p. 114).
 
 Even though your children say, “Well, everyone else is going to stay out until one or two in the morning, and their parents don’t care. Why can’t I? Don’t you trust me?” let them know that there are some things that, as members of your family, you simply do not do. Some parents seem to be almost pathologically concerned about their children’s popularity and social acceptance and go along with many things that are really against their better judgment, such as expensive fads, immodest clothes, late hours, dating before age sixteen, R-rated movies, and so on. For children and parents, standing up for what is right may be lonely at times. There may be evenings alone, parties missed, and movies which go unseen. It may not always be fun. But parenting is not a popularity contest.
 
@@ -40,9 +40,9 @@ I feel great concern for the future of that young Latter-day Saint boy as well a
 
 I like what President Spencer W. Kimball has said on this topic:
 
-“We want you parents to create work for your children. …
+“We want you parents to create work for your children. …
 
-“The idle generation! Hours each day and nothing to do. …
+“The idle generation! Hours each day and nothing to do. …
 
 “‘What can we do?’” they ask.
 
@@ -52,7 +52,7 @@ I like what President Spencer W. Kimball has said on this topic:
 
 Then he concludes:
 
-“Lawmakers in their overeagerness to protect the child have legislated until the pendulum has swung to the other extreme. But no law prohibits most work \[here\] suggested … , and parents can make work” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], pp. 360–61).
+“Lawmakers in their overeagerness to protect the child have legislated until the pendulum has swung to the other extreme. But no law prohibits most work \[here\] suggested … , and parents can make work” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], pp. 360–61).
 
 In addition, help your children learn self-discipline by such activities as learning to play a musical instrument or learning another demanding skill. I am reminded of the story of the salesman who came to a house one hot summer day. Through the screen door he could see a young boy practicing his scales on the piano. His baseball glove and hat were by the side of the piano bench. He said, “Say, boy, is your mother home?” To which the boy replied, “What do you think?” Thank heavens for conscientious parents!
 
@@ -68,17 +68,17 @@ Third, *create an environment in your family in which spiritual experiences can 
 
 - Read the scriptures together daily as a family. There is real power in the scriptures.
 
-President Benson has said: “May I admonish you to participate in a program of daily reading and pondering of the scriptures. … The Book of Mormon will change your life. It will fortify you against the evils of our day. It will bring a spirituality into your life that no other book will” (in Conference Report, Apr. 1986, p. 56; or *Ensign,* May 1986, p. 43).
+President Benson has said: “May I admonish you to participate in a program of daily reading and pondering of the scriptures. … The Book of Mormon will change your life. It will fortify you against the evils of our day. It will bring a spirituality into your life that no other book will” (in Conference Report, Apr. 1986, [[1986 April - To the “Youth of the Noble Birthright”.md|p. 56]]; or *Ensign,* May 1986, p. 43).
 
 Is the Book of Mormon a significant part of your reading? Count the number of rich promises President Marion G. Romney made to parents when he said:
 
-“I feel certain that if, in our homes, parents will read from the Book of Mormon prayerfully and regularly, both by themselves and with their children, the spirit of that great book will come to permeate our homes. … The spirit of reverence will increase; mutual respect and consideration for each other will grow. The spirit of contention will depart. Parents will counsel their children in greater love and wisdom. Children will be more responsive and submissive to the counsel of their parents. Righteousness will increase. … The pure love of Christ … will abound in our homes and lives, bringing in their wake peace, joy, and happiness” (in Conference Report, Apr. 1980, p. 90; or *Ensign,* May 1980, p. 67).
+“I feel certain that if, in our homes, parents will read from the Book of Mormon prayerfully and regularly, both by themselves and with their children, the spirit of that great book will come to permeate our homes. … The spirit of reverence will increase; mutual respect and consideration for each other will grow. The spirit of contention will depart. Parents will counsel their children in greater love and wisdom. Children will be more responsive and submissive to the counsel of their parents. Righteousness will increase. … The pure love of Christ … will abound in our homes and lives, bringing in their wake peace, joy, and happiness” (in Conference Report, Apr. 1980, [[1980 April - The Book of Mormon.md|p. 90]]; or *Ensign,* May 1980, p. 67).
 
 We should not take these ten promises lightly.
 
 Fourth, *follow the counsel of the prophets.* Listen to their messages at this conference and reread their counsel to us from prior occasions. If your personal and family practices do not conform to the counsel received, then, for your own family’s sake, make some changes.
 
-President Harold B. Lee said, “We must learn to give heed to the words and commandments that the Lord shall give through his prophet … \[and quoting from the Doctrine and Covenants\] ‘as if from mine own mouth, in all patience and faith.’ ([[D&C 21.4|D&C 21:4–5]][[D&C 21.5|]].)” He continued: “There will be some things that take patience and faith. You may not like what comes from the authority of the Church. It may contradict your political views. It may contradict your social views. It may interfere with some of your social life. … Your safety and ours depends upon whether or not we follow the ones whom the Lord has placed to preside over his church” (in Conference Report, Oct. 1970, pp. 152–53).
+President Harold B. Lee said, “We must learn to give heed to the words and commandments that the Lord shall give through his prophet … \[and quoting from the Doctrine and Covenants\] ‘as if from mine own mouth, in all patience and faith.’ ([[D&C 21.4|D&C 21:4–5]][[D&C 21.5|]].)” He continued: “There will be some things that take patience and faith. You may not like what comes from the authority of the Church. It may contradict your political views. It may contradict your social views. It may interfere with some of your social life. … Your safety and ours depends upon whether or not we follow the ones whom the Lord has placed to preside over his church” (in Conference Report, Oct. 1970, pp. 152–53).
 
 From a personal standpoint, of what value is it to have living prophets if we do not heed their counsel?
 
@@ -89,8 +89,6 @@ I know that our Heavenly Father lives. We are his spirit children, and he loves 
 Jesus is the Christ, and this is his church, which is led by living prophets.
 
 Of this I sincerely testify in the name of Jesus the Christ, amen.
-
-
 
 
 

@@ -16,7 +16,7 @@ You are the keepers of the homes. You give encouragement to your husbands. You t
 
 Speaking of the Relief Society, President Joseph F. Smith said on one occasion:
 
-“This organization is divinely made, divinely authorized, divinely instituted, divinely ordained of God to minister for the salvation of the souls of women and of men. Therefore there is not any organization that can compare with it, … that can ever occupy the same stand and platform that this can. …
+“This organization is divinely made, divinely authorized, divinely instituted, divinely ordained of God to minister for the salvation of the souls of women and of men. Therefore there is not any organization that can compare with it, … that can ever occupy the same stand and platform that this can. …
 
 “Make \[Relief Society\] first, make it foremost, make it the highest, the best and the deepest of any organization in existence in the world. You are called by the voice of the Prophet of God to do it, to be uppermost, to be the greatest and the best, the purest and the most devoted to the right” (Minutes of the General Board of the Relief Society, 17 Mar. 1914, Historical Department Archives, The Church of Jesus Christ of Latter-day Saints, 54–56).
 
@@ -103,6 +103,4 @@ I leave my blessing, my testimony, and my love with you in the name of the Lord 
 
 
 
-
-
-#Children #Evil #Family #Fatherhood #Love #Marriage #Motherhood #Relief_Society #Satan #Women
+#Children #Evil #Family #Fatherhood #Love #Marriage #Motherhood #ReliefSociety #Satan #Women

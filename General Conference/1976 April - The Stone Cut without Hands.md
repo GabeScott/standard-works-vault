@@ -1,6 +1,6 @@
 # The Stone Cut without Hands
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -72,9 +72,9 @@ It is amazing what our youth can do when given assignments and direction.
 
 President Brigham Young said:
 
-“My faith does not lead me to think the Lord will provide us with roast pigs, bread already buttered, etc.; he will give us the ability to raise the grain, to obtain the fruits of the earth, to make habitations, to procure a few boards to make a box, and when harvest comes, giving us the grain, it is for us to preserve it—to save the wheat until we have one, two, five, or seven years’ provisions on hand, until there is enough of the staff of life saved by the people to bread themselves and those who will come here seeking for safety. …
+“My faith does not lead me to think the Lord will provide us with roast pigs, bread already buttered, etc.; he will give us the ability to raise the grain, to obtain the fruits of the earth, to make habitations, to procure a few boards to make a box, and when harvest comes, giving us the grain, it is for us to preserve it—to save the wheat until we have one, two, five, or seven years’ provisions on hand, until there is enough of the staff of life saved by the people to bread themselves and those who will come here seeking for safety. …
 
-“Let Nothing Go To Waste,” he counseled. “Take things calm and easy, pick up everything, let nothing go to waste. …
+“Let Nothing Go To Waste,” he counseled. “Take things calm and easy, pick up everything, let nothing go to waste. …
 
 “Be prudent, save everything, and what you get more than you can take care of yourselves, ask your neighbors to help you consume.
 
@@ -138,7 +138,7 @@ Baptism into Christ’s true church by proper authority opens the doors for exal
 
 The gospel of Jesus Christ is a gospel for all the world and for all people. We proclaim the fatherhood of God and the brotherhood of all mankind. We proclaim the divine sonship of Jesus Christ and him crucified, that his divine sacrifice was a ransom for all mankind. We bear witness of his resurrection and that he lives today, standing at the right hand of God, to guide the affairs of his earthly kingdom.
 
-As you investigate the Church of Jesus Christ, you will find it is not a religion claiming succession from those who shared Christ’s earthly ministry; nor is it a Protestant religion. It is a divine restoration of Christ’s earthly kingdom, organized, as was his primitive church, with “apostles, prophets, pastors, teachers, evangelists, etc.” ([[Articles of Faith 1.6|A of F 1:6]].)
+As you investigate the Church of Jesus Christ, you will find it is not a religion claiming succession from those who shared Christ’s earthly ministry; nor is it a Protestant religion. It is a divine restoration of Christ’s earthly kingdom, organized, as was his primitive church, with “apostles, prophets, pastors, teachers, evangelists, etc.” ([[Articles of Faith 1.6|A of F 1:6]].)
 
 In your study of this restored church, you will find herein the divinely restored powers and authorities of the holy priesthood. By this divine authority, and in no other way, the saving ordinances of the gospel are performed and are made binding for all time and eternity. I testify this to all of you who hear my voice.
 
@@ -154,7 +154,7 @@ The Lord said: “Hearken, O ye people … to whom the kingdom has been given; h
 
 “And again I say, hearken unto my voice, lest death shall overtake you; in an hour when ye think not the summer shall be past, and the harvest ended, and your souls not saved.
 
-“Listen to him who is the advocate with the Father, who is pleading your cause before him. …
+“Listen to him who is the advocate with the Father, who is pleading your cause before him. …
 
 “And even so I have sent mine everlasting covenant into the world, to be a light to the world, and to be a standard for my people, and for the Gentiles to seek to it, and to be a messenger before my face to prepare the way before me.
 
@@ -271,6 +271,4 @@ I know it is true. I know it is divine. I know it is the little stone that was c
 
 
 
-
-
-#Church_Growth #Financial_Management #Restoration #Work
+#ChurchGrowth #FinancialManagement #Restoration #Work

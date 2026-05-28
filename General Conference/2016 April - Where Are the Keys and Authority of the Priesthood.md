@@ -1,6 +1,6 @@
 # Where Are the Keys and Authority of the Priesthood?
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -22,7 +22,7 @@ Nearly seven years later on a Sunday in the Kirtland Temple, just one week follo
 
 On a beautiful fall day last year, I visited the peaceful forest located in northeastern Pennsylvania known in scripture as Harmony, where John the Baptist appeared to Joseph Smith and Oliver Cowdery and restored the Aaronic Priesthood. I also stood on the banks of the Susquehanna River where Joseph and Oliver, endowed with authority and keys, were baptized. Near this same river, Peter, James, and John appeared and restored the Melchizedek Priesthood and its attendant keys.[^3]
 
-These sites, as well as the reconstructed first home of Joseph and Emma, where most of the Book of Mormon was translated; the nearby home of Emma’s parents; and a visitors’ center incorporated into a new meetinghouse, comprise the new Priesthood Restoration Site, dedicated by President Russell M. Nelson in September of last year. There, I felt the power and reality of the heavenly events which took place on that sacred ground. That experience led me to ponder, study, and pray about priesthood authority and priesthood keys, which impressed me with a desire to share with the young men and young women of the Church how priesthood authority and restored keys can bless them.
+These sites, as well as the reconstructed first home of Joseph and Emma, where most of the Book of Mormon was translated; the nearby home of Emma’s parents; and a visitors’ center incorporated into a new meetinghouse, comprise the new Priesthood Restoration Site, dedicated by President Russell M. Nelson in September of last year. There, I felt the power and reality of the heavenly events which took place on that sacred ground. That experience led me to ponder, study, and pray about priesthood authority and priesthood keys, which impressed me with a desire to share with the young men and young women of the Church how priesthood authority and restored keys can bless them.
 
 First, an understanding of these terms may be helpful. The priesthood, or priesthood authority, has been defined as “the power and authority of God”[^4] and “the consummate power on this earth.”[^5] Priesthood keys are defined for our understanding as well: “Priesthood keys are the authority God has given to priesthood leaders to direct, control, and govern the use of His priesthood on earth.”[^6] Priesthood keys control the exercise of priesthood authority. Ordinances that create a record in the Church require keys and cannot be done without authorization. Elder Dallin H. Oaks taught that “ultimately, all keys of the priesthood are held by the Lord Jesus Christ, whose priesthood it is. He is the one who determines what keys are delegated to mortals and how those keys will be used.”[^7]
 
@@ -56,7 +56,7 @@ To summarize: prepare for missionary service, attend the temple, and go forward 
 
 Let’s now end where we began, stranded in the frigid parking lot asking, “Where are the keys?” By the way, later that evening I did miraculously find the keys that had fallen out of my pocket on the mountain. The Lord has shown us that He will not leave us standing in the bitter cold without keys or authority to lead us safely home to Him.
 
-If you are like me, you may often find yourself in daily life asking, “Where are the keys” to the car, the office, the house or apartment? When this happens to me, I can’t help but smile inside, for as I am looking for the keys, I find myself reflecting on restored priesthood keys and on President Thomas S. Monson, whom we sustain “as prophet, seer, and revelator”[^11] and as the only person on earth who possesses and is authorized to exercise all priesthood keys. Yes, the keys are safely in the possession of prophets, seers, and revelators. They are conferred, delegated, and assigned to others in accordance with the Lord’s will, under the direction of the President of the Church.
+If you are like me, you may often find yourself in daily life asking, “Where are the keys” to the car, the office, the house or apartment? When this happens to me, I can’t help but smile inside, for as I am looking for the keys, I find myself reflecting on restored priesthood keys and on President Thomas S. Monson, whom we sustain “as prophet, seer, and revelator”[^11] and as the only person on earth who possesses and is authorized to exercise all priesthood keys. Yes, the keys are safely in the possession of prophets, seers, and revelators. They are conferred, delegated, and assigned to others in accordance with the Lord’s will, under the direction of the President of the Church.
 
 I testify that priesthood authority and priesthood keys start the engine, open the gates of heaven, facilitate heavenly power, and pave the covenant pathway back to our loving Heavenly Father.
 
@@ -75,22 +75,20 @@ I testify of God the Father; of our Savior and Redeemer, Jesus Christ; of the Ho
 
 [^4]: *Handbook 2: Administering the Church* (2010), page 8.
 
-[^5]: Boyd K. Packer, “[Priesthood Power in the Home](https://churchofjesuschrist.org/study/video/worldwide-leadership-training/2012/2012-02-1030-priesthood-power-in-the-home?lang=eng)” (worldwide leadership training meeting, Feb. 2012), lds.org/broadcasts; see also James E. Faust, “[[1997 April - Power of the Priesthood.md|Power of the Priesthood]],” *Ensign,* May 1997, 41–43.
+[^5]: Boyd K. Packer, “[Priesthood Power in the Home](https://www.churchofjesuschrist.org/study/video/worldwide-leadership-training/2012/2012-02-1030-priesthood-power-in-the-home?lang=eng)” (worldwide leadership training meeting, Feb. 2012), lds.org/broadcasts; see also James E. Faust, “[[1997 April - Power of the Priesthood.md|Power of the Priesthood]],” *Ensign,* May 1997, 41–43.
 
 [^6]: *Handbook 2,* 2.1.1.
 
-[^7]: Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 50.
+[^7]: Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 50.
 
 [^8]: *For the Strength of Youth* (booklet, 2011), 43.
 
-[^9]: Thomas S. Monson, “[[2012 October - Welcome to Conference.md|Welcome to Conference]],” *Ensign* or *Liahona,* Nov. 2012, 5.
+[^9]: Thomas S. Monson, “[[2012 October - Welcome to Conference.md|Welcome to Conference]],” *Ensign* or *Liahona,* Nov. 2012, 5.
 
 [^10]: *For the Strength of Youth,* 42–43.
 
 [^11]: See Officers Sustained forms read at annual ward and stake conferences.
 
-[^12]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^12]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-#Authority #Covenants #Family_History #Missionary_Work #Ordinances #Priesthood #Temple_Work
+#Authority #Covenants #FamilyHistory #MissionaryWork #Ordinances #Priesthood #TempleWork

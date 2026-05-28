@@ -1,12 +1,12 @@
 # Welfare Services
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/welfare-services?lang=eng)
 
-Brethren and sisters, after what I’ve heard here today—certainly a full coverage of the subject—I am reminded of an experience I had some years ago. I believe it was one of the few times, if not the only time, that we General Authorities were asked by the Brethren to treat a certain subject at a stake conference. That week I went to Richfield, and Brother Clifford Young went over to Monroe. They had a chorus of young folks from the school sing at Richfield while I was there in the morning, and then they went over to Monroe in the afternoon and sang where Brother Young was. It happened that I talked about the assigned subject in the morning, and Clifford talked about it in the afternoon. When we made our report to the Council of the Twelve, Brother Young said it had been a fine occasion; the only bad thing about it was that those students had had to listen to the same subject twice. President George F. Richards, then president of the Twelve, said, “Oh, I wouldn’t worry about that. I don’t suppose they knew you were talking about the same subject.”
+Brethren and sisters, after what I’ve heard here today—certainly a full coverage of the subject—I am reminded of an experience I had some years ago. I believe it was one of the few times, if not the only time, that we General Authorities were asked by the Brethren to treat a certain subject at a stake conference. That week I went to Richfield, and Brother Clifford Young went over to Monroe. They had a chorus of young folks from the school sing at Richfield while I was there in the morning, and then they went over to Monroe in the afternoon and sang where Brother Young was. It happened that I talked about the assigned subject in the morning, and Clifford talked about it in the afternoon. When we made our report to the Council of the Twelve, Brother Young said it had been a fine occasion; the only bad thing about it was that those students had had to listen to the same subject twice. President George F. Richards, then president of the Twelve, said, “Oh, I wouldn’t worry about that. I don’t suppose they knew you were talking about the same subject.”
 
 I believe that in the remarks I shall now make, you will be able to understand that I am talking about the same subject the Brethren covered this morning in that wonderful presentation.
 
@@ -14,13 +14,13 @@ As Bishop Brown said, the Welfare Services Department of the Church comprises th
 
 You know, of course, how these commandments were implemented anciently. In the days of Enoch as we’ve already heard, the record says that “the Lord came and dwelt with his people, and they dwelt in righteousness.
 
-“The fear of the Lord was upon all nations, so great was the glory of the Lord, which was upon his people. …
+“The fear of the Lord was upon all nations, so great was the glory of the Lord, which was upon his people. …
 
 “And the Lord called his people Zion, because they were of one heart and one mind, and dwelt in righteousness; and there was no poor among them.” ([[Moses 7.16|Moses 7:16–18]][[Moses 7.17|]][[Moses 7.18|]].)
 
-Of the Nephites who survived the cataclysm which occurred in America at the time of the crucifixion of Jesus, it is written that “the thirty and fourth year passed away, and also the thirty and fifth, and behold the disciples of Jesus had formed a church of Christ in all the lands round about. …
+Of the Nephites who survived the cataclysm which occurred in America at the time of the crucifixion of Jesus, it is written that “the thirty and fourth year passed away, and also the thirty and fifth, and behold the disciples of Jesus had formed a church of Christ in all the lands round about. …
 
-“And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift.” ([[4 Nephi 1.1|4 Ne. 1:1, 3]][[4 Nephi 1.3|]].)
+“And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift.” ([[4 Nephi 1.1|4 Ne. 1:1, 3]][[4 Nephi 1.3|]].)
 
 In this last dispensation, before the Church had been organized nine months the Lord directed the Saints to take care of the poor. At the same time he told them that if they did not do so, they were not his disciples. (See [[D&C 38.1|D&C 38]][[D&C 38.2|]][[D&C 38.3|]][[D&C 38.4|]][[D&C 38.5|]][[D&C 38.6|]][[D&C 38.7|]][[D&C 38.8|]][[D&C 38.9|]][[D&C 38.10|]][[D&C 38.11|]][[D&C 38.12|]][[D&C 38.13|]][[D&C 38.14|]][[D&C 38.15|]][[D&C 38.16|]][[D&C 38.17|]][[D&C 38.18|]][[D&C 38.19|]][[D&C 38.20|]][[D&C 38.21|]][[D&C 38.22|]][[D&C 38.23|]][[D&C 38.24|]][[D&C 38.25|]][[D&C 38.26|]][[D&C 38.27|]][[D&C 38.28|]][[D&C 38.29|]][[D&C 38.30|]][[D&C 38.31|]][[D&C 38.32|]][[D&C 38.33|]][[D&C 38.34|]][[D&C 38.35|]][[D&C 38.36|]][[D&C 38.37|]][[D&C 38.38|]][[D&C 38.39|]][[D&C 38.40|]][[D&C 38.41|]][[D&C 38.42|]].)
 
@@ -46,9 +46,9 @@ The requirement to live the united order at that time was then withdrawn. The le
 
 The Relief Society, after it was organized by the Prophet Joseph in Nauvoo, performed a great service in administering to the poor. There have been many voluntary cooperative projects among the Saints since then.
 
-But the next Churchwide program oriented toward the principles of the united order was our welfare program. In the October conference of 1936, President Heber J. Grant read “The Message of the First Presidency to the Church” from which I want to quote this morning. In doing so, I shall substitute the word *welfare* for the word *security.* This change in wording was made by President Grant shortly after the program was announced.
+But the next Churchwide program oriented toward the principles of the united order was our welfare program. In the October conference of 1936, President Heber J. Grant read “The Message of the First Presidency to the Church” from which I want to quote this morning. In doing so, I shall substitute the word *welfare* for the word *security.* This change in wording was made by President Grant shortly after the program was announced.
 
-“As promised at the last April Conference, we inaugurated a Church \[Welfare\] Plan. …
+“As promised at the last April Conference, we inaugurated a Church \[Welfare\] Plan. …
 
 “The announced objective set for the Church under this Program was to provide by October 1, 1936, by a wholly voluntary system of gifts in cash or in kind, sufficient food, fuel, clothing, and bedding to supply through the coming winter, every needy and worthy Church family unable to furnish these for itself, in order that no member of the Church should suffer in these times of stress and emergency.”
 
@@ -106,14 +106,14 @@ Having read the message of the First Presidency, President Grant continued with 
 
 The Presidency in their message made it crystal clear that their purpose in setting up the welfare program was two-fold: first, to see that no worthy member of the Church suffers for want of the necessities of life; and second, that everyone who can work is given work to do.
 
-During the conference at which the welfare program was announced, and at which this message was read, President J. Reuben Clark said,
+During the conference at which the welfare program was announced, and at which this message was read, President J. Reuben Clark said,
 
 “Work is a great thing. It is the law of this earth. When Adam was cast out, upon him was passed the glorious sentence, ‘In the sweat of thy face shalt thou eat bread.’ Man as he is would not and could not have existed except for the promulgation of this law. Work is a wonderful thing, no matter what that work may be.
 
 “The great Milton, in that wonderful poem, ‘Paradise Lost,’ pays this tribute to work, which he expresses after he opens to us the vision of Adam and Eve in the Garden of Eden:
 
 >“‘God hath set labor and rest, as day and night,
->To men successive …
+>To men successive …
 >Other creatures all day long
 >Rove idle, unemployed, and less need rest;
 >Man hath his daily work of body and mind
@@ -133,7 +133,7 @@ We must never forget that our primary purpose in this welfare program is to do a
 
 In the welfare production phase of the program, our record is a little better. “Every ward and stake” said the Presidency, “is expected to face the necessity, not only of providing for its own, but of helping other wards and stakes.” (*Conference Report,* Oct. 1936, p. 4.)
 
-The implementing of this charge requires that every ward, by itself or in cooperation with other wards, acquire a production facility. During the first five years—from 1936 to 1941—Elder Melvin J. Ballard and President Lee (then a stake president) went throughout the stakes of the Church organizing welfare regions and teaching the program. Thereafter, each year for fifteen years, I was assigned by the Brethren to meet with stake and ward leadership of all stakes in the United States and Canada. This, with my traveling companions, I did. Our responsibility was to teach the program, assign a production budget for the ensuing year, and to urge each bishop, individually or in cooperation with other bishops, to acquire a production project.
+The implementing of this charge requires that every ward, by itself or in cooperation with other wards, acquire a production facility. During the first five years—from 1936 to 1941—Elder Melvin J. Ballard and President Lee (then a stake president) went throughout the stakes of the Church organizing welfare regions and teaching the program. Thereafter, each year for fifteen years, I was assigned by the Brethren to meet with stake and ward leadership of all stakes in the United States and Canada. This, with my traveling companions, I did. Our responsibility was to teach the program, assign a production budget for the ensuing year, and to urge each bishop, individually or in cooperation with other bishops, to acquire a production project.
 
 During those years, a welfare committee representative was regularly assigned to accompany General Authorities to stake conferences to hold welfare meetings and teach the program.
 
@@ -180,8 +180,6 @@ Especially needed are those with language skills or the ability to quickly learn
 We are convinced that a prayerful consideration of the membership of each stake and ward will result in the identification of couples who meet these criteria.
 
 Now, brothers and sisters, I have a witness and a testimony of this great work. We love you and appreciate the great work you are doing in it, and the greater work you are going to do. May the Lord bless us. In the name of Jesus Christ. Amen.
-
-
 
 
 

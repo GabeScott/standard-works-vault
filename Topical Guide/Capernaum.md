@@ -1,4 +1,3 @@
 # Capernaum
 
-
-*See* [BD Capernaum](https://www.churchofjesuschrist.org/study/scriptures/bd/capernaum?lang=eng)
+*See also* [[BD Capernaum.md|BD Capernaum]]

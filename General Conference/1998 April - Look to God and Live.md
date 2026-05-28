@@ -30,7 +30,7 @@ As we ponder the events that can befall all of us—even sickness, accident, dea
 
 It may safely be assumed that no person has ever lived entirely free of suffering and tribulation, nor has there ever been a period in human history that did not have its full share of turmoil, ruin, and misery.
 
-When the pathway of life takes a cruel turn, there is the temptation to ask the question “Why me?” Self-incrimination is a common practice, even when we may have had no control over our difficulty. At times there appears to be no light at the tunnel’s end, no dawn to break the night’s darkness. We feel surrounded by the pain of broken hearts, the disappointment of shattered dreams, and the despair of vanished hopes. We join in uttering the biblical plea, “Is there no balm in Gilead … ?”[^7] We feel abandoned, heartbroken, alone.
+When the pathway of life takes a cruel turn, there is the temptation to ask the question “Why me?” Self-incrimination is a common practice, even when we may have had no control over our difficulty. At times there appears to be no light at the tunnel’s end, no dawn to break the night’s darkness. We feel surrounded by the pain of broken hearts, the disappointment of shattered dreams, and the despair of vanished hopes. We join in uttering the biblical plea, “Is there no balm in Gilead … ?”[^7] We feel abandoned, heartbroken, alone.
 
 To all who so despair, may I offer the assurance found in the psalm, “Weeping may endure for a night, but joy cometh in the morning.”[^8]
 
@@ -198,11 +198,11 @@ That we may shoulder our sorrows, bear our burdens, and face our fears—as did 
 
 [^9]: [[Joshua 1.5|Josh. 1:5]].
 
-[^10]: [[1 Kings 17.8|1 Kgs. 17:8–9]][[1 Kings 17.9|]].
+[^10]: [[1 Kings 17.8|1 Kgs. 17:8–9]][[1 Kings 17.9|]].
 
-[^11]: [[1 Kings 17.10|1 Kgs. 17:10–14]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]].
+[^11]: [[1 Kings 17.10|1 Kgs. 17:10–14]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]].
 
-[^12]: [[1 Kings 17.15|1 Kgs. 17:15–16]][[1 Kings 17.16|]].
+[^12]: [[1 Kings 17.15|1 Kgs. 17:15–16]][[1 Kings 17.16|]].
 
 [^13]: [[Luke 2.10|Luke 2:10–11]][[Luke 2.11|]].
 
@@ -224,6 +224,4 @@ That we may shoulder our sorrows, bear our burdens, and face our fears—as did 
 
 [^22]: [[Philippians 4.7|Philip. 4:7]].
 
-
-
-#Adversity #Atonement #Holy_Ghost #Jesus_Christ #Patience #Resurrection
+#Adversity #Atonement #HolyGhost #JesusChrist #Patience #Resurrection

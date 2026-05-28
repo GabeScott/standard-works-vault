@@ -1,6 +1,6 @@
 # “Go, and Do Thou Likewise”
 
-By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
+By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 My beloved brothers and sisters: I am grateful for this opportunity and with each of you express gratitude for this lovely choir. I always have a little glimpse into heaven as I listen to them sing, and I feel lifted up. This entire conference has been lifted and edified by their great singing this morning.
 
-I feel closer to heaven and have better insight as to what heaven might be like as I feel the spirit of you wonderful leaders assembled here today. There is a feeling of unity, a feeling of strength, a feeling of wanting to do that which the Lord has asked us to do. I am grateful to be in your presence. I often think of President David O. McKay’s great observation that heaven would be just an extension of the ideal home. I believe that with all my heart, and it is that feeling that I sense with us here.
+I feel closer to heaven and have better insight as to what heaven might be like as I feel the spirit of you wonderful leaders assembled here today. There is a feeling of unity, a feeling of strength, a feeling of wanting to do that which the Lord has asked us to do. I am grateful to be in your presence. I often think of President David O. McKay’s great observation that heaven would be just an extension of the ideal home. I believe that with all my heart, and it is that feeling that I sense with us here.
 
 Speaking of heaven and the hereafter, I would like to address my remarks to things I feel would be imperative in order that we might have the great privilege of one day living in the very presence of our Heavenly Father, which should be the objective of every Latter-day Saint.
 
@@ -28,7 +28,7 @@ On this occasion the Savior was describing the day of judgment, wherein those to
 
 Then the righteous answered, stating that not once had they found him hungry or thirsty or a stranger; and then the Savior’s classic teaching: “Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
 
-Other expressions of the Savior further confirm the same charges. He said: “Feed my sheep” ([[John 21.16|John 21:16]]); “… all things whatsoever ye would that men should do to you, do ye even so to them” ([[Matthew 7.12|Matt. 7:12]]). Then, having set the perfect example of service during his ministry, he concluded by saying, “Go, and do thou likewise.” ([[Luke 10.37|Luke 10:37]].)
+Other expressions of the Savior further confirm the same charges. He said: “Feed my sheep” ([[John 21.16|John 21:16]]); “… all things whatsoever ye would that men should do to you, do ye even so to them” ([[Matthew 7.12|Matt. 7:12]]). Then, having set the perfect example of service during his ministry, he concluded by saying, “Go, and do thou likewise.” ([[Luke 10.37|Luke 10:37]].)
 
 During the past 12 months it has been my privilege to work closely with many emotionally disturbed people; others who have transgressed; some who have found themselves out of harmony with society; still others who were lonely and afraid. It has not been a year of discouragement and despair, however, because the vast majority of these people have made an important decision, and they have said: “I want to change my life. I am ready to take direction from someone who really cares.” And in this church, we have bishops and stake presidents who really care.
 
@@ -44,7 +44,7 @@ Every success story of the past year has been the result of special effort on th
 
 The only joy that is comparable with the joy of the one receiving the help is the glow that seems to emanate from the one who has given so unselfishly of his time and strength to quietly help someone in need.
 
-The Savior did not seem to be so much involved in giving money. You will remember that his gifts were in the form of personal attention, in performing an administration, and in sharing the gifts of the Spirit. In fact, it was the Savior who said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. …” ([[John 14.27|John 14:27]].) We could add to peace the gift of love, the gift of immortality, the gift of eternal life, the gift of understanding, the gift of compassion, the gift of eternal justice. All of these gifts are beyond monetary consideration and could well be our gift to someone sometime, if we weren’t “too busy.”
+The Savior did not seem to be so much involved in giving money. You will remember that his gifts were in the form of personal attention, in performing an administration, and in sharing the gifts of the Spirit. In fact, it was the Savior who said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. …” ([[John 14.27|John 14:27]].) We could add to peace the gift of love, the gift of immortality, the gift of eternal life, the gift of understanding, the gift of compassion, the gift of eternal justice. All of these gifts are beyond monetary consideration and could well be our gift to someone sometime, if we weren’t “too busy.”
 
 Members of this church understand clearly that baptism is essential for entrance into the celestial kingdom. We also know and understand that total fulfillment can only be found in that ultimate celestial state called eternal life or exaltation, which, of course, is to live eternally in his holy presence.
 
@@ -71,8 +71,6 @@ If our life’s effort is to be sanctified or, in other words, ratified by the s
 I can think of no better guarantee for the future, your future and my future, than to follow the admonition of the Savior when he said at the beginning of his ministry: “Come and follow me” ([[Matthew 19.21|Matt. 19:21]]); and then, after showing the way, he said very simply, “Go, and do thou likewise.”
 
 Brothers and sisters, may we go and do likewise, is my fervent prayer in the name of the Lord Jesus Christ. Amen.
-
-
 
 
 

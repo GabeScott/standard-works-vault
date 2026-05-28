@@ -1,6 +1,6 @@
 # To Know God
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -26,9 +26,9 @@ This seems to be an admonition to search with determination and make earnest inq
 
 As important as scientific research may be, the greatest quest is a search for God—to determine his reality, his personal attributes, and to secure a knowledge of the gospel of his Son Jesus Christ. It is not easy to find a perfect understanding of God. The search requires persistent effort, and there are some who never move themselves to pursue this knowledge. In place of making the struggle and effort to understand, they follow the opposite course, which requires no effort, and deny his existence. One writer has stated it this way:
 
-“There are musicians but most of us are not musicians, some lacking musical talent, but the majority probably lacking inclination. But of those who are musically talented none ever becomes a great musician without years of persistent, continuous work. Great performers continue long hours of practice even though their reputations may be international. … No athlete becomes outstanding, no mechanic becomes skilled, no physician becomes an expert, no orator becomes great, no lawyer becomes renowned, except by persistent practice and many, many hours of hard work. … How foolish it would be for me to close my eyes and ears and say there are no musicians because I am not talented to become a musician; that there are no Edisons because I cannot become an inventor; that there are no artists because I do not have the talents and inclinations to become an artist. Does not reason tell us it is equally foolish for a man to declare there is no God simply because he has not discovered him? …
+“There are musicians but most of us are not musicians, some lacking musical talent, but the majority probably lacking inclination. But of those who are musically talented none ever becomes a great musician without years of persistent, continuous work. Great performers continue long hours of practice even though their reputations may be international. … No athlete becomes outstanding, no mechanic becomes skilled, no physician becomes an expert, no orator becomes great, no lawyer becomes renowned, except by persistent practice and many, many hours of hard work. … How foolish it would be for me to close my eyes and ears and say there are no musicians because I am not talented to become a musician; that there are no Edisons because I cannot become an inventor; that there are no artists because I do not have the talents and inclinations to become an artist. Does not reason tell us it is equally foolish for a man to declare there is no God simply because he has not discovered him? …
 
-“He who makes no effort to learn of the existence of Deity will, in this life, likely not learn there is a Deity. But his ignorance does not warrant him in declaring there is no God.” (Joseph F. Merrill, *The Truth-Seeker and Mormonism,* Deseret Book Co., pp. 76–77.)
+“He who makes no effort to learn of the existence of Deity will, in this life, likely not learn there is a Deity. But his ignorance does not warrant him in declaring there is no God.” (Joseph F. Merrill, *The Truth-Seeker and Mormonism,* Deseret Book Co., pp. 76–77.)
 
 Whether seeking for knowledge of scientific truths or to discover God, one must have faith. This becomes the starting point. Faith has been defined in many ways, but the most classic definition was given by the author of the letter to the Hebrews in these meaningful words: “Now faith is the substance of things hoped for, the evidence of things not seen.” ([[Hebrews 11.1|Heb. 11:1]].) In other words, faith makes us confident of what we hope for and convinced of what we do not see. The scientist does not see molecules, atoms, or electrons, yet he knows they exist. He does not see electricity, radiation, or magnetism, but he knows these are unseen realities. In like manner, those who earnestly seek for God do not see him, but they know of his reality by faith. It is more than hope. Faith makes it a conviction—an evidence of things not seen.
 
@@ -53,8 +53,6 @@ Listen carefully to these words of the Lord: “I, the Lord, am merciful and gra
 Thus we have the formula for the search for God and the tools to accomplish the quest—faith, love, and prayer. Science has done marvelous things for man, but it cannot accomplish the things he must do for himself, the greatest of which is to find the reality of God. The task is not easy; the labor is not light; but as stated by the Master, “Great shall be their reward and eternal shall be their glory.” ([[D&C 76.6|D&C 76:6]].)
 
 I have a positive conviction that God is a reality—that he lives. He is our Heavenly Father, and we are his spiritual children. He created the heaven and the earth and all things upon the earth and is the author of the eternal laws by which the universe is governed. These laws are discovered bit by bit as man continues his search, but they have existed always and will remain unchanged forever. I bear this witness that Jesus is the Christ, the Son of the living God, our Savior and Redeemer by reason of his atoning sacrifice to give life everlasting to all men. May the Lord bless us with the desire for an upward reach to the spiritual—to know God, to find him, and to have the determination to serve him and keep his commandments. This is my humble prayer in the name of Jesus Christ. Amen.
-
-
 
 
 

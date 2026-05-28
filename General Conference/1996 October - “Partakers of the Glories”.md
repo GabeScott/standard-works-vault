@@ -50,7 +50,7 @@ Spiritual gifts are powerful priesthood blessings. They increase our capacity as
 
 Many women have the gift of discernment. Often blessed with the power to know and understand beyond their experience, women draw on this strength as they visit monthly to teach in the homes or to assess needs as directed by the bishop. We use it as we nurture our children and teach them the gospel. We discern, by the power of God given to us through His Spirit, that “one thing is needful” ([[Luke 10.42|Luke 10:42]]). Nothing we do is more important than the work of righteousness in our homes.
 
-Discernment is critical for our times. President Boyd K. Packer has said, “We need women with the gift of discernment who can view the trends in the world and detect those that, however popular, are shallow” (in Conference Report, Oct. 1978, 9; or *Ensign,* Nov. 1978, 8). That is exactly what we need.
+Discernment is critical for our times. President Boyd K. Packer has said, “We need women with the gift of discernment who can view the trends in the world and detect those that, however popular, are shallow” (in Conference Report, Oct. 1978, [[1978 October - The Relief Society.md|9]]; or *Ensign,* Nov. 1978, 8). That is exactly what we need.
 
 The temple is the matchless setting for receiving priesthood blessings. In this holy house, we are endowed individually and then sealed together in families for eternity. Priesthood authority ensures that the covenants we make in the temple are everlasting. The gifts of exaltation deepen the partnership of men and women as they commit to covenants and share the blessings of the temple. And when we attend the temple, we are blessed with knowledge of “things as they really are, and of things as they really will be” ([[Jacob 4.13|Jacob 4:13]]).
 
@@ -75,6 +75,4 @@ That we may all be “partakers of the glories” in our Father’s kingdom is m
 
 
 
-
-
-#Covenants #Gratitude #Holy_Ghost #Ordinances #Patriarchal_Blessings #Plan_Of_Salvation #Priesthood #Relief_Society #Temples
+#Covenants #Gratitude #HolyGhost #Ordinances #PatriarchalBlessings #PlanOfSalvation #Priesthood #ReliefSociety #Temples

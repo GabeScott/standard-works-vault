@@ -24,9 +24,9 @@ And then a messenger came telling Jairus his daughter was already dead. Even gri
 
 “And when he came into the house, he suffered no man to go in, save Peter, and James, and John, and the father and the mother of the maiden.
 
-“And all wept, and bewailed her: but he said, Weep not; she is not dead, but sleepeth. …
+“And all wept, and bewailed her: but he said, Weep not; she is not dead, but sleepeth. …
 
-“… And took her by the hand, and called, saying, Maid, arise.
+“… And took her by the hand, and called, saying, Maid, arise.
 
 “And her spirit came again, and she arose straightway: and he commanded to give her meat.”[^3]
 
@@ -70,7 +70,7 @@ In his first epistle to the Corinthians, the Apostle Paul emphasized the need of
 
 “Rejoiceth not in iniquity, but rejoiceth in the truth;
 
-“Beareth all things, believeth all things, hopeth all things, endureth all things. …
+“Beareth all things, believeth all things, hopeth all things, endureth all things. …
 
 “And now abideth faith, hope, charity, these three; but the greatest of these is charity.”[^6]
 
@@ -91,5 +91,6 @@ Of this I bear you my testimony in the name of Jesus Christ, amen.
 
 [^5]: [[Moroni 7.48|Moroni 7:48]].
 
+[^6]: [[1 Corinthians 13.3|1 Corinthians 13:3–7, 13]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.13|]].
 
 #Activation #Faith #Love #Patience

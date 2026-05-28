@@ -1,6 +1,6 @@
 # Evidences of the Resurrection
 
-By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
+By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -20,7 +20,7 @@ This is also the message of the Apostle Paul, conveyed in his letter to the Sain
 
 “For I delivered unto you first of all that which I also received, how that Christ died for our sins according to the scriptures;
 
-“And that he was buried, and that he rose again the third day according to the scriptures.” ([[1 Corinthians 15.1|1 Cor. 15:1–4]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]].)
+“And that he was buried, and that he rose again the third day according to the scriptures.” ([[1 Corinthians 15.1|1 Cor. 15:1–4]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]].)
 
 At this Easter season our thoughts turn to the events that comprise what is perhaps the most exciting part of the good news that we bear. I’m speaking of those events which followed the crucifixion of the Savior. The Gospel writers described the hurried burial of the Lord because of the onset of the Sabbath day; the early-morning discovery of the empty tomb by Mary and other faithful women; the announcement of the angel, “He is not here: for he is risen, as he said” ([[Matthew 28.6|Matt. 28:6]]); the message, delivered by Mary to Peter and John, that the body had been removed from the sepulcher; the realization on the part of Peter and John that the tomb truly was empty; and finally, the two brief conversations Mary had—first, with the two personages in white in the sepulcher, and second, with the one whom she thought was the caretaker of the garden, but soon realized when he spoke to her that he was in fact the Master himself.
 
@@ -40,7 +40,7 @@ After his crucifixion and subsequent resurrection, the Lord did visit them, as h
 
 “Ye are they of whom I said: Other sheep I have which are not of this fold; them also I must bring, and they shall hear my voice; and there shall be one fold, and one shepherd.
 
-“And they understood me not, for they supposed it had been the Gentiles.” ([[3 Nephi 15.21|3 Ne. 15:21–22]][[3 Nephi 15.22|]].)
+“And they understood me not, for they supposed it had been the Gentiles.” ([[3 Nephi 15.21|3 Ne. 15:21–22]][[3 Nephi 15.22|]].)
 
 Those who are familiar with the life and teachings of the Master from their knowledge of the books of the Bible will be interested to know there is also a record of his appearance to the people of the Western Hemisphere—the other sheep to whom he made reference. It is titled the Book of Mormon after the prophet who compiled and abridged the records of the peoples of the American continents. The Book of Mormon is another witness for Christ and records his teachings to the other flock in the New World. It is also a record of the historical events covering more than one thousand years of the travels and struggles of these people and the prophets who led and taught them.
 
@@ -79,6 +79,4 @@ That we may be found worthy at his coming is my prayer in his name, amen.
 
 
 
-
-
-#Atonement #Jesus_Christ #Resurrection
+#Atonement #JesusChrist #Resurrection

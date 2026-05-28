@@ -55,23 +55,23 @@ We have talked of desire, submissiveness to God, study, prayer, service, repenta
 
 [^8]: See [[Moroni 7.47|Moroni 7:47–48]][[Moroni 7.48|]].
 
-[^9]: See [[1 Nephi 11.21|1 Nephi 11:21–23]][[1 Nephi 11.22|]][[1 Nephi 11.23|]].
+[^9]: See [[1 Nephi 11.21|1 Nephi 11:21–23]][[1 Nephi 11.22|]][[1 Nephi 11.23|]].
 
 [^10]: [[Alma 34.28|Alma 34:28]].
 
 [^11]: See [[Mark 10.45|Mark 10:45]]. The Lord told Peter that when he was converted, he should strengthen his brethren (see [[Luke 22.32|Luke 22:32]]).
 
-[^12]: [[3 Nephi 9.20|3 Nephi 9:20]].
+[^12]: [[3 Nephi 9.20|3 Nephi 9:20]].
 
 [^13]: Along with the scriptures, the pamphlet *For the Strength of Youth* (2001) can guide you.
 
-[^14]: Once when King David prepared to offer a sacrifice to the Lord, a loyal subject said he would give the king the place, the animals, and the firewood to make the sacrifice. But David declined, saying, “I will surely buy it of thee at a price: neither will I offer burnt offerings unto the Lord my God of that which doth cost me nothing” ([[2 Samuel 24.24|2 Samuel 24:24]]).
+[^14]: Once when King David prepared to offer a sacrifice to the Lord, a loyal subject said he would give the king the place, the animals, and the firewood to make the sacrifice. But David declined, saying, “I will surely buy it of thee at a price: neither will I offer burnt offerings unto the Lord my God of that which doth cost me nothing” ([[2 Samuel 24.24|2 Samuel 24:24]]).
 
 [^15]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
 [^16]: See [[Ephesians 6.13|Ephesians 6:13–17]][[Ephesians 6.14|]][[Ephesians 6.15|]][[Ephesians 6.16|]][[Ephesians 6.17|]].
 
-[^17]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^17]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^18]: As related by Sister Nicole Christofferson Miller.
 
@@ -81,6 +81,4 @@ We have talked of desire, submissiveness to God, study, prayer, service, repenta
 
 [^21]: [[Joel 2.13|Joel 2:13]]. “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
 
-
-
-#Conversion #Prayer #Repentance #Scripture_Study
+#Conversion #Prayer #Repentance #ScriptureStudy

@@ -1,7 +1,6 @@
 # Jew, Jewish
 
-
-*See also* [[Hebrew.md|Hebrew]]; [[Israel, Judah, People of.md|Israel, Judah, People of]]; [[Israelite.md|Israelite]]; [BD Jew](https://www.churchofjesuschrist.org/study/scriptures/bd/jew?lang=eng)
+*See also* [[Hebrew.md|Hebrew]]; [[Israel, Judah, People of.md|Israel, Judah, People of]]; [[Israelite.md|Israelite]]; [[BD Jew.md|BD Jew]]
 
 asked them concerning the *Jews* that had escaped, [[Nehemiah 1.2|Nehemiah 1:2]].
 
@@ -15,7 +14,7 @@ King of the *Jews*, [[Luke 23.38|Luke 23:38]].
 
 *Jews* sent priests and Levites from Jerusalem, [[John 1.19|John 1:19]].
 
-question between some of John's disciples and the *Jews*, [[John 3.25|John 3:25]].
+question between some of John’s disciples and the *Jews*, [[John 3.25|John 3:25]].
 
 *Jews* have no dealings with the Samaritans, [[John 4.9|John 4:9]].
 
@@ -27,17 +26,17 @@ temple, whither the *Jews* always resort, [[John 18.20|John 18:20]].
 
 dwelling at Jerusalem *Jews*, devout men, out of every nation, [[Acts 2.5|Acts 2:5]].
 
-unlawful thing for a ... *Jew* to keep company, [[Acts 10.28|Acts 10:28]].
+unlawful thing for a … *Jew* to keep company, [[Acts 10.28|Acts 10:28]].
 
-preaching ... to none but unto the *Jews*, [[Acts 11.19|Acts 11:19]].
+preaching … to none but unto the *Jews*, [[Acts 11.19|Acts 11:19]].
 
-assault ... also of the *Jews* with their rulers, [[Acts 14.5|Acts 14:5]].
+assault … also of the *Jews* with their rulers, [[Acts 14.5|Acts 14:5]].
 
 *Jews* which believed not, [[Acts 17.5|Acts 17:5]].
 
 how many thousands of *Jews* there are which believe, [[Acts 21.20|Acts 21:20]].
 
-I am ... a *Jew*, born in Tarsus, [[Acts 22.3|Acts 22:3]].
+I am … a *Jew*, born in Tarsus, [[Acts 22.3|Acts 22:3]].
 
 to the *Jew* first, and also to the Greek, [[Romans 1.16|Romans 1:16]].
 
@@ -53,9 +52,9 @@ preach Christ crucified, unto the *Jews* a stumblingblock, [[1 Corinthians 1.23|
 
 unto the *Jews* I became as a *Jew*, [[1 Corinthians 9.20|1 Corinthians 9:20]].
 
-neither *Jew* nor Greek ... ye are all one in Christ, [[Galatians 3.28|Galatians 3:28]] ([[Colossians 3.11|Colossians 3:11]]).
+neither *Jew* nor Greek … ye are all one in Christ, [[Galatians 3.28|Galatians 3:28]] ([[Colossians 3.11|Colossians 3:11]]).
 
-language of my father ... the learning of the *Jews*, [[1 Nephi 1.2|1 Nephi 1:2]].
+language of my father … the learning of the *Jews*, [[1 Nephi 1.2|1 Nephi 1:2]].
 
 *Jews* did mock him, [[1 Nephi 1.19|1 Nephi 1:19]].
 
@@ -63,7 +62,7 @@ spake unto me concerning the elders of the *Jews*, [[1 Nephi 4.22|1 Nephi 4:22]]
 
 a record of the *Jews*, [[1 Nephi 5.12|1 Nephi 5:12]].
 
-God raise up among the *Jews* —even a Messiah, [[1 Nephi 10.4|1 Nephi 10:4]].
+God raise up among the *Jews*—even a Messiah, [[1 Nephi 10.4|1 Nephi 10:4]].
 
 things go forth from the *Jews* in purity, [[1 Nephi 13.25|1 Nephi 13:25]].
 
@@ -73,7 +72,7 @@ he shall be rejected of the *Jews*, [[1 Nephi 15.17|1 Nephi 15:17]].
 
 restoration of the *Jews* in the latter days, [[1 Nephi 15.19|1 Nephi 15:19]].
 
-Christ ... should come among the *Jews*, [[2 Nephi 10.3|2 Nephi 10:3]].
+Christ … should come among the *Jews*, [[2 Nephi 10.3|2 Nephi 10:3]].
 
 fighteth against Zion, both *Jew* and Gentile, [[2 Nephi 10.16|2 Nephi 10:16]] ([[2 Nephi 26.33|2 Nephi 26:33]]).
 
@@ -89,25 +88,25 @@ convincing of the *Jews*, that Jesus, [[2 Nephi 26.12|2 Nephi 26:12]].
 
 as many of the *Jews* as will not repent, [[2 Nephi 30.2|2 Nephi 30:2]].
 
-*Jews* which are scattered ... believe in Christ, [[2 Nephi 30.7|2 Nephi 30:7]].
+*Jews* which are scattered … believe in Christ, [[2 Nephi 30.7|2 Nephi 30:7]].
 
-*Jew* ... them from whence I came, [[2 Nephi 33.8|2 Nephi 33:8]].
+*Jew* … them from whence I came, [[2 Nephi 33.8|2 Nephi 33:8]].
 
-brethren, and also *Jew* ... hearken unto these words, [[2 Nephi 33.10|2 Nephi 33:10]].
+brethren, and also *Jew* … hearken unto these words, [[2 Nephi 33.10|2 Nephi 33:10]].
 
 by the stumbling of the *Jews* they will reject, [[Jacob 4.15|Jacob 4:15]].
 
-synagogues ... built after the manner of the *Jews*, [[Alma 16.13|Alma 16:13]].
+synagogues … built after the manner of the *Jews*, [[Alma 16.13|Alma 16:13]].
 
 nor make game of the *Jews*, [[3 Nephi 29.8|3 Nephi 29:8]].
 
-*Jews* ... shall have other witness, [[Mormon 3.21|Mormon 3:21]].
+*Jews* … shall have other witness, [[Mormon 3.21|Mormon 3:21]].
 
 shall go unto the unbelieving of the *Jews*, [[Mormon 5.14|Mormon 5:14]].
 
 he was slain by the *Jews*, [[Mormon 7.5|Mormon 7:5]].
 
-record ... unto the Gentiles from the *Jews*, [[Mormon 7.8|Mormon 7:8]].
+record … unto the Gentiles from the *Jews*, [[Mormon 7.8|Mormon 7:8]].
 
 declare my gospel, both unto Gentile and unto *Jew*, [[D&C 18.26|D&C 18:26]].
 
@@ -115,7 +114,7 @@ then shall the *Jews* look upon me, [[D&C 45.51|D&C 45:51]].
 
 law of circumcision was had among all the *Jews*, [[D&C 74.2|D&C 74:2]].
 
-two prophets ... raised up to the *Jewish* nation, [[D&C 77.15|D&C 77:15]].
+two prophets … raised up to the *Jewish* nation, [[D&C 77.15|D&C 77:15]].
 
 to overthrow the kingdom of the *Jews*, [[D&C 84.28|D&C 84:28]].
 

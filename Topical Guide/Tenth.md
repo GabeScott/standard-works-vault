@@ -1,6 +1,5 @@
 # Tenth
 
-
 *See also* [[Tithing.md|Tithing]]
 
 I will surely give the *tenth* unto thee, [[Genesis 28.22|Genesis 28:22]].
@@ -17,6 +16,6 @@ in it shall be a *tenth*, [[Isaiah 6.13|Isaiah 6:13]] ([[2 Nephi 16.13|2 Nephi 1
 
 To whom also Abraham gave a *tenth* part, [[Hebrews 7.2|Hebrews 7:2]].
 
-Abraham paid tithes of one- *tenth* part, [[Alma 13.15|Alma 13:15]].
+Abraham paid tithes of one-*tenth* part, [[Alma 13.15|Alma 13:15]].
 
-those who have thus been tithed shall pay one- *tenth*, [[D&C 119.4|D&C 119:4]].
+those who have thus been tithed shall pay one-*tenth*, [[D&C 119.4|D&C 119:4]].

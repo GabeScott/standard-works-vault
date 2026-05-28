@@ -1,6 +1,6 @@
 # Follow Jesus Christ with Footsteps of Faith
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -20,7 +20,7 @@ I have always loved the chorus:
 
 Brothers and sisters, I testify that as we follow Jesus Christ with footsteps of faith, there is hope. There is hope in the Lord Jesus Christ. There is hope for all in this life. There is hope to overcome our mistakes, our sorrows, our struggles, and our trials and our troubles. There is hope in repentance and being forgiven and in forgiving others. I testify that there is hope and peace in Christ. He can carry us today through difficult times. He did it for the early pioneers, and He will do it now for each one of us.
 
-This year marks the 175th anniversary of the arrival of the early pioneers to the Salt Lake Valley, which has caused me to reflect on my ancestors, some of whom walked from Nauvoo to the Salt Lake Valley. I have great-grandparents who walked the plains in their youth. Henry Ballard was 20 years old;[^3] Margaret McNeil was 13;[^4] and Joseph F. Smith, who later became the sixth President of the Church, was just 9 when he arrived in the Salt Lake Valley.[^5]
+This year marks the 175th anniversary of the arrival of the early pioneers to the Salt Lake Valley, which has caused me to reflect on my ancestors, some of whom walked from Nauvoo to the Salt Lake Valley. I have great-grandparents who walked the plains in their youth. Henry Ballard was 20 years old;[^3] Margaret McNeil was 13;[^4] and Joseph F. Smith, who later became the sixth President of the Church, was just 9 when he arrived in the Salt Lake Valley.[^5]
 
 They faced deprivations of every kind along the trail, such as cold winters, illness, and lack of adequate food and clothing. For instance, when Henry Ballard entered the Salt Lake Valley, he rejoiced in seeing the “Promised Land” but lived in fear that someone might see him because the clothing he was wearing was so worn out that it did not completely cover his body. He hid himself behind bushes all day until after dark. He then went to a house and begged for clothing so that he could continue his journey and locate his parents. He was thankful to God that he had reached his future home in safety.[^6]
 
@@ -38,19 +38,19 @@ During the last general conference, I spoke about how my full-time missionary se
 
 Our missionaries today are modern-day pioneers because they share this glorious message with people around the world, thus opening the way for our Heavenly Father’s children to know Him and His Son, Jesus Christ. Accepting the gospel of Jesus Christ opens the way for everyone to prepare for and receive ordinances and the blessings of the Church and the temple.
 
-Last general conference, President Russell M. Nelson reaffirmed “that the Lord has asked every worthy, able young man to prepare for and serve a mission” and that “a mission is also a powerful, but optional, opportunity” for “young and able sisters.”[^10]
+Last general conference, President Russell M. Nelson reaffirmed “that the Lord has asked every worthy, able young man to prepare for and serve a mission” and that “a mission is also a powerful, but optional, opportunity” for “young and able sisters.”[^10]
 
 Dear young men and young women, your footsteps of faith will help you to follow the Lord’s invitation to serve missions—to be modern-day pioneers—by opening the way for God’s children to find and stay on the covenant path leading back to His glorious presence.
 
 President Nelson has been a pioneer in the Church. As an Apostle he has traveled to and opened many lands for the preaching of the gospel. Shortly after becoming the prophet and President of the Church, he pled with us to “increase \[our\] spiritual capacity to receive revelation.”[^11] He continues to teach us to strengthen our testimonies. In a devotional for young adults, he said:
 
-“I plead with you to take charge of your testimony. Work for it. Own it. Care for it. Nurture it so that it will grow. …
+“I plead with you to take charge of your testimony. Work for it. Own it. Care for it. Nurture it so that it will grow. …
 
 “\[Then\] watch for miracles to happen in your life.”[^12]
 
 He is teaching us how to become more spiritually self-reliant. He has said that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^13]
 
-I testify that President Russell M. Nelson is the prophet of God on the earth today.
+I testify that President Russell M. Nelson is the prophet of God on the earth today.
 
 Our Savior, Jesus Christ, is the ultimate pioneer in preparing the way. Indeed, He *is* “the way”[^14] for the plan of salvation to be accomplished so that we can repent and, through faith in Him, return to our Heavenly Father.
 
@@ -69,15 +69,15 @@ May we ever follow in the footsteps of Jesus Christ and, with faith in our every
 
 
 
-[^1]: See K. Newell Dayley, “[Faith in Every Footstep](https://churchofjesuschrist.org/study/ensign/1997/01/dayley-faith-in-every-footstep?lang=eng),” *Ensign*, Jan. 1997, 15; *Liahona*, Feb. 1997, 22–23.
+[^1]: See K. Newell Dayley, “[Faith in Every Footstep](https://www.churchofjesuschrist.org/study/ensign/1997/01/dayley-faith-in-every-footstep?lang=eng),” *Ensign*, Jan. 1997, 15; *Liahona*, Feb. 1997, 22–23.
 
-[^2]: Dayley, “[Faith in Every Footstep](https://churchofjesuschrist.org/study/new-era/1997/04/faith-in-every-footstep?lang=eng),” *Ensign*, Jan. 1997, 15; *Liahona*, Feb. 1997, 23.
+[^2]: Dayley, “[Faith in Every Footstep](https://www.churchofjesuschrist.org/study/new-era/1997/04/faith-in-every-footstep?lang=eng),” *Ensign*, Jan. 1997, 15; *Liahona*, Feb. 1997, 23.
 
-[^3]: See Henry Ballard diary, L. Tom Perry Special Collections, Harold B. Lee Library, Brigham Young University, Provo, Utah, archives.lib.byu.edu/repositories/ltpsc/resources/upb_msssc998.
+[^3]: See Henry Ballard diary, L. Tom Perry Special Collections, Harold B. Lee Library, Brigham Young University, Provo, Utah, archives.lib.byu.edu/repositories/ltpsc/resources/upb_msssc998.
 
-[^4]: See “A ‘Small Glimpse’ into Pioneer Experiences,” *Church News*, June 15, 1996, thechurchnews.com.
+[^4]: See “A ‘Small Glimpse’ into Pioneer Experiences,” *Church News*, June 15, 1996, thechurchnews.com.
 
-[^5]: See *Teachings of Presidents of the Church: Joseph F. Smith* (1998), xiv.
+[^5]: See *[Teachings of Presidents of the Church: Joseph F. Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-f-smith/the-ministry-of-joseph-f-smith?lang=eng&id=p9#p9)* (1998), xiv.
 
 [^6]: See Douglas O. Crookston, ed., *Henry Ballard: The Story of a Courageous Pioneer, 1832–1908* (1994), 14–15.
 
@@ -87,13 +87,13 @@ May we ever follow in the footsteps of Jesus Christ and, with faith in our every
 
 [^9]: See [[Joseph Smith History 1.5|Joseph Smith—History 1:5–20]][[Joseph Smith History 1.6|]][[Joseph Smith History 1.7|]][[Joseph Smith History 1.8|]][[Joseph Smith History 1.9|]][[Joseph Smith History 1.10|]][[Joseph Smith History 1.11|]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]].
 
-[^10]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6; original emphasis removed.
+[^10]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6; original emphasis removed.
 
-[^11]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^11]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
-[^12]: Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p65,67#p65)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
+[^12]: Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p65,67#p65)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
-[^13]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96.
+[^13]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96.
 
 [^14]: [[John 14.6|John 14:6]].
 
@@ -101,5 +101,6 @@ May we ever follow in the footsteps of Jesus Christ and, with faith in our every
 
 [^16]: See [[John 14.16|John 14:16–18]][[John 14.17|]][[John 14.18|]].
 
+[^17]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
-#Adversity #Faith #Jesus_Christ #Joseph_Smith #Missionary_Work #Pioneers
+#Adversity #Faith #JosephSmith #JesusChrist #MissionaryWork #Pioneers

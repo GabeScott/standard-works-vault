@@ -105,8 +105,6 @@ May the promise of Nephi be fulfilled in your behalf: “And they were armed wit
 
 [^13]: Audiovisual transcript of press conference, 13 Mar. 1995, courtesy of the Public Affairs Department, The Church of Jesus Christ of Latter-day Saints.
 
-[^14]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^14]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
-
-
-#Charity #Family #Home #Obedience #Preparation #Relief_Society #Women
+#Charity #Family #Home #Obedience #Preparation #ReliefSociety #Women

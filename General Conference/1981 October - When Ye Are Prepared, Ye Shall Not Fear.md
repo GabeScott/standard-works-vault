@@ -1,6 +1,6 @@
 # When Ye Are Prepared, Ye Shall Not Fear
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -24,7 +24,7 @@ If man is limited in his growth and perfection by his ability to use his priesth
 
 As I have traveled to the stakes of the Church, I have found priesthood organizations functioning quite effectively at the stake and ward levels. Generally, the greatest weaknesses exist in the organization and operations in both the Aaronic and Melchizedek priesthood quorums. Let me direct a few words of instruction to you who have the responsibility for this important link in the priesthood chain.
 
-President Stephen L Richards at one time gave us a threefold definition of a priesthood quorum. He said a priesthood quorum is three things: “first, a class; second, a fraternity; and third, a service unit.” (In Conference Report, Oct. 1938, p. 118.) Let us look at his definition as it relates to our priesthood quorums.
+President Stephen L Richards at one time gave us a threefold definition of a priesthood quorum. He said a priesthood quorum is three things: “first, a class; second, a fraternity; and third, a service unit.” (In Conference Report, Oct. 1938, p. 118.) Let us look at his definition as it relates to our priesthood quorums.
 
 *First, a class.* In the Doctrine and Covenants we read,
 
@@ -58,9 +58,9 @@ Elder Rudger Clawson of the Council of the Twelve once said: “The Priesthood o
 
 *Third, the quorum is a service unit.* “When thou art converted, strengthen thy brethren” was the counsel of the Savior to Peter. ([[Luke 22.32|Luke 22:32]].) The obligation of membership in our Father in Heaven’s kingdom is to be of service to His children.
 
-President Joseph F. Smith once told of an instance he remembered from his boyhood. He said that when he was very young he was attending a party in the Mansion House given by his uncle, the Prophet Joseph Smith. A large company was present, engaging in the festivities of the occasion. Suddenly the door opened and a man entered, dressed in ragged, shabby clothes. He was dirty, and his hair and beard were long and unkempt. He looked like a tramp. The Prophet at the time was on the other side of the room, opposite the door through which the man had come. President Smith said that Joseph, athletic man that he was, fairly sprang across the room, grabbed the shabby man in his arms, and hugged him as if he were a near and dear relative. This man was a brother in the priesthood. He had undergone a harrowing experience and made a tremendous sacrifice for his brother, the Prophet of God. (See Stephen L Richards, “The Priesthood Quorum: A Three-fold Definition,” *Improvement Era,* May 1939, p. 294.) The history of the Church is filled with accounts of quorum brother serving quorum brother with great love and understanding.
+President Joseph F. Smith once told of an instance he remembered from his boyhood. He said that when he was very young he was attending a party in the Mansion House given by his uncle, the Prophet Joseph Smith. A large company was present, engaging in the festivities of the occasion. Suddenly the door opened and a man entered, dressed in ragged, shabby clothes. He was dirty, and his hair and beard were long and unkempt. He looked like a tramp. The Prophet at the time was on the other side of the room, opposite the door through which the man had come. President Smith said that Joseph, athletic man that he was, fairly sprang across the room, grabbed the shabby man in his arms, and hugged him as if he were a near and dear relative. This man was a brother in the priesthood. He had undergone a harrowing experience and made a tremendous sacrifice for his brother, the Prophet of God. (See Stephen L Richards, “The Priesthood Quorum: A Three-fold Definition,” *Improvement Era,* May 1939, p. 294.) The history of the Church is filled with accounts of quorum brother serving quorum brother with great love and understanding.
 
-President Stephen L Richards has said:
+President Stephen L Richards has said:
 
 “The Priesthood is usually simply defined as ‘the power of God delegated to man.’ This definition, I think, is accurate. But for practical purposes I like to define the Priesthood in terms of service and I frequently call it ‘the perfect plan of service.’ I do so because it seems to me that it is only through the utilization of the divine power conferred on men that they may ever hope to realize the full import and vitality of this endowment. It is an instrument of service. Its uses and purposes are all defined in terms of service and the man who fails to use it is apt to lose it, for we are plainly told by revelation that he who neglects it ‘shall not be counted worthy to stand.’ \[[[D&C 107.100|D&C 107:100]].\]”
 
@@ -77,8 +77,6 @@ I am of the persuasion that the greatest preparation we can make to relieve ours
 Let us return to our wards and stakes and evaluate again how well we are prepared in our priesthood quorum organizations. Are they functioning as a class to train the brothers in their priesthood responsibilities? Are they functioning as a brotherhood to bless the lives of each member? Are they functioning to render service to their families, to the Church, and to the communities in which they are organized?
 
 May we be quickened in our hearts this night with a firm resolve that high on the priority list during the months ahead will be the strengthening of our priesthood quorums, I humbly pray in the name of Jesus Christ, amen.
-
-
 
 
 

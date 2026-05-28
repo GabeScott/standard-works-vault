@@ -20,7 +20,7 @@ In a talk at Brigham Young University in 1994, Rabbi Harold S. Kushner said:
 
 “I’m a traditional Jew, and I observe the biblical dietary laws. … I suspect most of you assume I go around all day saying to myself, ‘Boy, would I love to eat pork chops, but that mean old God won’t let me.’ Not so. The fact … is, I go around all day saying, ‘Isn’t it incredible? There are five billion people on this planet and God cares what I have for lunch \[and\] what kind of language I use.’
 
-“… I am not diminished by being told there are certain things I may not do because they are wrong. Rather, it enhances me.”[^1]
+“… I am not diminished by being told there are certain things I may not do because they are wrong. Rather, it enhances me.”[^1]
 
 Elder Henry B. Eyring said it even better in the first worldwide leadership training broadcast: “The Lord has given us His standards of worthiness. He has not done it to keep us away from Him but to draw us to Him.”[^2]
 
@@ -54,7 +54,7 @@ Consider the woman who keeps the Sabbath day holy, unless she needs something fr
 
 Brothers and sisters, let’s sell that summer cottage in Babylon. Let us be not “almost” but “altogether” Latter-day Saints.
 
-In [[Luke 14.note27b|Joseph Smith Translation, Luke 14:28]], the Lord says, “Wherefore, settle this in your hearts, that ye will do the things which I shall teach, and command you.” I love that phrase “settle this.” Brothers and sisters, I pray that we are “settled.” There are precious blessings that come only from the complete yielding of one’s heart to God.
+In [Joseph Smith Translation, Luke 14:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14?lang=eng&id=note27b#note27b), the Lord says, “Wherefore, settle this in your hearts, that ye will do the things which I shall teach, and command you.” I love that phrase “settle this.” Brothers and sisters, I pray that we are “settled.” There are precious blessings that come only from the complete yielding of one’s heart to God.
 
 President Heber J. Grant said: “There is but one path of safety to the Latter-day Saints, and that is the path of duty. It is not a testimony, it is not marvelous manifestations, it is not knowing that the Gospel of Jesus Christ is true, … it is not actually knowing that the Savior is the Redeemer, and that Joseph Smith was His prophet, that will save you and me, but it is the keeping of the commandments of God, the living the life of a Latter-day Saint.”[^10]
 
@@ -95,6 +95,4 @@ I know that President Gordon B. Hinckley is the Lord’s prophet today. I am gra
 
 [^11]: See [[Alma 41.10|Alma 41:10]].
 
-
-
-#Commandments #Commitment #Morality #Standards
+#Commitment #Commandments #Morality #Standards

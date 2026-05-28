@@ -1,7 +1,6 @@
 # Mammon
 
-
-*See also* [[Money.md|Money]]; [[Riches.md|Riches]]; [[Wealth.md|Wealth]]; [BD Mammon](https://www.churchofjesuschrist.org/study/scriptures/bd/mammon?lang=eng)
+*See also* [[Money.md|Money]]; [[Riches.md|Riches]]; [[Wealth.md|Wealth]]; [[BD Mammon.md|BD Mammon]]
 
 Ye cannot serve God and *mammon*, [[Matthew 6.24|Matthew 6:24]] ([[3 Nephi 13.24|3 Nephi 13:24]]).
 

@@ -1,6 +1,6 @@
 # “For a Bishop Must Be Blameless”
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -50,9 +50,9 @@ Children, next only to your mother, your father needs your sustaining support as
 
 Home teachers, then, are called to represent the quorum president and, through the quorum president, the bishop. Thus, they are priesthood representatives called to assist the quorum leaders in watching over and strengthening the quorum members, including fathers and their families.
 
-Priesthood home teachers are to “visit the house of each member, and exhort them to pray vocally and in secret and attend to all family duties. …
+Priesthood home teachers are to “visit the house of each member, and exhort them to pray vocally and in secret and attend to all family duties. …
 
-“To watch over the church always … ;
+“To watch over the church always … ;
 
 “And see that there is no iniquity in the church, neither hardness with each other, neither lying, backbiting, nor evil speaking;
 
@@ -81,8 +81,6 @@ I know of the great power there is in the office of a bishop. I know the peace, 
 I promise you, my brothers and sisters, if we will sustain and support our bishops, learn to be concerned for their welfare, and pray for their success in all they have to do, it will bless our lives as we are placed under their leadership and have opportunity to follow their inspired direction, as they lead the wards of the Church.
 
 May God bless us that this may be the beginning of a new and improved relationship with our bishops, is my humble prayer, in the name of Jesus Christ, amen.
-
-
 
 
 

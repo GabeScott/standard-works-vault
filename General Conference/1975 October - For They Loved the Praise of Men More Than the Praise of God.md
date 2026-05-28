@@ -1,6 +1,6 @@
 # For They Loved the Praise of Men More Than the Praise of God
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -42,7 +42,7 @@ The next: “This know also, that in the last days perilous times shall come.
 
 “Traitors, heady, highminded, lovers of pleasures more than lovers of God;
 
-“Having a form of godliness, but denying the power thereof.” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
+“Having a form of godliness, but denying the power thereof.” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
 
 And finally:
 
@@ -88,15 +88,15 @@ How much more satisfying it is when we receive the praise of God, knowing that i
 
 It is shocking and appalling indeed to those who believe in the teachings of Christ to see how people in high places, in order to enjoy the praise of those who are so vocal in encouraging and promoting immorality, do not take a stand against these evils and promote the teachings of Christ which are so clearly stated in these words in the Ten Commandments: “Thou shalt not commit adultery.” ([[Exodus 20.14|Ex. 20:14]].)
 
-And then in 1 Corinthians we read:
+And then in 1 Corinthians we read:
 
-“Know ye not that the unrighteous shall not inherit the kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind.” ([[1 Corinthians 6.9|1 Cor. 6:9]].)
+“Know ye not that the unrighteous shall not inherit the kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind.” ([[1 Corinthians 6.9|1 Cor. 6:9]].)
 
 We also find legislation having been passed and being passed legalizing these very things contrary to the will of the Lord. It is permissive legislation of the worst kind. Brethren, the Lord expects us as his priesthood holders to take a stand for right and do all in our power to oppose and discourage such action and to encourage our people to live according to the teachings of the Lord Jesus Christ.
 
 I quote from Elder Neal Maxwell:
 
-“The leader who is willing to say things that are hard to bear, but which are true and which need to be said, is the leader who truly loves his people and who is kind to them. Nothing is more cruel than that leader who, in order to have the praise and plaudits of his followers, entices them from safety into the swamp out of which some may never return. The straight and narrow way is just that—straight and narrow. It is an arduous up-hill journey. The way to hell is broad and wide and slopes ever so gently, and those who walk that path scarcely notice the descent; sometimes they don’t notice the descent because praise of men distracts them and they do not see the warning signs! The choice is still between the golden calf and the Ten Commandments.” (Unpublished letter dated Aug. 12, 1975, “Some Thoughts,” from Neal A. Maxwell to President Tanner.)
+“The leader who is willing to say things that are hard to bear, but which are true and which need to be said, is the leader who truly loves his people and who is kind to them. Nothing is more cruel than that leader who, in order to have the praise and plaudits of his followers, entices them from safety into the swamp out of which some may never return. The straight and narrow way is just that—straight and narrow. It is an arduous up-hill journey. The way to hell is broad and wide and slopes ever so gently, and those who walk that path scarcely notice the descent; sometimes they don’t notice the descent because praise of men distracts them and they do not see the warning signs! The choice is still between the golden calf and the Ten Commandments.” (Unpublished letter dated Aug. 12, 1975, “Some Thoughts,” from Neal A. Maxwell to President Tanner.)
 
 It seems so true that the charge given by Paul to Timothy applies to us equally today:
 
@@ -106,7 +106,7 @@ It seems so true that the charge given by Paul to Timothy applies to us equally 
 
 “For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-“And they shall turn away their ears from the truth, and shall be turned unto fables.” ([[2 Timothy 4.1|2 Tim. 4:1–4]][[2 Timothy 4.2|]][[2 Timothy 4.3|]][[2 Timothy 4.4|]].)
+“And they shall turn away their ears from the truth, and shall be turned unto fables.” ([[2 Timothy 4.1|2 Tim. 4:1–4]][[2 Timothy 4.2|]][[2 Timothy 4.3|]][[2 Timothy 4.4|]].)
 
 How fortunate we are to be members of The Church of Jesus Christ of Latter-day Saints where we have the gospel in its fulness as recorded in the four standard works of the Church—the Bible, the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price—and to have a prophet of God through whom the Lord speaks to guide and direct us in these latter days.
 
@@ -115,8 +115,6 @@ As we read in Acts, “Neither is there salvation in any other: for there is non
 May we have the courage, strength, understanding, desire, and determination to do as Joshua said: “Choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord.” ([[Joshua 24.15|Josh. 24:15]].)
 
 This I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

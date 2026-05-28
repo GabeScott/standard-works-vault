@@ -18,19 +18,19 @@ As we make our way through this life’s journey, we must continually be on guar
 
 One of the sneaky ploys of the adversary is to have us believe that unquestioning obedience to the principles and commandments of God is blind obedience. His goal is to have us believe that we should be following our own worldly ways and selfish ambitions. This he does by persuading us that “blindly” following the prophets and obeying the commandments is not thinking for ourselves. He teaches that it is not intelligent to do something just because we are told to do so by a living prophet or by prophets who speak to us from the scriptures.
 
-Our unquestioning obedience to the Lord’s commandments is not blind obedience. President Boyd K. Packer in the April conference of 1983 taught us about this: “Latter-day Saints are not obedient because they are compelled to be obedient. They are obedient because they know certain spiritual truths and have decided, as an expression of their own individual agency, to obey the commandments of God. … We are not obedient because we are blind, we are obedient because we can see” (in Conference Report, Apr. 1983, 89–90; or *Ensign,* May 1983, 66).
+Our unquestioning obedience to the Lord’s commandments is not blind obedience. President Boyd K. Packer in the April conference of 1983 taught us about this: “Latter-day Saints are not obedient because they are compelled to be obedient. They are obedient because they know certain spiritual truths and have decided, as an expression of their own individual agency, to obey the commandments of God. … We are not obedient because we are blind, we are obedient because we can see” (in Conference Report, Apr. 1983, [[1983 April - Agency and Control.md|89–90]]; or *Ensign,* May 1983, 66).
 
 We might call this “faith obedience.” With faith, Abraham was obedient in preparing Isaac for sacrifice; with faith, Nephi was obedient in obtaining the brass plates; with faith, a little child obediently jumps from a height into the strong arms of his father. “Faith obedience” is a matter of trust. The question is simple: Do we trust our Heavenly Father? Do we trust our prophets?
 
 Another of the adversary’s deceptions is to have us believe that the wisdom and the learning of the world is the only source of knowledge we should follow. The prophet Nephi’s brother Jacob understood the adversary’s plan and warned us about it:
 
-“O that cunning plan of the evil one! O the vainness, and the frailties, and the foolishness of men! When they are learned they think they are wise, and they hearken not unto the counsel of God, for they set it aside, supposing they know of themselves, wherefore, their wisdom is foolishness and it profiteth them not. And they shall perish” ([[2 Nephi 9.28|2 Ne. 9:28]]).
+“O that cunning plan of the evil one! O the vainness, and the frailties, and the foolishness of men! When they are learned they think they are wise, and they hearken not unto the counsel of God, for they set it aside, supposing they know of themselves, wherefore, their wisdom is foolishness and it profiteth them not. And they shall perish” ([[2 Nephi 9.28|2 Ne. 9:28]]).
 
-Jacob did not say that we should not be learned. He went on to tell us that it is good to be learned, provided we hearken to the counsels of God (see [[2 Nephi 9.29|2 Ne. 9:29]]).
+Jacob did not say that we should not be learned. He went on to tell us that it is good to be learned, provided we hearken to the counsels of God (see [[2 Nephi 9.29|2 Ne. 9:29]]).
 
 Some come to believe that you may pick and choose which of God’s commandments to follow. They conveniently label many commandments as little things which can be put off and which don’t appear to be life-threatening or too important. Things like saying our prayers, honoring the Sabbath, reading the scriptures, paying our tithing, attending our meetings, and the list goes on.
 
-Our Heavenly Father communicates in a very clear way to His children. In the teachings of the gospel, there is no uncertain sound of which the Apostle Paul speaks (see [[1 Corinthians 14.8|1 Cor. 14:8]]). There is no question regarding the meaning of what is being said or of feelings prompted by the Spirit. We have not been left alone. We have the scriptures, the prophets, loving parents, and leaders.
+Our Heavenly Father communicates in a very clear way to His children. In the teachings of the gospel, there is no uncertain sound of which the Apostle Paul speaks (see [[1 Corinthians 14.8|1 Cor. 14:8]]). There is no question regarding the meaning of what is being said or of feelings prompted by the Spirit. We have not been left alone. We have the scriptures, the prophets, loving parents, and leaders.
 
 Why do we sometimes stray? Why do we let ourselves be influenced by the deception of the adversary? The solution to his deception is simple in its answer, but sometimes it is difficult in its application. President Harold B. Lee in the October conference of 1970 spoke of the Lord, the adversary, and the solution to the adversary’s power of deception:
 
@@ -45,8 +45,6 @@ Sometimes it is necessary to be obedient even when we do not understand the reas
 I am grateful that we had on our life jackets that summer day on the ocean. I am thankful we were able to avoid the tragedy that came to others from that sneaker wave. It is my prayer that we will continue to wear our life jackets of obedience in order to avoid the tragedy that will surely come if we are deceived and follow the enticings of the adversary.
 
 I witness to you that our Father in Heaven lives, that He loves us, and that by being unquestioningly obedient to His commandments, we can once again dwell with Him and His Son, Jesus Christ, our Savior and Redeemer, in the name of Jesus Christ, amen.
-
-
 
 
 

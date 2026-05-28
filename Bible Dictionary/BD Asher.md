@@ -1,0 +1,7 @@
+# Asher
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/asher?lang=eng)
+
+*Happy.* Son of Jacob, by Zilpah, Leah’s handmaid, [[Genesis 30.13|Gen. 30:13]]; blessings of, [[Genesis 49.20|Gen. 49:20]]; [[Deuteronomy 33.24|Deut. 33:24–29]][[Deuteronomy 33.25|]][[Deuteronomy 33.26|]][[Deuteronomy 33.27|]][[Deuteronomy 33.28|]][[Deuteronomy 33.29|]]; boundaries and inheritance of the tribe, [[Joshua 17.7|Josh. 17:7, 10–11]][[Joshua 17.10|]][[Joshua 17.11|]]; [[Joshua 19.24|19:24–31, 34]][[Joshua 19.25|]][[Joshua 19.26|]][[Joshua 19.27|]][[Joshua 19.28|]][[Joshua 19.29|]][[Joshua 19.30|]][[Joshua 19.31|]][[Joshua 19.34|]]; Levite cities in, [[Joshua 21.6|21:6, 30]][[Joshua 21.30|]]; [[Judges 1.31|Judg. 1:31–32]][[Judges 1.32|]] (Asherites); [[Judges 5.17|5:17]]; [[Judges 6.35|6:35]]; [[Judges 7.23|7:23]]; [[1 Kings 4.16|1 Kgs. 4:16]]; [[1 Chronicles 6.62|1 Chr. 6:62, 74]][[1 Chronicles 6.74|]]; the descendants of, [[1 Chronicles 7.30|1 Chr. 7:30–40]][[1 Chronicles 7.31|]][[1 Chronicles 7.32|]][[1 Chronicles 7.33|]][[1 Chronicles 7.34|]][[1 Chronicles 7.35|]][[1 Chronicles 7.36|]][[1 Chronicles 7.37|]][[1 Chronicles 7.38|]][[1 Chronicles 7.39|]][[1 Chronicles 7.40|]]; [[1 Chronicles 12.36|12:36]]; [[2 Chronicles 30.11|2 Chr. 30:11]]; [[Ezekiel 48.2|Ezek. 48:2–3, 34]][[Ezekiel 48.3|]][[Ezekiel 48.34|]]. In New Testament, Anna of tribe of Aser (Asher), [[Luke 2.36|Luke 2:36]].
+
+

@@ -103,9 +103,9 @@ May each of us qualify to receive them, I pray, in the name of Jesus Christ, ame
 
 [^1]: [[John 14.6|John 14:6]].
 
-[^2]: [[2 Peter 3.11|2 Pet. 3:11]].
+[^2]: [[2 Peter 3.11|2 Pet. 3:11]].
 
-[^3]: [[3 Nephi 27.27|3 Ne. 27:27]].
+[^3]: [[3 Nephi 27.27|3 Ne. 27:27]].
 
 [^4]: [[John 1.45|John 1:45–47]][[John 1.46|]][[John 1.47|]].
 
@@ -119,6 +119,4 @@ May each of us qualify to receive them, I pray, in the name of Jesus Christ, ame
 
 [^9]: [[Proverbs 3.5|Prov. 3:5–6]][[Proverbs 3.6|]].
 
-
-
-#Faith #Family #Fatherhood #Home #Jesus_Christ #Obedience #Prayer #Sabbath #Service
+#Faith #Family #Fatherhood #Home #JesusChrist #Obedience #Prayer #Sabbath #Service

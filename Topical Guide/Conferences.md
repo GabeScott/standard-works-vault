@@ -1,4 +1,3 @@
 # Conferences
 
-
-*See* [[Assembly for Worship.md|Assembly for Worship]]; [[Meetings.md|Meetings]]
+*See also* [[Assembly for Worship.md|Assembly for Worship]]; [[Meetings.md|Meetings]]

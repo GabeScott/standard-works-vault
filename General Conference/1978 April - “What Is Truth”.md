@@ -1,6 +1,6 @@
 # “What Is Truth?”
 
-By Elder John H. Vandenberg - *Of the First Quorum of the Seventy*
+By Elder John H. Vandenberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -30,7 +30,7 @@ With the question “What is truth?” Pilate left Jesus standing alone, without
 
 Jesus said, “Every one that is of the truth heareth my voice.” Those who are “of the truth” are those who sincerely seek after it. All of mankind should be seekers after truth for it is the supreme essence of their lives.
 
-One author expresses such a thought with these words: “Yet truth, which only doth judge itself, teacheth that the inquiry of truth, which is the love-making or wooing of it, the knowledge of truth, which is the presence of it, and the belief of truth, which is the enjoying of it, is the sovereign good of human nature.” (Francis Bacon, “Essay of Truth,” *Harvard Classics Vol. 3: Bacon, Milton’s Prose, Thos. Browne,* New York: P. F. Collier and Son, Co., 1909, p. 8.)
+One author expresses such a thought with these words: “Yet truth, which only doth judge itself, teacheth that the inquiry of truth, which is the love-making or wooing of it, the knowledge of truth, which is the presence of it, and the belief of truth, which is the enjoying of it, is the sovereign good of human nature.” (Francis Bacon, “Essay of Truth,” *Harvard Classics Vol. 3: Bacon, Milton’s Prose, Thos. Browne,* New York: P. F. Collier and Son, Co., 1909, p. 8.)
 
 In harmony with that thought an ancient poet wrote: “‘It is a pleasure to stand upon the shore and to see ships tossed upon the sea; a pleasure to stand in the window of a castle and to see a battle and the adventures thereof below: but no pleasure is comparable to the standing upon the vantage ground of truth’ (a hill not to be commanded, and where the air is always clear and serene), ‘and to see the errors and wanderings and mists and tempests in the vale below’; so always that this prospect be with pity, and not with swelling or pride. Certainly, it is heaven upon earth, to have a man’s mind move in charity, rest in providence, and turn upon the poles of truth.” (Bacon, quoting Lucretius, in “Essay of Truth,” p. 8.)
 
@@ -88,7 +88,7 @@ Jesus was the Creator of this world and all things pertaining to it. He was Jeho
 
 The Bible, however, does not contain *all* the revelation that has ever been given.
 
-Through modern revelation the Book of Mormon was brought forth through the Prophet Joseph Smith. It stands as a new witness of Jesus Christ and discloses that His gospel was known to the ancient inhabitants of the Americas and that He visited the Americas after His ascension. These inhabitants were known to Him as “other sheep of my fold” (see [[John 10.16|John 10:16]]; [[3 Nephi 15.21|3 Ne. 15:21]]) for they carried in their veins the blood of Israel.
+Through modern revelation the Book of Mormon was brought forth through the Prophet Joseph Smith. It stands as a new witness of Jesus Christ and discloses that His gospel was known to the ancient inhabitants of the Americas and that He visited the Americas after His ascension. These inhabitants were known to Him as “other sheep of my fold” (see [[John 10.16|John 10:16]]; [[3 Nephi 15.21|3 Ne. 15:21]]) for they carried in their veins the blood of Israel.
 
 Through modern revelation we now know that Adam received the gospel. It has been revealed that “Adam and Eve, his wife, called upon the name of the Lord, and they heard the voice of the Lord … speaking unto them, and they saw him not; for they were shut out of his presence.
 
@@ -104,9 +104,9 @@ Through modern revelation we now know that Adam received the gospel. It has been
 
 We now know more concerning Enoch. The Bible gives but little information about this great prophet. Latter-day revelation tells of his work among his people. Says Enoch, “The Lord which spake with me, the same is the God of heaven, and he is my God, and your God.” ([[Moses 6.43|Moses 6:43]].) He explained to Enoch the whole plan of salvation, the gospel of Jesus Christ as it had been declared to father Adam.
 
-We now know more of Noah, that the “Lord ordained Noah after his own order, and commanded him that he should go forth and declare his Gospel unto the children of men, even as it was given unto Enoch. …
+We now know more of Noah, that the “Lord ordained Noah after his own order, and commanded him that he should go forth and declare his Gospel unto the children of men, even as it was given unto Enoch. …
 
-“Noah continued his preaching … , saying: Hearken, and give heed unto my words;
+“Noah continued his preaching … , saying: Hearken, and give heed unto my words;
 
 “Believe and repent of your sins and be baptized in the name of Jesus Christ, the Son of God, even as our fathers, and ye shall receive the Holy Ghost, that ye may have all things made manifest; and if ye do not this, the floods will come in upon you; nevertheless they hearkened not.” ([[Moses 8.19|Moses 8:19, 23–24]][[Moses 8.23|]][[Moses 8.24|]].)
 
@@ -122,15 +122,13 @@ Were we to continue to review all of the modern revelations, we would come to re
 
 The gospel reveals to us the need for Jesus to offer Himself as a sacrifice for the sins of men that all mankind may be redeemed, that man may be saved by believing in Him, by believing in all of His teachings, and by being obedient to them, and by being true hearers of the voice of Jesus. It is a lifelong task to hear, to learn, to obey all the vast truths, for the gospel reaches into the eternities.
 
-It has been said of our belief in divine revelation that “this declaration of religious belief in the Divine fountain of Truth, and His revelation thereof to man, embraces all truth in the universe: whether revealed or yet to be revealed; whether made known through the inspiration of the Almighty that ‘giveth understanding’ to the spirit of man in his discoveries and developments in the material things of life; or whether manifest in things visible or in things invisible to mortal eyes. It embraces every scientific truth, every historic truth, every truth in philosophy, or logic, or demonstrable fact. That is the scope of revealed religion. It is the system of law and order which prevails under heavenly control. It is the Gospel of the Lord Jesus Christ.” (James H. Anderson, *God’s Covenant Race,* 2nd ed., Salt Lake City: Deseret News Press, 1938, p. 132.)
+It has been said of our belief in divine revelation that “this declaration of religious belief in the Divine fountain of Truth, and His revelation thereof to man, embraces all truth in the universe: whether revealed or yet to be revealed; whether made known through the inspiration of the Almighty that ‘giveth understanding’ to the spirit of man in his discoveries and developments in the material things of life; or whether manifest in things visible or in things invisible to mortal eyes. It embraces every scientific truth, every historic truth, every truth in philosophy, or logic, or demonstrable fact. That is the scope of revealed religion. It is the system of law and order which prevails under heavenly control. It is the Gospel of the Lord Jesus Christ.” (James H. Anderson, *God’s Covenant Race,* 2nd ed., Salt Lake City: Deseret News Press, 1938, p. 132.)
 
 We invite all to consider the truths spoken from this pulpit, with the suggestion of an ancient poet who said, “Fly no opinion because it is new, but strictly search, reject it if false, embrace it if ’tis true.”
 
 May that be done in the attitude of prayer.
 
 I bear witness to the truth, that revelation and prayer are indispensable in attaining eternal life, and this I do in the name of Jesus Christ. Amen.
-
-
 
 
 

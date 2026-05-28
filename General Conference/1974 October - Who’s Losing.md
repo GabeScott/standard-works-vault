@@ -1,6 +1,6 @@
 # Who’s Losing?
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -36,7 +36,7 @@ Let me share with you a verse from a 19th-century writer, Josiah Gilbert Holland
 >Men who love honor, men who will not lie.
 >
 
-Proper attitude is a prerequisite to quality performance. We need men with the courage to put proper attitudes into action. We need more men today with patience and purposeful endurance. We need more men with the fearless conviction of a Joseph Smith, a Harold B. Lee, a Spencer W. Kimball, as he so courageously and fearlessly declared and exhibited in his keynote address. Joseph Smith—we may thrill in his attitude as I share these lines with you. His majesty and his attitude ring through.
+Proper attitude is a prerequisite to quality performance. We need men with the courage to put proper attitudes into action. We need more men today with patience and purposeful endurance. We need more men with the fearless conviction of a Joseph Smith, a Harold B. Lee, a Spencer W. Kimball, as he so courageously and fearlessly declared and exhibited in his keynote address. Joseph Smith—we may thrill in his attitude as I share these lines with you. His majesty and his attitude ring through.
 
 “So it was with me. I had actually seen a light, and in the midst of that light I saw two Personages, and they did in reality speak to me; and though I was hated and persecuted for saying that I had seen a vision, yet it was true; and while they were persecuting me, reviling me, and speaking all manner of evil against me falsely for so saying, I was led to say in my heart: Why persecute me for telling the truth? I have actually seen a vision; and who am I that I can withstand God, or why does the world think to make me deny what I have actually seen? For I had seen a vision; I knew it, and I knew that God knew it, and I could not deny it, neither dared I do it; at least I knew that by so doing I would offend God, and come under condemnation.” ([[Joseph Smith History 1.25|JS—H 1:25]].)
 
@@ -69,6 +69,4 @@ What a pleasure it is for me, brothers and sisters, to bear special witness to h
 
 
 
-
-
-#Attitude #Self-Esteem
+#Attitude #Self-esteem

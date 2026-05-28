@@ -1,6 +1,6 @@
 # Being Accepted of the Lord
 
-By Elder Erich W. Kopischke - *Of the Seventy*
+By Elder Erich W. Kopischke - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -42,7 +42,7 @@ The third step to being accepted by the Lord is a conscious decision to observe 
 
 One way we observe our covenants by sacrifice is worthily partaking of the sacrament each week. We consciously prepare ourselves for the sacred ordinance. We renew and confirm our sacred promises to the Lord. In this way we feel His acceptance and receive His assurance that our efforts are recognized and our sins are forgiven through the Atonement of Jesus Christ. During this ordinance, the Lord promises us that as we are willing to take upon us the name of His Son and always remember Him and keep His commandments, we will always have His Spirit to be with us. Having the Holy Ghost as our constant companion is the ultimate indicator of being accepted of God.
 
-Other ways to observe our covenants by sacrifice are as simple as accepting a calling in the Church and faithfully serving in that calling or following the invitation of our prophet, Thomas S. Monson, to reach out to those who are standing at the wayside and need to be spiritually rescued. We observe our covenants by sacrifice by giving silent service in our neighborhood or community or by finding the names of our ancestors and doing temple work for them. We observe our covenants by sacrifice by simply striving for righteousness, being open, and listening to the promptings of the Spirit as we live our daily lives. Sometimes observing our covenants means nothing more than standing firmly and faithfully when the storms of life are raging all around us.
+Other ways to observe our covenants by sacrifice are as simple as accepting a calling in the Church and faithfully serving in that calling or following the invitation of our prophet, Thomas S. Monson, to reach out to those who are standing at the wayside and need to be spiritually rescued. We observe our covenants by sacrifice by giving silent service in our neighborhood or community or by finding the names of our ancestors and doing temple work for them. We observe our covenants by sacrifice by simply striving for righteousness, being open, and listening to the promptings of the Spirit as we live our daily lives. Sometimes observing our covenants means nothing more than standing firmly and faithfully when the storms of life are raging all around us.
 
 After explaining the pattern of how to be accepted by Him, the Lord uses a wonderful illustration to show how we profit as individuals and families as we seek His acceptance. He said, “For I, the Lord, will cause them to bring forth as a very fruitful tree which is planted in a goodly land, by a pure stream, that yieldeth much precious fruit.”[^9]
 
@@ -86,7 +86,5 @@ In the name of Jesus Christ, amen.
 [^12]: See [[Mosiah 2.41|Mosiah 2:41]].
 
 [^13]: [[D&C 50.41|Doctrine and Covenants 50:41–42]][[D&C 50.42|]].
-
-
 
 #Covenants #Humility #Sacrifice

@@ -1,6 +1,6 @@
 # People to People
 
-By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -26,7 +26,7 @@ Some have allowed themselves to get out of tune. They may have lost the pitch an
 
 He did not limit or say “all who are perfect come unto me” or just the rich, or just the poor, or just the healthy, or those without sin, or those who pray the longest, or just the sick. His invitation is to all: “Come unto me, all ye that labour and are heavy laden, and I will give you rest,” comfort, peace; “for my yoke is easy, and my burden is light.”
 
-His plea to all is to love God, love His children, keep His commandments, and believe that Jesus is the Christ, born of God. (See [[1 John 5.1|1 Jn. 5:1–3]][[1 John 5.2|]][[1 John 5.3|]].)
+His plea to all is to love God, love His children, keep His commandments, and believe that Jesus is the Christ, born of God. (See [[1 John 5.1|1 Jn. 5:1–3]][[1 John 5.2|]][[1 John 5.3|]].)
 
 Some who accepted the teachings of the Savior and were baptized into His Church are now temporarily lost from the fold, some through their own choosing, but others, many times, by our neglect of them.
 
@@ -124,15 +124,16 @@ Those that stray need a friend—but they need one who knows the Shepherd. Seldo
 
 Nephi testified “that the Lord God worketh not in darkness.
 
-“He doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him. …
+“He doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him. …
 
-“… he saith: Come unto me all ye ends of the earth. …
+“… he saith: Come unto me all ye ends of the earth. …
 
-“Hath he commanded any that they should not partake of his salvation? … Nay; but … hath given it free for all men; and … hath commanded his people that they should persuade all men to repentance.” ([[2 Nephi 26.23|2 Ne. 26:23–25, 27]][[2 Nephi 26.24|]][[2 Nephi 26.25|]][[2 Nephi 26.27|]].)
+“Hath he commanded any that they should not partake of his salvation? … Nay; but … hath given it free for all men; and … hath commanded his people that they should persuade all men to repentance.” ([[2 Nephi 26.23|2 Ne. 26:23–25, 27]][[2 Nephi 26.24|]][[2 Nephi 26.25|]][[2 Nephi 26.27|]].)
 
 We are his people. God expects us to find, teach, and recover those whose strings may need tuning. May we be directed by the pure love of Christ to sound for them the perfect note of an “A.”
 
 God lives. Jesus is the Christ. This is His work, to which I testify, in the name of Jesus Christ, amen.
+
 
 
 

@@ -74,9 +74,9 @@ Third, in the last of the three parables, the Savior extends an invitation to wa
 
 “For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in:
 
-“Naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me. …
+“Naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me. …
 
-“… Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.34|Matt. 25:34–36, 40]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.40|]]).
+“… Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.34|Matt. 25:34–36, 40]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.40|]]).
 
 When we walk in the light of the Lord, we do not walk alone. We take the hand of our sisters and brothers. We teach our families and strengthen them. We love and serve our ward families, reaching out to individual members.
 
@@ -111,6 +111,4 @@ To our sisters all over the world, I bear testimony of the truthfulness of the g
 
 [^5]: From the minutes of the original organization of the Relief Society.
 
-
-
-#Church_Callings #Faith #Holy_Ghost #Joy #Prophets #Relief_Society #Scripture_Study #Talents
+#ChurchCallings #Faith #HolyGhost #Joy #Prophets #ReliefSociety #ScriptureStudy #Talents

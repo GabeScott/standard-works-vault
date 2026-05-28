@@ -1,6 +1,6 @@
 # For Peace at Home
 
-By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -63,6 +63,4 @@ I bear testimony that living an obedient life, firmly rooted in the gospel of Je
 
 
 
-
-
-#Family #Home #Jesus_Christ #Peace
+#Family #Home #JesusChrist #Peace

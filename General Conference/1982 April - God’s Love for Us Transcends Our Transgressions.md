@@ -1,6 +1,6 @@
 # God’s Love for Us Transcends Our Transgressions
 
-By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
+By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -50,7 +50,7 @@ Hosea’s ancient message is repeated and elaborated throughout the scriptures. 
 
 “Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil;
 
-“Learn to do well. …
+“Learn to do well. …
 
 “Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.” ([[Isaiah 1.16|Isa. 1:16–18]][[Isaiah 1.17|]][[Isaiah 1.18|]].)
 
@@ -69,8 +69,6 @@ Also from modern revelation comes one of the most comforting, hopeful pronouncem
 God is our father; he loves us; his love is infinite and unconditional. His sorrow is great when we disobey his commandments and break his laws. He cannot condone our transgressions, but he loves us and wants us to return to him.
 
 I know of no greater inducement to repentance and reconciliation with our Father in Heaven than an awareness of his love for us personally and individually. That such awareness may increase within each of us is my prayer, to which I add my personal witness to you individually that Jesus of Nazareth is the Son of God, the Savior of all mankind, and the Redeemer of each of us individually, in the sacred name of Jesus Christ, amen.
-
-
 
 
 

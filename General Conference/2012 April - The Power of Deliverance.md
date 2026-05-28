@@ -1,6 +1,6 @@
 # The Power of Deliverance
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -42,7 +42,7 @@ I agree wholeheartedly with Scott—the Book of Mormon is a great book. The word
 
 This year in our Sunday School classes, we are studying the Book of Mormon. As we prepare and participate, may we be motivated to follow Scott’s bold example to share our love of this special scripture with others not of our faith.
 
-A dominant theme of the Book of Mormon is expressed in the final verse of the first chapter of 1 Nephi. Nephi writes, “But behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance” ([[1 Nephi 1.20|1 Nephi 1:20]]).
+A dominant theme of the Book of Mormon is expressed in the final verse of the first chapter of 1 Nephi. Nephi writes, “But behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance” ([[1 Nephi 1.20|1 Nephi 1:20]]).
 
 I wish to speak about how the Book of Mormon, which is a tender mercy of the Lord preserved for these latter days, delivers us by teaching us in a pure and “most correct” way the doctrine of Christ.
 
@@ -66,7 +66,7 @@ Prophecies foretelling the life and mission of Jesus Christ promise us the deliv
 
 In contrast to the beautifully designed beliefs for us in the holy scriptures, we find the opposing forces of secularism engaged in challenging the long-standing beliefs in the holy writings—writings which have given us guidance through these many centuries in defining the eternal values and standards for our conduct through life. They declare that the teachings in the Bible are false and the teachings of the Master out of date. Their voices cry that each person must have the freedom to set his or her own standards; they attempt to alter the rights of the believers, contrary to that which is taught in the scriptures and in the words of the prophets.
 
-What a blessing it is to have the account of the mission of our Lord and Savior declared in the Book of Mormon to add a second witness to the doctrine declared in the Bible. Why is it important for the world to have both the Bible and the Book of Mormon? I believe the answer is found in the 13th chapter of 1 Nephi. Nephi records: “And the angel spake unto me, saying: These last records, which thou hast seen among the Gentiles \[the Book of Mormon\], shall establish the truth of the first \[the Bible\], which are of the twelve apostles of the Lamb, and shall make known the plain and precious things which have been taken away from them; and shall make known to all kindreds, tongues, and people, that the Lamb of God is the Son of the Eternal Father, and the Savior of the world; and that all men must come unto him, or they cannot be saved” ([[1 Nephi 13.40|verse 40]]).
+What a blessing it is to have the account of the mission of our Lord and Savior declared in the Book of Mormon to add a second witness to the doctrine declared in the Bible. Why is it important for the world to have both the Bible and the Book of Mormon? I believe the answer is found in the 13th chapter of 1 Nephi. Nephi records: “And the angel spake unto me, saying: These last records, which thou hast seen among the Gentiles \[the Book of Mormon\], shall establish the truth of the first \[the Bible\], which are of the twelve apostles of the Lamb, and shall make known the plain and precious things which have been taken away from them; and shall make known to all kindreds, tongues, and people, that the Lamb of God is the Son of the Eternal Father, and the Savior of the world; and that all men must come unto him, or they cannot be saved” ([[1 Nephi 13.40|verse 40]]).
 
 Neither the Bible nor the Book of Mormon in and of itself is sufficient. Both are necessary for us to teach and learn about the full and complete doctrine of Christ. The need for the other does not diminish either one of them. Both the Bible and the Book of Mormon are necessary for our salvation and exaltation. As President Ezra Taft Benson so powerfully taught, “When used together, the Bible and the Book of Mormon confound false doctrines” (“A New Witness for Christ,” *Ensign,* Nov. 1984, 8).
 
@@ -80,7 +80,7 @@ Abraham, the father of the faithful, experienced life differently. Certainly the
 
 While I do not know, I personally believe the door of Abraham’s tent faced the altar he built unto the Lord. How do I draw this conclusion? It is because I know the Book of Mormon story about King Benjamin’s instructions to his people when they gathered to hear his final address. King Benjamin instructed them to position the doors of their tents facing the temple (see [[Mosiah 2.1|Mosiah 2:1–6]][[Mosiah 2.2|]][[Mosiah 2.3|]][[Mosiah 2.4|]][[Mosiah 2.5|]][[Mosiah 2.6|]]).
 
-We can be delivered from the ways of evil and wickedness by turning to the teachings of the holy scriptures. The Savior is the Great Deliverer, for He delivers us from death and from sin (see [[Romans 11.26|Romans 11:26]]; [[2 Nephi 9.12|2 Nephi 9:12]]).
+We can be delivered from the ways of evil and wickedness by turning to the teachings of the holy scriptures. The Savior is the Great Deliverer, for He delivers us from death and from sin (see [[Romans 11.26|Romans 11:26]]; [[2 Nephi 9.12|2 Nephi 9:12]]).
 
 I declare that Jesus is the Christ and that we can draw close to Him by reading the Book of Mormon. The Book of Mormon is another testament of Jesus Christ. The first testaments of our Savior are the Old and New Testaments—or the Bible.
 
@@ -88,4 +88,5 @@ Again, let’s remember my friend Scott’s description of the Book of Mormon: �
 
 
 
-#Adversity #Book_Of_Mormon #Scriptures
+
+#Adversity #BookOfMormon #Scriptures

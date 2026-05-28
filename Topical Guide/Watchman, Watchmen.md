@@ -1,7 +1,6 @@
 # Watchman, Watchmen
 
-
-*See also* [[Warn, Warnings.md|Warn]]
+*See also* [[Warn.md|Warn]]
 
 *watchman* cried, and told the king, [[2 Samuel 18.25|2 Samuel 18:25]].
 
@@ -21,16 +20,14 @@ set *watchmen* over you, [[Jeremiah 6.17|Jeremiah 6:17]].
 
 made thee a *watchman* unto the house of Israel, [[Ezekiel 3.17|Ezekiel 3:17]].
 
-son of man, I have set thee a *watchman* unto ... Israel, [[Ezekiel 33.7|Ezekiel 33:7]].
+son of man, I have set thee a *watchman* unto … Israel, [[Ezekiel 33.7|Ezekiel 33:7]].
 
 *watchman* of Ephraim was with my God, [[Hosea 9.8|Hosea 9:8]].
 
 day of thy *watchmen* and thy visitation cometh, [[Micah 7.4|Micah 7:4]].
 
-priests and elders ... to preside and *watch* over the church, [[Alma 6.1|Alma 6:1]].
+priests and elders … to preside and *watch* over the church, [[Alma 6.1|Alma 6:1]].
 
 set *watchmen* round about them, [[D&C 101.45|D&C 101:45]].
 
-throw down ... enemies, and scatter their *watchmen*, [[D&C 105.16|D&C 105:16]].
-
-*See also* [[Matthew 21.33|Matthew 21:33]]; [[D&C 88.81|D&C 88:81]].
+throw down … enemies, and scatter their *watchmen*, [[D&C 105.16|D&C 105:16]].

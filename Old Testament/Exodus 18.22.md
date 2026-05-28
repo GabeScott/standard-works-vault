@@ -5,5 +5,5 @@
 [Exodus 18:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.22?lang=eng#p22)
 
 
-[^a]: [[Judgment|TG Judgment]].
-[^b]: [[Leadership|TG Leadership]].
+[^a]: [[Judgment|TG Judgment]].  
+[^b]: [[Leadership|TG Leadership]].  

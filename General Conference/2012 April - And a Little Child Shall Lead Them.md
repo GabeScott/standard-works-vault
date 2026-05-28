@@ -1,6 +1,6 @@
 # And a Little Child Shall Lead Them
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -12,15 +12,15 @@ Years ago on a cold night in a train station in Japan, I heard a tap on the wind
 
 I will never forget that starving little boy left standing in the cold, holding up an empty tin can. Nor can I forget how helpless I felt as the train slowly pulled away and left him standing on the platform.
 
-Some years later in Cusco, a city high in the Andes of Peru, Elder A. Theodore Tuttle and I held a sacrament meeting in a long, narrow room that opened onto the street. It was night, and while Elder Tuttle spoke, a little boy, perhaps six years old, appeared in the doorway. He wore only a ragged shirt that went about to his knees.
+Some years later in Cusco, a city high in the Andes of Peru, Elder A. Theodore Tuttle and I held a sacrament meeting in a long, narrow room that opened onto the street. It was night, and while Elder Tuttle spoke, a little boy, perhaps six years old, appeared in the doorway. He wore only a ragged shirt that went about to his knees.
 
 On our left was a small table with a plate of bread for the sacrament. This starving street orphan saw the bread and inched slowly along the wall toward it. He was almost to the table when a woman on the aisle saw him. With a stern toss of her head, she banished him out into the night. I groaned within myself.
 
 Later the little boy returned. He slid along the wall, glancing from the bread to me. When he was near the point where the woman would see him again, I held out my arms, and he came running to me. I held him on my lap.
 
-Then, as something symbolic, I set him on Elder Tuttle’s chair. After the closing prayer the hungry little boy darted out into the night.
+Then, as something symbolic, I set him on Elder Tuttle’s chair. After the closing prayer, the hungry little boy darted out into the night.
 
-When I returned home, I told President Spencer W. Kimball about my experience. He was deeply moved and told me, “You were holding a nation on your lap.” He said to me more than once, “That experience has far greater meaning than you have yet come to know.”
+When I returned home, I told President Spencer W. Kimball about my experience. He was deeply moved and told me, “You were holding a nation on your lap.” He said to me more than once, “That experience has far greater meaning than you have yet come to know.”
 
 As I have visited Latin American countries nearly 100 times, I have looked for that little boy in the faces of the people. Now I do know what President Kimball meant.
 
@@ -30,7 +30,7 @@ One boy had no coat. He bounced about very rapidly to stave off the chill. He di
 
 At night, when I pull the covers over me, I offer a prayer for those who have no warm bed to go to.
 
-I was stationed in Osaka, Japan, when World War II closed. The city was rubble, and the streets were littered with blocks, debris, and bomb craters. Although most of the trees had been blasted away, some few of them still stood with shattered limbs and trunks and had the courage to send forth a few twigs with leaves.
+I was stationed in Osaka, Japan, when World War II closed. The city was rubble, and the streets were littered with blocks, debris, and bomb craters. Although most of the trees had been blasted away, some few of them still stood with shattered limbs and trunks and had the courage to send forth a few twigs with leaves.
 
 A tiny girl dressed in a ragged, colored kimono was busily gathering yellow sycamore leaves into a bouquet. The little child seemed unaware of the devastation that surrounded her as she scrambled over the rubble to add new leaves to her collection. She had found the one beauty left in her world. Perhaps I should say *she* was the beautiful part of her world. Somehow, to think of her increases my faith. Embodied in the child was hope.
 
@@ -82,7 +82,7 @@ We read in the Book of Mormon of the visit of Jesus Christ to the New World. He 
 
 Mormon records, “They brought their little children and set them down upon the ground round about him, and Jesus stood in the midst; and the multitude gave way till they had all been brought unto him.”[^7]
 
-He then commanded the people to kneel. With the children around Him, the Savior knelt and offered a prayer to our Father in Heaven. After the prayer the Savior wept, “and he took their little children, one by one, and blessed them, and prayed unto the Father for them.
+He then commanded the people to kneel. With the children around Him, the Savior knelt and offered a prayer to our Father in Heaven. After the prayer, the Savior wept, “and he took their little children, one by one, and blessed them, and prayed unto the Father for them.
 
 “And when he had done this he wept again.”[^8]
 
@@ -96,11 +96,11 @@ I hope to be judged as good a man as my father. Before I hear those words “wel
 
 Many times I have puzzled over why I should be called as an Apostle and then as the President of the Quorum of the Twelve in spite of having come from a home where the father could be termed as less active. I am not the only member of the Twelve who fits that description.
 
-Finally I could see and understand that it may have been because of that circumstance that I was called. And I could understand why in all that we do in the Church, we need to provide the way, as leaders, for parents and children to have time together as families. Priesthood leaders must be careful to make the Church family-friendly.
+Finally I could see and understand that it may have been because of that circumstance that I was called. And I could understand why in all that we do in the Church, we need to provide the way, as leaders, for parents and children to have time together as families. Priesthood leaders must be careful to make the Church family friendly.
 
 There are many things about living the gospel of Jesus Christ that cannot be measured by that which is counted or charted in records of attendance. We busy ourselves with buildings and budgets and programs and procedures. In so doing, it is possible to overlook the very spirit of the gospel of Jesus Christ.
 
-Too often someone comes to me and says, “President Packer, wouldn’t it be nice if … ?”
+Too often someone comes to me and says, “President Packer, wouldn’t it be nice if … ?”
 
 I usually stop them and say no, because I suspect that what follows will be a new activity or program that is going to add a burden of time and financial means on the family.
 
@@ -123,7 +123,7 @@ Fathers and mothers, next time you cradle a newborn child in your arms, you can 
 
 [^2]: [[Psalms 127.3|Psalm 127:3, 5]][[Psalms 127.5|]].
 
-[^3]: [[1 Corinthians 15.19|1 Corinthians 15:19]].
+[^3]: [[1 Corinthians 15.19|1 Corinthians 15:19]].
 
 [^4]: [[Isaiah 11.6|Isaiah 11:6]].
 
@@ -131,12 +131,10 @@ Fathers and mothers, next time you cradle a newborn child in your arms, you can 
 
 [^6]: [[Matthew 19.14|Matthew 19:14–15]][[Matthew 19.15|]].
 
-[^7]: [[3 Nephi 17.12|3 Nephi 17:12]].
+[^7]: [[3 Nephi 17.12|3 Nephi 17:12]].
 
-[^8]: [[3 Nephi 17.21|3 Nephi 17:21–22]][[3 Nephi 17.22|]].
+[^8]: [[3 Nephi 17.21|3 Nephi 17:21–22]][[3 Nephi 17.22|]].
 
-[^9]: [[3 Nephi 17.24|3 Nephi 17:24]].
-
-
+[^9]: [[3 Nephi 17.24|3 Nephi 17:24]].
 
 #Children #Family #Parenthood

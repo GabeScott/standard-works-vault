@@ -1,6 +1,5 @@
 # Sons of Perdition
 
-
 *See also* [[Death, Spiritual, Second.md|Death, Spiritual, Second]]; [[Holy Ghost, Unpardonable Sin against.md|Holy Ghost, Unpardonable Sin against]]
 
 none of them is lost, but the *son of perdition*, [[John 17.12|John 17:12]].
@@ -21,7 +20,7 @@ his tail drew the *third part* of the stars of heaven, [[Revelation 12.4|Revelat
 
 out of the bottomless pit, and go into *perdition*, [[Revelation 17.8|Revelation 17:8]].
 
-an angel of God ... had *fallen* from heaven, [[2 Nephi 2.17|2 Nephi 2:17]].
+an angel of God … had *fallen* from heaven, [[2 Nephi 2.17|2 Nephi 2:17]].
 
 final doom is to endure a never-ending *torment*, [[Mosiah 2.39|Mosiah 2:39]].
 
@@ -39,10 +38,8 @@ except those *sons of perdition* who deny the Son, [[D&C 76.43|D&C 76:43]].
 
 shall not have *forgiveness* of sins in this world, [[D&C 84.41|D&C 84:41]] ([[D&C 132.27|D&C 132:27]]).
 
-because that *Satan* rebelled ... I caused that he should be cast down, [[Moses 4.3|Moses 4:3]].
+because that *Satan* rebelled … I caused that he should be cast down, [[Moses 4.3|Moses 4:3]].
 
 thou shalt be called *Perdition*, [[Moses 5.24|Moses 5:24]].
 
 second was angry, and kept not his *first estate*, [[Abraham 3.28|Abraham 3:28]].
-
-*See also* [[2 Thessalonians 1.9|2 Thessalonians 1:9]]; [[2 Nephi 2.29|2 Nephi 2:29]]; [[Jacob 6.10|Jacob 6:10]]; [[Jacob 7.19|Jacob 7:19]]; [[Moroni 8.28|Moroni 8:28]].

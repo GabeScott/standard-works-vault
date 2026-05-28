@@ -1,6 +1,5 @@
 # Inward
 
-
 *See also* [[Inwardly.md|Inwardly]]
 
 thou desirest truth in the *inward* parts, [[Psalms 51.6|Psalms 51:6]].

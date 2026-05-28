@@ -1,4 +1,3 @@
 # Wife
 
-
-*See* [[Marriage, Wives.md|Marriage, Wives]]
+*See also* [[Marriage, Wives.md|Marriage, Wives]]

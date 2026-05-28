@@ -1,6 +1,6 @@
 # “Give Me This Mountain”
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -57,8 +57,6 @@ I will “wholly follow the Lord my God” to the fullest extent of my energy an
 Earnestly and fervently I urge that each of you make this same pledge and effort—every priesthood leader, every woman in Israel, each young man, each young woman, every boy and girl.
 
 My brethren and sisters, I testify to you that this is the Lord’s work and that it is true. We are on the Lord’s errand. This is his church and he is its head and the chief cornerstone. I leave you this testimony, in all sincerity, with my love and blessing, in the name of Jesus Christ, amen.
-
-
 
 
 

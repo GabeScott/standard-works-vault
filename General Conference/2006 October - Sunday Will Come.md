@@ -151,16 +151,14 @@ That we may always know that no matter how dark our Friday, Sunday will come is 
 
 [^4]: [[Alma 11.45|Alma 11:45]].
 
-[^5]: [[1 Corinthians 15.14|1 Corinthians 15:14]].
+[^5]: [[1 Corinthians 15.14|1 Corinthians 15:14]].
 
 [^6]: See [[John 5.28|John 5:28–29]][[John 5.29|]].
 
-[^7]: [[1 Corinthians 15.19|1 Corinthians 15:19]].
+[^7]: [[1 Corinthians 15.19|1 Corinthians 15:19]].
 
-[^8]: [[1 Corinthians 15.54|1 Corinthians 15:54]].
+[^8]: [[1 Corinthians 15.54|1 Corinthians 15:54]].
 
-[^9]: [[1 Corinthians 15.55|1 Corinthians 15:55]].
+[^9]: [[1 Corinthians 15.55|1 Corinthians 15:55]].
 
-
-
-#Death #Hope #Jesus_Christ #Resurrection
+#Death #Hope #JesusChrist #Resurrection

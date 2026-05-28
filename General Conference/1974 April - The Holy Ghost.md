@@ -1,6 +1,6 @@
 # The Holy Ghost
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -16,23 +16,23 @@ The scriptures all teach about the Holy Ghost. They frequently refer to him as t
 
 According to these scriptures the Holy Ghost is a person.
 
-“The Father,” said the Prophet Joseph Smith, “has a body of flesh and bones as tangible as man’s; the Son also; but the Holy Ghost has not a body of flesh and bones, but is a personage of Spirit. …” ([[D&C 130.22|D&C 130:22]].)
+“The Father,” said the Prophet Joseph Smith, “has a body of flesh and bones as tangible as man’s; the Son also; but the Holy Ghost has not a body of flesh and bones, but is a personage of Spirit. …” ([[D&C 130.22|D&C 130:22]].)
 
 Jesus referred to the Holy Ghost as a male person. Speaking to his disciples, he said:
 
-“… It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send *him* unto you.” ([[John 16.7|John 16:7]]. Italics added.)
+“… It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send *him* unto you.” ([[John 16.7|John 16:7]]. Italics added.)
 
 And further,
 
-“… when *he,* the Spirit of truth, is come, *he* will guide you into all truth: for *he* shall not speak of himself; but whatsoever *he* shall hear, *that* shall *he* speak: and *he* will shew you things to come.
+“… when *he,* the Spirit of truth, is come, *he* will guide you into all truth: for *he* shall not speak of himself; but whatsoever *he* shall hear, *that* shall *he* speak: and *he* will shew you things to come.
 
 “*He* shall glorify me: for *he* shall receive of mine, and shall shew *it* unto you.” ([[John 16.13|John 16:13–14]][[John 16.14|]]. Italics added.)
 
-“That the \[Holy Ghost\] is capable of manifesting Himself in the form and figure of man,” wrote Dr. James E. Talmage, “is indicated by the wonderful interview between the Spirit and Nephi, in which He revealed Himself to the prophet, questioned him concerning his desires and belief, instructed him in the things of God, speaking face to face with the man. ‘I spake unto him,’ says Nephi, ‘as a man speaketh; for I beheld that he was in the form of a man; yet nevertheless, I knew that it was the Spirit of the Lord; and he spake unto me as a man speaketh with another.’” (*Discourses on the Holy Ghost,* comp. N. B. Lundwall, Bookcraft, Inc., 1959, p. 13.)
+“That the \[Holy Ghost\] is capable of manifesting Himself in the form and figure of man,” wrote Dr. James E. Talmage, “is indicated by the wonderful interview between the Spirit and Nephi, in which He revealed Himself to the prophet, questioned him concerning his desires and belief, instructed him in the things of God, speaking face to face with the man. ‘I spake unto him,’ says Nephi, ‘as a man speaketh; for I beheld that he was in the form of a man; yet nevertheless, I knew that it was the Spirit of the Lord; and he spake unto me as a man speaketh with another.’” (*Discourses on the Holy Ghost,* comp. N. B. Lundwall, Bookcraft, Inc., 1959, p. 13.)
 
-“… there are three,” says John the Beloved, “that bear record in heaven, the Father, the Word, and the Holy Ghost: and these three are one” ([[1 John 5.7|1 Jn. 5:7]]), signifying, of course, they are one in understanding and purpose. Of them the Prophet Joseph said:
+“… there are three,” says John the Beloved, “that bear record in heaven, the Father, the Word, and the Holy Ghost: and these three are one” ([[1 John 5.7|1 Jn. 5:7]]), signifying, of course, they are one in understanding and purpose. Of them the Prophet Joseph said:
 
-“… these three are one; or, in other words, these three constitute the great, matchless, governing and supreme power over all things; by whom all things were created and made … and these three constitute the Godhead, and are one.” (Quoted in Bruce R. McConkie, *Mormon Doctrine,* 2nd ed., Bookcraft, Inc., 1966, p. 320.)
+“… these three are one; or, in other words, these three constitute the great, matchless, governing and supreme power over all things; by whom all things were created and made … and these three constitute the Godhead, and are one.” (Quoted in Bruce R. McConkie, *Mormon Doctrine,* 2nd ed., Bookcraft, Inc., 1966, p. 320.)
 
 As a member of the Godhead, and being one with the Father and the Son, the Holy Ghost is, as are the Father and the Son, omniscient. He comprehends all truth having a “knowledge of \[all\] things.” ([[D&C 93.24|D&C 93:24]].)
 
@@ -46,15 +46,15 @@ At the baptism of Jesus, the Holy Ghost bore witness to his divinity by “desce
 
 Every person who knows or has ever known that Jesus is the Christ has received that witness from the Holy Ghost.
 
-“Wherefore I give you to understand,” wrote Paul to the Corinthians, “that no man speaking by the Spirit of God … can say that Jesus is the Lord, but by the Holy Ghost.” ([[1 Corinthians 12.3|1 Cor. 12:3]].)
+“Wherefore I give you to understand,” wrote Paul to the Corinthians, “that no man speaking by the Spirit of God … can say that Jesus is the Lord, but by the Holy Ghost.” ([[1 Corinthians 12.3|1 Cor. 12:3]].)
 
-Jesus implied this when responding to Peter’s declaration, “… Thou art the Christ, the Son of the living God.” He said:
+Jesus implied this when responding to Peter’s declaration, “… Thou art the Christ, the Son of the living God.” He said:
 
-“… Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.16|Matt. 16:16–17]][[Matthew 16.17|]].)
+“… Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.16|Matt. 16:16–17]][[Matthew 16.17|]].)
 
 The Holy Ghost not only bears witness to the divinity of the Father and the Son; he also bears witness to truth, particularly to gospel truths.
 
-“… when ye shall read these things \[speaking of the gospel truths contained in the Book of Mormon\], … I would exhort you,” wrote Moroni, “that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost.” ([[Moroni 10.3|Moro. 10:3–4]][[Moroni 10.4|]].)
+“… when ye shall read these things \[speaking of the gospel truths contained in the Book of Mormon\], … I would exhort you,” wrote Moroni, “that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost.” ([[Moroni 10.3|Moro. 10:3–4]][[Moroni 10.4|]].)
 
 And then he adds this great promise:
 
@@ -74,19 +74,19 @@ The Holy Ghost is not only a witness to the truth; he is also a great revealer a
 
 “Now we have received, not the spirit of the world, but the spirit which is of God,” wrote Paul to the Corinthians, “that we might know the things that are freely given to us of God.
 
-“Which things also we speak, not in the words which man’s wisdom teacheth, but which *the Holy Ghost teacheth;* comparing spiritual things with spiritual.” ([[1 Corinthians 2.12|1 Cor. 2:12–13]][[1 Corinthians 2.13|]]. Italics added.)
+“Which things also we speak, not in the words which man’s wisdom teacheth, but which *the Holy Ghost teacheth;* comparing spiritual things with spiritual.” ([[1 Corinthians 2.12|1 Cor. 2:12–13]][[1 Corinthians 2.13|]]. Italics added.)
 
 To the Holy Ghost we are indebted for our scriptures. Not only did he reveal the gospel truths they contain; he it was who gave the prophets the spirit of prophecy.
 
-“… no prophecy of the scripture is of any private interpretation”, said Peter.
+“… no prophecy of the scripture is of any private interpretation”, said Peter.
 
-“For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.20|2 Pet. 1:20–21]][[2 Peter 1.21|]].)
+“For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.20|2 Pet. 1:20–21]][[2 Peter 1.21|]].)
 
-The record says that in the very beginning “the Holy Ghost fell upon Adam, …
+The record says that in the very beginning “the Holy Ghost fell upon Adam, …
 
-“\[And he\] blessed God and was filled \[with the Holy Ghost\], and began to prophesy concerning all the families of the earth, …” ([[Moses 5.9|Moses 5:9–10]][[Moses 5.10|]].)
+“\[And he\] blessed God and was filled \[with the Holy Ghost\], and began to prophesy concerning all the families of the earth, …” ([[Moses 5.9|Moses 5:9–10]][[Moses 5.10|]].)
 
-So it has ever been. Luke notes that Zacharias, the father of John the Baptist, “was filled with the Holy Ghost and prophesied, …” ([[Luke 1.67|Luke 1:67]].)
+So it has ever been. Luke notes that Zacharias, the father of John the Baptist, “was filled with the Holy Ghost and prophesied, …” ([[Luke 1.67|Luke 1:67]].)
 
 The promise of the Lord in this last dispensation that “God shall give unto you knowledge … by the unspeakable gift of the Holy Ghost” ([[D&C 121.26|D&C 121:26]]) poses the question as to the manner in which one may receive this unspeakable gift.
 
@@ -94,7 +94,7 @@ The prescribed manner is by the laying on of hands following *faith* in the Lord
 
 This was the way the Holy Ghost was bestowed in the apostolic church.
 
-“… when the apostles which were at Jerusalem heard that Samaria had received the word of God, they sent unto them Peter and John:
+“… when the apostles which were at Jerusalem heard that Samaria had received the word of God, they sent unto them Peter and John:
 
 “Who, when they were come down, prayed for them, that they might receive the Holy Ghost:
 
@@ -116,9 +116,9 @@ In prescribing the duties of elders in his latter-day church, the Lord said, amo
 
 In calling several of the brethren to do missionary service, he said:
 
-“… I give unto you a commandment that ye go among this people, and say unto them, like unto mine apostle of old, whose name was Peter:
+“… I give unto you a commandment that ye go among this people, and say unto them, like unto mine apostle of old, whose name was Peter:
 
-“Believe on the name of the Lord Jesus. …
+“Believe on the name of the Lord Jesus. …
 
 “Repent and be baptized in the name of Jesus Christ, according to the holy commandment, for the remission of sins;
 
@@ -128,7 +128,7 @@ The gift of the Holy Ghost is an endowment which gives one the right to enjoy th
 
 The importance of receiving the gift of the Holy Ghost is beyond expression. It is the baptism of fire referred to by John. (See [[Luke 3.16|Luke 3:16]].) It is the “spirit” birth of which Jesus spoke to Nicodemus:
 
-“… Verily, verily, I say unto thee, Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God.” ([[John 3.5|John 3:5]].)
+“… Verily, verily, I say unto thee, Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God.” ([[John 3.5|John 3:5]].)
 
 Receiving the Holy Ghost is the therapy which effects forgiveness and heals the sin-sick soul.
 
@@ -138,7 +138,7 @@ This is what distinguishes The Church of Jesus Christ of Latter-day Saints from 
 
 Following an interview with President Van Buren, the Prophet Joseph Smith and Elias Higbee wrote in 1839 from Washington, D.C., a letter to Hyrum Smith, in which they said:
 
-“In our interview with the President, he interrogated us wherein we differed in our religion from the other religions of the day. Brother Joseph said we differed in mode of baptism, and the gift of the Holy Ghost by the laying on of hands. We considered that all other considerations were contained in the gift of the Holy Ghost. …” (*Documentary History of the Church,* vol. 4, p. 42.)
+“In our interview with the President, he interrogated us wherein we differed in our religion from the other religions of the day. Brother Joseph said we differed in mode of baptism, and the gift of the Holy Ghost by the laying on of hands. We considered that all other considerations were contained in the gift of the Holy Ghost. …” (*Documentary History of the Church,* vol. 4, p. 42.)
 
 And so it is, because the Holy Ghost is a revelator. The gift of the Holy Ghost “is the spirit of revelation; … \[it\] is,” said the Lord, “the spirit by which Moses brought the children of Israel through the Red Sea on dry ground.” ([[D&C 8.3|D&C 8:3]].)
 
@@ -146,13 +146,13 @@ It is the witness given by the Holy Ghost to the individual members of the Churc
 
 I bear to you, my brothers and sisters and friends, whoever you are and wherever you are, my personal witness to the truth of all these things to which I have called your attention.
 
-The Holy Ghost has revealed to me that they are true. By his power I know that God lives; that we are his offspring; that Christ lives; that his gospel is true; that The Church of Jesus Christ of Latter-day Saints is his church; that President Spencer W. Kimball is a prophet called by the Lord to preside over his church; that the Holy Ghost is a revealer of and a witness to these things; and that by his power each of us may, as Moroni declared, “know the truth of all things.” ([[Moroni 10.5|Moro. 10:5]].)
+The Holy Ghost has revealed to me that they are true. By his power I know that God lives; that we are his offspring; that Christ lives; that his gospel is true; that The Church of Jesus Christ of Latter-day Saints is his church; that President Spencer W. Kimball is a prophet called by the Lord to preside over his church; that the Holy Ghost is a revealer of and a witness to these things; and that by his power each of us may, as Moroni declared, “know the truth of all things.” ([[Moroni 10.5|Moro. 10:5]].)
 
 I humbly and sincerely invite all of you to believe on the Lord Jesus Christ, to repent and be baptized in his name, and receive the unspeakable gift of the Holy Ghost, by the laying on of the hands of the elders of His Church; and I invite you to thereafter follow his guidance.
 
 All who do this shall be prepared to meet the Savior when he comes, for he has said:
 
-“… at that day, when I shall come in my glory, shall the parable be fulfilled which I spake concerning the ten virgins.
+“… at that day, when I shall come in my glory, shall the parable be fulfilled which I spake concerning the ten virgins.
 
 “For they that are wise and have received the truth, and have taken the Holy Spirit for their guide, and have not been deceived—verily I say unto you, they shall not be hewn down and cast into the fire, but shall abide the day.
 
@@ -165,6 +165,4 @@ That we may all, through following the guidance of the Holy Spirit, be prepared 
 
 
 
-
-
-#Holy_Ghost
+#HolyGhost

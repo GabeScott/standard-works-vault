@@ -1,6 +1,5 @@
 # Prey
 
-
 *See also* [[Spoil.md|Spoil]]
 
 from the *prey*, my son, thou art gone up, [[Genesis 49.9|Genesis 49:9]].

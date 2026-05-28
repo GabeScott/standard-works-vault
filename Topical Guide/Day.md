@@ -1,6 +1,5 @@
 # Day
 
-
 *See also* [[Day of the Lord.md|Day of the Lord]]; [[Hour.md|Hour]]; [[Time.md|Time]]
 
 God called the light *Day*, [[Genesis 1.5|Genesis 1:5]] ([[Moses 2.5|Moses 2:5]]).
@@ -43,9 +42,9 @@ in the belly of the fish three *days*, [[Jonah 1.17|Jonah 1:17]] ([[Matthew 12.4
 
 Sufficient unto the *day* is the evil thereof, [[Matthew 6.34|Matthew 6:34]].
 
-except those *days* ... be shortened, [[Matthew 24.22|Matthew 24:22]] ([[Mark 13.20|Mark 13:20]]).
+except those *days* … be shortened, [[Matthew 24.22|Matthew 24:22]] ([[Mark 13.20|Mark 13:20]]).
 
-temple ... to build it in three *days*, [[Matthew 26.61|Matthew 26:61]] ([[Mark 14.58|Mark 14:58]]).
+temple … to build it in three *days*, [[Matthew 26.61|Matthew 26:61]] ([[Mark 14.58|Mark 14:58]]).
 
 This *day* is this scripture fulfilled, [[Luke 4.21|Luke 4:21]].
 
@@ -55,7 +54,7 @@ raise it up again at the last *day*, [[John 6.39|John 6:39]].
 
 Abraham rejoiced to see my *day*, [[John 8.56|John 8:56]].
 
-I must work ... while it is *day*, [[John 9.4|John 9:4]].
+I must work … while it is *day*, [[John 9.4|John 9:4]].
 
 rise again in the resurrection at the last *day*, [[John 11.24|John 11:24]].
 
@@ -75,13 +74,13 @@ Redeeming the time, because the *days* are evil, [[Ephesians 5.16|Ephesians 5:16
 
 perform it until the *day* of Jesus Christ, [[Philippians 1.6|Philippians 1:6]].
 
-Ye are all ... children of the *day*, [[1 Thessalonians 5.5|1 Thessalonians 5:5]].
+Ye are all … children of the *day*, [[1 Thessalonians 5.5|1 Thessalonians 5:5]].
 
 *day* dawn, and the *day* star arise, [[2 Peter 1.19|2 Peter 1:19]].
 
 one *day* is with the Lord as a thousand years, [[2 Peter 3.8|2 Peter 3:8]].
 
-I was in the Spirit on the Lord's *day*, [[Revelation 1.10|Revelation 1:10]].
+I was in the Spirit on the Lord’s *day*, [[Revelation 1.10|Revelation 1:10]].
 
 rest not *day* and night, [[Revelation 4.8|Revelation 4:8]].
 
@@ -89,9 +88,9 @@ rest not *day* and night, [[Revelation 4.8|Revelation 4:8]].
 
 When the *day* cometh that they shall believe in me, [[2 Nephi 10.7|2 Nephi 10:7]] ([[2 Nephi 25.16|2 Nephi 25:16]]).
 
-now is the ... *day* of your salvation, [[Alma 34.31|Alma 34:31]].
+now is the … *day* of your salvation, [[Alma 34.31|Alma 34:31]].
 
-plain ... as the *daylight* is from the dark night, [[Moroni 7.15|Moroni 7:15]].
+plain … as the *daylight* is from the dark night, [[Moroni 7.15|Moroni 7:15]].
 
 the *day* cometh that they who will not hear, [[D&C 1.14|D&C 1:14]].
 
@@ -104,5 +103,3 @@ offer up thy sacraments upon my holy *day*, [[D&C 59.9|D&C 59:9]].
 a *day* appointed unto you to rest, [[D&C 59.10|D&C 59:10]].
 
 one revolution was a *day* unto the Lord, [[Abraham 3.4|Abraham 3:4]].
-
-*See also* [[Obadiah 1.15|Obadiah 1:15]].

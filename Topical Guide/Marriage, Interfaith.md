@@ -1,23 +1,22 @@
 # Marriage, Interfaith
 
-
-*See also* [[Separation, Separate.md|Separation]]
+*See also* [[Separation.md|Separation]]
 
 took him a *wife* out of the land of Egypt, [[Genesis 21.21|Genesis 21:21]].
 
-not take a *wife* ... of the daughters of the Canaanites, [[Genesis 24.3|Genesis 24:3]].
+not take a *wife* … of the daughters of the Canaanites, [[Genesis 24.3|Genesis 24:3]].
 
-Esau ... took to *wife* Judith the daughter of ... the Hittite, [[Genesis 26.34|Genesis 26:34]].
+Esau … took to *wife* Judith the daughter of … the Hittite, [[Genesis 26.34|Genesis 26:34]].
 
 I am weary of my life because of the *daughters* of Heth, [[Genesis 27.46|Genesis 27:46]].
 
-Esau ... took ... the sister of Nebajoth, to be his *wife*, [[Genesis 28.9|Genesis 28:9]].
+Esau … took … the sister of Nebajoth, to be his *wife*, [[Genesis 28.9|Genesis 28:9]].
 
 thy sons, and their daughters go a *whoring*, [[Exodus 34.16|Exodus 34:16]].
 
 Neither shalt thou make *marriages* with them, [[Deuteronomy 7.3|Deuteronomy 7:3]].
 
-remnant of these nations ... make *marriages* with them, [[Joshua 23.12|Joshua 23:12]].
+remnant of these nations … make *marriages* with them, [[Joshua 23.12|Joshua 23:12]].
 
 *gave* their daughters to their sons, and served their gods, [[Judges 3.6|Judges 3:6]].
 
@@ -49,6 +48,4 @@ come ye out from the wicked, and be ye *separate*, [[Alma 5.57|Alma 5:57]].
 
 believer should not be *united* to an unbeliever, [[D&C 74.5|D&C 74:5]].
 
-sons of men ... took them *wives*, even as they chose, [[Moses 8.14|Moses 8:14]].
-
-*See also* [[Genesis 6.2|Genesis 6:2]]; [[Genesis 38.2|Genesis 38:2]]; [[1 Corinthians 7.14|1 Corinthians 7:14]]; [[D&C 132.15|D&C 132:15]].
+sons of men … took them *wives*, even as they chose, [[Moses 8.14|Moses 8:14]].

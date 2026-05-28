@@ -1,6 +1,6 @@
 # Muddy Feet and White Shirts
 
-By Matthew S. Holland - *Oak Hills Fourth Ward, Provo Utah Oak Hills Stake*
+By Matthew S. Holland - *Oak Hills Fourth Ward, Provo Utah Oak Hills Stake*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -28,11 +28,9 @@ I recently learned another significant lesson from my father about his love for 
 
 So, fathers, I plead with you not to think that the only important priesthood or spiritual lessons are taught by Church programs. Make your homes like heaven. Let them be a place where sons and daughters can learn, grow, ask, and express themselves free of criticism and to an open ear and heart.
 
-Elder Marvin J. Ashton said, “Home should be an anchor, a port in a storm, a refuge, a happy place in which to dwell. … Home should be where life’s greatest lessons are taught and learned. Home can be the center of one’s earthly faith where love and mutual responsibility are appropriately blended.” (*Ye Are My Friends,* Salt Lake City: Deseret Book, 1982, p. 44.)
+Elder Marvin J. Ashton said, “Home should be an anchor, a port in a storm, a refuge, a happy place in which to dwell. … Home should be where life’s greatest lessons are taught and learned. Home can be the center of one’s earthly faith where love and mutual responsibility are appropriately blended.” (*Ye Are My Friends,* Salt Lake City: Deseret Book, 1982, p. 44.)
 
 I want to bear my testimony of the responsibility we, the priesthood brethren of this Church, have to spiritually teach and edify our families. I would also like to publicly thank my dad for the great example he has been in my life, for the way in which he has always honored his priesthood. I love him very much. I can honestly say we are the best of friends, and it is my fervent hope and prayer that everyone can have such a father-son relationship. In the name of Jesus Christ, amen.
-
-
 
 
 

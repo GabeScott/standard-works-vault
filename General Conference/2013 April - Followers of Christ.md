@@ -1,6 +1,6 @@
 # Followers of Christ
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -26,7 +26,7 @@ Jesus taught that baptism was necessary to enter the kingdom of God (see [[John 
 
 Jesus began His preaching by inviting His listeners to repent (see [[Matthew 4.17|Matthew 4:17]]). That is still His servants’ message to the world.
 
-Throughout His ministry Jesus gave commandments. And He taught, “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]; see also [[John 14.21|verses 21, 23]][[John 14.23|]]). He affirmed that keeping His commandments would require His followers to leave what He called “that which is highly esteemed among men” ([[Luke 16.15|Luke 16:15]]) and “the tradition of men” ([[Mark 7.8|Mark 7:8]]; see also [[Mark 7.13|verse 13]]). He also warned, “If ye were of the world, the world would love his own: but because ye are not of the world, but I have chosen you out of the world, therefore the world hateth you” ([[John 15.19|John 15:19]]). As the Apostle Peter later declared, the followers of Jesus were to be “a peculiar people” ([[1 Peter 2.9|1 Peter 2:9]]).
+Throughout His ministry Jesus gave commandments. And He taught, “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]; see also [[John 14.21|verses 21, 23]][[John 14.23|]]). He affirmed that keeping His commandments would require His followers to leave what He called “that which is highly esteemed among men” ([[Luke 16.15|Luke 16:15]]) and “the tradition of men” ([[Mark 7.8|Mark 7:8]]; see also [[Mark 7.13|verse 13]]). He also warned, “If ye were of the world, the world would love his own: but because ye are not of the world, but I have chosen you out of the world, therefore the world hateth you” ([[John 15.19|John 15:19]]). As the Apostle Peter later declared, the followers of Jesus were to be “a peculiar people” ([[1 Peter 2.9|1 Peter 2:9]]).
 
 Latter-day Saints understand that we should not be “of the world” or bound to “the tradition of men,” but like other followers of Christ, we sometimes find it difficult to separate ourselves from the world and its traditions. Some model themselves after worldly ways because, as Jesus said of some whom He taught, “they loved the praise of men more than the praise of God” ([[John 12.43|John 12:43]]). These failures to follow Christ are too numerous and too sensitive to list here. They range all the way from worldly practices like political correctness and extremes in dress and grooming to deviations from basic values like the eternal nature and function of the family.
 
@@ -38,7 +38,7 @@ Jesus’s teachings were not meant to be theoretical. Always they were to be act
 >Lord, I would follow thee.[^3]
 >
 
-As Jesus taught, those who love Him will keep His commandments. They will be obedient, as President Thomas S. Monson taught this morning. Following Christ is not a casual or occasional practice but a continuous commitment and way of life that applies at all times and in all places. The Savior taught this principle and how we should be reminded and strengthened to follow it when He instituted the ordinance of the sacrament (communion, as others call it). We know from modern revelation that He commanded His followers to partake of the emblems in remembrance of Him (see [[JST Matthew 26.22|Joseph Smith Translation, Matthew 26:22]] \[in [[Matthew 26.note26c|Matthew 26:26, footnote c]]\], [[JST Matthew 26.24|24]] \[in the Bible appendix\]; [[JST Mark 14.21|Joseph Smith Translation, Mark 14:21–24]][[JST Mark 14.22|]][[JST Mark 14.23|]][[JST Mark 14.24|]] \[in the Bible appendix\]). Members of The Church of Jesus Christ of Latter-day Saints follow that commandment each week by attending a worship service in which we partake of the bread and water and covenant that we will always remember Him and keep His commandments.
+As Jesus taught, those who love Him will keep His commandments. They will be obedient, as President Thomas S. Monson taught this morning. Following Christ is not a casual or occasional practice but a continuous commitment and way of life that applies at all times and in all places. The Savior taught this principle and how we should be reminded and strengthened to follow it when He instituted the ordinance of the sacrament (communion, as others call it). We know from modern revelation that He commanded His followers to partake of the emblems in remembrance of Him (see [[JST Matthew 26.22|Joseph Smith Translation, Matthew 26:22]] \[in [Matthew 26:26, footnote c](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26?lang=eng&id=note26c#note26c)\], [[JST Matthew 26.24|24]] \[in the Bible appendix\]; [[JST Mark 14.21|Joseph Smith Translation, Mark 14:21–24]][[JST Mark 14.22|]][[JST Mark 14.23|]][[JST Mark 14.24|]] \[in the Bible appendix\]). Members of The Church of Jesus Christ of Latter-day Saints follow that commandment each week by attending a worship service in which we partake of the bread and water and covenant that we will always remember Him and keep His commandments.
 
 Jesus taught that “men ought always to pray” ([[Luke 18.1|Luke 18:1]]). He also set that example, such as when He “continued all night in prayer to God” ([[Luke 6.12|Luke 6:12]]) before He called His Twelve Apostles. Like other Christians, we pray in all our worship services. We also pray for guidance, and we teach that we should have frequent personal prayers and daily kneeling prayers as a family. Like Jesus, we pray to our Father in Heaven, and we do so in the sacred name of Jesus Christ.
 
@@ -48,7 +48,7 @@ Some whom Jesus called to follow Him did not respond immediately but sought a de
 
 Jesus taught that God created male and female and that a *man* should leave his parents and cleave to his *wife* (see [[Mark 10.6|Mark 10:6–8]][[Mark 10.7|]][[Mark 10.8|]]). Our commitment to this teaching is well known.
 
-In the familiar parable of the lost sheep, Jesus taught that we should go out of our way to seek after any of the flock who have strayed (see [[Matthew 18.11|Matthew 18:11–14]][[Matthew 18.12|]][[Matthew 18.13|]][[Matthew 18.14|]]; [[Luke 15.3|Luke 15:3–7]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]]). As we know, President Thomas S. Monson has given great emphasis to this direction in his memorable example and teachings about rescuing our fellow men and women.[^4]
+In the familiar parable of the lost sheep, Jesus taught that we should go out of our way to seek after any of the flock who have strayed (see [[Matthew 18.11|Matthew 18:11–14]][[Matthew 18.12|]][[Matthew 18.13|]][[Matthew 18.14|]]; [[Luke 15.3|Luke 15:3–7]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]]). As we know, President Thomas S. Monson has given great emphasis to this direction in his memorable example and teachings about rescuing our fellow men and women.[^4]
 
 In our efforts to rescue and serve, we follow our Savior’s unique example and tender teachings about love: “Thou shalt love thy neighbour as thyself” ([[Matthew 22.39|Matthew 22:39]]). He even commanded us to love our enemies (see [[Luke 6.27|Luke 6:27–28]][[Luke 6.28|]]). And in His great teachings at the end of His mortal ministry, He said:
 
@@ -92,7 +92,7 @@ I testify of our Savior, Jesus Christ, whose teachings and example we seek to fo
 
 [^3]: “Lord, I Would Follow Thee,” *Hymns,* no. 220.
 
-[^4]: See, for example, Heidi S. Swinton, *To the Rescue: The Biography of Thomas S. Monson* (2010), 149–61; Thomas S. Monson, “To the Rescue,” *Ensign,* May 2001, 48–50; *Liahona,* July 2001, 57–60.
+[^4]: See, for example, Heidi S. Swinton, *To the Rescue: The Biography of Thomas S. Monson* (2010), 149–61; Thomas S. Monson, “To the Rescue,” *Ensign,* May 2001, 48–50; *Liahona,* July 2001, 57–60.
 
 [^5]: Chris Williams, in Jessica Henrie, “Father Relies on Faith to Forgive Intoxicated Teen Driver,” *Deseret News,* Aug. 1, 2012, deseretnews.com/article/865559847/Let-It-Go-Chris-Williams-shares-his-story-of-tragedy-and-forgiveness.html; see also Chris Williams, *Let It Go: A True Story of Tragedy and Forgiveness* (2012).
 
@@ -100,6 +100,4 @@ I testify of our Savior, Jesus Christ, whose teachings and example we seek to fo
 
 [^7]: *Hymns,* no. 116.
 
-
-
-#Jesus_Christ #Obedience
+#JesusChrist #Obedience

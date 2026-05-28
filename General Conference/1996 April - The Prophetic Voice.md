@@ -119,6 +119,4 @@ My testimony of the divinity of the callings of the presiding Brethren as the re
 
 [^22]: [[D&C 42.11|D&C 42:11]].
 
-
-
-#Apostasy #Church_Growth #Criticism #General_Conference #Jesus_Christ #Loyalty #Priesthood #Prophets #Responsibility #Truth #Women
+#Apostasy #ChurchGrowth #Criticism #GeneralConference #JesusChrist #Loyalty #Priesthood #Prophets #Responsibility #Truth #Women

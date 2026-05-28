@@ -1,6 +1,5 @@
 # Defraud
 
-
 Thou shalt not *defraud* thy neighbour, [[Leviticus 19.13|Leviticus 19:13]].
 
 whom have I *defrauded*, [[1 Samuel 12.3|1 Samuel 12:3]].

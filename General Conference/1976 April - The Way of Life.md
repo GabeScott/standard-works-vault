@@ -1,6 +1,6 @@
 # The Way of Life
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -16,9 +16,9 @@ A few weeks later I mailed him a letter and sent him some literature.
 
 In his response, he wrote:
 
-“I still remember you, that I really enjoyed the conversation exchanged with you on the \[airplane\]. …
+“I still remember you, that I really enjoyed the conversation exchanged with you on the \[airplane\]. …
 
-“I have been working hard … without ‘purpose.’ … You made my eyes open for what is the true purpose of working every day and \[of\] life itself. …
+“I have been working hard … without ‘purpose.’ … You made my eyes open for what is the true purpose of working every day and \[of\] life itself. …
 
 “In the meantime,” he said, “I cannot stop drinking and smoking so far”—he was carrying a package of liquor when we were talking, and I let him read the Word of Wisdom. So he said, “I cannot stop drinking so far, but I shall never forget where we came from, and why we are here, and where we go after we leave this probation.”
 
@@ -30,7 +30,7 @@ As to why we are here on earth, I reminded him of the self-evident fact that, as
 
 I explained what Abraham wrote concerning his vision of the council in heaven where the gospel plan was presented and the creation of this earth projected. We considered Abraham’s statement:
 
-“Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; …
+“Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; …
 
 “And there stood one among \[those that were spirits\] that was like unto God \[namely, Jesus Christ\], and he said unto those who were with him: We will go down, for there is space there, and we will take of these materials, and we will make an earth whereon these may dwell;
 
@@ -56,7 +56,7 @@ The type of body we shall receive in resurrection and where we go from there is 
 
 “There is one glory of the sun, and another glory of the moon, and another glory of the stars: for one star differeth from another star in glory.
 
-“So also is the resurrection of the dead.” ([[1 Corinthians 15.40|1 Cor. 15:40–42]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]].)
+“So also is the resurrection of the dead.” ([[1 Corinthians 15.40|1 Cor. 15:40–42]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]].)
 
 If we here keep the commandments of God, we shall return to his presence and dwell with him in eternal life and glory. If we do not keep his commandments, we shall dwell in a far less comfortable place. It is up to us.
 
@@ -64,7 +64,7 @@ If we here keep the commandments of God, we shall return to his presence and dwe
 
 An ancient American prophet put this truth in these beautiful words:
 
-“Men are free … and all things are given them which are expedient. … They are free to choose liberty and eternal life, … or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself.” ([[2 Nephi 2.27|2 Ne. 2:27]].)
+“Men are free … and all things are given them which are expedient. … They are free to choose liberty and eternal life, … or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself.” ([[2 Nephi 2.27|2 Ne. 2:27]].)
 
 Another ancient American prophet describes in this language the situation we will be in between death and resurrection:
 
@@ -110,13 +110,11 @@ No person is, nor can he be, justified in rejecting these teachings and commandm
 
 “And every one that hearkeneth to the voice of the Spirit cometh unto God, even the Father.” ([[D&C 84.45|D&C 84:45–47]][[D&C 84.46|]][[D&C 84.47|]].)
 
-The prophet Lehi bore like witness when he said to his son, Jacob, “men are instructed \[hearing by the Spirit\] sufficiently that they know good from evil.” ([[2 Nephi 2.5|2 Ne. 2:5]].) And so did Mormon, by teaching his brethren that “the Spirit of Christ is given to every man, that he may know good from evil.” ([[Moroni 7.16|Moro. 7:16]].)
+The prophet Lehi bore like witness when he said to his son, Jacob, “men are instructed \[hearing by the Spirit\] sufficiently that they know good from evil.” ([[2 Nephi 2.5|2 Ne. 2:5]].) And so did Mormon, by teaching his brethren that “the Spirit of Christ is given to every man, that he may know good from evil.” ([[Moroni 7.16|Moro. 7:16]].)
 
 That we may all know by the witness of the Holy Spirit where we came from, why we are here, and where we go after we leave this life; and that by living righteously we “shall have glory added upon \[our\] heads for ever and ever,” I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Commandments #Plan_Of_Salvation
+#Commandments #PlanOfSalvation

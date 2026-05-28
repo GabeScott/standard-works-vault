@@ -18,7 +18,7 @@ It is in understanding and accepting this universal fatherhood of God that all h
 
 In this gospel view there is no room for a contracted, narrow, or prejudicial view. The Prophet Joseph Smith said: “Love is one of the chief characteristics of Deity, and ought to be manifested by those who aspire to be the sons of God. A man filled with the love of God, is not content with blessing his family alone, but ranges through the whole world, anxious to bless the whole human race” (*History of the Church,* 4:227).
 
-In 1907 the First Presidency presented to the general conference a declaration which includes this statement: “Our motives are not selfish; our purposes not petty and earth-bound; we contemplate the human race, past, present and yet to come, as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now, and forever” (“An Address: The Church of Jesus Christ of Latter-day Saints to the World,” appendix to Conference Report, Apr. 1907, appendix, p. 16).
+In 1907 the First Presidency presented to the general conference a declaration which includes this statement: “Our motives are not selfish; our purposes not petty and earth-bound; we contemplate the human race, past, present and yet to come, as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now, and forever” (“An Address: The Church of Jesus Christ of Latter-day Saints to the World,” appendix to Conference Report, Apr. 1907, appendix, p. 16).
 
 In the gospel view, no man is alien. No one is to be denied. There is no underlying excuse for smugness, arrogance, or pride. Openly scorning the pettiness and intolerance of rival religious groups, the Prophet Joseph Smith said in an editorial:
 
@@ -28,9 +28,9 @@ Mormonism, so-called, is a world religion, not simply because its members are no
 
 We believe there is a spiritual influence that emanates from “the presence of God to fill the immensity of space” ([[D&C 88.12|D&C 88:12]]). All men share an inheritance of divine light. God operates among his children in all nations, and those who seek God are entitled to further light and knowledge, regardless of their race, nationality, or cultural traditions.
 
-Elder Orson F. Whitney, in a conference address, explained that many great religious leaders were inspired. He said: “\[God\] is using not only his covenant people, but other peoples as well, to consummate a work, stupendous, magnificent, and altogether too arduous for this little handful of Saints to accomplish by and of themselves. …
+Elder Orson F. Whitney, in a conference address, explained that many great religious leaders were inspired. He said: “\[God\] is using not only his covenant people, but other peoples as well, to consummate a work, stupendous, magnificent, and altogether too arduous for this little handful of Saints to accomplish by and of themselves. …
 
-“All down the ages men bearing the authority of the Holy Priesthood—patriarchs, prophets, apostles and others, have officiated in the name of the Lord, doing the things that he required of them; and outside the pale of their activities other good and great men, not bearing the Priesthood, but possessing profundity of thought, great wisdom, and a desire to uplift their fellows, have been sent by the Almighty into many nations, to give them, not the fulness of the Gospel, but that portion of truth that they were able to receive and wisely use” (in Conference Report, Apr. 1921, pp. 32–33).
+“All down the ages men bearing the authority of the Holy Priesthood—patriarchs, prophets, apostles and others, have officiated in the name of the Lord, doing the things that he required of them; and outside the pale of their activities other good and great men, not bearing the Priesthood, but possessing profundity of thought, great wisdom, and a desire to uplift their fellows, have been sent by the Almighty into many nations, to give them, not the fulness of the Gospel, but that portion of truth that they were able to receive and wisely use” (in Conference Report, Apr. 1921, pp. 32–33).
 
 The restored gospel is a message of divine love for all people everywhere, based upon the conviction that all humans are children of the same God. This primary religious message was beautifully expressed in a statement of the First Presidency on February 15, 1978, as follows:
 
@@ -40,7 +40,7 @@ Latter-day Saints have a positive and inclusive approach toward others who are n
 
 In our humble efforts to build brotherhood and to teach revealed truth, we say to the people of the world what President George Albert Smith so lovingly suggested:
 
-“We have come not to take away from you the truth and virtue you possess. We have come not to find fault with you nor to criticize you. We have not come here to berate you because of things you have not done; but we have come here as your brethren … and to say to you: ‘Keep all the good that you have, and let us bring to you more good, in order that you may be happier and in order that you may be prepared to enter into the presence of our Heavenly Father’” (*Sharing the Gospel with Others,* comp. Preston Nibley \[Salt Lake City: Deseret Book Co., 1948\], pp. 12–13).
+“We have come not to take away from you the truth and virtue you possess. We have come not to find fault with you nor to criticize you. We have not come here to berate you because of things you have not done; but we have come here as your brethren … and to say to you: ‘Keep all the good that you have, and let us bring to you more good, in order that you may be happier and in order that you may be prepared to enter into the presence of our Heavenly Father’” (*Sharing the Gospel with Others,* comp. Preston Nibley \[Salt Lake City: Deseret Book Co., 1948\], pp. 12–13).
 
 In summary, then, the validity, the power, of our faith is not bound by history, nationality, or culture. It is not the peculiar property of any one people or any one age. As Joseph Smith once said, it is “above the kingdoms of the world” (*History of the Church,* 5:526).
 
@@ -49,6 +49,4 @@ Ours is a perennial religion based on eternal, saving truth. Its message of love
 
 
 
-
-
-#Faith #Love #Missionary_Work #Unity
+#Faith #Love #MissionaryWork #Unity

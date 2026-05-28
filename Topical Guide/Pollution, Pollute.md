@@ -1,7 +1,6 @@
 # Pollution, Pollute
 
-
-*See also* [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Filthiness, Filthy.md|Filthiness]]; [[Profane.md|Profane]]; [[Sacrilege.md|Sacrilege]]
+*See also* [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Filthiness.md|Filthiness]]; [[Profane.md|Profane]]; [[Sacrilege.md|Sacrilege]]
 
 neither shall ye *pollute* the holy things, [[Numbers 18.32|Numbers 18:32]].
 
@@ -21,7 +20,7 @@ ye *pollute* yourselves with all your idols, [[Ezekiel 20.31|Ezekiel 20:31]].
 
 *pollute* ye my holy name no more, [[Ezekiel 20.39|Ezekiel 20:39]].
 
-thou camest ... and *fouledst* their rivers, [[Ezekiel 32.2|Ezekiel 32:2]].
+thou camest … and *fouledst* their rivers, [[Ezekiel 32.2|Ezekiel 32:2]].
 
 *foul* the residue with your feet, [[Ezekiel 34.18|Ezekiel 34:18]].
 
@@ -37,11 +36,11 @@ they have escaped the *pollutions* of the world, [[2 Peter 2.20|2 Peter 2:20]].
 
 of their sinful and *polluted* state, [[Mosiah 25.11|Mosiah 25:11]].
 
-snatched us from our ... *polluted* state, [[Alma 26.17|Alma 26:17]].
+snatched us from our … *polluted* state, [[Alma 26.17|Alma 26:17]].
 
-shall be great *pollutions* upon ... earth, [[Mormon 8.31|Mormon 8:31]].
+shall be great *pollutions* upon … earth, [[Mormon 8.31|Mormon 8:31]].
 
-churches ... have become *polluted*, [[Mormon 8.36|Mormon 8:36]].
+churches … have become *polluted*, [[Mormon 8.36|Mormon 8:36]].
 
 shall the children of the kingdom *pollute* my holy land, [[D&C 84.59|D&C 84:59]].
 
@@ -51,8 +50,8 @@ they *polluted* their inheritances, [[D&C 101.6|D&C 101:6]] ([[D&C 103.14|D&C 10
 
 Let not that which I have appointed be *polluted*, [[D&C 101.97|D&C 101:97]].
 
-no unclean thing ... come into thy house to *pollute* it, [[D&C 109.20|D&C 109:20]].
+no unclean thing … come into thy house to *pollute* it, [[D&C 109.20|D&C 109:20]].
 
-if my people ... do not *pollute* this holy house, [[D&C 110.8|D&C 110:8]].
+if my people … do not *pollute* this holy house, [[D&C 110.8|D&C 110:8]].
 
 they *pollute* mine holy grounds, [[D&C 124.46|D&C 124:46]].

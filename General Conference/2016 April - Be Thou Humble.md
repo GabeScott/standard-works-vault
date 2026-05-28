@@ -1,6 +1,6 @@
 # Be Thou Humble
 
-By Elder Steven E. Snow - *Of the Seventy*
+By Elder Steven E. Snow - *Of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -12,7 +12,7 @@ We are blessed in the Church to have a collection of hymns which help us worship
 
 Just a few months after the Church was organized, a revelation was received by the Prophet Joseph Smith for his wife Emma. The Lord directed her “to make a selection of sacred hymns, as it shall be given thee, which is pleasing unto me, to be had in my church.”[^2]
 
-Emma Smith assembled a collection of hymns which first appeared in this Kirtland hymnal in 1836.[^3] There were only 90 songs included in this thin little booklet. Many of them were hymns from Protestant faiths. At least 26 of them were written by William W. Phelps, who later prepared and assisted in the printing of the hymnal. Only the lyrics were written; no musical notes accompanied the texts. This humble little hymnal proved to be a great blessing to early members of the Church.
+Emma Smith assembled a collection of hymns which first appeared in this Kirtland hymnal in 1836.[^3] There were only 90 songs included in this thin little booklet. Many of them were hymns from Protestant faiths. At least 26 of them were written by William W. Phelps, who later prepared and assisted in the printing of the hymnal. Only the lyrics were written; no musical notes accompanied the texts. This humble little hymnal proved to be a great blessing to early members of the Church.
 
 The latest edition of our English-language hymnal was published in 1985. Many of the selections which Emma chose so many years earlier are still included in our hymnbook, such as “I Know That My Redeemer Lives” and “How Firm a Foundation.”[^4]
 
@@ -20,7 +20,7 @@ One song that was new to the 1985 hymnal is “Be Thou Humble.”[^5] This tranq
 
 Like all of the Church’s hymns, “Be Thou Humble” teaches pure and simple truths. It teaches us that if we humble ourselves, our prayers are answered; we enjoy peace of mind; we serve more effectively in our callings; and, if we continue to be faithful, we will ultimately return to the presence of our Heavenly Father.
 
-The Savior taught His followers that they must humble themselves as a little child in order to enter into the kingdom of heaven.[^6] As we raise our own children, we need to help them remain humble as they mature into adulthood. We do not do this by breaking their spirit through unkindness or by being too harsh in our discipline. While nurturing their self-confidence and self-esteem, we need to teach them the qualities of selflessness, kindness, obedience, lack of pride, civility, and unpretentiousness. We need them to learn to take joy in the successes of siblings and friends. President Howard W. Hunter taught that “our genuine concern should be for the success of others.”[^7] If not, our children can become obsessed with self-promotion and outdoing others, jealousy, and resentment for the triumphs of peers. I’m grateful for a mother who, when seeing I was becoming too full of myself as a boy, would say, “Son, a little bit of humility right now would go a long way.”
+The Savior taught His followers that they must humble themselves as a little child in order to enter into the kingdom of heaven.[^6] As we raise our own children, we need to help them remain humble as they mature into adulthood. We do not do this by breaking their spirit through unkindness or by being too harsh in our discipline. While nurturing their self-confidence and self-esteem, we need to teach them the qualities of selflessness, kindness, obedience, lack of pride, civility, and unpretentiousness. We need them to learn to take joy in the successes of siblings and friends. President Howard W. Hunter taught that “our genuine concern should be for the success of others.”[^7] If not, our children can become obsessed with self-promotion and outdoing others, jealousy, and resentment for the triumphs of peers. I’m grateful for a mother who, when seeing I was becoming too full of myself as a boy, would say, “Son, a little bit of humility right now would go a long way.”
 
 But humility is not something reserved to be taught only to children. We must all strive to become more humble. Humility is essential to gain the blessings of the gospel. Humility enables us to have broken hearts when we sin or make mistakes and makes it possible for us to repent. Humility enables us to be better parents, sons and daughters, husbands and wives, neighbors and friends.
 
@@ -46,36 +46,37 @@ But what if we could be humble before we walk through that “valley of humility
 
 “Yea, \[they are\] much more blessed than they who are compelled to be humble.”[^9]
 
-I am grateful for prophets, like Alma, who have taught us the worth of this great attribute. Spencer W. Kimball, the 12th President of the Church, said: “How does one get humble? To me, one must constantly be reminded of his dependence. On whom dependent? On the Lord. How remind one’s self? By real, constant, worshipful, grateful prayer.”[^10]
+I am grateful for prophets, like Alma, who have taught us the worth of this great attribute. Spencer W. Kimball, the 12th President of the Church, said: “How does one get humble? To me, one must constantly be reminded of his dependence. On whom dependent? On the Lord. How remind one’s self? By real, constant, worshipful, grateful prayer.”[^10]
 
-It should come as no surprise that President Kimball’s favorite hymn was “I Need Thee Every Hour.”[^11] Elder Dallin H. Oaks reported that this was the most oft-sung opening hymn by the Brethren in the temple during his early years in the Quorum of the Twelve. He said, “Picture the spiritual impact of a handful of the Lord’s servants singing that song before praying for his guidance in fulfilling their mighty responsibilities.”[^12]
+It should come as no surprise that President Kimball’s favorite hymn was “I Need Thee Every Hour.”[^11] Elder Dallin H. Oaks reported that this was the most oft-sung opening hymn by the Brethren in the temple during his early years in the Quorum of the Twelve. He said, “Picture the spiritual impact of a handful of the Lord’s servants singing that song before praying for his guidance in fulfilling their mighty responsibilities.”[^12]
 
 I testify of the importance of humility in our lives. I am grateful for the individuals like Sister Grietje Rowley who have penned inspiring words and music which help us learn the doctrine of the gospel of Jesus Christ, which includes humility. I am grateful we have a legacy of hymns, which helps us to worship through song, and I am grateful for humility. It is my prayer we will all strive for humility in our lives so we might become better parents, sons and daughters, and followers of the Savior. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: “First Presidency Preface,” *Hymns of The Church of Jesus Christ of Latter-day Saints* (1985), ix.
+[^1]: “First Presidency Preface,” *Hymns of The Church of Jesus Christ of Latter-day Saints* (1985), ix.
 
 [^2]: [[D&C 25.11|Doctrine and Covenants 25:11]].
 
 [^3]: The title page of the first edition of the Latter-day Saint hymnal is dated 1835, but it was not completed and made available until early 1836.
 
-[^4]: Twenty-six of the hymns that appeared in the 1835 hymnal are included in our current hymnal (see Kathleen Lubeck, “[The New Hymnbook: The Saints Are Singing!](https://churchofjesuschrist.org/study/ensign/1985/09/the-new-hymnbook-the-saints-are-singing?lang=eng)” *Ensign,* Sept. 1985, 7).
+[^4]: Twenty-six of the hymns that appeared in the 1835 hymnal are included in our current hymnal (see Kathleen Lubeck, “[The New Hymnbook: The Saints Are Singing!](https://www.churchofjesuschrist.org/study/ensign/1985/09/the-new-hymnbook-the-saints-are-singing?lang=eng)” *Ensign,* Sept. 1985, 7).
 
 [^5]: “Be Thou Humble,” *Hymns,* no. 130.
 
 [^6]: See [[Matthew 18.1|Matthew 18:1–4]][[Matthew 18.2|]][[Matthew 18.3|]][[Matthew 18.4|]].
 
-[^7]: Howard W. Hunter, “[[1984 April - The Pharisee and the Publican.md|The Pharisee and the Publican]],” *Ensign,* May 1984, 66.
+[^7]: Howard W. Hunter, “[[1984 April - The Pharisee and the Publican.md|The Pharisee and the Publican]],” *Ensign,* May 1984, 66.
 
-[^8]: Anthon H. Lund, in Conference Report, Apr. 1901, 22.
+[^8]: Anthon H. Lund, in Conference Report, Apr. 1901, 22.
 
 [^9]: [[Alma 32.16|Alma 32:16, 15]][[Alma 32.15|]].
 
-[^10]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 233.
+[^10]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 233.
 
-[^11]: “I Need Thee Every Hour,” *Hymns,* no. 98; see also Brent H. Nielson, “[I Need Thee Every Hour](https://churchofjesuschrist.org/study/ensign/2011/04/i-need-thee-every-hour?lang=eng),” *Ensign,* Apr. 2011, 16.
+[^11]: “I Need Thee Every Hour,” *Hymns,* no. 98; see also Brent H. Nielson, “[I Need Thee Every Hour](https://www.churchofjesuschrist.org/study/ensign/2011/04/i-need-thee-every-hour?lang=eng),” *Ensign,* Apr. 2011, 16.
 
+[^12]: Dallin H. Oaks, “[[1994 October - Worship through Music.md|Worship through Music]],” *Ensign,* Nov. 1994, 10.
 
 #Adversity #Children #Humility #Music #Prophets

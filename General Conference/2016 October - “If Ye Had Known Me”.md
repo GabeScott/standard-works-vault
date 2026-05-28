@@ -1,6 +1,6 @@
 # “If Ye Had Known Me”
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -137,7 +137,7 @@ On a future day, “every knee shall bow, and every tongue confess”[^39] that 
 
 [^6]: [[John 14.6|John 14:6–7]][[John 14.7|]].
 
-[^7]: See [[2 Nephi 2.8|2 Nephi 2:8]]; [[2 Nephi 31.19|31:19]]; [[Moroni 6.4|Moroni 6:4]].
+[^7]: See [[2 Nephi 2.8|2 Nephi 2:8]]; [[2 Nephi 31.19|31:19]]; [[Moroni 6.4|Moroni 6:4]].
 
 [^8]: See [[Alma 32.27|Alma 32:27]].
 
@@ -149,7 +149,7 @@ On a future day, “every knee shall bow, and every tongue confess”[^39] that 
 
 [^12]: [[Romans 10.17|Romans 10:17]].
 
-[^13]: See [[2 Nephi 32.3|2 Nephi 32:3]]; [[D&C 18.34|Doctrine and Covenants 18:34–36]][[D&C 18.35|]][[D&C 18.36|]].
+[^13]: See [[2 Nephi 32.3|2 Nephi 32:3]]; [[D&C 18.34|Doctrine and Covenants 18:34–36]][[D&C 18.35|]][[D&C 18.36|]].
 
 [^14]: See [[Moroni 10.4|Moroni 10:4]].
 
@@ -163,7 +163,7 @@ On a future day, “every knee shall bow, and every tongue confess”[^39] that 
 
 [^19]: See Joseph Smith Translation, Matthew 16:26 (in the Bible appendix).
 
-[^20]: See [[3 Nephi 27.27|3 Nephi 27:27]].
+[^20]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
 [^21]: *Lectures on Faith,* 38.
 
@@ -203,6 +203,4 @@ On a future day, “every knee shall bow, and every tongue confess”[^39] that 
 
 [^39]: [[Mosiah 27.31|Mosiah 27:31]].
 
-
-
-#Discipleship #Faith #Jesus_Christ #Service
+#Discipleship #Faith #JesusChrist #Service

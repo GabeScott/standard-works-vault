@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:11](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.11?lang=eng#p11)
 
 
-[^a]: 2 Pet. 3:17.
+[^a]: [[2 Peter 3.17|2 Pet. 3:17]].  

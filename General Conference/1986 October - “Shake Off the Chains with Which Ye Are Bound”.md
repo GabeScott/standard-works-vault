@@ -12,11 +12,11 @@ Another acquaintance is a lovely, well-educated woman who has been a very heavy 
 
 As I have been rereading the Book of Mormon, following the counsel of President Ezra Taft Benson, our beloved prophet, I have been even more impressed with the counsel father Lehi gave his family shortly before his death. He pleads with his sons with these words:
 
-“Awake, my sons; put on the armor of righteousness. Shake off the chains with which ye are bound, and come forth out of obscurity, and arise from the dust” ([[2 Nephi 1.23|2 Ne. 1:23]]).
+“Awake, my sons; put on the armor of righteousness. Shake off the chains with which ye are bound, and come forth out of obscurity, and arise from the dust” ([[2 Nephi 1.23|2 Ne. 1:23]]).
 
 Those words apply to us today. Who among us hasn’t felt the chains of bad habits? These habits may have impeded our progress, may have made us forget who we are, may have destroyed our self-image, may have put our family life in jeopardy, and may have hindered our ability to serve our fellowmen and our God. So many of us tend to say, “This is the way I am. I can’t change. I can’t throw off the chains of habit.”
 
-Lehi warned his sons to “shake off the chains” because he knew that chains restrict our mobility, growth, and happiness. They cause us to become confused and less able to be guided by God’s Spirit. Lehi also reminded his sons that their new land should “be a land of liberty unto them; wherefore, they shall never be brought down into captivity; if so, it shall be because of iniquity” ([[2 Nephi 1.7|2 Ne. 1:7]]). He could have said, “If so, it shall be because ye have been bound into captivity by the chains of unrighteous living.” Samuel Johnson wisely shared, “The chains of habit are too small to be felt until they are too strong to be broken” (*International Dictionary of Thoughts,* comp. John P. Bradley, Chicago: J. G. Ferguson Publishing Co., 1969, p. 348).
+Lehi warned his sons to “shake off the chains” because he knew that chains restrict our mobility, growth, and happiness. They cause us to become confused and less able to be guided by God’s Spirit. Lehi also reminded his sons that their new land should “be a land of liberty unto them; wherefore, they shall never be brought down into captivity; if so, it shall be because of iniquity” ([[2 Nephi 1.7|2 Ne. 1:7]]). He could have said, “If so, it shall be because ye have been bound into captivity by the chains of unrighteous living.” Samuel Johnson wisely shared, “The chains of habit are too small to be felt until they are too strong to be broken” (*International Dictionary of Thoughts,* comp. John P. Bradley, Chicago: J. G. Ferguson Publishing Co., 1969, p. 348).
 
 The lady of whom I spoke was able to break the chains of a bad habit because she became committed to change. Some of the Lamanites under King Lamoni were able to break the chains of their iniquities of murder, indolence, and hatred when they were taught by Ammon. They became even more valiant than the Nephites because they became committed to righteousness.
 
@@ -44,7 +44,7 @@ Any judge who allows convicted drug peddlers to go their ways with only light pe
 
 I am acquainted with a wife and mother who is chained securely at the present time to a life-style of murmuring and criticism. She is the first to point out faults in her husband or to repeat neighborhood gossip. How damaging is a habit that permits fault-finding, character assassination, and the sharing of malicious rumors! Gossip and caustic comments often create chains of contention. These chains may appear to be very small, but what misery and woe they can cause!
 
-“O that ye would awake; awake from a deep sleep, yea, even from the sleep of hell, and shake off the awful chains by which ye are bound, which are the chains which bind the children of men, that they are carried away captive down to the eternal gulf of misery and woe” ([[2 Nephi 1.13|2 Ne. 1:13]]).
+“O that ye would awake; awake from a deep sleep, yea, even from the sleep of hell, and shake off the awful chains by which ye are bound, which are the chains which bind the children of men, that they are carried away captive down to the eternal gulf of misery and woe” ([[2 Nephi 1.13|2 Ne. 1:13]]).
 
 Listen to the words of a friend who understands well the meaning of this scripture, a man who was bound by the chains of indifference. But when he sought God’s help and turned to righteous principles, those chains were not only broken, but smashed. This letter was received a few weeks ago.
 
@@ -77,6 +77,4 @@ God help us to shake off and break the chains with which we are bound. With God�
 
 
 
-
-
-#Commitment #Repentance #Word_Of_Wisdom
+#Commitment #Repentance #WordOfWisdom

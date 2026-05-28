@@ -1,4 +1,3 @@
 # Agabus
 
-
-*See* [BD Agabus](https://www.churchofjesuschrist.org/study/scriptures/bd/agabus?lang=eng)
+*See also* [[BD Agabus.md|BD Agabus]]

@@ -1,11 +1,10 @@
 # Leprosy, Leper, Leprous
 
-
-*See also* [[Sickness, Sick.md|Sickness]]; [BD Leper](https://www.churchofjesuschrist.org/study/scriptures/bd/leper?lang=eng); [Leprosy](https://www.churchofjesuschrist.org/study/scriptures/bd/leprosy?lang=eng)
+*See also* [[Sickness.md|Sickness]]; [[BD Leper.md|BD Leper]]; [[BD Leprosy.md|BD Leprosy]]
 
 his hand was *leprous* as snow, [[Exodus 4.6|Exodus 4:6]].
 
-When a man shall have ... in the skin of his flesh like the plague of *leprosy*, [[Leviticus 13.2|Leviticus 13:2]].
+When a man shall have … in the skin of his flesh like the plague of *leprosy*, [[Leviticus 13.2|Leviticus 13:2]].
 
 This shall be the law of the *leper*, [[Leviticus 14.2|Leviticus 14:2]].
 
@@ -17,7 +16,7 @@ Miriam became *leprous*, [[Numbers 12.10|Numbers 12:10]].
 
 Take heed in the plague of *leprosy*, [[Deuteronomy 24.8|Deuteronomy 24:8]].
 
-Naaman ... was a *leper*, [[2 Kings 5.1|2 Kings 5:1]].
+Naaman … was a *leper*, [[2 Kings 5.1|2 Kings 5:1]].
 
 *leprosy* therefore of Naaman shall cleave unto thee, [[2 Kings 5.27|2 Kings 5:27]].
 
@@ -25,7 +24,7 @@ Lord smote the king, so that he was a *leper*, [[2 Kings 15.5|2 Kings 15:5]].
 
 Uzziah the king was a *leper*, [[2 Chronicles 26.21|2 Chronicles 26:21]].
 
-there came a *leper* and worshipped him, [[Matthew 8.2|Matthew 8:2]] ([[Matthew 8.2|8:2-4]][[Matthew 8.3|]][[Matthew 8.4|]]; [[Luke 5.12|Luke 5:12]]).
+there came a *leper* and worshipped him, [[Matthew 8.2|Matthew 8:2]] ([[Luke 5.12|Luke 5:12]]).
 
 Heal the sick, cleanse the *lepers*, [[Matthew 10.8|Matthew 10:8]].
 
@@ -37,4 +36,4 @@ many *lepers* were in Israel in the time of Eliseus, [[Luke 4.27|Luke 4:27]].
 
 ten men that were *lepers*, which stood afar off, [[Luke 17.12|Luke 17:12]].
 
-Have ye any that are ... *leprous*, [[3 Nephi 17.7|3 Nephi 17:7]].
+Have ye any that are … *leprous*, [[3 Nephi 17.7|3 Nephi 17:7]].

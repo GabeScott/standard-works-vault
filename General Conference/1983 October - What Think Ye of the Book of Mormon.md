@@ -1,6 +1,6 @@
 # What Think Ye of the Book of Mormon?
 
-By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -99,8 +99,6 @@ It came forth in our day proving to the world that the Bible is true; that Jesus
 It is the book that will save the world and prepare the sons of men for joy and peace here and now and everlasting life in eternity.
 
 As it happens, I am one of the many who have come to know, by the revelations of the Holy Ghost to my soul, that the Book of Mormon is true. And, knowing that I will be accountable for that witness before the bar of the great Jehovah when he judges all men, I testify that as he lives the Book of Mormon is true, in the name of Jesus Christ, amen.
-
-
 
 
 

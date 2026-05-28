@@ -1,11 +1,10 @@
 # Room
 
-
 *rooms* shalt thou make in the ark, [[Genesis 6.14|Genesis 6:14]].
 
-is there *room* in thy father's house, [[Genesis 24.23|Genesis 24:23]].
+is there *room* in thy father’s house, [[Genesis 24.23|Genesis 24:23]].
 
-A man's gift maketh *room* for him, [[Proverbs 18.16|Proverbs 18:16]].
+A man’s gift maketh *room* for him, [[Proverbs 18.16|Proverbs 18:16]].
 
 pour you out a blessing, that there shall not be *room* enough to receive it, [[Malachi 3.10|Malachi 3:10]] ([[3 Nephi 24.10|3 Nephi 24:10]]).
 

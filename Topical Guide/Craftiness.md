@@ -1,7 +1,6 @@
 # Craftiness
 
-
-*See also* [[Deceit, Deceive.md|Deceit]]; [[Guile.md|Guile]]; [[Subtlety, Subtilty.md|Subtlety]]
+*See also* [[Deceit.md|Deceit]]; [[Guile.md|Guile]]; [[Subtlety.md|Subtlety]]
 
 taketh the wise in their own *craftiness*, [[Job 5.13|Job 5:13]] ([[1 Corinthians 3.19|1 Corinthians 3:19]]).
 

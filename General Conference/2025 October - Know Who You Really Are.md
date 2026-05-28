@@ -1,6 +1,6 @@
 # Know Who You Really Are
 
-By Elder Brik V. Eyre - *Of the Seventy*
+By Elder Brik V. Eyre - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -18,17 +18,17 @@ After this woman was comforted, our daughter then used the scriptures to try and
 
 It is insightful that the first point of doctrine that our missionaries teach is that God is our loving Heavenly Father. Every subsequent truth builds on the foundational understanding of who we really are.[^1]
 
-Susan H. Porter, Primary General President, taught: “When you know and understand how completely you are loved as a child of God, it changes everything. It changes the way you feel about yourself when you make mistakes. It changes how you feel when difficult things happen. It changes your view of God’s commandments. It changes your view of others and of your capacity to make a difference.”[^2]
+Susan H. Porter, Primary General President, taught: “When you know and understand how completely you are loved as a child of God, it changes everything. It changes the way you feel about yourself when you make mistakes. It changes how you feel when difficult things happen. It changes your view of God’s commandments. It changes your view of others and of your capacity to make a difference.”[^2]
 
-This change is illustrated as we read about the experience Moses had when talking with God face-to-face. During that conversation, God repeatedly taught Moses of his divine heritage, saying, “Moses, … thou art my son.” God explained that Moses was in the similitude of His Only Begotten. Moses came to understand clearly who he was, that he had a work to do, and that he had a loving Heavenly Father.[^3]
+This change is illustrated as we read about the experience Moses had when talking with God face-to-face. During that conversation, God repeatedly taught Moses of his divine heritage, saying, “Moses, … thou art my son.” God explained that Moses was in the similitude of His Only Begotten. Moses came to understand clearly who he was, that he had a work to do, and that he had a loving Heavenly Father.[^3]
 
 After this experience, the adversary came tempting him and immediately addressed him by saying, “Moses, son of man.”[^4] This is a common and dangerous tool in the arsenal of the adversary. While our Heavenly Father consistently and lovingly reminds us that we are His children, the adversary will always try to label us by our weaknesses. But Moses had already learned that he was more than a “son of man.” He declared to Satan: “Who art thou? For behold, I am a son of God.”[^5] Similarly, when we are confronted with the challenges of mortality or when we feel like anyone is trying to label us by our weaknesses, we need to stand strong in the knowledge of who we truly are. We must seek validation vertically, not horizontally. And as we do, we too can boldly proclaim, “I am a child of God.”
 
-In a worldwide devotional for young adults, our beloved President Russell M. Nelson taught: “So who are you? First and foremost, you are a child of God, a child of the covenant, and a disciple of Jesus Christ. As you embrace these truths, our Heavenly Father will help you reach your ultimate goal of living eternally in His holy presence.”[^6]
+In a worldwide devotional for young adults, our beloved President Russell M. Nelson taught: “So who are you? First and foremost, you are a child of God, a child of the covenant, and a disciple of Jesus Christ. As you embrace these truths, our Heavenly Father will help you reach your ultimate goal of living eternally in His holy presence.”[^6]
 
 It is no coincidence that in likely the most repeated scripture, God reminds us of our relationship with Him. Of all the names He could be identified by in the sacrament prayer, He has asked to be called “God, the Eternal Father.”[^7]
 
-As we come to truly know who we are, we will believe more strongly that our loving Heavenly Father has provided a plan for us to return to live with Him again. Elder Patrick Kearon taught: “Our Father’s beautiful plan, even His ‘fabulous’ plan, is designed to bring you home, *not* to keep you out. … God is in relentless pursuit of you.”[^8] Think about that for a moment—our all-powerful, loving Father is in “relentless pursuit of you.”
+As we come to truly know who we are, we will believe more strongly that our loving Heavenly Father has provided a plan for us to return to live with Him again. Elder Patrick Kearon taught: “Our Father’s beautiful plan, even His ‘fabulous’ plan, is designed to bring you home, *not* to keep you out. … God is in relentless pursuit of you.”[^8] Think about that for a moment—our all-powerful, loving Father is in “relentless pursuit of you.”
 
 Regardless of where we are on our path of discipleship, our lives will fundamentally change if we better understand who we really are. May I suggest two ways in which we can deepen this understanding.
 
@@ -46,7 +46,7 @@ I realize that in the chaos of our lives, when we are wrestling with toddlers or
 
 There may be some who haven’t prayed for a long time or others who haven’t felt that their prayers are being heard. I promise you that your Heavenly Father knows you, loves you, and wants to hear from you. He wants to communicate with you. He wants you to remember who you are.
 
-Elder Jeffrey R. Holland recently taught: “However much you are praying, pray more. However hard you are praying, pray harder.”[^16]
+Elder Jeffrey R. Holland recently taught: “However much you are praying, pray more. However hard you are praying, pray harder.”[^16]
 
 In addition to increasing the frequency and fervency of our prayers, studying the Book of Mormon daily and worshipping in the temple will help prepare our minds for revelation. As we strive to improve our communication with our Heavenly Father, He will bless us to feel more profoundly that we are His children.
 
@@ -65,9 +65,9 @@ I testify that we have a loving Heavenly Father. As we come to know this eternal
 
 
 
-[^1]: See [Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/08-chapter-3-lesson-1?lang=eng&id=title4#title4) (2023), 31–34.
+[^1]: See [Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/08-chapter-3-lesson-1?lang=eng&id=title4#title4) (2023), 31–34.
 
-[^2]: Susan H. Porter, “[[2021 October - God’s Love - The Most Joyous to the Soul.md|God’s Love: The Most Joyous to the Soul]],” *Liahona*, Nov. 2021, 33.
+[^2]: Susan H. Porter, “[[2021 October - God’s Love - The Most Joyous to the Soul.md|God’s Love: The Most Joyous to the Soul]],” *Liahona*, Nov. 2021, 33.
 
 [^3]: See [[Moses 1.1|Moses 1:1–11]][[Moses 1.2|]][[Moses 1.3|]][[Moses 1.4|]][[Moses 1.5|]][[Moses 1.6|]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.9|]][[Moses 1.10|]][[Moses 1.11|]].
 
@@ -75,7 +75,7 @@ I testify that we have a loving Heavenly Father. As we come to know this eternal
 
 [^5]: [[Moses 1.13|Moses 1:13]].
 
-[^6]: Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+[^6]: Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
 
 [^7]: [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
 
@@ -89,18 +89,16 @@ I testify that we have a loving Heavenly Father. As we come to know this eternal
 
 [^12]: See [[Enos 1.3|Enos 1:3–4]][[Enos 1.4|]].
 
-[^13]: [[3 Nephi 13.6|3 Nephi 13:6]].
+[^13]: [[3 Nephi 13.6|3 Nephi 13:6]].
 
-[^14]: [[1 Kings 19.12|1 Kings 19:12]]; [[1 Nephi 17.45|1 Nephi 17:45]].
+[^14]: [[1 Kings 19.12|1 Kings 19:12]]; [[1 Nephi 17.45|1 Nephi 17:45]].
 
 [^15]: [[JST Matthew 4.1|Joseph Smith Translation, Matthew 4:1]] (in the Bible appendix).
 
-[^16]: Jeffrey R. Holland, meeting of the Quorum of the Twelve Apostles and the Quorums of the Seventy, Aug. 12, 2025.
+[^16]: Jeffrey R. Holland, meeting of the Quorum of the Twelve Apostles and the Quorums of the Seventy, Aug. 12, 2025.
 
-[^17]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^17]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
-[^18]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^18]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
-
-
-#Divine_Nature #God_The_Father #Jesus_Christ #Prayer
+#DivineNature #GodTheFather #JesusChrist #Prayer

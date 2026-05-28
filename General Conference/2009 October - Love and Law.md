@@ -30,7 +30,7 @@ These persons disbelieve eternal laws which they consider contrary to their conc
 
 ## II.
 
-First, consider the love of God, described so meaningfully this morning by President Dieter F. Uchtdorf. “Who shall separate us from the love of Christ?” the Apostle Paul asked. Not tribulation, not persecution, not peril or the sword (see [[Romans 8.35|Romans 8:35]]). “For I am persuaded,” he concluded, “that neither death, nor life, nor angels, nor principalities, nor powers, … nor any other creature, shall be able to separate us from the love of God” ([[Romans 8.38|verses 38–39]][[Romans 8.39|]]).
+First, consider the love of God, described so meaningfully this morning by President Dieter F. Uchtdorf. “Who shall separate us from the love of Christ?” the Apostle Paul asked. Not tribulation, not persecution, not peril or the sword (see [[Romans 8.35|Romans 8:35]]). “For I am persuaded,” he concluded, “that neither death, nor life, nor angels, nor principalities, nor powers, … nor any other creature, shall be able to separate us from the love of God” ([[Romans 8.38|verses 38–39]][[Romans 8.39|]]).
 
 There is no greater evidence of the infinite power and perfection of God’s love than is recorded by the Apostle John: “For God so loved the world, that he gave his only begotten Son” ([[John 3.16|John 3:16]]). Another Apostle wrote that God “spared not his own Son, but delivered him up for us all” ([[Romans 8.32|Romans 8:32]]). Think how it must have grieved our Heavenly Father to send His Son to endure incomprehensible suffering for our sins. That is the greatest evidence of His love for each of us!
 
@@ -40,7 +40,7 @@ Some seem to value God’s love because of their hope that His love is so great 
 
 We read again and again in the Bible and in modern scriptures of God’s anger with the wicked[^3] and of His acting in His wrath[^4] against those who violate His laws. How are anger and wrath evidence of His love? Joseph Smith taught that God “institute\[d\] laws whereby \[the spirits that He would send into the world\] could have a privilege to advance like himself.”[^5] God’s love is so perfect that He lovingly requires us to obey His commandments because He knows that only through obedience to His laws can we become perfect, as He is. For this reason, God’s anger and His wrath are not a *contradiction* of His love but an *evidence* of His love. Every parent knows that you can love a child totally and completely while still being creatively angry and disappointed at that child’s self-defeating behavior.
 
-The love of God is so universal that His perfect plan bestows many gifts on all of His children, even those who disobey His laws. Mortality is one such gift, bestowed on all who qualified in the War in Heaven.[^6] Another unconditional gift is the universal resurrection: “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Corinthians 15:22]]). Many other mortal gifts are not tied to our personal obedience to law. As Jesus taught, our Heavenly Father “maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust” ([[Matthew 5.45|Matthew 5:45]]).
+The love of God is so universal that His perfect plan bestows many gifts on all of His children, even those who disobey His laws. Mortality is one such gift, bestowed on all who qualified in the War in Heaven.[^6] Another unconditional gift is the universal resurrection: “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Corinthians 15:22]]). Many other mortal gifts are not tied to our personal obedience to law. As Jesus taught, our Heavenly Father “maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust” ([[Matthew 5.45|Matthew 5:45]]).
 
 If only we will listen, we can know of God’s love and feel it, even when we are disobedient. A woman recently returned to Church activity gave this description in a sacrament meeting talk: “He has always been there for me, even when I rejected Him. He has always guided me and comforted me with His tender mercies all around me, but I \[was\] too angry to see and accept incidents and feelings as such.”[^7]
 
@@ -84,9 +84,9 @@ To pose an even more serious question, if an adult child is living in cohabitati
 
 Where do parents draw the line? That is a matter for parental wisdom, guided by the inspiration of the Lord. There is no area of parental action that is more needful of heavenly guidance or more likely to receive it than the decisions of parents in raising their children and governing their families. This is the work of eternity.
 
-As parents grapple with these problems, they should remember the Lord’s teaching that we leave the ninety and nine and go out into the wilderness to rescue the lost sheep.[^11] President Thomas S. Monson has called for a loving crusade to rescue our brothers and sisters who are wandering in the wilderness of apathy or ignorance.[^12] These teachings require continued loving concern, which surely requires continued loving associations.
+As parents grapple with these problems, they should remember the Lord’s teaching that we leave the ninety and nine and go out into the wilderness to rescue the lost sheep.[^11] President Thomas S. Monson has called for a loving crusade to rescue our brothers and sisters who are wandering in the wilderness of apathy or ignorance.[^12] These teachings require continued loving concern, which surely requires continued loving associations.
 
-Parents should also remember the Lord’s frequent teaching that “whom the Lord loveth he chasteneth” ([[Hebrews 12.6|Hebrews 12:6]]).[^13] In his conference talk on tolerance and love, Elder Russell M. Nelson taught that “real love for the sinner may compel courageous confrontation—not acquiescence! Real love does not support self-destructing behavior.”[^14]
+Parents should also remember the Lord’s frequent teaching that “whom the Lord loveth he chasteneth” ([[Hebrews 12.6|Hebrews 12:6]]).[^13] In his conference talk on tolerance and love, Elder Russell M. Nelson taught that “real love for the sinner may compel courageous confrontation—not acquiescence! Real love does not support self-destructing behavior.”[^14]
 
 Wherever the line is drawn between the power of love and the force of law, the breaking of commandments is certain to impact loving family relationships. Jesus taught:
 
@@ -105,13 +105,13 @@ I testify of the truth of these things, which are part of the plan of salvation 
 
 
 
-[^1]: See Russell M. Nelson, “Divine Love,” *Liahona,* Feb. 2003, 12–17; *Ensign,* Feb. 2003, 20–25.
+[^1]: See Russell M. Nelson, “Divine Love,” *Liahona,* Feb. 2003, 12–17; *Ensign,* Feb. 2003, 20–25.
 
 [^2]: See [[Alma 42.25|Alma 42:25]].
 
 [^3]: See, for example, [[Judges 2.12|Judges 2:12–14]][[Judges 2.13|]][[Judges 2.14|]]; [[Psalms 7.11|Psalm 7:11]]; [[D&C 5.8|D&C 5:8]]; [[D&C 63.32|63:32]].
 
-[^4]: See, for example, [[2 Kings 23.26|2 Kings 23:26–27]][[2 Kings 23.27|]]; [[Ephesians 5.6|Ephesians 5:6]]; [[1 Nephi 22.16|1 Nephi 22:16–17]][[1 Nephi 22.17|]]; [[Alma 12.35|Alma 12:35–36]][[Alma 12.36|]]; [[D&C 84.24|D&C 84:24]].
+[^4]: See, for example, [[2 Kings 23.26|2 Kings 23:26–27]][[2 Kings 23.27|]]; [[Ephesians 5.6|Ephesians 5:6]]; [[1 Nephi 22.16|1 Nephi 22:16–17]][[1 Nephi 22.17|]]; [[Alma 12.35|Alma 12:35–36]][[Alma 12.36|]]; [[D&C 84.24|D&C 84:24]].
 
 [^5]: Joseph Smith, in *History of the Church,* 6:312.
 
@@ -127,12 +127,10 @@ I testify of the truth of these things, which are part of the plan of salvation 
 
 [^11]: See [[Luke 15.3|Luke 15:3–7]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]].
 
-[^12]: See Thomas S. Monson, “Lost Battalions,” *Tambuli,* Sept. 1987, 2–6; *Ensign,* Apr. 1987, 3–6.
+[^12]: See Thomas S. Monson, “Lost Battalions,” *Tambuli,* Sept. 1987, 2–6; *Ensign,* Apr. 1987, 3–6.
 
 [^13]: See also [[Proverbs 3.12|Proverbs 3:12]]; [[Revelation 3.19|Revelation 3:19]]; [[D&C 95.1|D&C 95:1]].
 
-[^14]: Russell M. Nelson, in Conference Report, Apr. 1994, 93; or *Ensign,* May 1994, 71.
+[^14]: Russell M. Nelson, in Conference Report, Apr. 1994, [[1994 April - “Teach Us Tolerance and Love”.md|93]]; or *Ensign,* May 1994, 71.
 
-
-
-#Commandments #Family #God_The_Father #Laws #Love
+#Commandments #Family #GodTheFather #Laws #Love

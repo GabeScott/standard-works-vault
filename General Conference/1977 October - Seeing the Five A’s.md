@@ -1,6 +1,6 @@
 # Seeing the Five A’s
 
-By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -87,8 +87,6 @@ When I left that morning I thought I had seen as clearly as I am capable of seei
 In the scriptures is a magnificent sermon in a single line, in which I interpolate an additional word: “For how shall I go up to my father, and the lad \[or lass\] be not with me?” ([[Genesis 44.34|Gen. 44:34]].)
 
 God bless us, young men and men, to be what God permits us and expects us to be. In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -22,7 +22,7 @@ One of those who traveled the Mormon Trail in 1847 referred to it as the “trai
 
 Those 19th-century pioneers to whom we pay special tribute during this sesquicentennial year never set out to be heroes, and yet they accomplished heroic things. That is what makes them Saints. They were a band of believers who tried to do the right thing for the right reasons, ordinary men and women who were called on to perform an extraordinary work. At times, they gave in to discouragement and allowed themselves to murmur and complain. But ultimately their faith in God and the man they sustained as their prophet and leader prevailed, and they righted their vision and attitudes along with their wagons. In the process they found joy amid the hardships and trials of the trek.
 
-Nearly seven years before the pioneer exodus to the mountains of Utah, William Clayton wrote to his fellow Saints in England, urging them to come to Zion, not realizing that Zion would soon be in wagons and handcarts moving west. He wrote: “Although we are … distant from each other I do not forget you. … But to the praise of God be it spoken, all I have endured has never hurt or discouraged me, but done me good. … We have sometimes been almost suffocated with heat … , sometimes almost froze with cold. We have had to sleep on boards, instead of feathers. … We have had our clothes wet through with no privilege of drying them or changing them, … had to sleep … out of doors, in very severe weather, and many such things which you \[have\] no idea of. … \[Yet\] we have been … healthy & cheerful. … If you will be faithful, *you have nothing to fear from the journey.* The Lord will take care of his saints.”[^1]
+Nearly seven years before the pioneer exodus to the mountains of Utah, William Clayton wrote to his fellow Saints in England, urging them to come to Zion, not realizing that Zion would soon be in wagons and handcarts moving west. He wrote: “Although we are … distant from each other I do not forget you. … But to the praise of God be it spoken, all I have endured has never hurt or discouraged me, but done me good. … We have sometimes been almost suffocated with heat … , sometimes almost froze with cold. We have had to sleep on boards, instead of feathers. … We have had our clothes wet through with no privilege of drying them or changing them, … had to sleep … out of doors, in very severe weather, and many such things which you \[have\] no idea of. … \[Yet\] we have been … healthy & cheerful. … If you will be faithful, *you have nothing to fear from the journey.* The Lord will take care of his saints.”[^1]
 
 William Clayton would later pen the lyrics to “Come, Come, Ye Saints” (*Hymns,* no. 30) during the trek across Iowa. He and a host of others would learn even more intimately during the 1,300-mile exodus to Utah that there is “nothing to fear from the journey” if faith is your constant companion.
 
@@ -53,6 +53,4 @@ At that moment, standing on the same hill from which the Willie Company first sa
 
 [^2]: As quoted in LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion: The Story of a Unique Western Migration, 1856–1860* (1960), 106–7.
 
-
-
-#Atonement #Faith #God_The_Father #Gratitude #Hope #Jesus_Christ #Joy #Love #Pioneers #Plan_Of_Salvation #Sin
+#Atonement #Faith #GodTheFather #Gratitude #Hope #Joy #JesusChrist #Love #Pioneers #PlanOfSalvation #Sin

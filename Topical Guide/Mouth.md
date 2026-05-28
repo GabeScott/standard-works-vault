@@ -1,9 +1,8 @@
 # Mouth
 
-
 *See also* [[Lip.md|Lip]]; [[Tongue.md|Tongue]]
 
-Lord said ... Who hath made man's *mouth*, [[Exodus 4.11|Exodus 4:11]].
+Lord said … Who hath made man’s *mouth*, [[Exodus 4.11|Exodus 4:11]].
 
 I will be with thy *mouth*, and teach thee, [[Exodus 4.12|Exodus 4:12]].
 
@@ -29,7 +28,7 @@ satisfied with good by the fruit of his *mouth*, [[Proverbs 12.14|Proverbs 12:14
 
 He that keepeth his *mouth* keepeth his life, [[Proverbs 13.3|Proverbs 13:3]].
 
-A fool's *mouth* is his destruction, [[Proverbs 18.7|Proverbs 18:7]].
+A fool’s *mouth* is his destruction, [[Proverbs 18.7|Proverbs 18:7]].
 
 Whoso keepeth his *mouth* and his tongue keepeth his soul, [[Proverbs 21.23|Proverbs 21:23]].
 
@@ -81,6 +80,6 @@ not well pleased, for they will not open their *mouths*, [[D&C 60.2|D&C 60:2]].
 
 he spake by the *mouth* of the serpent, [[Moses 4.7|Moses 4:7]].
 
-cursed from the earth which hath opened her *mouth* to receive thy brother's blood, [[Moses 5.36|Moses 5:36]].
+cursed from the earth which hath opened her *mouth* to receive thy brother’s blood, [[Moses 5.36|Moses 5:36]].
 
 Open thy *mouth*, and it shall be filled, [[Moses 6.32|Moses 6:32]] ([[Psalms 81.10|Psalms 81:10]]; [[D&C 33.8|D&C 33:8]]).

@@ -16,7 +16,7 @@ But there was more we could do for them, much more. We have a spiritual gift, th
 
 The light of the gospel of Jesus Christ is needed desperately in the far reaches of the earth. You young men who are here tonight need to prepare now for your future service. I would ask, which one of you knows what the Lord has in mind for you to do in the future? May I ask also, which of you may someday sit here in the Tabernacle in these red chairs on the rostrum? As unlikely as it may seem to you young men tonight, all of the General Authorities were boys once, much like you. Even I was your age once. No young man should aspire to a calling, but as surely as you are sitting in this priesthood meeting tonight, many of you will preside over wards, stakes, missions, quorums, and, of course, your own families. Priesthood training, my brethren, starts when a young man is ordained a deacon in the Aaronic Priesthood. You Aaronic Priesthood bearers need to understand that you are in training.
 
-Nephi had a good training plan. I recommend it to all of the boys here tonight: “And it came to pass that I, Nephi, being exceedingly young \[he was in his teens\], nevertheless being large in stature, *and also having great desires to know of the mysteries of God,* wherefore, I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father; wherefore, I did not rebel against him like unto my brothers.” ([[1 Nephi 2.16|1 Ne. 2:16]]; italics added.) The key, my brethren, was Nephi’s *desire* to “know of the mysteries of God.” You young men, fill your hearts with this *desire.*
+Nephi had a good training plan. I recommend it to all of the boys here tonight: “And it came to pass that I, Nephi, being exceedingly young \[he was in his teens\], nevertheless being large in stature, *and also having great desires to know of the mysteries of God,* wherefore, I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father; wherefore, I did not rebel against him like unto my brothers.” ([[1 Nephi 2.16|1 Ne. 2:16]]; italics added.) The key, my brethren, was Nephi’s *desire* to “know of the mysteries of God.” You young men, fill your hearts with this *desire.*
 
 Of all the training I have received in my Church assignments, none has been more important to me than the training I received as a nineteen-year-old elder serving a full-time mission in the British Isles. As I look back now, I can see that no training in my life was more important for what I am now doing in the Church than the training I received as a full-time missionary.
 
@@ -46,8 +46,6 @@ A wonderful chorus of missionaries sang to us yesterday these words:
 >
 
 May God bless all of you young men to desire to serve him is my humble prayer. In the name of Jesus Christ, amen.
-
-
 
 
 

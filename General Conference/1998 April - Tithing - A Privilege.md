@@ -20,11 +20,11 @@ The sacred significance of the law of tithing was confirmed by the Savior Himsel
 
 The Book of Mormon records that the Savior taught the Nephites from the scriptures they had, but spoke of other scriptures that they did not have, commanding them to write the words which the Father had given to Malachi, including these words:
 
-“Will a man rob God? Yet ye have robbed me. But ye say: Wherein have we robbed thee? In tithes and offerings. …
+“Will a man rob God? Yet ye have robbed me. But ye say: Wherein have we robbed thee? In tithes and offerings. …
 
-“Bring ye all the tithes into the storehouse, that there may be meat in my house; and prove me now herewith, saith the Lord of Hosts, if I will not open you the windows of heaven, and pour you out a blessing that there shall not be room enough to receive it” ([[3 Nephi 24.8|3 Ne. 24:8, 10]][[3 Nephi 24.10|]]).
+“Bring ye all the tithes into the storehouse, that there may be meat in my house; and prove me now herewith, saith the Lord of Hosts, if I will not open you the windows of heaven, and pour you out a blessing that there shall not be room enough to receive it” ([[3 Nephi 24.8|3 Ne. 24:8, 10]][[3 Nephi 24.10|]]).
 
-The Savior further emphasized the importance of this commandment to us when He said to the Nephites, “These scriptures, which ye had not with you, the Father commanded that I should give unto you; for it was wisdom in him that they should be given unto future generations” ([[3 Nephi 26.2|3 Ne. 26:2]]).
+The Savior further emphasized the importance of this commandment to us when He said to the Nephites, “These scriptures, which ye had not with you, the Father commanded that I should give unto you; for it was wisdom in him that they should be given unto future generations” ([[3 Nephi 26.2|3 Ne. 26:2]]).
 
 You and I are now among those generations given the privilege to know and to live the law of the tithe. The blessings that flow from obedience to that law are both temporal and spiritual, as many among us can testify.
 
@@ -69,8 +69,6 @@ Our prophet-leader, President Gordon B. Hinckley, has said: “I can testify con
 As one of those Church members, I add my own testimony. The blessings from living the principle of the tithe can bring peace of mind, increased faith, inspiration, and a desire to live more completely all of the commandments of our Heavenly Father.
 
 Finally, and most importantly, I testify that I know that God lives, is our Father, and loves us. Jesus of Nazareth is the Son of God and our Savior and Redeemer. Today we are led by a living prophet, Gordon B. Hinckley. In the name of Jesus Christ, amen.
-
-
 
 
 

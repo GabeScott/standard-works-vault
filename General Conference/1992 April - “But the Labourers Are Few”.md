@@ -26,9 +26,9 @@ Alma understood a basic fact of life. There is no way of caring for the problems
 
 From the Old Testament we find Ezekiel telling us that the Lord reproved those who did not help feed His sheep. We read:
 
-“My sheep wandered through all the mountains, and upon every high hill: yea, my flock was scattered upon all the face of the earth, and none did search or seek after them. …
+“My sheep wandered through all the mountains, and upon every high hill: yea, my flock was scattered upon all the face of the earth, and none did search or seek after them. …
 
-“… Neither did my shepherds search for my flock, but the shepherds fed themselves, and fed not my flock; …
+“… Neither did my shepherds search for my flock, but the shepherds fed themselves, and fed not my flock; …
 
 “\[And\] thus saith the Lord God; Behold I, even I, will both search my sheep, and seek them out” ([[Ezekiel 34.6|Ezek. 34:6, 8, 11]][[Ezekiel 34.8|]][[Ezekiel 34.11|]]).
 
@@ -48,7 +48,7 @@ History has recently recorded the words of a prophet calling for every worthy an
 
 As the numbers increase, the call of the prophet was again heard to open the doors of nations to the preaching of the gospel. We have all witnessed a miracle of the power of the united prayers of the Saints. Doors have been opened to the preaching of the gospel in nations never dreamed of or hoped for just a few years ago. Now the demand for increased numbers of full-time missionaries is greater than ever before. And again we issue the call for every worthy young man to heed the voice of the prophet to serve as a full-time missionary. We call on you bishops and branch presidents to see that every worthy and able young man has an opportunity to go forth into the mission field. Many of our young women have also served in the mission field. They have been some of the most productive missionaries we have.
 
-President Kimball made the following statement regarding young women serving: “Many young women have a desire to serve a full-time mission, and they are also welcome in the Lord’s service. This responsibility is not on them as it is on the elders, but they will receive rich blessings for their unselfish sacrifice. The Lord is pleased \[with\] their willingness to bring souls to him” (*President Kimball Speaks Out* \[Salt Lake City: Deseret Book Co., 1981\], p. 30).
+President Kimball made the following statement regarding young women serving: “Many young women have a desire to serve a full-time mission, and they are also welcome in the Lord’s service. This responsibility is not on them as it is on the elders, but they will receive rich blessings for their unselfish sacrifice. The Lord is pleased \[with\] their willingness to bring souls to him” (*President Kimball Speaks Out* \[Salt Lake City: Deseret Book Co., 1981\], p. 30).
 
 These valiant young men and young women go into the mission field bearing a strong witness of the mission of our Lord and Savior, giving true Christian service, and teaching with faith and conviction.
 
@@ -85,6 +85,4 @@ That this is His work in which we are engaged is my solemn witness to you in the
 
 
 
-
-
-#Missionary_Work #Service
+#MissionaryWork #Service

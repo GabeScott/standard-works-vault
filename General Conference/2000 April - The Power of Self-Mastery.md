@@ -81,7 +81,7 @@ Brethren, I testify with all my heart and soul that through the power of self-ma
 
 [^2]: In Angela Partington, ed., *The Oxford Dictionary of Quotations,* 4th ed. (1996), 368.
 
-[^3]: [[2 Corinthians 12.7|2 Cor. 12:7]].
+[^3]: [[2 Corinthians 12.7|2 Cor. 12:7]].
 
 [^4]: *The Meaning of Service* (1920), 83.
 
@@ -105,6 +105,4 @@ Brethren, I testify with all my heart and soul that through the power of self-ma
 
 [^14]: “Invictus. In Mem. R.T.H.B.,” as quoted in *The Oxford Dictionary of Quotations,* 332.
 
-
-
-#Adversity #Courage #Example #Freedom #General_Conference #Humility #Media #Missionary_Work #Morality #Priesthood #Scripture_Study #Self-Control #Spirituality
+#Adversity #Courage #Example #Freedom #GeneralConference #Humility #Media #MissionaryWork #Morality #Priesthood #ScriptureStudy #Self-control #Spirituality

@@ -1,7 +1,6 @@
 # Journey, Journeying
 
-
-three days' *journey* into the wilderness, [[Exodus 3.18|Exodus 3:18]].
+three days’ *journey* into the wilderness, [[Exodus 3.18|Exodus 3:18]].
 
 Thus were the *journeyings* of the children of Israel, [[Numbers 10.28|Numbers 10:28]].
 

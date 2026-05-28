@@ -29,6 +29,4 @@ There is a way for each ward through councils to reach out to all these men and 
 
 
 
-
-
 #Councils #Family #Home #Morality #Priesthood

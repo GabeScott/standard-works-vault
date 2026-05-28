@@ -1,7 +1,6 @@
 # Stir
 
-
-*See also* [[Kindle.md|Kindle]]; [[Provoking, Provoke.md|Provoking]]
+*See also* [[Kindle.md|Kindle]]; [[Provoking.md|Provoking]]
 
 every one whose heart *stirred* him up, [[Exodus 35.21|Exodus 35:21]].
 
@@ -39,11 +38,11 @@ his spirit was *stirred* in him, [[Acts 17.16|Acts 17:16]].
 
 *stir* up the gift of God, which is in thee, [[2 Timothy 1.6|2 Timothy 1:6]].
 
-*stir* you up ... in remembrance, [[2 Peter 1.13|2 Peter 1:13]].
+*stir* you up … in remembrance, [[2 Peter 1.13|2 Peter 1:13]].
 
 Laman *stir* up their hearts to anger, [[1 Nephi 16.38|1 Nephi 16:38]].
 
-Abinadi ... said these things that he might *stir* up my people, [[Mosiah 11.28|Mosiah 11:28]].
+Abinadi … said these things that he might *stir* up my people, [[Mosiah 11.28|Mosiah 11:28]].
 
 they did *stir* up the people to riotings, [[Alma 11.20|Alma 11:20]].
 

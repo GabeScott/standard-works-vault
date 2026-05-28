@@ -1,7 +1,6 @@
 # Mark
 
-
-*See also* [[Curse.md|Curse]]; [BD Mark](https://www.churchofjesuschrist.org/study/scriptures/bd/mark?lang=eng)
+*See also* [[Curse.md|Curse]]; [[BD Mark.md|BD Mark]]
 
 Lord set a *mark* upon Cain, [[Genesis 4.15|Genesis 4:15]] ([[Moses 5.40|Moses 5:40]]).
 
@@ -21,6 +20,6 @@ receive his *mark* in his forehead, [[Revelation 14.9|Revelation 14:9]] ([[Revel
 
 which blindness came by looking beyond the *mark*, [[Jacob 4.14|Jacob 4:14]].
 
-Amlicites ... had *marked* themselves with red, [[Alma 3.4|Alma 3:4]].
+Amlicites … had *marked* themselves with red, [[Alma 3.4|Alma 3:4]].
 
 Lord God set a *mark* upon them, [[Alma 3.7|Alma 3:7]].

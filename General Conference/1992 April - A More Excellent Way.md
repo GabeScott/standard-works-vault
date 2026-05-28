@@ -38,7 +38,7 @@ We need to walk more resolutely and more charitably the path that Jesus has show
 
 We have a feeling of appreciation that our women’s Relief Society organization, celebrating this year its sesquicentennial anniversary, has always had as its theme “Charity Never Faileth.” Charity encompasses all other godly virtues. It distinguishes both the beginning and the end of the plan of salvation. When all else fails, charity—Christ’s love—will *not* fail. It is the greatest of all divine attributes.
 
-Out of the abundance of his heart, Jesus spoke to the poor, the downtrodden, the widows, the little children; to farmers and fishermen and those who tended goats and sheep; to strangers and foreigners, the rich, the politically powerful, as well as the unfriendly Pharisees and scribes. He ministered to the poor, the hungry, the deprived, the sick. He blessed the lame, the blind, the deaf, and other people with physical disabilities. He drove out the demons and evil spirits that had caused mental or emotional illness. He purified those who were burdened with sin. He taught lessons of love and repeatedly demonstrated unselfish service to others. All were recipients of his love. All were “privileged the one like unto the other, and none \[were\] forbidden” ([[2 Nephi 26.28|2 Ne. 26:28]]). These are all expressions and examples of his unbounded charity.
+Out of the abundance of his heart, Jesus spoke to the poor, the downtrodden, the widows, the little children; to farmers and fishermen and those who tended goats and sheep; to strangers and foreigners, the rich, the politically powerful, as well as the unfriendly Pharisees and scribes. He ministered to the poor, the hungry, the deprived, the sick. He blessed the lame, the blind, the deaf, and other people with physical disabilities. He drove out the demons and evil spirits that had caused mental or emotional illness. He purified those who were burdened with sin. He taught lessons of love and repeatedly demonstrated unselfish service to others. All were recipients of his love. All were “privileged the one like unto the other, and none \[were\] forbidden” ([[2 Nephi 26.28|2 Ne. 26:28]]). These are all expressions and examples of his unbounded charity.
 
 The world in which we live would benefit greatly if men and women everywhere would exercise the pure love of Christ, which is kind, meek, and lowly. It is without envy or pride. It is selfless because it seeks nothing in return. It does not countenance evil or ill will, nor rejoice in iniquity; it has no place for bigotry, hatred, or violence. It refuses to condone ridicule, vulgarity, abuse, or ostracism. It encourages diverse people to live together in Christian love regardless of religious belief, race, nationality, financial standing, education, or culture.
 
@@ -58,13 +58,13 @@ Brother Vern Crowley said he learned an everlasting lesson in love that day. The
 
 A different way? A better way? A higher way? A more excellent way? Oh, how the world could benefit from such a magnificent lesson. As Moroni declares:
 
-“Wherefore, whoso believeth in God might with surety hope for a better world. …
+“Wherefore, whoso believeth in God might with surety hope for a better world. …
 
 “In the gift of his Son hath God prepared a more excellent way” ([[Ether 12.4|Ether 12:4, 11]][[Ether 12.11|]]).
 
 President David O. McKay once said:
 
-“The peace of Christ does not come by seeking the superficial things of life, neither does it come except as it springs from the individual’s heart. Jesus said to his disciples: ‘Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you’” (*Gospel Ideals* \[Salt Lake City: Improvement Era, 1953\], pp. 39–40).
+“The peace of Christ does not come by seeking the superficial things of life, neither does it come except as it springs from the individual’s heart. Jesus said to his disciples: ‘Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you’” (*Gospel Ideals* \[Salt Lake City: Improvement Era, 1953\], pp. 39–40).
 
 In all the realms of daily living and in a world of so much need, we should so live that one day we will hear the King of Kings say to us:
 
@@ -89,6 +89,4 @@ I add my witness that Jesus is the Christ, the Savior of the world, and that thi
 
 
 
-
-
-#Charity #Jesus_Christ #Love
+#Charity #JesusChrist #Love

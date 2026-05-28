@@ -1,6 +1,6 @@
 # Fear Not: Believe Only!
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/04/23holland?lang=eng)
 
-I direct my remarks today to the young people of the Church, meaning anyone President Russell M. Nelson’s age or younger. I seldom use visuals, but I can’t resist sharing this one.
+I direct my remarks today to the young people of the Church, meaning anyone President Russell M. Nelson’s age or younger. I seldom use visuals, but I can’t resist sharing this one.
 
 This *cri de coeur* comes from my eight-year-old friend Marin Arnold, written when she was seven. I will translate for you her early reformed Egyptian:
 
@@ -31,7 +31,7 @@ Given our current times, it is understandable if the idealism of the young is wa
 
 My plea today to our youth, and to you parents and adults who advise them, is to begin your search for happiness by embracing the bounty we have already received from the giver of every good gift.[^5] At precisely the moment many in the world are asking deep questions of the soul, we ought to be answering with the “good news”[^6] of the gospel of Jesus Christ. The Church of Jesus Christ of Latter-day Saints, which holds aloft the mission and message of the Savior of the world, offers the most eternally significant way to both find good and do good at such a needful time.
 
-President Russell M. Nelson has said that this generation of young people has the capacity to have “more impact \[for good\] on the world than any previous generation.”[^7] We, of all people, should be “sing\[ing\] the song of redeeming love,”[^8] but that takes discipline—“discipleship,” if you will—the kind that guards against negative attitudes and destructive habits that would pull us off-key as we try to sing that song of eternal salvation.
+President Russell M. Nelson has said that this generation of young people has the capacity to have “more impact \[for good\] on the world than any previous generation.”[^7] We, of all people, should be “sing\[ing\] the song of redeeming love,”[^8] but that takes discipline—“discipleship,” if you will—the kind that guards against negative attitudes and destructive habits that would pull us off-key as we try to sing that song of eternal salvation.
 
 Even as we stay “on the sunny side of the street,”[^9] we do run into that fellow from time to time who is determined to find something bleak and dismal about everything. You know his motto: “It is always darkest just before it goes pitch-black.” What a malignant vision, and what a miserable existence! Yes, we might sometimes want to run away from where we are, but we certainly should never run away from who we are—children of the living God who loves us, who is always ready to forgive us, and who will never, ever forsake us. You are His most precious possession. You are His child, to whom He has given prophets and promises, spiritual gifts and revelations, miracles and messages, and angels on both sides of the veil.[^10]
 
@@ -58,33 +58,33 @@ Someone who faced circumstances far more desperate than you and I ever will once
 
 
 
-[^1]: Marin Arnold, in email to Jeffrey R. Holland, Feb. 11, 2022, used with permission.
+[^1]: Marin Arnold, in email to Jeffrey R. Holland, Feb. 11, 2022, used with permission.
 
-[^2]: Kailash Satyarthi, in “Thoughts on Being Young,” *Forbes India*, Feb. 25, 2021, forbesindia.com.
+[^2]: Kailash Satyarthi, in “Thoughts on Being Young,” *Forbes India*, Feb. 25, 2021, forbesindia.com.
 
-[^3]: David Marchese, “Yale’s Happiness Professor Says Anxiety Is Destroying Her Students,” *New York Times Magazine*, Feb. 18, 2022, nytimes.com.
+[^3]: David Marchese, “Yale’s Happiness Professor Says Anxiety Is Destroying Her Students,” *New York Times Magazine*, Feb. 18, 2022, nytimes.com.
 
 [^4]: David Marchese, “Yale’s Happiness Professor Says Anxiety Is Destroying Her Students.”
 
 [^5]: See [[James 1.17|James 1:17]]; see also [[Moroni 10.5|Moroni 10:5–20]][[Moroni 10.6|]][[Moroni 10.7|]][[Moroni 10.8|]][[Moroni 10.9|]][[Moroni 10.10|]][[Moroni 10.11|]][[Moroni 10.12|]][[Moroni 10.13|]][[Moroni 10.14|]][[Moroni 10.15|]][[Moroni 10.16|]][[Moroni 10.17|]][[Moroni 10.18|]][[Moroni 10.19|]][[Moroni 10.20|]].
 
-[^6]: Bible Dictionary, “[Gospels](https://churchofjesuschrist.org/study/scriptures/bd/gospels?lang=eng).”
+[^6]: Bible Dictionary, “[[BD Gospels|Gospels]].”
 
-[^7]: Russell M. Nelson, “[A Personal Invitation to Participate in Seminary and Institute](https://www.churchofjesuschrist.org/si/seminary/personal-invitation-to-seminary-and-institute),” Feb. 4, 2019, ChurchofJesusChrist.org.
+[^7]: Russell M. Nelson, “[A Personal Invitation to Participate in Seminary and Institute](https://www.churchofjesuschrist.org/si/seminary/personal-invitation-to-seminary-and-institute),” Feb. 4, 2019, ChurchofJesusChrist.org.
 
 [^8]: [[Alma 5.26|Alma 5:26]].
 
 [^9]: This phrase is taken from a 1930s popular jazz song titled “On the Sunny Side of the Street,” with lyrics by Dorothy Fields (see “On the Sunny Side of the Street,” Jazz Standards, jazzstandards.com).
 
-[^10]: See Jeffrey R. Holland, “[[2008 October - The Ministry of Angels.md|The Ministry of Angels]],” *Ensign* or *Liahona*, Nov. 2008, 29–31.
+[^10]: See Jeffrey R. Holland, “[[2008 October - The Ministry of Angels.md|The Ministry of Angels]],” *Ensign* or *Liahona*, Nov. 2008, 29–31.
 
-[^11]: [[1 Peter 3.15|1 Peter 3:15]].
+[^11]: [[1 Peter 3.15|1 Peter 3:15]].
 
 [^12]: See [[Matthew 16.24|Matthew 16:24]]; [[Mark 10.21|Mark 10:21]]; [[Luke 9.23|Luke 9:23]].
 
-[^13]: See, for example, [[Exodus 13.21|Exodus 13:21–22]][[Exodus 13.22|]]; [[Amos 3.7|Amos 3:7]]; [[1 Nephi 8.24|1 Nephi 8:24, 30]][[1 Nephi 8.30|]]; [[2 Nephi 9.41|2 Nephi 9:41]].
+[^13]: See, for example, [[Exodus 13.21|Exodus 13:21–22]][[Exodus 13.22|]]; [[Amos 3.7|Amos 3:7]]; [[1 Nephi 8.24|1 Nephi 8:24, 30]][[1 Nephi 8.30|]]; [[2 Nephi 9.41|2 Nephi 9:41]].
 
-[^14]: See [[Matthew 5.15|Matthew 5:15–16]][[Matthew 5.16|]]; [[3 Nephi 12.15|3 Nephi 12:15–16]][[3 Nephi 12.16|]].
+[^14]: See [[Matthew 5.15|Matthew 5:15–16]][[Matthew 5.16|]]; [[3 Nephi 12.15|3 Nephi 12:15–16]][[3 Nephi 12.16|]].
 
 [^15]: “Jesus Wants Me for a Sunbeam,” *Children’s Songbook*, 60–61.
 
@@ -94,7 +94,8 @@ Someone who faced circumstances far more desperate than you and I ever will once
 
 [^18]: [[D&C 88.13|Doctrine and Covenants 88:13]]; see also [[D&C 88.6|verses 6–12]][[D&C 88.7|]][[D&C 88.8|]][[D&C 88.9|]][[D&C 88.10|]][[D&C 88.11|]][[D&C 88.12|]].
 
-[^19]: See [[Mosiah 16.9|Mosiah 16:9]]; [[3 Nephi 9.18|3 Nephi 9:18]]; [[3 Nephi 11.11|11:11]]; [[Ether 4.12|Ether 4:12]]; see also [[John 8.12|John 8:12]].
+[^19]: See [[Mosiah 16.9|Mosiah 16:9]]; [[3 Nephi 9.18|3 Nephi 9:18]]; [[3 Nephi 11.11|11:11]]; [[Ether 4.12|Ether 4:12]]; see also [[John 8.12|John 8:12]].
 
+[^20]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-#Adversity #Fear #Hope #Jesus_Christ #Light_Of_Christ #Suicide #Youth
+#Adversity #Fear #Hope #JesusChrist #LightOfChrist #Suicide #Youth

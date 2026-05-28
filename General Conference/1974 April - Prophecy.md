@@ -22,7 +22,7 @@ Jesus said, “Search the scriptures; for in them ye think ye have eternal life:
 
 Following his resurrection, as he walked along the way by two of his disciples as they were on their way to Emmaus, we are told that “their eyes were holden that they should not know him” ([[Luke 24.16|Luke 24:16]]), and when he heard what they had to say about him and his ministry and his resurrection, he realized that they didn’t understand what he had been trying to teach them.
 
-And he said: “… O fools, and slow of heart to believe all that the prophets have spoken.” ([[Luke 24.25|Luke 24:25]].) Then, commencing with Moses and the prophets, he showed them how that in all things the prophets had testified of him. Then Peter tells us that he opened their understandings (that is, the understandings of his disciples with whom he was traveling) that they might understand the scriptures. We have thousands of different churches in the world today because they do not understand the scriptures and they are teaching for doctrine the precepts of men, and therefore it was necessary for a restoration to take place.
+And he said: “… O fools, and slow of heart to believe all that the prophets have spoken.” ([[Luke 24.25|Luke 24:25]].) Then, commencing with Moses and the prophets, he showed them how that in all things the prophets had testified of him. Then Peter tells us that he opened their understandings (that is, the understandings of his disciples with whom he was traveling) that they might understand the scriptures. We have thousands of different churches in the world today because they do not understand the scriptures and they are teaching for doctrine the precepts of men, and therefore it was necessary for a restoration to take place.
 
 I like the words of the apostle Peter. He said:
 
@@ -30,11 +30,11 @@ I like the words of the apostle Peter. He said:
 
 “Knowing this first, that no prophecy of the scripture is of any private interpretation.
 
-“For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.19|2 Pet. 1:19–21]][[2 Peter 1.20|]][[2 Peter 1.21|]].)
+“For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.19|2 Pet. 1:19–21]][[2 Peter 1.20|]][[2 Peter 1.21|]].)
 
 That being true, we have a more sure word of prophecy that makes the Bible to me like a blueprint where the Lord has outlined everything from the war in heaven up till the final winding-up scenes when we will have a new heaven and a new earth. I think that is what Isaiah meant when he said that the Lord has declared the end from the beginning. (See [[Isaiah 46.10|Isa. 46:10]].)
 
-Peter must have also had in his mind the glorious experience that he had just previously had with the other apostles when the Savior ascended into heaven and two men in white apparel stood and said: “… Ye men of Galilee, why stand ye gazing up into heaven? this same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven.” ([[Acts 1.11|Acts 1:11]].)
+Peter must have also had in his mind the glorious experience that he had just previously had with the other apostles when the Savior ascended into heaven and two men in white apparel stood and said: “… Ye men of Galilee, why stand ye gazing up into heaven? this same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven.” ([[Acts 1.11|Acts 1:11]].)
 
 Then I have this thought that I would like to say a few words about, and that is, not only should we prepare our own lives to be ready when the Savior comes, like the five wise virgins, but think of what the prophets have foretold that should precede his second coming, so that we will not be in the dark and so that we can understand.
 
@@ -50,7 +50,7 @@ I don’t know where you can go anywhere in this world, outside of this Church, 
 
 I like the statement in Malachi. It seems to me that Malachi’s whole book was written almost entirely regarding our day and time: about the law of tithing that Elder Taylor just mentioned; about the coming of Elijah the prophet before the coming of the great and dreadful day of the Lord to turn the hearts of the fathers to the children and the hearts of the children to their fathers. In the third chapter, he starts out by saying,
 
-“Behold, I will send my messenger, and he shall prepare the way before me: and the Lord, whom ye seek, shall suddenly come to his temple. …
+“Behold, I will send my messenger, and he shall prepare the way before me: and the Lord, whom ye seek, shall suddenly come to his temple. …
 
 “But who may abide the day of his coming? and who shall stand when he appeareth? for he is like a refiner’s fire, and like fullers’ soap.” ([[Malachi 3.1|Mal. 3:1–2]][[Malachi 3.2|]].)
 
@@ -58,13 +58,13 @@ Now I don’t think that was referring to his first coming. He didn’t come swi
 
 Then I say to you, and to all the world, where is that messenger that the Lord, speaking through Malachi, said he would send to prepare the way for his coming (and I refer to his second coming)? To us Latter-day Saints, we know that messenger was none other than the Prophet Joseph Smith. He didn’t choose himself. He went out into the woods after reading the words of James, “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.” ([[James 1.5|James 1:5]].) He didn’t know which church to join, and when he prayed, the heavens were opened unto him.
 
-President Kimball has outlined in one of his talks in this conference how the Lord communed with the prophets of old. God isn’t dead. He reigns in the heavens above and in the earth beneath. This is his work and his glory. This is the dispensation when, as Paul said, “… he might gather together in one all things in Christ, both which are in heaven, and which are on earth. …” ([[Ephesians 1.10|Eph. 1:10]].) In other words, it is the time when he shall finish his work upon this earth preparatory to his second coming. And so if he was to send a messenger to prepare the way for his coming, where in all the world can you find that messenger?
+President Kimball has outlined in one of his talks in this conference how the Lord communed with the prophets of old. God isn’t dead. He reigns in the heavens above and in the earth beneath. This is his work and his glory. This is the dispensation when, as Paul said, “… he might gather together in one all things in Christ, both which are in heaven, and which are on earth. …” ([[Ephesians 1.10|Eph. 1:10]].) In other words, it is the time when he shall finish his work upon this earth preparatory to his second coming. And so if he was to send a messenger to prepare the way for his coming, where in all the world can you find that messenger?
 
-I remind you that messengers sent of God are never self-sent. Paul said: “… faith cometh by hearing, and hearing by the word of God.” ([[Romans 10.17|Rom. 10:17]].)
+I remind you that messengers sent of God are never self-sent. Paul said: “… faith cometh by hearing, and hearing by the word of God.” ([[Romans 10.17|Rom. 10:17]].)
 
-“… and how shall they believe in him of whom they have not heard? and how shall they hear without a preacher?
+“… and how shall they believe in him of whom they have not heard? and how shall they hear without a preacher?
 
-“And how shall they preach, except they be sent? …” ([[Romans 10.14|Rom. 10:14–15]][[Romans 10.15|]].)
+“And how shall they preach, except they be sent? …” ([[Romans 10.14|Rom. 10:14–15]][[Romans 10.15|]].)
 
 And so the call of Joseph Smith as the Lord’s promised messenger was the natural first step the Lord would take to prepare the way for his second coming. A messenger called by God can be none other than a prophet. That is what Amos said: “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].) And so when he called this messenger, he would be a prophet.
 
@@ -82,7 +82,7 @@ As far as my experience goes in studying the scriptures, Joseph Smith has given 
 
 “Wherefore the Lord said, Forasmuch as this people draw near me with their mouth, and with their lips do honour me, but have removed their heart far from me, and their fear toward me is taught by the precept of men.” ([[Isaiah 29.13|Isa. 29:13]].) And where do you find those precepts of men? In all these thousands of churches all over this world.
 
-“Therefore, behold, I will proceed to do a marvellous work among this people, even a marvellous work and a wonder. …” ([[Isaiah 29.14|Isa. 29:14]].) And anything that is marvelous and wonderful in the eyes of the Lord must be something that every lover of truth would like to know about and like to clasp to his bosom. Then he added that it would cause that “the wisdom of their wise men shall perish, and the understanding of their prudent men shall be hid.” ([[Isaiah 29.14|Isa. 29:14]].) That is what we have. I have talked to ministers for hours and only received one question from them, because I was explaining things to them out of God’s holy book, the Bible, that they had never understood before in their lives. I tell you, brothers and sisters, we have that marvelous work and a wonder!
+“Therefore, behold, I will proceed to do a marvellous work among this people, even a marvellous work and a wonder. …” ([[Isaiah 29.14|Isa. 29:14]].) And anything that is marvelous and wonderful in the eyes of the Lord must be something that every lover of truth would like to know about and like to clasp to his bosom. Then he added that it would cause that “the wisdom of their wise men shall perish, and the understanding of their prudent men shall be hid.” ([[Isaiah 29.14|Isa. 29:14]].) That is what we have. I have talked to ministers for hours and only received one question from them, because I was explaining things to them out of God’s holy book, the Bible, that they had never understood before in their lives. I tell you, brothers and sisters, we have that marvelous work and a wonder!
 
 You would think that if the Lord raised up a prophet and a messenger to prepare the way for his coming, the first thing he would want that messenger to do would be to correct the false impressions in the world with regard to the personality of God the Father and his Son Jesus Christ. For at that time all churches taught that they were three in one, without body, without parts, and without passions.
 
@@ -108,11 +108,9 @@ Through Jeremiah the Lord said:
 
 “Behold, I will send for many fishers, saith the Lord, and they shall fish them; and after will I send for many hunters, and they shall hunt them from every mountain, and from every hill, and out of the holes of the rocks.” ([[Jeremiah 16.16|Jer. 16:16]].) That is what we have been doing. He saw the day when “it shall no more be said, The Lord liveth, that brought up the children of Israel out of the land of Egypt;
 
-“But, The Lord liveth, that brought up the children of Israel from the land of the north, and from all the lands whither he had driven them …” ([[Jeremiah 16.14|Jer. 16:14–15]][[Jeremiah 16.15|]]), and, as he said, “… one of a city, and two of a family. …” ([[Jeremiah 3.14|Jer. 3:14]].) That accounts for many of you being at this great conference that is being held here today.
+“But, The Lord liveth, that brought up the children of Israel from the land of the north, and from all the lands whither he had driven them …” ([[Jeremiah 16.14|Jer. 16:14–15]][[Jeremiah 16.15|]]), and, as he said, “… one of a city, and two of a family. …” ([[Jeremiah 3.14|Jer. 3:14]].) That accounts for many of you being at this great conference that is being held here today.
 
 God bless you, brothers and sisters. I don’t know why we should hesitate to raise our voices in testimony. To me it is the marvelous work and a wonder spoken of, it is the greatest movement in all this world. When everything else passes away like the dream of a night’s vision, this church, this kingdom, will go on to its decreed destiny, and that is my witness and testimony to you in the name of the Lord Jesus Christ. Amen.
-
-
 
 
 

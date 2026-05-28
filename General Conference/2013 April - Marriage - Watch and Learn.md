@@ -1,6 +1,6 @@
 # Marriage: Watch and Learn
 
-By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
+By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -20,9 +20,9 @@ Faith is the foundation of every virtue that strengthens marriage. Strengthening
 
 Third, repentance. I have learned that happy marriages rely on the gift of repentance. It is an essential element in every good marital relationship. Spouses who regularly conduct honest self-examination and promptly take needed steps to repent and improve experience a healing balm in their marriages. Repentance helps restore and maintain harmony and peace.
 
-Humility is the essence of repentance. Humility is selfless, not selfish. It doesn’t demand its own way or speak with moral superiority. Instead, humility answers softly[^2] and listens kindly for understanding, not vindication. Humility recognizes that no one can change someone else, but with faith, effort, and the help of God, *we* can undergo *our own* mighty change of heart.[^3] Experiencing the mighty change of heart causes us to treat others, especially our spouses, with meekness.[^4] Humility means that both husbands and wives seek to bless, help, and lift each other, putting the other first in every decision. Watch and learn: repentance and humility build happy marriages.
+Humility is the essence of repentance. Humility is selfless, not selfish. It doesn’t demand its own way or speak with moral superiority. Instead, humility answers softly[^2] and listens kindly for understanding, not vindication. Humility recognizes that no one can change someone else, but with faith, effort, and the help of God, *we* can undergo *our own* mighty change of heart.[^3] Experiencing the mighty change of heart causes us to treat others, especially our spouses, with meekness.[^4] Humility means that both husbands and wives seek to bless, help, and lift each other, putting the other first in every decision. Watch and learn: repentance and humility build happy marriages.
 
-Fourth, respect. I have observed that in wonderful, happy marriages, husbands and wives treat each other as equal partners. Practices from any place or any time in which husbands have dominated wives or treated them in any way as second-class partners in marriage are not in keeping with divine law and should be replaced by correct principles and patterns of behavior.
+Fourth, respect. I have observed that in wonderful, happy marriages, husbands and wives treat each other as equal partners. Practices from any place or any time in which husbands have dominated wives or treated them in any way as second-class partners in marriage are not in keeping with divine law and should be replaced by correct principles and patterns of behavior.
 
 Husbands and wives in great marriages make decisions unanimously, with each of them acting as a full participant and entitled to an equal voice and vote.[^5] They focus first on the home and on helping each other with their shared responsibilities.[^6] Their marriages are based on cooperation, not negotiation. Their dinner hour and the family time that follows become the center of their day and the object of their best efforts. They turn off electronics and forgo personal entertainment in order to help with household duties. To the extent possible, they read with their children every night and both participate in putting the little ones to bed. They retire to their bed together. As their duties and circumstances permit, husbands and wives work side by side in doing the most important work there is—the work we do in our own homes.
 
@@ -32,7 +32,7 @@ Loyalty is a form of respect. Prophets teach that successful marriage partners a
 
 Fifth, love. The happiest marriages I have seen radiate obedience to one of the happiest commandments—that we “live together in love.”[^8] Speaking to husbands, the Lord commanded, “Thou shalt love thy wife with all thy heart, and shalt cleave unto her and none else.”[^9] A Church handbook teaches: “The word *cleave* means to be completely devoted and faithful to someone. Married couples cleave to God and one another by serving and loving each other and by keeping covenants in complete fidelity to one another and to God.” Both the husband and wife “leave behind their single life and establish their marriage as \[their\] first priority. … They allow no other person or interest to have greater priority … than keeping the covenants they have made with God and each other.”[^10] Watch and learn: successful couples love each other with complete devotion.
 
-There are those whose marriages are not as happy as they would wish, as well as those who have never married, are divorced, are single parents, or for various reasons are not in a position to marry. These circumstances can be full of challenge and heartbreak, but they need not be eternal. To those of you in such situations who nevertheless “cheerfully do all things that lie in \[your\] power”[^11] to persevere, may heaven bless you richly. Seek after the ideal of forming an eternal marriage, including by striving or preparing to be a worthy spouse. Keep the commandments, and trust the Lord and His perfect love for you. One day every promised blessing concerning marriage will be yours.[^12]
+There are those whose marriages are not as happy as they would wish, as well as those who have never married, are divorced, are single parents, or for various reasons are not in a position to marry. These circumstances can be full of challenge and heartbreak, but they need not be eternal. To those of you in such situations who nevertheless “cheerfully do all things that lie in \[your\] power”[^11] to persevere, may heaven bless you richly. Seek after the ideal of forming an eternal marriage, including by striving or preparing to be a worthy spouse. Keep the commandments, and trust the Lord and His perfect love for you. One day every promised blessing concerning marriage will be yours.[^12]
 
 One of the sweetest verses in the Book of Mormon states simply, “And they were married, and given in marriage, and were blessed according to the multitude of the promises which the Lord had made unto them.”[^13] The promises of the Lord are extended to all those who follow the pattern of life that builds happy, holy marriage relationships. Such blessings come as the delightful, predictable consequences of faithfully living the gospel of Jesus Christ.
 
@@ -55,7 +55,7 @@ Marriage is a gift from God to us; the quality of our marriages is a gift from u
 
 [^6]: See “The Family: A Proclamation to the World,” 129.
 
-[^7]: See Thomas S. Monson, “Priesthood Power,” *Ensign* or *Liahona,* May 2011, 68; Gordon B. Hinckley, “Life’s Obligations,” *Ensign,* Feb. 1999, 4; *Liahona,* May 1999, 4.
+[^7]: See Thomas S. Monson, “Priesthood Power,” *Ensign* or *Liahona,* May 2011, 68; Gordon B. Hinckley, “Life’s Obligations,” *Ensign,* Feb. 1999, 4; *Liahona,* May 1999, 4.
 
 [^8]: [[D&C 42.45|Doctrine and Covenants 42:45]].
 
@@ -67,8 +67,6 @@ Marriage is a gift from God to us; the quality of our marriages is a gift from u
 
 [^12]: See *Handbook 2,* 1.3.3.
 
-[^13]: [[4 Nephi 1.11|4 Nephi 1:11]].
+[^13]: [[4 Nephi 1.11|4 Nephi 1:11]].
 
-
-
-#Faith #Family #Humility #Love #Loyalty #Marriage #Repentance #Respect
+#Faith #Family #Humility #Loyalty #Love #Marriage #Repentance #Respect

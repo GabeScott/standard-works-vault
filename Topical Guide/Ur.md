@@ -1,4 +1,3 @@
 # Ur
 
-
-*See* [BD Ur](https://www.churchofjesuschrist.org/study/scriptures/bd/ur?lang=eng)
+*See also* [[BD Ur.md|BD Ur]]

@@ -12,7 +12,7 @@ Fortunately for us, God has provided modern scripture, another testament, even t
 
 Throughout the ages prophets have exhorted the people to make up their minds. “Choose you this day whom ye will serve,” pled Joshua. ([[Joshua 24.15|Josh. 24:15]].)
 
-Elijah thundered, “How long halt ye between two opinions? if the Lord be God, follow him.” ([[1 Kings 18.21|1 Kgs. 18:21]].)
+Elijah thundered, “How long halt ye between two opinions? if the Lord be God, follow him.” ([[1 Kings 18.21|1 Kgs. 18:21]].)
 
 When you choose to follow Christ, you choose the Way, the Truth, the Life—the right way, the saving truth, the abundant life. (See [[John 14.6|John 14:6]].)
 
@@ -20,13 +20,13 @@ When you choose to follow Christ, you choose the Way, the Truth, the Life—the 
 
 When you choose to follow Christ, you choose to be changed.
 
-“No man,” said President David O. McKay, “can sincerely resolve to apply in his daily life the teachings of Jesus of Nazareth without sensing a change in his own nature. The phrase ‘born again’ has a deeper significance than many people attach to it. This *changed feeling* may be indescribable, *but it is real.*” (In Conference Report, Apr. 1962, p. 7.)
+“No man,” said President David O. McKay, “can sincerely resolve to apply in his daily life the teachings of Jesus of Nazareth without sensing a change in his own nature. The phrase ‘born again’ has a deeper significance than many people attach to it. This *changed feeling* may be indescribable, *but it is real.*” (In Conference Report, Apr. 1962, p. 7.)
 
 Can human hearts be changed? Why, of course! It happens every day in the great missionary work of the Church. It is one of the most widespread of Christ’s modern miracles. If it hasn’t happened to you—it should.
 
-Our Lord told Nicodemus that “except a man be born again, he cannot see the kingdom of God.” ([[John 3.3|John 3:3]].) Of these words President Kimball said, “This is the simple total answer to the weightiest of all questions. … To gain eternal life there must be a rebirth, a transformation.” (In Conference Report, Apr. 1958, p. 14.)
+Our Lord told Nicodemus that “except a man be born again, he cannot see the kingdom of God.” ([[John 3.3|John 3:3]].) Of these words President Kimball said, “This is the simple total answer to the weightiest of all questions. … To gain eternal life there must be a rebirth, a transformation.” (In Conference Report, Apr. 1958, p. 14.)
 
-President McKay said that Christ called for “an entire revolution” of Nicodemus’s “inner man.” “His manner of thinking, feeling, and acting with reference to spiritual things would have to undergo a fundamental and permanent change.” (In Conference Report, Apr. 1960, p. 26.)
+President McKay said that Christ called for “an entire revolution” of Nicodemus’s “inner man.” “His manner of thinking, feeling, and acting with reference to spiritual things would have to undergo a fundamental and permanent change.” (In Conference Report, Apr. 1960, p. 26.)
 
 Besides the physical ordinance of baptism and the laying on of hands, one must be spiritually born again to gain exaltation and eternal life.
 
@@ -52,17 +52,17 @@ The Lord works from the inside out. The world works from the outside in. The wor
 
 “Human nature *can* be changed, here and now,” said President McKay, and then he quoted the following:
 
-“‘You can change human nature. No man who has felt in him the Spirit of Christ even for half a minute can deny this truth. …
+“‘You can change human nature. No man who has felt in him the Spirit of Christ even for half a minute can deny this truth. …
 
 “‘You do change human nature, your own human nature, if you surrender it to Christ. Human nature can be changed here and now. Human nature has been changed in the past. Human nature must be changed on an enormous scale in the future, unless the world is to be drowned in its own blood. And only Christ can change it.
 
-“‘Twelve men did quite a lot to change the world \[nineteen hundred\] years ago. Twelve simple men.’” (Quoting Beverly Nichols, in *Stepping Stones to an Abundant Life,* comp. Llewelyn R. McKay, Salt Lake City: Deseret Book, 1971, pp. 23, 127.)
+“‘Twelve men did quite a lot to change the world \[nineteen hundred\] years ago. Twelve simple men.’” (Quoting Beverly Nichols, in *Stepping Stones to an Abundant Life,* comp. Llewelyn R. McKay, Salt Lake City: Deseret Book, 1971, pp. 23, 127.)
 
 Yes, Christ changes men, and changed men can change the world.
 
-Men changed for Christ will be captained by Christ. Like Paul they will be asking, “Lord, what wilt thou have me to do?” ([[Acts 9.6|Acts 9:6]].) Peter stated, they will “follow his steps.” ([[1 Peter 2.21|1 Pet. 2:21]].) John said they will “walk, even as he walked.” ([[1 John 2.6|1 Jn. 2:6]].)
+Men changed for Christ will be captained by Christ. Like Paul they will be asking, “Lord, what wilt thou have me to do?” ([[Acts 9.6|Acts 9:6]].) Peter stated, they will “follow his steps.” ([[1 Peter 2.21|1 Pet. 2:21]].) John said they will “walk, even as he walked.” ([[1 John 2.6|1 Jn. 2:6]].)
 
-Finally, men captained by Christ will be consumed in Christ. To paraphrase President Harold B. Lee, they set fire in others because they are on fire. (See *Stand Ye in Holy Places,* Salt Lake City: Deseret Book Co., 1974, p. 192.)
+Finally, men captained by Christ will be consumed in Christ. To paraphrase President Harold B. Lee, they set fire in others because they are on fire. (See *Stand Ye in Holy Places,* Salt Lake City: Deseret Book Co., 1974, p. 192.)
 
 Their will is swallowed up in His will. (See [[John 5.30|John 5:30]].)
 
@@ -80,7 +80,7 @@ They have Christ in their hearts as their affections are placed on Him forever. 
 
 Almost every week they partake of the sacrament and witness anew to their Eternal Father that they are willing to take upon them the name of His Son, always remember Him, and keep His commandments. (See [[Moroni 4.3|Moro. 4:3]].)
 
-In Book of Mormon language, they “feast upon the words of Christ” ([[2 Nephi 32.3|2 Ne. 32:3]]), “talk of Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]), “rejoice in Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]), “are made alive in Christ” ([[2 Nephi 25.25|2 Ne. 25:25]]), and “glory in \[their\] Jesus” ([[2 Nephi 33.6|2 Ne. 33:6]]).
+In Book of Mormon language, they “feast upon the words of Christ” ([[2 Nephi 32.3|2 Ne. 32:3]]), “talk of Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]), “rejoice in Christ” ([[2 Nephi 25.26|2 Ne. 25:26]]), “are made alive in Christ” ([[2 Nephi 25.25|2 Ne. 25:25]]), and “glory in \[their\] Jesus” ([[2 Nephi 33.6|2 Ne. 33:6]]).
 
 In short, they lose themselves in the Lord, and find eternal life. (See [[Luke 17.33|Luke 17:33]].)
 
@@ -94,7 +94,7 @@ President David O. McKay tells of a singular event that happened to him. After f
 
 “*These Are They Who Have Overcome the World—Who Have Truly Been Born Again!*
 
-“When I awoke, it was breaking day.” (*Cherished Experiences from the Writings of President David O. McKay,* comp. Clare Middlemiss, Salt Lake City: Deseret Book Co., 1976, pp. 59–60.)
+“When I awoke, it was breaking day.” (*Cherished Experiences from the Writings of President David O. McKay,* comp. Clare Middlemiss, Salt Lake City: Deseret Book Co., 1976, pp. 59–60.)
 
 When we awake and are born of God, a new day will break and Zion will be redeemed.
 
@@ -103,6 +103,4 @@ May we be convinced that Jesus is the Christ, choose to follow Him, be changed f
 
 
 
-
-
-#Jesus_Christ #Repentance
+#JesusChrist #Repentance

@@ -8,11 +8,11 @@ By Elder Loren C. Dunn - *Of the Seventy*
 
 Since the restoration of the gospel there has been given at this pulpit and in many other places the most marvelous array of direct testimony to the divine mission of the Redeemer that possibly has ever been recorded.
 
-The law of witnesses has always been a part of the Lord’s work on earth. This law states that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Cor. 13:1]]; see also [[Deuteronomy 17.6|Deut. 17:6]]; [[Deuteronomy 19.15|19:15]]; [[Matthew 18.15|Matt. 18:15–16]][[Matthew 18.16|]]; [[John 8.12|John 8:12–29]][[John 8.13|]][[John 8.14|]][[John 8.15|]][[John 8.16|]][[John 8.17|]][[John 8.18|]][[John 8.19|]][[John 8.20|]][[John 8.21|]][[John 8.22|]][[John 8.23|]][[John 8.24|]][[John 8.25|]][[John 8.26|]][[John 8.27|]][[John 8.28|]][[John 8.29|]]). This witness confirms that certain events took place and that God-given doctrine and principles are true.
+The law of witnesses has always been a part of the Lord’s work on earth. This law states that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Cor. 13:1]]; see also [[Deuteronomy 17.6|Deut. 17:6]]; [[Deuteronomy 19.15|19:15]]; [[Matthew 18.15|Matt. 18:15–16]][[Matthew 18.16|]]; [[John 8.12|John 8:12–29]][[John 8.13|]][[John 8.14|]][[John 8.15|]][[John 8.16|]][[John 8.17|]][[John 8.18|]][[John 8.19|]][[John 8.20|]][[John 8.21|]][[John 8.22|]][[John 8.23|]][[John 8.24|]][[John 8.25|]][[John 8.26|]][[John 8.27|]][[John 8.28|]][[John 8.29|]]). This witness confirms that certain events took place and that God-given doctrine and principles are true.
 
 The first duty of a witness is to testify. A person who can testify to the truths of the restored gospel of Jesus Christ is speaking of things he or she knows to be true. With the Lord and His true witnesses there is truth that reaches beyond worldly understanding. Paul understood this when he said: “Now we have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God.
 
-“Which things also we speak, not in the words which man’s wisdom teacheth, but which the Holy Ghost teacheth; comparing spiritual things with spiritual” ([[1 Corinthians 2.12|1 Cor. 2:12–13]][[1 Corinthians 2.13|]]).
+“Which things also we speak, not in the words which man’s wisdom teacheth, but which the Holy Ghost teacheth; comparing spiritual things with spiritual” ([[1 Corinthians 2.12|1 Cor. 2:12–13]][[1 Corinthians 2.13|]]).
 
 I was just a young boy when I sat in a stake conference in the Tooele Utah Stake, listening carefully to the visitor. He was LeGrand Richards, and he preached the gospel in his warm and spiritual way. That positive experience has stayed with me. I don’t remember what he said, but I do know how I felt as he spoke. I learned later that I felt that way because I was listening to a special witness of Jesus Christ. I knew he knew, and somehow my roots grew deeper that day as to truths of the gospel.
 
@@ -22,9 +22,9 @@ There were many who saw the great miracles and heard the teachings of the Savior
 
 With the calling of the Twelve by the Savior, there was instituted the calling of the special witnesses of Christ.
 
-The Prophet Joseph, referring to the resurrection of the Lord, said, “God raised Him from the dead, and we (the apostles) are His witnesses … , and so is the Holy Ghost, whom God ha\[s\] given to \[all those who\] obey Him” (*History of the Church,* 2:19).
+The Prophet Joseph, referring to the resurrection of the Lord, said, “God raised Him from the dead, and we (the apostles) are His witnesses … , and so is the Holy Ghost, whom God ha\[s\] given to \[all those who\] obey Him” (*History of the Church,* 2:19).
 
-Every person who receives baptism into the Church and has received and felt the confirmation of the Spirit through the gift of the Holy Ghost stands as a witness “of God at all times and in all things, and in all places” ([[Mosiah 18.9|Mosiah 18:9]]). When partaking of the sacrament, that person renews that witness to take the Savior’s name, keep His commandments, and remember Him. A person so moved by the Spirit not only knows these things himself, but the Spirit carries them into the hearts of others. This is the basis of the Church’s great missionary effort. “For when a man speaketh by the power of the Holy Ghost the power of the Holy Ghost carrieth it unto the hearts of the children of men” ([[2 Nephi 33.1|2 Ne. 33:1]]).
+Every person who receives baptism into the Church and has received and felt the confirmation of the Spirit through the gift of the Holy Ghost stands as a witness “of God at all times and in all things, and in all places” ([[Mosiah 18.9|Mosiah 18:9]]). When partaking of the sacrament, that person renews that witness to take the Savior’s name, keep His commandments, and remember Him. A person so moved by the Spirit not only knows these things himself, but the Spirit carries them into the hearts of others. This is the basis of the Church’s great missionary effort. “For when a man speaketh by the power of the Holy Ghost the power of the Holy Ghost carrieth it unto the hearts of the children of men” ([[2 Nephi 33.1|2 Ne. 33:1]]).
 
 The witness of the Holy Ghost is even more compelling than the witness of sight. As members of the Church, we become witnesses of the Savior and the truthfulness of this work not only in word but also in keeping our covenants and in how we treat others and in how we live our everyday lives.
 
@@ -38,7 +38,7 @@ The Three Witnesses to the Book of Mormon—Oliver Cowdery, David Whitmer, and M
 
 Said Wilford Woodruff from this Tabernacle: “Joseph Smith was what he professed to be, a prophet of God, a seer and revelator. He … lived long enough to deliver the keys of the kingdom … unto the Twelve Apostles. … The foundation that he laid we have built upon” (in *Journal of Discourses,* 13:164).
 
-And said David O. McKay, whose life reached from some of those who began this work to some of us serving today and who were called by him: “I have an abiding testimony that the Father and the Son appeared to the Prophet Joseph Smith, and revealed through him the Gospel of Jesus Christ. … Godhood, Brotherhood, Service—these three guiding principles in the Christ\[like\] life permeate all our Church activity” (in Joseph E. Cardon and Samuel O. Bennion, comps., *Testimonies of the Divinity of the Church of Jesus Christ of Latter-day Saints by Its Leaders* \[Independence, Mo.: Zion’s Printing and Publishing Co., 1930\], p. 178).
+And said David O. McKay, whose life reached from some of those who began this work to some of us serving today and who were called by him: “I have an abiding testimony that the Father and the Son appeared to the Prophet Joseph Smith, and revealed through him the Gospel of Jesus Christ. … Godhood, Brotherhood, Service—these three guiding principles in the Christ\[like\] life permeate all our Church activity” (in Joseph E. Cardon and Samuel O. Bennion, comps., *Testimonies of the Divinity of the Church of Jesus Christ of Latter-day Saints by Its Leaders* \[Independence, Mo.: Zion’s Printing and Publishing Co., 1930\], p. 178).
 
 And from our living Prophet-President, Gordon B. Hinckley: “I have a testimony of the living reality of the Son of God, Jesus Christ, my Savior and my Redeemer, the Jehovah of the Old Testament, the Messiah of the New Testament. … Because of His atoning sacrifice, … each of us, if we will walk in obedience to His truths, may go on to exaltation and an eternal life beyond our ability at this stage to understand or comprehend. He is my Redeemer, my Lord, my Savior, my King, my friend” (Vacaville–Santa Rosa California Regional Conference, priesthood leadership session, 20 May 1995).
 
@@ -51,6 +51,4 @@ And to that witness I would add my own witness as to the truthfulness of this wo
 
 
 
-
-
-#Holy_Ghost #Jesus_Christ #Missionary_Work #Ordinances #Restoration #Sacrament #Testimony
+#HolyGhost #JesusChrist #MissionaryWork #Ordinances #Restoration #Sacrament #Testimony

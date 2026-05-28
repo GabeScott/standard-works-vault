@@ -1,13 +1,12 @@
 # Low, Lower, Lowest
 
-
 thou shalt come down very *low*, [[Deuteronomy 28.43|Deuteronomy 28:43]].
 
 he bringeth *low*, and lifteth up, [[1 Samuel 2.7|1 Samuel 2:7]].
 
 made priests of the *lowest* of the people, [[1 Kings 12.31|1 Kings 12:31]].
 
-made him a little *lower* than the angels, [[Psalms 8.5|Psalms 8:5]] ([[Hebrews 2.7|Hebrews 2:7]], [[Hebrews 2.9|Hebrews 2:9]]).
+made him a little *lower* than the angels, [[Psalms 8.5|Psalms 8:5]] ([[Hebrews 2.7|Hebrews 2:7]]; [[Hebrews 2.9|Hebrews 2:9]]).
 
 remembered us in our *low* estate, [[Psalms 136.23|Psalms 136:23]].
 
@@ -35,7 +34,7 @@ many mountains laid *low*, [[Helaman 14.23|Helaman 14:23]].
 
 now exalted of itself shall be laid *low* of power, [[D&C 49.10|D&C 49:10]].
 
-call upon the rich, the high and the *low* ... to repent, [[D&C 58.47|D&C 58:47]].
+call upon the rich, the high and the *low* … to repent, [[D&C 58.47|D&C 58:47]].
 
 poor shall be exalted, in that the rich are made *low*, [[D&C 104.16|D&C 104:16]].
 

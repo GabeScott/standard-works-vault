@@ -1,4 +1,3 @@
 # Humble
 
-
-*See* [[Abase.md|Abase]]; [[Humility, Humble.md|Humility]]; [[Lowly.md|Lowly]]; [[Meek, Meekness.md|Meek]]
+*See also* [[Abase.md|Abase]]; [[Humility.md|Humility]]; [[Lowly.md|Lowly]]; [[Meek.md|Meek]]

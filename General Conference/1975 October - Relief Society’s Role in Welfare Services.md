@@ -1,6 +1,6 @@
 # Relief Society’s Role in Welfare Services
 
-By Barbara B. Smith - *Relief Society General President*
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -12,7 +12,7 @@ I am pleased to represent the feminine half of the Church family in this meeting
 
 The Relief Society plays a very important role in Welfare Services. By mandate of the Lord through his prophets, the Relief Society has been given an assignment to assist in planning and implementing the Welfare Services program. To fulfill our welfare stewardship, the Relief Society works with the priesthood at every level in the Church. The general presidency of the Relief Society works with the Presiding Bishopric; a called stake Relief Society president works with the area and region priesthood Welfare Services leaders; the stake Relief Society presidency works with the stake presidency; and the ward Relief Society presidency works with the ward bishopric.
 
-In a Relief Society conference held in 1946, Harold B. Lee, then of the Council of the Twelve, told of a survey conducted in the early days of the welfare plan among those needing welfare assistance. It was found in the families of those surveyed that most of the fathers were *not* highly skilled workmen and their wives *did not* possess many of the homemaking and home managerial proficiencies that could help them take care of the resources available to families. Few had learned the skills that would help them be independent. (See *Relief Society Magazine,* Dec. 1946, pp. 809–17.)
+In a Relief Society conference held in 1946, Harold B. Lee, then of the Council of the Twelve, told of a survey conducted in the early days of the welfare plan among those needing welfare assistance. It was found in the families of those surveyed that most of the fathers were *not* highly skilled workmen and their wives *did not* possess many of the homemaking and home managerial proficiencies that could help them take care of the resources available to families. Few had learned the skills that would help them be independent. (See *Relief Society Magazine,* Dec. 1946, pp. 809–17.)
 
 If we are to succeed in carrying out the Welfare Services program of family preparedness, it is necessary for women to develop the qualities of industry, thrift, independence, work, and prudence—qualities which, if applied, will help to fortify individuals and families with a secure feeling of self-reliance against the day of need.
 
@@ -53,6 +53,4 @@ I testify to you that we will rejoice in the opportunity to serve in this great 
 
 
 
-
-
-#Relief_Society #Welfare
+#ReliefSociety #Welfare

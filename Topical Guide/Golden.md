@@ -1,6 +1,5 @@
 # Golden
 
-
 Break off the *golden* earrings, [[Exodus 32.2|Exodus 32:2]].
 
 nor worship the *golden* image, [[Daniel 3.18|Daniel 3:18]].

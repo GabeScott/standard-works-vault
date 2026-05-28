@@ -5,5 +5,5 @@
 [Judges 6:11](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/6.11?lang=eng#p11)
 
 
-[^a]: OR belonged.
-[^b]: HEB in the winepress.
+[^a]: OR belonged.  
+[^b]: HEB in the winepress.  

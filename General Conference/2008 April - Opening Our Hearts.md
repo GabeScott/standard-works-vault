@@ -12,7 +12,7 @@ Today I should like to speak on the importance of opening our hearts to the Holy
 
 After baptism we are confirmed and given the Holy Ghost. This is a supernal gift. The Holy Ghost comforts, teaches, warns, enlightens, and inspires us. Nephi put it very simply: “If ye will enter in by the way, and receive the Holy Ghost, it will show unto you all things what ye should do.”[^1] We need the help of the Holy Ghost if we are to make our way safely through what the Apostle Paul called the “perilous times”[^2] in which we now live.
 
-The Holy Ghost is a personage of spirit, which allows Him to dwell in our hearts and communicate directly with our spirits.[^3] The voice of the Spirit is described as still and small and one that whispers.[^4] How can a voice be still? Why is it likened to a whisper? Because the Spirit almost always speaks to our minds and to our hearts[^5] rather than to our ears. President Boyd K. Packer has said, “The Holy Ghost speaks with a voice that you *feel* more than you *hear.*”[^6]
+The Holy Ghost is a personage of spirit, which allows Him to dwell in our hearts and communicate directly with our spirits.[^3] The voice of the Spirit is described as still and small and one that whispers.[^4] How can a voice be still? Why is it likened to a whisper? Because the Spirit almost always speaks to our minds and to our hearts[^5] rather than to our ears. President Boyd K. Packer has said, “The Holy Ghost speaks with a voice that you *feel* more than you *hear.*”[^6]
 
 We feel things in our hearts. In the scriptures, the prophets teach that personal revelation is closely linked to the heart. For example:
 
@@ -30,7 +30,7 @@ The heart is a tender place. It is sensitive to many influences, both positive a
 
 In some cases the fence we erect around our hearts could be likened to a small picket fence with a Welcome sign on the gate. Other hearts have been so hurt or so deadened by sin that they have an eight-foot (2.5-m) chain-link fence topped with razor wire around them. The gate is padlocked and has a large No Trespassing sign on it.
 
-Let us apply the idea of a gateway to the heart to receiving personal revelation. Nephi taught, “When a man speaketh by the power of the Holy Ghost the power of the Holy Ghost carrieth it *unto* the hearts of the children of men.”[^11] Elder David A. Bednar noted the use of the word *unto:* “Please notice how the power of the Spirit carries the message *unto* but not necessarily *into* the heart. … Ultimately, … the content of a message and the witness of the Holy Ghost penetrate into the heart only if a receiver allows them to enter.”[^12]
+Let us apply the idea of a gateway to the heart to receiving personal revelation. Nephi taught, “When a man speaketh by the power of the Holy Ghost the power of the Holy Ghost carrieth it *unto* the hearts of the children of men.”[^11] Elder David A. Bednar noted the use of the word *unto:* “Please notice how the power of the Spirit carries the message *unto* but not necessarily *into* the heart. … Ultimately, … the content of a message and the witness of the Holy Ghost penetrate into the heart only if a receiver allows them to enter.”[^12]
 
 Why just *unto* the heart? Individual agency is so sacred that Heavenly Father will never force the human heart, even with all His infinite power. Man may try to do so, but God does not. To put it another way, God allows us to be the guardians, or the gatekeepers, of our own hearts. We must, of our own free will, open our hearts to the Spirit, for He will not force Himself upon us.
 
@@ -44,7 +44,7 @@ While in Liberty Jail, the Prophet Joseph Smith received a revelation that descr
 
 “Because their hearts are set so much upon the things of this world, and aspire to the honors of men.”[^15]
 
-Many in the world now live in prosperous and peaceful circumstances. In the Book of Mormon, prosperity often led the people away from the Lord. Mormon warned, “We may see at the very time when he doth prosper his people, yea, in the increase of their fields, their flocks and their herds, and in gold, and in silver, and in all manner of precious things of every kind and art … , then is the time that they do harden their hearts, and do forget the Lord their God.”[^16]
+Many in the world now live in prosperous and peaceful circumstances. In the Book of Mormon, prosperity often led the people away from the Lord. Mormon warned, “We may see at the very time when he doth prosper his people, yea, in the increase of their fields, their flocks and their herds, and in gold, and in silver, and in all manner of precious things of every kind and art … , then is the time that they do harden their hearts, and do forget the Lord their God.”[^16]
 
 The Lord noted three natural consequences of having one’s heart set on the things of the world: First, we seek to hide our sins instead of repenting of them. Next, we seek to gratify our pride and vain ambitions rather than seeking the things of God. Finally, we begin to exercise unrighteous dominion over others.[^17]
 
@@ -63,9 +63,9 @@ May we ever ask Christ to strengthen our hearts and fill them with His love is m
 
 
 
-[^1]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^1]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
-[^2]: [[2 Timothy 3.1|2 Timothy 3:1]].
+[^2]: [[2 Timothy 3.1|2 Timothy 3:1]].
 
 [^3]: See [[D&C 8.2|D&C 8:2]].
 
@@ -73,7 +73,7 @@ May we ever ask Christ to strengthen our hearts and fill them with His love is m
 
 [^5]: See [[D&C 8.2|D&C 8:2]].
 
-[^6]: Boyd K. Packer, in Conference Report, Oct. 1994, 77; or *Ensign,* Nov. 1994, 60.
+[^6]: Boyd K. Packer, in Conference Report, Oct. 1994, [[1994 October - Personal Revelation - The Gift, the Test, and the Promise.md|77]]; or *Ensign,* Nov. 1994, 60.
 
 [^7]: [[Moroni 8.26|Moroni 8:26]].
 
@@ -83,7 +83,7 @@ May we ever ask Christ to strengthen our hearts and fill them with His love is m
 
 [^10]: [[Psalms 34.18|Psalm 34:18]].
 
-[^11]: [[2 Nephi 33.1|2 Nephi 33:1]]; emphasis added.
+[^11]: [[2 Nephi 33.1|2 Nephi 33:1]]; emphasis added.
 
 [^12]: David A. Bednar, “Seek Learning by Faith,” *Liahona,* Sept. 2007, 17; *Ensign,* Sept. 2007, 61.
 
@@ -107,6 +107,4 @@ May we ever ask Christ to strengthen our hearts and fill them with His love is m
 
 [^22]: [[Philippians 4.13|Philippians 4:13]].
 
-
-
-#Holy_Ghost #Morality #Spirituality
+#HolyGhost #Morality #Spirituality

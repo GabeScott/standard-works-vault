@@ -14,7 +14,7 @@ Three times the voice of the Lord came to him, with the same response. Then the 
 
 The lad’s answer, as before, is a classic example for you and me. He responded: “Speak; for thy servant heareth.
 
-“And the Lord said to Samuel, Behold, I will do a thing in Israel, at which both the ears of every one that heareth it shall tingle” (see [[1 Samuel 3.1|1 Sam. 3:1–11]][[1 Samuel 3.2|]][[1 Samuel 3.3|]][[1 Samuel 3.4|]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]][[1 Samuel 3.11|]]).
+“And the Lord said to Samuel, Behold, I will do a thing in Israel, at which both the ears of every one that heareth it shall tingle” (see [[1 Samuel 3.1|1 Sam. 3:1–11]][[1 Samuel 3.2|]][[1 Samuel 3.3|]][[1 Samuel 3.4|]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]][[1 Samuel 3.11|]]).
 
 Most of you young men will one day receive a call to serve a mission. How I pray that your response will be as was Samuel’s: “Here am I. … Speak; for thy servant heareth.” Then will heavenly help be yours. Every missionary strives to be the missionary his mother thinks he is, the missionary his father hopes he is—even the missionary the Lord knows he can become.
 
@@ -24,7 +24,7 @@ Yes, sometimes expectations of those who love us are a bit beyond our capacity. 
 
 Upon returning to Salt Lake City, I discovered that a proposed temple for South Africa had already been approved and was to be announced immediately. When this occurred, I received a telegram from our members in South Africa. It read, “Thank you, Elder Monson. We knew you could do it!” You know, I believe I never did convince them that though I approved of the proposal, I did not bring it about.
 
-Every call to serve is a human drama in the life of the recipient. I am certain that such has been the case with each of the Brethren who earlier today were sustained as new General Authorities. Let me share with you some marvelous lessons from the life of one of these Brethren, Jay E. Jensen, as recently reported in the *Church News* (“Spiritual Foundation Set Early in Life,” 8 Aug. 1992, pp. 6, 14).
+Every call to serve is a human drama in the life of the recipient. I am certain that such has been the case with each of the Brethren who earlier today were sustained as new General Authorities. Let me share with you some marvelous lessons from the life of one of these Brethren, Jay E. Jensen, as recently reported in the *Church News* (“Spiritual Foundation Set Early in Life,” 8 Aug. 1992, pp. 6, 14).
 
 Elder Jensen speaks of turning points in his life. His spiritual awakening began when he was a small boy growing up in Mapleton, Utah. His parents held family night long before it became a Church program. He recalled that his father read to him lessons from the Book of Mormon. His mother’s deep love for books also had a favorable impact on her son. However, it was when he read for himself Joseph Smith’s account of the First Vision that the witness of its truth became a reality.
 
@@ -76,9 +76,13 @@ Time will permit but a glance at several heartwarming accounts pertaining to thi
 
 2. Zack, a young man age nineteen, who is now in the Missionary Training Center, accompanied a truckload of food, clothing, etc., sent by our members in central Georgia to help the victims of the hurricane. As Zack was leaving, his mother gave him some Cabbage Patch and other treasured dolls from her prized collection. Zack took particular pleasure in distributing those dolls to solemn-eyed little girls whose other toys were all destroyed.
 
-3. A brother from St. Anthony, Idaho, and other leaders in that area saw the terrible devastation suffered by the people of south Florida as the account appeared on television. They felt a compelling need to do something to help those who had been stricken. A decision was soon made to send an eighteen-wheeler filled with Idaho potatoes to Florida. The truck was loaded with boxes and sacks of potatoes and moved swiftly across the country to the site of the disaster.The potatoes arrived in excellent condition. The missionaries unloaded the potatoes and soon divided them. It was amazing how welcome the potatoes were to the people of south Florida. They were so tired of eating fast foods that the potatoes were described as tasting almost like a dessert. In less than three days, all of the potatoes were distributed to members and nonmembers alike. Hearts were tender, stomachs warmed by the kindness of those marvelous members in Idaho who had sent the potatoes.
+3. A brother from St. Anthony, Idaho, and other leaders in that area saw the terrible devastation suffered by the people of south Florida as the account appeared on television. They felt a compelling need to do something to help those who had been stricken. A decision was soon made to send an eighteen-wheeler filled with Idaho potatoes to Florida. The truck was loaded with boxes and sacks of potatoes and moved swiftly across the country to the site of the disaster.
 
-4. Typical of the feelings experienced by those who put everything aside in their personal lives and rushed to the aid of their brothers and sisters are those expressed by a couple from Huntsville, Alabama. They wrote:“\[Our\] second day \[at the scene of the hurricane’s devastation\] was Sunday, but it seemed as crucial that we hurry with the work as it was for those who left the Salt Lake Valley on Sunday to rescue the handcart pioneers in dire straits. On the football and athletic fields of a high school that was our campground, each stake group held its own sacrament \[and\] testimony meeting before leaving for another day of work. We sang songs we knew. The sacrament was blessed and passed by priesthood holders in work clothes. We partook of the bread from frying pans and the water from picnic cups. The Spirit was still there. Due to a one-hour time limit for the meeting, not all who wanted could bear their \[testimonies\]. The closing song, ‘I Am a Child of God,’ reminded us we needed to push on to help His children.”
+The potatoes arrived in excellent condition. The missionaries unloaded the potatoes and soon divided them. It was amazing how welcome the potatoes were to the people of south Florida. They were so tired of eating fast foods that the potatoes were described as tasting almost like a dessert. In less than three days, all of the potatoes were distributed to members and nonmembers alike. Hearts were tender, stomachs warmed by the kindness of those marvelous members in Idaho who had sent the potatoes.
+
+4. Typical of the feelings experienced by those who put everything aside in their personal lives and rushed to the aid of their brothers and sisters are those expressed by a couple from Huntsville, Alabama. They wrote:
+
+“\[Our\] second day \[at the scene of the hurricane’s devastation\] was Sunday, but it seemed as crucial that we hurry with the work as it was for those who left the Salt Lake Valley on Sunday to rescue the handcart pioneers in dire straits. On the football and athletic fields of a high school that was our campground, each stake group held its own sacrament \[and\] testimony meeting before leaving for another day of work. We sang songs we knew. The sacrament was blessed and passed by priesthood holders in work clothes. We partook of the bread from frying pans and the water from picnic cups. The Spirit was still there. Due to a one-hour time limit for the meeting, not all who wanted could bear their \[testimonies\]. The closing song, ‘I Am a Child of God,’ reminded us we needed to push on to help His children.”
 
 5. One Spanish-speaking brother and his wife approached Elder Alexander Morrison, Area President for the North America Southeast Area, and said, “I have lost my life’s savings. I have lost my home, my farm; all my avocados are destroyed. I have nothing.” And then he smiled sweetly and said, “But I have everything. I have the gospel of Jesus Christ.”
 
@@ -99,8 +103,6 @@ To this divine truth I testify as I leave my witness with you that this work is 
 
 
 
-[^1]: *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), pp. 469–70.
+[^1]: *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), pp. 469–70.
 
-
-
-#Missionary_Work #Priesthood #Service
+#MissionaryWork #Priesthood #Service

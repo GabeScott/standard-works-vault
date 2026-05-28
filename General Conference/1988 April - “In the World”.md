@@ -18,7 +18,7 @@ Our prophets of this day have encouraged us to be mindful of our obligations whi
 
 “The solution of the great world problems is here in the Church of Jesus Christ. Ample provision is made not only for the needs of individuals, but also for the nation and groups of nations. I realize that it is a great claim. … It is simply the application of God’s plan to the world problems. You who hold the priesthood have greater responsibility today, now that you live in this creative moment in the world’s history, than ever the Church has had before. I repeat. If we make the claim to hold the truth, it is obligatory upon every Latter-day Saint so to live, that when the people of the world come, in answer to the call, to test the fruit of the tree, they will find it wholesome and good.
 
-“The Lord help us to be able to prove to the world that we possess just what the world today is longing for, and when they see it, may they know, as you know, as I know, that the everlasting gospel is a light to the world” (*Gospel Ideals,* Salt Lake City: *Improvement Era,* 1953, p. 5).
+“The Lord help us to be able to prove to the world that we possess just what the world today is longing for, and when they see it, may they know, as you know, as I know, that the everlasting gospel is a light to the world” (*Gospel Ideals,* Salt Lake City: *Improvement Era,* 1953, p. 5).
 
 I found a classic example in the Old Testament of one who lived “in the world” and influenced it through his righteous living. The birth of this young man came at a time in history when it was improbable that anyone from Israel could make much of a contribution in the world.
 
@@ -73,8 +73,6 @@ May we have the necessary faith to place our trust in the Lord and not worry abo
 As we live “in the world,” may we contribute by making it a better place because of our righteous living, our service in causes that are just, and our faith that good will ultimately triumph over evil.
 
 This is the Lord’s work in which we are engaged, I witness to you in the name of Jesus Christ, amen.
-
-
 
 
 

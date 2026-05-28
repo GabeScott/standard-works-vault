@@ -48,7 +48,7 @@ Because I was willing to study the gospel of Jesus Christ, I became a member of 
 
 Learning by study and learning from the Spirit are the two halves of my life. These oars have helped me row my professional boat, make a good marriage, raise my sons, and serve in the Church. I need them both as I strive for self-reliance. You need them both as you strive for self-reliance.
 
-Peter’s last recorded words to the Saints of his day are counsel to “grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ” ([[2 Peter 3.18|2 Pet. 3:18]]), and King Benjamin urged his people to “grow in the knowledge of the glory of him that created you, or in the knowledge of that which is just and true” ([[Mosiah 4.12|Mosiah 4:12]]).
+Peter’s last recorded words to the Saints of his day are counsel to “grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ” ([[2 Peter 3.18|2 Pet. 3:18]]), and King Benjamin urged his people to “grow in the knowledge of the glory of him that created you, or in the knowledge of that which is just and true” ([[Mosiah 4.12|Mosiah 4:12]]).
 
 Sisters, we need to keep growing. Part of our mortal responsibility is to increase in learning and wisdom. We need to use the two oars of study and faith so that our boats will not be swamped by the storms of life. We need to teach our children to use these same oars. Let’s encourage them to value education and to increase in learning and wisdom through study and faith.
 
@@ -63,12 +63,10 @@ My dear sisters, I am so grateful for the Relief Society and the great strength 
 
 
 
-[^1]: *A Leader’s Guide to Welfare: Providing in the Lord’s Way* (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990), p. 6.
+[^1]: *A Leader’s Guide to Welfare: Providing in the Lord’s Way* (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990), p. 6.
 
-[^2]: Howard W. Hunter, *Ensign,* Nov. 1975, p. 124.
+[^2]: Howard W. Hunter, *Ensign,* Nov. 1975, p. 124.
 
-[^3]: “Valiant Servant of the Lord,” *Church News,* 11 June 1994, p. 4.
+[^3]: “Valiant Servant of the Lord,” *Church News,* 11 June 1994, p. 4.
 
-
-
-#Education #Faith #Judging #Motherhood #Self-Reliance #Spirituality #Welfare #Women
+#Education #Faith #Judging #Motherhood #Self-reliance #Spirituality #Welfare #Women

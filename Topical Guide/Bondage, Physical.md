@@ -1,7 +1,6 @@
 # Bondage, Physical
 
-
-*See also* [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Slavery, Slave.md|Slavery]]
+*See also* [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Slavery.md|Slavery]]
 
 break his *yoke* from off thy neck, [[Genesis 27.40|Genesis 27:40]].
 
@@ -21,7 +20,7 @@ God hath not forsaken us in our *bondage*, [[Ezra 9.9|Ezra 9:9]].
 
 ye suffer, if a man bring you into *bondage*, [[2 Corinthians 11.20|2 Corinthians 11:20]].
 
-servants ... under the *yoke*, [[1 Timothy 6.1|1 Timothy 6:1]].
+servants … under the *yoke*, [[1 Timothy 6.1|1 Timothy 6:1]].
 
 children of Israel were in *bondage*, [[1 Nephi 17.25|1 Nephi 17:25]].
 
@@ -36,5 +35,3 @@ subject ourselves to the yoke of *bondage*, [[Alma 61.12|Alma 61:12]].
 that they might not come into *bondage*, [[Alma 62.5|Alma 62:5]].
 
 not right that any man should be in *bondage*, [[D&C 101.79|D&C 101:79]].
-
-*See also* [[Exodus 21.2|Exodus 21:2]]; [[Leviticus 25.39|Leviticus 25:39]]; [[1 Kings 12.4|1 Kings 12:4]]; [[2 Kings 8.20|2 Kings 8:20]]; [[Isaiah 14.25|Isaiah 14:25]]; [[Jeremiah 30.8|Jeremiah 30:8]]; [[Ezekiel 34.27|Ezekiel 34:27]]; [[Nahum 1.13|Nahum 1:13]]; [[Mosiah 21.36|Mosiah 21:36]]; [[Mosiah 24.17|Mosiah 24:17]]; [[Alma 44.2|Alma 44:2]]; [[D&C 45.17|D&C 45:17]]; [[D&C 103.17|D&C 103:17]]; [[D&C 104.83|D&C 104:83]]; [[D&C 109.47|D&C 109:47]]; [[D&C 123.8|D&C 123:8]].

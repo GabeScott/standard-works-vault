@@ -46,7 +46,7 @@ Our Father in Heaven loves all of His children, too. Peter taught that “God is
 
 Yet His children can be so intolerant with one another. Neighboring factions, whether they be identified as groups or gangs, schools or states, counties or countries, often develop animosity. Such tendencies make me wonder: Cannot boundary lines exist without becoming battle lines? Could not people unite in waging war against the evils that beset mankind instead of waging war on each other? Sadly, answers to these questions are often no. Through the years, discrimination based on ethnic or religious identity has led to senseless slaughter, vicious pogroms, and countless acts of cruelty. The face of history is pocked by the ugly scars of intolerance.
 
-How different our world would be if all parents would apply this inspired instruction from the Book of Mormon: “Ye will not suffer your children … that they transgress the laws of God, and fight and quarrel one with another. …
+How different our world would be if all parents would apply this inspired instruction from the Book of Mormon: “Ye will not suffer your children … that they transgress the laws of God, and fight and quarrel one with another. …
 
 “But ye will teach them to walk in the ways of truth and soberness; ye will teach them to love one another, and to serve one another.”[^5]
 
@@ -119,7 +119,7 @@ That pronouncement is a contemporary confirmation of the Prophet Joseph’s earl
 
 [^1]: *History of the Church,* 5:157.
 
-[^2]: [[Matthew 22.36|Matt. 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; see also [[John 13.34|John 13:34–35]][[John 13.35|]]; [[John 15.12|15:12, 17]][[John 15.17|]]; [[Romans 13.8|Rom. 13:8]]; [[1 Thessalonians 3.12|1 Thes. 3:12]]; [[1 Thessalonians 4.9|4:9]]; [[1 Peter 1.22|1 Pet. 1:22]]; [[1 John 3.11|1 Jn. 3:11, 23]][[1 John 3.23|]]; [[1 John 4.7|4:7, 11–12]][[1 John 4.11|]][[1 John 4.12|]]; [[2 John 1.5|2 Jn. 1:5]].
+[^2]: [[Matthew 22.36|Matt. 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; see also [[John 13.34|John 13:34–35]][[John 13.35|]]; [[John 15.12|15:12, 17]][[John 15.17|]]; [[Romans 13.8|Rom. 13:8]]; [[1 Thessalonians 3.12|1 Thes. 3:12]]; [[1 Thessalonians 4.9|4:9]]; [[1 Peter 1.22|1 Pet. 1:22]]; [[1 John 3.11|1 Jn. 3:11, 23]][[1 John 3.23|]]; [[1 John 4.7|4:7, 11–12]][[1 John 4.11|]][[1 John 4.12|]]; [[2 John 1.5|2 Jn. 1:5]].
 
 [^3]: [[Mosiah 2.17|Mosiah 2:17]].
 
@@ -131,21 +131,21 @@ That pronouncement is a contemporary confirmation of the Prophet Joseph’s earl
 
 [^7]: [[D&C 78.14|D&C 78:14]].
 
-[^8]: See [[Articles of Faith 1.13|A of F 1:13]].
+[^8]: See [[Articles of Faith 1.13|A of F 1:13]].
 
 [^9]: [[Nehemiah 6.3|Neh. 6:3]].
 
 [^10]: [[D&C 38.40|D&C 38:40–41]][[D&C 38.41|]]; see also [[D&C 88.81|D&C 88:81]].
 
-[^11]: See [[Articles of Faith 1.12|A of F 1:12]].
+[^11]: See [[Articles of Faith 1.12|A of F 1:12]].
 
-[^12]: In Conference Report, Tahiti Area Conference 1976, p. 31.
+[^12]: In Conference Report, Tahiti Area Conference 1976, p. 31.
 
-[^13]: [[1 Peter 3.15|1 Pet. 3:15]]; see also [[D&C 60.2|D&C 60:2]].
+[^13]: [[1 Peter 3.15|1 Pet. 3:15]]; see also [[D&C 60.2|D&C 60:2]].
 
 [^14]: [[Galatians 3.27|Gal. 3:27–28]][[Galatians 3.28|]].
 
-[^15]: [[Mosiah 18.21|Mosiah 18:21]]; see also [[Mosiah 23.15|Mosiah 23:15]]; [[4 Nephi 1.13|4 Ne. 1:13]].
+[^15]: [[Mosiah 18.21|Mosiah 18:21]]; see also [[Mosiah 23.15|Mosiah 23:15]]; [[4 Nephi 1.13|4 Ne. 1:13]].
 
 [^16]: [[Matthew 21.12|Matt. 21:12]]; see also [[Mark 11.15|Mark 11:15]].
 
@@ -165,8 +165,6 @@ That pronouncement is a contemporary confirmation of the Prophet Joseph’s earl
 
 [^24]: See [[Genesis 1.28|Gen. 1:28]]; [[Moses 2.28|Moses 2:28]]; [[Abraham 4.28|Abr. 4:28]]; [[D&C 59.15|D&C 59:15–21]][[D&C 59.16|]][[D&C 59.17|]][[D&C 59.18|]][[D&C 59.19|]][[D&C 59.20|]][[D&C 59.21|]].
 
-[^25]: “Church Exhorts Ethnic, Religious Tolerance,” *Church News,* 24 Oct. 1992, p. 4.
+[^25]: “Church Exhorts Ethnic, Religious Tolerance,” *Church News,* 24 Oct. 1992, p. 4.
 
-
-
-#Children #Commandments #God_The_Father #Love #Missionary_Work #Neighbors #Temples #Tolerance #Truth
+#Children #Commandments #GodTheFather #Love #MissionaryWork #Neighbors #Temples #Tolerance #Truth

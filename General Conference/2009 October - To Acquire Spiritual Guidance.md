@@ -65,14 +65,12 @@ I bear solemn witness that as you pray with all the fervor of your soul with hum
 
 
 
-[^1]: John Taylor, *The Gospel Kingdom,* sel. G. Homer Durham (1943), 43–44.
+[^1]: John Taylor, *The Gospel Kingdom,* sel. G. Homer Durham (1943), 43–44.
 
-[^2]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^2]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^3]: [[2 Nephi 28.21|2 Nephi 28:21]].
+[^3]: [[2 Nephi 28.21|2 Nephi 28:21]].
 
 [^4]: See [[D&C 8.2|D&C 8:2]].
 
-
-
-#Holy_Ghost #Pornography #Spirituality
+#HolyGhost #Pornography #Spirituality

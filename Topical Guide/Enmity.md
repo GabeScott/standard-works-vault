@@ -1,13 +1,12 @@
 # Enmity
 
-
 *See also* [[Hate.md|Hate]]
 
 put *enmity* between thee and the woman, [[Genesis 3.15|Genesis 3:15]] ([[Moses 4.21|Moses 4:21]]).
 
 in *enmity* smite him with his hand, [[Numbers 35.21|Numbers 35:21]].
 
-Pilate and Herod ... before they were at *enmity*, [[Luke 23.12|Luke 23:12]].
+Pilate and Herod … before they were at *enmity*, [[Luke 23.12|Luke 23:12]].
 
 carnal mind is *enmity* against God, [[Romans 8.7|Romans 8:7]].
 

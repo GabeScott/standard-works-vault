@@ -38,13 +38,11 @@ Like us, all these missionary couples are finding new purpose and fulfillment in
 
 “Therefore, if ye have desires to serve God ye are called to the work;
 
-“For behold the field is white already to harvest; and lo, he that thrusteth in his sickle with his might, the same layeth up in store that he perisheth not, but bringeth salvation to his soul” ([[D&C 4.3|vs. 3–4]][[D&C 4.4|]]).
+“For behold the field is white already to harvest; and lo, he that thrusteth in his sickle with his might, the same layeth up in store that he perisheth not, but bringeth salvation to his soul” ([[D&C 4.3|vs. 3–4]][[D&C 4.4|]]).
 
 I pray that couples whose families are grown may indeed listen to and obey the Spirit that prompts the call to prepare and serve the Lord in the mission field. I know that this is the Lord’s church, that Joseph Smith was a prophet of God, and that President Benson is God’s prophet on earth today. I am grateful to be a member of the Church and for all the blessings it has brought into my life and the lives of my family. In the sacred name of Jesus Christ, amen.
 
 
 
 
-
-
-#Missionary_Work #Service
+#MissionaryWork #Service

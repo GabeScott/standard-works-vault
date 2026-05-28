@@ -1,6 +1,6 @@
 # Entrance into the Kingdom of God
 
-By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
+By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -10,13 +10,13 @@ My dear brothers and sisters: One of the great experiences of life is to be amon
 
 The atoning sacrifice of Jesus Christ made it possible for all mankind to be resurrected and to be raised to immortality. Resurrection and immortality are universal gifts from God.
 
-The apostle Paul taught: “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
+The apostle Paul taught: “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
 
 But to be resurrected and immortal is not all that is required for entrance into eternal life in the kingdom of God. Eternal life in the kingdom of God is far beyond his universal gift of immortality and is God’s greatest gift to all mankind; it can only be brought about through obedience to the doctrines and commandments taught by Jesus Christ.
 
-Jesus said, “I am the way, the truth and the life: no man cometh unto the Father, but by me.” ([[John 14.6|John 14:6]].) He said, “… no man cometh unto the Father, but by me.” This is the Lord’s way, and coming unto the Father is a divine and sacred gift that must be merited.
+Jesus said, “I am the way, the truth and the life: no man cometh unto the Father, but by me.” ([[John 14.6|John 14:6]].) He said, “… no man cometh unto the Father, but by me.” This is the Lord’s way, and coming unto the Father is a divine and sacred gift that must be merited.
 
-Again, Jesus Christ said, “… Trifle not with sacred things. If thou wilt do good, yea, and hold out faithful to the end, thou shalt be saved in the kingdom of God, which is the greatest of all of the gifts of God, for there is no gift greater than the gift of salvation.” ([[D&C 6.12|D&C 6:12–13]][[D&C 6.13|]].) God’s greatest gift and blessing to his children is eternal life with him in his heavenly kingdom.
+Again, Jesus Christ said, “… Trifle not with sacred things. If thou wilt do good, yea, and hold out faithful to the end, thou shalt be saved in the kingdom of God, which is the greatest of all of the gifts of God, for there is no gift greater than the gift of salvation.” ([[D&C 6.12|D&C 6:12–13]][[D&C 6.13|]].) God’s greatest gift and blessing to his children is eternal life with him in his heavenly kingdom.
 
 Today there is much controversy and contention among the doctrines and philosophies of men relative to the requirements for entrance into the kingdom of God. Many have been deceived by the teachings of men that works and obedience to God’s commandments are not essential, and some base their contention on scriptures. For example, Paul said, “For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast.” ([[Ephesians 2.8|Eph. 2:8–9]][[Ephesians 2.9|]].)
 
@@ -32,7 +32,7 @@ The spirit of Jesus, after his death, went to paradise and not to the kingdom of
 
 Jesus warned that not very many would find their way and prepare themselves to live in the kingdom of heaven. He said, “Enter ye in at the strait gate: … Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.” ([[Matthew 7.13|Matt. 7:13–14]][[Matthew 7.14|]].)
 
-Many, according to Jesus, will be misled and deceived by false teachers and false prophets, and some will desire to follow the ways of the world and will destroy their divine opportunity to enter into the kingdom of heaven. He said, “… wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat.” ([[Matthew 7.13|Matt. 7:13]].)
+Many, according to Jesus, will be misled and deceived by false teachers and false prophets, and some will desire to follow the ways of the world and will destroy their divine opportunity to enter into the kingdom of heaven. He said, “… wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat.” ([[Matthew 7.13|Matt. 7:13]].)
 
 Contrary to what many think, just believing in God and being virtuous and pure are not sufficient to qualify a person for entrance into the kingdom of heaven. The Savior’s parable about the ten virgins and their desire to enter the kingdom of heaven makes this point very clear. Jesus said:
 
@@ -82,7 +82,7 @@ In his Sermon on the Mount Jesus Christ also mentioned to these people their qua
 
 The Pharisees, in all of their dedication and their love for God and the ancient prophets and their obedience to man-made righteousness, which appeared to be taken from the scriptures, did not qualify for entrance into the kingdom of heaven. The Pharisees were worshiping a mystical god of spirit, and they were unable to know the living God when he appeared before them. He tried with all of his godly power to convince them, but they would rather defend their man-made church and their man-made doctrines than accept the church and teachings of Jesus Christ.
 
-All men should know what acts will keep them from entering the kingdom of heaven. According to the apostle Paul, the following works of the flesh will keep a person out of the kingdom of God: “… Adultery, fornication, uncleanness, lasciviousness, Idolatry, witchcraft, hatred, variance, emulations, wrath, strife, seditions, heresies, Envyings, murders, drunkenness, revellings, and such like: … they which do such things shall not inherit the kingdom of God.” ([[Galatians 5.19|Gal. 5:19–21]][[Galatians 5.20|]][[Galatians 5.21|]].)
+All men should know what acts will keep them from entering the kingdom of heaven. According to the apostle Paul, the following works of the flesh will keep a person out of the kingdom of God: “… Adultery, fornication, uncleanness, lasciviousness, Idolatry, witchcraft, hatred, variance, emulations, wrath, strife, seditions, heresies, Envyings, murders, drunkenness, revellings, and such like: … they which do such things shall not inherit the kingdom of God.” ([[Galatians 5.19|Gal. 5:19–21]][[Galatians 5.20|]][[Galatians 5.21|]].)
 
 Indulgence in works of the flesh will destroy man’s divine nature and potential godliness.
 
@@ -100,23 +100,21 @@ Here are some of the keys that Jesus Christ gave to help one qualify for entranc
 
 Jesus said, “Verily, verily, I say unto thee, Except a man be born again, he cannot see the kingdom of God” ([[John 3.3|John 3:3]]); “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God” ([[John 3.5|John 3:5]]).
 
-In [[John 17.3|John 17, verse 3]], another key is recorded by Jesus Christ: “… this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.”
+In [[John 17.3|John 17, verse 3]], another key is recorded by Jesus Christ: “… this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.”
 
 Wouldn’t you think it is important to know God the Eternal Father and Jesus Christ if you expect to live with them in the kingdom of heaven? Many feel that they know God and know Jesus Christ, but they fail to keep their commandments.
 
-Hear the words of the apostle John to all who claim to know God. He said, “And hereby we do know that we know him, if we keep his commandments. He that saith, I know him, and keepeth not his commandments, is a liar, and the truth is not in him.” ([[1 John 2.3|1 John 2:3–4]][[1 John 2.4|]].)
+Hear the words of the apostle John to all who claim to know God. He said, “And hereby we do know that we know him, if we keep his commandments. He that saith, I know him, and keepeth not his commandments, is a liar, and the truth is not in him.” ([[1 John 2.3|1 John 2:3–4]][[1 John 2.4|]].)
 
 Knowing God is shown by keeping his commandments. People who accept and live doctrines of men do not know the living God. When you know the living God and the living Jesus Christ, you will also know your divine relationship to God.
 
 Jesus asked us to pray to our Father in heaven and to “seek ye first the kingdom of God, and his righteousness.” ([[Matthew 6.33|Matt. 6:33]].)
 
-I pray that we may do so, and close with this divine commandment: “… let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God. …” ([[D&C 121.45|D&C 121:45]].)
+I pray that we may do so, and close with this divine commandment: “… let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God. …” ([[D&C 121.45|D&C 121:45]].)
 
 In the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Obedience #Plan_Of_Salvation #Repentance
+#Obedience #PlanOfSalvation #Repentance

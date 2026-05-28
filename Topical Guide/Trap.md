@@ -1,9 +1,8 @@
 # Trap
 
-
 *See also* [[Snare.md|Snare]]
 
-table become a snare ... a *trap*, [[Psalms 69.22|Psalms 69:22]] ([[Romans 11.9|Romans 11:9]]).
+table become a snare … a *trap*, [[Psalms 69.22|Psalms 69:22]] ([[Romans 11.9|Romans 11:9]]).
 
 they set a *trap*, they catch men, [[Jeremiah 5.26|Jeremiah 5:26]].
 

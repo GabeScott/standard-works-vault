@@ -26,7 +26,7 @@ I would propose that the luxury of getting on and off the train as we please is 
 
 Although our detractors might as well “stretch forth \[their\] puny arm\[s\] to stop the Missouri river in its decreed course, or to turn it up stream” ([[D&C 121.33|D&C 121:33]]) as try to derail this train, they are occasionally successful in coaxing individuals off. With all the prophecies we have seen fulfilled, what great event are we awaiting prior to saying, “Count me in”? What more do we need to see or experience before we get on the train and stay on it until we reach our destination? It is time for a spiritual revival. It is time to dig down deep within ourselves and rekindle our own light.
 
-President Joseph F. Smith said, “One fault to be avoided by the Saints, young and old, is the tendency to live on borrowed light \[and\] to permit … the light within them to be reflected, rather than original” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], p. 8).
+President Joseph F. Smith said, “One fault to be avoided by the Saints, young and old, is the tendency to live on borrowed light \[and\] to permit … the light within them to be reflected, rather than original” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], p. 8).
 
 The whole world seems to be in commotion. Today’s news is filled with accounts of large-scale famine, civil unrest, and natural disasters. Even more devastating in the long run is the spiritually destructive hurricane of disobedience to God’s commandments that is engulfing the world. This horrible storm is blowing the moral fiber out of the nations of the earth and leaving the land in moral desolation. Many people seem to be oblivious to this hurricane and have become so desensitized they don’t even feel a breeze.
 
@@ -53,8 +53,6 @@ The challenge for each of us, in order to prevent having to receive constant wak
 It is my hope that each of us will experience a spiritual revival as we become more obedient. This increased depth of spirituality will help give us the perspective we need to face today’s adversities and the strength we need for tomorrow.
 
 While the world is in commotion, the kingdom is intact. We are living in the greatest and most exciting part of our dispensation since the Restoration itself. We plead with everyone to become active participants in building the kingdom. This is the hour of our opportunity, to which I testify in the name of Jesus Christ, amen.
-
-
 
 
 

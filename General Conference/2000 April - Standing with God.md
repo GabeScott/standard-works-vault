@@ -63,6 +63,4 @@ I know with all my being that there is no one in all time or eternity to take yo
 
 
 
-
-
-#Commitment #Courage #Family #Love #Prayer #Sacrament #Scripture_Study #Standards #Testimony
+#Commitment #Courage #Family #Love #Prayer #Sacrament #ScriptureStudy #Standards #Testimony

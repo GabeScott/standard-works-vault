@@ -1,6 +1,6 @@
 # The Miracle of the Atonement
 
-By Elder C. Scott Grow - *Of the Seventy*
+By Elder C. Scott Grow - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -101,7 +101,7 @@ I testify that Jesus is the Christ—the Healer of our souls. I pray that each o
 
 [^2]: [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]].
 
-[^3]: See [[2 Nephi 2.25|2 Nephi 2:25–26]][[2 Nephi 2.26|]].
+[^3]: See [[2 Nephi 2.25|2 Nephi 2:25–26]][[2 Nephi 2.26|]].
 
 [^4]: See [[Alma 34.14|Alma 34:14]].
 
@@ -129,16 +129,14 @@ I testify that Jesus is the Christ—the Healer of our souls. I pray that each o
 
 [^16]: [[D&C 19.15|Doctrine and Covenants 19:15–18]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]].
 
-[^17]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^17]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
 [^18]: [[D&C 88.74|Doctrine and Covenants 88:74]].
 
 [^19]: [[D&C 45.4|Doctrine and Covenants 45:4–5]][[D&C 45.5|]].
 
-[^20]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^20]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^21]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^21]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
-
-
-#Atonement #Forgiveness #Jesus_Christ #Mercy #Repentance #Sin
+#Atonement #Forgiveness #JesusChrist #Mercy #Repentance #Sin

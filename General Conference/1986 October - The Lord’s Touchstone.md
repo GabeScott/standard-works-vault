@@ -42,7 +42,7 @@ We all ought to be eternally grateful for that question, for in the Savior’s r
 
 Then Jesus asked the lawyer, “Which now of these three, thinkest thou, was neighbour unto him that fell among the thieves?” ([[Luke 10.36|Luke 10:36]]). There the Master holds out the touchstone of Christianity. He asks that our mark be measured on it.
 
-Both the priest and the Levite in Christ’s parable should have remembered the requirements of the law: “Thou shalt not see thy brother’s ass or his ox fall down by the way, and hide thyself from them: thou shalt surely help him to lift them up again” ([[Deuteronomy 22.4|Deut. 22:4]]). And if an ox, how much more should one be willing to help a brother in need. But as Elder James E. Talmage wrote, “Excuses \[not to do so\] are easy to find; they spring up as readily and plentifully as weeds by the wayside” (*Jesus the Christ,* 3d ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916, p. 431).
+Both the priest and the Levite in Christ’s parable should have remembered the requirements of the law: “Thou shalt not see thy brother’s ass or his ox fall down by the way, and hide thyself from them: thou shalt surely help him to lift them up again” ([[Deuteronomy 22.4|Deut. 22:4]]). And if an ox, how much more should one be willing to help a brother in need. But as Elder James E. Talmage wrote, “Excuses \[not to do so\] are easy to find; they spring up as readily and plentifully as weeds by the wayside” (*Jesus the Christ,* 3d ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916, p. 431).
 
 The Samaritan gave us an example of pure Christian love. He had compassion; he went to the man who had been injured by the thieves and bound up his wounds. He took him to an inn, cared for him, paid his expenses, and offered more if needed for his care. This is a story of the love of a neighbor for his neighbor.
 
@@ -65,8 +65,6 @@ Elder Richards’ test was perhaps greater than most of us will face: the test o
 The touchstone of compassion is a measure of our discipleship; it is a measure of our love for God and for one another. Will we leave a mark of pure gold or, like the priest and the Levite, pass by on the other side?
 
 May the Lord bless us in our quest to be true disciples and good neighbors. I pray that each of us may be good Samaritans, in the name of Jesus Christ, amen.
-
-
 
 
 

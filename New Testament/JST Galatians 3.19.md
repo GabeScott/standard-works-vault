@@ -4,6 +4,3 @@
 
 [JST Galatians 3:19](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gal/3?lang=eng)
 
-
-
-

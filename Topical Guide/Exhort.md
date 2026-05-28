@@ -1,7 +1,6 @@
 # Exhort
 
-
-*See also* [[Exhortation.md|Exhortation]]; [[Warn, Warnings.md|Warn]]
+*See also* [[Exhortation.md|Exhortation]]; [[Warn.md|Warn]]
 
 *exhorting* them to continue in the faith, [[Acts 14.22|Acts 14:22]].
 
@@ -37,10 +36,10 @@ I have written briefly, *exhorting*, and testifying, [[1 Peter 5.12|1 Peter 5:12
 
 preach, *exhort*, declare, [[D&C 19.37|D&C 19:37]].
 
-to teach, expound, *exhort*, [[D&C 20.42|D&C 20:42]] ([[D&C 20.46|D&C 20:46]], [[D&C 20.47|D&C 20:47]][[D&C 20.50|D&C 20:50]], [[D&C 20.59|D&C 20:59]]).
+to teach, expound, *exhort*, [[D&C 20.42|D&C 20:42]] ([[D&C 20.50|D&C 20:50]]; [[D&C 20.59|D&C 20:59]]).
 
 visit the house of each member, *exhorting* them to pray, [[D&C 20.51|D&C 20:51]].
 
-ordained ... to *exhort* the church, [[D&C 25.7|D&C 25:7]].
+ordained … to *exhort* the church, [[D&C 25.7|D&C 25:7]].
 
 scattered remnants are *exhorted* to return to the Lord, [[D&C 113.10|D&C 113:10]].

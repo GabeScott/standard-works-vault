@@ -1,6 +1,6 @@
 # Tune Your Heart to Jesus Christ: The Sacred Gift of Primary Music
 
-By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
+By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -12,7 +12,7 @@ One of the blessings of my service in Primary is that my heart has learned to lo
 
 Although I did not grow up in Primary, the Spirit has quickly taught me the sacredness of its songs, and they have become part of my personal worship. Primary songs have carried a holy influence in my life and have lifted my soul, taught me eternal truths, and drawn me nearer to the Savior and to His gospel.
 
-President Dallin H. Oaks once taught that “the singing of hymns is one of the best ways to learn the doctrine of the restored gospel.”[^1] Those words are true for all of us but are especially so for children. Primary music is one of God’s most tender tools for planting the seeds of testimony in the hearts of the Savior’s youngest disciples. Parents, leaders, and teachers give nourishment to that seed as *they testify to* and *invite the testimonies of children* of all they are coming to know of Heavenly Father; His Son, Jesus Christ; and the Holy Ghost.
+President Dallin H. Oaks once taught that “the singing of hymns is one of the best ways to learn the doctrine of the restored gospel.”[^1] Those words are true for all of us but are especially so for children. Primary music is one of God’s most tender tools for planting the seeds of testimony in the hearts of the Savior’s youngest disciples. Parents, leaders, and teachers give nourishment to that seed as *they testify to* and *invite the testimonies of children* of all they are coming to know of Heavenly Father; His Son, Jesus Christ; and the Holy Ghost.
 
 In these last several years of my service, I have spent time singing and learning from Primary music while contemplating a few questions:
 
@@ -28,11 +28,11 @@ When Primary began in 1878, its first president, Aurelia Spencer Rogers, observe
 
 Primary songs can also be powerful doctrinal teaching tools. Some songs tell the stories of the Savior’s life and ministry. Others teach of His attributes, such as His faith, His hope, and His charity. And the most sacred songs testify of His infinite Atonement and the love that flows from that act of salvation.
 
-A prophet of the Lord, President Russell M. Nelson, taught: “\[Music\] can exert a continuing influence for good well beyond times when children are small. … \[It\] has \[the\] power to provide spiritual nourishment. It has healing power. It has \[the\] power to facilitate worship; it allows us to contemplate the \[Savior’s\] Atonement and the Restoration of the gospel with its saving principles and exalting ordinances. Music provides power for us to express prayerful thoughts and bear testimony of sacred truths.”[^6]
+A prophet of the Lord, President Russell M. Nelson, taught: “\[Music\] can exert a continuing influence for good well beyond times when children are small. … \[It\] has \[the\] power to provide spiritual nourishment. It has healing power. It has \[the\] power to facilitate worship; it allows us to contemplate the \[Savior’s\] Atonement and the Restoration of the gospel with its saving principles and exalting ordinances. Music provides power for us to express prayerful thoughts and bear testimony of sacred truths.”[^6]
 
 As parents, leaders, and teachers, our effort includes helping children access these promised blessings by teaching with intention the gospel truths found in the music. President Nelson also taught that “children can learn the doctrine when they’re learning to sing just as much as they can learn the doctrine in a class.”[^7] These songs can provide a reservoir of faith-filled sermons that point children to the Savior and help them develop devotion to His gospel.[^8]
 
-The scriptures teach that the songs of the righteous that come from the heart are a delight to the Savior.[^9] I can only wonder at the delight that the voices of the Savior’s youngest disciples bring. I know their prayerful songs reach heaven as expressions of faith that invite the Holy Spirit to confirm eternal truths and softly and tenderly invite others to accept the call of our Savior to follow Him and come home. As Elder Henry B. Eyring has reminded us, it is in those moments of feeling the Spirit that we have evidence of the Savior’s Atonement working in our lives.[^10]
+The scriptures teach that the songs of the righteous that come from the heart are a delight to the Savior.[^9] I can only wonder at the delight that the voices of the Savior’s youngest disciples bring. I know their prayerful songs reach heaven as expressions of faith that invite the Holy Spirit to confirm eternal truths and softly and tenderly invite others to accept the call of our Savior to follow Him and come home. As Elder Henry B. Eyring has reminded us, it is in those moments of feeling the Spirit that we have evidence of the Savior’s Atonement working in our lives.[^10]
 
 ## Imprinting Truth on the Heart
 
@@ -44,7 +44,11 @@ One sister shared with me that she cherished Primary music, and after 20 years s
 
 Another beloved Primary song captures the power of simple faith and enduring testimony:
 
-As I walk with Jesus to my home above,He will bless me with His Spirit and fill me with His love,Change my heart forever and help me clearly see.I will walk with Jesus, and He will walk with me.[^14]
+>As I walk with Jesus to my home above,
+>He will bless me with His Spirit and fill me with His love,
+>Change my heart forever and help me clearly see.
+>I will walk with Jesus, and He will walk with me.[^14]
+>
 
 As children sing, they are expressing the desire of a disciple and learning the pattern of covenant living. The Spirit can use music to engrave eternal truths on their tender hearts. And in time, children can choose to tune and turn *their hearts and their lives* toward Jesus Christ by making and keeping sacred covenants with Him.
 
@@ -79,25 +83,25 @@ I testify that the efforts we make to teach and sing these Primary songs to our 
 
 
 
-[^1]: Dallin H. Oaks, “[[1994 October - Worship through Music.md|Worship Through Music]],” *Ensign*, Nov. 1994, 10.
+[^1]: Dallin H. Oaks, “[[1994 October - Worship through Music.md|Worship Through Music]],” *Ensign*, Nov. 1994, 10.
 
 [^2]: “The song of the righteous is a prayer unto me” ([[D&C 25.12|Doctrine and Covenants 25:12]]).
 
-[^3]: “Sacred music is a vital part of sacrament meeting and other Church meetings. … Members gather in sacrament meeting to remember Jesus Christ by partaking of the sacrament. They gather to build faith and testimony and to worship Heavenly Father and Jesus Christ. Music should be selected to help achieve these purposes. … The sacrament hymn should refer to the sacrament itself or to the sacrifice of the Savior” (*General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [19.3](https://churchofjesuschrist.org/study/manual/general-handbook/19-music?lang=eng&id=title_number10#title_number10), [19.3.2](https://churchofjesuschrist.org/study/manual/general-handbook/19-music?lang=eng&id=title_number44#title_number44), Gospel Library).
+[^3]: “Sacred music is a vital part of sacrament meeting and other Church meetings. … Members gather in sacrament meeting to remember Jesus Christ by partaking of the sacrament. They gather to build faith and testimony and to worship Heavenly Father and Jesus Christ. Music should be selected to help achieve these purposes. … The sacrament hymn should refer to the sacrament itself or to the sacrifice of the Savior” (*General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [19.3](https://www.churchofjesuschrist.org/study/manual/general-handbook/19-music?lang=eng&id=title_number10#title_number10), [19.3.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/19-music?lang=eng&id=title_number44#title_number44), Gospel Library).
 
 [^4]: “I will put my law in their inward parts, and write it in their hearts” ([[Jeremiah 31.33|Jeremiah 31:33]]).
 
 [^5]: Aurelia Spencer Rogers, in “[A History of the Primary Organization](https://history.churchofjesuschrist.org/content/a-history-of-the-primary-organization?lang=eng),” history.ChurchofJesusChrist.org.
 
-[^6]: Russell M. Nelson, “[Power and Protection Provided by Worthy Music](https://speeches.byu.edu/talks/russell-m-nelson/power-protection-provided-worthy-music)” (Brigham Young University devotional, May 4, 2008), 4, 5, speeches.byu.edu.
+[^6]: Russell M. Nelson, “[Power and Protection Provided by Worthy Music](https://speeches.byu.edu/talks/russell-m-nelson/power-protection-provided-worthy-music)” (Brigham Young University devotional, May 4, 2008), 4, 5, speeches.byu.edu.
 
 [^7]: Russell M. Nelson, in “[Keep Singing Songs That Teach Doctrine, Says President Nelson](https://www.churchofjesuschrist.org/media/video/2020-05-0040-keep-singing-songs-that-teach-doctrine-says-president-nelson?lang=eng)” (video), ChurchofJesusChrist.org.
 
-[^8]: “We hope leaders, teachers, and members who are called on to speak will turn often to the hymnbook to find sermons presented powerfully and beautifully in verse. …
+[^8]: “We hope leaders, teachers, and members who are called on to speak will turn often to the hymnbook to find sermons presented powerfully and beautifully in verse. …
 
 [^9]: See [[D&C 25.12|Doctrine and Covenants 25:12]].
 
-[^10]: “If you have felt the influence of the Holy Ghost … , you may take it as evidence that the Atonement is working in your life” (Henry B. Eyring, “[Gifts of the Spirit for Hard Times](https://speeches.byu.edu/talks/henry-b-eyring/gifts-spirit-hard-times)” \[Brigham Young University devotional, Sept. 10, 2006\], 5, speeches.byu.edu).
+[^10]: “If you have felt the influence of the Holy Ghost … , you may take it as evidence that the Atonement is working in your life” (Henry B. Eyring, “[Gifts of the Spirit for Hard Times](https://speeches.byu.edu/talks/henry-b-eyring/gifts-spirit-hard-times)” \[Brigham Young University devotional, Sept. 10, 2006\], 5, speeches.byu.edu).
 
 [^11]: See [[Hebrews 6.17|Hebrews 6:17–19]][[Hebrews 6.18|]][[Hebrews 6.19|]].
 
@@ -109,7 +113,7 @@ I testify that the efforts we make to teach and sing these Primary songs to our 
 
 [^15]: [[Matthew 26.30|Matthew 26:30]].
 
-[^16]: “Although the ordinance of the sacrament is for members of the Church, nothing should be done to prevent others from partaking of it” (*General Handbook*, [18.9.3](https://churchofjesuschrist.org/study/manual/general-handbook/18-priesthood-ordinances-and-blessings?lang=eng&id=p120#p120)). In particular, it is appropriate for little children to partake of the sacrament before they reach the age of accountability so they can develop greater appreciation for Jesus Christ’s sacrifice and prepare to enter into sacred covenants with God in the future.
+[^16]: “Although the ordinance of the sacrament is for members of the Church, nothing should be done to prevent others from partaking of it” (*General Handbook*, [18.9.3](https://www.churchofjesuschrist.org/study/manual/general-handbook/18-priesthood-ordinances-and-blessings?lang=eng&id=p120#p120)). In particular, it is appropriate for little children to partake of the sacrament before they reach the age of accountability so they can develop greater appreciation for Jesus Christ’s sacrifice and prepare to enter into sacred covenants with God in the future.
 
 [^17]: See “He Sent His Son,” *Children’s Songbook*, 34–35.
 
@@ -127,6 +131,4 @@ I testify that the efforts we make to teach and sing these Primary songs to our 
 
 [^24]: See “Jesus Wants Me for a Sunbeam,” *Children’s Songbook*, 60.
 
-
-
-#Children #Church_Doctrine #Music #Primary
+#Children #ChurchDoctrine #Music #Primary

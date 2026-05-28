@@ -67,13 +67,13 @@ In my mind I could see him running on that difficult track. I learned from him. 
 
 I’ve always been very impressed with some of the statements Winston Churchill made as he served as prime minister during England’s darkest days of war. Among other things, he said the following:
 
-“It is no use saying, ‘We are doing our best.’ You have got to succeed in doing what is necessary.” (In *Reader’s Digest,* July 1964, p. 247.)
+“It is no use saying, ‘We are doing our best.’ You have got to succeed in doing what is necessary.” (In *Reader’s Digest,* July 1964, p. 247.)
 
-Also, “We have before us an ordeal of the most grievous kind. …
+Also, “We have before us an ordeal of the most grievous kind. …
 
 “You ask, what is our policy? I will say: It is to wage war, by sea, land, and air, with all our might and with all our strength that God can give us. … That is our policy.
 
-“You ask, what is our aim? I can answer in one word: It is victory, victory at all costs, victory in spite of all the terror; victory, however long and hard the road may be” (quoted by Louis L. Snyder, *The War: A Concise History, 1939–1945,* New York: Julian Messner, Inc., 1961, p. 89).
+“You ask, what is our aim? I can answer in one word: It is victory, victory at all costs, victory in spite of all the terror; victory, however long and hard the road may be” (quoted by Louis L. Snyder, *The War: A Concise History, 1939–1945,* New York: Julian Messner, Inc., 1961, p. 89).
 
 Young people, bearers of the priesthood, God wants us to be victorious. He wants you to triumph over all of your foes. Stalwart and brave we must stand. God is at the helm. There is no reason for defeat.
 
@@ -90,8 +90,6 @@ We promise the youth of today that with the same conviction the Lord shared with
 I am proud that we have a President, even Ezra Taft Benson, who loves and encourages the youth of the noble birthright to work, carry on, and live close to God. The youth programs of the Church today are stronger because of his influence presently and over the past years.
 
 Jesus is the Christ. He is our Redeemer, our Lord and Savior and friend. We constantly give thanks through deeds and prayer for his unmatched example of carrying on under circumstances that caused him to bleed from every pore and anguish in the misunderstanding and misconduct of his associates. Joy and happiness come through determination and the practice of carrying on under all conditions. May God help us to so do and reap the rewards in this present day I pray in the name of Jesus Christ, amen.
-
-
 
 
 

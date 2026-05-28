@@ -1,6 +1,6 @@
 # The Sabbath and the Sacrament
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -8,7 +8,7 @@ By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/the-sabbath-and-the-sacrament?lang=eng)
 
-My brothers and sisters, across the world this morning we have come to listen to a prophet’s voice. I testify that the voice we have just heard is the voice of God’s living prophet on the earth today, President Thomas S. Monson. How blessed we are to have his teachings and example!
+My brothers and sisters, across the world this morning we have come to listen to a prophet’s voice. I testify that the voice we have just heard is the voice of God’s living prophet on the earth today, President Thomas S. Monson. How blessed we are to have his teachings and example!
 
 This year all of us have the opportunity to study the words of the prophets in the New Testament in Sunday School. While the Old Testament is a study of prophets and a people, the New Testament is focused on the life and influence of the only Man who came into mortality with dual citizenship in heaven and on earth—our Savior and Redeemer, Jesus Christ.
 
@@ -22,9 +22,9 @@ Beginning with the Creation of the world, one day was set apart from all others.
 
 “Six days shalt thou labour, and do all thy work:
 
-“But the seventh day is the sabbath of the Lord thy God. …
+“But the seventh day is the sabbath of the Lord thy God. …
 
-“… Wherefore the Lord blessed the sabbath day, and hallowed it.”[^3]
+“… Wherefore the Lord blessed the sabbath day, and hallowed it.”[^3]
 
 The pattern of Sabbath day observance must always include worship. After Adam and Eve entered mortality, they were commanded to “worship the Lord their God, and … offer the firstlings of their flocks \[as\] an offering unto the Lord … \[in\] similitude of the sacrifice of the Only Begotten of the Father.”[^4] The sacrifice of animals reminded Adam’s posterity that one day the Lamb of God, Jesus Christ, would make a sacrifice of His own life for us.
 
@@ -40,7 +40,7 @@ From that time forward, the Savior’s Atonement became the great and last sacri
 
 “And this shall ye always observe to do, … even as I have broken bread and blessed it and given it unto you.
 
-“… And it shall be a testimony unto the Father that ye do always remember me. And if ye do always remember me ye shall have my Spirit to be with you.”[^7]
+“… And it shall be a testimony unto the Father that ye do always remember me. And if ye do always remember me ye shall have my Spirit to be with you.”[^7]
 
 It is remarkable that even through the dark periods of apostasy, this pattern of Sabbath day worship and the sacrament continued to be practiced in many forms.
 
@@ -52,7 +52,7 @@ Partaking of the sacrament is the center of our Sabbath day observance. In the D
 
 “And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day;
 
-“For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High. …
+“For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High. …
 
 “And on this day thou shalt do none other thing.”[^9]
 
@@ -64,7 +64,7 @@ I believe He also desires us to dress appropriately. Our youth may think the old
 
 What does it mean to offer up our sacraments to the Lord? We acknowledge that all of us make mistakes. Each of us has a need to confess and forsake our sins and errors to our Heavenly Father and to others we may have offended. The Sabbath provides us with a precious opportunity to offer up these—our sacraments—to the Lord. He said, “Remember that on this, the Lord’s day, thou shalt offer thine oblations and thy sacraments unto the Most High, confessing thy sins unto thy brethren, and before the Lord.”[^11]
 
-Elder Melvin J. Ballard has suggested, “We want every Latter-day Saint to come to the sacrament table because it is the place for self-investigation, for self-inspection, where we may learn to rectify our course and to make right our own lives, bringing ourselves into harmony with the teachings of the Church and with our brethren and sisters.”[^12]
+Elder Melvin J. Ballard has suggested, “We want every Latter-day Saint to come to the sacrament table because it is the place for self-investigation, for self-inspection, where we may learn to rectify our course and to make right our own lives, bringing ourselves into harmony with the teachings of the Church and with our brethren and sisters.”[^12]
 
 As we worthily partake of the sacrament, we witness that we are willing to take the Savior’s name upon us and keep His commandments and *do* always remember Him, that we may have His Spirit to be with us. In this way the covenant of our baptism is renewed. The Lord assured His disciples, “As oft as ye do this ye will remember this hour that I was with you.”[^13]
 
@@ -85,7 +85,7 @@ On this day before the Sabbath, as we begin this great conference, let us rememb
 
 
 
-[^1]: [[1 Timothy 4.11|1 Timothy 4:11–12]][[1 Timothy 4.12|]].
+[^1]: [[1 Timothy 4.11|1 Timothy 4:11–12]][[1 Timothy 4.12|]].
 
 [^2]: [[Genesis 2.3|Genesis 2:3]].
 
@@ -97,7 +97,7 @@ On this day before the Sabbath, as we begin this great conference, let us rememb
 
 [^6]: [[Matthew 26.26|Matthew 26:26–28]][[Matthew 26.27|]][[Matthew 26.28|]].
 
-[^7]: [[3 Nephi 18.6|3 Nephi 18:6–7]][[3 Nephi 18.7|]].
+[^7]: [[3 Nephi 18.6|3 Nephi 18:6–7]][[3 Nephi 18.7|]].
 
 [^8]: See [[Joseph Smith History 1.68|Joseph Smith—History 1:68–69, 72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.72|]]; see also [[D&C 27.12|Doctrine and Covenants 27:12–13]][[D&C 27.13|]].
 
@@ -107,7 +107,7 @@ On this day before the Sabbath, as we begin this great conference, let us rememb
 
 [^11]: [[D&C 59.12|Doctrine and Covenants 59:12]].
 
-[^12]: In Bryant S. Hinckley, *Sermons and Missionary Services of Melvin Joseph Ballard* (1949), 150.
+[^12]: In Bryant S. Hinckley, *Sermons and Missionary Services of Melvin Joseph Ballard* (1949), 150.
 
 [^13]: [[JST Mark 14.21|Joseph Smith Translation, Mark 14:21]], in Bible appendix.
 
@@ -117,10 +117,8 @@ On this day before the Sabbath, as we begin this great conference, let us rememb
 
 [^16]: [[D&C 115.5|Doctrine and Covenants 115:5]].
 
-[^17]: [[3 Nephi 11.11|3 Nephi 11:11]].
+[^17]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
 [^18]: [[Psalms 23.5|Psalm 23:5]].
 
-
-
-#Jesus_Christ #Sabbath #Sacrament #Worship
+#JesusChrist #Sabbath #Sacrament #Worship

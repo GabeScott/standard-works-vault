@@ -5,6 +5,6 @@
 [Exodus 32:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.22?lang=eng#p22)
 
 
-[^a]: [[Genesis 44.18|Gen. 44:18]]; [[Deuteronomy 9.20|Deut. 9:20]].
-[^b]: [[Exodus 16.19|Ex. 16:20 (19–21)]][[Exodus 16.20|]][[Exodus 16.21|]].
-[^c]: [[Exodus 14.11|Ex. 14:11]]; [[Exodus 17.2|17:2 (2, 4)]][[Exodus 17.4|]].
+[^a]: [[Genesis 44.18|Gen. 44:18]]; [[Deuteronomy 9.20|Deut. 9:20]].  
+[^b]: [[Exodus 16.19|Ex. 16:20 (19–21)]][[Exodus 16.20|]][[Exodus 16.21|]].  
+[^c]: [[Exodus 14.11|Ex. 14:11]]; [[Exodus 17.2|17:2 (2, 4)]][[Exodus 17.4|]].  

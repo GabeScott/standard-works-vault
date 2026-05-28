@@ -8,7 +8,7 @@ By Elder Loren C. Dunn - *Of the Seventy*
 
 There is a quality that can be seen in the lives of most Christians and good men and women everywhere. It is not only demonstrated in their actions but also seems to be a part of their nature. It is a blend of charity, forgiveness, and respect; and it takes into account the realization that God stands at the helm and we are all His children. As a result of this, we have certain obligations to one another.
 
-“Wherefore, the Lord God hath given a commandment that all men should have charity, which charity is love” ([[2 Nephi 26.30|2 Ne. 26:30]]). And the scriptures also teach us, “And ye shall also forgive one another your trespasses” ([[Mosiah 26.31|Mosiah 26:31]]). This quality can be a part of a person’s life without compromising principle or commitment to truth.
+“Wherefore, the Lord God hath given a commandment that all men should have charity, which charity is love” ([[2 Nephi 26.30|2 Ne. 26:30]]). And the scriptures also teach us, “And ye shall also forgive one another your trespasses” ([[Mosiah 26.31|Mosiah 26:31]]). This quality can be a part of a person’s life without compromising principle or commitment to truth.
 
 Not long ago, Father Paul Showalter of Nauvoo shared with us an interesting insight on the Prophet Joseph Smith that came from the early Catholic history of that area.
 
@@ -26,7 +26,7 @@ In the closing days of his life, when Nauvoo was besieged with mobs and challeng
 
 This same spirit can be found in the First Presidency letter of 1985, which said in part: “We are aware of some who are inactive, of others who have become critical and are prone to find fault, and of those who have been disfellowshipped or excommunicated because of serious transgressions.
 
-“To all such we reach out in love. We are anxious to forgive in the spirit of Him who said: ‘I, the Lord, will forgive whom I will forgive, but of you it is required to forgive all men.’ ([[D&C 64.10|D&C 64:10]].)” (“Policies and Announcements,” *Ensign,* Mar. 1986, p. 88). This letter is referred to as the invitation to “come back.”
+“To all such we reach out in love. We are anxious to forgive in the spirit of Him who said: ‘I, the Lord, will forgive whom I will forgive, but of you it is required to forgive all men.’ ([[D&C 64.10|D&C 64:10]].)” (“Policies and Announcements,” *Ensign,* Mar. 1986, p. 88). This letter is referred to as the invitation to “come back.”
 
 Today we live in times of conflict, dissent, differences of opinion, charges, countercharges, disagreements. There is a need for us, perhaps more than ever before, to reach within ourselves and allow the quality of mutual respect, mingled with charity and forgiveness, to influence our actions with one another; to be able to disagree without becoming disagreeable; to lower our voices and build on common ground with the realization that once the storm has passed, we will still have to live with one another.
 
@@ -63,8 +63,6 @@ People will always have opposing views, and I suppose there will always be confl
 Was it not the Savior, speaking of the first and great commandment, who said that we are to love the Lord our God with all our heart, might, mind, and strength and that the second is like unto it, that we are to love our neighbors as ourselves? (see [[Matthew 22.36|Matt. 22:36–39]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]]). The quality of mutual respect is a great quality. It can be found in the hearts of great people, and in this sense, we all should be great people. It does not have to compromise truth or principle, but it can create brotherhood and sisterhood and the resolution of many problems.
 
 May the Lord bless us that we may look upon one another in that spirit. In the name of Jesus Christ, amen.
-
-
 
 
 

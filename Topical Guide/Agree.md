@@ -1,6 +1,5 @@
 # Agree
 
-
 Can two walk together, except they be *agreed*, [[Amos 3.3|Amos 3:3]].
 
 *Agree* with thine adversary quickly, [[Matthew 5.25|Matthew 5:25]].
@@ -13,4 +12,4 @@ their witness *agreed* not, [[Mark 14.56|Mark 14:56]].
 
 ye have *agreed* together to tempt the Spirit, [[Acts 5.9|Acts 5:9]].
 
-bear witness ... and these three *agree* in one, [[1 John 5.8|1 John 5:8]].
+bear witness … and these three *agree* in one, [[1 John 5.8|1 John 5:8]].

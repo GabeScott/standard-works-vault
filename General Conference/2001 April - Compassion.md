@@ -30,7 +30,7 @@ A stirring account which illustrates this statement is found in the Old Testamen
 
 After the years of plenty, there followed the years of famine. In the midst of this latter period, when the brothers of Joseph came to Egypt to buy corn, they were blessed by this favored man in Egypt—even their own brother. Joseph could have dealt harshly with his brothers for the callous and cruel treatment he had earlier received from them. However, he was kind and gracious to them and won their favor and support with these words and actions:
 
-“Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life. …
+“Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life. …
 
 “And God sent me before you to preserve you a posterity in the earth, and to save your lives by a great deliverance.”[^2] Joseph exemplified the magnificent virtue of compassion.
 
@@ -62,7 +62,7 @@ The Savior has always shown unlimited capacity for compassion.
 
 On this, the American continent, Jesus appeared to a multitude and said:
 
-“Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, or halt, or maimed, or leprous, or that are withered, or that are deaf, or that are afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you. …
+“Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, or halt, or maimed, or leprous, or that are withered, or that are deaf, or that are afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you. …
 
 “… And he did heal them every one.”[^9]
 
@@ -157,7 +157,7 @@ Let us listen for His knock. Let us open the door of our hearts, that He—the l
 
 [^8]: [[John 11.43|John 11:43]].
 
-[^9]: [[3 Nephi 17.7|3 Ne. 17:7, 9]][[3 Nephi 17.9|]].
+[^9]: [[3 Nephi 17.7|3 Ne. 17:7, 9]][[3 Nephi 17.9|]].
 
 [^10]: [[John 1.39|John 1:39]].
 
@@ -169,6 +169,4 @@ Let us listen for His knock. Let us open the door of our hearts, that He—the l
 
 [^14]: [[Revelation 3.20|Rev. 3:20]].
 
-
-
-#Compassion #Death #God_The_Father #Jesus_Christ #Loneliness #Peace #Service #Temples #Violence
+#Compassion #Death #GodTheFather #JesusChrist #Loneliness #Peace #Service #Temples #Violence

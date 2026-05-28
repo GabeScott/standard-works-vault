@@ -1,6 +1,6 @@
 # Bless in His Name
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -69,6 +69,4 @@ I bless you now to be able to feel His love and His trust, in the name of the Lo
 
 [^3]: [[D&C 84.33|Doctrine and Covenants 84:33–35]][[D&C 84.34|]][[D&C 84.35|]].
 
-
-
-#Jesus_Christ #Love #Priesthood #Priesthood_Blessings #Service
+#JesusChrist #Love #PriesthoodBlessings #Priesthood #Service

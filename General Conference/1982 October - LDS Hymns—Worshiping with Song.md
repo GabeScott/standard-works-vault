@@ -1,6 +1,6 @@
 # LDS Hymns—Worshiping with Song
 
-By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -14,9 +14,9 @@ Today, one of the important parts of our worship services is the congregational 
 
 In our Latter-day Saint hymns, we sing praises to the Lord, pray unto the Lord, recite great religious truths—in effect sermons—and our minds and spirits are elevated and spiritually stimulated.
 
-President Heber J. Grant, in discussing the matter, said: “No individual singer, or organization of singers, in the Church, should ever render a selection unless the words are in full harmony with the truths of the gospel, and can be given from the heart of the singer. In other words, our songs should be in very deed ‘Prayers unto the Lord.’” (*Improvement Era,* July 1912, pp. 786–87.)
+President Heber J. Grant, in discussing the matter, said: “No individual singer, or organization of singers, in the Church, should ever render a selection unless the words are in full harmony with the truths of the gospel, and can be given from the heart of the singer. In other words, our songs should be in very deed ‘Prayers unto the Lord.’” (*Improvement Era,* July 1912, pp. 786–87.)
 
-President Spencer W. Kimball, in referring to our singing of hymns, said: “Some of the greatest sermons that have ever been preached were preached by the singing of a song. There are many wonderful songs. … Sing them through.” (New Zealand Area Conference Report, 20–22 Feb. 1976, p. 27.)
+President Spencer W. Kimball, in referring to our singing of hymns, said: “Some of the greatest sermons that have ever been preached were preached by the singing of a song. There are many wonderful songs. … Sing them through.” (New Zealand Area Conference Report, 20–22 Feb. 1976, p. 27.)
 
 In July of 1830, just three months after the organization of the Church, a revelation from the Lord was given to Emma Smith through her husband, the Prophet Joseph Smith, in which the Lord stated: “For my soul delighteth in the song of the heart; yea, the song of the righteous is a prayer unto me, and it shall be answered with a blessing upon their heads.” ([[D&C 25.12|D&C 25:12]].)
 
@@ -40,7 +40,7 @@ To illustrate the doctrine, prophecy, and great inspiration contained in our hym
 >“I know that my Redeemer lives.”
 >
 
-J. Spencer Cornwall, commenting on this song, wrote: “To hear this loved song rendered by an assembly of devoted Latter-day Saints is a spiritual baptism.” (*Stories of Our Mormon Hymns,* Salt Lake City: Deseret Book Co., 1968, p. 108.) How true this is! This is one of our most popular hymns in which we express thanks for the atoning sacrifice of our Lord and Savior, Jesus Christ.
+J. Spencer Cornwall, commenting on this song, wrote: “To hear this loved song rendered by an assembly of devoted Latter-day Saints is a spiritual baptism.” (*Stories of Our Mormon Hymns,* Salt Lake City: Deseret Book Co., 1968, p. 108.) How true this is! This is one of our most popular hymns in which we express thanks for the atoning sacrifice of our Lord and Savior, Jesus Christ.
 
 “Praise to the Man,” (*Hymns,* no. 147), one of W. W. Phelps’ inspiring hymns, is a magnificent tribute to the Prophet Joseph Smith. This beautiful hymn not only incorporates the elements of rejoicing and prophecy, but also contains basic doctrine, as is evidenced by the statement, “Sacrifice brings forth the blessings of heaven.” The law of sacrifice is an important part of the gospel of Jesus Christ and contributes to the building of faith, love, and many other virtues.
 
@@ -72,7 +72,7 @@ In a southern states mission, a young girl was walking home with a friend and be
 
 This great hymn truly epitomizes the great faith and courage of our pioneer ancestry and today builds this faith and courage in the present generation as we approach the pioneering work of this age.
 
-“O My Father” (*Hymns,* no. 139), written by Eliza R. Snow in Nauvoo in 1843, is another of the greatest LDS hymns. This remarkable hymn depicts our existence in the premortal existence with the Father and Mother of our spirits. Then, in the last stanza we sing:
+“O My Father” (*Hymns,* no. 139), written by Eliza R. Snow in Nauvoo in 1843, is another of the greatest LDS hymns. This remarkable hymn depicts our existence in the premortal existence with the Father and Mother of our spirits. Then, in the last stanza we sing:
 
 >When I leave this frail existence,
 >When I lay this mortal by,
@@ -107,11 +107,9 @@ As I have sung the inspired messages contained in our hymns, my testimony of the
 
 Also, our LDS hymns bear witness that God the Father and His Son, Jesus Christ, did appear to the Prophet Joseph Smith, and that he was and is a great prophet through whom the gospel in its fulness was restored.
 
-My gratitude for our beloved prophet Spencer W. Kimball is intensified as I sing “We Thank Thee, O God, for a Prophet.” May the Lord continue to bless and sustain him.
+My gratitude for our beloved prophet Spencer W. Kimball is intensified as I sing “We Thank Thee, O God, for a Prophet.” May the Lord continue to bless and sustain him.
 
 As we sing our hymns, let us be conscious of the beauty and import of each hymn, and as we do, our singing will deeply move our souls, bring us in closer harmony with the Holy Spirit, and strengthen our testimonies. In the name of Jesus Christ, amen.
-
-
 
 
 

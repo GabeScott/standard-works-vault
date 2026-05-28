@@ -16,7 +16,7 @@ I revere the influence and accomplishments of Relief Society. It is the greatest
 
 The Prophet Joseph Smith spoke of this society and quoted the Savior’s words: “‘Ye shall do the work, which ye see me do.’ These are the grand key-words for the society to act upon.”[^1]
 
-For the daughters of God, doing the Savior’s work does not, of course, include the use of priesthood keys, authority, or powers. But it does include building faith by testimony and example. It includes teaching the doctrines of salvation. It includes following the Savior’s example of love for all mankind. It includes ministering to others, for, as the Prophet Joseph said when the Relief Society was organized, “This is a charitable Society, and according to your natures; it is natural for females to have feelings of charity and benevolence.”[^2] “Let the weight of your innocence, kindness and affection be felt … ; not war, not jangle, not contradiction, or dispute, but meekness, love, purity—these are the things that should magnify you in the eyes of all good men.”[^3]
+For the daughters of God, doing the Savior’s work does not, of course, include the use of priesthood keys, authority, or powers. But it does include building faith by testimony and example. It includes teaching the doctrines of salvation. It includes following the Savior’s example of love for all mankind. It includes ministering to others, for, as the Prophet Joseph said when the Relief Society was organized, “This is a charitable Society, and according to your natures; it is natural for females to have feelings of charity and benevolence.”[^2] “Let the weight of your innocence, kindness and affection be felt … ; not war, not jangle, not contradiction, or dispute, but meekness, love, purity—these are the things that should magnify you in the eyes of all good men.”[^3]
 
 This charge to the women of the Church carries a promise. Said the Prophet Joseph: “If you live up to these principles, how great and glorious will be your reward in the celestial kingdom! If you live up to your privileges, the angels cannot be restrained from being your associates.”[^4]
 
@@ -81,6 +81,4 @@ May God bless each of you, my dear sisters, for all you are and all you do. May 
 
 [^8]: As told by Erma Adams Kunzler, former missionary in Portugal.
 
-
-
-#Adversity #Councils #Jesus_Christ #Prayer #Relief_Society #Service #Spirituality #Women
+#Adversity #Councils #JesusChrist #Prayer #ReliefSociety #Service #Spirituality #Women

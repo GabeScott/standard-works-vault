@@ -80,9 +80,9 @@ And from further revelation received in the days of Nauvoo:
 
 “For a baptismal font there is not upon the earth, that they, my saints, may be baptized for those who are dead—
 
-“For this ordinance belongeth to my house. …
+“For this ordinance belongeth to my house. …
 
-“… I command you, all ye my saints, to build a house unto me. …
+“… I command you, all ye my saints, to build a house unto me. …
 
 “And verily I say unto you, let this house be built unto my name, that I may reveal mine ordinances therein unto my people;
 
@@ -119,8 +119,6 @@ Then the congregation joined in singing, “The Spirit of God like a Fire Is Bur
 And now, as I leave with you my testimony of this sacred house, of the faith of those who built it, of the truth and validity of the ordinances which are performed therein, I have invited the Tabernacle Choir to sing again this same Hosanna Anthem, followed by the congregations, wherever we may be, singing, “The Spirit of God like a fire is burning! The latter-day glory begins to come forth” (*Hymns,* 1985, no. 2).
 
 I hope that as we do so, there will be stirred within each of us a flaming testimony of the divinity of this work and a spirit of gratitude to the Almighty, whose kingdom this is. In the name of our Divine Redeemer, Jesus Christ, amen.
-
-
 
 
 

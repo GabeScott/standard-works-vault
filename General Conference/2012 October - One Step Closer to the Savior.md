@@ -1,6 +1,6 @@
 # One Step Closer to the Savior
 
-By Russell T. Osguthorpe - *Sunday School General President*
+By Russell T. Osguthorpe - *Sunday School General President*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -14,13 +14,13 @@ My granddaughter read the *Ensign* because she wanted to learn. She acted on her
 
 When the Savior taught, the learner’s agency was paramount. He showed us not only what to teach but also how to teach. He focused on the needs of the learner. He helped individuals discover truth for themselves.[^1] He always listened to their questions.[^2]
 
-These new learning resources will help us all learn and teach in the Savior’s way in our homes and in our classrooms.[^3] As we do, we will be responding to His invitation to “come, follow me,”[^4] just as Elder Robert D. Hales so beautifully taught. While these new resources were being developed, I saw leaders and teachers in the auxiliaries and seminary counsel together with parents so that they could meet the needs of their learners. I’ve seen young women in their classes, young men in their Aaronic Priesthood quorums, and youth in Sunday School learn to exercise their agency and act for themselves.
+These new learning resources will help us all learn and teach in the Savior’s way in our homes and in our classrooms.[^3] As we do, we will be responding to His invitation to “come, follow me,”[^4] just as Elder Robert D. Hales so beautifully taught. While these new resources were being developed, I saw leaders and teachers in the auxiliaries and seminary counsel together with parents so that they could meet the needs of their learners. I’ve seen young women in their classes, young men in their Aaronic Priesthood quorums, and youth in Sunday School learn to exercise their agency and act for themselves.
 
 One youth Sunday School teacher wondered how to help two young men with autism act for themselves. When she invited class members to share what they were learning, she worried that these two young men might refuse her invitation. But they didn’t. One stood to teach what he had learned and then invited his classmate with autism to help him. When the first began to struggle, his classmate stayed with him and whispered in his ear so that he could feel successful. They were both teaching that day. They were teaching *what* the Savior taught, but they were also teaching *how* the Savior taught. When the Savior taught, He acted out of love for the one He was teaching, just as this classmate did for his friend.[^5]
 
 When we learn and teach His word in His way, we accept His invitation to “come, follow me.” We follow Him one step at a time. With each step, we draw closer to the Savior. We change. The Lord knew that spiritual growth did not happen all at once. It comes gradually. Each time we accept His invitation and choose to follow Him, we progress along the pathway to full conversion.
 
-Conversion is the goal of all gospel learning and teaching. Conversion is not a onetime event. It is a lifelong quest to become more like the Savior. Elder Dallin H. Oaks has reminded us that “to *know*” is not enough. “To be ‘converted’ … requires us to *do* and to *become.*”[^6] So learning for conversion is a continual process of knowing, doing, and becoming. Likewise, teaching for conversion requires key doctrine, invitations to action, and promised blessings.[^7] When we teach true doctrine, we help the learner to know. When we invite others to action, we help them to do or live the doctrine. And when the blessings come that the Lord has promised, we are changed. Like Alma, we can become new creatures.[^8]
+Conversion is the goal of all gospel learning and teaching. Conversion is not a onetime event. It is a lifelong quest to become more like the Savior. Elder Dallin H. Oaks has reminded us that “to *know*” is not enough. “To be ‘converted’ … requires us to *do* and to *become.*”[^6] So learning for conversion is a continual process of knowing, doing, and becoming. Likewise, teaching for conversion requires key doctrine, invitations to action, and promised blessings.[^7] When we teach true doctrine, we help the learner to know. When we invite others to action, we help them to do or live the doctrine. And when the blessings come that the Lord has promised, we are changed. Like Alma, we can become new creatures.[^8]
 
 The new learning resources for youth have one central goal: to help youth become converted to the gospel of Jesus Christ. I recently saw a young man in a youth Sunday School class discover truth for himself. When I noticed that he was having difficulty relating the Atonement to his own life, I asked him if he had ever felt forgiveness. He responded: “Yeah, like that time I broke a guy’s nose when we were playing soccer. I felt bad about it. I wondered what I needed to do to feel better. So I went to his home and asked him to forgive me, but I knew I needed to do more, so I prayed, and then I felt that Heavenly Father forgave me too. This is what the Atonement means to me.”
 
@@ -55,20 +55,18 @@ I testify that God the Father and His Son, Jesus Christ, live. I testify that th
 
 [^4]: See [[Luke 18.18|Luke 18:18–22]][[Luke 18.19|]][[Luke 18.20|]][[Luke 18.21|]][[Luke 18.22|]].
 
-[^5]: See [[1 John 4.19|1 John 4:19]].
+[^5]: See [[1 John 4.19|1 John 4:19]].
 
-[^6]: Dallin H. Oaks, “The Challenge to Become,” *Liahona,* Jan. 2001, 41; *Ensign,* Nov. 2000, 33: “To testify is to *know* and to *declare.* The gospel challenges us to be ‘converted,’ which requires us to *do* and to *become.* If any of us relies solely upon our knowledge and testimony of the gospel, we are in the same position as the blessed but still unfinished Apostles whom Jesus challenged to be ‘converted.’ We all know someone who has a strong testimony but does not act upon it so as to be converted.”
+[^6]: Dallin H. Oaks, “The Challenge to Become,” *Liahona,* Jan. 2001, 41; *Ensign,* Nov. 2000, 33: “To testify is to *know* and to *declare.* The gospel challenges us to be ‘converted,’ which requires us to *do* and to *become.* If any of us relies solely upon our knowledge and testimony of the gospel, we are in the same position as the blessed but still unfinished Apostles whom Jesus challenged to be ‘converted.’ We all know someone who has a strong testimony but does not act upon it so as to be converted.”
 
 [^7]: See [[Abraham 2.11|Abraham 2:11]].
 
-[^8]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 27.24|Mosiah 27:24–26]][[Mosiah 27.25|]][[Mosiah 27.26|]].
+[^8]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 27.24|Mosiah 27:24–26]][[Mosiah 27.25|]][[Mosiah 27.26|]].
 
-[^9]: See David A. Bednar, [[2010 April - Watching with All Perseverance.md|“Watching with All Perseverance,”]] *Liahona* and *Ensign,* May 2010, 43: “Are you and I helping our children become agents who act and seek learning by study and by faith, or have we trained our children to wait to be taught and acted upon? Are we as parents primarily giving our children the equivalent of spiritual fish to eat, or are we consistently helping them to act, to learn for themselves, and to stand steadfast and immovable? Are we helping our children become anxiously engaged in asking, seeking, and knocking?”
+[^9]: See David A. Bednar, “[[2010 April - Watching with All Perseverance.md|Watching with All Perseverance]],” *Liahona* and *Ensign,* May 2010, 43: “Are you and I helping our children become agents who act and seek learning by study and by faith, or have we trained our children to wait to be taught and acted upon? Are we as parents primarily giving our children the equivalent of spiritual fish to eat, or are we consistently helping them to act, to learn for themselves, and to stand steadfast and immovable? Are we helping our children become anxiously engaged in asking, seeking, and knocking?”
 
-[^10]: See Dennis B. Neuenschwander, [[2000 October - Living Prophets, Seers, and Revelators.md|“Living Prophets, Seers, and Revelators,”]] *Liahona,* Jan. 2001, 49–51; *Ensign,* Nov. 2000, 40–42.
+[^10]: See Dennis B. Neuenschwander, “[[2000 October - Living Prophets, Seers, and Revelators.md|Living Prophets, Seers, and Revelators]],” *Liahona,* Jan. 2001, 49–51; *Ensign,* Nov. 2000, 40–42.
 
-[^11]: [[3 Nephi 17.3|3 Nephi 17:3]].
-
-
+[^11]: [[3 Nephi 17.3|3 Nephi 17:3]].
 
 #Conversion #Education #Teaching

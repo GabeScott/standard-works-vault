@@ -1,6 +1,6 @@
 # “Come Home, Felila”
 
-By Elder John H. Groberg - *Of the First Quorum of the Seventy*
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -50,7 +50,7 @@ My questions as to why—as to justice and reasons—were all at that moment com
 
 Oh, how we must remember the words of Jacob as he said:
 
-“Behold, great and marvelous are the works of the Lord. How unsearchable are the depths of the mysteries of him; and it is impossible that man should find out all his ways. And no man knoweth of his ways save it be revealed unto him; wherefore, brethren, despise not the revelations of God. …
+“Behold, great and marvelous are the works of the Lord. How unsearchable are the depths of the mysteries of him; and it is impossible that man should find out all his ways. And no man knoweth of his ways save it be revealed unto him; wherefore, brethren, despise not the revelations of God. …
 
 “Seek not to counsel the Lord, but to take counsel from his hand. For behold, ye yourselves know that he counseleth in wisdom, and in justice, and in great mercy, over all his works.” ([[Jacob 4.8|Jacob 4:8, 10]][[Jacob 4.10|]].)
 
@@ -67,8 +67,6 @@ Do not be discouraged; do not attempt to counsel the Lord. He determines, not yo
 Caring is all-important—the intensity, the duration, the amount, the quality, the extent. For in God’s wisdom, caring creates faith.
 
 Oh, may we all have a little Felila in our lives—and there are so many: the retarded, the infirm, those needing special help, both spiritually and physically, the aged, the infants,—all these to soften our hearts in love, to stretch our souls in tenderness, to confirm our worth in caring for others, and above all to strengthen our faith in him who knows all, even him who in caring totally gave his all, and in giving his all, lives forever, and in living forever, rules eternally, and in ruling eternally, cares omnipotently, whose coming and going is one eternal round I pray in his name, even the sacred name of Jesus Christ, amen.
-
-
 
 
 

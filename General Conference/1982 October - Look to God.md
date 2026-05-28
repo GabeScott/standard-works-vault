@@ -1,6 +1,6 @@
 # Look to God
 
-By Elder Rex C. Reeve - *Of the First Quorum of the Seventy*
+By Elder Rex C. Reeve - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -95,8 +95,6 @@ We should look to God; put Him first in our lives and especially in our hearts.
 I testify that He does live! He is our Father! He loves His children! I also testify that Jesus is the Christ, and that He will be as close to us as we will let Him be by how we live and feel in our hearts.
 
 In the name of Jesus Christ, amen.
-
-
 
 
 

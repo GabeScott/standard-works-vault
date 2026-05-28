@@ -1,6 +1,6 @@
 # “There Is the Light”
 
-By Elder John H. Groberg - *Of the First Quorum of the Seventy*
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -46,9 +46,7 @@ In like manner, and with even deeper meaning, I thank the Lord for our great pro
 
 I bear testimony that I know that God lives. I know that our Father in heaven loves us. I know that Jesus is the Christ, the Savior of the world. I know that He is our personal Savior, that He is our Friend—and I know He is our Helper: He will help us each personally and individually as we merit that help.
 
-I know that Joseph Smith is a prophet of God. I testify that in our day Spencer W. Kimball is the man whose eyes see the light that can and will save us and the world. When all about us are sinking in darkness and fear and despair, when destruction seems close and the raging fury of men and demons ensnares us in seemingly insoluble problems, listen as he calmly says, “There is the light. This is the way.” I testify that he will so guide us safely home if we will but listen and obey. In the name of Jesus Christ. Amen.
-
-
+I know that Joseph Smith is a prophet of God. I testify that in our day Spencer W. Kimball is the man whose eyes see the light that can and will save us and the world. When all about us are sinking in darkness and fear and despair, when destruction seems close and the raging fury of men and demons ensnares us in seemingly insoluble problems, listen as he calmly says, “There is the light. This is the way.” I testify that he will so guide us safely home if we will but listen and obey. In the name of Jesus Christ. Amen.
 
 
 

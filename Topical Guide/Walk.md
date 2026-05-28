@@ -1,6 +1,5 @@
 # Walk
 
-
 *See also* [[Behave.md|Behave]]; [[Live [verb].md|Live [verb]]]; [[Path.md|Path]]; [[Walking in Darkness.md|Walking in Darkness]]; [[Walking with God.md|Walking with God]]; [[Way.md|Way]]
 
 heard the voice of the Lord God *walking* in the garden, [[Genesis 3.8|Genesis 3:8]] ([[Moses 4.14|Moses 4:14]]).
@@ -9,7 +8,7 @@ shew them the way wherein they must *walk*, [[Exodus 18.20|Exodus 18:20]] ([[1 K
 
 Israel *walked* forty years in the wilderness, [[Joshua 5.6|Joshua 5:6]].
 
-Satan ... going to and fro in the earth, and from *walking* up and down in it, [[Job 1.7|Job 1:7]] ([[Job 2.2|Job 2:2]]).
+Satan … going to and fro in the earth, and from *walking* up and down in it, [[Job 1.7|Job 1:7]] ([[Job 2.2|Job 2:2]]).
 
 he *walketh* upon a snare, [[Job 18.8|Job 18:8]].
 
@@ -19,9 +18,9 @@ though I *walk* through the valley of the shadow of death, [[Psalms 23.4|Psalms 
 
 I will *walk* in mine integrity, [[Psalms 26.11|Psalms 26:11]].
 
-We ... *walked* unto the house of God, [[Psalms 55.14|Psalms 55:14]].
+We … *walked* unto the house of God, [[Psalms 55.14|Psalms 55:14]].
 
-Oh that ... Israel had *walked* in my ways, [[Psalms 81.13|Psalms 81:13]].
+Oh that … Israel had *walked* in my ways, [[Psalms 81.13|Psalms 81:13]].
 
 feet have they, but they *walk* not, [[Psalms 115.7|Psalms 115:7]].
 
@@ -31,7 +30,7 @@ Though I *walk* in the midst of trouble, [[Psalms 138.7|Psalms 138:7]].
 
 That thou mayest *walk* in the way of good men, [[Proverbs 2.20|Proverbs 2:20]].
 
-I have seen ... princes *walking* as servants, [[Ecclesiastes 10.7|Ecclesiastes 10:7]].
+I have seen … princes *walking* as servants, [[Ecclesiastes 10.7|Ecclesiastes 10:7]].
 
 I should not *walk* in the way of this people, [[Isaiah 8.11|Isaiah 8:11]].
 
@@ -59,17 +58,17 @@ Arise, and *walk*, [[Matthew 9.5|Matthew 9:5]] ([[Mark 2.9|Mark 2:9]]; [[Luke 5.
 
 lame *walk*, the lepers are cleansed, [[Matthew 11.5|Matthew 11:5]] ([[Luke 7.22|Luke 7:22]]).
 
-unclean spirit ... *walketh* through dry places, [[Matthew 12.43|Matthew 12:43]] ([[Luke 11.24|Luke 11:24]]).
+unclean spirit … *walketh* through dry places, [[Matthew 12.43|Matthew 12:43]] ([[Luke 11.24|Luke 11:24]]).
 
 disciples saw him *walking* on the sea, [[Matthew 14.26|Matthew 14:26]] ([[Mark 6.49|Mark 6:49]]; [[John 6.19|John 6:19]]).
 
-multitude wondered, when they saw ... lame to *walk*, [[Matthew 15.31|Matthew 15:31]].
+multitude wondered, when they saw … lame to *walk*, [[Matthew 15.31|Matthew 15:31]].
 
 Why *walk* not thy disciples according to the tradition, [[Mark 7.5|Mark 7:5]].
 
 I see men as trees, *walking*, [[Mark 8.24|Mark 8:24]].
 
-I must *walk* to day ... for it cannot be that a prophet perish out of Jerusalem, [[Luke 13.33|Luke 13:33]].
+I must *walk* to day … for it cannot be that a prophet perish out of Jerusalem, [[Luke 13.33|Luke 13:33]].
 
 take up thy bed, and *walk*, [[John 5.8|John 5:8]].
 
@@ -111,7 +110,7 @@ he cannot *walk* in crooked paths, [[Alma 7.20|Alma 7:20]].
 
 Zeezrom leaped upon his feet, and began to *walk*, [[Alma 15.11|Alma 15:11]].
 
-Helaman did ... *walk* after the ways of his father, [[Helaman 3.20|Helaman 3:20]] ([[Ether 9.23|Ether 9:23]]).
+Helaman did … *walk* after the ways of his father, [[Helaman 3.20|Helaman 3:20]] ([[Ether 9.23|Ether 9:23]]).
 
 strength that they could *walk*, [[Ether 15.28|Ether 15:28]].
 
@@ -123,4 +122,4 @@ God doth not *walk* in crooked paths, [[D&C 3.2|D&C 3:2]].
 
 this shall suffice for thy daily *walk*, [[D&C 19.32|D&C 19:32]].
 
-manifest ... by a godly *walk* and conversation, that they are worthy of it, [[D&C 20.69|D&C 20:69]].
+manifest … by a godly *walk* and conversation, that they are worthy of it, [[D&C 20.69|D&C 20:69]].

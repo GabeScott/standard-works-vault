@@ -1,4 +1,3 @@
 # Carmel
 
-
-*See* [BD Carmel](https://www.churchofjesuschrist.org/study/scriptures/bd/carmel?lang=eng)
+*See also* [[BD Carmel.md|BD Carmel]]

@@ -1,11 +1,10 @@
 # Family, Patriarchal
 
-
 *See also* [[Patriarch.md|Patriarch]]
 
 in thee shall all *families* of the earth be blessed, [[Genesis 12.3|Genesis 12:3]].
 
-Gather ... and hearken unto Israel your *father*, [[Genesis 49.2|Genesis 49:2]].
+Gather … and hearken unto Israel your *father*, [[Genesis 49.2|Genesis 49:2]].
 
 take you a lamb according to your *families*, [[Exodus 12.21|Exodus 12:21]].
 
@@ -13,9 +12,9 @@ Honour thy *father* and thy mother, [[Exodus 20.12|Exodus 20:12]].
 
 return every man unto his *family*, [[Leviticus 25.10|Leviticus 25:10]].
 
-Take ye the sum of all the congregation ... after their *families*, by the house of their fathers, [[Numbers 1.2|Numbers 1:2]].
+Take ye the sum of all the congregation … after their *families*, by the house of their fathers, [[Numbers 1.2|Numbers 1:2]].
 
-the *family* ... shall come by households, [[Joshua 7.14|Joshua 7:14]].
+the *family* … shall come by households, [[Joshua 7.14|Joshua 7:14]].
 
 oath which he sware to our *father* Abraham, [[Luke 1.73|Luke 1:73]].
 
@@ -25,11 +24,11 @@ faith of Abraham; who is the *father* of us all, [[Romans 4.16|Romans 4:16]].
 
 ruleth well his own house, having his *children* in subjection, [[1 Timothy 3.4|1 Timothy 3:4]].
 
-God, who ... spake in time past unto the *fathers*, [[Hebrews 1.1|Hebrews 1:1]].
+God, who … spake in time past unto the *fathers*, [[Hebrews 1.1|Hebrews 1:1]].
 
 even the *patriarch* Abraham gave the tenth, [[Hebrews 7.4|Hebrews 7:4]].
 
-pitched their tents ... every man according to his *family*, [[Mosiah 2.5|Mosiah 2:5]].
+pitched their tents … every man according to his *family*, [[Mosiah 2.5|Mosiah 2:5]].
 
 turn the heart of the *fathers* to the children, [[3 Nephi 25.6|3 Nephi 25:6]].
 
@@ -40,5 +39,3 @@ This *order* was instituted in the days of Adam, [[D&C 107.41|D&C 107:41]].
 continuation of the *seeds* forever, [[D&C 132.19|D&C 132:19]].
 
 Abraham received promises concerning his *seed*, [[D&C 132.30|D&C 132:30]].
-
-*See also* [[Genesis 8.16|Genesis 8:16]]; [[Proverbs 17.6|Proverbs 17:6]]; [[Luke 3.23|Luke 3:23-38]][[Luke 3.24|]][[Luke 3.25|]][[Luke 3.26|]][[Luke 3.27|]][[Luke 3.28|]][[Luke 3.29|]][[Luke 3.30|]][[Luke 3.31|]][[Luke 3.32|]][[Luke 3.33|]][[Luke 3.34|]][[Luke 3.35|]][[Luke 3.36|]][[Luke 3.37|]][[Luke 3.38|]]; [[Luke 15.21|Luke 15:21]]; [[1 Corinthians 7.10|1 Corinthians 7:10]]; [[Ephesians 6.4|Ephesians 6:4]]; [[2 Nephi 4.5|2 Nephi 4:5]]; [[D&C 68.25|D&C 68:25]].

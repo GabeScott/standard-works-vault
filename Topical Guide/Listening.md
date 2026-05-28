@@ -1,4 +1,3 @@
 # Listening
 
-
-*See* [[Communication.md|Communication]]; [[Learn, Learning.md|Learn]]; [[Understanding.md|Understanding]]
+*See also* [[Communication.md|Communication]]; [[Learn.md|Learn]]; [[Understanding.md|Understanding]]

@@ -5,6 +5,6 @@
 [Isaiah 12:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/12.2?lang=eng#p2)
 
 
-[^a]: This is one of the four times only that the name Jehovah is written out in full in the King James English Bible. See [[Exodus 6.3|Ex. 6:3]]; [[Psalms 83.18|Ps. 83:18]]; [[Isaiah 26.4|Isa. 26:4]]. In all other places Lord is used instead. [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].
-[^b]: [[Priesthood, Power of|TG Priesthood, Power of]]; [[Strength|Strength]].
-[^c]: [[Salvation|TG Salvation]].
+[^a]: This is one of the four times only that the name Jehovah is written out in full in the King James English Bible. See [[Exodus 6.3|Ex. 6:3]]; [[Psalms 83.18|Ps. 83:18]]; [[Isaiah 26.4|Isa. 26:4]]. In all other places Lord is used instead. [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^b]: [[Priesthood, Power of|TG Priesthood, Power of]]; [[Strength|Strength]].  
+[^c]: [[Salvation|TG Salvation]].  

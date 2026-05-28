@@ -16,7 +16,7 @@ It was evident that this distraught couple was not to be calmed or reassured by 
 
 In their present tragedy they were not seeking counsel or comfort; rather, it appeared, they were looking for someone who would suffer with them and join in the chorus of “If there is a merciful God, why does He allow this to happen?” We must remember that all suffering is not punishment. It is imperative that we do not allow ourselves to be destroyed by the conduct of others.
 
-Sometimes we spend so much time trying to determine what we did wrong in the past to deserve the unpleasant happenings of the moment that we fail to resolve the challenges of the present. Og Mandino wrote in his book *The Greatest Miracle in the World,* “If we lock ourselves in a prison of failure and self-pity, we are the only jailers … we have the only key to our freedom.” (New York: Frederick Fell Publishers, 1975, p. 61.)
+Sometimes we spend so much time trying to determine what we did wrong in the past to deserve the unpleasant happenings of the moment that we fail to resolve the challenges of the present. Og Mandino wrote in his book *The Greatest Miracle in the World,* “If we lock ourselves in a prison of failure and self-pity, we are the only jailers … we have the only key to our freedom.” (New York: Frederick Fell Publishers, 1975, p. 61.)
 
 We can let ourselves out of such a prison by turning to the Lord for strength. With His help we can use our trials as stepping-stones. The keys are in our hands.
 
@@ -50,7 +50,7 @@ When family members disappoint us, we especially need to learn endurance. As lon
 
 As we viewed on television some of the Olympic games held this summer in Los Angeles, we thrilled at the abilities of these fine young athletes from all over the world. One might easily compare these races and contests of the Olympics with the great race in which we are all involved—the race for eternal life. One gold-medal winner said his success was achieved by being able to endure the pain of commitment and self-discipline.
 
-The Apostle Paul likened life to a great race when he declared: “Know ye not that they which run in a race run all, but one receiveth the prize? So run that ye may obtain.” ([[1 Corinthians 9.24|1 Cor. 9:24]].)
+The Apostle Paul likened life to a great race when he declared: “Know ye not that they which run in a race run all, but one receiveth the prize? So run that ye may obtain.” ([[1 Corinthians 9.24|1 Cor. 9:24]].)
 
 And before the words of Paul fell upon the ears of his listeners, the counsel of the Preacher, the son of David, cautioned: “The race is not to the swift, nor the battle to the strong, but he that endureth to the end shall be saved.” (See [[Ecclesiastes 9.11|Eccl. 9:11]]; [[Matthew 10.22|Matt. 10:22]]; [[Mark 13.13|Mark 13:13]].)
 
@@ -88,15 +88,13 @@ Day by day we can make the effort to gain the power to last and to suffer withou
 
 Friends and loved ones often offer strength and support when our own resolve is weak. In turn, our own strength and capacity will be doubled when we help others endure.
 
-I pray that God will help us to endure well, with purpose and power. When we so do, the meaningful declaration in [[2 Timothy 4.7|2 Tim. 4:7]] will take on a new dimension:
+I pray that God will help us to endure well, with purpose and power. When we so do, the meaningful declaration in [[2 Timothy 4.7|2 Tim. 4:7]] will take on a new dimension:
 
 “I have fought a good fight, I have finished my course, I have kept the faith.”
 
-When heartaches, tragedies, disappointments, injury, unusual attention, fame, or excessive prosperity become part of our lives, our challenges and responsibilities will be to endure them well. God will assist us in our quest to conquer, triumph, and continue if we humbly rededicate ourselves to the meaningful declaration “We have endured many things, and hope to be able to endure all things.” ([[Articles of Faith 1.13|A of F 1:13]].)
+When heartaches, tragedies, disappointments, injury, unusual attention, fame, or excessive prosperity become part of our lives, our challenges and responsibilities will be to endure them well. God will assist us in our quest to conquer, triumph, and continue if we humbly rededicate ourselves to the meaningful declaration “We have endured many things, and hope to be able to endure all things.” ([[Articles of Faith 1.13|A of F 1:13]].)
 
 God does live. Jesus is the Christ. One of His marks of greatness, His endurance, stands as a constant beacon for us to emulate. During His earthly sojourn He endured well as He suffered agony and rejection in their deepest forms. I bear my witness that God will help us to endure as we put forth the effort to live His teachings, seek His guidance, and keep His commandments. In the name of Jesus Christ, amen.
-
-
 
 
 

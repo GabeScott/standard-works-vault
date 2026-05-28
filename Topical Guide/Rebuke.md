@@ -1,9 +1,8 @@
 # Rebuke
 
+*See also* [[Chastening.md|Chastening]]; [[Reproach.md|Reproach]]; [[Reproof.md|Reproof]]
 
-*See also* [[Chastening.md|Chastening]]; [[Reproach.md|Reproach]]; [[Reproof, Reprove.md|Reproof]]
-
-thou shalt ... *rebuke* thy neighbour, [[Leviticus 19.17|Leviticus 19:17]].
+thou shalt … *rebuke* thy neighbour, [[Leviticus 19.17|Leviticus 19:17]].
 
 *rebukes* dost correct man for iniquity, [[Psalms 39.11|Psalms 39:11]].
 
@@ -21,9 +20,9 @@ He that *rebuketh* a man afterwards shall find more favour, [[Proverbs 28.23|Pro
 
 better to hear the *rebuke* of the wise, [[Ecclesiastes 7.5|Ecclesiastes 7:5]].
 
-he shall judge ... and shall *rebuke* many people, [[Isaiah 2.4|Isaiah 2:4]] ([[Micah 4.3|Micah 4:3]]; [[2 Nephi 12.4|2 Nephi 12:4]]).
+he shall judge … and shall *rebuke* many people, [[Isaiah 2.4|Isaiah 2:4]] ([[Micah 4.3|Micah 4:3]]; [[2 Nephi 12.4|2 Nephi 12:4]]).
 
-nations shall rush ... but God shall *rebuke* them, [[Isaiah 17.13|Isaiah 17:13]].
+nations shall rush … but God shall *rebuke* them, [[Isaiah 17.13|Isaiah 17:13]].
 
 *rebuke* of his people shall he take away, [[Isaiah 25.8|Isaiah 25:8]].
 
@@ -47,7 +46,7 @@ disciples *rebuked* them, [[Matthew 19.13|Matthew 19:13]] ([[Mark 10.13|Mark 10:
 
 Jesus *rebuked* him, [[Mark 1.25|Mark 1:25]] ([[Luke 4.35|Luke 4:35]]).
 
-he ... *rebuked* the fever, [[Luke 4.39|Luke 4:39]].
+he … *rebuked* the fever, [[Luke 4.39|Luke 4:39]].
 
 If thy brother trespass against thee, *rebuke* him, [[Luke 17.3|Luke 17:3]].
 
@@ -65,12 +64,10 @@ nor faint when thou art *rebuked*, [[Hebrews 12.5|Hebrews 12:5]].
 
 As many as I love, I *rebuke*, [[Revelation 3.19|Revelation 3:19]].
 
-any one offend openly ... shall be *rebuked* openly, [[D&C 42.91|D&C 42:91]].
+any one offend openly … shall be *rebuked* openly, [[D&C 42.91|D&C 42:91]].
 
-any shall offend in secret ... shall be *rebuked* in secret, [[D&C 42.92|D&C 42:92]].
+any shall offend in secret … shall be *rebuked* in secret, [[D&C 42.92|D&C 42:92]].
 
 must needs stand *rebuked* before the Lord, [[D&C 93.47|D&C 93:47]].
 
 Thy voice shall be a *rebuke* unto the transgressor, [[D&C 112.9|D&C 112:9]].
-
-*See also* [[Alma 19.20|Alma 19:20-21]][[Alma 19.21|]].

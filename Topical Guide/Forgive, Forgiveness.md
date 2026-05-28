@@ -1,7 +1,6 @@
 # Forgive, Forgiveness
 
-
-*See also* [[Benevolence.md|Benevolence]]; [[Confession.md|Confession]]; [[Forbear, Forbearance.md|Forbear]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Remission of Sins.md|Remission of Sins]]
+*See also* [[Benevolence.md|Benevolence]]; [[Confession.md|Confession]]; [[Forbear.md|Forbear]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Remission of Sins.md|Remission of Sins]]
 
 say unto Joseph, *Forgive*, [[Genesis 50.17|Genesis 50:17]].
 
@@ -15,7 +14,7 @@ atonement for them, and it shall be *forgiven*, [[Leviticus 4.20|Leviticus 4:20]
 
 sin which he hath done shall be *forgiven*, [[Leviticus 19.22|Leviticus 19:22]].
 
-Lord is ... of great mercy, *forgiving* iniquity, [[Numbers 14.18|Numbers 14:18]].
+Lord is … of great mercy, *forgiving* iniquity, [[Numbers 14.18|Numbers 14:18]].
 
 it shall be *forgiven* them, [[Numbers 15.25|Numbers 15:25]].
 
@@ -25,7 +24,7 @@ thou art a God ready to *pardon*, [[Nehemiah 9.17|Nehemiah 9:17]].
 
 whose transgression is *forgiven*, [[Psalms 32.1|Psalms 32:1]] ([[Romans 4.7|Romans 4:7]]).
 
-I acknowledged my sin ... and thou *forgavest*, [[Psalms 32.5|Psalms 32:5]].
+I acknowledged my sin … and thou *forgavest*, [[Psalms 32.5|Psalms 32:5]].
 
 Lord, art good, and ready to *forgive*, [[Psalms 86.5|Psalms 86:5]].
 
@@ -37,7 +36,7 @@ sins be as scarlet, they shall be as *white* as snow, [[Isaiah 1.18|Isaiah 1:18]
 
 thine iniquity is taken away, and thy sin *purged*, [[Isaiah 6.7|Isaiah 6:7]] ([[2 Nephi 16.7|2 Nephi 16:7]]).
 
-cry unto her ... that her iniquity is *pardoned*, [[Isaiah 40.2|Isaiah 40:2]].
+cry unto her … that her iniquity is *pardoned*, [[Isaiah 40.2|Isaiah 40:2]].
 
 I, am he that *blotteth* out thy transgressions, [[Isaiah 43.25|Isaiah 43:25]].
 
@@ -45,11 +44,11 @@ I will *cleanse* them from all their iniquity, [[Jeremiah 33.8|Jeremiah 33:8]].
 
 I will *pardon* them whom I reserve, [[Jeremiah 50.20|Jeremiah 50:20]].
 
-his *transgressions* ... shall not be mentioned, [[Ezekiel 18.22|Ezekiel 18:22]].
+his *transgressions* … shall not be mentioned, [[Ezekiel 18.22|Ezekiel 18:22]].
 
-None of his *sins* ... shall be mentioned unto him, [[Ezekiel 33.16|Ezekiel 33:16]].
+None of his *sins* … shall be mentioned unto him, [[Ezekiel 33.16|Ezekiel 33:16]].
 
-To the Lord ... belong mercies and *forgivenesses*, [[Daniel 9.9|Daniel 9:9]].
+To the Lord … belong mercies and *forgivenesses*, [[Daniel 9.9|Daniel 9:9]].
 
 God like unto thee, that *pardoneth* iniquity, [[Micah 7.18|Micah 7:18]].
 
@@ -57,7 +56,7 @@ God like unto thee, that *pardoneth* iniquity, [[Micah 7.18|Micah 7:18]].
 
 if ye *forgive* not men their trespasses, [[Matthew 6.15|Matthew 6:15]] ([[Mark 11.25|Mark 11:25]]; [[3 Nephi 13.14|3 Nephi 13:14]]).
 
-Son of man hath power ... to *forgive* sins, [[Matthew 9.6|Matthew 9:6]] ([[Mark 2.10|Mark 2:10]]; [[Luke 5.20|Luke 5:20-24]][[Luke 5.21|]][[Luke 5.22|]][[Luke 5.23|]][[Luke 5.24|]]).
+Son of man hath power … to *forgive* sins, [[Matthew 9.6|Matthew 9:6]] ([[Mark 2.10|Mark 2:10]]).
 
 it shall not be *forgiven* him, neither in this world, [[Matthew 12.32|Matthew 12:32]] ([[Mark 3.28|Mark 3:28]]; [[Luke 12.10|Luke 12:10]]).
 
@@ -101,7 +100,7 @@ faithful and just to *forgive* us our sins, [[1 John 1.9|1 John 1:9]].
 
 to take away our *sins*, [[1 John 3.5|1 John 3:5]].
 
-pray unto the Lord ... for *forgiveness*, [[1 Nephi 7.21|1 Nephi 7:21]].
+pray unto the Lord … for *forgiveness*, [[1 Nephi 7.21|1 Nephi 7:21]].
 
 Enos, thy sins are *forgiven* thee, [[Enos 1.5|Enos 1:5]].
 
@@ -113,17 +112,17 @@ not easy for him to obtain *forgiveness*, [[Alma 39.6|Alma 39:6]].
 
 for your money you shall be *forgiven* of your sins, [[Mormon 8.32|Mormon 8:32]].
 
-oft as they repented ... they were *forgiven*, [[Moroni 6.8|Moroni 6:8]].
+oft as they repented … they were *forgiven*, [[Moroni 6.8|Moroni 6:8]].
 
-repents and does the commandments ... shall be *forgiven*, [[D&C 1.32|D&C 1:32]].
+repents and does the commandments … shall be *forgiven*, [[D&C 1.32|D&C 1:32]].
 
 at this time your sins are *forgiven* you, [[D&C 29.3|D&C 29:3]].
 
-thrust in your sickle ... and your sins are *forgiven*, [[D&C 31.5|D&C 31:5]].
+thrust in your sickle … and your sins are *forgiven*, [[D&C 31.5|D&C 31:5]].
 
 your sins are *forgiven* you, [[D&C 36.1|D&C 36:1]] ([[D&C 50.36|D&C 50:36]]).
 
-adultery ... forsaketh it, and doeth it no more, thou shalt *forgive*, [[D&C 42.25|D&C 42:25]].
+adultery … forsaketh it, and doeth it no more, thou shalt *forgive*, [[D&C 42.25|D&C 42:25]].
 
 he who has repented of his sins, the same is *forgiven*, [[D&C 58.42|D&C 58:42]] ([[D&C 68.24|D&C 68:24]]).
 
@@ -135,7 +134,7 @@ Lord, will *forgive* whom I will *forgive*, but of you it is required to *forgiv
 
 no *forgiveness* in this world nor in the world to come, [[D&C 76.34|D&C 76:34]].
 
-as you have *forgiven* one another ... Lord, *forgive* you, [[D&C 82.1|D&C 82:1]].
+as you have *forgiven* one another … Lord, *forgive* you, [[D&C 82.1|D&C 82:1]].
 
 I will *forgive* you of your sins with this commandment, [[D&C 84.61|D&C 84:61]].
 
@@ -144,5 +143,3 @@ chasten that their sins may be *forgiven*, [[D&C 95.1|D&C 95:1]].
 blasphemy against the Holy Ghost, which shall not be *forgiven*, [[D&C 132.27|D&C 132:27]].
 
 *forgiven* thee thy transgression in the Garden, [[Moses 6.53|Moses 6:53]].
-
-*See also* [[Matthew 5.24|Matthew 5:24]]; [[Romans 9.18|Romans 9:18]]; [[Romans 12.17|Romans 12:17]]; [[Alma 34.36|Alma 34:36]]; [[Alma 36.20|Alma 36:20]]; [[3 Nephi 12.24|3 Nephi 12:24]]; [[D&C 56.14|D&C 56:14]].

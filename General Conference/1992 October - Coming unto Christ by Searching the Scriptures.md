@@ -6,13 +6,13 @@ By Elder Merrill J. Bateman - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1992/10/coming-unto-christ-by-searching-the-scriptures?lang=eng)
 
-On numerous occasions the Lord has commanded his disciples to search the scriptures in order to learn and live the doctrines of salvation. During his mortal ministry, the Savior stated, “Search the scriptures; … they are they which testify of me” ([[John 5.39|John 5:39]]). During his appearance on the Western Hemisphere following his resurrection, Christ quoted from the scriptures and then said to the Nephites: “Ye ought to search these things. Yea, a commandment I give unto you that ye search these things diligently” ([[3 Nephi 23.1|3 Ne. 23:1]]). In our day the Lord enjoins his followers to “search these commandments, for they are true and faithful, and … shall all be fulfilled” ([[D&C 1.37|D&C 1:37]]).
+On numerous occasions the Lord has commanded his disciples to search the scriptures in order to learn and live the doctrines of salvation. During his mortal ministry, the Savior stated, “Search the scriptures; … they are they which testify of me” ([[John 5.39|John 5:39]]). During his appearance on the Western Hemisphere following his resurrection, Christ quoted from the scriptures and then said to the Nephites: “Ye ought to search these things. Yea, a commandment I give unto you that ye search these things diligently” ([[3 Nephi 23.1|3 Ne. 23:1]]). In our day the Lord enjoins his followers to “search these commandments, for they are true and faithful, and … shall all be fulfilled” ([[D&C 1.37|D&C 1:37]]).
 
 The Savior revealed to the Prophet Joseph Smith that it is possible to hear his voice and know his words through the scriptures. He said:
 
-“These words are not of men nor of man, but of me; …
+“These words are not of men nor of man, but of me; …
 
-“For it is my voice which speaketh them unto you; for they are given by my Spirit … , and by my power you can read them one to another; …
+“For it is my voice which speaketh them unto you; for they are given by my Spirit … , and by my power you can read them one to another; …
 
 “Wherefore, you can testify that you have heard my voice, and know my words” ([[D&C 18.34|D&C 18:34–36]][[D&C 18.35|]][[D&C 18.36|]]).
 
@@ -36,17 +36,17 @@ The story illustrates the difference between just looking and searching diligent
 
 The importance of possessing and searching the Lord’s words is illustrated in the Book of Mormon. The prophet Lehi and his family had traveled from Jerusalem to the borders of the Red Sea and then a further three days’ journey into the wilderness when the Lord reminded Lehi that he was spiritually unarmed. The family, in their haste to leave Jerusalem, had not taken the scriptures with them. They did not have the words of the Lord to earlier prophets.
 
-Lehi was commanded in a dream to send his sons back to Jerusalem for a set of brass plates which contained the writings of the prophets and the genealogy of his forefathers. After considerable difficulty and time, the sons returned to the father’s tent with the plates. After the family gave thanks to the Lord for the safe return of the sons, the Book of Mormon states that they “searched \[the plates\] and found that they were desirable; yea, even of great worth unto us, insomuch that we could preserve the commandments of the Lord unto our children” ([[1 Nephi 5.21|1 Ne. 5:21]]).
+Lehi was commanded in a dream to send his sons back to Jerusalem for a set of brass plates which contained the writings of the prophets and the genealogy of his forefathers. After considerable difficulty and time, the sons returned to the father’s tent with the plates. After the family gave thanks to the Lord for the safe return of the sons, the Book of Mormon states that they “searched \[the plates\] and found that they were desirable; yea, even of great worth unto us, insomuch that we could preserve the commandments of the Lord unto our children” ([[1 Nephi 5.21|1 Ne. 5:21]]).
 
 The plates of brass coupled with their own records allowed the family to pass the words of the Lord from one generation to the next. Scriptures and prayer became the primary means by which each succeeding generation developed faith in Christ.
 
 There are certain blessings obtained when one searches the scriptures. As a person studies the words of the Lord and obeys them, he or she draws closer to the Savior and obtains a greater desire to live a righteous life. The power to resist temptation increases, and spiritual weaknesses are overcome. Spiritual wounds are healed.
 
-Lehi’s great visionary dream came soon after he had searched the brass plates (see [[1 Nephi 8.1|1 Ne. 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]]). In the dream Lehi saw a tree which produced a fruit which was exceedingly white, very sweet to the taste, and desirable above all other fruit. He saw a path leading to the tree and a rod of iron along the path. He saw mists of darkness on the path, which caused some to lose their way and wander off. Others reached the tree by holding to the rod, but then became ashamed, let go of the rod of iron, and fell away. According to the vision, the only way to reach the tree and become a permanent partaker of the fruit was to “continually \[hold\] fast” to the iron rod ([[1 Nephi 8.30|1 Ne. 8:30]]).
+Lehi’s great visionary dream came soon after he had searched the brass plates (see [[1 Nephi 8.1|1 Ne. 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]]). In the dream Lehi saw a tree which produced a fruit which was exceedingly white, very sweet to the taste, and desirable above all other fruit. He saw a path leading to the tree and a rod of iron along the path. He saw mists of darkness on the path, which caused some to lose their way and wander off. Others reached the tree by holding to the rod, but then became ashamed, let go of the rod of iron, and fell away. According to the vision, the only way to reach the tree and become a permanent partaker of the fruit was to “continually \[hold\] fast” to the iron rod ([[1 Nephi 8.30|1 Ne. 8:30]]).
 
-What was the rod of iron? Nephi defined it as the “word of God”—the words of the living prophets and the scriptures, which point people to Christ. Nephi further stated that those who hearkened and held fast to the word of God would never perish. (See [[1 Nephi 15.24|1 Ne. 15:24]].)
+What was the rod of iron? Nephi defined it as the “word of God”—the words of the living prophets and the scriptures, which point people to Christ. Nephi further stated that those who hearkened and held fast to the word of God would never perish. (See [[1 Nephi 15.24|1 Ne. 15:24]].)
 
-The tree in the dream is the tree of life, which represents God’s love for us as expressed in the condescension of the Father and the Son (see [[1 Nephi 11.1|1 Ne. 11]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]]). Holding fast to the iron rod builds faith in Christ and his work.
+The tree in the dream is the tree of life, which represents God’s love for us as expressed in the condescension of the Father and the Son (see [[1 Nephi 11.1|1 Ne. 11]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]]). Holding fast to the iron rod builds faith in Christ and his work.
 
 The prophet Alma, living five hundred years after Lehi, was strongly impacted by Lehi’s vision of the tree of life. Alma, however, changes the imagery in an interesting way. He likens the word of God to a seed which is planted in the heart and then nourished. He states that if people will no more than desire to believe in Christ, the seed will sprout and grow, and they will feel a swelling inside as the seed enlarges the soul. The desire to believe, coupled with obedience, eventually turns to faith in Jesus Christ.
 
@@ -59,12 +59,10 @@ President Benson, in the April 1986 general conference, expressed these thoughts
 
 
 
-[^1]: Camilla W. Judd, in Kate B. Carter, comp., *Treasures of Pioneer History,* 6 vols. (Salt Lake City: Daughters of the Utah Pioneers, 1952–57), 5:240–41; see also Allan K. Burgess, *How to Understand and Enjoy the Scriptures* (Salt Lake City: Deseret Book Co., 1986), pp. 6–7.
+[^1]: Camilla W. Judd, in Kate B. Carter, comp., *Treasures of Pioneer History,* 6 vols. (Salt Lake City: Daughters of the Utah Pioneers, 1952–57), 5:240–41; see also Allan K. Burgess, *How to Understand and Enjoy the Scriptures* (Salt Lake City: Deseret Book Co., 1986), pp. 6–7.
 
-[^2]: In Conference Report, Oct. 1979, p. 91; or *Ensign,* Nov. 1979, p. 64.
+[^2]: In Conference Report, Oct. 1979, [[1979 October - Reading the Scriptures.md|p. 91]]; or *Ensign,* Nov. 1979, p. 64.
 
-[^3]: “The Power of the Word,” *Ensign,* May 1986, p. 82.
+[^3]: “The Power of the Word,” *Ensign,* May 1986, p. 82.
 
-
-
-#Jesus_Christ #Scripture_Study #Scriptures
+#JesusChrist #ScriptureStudy #Scriptures

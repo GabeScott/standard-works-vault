@@ -1,12 +1,12 @@
 # Honesty, a Principle of Salvation
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/10/honesty-a-principle-of-salvation?lang=eng)
 
-One of the Articles of Faith of The Church of Jesus Christ of Latter-day Saints includes the expression, “We believe in being honest.” ([[Articles of Faith 1.13|A of F 1:13]].)
+One of the Articles of Faith of The Church of Jesus Christ of Latter-day Saints includes the expression, “We believe in being honest.” ([[Articles of Faith 1.13|A of F 1:13]].)
 
 But we do not believe in honesty merely as a matter of policy. It is far more important than that. Honesty is a principle of salvation in the kingdom of God. Without it there can be no salvation. Just as no man or woman can be saved without baptism, so no one can be saved without honesty. As we cannot advance in the kingdom of heaven without a resurrection, so we cannot move into celestial realms without honesty.
 
@@ -73,7 +73,7 @@ In the following verses, the scripture ties this outburst to another heinous sin
 
 “These are they who suffer the vengeance of eternal fire.
 
-“These are they who are cast down to hell and suffer the wrath of Almighty God. …” ([[D&C 76.103|D&C 76:103–106]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]].)
+“These are they who are cast down to hell and suffer the wrath of Almighty God. …” ([[D&C 76.103|D&C 76:103–106]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]].)
 
 Most of us claim to be Christians, bearing the name of Christ and worshiping in his holy name. But are we really Christians at heart? Is our worship truly acceptable to him? This we may determine by asking if we truly keep his commandments. If not, are we worthy to bear his name?
 
@@ -97,7 +97,7 @@ Do we not remember that he has said that if we accept his commandments with a do
 
 If we are to be Christians in deed, we should remember and keep these sayings:
 
-“… if thou bring thy gift to the altar, and there rememberest that thy brother hath ought against thee; Leave there thy gift before the altar, and go thy way; first be reconciled to thy brother, and then come and offer thy gift.” ([[Matthew 5.23|Matt. 5:23–24]][[Matthew 5.24|]].)
+“… if thou bring thy gift to the altar, and there rememberest that thy brother hath ought against thee; Leave there thy gift before the altar, and go thy way; first be reconciled to thy brother, and then come and offer thy gift.” ([[Matthew 5.23|Matt. 5:23–24]][[Matthew 5.24|]].)
 
 “All things whatsoever ye would that men should do to you, do ye even so to them.” ([[Matthew 7.12|Matt. 7:12]].)
 
@@ -113,7 +113,7 @@ In modern revelation he said forcefully: “Thou shalt not lie; he that lieth an
 
 And he made an important part of Christian teachings this great precept: “Thou shalt not speak evil of thy neighbor, nor do him any harm.” ([[D&C 42.27|D&C 42:27]].)
 
-And then quite on the opposite side of the picture, as he taught mankind to avoid avarice and greed, which leads into all forms of dishonesty, he urged that we take the higher route. Instead of taking *from* our fellowmen, we must learn to *give*—to be good Samaritans in very deed; to share with our less fortunate neighbors, and in reality show love for our fellowmen. So he said: “… remember the poor, and consecrate of thy properties for their support. … And inasmuch as ye impart of your substance unto the poor, ye will do it unto me. …” ([[D&C 42.30|D&C 42:30–31]][[D&C 42.31|]].)
+And then quite on the opposite side of the picture, as he taught mankind to avoid avarice and greed, which leads into all forms of dishonesty, he urged that we take the higher route. Instead of taking *from* our fellowmen, we must learn to *give*—to be good Samaritans in very deed; to share with our less fortunate neighbors, and in reality show love for our fellowmen. So he said: “… remember the poor, and consecrate of thy properties for their support. … And inasmuch as ye impart of your substance unto the poor, ye will do it unto me. …” ([[D&C 42.30|D&C 42:30–31]][[D&C 42.31|]].)
 
 The Savior knows the great burden of sin. He bore that burden in Gethsemane and on the cross for each one of us. He knows that the sinful life is the costly and miserable life, and that wickedness never was happiness. He invites us to bear a lighter burden, one of joy, relief, and deep satisfaction, and he says:
 
@@ -127,25 +127,23 @@ The Lord makes it clear that all have need of repentance, and that if we truly r
 
 Through his ancient servant John he said:
 
-“… if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin.
+“… if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin.
 
 “If we say that we have no sin, we deceive ourselves, and the truth is not in us.”
 
 On the other hand he said:
 
-“If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.” ([[1 John 1.7|1 Jn. 1:7–9]][[1 John 1.8|]][[1 John 1.9|]].)
+“If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.” ([[1 John 1.7|1 Jn. 1:7–9]][[1 John 1.8|]][[1 John 1.9|]].)
 
 “He that loveth his brother abideth in the light, and there is none occasion of stumbling in him.
 
-“But he that hateth his brother is in darkness, and walketh in darkness, and knoweth not whither he goeth, because that darkness hath blinded his eyes.” ([[1 John 2.10|1 Jn. 2:10–11]][[1 John 2.11|]].)
+“But he that hateth his brother is in darkness, and walketh in darkness, and knoweth not whither he goeth, because that darkness hath blinded his eyes.” ([[1 John 2.10|1 Jn. 2:10–11]][[1 John 2.11|]].)
 
 And then we have the words from James that faith without works is dead. We must combine our faith with our works and our works with our faith to be Christians indeed, and our works must be works of truth. (See [[James 2.17|James 2:17–18]][[James 2.18|]].)
 
 The Spirit of God is the spirit of truth. The Savior is the personification of truth. Describing himself he said, “I am the way, the truth, and the life: no man cometh unto the Father, but by me.” ([[John 14.6|John 14:6]].)
 
 Except through the truth there is no salvation in the kingdom of God, and that truth is Christ. And this is my testimony to you in the sacred name of the Lord Jesus Christ. Amen.
-
-
 
 
 

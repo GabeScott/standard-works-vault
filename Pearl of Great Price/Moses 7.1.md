@@ -6,4 +6,4 @@
 
 
 [^a]: [[Sons and Daughters of God|TG Sons and Daughters of God]].  
-[^b]: [[Alma 40.14|Alma 40:14 (11–14)]].  
+[^b]: [[Alma 40.11|Alma 40:14 (11–14)]][[Alma 40.12|]][[Alma 40.13|]][[Alma 40.14|]].  

@@ -1,6 +1,5 @@
 # Rejoice
 
-
 *See also* [[Joy.md|Joy]]
 
 *rejoice* before the Lord, [[Leviticus 23.40|Leviticus 23:40]] ([[Deuteronomy 12.12|Deuteronomy 12:12]]; [[Deuteronomy 16.11|Deuteronomy 16:11]]).
@@ -31,7 +30,7 @@ righteous are in authority, the people *rejoice*, [[Proverbs 29.2|Proverbs 29:2]
 
 my heart *rejoiced* in all my labour, [[Ecclesiastes 2.10|Ecclesiastes 2:10]].
 
-Every man ... to *rejoice* in his labour, [[Ecclesiastes 5.19|Ecclesiastes 5:19]].
+Every man … to *rejoice* in his labour, [[Ecclesiastes 5.19|Ecclesiastes 5:19]].
 
 poor among men shall *rejoice* in the Holy One, [[Isaiah 29.19|Isaiah 29:19]] ([[2 Nephi 27.30|2 Nephi 27:30]]).
 
@@ -53,7 +52,7 @@ my spirit hath *rejoiced* in God my Saviour, [[Luke 1.47|Luke 1:47]].
 
 In that hour Jesus *rejoiced* in spirit, [[Luke 10.21|Luke 10:21]].
 
-*rejoiceth* greatly because of the bridegroom's voice, [[John 3.29|John 3:29]].
+*rejoiceth* greatly because of the bridegroom’s voice, [[John 3.29|John 3:29]].
 
 he that soweth and he that reapeth may *rejoice* together, [[John 4.36|John 4:36]].
 
@@ -89,11 +88,11 @@ boastings: all such *rejoicing* is evil, [[James 4.16|James 4:16]].
 
 ye *rejoice* with joy unspeakable, [[1 Peter 1.8|1 Peter 1:8]].
 
-*rejoice*, inasmuch as ye are partakers of Christ's sufferings, [[1 Peter 4.13|1 Peter 4:13]].
+*rejoice*, inasmuch as ye are partakers of Christ’s sufferings, [[1 Peter 4.13|1 Peter 4:13]].
 
 *rejoice*, ye heavens, [[Revelation 12.12|Revelation 12:12]].
 
-give thanks unto his holy name ... your hearts *rejoice*, [[2 Nephi 9.52|2 Nephi 9:52]].
+give thanks unto his holy name … your hearts *rejoice*, [[2 Nephi 9.52|2 Nephi 9:52]].
 
 we *rejoice* in Christ, [[2 Nephi 25.26|2 Nephi 25:26]].
 
@@ -103,11 +102,9 @@ we do *rejoice* with such exceedingly great *joy*, [[Mosiah 5.4|Mosiah 5:4]].
 
 arose and came forth out of the water *rejoicing*, [[Mosiah 18.14|Mosiah 18:14]].
 
-I ... do *rejoice* in the greatness of your heart, [[Alma 61.9|Alma 61:9]].
+I … do *rejoice* in the greatness of your heart, [[Alma 61.9|Alma 61:9]].
 
 even the Father *rejoiceth*, [[3 Nephi 27.30|3 Nephi 27:30]].
-
-Emer ... saw the Son of Righteousness, and did *rejoice* and glory in his day, [[Ether 9.21|Ether 9:21-22]][[Ether 9.22|]].
 
 *rejoiceth* not in iniquity but *rejoiceth* in the truth, [[Moroni 7.45|Moroni 7:45]].
 
@@ -119,20 +116,20 @@ lift up thy heart and *rejoice*, [[D&C 25.13|D&C 25:13]].
 
 Zion shall *rejoice* upon the hills, [[D&C 35.24|D&C 35:24]] ([[D&C 49.25|D&C 49:25]]).
 
-understand one another ... are edified and *rejoice* together, [[D&C 50.22|D&C 50:22]].
+understand one another … are edified and *rejoice* together, [[D&C 50.22|D&C 50:22]].
 
-ye be not overcome ... with boasting nor *rejoicing*, [[D&C 50.33|D&C 50:33]].
+ye be not overcome … with boasting nor *rejoicing*, [[D&C 50.33|D&C 50:33]].
 
 fasting and prayer, or in other words, *rejoicing* and prayer, [[D&C 59.14|D&C 59:14]].
 
-angels ... *rejoice* over you, and your sins are forgiven, [[D&C 62.3|D&C 62:3]].
+angels … *rejoice* over you, and your sins are forgiven, [[D&C 62.3|D&C 62:3]].
 
-he *rejoices* not in that which is given unto him, neither *rejoices* in ... giver, [[D&C 88.33|D&C 88:33]].
+he *rejoices* not in that which is given unto him, neither *rejoices* in … giver, [[D&C 88.33|D&C 88:33]].
 
-your sins are forgiven ... lift up your heads and *rejoice*, [[D&C 110.5|D&C 110:5]].
+your sins are forgiven … lift up your heads and *rejoice*, [[D&C 110.5|D&C 110:5]].
 
 multiply her, and make her heart to *rejoice*, [[D&C 132.56|D&C 132:56]].
 
-Satan ... laughed, and his angels *rejoiced*, [[Moses 7.26|Moses 7:26]].
+Satan … laughed, and his angels *rejoiced*, [[Moses 7.26|Moses 7:26]].
 
-filled with the Holy Ghost, and *rejoiced* in ... God, [[Joseph Smith History 1.73|Joseph Smith History 1:73]].
+filled with the Holy Ghost, and *rejoiced* in … God, [[Joseph Smith History 1.73|Joseph Smith History 1:73]].

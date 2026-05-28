@@ -10,7 +10,7 @@ By Michelle Craig - *First Counselor in the Young Women General Presidency*
 
 As I was leaving a Young Women camp this summer, a sweet young woman handed me a note. In it, she asked, “How can I tell when God is trying to tell me something?” I *love* her question. Our souls long for a connection with our heavenly home. We want to feel needed and useful. But at times we struggle to distinguish between our own thoughts and the gentle impressions of the Spirit. Prophets, ancient and modern, have taught that if something “invites and entices to do good, it comes from Christ.”[^1]
 
-President Russell M. Nelson has extended a simple, powerful invitation: “My beloved brothers and sisters, I *plead* with you to increase your *spiritual capacity* to receive revelation. … Choose to do the spiritual work required to enjoy the gift of the Holy Ghost and hear the voice of the Spirit more frequently and more clearly.”[^2]
+President Russell M. Nelson has extended a simple, powerful invitation: “My beloved brothers and sisters, I *plead* with you to increase your *spiritual capacity* to receive revelation. … Choose to do the spiritual work required to enjoy the gift of the Holy Ghost and hear the voice of the Spirit more frequently and more clearly.”[^2]
 
 My desire this morning is to speak to you from my heart about four ways to increase your spiritual capacity to receive revelation.
 
@@ -30,7 +30,7 @@ When you receive promptings and then act with intention, the Lord can use you. T
 
 ## 3. Get Your Errand from the Lord
 
-The prayer Heavenly Father seems eager to answer is our plea to be led to someone who needs our help. President Henry B. Eyring has taught us to seek revelation by asking God who we can help for Him. “If you ask questions like that, the Holy Ghost will come and you’ll feel nudges about things you can do for other people. When you go and do those things, you’re on the Lord’s errand, and when you’re on the Lord’s errand, you qualify for the gift of the Holy Ghost.”[^5]
+The prayer Heavenly Father seems eager to answer is our plea to be led to someone who needs our help. President Henry B. Eyring has taught us to seek revelation by asking God who we can help for Him. “If you ask questions like that, the Holy Ghost will come and you’ll feel nudges about things you can do for other people. When you go and do those things, you’re on the Lord’s errand, and when you’re on the Lord’s errand, you qualify for the gift of the Holy Ghost.”[^5]
 
 You can pray and ask the Lord for an errand. As you do, He can use your ordinary skills to accomplish His extraordinary work.
 
@@ -67,32 +67,30 @@ The Church’s new program for children and youth is built on the foundation of 
 
 
 
-[^1]: David A. Bednar, in [Face to Face with Elder and Sister Bednar](https://www.churchofjesuschrist.org/broadcasts/face-to-face/elder-and-sister-bednar?lang=eng) (worldwide youth broadcast, May 12, 2015), facetoface.ChurchofJesusChrist.org; see also [[Moroni 7.16|Moroni 7:16]].
+[^1]: David A. Bednar, in [Face to Face with Elder and Sister Bednar](https://www.churchofjesuschrist.org/broadcasts/face-to-face/elder-and-sister-bednar?lang=eng) (worldwide youth broadcast, May 12, 2015), facetoface.ChurchofJesusChrist.org; see also [[Moroni 7.16|Moroni 7:16]].
 
-[^2]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96; emphasis added.
+[^2]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96; emphasis added.
 
-[^3]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 121.
+[^3]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-9?lang=eng&id=p25#p25)* (2007), 121.
 
-[^4]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 94.
+[^4]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 94.
 
-[^5]: Henry B. Eyring, in “President Eyring 1990s,” *Deseret News,* Apr. 2, 2009, deseretnews.com.
+[^5]: Henry B. Eyring, in “President Eyring 1990s,” *Deseret News,* Apr. 2, 2009, deseretnews.com.
 
 [^6]: See [[Mark 2.1|Mark 2:1–12]][[Mark 2.2|]][[Mark 2.3|]][[Mark 2.4|]][[Mark 2.5|]][[Mark 2.6|]][[Mark 2.7|]][[Mark 2.8|]][[Mark 2.9|]][[Mark 2.10|]][[Mark 2.11|]][[Mark 2.12|]].
 
 [^7]: [[Alma 22.4|Alma 22:4]]; emphasis added.
 
-[^8]: [[1 Nephi 18.1|1 Nephi 18:1]].
+[^8]: [[1 Nephi 18.1|1 Nephi 18:1]].
 
 [^9]: See [[Ether 6.5|Ether 6:5–8]][[Ether 6.6|]][[Ether 6.7|]][[Ether 6.8|]].
 
 [^10]: [[Exodus 14.29|Exodus 14:29]].
 
-[^11]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^11]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^12]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^12]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^13]: See Quentin L. Cook, “[[2017 October - The Eternal Everyday.md|The Eternal Everyday]],” *Ensign* or *Liahona,* Nov. 2017, 51.
+[^13]: See Quentin L. Cook, “[[2017 October - The Eternal Everyday.md|The Eternal Everyday]],” *Ensign* or *Liahona,* Nov. 2017, 51.
 
-
-
-#Holy_Ghost #Revelation
+#HolyGhost #Revelation

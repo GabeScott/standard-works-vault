@@ -1,4 +1,3 @@
 # Self-Control
 
-
-*See* [[Self-Mastery.md|Self-Mastery]]
+*See also* [[Self-Mastery.md|Self-Mastery]]

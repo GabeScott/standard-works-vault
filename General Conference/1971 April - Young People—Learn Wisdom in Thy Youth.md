@@ -1,6 +1,6 @@
 # Young People—Learn Wisdom in Thy Youth
 
-By President Paul H. Dunn - *Of the First Council of the Seventy*
+By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -91,8 +91,6 @@ I used to be a little puzzled about that last part, and now I think I know why w
 Again let me translate that marvelous scripture, using a little more modern phraseology for you young people. Think now of the wedding garment as yours and my character. And when the king, our Heavenly Father, came in to see us, his children, he saw there one of us who had not on a good, moral character. And he saith unto him, “How comest thou in hither, not having a pure, undefiled character?” And you and I were speechless. And then our Heavenly Father said, “Bind him, and take him out of my presence forever.”
 
 I didn’t say that, young people. The Lord did. And our purpose here is to teach you the doctrines of the kingdom. Know of our love, faith, and trust in you, for the future looms bright in terms of your gospel commitment. May you and I together walk down the Lord’s road in peace and harmony is my humble prayer, as I bear witness to these things, in the name of Jesus Christ. Amen.
-
-
 
 
 

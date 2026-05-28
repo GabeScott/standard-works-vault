@@ -24,7 +24,7 @@ We know that the prayer of faith, uttered alone or in our homes or places of wor
 
 A recent nationwide survey found that nearly 8 in 10 Americans “believe that miracles still occur today as \[they did\] in ancient times.” A third of those surveyed said they had “experienced or witnessed a divine healing.”[^4] Many Latter-day Saints have experienced the power of faith in healing the sick. We also hear examples of this among people of faith in other churches. A Texas newspaperman described such a miracle. When a five-year-old girl breathed with difficulty and became feverish, her parents rushed her to the hospital. By the time she arrived there, her kidneys and lungs had shut down, her fever was 107 degrees, and her body was bright red and covered with purple lesions. The doctors said she was dying of toxic shock syndrome, cause unknown. As word spread to family and friends, God-fearing people began praying for her, and a special prayer service was held in their Protestant congregation in Waco, Texas. Miraculously, she suddenly returned from the brink of death and was released from the hospital in a little over a week. Her grandfather wrote, “She is living proof that God does answer prayers and work miracles.”[^5]
 
-Truly, as the Book of Mormon teaches, God “manifesteth himself unto all those who believe in him, by the power of the Holy Ghost; yea, unto every nation, kindred, tongue, and people, working mighty miracles … among the children of men according to their faith” ([[2 Nephi 26.13|2 Nephi 26:13]]).
+Truly, as the Book of Mormon teaches, God “manifesteth himself unto all those who believe in him, by the power of the Holy Ghost; yea, unto every nation, kindred, tongue, and people, working mighty miracles … among the children of men according to their faith” ([[2 Nephi 26.13|2 Nephi 26:13]]).
 
 ## III.
 
@@ -54,7 +54,7 @@ Although we know of many cases where persons blessed by priesthood authority hav
 
 ### Faith
 
-Faith is essential for healing by the powers of heaven. The Book of Mormon even teaches that “if there be no faith among the children of men God can do no miracle among them” ([[Ether 12.12|Ether 12:12]]).[^10] In a notable article on administering to the sick, President Spencer W. Kimball said: “The need of faith is often underestimated. The ill one and the family often seem to depend wholly on the power of the priesthood and the gift of healing that they hope the administering brethren may have, whereas the greater responsibility is with him who is blessed. … The major element is the faith of the individual when that person is conscious and accountable. ‘Thy faith hath made thee whole’ \[[[Matthew 9.22|Matthew 9:22]]\] was repeated so often by the Master that it almost became a chorus.”[^11]
+Faith is essential for healing by the powers of heaven. The Book of Mormon even teaches that “if there be no faith among the children of men God can do no miracle among them” ([[Ether 12.12|Ether 12:12]]).[^10] In a notable article on administering to the sick, President Spencer W. Kimball said: “The need of faith is often underestimated. The ill one and the family often seem to depend wholly on the power of the priesthood and the gift of healing that they hope the administering brethren may have, whereas the greater responsibility is with him who is blessed. … The major element is the faith of the individual when that person is conscious and accountable. ‘Thy faith hath made thee whole’ \[[[Matthew 9.22|Matthew 9:22]]\] was repeated so often by the Master that it almost became a chorus.”[^11]
 
 President Kimball even suggested that “too frequent administrations may be an indication of lack of faith or of the ill one trying to pass the responsibility for faith development to the elders rather than self.” He told about a faithful sister who received a priesthood blessing. When asked the next day if she wished to be administered to again, she replied: “No, I have been anointed and administered to. The ordinance has been performed. It is up to me now to claim my blessing through my faith.”[^12]
 
@@ -79,7 +79,7 @@ I testify of the power of the priesthood of God, of the power of the prayer of f
 
 
 
-[^1]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 163.
+[^1]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 163.
 
 [^2]: See [[Mosiah 4.27|Mosiah 4:27]].
 
@@ -91,13 +91,13 @@ I testify of the power of the priesthood of God, of the power of the prayer of f
 
 [^6]: See also [[Matthew 9.18|Matthew 9:18]]; [[Mark 5.23|Mark 5:23]]; [[Mark 6.5|6:5]]; [[Mark 7.32|7:32–35]][[Mark 7.33|]][[Mark 7.34|]][[Mark 7.35|]]; [[Luke 4.40|Luke 4:40]]; [[Acts 9.12|Acts 9:12, 17]][[Acts 9.17|]]; [[Acts 28.8|28:8]]; [[D&C 42.44|Doctrine and Covenants 42:44, 48]][[D&C 42.48|]]; [[D&C 66.9|66:9]].
 
-[^7]: See, for example, [[Exodus 28.41|Exodus 28:41]]; [[1 Samuel 10.1|1 Samuel 10:1]]; [[1 Samuel 16.13|16:13]]; [[2 Samuel 5.3|2 Samuel 5:3]].
+[^7]: See, for example, [[Exodus 28.41|Exodus 28:41]]; [[1 Samuel 10.1|1 Samuel 10:1]]; [[1 Samuel 16.13|16:13]]; [[2 Samuel 5.3|2 Samuel 5:3]].
 
 [^8]: See [[Leviticus 8.10|Leviticus 8:10–12]][[Leviticus 8.11|]][[Leviticus 8.12|]].
 
-[^9]: *Teachings of Presidents of the Church: Brigham Young* (1997), 252; see also Russell M. Nelson, “Neither Trust in the Arm of Flesh,” *Liahona,* Mar. 2010, 40; *Ensign,* Mar. 2010, 24; *Teachings of Gordon B. Hinckley* (1997), 474.
+[^9]: *Teachings of Presidents of the Church: Brigham Young* (1997), 252; see also Russell M. Nelson, “Neither Trust in the Arm of Flesh,” *Liahona,* Mar. 2010, 40; *Ensign,* Mar. 2010, 24; *Teachings of Gordon B. Hinckley* (1997), 474.
 
-[^10]: See also [[1 Nephi 7.12|1 Nephi 7:12]]; [[D&C 35.9|Doctrine and Covenants 35:9]].
+[^10]: See also [[1 Nephi 7.12|1 Nephi 7:12]]; [[D&C 35.9|Doctrine and Covenants 35:9]].
 
 [^11]: “President Kimball Speaks Out on Administration to the Sick,” *Tambuli,* Aug. 1982, 36–37; *New Era,* Oct. 1981, 47.
 
@@ -105,8 +105,6 @@ I testify of the power of the priesthood of God, of the power of the prayer of f
 
 [^13]: *Teachings: Brigham Young,* 68.
 
-[^14]: See also [[1 John 5.14|1 John 5:14]]; [[Helaman 10.5|Helaman 10:5]].
-
-
+[^14]: See also [[1 John 5.14|1 John 5:14]]; [[Helaman 10.5|Helaman 10:5]].
 
 #Blessings #Faith #Healing #Priesthood

@@ -1,11 +1,10 @@
 # Conversation
 
-
-*See also* [BD Conversation](https://www.churchofjesuschrist.org/study/scriptures/bd/conversation?lang=eng)
+*See also* [[BD Conversation.md|BD Conversation]]
 
 we have had our *conversation* in the world, [[2 Corinthians 1.12|2 Corinthians 1:12]].
 
-*conversation* in time past in the Jews' religion, [[Galatians 1.13|Galatians 1:13]].
+*conversation* in time past in the Jews’ religion, [[Galatians 1.13|Galatians 1:13]].
 
 *conversation* in times past in the lusts of our flesh, [[Ephesians 2.3|Ephesians 2:3]].
 

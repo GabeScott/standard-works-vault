@@ -1,6 +1,6 @@
 # Finding Refuge from the Storms of Life
 
-By Elder Ricardo P. Giménez - *Of the Seventy*
+By Elder Ricardo P. Giménez - *Of the Seventy*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -14,11 +14,11 @@ Well, I remember waiting with my associates when, at midnight, fireworks began s
 
 This experience helped me realize that although our lives may at times be relatively smooth, the time will come for each of us when we will face unexpected challenges and storms that will push the limits of our ability to endure. Physical, mental, family, and employment challenges; natural disasters; and other matters of life or death are but some of the examples of the storms that we will face in this life.
 
-When faced with these storms, we often experience feelings of despair or fear. President Russell M. Nelson said, “Faith is the antidote for fear”—*faith in our Lord Jesus Christ* (“[[2014 April - Let Your Faith Show.md|Let Your Faith Show]],” *Ensign* or *Liahona,* May 2014, 29). As I have seen the storms that affect people’s lives, I have concluded that no matter what kind of storm is battering us—regardless of whether there is a solution to it or whether there is an end in sight—there is only one refuge, and it is the same for all types of storms. This single refuge provided by our Heavenly Father is our Lord Jesus Christ and His Atonement.
+When faced with these storms, we often experience feelings of despair or fear. President Russell M. Nelson said, “Faith is the antidote for fear”—*faith in our Lord Jesus Christ* (“[[2014 April - Let Your Faith Show.md|Let Your Faith Show]],” *Ensign* or *Liahona,* May 2014, 29). As I have seen the storms that affect people’s lives, I have concluded that no matter what kind of storm is battering us—regardless of whether there is a solution to it or whether there is an end in sight—there is only one refuge, and it is the same for all types of storms. This single refuge provided by our Heavenly Father is our Lord Jesus Christ and His Atonement.
 
 None of us are exempt from facing these storms. Helaman, a Book of Mormon prophet, taught us as follows: “Remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation; that when the devil shall send forth his mighty winds, yea, his shafts in the whirlwind, yea, when all his hail and his mighty storm shall beat upon you, it shall have no power over you to drag you down to the gulf of misery and endless wo, because of the rock upon which ye are built, which is a sure foundation, a foundation whereon if men build they cannot fall” ([[Helaman 5.12|Helaman 5:12]]).
 
-Elder Robert D. Hales, who had his own experiences with enduring storms, said: “Suffering is universal; how we react to suffering is individual. Suffering can take us one of two ways. It can be a strengthening and purifying experience combined with faith, or it can be a destructive force in our lives if we do not have the faith in the Lord’s atoning sacrifice” (“[[1983 October - Your Sorrow Shall Be Turned to Joy.md|Your Sorrow Shall Be Turned to Joy]],” *Ensign,* Nov. 1983, 66).
+Elder Robert D. Hales, who had his own experiences with enduring storms, said: “Suffering is universal; how we react to suffering is individual. Suffering can take us one of two ways. It can be a strengthening and purifying experience combined with faith, or it can be a destructive force in our lives if we do not have the faith in the Lord’s atoning sacrifice” (“[[1983 October - Your Sorrow Shall Be Turned to Joy.md|Your Sorrow Shall Be Turned to Joy]],” *Ensign,* Nov. 1983, 66).
 
 In order to enjoy the refuge that Jesus Christ and His Atonement offer, we must have faith in Him—a faith that will allow us to rise above all the pains of a limited, earthly perspective. He has promised that He will make our burdens light if we come unto Him in all that we do.
 
@@ -36,23 +36,23 @@ It is said that “to one who has faith, no explanation is necessary. To one wit
 
 Although many people indeed believe *in* Jesus Christ, the key question is whether we *believe* Him and whether we *believe* the things that He teaches us and asks us to do. Perhaps someone might think, “What does Jesus Christ know about what is happening to me? How does He know what I need to be happy?” Truly, it was our Redeemer and Intercessor to whom the prophet Isaiah was referring when he said:
 
-“He is despised and rejected of men; a man of sorrows, and acquainted with grief. …
+“He is despised and rejected of men; a man of sorrows, and acquainted with grief. …
 
-“Surely he hath borne our griefs, and carried our sorrows. …
+“Surely he hath borne our griefs, and carried our sorrows. …
 
 “But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed” ([[Isaiah 53.3|Isaiah 53:3–5]][[Isaiah 53.4|]][[Isaiah 53.5|]]).
 
-The Apostle Peter also taught us about the Savior, saying, “Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed” ([[1 Peter 2.24|1 Peter 2:24]]).
+The Apostle Peter also taught us about the Savior, saying, “Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed” ([[1 Peter 2.24|1 Peter 2:24]]).
 
-Although the time of Peter’s own martyrdom was approaching, his words are not filled with fear or pessimism; rather, he taught the Saints to “rejoice,” even though they were “in heaviness through manifold temptations.” Peter counseled us to remember that “the trial of \[our\] faith, … though it be tried with fire,” would lead to “praise and honour and glory at the appearing of Jesus Christ” and to “the salvation of \[our\] souls” ([[1 Peter 1.6|1 Peter 1:6–7, 9]][[1 Peter 1.7|]][[1 Peter 1.9|]]).
+Although the time of Peter’s own martyrdom was approaching, his words are not filled with fear or pessimism; rather, he taught the Saints to “rejoice,” even though they were “in heaviness through manifold temptations.” Peter counseled us to remember that “the trial of \[our\] faith, … though it be tried with fire,” would lead to “praise and honour and glory at the appearing of Jesus Christ” and to “the salvation of \[our\] souls” ([[1 Peter 1.6|1 Peter 1:6–7, 9]][[1 Peter 1.7|]][[1 Peter 1.9|]]).
 
 Peter continued:
 
 “Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you:
 
-“But rejoice, inasmuch as ye are partakers of Christ’s sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy” ([[1 Peter 4.12|1 Peter 4:12–13]][[1 Peter 4.13|]]).
+“But rejoice, inasmuch as ye are partakers of Christ’s sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy” ([[1 Peter 4.12|1 Peter 4:12–13]][[1 Peter 4.13|]]).
 
-President Russell M. Nelson taught that “Saints can be happy under every circumstance. … When the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him. He is the source of all joy” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82).
+President Russell M. Nelson taught that “Saints can be happy under every circumstance. … When the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him. He is the source of all joy” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82).
 
 Of course, it is easier to say these things when we are not in the midst of a storm than to live and apply them during the storm. But as your brother, I hope you can feel that I sincerely want to share with you how valuable it is to know that Jesus Christ and His Atonement are the refuge that we all need, regardless of the storms that are battering our lives.
 
@@ -62,9 +62,9 @@ The prophet Alma testified the following to his son Helaman: “I do know that w
 
 The Savior Himself said:
 
-“Let your hearts be comforted … ; for all flesh is in mine hands; be still and know that I am God. …
+“Let your hearts be comforted … ; for all flesh is in mine hands; be still and know that I am God. …
 
-“Wherefore, fear not even unto death; for in this world your joy is not full, but in me your joy is full” ([[D&C 101.16|Doctrine and Covenants 101:16, 36]][[D&C 101.36|]]).
+“Wherefore, fear not even unto death; for in this world your joy is not full, but in me your joy is full” ([[D&C 101.16|Doctrine and Covenants 101:16, 36]][[D&C 101.36|]]).
 
 The hymn “Be Still, My Soul,” which has touched my heart on many occasions, has a message of comfort for our souls. The lyrics read as follows:
 
@@ -73,11 +73,12 @@ The hymn “Be Still, My Soul,” which has touched my heart on many occasions, 
 >When disappointment, grief, and fear are gone,
 >Sorrow forgot, love’s purest joys restored.
 >Be still, my soul: When change and tears are past,
->All safe and blessed we shall meet at last. (*Hymns,* no. 124)
+>All safe and blessed we shall meet at last. (*Hymns,* no. 124)
 >
 
 As we face the storms of life, I know that if we make our best effort and rely upon Jesus Christ and His Atonement as our refuge, we will be blessed with the relief, comfort, strength, temperance, and peace that we are seeking, with certainty in our hearts that at the end of our time here on earth, we will hear the words of the Master: “Well done, thou good and faithful servant: … enter thou into the joy of thy lord” ([[Matthew 25.21|Matthew 25:21]]). In the name of Jesus Christ, amen.
 
 
 
-#Adversity #Faith #Jesus_Christ
+
+#Adversity #Faith #JesusChrist

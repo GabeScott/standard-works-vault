@@ -1,6 +1,6 @@
 # Solemn Assembly
 
-By Presented by President D. Todd Christofferson - *Second Counselor in the First Presidency*
+By Presented by President D. Todd Christofferson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -26,7 +26,7 @@ Members of the First Presidency in favor may manifest it.
 
 It is proposed that the First Presidency sustain Henry Bennion Eyring as President of the Quorum of the Twelve Apostles and Dieter Friedrich Uchtdorf as Acting President of the Quorum of the Twelve Apostles.
 
-It is proposed that the First Presidency sustain the following as members of the Quorum of the Twelve Apostles: Dieter F. Uchtdorf, David A. Bednar, Quentin L. Cook, Neil L. Andersen, Ronald A. Rasband, Gary E. Stevenson, Dale G. Renlund, Gerrit W. Gong, Ulisses Soares, Patrick Kearon, Gérald Caussé, and Clark G. Gilbert.
+It is proposed that the First Presidency sustain the following as members of the Quorum of the Twelve Apostles: Dieter F. Uchtdorf, David A. Bednar, Quentin L. Cook, Neil L. Andersen, Ronald A. Rasband, Gary E. Stevenson, Dale G. Renlund, Gerrit W. Gong, Ulisses Soares, Patrick Kearon, Gérald Caussé, and Clark G. Gilbert.
 
 It is proposed that the First Presidency sustain the counselors in the First Presidency and the Quorum of the Twelve Apostles as prophets, seers, and revelators.
 

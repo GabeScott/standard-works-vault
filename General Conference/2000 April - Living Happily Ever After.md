@@ -10,9 +10,9 @@ By Coleen K. Menlove - *Primary General President*
 
 Children love stories. As a child, I was immediately drawn into stories that started with the words “Once upon a time.” These stories often ended with “They lived happily ever after.” I have a feeling that children are not the only ones who are intrigued by those phrases. We each long to have the “once upon a time” of our lives filled with so much happiness that it becomes the “happily ever after” of our hopes and dreams.
 
-We are living in our “once upon a time.” We are experiencing a mortal probation now during our turn on earth. In our premortal existence, “all the sons of God shouted for joy” ([[Job 38.7|Job 38:7]]) as we accepted the great eternal plan of happiness. We happily anticipated coming to earth to experience opportunities to grow spiritually. “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]). The opportunity is here and now to obtain happiness that extends beyond our earth life; however, we need to know what it is and where to find it.
+We are living in our “once upon a time.” We are experiencing a mortal probation now during our turn on earth. In our premortal existence, “all the sons of God shouted for joy” ([[Job 38.7|Job 38:7]]) as we accepted the great eternal plan of happiness. We happily anticipated coming to earth to experience opportunities to grow spiritually. “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]). The opportunity is here and now to obtain happiness that extends beyond our earth life; however, we need to know what it is and where to find it.
 
-In the Book of Mormon, Lehi explained to his son Jacob that happiness is a result of obedience. He told Jacob that eternal laws have both punishments and opportunities for happiness attached to them. When we disobey God’s laws, we suffer the punishments, but when we obey, we reap the happiness (see [[2 Nephi 2.10|2 Ne. 2:10]]). Part of what creates happiness is the absence of regret, guilt, and sin.
+In the Book of Mormon, Lehi explained to his son Jacob that happiness is a result of obedience. He told Jacob that eternal laws have both punishments and opportunities for happiness attached to them. When we disobey God’s laws, we suffer the punishments, but when we obey, we reap the happiness (see [[2 Nephi 2.10|2 Ne. 2:10]]). Part of what creates happiness is the absence of regret, guilt, and sin.
 
 The Prophet Joseph Smith taught, “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[1976\], 255–56).
 
@@ -52,7 +52,7 @@ Recently I attended a Primary and was holding a 14-month-old child on my lap whe
 
 It is knowing and feeling the pure love of Christ that brings exquisite joy to our souls. It is knowing that forgiveness for our mistakes is possible. It is through the Atonement of the Savior, who satisfied the demands of justice and offers us mercy, that hope and joy are possible. As we draw near to the Savior, we are free from doubt and confusion.
 
-Elder Richard G. Scott said, “Your joy in life depends upon your trust in Heavenly Father and His holy Son, your conviction that their plan of happiness truly can bring you joy” (in Conference Report, Apr. 1996, 32; or *Ensign,* May 1996, 24).
+Elder Richard G. Scott said, “Your joy in life depends upon your trust in Heavenly Father and His holy Son, your conviction that their plan of happiness truly can bring you joy” (in Conference Report, Apr. 1996, [[1996 April - Finding Joy in Life.md|32]]; or *Ensign,* May 1996, 24).
 
 Through the Savior we can find our way back to God. We can find peace and happiness in this life and eternal joy in the world to come. That thought, in and of itself, warms my heart and makes me smile.
 
@@ -61,6 +61,4 @@ As we come to understand the great plan of happiness, we will radiate, for all t
 
 
 
-
-
-#Adversity #Children #Environment #Jesus_Christ #Joy #Obedience #Peace #Plan_Of_Salvation #Trust
+#Adversity #Children #Environment #Joy #JesusChrist #Obedience #Peace #PlanOfSalvation #Trust

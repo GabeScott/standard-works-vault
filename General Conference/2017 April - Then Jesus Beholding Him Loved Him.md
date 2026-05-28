@@ -1,6 +1,6 @@
 # Then Jesus Beholding Him Loved Him
 
-By Elder S. Mark Palmer - *Of the Seventy*
+By Elder S. Mark Palmer - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -20,11 +20,11 @@ What were these six words that had such a profound effect? Listen to see if you 
 
 “There came one running … and asked him, Good Master, what shall I do that I may inherit eternal life?
 
-“And Jesus said unto him, …
+“And Jesus said unto him, …
 
 “Thou knowest the commandments, Do not commit adultery, Do not kill, Do not steal, Do not bear false witness, Defraud not, Honour thy father and mother.
 
-“And he answered … , Master, all these have I observed from my youth.
+“And he answered … , Master, all these have I observed from my youth.
 
 “*Then Jesus beholding him loved him,* and said unto him, One thing thou lackest: go thy way, sell whatsoever thou hast, and give to the poor, and thou shalt have treasure in heaven: and come, take up the cross, and follow me.”[^2]
 
@@ -63,12 +63,10 @@ I testify of our Savior, Jesus Christ, and look forward to the day when He will 
 
 [^2]: [[Mark 10.17|Mark 10:17–21]][[Mark 10.18|]][[Mark 10.19|]][[Mark 10.20|]][[Mark 10.21|]]; emphasis added.
 
-[^3]: See [[1 Nephi 8.37|1 Nephi 8:37]].
+[^3]: See [[1 Nephi 8.37|1 Nephi 8:37]].
 
-[^4]: [[1 John 4.18|1 John 4:18]].
+[^4]: [[1 John 4.18|1 John 4:18]].
 
 [^5]: [[Hebrews 12.5|Hebrews 12:5–6]][[Hebrews 12.6|]].
 
-
-
-#Jesus_Christ #Love #Obedience
+#JesusChrist #Love #Obedience

@@ -84,7 +84,7 @@ Charity, that pure love of Christ, is manifest when a group of young women from 
 
 In a hundred small ways, all of you wear the mantle of charity. Life is perfect for none of us. Rather than being judgmental and critical of each other, may we have the pure love of Christ for our fellow travelers in this journey through life. May we recognize that each one is doing her best to deal with the challenges which come her way, and may we strive to do *our* best to help out.
 
-Charity has been defined as “the highest, noblest, strongest kind of love,”[^12] the “pure love of Christ … ; and whoso is found possessed of it at the last day, it shall be well with \[her\].”[^13]
+Charity has been defined as “the highest, noblest, strongest kind of love,”[^12] the “pure love of Christ … ; and whoso is found possessed of it at the last day, it shall be well with \[her\].”[^13]
 
 “Charity never faileth.” May this long-enduring Relief Society motto, this timeless truth, guide you in everything you do. May it permeate your very souls and find expression in all your thoughts and actions.
 
@@ -101,13 +101,13 @@ I express my love to you, my sisters, and pray that heaven’s blessings may eve
 
 [^4]: [[John 7.24|John 7:24]].
 
-[^5]: Mother Teresa, in R. M. Lala, *A Touch of Greatness: Encounters with the Eminent* (2001), x.
+[^5]: Mother Teresa, in R. M. Lala, *A Touch of Greatness: Encounters with the Eminent* (2001), x.
 
 [^6]: [[John 15.12|John 15:12]].
 
 [^7]: [[James 1.26|James 1:26]].
 
-[^8]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
+[^8]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
 
 [^9]: [[Moroni 7.47|Moroni 7:47]].
 
@@ -115,7 +115,7 @@ I express my love to you, my sisters, and pray that heaven’s blessings may eve
 
 [^11]: Horace Mann, *Lectures on Education* (1845), 297.
 
-[^12]: Bible Dictionary, “Charity.”
+[^12]: Bible Dictionary, “[[BD Charity|Charity]].”
 
 [^13]: [[Moroni 7.47|Moroni 7:47]].
 

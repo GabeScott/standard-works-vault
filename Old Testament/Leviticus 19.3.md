@@ -5,5 +5,5 @@
 [Leviticus 19:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.3?lang=eng#p3)
 
 
-[^a]: [[D&C 59.9|D&C 59:9]].
-[^b]: [[Leviticus 20.8|Lev. 20:8]].
+[^a]: [[D&C 59.9|D&C 59:9]].  
+[^b]: [[Leviticus 20.8|Lev. 20:8]].  

@@ -1,6 +1,6 @@
 # Gratitude and Thanksgiving
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -42,7 +42,7 @@ King Benjamin (as recorded in Mosiah in the Book of Mormon) admonished his peopl
 
 “I say unto you that if ye should serve him who has created you from the beginning, and is preserving you from day to day, by lending you breath, that ye may live and move and do according to your own will, and even supporting you from one moment to another—I say, if ye should serve him with all your whole souls yet ye would be unprofitable servants.” ([[Mosiah 2.19|Mosiah 2:19–21]][[Mosiah 2.20|]][[Mosiah 2.21|]].)
 
-“I believe,” said President Joseph F. Smith many years ago, “that one of the greatest sins of which the inhabitants of the earth are guilty today is the sin of ingratitude, the want of acknowledgment, on their part, of God and his right to govern and control. We see a man raised up with extraordinary gifts, or with great intelligence, and he is instrumental in developing some great principle. He and the world ascribe this great genius and wisdom to himself. He attributes his success to his own energies, labor and mental capacity. He does not acknowledge the hand of God in anything connected with his success, but ignores him altogether and takes the honor to himself; this will apply to almost all the world. In all great modern discoveries in science, in the arts, in mechanics, and in all the material advancement of our age, the world says, ‘We have done it.’ The individual says, ‘I have done it,’ and he gives no honor and credit to God. Now, I read in the revelations through Joseph Smith, the prophet, that because of this, God is not pleased with the inhabitants of the earth but is angry with them because they will not acknowledge his hand in all things.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, pp. 270–71.)
+“I believe,” said President Joseph F. Smith many years ago, “that one of the greatest sins of which the inhabitants of the earth are guilty today is the sin of ingratitude, the want of acknowledgment, on their part, of God and his right to govern and control. We see a man raised up with extraordinary gifts, or with great intelligence, and he is instrumental in developing some great principle. He and the world ascribe this great genius and wisdom to himself. He attributes his success to his own energies, labor and mental capacity. He does not acknowledge the hand of God in anything connected with his success, but ignores him altogether and takes the honor to himself; this will apply to almost all the world. In all great modern discoveries in science, in the arts, in mechanics, and in all the material advancement of our age, the world says, ‘We have done it.’ The individual says, ‘I have done it,’ and he gives no honor and credit to God. Now, I read in the revelations through Joseph Smith, the prophet, that because of this, God is not pleased with the inhabitants of the earth but is angry with them because they will not acknowledge his hand in all things.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, pp. 270–71.)
 
 \[President Romney read the text up to this point. He then made the following comments:\] Well, now, I have a fine talk prepared that I can’t read. I will have it printed, and you can get the message plainly from what the Lord has revealed that we must give him credit for our gifts and our accomplishments, and be grateful in all things that he confers upon us. I am grateful to him for the privilege of being in his service. I appreciate the opportunities that I have and hope that I can serve him some way and show my gratitude the rest of my life. I leave my blessings with all of you in the name of Jesus Christ, amen.
 
@@ -62,7 +62,7 @@ You and I are, of course, moved by these quotations. They are not, however, the 
 
 In March of 1831, before the Church had been organized a year, the Lord said to the Saints in Kirtland:
 
-“Ye are commanded in all things to ask of God, who giveth liberally; and that which the Spirit testifies unto you even so I would that ye should do in all holiness of heart, walking uprightly before me, considering the end of your salvation, doing all things with prayer and *thanksgiving,* that ye may not be seduced by evil spirits, or doctrines of devils, or the commandments of men; for some are of men, and others of devils. …
+“Ye are commanded in all things to ask of God, who giveth liberally; and that which the Spirit testifies unto you even so I would that ye should do in all holiness of heart, walking uprightly before me, considering the end of your salvation, doing all things with prayer and *thanksgiving,* that ye may not be seduced by evil spirits, or doctrines of devils, or the commandments of men; for some are of men, and others of devils. …
 
 “And ye must *give thanks unto God* in the Spirit for whatsoever blessing ye are blessed with.” ([[D&C 46.7|D&C 46:7, 32]][[D&C 46.32|]]; italics added.)
 
@@ -92,11 +92,9 @@ To the Lord Jesus, who bought us with a great price, we owe an undying debt of g
 
 But nevertheless, he endured it for our sake. None of us could have endured that suffering. No mortal man nor any number of men together could have endured it. All people who understand what Jesus did for us ought to love him and demonstrate that love by rendering to him, in a realistic manner, thanks and gratitude.
 
-Elder Richard L. Evans once said, “Gratefully we acknowledge the infinite mind of our Maker, and gratefully ought to offer our tithes and offerings, and earnestly consistent service, in thanks for all that God has given, and keep his commandments in remembrance of the love and providence and purpose of the Creator, the God and Father of us all, the organizer and operator of heaven and earth, without whom all these things would not be so. Thank God for all this: for life and what sustains it, for loved ones that make it meaningful, for faith and purpose and continuance, always and forever. Thank God for all of this—and much, much more.” (“Thanks: for the Organization and Operation of the Earth,” *Improvement Era,* Feb. 1968, p. 74; KSL “The Spoken Word” broadcast, Nov. 19, 1967.)
+Elder Richard L. Evans once said, “Gratefully we acknowledge the infinite mind of our Maker, and gratefully ought to offer our tithes and offerings, and earnestly consistent service, in thanks for all that God has given, and keep his commandments in remembrance of the love and providence and purpose of the Creator, the God and Father of us all, the organizer and operator of heaven and earth, without whom all these things would not be so. Thank God for all this: for life and what sustains it, for loved ones that make it meaningful, for faith and purpose and continuance, always and forever. Thank God for all of this—and much, much more.” (“Thanks: for the Organization and Operation of the Earth,” *Improvement Era,* Feb. 1968, p. 74; KSL “The Spoken Word” broadcast, Nov. 19, 1967.)
 
 Now, brethren and sisters, I bear my testimony to you that the Lord wants us to be grateful and thankful unto him. And if we do these things which he has advised us to do, we will be the happiest people who dwell upon the earth, for this is the way to the presence and society of our Father in heaven. I so testify, in the name of Jesus Christ, amen.
-
-
 
 
 

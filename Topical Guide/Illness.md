@@ -1,4 +1,3 @@
 # Illness
 
-
-*See* [[Sickness, Sick.md|Sickness]]
+*See also* [[Sickness.md|Sickness]]

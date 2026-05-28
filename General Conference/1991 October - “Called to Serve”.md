@@ -42,11 +42,11 @@ These young men of the Aaronic Priesthood, many of whom are assembled here tonig
 
 I remember in my youth a basketball team from the Twenty-fifth Ward of the Pioneer Stake that had ten young men participating. A wise leader decided not to play just the five best, with the other five substituting here and there. Rather, he formed two teams with balanced ability and age. One team of five played the first and third periods, while the remaining team of five played the second and fourth periods. It was not a contest between bench warmers and active players, but a situation where morale was high, playing time was equal, and games were played and won in the right spirit. No participant in Church-sponsored athletic contests should warm the bench for the entire game.
 
-Scouting is another area of vital interest to young men. Much has been said in the media of late regarding Scouting. Let me affirm that The Church of Jesus Christ of Latter-day Saints has not diminished in any way its support of the Scouting movement. President Spencer W. Kimball declared that the Church endorses Scouting “and will seek to provide leadership which will help boys keep close to their families and close to the Church as they develop the qualities of citizenship and character and fitness which Scouting represents. …
+Scouting is another area of vital interest to young men. Much has been said in the media of late regarding Scouting. Let me affirm that The Church of Jesus Christ of Latter-day Saints has not diminished in any way its support of the Scouting movement. President Spencer W. Kimball declared that the Church endorses Scouting “and will seek to provide leadership which will help boys keep close to their families and close to the Church as they develop the qualities of citizenship and character and fitness which Scouting represents. …
 
-“We’ve remained strong and firm in our support of this great movement for boys and the Oath and the Law which are at its center” (in Conference Report, Apr. 1977, pp. 50–51; or *Ensign,* May 1977, p. 36).
+“We’ve remained strong and firm in our support of this great movement for boys and the Oath and the Law which are at its center” (in Conference Report, Apr. 1977, [[1977 April - Presentation of Scouting Award.md|pp. 50–51]]; or *Ensign,* May 1977, p. 36).
 
-President Ezra Taft Benson described Scouting as “a noble program,” saying, “It is a builder of character, not only in the boys, but also in the men who provide the leadership” (*… So Shall Ye Reap* \[Salt Lake City: Deseret Book Co., 1960\], p. 138).
+President Ezra Taft Benson described Scouting as “a noble program,” saying, “It is a builder of character, not only in the boys, but also in the men who provide the leadership” (*… So Shall Ye Reap* \[Salt Lake City: Deseret Book Co., 1960\], p. 138).
 
 Brethren, if ever there were a time when the principles of Scouting were vitally needed—that time is now. If ever there were a generation who would benefit by keeping physically strong, mentally awake, and morally straight—that generation is the present generation.
 
@@ -78,7 +78,7 @@ She sang. He spoke. Hearts were gladdened by the return to activity of Ben and E
 
 As priesthood leaders, we soon discover that some of our work, though not recorded on any written report, is of vital significance. The visits to the homes of quorum members, blessing the sick, helping a member with a project, or comforting grieving hearts when a loved one passes on are all sacred privileges of priesthood service. True, they may not be recorded on a written report, but more important, they find lodgment in the soul and bring joy to the heart. They are also known of the Lord.
 
-Should our load seem heavy or the results of our efforts discouraging, we may well recall the words of President Kimball to some who noted his undeviating devotion to his calling even in his advancing years: “My life is like my shoes—to be worn out in service” (“He Is at Peace,” *Ensign,* Dec. 1985, p. 41).
+Should our load seem heavy or the results of our efforts discouraging, we may well recall the words of President Kimball to some who noted his undeviating devotion to his calling even in his advancing years: “My life is like my shoes—to be worn out in service” (“He Is at Peace,” *Ensign,* Dec. 1985, p. 41).
 
 I trust that all young men here tonight are preparing now to serve a full-time mission in the service of the Lord. ElRay L. Christiansen often said, “Your mission is the mold in which your life will be cast.” Prepare to serve worthily, with an eye single to the glory of God and His purposes. You will never know the full influence of your testimony and your service, but you will return with gladness for having had the privilege of responding to a sacred call to serve the Master. You will be forever loved by those to whom you bring the light of truth. Your teachings will be found in their service. Your examples will be guides to follow. Your faith will prompt courage to meet life’s challenges.
 
@@ -118,6 +118,4 @@ May we ever be found serving faithfully, I pray humbly in the name of Jesus Chri
 
 
 
-
-
-#Example #Leadership #Missionary_Work #Priesthood #Service
+#Example #Leadership #MissionaryWork #Priesthood #Service

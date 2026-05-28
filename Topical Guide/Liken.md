@@ -1,6 +1,5 @@
 # Liken
 
-
 To whom then will ye *liken* God, [[Isaiah 40.18|Isaiah 40:18]].
 
 I will *liken* him unto a wise man, which built, [[Matthew 7.24|Matthew 7:24]] ([[3 Nephi 14.24|3 Nephi 14:24]]).
@@ -23,10 +22,10 @@ they may be *likened* unto you, [[2 Nephi 6.5|2 Nephi 6:5]].
 
 I will *liken* his words unto my people, [[2 Nephi 11.2|2 Nephi 11:2]] ([[2 Nephi 11.8|2 Nephi 11:8]]).
 
-I will *liken* thee ... unto a tame olive tree, [[Jacob 5.3|Jacob 5:3]] ([[Jacob 6.1|Jacob 6:1]]).
+I will *liken* thee … unto a tame olive tree, [[Jacob 5.3|Jacob 5:3]] ([[Jacob 6.1|Jacob 6:1]]).
 
-Unto what shall I *liken* these kingdoms, [[D&C 88.46|D&C 88:46]] ([[D&C 88.51|D&C 88:51]], [[D&C 88.61|D&C 88:61]]).
+Unto what shall I *liken* these kingdoms, [[D&C 88.46|D&C 88:46]] ([[D&C 88.51|D&C 88:51]]; [[D&C 88.61|D&C 88:61]]).
 
 unto what shall I *liken* the children of Zion, [[D&C 101.81|D&C 101:81]] ([[D&C 101.85|D&C 101:85]]).
 
-Joseph Smith ... is the man to whom I *likened* the servant, [[D&C 103.21|D&C 103:21]].
+Joseph Smith … is the man to whom I *likened* the servant, [[D&C 103.21|D&C 103:21]].

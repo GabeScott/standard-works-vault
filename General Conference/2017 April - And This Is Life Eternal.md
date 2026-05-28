@@ -1,6 +1,6 @@
 # And This Is Life Eternal
 
-By Elder C. Scott Grow - *Of the Seventy*
+By Elder C. Scott Grow - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -22,15 +22,15 @@ Please keep these truths in mind—they teach *why*—as I seek to describe *how
 
 My young friends, we can begin to know God through prayer.
 
-On April 7, 1829, 22-year-old Oliver Cowdery began his labors as scribe for 23-year-old Joseph Smith. They were young—just like you. Oliver asked for a confirmation from God regarding the Restoration and his work in it. In response, he received the following revelation:
+On April 7, 1829, 22-year-old Oliver Cowdery began his labors as scribe for 23-year-old Joseph Smith. They were young—just like you. Oliver asked for a confirmation from God regarding the Restoration and his work in it. In response, he received the following revelation:
 
-“Behold, thou knowest that thou hast inquired of me and I did enlighten thy mind. …
+“Behold, thou knowest that thou hast inquired of me and I did enlighten thy mind. …
 
-“Yea, I tell thee, that thou mayest know that there is none else save God that knowest thy thoughts and the intents of thy heart. …
+“Yea, I tell thee, that thou mayest know that there is none else save God that knowest thy thoughts and the intents of thy heart. …
 
-“… If you desire a further witness, cast your mind upon the night that you cried unto me in your heart. …
+“… If you desire a further witness, cast your mind upon the night that you cried unto me in your heart. …
 
-“Did I not speak peace to your mind … ? What greater witness can you have than from God?”[^3]
+“Did I not speak peace to your mind … ? What greater witness can you have than from God?”[^3]
 
 When *you* pray with faith, you will feel God’s love as His Spirit speaks to *your* soul. No matter how alone or uncertain you may feel at times, you are not alone in this world. God knows *you,* personally. As you pray, you will come to know *Him.*
 
@@ -38,7 +38,7 @@ When *you* pray with faith, you will feel God’s love as His Spirit speaks to *
 
 As you study the scriptures, you not only learn *about* the Savior, but you can actually come to *know* the Savior.
 
-In April 1985, Elder Bruce R. McConkie spoke in general conference—just 13 days before he died. He concluded with this testimony:
+In April 1985, Elder Bruce R. McConkie spoke in general conference—just 13 days before he died. He concluded with this testimony:
 
 “I am one of his witnesses, and in a coming day I shall feel the nail marks in his hands and in his feet and shall wet his feet with my tears.
 
@@ -46,7 +46,7 @@ In April 1985, Elder Bruce R. McConkie spoke in general conference—just 13 da
 
 Those of us who heard Elder McConkie speak that day have never forgotten how we felt. As he began his talk, he revealed *why* his witness was so powerful. He said:
 
-“In speaking of these wondrous things I shall use my own words, though you may think they are the words of scripture. …
+“In speaking of these wondrous things I shall use my own words, though you may think they are the words of scripture. …
 
 “True it is they were first proclaimed by others, but *they are now mine,* for the Holy Spirit of God has borne witness to me that they are true, and it is now as though the Lord had revealed them to me in the first instance. I have thereby *heard* his voice and *know* his word.”[^5]
 
@@ -72,11 +72,11 @@ My wife, Rhonda, and I have parents who are just regular people—probably a lot
 
 When Rhonda’s parents had been married for just a couple of years, her 23-year-old dad was called to serve a full-time mission. He left behind his young wife and their 2-year-old daughter. Then his wife was called to serve with him during the last seven months of his mission—leaving their daughter in the care of relatives.
 
-A few years later, now with *four* children, they moved to Missoula, Montana, so her dad could attend the university. However, they had been there only a few months when President Spencer W. Kimball and Elder Mark E. Petersen extended a call to my father-in-law to be the first president of the newly created Missoula stake. He was only 34. Thoughts of the university were left behind as he sought to do the *Lord’s* will—not his own.
+A few years later, now with *four* children, they moved to Missoula, Montana, so her dad could attend the university. However, they had been there only a few months when President Spencer W. Kimball and Elder Mark E. Petersen extended a call to my father-in-law to be the first president of the newly created Missoula stake. He was only 34. Thoughts of the university were left behind as he sought to do the *Lord’s* will—not his own.
 
 *My* parents have served in the temple for more than 30 years—Dad as a sealer, Mom as an ordinance worker. They also served five full-time missions together—in Riverside, California; Ulaanbaatar, Mongolia; Nairobi, Kenya; the Nauvoo Illinois Temple; and the Monterrey Mexico Temple. In Mexico they worked hard to learn a new language, which wasn’t easy at 80 years of age. But they sought to do the will of the Lord rather than to pursue their own desires in life.
 
-To them, and to all such dedicated Latter-day Saints throughout the world, I echo the words spoken by the Lord to the prophet Nephi, the son of Helaman: “Blessed art thou, … for those things which thou hast done … with unwearyingness … , \[for thou\] hast not sought thine own life, but hast sought my will, and to keep my commandments.”[^8]
+To them, and to all such dedicated Latter-day Saints throughout the world, I echo the words spoken by the Lord to the prophet Nephi, the son of Helaman: “Blessed art thou, … for those things which thou hast done … with unwearyingness … , \[for thou\] hast not sought thine own life, but hast sought my will, and to keep my commandments.”[^8]
 
 As *we* seek to do God’s will by faithfully serving Him and our fellowmen, we feel His approval and truly come to know Him.
 
@@ -92,7 +92,7 @@ Through our faith in His atoning sacrifice, the Savior cleanses us, heals us, an
 
 ## Know Him by Following Mentors
 
-To help us in our striving, God has given us role models and mentors. I want to share my feelings about one of mine, Elder Neal A. Maxwell. He constantly sought to submit his will to the will of the Father in his effort to become like God.
+To help us in our striving, God has given us role models and mentors. I want to share my feelings about one of mine, Elder Neal A. Maxwell. He constantly sought to submit his will to the will of the Father in his effort to become like God.
 
 More than 20 years ago, he shared his feelings with me after he had just been diagnosed with cancer. He told me, “I want to be on the team, on this side \[of the veil\] or that side. I don’t want to sit on the sidelines. I want to play in the game.”[^13]
 
@@ -119,17 +119,17 @@ God knows *you* and invites *you* to know *Him.* Pray to the Father, study the s
 
 [^3]: [[D&C 6.15|Doctrine and Covenants 6:15–16, 22–23]][[D&C 6.16|]][[D&C 6.22|]][[D&C 6.23|]].
 
-[^4]: Bruce R. McConkie, “[[1985 April - The Purifying Power of Gethsemane.md|The Purifying Power of Gethsemane]],” *Ensign,* May 1985, 11; emphasis added.
+[^4]: Bruce R. McConkie, “[[1985 April - The Purifying Power of Gethsemane.md|The Purifying Power of Gethsemane]],” *Ensign,* May 1985, 11; emphasis added.
 
-[^5]: Bruce R. McConkie, “[[1985 April - The Purifying Power of Gethsemane.md|The Purifying Power of Gethsemane]],” 9; emphasis added.
+[^5]: Bruce R. McConkie, “[[1985 April - The Purifying Power of Gethsemane.md|The Purifying Power of Gethsemane]],” 9; emphasis added.
 
 [^6]: [[John 6.38|John 6:38]].
 
-[^7]: [[3 Nephi 11.11|3 Nephi 11:11]]; emphasis added.
+[^7]: [[3 Nephi 11.11|3 Nephi 11:11]]; emphasis added.
 
 [^8]: [[Helaman 10.4|Helaman 10:4]].
 
-[^9]: [[3 Nephi 27.27|3 Nephi 27:27]].
+[^9]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
 [^10]: [[D&C 88.74|Doctrine and Covenants 88:74]].
 
@@ -137,11 +137,11 @@ God knows *you* and invites *you* to know *Him.* Pray to the Father, study the s
 
 [^12]: [[Moroni 7.48|Moroni 7:48]]; emphasis added.
 
-[^13]: See similar statements in Bruce C. Hafen, *A Disciple’s Life: The Biography of Neal A. Maxwell* (2002), 19.
+[^13]: See similar statements in Bruce C. Hafen, *A Disciple’s Life: The Biography of Neal A. Maxwell* (2002), 19.
 
 [^14]: [[Matthew 26.39|Matthew 26:39]]; emphasis added.
 
-[^15]: See Bruce C. Hafen, *A Disciple’s Life,* 15.
+[^15]: See Bruce C. Hafen, *A Disciple’s Life,* 15.
 
 [^16]: [[John 14.6|John 14:6]].
 
@@ -151,6 +151,4 @@ God knows *you* and invites *you* to know *Him.* Pray to the Father, study the s
 
 [^19]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-#Example #Jesus_Christ #Joseph_Smith #Obedience #Prayer #Scripture_Study #Worthiness
+#Example #JosephSmith #JesusChrist #Obedience #Prayer #ScriptureStudy #Worthiness

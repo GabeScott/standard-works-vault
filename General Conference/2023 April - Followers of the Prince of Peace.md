@@ -14,7 +14,7 @@ As His followers, we are His peculiar people, called to proclaim His virtues,[^6
 
 In 1847, the Lord gave specific instructions to the pioneer Saints, who needed peace to remain calm and united as they faced unexpected difficulties on their westward journey. Among other things, the Lord instructed the Saints to “cease to contend one with another; cease to speak evil one of another.”[^7] The scriptures affirm that those who practice works of righteousness and strive to walk in the meekness of the Spirit of the Lord are promised the peace they need to survive the days of commotion in which we live today.[^8]
 
-As disciples of the Prince of Peace, we have been instructed to live with “hearts knit together in unity and in love one towards another.”[^9] Our beloved prophet, President Russell M. Nelson, recently stated, “Contention violates everything the Savior stood for and taught.”[^10] Our prophet also implored that we do all we can to end personal conflicts that are currently raging in our hearts and in our lives.[^11]
+As disciples of the Prince of Peace, we have been instructed to live with “hearts knit together in unity and in love one towards another.”[^9] Our beloved prophet, President Russell M. Nelson, recently stated, “Contention violates everything the Savior stood for and taught.”[^10] Our prophet also implored that we do all we can to end personal conflicts that are currently raging in our hearts and in our lives.[^11]
 
 Let us consider these principles in view of Christ’s pure love for us that we, as His followers, seek to have for one another. The scriptures define this kind of love as charity.[^12] When we think of charity, our minds usually turn to generous acts and donations to relieve the suffering of those who are experiencing physical, material, or emotional difficulties. Still, charity is not only related to something we donate to someone, but it’s an attribute of the Savior and can become part of our character. It is not surprising that the Lord instructed us to clothe ourselves “with the bond of charity, … which is the bond of perfectness and peace.”[^13] Without charity, we are nothing[^14] and we cannot inherit the place the Lord has prepared for us in the mansions of our Heavenly Father.[^15]
 
@@ -49,31 +49,31 @@ I testify that Jesus Christ lives and that His perfect love, expressed through H
 
 [^1]: See [[Zechariah 9.9|Zechariah 9:9]].
 
-[^2]: In James E. Talmage, *Jesus the Christ* (1916), 517.
+[^2]: In James E. Talmage, *[Jesus the Christ](https://www.churchofjesuschrist.org/study/manual/jesus-the-christ/chapter-29?lang=eng&id=p22#p22)* (1916), 517.
 
-[^3]: See [[JST Psalm 24.9|Joseph Smith Translation, Psalm 24:9]] (in the Bible appendix); [[Isaiah 9.6|Isaiah 9:6]]; [[1 Timothy 6.15|1 Timothy 6:15]]; [[Revelation 17.14|Revelation 17:14]]; [[Revelation 19.16|19:16]]; [[2 Nephi 19.6|2 Nephi 19:6]].
+[^3]: See [[JST Psalm 24.9|Joseph Smith Translation, Psalm 24:9]] (in the Bible appendix); [[Isaiah 9.6|Isaiah 9:6]]; [[1 Timothy 6.15|1 Timothy 6:15]]; [[Revelation 17.14|Revelation 17:14]]; [[Revelation 19.16|19:16]]; [[2 Nephi 19.6|2 Nephi 19:6]].
 
 [^4]: [[Luke 19.38|Luke 19:38]].
 
 [^5]: [[Matthew 21.9|Matthew 21:9]]; see also [[Mark 11.8|Mark 11:8–10]][[Mark 11.9|]][[Mark 11.10|]]; [[John 12.12|John 12:12–14]][[John 12.13|]][[John 12.14|]].
 
-[^6]: See [[1 Peter 2.9|1 Peter 2:9]].
+[^6]: See [[1 Peter 2.9|1 Peter 2:9]].
 
 [^7]: [[D&C 136.23|Doctrine and Covenants 136:23]].
 
-[^8]: See [[Philippians 4.7|Philippians 4:7]]; [[3 Nephi 11.29|3 Nephi 11:29]]; [[D&C 19.23|Doctrine and Covenants 19:23]]; [[D&C 59.23|59:23]].
+[^8]: See [[Philippians 4.7|Philippians 4:7]]; [[3 Nephi 11.29|3 Nephi 11:29]]; [[D&C 19.23|Doctrine and Covenants 19:23]]; [[D&C 59.23|59:23]].
 
 [^9]: [[Mosiah 18.21|Mosiah 18:21]].
 
-[^10]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
+[^10]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
 
-[^11]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97, 100.
+[^11]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97, 100.
 
-[^12]: See [[2 Nephi 26.30|2 Nephi 26:30]]; [[2 Nephi 33.7|33:7–9]][[2 Nephi 33.8|]][[2 Nephi 33.9|]]; [[Ether 12.33|Ether 12:33–34]][[Ether 12.34|]]; [[Moroni 7.47|Moroni 7:47]].
+[^12]: See [[2 Nephi 26.30|2 Nephi 26:30]]; [[2 Nephi 33.7|33:7–9]][[2 Nephi 33.8|]][[2 Nephi 33.9|]]; [[Ether 12.33|Ether 12:33–34]][[Ether 12.34|]]; [[Moroni 7.47|Moroni 7:47]].
 
 [^13]: [[D&C 88.125|Doctrine and Covenants 88:125]].
 
-[^14]: See [[2 Nephi 26.30|2 Nephi 26:30]]; [[Moroni 7.44|Moroni 7:44–47]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]].
+[^14]: See [[2 Nephi 26.30|2 Nephi 26:30]]; [[Moroni 7.44|Moroni 7:44–47]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]].
 
 [^15]: See [[Ether 12.34|Ether 12:34]]; [[Moroni 10.20|Moroni 10:20–21]][[Moroni 10.21|]].
 
@@ -83,24 +83,22 @@ I testify that Jesus Christ lives and that His perfect love, expressed through H
 
 [^18]: See [[Matthew 27.12|Matthew 27:12–14]][[Matthew 27.13|]][[Matthew 27.14|]].
 
-[^19]: [[1 Corinthians 13.4|1 Corinthians 13:4–5]][[1 Corinthians 13.5|]]; see also [[Moroni 7.45|Moroni 7:45–47]][[Moroni 7.46|]][[Moroni 7.47|]].
+[^19]: [[1 Corinthians 13.4|1 Corinthians 13:4–5]][[1 Corinthians 13.5|]]; see also [[Moroni 7.45|Moroni 7:45–47]][[Moroni 7.46|]][[Moroni 7.47|]].
 
-[^20]: See [[2 Nephi 28.20|2 Nephi 28:20]].
+[^20]: See [[2 Nephi 28.20|2 Nephi 28:20]].
 
 [^21]: [[Moroni 7.13|Moroni 7:13]].
 
 [^22]: [[Moroni 7.12|Moroni 7:12]].
 
-[^23]: [[Matthew 7.2|Matthew 7:2]]; see also Topical Guide, “[Judge](https://churchofjesuschrist.org/study/scriptures/tg/judge?lang=eng).”
+[^23]: [[Matthew 7.2|Matthew 7:2]]; see also Topical Guide, “[[Judge|Judge]].”
 
 [^24]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
 [^25]: See [[Mosiah 2.17|Mosiah 2:17]].
 
-[^26]: See “[How Do I Develop Christlike Attributes?](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng),” *Preach My Gospel: A Guide to Missionary Service* (2019), 121–32.
+[^26]: See “[How Do I Develop Christlike Attributes?](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng),” *Preach My Gospel: A Guide to Missionary Service* (2019), 121–32.
 
 [^27]: [[Matthew 21.9|Matthew 21:9]].
 
-
-
-#Charity #Discipleship #Jesus_Christ #Love #Peace
+#Charity #Discipleship #JesusChrist #Love #Peace

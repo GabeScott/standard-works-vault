@@ -1,6 +1,6 @@
 # The Need for Total Commitment
 
-By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -34,7 +34,7 @@ A person’s attitude is perhaps the hardest of all personal attributes to chang
 
 If we believe in Jesus Christ that completely, then we can say as did the people of King Benjamin that we know of a surety of the truth of the gospel:
 
-“… because of the Spirit of the Lord God Omnipotent, which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually.” ([[Mosiah 5.2|Mosiah 5:2]].)
+“… because of the Spirit of the Lord God Omnipotent, which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually.” ([[Mosiah 5.2|Mosiah 5:2]].)
 
 When I speak then of total commitment, I do not refer to a momentary dedication which comes from being filled with the Spirit of God only on certain occasions such as in this conference. I refer to a daily or continuing spirit of devotion and dedication which comes from keeping all the commandments of God every day. We must not pick and choose which commandment of God we will or will not obey. Every one is important. For example, we cannot postpone genealogical research, temple work, or missionary work until after we retire. When we accept Jesus Christ, we accept his apostles and prophets and his total concept of Christian living. We then gladly accept the admonition of God’s servants and willingly have family prayer, hold family home evening, keep a year’s supply of food on hand for emergencies, send our sons and daughters on missions, keep the fast, pay an honest tithe, care for the poor and the needy, and are kind and thoughtful and considerate of others. We willingly become saviors for our families and go to the temple regularly to officiate in behalf of our kindred dead who have sacrificed so much for us.
 
@@ -53,8 +53,6 @@ From the following scripture, it is clear that the admonition to become totally 
 As I understand this scripture, it means that Jesus Christ is kind and merciful to us when we serve him with our whole hearts, but not any of us can take refuge in past righteousness or service. It also means that there is a possibility that any one of us can fall out of good standing, even those who have already achieved a certain degree of righteousness. Therefore, we need to be on our constant guard, each of us, that we not allow ourselves to fall into habits of carelessness in our faith, in our prayers, or in our various Church activities or responsibilities. It is for this reason that I am resolving again to live closer to God each day and to follow his chosen prophets and apostles more diligently than I have ever done in the past.
 
 As the coming of the Lord approaches, Satan’s pressure on us will increase. We will thus have to live closer to the Lord than we have ever done before. I resolve to do this for I know that God lives. I know that Jesus Christ is his Only Begotten Son, and that these brethren who we sustain as our leaders are true apostles and prophets. They have been called and ordained of God to lead us back into his very presence. I invite all of you who hear my voice or who read this message to take heed as the scriptures have indicated, and that you rededicate yourselves in a total commitment to serve the Lord with all your heart, might, mind, and strength. I so pray in the name of Jesus Christ. Amen.
-
-
 
 
 

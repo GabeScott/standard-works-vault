@@ -1,6 +1,5 @@
 # Uprightly
 
-
 *See also* [[Righteously.md|Righteously]]
 
 He that walketh *uprightly* walketh surely, [[Proverbs 10.9|Proverbs 10:9]].

@@ -1,6 +1,6 @@
 # For the Time Will Come When They Will Not Endure Sound Doctrine
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -52,7 +52,7 @@ Now second, I want to publicly profess my opposition to those who are so caught 
 
 Let me cite just one example of how these seemingly enlightened minds are trying to destroy the sacred institution of marriage with their erroneous doctrines and teachings. A quotation from a recent publication, which is just one of many I have recently received from concerned citizens, is as follows:
 
-“On the basis of this and other such evidence, some observers suggest that the institution of marriage which had necessarily been changed over the centuries to accommodate the needs of a changing society now faces a future in which it may gradually become obsolete. In their judgment, marriage will ultimately manifest itself, not as a religious sacrament or a legal certification but simply as a sociological fact.” (William H. Masters and Virginia E. Johnson, *The Pleasure Bond,* Toronto and Boston, Little, Brown and Co., p. 179.) They are calling for a new Christian approach to marriage. They state that dogmatism is being forced to yield to humanism no matter how slowly or how grudgingly. They call attention to studies they claim are on the verge of revealing with assurance that having extramarital relations may serve as a vehicle to faithfulness to God.
+“On the basis of this and other such evidence, some observers suggest that the institution of marriage which had necessarily been changed over the centuries to accommodate the needs of a changing society now faces a future in which it may gradually become obsolete. In their judgment, marriage will ultimately manifest itself, not as a religious sacrament or a legal certification but simply as a sociological fact.” (William H. Masters and Virginia E. Johnson, *The Pleasure Bond,* Toronto and Boston, Little, Brown and Co., p. 179.) They are calling for a new Christian approach to marriage. They state that dogmatism is being forced to yield to humanism no matter how slowly or how grudgingly. They call attention to studies they claim are on the verge of revealing with assurance that having extramarital relations may serve as a vehicle to faithfulness to God.
 
 I find that such teachings are absolutely contrary to the instructions of the Lord to mankind. As I examine the physical order in the Lord’s divine plan, I find no evidence that he has ever found it necessary to make a correction. The earth continues to rotate in the same direction. The angle of its axis is unchanged. The circulation of moisture continues from sea to cloud to earth to river to sea with its same beneficial effect without alteration.
 
@@ -60,7 +60,7 @@ I find the same consistency in the divine law he has established for mankind. In
 
 “And the Lord God said, It is not good that the man should be alone; I will make him an help meet for him.
 
-“And the Lord God caused a deep sleep to fall upon Adam and he slept: and he took one of his ribs, …
+“And the Lord God caused a deep sleep to fall upon Adam and he slept: and he took one of his ribs, …
 
 “And the rib, which the Lord God had taken from man, made he a woman, and brought her unto the man.
 
@@ -86,7 +86,7 @@ It is comforting to me that the early founders of this country had the same conv
 
 And so today, I sound the same words of warning as Paul the Apostle of old: “For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-“And they shall turn away their ears from the truth, and shall be turned unto fables.” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]].)
+“And they shall turn away their ears from the truth, and shall be turned unto fables.” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]].)
 
 I leave you my witness that there is a consistency in the laws of God that will not change. When we conform our lives to his laws we will find a rewarding joy, a fulfillment, and a peace as we live here on earth. When we would pervert or change his laws or disregard them, we must stand the judgments of God, and as surely as that occurs, misery, sorrow, and heartache will be the result.
 
@@ -97,6 +97,4 @@ May God grant that we may have the courage to stand up and be counted for that w
 
 
 
-
-
-#False_Doctrines #Government #Marriage
+#FalseDoctrines #Government #Marriage

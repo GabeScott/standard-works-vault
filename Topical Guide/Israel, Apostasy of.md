@@ -1,4 +1,3 @@
 # Israel, Apostasy of
 
-
-*See* [[Apostasy of Israel.md|Apostasy of Israel]]
+*See also* [[Apostasy of Israel.md|Apostasy of Israel]]

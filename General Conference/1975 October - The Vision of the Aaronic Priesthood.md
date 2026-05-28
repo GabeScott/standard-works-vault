@@ -1,6 +1,6 @@
 # The Vision of the Aaronic Priesthood
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -55,8 +55,6 @@ As all of these things happen, leaders will no longer be tempted to devise progr
 This is the great work we are called upon to perform in these last days. May we faithfully and vigorously carry it to a glorious conclusion.
 
 I bear my witness, my brethren, that the bishops of this Church have a stewardship for the youth of this Church, and the Lord expects us to properly carry out that stewardship. I have the faith in the bishops of the Church and the stake presidencies that this will be accomplished. And, further, I have faith in the Aaronic Priesthood quorum presidencies themselves, in the maturity, stability, and in the depth of their spirituality that they will rise as no other generation has ever risen in their positions of leadership. I bear this witness and leave my testimony, in the name of Jesus Christ. Amen.
-
-
 
 
 

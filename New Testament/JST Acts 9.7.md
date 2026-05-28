@@ -4,6 +4,3 @@
 
 [JST Acts 9:7](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-acts/9?lang=eng)
 
-
-
-

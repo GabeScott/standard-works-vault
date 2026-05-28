@@ -1,6 +1,5 @@
 # Die
 
-
 *See also* [[Dead.md|Dead]]; [[Death.md|Death]]
 
 eatest thereof thou shalt surely *die*, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]).
@@ -21,7 +20,7 @@ even that prophet shall *die*, [[Deuteronomy 18.20|Deuteronomy 18:20]].
 
 one of them *die*, and have no child, [[Deuteronomy 25.5|Deuteronomy 25:5]] ([[Matthew 22.24|Matthew 22:24]]; [[Mark 12.19|Mark 12:19]]; [[Luke 20.28|Luke 20:28]]).
 
-Moses ... *died* there, [[Deuteronomy 34.5|Deuteronomy 34:5]].
+Moses … *died* there, [[Deuteronomy 34.5|Deuteronomy 34:5]].
 
 Where thou *diest*, will I *die*, [[Ruth 1.17|Ruth 1:17]].
 
@@ -31,7 +30,7 @@ fathers shall not *die* for the children, [[2 Chronicles 25.4|2 Chronicles 25:4]
 
 wise men *die*, likewise the fool, [[Psalms 49.10|Psalms 49:10]].
 
-preserve ... those that are appointed to *die*, [[Psalms 79.11|Psalms 79:11]].
+preserve … those that are appointed to *die*, [[Psalms 79.11|Psalms 79:11]].
 
 ye shall *die* like men, [[Psalms 82.7|Psalms 82:7]].
 
@@ -47,7 +46,7 @@ for to morrow we shall *die*, [[Isaiah 22.13|Isaiah 22:13]] ([[1 Corinthians 15.
 
 child shall *die* an hundred years old, [[Isaiah 65.20|Isaiah 65:20]].
 
-their worm shall not *die*, [[Isaiah 66.24|Isaiah 66:24]] ([[Mark 9.44|Mark 9:44]], [[Mark 9.46|Mark 9:46]], [[Mark 9.48|Mark 9:48]]).
+their worm shall not *die*, [[Isaiah 66.24|Isaiah 66:24]] ([[Mark 9.44|Mark 9:44]]; [[Mark 9.46|Mark 9:46]]; [[Mark 9.48|Mark 9:48]]).
 
 great and the small shall *die*, [[Jeremiah 16.6|Jeremiah 16:6]].
 
@@ -59,7 +58,7 @@ why will ye *die*, O house of Israel, [[Ezekiel 18.31|Ezekiel 18:31]] ([[Ezekiel
 
 better for me to *die* than to live, [[Jonah 4.3|Jonah 4:3]] ([[Jonah 4.8|Jonah 4:8]]).
 
-curseth father ... let him *die*, [[Matthew 15.4|Matthew 15:4]] ([[Mark 7.10|Mark 7:10]]).
+curseth father … let him *die*, [[Matthew 15.4|Matthew 15:4]] ([[Mark 7.10|Mark 7:10]]).
 
 *die* with thee, yet will I not deny thee, [[Matthew 26.35|Matthew 26:35]] ([[Mark 14.31|Mark 14:31]]).
 
@@ -75,7 +74,7 @@ if thou hadst been here, my brother had not *died*, [[John 11.21|John 11:21]].
 
 liveth and believeth in me shall never *die*, [[John 11.26|John 11:26]].
 
-expedient ... that one man should *die*, [[John 11.50|John 11:50]] ([[John 18.14|John 18:14]]).
+expedient … that one man should *die*, [[John 11.50|John 11:50]] ([[John 18.14|John 18:14]]).
 
 to *die* at Jerusalem for the name of the Lord, [[Acts 21.13|Acts 21:13]].
 
@@ -109,9 +108,9 @@ Blessed are the dead which *die* in the Lord, [[Revelation 14.13|Revelation 14:1
 
 every living soul *died* in the sea, [[Revelation 16.3|Revelation 16:3]].
 
-he suffereth himself to ... *die* for all men, [[2 Nephi 9.5|2 Nephi 9:5]].
+he suffereth himself to … *die* for all men, [[2 Nephi 9.5|2 Nephi 9:5]].
 
-rebel ... and *die* in their sins, [[Mosiah 15.26|Mosiah 15:26]].
+rebel … and *die* in their sins, [[Mosiah 15.26|Mosiah 15:26]].
 
 *die* as to things pertaining unto righteousness, [[Alma 12.16|Alma 12:16]] ([[Alma 40.26|Alma 40:26]]).
 

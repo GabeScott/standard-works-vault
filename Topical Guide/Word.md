@@ -1,6 +1,5 @@
 # Word
 
-
 *See also* [[Word of God.md|Word of God]]; [[Word of the Lord.md|Word of the Lord]]
 
 God spake all these *words*, [[Exodus 20.1|Exodus 20:1]].
@@ -79,13 +78,13 @@ if any man hear my *words*, and believe not, [[John 12.47|John 12:47]].
 
 ye are clean through the *word* which I have spoken, [[John 15.3|John 15:3]].
 
-If ... my *words* abide in you, ye shall ask, [[John 15.7|John 15:7]].
+If … my *words* abide in you, ye shall ask, [[John 15.7|John 15:7]].
 
 they have kept thy *word*, [[John 17.6|John 17:6]].
 
 I have given unto them the *words* which thou gavest me, [[John 17.8|John 17:8]].
 
-speak ... all the *words* of this life, [[Acts 5.20|Acts 5:20]].
+speak … all the *words* of this life, [[Acts 5.20|Acts 5:20]].
 
 *word* which God sent unto the children of Israel, [[Acts 10.36|Acts 10:36]].
 
@@ -139,7 +138,7 @@ whoso keepeth his *word*, [[1 John 2.5|1 John 2:5]].
 
 bear record in heaven, the Father, the *Word*, and the Holy Ghost, [[1 John 5.7|1 John 5:7]].
 
-thou ... hast kept my *word*, [[Revelation 3.8|Revelation 3:8]].
+thou … hast kept my *word*, [[Revelation 3.8|Revelation 3:8]].
 
 Write: for these *words* are true and faithful, [[Revelation 21.5|Revelation 21:5]].
 
@@ -147,7 +146,7 @@ if any man shall take away from the *words* of the book, [[Revelation 22.19|Reve
 
 by his *word* the waters of the Red Sea were divided, [[1 Nephi 17.26|1 Nephi 17:26]].
 
-seer ... unto him will I give power to bring forth my *word*, [[2 Nephi 3.11|2 Nephi 3:11]].
+seer … unto him will I give power to bring forth my *word*, [[2 Nephi 3.11|2 Nephi 3:11]].
 
 his eternal *word*, which cannot pass away, [[2 Nephi 9.16|2 Nephi 9:16]].
 
@@ -167,9 +166,9 @@ they are the *words* of Christ, [[2 Nephi 33.10|2 Nephi 33:10]].
 
 *words* which I had often heard my father speak, [[Enos 1.3|Enos 1:3]].
 
-watch ... your thoughts, and your *words*, [[Mosiah 4.30|Mosiah 4:30]].
+watch … your thoughts, and your *words*, [[Mosiah 4.30|Mosiah 4:30]].
 
-those who have hearkened unto their *words* ... are his seed, [[Mosiah 15.11|Mosiah 15:11]].
+those who have hearkened unto their *words* … are his seed, [[Mosiah 15.11|Mosiah 15:11]].
 
 their souls were illuminated by the light of the everlasting *word*, [[Alma 5.7|Alma 5:7]].
 
@@ -183,9 +182,9 @@ he imparteth his *word* by angels, [[Alma 32.23|Alma 32:23]].
 
 compare the *word* unto a seed, [[Alma 32.28|Alma 32:28]].
 
-if ye will not nourish the *word* ... ye can never pluck of the fruit of the tree of life, [[Alma 32.40|Alma 32:40]].
+if ye will not nourish the *word* … ye can never pluck of the fruit of the tree of life, [[Alma 32.40|Alma 32:40]].
 
-question ... whether the *word* be in the Son of God, [[Alma 34.5|Alma 34:5]].
+question … whether the *word* be in the Son of God, [[Alma 34.5|Alma 34:5]].
 
 because of the *word* which he has imparted unto me, [[Alma 36.26|Alma 36:26]].
 
@@ -193,7 +192,7 @@ because of the *word* which he has imparted unto me, [[Alma 36.26|Alma 36:26]].
 
 is the meaning of the *word* restoration to take a thing, [[Alma 41.12|Alma 41:12]].
 
-let us resist evil ... with our *words*, [[Alma 61.14|Alma 61:14]].
+let us resist evil … with our *words*, [[Alma 61.14|Alma 61:14]].
 
 done unto thee according to thy *word*, [[Helaman 10.5|Helaman 10:5]].
 
@@ -237,7 +236,7 @@ let your *words* tend to edifying one another, [[D&C 136.24|D&C 136:24]].
 
 they through the ministration of his servants might also hear his *words*, [[D&C 138.37|D&C 138:37]].
 
-my *words* ... never cease, [[Moses 1.4|Moses 1:4]].
+my *words* … never cease, [[Moses 1.4|Moses 1:4]].
 
 by the *word* of my power, have I created them, [[Moses 1.32|Moses 1:32]].
 

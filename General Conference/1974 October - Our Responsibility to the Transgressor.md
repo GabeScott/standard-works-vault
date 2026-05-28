@@ -1,6 +1,6 @@
 # Our Responsibility to the Transgressor
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -64,7 +64,7 @@ Brethren, study the scriptures and the handbook and do as they direct and discip
 
 Let me read a quotation from President John Taylor wherein he discussed this subject: “Furthermore, I have heard of some Bishops who have been seeking to cover up the iniquities of men; I tell them, in the name of God, they will have to bear … that iniquity, and if any of you want to partake of the sins of men, or uphold them, you will have to bear them. Do you hear it, you Bishops and you Presidents? God will require it at your hands. You are not placed in position to tamper with the principles of righteousness, nor to cover up the infamies and corruptions of men.” (*Conference Report,* Apr. 1880, p. 78.)
 
-These are very strong words, brethren, and they were spoken by a president of the Church, a prophet of God. Also, George Q. Cannon makes this significant statement: “The Spirit of God would undoubtedly be so grieved that it would forsake not only those who are guilty of these acts, but it would withdraw itself from those who would suffer them to be done in our midst unchecked and unrebuked.”
+These are very strong words, brethren, and they were spoken by a president of the Church, a prophet of God. Also, George Q. Cannon makes this significant statement: “The Spirit of God would undoubtedly be so grieved that it would forsake not only those who are guilty of these acts, but it would withdraw itself from those who would suffer them to be done in our midst unchecked and unrebuked.”
 
 We must live in the world but we must not become a part of it. We are different from the world. We cannot accept their modes or standards of living. We have had revealed to us the gospel of Jesus Christ, which sets out clearly what our standards should be. We have had the priesthood restored and conferred upon us. We must be exemplary in every respect. There are many scriptures in the Doctrine and Covenants that tell us how to handle the transgressor and what our responsibilities as priesthood holders are. This one especially I call to your attention:
 
@@ -84,11 +84,9 @@ We read in the Doctrine and Covenants:
 
 Let me emphasize to all assembled, wherever you may be this evening, it is our responsibility to save souls. We as leaders must do all within our power to lead our members in the right paths, to keep them strong in the faith, to let them know that we love them, that every soul is great in the sight of God, that we are spirit children of our Heavenly Father, and he stands ready to bless us. We have the responsibility to work closely with parents and with their children to see that they keep themselves morally clean and worthy members of the kingdom of God and prepare themselves for the kingdom of heaven. But never become unnecessarily intimate with any of the opposite sex.
 
-In a few minutes we will be instructed by the president of the Church, a prophet of God. I bear witness that he is a prophet of God, and that God actually lives, and that his Son Jesus Christ is the Savior of the world who came and gave his life that we might be resurrected and enjoy immortality and eternal life. We are led today by the Lord through a prophet of God, President Spencer W. Kimball, with whom it is a great privilege and honor and blessing to work. If we will follow him, we cannot go astray.
+In a few minutes we will be instructed by the president of the Church, a prophet of God. I bear witness that he is a prophet of God, and that God actually lives, and that his Son Jesus Christ is the Savior of the world who came and gave his life that we might be resurrected and enjoy immortality and eternal life. We are led today by the Lord through a prophet of God, President Spencer W. Kimball, with whom it is a great privilege and honor and blessing to work. If we will follow him, we cannot go astray.
 
 May we magnify our priesthood and enjoy the blessings of the Lord, and as President Romney said, “Prove our integrity,” I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

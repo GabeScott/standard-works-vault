@@ -1,9 +1,8 @@
 # Hill
 
-
 *See also* [[Mount [noun].md|Mount [noun]]]; [[Mountain.md|Mountain]]
 
-waters ... upon the earth; and all the high *hills*, [[Genesis 7.19|Genesis 7:19]].
+waters … upon the earth; and all the high *hills*, [[Genesis 7.19|Genesis 7:19]].
 
 utmost bound of the everlasting *hills*, [[Genesis 49.26|Genesis 49:26]].
 
@@ -21,20 +20,20 @@ city that is set on an *hill* cannot be hid, [[Matthew 5.14|Matthew 5:14]] ([[3 
 
 led him unto the brow of the *hill*, [[Luke 4.29|Luke 4:29]].
 
-say ... to the *hills*, Cover us, [[Luke 23.30|Luke 23:30]].
+say … to the *hills*, Cover us, [[Luke 23.30|Luke 23:30]].
 
-Paul stood in the midst of Mars' *hill*, [[Acts 17.22|Acts 17:22]].
+Paul stood in the midst of Mars’ *hill*, [[Acts 17.22|Acts 17:22]].
 
-shake his hand against ... the *hill* of Jerusalem, [[2 Nephi 20.32|2 Nephi 20:32]].
+shake his hand against … the *hill* of Jerusalem, [[2 Nephi 20.32|2 Nephi 20:32]].
 
-gather together our people ... by a *hill* which was called Cumorah, [[Mormon 6.2|Mormon 6:2]].
+gather together our people … by a *hill* which was called Cumorah, [[Mormon 6.2|Mormon 6:2]].
 
 Zion shall flourish upon the *hills*, [[D&C 49.25|D&C 49:25]].
 
-church ... like unto a judge sitting on a *hill*, [[D&C 64.37|D&C 64:37]].
+church … like unto a judge sitting on a *hill*, [[D&C 64.37|D&C 64:37]].
 
 everlasting *hills* shall tremble at their presence, [[D&C 133.31|D&C 133:31]].
 
-altar ... by the *hill* called Potiphar's *Hill*, [[Abraham 1.10|Abraham 1:10]] ([[Abraham 1.20|Abraham 1:20]]).
+altar … by the *hill* called Potiphar’s *Hill*, [[Abraham 1.10|Abraham 1:10]] ([[Abraham 1.20|Abraham 1:20]]).
 
-Convenient to the village of Manchester ... stands a *hill*, [[Joseph Smith History 1.51|Joseph Smith History 1:51]].
+Convenient to the village of Manchester … stands a *hill*, [[Joseph Smith History 1.51|Joseph Smith History 1:51]].

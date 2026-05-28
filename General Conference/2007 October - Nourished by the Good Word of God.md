@@ -20,7 +20,7 @@ The Savior and His servants have not only taught us the importance of helping ot
 
 The answers to the problems the Saints were facing in 1831 are the same for the challenges we are facing today—we are to teach the gospel of Jesus Christ by the power of the Holy Ghost.
 
-Section 50 includes several vital keys to providing nourishment for those we teach and those we lead. The first key is found in the Savior’s admonition to “preach *my* gospel” ([[D&C 50.14|D&C 50:14]], emphasis added). The scriptures clearly teach that the gospel we are to preach isn’t the “wisdom of the world” ([[Mosiah 24.7|Mosiah 24:7]]) but the “doctrine of Christ” ([[2 Nephi 31.21|2 Nephi 31:21]]). While the gospel of Jesus Christ embraces all truth, not all truths are of equal value.[^2] The Savior clearly taught that *His* gospel, first and foremost, is His atoning sacrifice. His gospel is also an invitation to receive the blessings of the Atonement through faith in Christ, repentance, baptism, receiving the Holy Ghost, and enduring faithfully to the end.[^3]
+Section 50 includes several vital keys to providing nourishment for those we teach and those we lead. The first key is found in the Savior’s admonition to “preach *my* gospel” ([[D&C 50.14|D&C 50:14]], emphasis added). The scriptures clearly teach that the gospel we are to preach isn’t the “wisdom of the world” ([[Mosiah 24.7|Mosiah 24:7]]) but the “doctrine of Christ” ([[2 Nephi 31.21|2 Nephi 31:21]]). While the gospel of Jesus Christ embraces all truth, not all truths are of equal value.[^2] The Savior clearly taught that *His* gospel, first and foremost, is His atoning sacrifice. His gospel is also an invitation to receive the blessings of the Atonement through faith in Christ, repentance, baptism, receiving the Holy Ghost, and enduring faithfully to the end.[^3]
 
 Just as I learned as a young man that grain was more appealing to our horses than a dirt-filled bucket, I also learned that grain was more nourishing than hay, that hay was more nourishing than straw, and that it was possible to *feed* a horse without *nourishing* him. As teachers and leaders, it is vital that we nourish those we teach and lead by focusing on the fundamental doctrines, principles, and applications emphasized in the scriptures and the words of our latter-day prophets instead of spending precious time on subjects and sources of lesser importance.
 
@@ -45,18 +45,16 @@ My dear brothers and sisters, with all of my heart I pray that each of us will t
 
 
 
-[^1]: In Conference Report, Apr. 1998, 32; or *Ensign,* May 1998, 26.
+[^1]: In Conference Report, Apr. 1998, [[1998 April - “A Teacher Come from God”.md|32]]; or *Ensign,* May 1998, 26.
 
-[^2]: See Ezra Taft Benson, in Conference Report, Oct. 1984, 6; or *Ensign,* Nov. 1984, 7.
+[^2]: See Ezra Taft Benson, in Conference Report, Oct. 1984, [[1984 October - A New Witness for Christ.md|6]]; or *Ensign,* Nov. 1984, 7.
 
-[^3]: See [[3 Nephi 27.13|3 Nephi 27:13–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]]; [[D&C 33.11|D&C 33:11–12]][[D&C 33.12|]]; [[D&C 39.6|39:6]]; [[D&C 76.40|76:40–42]][[D&C 76.41|]][[D&C 76.42|]].
+[^3]: See [[3 Nephi 27.13|3 Nephi 27:13–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]]; [[D&C 33.11|D&C 33:11–12]][[D&C 33.12|]]; [[D&C 39.6|39:6]]; [[D&C 76.40|76:40–42]][[D&C 76.41|]][[D&C 76.42|]].
 
-[^4]: In Conference Report, Oct. 2006, 47; or *Ensign,* Nov. 2006, 43–44.
+[^4]: In Conference Report, Oct. 2006, [[2006 October - A Priesthood Quorum.md|47]]; or *Ensign,* Nov. 2006, 43–44.
 
 [^5]: *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 1:47–48.
 
 [^6]: *Teachings of Gordon B. Hinckley* (1997), 619–20.
 
-
-
-#Holy_Ghost #Teaching #Trust
+#HolyGhost #Teaching #Trust

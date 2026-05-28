@@ -10,7 +10,7 @@ By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 Knowing what you may or may not know, what would you think of an eight-year camping trip in the wilderness—no trips to town, no light, not even a fire? This describes the experience Father Lehi and his family had when they were told by the Lord to leave Jerusalem. I’ll bet there was some murmuring in the camp—and not a lot of volunteers! There were undoubtedly young women like you on this marathon trip.
 
-The Lord warned them not to make any fires. Then He taught them, “I will … be your light in the wilderness; and I will prepare the way before you, if … ye shall keep my commandments; … ye shall be led towards the promised land; and ye shall know that it is by me that ye are led” ([[1 Nephi 17.13|1 Ne. 17:13]]).
+The Lord warned them not to make any fires. Then He taught them, “I will … be your light in the wilderness; and I will prepare the way before you, if … ye shall keep my commandments; … ye shall be led towards the promised land; and ye shall know that it is by me that ye are led” ([[1 Nephi 17.13|1 Ne. 17:13]]).
 
 You all must have promised lands that you would like to go to, and you can have your own light in that wilderness that challenges young people today. This light comes all wrapped up in love, the Lord’s love for every one of His children, and especially for young people. The Lord knows that you face challenges and temptations, and He provides the light that brightens your hearts, your minds, and your spirits. He has said that His word is truth and truth is light and light is the Spirit of Jesus Christ (see [[D&C 84.45|D&C 84:45]]).
 
@@ -58,6 +58,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Goals #Jesus_Christ #Prayer #Young_Women
+#Goals #JesusChrist #Prayer #YoungWomen

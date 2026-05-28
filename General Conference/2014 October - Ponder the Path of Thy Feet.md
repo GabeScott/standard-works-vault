@@ -1,6 +1,6 @@
 # Ponder the Path of Thy Feet
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -69,13 +69,13 @@ We read in Proverbs the admonition, “Ponder the path of thy feet.”[^19] As w
 
 [^2]: [[Luke 18.22|Luke 18:22]].
 
-[^3]: [[3 Nephi 27.21|3 Nephi 27:21]].
+[^3]: [[3 Nephi 27.21|3 Nephi 27:21]].
 
-[^4]: [[3 Nephi 27.27|3 Nephi 27:27]].
+[^4]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
-[^5]: Eliza R. Snow, “How Great the Wisdom and the Love,” *Hymns,* no. 195.
+[^5]: Eliza R. Snow, “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-[^6]: [[2 Nephi 31.16|2 Nephi 31:16]].
+[^6]: [[2 Nephi 31.16|2 Nephi 31:16]].
 
 [^7]: [[Luke 18.22|Luke 18:22]].
 
@@ -89,7 +89,7 @@ We read in Proverbs the admonition, “Ponder the path of thy feet.”[^19] As w
 
 [^12]: [[D&C 29.39|Doctrine and Covenants 29:39]].
 
-[^13]: [[1 Samuel 15.22|1 Samuel 15:22]].
+[^13]: [[1 Samuel 15.22|1 Samuel 15:22]].
 
 [^14]: [[Luke 22.42|Luke 22:42]].
 
@@ -103,6 +103,4 @@ We read in Proverbs the admonition, “Ponder the path of thy feet.”[^19] As w
 
 [^19]: [[Proverbs 4.26|Proverbs 4:26]].
 
-
-
-#Agency #Example #Jesus_Christ #Obedience #Plan_Of_Salvation #Prayer
+#Agency #Example #JesusChrist #Obedience #PlanOfSalvation #Prayer

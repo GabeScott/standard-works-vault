@@ -20,7 +20,7 @@ In this poem’s semantic parallelism, the Psalmist praises the Lord’s divine 
 
 Seeking Christ in every thought and following Him with all our heart requires that we align our mind and desires with His.[^5] The scriptures refer to this alignment as “stand\[ing\] fast in the Lord.”[^6] This course of action implies that we continually conduct our lives in harmony with the gospel of Christ and focus daily on everything that is good.[^7] Only then may we achieve “the peace of God, which passeth all understanding” and which will “keep \[our\] hearts and minds through Christ Jesus.”[^8] The Savior Himself instructed the elders of the Church in February 1831, “Treasure these things up in your hearts, and let the solemnities of eternity rest upon your minds.”[^9]
 
-Despite our continuous efforts to seek out the Lord, inappropriate thoughts may penetrate our mind. When such thoughts are permitted and even invited to stay, they can shape the desires of our heart and lead us to what we will become in this life and eventually to what we will inherit for eternity.[^10] Elder Neal A. Maxwell once emphasized this principle by saying, “Desires … determine the gradations in outcomes, including why ‘many are called, but few are chosen.’”[^11]
+Despite our continuous efforts to seek out the Lord, inappropriate thoughts may penetrate our mind. When such thoughts are permitted and even invited to stay, they can shape the desires of our heart and lead us to what we will become in this life and eventually to what we will inherit for eternity.[^10] Elder Neal A. Maxwell once emphasized this principle by saying, “Desires … determine the gradations in outcomes, including why ‘many are called, but few are chosen.’”[^11]
 
 Our ancient and modern prophets have constantly reminded us to resist temptation in order to avoid losing our spiritual traction and becoming confused, disoriented, and disillusioned in life.
 
@@ -32,13 +32,13 @@ When Moroni called upon the people to believe in Christ and to repent, he urged 
 
 During a particularly difficult time when Joseph Smith and his fellow prisoners in Liberty Jail did not have freedom in anything except for their thoughts, the Lord provided helpful counsel and a promise to them that are extended to all of us:
 
-“Let thy bowels also be full of charity towards all men \[and women\], and to the household of faith, and let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; …
+“Let thy bowels also be full of charity towards all men \[and women\], and to the household of faith, and let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; …
 
 “The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth.”[^13]
 
 In doing so, holy thoughts will continuously adorn our minds and pure desires will lead us to righteous actions.
 
-Moroni also reminded his people not to be consumed by their lusts.[^14] The word *lust* refers to an intense longing and improper desire for something.[^15] It encompasses any dark thoughts or evil desires that cause an individual to focus on selfish practices or worldly possessions rather than doing good, being kind, keeping the commandments of God, and so forth. It is often manifested through the most carnal feelings of the soul. The Apostle Paul identified some of these feelings, such as “uncleanness, lasciviousness, … hatred, … wrath, strife, … envyings, … and such like.”[^16] Besides all the evil aspects of lust, we cannot forget that the enemy uses it as a secret and deceptive weapon against us when he tempts us to do something wrong.
+Moroni also reminded his people not to be consumed by their lusts.[^14] The word *lust* refers to an intense longing and improper desire for something.[^15] It encompasses any dark thoughts or evil desires that cause an individual to focus on selfish practices or worldly possessions rather than doing good, being kind, keeping the commandments of God, and so forth. It is often manifested through the most carnal feelings of the soul. The Apostle Paul identified some of these feelings, such as “uncleanness, lasciviousness, … hatred, … wrath, strife, … envyings, … and such like.”[^16] Besides all the evil aspects of lust, we cannot forget that the enemy uses it as a secret and deceptive weapon against us when he tempts us to do something wrong.
 
 My beloved brothers and sisters, I testify that as we rely upon the rock of salvation, the Savior of our souls, and follow Moroni’s counsel, our ability to control our thoughts will increase significantly. I can assure you that our spiritual maturity will grow at an increasing pace, changing our heart, making us more like Jesus Christ. Additionally, the influence of the Holy Ghost will be more intense and continuous in our life. Then the enemy’s temptations, little by little, will lose their power over us, resulting in a happier and more pure and consecrated life.
 
@@ -46,13 +46,13 @@ For those who, for whatever reason, fall into temptation and are dwelling upon u
 
 Fortunately, like the prodigal son in the famous parable found in the gospel of Luke, “he came to himself” and woke up from that nightmare.[^17] He renewed his trust in the Lord and felt true contrition and had the desire to eventually return to the Lord’s fold. That day we both felt the Savior’s redeeming love for us. At the end of our brief visit, we were both overcome with emotion, and to this day, I remember the resplendent joy in his countenance when he left my office.
 
-My dear friends, when we resist the little temptations, which often come unexpectedly in our life, we are better equipped to avoid serious transgressions. As President Spencer W. Kimball said: “Seldom does one enter into deeper transgression without first yielding to lesser ones, which open the door to the greater. … ‘A clean field \[does not\] suddenly \[become\] weedy.’”[^18]
+My dear friends, when we resist the little temptations, which often come unexpectedly in our life, we are better equipped to avoid serious transgressions. As President Spencer W. Kimball said: “Seldom does one enter into deeper transgression without first yielding to lesser ones, which open the door to the greater. … ‘A clean field \[does not\] suddenly \[become\] weedy.’”[^18]
 
 While preparing to accomplish His divine mission on earth, the Savior Jesus Christ exemplified the importance of constantly resisting everything that might dissuade us from realizing our eternal purpose. After several unsuccessful attacks by the enemy, who attempted to divert Him from His mission, the Savior categorically dismissed the devil by saying: “Get thee hence, Satan. … Then the devil leaveth him, and, behold, angels came and ministered unto him.”[^19]
 
 Can you imagine, my brothers and sisters, what would happen if we were to derive strength and courage from the Savior and say, “No” and “Get thee hence” to unvirtuous thoughts that very first moment they come into our minds? What would be the impact on the desires of our hearts? How would our resulting actions keep us close to the Savior and allow the continued influence of the Holy Ghost in our lives? I know that by following Jesus’s example, we will avoid many tragedies and undesirable behaviors that might cause family problems and disagreements, negative emotions and inclinations, perpetrating injustices and abuses, enslavement by evil addictions, and anything else that would be against the Lord’s commandments.
 
-In his historic and touching message from April this year, our dear prophet, President Russell M. Nelson, made a promise that all those who are willing to “hear Him”—hear Jesus Christ—and obey His commandments “will be blessed with additional power to deal with temptation, struggles, and weakness” and that our capacity to feel joy will increase, even during the increasing current turbulence.[^20]
+In his historic and touching message from April this year, our dear prophet, President Russell M. Nelson, made a promise that all those who are willing to “hear Him”—hear Jesus Christ—and obey His commandments “will be blessed with additional power to deal with temptation, struggles, and weakness” and that our capacity to feel joy will increase, even during the increasing current turbulence.[^20]
 
 I testify to you that the promises given by our dear prophet are the promises given by the Savior Himself. I invite all of us to “hear Him” in every thought and follow Him with all our heart in order to obtain the strength and courage to say, “No” and “Get thee hence” to all the things that might bring unhappiness into our life. If we do so, I promise that the Lord will send an added measure of His Holy Spirit to strengthen and comfort us and we may become individuals after the Lord’s own heart.[^21]
 
@@ -63,7 +63,7 @@ I bear my witness that Jesus Christ lives and that through Him, we may triumph o
 
 [^1]: [[Psalms 139.1|Psalm 139:1–3]][[Psalms 139.2|]][[Psalms 139.3|]].
 
-[^2]: See Guide to the Scriptures, “[Omniscient](https://churchofjesuschrist.org/study/scriptures/gs/omniscient?lang=eng),” scriptures.ChurchofJesusChrist.org; see also [[Matthew 6.8|Matthew 6:8]]; [[2 Nephi 2.24|2 Nephi 2:24]]; [[3 Nephi 28.6|3 Nephi 28:6]]; [[D&C 6.16|Doctrine and Covenants 6:16]].
+[^2]: See Guide to the Scriptures, “[Omniscient](https://www.churchofjesuschrist.org/study/scriptures/gs/omniscient?lang=eng),” scriptures.ChurchofJesusChrist.org; see also [[Matthew 6.8|Matthew 6:8]]; [[2 Nephi 2.24|2 Nephi 2:24]]; [[3 Nephi 28.6|3 Nephi 28:6]]; [[D&C 6.16|Doctrine and Covenants 6:16]].
 
 [^3]: See [[Psalms 119.2|Psalm 119:2]]; [[Isaiah 45.22|Isaiah 45:22]]; [[Mosiah 7.33|Mosiah 7:33]]; [[D&C 6.36|Doctrine and Covenants 6:36]].
 
@@ -79,9 +79,9 @@ I bear my witness that Jesus Christ lives and that through Him, we may triumph o
 
 [^9]: [[D&C 43.34|Doctrine and Covenants 43:34]].
 
-[^10]: See [[Proverbs 23.7|Proverbs 23:7]]; [[Jeremiah 17.10|Jeremiah 17:10]]; [[2 Nephi 9.39|2 Nephi 9:39]]; [[Mosiah 4.30|Mosiah 4:30]]; [[Alma 12.14|Alma 12:14]]; [[D&C 137.9|Doctrine and Covenants 137:9]].
+[^10]: See [[Proverbs 23.7|Proverbs 23:7]]; [[Jeremiah 17.10|Jeremiah 17:10]]; [[2 Nephi 9.39|2 Nephi 9:39]]; [[Mosiah 4.30|Mosiah 4:30]]; [[Alma 12.14|Alma 12:14]]; [[D&C 137.9|Doctrine and Covenants 137:9]].
 
-[^11]: Neal A. Maxwell, “[[1996 October - “According to the Desire of -[Our-] Hearts”.md|According to the Desire of [Our] Hearts]],” *Ensign,* Nov. 1996, 22; see also [[Matthew 22.14|Matthew 22:14]]; [[D&C 95.5|Doctrine and Covenants 95:5]].
+[^11]: Neal A. Maxwell, “[[1996 October - “According to the Desire of (Our) Hearts”.md|According to the Desire of (Our) Hearts]],” *Ensign,* Nov. 1996, 22; see also [[Matthew 22.14|Matthew 22:14]]; [[D&C 95.5|Doctrine and Covenants 95:5]].
 
 [^12]: See [[Mormon 9.27|Mormon 9:27–29]][[Mormon 9.28|]][[Mormon 9.29|]]; see also [[Mosiah 2.41|Mosiah 2:41]].
 
@@ -89,20 +89,18 @@ I bear my witness that Jesus Christ lives and that through Him, we may triumph o
 
 [^14]: See [[Mormon 9.28|Mormon 9:28]].
 
-[^15]: See Guide to the Scriptures, “[Lust](https://churchofjesuschrist.org/study/scriptures/gs/lust?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^15]: See Guide to the Scriptures, “[Lust](https://www.churchofjesuschrist.org/study/scriptures/gs/lust?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^16]: [[Galatians 5.19|Galatians 5:19–21]][[Galatians 5.20|]][[Galatians 5.21|]].
 
 [^17]: [[Luke 15.17|Luke 15:17]].
 
-[^18]: [Teachings of Presidents of the Church: Spencer W. Kimball](https://churchofjesuschrist.org/study/manual/teachings-spencer-w-kimball/chapter-10?lang=eng&id=p22#p22) (2006), 106; see also [[2 Samuel 11.1|2 Samuel 11]][[2 Samuel 11.2|]][[2 Samuel 11.3|]][[2 Samuel 11.4|]][[2 Samuel 11.5|]][[2 Samuel 11.6|]][[2 Samuel 11.7|]][[2 Samuel 11.8|]][[2 Samuel 11.9|]][[2 Samuel 11.10|]][[2 Samuel 11.11|]][[2 Samuel 11.12|]][[2 Samuel 11.13|]][[2 Samuel 11.14|]][[2 Samuel 11.15|]][[2 Samuel 11.16|]][[2 Samuel 11.17|]][[2 Samuel 11.18|]][[2 Samuel 11.19|]][[2 Samuel 11.20|]][[2 Samuel 11.21|]][[2 Samuel 11.22|]][[2 Samuel 11.23|]][[2 Samuel 11.24|]][[2 Samuel 11.25|]][[2 Samuel 11.26|]][[2 Samuel 11.27|]].
+[^18]: [Teachings of Presidents of the Church: Spencer W. Kimball](https://www.churchofjesuschrist.org/study/manual/teachings-spencer-w-kimball/chapter-10?lang=eng&id=p22#p22) (2006), 106; see also [[2 Samuel 11.1|2 Samuel 11]][[2 Samuel 11.2|]][[2 Samuel 11.3|]][[2 Samuel 11.4|]][[2 Samuel 11.5|]][[2 Samuel 11.6|]][[2 Samuel 11.7|]][[2 Samuel 11.8|]][[2 Samuel 11.9|]][[2 Samuel 11.10|]][[2 Samuel 11.11|]][[2 Samuel 11.12|]][[2 Samuel 11.13|]][[2 Samuel 11.14|]][[2 Samuel 11.15|]][[2 Samuel 11.16|]][[2 Samuel 11.17|]][[2 Samuel 11.18|]][[2 Samuel 11.19|]][[2 Samuel 11.20|]][[2 Samuel 11.21|]][[2 Samuel 11.22|]][[2 Samuel 11.23|]][[2 Samuel 11.24|]][[2 Samuel 11.25|]][[2 Samuel 11.26|]][[2 Samuel 11.27|]].
 
 [^19]: [[Matthew 4.10|Matthew 4:10–11]][[Matthew 4.11|]].
 
-[^20]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 90.
+[^20]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 90.
 
-[^21]: See [[1 Samuel 13.14|1 Samuel 13:14]].
-
-
+[^21]: See [[1 Samuel 13.14|1 Samuel 13:14]].
 
 #Spirituality #Temptation

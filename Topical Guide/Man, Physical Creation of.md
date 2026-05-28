@@ -1,13 +1,12 @@
 # Man, Physical Creation of
 
-
 *See also* [[Breath of Life.md|Breath of Life]]
 
-God said, Let us *make* man in our image, [[Genesis 1.26|Genesis 1:26]] ([[Alma 22.12|Alma 22:12]]; [[Ether 3.15|Ether 3:15]]; [[D&C 20.18|D&C 20:18]]; [[Moses 2.26|Moses 2:26]]; [[Abraham 4.26|Abr. 4:26-27]][[Abraham 4.27|]]).
+God said, Let us *make* man in our image, [[Genesis 1.26|Genesis 1:26]] ([[Alma 22.12|Alma 22:12]]; [[Ether 3.15|Ether 3:15]]; [[D&C 20.18|D&C 20:18]]; [[Moses 2.26|Moses 2:26]]).
 
 Lord God *formed* man of the dust of the ground, [[Genesis 2.7|Genesis 2:7]] ([[D&C 77.12|D&C 77:12]]; [[Moses 3.7|Moses 3:7]]).
 
-the rib ... taken from man, *made* he a woman, [[Genesis 2.22|Genesis 2:22]] ([[Abraham 5.17|Abraham 5:17]]).
+the rib … taken from man, *made* he a woman, [[Genesis 2.22|Genesis 2:22]] ([[Abraham 5.17|Abraham 5:17]]).
 
 out of it wast thou taken: for *dust* thou art, [[Genesis 3.19|Genesis 3:19]].
 
@@ -61,6 +60,6 @@ men were *made* by him, [[D&C 93.10|D&C 93:10]].
 
 his likeness was the express *likeness* of his father, [[D&C 107.43|D&C 107:43]].
 
-God, had *created* all the children of men ... in heaven *created* I them, [[Moses 3.5|Moses 3:5]].
+God, had *created* all the children of men … in heaven *created* I them, [[Moses 3.5|Moses 3:5]].
 
 In the image of his own body, male and female, *created* he them, [[Moses 6.9|Moses 6:9]].

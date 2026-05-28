@@ -1,7 +1,6 @@
 # Education
 
-
-*See also* [[Edification, Edify.md|Edification]]; [[Teaching, Teach, Taught.md|Teaching]]; [BD Education](https://www.churchofjesuschrist.org/study/scriptures/bd/education?lang=eng)
+*See also* [[Edification.md|Edification]]; [[Teaching.md|Teaching]]; [[BD Education.md|BD Education]]
 
 wise man will hear, and will increase *learning*, [[Proverbs 1.5|Proverbs 1:5]].
 
@@ -25,7 +24,7 @@ eyes of your understanding being *enlightened*, [[Ephesians 1.18|Ephesians 1:18]
 
 increasing in the *knowledge* of God, [[Colossians 1.10|Colossians 1:10]].
 
-All scripture is given ... for *instruction* in righteousness, [[2 Timothy 3.16|2 Timothy 3:16]].
+All scripture is given … for *instruction* in righteousness, [[2 Timothy 3.16|2 Timothy 3:16]].
 
 *taught* somewhat in all the learning of my father, [[1 Nephi 1.1|1 Nephi 1:1]].
 
@@ -35,7 +34,7 @@ line upon line, *precept* upon precept, [[2 Nephi 28.30|2 Nephi 28:30]].
 
 *taught* in all the language of his fathers, [[Mosiah 1.2|Mosiah 1:2]].
 
-that we might read and *understand* of his mysteries, [[Mosiah 1.5|Mosiah 1:5]] ([[Mosiah 1.3|1:3-6]][[Mosiah 1.4|]][[Mosiah 1.5|]][[Mosiah 1.6|]]).
+that we might read and *understand* of his mysteries, [[Mosiah 1.5|Mosiah 1:5]].
 
 ye shall grow in the *knowledge* of the glory of him, [[Mosiah 4.12|Mosiah 4:12]].
 
@@ -67,7 +66,7 @@ seek *learning*, even by study and also by faith, [[D&C 88.118|D&C 88:118]].
 
 study and *learn*, and become acquainted with all good, [[D&C 90.15|D&C 90:15]].
 
-glory of God is *intelligence*, or ... light and truth, [[D&C 93.36|D&C 93:36]].
+glory of God is *intelligence*, or … light and truth, [[D&C 93.36|D&C 93:36]].
 
 obtain a *knowledge* of history, and of countries, [[D&C 93.53|D&C 93:53]].
 
@@ -84,5 +83,3 @@ by them their children were *taught* to read and write, [[Moses 6.6|Moses 6:6]].
 faith was *taught* unto the children of men, [[Moses 6.23|Moses 6:23]].
 
 desiring also to be one who possessed great *knowledge*, [[Abraham 1.2|Abraham 1:2]].
-
-*See also* [[Proverbs 3.5|Proverbs 3:5]]; [[Matthew 5.6|Matthew 5:6]]; [[Acts 7.22|Acts 7:22]]; [[1 Corinthians 2.11|1 Corinthians 2:11]]; [[1 Corinthians 8.2|1 Corinthians 8:2]]; [[1 Corinthians 14.20|1 Corinthians 14:20]]; [[Colossians 2.8|Colossians 2:8]]; [[2 Nephi 32.7|2 Nephi 32:7]]; [[Alma 10.15|Alma 10:15]].

@@ -4,6 +4,3 @@
 
 [JST Luke 17:40](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/17?lang=eng)
 
-
-
-

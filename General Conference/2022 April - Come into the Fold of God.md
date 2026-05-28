@@ -1,6 +1,6 @@
 # Come into the Fold of God
 
-By Elder Randy D. Funk - *Of the Seventy*
+By Elder Randy D. Funk - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -28,9 +28,9 @@ But the Good Shepherd[^7]—our true shepherd—is always good. Within the fold 
 
 Jesus taught that there is “one fold, and one shepherd.”[^12] He said:
 
-“He that entereth in by the door is the shepherd of the sheep. …
+“He that entereth in by the door is the shepherd of the sheep. …
 
-“And the sheep hear his voice … ,
+“And the sheep hear his voice … ,
 
 “… and the sheep follow him: for they know his voice.”[^13]
 
@@ -38,7 +38,7 @@ Jesus then stated, “I am the door: by me if any man enter in, he shall be save
 
 ## Blessings Come to Those in the Fold of God
 
-We learn how to come into the fold from the word of God, which is the doctrine taught by Jesus Christ and His prophets.[^16] When we follow the doctrine of Christ and come into the fold through faith in Jesus Christ, repentance, baptism and confirmation, and continuing faithfulness,[^17] Alma promised four specific, personal blessings. *You* may (1) “be redeemed of God,” (2) “be numbered with those of the first resurrection,” (3) “have eternal life,” and (4) the Lord will “pour out his Spirit more abundantly upon you.”[^18]
+We learn how to come into the fold from the word of God, which is the doctrine taught by Jesus Christ and His prophets.[^16] When we follow the doctrine of Christ and come into the fold through faith in Jesus Christ, repentance, baptism and confirmation, and continuing faithfulness,[^17] Alma promised four specific, personal blessings. *You* may (1) “be redeemed of God,” (2) “be numbered with those of the first resurrection,” (3) “have eternal life,” and (4) the Lord will “pour out his Spirit more abundantly upon you.”[^18]
 
 After Alma taught about these blessings, the people clapped their hands for joy. Here’s why:
 
@@ -60,7 +60,7 @@ Similarly, to receive the marvelous blessings promised to those who come into th
 
 Several years ago a dear friend passed away from cancer. When his wife, Sharon, first wrote about his diagnosis, she said: “We Choose Faith. Faith in our Savior, Jesus Christ. Faith in our Heavenly Father’s plan, and faith that He knows our needs and fulfills His promises.”[^29]
 
-I have met many Latter-day Saints like Sharon who feel the inward peace of being securely within the fold of God, especially when temptation, opposition, or adversity comes.[^30] They have chosen to have faith in Jesus Christ and to follow His prophet. Our dear prophet, President Russell M. Nelson, has taught, “Everything good in life—every potential blessing of eternal significance—begins with faith.”[^31]
+I have met many Latter-day Saints like Sharon who feel the inward peace of being securely within the fold of God, especially when temptation, opposition, or adversity comes.[^30] They have chosen to have faith in Jesus Christ and to follow His prophet. Our dear prophet, President Russell M. Nelson, has taught, “Everything good in life—every potential blessing of eternal significance—begins with faith.”[^31]
 
 ## Come Fully into the Fold of God
 
@@ -85,13 +85,13 @@ I am profoundly grateful to be a member of The Church of Jesus Christ of Latter-
 
 [^6]: See [[Moroni 6.4|Moroni 6:4]].
 
-[^7]: See [[John 10.14|John 10:14]]; see also Gerrit W. Gong, “[[2019 April - Good Shepherd, Lamb of God.md|Good Shepherd, Lamb of God]],” *Ensign* or *Liahona*, May 2019, 97–101.
+[^7]: See [[John 10.14|John 10:14]]; see also Gerrit W. Gong, “[[2019 April - Good Shepherd, Lamb of God.md|Good Shepherd, Lamb of God]],” *Ensign* or *Liahona*, May 2019, 97–101.
 
 [^8]: [[Isaiah 49.16|Isaiah 49:16]].
 
 [^9]: See [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
-[^10]: See Dale G. Renlund, “[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Ensign* or *Liahona*, May 2021, 41–44.
+[^10]: See Dale G. Renlund, “[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Ensign* or *Liahona*, May 2021, 41–44.
 
 [^11]: [[Mosiah 18.8|Mosiah 18:8]].
 
@@ -101,42 +101,40 @@ I am profoundly grateful to be a member of The Church of Jesus Christ of Latter-
 
 [^14]: [[John 10.9|John 10:9]].
 
-[^15]: See [[2 Nephi 31.21|2 Nephi 31:21]]; [[Helaman 5.9|Helaman 5:9]].
+[^15]: See [[2 Nephi 31.21|2 Nephi 31:21]]; [[Helaman 5.9|Helaman 5:9]].
 
-[^16]: See Henry B. Eyring, “[[1999 April - The Power of Teaching Doctrine.md|The Power of Teaching Doctrine]],” *Ensign*, May 1999, 73; *Liahona*, July 1999, 85. When we seek to come unto Christ, we must come according to the words of Christ, “for there is one God and one Shepherd over all the earth” (see [[1 Nephi 13.40|1 Nephi 13:40–41]][[1 Nephi 13.41|]]).
+[^16]: See Henry B. Eyring, “[[1999 April - The Power of Teaching Doctrine.md|The Power of Teaching Doctrine]],” *Ensign*, May 1999, 73; *Liahona*, July 1999, 85. When we seek to come unto Christ, we must come according to the words of Christ, “for there is one God and one Shepherd over all the earth” (see [[1 Nephi 13.40|1 Nephi 13:40–41]][[1 Nephi 13.41|]]).
 
-[^17]: The doctrine of Christ, simply stated, is that all people everywhere must exercise faith in Jesus Christ and His Atonement, repent, be baptized, receive the Holy Ghost, and endure to the end, or, as the Savior taught in [[3 Nephi 11.38|3 Nephi 11:38]], “ye can in nowise inherit the kingdom of God.”
+[^17]: The doctrine of Christ, simply stated, is that all people everywhere must exercise faith in Jesus Christ and His Atonement, repent, be baptized, receive the Holy Ghost, and endure to the end, or, as the Savior taught in [[3 Nephi 11.38|3 Nephi 11:38]], “ye can in nowise inherit the kingdom of God.”
 
-[^18]: [[Mosiah 18.9|Mosiah 18:9, 10]][[Mosiah 18.10|]].
+[^18]: [[Mosiah 18.9|Mosiah 18:9, 10]][[Mosiah 18.10|]].
 
-[^19]: See *Merriam-Webster.com Dictionary*, “redeem”; see also D. Todd Christofferson, “[[2013 April - Redemption.md|Redemption]],” *Ensign* or *Liahona*, May 2013, 109.
+[^19]: See *Merriam-Webster.com Dictionary*, “redeem”; see also D. Todd Christofferson, “[[2013 April - Redemption.md|Redemption]],” *Ensign* or *Liahona*, May 2013, 109.
 
 [^20]: See [[Alma 11.40|Alma 11:40]].
 
-[^21]: See [[2 Nephi 2.8|2 Nephi 2:8]]; [[2 Nephi 9.12|9:12]].
+[^21]: See [[2 Nephi 2.8|2 Nephi 2:8]]; [[2 Nephi 9.12|9:12]].
 
 [^22]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
-[^23]: See [[2 Nephi 9.18|2 Nephi 9:18]].
+[^23]: See [[2 Nephi 9.18|2 Nephi 9:18]].
 
-[^24]: See [[1 Nephi 4.6|1 Nephi 4:6]]; [[Moroni 8.26|Moroni 8:26]].
+[^24]: See [[1 Nephi 4.6|1 Nephi 4:6]]; [[Moroni 8.26|Moroni 8:26]].
 
 [^25]: See [[Mosiah 3.24|Mosiah 3:24–25]][[Mosiah 3.25|]]; [[Alma 41.10|Alma 41:10]].
 
 [^26]: [[John 5.8|John 5:8]].
 
-[^27]: [[3 Nephi 17.9|3 Nephi 17:9]].
+[^27]: [[3 Nephi 17.9|3 Nephi 17:9]].
 
 [^28]: [[Alma 5.60|Alma 5:60]]. In [[Moses 7.53|Moses 7:53]], the Messiah also said, “Whoso cometh in at the gate and climbeth up by me shall never fall.”
 
-[^29]: Sharon Jones, “Diagnosis,” wechoosefaith.blogspot.com, Mar. 18, 2012.
+[^29]: Sharon Jones, “Diagnosis,” wechoosefaith.blogspot.com, Mar. 18, 2012.
 
-[^30]: [Preach My Gospel](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-3-the-gospel-of-jesus-christ?lang=eng&id=p39#p39) defines “endure to the end” as follows: “To remain true to the commandments of God and be true to the endowment and sealing ordinances of the temple despite temptation, opposition, and adversity throughout life” (\[2019\], 73). This suggests that we will experience temptation, opposition, and adversity throughout life.
+[^30]: [Preach My Gospel](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-3-the-gospel-of-jesus-christ?lang=eng&id=p39#p39) defines “endure to the end” as follows: “To remain true to the commandments of God and be true to the endowment and sealing ordinances of the temple despite temptation, opposition, and adversity throughout life” (\[2019\], 73). This suggests that we will experience temptation, opposition, and adversity throughout life.
 
-[^31]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Ensign* or *Liahona*, May 2021, 102.
+[^31]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Ensign* or *Liahona*, May 2021, 102.
 
-[^32]: See brief biographies of James Sawyer Holman and Naomi Roxina LeBaron Holman by their granddaughter Grace H. Sainsbury in the possession of the speaker (Charles C. Rich diary, Sept. 28, 1847, Church History Library, Salt Lake City; Journal History of The Church of Jesus Christ of Latter-day Saints, June 21, 1847, 49, Church History Library). Holman was a captain in the 1847 Charles C. Rich company.
+[^32]: See brief biographies of James Sawyer Holman and Naomi Roxina LeBaron Holman by their granddaughter Grace H. Sainsbury in the possession of the speaker (Charles C. Rich diary, Sept. 28, 1847, Church History Library, Salt Lake City; Journal History of The Church of Jesus Christ of Latter-day Saints, June 21, 1847, 49, Church History Library). Holman was a captain in the 1847 Charles C. Rich company.
 
-
-
-#Blessings #Conversion #Faith #Jesus_Christ
+#Blessings #Conversion #Faith #JesusChrist

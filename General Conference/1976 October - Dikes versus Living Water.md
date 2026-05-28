@@ -1,6 +1,6 @@
 # Dikes versus Living Water
 
-By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
+By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -14,7 +14,7 @@ The sentiments of these nations may be portrayed in the words of one distinguish
 
 And this, too, is my tribute to America. We all know that material and physical things are not the source and substance of safety, strength, and freedom of our beloved country.
 
-In August our divinely inspired prophet, President Spencer W. Kimball, and several of our General Authorities held five area conferences in Europe. And what stirring, inspiring, testimony-generating experiences they were for all of us. Those attending will never forget how magnificently they were uplifted and spiritually fed and how wonderfully their testimonies were fortified.
+In August our divinely inspired prophet, President Spencer W. Kimball, and several of our General Authorities held five area conferences in Europe. And what stirring, inspiring, testimony-generating experiences they were for all of us. Those attending will never forget how magnificently they were uplifted and spiritually fed and how wonderfully their testimonies were fortified.
 
 In Amsterdam, during the several days we were together, we visited with some of our members, and our conversation turned to one thing that is unique about the country, the dikes. Much of the Netherlands lies considerably below sea level, as you well know. Through the process of building dikes to wall out the salty sea and through pumping the water into canals, the country of the ingenious, resourceful, and doughty Dutch has literally been born of the sea.
 
@@ -32,13 +32,11 @@ Perhaps I can best emphasize what I feel by recounting the story of a young man 
 
 The day finally came when he was to make his heroic attempt. Wearing a wet suit, flippers, and snorkel, he was carried to the beach at Dover by his cousins, Tom and Don Philabaum, where he crawled into the sea. Tom and Don, in the boat that accompanied him, fed him every hour. Jack had hoped to reach the French coast in fifteen hours. “For twelve hours the swim went well,” he said. “Then I found myself swimming against the tide.” The coast was near, but conditions had decidedly changed. “I gave it all I had,” he declared. “Tom was urging me from the boat, saying, ‘You’ve got to do it.’ We were so close to France, and yet so far. It was the last few miles that completely drained me. The tides defeated me!” the swimmer exclaimed. His strength ebbed away as he tried to cope with the formidable obstacles in his path. (From *Stars and Stripes.*)
 
-Life was made for struggle; and exaltation, success, and victory were never meant to be cheap or to come easily. The tides of life often challenge us. To understand why it has to be this way, we should maintain our understanding, our faith, and our courage by a constant rereading of Second Nephi, chapter two, the substance of which is set forth in this excerpt: “For it must needs be, that there is an opposition in all things.” ([[2 Nephi 2.11|2 Ne. 2:11]].)
+Life was made for struggle; and exaltation, success, and victory were never meant to be cheap or to come easily. The tides of life often challenge us. To understand why it has to be this way, we should maintain our understanding, our faith, and our courage by a constant rereading of Second Nephi, chapter two, the substance of which is set forth in this excerpt: “For it must needs be, that there is an opposition in all things.” ([[2 Nephi 2.11|2 Ne. 2:11]].)
 
 Now let me make a suggestion that will enable us to maintain our spiritual strength and keep our testimonies vitally alive so that the trials, the storms, and the tides of life will not defeat us. This suggestion is that, above all, we should heed the words of Jesus to the woman at Jacob’s well in Samaria when he said, “Whosoever drinketh of the water that I shall give him will never thirst; but the water that I shall give him shall be in him a well of water springing up into everlasting life.” ([[John 4.14|John 4:14]].)
 
-How could one’s strength ebb or falter when it may be so dependably and continuously nourished and restored? Here it is made clear that life, at its best and most vigorous, is spiritual and, as such, is the sincere expression of the soul to God. The spiritual self of each of us is that part of us that will never grow old, or ill, or die, but it must be nurtured and invigorated! Drinking of the living water is the unique recipe, the only way! My testimony is that God lives, that Jesus is the Christ, who stands at the head of our church, and that President Spencer W. Kimball is our prophet, seer, and revelator, who is guiding the destiny of the true church of our Savior. To this, I testify with all the strength I possess, in the name of Jesus Christ. Amen.
-
-
+How could one’s strength ebb or falter when it may be so dependably and continuously nourished and restored? Here it is made clear that life, at its best and most vigorous, is spiritual and, as such, is the sincere expression of the soul to God. The spiritual self of each of us is that part of us that will never grow old, or ill, or die, but it must be nurtured and invigorated! Drinking of the living water is the unique recipe, the only way! My testimony is that God lives, that Jesus is the Christ, who stands at the head of our church, and that President Spencer W. Kimball is our prophet, seer, and revelator, who is guiding the destiny of the true church of our Savior. To this, I testify with all the strength I possess, in the name of Jesus Christ. Amen.
 
 
 

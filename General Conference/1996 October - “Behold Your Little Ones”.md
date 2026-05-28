@@ -18,11 +18,11 @@ Following His Crucifixion and Resurrection, Jesus Christ visited, taught, and bl
 
 “And when he had done this he wept again;
 
-“And he spake unto the multitude, and said unto them: *Behold your little ones”* ([[3 Nephi 17.20|3 Ne. 17:20–23]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]]; emphasis added).
+“And he spake unto the multitude, and said unto them: *Behold your little ones”* ([[3 Nephi 17.20|3 Ne. 17:20–23]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]]; emphasis added).
 
 When the Savior invited the multitude to behold their little ones, was He speaking in the collective sense of a group of little children? Or was He drawing their attention, and ours, to the individual nature and importance of each of those little *ones*—each of those little individuals? I believe that by His example the Savior was teaching us of the individual and tender care we should give to each one of our little children—indeed to each of our Heavenly Father’s children. It may be the lovable toddler or the wayward teen, the grieving widow or the grateful woman for whom all is well. It may even be your own son or daughter or your own husband or wife. Each is an individual. Each has divine potential. And each must be spiritually nourished and temporally cared for with love, tenderness, and individual attention.
 
-The prophet Lehi exhorted his wayward sons, Laman and Lemuel, with “all the feeling of a tender parent” ([[1 Nephi 8.37|1 Ne. 8:37]]). This is the Savior’s way. This is as it should be in our families and in the Church. Moroni was telling us this when he said of those received into the Church by baptism, “They were numbered among the people of the church of Christ; and their names were taken, that they might be remembered and nourished by the good word of God” ([[Moroni 6.4|Moro. 6:4]]). Remembered and nourished, one by one, name by name!
+The prophet Lehi exhorted his wayward sons, Laman and Lemuel, with “all the feeling of a tender parent” ([[1 Nephi 8.37|1 Ne. 8:37]]). This is the Savior’s way. This is as it should be in our families and in the Church. Moroni was telling us this when he said of those received into the Church by baptism, “They were numbered among the people of the church of Christ; and their names were taken, that they might be remembered and nourished by the good word of God” ([[Moroni 6.4|Moro. 6:4]]). Remembered and nourished, one by one, name by name!
 
 The Savior taught us this principle in the parable of the lost sheep. As the shepherd left the ninety and nine and searched until the lost sheep was found, so also are we to go after him who is lost and continue the search until he is found. (See [[Matthew 18.12|Matt. 18:12–14]][[Matthew 18.13|]][[Matthew 18.14|]].) And once he is found, our work is not done until we bring him safely home, rejoicing. This is the objective of the gospel of Jesus Christ and must be the objective of all the programs and activities of the Church—to bring the children of our Father in Heaven home, and home to stay.
 
@@ -39,6 +39,4 @@ It is this testimony I leave with you, praying that we will treat each one of ou
 
 
 
-
-
-#Atonement #Book_Of_Mormon #Children #Holy_Ghost #Individual_Worth #Jesus_Christ
+#Atonement #BookOfMormon #Children #HolyGhost #IndividualWorth #JesusChrist

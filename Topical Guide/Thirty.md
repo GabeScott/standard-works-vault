@@ -1,6 +1,5 @@
 # Thirty
 
-
 give unto their master *thirty* shekels, [[Exodus 21.32|Exodus 21:32]].
 
 From *thirty* years old and upward, [[Numbers 4.3|Numbers 4:3]].

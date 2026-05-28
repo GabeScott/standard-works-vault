@@ -1,6 +1,6 @@
 # Finding One’s Identity
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -18,13 +18,13 @@ This wonderful young man has now achieved an awareness of his own identity which
 
 As we endeavor to understand what it means to have the light of life, which is a most important aid to discovering our identity, we must of necessity know who Jesus is. From the holy scriptures, we are told who he is—the Son of God, referred to as the Only Begotten of the Father in the flesh. He was born of Mary. He is our Redeemer through whom repentance and forgiveness of sin are made possible. He it is who was condemned to die and even while hanging on the cross forgave his executioners. He is the same who rose from the tomb and by that act broke the bonds of death for all mankind, establishing the resurrection. This is the same Jesus who guides his church in these latter days, which church carries his name, even The Church of Jesus Christ of Latter-day Saints.
 
-Through direct teachings during his mortal life and through instruction given to both ancient and modern prophets which are found recorded in the sacred scriptures, the Savior left all mankind sufficient teachings for each one to understand himself and to find his own, true identity. It comes only through knowledge of and obedience to the commandments. Once it does come, the thoughts, “I’m not worth anything—I’m just a nobody,” will have no place in our lives. By “true identity” I mean the relationship between self-worth and self-subordination. The quest for this is explained in the words of George T. Boyd in a talk he gave some years ago.
+Through direct teachings during his mortal life and through instruction given to both ancient and modern prophets which are found recorded in the sacred scriptures, the Savior left all mankind sufficient teachings for each one to understand himself and to find his own, true identity. It comes only through knowledge of and obedience to the commandments. Once it does come, the thoughts, “I’m not worth anything—I’m just a nobody,” will have no place in our lives. By “true identity” I mean the relationship between self-worth and self-subordination. The quest for this is explained in the words of George T. Boyd in a talk he gave some years ago.
 
 “Scripture reading enables \[man\] to see life, not alone from the human point of view, but in some degree from God’s.
 
 “This perspective fills two of man’s important needs—a sense of individual worth and a feeling of self-subordination. Either of these are achievable alone. But how easy it is for a sense of personal worth to turn to an intolerable egoism and self-conceit—or a sense of self-subordination—to turn into a false humility or morbid self-depreciation.
 
-“In the scriptures man finds that he belongs to a whole, of which God is a part. Belonging to such a whole gives him a sense of the value of his own soul, but seen in relation to God reveals his dependence and hence his subordination. … Thus, a devout use of the scriptures nourishes the spiritual life with a calm that displaces the doubts and anxieties which paralyze mankind.” (*Views on Man and Religion,* ed. James Allen et al., Provo, Utah: Friends of George T. Boyd, 1979, p. 207.)
+“In the scriptures man finds that he belongs to a whole, of which God is a part. Belonging to such a whole gives him a sense of the value of his own soul, but seen in relation to God reveals his dependence and hence his subordination. … Thus, a devout use of the scriptures nourishes the spiritual life with a calm that displaces the doubts and anxieties which paralyze mankind.” (*Views on Man and Religion,* ed. James Allen et al., Provo, Utah: Friends of George T. Boyd, 1979, p. 207.)
 
 In [[Psalms 8.4|Psalm 8:4]] the question is asked: “What is man, that thou art mindful of him?”
 
@@ -50,7 +50,7 @@ With this unique capability and emphasis on the worth of souls in the sight of G
 
 “And a certain ruler asked him, saying, Good Master, what shall I do to inherit eternal life?
 
-“And Jesus said unto him, …
+“And Jesus said unto him, …
 
 “Thou knowest the commandments, Do not commit adultery, Do not kill, Do not steal, Do not bear false witness, Honour thy father and thy mother.
 
@@ -107,6 +107,4 @@ I bear you my testimony that we can only find individual identity and happiness 
 
 
 
-
-
-#Jesus_Christ #Self-Esteem
+#JesusChrist #Self-esteem

@@ -127,13 +127,13 @@ I promise that ahead of you is peace and happiness for you and your family. The 
 
 [^4]: [[Abraham 3.25|Abraham 3:25]].
 
-[^5]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^5]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
-[^6]: [[2 Nephi 2.26|2 Nephi 2:26]].
+[^6]: [[2 Nephi 2.26|2 Nephi 2:26]].
 
-[^7]: [[1 Corinthians 3.16|1 Corinthians 3:16]].
+[^7]: [[1 Corinthians 3.16|1 Corinthians 3:16]].
 
-[^8]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^8]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^9]: [[Matthew 13.45|Matthew 13:45]].
 
@@ -145,7 +145,7 @@ I promise that ahead of you is peace and happiness for you and your family. The 
 
 [^13]: [[Alma 41.10|Alma 41:10]].
 
-[^14]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^14]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 [^15]: [[Alma 13.28|Alma 13:28]].
 
@@ -155,7 +155,7 @@ I promise that ahead of you is peace and happiness for you and your family. The 
 
 [^18]: [[D&C 82.10|Doctrine and Covenants 82:10]].
 
-[^19]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^19]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^20]: [[D&C 19.16|Doctrine and Covenants 19:16]].
 
@@ -165,8 +165,6 @@ I promise that ahead of you is peace and happiness for you and your family. The 
 
 [^23]: See [[Genesis 19.26|Genesis 19:26]].
 
-[^24]: See Boyd K. Packer, *The Things of the Soul* (1996), 116.
-
-
+[^24]: See Boyd K. Packer, *The Things of the Soul* (1996), 116.
 
 #Agency #Morality #Pornography #Repentance

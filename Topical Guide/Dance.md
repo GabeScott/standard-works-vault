@@ -1,6 +1,5 @@
 # Dance
 
-
 *See also* [[Dancing.md|Dancing]]
 
 meet him with timbrels and with *dances*, [[Judges 11.34|Judges 11:34]].
@@ -15,4 +14,4 @@ piped unto you, and ye have not *danced*, [[Matthew 11.17|Matthew 11:17]] ([[Luk
 
 daughter of Herodias *danced*, [[Matthew 14.6|Matthew 14:6]] ([[Mark 6.22|Mark 6:22]]).
 
-gather themselves together ... to *dance*, [[Mosiah 20.1|Mosiah 20:1]].
+gather themselves together … to *dance*, [[Mosiah 20.1|Mosiah 20:1]].

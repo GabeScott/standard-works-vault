@@ -1,6 +1,5 @@
 # Noise
 
-
 *See also* [[Voice.md|Voice]]
 
 lightnings, and the *noise* of the trumpet, [[Exodus 20.18|Exodus 20:18]].
@@ -21,7 +20,7 @@ heavens shall pass away with a great *noise*, [[2 Peter 3.10|2 Peter 3:10]].
 
 *noise* of the multitude in the mountains, [[2 Nephi 23.4|2 Nephi 23:4]].
 
-visited of the Lord of Hosts ... with a great *noise*, [[2 Nephi 27.2|2 Nephi 27:2]].
+visited of the Lord of Hosts … with a great *noise*, [[2 Nephi 27.2|2 Nephi 27:2]].
 
 tumultuous *noises* did pass away, [[3 Nephi 10.9|3 Nephi 10:9]].
 

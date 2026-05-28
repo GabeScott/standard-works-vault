@@ -1,6 +1,6 @@
 # Peace, Be Still
 
-By Lisa L. Harkness - *First Counselor in the Primary General Presidency*
+By Lisa L. Harkness - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -46,9 +46,9 @@ Many of us are no different in our day. Recent events around the globe and in ou
 
 Regardless of our circumstances, we can intentionally make efforts to build and increase our faith in Jesus Christ. It is strengthened when we remember that we are children of God and that He loves us. Our faith grows as we experiment on the word of God with hope and diligence, trying our very best to follow Christ’s teachings. Our faith increases as we choose to believe rather than doubt, forgive rather than judge, repent rather than rebel. Our faith is refined as we patiently rely on the merits and mercy and grace of the Holy Messiah.[^20]
 
-“While faith is not a perfect knowledge,” Elder Neal A. Maxwell said, “it brings a deep trust in God, whose knowledge is perfect!”[^21] Even in turbulent times, faith in the Lord Jesus Christ is gritty and resilient. It helps us sift through unimportant distractions. It encourages us to keep moving along the covenant path. Faith pushes through discouragement and allows us to face the future with resolve and squared shoulders. It prompts us to ask for rescue and relief as we pray to the Father in the name of His Son. And when prayerful pleas seem to go unanswered, our persistent faith in Jesus Christ produces patience, humility, and the ability to reverently utter the words “Thy will be done.”[^22]
+“While faith is not a perfect knowledge,” Elder Neal A. Maxwell said, “it brings a deep trust in God, whose knowledge is perfect!”[^21] Even in turbulent times, faith in the Lord Jesus Christ is gritty and resilient. It helps us sift through unimportant distractions. It encourages us to keep moving along the covenant path. Faith pushes through discouragement and allows us to face the future with resolve and squared shoulders. It prompts us to ask for rescue and relief as we pray to the Father in the name of His Son. And when prayerful pleas seem to go unanswered, our persistent faith in Jesus Christ produces patience, humility, and the ability to reverently utter the words “Thy will be done.”[^22]
 
-President Russell M. Nelson has taught:
+President Russell M. Nelson has taught:
 
 “We do not need to let our fears displace our faith. We can combat those fears by strengthening our faith.
 
@@ -97,27 +97,28 @@ Sisters and brothers, our current challenging circumstances are not our final, e
 
 [^15]: [[D&C 19.23|Doctrine and Covenants 19:23]].
 
-[^16]: [[3 Nephi 18.11|3 Nephi 18:11]].
+[^16]: [[3 Nephi 18.11|3 Nephi 18:11]].
 
 [^17]: [[John 13.34|John 13:34]].
 
-[^18]: [[3 Nephi 18.7|3 Nephi 18:7]].
+[^18]: [[3 Nephi 18.7|3 Nephi 18:7]].
 
 [^19]: [[John 16.33|John 16:33]].
 
-[^20]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^20]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
-[^21]: Neal A. Maxwell, “[[1991 April - “Lest Ye Be Wearied and Faint in Your Minds”.md|Lest Ye Be Wearied and Faint in Your Minds]],” *Ensign,* May 1991, 89.
+[^21]: Neal A. Maxwell, “[[1991 April - “Lest Ye Be Wearied and Faint in Your Minds”.md|Lest Ye Be Wearied and Faint in Your Minds]],” *Ensign,* May 1991, 89.
 
 [^22]: [[Luke 11.2|Luke 11:2]].
 
-[^23]: Russell M. Nelson, “[[2011 April - Face the Future with Faith.md|Face the Future with Faith]],” *Ensign* or *Liahona,* May 2011, 34.
+[^23]: Russell M. Nelson, “[[2011 April - Face the Future with Faith.md|Face the Future with Faith]],” *Ensign* or *Liahona,* May 2011, 34.
 
-[^24]: [[3 Nephi 9.22|3 Nephi 9:22]].
+[^24]: [[3 Nephi 9.22|3 Nephi 9:22]].
 
 [^25]: [[John 3.16|John 3:16]].
 
-[^26]: Russell M. Nelson, “[[2020 April - Go Forward in Faith.md|Go Forward in Faith]],” *Ensign* or *Liahona,* May 2020, 114.
+[^26]: Russell M. Nelson, “[[2020 April - Go Forward in Faith.md|Go Forward in Faith]],” *Ensign* or *Liahona,* May 2020, 114.
 
+[^27]: [[Mark 4.39|Mark 4:39]].
 
 #Adversity #Faith #Obedience #Peace

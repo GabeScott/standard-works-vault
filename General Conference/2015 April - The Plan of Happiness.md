@@ -1,6 +1,6 @@
 # The Plan of Happiness
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -38,11 +38,11 @@ When entered into worthily, this process combines the most exquisite and exalted
 
 But romantic love is incomplete; it is a prelude. Love is nourished by the coming of children, who spring from that fountain of life entrusted to couples in marriage. Conception takes place in a wedded embrace between husband and wife. A tiny body begins to form after a pattern of magnificent complexity. A child comes forth in the miracle of birth, created in the image of its earthly father and mother. Within its mortal body is a spirit able to feel and perceive spiritual things. Dormant in that mortal body of this child is the power to beget offspring in its own image.
 
-“The spirit and the body are the soul of man” ([[D&C 88.15|D&C 88:15]]), and there are spiritual and physical laws to obey if we are to be happy. There are eternal laws, including laws relating to this power to give life, “irrevocably decreed in heaven before the foundations of this world, upon which all blessings are predicated” ([[D&C 130.20|D&C 130:20]]). These are spiritual laws which define the moral standard for mankind (see [[JST Romans 7.14|Joseph Smith Translation, Romans 7:14–15]][[JST Romans 7.15|]] \[in the Bible appendix\]; [[2 Nephi 2.5|2 Nephi 2:5]]; [[D&C 29.34|D&C 29:34]]; [[D&C 134.6|134:6]]). There are covenants which bind, seal, and safeguard and give promise of eternal blessings.
+“The spirit and the body are the soul of man” ([[D&C 88.15|D&C 88:15]]), and there are spiritual and physical laws to obey if we are to be happy. There are eternal laws, including laws relating to this power to give life, “irrevocably decreed in heaven before the foundations of this world, upon which all blessings are predicated” ([[D&C 130.20|D&C 130:20]]). These are spiritual laws which define the moral standard for mankind (see [[JST Romans 7.14|Joseph Smith Translation, Romans 7:14–15]][[JST Romans 7.15|]] \[in the Bible appendix\]; [[2 Nephi 2.5|2 Nephi 2:5]]; [[D&C 29.34|D&C 29:34]]; [[D&C 134.6|134:6]]). There are covenants which bind, seal, and safeguard and give promise of eternal blessings.
 
-Alma admonished his son Shiblon, “See that ye bridle all your passions, that ye may be filled with love” ([[Alma 38.12|Alma 38:12]]). A bridle is used to guide, to direct, to restrain. Our passion is to be controlled. When lawfully used, the power of procreation will bless and will sanctify (see *Teachings of Presidents of the Church: Joseph F. Smith* \[1998\], 158).
+Alma admonished his son Shiblon, “See that ye bridle all your passions, that ye may be filled with love” ([[Alma 38.12|Alma 38:12]]). A bridle is used to guide, to direct, to restrain. Our passion is to be controlled. When lawfully used, the power of procreation will bless and will sanctify (see *Teachings of Presidents of the Church: Joseph F. Smith* \[1998\], 158).
 
-Temptations are ever present. Because the adversary cannot beget life, he is jealous toward all who have that supernal power. He and those who followed him were cast out and forfeited the right to a mortal body. “He seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]). He will tempt, if he can, to degrade, to corrupt, and, if possible, to destroy this gift by which we may, if we are worthy, have eternal increase (see [[D&C 132.28|D&C 132:28–31]][[D&C 132.29|]][[D&C 132.30|]][[D&C 132.31|]]).
+Temptations are ever present. Because the adversary cannot beget life, he is jealous toward all who have that supernal power. He and those who followed him were cast out and forfeited the right to a mortal body. “He seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]). He will tempt, if he can, to degrade, to corrupt, and, if possible, to destroy this gift by which we may, if we are worthy, have eternal increase (see [[D&C 132.28|D&C 132:28–31]][[D&C 132.29|]][[D&C 132.30|]][[D&C 132.31|]]).
 
 If we pollute our fountains of life or lead others to transgress, there will be penalties more “exquisite” and “hard to bear” ([[D&C 19.15|D&C 19:15]]) than all the physical pleasure could ever be worth.
 
@@ -58,7 +58,7 @@ With our spiritual bodies it is another matter. Our spirits are damaged when we 
 
 When we speak of marriage and family life, there inevitably comes to mind, “What about the exceptions?” Some are born with limitations and cannot beget children. Some innocents have their marriage wrecked because of the infidelity of their spouse. Others do not marry and live in single worthiness.
 
-For now I offer this comfort: God is our Father! All the love and generosity manifest in the ideal earthly father is magnified in Him who is our Father and our God beyond the capacity of the mortal mind to comprehend. His judgments are just; His mercy without limit; His power to compensate beyond any earthly comparison. “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Corinthians 15:19]]).
+For now I offer this comfort: God is our Father! All the love and generosity manifest in the ideal earthly father is magnified in Him who is our Father and our God beyond the capacity of the mortal mind to comprehend. His judgments are just; His mercy without limit; His power to compensate beyond any earthly comparison. “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Corinthians 15:19]]).
 
 Reverently now I use the word *temple.* I envision a sealing room and an altar with a young couple kneeling there. This sacred temple ordinance is much more than a wedding, for this marriage can be sealed by the Holy Spirit of Promise, and the scriptures declare that we “shall inherit thrones, kingdoms, principalities, and powers, dominions” ([[D&C 132.19|D&C 132:19]]). I see the joy that awaits those who accept this supernal gift and use it worthily.
 
@@ -73,6 +73,4 @@ I bear witness that God lives, that Jesus is the Christ, that the Atonement is n
 
 
 
-
-
-#Children #Family #Love #Morality #Plan_Of_Salvation #Temples
+#Children #Family #Love #Morality #PlanOfSalvation #Temples

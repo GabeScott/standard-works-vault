@@ -1,6 +1,6 @@
 # The Foundations of Righteousness
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -62,9 +62,9 @@ In many parts of the world there are people who take delight in various destruct
 
 Let the Lord answer this matter:
 
-“If ye walk in my statutes, and keep my commandments, and do them; …
+“If ye walk in my statutes, and keep my commandments, and do them; …
 
-“I will give peace in the land, and ye shall lie down, and none shall make you afraid. …
+“I will give peace in the land, and ye shall lie down, and none shall make you afraid. …
 
 “And I will walk among you, and will be your God, and ye shall be my people.” ([[Leviticus 26.3|Lev. 26:3, 6, 12]][[Leviticus 26.6|]][[Leviticus 26.12|]].)
 
@@ -122,11 +122,11 @@ How then can we hope to escape the wrath of God and have peace and righteousness
 
 “Thou shalt have no other gods before me.
 
-“Thou shalt not take the name of the Lord thy God in vain. …
+“Thou shalt not take the name of the Lord thy God in vain. …
 
-“Remember the sabbath day, to keep it holy. …
+“Remember the sabbath day, to keep it holy. …
 
-“Honour thy father and thy mother. …
+“Honour thy father and thy mother. …
 
 “Thou shalt not kill.
 
@@ -134,7 +134,7 @@ How then can we hope to escape the wrath of God and have peace and righteousness
 
 “Thou shalt not steal.
 
-“Thou shalt not bear false witness. …
+“Thou shalt not bear false witness. …
 
 “Thou shalt not covet.” ([[Exodus 20.3|Ex. 20:3, 7–8, 12–17]][[Exodus 20.7|]][[Exodus 20.8|]][[Exodus 20.12|]][[Exodus 20.13|]][[Exodus 20.14|]][[Exodus 20.15|]][[Exodus 20.16|]][[Exodus 20.17|]].)
 
@@ -143,8 +143,6 @@ And now in the year of our Lord 1977 there are among us those same vices which w
 I testify that Jesus is the Christ, this is his program; he is the God of this world, and I know that we can achieve our destiny and build enduring peace only upon the foundations of righteousness.
 
 And may he help us to strive to live his laws and to achieve happiness on earth, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Gather Together in One All Things in Christ
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -48,13 +48,13 @@ The fourth article of faith does not simply identify the fundamental principles 
 
 **Example 2.** I now want to describe how all Church programs and initiatives are gathered together in one in Christ. Many additional illustrations could be presented; I will use only a selected few.
 
-In 1978, President Spencer W. Kimball instructed members of the Church to build up the strength of Zion throughout the world. He counseled the Saints to remain in their native lands and establish strong stakes by gathering the family of God and teaching them the ways of the Lord. He further indicated that more temples would be built and promised blessings for the Saints wherever they lived in the world.[^17]
+In 1978, President Spencer W. Kimball instructed members of the Church to build up the strength of Zion throughout the world. He counseled the Saints to remain in their native lands and establish strong stakes by gathering the family of God and teaching them the ways of the Lord. He further indicated that more temples would be built and promised blessings for the Saints wherever they lived in the world.[^17]
 
-As the number of stakes increased, the need was intensified for member homes to “become \[places\] where family members \[loved\] to be, where they \[could\] enrich their lives and find mutual love, support, appreciation, and encouragement.”[^18] Consequently, in 1980, Sunday meetings were consolidated into a three-hour block to “reemphasize personal and family responsibility for learning, living, and teaching the gospel.”[^19] This emphasis on family and the home again was affirmed in “The Family: A Proclamation to the World,” introduced by President Gordon B. Hinckley in 1995.[^20]
+As the number of stakes increased, the need was intensified for member homes to “become \[places\] where family members \[loved\] to be, where they \[could\] enrich their lives and find mutual love, support, appreciation, and encouragement.”[^18] Consequently, in 1980, Sunday meetings were consolidated into a three-hour block to “reemphasize personal and family responsibility for learning, living, and teaching the gospel.”[^19] This emphasis on family and the home again was affirmed in “The Family: A Proclamation to the World,” introduced by President Gordon B. Hinckley in 1995.[^20]
 
 In April of 1998, President Hinckley announced the construction of many more small temples, thereby bringing the sacred ordinances of the Lord’s house closer to Latter-day Saint individuals and families throughout the world.[^21] And these enhanced opportunities for spiritual growth and development were complemented by related increases in temporal self-reliance through the introduction of the Perpetual Education Fund in 2001.[^22]
 
-During his administration, President Thomas S. Monson repeatedly exhorted the Saints to go “to the rescue” and emphasized caring for the poor and needy as one of the Church’s divinely appointed responsibilities. Continuing the emphasis on temporal preparation, the Self-Reliance Services initiative was implemented in 2012.
+During his administration, President Thomas S. Monson repeatedly exhorted the Saints to go “to the rescue” and emphasized caring for the poor and needy as one of the Church’s divinely appointed responsibilities. Continuing the emphasis on temporal preparation, the Self-Reliance Services initiative was implemented in 2012.
 
 Over the past several years, essential principles about making the Sabbath day a delight in the home and at church have been emphasized and reinforced,[^23] thus preparing us for the Sunday meeting schedule adjustment that was announced in this session of general conference.
 
@@ -85,7 +85,7 @@ I joyfully declare my witness of the divinity and living reality of the Eternal 
 
 [^5]: [[Alma 5.14|Alma 5:14]].
 
-[^6]: See [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]].
+[^6]: See [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]].
 
 [^7]: See [[D&C 121.29|Doctrine and Covenants 121:29]].
 
@@ -97,29 +97,29 @@ I joyfully declare my witness of the divinity and living reality of the Eternal 
 
 [^11]: [[Moroni 7.28|Moroni 7:28]].
 
-[^12]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^12]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
-[^13]: [[2 Nephi 2.8|2 Nephi 2:8]].
+[^13]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
-[^14]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^14]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
-[^15]: [[2 Nephi 31.13|2 Nephi 31:13]]; emphasis added.
+[^15]: [[2 Nephi 31.13|2 Nephi 31:13]]; emphasis added.
 
-[^16]: [[2 Nephi 31.16|2 Nephi 31:16]].
+[^16]: [[2 Nephi 31.16|2 Nephi 31:16]].
 
-[^17]: See Spencer W. Kimball, “[[1978 October - The Fruit of Our Welfare Services Labors.md|The Fruit of Our Welfare Services Labors]],” *Ensign,* Nov. 1978, 76.
+[^17]: See Spencer W. Kimball, “[[1978 October - The Fruit of Our Welfare Services Labors.md|The Fruit of Our Welfare Services Labors]],” *Ensign,* Nov. 1978, 76.
 
-[^18]: Instructions for stake presidencies and bishoprics, in “[Church Consolidates Meeting Schedules](https://churchofjesuschrist.org/study/ensign/1980/03/news-of-the-church/church-consolidates-meeting-schedules?lang=eng),” *Ensign,* Mar. 1980, 73.
+[^18]: Instructions for stake presidencies and bishoprics, in “[Church Consolidates Meeting Schedules](https://www.churchofjesuschrist.org/study/ensign/1980/03/news-of-the-church/church-consolidates-meeting-schedules?lang=eng),” *Ensign,* Mar. 1980, 73.
 
-[^19]: Instructions, in “[Church Consolidates Meeting Schedules](https://churchofjesuschrist.org/study/ensign/1980/03/news-of-the-church/church-consolidates-meeting-schedules?lang=eng),” 73.
+[^19]: Instructions, in “[Church Consolidates Meeting Schedules](https://www.churchofjesuschrist.org/study/ensign/1980/03/news-of-the-church/church-consolidates-meeting-schedules?lang=eng),” 73.
 
-[^20]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
+[^20]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
-[^21]: See Gordon B. Hinckley, “[[1998 April - New Temples to Provide “Crowning Blessings” of the Gospel.md|New Temples to Provide ‘Crowning Blessings’ of the Gospel]],” *Ensign,* May 1998, 87–88.
+[^21]: See Gordon B. Hinckley, “[[1998 April - New Temples to Provide “Crowning Blessings” of the Gospel.md|New Temples to Provide ‘Crowning Blessings’ of the Gospel]],” *Ensign,* May 1998, 87–88.
 
-[^22]: See Gordon B. Hinckley, “[[2001 April - The Perpetual Education Fund.md|The Perpetual Education Fund]],” *Ensign,* May 2001, 51–53; *Liahona,* July 2001, 60–62, 67.
+[^22]: See Gordon B. Hinckley, “[[2001 April - The Perpetual Education Fund.md|The Perpetual Education Fund]],” *Ensign,* May 2001, 51–53; *Liahona,* July 2001, 60–62, 67.
 
-[^23]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona,* May 2015, 129–32.
+[^23]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona,* May 2015, 129–32.
 
 [^24]: *Handbook 2: Administering the Church* (2010), 1.4; emphasis added.
 
@@ -129,6 +129,4 @@ I joyfully declare my witness of the divinity and living reality of the Eternal 
 
 [^27]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-
-
-#Conversion #Gathering #Home #Jesus_Christ
+#Conversion #Gathering #Home #JesusChrist

@@ -75,6 +75,4 @@ I know they love you. They know each one of you personally. They know every deta
 
 
 
-
-
 #Example #Morality #Obedience #Prayer #Spirituality #Youth

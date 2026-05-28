@@ -1,6 +1,6 @@
 # Called to the Work
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -26,9 +26,9 @@ Each mission call and assignment, or a later reassignment, is the result of reve
 
 [[D&C 80.1|Section 80 of the Doctrine and Covenants]][[D&C 80.2|]][[D&C 80.3|]][[D&C 80.4|]][[D&C 80.5|]] is a record of a mission call to Stephen Burnett extended by the Prophet Joseph Smith in 1832. Studying this call to Brother Burnett can help us to (1) understand more clearly the distinction between being “called to the work” as a missionary and “assigned to labor” in a particular place and (2) appreciate more completely our individual and divinely appointed responsibility to proclaim the gospel.
 
-[[D&C 80.1|Verse 1]] of this section is a call to serve: “Verily, thus saith the Lord unto you my servant Stephen Burnett: Go ye, go ye into the world and preach the gospel to every creature that cometh under the sound of your voice.”[^3]
+[[D&C 80.1|Verse 1]] of this section is a call to serve: “Verily, thus saith the Lord unto you my servant Stephen Burnett: Go ye, go ye into the world and preach the gospel to every creature that cometh under the sound of your voice.”[^3]
 
-Interestingly, [[D&C 80.2|verse 2]] informs Brother Burnett about his assigned missionary companion: “And inasmuch as you desire a companion, I will give unto you my servant Eden Smith.”[^4]
+Interestingly, [[D&C 80.2|verse 2]] informs Brother Burnett about his assigned missionary companion: “And inasmuch as you desire a companion, I will give unto you my servant Eden Smith.”[^4]
 
 [[D&C 80.3|Verse 3]] indicates where these two missionaries are to labor: “Wherefore, go ye and preach my gospel, whether to the north or to the south, to the east or to the west, it mattereth not, for ye cannot go amiss.”[^5]
 
@@ -117,6 +117,4 @@ Joyfully, I witness that our Heavenly Father and His Beloved Son, Jesus Christ, 
 
 [^18]: [[Colossians 2.7|Colossians 2:7]].
 
-
-
-#Missionary_Work #Preparation #Priesthood #Temples #Worthiness
+#MissionaryWork #Preparation #Priesthood #Temples #Worthiness

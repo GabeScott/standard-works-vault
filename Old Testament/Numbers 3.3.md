@@ -5,5 +5,5 @@
 [Numbers 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.3?lang=eng#p3)
 
 
-[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^a]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]. [[BD Priests|BD Priests]].  
 [^b]: OR ordained.  

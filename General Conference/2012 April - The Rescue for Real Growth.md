@@ -1,6 +1,6 @@
 # The Rescue for Real Growth
 
-By Bishop Richard C. Edgley - *Recently Released First Counselor in the Presiding Bishopric*
+By Bishop Richard C. Edgley - *Recently Released First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -18,7 +18,7 @@ After a few moments of silence on my part, I said, “No, I did not know you wer
 
 She answered, “I have not been active in the Church for years.” Then she said, “Don’t you know that when you have been inactive, it’s not all that easy to come back?”
 
-I responded, “No. Your ward starts at 9:00 a.m. You come into the chapel, and you are with us.”
+I responded, “No. Your ward starts at 9:00 a.m. You come into the chapel, and you are with us.”
 
 She answered, “No, it is not that easy. You worry about a lot of things. You worry if someone will greet you or if you will sit alone and unnoticed during the meetings. And you worry about whether you will be accepted and who your new friends will be.”
 
@@ -64,7 +64,7 @@ The charge to rescue is based on one of the most fundamental doctrines of the Ch
 
 “Remember the worth of souls is great in the sight of God;
 
-“For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of *all men,* that *all men might repent and come unto him.* …
+“For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of *all men,* that *all men might repent and come unto him.* …
 
 “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” ([[D&C 18.10|D&C 18:10–11, 15]][[D&C 18.11|]][[D&C 18.15|]]; emphasis added).
 
@@ -72,9 +72,10 @@ I have had the privilege of rescuing a few less-active members over my lifetime.
 
 To His Apostles, the Lord said, “The harvest truly is plenteous, but the labourers are few” ([[Matthew 9.37|Matthew 9:37]]). The laborers need not be few. We have thousands of capable, worthy priesthood holders and millions of committed members of the Church in all parts of the world. We have functioning ward councils, priesthood quorums, Relief Societies, and other organizations all with the charge to rescue. Saving souls is the work the Savior has called all of us to do.
 
-Earlier in my remarks I referred to the prayer Alma offered as he and his companions embarked on the rescue of the Zoramites. During World War II approximately 500 U.S. soldiers and supporting locals were held captive in a prison camp. Because of the suffering and concern for their safety, a volunteer force of approximately 100 U.S. soldiers was selected to rescue these prisoners. After the volunteers were assembled, the commanding officer instructed them something like this: “This evening you men meet with your religious leaders, you kneel down, and you swear to God that as long as you have a single breath of life, you will not let one of these men suffer one more moment.” (See Hampton Sides, *Ghost Soldiers: The Forgotten Epic Story of World War II’s Most Dramatic Mission* \[2001\], 28–29.) This successful rescue was a rescue from physical and temporal suffering. Should we be less valiant in our efforts to rescue those who could suffer spiritual and eternal consequences? Should we make less of a commitment to the Lord?
+Earlier in my remarks I referred to the prayer Alma offered as he and his companions embarked on the rescue of the Zoramites. During World War II approximately 500 U.S. soldiers and supporting locals were held captive in a prison camp. Because of the suffering and concern for their safety, a volunteer force of approximately 100 U.S. soldiers was selected to rescue these prisoners. After the volunteers were assembled, the commanding officer instructed them something like this: “This evening you men meet with your religious leaders, you kneel down, and you swear to God that as long as you have a single breath of life, you will not let one of these men suffer one more moment.” (See Hampton Sides, *Ghost Soldiers: The Forgotten Epic Story of World War II’s Most Dramatic Mission* \[2001\], 28–29.) This successful rescue was a rescue from physical and temporal suffering. Should we be less valiant in our efforts to rescue those who could suffer spiritual and eternal consequences? Should we make less of a commitment to the Lord?
 
 In conclusion, our commitment as members of Christ’s true Church stems from the fact that the Lord suffered for every single one of us—the nonmember, the less-active member, even the sinner, and every member in our own family. I believe we can bring thousands to the joy, peace, and sweetness of the gospel, and hundreds of thousands, even millions, in their following generations. I believe we can succeed because this is the Lord’s Church, and by virtue of our priesthood and our membership, we are called to succeed. I bear that witness to you in the name of Jesus Christ, amen.
+
 
 
 

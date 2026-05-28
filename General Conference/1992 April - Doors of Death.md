@@ -20,9 +20,9 @@ Moreover, we can’t fully appreciate joyful reunions later without tearful sepa
 
 ## Eternal Perspective
 
-Eternal perspective provides peace “which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]). In speaking at a funeral of a loved one, the Prophet Joseph Smith offered this admonition: “When we lose a near and dear friend, upon whom we have set our hearts, it should be a caution unto us. … Our affections should be placed upon God and His work, more intensely than upon our fellow beings” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 216).
+Eternal perspective provides peace “which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]). In speaking at a funeral of a loved one, the Prophet Joseph Smith offered this admonition: “When we lose a near and dear friend, upon whom we have set our hearts, it should be a caution unto us. … Our affections should be placed upon God and His work, more intensely than upon our fellow beings” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 216).
 
-Life does not begin with birth, nor does it end with death. Prior to our birth, we dwelled as spirit children with our Father in Heaven. There we eagerly anticipated the possibility of coming to earth and obtaining a physical body. Knowingly we wanted the risks of mortality, which would allow the exercise of agency and accountability. “This life \[was to become\] a probationary state; a time to prepare to meet God” ([[Alma 12.24|Alma 12:24]]). But we regarded the returning home as the best part of that long-awaited trip, just as we do now. Before embarking on any journey, we like to have some assurance of a round-trip ticket. Returning from earth to life in our heavenly home requires passage through—and not around—the doors of death. We were born to die, and we die to live (see [[2 Corinthians 6.9|2 Cor. 6:9]]). As seedlings of God, we barely blossom on earth; we fully flower in heaven.
+Life does not begin with birth, nor does it end with death. Prior to our birth, we dwelled as spirit children with our Father in Heaven. There we eagerly anticipated the possibility of coming to earth and obtaining a physical body. Knowingly we wanted the risks of mortality, which would allow the exercise of agency and accountability. “This life \[was to become\] a probationary state; a time to prepare to meet God” ([[Alma 12.24|Alma 12:24]]). But we regarded the returning home as the best part of that long-awaited trip, just as we do now. Before embarking on any journey, we like to have some assurance of a round-trip ticket. Returning from earth to life in our heavenly home requires passage through—and not around—the doors of death. We were born to die, and we die to live (see [[2 Corinthians 6.9|2 Cor. 6:9]]). As seedlings of God, we barely blossom on earth; we fully flower in heaven.
 
 ## Physical Death
 
@@ -34,29 +34,32 @@ Think of the alternative. If all 69 billion people who have ever lived on earth 
 
 ## Plan of Happiness
 
-Scriptures teach that death is *essential* to happiness: “Now behold, it was not expedient that man should be reclaimed from this temporal death, for that would *destroy* the great plan of happiness” ([[Alma 42.8|Alma 42:8]]; italics added; see also [[2 Nephi 9.6|2 Ne. 9:6]]).
+Scriptures teach that death is *essential* to happiness: “Now behold, it was not expedient that man should be reclaimed from this temporal death, for that would *destroy* the great plan of happiness” ([[Alma 42.8|Alma 42:8]]; italics added; see also [[2 Nephi 9.6|2 Ne. 9:6]]).
 
 Our limited perspective would be enlarged if we could witness the reunion on the other side of the veil, when doors of death open to those returning home. Such was the vision of the psalmist who wrote, “Precious in the sight of the Lord is the death of his saints” ([[Psalms 116.15|Ps. 116:15]]).
 
 ## Spiritual Death
 
-But there is another type of separation known in scripture as spiritual death (see [[2 Nephi 9.12|2 Ne. 9:12]]; [[Alma 12.16|Alma 12:16]]; [[Alma 42.9|42:9]]; [[Helaman 14.16|Hel. 14:16, 18]][[Helaman 14.18|]]). It “is defined as *a state of spiritual alienation from God”* (Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. \[Salt Lake City: Bookcraft, 1954–56\], 2:217). Thus, one can be very much alive physically but dead spiritually.
+But there is another type of separation known in scripture as spiritual death (see [[2 Nephi 9.12|2 Ne. 9:12]]; [[Alma 12.16|Alma 12:16]]; [[Alma 42.9|42:9]]; [[Helaman 14.16|Hel. 14:16, 18]][[Helaman 14.18|]]). It “is defined as *a state of spiritual alienation from God”* (Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. \[Salt Lake City: Bookcraft, 1954–56\], 2:217). Thus, one can be very much alive physically but dead spiritually.
 
 Spiritual death is more likely when goals are unbalanced toward things physical. Paul explained this concept to the Romans: “If ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live” ([[Romans 8.13|Rom. 8:13]]).
 
-If physical death should strike before moral wrongs have been made right, opportunity for repentance will have been forfeited. Thus, “the \[real\] sting of death is sin” ([[1 Corinthians 15.56|1 Cor. 15:56]]).
+If physical death should strike before moral wrongs have been made right, opportunity for repentance will have been forfeited. Thus, “the \[real\] sting of death is sin” ([[1 Corinthians 15.56|1 Cor. 15:56]]).
 
 Even the Savior cannot save us in our sins. He will redeem us from our sins, but only upon condition of our repentance. We are responsible for our own spiritual survival or death (see [[Romans 8.13|Rom. 8:13–14]][[Romans 8.14|]]; [[Helaman 14.18|Hel. 14:18]]; [[D&C 29.41|D&C 29:41–45]][[D&C 29.42|]][[D&C 29.43|]][[D&C 29.44|]][[D&C 29.45|]]).
 
 ## Coping with Trials
 
-Physical and spiritual trials provide continuing challenges in life. Each of you could provide illustrations from personal experience. Many of you, for instance, are at the twilight of life and endure long and difficult days. You know well the meaning of that divine injunction to “endure to the end” (see [[Matthew 24.13|Matt. 24:13]]; [[Mark 13.13|Mark 13:13]]; [[1 Nephi 13.37|1 Ne. 13:37]]; [[1 Nephi 22.31|22:31]]; [[2 Nephi 31.16|2 Ne. 31:16]]; [[2 Nephi 33.4|33:4]]; [[Omni 1.26|Omni 1:26]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[D&C 14.7|D&C 14:7]]; [[D&C 18.22|18:22]]; [[D&C 24.8|24:8]]).
+Physical and spiritual trials provide continuing challenges in life. Each of you could provide illustrations from personal experience. Many of you, for instance, are at the twilight of life and endure long and difficult days. You know well the meaning of that divine injunction to “endure to the end” (see [[Matthew 24.13|Matt. 24:13]]; [[Mark 13.13|Mark 13:13]]; [[1 Nephi 13.37|1 Ne. 13:37]]; [[1 Nephi 22.31|22:31]]; [[2 Nephi 31.16|2 Ne. 31:16]]; [[2 Nephi 33.4|33:4]]; [[Omni 1.26|Omni 1:26]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[D&C 14.7|D&C 14:7]]; [[D&C 18.22|18:22]]; [[D&C 24.8|24:8]]).
 
-The Savior of the world repeatedly asked that we pattern our lives after His (see [[John 13.15|John 13:15]]; [[John 14.6|14:6]]; [[1 Peter 2.21|1 Pet. 2:21]]; [[2 Nephi 31.9|2 Ne. 31:9, 16]][[2 Nephi 31.16|]]; [[3 Nephi 18.16|3 Ne. 18:16]]; [[3 Nephi 27.27| 27:27]]). So we must endure trials—as did He. “Though he were a Son, yet learned he obedience by the things which he suffered” ([[Hebrews 5.8|Heb. 5:8]]).
+The Savior of the world repeatedly asked that we pattern our lives after His (see [[John 13.15|John 13:15]]; [[John 14.6|14:6]]; [[1 Peter 2.21|1 Pet. 2:21]]; [[2 Nephi 31.9|2 Ne. 31:9, 16]][[2 Nephi 31.16|]]; [[3 Nephi 18.16|3 Ne. 18:16]]; [[3 Nephi 27.27| 27:27]]). So we must endure trials—as did He. “Though he were a Son, yet learned he obedience by the things which he suffered” ([[Hebrews 5.8|Heb. 5:8]]).
 
 When hardship heaps its heavy load upon us, good may yet be gleaned. Shakespeare so wrote:
 
-Sweet are the uses of adversity,Which, like the toad, ugly and venomous,Wears yet a precious jewel in his head.\[*As You Like It,* act 2, scene 1, lines 12–14\]
+>Sweet are the uses of adversity,
+>Which, like the toad, ugly and venomous,
+>Wears yet a precious jewel in his head.
+>
 
 The Lord’s expression is even more explicit: “After much tribulation come the blessings” ([[D&C 58.4|D&C 58:4]]).
 
@@ -72,7 +75,7 @@ The first station in postmortal life is named paradise. Alma wrote: “Concernin
 
 ## Resurrection and Immortality
 
-Some facetiously state that nothing is as permanent as death. Not so! The grip of physical death is temporary. It began with the fall of Adam; it ended with the atonement of Jesus the Christ. The waiting period in paradise is temporary too. It ends with the Resurrection. From the Book of Mormon we learn that the “paradise of God must deliver up the spirits of the righteous, and the grave deliver up the body of the righteous; and the spirit and the body is restored to itself again, and all men become incorruptible, and immortal, and they are living souls” ([[2 Nephi 9.13|2 Ne. 9:13]]).
+Some facetiously state that nothing is as permanent as death. Not so! The grip of physical death is temporary. It began with the fall of Adam; it ended with the atonement of Jesus the Christ. The waiting period in paradise is temporary too. It ends with the Resurrection. From the Book of Mormon we learn that the “paradise of God must deliver up the spirits of the righteous, and the grave deliver up the body of the righteous; and the spirit and the body is restored to itself again, and all men become incorruptible, and immortal, and they are living souls” ([[2 Nephi 9.13|2 Ne. 9:13]]).
 
 A few years ago, our stake president and his wife had a wonderful son taken in his youthful prime because of an automobile accident. We are consoled by the knowledge that the very laws that could not allow his broken body to survive here are the same eternal laws which the Lord will employ at the time of the Resurrection, when that body “shall be restored to \[its\] proper and perfect frame” ([[Alma 40.23|Alma 40:23]]; see also [[Alma 11.42|Alma 11:42–45]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]]).
 
@@ -80,11 +83,11 @@ The Lord who created us in the first place surely has power to do it again. The 
 
 ## Judgment
 
-Our resurrection will not be an end but a new beginning. It will prepare us for judgment by the Lord, who said, “As I have been lifted up \[upon the cross\] by men even so should men be lifted up by the Father, to stand before me, to be judged of their works” ([[3 Nephi 27.14|3 Ne. 27:14]]).
+Our resurrection will not be an end but a new beginning. It will prepare us for judgment by the Lord, who said, “As I have been lifted up \[upon the cross\] by men even so should men be lifted up by the Father, to stand before me, to be judged of their works” ([[3 Nephi 27.14|3 Ne. 27:14]]).
 
 Even before we approach that threshold of the eternal court of justice, we know who will personally preside: “The keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name.
 
-“And whoso knocketh, to him will he open” ([[2 Nephi 9.41|2 Ne. 9:41–42]][[2 Nephi 9.42|]]).
+“And whoso knocketh, to him will he open” ([[2 Nephi 9.41|2 Ne. 9:41–42]][[2 Nephi 9.42|]]).
 
 ## Family Ties
 
@@ -98,13 +101,13 @@ That harrowing experience consumed but a few minutes, yet my entire life flashed
 
 ## Eternal Life
 
-After judgment comes the possibility of eternal life—the kind of life that our Heavenly Father lives. His celestial realm has been compared with the glory of the sun (see [[1 Corinthians 15.41|1 Cor. 15:41]]; [[D&C 76.96|D&C 76:96]]). It is available to all who prepare for it, the requirements of which have been clearly revealed: “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Ne. 31:20]]; see also [[John 17.3|John 17:3]]).
+After judgment comes the possibility of eternal life—the kind of life that our Heavenly Father lives. His celestial realm has been compared with the glory of the sun (see [[1 Corinthians 15.41|1 Cor. 15:41]]; [[D&C 76.96|D&C 76:96]]). It is available to all who prepare for it, the requirements of which have been clearly revealed: “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Ne. 31:20]]; see also [[John 17.3|John 17:3]]).
 
 ## Time to Prepare
 
 Meanwhile, we who tarry here have a few precious moments remaining “to prepare to meet God” ([[Alma 34.32|Alma 34:32]]). Unfinished business is our worst business. Perpetual procrastination must yield to perceptive preparation. Today we have a little more time to bless others—time to be kinder, more compassionate, quicker to thank and slower to scold, more generous in sharing, more gracious in caring.
 
-Then when our turn comes to pass through the doors of death, we can say as did Paul: “The time of my departure is at hand. I have fought a good fight, I have finished my course, I have kept the faith” ([[2 Timothy 4.6|2 Tim. 4:6–7]][[2 Timothy 4.7|]]).
+Then when our turn comes to pass through the doors of death, we can say as did Paul: “The time of my departure is at hand. I have fought a good fight, I have finished my course, I have kept the faith” ([[2 Timothy 4.6|2 Tim. 4:6–7]][[2 Timothy 4.7|]]).
 
 We need not look upon death as an enemy. With our full understanding and preparation, faith supplants fear. Hope displaces despair. The Lord said, “Fear not even unto death; for in this world your joy is not full, but in me your joy is full” ([[D&C 101.36|D&C 101:36]]). He bestowed this gift: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid” ([[John 14.27|John 14:27]]).
 
@@ -115,6 +118,4 @@ With that assurance, brothers and sisters, love life! Cherish each moment as a b
 
 
 
-
-
-#Death #Plan_Of_Salvation #Resurrection
+#Death #PlanOfSalvation #Resurrection

@@ -1,6 +1,6 @@
 # God Be with You Till We Meet Again
 
-By President Thomas S. Monson - *President of the Church*
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -37,5 +37,6 @@ Now, my beloved brothers and sisters, we adjourn for six months. May God be with
 
 
 
+[^1]: [[John 16.33|John 16:33]].
 
 #Adversity #Gratitude #Service

@@ -81,6 +81,4 @@ May God bless us that we will be more determined to study and prepare and improv
 
 
 
-
-
-#Book_Of_Mormon #Children #Church_Callings #Holy_Ghost #Jesus_Christ #Parenthood #Prayer #Scripture_Study #Sunday_School #Teaching
+#BookOfMormon #Children #ChurchCallings #HolyGhost #JesusChrist #Parenthood #Prayer #ScriptureStudy #SundaySchool #Teaching

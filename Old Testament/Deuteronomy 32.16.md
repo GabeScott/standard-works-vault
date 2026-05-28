@@ -5,6 +5,6 @@
 [Deuteronomy 32:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.16?lang=eng#p16)
 
 
-[^a]: [[Psalms 78.58|Ps. 78:58]].
-[^b]: [[Numbers 25.11|Num. 25:11]].
-[^c]: [[Idolatry, Idol|TG Idolatry]].
+[^a]: [[Psalms 78.58|Ps. 78:58]].  
+[^b]: [[Numbers 25.11|Num. 25:11]].  
+[^c]: [[Idolatry, Idol|TG Idolatry]].  

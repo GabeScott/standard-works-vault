@@ -39,6 +39,4 @@ Jesus Christ, the Son of God, made the miracle of forgiveness and redemption pos
 
 
 
-
-
-#Church_Growth #Conversion #Holy_Ghost #Obedience #Spirituality
+#ChurchGrowth #Conversion #HolyGhost #Obedience #Spirituality

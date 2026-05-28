@@ -36,7 +36,7 @@ While some did leave, many stayed—they came to church, tasted the sweetness of
 
 I hope that we welcome and love all of God’s children, including those who might dress, look, speak, or just do things differently. It is not good to make others feel as though they are deficient. Let us lift those around us. Let us extend a welcoming hand. Let us bestow upon our brothers and sisters in the Church a special measure of humanity, compassion, and charity so that they feel, at long last, they have finally found home.
 
-When we are tempted to judge, let us think of the Savior, who “loveth the world, even that he layeth down his own life that he may draw *all* men unto him. …
+When we are tempted to judge, let us think of the Savior, who “loveth the world, even that he layeth down his own life that he may draw *all* men unto him. …
 
 “\[And\] he saith: Come unto me all ye ends of the earth, … \[for\] *all* men are privileged the one like unto the other, and none are forbidden.”[^1]
 
@@ -103,7 +103,7 @@ On this Easter Sunday, and every day, as we contemplate with reverence and awe h
 
 
 
-[^1]: [[2 Nephi 26.24|2 Nephi 26:24–25, 28]][[2 Nephi 26.25|]][[2 Nephi 26.28|]]; emphasis added.
+[^1]: [[2 Nephi 26.24|2 Nephi 26:24–25, 28]][[2 Nephi 26.25|]][[2 Nephi 26.28|]]; emphasis added.
 
 [^2]: See [[Luke 18.9|Luke 18:9–14]][[Luke 18.10|]][[Luke 18.11|]][[Luke 18.12|]][[Luke 18.13|]][[Luke 18.14|]].
 
@@ -123,7 +123,7 @@ On this Easter Sunday, and every day, as we contemplate with reverence and awe h
 
 [^10]: See [[Matthew 7.12|Matthew 7:12]].
 
-[^11]: [[1 Corinthians 13.1|1 Corinthians 13:1]].
+[^11]: [[1 Corinthians 13.1|1 Corinthians 13:1]].
 
 [^12]: [[D&C 81.5|Doctrine and Covenants 81:5]].
 
@@ -131,6 +131,4 @@ On this Easter Sunday, and every day, as we contemplate with reverence and awe h
 
 [^14]: See [[Jude 1.12|Jude 1:12]].
 
-
-
-#Jesus_Christ #Love #Service
+#JesusChrist #Love #Service

@@ -1,11 +1,10 @@
 # Bible
 
-
 *See also* [[Scriptures, Preservation of.md|Scriptures, Preservation of]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Scriptures, Writing of.md|Scriptures, Writing of]]
 
-A *Bible* ! A *Bible* ! We have got, [[2 Nephi 29.3|2 Nephi 29:3]] ([[2 Nephi 29.3|29:3-10]][[2 Nephi 29.4|]][[2 Nephi 29.5|]][[2 Nephi 29.6|]][[2 Nephi 29.7|]][[2 Nephi 29.8|]][[2 Nephi 29.9|]][[2 Nephi 29.10|]]).
+A *Bible*! A *Bible*! We have got, [[2 Nephi 29.3|2 Nephi 29:3]].
 
-principles of my gospel ... in the *Bible* and the Book of Mormon, [[D&C 42.12|D&C 42:12]].
+principles of my gospel … in the *Bible* and the Book of Mormon, [[D&C 42.12|D&C 42:12]].
 
 I opened the *Bible* and read, [[D&C 138.6|D&C 138:6]].
 

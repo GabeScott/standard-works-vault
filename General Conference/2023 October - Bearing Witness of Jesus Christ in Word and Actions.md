@@ -16,7 +16,7 @@ When ministering to and teaching the people in the Americas after His Resurrecti
 
 “And whoso taketh upon him my name, and endureth to the end, the same shall be saved at the last day.”[^1]
 
-President Russell M. Nelson has taught us that “taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ.”[^2]
+President Russell M. Nelson has taught us that “taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ.”[^2]
 
 As members of The Church of Jesus Christ of Latter-day Saints, we have the blessing and privilege to stand as witnesses of the Lord and His name everywhere we are.[^3] As we strive to live our lives in harmony with the gospel of Jesus Christ, our conduct will be a living testimony of our Redeemer and His name. Moreover, we witness of Christ in word by sharing with others what we believe, feel, or know of Jesus Christ.
 
@@ -34,7 +34,7 @@ What a blessing to see that our Church meetings are choice opportunities for us 
 
 Now, let me mention a powerful example of taking upon us the name of Jesus Christ by bearing testimony of Him through actions.
 
-Last August, I accompanied Elder Jonathan S. Schmitt to the open house of the Feather River California Temple in Yuba City. There I had the blessing of guiding groups on a tour of the temple. One of these groups included a member of the Church, Virgil Atkinson, and seven friends of other faiths. Toward the end of the visit, in a temple sealing room, Brother Atkinson was emotional as he expressed his love for his friends who had come to the temple that day. Almost immediately after he had done so, a woman in the group stood up and said, “We all love Virgil. He has never imposed his faith on us. But he is not shy about it either. He just lives what he believes.”
+Last August, I accompanied Elder Jonathan S. Schmitt to the open house of the Feather River California Temple in Yuba City. There I had the blessing of guiding groups on a tour of the temple. One of these groups included a member of the Church, Virgil Atkinson, and seven friends of other faiths. Toward the end of the visit, in a temple sealing room, Brother Atkinson was emotional as he expressed his love for his friends who had come to the temple that day. Almost immediately after he had done so, a woman in the group stood up and said, “We all love Virgil. He has never imposed his faith on us. But he is not shy about it either. He just lives what he believes.”
 
 Over the years, Brother Atkinson’s Christlike living served as a powerful testimony to his friends. His example is strong evidence that he has taken upon himself the name of Christ.
 
@@ -53,20 +53,18 @@ This Sabbath morning, I gladly testify that President Nelson is God’s living p
 
 
 
-[^1]: [[3 Nephi 27.5|3 Nephi 27:5–6]][[3 Nephi 27.6|]].
+[^1]: [[3 Nephi 27.5|3 Nephi 27:5–6]][[3 Nephi 27.6|]].
 
-[^2]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88: “Taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ.”
+[^2]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88: “Taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ.”
 
 [^3]: See [[Mosiah 18.9|Mosiah 18:9]].
 
-[^4]: See [[2 Nephi 31.18|2 Nephi 31:18]].
+[^4]: See [[2 Nephi 31.18|2 Nephi 31:18]].
 
 [^5]: See [[Alma 12.10|Alma 12:10]]; [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]]; [[D&C 64.34|Doctrine and Covenants 64:34]].
 
-[^6]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87: “Instead, it *is* a correction. It *is* the command of the Lord. Joseph Smith did not name the Church restored through him; neither did Mormon. It was the Savior Himself who said, ‘For thus shall my church be called in the last days, even The Church of Jesus Christ of Latter-day Saints’ \[[[D&C 115.4|Doctrine and Covenants 115:4]]\].”
+[^6]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87: “Instead, it *is* a correction. It *is* the command of the Lord. Joseph Smith did not name the Church restored through him; neither did Mormon. It was the Savior Himself who said, ‘For thus shall my church be called in the last days, even The Church of Jesus Christ of Latter-day Saints’ \[[[D&C 115.4|Doctrine and Covenants 115:4]]\].”
 
 [^7]: See [[Matthew 1.23|Matthew 1:23]]; [[Luke 2.11|Luke 2:11]]; [[D&C 18.11|Doctrine and Covenants 18:11]]; [[D&C 20.21|20:21]]; [[D&C 76.22|76:22–24]][[D&C 76.23|]][[D&C 76.24|]]; [[D&C 93.21|93:21]].
 
-
-
-#Example #Jesus_Christ #Missionary_Work #Name_Of_Church #Testimony
+#Example #JesusChrist #MissionaryWork #NameOfChurch #Testimony

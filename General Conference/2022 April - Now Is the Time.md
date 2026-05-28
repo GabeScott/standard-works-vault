@@ -1,6 +1,6 @@
 # Now Is the Time
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -28,7 +28,7 @@ I like this poem by Henry Van Dyke, posted on a sundial at Wells College in New 
 
 Yes, we should learn from the past, and yes, we should prepare for the future. But only *now* can we do. *Now* is the time we can learn. *Now* is the time we can repent. *Now *is the time we can bless others and “lift up the hands which hang down.”[^2] As Mormon counseled his son Moroni, “Let us labor diligently; … for we have a labor to perform \[while\] in this tabernacle of clay, that we may conquer the enemy of all righteousness, and rest our souls in the kingdom of God.”[^3]
 
-The adversary never sleeps. There will always be opposition to the truth. I repeat my urging from this morning to do those things that will increase your positive spiritual momentum, that lift Elder Dieter F. Uchtdorf was talking about, that will keep you moving forward through whatever challenges and opportunities come.
+The adversary never sleeps. There will always be opposition to the truth. I repeat my urging from this morning to do those things that will increase your positive spiritual momentum, that lift Elder Dieter F. Uchtdorf was talking about, that will keep you moving forward through whatever challenges and opportunities come.
 
 Positive spiritual momentum increases as we worship in the temple and grow in our understanding of the magnificent breadth and depth of the blessings we receive there. I plead with you to counter worldly ways by focusing on the eternal blessings of the temple. Your time there brings blessings for eternity.
 
@@ -49,5 +49,6 @@ For this I pray in the sacred name of Jesus Christ, amen.
 
 [^3]: [[Moroni 9.6|Moroni 9:6]].
 
+[^4]: [[Jeremiah 30.22|Jeremiah 30:22]].
 
 #Adversity #Preparation #Spirituality #Temples

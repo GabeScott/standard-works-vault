@@ -1,7 +1,6 @@
 # Urge
 
-
-she pressed him daily ... and *urged* him, [[Judges 16.16|Judges 16:16]].
+she pressed him daily … and *urged* him, [[Judges 16.16|Judges 16:16]].
 
 Pharisees began to *urge* him, [[Luke 11.53|Luke 11:53]].
 

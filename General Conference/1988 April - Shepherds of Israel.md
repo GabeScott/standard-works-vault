@@ -43,6 +43,4 @@ I testify, with all the fervency of my soul, regarding the need we have to be tr
 
 
 
-
-
-#Jesus_Christ #Leadership
+#JesusChrist #Leadership

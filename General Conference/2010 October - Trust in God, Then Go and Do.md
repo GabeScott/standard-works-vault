@@ -102,7 +102,7 @@ I know the servants of God who will speak to you during this conference. They ar
 
 You show your trust in Him when you listen with the intent to learn and repent and then you go and do whatever He asks. If you trust God enough to listen for His message in every sermon, song, and prayer in this conference, you will find it. And if you then go and do what He would have you do, your power to trust Him will grow, and in time you will be overwhelmed with gratitude to find that He has come to trust you.
 
-I testify that God speaks today through His chosen servants in The Church of Jesus Christ of Latter-day Saints. Thomas S. Monson is God’s prophet. Our Heavenly Father and His Son, Jesus Christ, live and love us. I so testify in the name of Jesus Christ, amen.
+I testify that God speaks today through His chosen servants in The Church of Jesus Christ of Latter-day Saints. Thomas S. Monson is God’s prophet. Our Heavenly Father and His Son, Jesus Christ, live and love us. I so testify in the name of Jesus Christ, amen.
 
 
 
@@ -115,7 +115,7 @@ I testify that God speaks today through His chosen servants in The Church of Jes
 
 [^4]: [[Matthew 14.25|Matthew 14:25–31]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]].
 
-[^5]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^5]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
 [^6]: [[Psalms 46.10|Psalm 46:10]].
 
@@ -123,14 +123,12 @@ I testify that God speaks today through His chosen servants in The Church of Jes
 
 [^8]: [[Joseph Smith History 1.16|Joseph Smith—History 1:16–17]][[Joseph Smith History 1.17|]].
 
-[^9]: See, for example, Ezra Taft Benson quoting J. Reuben Clark Jr., in Conference Report, Oct. 1980, 47; or *Ensign,* Nov. 1980, 33.
+[^9]: See, for example, Ezra Taft Benson quoting J. Reuben Clark Jr., in Conference Report, Oct. 1980, [[1980 October - Prepare for the Days of Tribulation.md|47]]; or *Ensign,* Nov. 1980, 33.
 
 [^10]: [[Alma 29.8|Alma 29:8]].
 
-[^11]: See [[2 Chronicles 36.22|2 Chronicles 36:22–23]][[2 Chronicles 36.23|]]; [[Ezra 1.1|Ezra 1:1–3]][[Ezra 1.2|]][[Ezra 1.3|]]; [[Isaiah 45.1|Isaiah 45:1, 13]][[Isaiah 45.13|]].
+[^11]: See [[2 Chronicles 36.22|2 Chronicles 36:22–23]][[2 Chronicles 36.23|]]; [[Ezra 1.1|Ezra 1:1–3]][[Ezra 1.2|]][[Ezra 1.3|]]; [[Isaiah 45.1|Isaiah 45:1, 13]][[Isaiah 45.13|]].
 
 [^12]: [[D&C 1.38|Doctrine and Covenants 1:38]].
-
-
 
 #Blessings #Obedience #Prophets #Trust

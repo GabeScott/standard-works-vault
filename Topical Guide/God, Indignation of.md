@@ -1,21 +1,20 @@
 # God, Indignation of
 
-
 *See also* [[Anger.md|Anger]]
 
 *anger* of the Lord was kindled against Moses, [[Exodus 4.14|Exodus 4:14]].
 
-they shall not see the land which I sware unto their fathers, neither shall any ... that *provoked* me, [[Numbers 14.23|Numbers 14:23]] ([[Psalms 95.11|Psalms 95:11]]; [[Hebrews 3.11|Hebrews 3:11]]; [[D&C 84.24|D&C 84:24]]).
+they shall not see the land which I sware unto their fathers, neither shall any … that *provoked* me, [[Numbers 14.23|Numbers 14:23]] ([[Psalms 95.11|Psalms 95:11]]; [[Hebrews 3.11|Hebrews 3:11]]; [[D&C 84.24|D&C 84:24]]).
 
 Lord was *angry* with me for your sakes, [[Deuteronomy 1.37|Deuteronomy 1:37]] ([[Deuteronomy 3.26|Deuteronomy 3:26]]; [[Deuteronomy 4.21|Deuteronomy 4:21]]).
 
-do evil ... provoke him to *anger*, [[Deuteronomy 4.25|Deuteronomy 4:25]] ([[Deuteronomy 9.18|Deuteronomy 9:18]]).
+do evil … provoke him to *anger*, [[Deuteronomy 4.25|Deuteronomy 4:25]] ([[Deuteronomy 9.18|Deuteronomy 9:18]]).
 
 lest the *anger* of the Lord thy God be kindled, [[Deuteronomy 6.15|Deuteronomy 6:15]] ([[Deuteronomy 7.4|Deuteronomy 7:4]]; [[2 Kings 13.3|2 Kings 13:3]]).
 
-Lord rooted them out ... in *anger*, [[Deuteronomy 29.28|Deuteronomy 29:28]].
+Lord rooted them out … in *anger*, [[Deuteronomy 29.28|Deuteronomy 29:28]].
 
-followed other gods ... and provoked the Lord to *anger*, [[Judges 2.12|Judges 2:12]].
+followed other gods … and provoked the Lord to *anger*, [[Judges 2.12|Judges 2:12]].
 
 *anger* of the Lord was hot against Israel, [[Judges 2.14|Judges 2:14]].
 
@@ -23,7 +22,7 @@ provoked the Lord God of Israel to *anger*, [[1 Kings 15.30|1 Kings 15:30]].
 
 Lord *rejected* all the seed of Israel, [[2 Kings 17.20|2 Kings 17:20]].
 
-*wrath* of the Lord ... because our fathers have not hearkened, [[2 Kings 22.13|2 Kings 22:13]].
+*wrath* of the Lord … because our fathers have not hearkened, [[2 Kings 22.13|2 Kings 22:13]].
 
 God is *angry* with the wicked every day, [[Psalms 7.11|Psalms 7:11]].
 
@@ -33,11 +32,11 @@ neither will he keep his *anger* for ever, [[Psalms 103.9|Psalms 103:9]].
 
 provoked the Holy One of Israel unto *anger*, [[Isaiah 1.4|Isaiah 1:4]].
 
-Lord cometh ... burning with his *anger*, [[Isaiah 30.27|Isaiah 30:27]].
+Lord cometh … burning with his *anger*, [[Isaiah 30.27|Isaiah 30:27]].
 
-For my name's sake will I defer mine *anger*, [[Isaiah 48.9|Isaiah 48:9]].
+For my name’s sake will I defer mine *anger*, [[Isaiah 48.9|Isaiah 48:9]].
 
-hast drunk ... the cup of his *fury*, [[Isaiah 51.17|Isaiah 51:17]].
+hast drunk … the cup of his *fury*, [[Isaiah 51.17|Isaiah 51:17]].
 
 provoketh me to *anger* continually, [[Isaiah 65.3|Isaiah 65:3]].
 
@@ -57,23 +56,23 @@ Who can stand before his *indignation*, [[Nahum 1.6|Nahum 1:6]].
 
 looked round about on them with *anger*, [[Mark 3.5|Mark 3:5]].
 
-believeth not ... the *wrath* of God abideth on him, [[John 3.36|John 3:36]].
+believeth not … the *wrath* of God abideth on him, [[John 3.36|John 3:36]].
 
-*wrath* of God ... against all ungodliness, [[Romans 1.18|Romans 1:18]].
+*wrath* of God … against all ungodliness, [[Romans 1.18|Romans 1:18]].
 
-unto them that are contentious ... *indignation* and wrath, [[Romans 2.8|Romans 2:8]].
+unto them that are contentious … *indignation* and wrath, [[Romans 2.8|Romans 2:8]].
 
 because of these things cometh the *wrath* of God, [[Ephesians 5.6|Ephesians 5:6]].
 
-For which things' sake the *wrath* of God cometh, [[Colossians 3.6|Colossians 3:6]].
+For which things’ sake the *wrath* of God cometh, [[Colossians 3.6|Colossians 3:6]].
 
 I sware in my *wrath*, They shall not enter into my rest, [[Hebrews 3.11|Hebrews 3:11]] ([[Psalms 95.11|Psalms 95:11]]; [[Alma 12.35|Alma 12:35]]; [[D&C 84.24|D&C 84:24]]).
 
 fearful looking for of judgment and fiery *indignation*, [[Hebrews 10.27|Hebrews 10:27]].
 
-wrath of God ... poured ... into the cup of his *indignation*, [[Revelation 14.10|Revelation 14:10]].
+wrath of God … poured … into the cup of his *indignation*, [[Revelation 14.10|Revelation 14:10]].
 
-great Babylon ... the fierceness of his *wrath*, [[Revelation 16.19|Revelation 16:19]].
+great Babylon … the fierceness of his *wrath*, [[Revelation 16.19|Revelation 16:19]].
 
 God should come out in the fulness of his *wrath*, [[2 Nephi 1.17|2 Nephi 1:17]].
 
@@ -91,11 +90,11 @@ stiffnecked generation—mine *anger* is kindled against them, [[D&C 5.8|D&C 5:8
 
 repent, lest I *humble* you with my almighty power, [[D&C 19.20|D&C 19:20]].
 
-because of the wickedness ... mine *indignation* is full, [[D&C 29.17|D&C 29:17]].
+because of the wickedness … mine *indignation* is full, [[D&C 29.17|D&C 29:17]].
 
-his *wrath* kindled ... who confess not his hand, [[D&C 59.21|D&C 59:21]].
+his *wrath* kindled … who confess not his hand, [[D&C 59.21|D&C 59:21]].
 
-hide the talent ... mine *anger* is kindled against them, [[D&C 60.2|D&C 60:2]].
+hide the talent … mine *anger* is kindled against them, [[D&C 60.2|D&C 60:2]].
 
 with whom God is *angry* he is not well pleased, [[D&C 63.11|D&C 63:11]].
 

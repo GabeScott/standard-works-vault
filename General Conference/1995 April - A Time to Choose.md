@@ -79,12 +79,10 @@ That our Heavenly Father may ever bless you precious young women, that He may in
 
 
 
-[^1]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^1]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^2]: [[D&C 9.8|D&C 9:8–9]][[D&C 9.9|]].
 
 [^3]: [[Luke 18.22|Luke 18:22]].
 
-
-
-#Agency #Dedication #Friendship #God_The_Father #Perspective #Prayer #Scripture_Study #Scriptures #Wisdom #Youth
+#Agency #Dedication #Friendship #GodTheFather #Perspective #Prayer #ScriptureStudy #Scriptures #Wisdom #Youth

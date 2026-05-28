@@ -18,7 +18,7 @@ The attributes of Christ are acquired in the “process of time”[^1] by intent
 
 We follow the Lord’s counsel to “organize \[ourselves\]; prepare every needful thing; and establish a house” by organizing, preparing, and establishing our spiritual lives, not our real estate. As we patiently pursue the Savior’s covenant path, our home becomes “a house of glory, a house of order, \[and\] a house of God.”[^3]
 
-Second, residents in the finest homes make time to study the scriptures and the words of living prophets every day. President Russell M. Nelson has invited us to “transform” and “remodel” our homes through gospel study.[^4] His invitation recognizes that fine homes house the tender, vital work of personal growth and remodeling our weaknesses. Daily repentance is a transformative tool that enables us to grow a little kinder, more loving, and more understanding. Studying the scriptures brings us closer to the Savior, whose generous love and grace assist us with our growth.
+Second, residents in the finest homes make time to study the scriptures and the words of living prophets every day. President Russell M. Nelson has invited us to “transform” and “remodel” our homes through gospel study.[^4] His invitation recognizes that fine homes house the tender, vital work of personal growth and remodeling our weaknesses. Daily repentance is a transformative tool that enables us to grow a little kinder, more loving, and more understanding. Studying the scriptures brings us closer to the Savior, whose generous love and grace assist us with our growth.
 
 The Bible, Book of Mormon, and Pearl of Great Price tell the stories of families, so it’s not surprising that those divine volumes are incomparable handbooks for constructing the finest homes. They chronicle the worries of parents, the perils of temptation, the triumph of righteousness, the trials of famine and abundance, and the horrors of war and rewards of peace. Again and again the scriptures show us how families succeed through righteous living and how they fail by pursuing other paths.
 
@@ -61,9 +61,9 @@ I gratefully testify that the God and Father of us all lives. His Son, the Lord 
 
 [^3]: [[D&C 88.119|Doctrine and Covenants 88:119]].
 
-[^4]: See Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona,* Nov. 2018, 113.
+[^4]: See Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona,* Nov. 2018, 113.
 
-[^5]: See [[1 Nephi 2.10|1 Nephi 2:10]]; [[Mosiah 5.15|Mosiah 5:15]]; [[3 Nephi 6.14|3 Nephi 6:14]].
+[^5]: See [[1 Nephi 2.10|1 Nephi 2:10]]; [[Mosiah 5.15|Mosiah 5:15]]; [[3 Nephi 6.14|3 Nephi 6:14]].
 
 [^6]: See [[Mosiah 5.2|Mosiah 5:2]]; [[Alma 5.7|Alma 5:7]].
 
@@ -75,12 +75,10 @@ I gratefully testify that the God and Father of us all lives. His Son, the Lord 
 
 [^10]: [[Mosiah 2.22|Mosiah 2:22]].
 
-[^11]: Home teaching and visiting teaching were retired and ministering was implemented in 2018 (see Russell M. Nelson, “[[2018 April - Ministering as the Savior Does.md|Ministering]],”  *Ensign* or *Liahona,* May 2018, 100).
+[^11]: Home teaching and visiting teaching were retired and ministering was implemented in 2018 (see Russell M. Nelson, “[[2018 April - Ministering.md|Ministering]],”  *Ensign* or *Liahona,* May 2018, 100).
 
-[^12]: When we choose to not live in accordance with commandments, then the blessings of the Lord are withdrawn to some degree. This recurring pattern seen in the Book of Mormon is sometimes referred to as the cycle of righteousness and wickedness (see *Book of Mormon Student Manual* \[Church Educational System manual, 2009\], 414, ChurchofJesusChrist.org).
+[^12]: When we choose to not live in accordance with commandments, then the blessings of the Lord are withdrawn to some degree. This recurring pattern seen in the Book of Mormon is sometimes referred to as the cycle of righteousness and wickedness (see *[Book of Mormon Student Manual](https://www.churchofjesuschrist.org/study/manual/book-of-mormon-student-manual/appendix-cycle?lang=eng)* \[Church Educational System manual, 2009\], 414, ChurchofJesusChrist.org).
 
 [^13]: [[Psalms 127.1|Psalm 127:1]].
 
-
-
-#Family #Jesus_Christ #Temples
+#Family #JesusChrist #Temples

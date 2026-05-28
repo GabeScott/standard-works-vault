@@ -1,4 +1,3 @@
 # Shem
 
-
-*See* [BD Shem](https://www.churchofjesuschrist.org/study/scriptures/bd/shem?lang=eng)
+*See also* [[BD Shem.md|BD Shem]]

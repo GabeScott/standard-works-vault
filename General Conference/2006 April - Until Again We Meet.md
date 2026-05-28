@@ -17,6 +17,4 @@ God bless you, my beloved brothers and sisters. I leave my love and my testimony
 
 
 
-
-
 #Faith #Family #Testimony

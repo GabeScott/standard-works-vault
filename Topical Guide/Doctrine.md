@@ -1,7 +1,6 @@
 # Doctrine
 
-
-*See also* [[Gospel.md|Gospel]]; [[Teaching, Teach, Taught.md|Teaching]]; [[Truth.md|Truth]]
+*See also* [[Gospel.md|Gospel]]; [[Teaching.md|Teaching]]; [[Truth.md|Truth]]
 
 My *doctrine* shall drop as the rain, [[Deuteronomy 32.2|Deuteronomy 32:2]].
 
@@ -21,9 +20,9 @@ what new *doctrine* is this, [[Mark 1.27|Mark 1:27]].
 
 My *doctrine* is not mine, but his that sent me, [[John 7.16|John 7:16]].
 
-high priest then asked Jesus ... of his *doctrine*, [[John 18.19|John 18:19]].
+high priest then asked Jesus … of his *doctrine*, [[John 18.19|John 18:19]].
 
-continued steadfastly in the apostles' *doctrine*, [[Acts 2.42|Acts 2:42]].
+continued steadfastly in the apostles’ *doctrine*, [[Acts 2.42|Acts 2:42]].
 
 ye have filled Jerusalem with your *doctrine*, [[Acts 5.28|Acts 5:28]].
 
@@ -31,7 +30,7 @@ obeyed from the heart that form of *doctrine* which was delivered you, [[Romans 
 
 offences contrary to the *doctrine* which ye have learned, [[Romans 16.17|Romans 16:17]].
 
-speak to you ... by *doctrine*, [[1 Corinthians 14.6|1 Corinthians 14:6]].
+speak to you … by *doctrine*, [[1 Corinthians 14.6|1 Corinthians 14:6]].
 
 carried about with every wind of *doctrine*, [[Ephesians 4.14|Ephesians 4:14]].
 
@@ -41,11 +40,11 @@ charge some that they teach no other *doctrine*, [[1 Timothy 1.3|1 Timothy 1:3]]
 
 any other thing that is contrary to sound *doctrine*, [[1 Timothy 1.10|1 Timothy 1:10]].
 
-giving heed to ... *doctrines* of devils, [[1 Timothy 4.1|1 Timothy 4:1]] ([[D&C 46.7|D&C 46:7]]).
+giving heed to … *doctrines* of devils, [[1 Timothy 4.1|1 Timothy 4:1]] ([[D&C 46.7|D&C 46:7]]).
 
-nourished up in the words ... of good *doctrine*, [[1 Timothy 4.6|1 Timothy 4:6]].
+nourished up in the words … of good *doctrine*, [[1 Timothy 4.6|1 Timothy 4:6]].
 
-give attendance ... to *doctrine*, [[1 Timothy 4.13|1 Timothy 4:13]].
+give attendance … to *doctrine*, [[1 Timothy 4.13|1 Timothy 4:13]].
 
 Take heed unto thyself, and unto the *doctrine*, [[1 Timothy 4.16|1 Timothy 4:16]].
 
@@ -57,7 +56,7 @@ the *doctrine* which is according to godliness, [[1 Timothy 6.3|1 Timothy 6:3]].
 
 thou hast fully known my *doctrine*, [[2 Timothy 3.10|2 Timothy 3:10]].
 
-All scripture ... is profitable for *doctrine*, [[2 Timothy 3.16|2 Timothy 3:16]].
+All scripture … is profitable for *doctrine*, [[2 Timothy 3.16|2 Timothy 3:16]].
 
 exhort with all longsuffering and *doctrine*, [[2 Timothy 4.2|2 Timothy 4:2]].
 
@@ -77,11 +76,11 @@ the *doctrine* of baptisms, and of laying on of hands, [[Hebrews 6.2|Hebrews 6:2
 
 not carried about with divers and strange *doctrines*, [[Hebrews 13.9|Hebrews 13:9]].
 
-transgresseth ... abideth not in the *doctrine* of Christ, [[2 John 1.9|2 John 1:9]].
+transgresseth … abideth not in the *doctrine* of Christ, [[2 John 1.9|2 John 1:9]].
 
 hold the *doctrine* of Balaam, [[Revelation 2.14|Revelation 2:14]].
 
-many which shall teach ... foolish *doctrines*, [[2 Nephi 28.9|2 Nephi 28:9]].
+many which shall teach … foolish *doctrines*, [[2 Nephi 28.9|2 Nephi 28:9]].
 
 only and true *doctrine* of the Father, [[2 Nephi 31.21|2 Nephi 31:21]].
 
@@ -89,12 +88,10 @@ declare unto you my *doctrine*, [[3 Nephi 11.31|3 Nephi 11:31]].
 
 establish it for my *doctrine*, [[3 Nephi 11.40|3 Nephi 11:40]].
 
-teach them ... the *doctrine* of repentance, faith, [[D&C 68.25|D&C 68:25]].
+teach them … the *doctrine* of repentance, faith, [[D&C 68.25|D&C 68:25]].
 
 teach one another the *doctrine* of the kingdom, [[D&C 88.77|D&C 88:77]].
 
 difficulty respecting *doctrine* or principle, [[D&C 102.23|D&C 102:23]].
 
 *doctrine* of the priesthood shall distil, [[D&C 121.45|D&C 121:45]].
-
-*See also* [[Mark 4.2|Mark 4:2]].

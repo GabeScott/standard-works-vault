@@ -1,7 +1,6 @@
 # Part
 
-
-*See also* [[Divide.md|Divide]]; [[Portion.md|Portion]]; [[Separation, Separate.md|Separation]]
+*See also* [[Divide.md|Divide]]; [[Portion.md|Portion]]; [[Separation.md|Separation]]
 
 neither shalt thou have any *part* among them: I am thy *part*, [[Numbers 18.20|Numbers 18:20]].
 
@@ -27,7 +26,7 @@ If I wash thee not, thou hast no *part* with me, [[John 13.8|John 13:8]].
 
 made four *parts*, to every soldier a *part*, [[John 19.23|John 19:23]].
 
-sold their ... goods, and *parted* them to all men, [[Acts 2.45|Acts 2:45]].
+sold their … goods, and *parted* them to all men, [[Acts 2.45|Acts 2:45]].
 
 kept back *part* of the price, [[Acts 5.2|Acts 5:2]].
 
@@ -37,17 +36,17 @@ he that hath *part* in the first resurrection, [[Revelation 20.6|Revelation 20:6
 
 take away his *part* out of the book of life, [[Revelation 22.19|Revelation 22:19]].
 
-most precious *parts* of the gospel of the Lamb ... kept back, [[1 Nephi 13.32|1 Nephi 13:32]].
+most precious *parts* of the gospel of the Lamb … kept back, [[1 Nephi 13.32|1 Nephi 13:32]].
 
-prophecies, the more ... precious *parts* ... written upon these plates, [[1 Nephi 19.3|1 Nephi 19:3]].
+prophecies, the more … precious *parts* … written upon these plates, [[1 Nephi 19.3|1 Nephi 19:3]].
 
 I have chosen the good *part*, [[2 Nephi 2.30|2 Nephi 2:30]].
 
 they have no *part* nor portion of the Spirit, [[Alma 40.13|Alma 40:13]].
 
-a *part* ... of the coat of Joseph was preserved, [[Alma 46.24|Alma 46:24]].
+a *part* … of the coat of Joseph was preserved, [[Alma 46.24|Alma 46:24]].
 
-waters of the Red Sea ... *parted* hither, [[Helaman 8.11|Helaman 8:11]].
+waters of the Red Sea … *parted* hither, [[Helaman 8.11|Helaman 8:11]].
 
 they did deny the more *parts* of his gospel, [[4 Nephi 1.27|4 Nephi 1:27]].
 

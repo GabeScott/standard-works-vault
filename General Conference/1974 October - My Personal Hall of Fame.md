@@ -1,6 +1,6 @@
 # My Personal Hall of Fame
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -42,7 +42,7 @@ Then there is the man called Simon Peter. His testimony of the Christ stirs the 
 
 Of another time and place we recall the testimony of Nephi:
 
-“I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].) Surely Nephi is worthy of a place in the Hall of Fame.
+“I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].) Surely Nephi is worthy of a place in the Hall of Fame.
 
 There is yet another I choose to nominate—even the Prophet Joseph Smith. His faith, his trust, his testimony are reflected by his own words, spoken as he went to Carthage Jail and martyrdom: “I am going like a lamb to the slaughter; but I am calm as a summer’s morning; I have a conscience void of offense towards God, and towards all men.” ([[D&C 135.4|D&C 135:4]].) He sealed his testimony with his blood. Joseph Smith qualifies.
 
@@ -89,8 +89,6 @@ May they and each of us so live as to merit the heavenly pronouncement:
 “Great shall be their reward and eternal shall be their glory.” ([[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]].)
 
 Our place in an everlasting and eternal Hall of Fame will thereby be assured. This is my earnest plea as I leave with you my witness that Jesus of Nazareth is our Savior and Redeemer, even our Advocate with the Father. In the name of Jesus Christ, the Lord. Amen.
-
-
 
 
 

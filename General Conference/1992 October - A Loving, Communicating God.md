@@ -18,13 +18,13 @@ Our Heavenly Father desires that all mankind be led by the light, but that bless
 
 Through the light of the Lord, truth in some measure has reached many avenues and elements and levels of life. It has been a great satisfaction to me to find so much that is so good in so many places and from so many sources. President Joseph F. Smith spoke of the united members of the Godhead as the “fountain of truth” and said:
 
-“From this fountain all the ancient learned philosophers have received their inspiration and wisdom—from it they have received all their knowledge. If we find truth in broken fragments through the ages, it may be set down as an incontrovertible fact that it originated at the fountain, and was given to philosophers, inventors, patriots, reformers, and prophets by the inspiration of God” (“Fountain of Truth,” *Improvement Era,* June 1907, p. 629).
+“From this fountain all the ancient learned philosophers have received their inspiration and wisdom—from it they have received all their knowledge. If we find truth in broken fragments through the ages, it may be set down as an incontrovertible fact that it originated at the fountain, and was given to philosophers, inventors, patriots, reformers, and prophets by the inspiration of God” (“Fountain of Truth,” *Improvement Era,* June 1907, p. 629).
 
 Earlier and subsequent leaders of the Church have similarly testified. In every field of activity in which I have been involved, I have had the privilege of association with people of character and quality who shared much of value with me. Consider this special example of the wisdom of a beloved Quaker teacher and writer, Rufus Jones, who said:
 
 “Vital religion cannot be maintained and preserved on the theory that God dealt with our human race only in the far past ages, and that the Bible is the only evidence we have that our God is a living, revealing, communicating God. If God ever spoke, He is still speaking. He is the great I Am, not the great He Was” (*A Flash of Eternity*).
 
-This is a significant expression of fundamental truth. Our own understanding of that principle is that God communicates with his children, and that he has revealed, does now reveal, and will yet reveal many great and important things pertaining to his kingdom (see [[Articles of Faith 1.9|A of F 1:9]]).
+This is a significant expression of fundamental truth. Our own understanding of that principle is that God communicates with his children, and that he has revealed, does now reveal, and will yet reveal many great and important things pertaining to his kingdom (see [[Articles of Faith 1.9|A of F 1:9]]).
 
 Jewish tradition helps us further appreciate the nature of our Heavenly Father in the tender practice of the Half Hallels offered at Passover in celebration of the historic exodus of the children of Israel from Egypt and their passing through the Red Sea. When they reached the sea, the pursuing Egyptian armies overtook them. Through Moses, God divided the waters, “and the children of Israel went into the midst of the sea upon the dry ground” ([[Exodus 14.22|Ex. 14:22]]). The Egyptians went in after them. Then Moses stretched his hand again over the sea, and the waters returned. The Israelites were safe, and the Egyptian armies were drowning. Triumphantly the people began to sing hymns of praise to the Lord. But the Almighty stopped them and said, “How can you sing hymns of praise and jubilation when so many of my children are drowning in the sea?”
 
@@ -70,15 +70,13 @@ Twenty years earlier he had watched his mother pass through severe suffering bef
 
 Shortly before she died, his wife asked him to give her a blessing for relief from the intense pain. They both wept as he laid his hands on her head and talked with the Lord, “and,” he said, “I felt the spiritual presence of our Father in Heaven. I had the strongest sensation that someone else was there weeping with us!” Near the end, severely physically debilitated, she said, “Never have I been more whole!”
 
-They had felt the strong sensation that He was there, “weeping with us.” Of course; why not? Jesus wept at the grave of Lazarus; he wept over Jerusalem’s portending afflictions; and he wept when he came to the American continent and knelt with his people, and especially when “he took their little children, one by one, and blessed them, and prayed unto the Father for them” ([[3 Nephi 17.21|3 Ne. 17:21]]; see also [[3 Nephi 17.22|3 Ne. 17:22]]; [[John 11.35|John 11:35]]; [[Luke 19.41|Luke 19:41]]).
+They had felt the strong sensation that He was there, “weeping with us.” Of course; why not? Jesus wept at the grave of Lazarus; he wept over Jerusalem’s portending afflictions; and he wept when he came to the American continent and knelt with his people, and especially when “he took their little children, one by one, and blessed them, and prayed unto the Father for them” ([[3 Nephi 17.21|3 Ne. 17:21]]; see also [[3 Nephi 17.22|3 Ne. 17:22]]; [[John 11.35|John 11:35]]; [[Luke 19.41|Luke 19:41]]).
 
 At home last evening after our meetings yesterday, we opened a note from a lovely Latter-day Saint mother, widowed by the death of her husband in an accident two years ago. She and her choice family have taken comfort, she said, from a framed statement on the wall of my office:
 
 “To believe in God is to know that all the rules will be fair, and that there will be wonderful surprises.”
 
 I thank God for his love and the love of his Son. Those who have taken upon themselves the name of his Son as we have done must carry the burden of the legacy he left us—of love and mercy and service, accepting our heritage of hope and helpfulness, and joining our believing and our doing in working for the relief of the ills and the sufferings of humanity. God help us in honoring that commission, I humbly pray in the name of Jesus Christ, amen.
-
-
 
 
 

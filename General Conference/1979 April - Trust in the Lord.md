@@ -1,6 +1,6 @@
 # Trust in the Lord
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -18,7 +18,7 @@ I plead with you young Aaronic Priesthood bearers—and all of us—to determine
 
 This reference to the destroying angel passing by the children of Israel refers to the occasion when, to persuade the Egyptians to let Israel go, “the Lord smote all the firstborn in the land of Egypt, from the firstborn of Pharaoh that sat on his throne unto the firstborn of the captive that was in the dungeon; and all the firstborn of cattle.
 
-“… and there was a great cry in Egypt; for there was not a house where there was not one dead.” ([[Exodus 12.29|Ex. 12:29–30]][[Exodus 12.30|]].)
+“… and there was a great cry in Egypt; for there was not a house where there was not one dead.” ([[Exodus 12.29|Ex. 12:29–30]][[Exodus 12.30|]].)
 
 But in his death-dealing mission the destroying angel passed by the homes of those Israelites who had marked their door lintels and side posts with the blood of a lamb, as directed by the Lord.
 
@@ -28,7 +28,7 @@ In 1894 President Woodruff said: “God has held the angels of destruction for m
 
 Now, my beloved brethren, in view of this revealed knowledge and understanding which the Lord has given concerning what is transpiring about us, is it not a glorious thing to have the assurance that if we will clothe ourselves with bodies purified through observance of the Word of Wisdom, these destroying angels will pass us by, as they did the children of Israel, and not slay us? Well, this is one of the blessings to follow observance of the Word of Wisdom.
 
-The promised blessings for obedience to the law of tithing are just as specific as are those for obedience to the Word of Wisdom. One of them has to do with the productivity of the soil. I remember being impressed with this thought many years ago as I listened to the remarks of Elder James E. Talmage, who was one of our great apostles when I was young. “Do you know,” said he, “that the soil can be sanctified by the tithing of its products? The land can be sanctified. There is a relationship between the elements and forces of nature, and the actions of men.” (In Conference Report, Oct. 1929, p. 68.)
+The promised blessings for obedience to the law of tithing are just as specific as are those for obedience to the Word of Wisdom. One of them has to do with the productivity of the soil. I remember being impressed with this thought many years ago as I listened to the remarks of Elder James E. Talmage, who was one of our great apostles when I was young. “Do you know,” said he, “that the soil can be sanctified by the tithing of its products? The land can be sanctified. There is a relationship between the elements and forces of nature, and the actions of men.” (In Conference Report, Oct. 1929, p. 68.)
 
 This statement is in harmony with the sentiments of President Brigham Young. “Talk about these rich valleys,” said President Young, “why there is not another people on the earth that could have come here and lived. We prayed over the land, and dedicated it and the water, air and everything pertaining to them unto the Lord, and the smiles of Heaven rested on the land and it became productive.” (*Journal of Discourses,* 12:288.)
 
@@ -36,7 +36,7 @@ Another reward for paying tithing sounds almost like crop insurance. Listen.
 
 “Bring ye all the tithes into the storehouse, that there may be meat in my house; and prove me now herewith, saith the Lord of Hosts, if I will not open you the windows of heaven, and pour you out a blessing that there shall not be room enough to receive it.
 
-“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the fields, saith the Lord of Hosts.” ([[3 Nephi 24.10|3 Ne. 24:10–11]][[3 Nephi 24.11|]].)
+“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the fields, saith the Lord of Hosts.” ([[3 Nephi 24.10|3 Ne. 24:10–11]][[3 Nephi 24.11|]].)
 
 President Grant’s boundless faith that the Lord would prosper those who were liberal with their means in building his kingdom has had a distinct effect upon my life. Many years ago I heard him tell about attending a fast meeting at which his bishop made an appeal for donations. President Grant, though a very young man, had fifty dollars in his pocket which he intended to deposit in the bank. But he was so impressed by the bishop’s appeal that he tendered the whole fifty dollars. The bishop took five dollars and handed him back the forty-five, stating that five dollars was his full share. President Grant replied, “Bishop Woolley, by what right do you rob me of putting the Lord in my debt? Didn’t you preach here today that the Lord rewards fourfold? My mother is a widow and she needs two hundred dollars.”
 
@@ -48,11 +48,11 @@ Here was a demonstration of faith which the bishop could not withstand. He took 
 
 President Grant testified that on his way from that fast meeting back to work, “an idea popped into” his head, acting upon which he made $218.50. Speaking about this incident years later, he said, “Someone will say that it would have happened anyway.
 
-“I do not think it would have happened. I do not think I would have got the idea, …” he said.
+“I do not think it would have happened. I do not think I would have got the idea, …” he said.
 
 “I am a firm believer that the Lord opens up the windows of heaven when we do our duty financially and pours out blessings upon us of a spiritual nature, which are of far greater value than temporal things. But I believe He also gives us blessings of a temporal nature.” (*Improvement Era,* Aug. 1939, p. 457.)
 
-A further reward for paying tithing is a guarantee against being consumed in the burning which is to accompany the second coming of the Savior. In the eighty-fifth section of the Doctrine and Covenants, the Lord explains that his purpose in tithing his people is “to prepare them against the day of vengeance and burning,” ([[D&C 85.3|verse 3]]) and in the sixty-fourth section he says, “Behold, now it is called today until the coming of the Son of Man, and verily it is a day of sacrifice, and a day for the tithing of my people; for he that is tithed shall not be burned at his coming” ([[D&C 64.23|D&C 64:23]]).
+A further reward for paying tithing is a guarantee against being consumed in the burning which is to accompany the second coming of the Savior. In the eighty-fifth section of the Doctrine and Covenants, the Lord explains that his purpose in tithing his people is “to prepare them against the day of vengeance and burning,” ([[D&C 85.3|verse 3]]) and in the sixty-fourth section he says, “Behold, now it is called today until the coming of the Son of Man, and verily it is a day of sacrifice, and a day for the tithing of my people; for he that is tithed shall not be burned at his coming” ([[D&C 64.23|D&C 64:23]]).
 
 Personally, I have always considered tithing to be the law of inheritance in the land of Zion, for the Lord said when he gave the law that all those who gathered to Zion should observe it or they should not be worthy to abide among the inhabitants of that land (see [[D&C 119.5|D&C 119:5]]).
 
@@ -62,7 +62,7 @@ You will recall, of course, Alma’s teaching his son Corianton that unchastity 
 
 “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
+“If any man defile the temple of God, him shall God destroy.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
 
 Some years ago the First Presidency said to the youth of the Church, “Better dead, clean, than alive, unclean” (In Conference Report, Apr. 1942, p. 89).
 
@@ -99,8 +99,6 @@ Oh, my beloved brethren, believe in and live for the promises of the Lord by kee
 “Counsel with the Lord in all thy doings, and he will direct thee for good; yea, when thou liest down at night lie down unto the Lord, that he may watch over you in your sleep; and when thou risest in the morning let thy heart be full of thanks unto God; and if ye do these things, ye shall be lifted up at the last day.” ([[Alma 37.34|Alma 37:34–37]][[Alma 37.35|]][[Alma 37.36|]][[Alma 37.37|]].)
 
 That it may be so with all of you and all of us, I humbly pray. In the name of Jesus Christ, amen.
-
-
 
 
 

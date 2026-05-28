@@ -1,6 +1,6 @@
 # Christ Is Risen; Faith in Him Will Move Mountains
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -89,15 +89,15 @@ On this Easter Sunday, with my deep feelings of love and gratitude, I declare my
 
 [^6]: [[Alma 32.27|Alma 32:27]]; emphasis added.
 
-[^7]: [[Matthew 17.20|Matthew 17:20]], emphasis added; see also [[Helaman 12.9|Helaman 12:9, 13]][[Helaman 12.13|]].
+[^7]: [[Matthew 17.20|Matthew 17:20]], emphasis added; see also [[Helaman 12.9|Helaman 12:9, 13]][[Helaman 12.13|]].
 
 [^8]: See [[D&C 78.17|Doctrine and Covenants 78:17–18]][[D&C 78.18|]]. The reward for putting off the natural man is to become “a saint through the atonement of Christ the Lord” ([[Mosiah 3.19|Mosiah 3:19]]).
 
-[^9]: See [[1 Nephi 7.12|1 Nephi 7:12]].
+[^9]: See [[1 Nephi 7.12|1 Nephi 7:12]].
 
 [^10]: See [[Mormon 9.19|Mormon 9:19–21]][[Mormon 9.20|]][[Mormon 9.21|]]; [[Ether 12.30|Ether 12:30]].
 
-[^11]: See [[2 Nephi 33.10|2 Nephi 33:10–11]][[2 Nephi 33.11|]].
+[^11]: See [[2 Nephi 33.10|2 Nephi 33:10–11]][[2 Nephi 33.11|]].
 
 [^12]: See [[D&C 84.20|Doctrine and Covenants 84:20]].
 
@@ -105,18 +105,16 @@ On this Easter Sunday, with my deep feelings of love and gratitude, I declare my
 
 [^14]: Without the power of faith, would Abinadi have suffered death by fire for refusing to deny what he knew to be true? (see [[Mosiah 17.7|Mosiah 17:7–20]][[Mosiah 17.8|]][[Mosiah 17.9|]][[Mosiah 17.10|]][[Mosiah 17.11|]][[Mosiah 17.12|]][[Mosiah 17.13|]][[Mosiah 17.14|]][[Mosiah 17.15|]][[Mosiah 17.16|]][[Mosiah 17.17|]][[Mosiah 17.18|]][[Mosiah 17.19|]][[Mosiah 17.20|]]). Without that power, would Ether have hidden in the cavity of a rock (see [[Ether 13.13|Ether 13:13–14]][[Ether 13.14|]]) and Moroni endured years of loneliness (see [[Moroni 1.1|Moroni 1:1–3]][[Moroni 1.2|]][[Moroni 1.3|]]) when their lives could have been much more comfortable if they had only denounced what they believed?
 
-[^15]: See Melvin L. Bashore, H. Dennis Tolley, and the BYU Pioneer Mortality Team, “Mortality on the Mormon Trail, 1847–1868,” *BYU Studies*, vol. 53, no. 4 (2014), 115.
+[^15]: See Melvin L. Bashore, H. Dennis Tolley, and the BYU Pioneer Mortality Team, “Mortality on the Mormon Trail, 1847–1868,” *BYU Studies*, vol. 53, no. 4 (2014), 115.
 
 [^16]: See [[Psalms 121.4|Psalm 121:4]].
 
 [^17]: [[Mormon 9.9|Mormon 9:9]].
 
-[^18]: See [[Isaiah 54.10|Isaiah 54:10]]; [[3 Nephi 22.10|3 Nephi 22:10]].
+[^18]: See [[Isaiah 54.10|Isaiah 54:10]]; [[3 Nephi 22.10|3 Nephi 22:10]].
 
-[^19]: See [[Mormon 9.10|Mormon 9:10–11, 15]][[Mormon 9.11|]][[Mormon 9.15|]].
+[^19]: See [[Mormon 9.10|Mormon 9:10–11, 15]][[Mormon 9.11|]][[Mormon 9.15|]].
 
 [^20]: See [[Mark 9.23|Mark 9:23]].
 
-
-
-#Easter #Faith #Jesus_Christ #Ordinances #Power #Scripture_Study
+#Easter #Faith #JesusChrist #Ordinances #Power #ScriptureStudy

@@ -1,6 +1,6 @@
 # To Die Well
 
-By Elder Sterling W. Sill - *Of the First Quorum of the Seventy*
+By Elder Sterling W. Sill - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -48,7 +48,7 @@ Now if you think it would be pleasant to be dressed in expensive clothing, what 
 
 Socrates was a very homely man, and he prayed to the Lord and said, “Make me beautiful within.” We have all seen plain people who have been made beautiful by the working of a radiant spirituality. A godly spirit will make the plainest body beautiful. Great mental and spiritual qualities transform our bodies into their likeness.
 
-And so we come back to the place where we began. What a thrilling experience that we may live well, enabling us to die well and then live with God in the celestial kingdom throughout eternity. The apostle Paul said, we die, “and, behold, we live.” ([[2 Corinthians 6.9|2 Cor. 6:9]].)
+And so we come back to the place where we began. What a thrilling experience that we may live well, enabling us to die well and then live with God in the celestial kingdom throughout eternity. The apostle Paul said, we die, “and, behold, we live.” ([[2 Corinthians 6.9|2 Cor. 6:9]].)
 
 And I would like to repeat the prayer of a very thoughtful man who said,
 
@@ -61,6 +61,4 @@ And may God bless us, everyone, that we may magnify our callings and our opportu
 
 
 
-
-
-#Death #Plan_Of_Salvation
+#Death #PlanOfSalvation

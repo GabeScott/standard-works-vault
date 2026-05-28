@@ -1,6 +1,6 @@
 # Beautiful Mornings
 
-By Elder Bruce D. Porter - *Of the Seventy*
+By Elder Bruce D. Porter - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -14,7 +14,7 @@ Their Master, however, perfectly understood that the ordeal of Gethsemane and of
 
 We live today in an era of turbulence and uncertainty, a time the Lord prophesied to Enoch would be marked by “days of wickedness and vengeance” ([[Moses 7.60|Moses 7:60]]). Tribulation and difficult times may lie ahead, yet we too have cause for good cheer and rejoicing, for we live in the last dispensation, when God has restored His Church and kingdom to the earth in preparation for the return of His Son.
 
-President Boyd K. Packer once spoke of his grandchildren and the increasingly troubled world in which they live. He said: “They will see many events transpire in the course of their lifetime. Some of these shall tax their courage and extend their faith. But if they seek prayerfully for help and guidance, they shall be given power over adverse things.”
+President Boyd K. Packer once spoke of his grandchildren and the increasingly troubled world in which they live. He said: “They will see many events transpire in the course of their lifetime. Some of these shall tax their courage and extend their faith. But if they seek prayerfully for help and guidance, they shall be given power over adverse things.”
 
 And later he added: “The moral values upon which civilization itself must depend spiral downward at an ever-increasing pace. Nevertheless, I do not fear the future” (“Do Not Fear,” *Ensign* or *Liahona,* May 2004, 77, 78).
 
@@ -24,7 +24,7 @@ The Lord will stand by His Church and people and keep them in safety until His c
 
 The Church stands as a bulwark of safety for its members. Though conditions in the world may become very vexing at times, faithful Latter-day Saints will find sanctuary in the stakes of Zion. The Lord has decreed that the stone cut out of the mountain without hands shall roll forth until it has filled the whole earth (see [[Daniel 2.31|Daniel 2:31–45]][[Daniel 2.32|]][[Daniel 2.33|]][[Daniel 2.34|]][[Daniel 2.35|]][[Daniel 2.36|]][[Daniel 2.37|]][[Daniel 2.38|]][[Daniel 2.39|]][[Daniel 2.40|]][[Daniel 2.41|]][[Daniel 2.42|]][[Daniel 2.43|]][[Daniel 2.44|]][[Daniel 2.45|]]; [[D&C 65.2|D&C 65:2]]). And no human power can stay its course, for God is the author of this work and Jesus Christ is the chief cornerstone.
 
-The prophet Nephi beheld in vision that in the last days, the power of the Lamb of God would descend “upon the covenant people of the Lord” and they would be “armed with righteousness and with the power of God in great glory” ([[1 Nephi 14.14|1 Nephi 14:14]]).
+The prophet Nephi beheld in vision that in the last days, the power of the Lamb of God would descend “upon the covenant people of the Lord” and they would be “armed with righteousness and with the power of God in great glory” ([[1 Nephi 14.14|1 Nephi 14:14]]).
 
 Every one of us, and our families, can be armed with the power of God as a defense if we will but remain true to The Church of Jesus Christ of Latter-day Saints and let the Spirit be our guide. Trials may come, and we may not understand everything that happens to us or around us. But if we humbly, quietly trust in the Lord, He will give us strength and guidance in every challenge we face. When our only desire is to please Him, we will be blessed with a deep inner peace.
 
@@ -36,7 +36,7 @@ When I was a student at Brigham Young University, I lived in a house with severa
 
 One cold, wintry day, another friend of mine, Tom, was walking across the university campus. It was only 7:00 in the morning, and the campus was deserted and dark. Heavy snow was falling, with a brisk wind. “What miserable weather,” Tom thought. He walked farther, and out in the darkness and snow, he heard someone singing.
 
-Sure enough, through the driving snow came our ever-optimistic friend, Bruce. With his arms outstretched to the sky, he was singing a number from the Broadway musical *Oklahoma:* “Oh, what a beautiful morning! Oh, what a beautiful day! I’ve got a beautiful feeling, everything’s going my way” (see Richard Rodgers and Oscar Hammerstein II, “Oh, What a Beautiful Mornin’” \[1943\]).
+Sure enough, through the driving snow came our ever-optimistic friend, Bruce. With his arms outstretched to the sky, he was singing a number from the Broadway musical *Oklahoma:* “Oh, what a beautiful morning! Oh, what a beautiful day! I’ve got a beautiful feeling, everything’s going my way” (see Richard Rodgers and Oscar Hammerstein II, “Oh, What a Beautiful Mornin’” \[1943\]).
 
 In the intervening years, that bright voice in a dark storm has become for me a symbol of what faith and hope are all about. Even in a darkening world, we as Latter-day Saints may sing with joy, knowing that the powers of heaven are with God’s Church and people. We may rejoice in the knowledge that a beautiful morning lies ahead—the dawn of the millennial day, when the Son of God shall rise in the East and reign again on the earth.
 
@@ -48,4 +48,5 @@ Of the triumph of Jesus Christ over sin and death, I bear witness. Of the mercif
 
 
 
-#Adversity #Hope #Jesus_Christ
+
+#Adversity #Hope #JesusChrist

@@ -54,7 +54,7 @@ A cloud of darkness came upon him, and he heard a still, mild voice whisper, “
 
 Aminadab then recognized them for what they were. In a loud voice he told the Lamanites that the young men were servants of God. As the army turned to look, they too became aware of the darkness which surrounded them. They asked Aminadab how to dispel it, and he, drawing on truth learned, I believe, at another time, said:
 
-“You must repent, and cry unto the \[Lord\], even until ye shall have faith in Christ … ; and when ye shall do this, the cloud of darkness shall be removed from overshadowing you” ([[Helaman 5.41|Hel. 5:41]]).
+“You must repent, and cry unto the \[Lord\], even until ye shall have faith in Christ … ; and when ye shall do this, the cloud of darkness shall be removed from overshadowing you” ([[Helaman 5.41|Hel. 5:41]]).
 
 Now notice again, the scripture speaks of darkness overshadowing those who have abandoned the faith. The effect of darkness is to prevent one from seeing clearly. To find the way back, as Aminadab discovered, one must repent and pray until doubt and darkness disappear and important things can be seen again.
 
@@ -85,6 +85,7 @@ All who are shepherds and all lost sheep should note this one last thing. The Lo
 Some years ago it was fashionable in certain circles to use the phrase, “You can never go home again.” That is just simply not true. It is possible to return. It is possible for those who have ceased to pray, to pray again. It is possible for those who are lost to find their way through the dark and come home.
 
 And when they do, they will know, as I know, that the Lord is more concerned with what a man is than with what he was, and with where he is than with where he has been. I so testify in the name of Jesus Christ, amen.
+
 
 
 

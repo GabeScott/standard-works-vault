@@ -99,6 +99,4 @@ May the God of heaven, the Almighty, bless us, help us, as we walk our various w
 
 
 
-
-
-#Adversity #Agency #Book_Of_Mormon #Commandments #Contention #Death #Evil #Financial_Management #Jesus_Christ #Neighbors #Peace #Prayer #Religion #Safety #Self-Reliance #Tithing #US_Constitution
+#Agency #Adversity #BookOfMormon #Commandments #Contention #Death #Evil #FinancialManagement #JesusChrist #Neighbors #Peace #Prayer #Religion #Safety #Self-reliance #Tithing #U.s.Constitution

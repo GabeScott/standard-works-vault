@@ -16,17 +16,17 @@ President Brigham Young declared: “The Spirit of revelation must be in each an
 
 So vital is this framework that if one stays or strays outside it, he risks provinciality and misery. In fact, most human misery represents ignorance of or noncompliance with the plan. A cessation of such mortal suffering will not come without compliance to it. Hence, the Lord, who has freely shared this vital knowledge with us, has urged us to teach the fundamentals of this plan “freely.” ([[Moses 6.58|Moses 6:58]].)
 
-At the center of the Father’s plan is Jesus Christ, mankind’s Redeemer. Yet, as foreseen, many judge Jesus “to be a thing of naught” ([[1 Nephi 19.9|1 Ne. 19:9]]), or “consider him” merely “a man.” ([[Mosiah 3.9|Mosiah 3:9]].) Whether others deny or delimit Jesus, for us He is our Lord and Savior! Comparatively, brothers and sisters, it matters very little what people think of us, but it matters very much what we think of Him. It matters very little, too, who others say we are; what matters is who we say Jesus is. (See [[Matthew 16.13|Matt. 16:13–17]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]].)
+At the center of the Father’s plan is Jesus Christ, mankind’s Redeemer. Yet, as foreseen, many judge Jesus “to be a thing of naught” ([[1 Nephi 19.9|1 Ne. 19:9]]), or “consider him” merely “a man.” ([[Mosiah 3.9|Mosiah 3:9]].) Whether others deny or delimit Jesus, for us He is our Lord and Savior! Comparatively, brothers and sisters, it matters very little what people think of us, but it matters very much what we think of Him. It matters very little, too, who others say we are; what matters is who we say Jesus is. (See [[Matthew 16.13|Matt. 16:13–17]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]].)
 
-For instance, we appreciate not only the towering divinity of Jesus Christ, but His breathtaking mobility and the scope of His shepherding. The resurrected Jesus revisited the Middle East scene of His mortal messiahship. Then some souls in the Americas. (See [[3 Nephi 11.1|3 Ne. 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].) And then His other lost sheep. (See [[3 Nephi 17.4|3 Ne. 17:4]].)
+For instance, we appreciate not only the towering divinity of Jesus Christ, but His breathtaking mobility and the scope of His shepherding. The resurrected Jesus revisited the Middle East scene of His mortal messiahship. Then some souls in the Americas. (See [[3 Nephi 11.1|3 Ne. 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].) And then His other lost sheep. (See [[3 Nephi 17.4|3 Ne. 17:4]].)
 
-In His selfless plan, the Lord doeth nothing save it be for the benefit of the children of men. (See [[2 Nephi 26.24|2 Ne. 26:24]].) He labors, lovingly and constantly, as Moses and Jeremiah declared, “for our good always.” ([[Deuteronomy 6.24|Deut. 6:24]]; see also [[Jeremiah 32.38|Jer. 32:38–40]][[Jeremiah 32.39|]][[Jeremiah 32.40|]].) In His grand design, His “work” and “glory” are “to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) Thus, even when we truly learn to love God, we must humbly acknowledge that He loved us first. (See [[1 John 4.19|1 Jn. 4:19]].)
+In His selfless plan, the Lord doeth nothing save it be for the benefit of the children of men. (See [[2 Nephi 26.24|2 Ne. 26:24]].) He labors, lovingly and constantly, as Moses and Jeremiah declared, “for our good always.” ([[Deuteronomy 6.24|Deut. 6:24]]; see also [[Jeremiah 32.38|Jer. 32:38–40]][[Jeremiah 32.39|]][[Jeremiah 32.40|]].) In His grand design, His “work” and “glory” are “to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) Thus, even when we truly learn to love God, we must humbly acknowledge that He loved us first. (See [[1 John 4.19|1 Jn. 4:19]].)
 
 Meanwhile, Shakespeare was not very wide of the mark in writing, “All the world’s a stage.” (*As You Like It,* act 2, scene 7.) But not for playacting!
 
 The very word *plan* confirms God’s paternal purpose, a realization so desperately needed by the confused and despairing on the world’s stage.
 
-The “plan of happiness” not only ensures the immortalization of our individual identities, but can yield bettered and reborn individuals. Fittingly, one appreciative prophet declared, “O how great the plan of our God!” ([[2 Nephi 9.13|2 Ne. 9:13]].) Enoch wept when he saw the sweep of history and the unnecessary human misery. (See [[Moses 7.41|Moses 7:41]].) But he also saw the triumph of God’s plan. Another prophet exclaimed: “God … made these things known unto us that we might not perish … because he loveth our souls … ; therefore, in his mercy he doth visit us by his angels, that the plan of salvation might be made known unto us.” ([[Alma 24.14|Alma 24:14]].)
+The “plan of happiness” not only ensures the immortalization of our individual identities, but can yield bettered and reborn individuals. Fittingly, one appreciative prophet declared, “O how great the plan of our God!” ([[2 Nephi 9.13|2 Ne. 9:13]].) Enoch wept when he saw the sweep of history and the unnecessary human misery. (See [[Moses 7.41|Moses 7:41]].) But he also saw the triumph of God’s plan. Another prophet exclaimed: “God … made these things known unto us that we might not perish … because he loveth our souls … ; therefore, in his mercy he doth visit us by his angels, that the plan of salvation might be made known unto us.” ([[Alma 24.14|Alma 24:14]].)
 
 It took visits by angels in our day, too, in order to instruct us anew regarding God’s plan of salvation and to reassure us that mortality is not a conclusive and massive mausoleum, and that death is not extinction.
 
@@ -46,11 +46,11 @@ Redemptive and refining provisions are made: For a brave Peter faltering and sin
 
 Hence, brothers and sisters, for the faithful, our finest hours are sometimes during or just following our darkest hours.
 
-It is an incredible irony, therefore, that some complainingly attempt to use the very tutoring process of the Lord against Him. Or resent the reality that we are to walk by faith during this mortal experience. Yet, as practical and spiritual President Brigham Young said, “There is no saving faith merely upon … acknowledging a fact.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 154.)
+It is an incredible irony, therefore, that some complainingly attempt to use the very tutoring process of the Lord against Him. Or resent the reality that we are to walk by faith during this mortal experience. Yet, as practical and spiritual President Brigham Young said, “There is no saving faith merely upon … acknowledging a fact.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 154.)
 
 Furthermore, since this life is such a brief experience, there must be regular exit routes. Some easy. Some hard. Some sudden. Others lingering. Therefore, we cannot presume, even by faith, to block all these exits, all the time, and for all people. Nor, if possessed of full, eternal perspective, would we desire so to do.
 
-Since certain recollections are withheld, we do not now see the end from the beginning. But God does. Meanwhile, we are in what might be called “the murky middle.” Therein, however, we can still truly know that God loves us, individually and perfectly, even though we cannot always explain the meaning of all things happening to us or around us. (See [[1 Nephi 11.17|1 Ne. 11:17]].)
+Since certain recollections are withheld, we do not now see the end from the beginning. But God does. Meanwhile, we are in what might be called “the murky middle.” Therein, however, we can still truly know that God loves us, individually and perfectly, even though we cannot always explain the meaning of all things happening to us or around us. (See [[1 Nephi 11.17|1 Ne. 11:17]].)
 
 Enclosed in this mortal cocoon, or classroom, we would be totally provincial in outlook except for faith in, and knowledge of, the “great plan of the Eternal God.”
 
@@ -60,7 +60,7 @@ So much more than a matter of abstract theology, this great plan can focus daily
 
 Its truths and perspectives permit us to distinguish between a great book and mere want ads, between vengeance and justice, rage and righteous indignation, and pleasure and happiness.
 
-With an understanding of God’s plan of salvation, we know that the rejoicing, the striving, the suffering, the tutoring, and the enduring experiences of life all play their part in an intelligible process of helping us, if we will, to become, as the Savior beckoningly invited, “even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+With an understanding of God’s plan of salvation, we know that the rejoicing, the striving, the suffering, the tutoring, and the enduring experiences of life all play their part in an intelligible process of helping us, if we will, to become, as the Savior beckoningly invited, “even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 This individual development sometimes requires the march of a Zion’s Camp, or an arduous Hole in the Rock trek, or special classrooms like the settlements in northern Mexico, wherein special individuals were fashioned. Those episodes, however, had nothing to do with real estate but everything to do with our second estate!
 
@@ -70,9 +70,9 @@ Even with all of its interior consistency, however, the plan cannot bring true h
 
 Though the plan reflects a caring Father and a Savior, believers in the plan are not automatically immune to the consuming cares of the world.
 
-The plan places a striking emphasis on present human freedom to choose. (See [[2 Nephi 2.27|2 Ne. 2:27]].) Yet some of our present circumstances may reflect previous agreements, now forgotten, but once freely made.
+The plan places a striking emphasis on present human freedom to choose. (See [[2 Nephi 2.27|2 Ne. 2:27]].) Yet some of our present circumstances may reflect previous agreements, now forgotten, but once freely made.
 
-The plan always points the way, but does not always smooth the way, since individual development requires an “opposition in all things.” ([[2 Nephi 2.11|2 Ne. 2:11]].)
+The plan always points the way, but does not always smooth the way, since individual development requires an “opposition in all things.” ([[2 Nephi 2.11|2 Ne. 2:11]].)
 
 The Lord will give us the needed intellectual and spiritual confirmation concerning His plan, but on His terms and in His own way.
 
@@ -98,11 +98,11 @@ Unsurprisingly, therefore, this mortal school produces some soaring triumphs but
 
 Meanwhile, brothers and sisters, no one ever promised us that discipleship in the last days would be a picnic in the park.
 
-Former periods of stress can guide us. When the earlier coming of Jesus was imminent, signs abounded. Still, for some, there were “doubtings.” ([[3 Nephi 8.4|3 Ne. 8:4]].) But the faithful prevailed and were vindicated.
+Former periods of stress can guide us. When the earlier coming of Jesus was imminent, signs abounded. Still, for some, there were “doubtings.” ([[3 Nephi 8.4|3 Ne. 8:4]].) But the faithful prevailed and were vindicated.
 
-There were determined detractors then, mocking the faith of believers, briefly creating “a great uproar,” even rejoicing over the seeming prospect that the faith of Christ’s followers would be in vain. (See [[3 Nephi 1.5|3 Ne. 1:5–7]][[3 Nephi 1.6|]][[3 Nephi 1.7|]].) It was not. Members kept the faith, and the faith kept them!
+There were determined detractors then, mocking the faith of believers, briefly creating “a great uproar,” even rejoicing over the seeming prospect that the faith of Christ’s followers would be in vain. (See [[3 Nephi 1.5|3 Ne. 1:5–7]][[3 Nephi 1.6|]][[3 Nephi 1.7|]].) It was not. Members kept the faith, and the faith kept them!
 
-For today’s spiritually attuned, the reassurances will be there, as with Elisha’s young servant. Encircled by an outnumbering enemy, the young man rightly sought reassurance from the prophet and seer, who told him, “Fear not: for they that be with us are more than they that be with them.” ([[2 Kings 6.16|2 Kgs. 6:16]].) But the young man could count, and, clearly, it did not look that way to him—until after the prophet’s prayer in his behalf. Then, the young man’s eyes were opened, and he saw the mountain filled with horses and chariots of fire. (See [[2 Kings 6.17|2 Kgs. 6:17]].)
+For today’s spiritually attuned, the reassurances will be there, as with Elisha’s young servant. Encircled by an outnumbering enemy, the young man rightly sought reassurance from the prophet and seer, who told him, “Fear not: for they that be with us are more than they that be with them.” ([[2 Kings 6.16|2 Kgs. 6:16]].) But the young man could count, and, clearly, it did not look that way to him—until after the prophet’s prayer in his behalf. Then, the young man’s eyes were opened, and he saw the mountain filled with horses and chariots of fire. (See [[2 Kings 6.17|2 Kgs. 6:17]].)
 
 All will be well now, as anciently, because the Lord’s covenant keepers have His echoing assurance:
 
@@ -117,6 +117,4 @@ I so testify and assure in apostolic authority and in the holy name of Jesus Chr
 
 
 
-
-
-#Plan_Of_Salvation
+#PlanOfSalvation

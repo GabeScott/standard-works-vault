@@ -16,7 +16,7 @@ There is no greater expression of love than the heroic Atonement performed by th
 
 Thankfully, Jesus Christ courageously fulfilled this sacrifice in ancient Jerusalem. There, in the quiet isolation of the Garden of Gethsemane, He knelt among the gnarled olive trees, and in some incredible way that none of us can fully comprehend, the Savior took upon Himself the sins of the world. Even though His life was pure and free of sin, He paid the ultimate penalty for sin—yours, mine, and everyone’s who has ever lived. His mental, emotional, and spiritual anguish were so great they caused Him to bleed from every pore (see [[Luke 22.44|Luke 22:44]]; [[D&C 19.18|D&C 19:18]]). And yet Jesus suffered willingly so that we might all have the opportunity to be washed clean—through having faith in Him, repenting of our sins, being baptized by proper priesthood authority, receiving the purifying gift of the Holy Ghost by confirmation, and accepting all other essential ordinances. Without the Atonement of the Lord, none of these blessings would be available to us, and we could not become worthy and prepared to return to dwell in the presence of God.
 
-The Savior later endured the agony of inquisition, cruel beatings, and death by crucifixion on the cross at Calvary. Recently there has been a great deal of commentary about this, none of which has made clear the singular point that no one had the power to take the Savior’s life from Him. He gave it as a ransom for us all. As the Son of God, He had the power to alter the situation. Yet the scriptures clearly state that He yielded Himself to scourging, humiliation, suffering, and finally crucifixion because of His great love toward the children of men (see [[1 Nephi 19.9|1 Nephi 19:9–10]][[1 Nephi 19.10|]]).
+The Savior later endured the agony of inquisition, cruel beatings, and death by crucifixion on the cross at Calvary. Recently there has been a great deal of commentary about this, none of which has made clear the singular point that no one had the power to take the Savior’s life from Him. He gave it as a ransom for us all. As the Son of God, He had the power to alter the situation. Yet the scriptures clearly state that He yielded Himself to scourging, humiliation, suffering, and finally crucifixion because of His great love toward the children of men (see [[1 Nephi 19.9|1 Nephi 19:9–10]][[1 Nephi 19.10|]]).
 
 The Atonement of Jesus Christ was an indispensable part of our Heavenly Father’s plan for His Son’s earthly mission and for our salvation. How grateful we should be that our Heavenly Father did not intercede but rather withheld His fatherly instinct to rescue His Beloved Son. Because of His eternal love for you and for me, He allowed Jesus to complete His foreordained mission to become our Redeemer. The gift of resurrection and immortality is given freely through the loving grace of Jesus Christ to all people of all ages, regardless of their good or evil acts. And to those who choose to love the Lord and who show their love and faith in Him by keeping His commandments and qualifying for the full blessings of the Atonement, He offers the additional promise of exaltation and eternal life, which is the blessing of living in the presence of God and His Beloved Son forever.
 
@@ -38,7 +38,7 @@ Another prophet in another time was shown “the nations of the earth” ([[Mose
 
 With all that Enoch beheld, there was one thing that seemed to capture his attention above everything else. Enoch saw God look “upon the residue of the people, and he wept” ([[Moses 7.28|Moses 7:28]]). The sacred record then has Enoch asking God over and over: “How is it that thou canst weep? … How is it thou canst weep?” ([[Moses 7.29|Moses 7:29, 31]][[Moses 7.31|]]).
 
-The Lord answered Enoch: “Behold these thy brethren; they are the workmanship of mine own hands … ; and unto thy brethren have I … also given commandment, that they should love one another, and that they should choose me, their Father; but behold, they are without affection, and they hate their own blood” ([[Moses 7.32|Moses 7:32–33]][[Moses 7.33|]]).
+The Lord answered Enoch: “Behold these thy brethren; they are the workmanship of mine own hands … ; and unto thy brethren have I … also given commandment, that they should love one another, and that they should choose me, their Father; but behold, they are without affection, and they hate their own blood” ([[Moses 7.32|Moses 7:32–33]][[Moses 7.33|]]).
 
 Enoch saw the conditions of these latter days. He and other early prophets knew that only as we accept the Atonement in our lives and strive to live the gospel can we meet the challenges of life and find peace, joy, and happiness. Coming to understand this great gift is an individual pursuit for each child of God.
 
@@ -60,7 +60,7 @@ As the resurrected Savior said to the Nephites, so He might say to us today:
 
 “Blessed are ye because of your faith. And now … my joy is full.
 
-“And when he had said these words, he wept, and the multitude bare record of it, and he took their little children, *one by one,* and blessed them, and prayed unto the Father for them” ([[3 Nephi 17.20|3 Nephi 17:20–21]][[3 Nephi 17.21|]]; emphasis added).
+“And when he had said these words, he wept, and the multitude bare record of it, and he took their little children, *one by one,* and blessed them, and prayed unto the Father for them” ([[3 Nephi 17.20|3 Nephi 17:20–21]][[3 Nephi 17.21|]]; emphasis added).
 
 Brothers and sisters, never, never underestimate how precious is the *one.* Remember always the simple admonition of the Lord: “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]). Always strive to live worthy of the sacred, full blessings of the Atonement of the Lord Jesus Christ. In our sorrow over the separation from our dear Nathan has come the peace that only the Savior and Redeemer can give. Our family has turned to Him one by one, and we now sing with greater appreciation and understanding:
 
@@ -74,6 +74,4 @@ My dear brothers and sisters, may you give to others and receive for yourselves 
 
 
 
-
-
-#Atonement #Individual_Worth #Jesus_Christ #Restoration #Resurrection
+#Atonement #IndividualWorth #JesusChrist #Restoration #Resurrection

@@ -1,6 +1,6 @@
 # Standing with the Leaders of the Church
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -20,7 +20,7 @@ In January, Church leaders participated in a Face to Face broadcast with youth a
 
 In connecting with our vast audience, Sister Bonnie Oscarson, Young Women General President; Brother Stephen W. Owen, Young Men General President; and I—supported by our youth hosts, musicians, and others—answered questions from our youth.
 
-Our purpose was to introduce the Mutual theme for 2016, “Press Forward with a Steadfastness in Christ,” from 2 Nephi, which reads: “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.”[^2]
+Our purpose was to introduce the Mutual theme for 2016, “Press Forward with a Steadfastness in Christ,” from 2 Nephi, which reads: “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.”[^2]
 
 By reading many hundreds of our youth’s questions, what did we learn? We learned that our youth love the Lord, sustain their leaders, and desire to have their questions answered! Questions are an indication of a further desire to learn, to add to those truths already in place in our testimonies, and to be better prepared to “press forward with a steadfastness in Christ.”
 
@@ -42,7 +42,7 @@ We have sustained leaders today who, by divine inspiration, have been called to 
 
 Many times in conferences, sacrament meetings, and Primary we have sung the tender words, “Lead me, guide me, walk beside me.”[^8] What do those words mean to you? Who comes to mind when you think of them? Have you felt the influence of righteous leaders, those disciples of Jesus Christ who have in the past and continue today to touch your life, who walk the Lord’s path with you? They may be close at home. They may be in your local congregations or speaking from the pulpit at general conference. These disciples share with us the blessing of having a testimony of the Lord Jesus Christ, the leader of this Church, the leader of our very souls, who has promised, “Be of good cheer, and do not fear, for I the Lord am with you, and will stand by you.”[^9]
 
-I remember President Thomas S. Monson sharing the story of being invited to his stake president Paul C. Child’s home to prepare for advancement to the Melchizedek Priesthood. What a special blessing for President Child, who did not know at the time that he was teaching a young Aaronic Priesthood boy who would one day become the prophet of God.[^10]
+I remember President Thomas S. Monson sharing the story of being invited to his stake president Paul C. Child’s home to prepare for advancement to the Melchizedek Priesthood. What a special blessing for President Child, who did not know at the time that he was teaching a young Aaronic Priesthood boy who would one day become the prophet of God.[^10]
 
 I have had my own learning moments from our dear prophet, President Monson. There is no question in my mind or in my heart that he is the Lord’s prophet on the earth; I have been a humbled recipient as he has received revelation and acted upon it. He has been teaching us to reach out, to protect each other, to rescue one another. So it was taught at the Waters of Mormon. Those “desirous … to be called his people” were willing “to bear one another’s burdens,” “to mourn with those that mourn,” and “to stand as witnesses of God.”[^11]
 
@@ -99,31 +99,31 @@ I know that Jesus Christ lives; I love Him, and I know with all my heart that He
 
 
 
-[^1]: Facebook comment from Shakeel Arshad to Ronald A. Rasband, Dec. 2, 2015.
+[^1]: Facebook comment from Shakeel Arshad to Ronald A. Rasband, Dec. 2, 2015.
 
-[^2]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^2]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^3]: [[Matthew 16.15|Matthew 16:15]].
 
 [^4]: [[Matthew 16.16|Matthew 16:16]].
 
-[^5]: Ronald A. Rasband, in Face to Face, Jan. 20, 2016, lds.org/media-library.
+[^5]: Ronald A. Rasband, in Face to Face, Jan. 20, 2016, lds.org/media-library.
 
 [^6]: Face to Face response from Lisa Jarvis, from Grande Prairie, Alberta, Canada.
 
-[^7]: Tweet from Liz Darger, Pleasant Grove, Utah, Apr. 4, 2015.
+[^7]: Tweet from Liz Darger, Pleasant Grove, Utah, Apr. 4, 2015.
 
 [^8]: “I Am a Child of God,” *Hymns,* no. 301.
 
 [^9]: [[D&C 68.6|Doctrine and Covenants 68:6]].
 
-[^10]: See Thomas S. Monson, “[[2006 April - Our Sacred Priesthood Trust.md|Our Sacred Priesthood Trust]],” *Ensign* or *Liahona,* May 2006, 55–56.
+[^10]: See Thomas S. Monson, “[[2006 April - Our Sacred Priesthood Trust.md|Our Sacred Priesthood Trust]],” *Ensign* or *Liahona,* May 2006, 55–56.
 
 [^11]: [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
 
 [^12]: See [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
 
-[^13]: [[1 Nephi 8.12|1 Nephi 8:12]].
+[^13]: [[1 Nephi 8.12|1 Nephi 8:12]].
 
 [^14]: Edwin Markham, “A Creed,” *Lincoln and Other Poems* (1901), 25.
 
@@ -137,6 +137,4 @@ I know that Jesus Christ lives; I love Him, and I know with all my heart that He
 
 [^19]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-#Jesus_Christ #Leadership #Prophets #Youth
+#JesusChrist #Leadership #Prophets #Youth

@@ -1,7 +1,6 @@
 # Meaning
 
-
-*See also* [[Mean, Meant.md|Mean]]
+*See also* [[Mean.md|Mean]]
 
 seen the vision, and sought for the *meaning*, [[Daniel 8.15|Daniel 8:15]].
 

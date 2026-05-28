@@ -1,4 +1,3 @@
 # Indifference
 
-
-*See* [[Apathy.md|Apathy]]
+*See also* [[Apathy.md|Apathy]]

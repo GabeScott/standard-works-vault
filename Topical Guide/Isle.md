@@ -1,6 +1,5 @@
 # Isle
 
-
 *See also* [[Island.md|Island]]
 
 By these were the *isles* of the Gentiles divided, [[Genesis 10.5|Genesis 10:5]].
@@ -21,7 +20,7 @@ those who should inhabit the *isles* of the sea, [[1 Nephi 19.10|1 Nephi 19:10]]
 
 scattered to and fro upon the *isles* of the sea, [[1 Nephi 22.4|1 Nephi 22:4]].
 
-gathered ... from the *isles* of the sea, [[2 Nephi 10.8|2 Nephi 10:8]].
+gathered … from the *isles* of the sea, [[2 Nephi 10.8|2 Nephi 10:8]].
 
 we are upon an *isle* of the sea, [[2 Nephi 10.20|2 Nephi 10:20]].
 

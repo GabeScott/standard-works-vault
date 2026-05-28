@@ -6,7 +6,7 @@ By Elder Robert E. Sackley - *Of the First Quorum of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1988/10/a-more-excellent-way?lang=eng)
 
-My beloved brethren and sisters, I want to speak to you today about what I consider to be one of the greatest challenges of our times—the need to pursue “a more excellent way.” It was the Apostle Paul who said, “But covet earnestly the best gifts: and yet shew I unto you a more excellent way.” ([[1 Corinthians 12.31|1 Cor. 12:31]].)
+My beloved brethren and sisters, I want to speak to you today about what I consider to be one of the greatest challenges of our times—the need to pursue “a more excellent way.” It was the Apostle Paul who said, “But covet earnestly the best gifts: and yet shew I unto you a more excellent way.” ([[1 Corinthians 12.31|1 Cor. 12:31]].)
 
 Why should we all seek to pursue “a more excellent way,” and what does it mean? Finding “a more excellent way” means being totally converted to the gospel of the Lord Jesus Christ and doing all that we can to fulfill those covenants we make in becoming His disciples.
 
@@ -22,7 +22,7 @@ I believe we ought to remember what King Benjamin said so long ago. He said:
 
 “For the natural man is an enemy to God, and has been from the fall of Adam, and will be, forever and ever, unless he yields to the enticings of the Holy Spirit, and putteth off the natural man and becometh a saint through the atonement of Christ the Lord, and becometh as a child, submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon him, even as a child doth submit to his father.” ([[Mosiah 3.19|Mosiah 3:19]].)
 
-It was the great Apostle Paul who said, “Therefore if any man be in Christ, he is a new creature: old things are passed away; behold, all things are become new.” ([[2 Corinthians 5.17|2 Cor. 5:17]].)
+It was the great Apostle Paul who said, “Therefore if any man be in Christ, he is a new creature: old things are passed away; behold, all things are become new.” ([[2 Corinthians 5.17|2 Cor. 5:17]].)
 
 To find that “more excellent way,” brothers and sisters, we must cast aside our old selves and our old habits and ways of thinking. We must first recognize how we should change, and then we must make those changes, thus putting on the new and beginning to live as we have never lived before—walking in a newness of life.
 
@@ -51,8 +51,6 @@ I also want you to know that my life was changed more than forty years ago as I 
 And I find great joy and satisfaction in walking that journey with a beloved companion, and now with a posterity who seem to have caught the same vision.
 
 May you have this experience, I pray humbly, in the name of Jesus Christ, amen.
-
-
 
 
 

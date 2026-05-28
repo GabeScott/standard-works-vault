@@ -1,16 +1,16 @@
 # Home Teaching—A Sacred Calling
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/10/home-teaching-a-sacred-calling?lang=eng)
 
-“And it came to pass that after I, the Lord God, had driven them out, that Adam began to till the earth, and to have dominion over all the beasts of the field, and to eat his bread by the sweat of his brow, as I the Lord had commanded him. And Eve, also, his wife, did labor with him. …
+“And it came to pass that after I, the Lord God, had driven them out, that Adam began to till the earth, and to have dominion over all the beasts of the field, and to eat his bread by the sweat of his brow, as I the Lord had commanded him. And Eve, also, his wife, did labor with him. …
 
-“And Adam and Eve, his wife, called upon the name of the Lord, and they heard the voice of the Lord. …
+“And Adam and Eve, his wife, called upon the name of the Lord, and they heard the voice of the Lord. …
 
-“And he gave unto them commandments, …
+“And he gave unto them commandments, …
 
 “And Adam and Eve blessed the name of God, and they made all things known unto their sons and their daughters.” ([[Moses 5.1|Moses 5:1, 4–5, 12]][[Moses 5.4|]][[Moses 5.5|]][[Moses 5.12|]].)
 
@@ -24,13 +24,13 @@ Moses, after being given the awesome responsibility of leading the children of I
 
 “And when Moses’ father in law saw all that he did to the people, he said, What is this thing that thou doest to the people? why sittest thou thyself alone, and all the people stand by thee from morning unto even?
 
-“And Moses said unto his father in law, Because the people come unto me to inquire of God. …
+“And Moses said unto his father in law, Because the people come unto me to inquire of God. …
 
 “And Moses’ father in law said unto him, The thing that thou doest is not good.
 
-“Thou wilt surely wear away, both thou, and this people that is with thee: …
+“Thou wilt surely wear away, both thou, and this people that is with thee: …
 
-“Hearken now unto my voice, I will give thee counsel, and God shall be with thee. …
+“Hearken now unto my voice, I will give thee counsel, and God shall be with thee. …
 
 “So Moses hearkened to the voice of his father in law, and did all that he had said.
 
@@ -60,7 +60,7 @@ Through the ages the process of watching over the church has become a priesthood
 
 There is a choice account of how this practice was carried out in the early days of the Church. History has recorded the testimony of Elder William Farrington Cahoon, as he filled his assignment as a teacher to the home of the Prophet Joseph Smith. The account is as follows:
 
-“Before I close my testimony … , I wish to mention one circumstance which I never shall forget: I was called and ordained to act as a teacher to visit the families of the Saints. I got along very well till I found that I was obliged to call and pay a visit to the Prophet. Being young \[only about seventeen years of age\], I felt my weakness in visiting the Prophet and his family in the capacity of a teacher. I almost felt like shrinking from duty. Finally I went to his door and knocked, and in a minute the Prophet came to the door. I stood there trembling, and said to him:
+“Before I close my testimony … , I wish to mention one circumstance which I never shall forget: I was called and ordained to act as a teacher to visit the families of the Saints. I got along very well till I found that I was obliged to call and pay a visit to the Prophet. Being young \[only about seventeen years of age\], I felt my weakness in visiting the Prophet and his family in the capacity of a teacher. I almost felt like shrinking from duty. Finally I went to his door and knocked, and in a minute the Prophet came to the door. I stood there trembling, and said to him:
 
 “‘Brother Joseph, I have come to visit you in the capacity of a teacher, if it is convenient for you.’
 
@@ -100,13 +100,13 @@ Beginning with father Adam down to the present when the Lord’s church has been
 
 First, the family is the basic unit in the Church organization. The home teacher is the first line of defense to watch over and strengthen that basic unit. In our priority of time commitments we ought to first watch over and strengthen our own families, and then be good, consistent, conscientious home teachers.
 
-President Joseph F. Smith said in the general conference of April 1915: “I don’t know of any duty that is more sacred, or more necessary, if it is carried out as it should be, than the duties of the teachers who visit the homes of the people, who pray with them, who admonish them to virtue and honor, to unity, to love, and to faith in and fidelity to the cause of Zion.” (In Conference Report, Apr. 1915, p. 140.)
+President Joseph F. Smith said in the general conference of April 1915: “I don’t know of any duty that is more sacred, or more necessary, if it is carried out as it should be, than the duties of the teachers who visit the homes of the people, who pray with them, who admonish them to virtue and honor, to unity, to love, and to faith in and fidelity to the cause of Zion.” (In Conference Report, Apr. 1915, p. 140.)
 
 Home teachers, it is your responsibility to see that the unbaptized are baptized, the unordained are ordained, the inactive are brought into activity, the lost members are found.
 
 Second, just as Moses was not able to care for the needs of all the children of Israel alone, so a home teacher should not be given a workload beyond his ability to perform. The history of ward teaching and home teaching has witnessed a change in the recommended number of families assigned to a teacher, being reduced from ten to eight to the present level of five or fewer as the Church has enlarged its borders and the distance to travel for visits has increased. Nothing will destroy the spirit of a home teacher more than to give him an assignment beyond his ability to have the thrill of success in his performance. Stake presidents, bishops, and quorum leaders, there is no program in the Church which will give you greater relief from the administrative burdens you carry than having a well-organized, efficiently operated, successful home teaching program.
 
-Third, the preparation of a home teacher. Elder Matthias F. Cowley reported in the general conference of April 1902 that “the teachers who go out to visit the saints from family to family ought to be men endowed with the spirit of revelation from God. They ought to study the principles of the Gospel, and to so live that they may enjoy the inspiration of the Holy Ghost in their instructions, so that their instructions may be understood and be attractive to the children; that they should not go simply to carry out a routine, to ask certain questions, just to be able to say that they have made their monthly visit. They ought to be men inspired with the spirit of revelation from God, that they may touch the hearts of the families.” (In Conference Report, Apr. 1902, p. 38.)
+Third, the preparation of a home teacher. Elder Matthias F. Cowley reported in the general conference of April 1902 that “the teachers who go out to visit the saints from family to family ought to be men endowed with the spirit of revelation from God. They ought to study the principles of the Gospel, and to so live that they may enjoy the inspiration of the Holy Ghost in their instructions, so that their instructions may be understood and be attractive to the children; that they should not go simply to carry out a routine, to ask certain questions, just to be able to say that they have made their monthly visit. They ought to be men inspired with the spirit of revelation from God, that they may touch the hearts of the families.” (In Conference Report, Apr. 1902, p. 38.)
 
 If our home teaching assignments are to be given their proper priority, then our preparation for those visits must be careful and complete, tailored to the individual needs of fathers and mothers and their families. As home teachers, should not this basic program receive our earnest effort to seek inspiration and guidance of the Lord in this most sacred obligation?
 
@@ -115,6 +115,4 @@ God grant us the vision to see the potential of our home teaching assignments, a
 
 
 
-
-
-#Home_Teaching
+#HomeTeaching

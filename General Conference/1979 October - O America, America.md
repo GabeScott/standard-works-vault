@@ -1,6 +1,6 @@
 # O America, America
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -40,7 +40,7 @@ Even in the churches his holy ordinances have been changed or eliminated. Divine
 
 Then can this present world truthfully say that it accepts Jesus Christ? Must he not marvel at the unbelief of today as he did in ancient Nazareth?
 
-Would not the Apostle Paul marvel at the many divisions in modern Christianity in the face of his declaration that Christ is not divided but that Christians should all speak the same thing and that there should be no divisions among them? Did he not say that Christians should be perfectly joined together in the same mind and in the same judgment and not divide into separate groups? (See [[1 Corinthians 1.1|1 Cor. 1]][[1 Corinthians 1.2|]][[1 Corinthians 1.3|]][[1 Corinthians 1.4|]][[1 Corinthians 1.5|]][[1 Corinthians 1.6|]][[1 Corinthians 1.7|]][[1 Corinthians 1.8|]][[1 Corinthians 1.9|]][[1 Corinthians 1.10|]][[1 Corinthians 1.11|]][[1 Corinthians 1.12|]][[1 Corinthians 1.13|]][[1 Corinthians 1.14|]][[1 Corinthians 1.15|]][[1 Corinthians 1.16|]][[1 Corinthians 1.17|]][[1 Corinthians 1.18|]][[1 Corinthians 1.19|]][[1 Corinthians 1.20|]][[1 Corinthians 1.21|]][[1 Corinthians 1.22|]][[1 Corinthians 1.23|]][[1 Corinthians 1.24|]][[1 Corinthians 1.25|]][[1 Corinthians 1.26|]][[1 Corinthians 1.27|]][[1 Corinthians 1.28|]][[1 Corinthians 1.29|]][[1 Corinthians 1.30|]][[1 Corinthians 1.31|]].)
+Would not the Apostle Paul marvel at the many divisions in modern Christianity in the face of his declaration that Christ is not divided but that Christians should all speak the same thing and that there should be no divisions among them? Did he not say that Christians should be perfectly joined together in the same mind and in the same judgment and not divide into separate groups? (See [[1 Corinthians 1.1|1 Cor. 1]][[1 Corinthians 1.2|]][[1 Corinthians 1.3|]][[1 Corinthians 1.4|]][[1 Corinthians 1.5|]][[1 Corinthians 1.6|]][[1 Corinthians 1.7|]][[1 Corinthians 1.8|]][[1 Corinthians 1.9|]][[1 Corinthians 1.10|]][[1 Corinthians 1.11|]][[1 Corinthians 1.12|]][[1 Corinthians 1.13|]][[1 Corinthians 1.14|]][[1 Corinthians 1.15|]][[1 Corinthians 1.16|]][[1 Corinthians 1.17|]][[1 Corinthians 1.18|]][[1 Corinthians 1.19|]][[1 Corinthians 1.20|]][[1 Corinthians 1.21|]][[1 Corinthians 1.22|]][[1 Corinthians 1.23|]][[1 Corinthians 1.24|]][[1 Corinthians 1.25|]][[1 Corinthians 1.26|]][[1 Corinthians 1.27|]][[1 Corinthians 1.28|]][[1 Corinthians 1.29|]][[1 Corinthians 1.30|]][[1 Corinthians 1.31|]].)
 
 Are not the divisions in Christianity and the turmoil within Christian nations evidence of their departure from Christ?
 
@@ -139,8 +139,6 @@ The billions we spend on armaments could be directed to peaceful pursuits. The b
 It is all within our reach as a great physical reality. The price is far less than what we now pay, and the rewards are indescribably greater.
 
 O Jerusalem! O America! O England, and all other countries! The Lord says to all, “Come unto me, … and I will give you rest” ([[Matthew 11.28|Matt. 11:28]]). In the name of the Lord Jesus Christ, amen.
-
-
 
 
 

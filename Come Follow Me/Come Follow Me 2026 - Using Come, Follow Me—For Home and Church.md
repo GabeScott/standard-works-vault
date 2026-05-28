@@ -8,7 +8,7 @@
 
 ## Individuals and Families at Home
 
-The ideal place to learn the gospel is the home. Your teachers at church can support you, and you can get encouragement from other ward members. But to survive spiritually, you and your family need daily nourishment from “the good word of God” ([[Moroni 6.4|Moroni 6:4]]; see also Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 6–8).
+The ideal place to learn the gospel is the home. Your teachers at church can support you, and you can get encouragement from other ward members. But to survive spiritually, you and your family need daily nourishment from “the good word of God” ([[Moroni 6.4|Moroni 6:4]]; see also Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 6–8).
 
 Use this resource in any way that is helpful to you. The outlines highlight some eternal truths found in the Old Testament. They also suggest ideas and activities to help you study the scriptures individually, with your family, or with friends. As you study, follow the Spirit’s guidance to find eternal truths that are meaningful to you. Look for God’s messages for you, and follow the promptings you receive.
 
@@ -22,7 +22,7 @@ Keep in mind that learning the gospel, at its best, is home centered and Church 
 
 One main reason we gather in Sunday School classes is to support and encourage one another as we strive to follow Jesus Christ. A simple way to do this is to ask a question like “What has the Holy Ghost taught you this week as you studied the scriptures?” Answers to this question could lead to meaningful discussions that build faith in Jesus Christ and His gospel.
 
-Then you could invite discussion based on the study suggestions in *Come, Follow Me*. For instance, a study idea might suggest searching [[Isaiah 53.1|Isaiah 53]][[Isaiah 53.2|]][[Isaiah 53.3|]][[Isaiah 53.4|]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]][[Isaiah 53.10|]][[Isaiah 53.11|]][[Isaiah 53.12|]], looking for words that describe the Savior’s mission. You might ask class members to share any thoughts or feelings that these words inspired for them. Or you could spend some time looking for these words as a class.
+Then you could invite discussion based on the study suggestions in *Come, Follow Me*. For instance, a study idea might suggest searching [[Isaiah 53.1|Isaiah 53]][[Isaiah 53.2|]][[Isaiah 53.3|]][[Isaiah 53.4|]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]][[Isaiah 53.10|]][[Isaiah 53.11|]][[Isaiah 53.12|]], looking for words that describe the Savior’s mission. You might ask class members to share any thoughts or feelings that these words inspired for them. Or you could spend some time looking for these words as a class.
 
 ## Aaronic Priesthood Quorums and Young Women Classes
 
@@ -34,7 +34,7 @@ After this time for counseling together, an instructor leads the class or quorum
 
 People assigned to teach should prepare by using the learning suggestions in the weekly outline of *Come, Follow Me*. In each outline, this icon  indicates an activity that is especially relevant to youth. However, any of the suggestions in the outline could be used as a learning activity for youth.
 
-For a sample agenda for quorum and class meetings, see appendix D.
+For a sample agenda for quorum and class meetings, see appendix D.
 
 ## Primary
 
@@ -44,7 +44,7 @@ As you prepare to teach, you might gain additional inspiration by exploring the 
 
 It’s possible that children in your class will have already done some of the activities in *Come, Follow Me* with their families. That’s OK. Repetition is good. Consider inviting the children to share with each other what they learned at home—though you should also plan ways for children to participate even if they aren’t learning at home. Children learn gospel truths more effectively when these truths are taught repeatedly through a variety of activities. If you find that a learning activity is effective for the children, consider repeating it, especially if you are teaching younger children. You might also review an activity from a previous lesson.
 
-In months that have five Sundays, Primary teachers are encouraged to replace the scheduled *Come, Follow Me* outline on the fifth Sunday with one or more of the learning activities in “Appendix B: For Primary—Preparing Children for a Lifetime on God’s Covenant Path.”
+In months that have five Sundays, Primary teachers are encouraged to replace the scheduled *Come, Follow Me* outline on the fifth Sunday with one or more of the learning activities in “Appendix B: For Primary—Preparing Children for a Lifetime on God’s Covenant Path.”
 
 
 

@@ -1,6 +1,6 @@
 # Was It Worth It?
 
-By Elder David F. Evans - *Of the Seventy*
+By Elder David F. Evans - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -12,9 +12,9 @@ During this conference and in other recent meetings,[^1] many of us have wondere
 
 In this and every other important endeavor, our most important work is always within our own home and family.[^2] It is within families that the Church is established and real growth occurs.[^3] We are to teach our children the principles and doctrines of the gospel. We need to help them have faith in Jesus Christ and prepare them for baptism when they are eight years old.[^4] We must be faithful ourselves so that they can see our example of love for the Lord and His Church. This helps our children feel joy in keeping the commandments, happiness in families, and gratitude in service to others. Within our homes we should follow the pattern given by Nephi when he said:
 
-“We labor diligently … to persuade our children … to believe in Christ, and to be reconciled to God. …
+“We labor diligently … to persuade our children … to believe in Christ, and to be reconciled to God. …
 
-“… We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins.”[^5]
+“… We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins.”[^5]
 
 We labor diligently to bring these blessings to our children by attending church with them, holding family home evening, and reading the scriptures together. We pray daily with our family, accept callings, visit the sick and the lonely, and do other things that let our children know that we love them and that we love our Heavenly Father, His Son, and Their Church.
 
@@ -26,7 +26,7 @@ We help our children rely on the Savior’s Atonement and know the forgiveness o
 
 In addition to the work we will do within our own family, Nephi taught that “we labor diligently to … persuade our … brethren, to believe in Christ, and to be reconciled to God.”[^6] As members of The Church of Jesus Christ of Latter-day Saints, every one of us has the blessing and responsibility of sharing the gospel. Some of those who need the gospel in their lives are not yet members of the Church. Some were once among us but need to feel again the joy they felt when they embraced the gospel at an earlier time in their lives. The Lord loves both the person who has never had the gospel and the person who is returning to Him.[^7] To Him and to us, it doesn’t matter. It is all one work. It is the worth of souls, whatever their condition, that is great to our Heavenly Father, His Son, and to us.[^8] The work of our Heavenly Father and His Son is “to bring to pass the immortality and eternal life”[^9] of all His children, regardless of their current circumstances. Our blessing is to help in this great work.
 
-President Thomas S. Monson explained how we can help when he said: “Our missionary experiences have to be current. It is not enough to sit back and ponder former experiences. To be fulfilled, you have to continue to naturally and normally share the gospel.”[^10]
+President Thomas S. Monson explained how we can help when he said: “Our missionary experiences have to be current. It is not enough to sit back and ponder former experiences. To be fulfilled, you have to continue to naturally and normally share the gospel.”[^10]
 
 The work of naturally and normally sharing the gospel with those we care about and love will be the work and joy of our lives. Let me tell you about two such experiences.
 
@@ -40,7 +40,7 @@ As Dave spoke of his conversion and bore his testimony regarding these events, h
 
 Whenever the gospel is shared, it is never “just one boy.” Whenever conversion happens or someone returns to the Lord, it is a family that is saved. As Dave and Katherine’s children have grown, they have all embraced the gospel. One daughter and two sons have served as missionaries, and one just received his call to serve in the Alpine German-Speaking Mission. The two oldest have married in the temple, and the youngest is now in high school, faithful in every way. Was it worth it? Oh yes, it was worth it.
 
-Sister Eileen Waite attended the same stake conference where Dave Orchard told of his conversion experience. Throughout the conference, all she could think of was her own family and particularly her sister, Michelle, who had long been away from the Church. Michelle was divorced and trying to raise four children. Eileen felt impressed to send her a copy of Elder M. Russell Ballard’s book *Our Search for Happiness,* together with her testimony, which she did. The very next week a friend told Eileen that she too had felt that she should contact Michelle. This friend also wrote Michelle a note, sharing her testimony and expressing her love. Isn’t it interesting how often the Spirit works on several people to help one in need?
+Sister Eileen Waite attended the same stake conference where Dave Orchard told of his conversion experience. Throughout the conference, all she could think of was her own family and particularly her sister, Michelle, who had long been away from the Church. Michelle was divorced and trying to raise four children. Eileen felt impressed to send her a copy of Elder M. Russell Ballard’s book *Our Search for Happiness,* together with her testimony, which she did. The very next week a friend told Eileen that she too had felt that she should contact Michelle. This friend also wrote Michelle a note, sharing her testimony and expressing her love. Isn’t it interesting how often the Spirit works on several people to help one in need?
 
 Time passed. Michelle called Eileen and thanked her for the book. She said that she was beginning to recognize the spiritual void in her life. Eileen told her that she knew that the peace she was seeking could be found in the gospel. She told her that she loved her and wanted her to be happy. Michelle began to make changes in her life. Soon she met a wonderful man who was active in the Church. They married and a year later were sealed in the Ogden Utah Temple. Recently her 24-year-old son was baptized.
 
@@ -59,15 +59,15 @@ My dear brothers and sisters, we can build up His Church and see real growth as 
 
 [^1]: See Worldwide Leadership Training Meeting, Feb. 11, 2012, [LDS.org](https://www.churchofjesuschrist.org).
 
-[^2]: See *Teachings of Presidents of the Church: Harold B. Lee* (2000), 134.
+[^2]: See *Teachings of Presidents of the Church: Harold B. Lee* (2000), 134.
 
-[^3]: See Boyd K. Packer, “Priesthood Power in the Home,” Worldwide Leadership Training Meeting, Feb. 11, 2012, [LDS.org](https://www.churchofjesuschrist.org).
+[^3]: See Boyd K. Packer, “Priesthood Power in the Home,” Worldwide Leadership Training Meeting, Feb. 11, 2012, [LDS.org](https://www.churchofjesuschrist.org).
 
 [^4]: See [[D&C 68.25|Doctrine and Covenants 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]].
 
-[^5]: [[2 Nephi 25.23|2 Nephi 25:23, 26]][[2 Nephi 25.26|]].
+[^5]: [[2 Nephi 25.23|2 Nephi 25:23, 26]][[2 Nephi 25.26|]].
 
-[^6]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^6]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^7]: See [[Luke 15.4|Luke 15:4–7]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]].
 
@@ -75,11 +75,12 @@ My dear brothers and sisters, we can build up His Church and see real growth as 
 
 [^9]: [[Moses 1.39|Moses 1:39]].
 
-[^10]: “Status Report on Missionary Work: A Conversation with Elder Thomas S. Monson, Chairman of the Missionary Committee of the Council of the Twelve,” *Ensign,* Oct. 1977, 14.
+[^10]: “Status Report on Missionary Work: A Conversation with Elder Thomas S. Monson, Chairman of the Missionary Committee of the Council of the Twelve,” *Ensign,* Oct. 1977, 14.
 
-[^11]: See Thomas S. Monson, “Anxiously Engaged,” *Liahona* and *Ensign,* Nov. 2004, 56–59; “To the Rescue,” *Liahona,* July 2001, 57–60; *Ensign,* May 2001, 48–50; “The Doorway of Love,” *Liahona* and *Ensign,* Oct. 1996, 2–7.
+[^11]: See Thomas S. Monson, “Anxiously Engaged,” *Liahona* and *Ensign,* Nov. 2004, 56–59; “To the Rescue,” *Liahona,* July 2001, 57–60; *Ensign,* May 2001, 48–50; “The Doorway of Love,” *Liahona* and *Ensign,* Oct. 1996, 2–7.
 
-[^12]: See Ann M. Dibb, “My Father Is a Prophet” (Brigham Young University–Idaho devotional, Feb. 19, 2008), byui.edu/devotionalsandspeeches; Thomas S. Monson, “Stand in Your Appointed Place,” *Liahona* and *Ensign,* May 2003, 54–57; “Peace, Be Still,” *Liahona* and *Ensign,* Nov. 2002, 53–56; “Priesthood Power,” *Liahona,* Jan. 2000, 58–61; *Ensign,* Nov. 1999, 49–51; “The Spirit Giveth Life,” *Ensign,* May 1985, 68–70.
+[^12]: See Ann M. Dibb, “My Father Is a Prophet” (Brigham Young University–Idaho devotional, Feb. 19, 2008), byui.edu/devotionalsandspeeches; Thomas S. Monson, “Stand in Your Appointed Place,” *Liahona* and *Ensign,* May 2003, 54–57; “Peace, Be Still,” *Liahona* and *Ensign,* Nov. 2002, 53–56; “Priesthood Power,” *Liahona,* Jan. 2000, 58–61; *Ensign,* Nov. 1999, 49–51; “The Spirit Giveth Life,” *Ensign,* May 1985, 68–70.
 
+[^13]: In addition to President Thomas S. Monson, other prophets have taught this same principle. For example, President Spencer W. Kimball taught the importance of acting on the impressions given through the Spirit when he said: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other in the kingdom” (*Teachings of Presidents of the Church: Spencer W. Kimball* \[2006\], 82).
 
-#Activation #Conversion #Missionary_Work
+#Activation #Conversion #MissionaryWork

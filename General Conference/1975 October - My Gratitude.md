@@ -1,6 +1,6 @@
 # My Gratitude
 
-By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
+By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -27,8 +27,6 @@ Thank you to my Lord and Savior, Jesus Christ, for his sacrifice. Thank you to m
 I would like to share with you my testimony, that I know that God lives, that I know that Jesus is the Christ, as well as I know that the Holy Ghost can murmur and whisper in your ear the same testimony that I have today about the veracity of the Book of Mormon and all the principles that exist in the church of Jesus Christ on earth today.
 
 And this I bear solemn witness to you, in the name of Jesus Christ. Amen.
-
-
 
 
 

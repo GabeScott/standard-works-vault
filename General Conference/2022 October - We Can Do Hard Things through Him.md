@@ -1,6 +1,6 @@
 # We Can Do Hard Things through Him
 
-By Elder Isaac K. Morrison - *Of the Seventy*
+By Elder Isaac K. Morrison - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -38,7 +38,7 @@ My wife never blamed me for not responding to her promptings, but I learned a li
 
 Though the experience was shattering and we continue to grieve, our overwhelming burden was eventually eased.[^3] My wife and I learned specific lessons from our loss. We came to feel united and bound by our temple covenants; we know we can claim Kenneth as ours in the next world because he was born in the covenant. We also gained experience necessary to minister to others and empathize with their pain. I testify that our bitterness has since dispersed as we exercised faith in the Lord. Our experience continues to be hard, but we have learned with the Apostle Paul that we “can do all things through Christ which \[strengthens us\]” if we focus on Him.[^4]
 
-President Russell M. Nelson taught, “When the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives.” He further said, “Joy comes from and because of Him.”[^5]
+President Russell M. Nelson taught, “When the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives.” He further said, “Joy comes from and because of Him.”[^5]
 
 We can be of good cheer and be filled with peace in our tough times. The love we feel because of the Savior and His Atonement becomes a powerful resource to us in our trying moments. “All that is unfair \[and difficult\] about life can be made right through the Atonement of Jesus Christ.”[^6] He commanded, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.”[^7] He can help us endure whatever pain, sickness, and trials we face in mortality.
 
@@ -61,15 +61,15 @@ I testify that we grow in our discipleship when we exercise faith in the Lord du
 
 [^1]: [[John 9.2|John 9:2–3]][[John 9.3|]].
 
-[^2]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p7#p7),” ChurchofJesusChrist.org.
+[^2]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p7#p7),” ChurchofJesusChrist.org.
 
 [^3]: See [[Mosiah 24.14|Mosiah 24:14–15]][[Mosiah 24.15|]].
 
 [^4]: [[Philippians 4.13|Philippians 4:13]].
 
-[^5]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^5]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^6]: *Preach My Gospel: A Guide to Missionary Service* (2019), 52.
+[^6]: *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-2-the-plan-of-salvation?lang=eng&id=p19#p19)* (2019), 52.
 
 [^7]: [[John 16.33|John 16:33]].
 
@@ -81,7 +81,8 @@ I testify that we grow in our discipleship when we exercise faith in the Lord du
 
 [^11]: See [[D&C 122.7|Doctrine and Covenants 122:7]].
 
-[^12]: See [[2 Nephi 31.19|2 Nephi 31:19–21]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
+[^12]: See [[2 Nephi 31.19|2 Nephi 31:19–21]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
 
+[^13]: [[Hebrews 5.8|Hebrews 5:8]].
 
 #Adversity #Discipleship #Endurance #Faith

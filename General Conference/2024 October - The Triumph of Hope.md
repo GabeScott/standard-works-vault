@@ -1,6 +1,6 @@
 # The Triumph of Hope
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 My dear brothers and sisters across the world, as we begin this very special time of general conference, the eyes of heaven will certainly be focused upon us. We will hear the voice of the Lord through His servants; we will feel the “guiding, directing, \[and\] comforting”[^1] influence of the Holy Ghost, and our faith will be strengthened.
 
-Three years ago, President Russell M. Nelson began general conference with these words: “Pure revelation for the questions in your heart will make this conference rewarding and unforgettable. If you have not yet sought for the ministering of the Holy Ghost to help you hear what the Lord would have you hear during these two days, I invite you to do so now. Please make this conference a time of feasting on messages from the Lord through His servants.”[^2]
+Three years ago, President Russell M. Nelson began general conference with these words: “Pure revelation for the questions in your heart will make this conference rewarding and unforgettable. If you have not yet sought for the ministering of the Holy Ghost to help you hear what the Lord would have you hear during these two days, I invite you to do so now. Please make this conference a time of feasting on messages from the Lord through His servants.”[^2]
 
 The scriptures link three words powerfully together: faith, hope, charity. The gift of hope is a priceless endowment from God.[^3]
 
@@ -38,7 +38,7 @@ The Savior sends us a Comforter, the Holy Ghost, a companion bringing faith, hop
 
 In times of difficulty, we choose to trust the Lord in faith. We quietly pray, “Not my will but thine be done.”[^14] We feel the Lord’s approval for our meek willingness, and we await the promised peace the Lord will send in His chosen timing.
 
-The Apostle Paul taught, “The God of hope \[will\] fill you with … joy and peace … , that ye may abound in hope,”[^15] “rejoicing in hope; patient in tribulation;”[^16] “through the power of the Holy Ghost.”[^17]
+The Apostle Paul taught, “The God of hope \[will\] fill you with … joy and peace … , that ye may abound in hope,”[^15] “rejoicing in hope; patient in tribulation;”[^16] “through the power of the Holy Ghost.”[^17]
 
 ## A Lesson of Hope
 
@@ -113,17 +113,17 @@ May we nurture our precious faith, pressing forward with a perfect brightness of
 
 
 
-[^1]: Russell N. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^1]: Russell N. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
-[^2]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6–7.
+[^2]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6–7.
 
-[^3]: “Have you noticed in the scriptures that hope seldom stands alone? Hope is often linked with faith. Hope and faith are commonly connected to charity. Why? Because hope is essential to faith; faith is essential to hope; faith and hope are essential to charity (see [[1 Corinthians 13.13|1 Corinthians 13:13]], [[Alma 7.24|Alma 7:24]], [[Ether 12.28|Ether 12:28]], [[D&C 4.5|Doctrine and Covenants 4:5]]). They support one another like legs on a three-legged stool. All three relate to our Redeemer.
+[^3]: “Have you noticed in the scriptures that hope seldom stands alone? Hope is often linked with faith. Hope and faith are commonly connected to charity. Why? Because hope is essential to faith; faith is essential to hope; faith and hope are essential to charity (see [[1 Corinthians 13.13|1 Corinthians 13:13]], [[Alma 7.24|Alma 7:24]], [[Ether 12.28|Ether 12:28]], [[D&C 4.5|Doctrine and Covenants 4:5]]). They support one another like legs on a three-legged stool. All three relate to our Redeemer.
 
-[^4]: Gospel Topics, “[Hope](https://churchofjesuschrist.org/study/manual/gospel-topics/hope?lang=eng&id=p1#p1),” Gospel Library.
+[^4]: Gospel Topics, “[Hope](https://www.churchofjesuschrist.org/study/manual/gospel-topics/hope?lang=eng&id=p1#p1),” Gospel Library.
 
 [^5]: “Wherefore, whoso believeth in God might with surety hope for a better world, … even a place at the right hand of God, which hope cometh of faith, maketh an anchor to the souls of men, \[making\] them sure and steadfast” ([[Ether 12.4|Ether 12:4]]).
 
-[^6]: Elder Dieter F. Uchtdorf said: “Allow me to acknowledge that depression and other difficult mental and emotional challenges are real, and the answer is not simply, ‘Try to be happier.’ My purpose today is not to diminish or trivialize mental health issues. If you face such challenges, I mourn with you, and I stand beside you. For some people, finding joy may include seeking help from trained mental health professionals who devote their lives to practicing their very important art. We should be thankful for such help” (“[[2024 April - A Higher Joy.md|A Higher Joy]],” *Liahona*, May 2024, 66).
+[^6]: Elder Dieter F. Uchtdorf said: “Allow me to acknowledge that depression and other difficult mental and emotional challenges are real, and the answer is not simply, ‘Try to be happier.’ My purpose today is not to diminish or trivialize mental health issues. If you face such challenges, I mourn with you, and I stand beside you. For some people, finding joy may include seeking help from trained mental health professionals who devote their lives to practicing their very important art. We should be thankful for such help” (“[[2024 April - A Higher Joy.md|A Higher Joy]],” *Liahona*, May 2024, 66).
 
 [^7]: Our Heavenly Father has declared that His work and glory is to bring to pass our eternal life (see [[Moses 1.39|Moses 1:39]]).
 
@@ -157,13 +157,14 @@ May we nurture our precious faith, pressing forward with a perfect brightness of
 
 [^22]: [[Hebrews 11.1|Hebrews 11:1]]. In the Joseph Smith Translation it reads, “Faith is the *assurance* of things hoped for, the evidence of things not seen” (in the Bible appendix). We see the assurance of our faith in the blessings that come to those who keep the covenants they have made with the Lord.
 
-[^23]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^23]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^24]: Talk given by Robbie Andersen at the funeral of her son Trey Andersen, August 12, 2024. Trey had his surgery on July 31, 2024. He passed from this life on August 3, 2024.
+[^24]: Talk given by Robbie Andersen at the funeral of her son Trey Andersen, August 12, 2024. Trey had his surgery on July 31, 2024. He passed from this life on August 3, 2024.
 
-[^25]: Talk given by Ben Andersen at the funeral of his son Trey Andersen, August 12, 2024.
+[^25]: Talk given by Ben Andersen at the funeral of his son Trey Andersen, August 12, 2024.
 
-[^26]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82.
+[^26]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82.
 
+[^27]: See [[2 Nephi 31.20|2 Nephi 31:20]]. The hope Nephi speaks of is perfect and bright because it is centered in Christ. He is perfect, and His Atonement, which offers this bright hope, is also perfect.
 
-#Adversity #Faith #Holy_Ghost #Hope #Jesus_Christ #Joy #Temples
+#Adversity #Faith #HolyGhost #Hope #Joy #JesusChrist #Temples

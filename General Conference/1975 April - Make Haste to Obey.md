@@ -1,6 +1,6 @@
 # Make Haste to Obey
 
-By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
+By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -18,7 +18,7 @@ That is why we have been commanded to search the scriptures. The Prophet Joseph 
 
 Through our scripture study we will come to consider these great leaders of the scriptures as our personal friends, and their messages will take on new and added meaning. We will learn that people of days gone by were not so different from people we know today.
 
-The living prophet of our Heavenly Father, President Spencer W. Kimball, is a great student of the scriptures and a living example to each of us. On one occasion he counseled us, “\[When we get\] casual in our relationships with \[God\] and when it seems that no divine ear is listening and no divine voice is speaking, \[we are\] far, far away. If \[we will\] immerse \[ourselves\] in the scriptures, the distance narrows and the spirituality returns.” (“What I Hope You Will Teach My Grandchildren and All Others of the Youth of Zion,” an address to Seminary and Institute personnel at Brigham Young University, 11 July 1966.)
+The living prophet of our Heavenly Father, President Spencer W. Kimball, is a great student of the scriptures and a living example to each of us. On one occasion he counseled us, “\[When we get\] casual in our relationships with \[God\] and when it seems that no divine ear is listening and no divine voice is speaking, \[we are\] far, far away. If \[we will\] immerse \[ourselves\] in the scriptures, the distance narrows and the spirituality returns.” (“What I Hope You Will Teach My Grandchildren and All Others of the Youth of Zion,” an address to Seminary and Institute personnel at Brigham Young University, 11 July 1966.)
 
 May I quote an oft-repeated illustration that is worthy of repetition. David, the shepherd boy, visited the battlefield where the Philistines were engaged in combat against the house of Israel. He heard the boast of the Philistine champion, Goliath, who defied the armies of Israel.
 
@@ -28,9 +28,9 @@ May I quote an oft-repeated illustration that is worthy of repetition. David, th
 
 “\[I have killed both a lion and a bear single-handedly.\] The Lord that delivered me out of the paw of the lion, and out of the paw of the bear, he will \[also\] deliver me out of the hand of this Philistine,” assured David.
 
-With Saul’s blessing, David moved to the field of battle, and when Goliath saw David, he taunted, “Come to me, and I will give thy flesh unto the fowls of the air, and to the beasts of the field.” ([[1 Samuel 17.26|1 Sam. 17:26, 32–33, 37, 44]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.37|]][[1 Samuel 17.44|]].)
+With Saul’s blessing, David moved to the field of battle, and when Goliath saw David, he taunted, “Come to me, and I will give thy flesh unto the fowls of the air, and to the beasts of the field.” ([[1 Samuel 17.26|1 Sam. 17:26, 32–33, 37, 44]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.37|]][[1 Samuel 17.44|]].)
 
-“David hasted, and ran toward the army to meet the Philistine.” ([[1 Samuel 17.48|1 Sam. 17:48]].) I think it is significant that the scriptures indicate this young boy who was on the Lord’s errand did not merely saunter, nor walk, but he actually *ran* and conquered. David had faith.
+“David hasted, and ran toward the army to meet the Philistine.” ([[1 Samuel 17.48|1 Sam. 17:48]].) I think it is significant that the scriptures indicate this young boy who was on the Lord’s errand did not merely saunter, nor walk, but he actually *ran* and conquered. David had faith.
 
 The scriptures are replete with examples of other great men of God who maintained this same rapid pace and felt this same sense of urgency as they served the Lord.
 
@@ -40,7 +40,7 @@ When the angel announced the birth of the Savior to the shepherds, these men “
 
 When Mary Magdalene entered the empty tomb and *ran* to tell Peter and John what had happened, the two apostles “*ran* both together” to see. ([[John 20.2|John 20:2–4]][[John 20.3|]][[John 20.4|]]. Italics added.)
 
-The good news of the gospel throughout the ages has been accompanied with a rapid pace and a sense of urgency. The Prophet Joseph Smith exhibited this haste as well as have all modern-day prophets. This same sense of urgency is apparent in increased intensity in the life of our living prophet, Spencer W. Kimball, who has challenged us to “lengthen our stride” in furthering the work of the kingdom of God. He is running to the battle as did David. He has sounded the trumpet, and we must all respond.
+The good news of the gospel throughout the ages has been accompanied with a rapid pace and a sense of urgency. The Prophet Joseph Smith exhibited this haste as well as have all modern-day prophets. This same sense of urgency is apparent in increased intensity in the life of our living prophet, Spencer W. Kimball, who has challenged us to “lengthen our stride” in furthering the work of the kingdom of God. He is running to the battle as did David. He has sounded the trumpet, and we must all respond.
 
 Now, if I may, I would like to return to the analogy of the rivers. Some rivers are sluggish and meander through low places. Their waters are dirty and full of debris. These do not furnish the electricity that brightens our cities and serves our many needs.
 
@@ -57,8 +57,6 @@ Two categories of listeners are hearing my voice today: present members of the C
 Why not color your thoughts with eternal, prophetic utterances and truths this very day?
 
 Come, catch the glow of the warmth of the gospel. There is a living prophet in the land today who represents the Savior upon the earth. His prophetic utterances are scripture; they have a sense of urgency. And I bear you this witness humbly in the name of the Lord Jesus Christ. Amen.
-
-
 
 
 

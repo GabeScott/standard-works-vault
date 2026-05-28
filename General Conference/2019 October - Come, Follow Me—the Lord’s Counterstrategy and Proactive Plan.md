@@ -1,6 +1,6 @@
 # Come, Follow Me—the Lord’s Counterstrategy and Proactive Plan
 
-By Mark L. Pace - *Sunday School General President*
+By Mark L. Pace - *Sunday School General President*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -8,15 +8,15 @@ By Mark L. Pace - *Sunday School General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/10/26pace?lang=eng)
 
-We rejoice in meeting together in this great general conference of The Church of Jesus Christ of Latter-day Saints. It is a blessing to receive the mind and will of the Lord through the teachings of His prophets and apostles. President Russell M. Nelson is the Lord’s living prophet. How grateful we are for his inspired counsel and direction received today.
+We rejoice in meeting together in this great general conference of The Church of Jesus Christ of Latter-day Saints. It is a blessing to receive the mind and will of the Lord through the teachings of His prophets and apostles. President Russell M. Nelson is the Lord’s living prophet. How grateful we are for his inspired counsel and direction received today.
 
 I add my witness to those shared previously. I bear testimony of God, our Eternal Father. He lives and loves us and watches over us. His plan of happiness provides the blessing of this mortal life and our eventual return to His presence.
 
-I also bear testimony of Jesus Christ. He is God’s Only Begotten Son. He *saved us* from death, and He redeems us from sin as we exercise faith in Him and repent. His infinite atoning sacrifice in our behalf brings the blessings of immortality and eternal life. Indeed, “God be thanked for the matchless gift of His divine son” (“[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* May 2017, inside front cover).
+I also bear testimony of Jesus Christ. He is God’s Only Begotten Son. He *saved us* from death, and He redeems us from sin as we exercise faith in Him and repent. His infinite atoning sacrifice in our behalf brings the blessings of immortality and eternal life. Indeed, “God be thanked for the matchless gift of His divine son” (“[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* May 2017, inside front cover).
 
 Latter-day Saints around the world are blessed to worship Jesus Christ in His temples. One of those temples is currently under construction in Winnipeg, Canada. My wife, Anne Marie, and I had the opportunity to visit the construction site in August of this year. The temple is beautifully designed and will certainly be magnificent when completed. However, you can’t have a magnificent temple in Winnipeg, or anywhere else, without a solid and firm foundation.
 
-The freeze-thaw cycle and expansive soil conditions in Winnipeg made it challenging to prepare the temple foundation. Therefore, it was determined that the foundation for this temple would consist of 70 steel piles encased in concrete. These piles are 60 feet (18 m) in length and 12 to 20 inches (30 to 50 cm) in diameter. They were driven into the ground until they hit bedrock, approximately 50 feet (15 m) below the surface. In this way, the 70 piles provide a solid, firm foundation for what will be the beautiful Winnipeg temple.
+The freeze-thaw cycle and expansive soil conditions in Winnipeg made it challenging to prepare the temple foundation. Therefore, it was determined that the foundation for this temple would consist of 70 steel piles encased in concrete. These piles are 60 feet (18 m) in length and 12 to 20 inches (30 to 50 cm) in diameter. They were driven into the ground until they hit bedrock, approximately 50 feet (15 m) below the surface. In this way, the 70 piles provide a solid, firm foundation for what will be the beautiful Winnipeg temple.
 
 As Latter-day Saints, we seek a similar firm and sure foundation in our lives—a spiritual foundation needed for our journey through mortality and back to our heavenly home. That foundation is established on the bedrock of our conversion to the Lord Jesus Christ.
 
@@ -24,13 +24,13 @@ We recall the teachings of Helaman from the Book of Mormon: “And now, my sons,
 
 Gratefully, we live in a time when prophets and apostles teach us of the Savior Jesus Christ. Following their counsel helps us establish a firm foundation in Christ.
 
-A year ago, in his opening remarks of the October 2018 general conference, President Russell M. Nelson provided this declaration and warning: “The long-standing objective of the Church is to assist all members to increase their faith in our Lord Jesus Christ and in His Atonement, to assist them in making and keeping their covenants with God, and to strengthen and seal their families. In this complex world today, this is not easy. *The adversary is increasing his attacks on faith and upon us and our families at an exponential rate.* To survive spiritually, we need *counterstrategies and proactive plans*” (“[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7; emphasis added).
+A year ago, in his opening remarks of the October 2018 general conference, President Russell M. Nelson provided this declaration and warning: “The long-standing objective of the Church is to assist all members to increase their faith in our Lord Jesus Christ and in His Atonement, to assist them in making and keeping their covenants with God, and to strengthen and seal their families. In this complex world today, this is not easy. *The adversary is increasing his attacks on faith and upon us and our families at an exponential rate.* To survive spiritually, we need *counterstrategies and proactive plans*” (“[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7; emphasis added).
 
-Following President Nelson’s message, Elder Quentin L. Cook of the Quorum of the Twelve Apostles introduced the *Come, Follow Me* resource for individuals and families. His remarks included the following statements:
+Following President Nelson’s message, Elder Quentin L. Cook of the Quorum of the Twelve Apostles introduced the *Come, Follow Me* resource for individuals and families. His remarks included the following statements:
 
 - “The new home-study *Come, Follow Me* resource … is designed to help members learn the gospel in the home.”
 
-- “‘This resource is for every individual and family in the Church’ \[*Come, Follow Me—For Individuals and Families* (2019), vi\].”
+- “‘This resource is for every individual and family in the Church’ \[*[Come, Follow Me—For Individuals and Families](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2019/using?lang=eng)* (2019), vi\].”
 
 - “Our purpose is to balance the Church and the home experiences in a way that will greatly increase faith and spirituality and deepen conversion to Heavenly Father and the Lord Jesus Christ.” (“[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2018, 9–10.)
 
@@ -74,11 +74,9 @@ How can the attacks of the adversary be increasing exponentially while at the sa
 
 After all, as President Nelson also said, “We are each responsible for our individual spiritual growth” (“[[2018 October - Opening Remarks.md|Opening Remarks]],” 8).
 
-With the *Come, Follow Me* resource, the Lord is preparing us “for the perilous times that we now face” (Quentin L. Cook, “[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion]],” 10). He is helping us establish that “sure foundation, a foundation whereon if men build they cannot fall” ([[Helaman 5.12|Helaman 5:12]])—the foundation of a testimony anchored firmly in the bedrock of our conversion to the Lord Jesus Christ.
+With the *Come, Follow Me* resource, the Lord is preparing us “for the perilous times that we now face” (Quentin L. Cook, “[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion]],” 10). He is helping us establish that “sure foundation, a foundation whereon if men build they cannot fall” ([[Helaman 5.12|Helaman 5:12]])—the foundation of a testimony anchored firmly in the bedrock of our conversion to the Lord Jesus Christ.
 
 May our daily efforts in studying the scriptures fortify us and prove us worthy of these promised blessings. I so pray in the name of Jesus Christ, amen.
-
-
 
 
 

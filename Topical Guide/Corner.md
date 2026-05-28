@@ -1,9 +1,8 @@
 # Corner
 
-
 dwell in Samaria in the *corner* of a bed, [[Amos 3.12|Amos 3:12]].
 
-hypocrites ... pray ... in the *corners* of the streets, [[Matthew 6.5|Matthew 6:5]].
+hypocrites … pray … in the *corners* of the streets, [[Matthew 6.5|Matthew 6:5]].
 
 sheet knit at the four *corners*, [[Acts 10.11|Acts 10:11]] ([[Acts 11.5|Acts 11:5]]).
 

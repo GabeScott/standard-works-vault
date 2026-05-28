@@ -1,9 +1,8 @@
 # Cleanse
 
+*See also* [[Baptism.md|Baptism]]; [[Clean.md|Clean]]; [[Cleanliness.md|Cleanliness]]; [[Earth, Cleansing of.md|Earth, Cleansing of]]; [[Flood.md|Flood]]; [[Purification.md|Purification]]; [[Sanctification.md|Sanctification]]; [[Wash.md|Wash]]; [[World, End of.md|World, End of]]
 
-*See also* [[Baptism.md|Baptism]]; [[Clean.md|Clean]]; [[Cleanliness.md|Cleanliness]]; [[Earth, Cleansing of.md|Earth, Cleansing of]]; [[Flood.md|Flood]]; [[Purification, Purify, Purifying.md|Purification]]; [[Sanctification, Sanctify.md|Sanctification]]; [[Wash, Washing.md|Wash]]; [[World, End of.md|World, End of]]
-
-*cleanse* it, and hallow it from the uncleanness of ... Israel, [[Leviticus 16.19|Leviticus 16:19]].
+*cleanse* it, and hallow it from the uncleanness of … Israel, [[Leviticus 16.19|Leviticus 16:19]].
 
 to *cleanse* the house of the Lord, [[2 Chronicles 29.15|2 Chronicles 29:15]].
 
@@ -11,7 +10,7 @@ to *cleanse* the house of the Lord, [[2 Chronicles 29.15|2 Chronicles 29:15]].
 
 I will *cleanse* them from all their iniquity, [[Jeremiah 33.8|Jeremiah 33:8]].
 
-I will save them ... and will *cleanse* them, [[Ezekiel 37.23|Ezekiel 37:23]].
+I will save them … and will *cleanse* them, [[Ezekiel 37.23|Ezekiel 37:23]].
 
 then shall the sanctuary be *cleansed*, [[Daniel 8.14|Daniel 8:14]].
 
@@ -31,7 +30,7 @@ let us *cleanse* ourselves from all filthiness, [[2 Corinthians 7.1|2 Corinthian
 
 blood of Jesus Christ his Son *cleanseth* us, [[1 John 1.7|1 John 1:7]].
 
-garments ... *cleansed* from all stain, [[Alma 5.21|Alma 5:21]].
+garments … *cleansed* from all stain, [[Alma 5.21|Alma 5:21]].
 
 *cleansed* and made white through the blood of Christ, [[Alma 5.27|Alma 5:27]].
 
@@ -47,7 +46,7 @@ blood shall not *cleanse* them if they hear me not, [[D&C 29.17|D&C 29:17]].
 
 except he be purified and *cleansed*, [[D&C 50.28|D&C 50:28]].
 
-he came into the world ... to *cleanse* it, [[D&C 76.41|D&C 76:41]].
+he came into the world … to *cleanse* it, [[D&C 76.41|D&C 76:41]].
 
 *cleanse* your feet even with water, [[D&C 84.92|D&C 84:92]].
 

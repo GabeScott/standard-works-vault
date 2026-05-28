@@ -42,4 +42,5 @@ May a humble and submissive heart be our empowerment from God, with all of its a
 
 
 
-#Adversity #Couple_Missionaries #Gratitude #Humility
+
+#Adversity #CoupleMissionaries #Gratitude #Humility

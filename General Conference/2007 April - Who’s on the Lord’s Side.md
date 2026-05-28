@@ -27,13 +27,13 @@ Her life that followed was not an easy one. Years later, she wrote these words:
 
 Although these are the words of a song we do not sing very often, it has become one of my favorite hymns because of the commitment to truth and right. In fact, it is a question that should be in the mind of each young man and each young woman the world over: “Who’s on the Lord’s side?” And our resounding answer should be, *“I am!”*
 
-It was the question that was in the mind of Nephi when the Lord, through Nephi’s father, Lehi, directed Nephi and his brothers to go back to Jerusalem to obtain the brass plates. When Laman and Lemuel murmured, the question came to Nephi, “Who’s on the Lord’s side?” to which he responded, *“I am!”* in the words, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Nephi 3:7]]).
+It was the question that was in the mind of Nephi when the Lord, through Nephi’s father, Lehi, directed Nephi and his brothers to go back to Jerusalem to obtain the brass plates. When Laman and Lemuel murmured, the question came to Nephi, “Who’s on the Lord’s side?” to which he responded, *“I am!”* in the words, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Nephi 3:7]]).
 
 It was the same with young David in the Old Testament. Remember how, as a young shepherd, he visited his brothers on the battlefront. While there he heard the taunts of the giant Philistine, Goliath, to the men of Israel—challenging them to battle. And all Israel’s warriors were afraid to face the giant. Their response to the question “Who’s on the Lord’s side?” was not “I am!” but rather “Who me?”
 
-But not the boy David. Taking only stones and a simple shepherd’s sling, he approached the giant, saying: “Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts. …
+But not the boy David. Taking only stones and a simple shepherd’s sling, he approached the giant, saying: “Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts. …
 
-“This day will the Lord deliver thee into mine hand; … that all the earth may know that there is a God in Israel” ([[1 Samuel 17.45|1 Samuel 17:45–46]][[1 Samuel 17.46|]]). And at that point David did not timidly walk but *ran* to meet the giant. And because of David’s faith in God, Goliath was slain and Israel prevailed.
+“This day will the Lord deliver thee into mine hand; … that all the earth may know that there is a God in Israel” ([[1 Samuel 17.45|1 Samuel 17:45–46]][[1 Samuel 17.46|]]). And at that point David did not timidly walk but *ran* to meet the giant. And because of David’s faith in God, Goliath was slain and Israel prevailed.
 
 My young brethren and sisters, wherever I travel, I meet noble youth just like you who are faced constantly with modern-day Goliaths in the form of temptations that would cause us to violate our covenants and the standards the Lord has given us. This becomes even more important when you are surrounded daily with profanity, socially accepted immorality, immodesty, pornography, and other inappropriate material in the media, including television and the Internet, and widespread availability of drugs and alcohol. In a word, not a day goes by that we are not asked, in one form or another, “Who’s on the Lord’s side? Who?” I have two simple suggestions to help you prepare your answer to that question.
 
@@ -55,4 +55,5 @@ I testify to you that God lives. I know that we are His children, that He knows 
 
 
 
-#Adversity #Agency #Divine_Nature #Music #Obedience #Parenthood #Prayer #Sacrifice
+
+#Agency #Adversity #DivineNature #Music #Obedience #Parenthood #Prayer #Sacrifice

@@ -8,11 +8,11 @@ By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 Following baptism, one is confirmed a member of The Church of Jesus Christ of Latter-day Saints in a brief ordinance, during which there is conferred the gift of the Holy Ghost. Thereafter, all through life, men, women, and even little children receive the right to inspired direction to guide them in their lives—personal revelation! (See [[Alma 32.23|Alma 32:23]].)
 
-The Holy Ghost communicates with the spirit through the mind more than through the physical senses. This guidance comes as thoughts, as feelings, through impressions and promptings. It is not always easy to describe inspiration. The scriptures teach us that we may “feel” the words of spiritual communication more than hear them, and see with spiritual rather than with mortal eyes. (See [[1 Nephi 17.45|1 Ne. 17:45]].)
+The Holy Ghost communicates with the spirit through the mind more than through the physical senses. This guidance comes as thoughts, as feelings, through impressions and promptings. It is not always easy to describe inspiration. The scriptures teach us that we may “feel” the words of spiritual communication more than hear them, and see with spiritual rather than with mortal eyes. (See [[1 Nephi 17.45|1 Ne. 17:45]].)
 
 The patterns of revelation are not dramatic. The voice of inspiration is a still voice, a small voice. There need be no trance, no sanctimonious declaration. It is quieter and simpler than that.
 
-The Book of Mormon teaches that “angels speak by the power of the Holy Ghost” ([[2 Nephi 32.3|2 Ne. 32:3]]) and records that even though an angel spoke to some, they “were past *feeling,* that \[they\] could not *feel* his words” ([[1 Nephi 17.45|1 Ne. 17:45]]; italics added).
+The Book of Mormon teaches that “angels speak by the power of the Holy Ghost” ([[2 Nephi 32.3|2 Ne. 32:3]]) and records that even though an angel spoke to some, they “were past *feeling,* that \[they\] could not *feel* his words” ([[1 Nephi 17.45|1 Ne. 17:45]]; italics added).
 
 If you have experienced inspiration, you understand.
 
@@ -60,7 +60,7 @@ There are those within the Church who are disturbed when changes are made with w
 
 They write and speak to convince others that the doctrines and decisions of the Brethren are not given through inspiration.
 
-Two things characterize them: they are always irritated by the word *obedience,* and always they question revelation. It has always been so. Helaman described those who “began to disbelieve in the spirit of prophecy and in the spirit of revelation; and the judgments of God did stare them in the face.” ([[Helaman 4.23|Hel. 4:23]].) “They were left in their own strength” ([[Helaman 4.13|v. 13]]), and “the Spirit of the Lord did no more preserve them; yea, it had withdrawn from them” ([[Helaman 4.24|v. 24]]).
+Two things characterize them: they are always irritated by the word *obedience,* and always they question revelation. It has always been so. Helaman described those who “began to disbelieve in the spirit of prophecy and in the spirit of revelation; and the judgments of God did stare them in the face.” ([[Helaman 4.23|Hel. 4:23]].) “They were left in their own strength” ([[Helaman 4.13|v. 13]]), and “the Spirit of the Lord did no more preserve them; yea, it had withdrawn from them” ([[Helaman 4.24|v. 24]]).
 
 Changes in organization or procedures are a testimony that revelation is ongoing. While doctrines remain fixed, the methods or procedures do not.
 
@@ -98,7 +98,7 @@ He told the Saints that when enemies prevented them from keeping a commandment, 
 
 “The iniquity and transgression of my holy laws and commandments I will visit upon the heads of those who hindered my work, unto the third and fourth generation, so long as they repent not.” ([[D&C 124.50|D&C 124:50]].)
 
-The gospel plan was revealed line upon line, precept upon precept, here a little, and there a little. And it goes on: “We believe that He will yet reveal many great and important things pertaining to the Kingdom of God.” ([[Articles of Faith 1.9|A of F 1:9]].)
+The gospel plan was revealed line upon line, precept upon precept, here a little, and there a little. And it goes on: “We believe that He will yet reveal many great and important things pertaining to the Kingdom of God.” ([[Articles of Faith 1.9|A of F 1:9]].)
 
 There will be changes made in the future as in the past. Whether the Brethren make changes or resist them depends entirely upon the instructions they receive through the channels of revelation which were established in the beginning.
 
@@ -117,6 +117,4 @@ Revelation continues with us today. The promptings of the Spirit, the dreams, an
 
 
 
-
-
-#Holy_Ghost #Leadership #Spirituality #Word_Of_Wisdom
+#HolyGhost #Leadership #Spirituality #WordOfWisdom

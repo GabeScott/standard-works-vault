@@ -6,7 +6,7 @@ By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1988/10/a-call-to-serve?lang=eng)
 
-As we all stood a few moments ago and joined in singing “The Spirit of God like a fire is burning” (*Hymns,* 1985, no. 2), I could visualize that beautiful little temple in Kirtland, Ohio, built by valiant Saints during their poverty and relentless persecution but sustained by their abundant faith in God. In my mind’s eye I could see the temple filled with devout Saints awaiting the moment of dedication, and many gathered outside hoping to hear the inspired prayer of their prophet, for they knew “the authority of God was upon him.” (Matthias Cowley, *Wilford Woodruff: History of His Life and Labors,* Salt Lake City: Bookcraft, 1964, p. 68.) And then that moment of joy that must have filled their hearts as they joined in singing a new hymn, “The Spirit of God like a Fire Is Burning,” which was hastily scribbled on the back of an envelope by Brother Phelps, so as not to lose the spirit of heaven that he felt.
+As we all stood a few moments ago and joined in singing “The Spirit of God like a fire is burning” (*Hymns,* 1985, no. 2), I could visualize that beautiful little temple in Kirtland, Ohio, built by valiant Saints during their poverty and relentless persecution but sustained by their abundant faith in God. In my mind’s eye I could see the temple filled with devout Saints awaiting the moment of dedication, and many gathered outside hoping to hear the inspired prayer of their prophet, for they knew “the authority of God was upon him.” (Matthias Cowley, *Wilford Woodruff: History of His Life and Labors,* Salt Lake City: Bookcraft, 1964, p. 68.) And then that moment of joy that must have filled their hearts as they joined in singing a new hymn, “The Spirit of God like a Fire Is Burning,” which was hastily scribbled on the back of an envelope by Brother Phelps, so as not to lose the spirit of heaven that he felt.
 
 We, as did they, have sung today:
 
@@ -22,15 +22,15 @@ The Spirit filled their hearts then, as we have been blessed this afternoon.
 
 How grateful we are for our pioneer heritage and early history as the gospel has been revealed and restored in purity and truth. Only 150 years separate the sacrifices and struggles of Kirtland from today’s anxieties and personal challenges.
 
-“I suppose every Mormon \[man and\] woman \[have\] measured \[themselves\] at one time or another against \[their pioneer ancestors\],” wrote Laurel Thatcher Ulrich. “Am I as stalwart? As self-reliant? As devoted to the gospel? As willing to sacrifice?” Could I leave my wife and children without food or means to support themselves while I responded to a call to serve a mission abroad, or take these same innocent ones, dependent solely upon me for their survival, into hostile territory to set up housekeeping and provide a livelihood for them? Or, were I a woman, “could I crush my best china to add glitter to a temple, bid loving farewell to a missionary husband as I lay in a wagon bed with fever and chills, leave all that I possessed and walk across the plains to an arid wilderness?” (“A Pioneer Is Not a Woman Who Makes Her Own Soap,” *Ensign,* June 1978, p. 54.)
+“I suppose every Mormon \[man and\] woman \[have\] measured \[themselves\] at one time or another against \[their pioneer ancestors\],” wrote Laurel Thatcher Ulrich. “Am I as stalwart? As self-reliant? As devoted to the gospel? As willing to sacrifice?” Could I leave my wife and children without food or means to support themselves while I responded to a call to serve a mission abroad, or take these same innocent ones, dependent solely upon me for their survival, into hostile territory to set up housekeeping and provide a livelihood for them? Or, were I a woman, “could I crush my best china to add glitter to a temple, bid loving farewell to a missionary husband as I lay in a wagon bed with fever and chills, leave all that I possessed and walk across the plains to an arid wilderness?” (“A Pioneer Is Not a Woman Who Makes Her Own Soap,” *Ensign,* June 1978, p. 54.)
 
 Some may feel that their lives of relative ease and convenience lack the vigor and fortitude of those who survived the pioneer days, that they can never measure up to the toil, struggles, and challenges our pioneer ancestors faced and emerge the victor.
 
-Yet, “Our challenges are just as important as those of the past. Our testing is as crucial; our contributions may be as great. …
+Yet, “Our challenges are just as important as those of the past. Our testing is as crucial; our contributions may be as great. …
 
-“An essential quality of the first pioneers was optimism, an ability to see new possibilities in a strange and unsettling environment. To beautify the desert, they needed faith in God, but they also needed faith in themselves and in their ability to help shape the world. The need for that faith has not diminished. …
+“An essential quality of the first pioneers was optimism, an ability to see new possibilities in a strange and unsettling environment. To beautify the desert, they needed faith in God, but they also needed faith in themselves and in their ability to help shape the world. The need for that faith has not diminished. …
 
-“A pioneer is not \[necessarily\] a woman who makes her own soap” or a man who grubs sagebrush from the land. (*Ensign,* June 1978, pp. 54–55.) Pioneers are those who take up their burdens and walk toward the future. With vision and with courage they make the desert blossom and they press on toward new frontiers. (Ibid., p. 55.)
+“A pioneer is not \[necessarily\] a woman who makes her own soap” or a man who grubs sagebrush from the land. (*Ensign,* June 1978, pp. 54–55.) Pioneers are those who take up their burdens and walk toward the future. With vision and with courage they make the desert blossom and they press on toward new frontiers. (Ibid., p. 55.)
 
 The Lord emphasized one such frontier when he declared, “purify your hearts before me; and then go ye into all the world, and preach my gospel unto every creature who has not received it.” ([[D&C 112.28|D&C 112:28]].)
 
@@ -38,11 +38,11 @@ An inspired prophet, David O. McKay, expanded this fundamental principle in 1959
 
 In 1974 another prophet, Spencer W. Kimball, broadened our vision as he encouraged us to serve more diligently by lengthening our stride.
 
-Our living prophet today, President Ezra Taft Benson, declared: “Missionary work—the preaching of the gospel—has been the major activity of the true Church of Christ whenever the gospel has been upon the earth.” (In Conference Report, Apr. 1970, p. 127; or *Improvement Era,* June 1970, p. 95.)
+Our living prophet today, President Ezra Taft Benson, declared: “Missionary work—the preaching of the gospel—has been the major activity of the true Church of Christ whenever the gospel has been upon the earth.” (In Conference Report, Apr. 1970, p. 127; or *Improvement Era,* June 1970, p. 95.)
 
 Each of us has a sacred duty to personally assist the accomplishment of the mission of the Church in proclaiming the gospel of our Lord Jesus Christ, perfecting the Saints to receive the ordinances of the gospel, and the teaching of the doctrines of salvation and the temple.
 
-“All three are part of one work—to assist our Father in Heaven and His Son … in Their grand and glorious mission ‘to bring to pass the immortality and eternal life of man’ ([[Moses 1.39|Moses 1:39]]).” (Spencer W. Kimball, in Conference Report, Apr. 1970, p. 127; or *Ensign,* May 1981, p. 5).
+“All three are part of one work—to assist our Father in Heaven and His Son … in Their grand and glorious mission ‘to bring to pass the immortality and eternal life of man’ ([[Moses 1.39|Moses 1:39]]).” (Spencer W. Kimball, in Conference Report, Apr. 1970, p. 127; or *Ensign,* May 1981, p. 5).
 
 In the spirit of these prophetic watchwords, there is a continuing but growing need to extend the frontiers of new member conversion, fellowshipping, and activating the lost or the offended or ignored far beyond our previous levels.
 
@@ -64,11 +64,11 @@ The sister replied, “my husband.”
 
 Directed by the Spirit how to approach this husband, they taught him the gospel and rejoiced with his wife at his baptism.
 
-Fourteen families have now become active and will go to the temple this year because of the efforts of these full-time grandmother missionaries coordinating with the stake missionaries and properly following a plan in fellowshipping new members. A change has come about in the whole stake that has influenced the less active as well as nonmembers. (See *Church News,* 10 Sept. 1988, pp. 8, 9, 12.)
+Fourteen families have now become active and will go to the temple this year because of the efforts of these full-time grandmother missionaries coordinating with the stake missionaries and properly following a plan in fellowshipping new members. A change has come about in the whole stake that has influenced the less active as well as nonmembers. (See *Church News,* 10 Sept. 1988, pp. 8, 9, 12.)
 
 When people are taught and then fellowshipped with warmth and continued interest until they are integrated into the mainstream of the Church, they are “remembered and nourished by the good word of God, to keep them in the right way.” ([[Moroni 6.4|Moro. 6:4]].) By working together, stake missionaries and full-time missionaries are able to keep new converts involved as they gain gospel knowledge and a needed testimony. They are also bringing back into fellowship the less active.
 
-In stressing the need for mature men and women to be about the work of the Lord, President Benson related the experience of his two widowed sisters. One was the mother of ten children and the other the mother of eight. After they had sent their children on missions, they approached their bishops about going on missions themselves. President Benson relates that he remembers well the day a number of years ago when they called him and said, “Guess what? We have received our missionary calls.” President Benson said, “What missionary calls?” And they replied, “We’re both going to your old field of labor in England.” (In Conference Report, Apr. 1984, p. 66; or *Ensign,* May 1984, p. 45.)
+In stressing the need for mature men and women to be about the work of the Lord, President Benson related the experience of his two widowed sisters. One was the mother of ten children and the other the mother of eight. After they had sent their children on missions, they approached their bishops about going on missions themselves. President Benson relates that he remembers well the day a number of years ago when they called him and said, “Guess what? We have received our missionary calls.” President Benson said, “What missionary calls?” And they replied, “We’re both going to your old field of labor in England.” (In Conference Report, Apr. 1984, [[1984 April - Our Commission to Take the Gospel to All the World.md|p. 66]]; or *Ensign,* May 1984, p. 45.)
 
 They did go to England and served as companions for twenty months.
 
@@ -119,6 +119,4 @@ Now, my dear friends, as we near the closing moments of this historic conference
 
 
 
-
-
-#Mission_Of_The_Church #Missionary_Work #Sacrifice
+#MissionOfTheChurch #MissionaryWork #Sacrifice

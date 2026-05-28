@@ -22,7 +22,7 @@ For many years the First Presidency and the Quorum of the Twelve Apostles have h
 
 “Copies of these materials will be sent to each stake for distribution to wards by December 2001, for implementation in January 2002.” Thus ended the First Presidency’s historic letter.
 
-We live in a very difficult era in the history of the world, when Satan is going to and fro on the earth among the children of God, doing all manner of evil to thwart the desires of a righteous God. The scriptures teach us that Satan’s evil designs upon the peoples of the earth will intensify as the Second Coming of our Lord and Savior Jesus Christ draws near at hand (see [[2 Thessalonians 2.1|2 Thes. 2:1–10]][[2 Thessalonians 2.2|]][[2 Thessalonians 2.3|]][[2 Thessalonians 2.4|]][[2 Thessalonians 2.5|]][[2 Thessalonians 2.6|]][[2 Thessalonians 2.7|]][[2 Thessalonians 2.8|]][[2 Thessalonians 2.9|]][[2 Thessalonians 2.10|]]; [[D&C 10.33|D&C 10:33]]; [[D&C 52.14|52:14]]; [[D&C 86.3|86:3–10]][[D&C 86.4|]][[D&C 86.5|]][[D&C 86.6|]][[D&C 86.7|]][[D&C 86.8|]][[D&C 86.9|]][[D&C 86.10|]]).
+We live in a very difficult era in the history of the world, when Satan is going to and fro on the earth among the children of God, doing all manner of evil to thwart the desires of a righteous God. The scriptures teach us that Satan’s evil designs upon the peoples of the earth will intensify as the Second Coming of our Lord and Savior Jesus Christ draws near at hand (see [[2 Thessalonians 2.1|2 Thes. 2:1–10]][[2 Thessalonians 2.2|]][[2 Thessalonians 2.3|]][[2 Thessalonians 2.4|]][[2 Thessalonians 2.5|]][[2 Thessalonians 2.6|]][[2 Thessalonians 2.7|]][[2 Thessalonians 2.8|]][[2 Thessalonians 2.9|]][[2 Thessalonians 2.10|]]; [[D&C 10.33|D&C 10:33]]; [[D&C 52.14|52:14]]; [[D&C 86.3|86:3–10]][[D&C 86.4|]][[D&C 86.5|]][[D&C 86.6|]][[D&C 86.7|]][[D&C 86.8|]][[D&C 86.9|]][[D&C 86.10|]]).
 
 There has never been a time in these latter days like today, when the message is being brought forward so strongly by the First Presidency and the Quorum of the Twelve Apostles to have parents along with bishops and priesthood and auxiliary leaders make sure you young men understand who you are and what you can become—not only here in mortality but for the eternities that will follow.
 
@@ -80,7 +80,7 @@ Discipleship and duty to God are shown in the lives of prophets throughout the s
 
 Young Joseph Smith said, “*I obeyed;* I returned to my father in the field, and rehearsed the whole matter to him” ([[Joseph Smith History 1.50|JS—H 1:50]]; emphasis added).
 
-Elijah “*went and did* according unto the word of the Lord” ([[1 Kings 17.5|1 Kgs. 17:5]]; emphasis added).
+Elijah “*went and did* according unto the word of the Lord” ([[1 Kings 17.5|1 Kgs. 17:5]]; emphasis added).
 
 “Thus did Noah; *according to all that God commanded him, so did he*” ([[Genesis 6.22|Gen. 6:22]]; emphasis added).
 
@@ -94,7 +94,7 @@ The First Presidency and Quorum of the Twelve Apostles have counseled each holde
 
 “You can provide service, giving of your time, talents, and energies without thought of reward. You can fulfill priesthood duties, such as \[preparing, passing, and\] blessing the sacrament\[, gathering fast offerings, helping others,\] and serving as a home teacher. You can lift others by your example. You can strengthen yourself, building faith and testimony, living the gospel while you learn it and share it.
 
-“You have a responsibility to learn what Heavenly Father wants you to do and then to do your best to follow His will. …
+“You have a responsibility to learn what Heavenly Father wants you to do and then to do your best to follow His will. …
 
 “The Lord believes in you and has an important mission for you to do. He will help you as you turn to Him in prayer. Listen for the promptings of the Spirit. Obey the commandments. Make and keep covenants that will prepare you for the temple. Work with your parents and leaders as you set goals and strive to achieve them. You will feel a great sense of accomplishment as you fulfill your duty and prepare for the exciting challenges of the future” (*Aaronic Priesthood: Fulfilling Our Duty to God \[Priest\]* \[2001\], 4–5).
 
@@ -109,6 +109,4 @@ I testify to the truthfulness of this work and the restoration of the priesthood
 
 
 
-
-
-#Agency #Discipleship #Family #Goals #Holy_Ghost #Jesus_Christ #Priesthood #Responsibility #Satan #Scouting #Scriptures #Service #Temples #Testimony #Young_Women #Youth
+#Agency #Discipleship #Family #Goals #HolyGhost #JesusChrist #Priesthood #Responsibility #Scouting #Satan #Scriptures #Service #Temples #Testimony #YoungWomen #Youth

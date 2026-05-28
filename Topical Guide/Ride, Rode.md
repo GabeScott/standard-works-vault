@@ -1,6 +1,5 @@
 # Ride, Rode
 
-
 he was *riding* upon his ass, [[Numbers 22.22|Numbers 22:22]].
 
 who *rideth* upon the heaven in thy help, [[Deuteronomy 33.26|Deuteronomy 33:26]].
@@ -13,7 +12,7 @@ the Lord *rideth* upon a swift cloud, [[Isaiah 19.1|Isaiah 19:1]].
 
 I will cause thee to *ride* upon the high places, [[Isaiah 58.14|Isaiah 58:14]].
 
-saw ... a man *riding* upon a red horse, [[Zechariah 1.8|Zechariah 1:8]].
+saw … a man *riding* upon a red horse, [[Zechariah 1.8|Zechariah 1:8]].
 
 *riding* upon an ass, and upon a colt the foal of an ass, [[Zechariah 9.9|Zechariah 9:9]].
 

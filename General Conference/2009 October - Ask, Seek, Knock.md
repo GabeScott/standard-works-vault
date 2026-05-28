@@ -50,24 +50,24 @@ Revelation from God is always compatible with His eternal law. It never contradi
 
 “Great shall be their reward and eternal shall be their glory.
 
-“… To them will I reveal all mysteries \[and\] my will concerning all things pertaining to my kingdom.”[^13]
+“… To them will I reveal all mysteries \[and\] my will concerning all things pertaining to my kingdom.”[^13]
 
 Revelation need not all come at once. It may be incremental. “Saith the Lord God: I will give unto the children of men line upon line, precept upon precept, here a little and there a little; and blessed are those who hearken unto my precepts, and lend an ear unto my counsel, for they shall learn wisdom; for unto him that receiveth I will give more.”[^14] Patience and perseverance are part of our eternal progression.
 
-Prophets have described what they felt while receiving revelation. Joseph Smith and Oliver Cowdery reported that “the veil was taken from our minds, and the eyes of our understanding were opened.”[^15] President Joseph F. Smith wrote, “As I pondered over these things which are written, the eyes of my understanding were opened, and the Spirit of the Lord rested upon me.”[^16]
+Prophets have described what they felt while receiving revelation. Joseph Smith and Oliver Cowdery reported that “the veil was taken from our minds, and the eyes of our understanding were opened.”[^15] President Joseph F. Smith wrote, “As I pondered over these things which are written, the eyes of my understanding were opened, and the Spirit of the Lord rested upon me.”[^16]
 
-Every Latter-day Saint may merit personal revelation. The invitation to ask, seek, and knock for divine direction exists because God lives and Jesus is the living Christ. It exists because this is His living Church.[^17] And we are blessed today because President Thomas S. Monson is His living prophet. That we may hearken to and heed his prophetic counsel is my prayer in the name of Jesus Christ, amen.
-
-
+Every Latter-day Saint may merit personal revelation. The invitation to ask, seek, and knock for divine direction exists because God lives and Jesus is the living Christ. It exists because this is His living Church.[^17] And we are blessed today because President Thomas S. Monson is His living prophet. That we may hearken to and heed his prophetic counsel is my prayer in the name of Jesus Christ, amen.
 
 
-[^1]: [[Matthew 7.7|Matthew 7:7]]; [[Luke 11.9|Luke 11:9]]; emphasis added; see also [[3 Nephi 14.7|3 Nephi 14:7]]; [[JST Matthew 7.12|Joseph Smith Translation, Matthew 7:12]], in Bible appendix.
+
+
+[^1]: [[Matthew 7.7|Matthew 7:7]]; [[Luke 11.9|Luke 11:9]]; emphasis added; see also [[3 Nephi 14.7|3 Nephi 14:7]]; [[JST Matthew 7.12|Joseph Smith Translation, Matthew 7:12]], in Bible appendix.
 
 [^2]: [[Moroni 10.4|Moroni 10:4]].
 
 [^3]: [[D&C 9.8|D&C 9:8]].
 
-[^4]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^4]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^5]: See [[Mosiah 5.2|Mosiah 5:2]]; [[Alma 5.12|Alma 5:12–14]][[Alma 5.13|]][[Alma 5.14|]].
 
@@ -81,20 +81,18 @@ Every Latter-day Saint may merit personal revelation. The invitation to ask, see
 
 [^10]: After the death of President Brigham Young in 1877, the affairs of the Church were directed by the Quorum of the Twelve Apostles. The apostolic interregnum continued until 1880, when the First Presidency was reorganized. John Taylor was President of the Quorum of the Twelve when this counsel was given on February 23, 1878.
 
-[^11]: John Taylor, in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (1965–75), 2:307.
+[^11]: John Taylor, in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (1965–75), 2:307.
 
 [^12]: [[D&C 4.5|D&C 4:5–6]][[D&C 4.6|]]; emphasis added; see also [[D&C 4.7|verse 7]].
 
 [^13]: [[D&C 76.5|D&C 76:5–7]][[D&C 76.6|]][[D&C 76.7|]].
 
-[^14]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^14]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^15]: [[D&C 110.1|D&C 110:1]].
 
 [^16]: [[D&C 138.11|D&C 138:11]]. Then followed the revelation about the preaching of the gospel to those who had died without an opportunity to hear the gospel in mortality (see [[D&C 138.29|verses 29–37]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]]).
 
 [^17]: See [[D&C 1.30|D&C 1:30]].
-
-
 
 #Prayer #Spirituality #Truth

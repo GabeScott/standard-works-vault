@@ -1,15 +1,14 @@
 # Strange
 
-
-Joseph ... made himself *strange* unto them, [[Genesis 42.7|Genesis 42:7]].
+Joseph … made himself *strange* unto them, [[Genesis 42.7|Genesis 42:7]].
 
 Ye shall offer no *strange* incense, [[Exodus 30.9|Exodus 30:9]].
 
-sons of Aaron ... offered *strange* fire, [[Leviticus 10.1|Leviticus 10:1]].
+sons of Aaron … offered *strange* fire, [[Leviticus 10.1|Leviticus 10:1]].
 
-separate yourselves ... from the *strange* wives, [[Ezra 10.11|Ezra 10:11]].
+separate yourselves … from the *strange* wives, [[Ezra 10.11|Ezra 10:11]].
 
-his work, his *strange* work ... his act, his *strange* act, [[Isaiah 28.21|Isaiah 28:21]].
+his work, his *strange* work … his act, his *strange* act, [[Isaiah 28.21|Isaiah 28:21]].
 
 art not sent to a people of a *strange* speech, [[Ezekiel 3.5|Ezekiel 3:5]].
 
@@ -21,7 +20,7 @@ carried about with divers and *strange* doctrines, [[Hebrews 13.9|Hebrews 13:9]]
 
 think it *strange* that ye run not with them, [[1 Peter 4.4|1 Peter 4:4]].
 
-as Sodom and Gomorrha ... going after *strange* flesh, [[Jude 1.7|Jude 1:7]].
+as Sodom and Gomorrha … going after *strange* flesh, [[Jude 1.7|Jude 1:7]].
 
 lost from his view, wandering in *strange* roads, [[1 Nephi 8.32|1 Nephi 8:32]].
 

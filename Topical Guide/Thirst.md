@@ -1,6 +1,5 @@
 # Thirst
 
-
 *See also* [[Athirst.md|Athirst]]; [[Thirsty.md|Thirsty]]
 
 people *thirsted* there for water, [[Exodus 17.3|Exodus 17:3]].
@@ -27,9 +26,9 @@ he that believeth on me shall never *thirst*, [[John 6.35|John 6:35]].
 
 If any man *thirst*, let him come unto me, and drink, [[John 7.37|John 7:37]].
 
-Jesus ... saith, I *thirst*, [[John 19.28|John 19:28]].
+Jesus … saith, I *thirst*, [[John 19.28|John 19:28]].
 
-if thine enemy ... *thirst*, give him drink, [[Romans 12.20|Romans 12:20]].
+if thine enemy … *thirst*, give him drink, [[Romans 12.20|Romans 12:20]].
 
 children of Israel might quench their *thirst*, [[1 Nephi 17.29|1 Nephi 17:29]].
 
@@ -42,5 +41,3 @@ afflicted with hunger and *thirst*, [[Alma 37.42|Alma 37:42]].
 his soul shall never hunger nor *thirst*, [[3 Nephi 20.8|3 Nephi 20:8]].
 
 they *thirst* after blood and revenge, [[Moroni 9.5|Moroni 9:5]].
-
-*See also* [[2 Corinthians 11.27|2 Corinthians 11:27]].

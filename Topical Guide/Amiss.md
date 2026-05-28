@@ -1,6 +1,5 @@
 # Amiss
 
-
 which speak any thing *amiss* against the God, [[Daniel 3.29|Daniel 3:29]].
 
 receive not, because ye ask *amiss*, [[James 4.3|James 4:3]].

@@ -54,7 +54,7 @@ Next I speak of the spirit. Prior to our mortal existence here, each spirit son 
 
 “Seest thou that ye are created after mine own image? Yea, even all men were created in the beginning after mine own image.
 
-“… This body, which ye now behold, is the body of my spirit; and man have I created after the body of my spirit; and even as I appear unto thee to be in the spirit will I appear unto my people in the flesh.”[^14]
+“… This body, which ye now behold, is the body of my spirit; and man have I created after the body of my spirit; and even as I appear unto thee to be in the spirit will I appear unto my people in the flesh.”[^14]
 
 Development of the spirit is of eternal consequence. The attributes by which we shall be judged one day are those of the spirit.[^15] These include the virtues of integrity, compassion, love, and more.[^16] Your spirit, by being housed in your body, is able to develop and express these attributes in ways that are vital to your eternal progression.[^17]
 
@@ -93,7 +93,7 @@ Who are we? We are children of God.[^32] Our potential is unlimited. Our inherit
 
 [^3]: See Russell M. Nelson, “The Magnificence of Man,” *Ensign,* Jan. 1988, 64–69. The Psalmist stated: “When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained; what is man, that thou art mindful of him? … For thou hast made him a little lower than the angels, and hast crowned him with glory and honour” ([[Psalms 8.3|Ps. 8:3–5]][[Psalms 8.4|]][[Psalms 8.5|]]; see also [[Hebrews 2.7|Heb. 2:7, 9]][[Hebrews 2.9|]]).
 
-[^4]: See [[1 Corinthians 6.19|1 Cor. 6:19]].
+[^4]: See [[1 Corinthians 6.19|1 Cor. 6:19]].
 
 [^5]: About 7,570 liters.
 
@@ -119,7 +119,7 @@ Who are we? We are children of God.[^32] Our potential is unlimited. Our inherit
 
 [^16]: Such as “faith, virtue, knowledge, temperance, patience, brotherly kindness, godliness, charity, humility, \[and\] diligence” ([[D&C 4.6|D&C 4:6]]).
 
-[^17]: See [[2 Nephi 2.11|2 Ne. 2:11–16, 21–26]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]]; [[Moroni 10.33|Moro. 10:33–34]][[Moroni 10.34|]].
+[^17]: See [[2 Nephi 2.11|2 Ne. 2:11–16, 21–26]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]]; [[Moroni 10.33|Moro. 10:33–34]][[Moroni 10.34|]].
 
 [^18]: See [[D&C 138.17|D&C 138:17]].
 
@@ -133,24 +133,22 @@ Who are we? We are children of God.[^32] Our potential is unlimited. Our inherit
 
 [^23]: See [[D&C 46.33|D&C 46:33]].
 
-[^24]: See [[1 Corinthians 3.16|1 Cor. 3:16]].
+[^24]: See [[1 Corinthians 3.16|1 Cor. 3:16]].
 
-[^25]: Referring to the human body, the Apostle Paul taught, “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.17|1 Cor. 3:17]]).
+[^25]: Referring to the human body, the Apostle Paul taught, “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.17|1 Cor. 3:17]]).
 
-[^26]: See [[1 Corinthians 9.24|1 Cor. 9:24–27]][[1 Corinthians 9.25|]][[1 Corinthians 9.26|]][[1 Corinthians 9.27|]]; [[Hebrews 12.9|Heb. 12:9]].
+[^26]: See [[1 Corinthians 9.24|1 Cor. 9:24–27]][[1 Corinthians 9.25|]][[1 Corinthians 9.26|]][[1 Corinthians 9.27|]]; [[Hebrews 12.9|Heb. 12:9]].
 
-[^27]: See [[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]]; see also [[Romans 8.6|Rom. 8:6]]; [[2 Nephi 9.38|2 Ne. 9:38–39]][[2 Nephi 9.39|]]; [[D&C 29.34|D&C 29:34–35]][[D&C 29.35|]].
+[^27]: See [[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]]; see also [[Romans 8.6|Rom. 8:6]]; [[2 Nephi 9.38|2 Ne. 9:38–39]][[2 Nephi 9.39|]]; [[D&C 29.34|D&C 29:34–35]][[D&C 29.35|]].
 
 [^28]: [[Romans 8.13|Rom. 8:13]].
 
 [^29]: [[Romans 6.12|Rom. 6:12]].
 
-[^30]: [[1 Timothy 6.9|1 Tim. 6:9]].
+[^30]: [[1 Timothy 6.9|1 Tim. 6:9]].
 
-[^31]: [[1 Timothy 6.11|1 Tim. 6:11]]. [[1 Timothy 6.12|Verse 12]] continues: “Fight the good fight of faith, lay hold on eternal life.” That is our choice.
+[^31]: [[1 Timothy 6.11|1 Tim. 6:11]]. [[1 Timothy 6.12|Verse 12]] continues: “Fight the good fight of faith, lay hold on eternal life.” That is our choice.
 
 [^32]: Looking up scriptural references that refer to *create* or *form* (or their derivatives), with either *man, men, male,* or *female* in the same verse, I found 55 instances that attest to our divine creation. One may represent the many that convey the same message: “The Gods took counsel among themselves and said: Let us go down and form man in our image, after our likeness. … So the Gods went down to organize man in their own image, in the image of the Gods to form they him, male and female to form they them” ([[Abraham 4.26|Abr. 4:26–27]][[Abraham 4.27|]]).
 
-
-
-#Death #God_The_Father #Jesus_Christ #Love #Prayer #Resurrection #Spirituality
+#Death #GodTheFather #JesusChrist #Love #Prayer #Resurrection #Spirituality

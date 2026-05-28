@@ -1,6 +1,6 @@
 # Which Road Will You Travel?
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -12,7 +12,7 @@ Several days ago, while driving to my home, I approached the entrance to Interst
 
 Here was one who was content to travel in any direction, according to the whim of the driver who stopped to give him a free ride. What an enormous price to pay for such a ride. No plan. No objective. No goal. The road to anywhere is the road to nowhere, and the road to nowhere leads to dreams sacrificed, opportunities squandered, and a life unfulfilled.
 
-Unlike the youthful hitchhiker, you and I have the God-given gift to choose the direction we go. Indeed, the apostle Paul likened life to a race with a clearly defined goal. To the saints at Corinth he urged: “Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain.” ([[1 Corinthians 9.24|1 Cor. 9:24]].) In our zeal, let us not overlook the sage counsel from Ecclesiastes: “The race is not to the swift, nor the battle to the strong.” ([[Ecclesiastes 9.11|Eccl. 9:11]].) Actually, the prize belongs to him who endures to the end.
+Unlike the youthful hitchhiker, you and I have the God-given gift to choose the direction we go. Indeed, the apostle Paul likened life to a race with a clearly defined goal. To the saints at Corinth he urged: “Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain.” ([[1 Corinthians 9.24|1 Cor. 9:24]].) In our zeal, let us not overlook the sage counsel from Ecclesiastes: “The race is not to the swift, nor the battle to the strong.” ([[Ecclesiastes 9.11|Eccl. 9:11]].) Actually, the prize belongs to him who endures to the end.
 
 Each must ask himself the questions: “Where am I going?” “How do I intend to get there?” “Really, what is my divine destiny?”
 
@@ -54,7 +54,7 @@ Six months ago, while serving in Guatemala as a missionary for The Church of Jes
 
 After receiving emergency medical treatment, Randall was flown to a large hospital near his home in Rockville, Maryland. While confined there, a television newscaster conducted with Randall an interview which I witnessed through the miracle of television. The reporter asked, “Can you walk?” The answer, “Not yet, but I will.” “Do you think you will be able to complete your mission?” Came the reply, “Others think not, but I will.”
 
-With microphone in hand, the reporter continued: “I understand you have received a special letter containing a get-well message from none other than the president of the United States.” “Yes,” replied Randall, “I am very grateful to President Ford for his thoughtfulness; but I received another letter, not from the president of my country, but from the president of my church—The Church of Jesus Christ of Latter-day Saints—even President Spencer W. Kimball. This I cherish. With him praying for me, and the prayers of my family, my friends, and my missionary companions, I will return to Guatemala. The Lord wanted me to preach the gospel there for two years, and that’s what I intend to do.”
+With microphone in hand, the reporter continued: “I understand you have received a special letter containing a get-well message from none other than the president of the United States.” “Yes,” replied Randall, “I am very grateful to President Ford for his thoughtfulness; but I received another letter, not from the president of my country, but from the president of my church—The Church of Jesus Christ of Latter-day Saints—even President Spencer W. Kimball. This I cherish. With him praying for me, and the prayers of my family, my friends, and my missionary companions, I will return to Guatemala. The Lord wanted me to preach the gospel there for two years, and that’s what I intend to do.”
 
 I turned to my wife and commented, “He surely must not know the extent of his injuries. Our official medical reports would not permit us to expect such a return to Guatemala.”
 
@@ -81,8 +81,6 @@ Like Randall Ellsworth, may each of us know where he is going, be willing to mak
 Each will then have completed his journey, not to a nebulous “ANYWHERE,” but to his heavenly home—even eternal life in the celestial kingdom of God.
 
 May such be our goal and our reward is my prayer, in the name of Jesus Christ. Amen.
-
-
 
 
 

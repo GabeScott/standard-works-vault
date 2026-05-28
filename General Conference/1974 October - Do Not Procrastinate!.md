@@ -1,6 +1,6 @@
 # Do Not Procrastinate!
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -14,9 +14,9 @@ This emphasizes the fact that when the Lord comes again, he will come “to his 
 
 Moroni also quoted the fifth and sixth verses of chapter 4, which are slightly different from the Bible:
 
-“Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet, before the coming of the great and dreadful day of the Lord. …
+“Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet, before the coming of the great and dreadful day of the Lord. …
 
-“… and he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.” ([[Joseph Smith History 1.38|JS—H 1:38–39]][[Joseph Smith History 1.39|]].)
+“… and he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.” ([[Joseph Smith History 1.38|JS—H 1:38–39]][[Joseph Smith History 1.39|]].)
 
 It seems very significant to me that, among the *first* instructions to the Prophet in the process of the restoration of the gospel, this work, which has to do with temples and the ordinances performed therein, was given. This must be very fundamental to the essentials of the gospel of Jesus Christ.
 
@@ -53,6 +53,4 @@ I testify that this is the gospel of Jesus Christ, restored in these the latter 
 
 
 
-
-
-#Family_History #Temple_Work
+#FamilyHistory #TempleWork

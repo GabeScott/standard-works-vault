@@ -69,11 +69,11 @@ This is the good news! I am unspeakably grateful for these simple truths. The Fa
 
 
 
-[^1]: Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117, 118.
+[^1]: Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117, 118.
 
-[^2]: See [[2 Nephi 26.25|2 Nephi 26:25, 27]][[2 Nephi 26.27|]].
+[^2]: See [[2 Nephi 26.25|2 Nephi 26:25, 27]][[2 Nephi 26.27|]].
 
-[^3]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.1](https://churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=p6#p6), Gospel Library.
+[^3]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=p6#p6), Gospel Library.
 
 [^4]: See [[Moses 7.33|Moses 7:33]].
 
@@ -95,7 +95,7 @@ This is the good news! I am unspeakably grateful for these simple truths. The Fa
 
 [^13]: See [[Matthew 5.1|Matthew 5–7]][[Matthew 5.2|]][[Matthew 5.3|]][[Matthew 5.4|]][[Matthew 5.5|]][[Matthew 5.6|]][[Matthew 5.7|]][[Matthew 5.8|]][[Matthew 5.9|]][[Matthew 5.10|]][[Matthew 5.11|]][[Matthew 5.12|]][[Matthew 5.13|]][[Matthew 5.14|]][[Matthew 5.15|]][[Matthew 5.16|]][[Matthew 5.17|]][[Matthew 5.18|]][[Matthew 5.19|]][[Matthew 5.20|]][[Matthew 5.21|]][[Matthew 5.22|]][[Matthew 5.23|]][[Matthew 5.24|]][[Matthew 5.25|]][[Matthew 5.26|]][[Matthew 5.27|]][[Matthew 5.28|]][[Matthew 5.29|]][[Matthew 5.30|]][[Matthew 5.31|]][[Matthew 5.32|]][[Matthew 5.33|]][[Matthew 5.34|]][[Matthew 5.35|]][[Matthew 5.36|]][[Matthew 5.37|]][[Matthew 5.38|]][[Matthew 5.39|]][[Matthew 5.40|]][[Matthew 5.41|]][[Matthew 5.42|]][[Matthew 5.43|]][[Matthew 5.44|]][[Matthew 5.45|]][[Matthew 5.46|]][[Matthew 5.47|]][[Matthew 5.48|]]. For example, in [[Matthew 5.43|Matthew 5:43–44]][[Matthew 5.44|]], the Savior taught His disciples that it was not enough to “love thy neighbour, and hate thine enemy.” To follow Him, they also needed to “love \[their\] enemies.”
 
-[^14]: See [[Mosiah 5.2|Mosiah 5:2]]. In order for the mercy of Jesus Christ to be able to come into play in our lives, we must turn back to Him. Alma the Younger teaches that this glorious “plan of redemption could not be brought about, only on conditions of repentance … ; for except it were for these conditions, mercy could not take effect” ([[Alma 42.13|Alma 42:13]]).
+[^14]: See [[Mosiah 5.2|Mosiah 5:2]]. In order for the mercy of Jesus Christ to be able to come into play in our lives, we must turn back to Him. Alma the Younger teaches that this glorious “plan of redemption could not be brought about, only on conditions of repentance … ; for except it were for these conditions, mercy could not take effect” ([[Alma 42.13|Alma 42:13]]).
 
 [^15]: See [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -103,22 +103,20 @@ This is the good news! I am unspeakably grateful for these simple truths. The Fa
 
 [^17]: [[John 6.38|John 6:38]].
 
-[^18]: See Russell M. Nelson, “[The Atonement](https://churchofjesuschrist.org/study/ensign/1996/11/the-atonement?lang=eng),” *Ensign*, Nov. 1996, 35: “His Atonement is infinite—without an end. It was also infinite in that all humankind would be saved from never-ending death. It was infinite in terms of His immense suffering. It was infinite in time, putting an end to the preceding prototype of animal sacrifice. It was infinite in scope—it was to be done once for all. And the mercy of the Atonement extends not only to an infinite number of people, but also to an infinite number of worlds created by Him. It was infinite beyond any human scale of measurement or mortal comprehension.”
+[^18]: See Russell M. Nelson, “[The Atonement](https://www.churchofjesuschrist.org/study/ensign/1996/11/the-atonement?lang=eng),” *Ensign*, Nov. 1996, 35: “His Atonement is infinite—without an end. It was also infinite in that all humankind would be saved from never-ending death. It was infinite in terms of His immense suffering. It was infinite in time, putting an end to the preceding prototype of animal sacrifice. It was infinite in scope—it was to be done once for all. And the mercy of the Atonement extends not only to an infinite number of people, but also to an infinite number of worlds created by Him. It was infinite beyond any human scale of measurement or mortal comprehension.”
 
-[^19]: [[2 Nephi 26.24|2 Nephi 26:24]].
+[^19]: [[2 Nephi 26.24|2 Nephi 26:24]].
 
 [^20]: See [[Luke 15.4|Luke 15:4]].
 
-[^21]: [[2 Peter 3.9|2 Peter 3:9]]; see also [[D&C 18.11|Doctrine and Covenants 18:11–12]][[D&C 18.12|]].
+[^21]: [[2 Peter 3.9|2 Peter 3:9]]; see also [[D&C 18.11|Doctrine and Covenants 18:11–12]][[D&C 18.12|]].
 
-[^22]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^22]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
-[^23]: [[3 Nephi 17.7|3 Nephi 17:7]]; see also verse [[3 Nephi 17.6|6]].
+[^23]: [[3 Nephi 17.7|3 Nephi 17:7]]; see also verse [[3 Nephi 17.6|6]].
 
 [^24]: In Jesus Christ’s teachings indicating that some individuals will not inherit the kingdom of heaven, He makes it clear that this outcome is not His desire for them but is a result of their own choices (see [[Matthew 7.13|Matthew 7:13–14, 21–25]][[Matthew 7.14|]][[Matthew 7.21|]][[Matthew 7.22|]][[Matthew 7.23|]][[Matthew 7.24|]][[Matthew 7.25|]]).
 
 [^25]: See [[Matthew 27.50|Matthew 27:50–51]][[Matthew 27.51|]]; [[Hebrews 9.6|Hebrews 9:6–12]][[Hebrews 9.7|]][[Hebrews 9.8|]][[Hebrews 9.9|]][[Hebrews 9.10|]][[Hebrews 9.11|]][[Hebrews 9.12|]].
 
-
-
-#Atonement #Jesus_Christ #Plan_Of_Salvation #Repentance
+#Atonement #JesusChrist #PlanOfSalvation #Repentance

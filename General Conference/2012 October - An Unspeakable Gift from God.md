@@ -1,6 +1,6 @@
 # An Unspeakable Gift from God
 
-By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
+By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/an-unspeakable-gift-from-god?lang=eng)
 
-In 1994, President Howard W. Hunter invited all members of the Church to “establish the temple … as the great symbol of \[our\] membership.”[^1] Later that same year, construction on the Bountiful Utah Temple was completed. Like many, we were anxious to take our young family to the open house prior to the dedication. We labored diligently to prepare our children to enter the temple, praying earnestly that they would have a spiritual experience so that the temple would become a focal point in their lives.
+In 1994, President Howard W. Hunter invited all members of the Church to “establish the temple … as the great symbol of \[our\] membership.”[^1] Later that same year, construction on the Bountiful Utah Temple was completed. Like many, we were anxious to take our young family to the open house prior to the dedication. We labored diligently to prepare our children to enter the temple, praying earnestly that they would have a spiritual experience so that the temple would become a focal point in their lives.
 
 As we reverently walked through the temple, I found myself admiring the magnificent architecture, the elegant finishes, the light shining through towering windows, and many of the inspiring paintings. Every aspect of this sacred building was truly exquisite.
 
@@ -36,13 +36,13 @@ Several years ago as our extended family gathered for a holiday dinner, my fathe
 
 The Holy Ghost is a teacher and a revelator.[^13] As we study, ponder, and pray about gospel truths, the Holy Ghost enlightens our minds and quickens our understanding.[^14] He causes the truth to be indelibly written in our souls and can cause a mighty change to occur in our hearts. As we share these truths with our families, with fellow members of the Church, and with friends and neighbors in our community, the Holy Ghost becomes their teacher as well, for He carries the message of the gospel “unto the hearts of the children of men.”[^15]
 
-The Holy Ghost inspires us to reach out to others in service. For me, the most vivid examples of heeding the promptings of the Holy Ghost in the service of others come from the life and ministry of President Thomas S. Monson, who said: “In the performance of our responsibilities, I have learned that when we heed a silent prompting and act upon it without delay, our Heavenly Father will guide our footsteps and bless our lives and the lives of others. I know of no experience more sweet or feeling more precious than to heed a prompting only to discover that the Lord has answered another person’s prayer through you.”[^16]
+The Holy Ghost inspires us to reach out to others in service. For me, the most vivid examples of heeding the promptings of the Holy Ghost in the service of others come from the life and ministry of President Thomas S. Monson, who said: “In the performance of our responsibilities, I have learned that when we heed a silent prompting and act upon it without delay, our Heavenly Father will guide our footsteps and bless our lives and the lives of others. I know of no experience more sweet or feeling more precious than to heed a prompting only to discover that the Lord has answered another person’s prayer through you.”[^16]
 
 I share just one tender experience. While President Monson was serving as a bishop, he learned that a member of his ward, Mary Watson, was in the hospital. As he went to visit her, he learned that she was staying in a large room with several other patients. When he approached Sister Watson, he noticed that the patient in a neighboring bed quickly covered her head.
 
 After President Monson had visited with Sister Watson and given her a priesthood blessing, he shook her hand, said good-bye, and prepared to leave. Then a simple but amazing thing happened. I quote now from President Monson’s own recollection of this experience:
 
-“I could not leave her side. It was as though an unseen hand \[was\] resting on my shoulder, and I felt within my soul that I was hearing these words: ‘Go over to the next bed where the little lady covered her face when you came in.’ I did so. …
+“I could not leave her side. It was as though an unseen hand \[was\] resting on my shoulder, and I felt within my soul that I was hearing these words: ‘Go over to the next bed where the little lady covered her face when you came in.’ I did so. …
 
 “I approached the bedside of the other patient, gently tapped her shoulder and carefully pulled back the sheet which had covered her face. Lo and behold! She, too, was a member of my ward. I had not known she was a patient in the hospital. Her name was Kathleen McKee. When her eyes met mine, she exclaimed through her tears, ‘Oh, Bishop, when you entered that door, I felt you had come to see me and bless me in response to my prayers. I was rejoicing inside to think that you would know I was here, but when you stopped at the other bed, my heart sank, and I knew that you had not come to see me.’
 
@@ -50,7 +50,7 @@ After President Monson had visited with Sister Watson and given her a priesthood
 
 ## How Does the Holy Ghost Speak to Us?
 
-We all have experiences with the Holy Ghost, even though we may not always recognize them. As inspired thoughts come into our minds, we know them to be true by the spiritual feelings that enter into our hearts. President Boyd K. Packer has taught: “The Holy Ghost speaks with a voice that you *feel* more than you *hear.* … While we speak of ‘listening’ to the whisperings of the Spirit, most often one describes a spiritual prompting by saying, ‘I had a *feeling* …’”[^18] It is through these sacred feelings from the Holy Ghost that we come to know what God would have us do, for this, as stated in scripture, “is the spirit of revelation.”[^19]
+We all have experiences with the Holy Ghost, even though we may not always recognize them. As inspired thoughts come into our minds, we know them to be true by the spiritual feelings that enter into our hearts. President Boyd K. Packer has taught: “The Holy Ghost speaks with a voice that you *feel* more than you *hear.* … While we speak of ‘listening’ to the whisperings of the Spirit, most often one describes a spiritual prompting by saying, ‘I had a *feeling* …’”[^18] It is through these sacred feelings from the Holy Ghost that we come to know what God would have us do, for this, as stated in scripture, “is the spirit of revelation.”[^19]
 
 ## What Does It Mean to Receive the Gift of the Holy Ghost?
 
@@ -65,23 +65,23 @@ I bear witness of the living reality and divine mission of the Holy Ghost and th
 
 
 
-[^1]: Howard W. Hunter, in Jay M. Todd, “President Howard W. Hunter: Fourteenth President of the Church,” *Ensign,* July 1994, 5; see also Howard W. Hunter, [“The Great Symbol of Our Membership,”](https://churchofjesuschrist.org/study/ensign/1994/10/the-great-symbol-of-our-membership?lang=eng) *Tambuli,* Nov. 1994, 3; *Ensign,* Oct. 1994, 2.
+[^1]: Howard W. Hunter, in Jay M. Todd, “President Howard W. Hunter: Fourteenth President of the Church,” *Ensign,* July 1994, 5; see also Howard W. Hunter, “[The Great Symbol of Our Membership](https://www.churchofjesuschrist.org/study/ensign/1994/10/the-great-symbol-of-our-membership?lang=eng),” *Tambuli,* Nov. 1994, 3; *Ensign,* Oct. 1994, 2.
 
 [^2]: See [[D&C 121.26|Doctrine and Covenants 121:26]].
 
 [^3]: See [[Alma 12.7|Alma 12:7]]; [[Alma 18.16|18:16–18]][[Alma 18.17|]][[Alma 18.18|]]; [[D&C 6.15|Doctrine and Covenants 6:15–16]][[D&C 6.16|]].
 
-[^4]: See [[2 Nephi 32.5|2 Nephi 32:5]].
+[^4]: See [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^5]: See [[D&C 130.22|Doctrine and Covenants 130:22]].
 
 [^6]: See [[Luke 4.1|Luke 4:1, 18]][[Luke 4.18|]]; [[Luke 11.13|11:13]]; [[John 1.33|John 1:33]]; [[Ephesians 1.13|Ephesians 1:13]]; [[D&C 88.3|Doctrine and Covenants 88:3]].
 
-[^7]: See [[2 Nephi 31.18|2 Nephi 31:18]]; [[3 Nephi 28.11|3 Nephi 28:11]]; [[D&C 20.27|Doctrine and Covenants 20:27]].
+[^7]: See [[2 Nephi 31.18|2 Nephi 31:18]]; [[3 Nephi 28.11|3 Nephi 28:11]]; [[D&C 20.27|Doctrine and Covenants 20:27]].
 
 [^8]: See [[Moroni 10.5|Moroni 10:5]].
 
-[^9]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 1:47–48.
+[^9]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 1:47–48.
 
 [^10]: See [[John 14.26|John 14:26]]; [[D&C 35.19|Doctrine and Covenants 35:19]].
 
@@ -89,20 +89,18 @@ I bear witness of the living reality and divine mission of the Holy Ghost and th
 
 [^12]: [[Philippians 4.7|Philippians 4:7]].
 
-[^13]: See [[Luke 12.12|Luke 12:12]]; [[1 Corinthians 2.13|1 Corinthians 2:13]]; [[D&C 50.13|Doctrine and Covenants 50:13–22]][[D&C 50.14|]][[D&C 50.15|]][[D&C 50.16|]][[D&C 50.17|]][[D&C 50.18|]][[D&C 50.19|]][[D&C 50.20|]][[D&C 50.21|]][[D&C 50.22|]]; *Teachings of Presidents of the Church: Joseph Smith* (2007), 132–33.
+[^13]: See [[Luke 12.12|Luke 12:12]]; [[1 Corinthians 2.13|1 Corinthians 2:13]]; [[D&C 50.13|Doctrine and Covenants 50:13–22]][[D&C 50.14|]][[D&C 50.15|]][[D&C 50.16|]][[D&C 50.17|]][[D&C 50.18|]][[D&C 50.19|]][[D&C 50.20|]][[D&C 50.21|]][[D&C 50.22|]]; *Teachings of Presidents of the Church: Joseph Smith* (2007), 132–33.
 
 [^14]: See [[D&C 11.13|Doctrine and Covenants 11:13]].
 
-[^15]: [[2 Nephi 33.1|2 Nephi 33:1]].
+[^15]: [[2 Nephi 33.1|2 Nephi 33:1]].
 
-[^16]: Thomas S. Monson, “Peace, Be Still,” *Liahona* and *Ensign,* Nov. 2002, 55.
+[^16]: Thomas S. Monson, “Peace, Be Still,” *Liahona* and *Ensign,* Nov. 2002, 55.
 
-[^17]: See Thomas S. Monson, [[1996 October - Christ at Bethesda’s Pool.md|“Christ at Bethesda’s Pool,”]] *Ensign,* Nov. 1996, 18–19.
+[^17]: See Thomas S. Monson, [[1996 October - Christ at Bethesda’s Pool.md|“Christ at Bethesda’s Pool,”]] *Ensign,* Nov. 1996, 18–19.
 
-[^18]: Boyd K. Packer, “Personal Revelation: The Gift, the Test, and the Promise,” *Liahona,* June 1997, 10; *Ensign,* Nov. 1994, 60.
+[^18]: Boyd K. Packer, “Personal Revelation: The Gift, the Test, and the Promise,” *Liahona,* June 1997, 10; *Ensign,* Nov. 1994, 60.
 
 [^19]: [[D&C 8.3|Doctrine and Covenants 8:3]]; see also [[D&C 8.2|verse 2]].
 
-
-
-#Holy_Ghost #Service #Temples
+#HolyGhost #Service #Temples

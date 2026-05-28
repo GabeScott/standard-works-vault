@@ -1,6 +1,6 @@
 # He Asks Us to Be His Hands
 
-By Cheryl A. Esplin - *First Counselor in the Primary General Presidency*
+By Cheryl A. Esplin - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -8,15 +8,15 @@ By Cheryl A. Esplin - *First Counselor in the Primary General Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/04/he-asks-us-to-be-his-hands?lang=eng)
 
-“Love one another; as I have loved you.”[^1] These words, sung by this remarkable choir, were spoken by Jesus just hours before His great atoning sacrifice—a sacrifice Elder Jeffrey R. Holland described as “the most majestic manifestation of pure love ever to be demonstrated in the history of this world.”[^2]
+“Love one another; as I have loved you.”[^1] These words, sung by this remarkable choir, were spoken by Jesus just hours before His great atoning sacrifice—a sacrifice Elder Jeffrey R. Holland described as “the most majestic manifestation of pure love ever to be demonstrated in the history of this world.”[^2]
 
 Jesus not only taught us to love, but He also lived what He taught. Throughout His ministry, Jesus “went about doing good”[^3] and “entreated all to follow His example.”[^4] He taught, “For whosoever will save his life shall lose it: but whosoever will lose his life for my sake, the same shall save it.”[^5]
 
-President Thomas S. Monson, who has understood and lived the admonition to love, said: “I believe the Savior is telling us that unless we lose ourselves in service to others, there is little purpose to our own lives. Those who live only for themselves eventually shrivel up and … lose their lives, while those who lose themselves in service to others grow and flourish—and in effect save their lives.”[^6]
+President Thomas S. Monson, who has understood and lived the admonition to love, said: “I believe the Savior is telling us that unless we lose ourselves in service to others, there is little purpose to our own lives. Those who live only for themselves eventually shrivel up and … lose their lives, while those who lose themselves in service to others grow and flourish—and in effect save their lives.”[^6]
 
 True Christlike service is selfless and focuses on others. One woman who took care of her invalid husband explained, “Don’t think of your task as a burden; think of it as an opportunity to learn what love really is.”[^7]
 
-Speaking at a BYU devotional, Sister Sondra D. Heaston asked: “What if we could really see into each other’s hearts? Would we understand each other better? By feeling what others feel, seeing what others see, and hearing what others hear, would we make, and take, the time to serve others, and would we treat them differently? Would we treat them with more patience, more kindness, and more tolerance?”
+Speaking at a BYU devotional, Sister Sondra D. Heaston asked: “What if we could really see into each other’s hearts? Would we understand each other better? By feeling what others feel, seeing what others see, and hearing what others hear, would we make, and take, the time to serve others, and would we treat them differently? Would we treat them with more patience, more kindness, and more tolerance?”
 
 Sister Heaston shared an experience from when she served at a Young Women camp. She said:
 
@@ -60,7 +60,7 @@ Other kinds of service take time, intentional planning, and extra energy. But th
 
 - What might we do as a family?
 
-President Dieter F. Uchtdorf taught:
+President Dieter F. Uchtdorf taught:
 
 “You must do … what disciples of Christ have done in every dispensation: counsel together, use all resources available, seek the inspiration of the Holy Ghost, ask the Lord for His confirmation, and then roll up your sleeves and go to work.
 
@@ -68,47 +68,45 @@ President Dieter F. Uchtdorf taught:
 
 Whenever I wonder what it will be like when the Savior comes again, I think of His visit to the Nephites when He asked:
 
-“Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, or halt, or maimed, or leprous, or that are withered, or that are deaf, or that are afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you; my bowels are filled with mercy. …
+“Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, or halt, or maimed, or leprous, or that are withered, or that are deaf, or that are afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you; my bowels are filled with mercy. …
 
-“… \[The Savior\] did heal them every one.”[^13]
+“… \[The Savior\] did heal them every one.”[^13]
 
 For now, He asks us to be His hands.
 
 I have come to know that it is the love of God and neighbor that gives meaning to life. May we follow our Savior’s example and His admonition to reach out to others with love.
 
-I testify to the reality of President Henry B. Eyring’s promise “that if \[we’ll\] use \[our\] gifts to serve someone else, \[we’ll\] feel the Lord’s love for that person. \[We’ll\] also feel his love for \[us\].”[^14] In the name of Jesus Christ, amen.
+I testify to the reality of President Henry B. Eyring’s promise “that if \[we’ll\] use \[our\] gifts to serve someone else, \[we’ll\] feel the Lord’s love for that person. \[We’ll\] also feel his love for \[us\].”[^14] In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[John 13.34|John 13:34]].
 
-[^2]: Jeffrey R. Holland, “[[2015 April - Where Justice, Love, and Mercy Meet.md|Where Justice, Love, and Mercy Meet]],” *Ensign* or *Liahona,* May 2015, 106.
+[^2]: Jeffrey R. Holland, “[[2015 April - Where Justice, Love, and Mercy Meet.md|Where Justice, Love, and Mercy Meet]],” *Ensign* or *Liahona,* May 2015, 106.
 
 [^3]: [[Acts 10.38|Acts 10:38]].
 
-[^4]: “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2.
+[^4]: “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2.
 
 [^5]: [[Luke 9.24|Luke 9:24]].
 
-[^6]: Thomas S. Monson, “[[2009 October - What Have I Done for Someone Today.md|What Have I Done for Someone Today?]]” *Ensign* or *Liahona,* Nov. 2009, 85.
+[^6]: Thomas S. Monson, “[[2009 October - What Have I Done for Someone Today.md|What Have I Done for Someone Today?]]” *Ensign* or *Liahona,* Nov. 2009, 85.
 
-[^7]: Lola B. Walters, “[Sunshine in My Soul](https://churchofjesuschrist.org/study/ensign/1991/08/sunshine-in-my-soul?lang=eng),” *Ensign,* Aug. 1991, 19.
+[^7]: Lola B. Walters, “[Sunshine in My Soul](https://www.churchofjesuschrist.org/study/ensign/1991/08/sunshine-in-my-soul?lang=eng),” *Ensign,* Aug. 1991, 19.
 
-[^8]: Sondra D. Heaston, “[Keeping Your Fingers on the PULSE of Service](https://speeches.byu.edu/talks/sondra-heaston/keeping-your-fingers-on-the-pulse-of-service)” (Brigham Young University devotional, June 23, 2015), 1, 5, speeches.byu.edu. The Young Women camp speaker who shared these insights is Sister Virginia H. Pearce.
+[^8]: Sondra D. Heaston, “[Keeping Your Fingers on the PULSE of Service](https://speeches.byu.edu/talks/sondra-heaston/keeping-your-fingers-on-the-pulse-of-service)” (Brigham Young University devotional, June 23, 2015), 1, 5, speeches.byu.edu. The Young Women camp speaker who shared these insights is Sister Virginia H. Pearce.
 
-[^9]: Thomas S. Monson, “[[2009 October - What Have I Done for Someone Today.md|What Have I Done for Someone Today?]]” 86.
+[^9]: Thomas S. Monson, “[[2009 October - What Have I Done for Someone Today.md|What Have I Done for Someone Today?]]” 86.
 
-[^10]: See “[Give Us a Hand!](https://churchofjesuschrist.org/study/liahona/2015/01/children/give-us-a-hand?lang=eng)” *Friend,* Jan. 2015, 4–5; *Liahona,* Jan. 2015, 64–65.
+[^10]: See “[Give Us a Hand!](https://www.churchofjesuschrist.org/study/liahona/2015/01/children/give-us-a-hand?lang=eng)” *Friend,* Jan. 2015, 4–5; *Liahona,* Jan. 2015, 64–65.
 
 [^11]: [[Mosiah 2.17|Mosiah 2:17]].
 
-[^12]: Dieter F. Uchtdorf, “[[2011 October - Providing in the Lord’s Way.md|Providing in the Lord’s Way]],” *Ensign* or *Liahona,* Nov. 2011, 55.
+[^12]: Dieter F. Uchtdorf, “[[2011 October - Providing in the Lord’s Way.md|Providing in the Lord’s Way]],” *Ensign* or *Liahona,* Nov. 2011, 55.
 
-[^13]: [[3 Nephi 17.7|3 Nephi 17:7, 9]][[3 Nephi 17.9|]].
+[^13]: [[3 Nephi 17.7|3 Nephi 17:7, 9]][[3 Nephi 17.9|]].
 
-[^14]: Henry B. Eyring, *To Draw Closer to God* (1997), 88.
+[^14]: Henry B. Eyring, *To Draw Closer to God* (1997), 88.
 
-
-
-#Jesus_Christ #Love #Service
+#JesusChrist #Love #Service

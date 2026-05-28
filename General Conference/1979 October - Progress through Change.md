@@ -1,6 +1,6 @@
 # Progress through Change
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -36,7 +36,7 @@ The first example is a child who had an extremely unhappy home life. His family 
 
 The second example is a boy who was frail at birth. Throughout his childhood he had a tendency toward infection. His frail body seemed unable to hold his oversized head. His father worried that people considered his son “addled,” and on one occasion he beat the boy publicly. After his mother had lost three previous children, she wrapped herself in black and withdrew.
 
-In the third instance, a young man came from circumstances of near poverty. His family was forced to move more than once because of financial difficulties. He had little, if any, formal schooling. “His mother reported that he was less inclined to read and study than any of the other children” (Francis M. Gibbons, *Joseph Smith: Martyr, Prophet of God,* Salt Lake City: Deseret Book Co., 1977, p. 26). Because neighbors considered many of his ways and ideas strange, he was ostracized by his peers. All of his life he was hounded by the law and found himself constantly in difficulty.
+In the third instance, a young man came from circumstances of near poverty. His family was forced to move more than once because of financial difficulties. He had little, if any, formal schooling. “His mother reported that he was less inclined to read and study than any of the other children” (Francis M. Gibbons, *Joseph Smith: Martyr, Prophet of God,* Salt Lake City: Deseret Book Co., 1977, p. 26). Because neighbors considered many of his ways and ideas strange, he was ostracized by his peers. All of his life he was hounded by the law and found himself constantly in difficulty.
 
 Certain steps *can* help one make constructive, worthwhile changes in life. “When you climb up a ladder, you must begin at the bottom, and ascend step by step, until you arrive at the top; and so it is with the principles of the gospel” (*History of the Church,* 6:306–7). In order to make significant changes in our lives, we must accept our Father in Heaven and His truths. The prophet Alma in the Book of Mormon said, “Have ye spiritually been born of God? Have ye received his image in your countenances? Have ye experienced this mighty change in your hearts?” ([[Alma 5.14|Alma 5:14]]).
 
@@ -54,7 +54,7 @@ Fourth, we must be totally committed to our plan for change. A Chinese proverb s
 
 Earlier I mentioned three examples of people living in the most dire circumstances. The first young man’s life was a series of continuing arrests for everything from vagrancy to armed robbery and murder. Never recognizing the need to change, he was one day convicted of murder.
 
-The second was a description of the early years of Thomas A. Edison. From a beginning that seemed almost too much to overcome, he was able to change and build. Though he was once judged retarded, he proved himself to be one of the greatest inventors of all time. His personal commitment changed the whole world for the better.
+The second was a description of the early years of Thomas A. Edison. From a beginning that seemed almost too much to overcome, he was able to change and build. Though he was once judged retarded, he proved himself to be one of the greatest inventors of all time. His personal commitment changed the whole world for the better.
 
 The third tells the story of a young man and his early days in the northeastern part of this country. He was born in 1805 during a hard and cold Vermont winter. His name—Joseph Smith. His beginnings were difficult. Life was a series of struggles—not only physically, but also emotionally and spiritually. But here was a young man who recognized the need for improvement through change and submitted to an authority greater than himself. From tremendously difficult beginnings he sought change and ushered in the last dispensation. His faith, prayers, and works brought to the earth the greatest, most profound changes in the latter days.
 
@@ -73,6 +73,4 @@ The change from this life to a life with Him who is our Eternal Father is the ul
 
 
 
-
-
-#Plan_Of_Salvation #Repentance
+#PlanOfSalvation #Repentance

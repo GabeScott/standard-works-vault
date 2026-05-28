@@ -1,11 +1,10 @@
 # Law
 
-
-*See also* [[Accountability.md|Accountability]]; [[Citizenship.md|Citizenship]]; [[Command.md|Command]]; [[Commandments of God.md|Commandments of God]]; [[Decree.md|Decree]]; [[God, Law of.md|God, Law of]]; [[God, Will of.md|God, Will of]]; [[Governments.md|Governments]]; [[Ignorance, Ignorant.md|Ignorance]]; [[Law of Moses.md|Law of Moses]]; [[Order.md|Order]]; [[Ordinance.md|Ordinance]]; [[Precept.md|Precept]]; [[Statute.md|Statute]]
+*See also* [[Accountability.md|Accountability]]; [[Citizenship.md|Citizenship]]; [[Command.md|Command]]; [[Commandments of God.md|Commandments of God]]; [[Decree.md|Decree]]; [[God, Law of.md|God, Law of]]; [[God, Will of.md|God, Will of]]; [[Governments.md|Governments]]; [[Ignorance.md|Ignorance]]; [[Law of Moses.md|Law of Moses]]; [[Order.md|Order]]; [[Ordinance.md|Ordinance]]; [[Precept.md|Precept]]; [[Statute.md|Statute]]
 
 Joseph made it a *law* over the land, [[Genesis 47.26|Genesis 47:26]].
 
-Lord's *law* may be in thy mouth, [[Exodus 13.9|Exodus 13:9]].
+Lord’s *law* may be in thy mouth, [[Exodus 13.9|Exodus 13:9]].
 
 give thee tables of stone, and a *law*, [[Exodus 24.12|Exodus 24:12]].
 
@@ -27,7 +26,7 @@ have found the book of the *law*, [[2 Kings 22.8|2 Kings 22:8]] ([[2 Chronicles 
 
 read in the book in the *law* of God distinctly, [[Nehemiah 8.8|Nehemiah 8:8]].
 
-oath, to walk in God's *law*, [[Nehemiah 10.29|Nehemiah 10:29]].
+oath, to walk in God’s *law*, [[Nehemiah 10.29|Nehemiah 10:29]].
 
 in his *law* doth he meditate, [[Psalms 1.2|Psalms 1:2]].
 
@@ -67,9 +66,9 @@ Doth our *law* judge any man, before it hear him, [[John 7.51|John 7:51]].
 
 received the *law* by the disposition of angels, [[Acts 7.53|Acts 7:53]].
 
-it be a question of ... your *law*, [[Acts 18.15|Acts 18:15]].
+it be a question of … your *law*, [[Acts 18.15|Acts 18:15]].
 
-what *law* ? of works? Nay: but by the *law* of faith, [[Romans 3.27|Romans 3:27]].
+what *law*? of works? Nay: but by the *law* of faith, [[Romans 3.27|Romans 3:27]].
 
 *law* worketh wrath: for where no *law* is, there is no transgression, [[Romans 4.15|Romans 4:15]].
 
@@ -81,7 +80,7 @@ without the *law* sin was dead, [[Romans 7.8|Romans 7:8]].
 
 delight in the *law* of God after the inward man, [[Romans 7.22|Romans 7:22]].
 
-*law* of the Spirit ... made me free from the *law* of sin, [[Romans 8.2|Romans 8:2]].
+*law* of the Spirit … made me free from the *law* of sin, [[Romans 8.2|Romans 8:2]].
 
 Christ is the end of the *law* for righteousness, [[Romans 10.4|Romans 10:4]].
 
@@ -97,7 +96,7 @@ To them that are without *law*, as without *law*, [[1 Corinthians 9.21|1 Corinth
 
 strength of sin is the *law*, [[1 Corinthians 15.56|1 Corinthians 15:56]].
 
-Bear ye one another's burdens, and so fulfil the *law* of Christ, [[Galatians 6.2|Galatians 6:2]].
+Bear ye one another’s burdens, and so fulfil the *law* of Christ, [[Galatians 6.2|Galatians 6:2]].
 
 righteousness which is in the *law*, blameless, [[Philippians 3.6|Philippians 3:6]].
 
@@ -117,7 +116,7 @@ no *law* given there is no punishment, [[2 Nephi 9.25|2 Nephi 9:25]].
 
 just men to be your kings, who would establish the *laws* of God, [[Mosiah 29.13|Mosiah 29:13]].
 
-choose ... judges, that ye may be judged according to the *laws*, [[Mosiah 29.25|Mosiah 29:25]].
+choose … judges, that ye may be judged according to the *laws*, [[Mosiah 29.25|Mosiah 29:25]].
 
 How could he sin if there was no *law*, [[Alma 42.17|Alma 42:17]].
 
@@ -145,26 +144,26 @@ Let no man break the *laws* of the land, [[D&C 58.21|D&C 58:21]].
 
 these are they who died without *law*, [[D&C 76.72|D&C 76:72]].
 
-they who are not sanctified through the *law* ... inherit another kingdom, [[D&C 88.21|D&C 88:21]].
+they who are not sanctified through the *law* … inherit another kingdom, [[D&C 88.21|D&C 88:21]].
 
 that which is governed by *law* is also preserved by *law*, [[D&C 88.34|D&C 88:34]].
 
-That which breaketh a *law*, and abideth not by *law*, but seeketh to become a *law* unto itself ... cannot be sanctified by *law*, [[D&C 88.35|D&C 88:35]].
+That which breaketh a *law*, and abideth not by *law*, but seeketh to become a *law* unto itself … cannot be sanctified by *law*, [[D&C 88.35|D&C 88:35]].
 
 unto every kingdom is given a *law*, [[D&C 88.38|D&C 88:38]].
 
 he hath given a *law* unto all things, [[D&C 88.42|D&C 88:42]].
 
-obtain a knowledge of ... *laws* of God and man, [[D&C 93.53|D&C 93:53]].
+obtain a knowledge of … *laws* of God and man, [[D&C 93.53|D&C 93:53]].
 
-*laws* of the land ... people should observe, [[D&C 98.4|D&C 98:4]].
+*laws* of the land … people should observe, [[D&C 98.4|D&C 98:4]].
 
 union required by the *law* of the celestial kingdom, [[D&C 105.4|D&C 105:4]].
 
-lands ... possess them according to the *laws* of consecration, [[D&C 105.29|D&C 105:29]].
+lands … possess them according to the *laws* of consecration, [[D&C 105.29|D&C 105:29]].
 
-one-tenth of all their interest ... a standing *law*, [[D&C 119.4|D&C 119:4]].
+one-tenth of all their interest … a standing *law*, [[D&C 119.4|D&C 119:4]].
 
 There is a *law*, irrevocably decreed in heaven, [[D&C 130.20|D&C 130:20]].
 
-all who will have a blessing at my hands shall abide the *law* ... appointed for that blessing, [[D&C 132.5|D&C 132:5]] ([[D&C 132.21|D&C 132:21]], [[D&C 132.32|D&C 132:32]]).
+all who will have a blessing at my hands shall abide the *law* … appointed for that blessing, [[D&C 132.5|D&C 132:5]] ([[D&C 132.21|D&C 132:21]]; [[D&C 132.32|D&C 132:32]]).

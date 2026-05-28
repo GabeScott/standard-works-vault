@@ -65,6 +65,4 @@ I bear witness that this work is true. I testify that we may anticipate a glorio
 
 
 
-
-
-#Family #Temple_Work
+#Family #TempleWork

@@ -28,9 +28,9 @@ Secondly, prophets, seers, and revelators teach the word of God in clarity that 
 
 To the people of the Lord, Alma taught:
 
-“Trust no one to be your teacher nor your minister, except he be a man of God, walking in his ways and keeping his commandments. …
+“Trust no one to be your teacher nor your minister, except he be a man of God, walking in his ways and keeping his commandments. …
 
-“… And none were consecrated except they were just men.
+“… And none were consecrated except they were just men.
 
 “Therefore they did watch over their people, and did nourish them with things pertaining to righteousness.”[^9]
 
@@ -79,10 +79,8 @@ I bear witness of the saving power of the Atonement of Jesus Christ. I bear witn
 
 [^11]: [[Moses 6.36|Moses 6:36]]; see also [[Moses 6.35|Moses 6:35]].
 
-[^12]: In Conference Report, Apr. 1986, 95; or *Ensign,* May 1986, 75.
+[^12]: In Conference Report, Apr. 1986, [[1986 April - Solemn Assembly and Sustaining of Church Officers.md|95]]; or *Ensign,* May 1986, 75.
 
 [^13]: [[Jacob 4.3|Jacob 4:3]].
 
-
-
-#Jesus_Christ #Obedience #Prophets #Testimony
+#JesusChrist #Obedience #Prophets #Testimony

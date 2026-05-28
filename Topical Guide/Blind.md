@@ -1,11 +1,10 @@
 # Blind
 
-
 for the gift *blindeth* the wise, [[Exodus 23.8|Exodus 23:8]] ([[Deuteronomy 16.19|Deuteronomy 16:19]]).
 
 nor put a stumblingblock before the *blind*, [[Leviticus 19.14|Leviticus 19:14]].
 
-*Blind*, or broken, ... ye shall not offer these unto the Lord, [[Leviticus 22.22|Leviticus 22:22]].
+*Blind*, or broken, … ye shall not offer these unto the Lord, [[Leviticus 22.22|Leviticus 22:22]].
 
 Cursed be he that maketh the *blind* to wander, [[Deuteronomy 27.18|Deuteronomy 27:18]].
 
@@ -41,7 +40,7 @@ Woe unto you, ye *blind* guides, [[Matthew 23.16|Matthew 23:16]].
 
 they bring a *blind* man unto him, [[Mark 8.22|Mark 8:22]].
 
-*blind* Bartimæus ... sat by the highway, [[Mark 10.46|Mark 10:46]] ([[Luke 18.35|Luke 18:35]]).
+*blind* Bartimæus … sat by the highway, [[Mark 10.46|Mark 10:46]] ([[Luke 18.35|Luke 18:35]]).
 
 a man which was *blind* from his birth, [[John 9.1|John 9:1]].
 
@@ -67,17 +66,17 @@ temptations of the devil, which *blindeth*, [[1 Nephi 12.17|1 Nephi 12:17]].
 
 Wo unto the *blind* that will not see, [[2 Nephi 9.32|2 Nephi 9:32]].
 
-causing ... *blind* to receive their sight, [[Mosiah 3.5|Mosiah 3:5]].
+causing … *blind* to receive their sight, [[Mosiah 3.5|Mosiah 3:5]].
 
 eyes of the people were *blinded*, [[Mosiah 11.29|Mosiah 11:29]].
 
 *blind* your eyes, that ye will not understand, [[Alma 10.25|Alma 10:25]].
 
-go forth ... with their *blind*, [[3 Nephi 17.9|3 Nephi 17:9]].
+go forth … with their *blind*, [[3 Nephi 17.9|3 Nephi 17:9]].
 
 opened the eyes of their *blind*, [[3 Nephi 26.15|3 Nephi 26:15]].
 
-honorable men ... *blinded* by the craftiness, [[D&C 76.75|D&C 76:75]].
+honorable men … *blinded* by the craftiness, [[D&C 76.75|D&C 76:75]].
 
 Satan seeketh to turn their hearts away from the truth, that they become *blinded*, [[D&C 78.10|D&C 78:10]].
 

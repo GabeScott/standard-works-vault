@@ -1,7 +1,6 @@
 # Mercy, Merciful
 
-
-*See also* [[Compassion.md|Compassion]]; [[Forgive, Forgiveness.md|Forgive]]; [[God, Justice of.md|God, Justice of]]; [[God, Mercy of.md|God, Mercy of]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]
+*See also* [[Compassion.md|Compassion]]; [[Forgive.md|Forgive]]; [[God, Justice of.md|God, Justice of]]; [[God, Mercy of.md|God, Mercy of]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]
 
 shewing *mercy* unto thousands, [[Exodus 20.6|Exodus 20:6]] ([[Deuteronomy 5.10|Deuteronomy 5:10]]).
 
@@ -9,17 +8,17 @@ thou shalt make a *mercy* seat of pure gold, [[Exodus 25.17|Exodus 25:17]].
 
 shew *mercy* on whom I will shew *mercy*, [[Exodus 33.19|Exodus 33:19]] ([[Romans 9.15|Romans 9:15]]).
 
-Lord ... *merciful* and gracious, [[Exodus 34.6|Exodus 34:6]].
+Lord … *merciful* and gracious, [[Exodus 34.6|Exodus 34:6]].
 
 Lord thy God is a *merciful* God, [[Deuteronomy 4.31|Deuteronomy 4:31]].
 
-shewing *mercy* unto thousands, [[Deuteronomy 5.10|Deuteronomy 5:10]] ([[Deuteronomy 5.6|5:6-21]][[Deuteronomy 5.7|]][[Deuteronomy 5.8|]][[Deuteronomy 5.9|]][[Deuteronomy 5.10|]][[Deuteronomy 5.11|]][[Deuteronomy 5.12|]][[Deuteronomy 5.13|]][[Deuteronomy 5.14|]][[Deuteronomy 5.15|]][[Deuteronomy 5.16|]][[Deuteronomy 5.17|]][[Deuteronomy 5.18|]][[Deuteronomy 5.19|]][[Deuteronomy 5.20|]][[Deuteronomy 5.21|]]).
+shewing *mercy* unto thousands, [[Deuteronomy 5.10|Deuteronomy 5:10]].
 
 keepeth covenant and *mercy* with them that love him, [[Deuteronomy 7.9|Deuteronomy 7:9]] ([[Daniel 9.4|Daniel 9:4]]).
 
 his *mercy* endureth for ever, [[1 Chronicles 16.34|1 Chronicles 16:34]].
 
-Lord ... is gracious and *merciful*, [[2 Chronicles 30.9|2 Chronicles 30:9]] ([[Nehemiah 9.31|Nehemiah 9:31]]; [[Jonah 4.2|Jonah 4:2]]).
+Lord … is gracious and *merciful*, [[2 Chronicles 30.9|2 Chronicles 30:9]] ([[Nehemiah 9.31|Nehemiah 9:31]]; [[Jonah 4.2|Jonah 4:2]]).
 
 God ready to pardon, gracious and *merciful*, [[Nehemiah 9.17|Nehemiah 9:17]].
 
@@ -77,13 +76,13 @@ Father of *mercies*, and the God of all, [[2 Corinthians 1.3|2 Corinthians 1:3]]
 
 God, who is rich in *mercy*, for his great love, [[Ephesians 2.4|Ephesians 2:4]].
 
-Put on therefore, as the elect of God ... bowels of *mercies*, [[Colossians 3.12|Colossians 3:12]].
+Put on therefore, as the elect of God … bowels of *mercies*, [[Colossians 3.12|Colossians 3:12]].
 
 according to his *mercy* he saved us, [[Titus 3.5|Titus 3:5]].
 
 he might be a *merciful* and faithful high priest, [[Hebrews 2.17|Hebrews 2:17]].
 
-He that despised Moses' law died without *mercy*, [[Hebrews 10.28|Hebrews 10:28]].
+He that despised Moses’ law died without *mercy*, [[Hebrews 10.28|Hebrews 10:28]].
 
 judgment without *mercy*, that hath shewed no *mercy*, [[James 2.13|James 2:13]].
 
@@ -101,9 +100,9 @@ I will be *merciful* unto the Gentiles, [[1 Nephi 13.33|1 Nephi 13:33]].
 
 how *merciful* the Lord had been in warning us, [[2 Nephi 1.3|2 Nephi 1:3]].
 
-because of ... his grace and *mercy*, [[2 Nephi 9.53|2 Nephi 9:53]].
+because of … his grace and *mercy*, [[2 Nephi 9.53|2 Nephi 9:53]].
 
-Lord shall have no ... *mercy* on their fatherless, [[2 Nephi 19.17|2 Nephi 19:17]].
+Lord shall have no … *mercy* on their fatherless, [[2 Nephi 19.17|2 Nephi 19:17]].
 
 *mercy* hath no claim on that man, [[Mosiah 2.39|Mosiah 2:39]] ([[Mosiah 3.26|Mosiah 3:26]]).
 
@@ -111,7 +110,7 @@ extending the arm of *mercy* towards them that put their trust in him, [[Mosiah 
 
 Lord, have *mercy* and spare my life, [[Alma 2.30|Alma 2:30]].
 
-if it had not been for his ... *mercy*, [[Alma 9.11|Alma 9:11]].
+if it had not been for his … *mercy*, [[Alma 9.11|Alma 9:11]].
 
 then will I have *mercy* upon you, [[Alma 12.33|Alma 12:33]].
 
@@ -131,9 +130,9 @@ do ye suppose that *mercy* can rob justice, [[Alma 42.25|Alma 42:25]].
 
 son of perdition, for whom there was no *mercy*, [[3 Nephi 29.7|3 Nephi 29:7]].
 
-repent ... Lord did have *mercy* on them, [[Ether 11.8|Ether 11:8]].
+repent … Lord did have *mercy* on them, [[Ether 11.8|Ether 11:8]].
 
-children ... alive in him because of his *mercy*, [[Moroni 8.19|Moroni 8:19]].
+children … alive in him because of his *mercy*, [[Moroni 8.19|Moroni 8:19]].
 
 translate through the *mercy* of God, [[D&C 1.29|D&C 1:29]].
 
@@ -141,24 +140,24 @@ arm of *mercy* hath atoned for your sins, [[D&C 29.1|D&C 29:1]].
 
 I will be *merciful* unto your weakness, [[D&C 38.14|D&C 38:14]].
 
-called ... by the voice of *mercy*, [[D&C 43.25|D&C 43:25]].
+called … by the voice of *mercy*, [[D&C 43.25|D&C 43:25]].
 
 suiting his *mercies* according to the conditions, [[D&C 46.15|D&C 46:15]].
 
-kept the covenant ... shall obtain *mercy*, [[D&C 54.6|D&C 54:6]].
+kept the covenant … shall obtain *mercy*, [[D&C 54.6|D&C 54:6]].
 
 *merciful* unto those who confess, [[D&C 61.2|D&C 61:2]].
 
 *mercy* hath compassion on *mercy*, [[D&C 88.40|D&C 88:40]].
 
-I ... show *mercy* unto all the meek, [[D&C 97.2|D&C 97:2]].
+I … show *mercy* unto all the meek, [[D&C 97.2|D&C 97:2]].
 
-who receiveth you ... shall obtain *mercy*, [[D&C 99.3|D&C 99:3]].
+who receiveth you … shall obtain *mercy*, [[D&C 99.3|D&C 99:3]].
 
 in the day of wrath I will remember *mercy*, [[D&C 101.9|D&C 101:9]].
 
-Have *mercy* ... upon the wicked mob, [[D&C 109.50|D&C 109:50]].
+Have *mercy* … upon the wicked mob, [[D&C 109.50|D&C 109:50]].
 
 manifest myself to my people in *mercy*, [[D&C 110.7|D&C 110:7]].
 
-we hear ... A voice of *mercy* from heaven, [[D&C 128.19|D&C 128:19]].
+we hear … A voice of *mercy* from heaven, [[D&C 128.19|D&C 128:19]].

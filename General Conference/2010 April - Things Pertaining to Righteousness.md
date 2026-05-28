@@ -20,7 +20,7 @@ Immediate help was sent by the Church to members and nonmembers and was distribu
 
 Different prophets in different times warned us of another tragedy that is less perceptible but not less important, and this is the “awful death \[that\] cometh upon the wicked; for they die as to things pertaining to things of righteousness; for they are unclean, and no unclean thing can inherit the kingdom of God” ([[Alma 40.26|Alma 40:26]]).
 
-Nephi taught this principle to his brothers, saying to them that those who “die in their wickedness … must be cast off also, as to the things which are spiritual, which are pertaining to righteousness” ([[1 Nephi 15.33|1 Nephi 15:33]]).
+Nephi taught this principle to his brothers, saying to them that those who “die in their wickedness … must be cast off also, as to the things which are spiritual, which are pertaining to righteousness” ([[1 Nephi 15.33|1 Nephi 15:33]]).
 
 Samuel the Lamanite prophet taught that “whosoever repenteth not is hewn down and cast into the fire; and there cometh upon them again a spiritual death, yea, a second death, for they are cut off again as to things pertaining to righteousness” ([[Helaman 14.18|Helaman 14:18]]).
 
@@ -65,8 +65,6 @@ Teaching the *things pertaining to righteousness* is an important element in hel
 Parents have the sacred duty to teach their children regarding *things pertaining to righteousness.* Leaders and teachers can watch over and nourish the members under their care, diligently teaching them all *things pertaining to righteousness.*
 
 This can be achieved more effectively if revelation is facilitated during the teaching process, thus creating in the people the desire to be enlightened by the Spirit of God. Then as they exercise faith, the Spirit can make known to them the *things pertaining unto righteousness.* Of these things I testify in the name of Jesus Christ, amen.
-
-
 
 
 

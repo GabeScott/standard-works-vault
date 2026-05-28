@@ -1,4 +1,3 @@
 # Assyria
 
-
-*See* [BD Assyria and Babylonia](https://www.churchofjesuschrist.org/study/scriptures/bd/assyria-and-babylonia?lang=eng)
+*See also* [[BD Assyria and Babylonia.md|BD Assyria and Babylonia]]

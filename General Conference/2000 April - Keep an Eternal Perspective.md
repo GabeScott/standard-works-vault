@@ -20,17 +20,17 @@ Another way of saying what Alma taught came from an experience one of the Genera
 
 When we understand the great plan of happiness, we are gaining an eternal perspective, and the commandments, ordinances, and covenants, and the experiences, trials, and tribulations can be seen in their true and eternal light.
 
-Remember, however, that Satan will dim the brightness of hope and eternal perspective by the dark, compelling urgency of now. Such is the case with those mentioned in the Book of Mormon who “turned out of the way” ([[Helaman 6.31|Hel. 6:31]]) and “became for themselves” ([[3 Nephi 1.29|3 Ne. 1:29]]).
+Remember, however, that Satan will dim the brightness of hope and eternal perspective by the dark, compelling urgency of now. Such is the case with those mentioned in the Book of Mormon who “turned out of the way” ([[Helaman 6.31|Hel. 6:31]]) and “became for themselves” ([[3 Nephi 1.29|3 Ne. 1:29]]).
 
-Laman and Lemuel turned out of the way and complained of their sufferings because they did not have their possessions, with which they said they “might have been happy” ([[1 Nephi 17.21|1 Ne. 17:21]]). It was so with the prodigal son. With the urgency to receive his mortal inheritance, he said to his father, “Give me the portion of goods that falleth to me,” which he took and “wasted his substance with riotous living” ([[Luke 15.12|Luke 15:12–13]][[Luke 15.13|]]).
+Laman and Lemuel turned out of the way and complained of their sufferings because they did not have their possessions, with which they said they “might have been happy” ([[1 Nephi 17.21|1 Ne. 17:21]]). It was so with the prodigal son. With the urgency to receive his mortal inheritance, he said to his father, “Give me the portion of goods that falleth to me,” which he took and “wasted his substance with riotous living” ([[Luke 15.12|Luke 15:12–13]][[Luke 15.13|]]).
 
-Still others are described by Nephi, who said that the devil will “stir them up to anger against that which is good … and lull them away into carnal security” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]]).
+Still others are described by Nephi, who said that the devil will “stir them up to anger against that which is good … and lull them away into carnal security” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]]).
 
 Those without an eternal perspective, or those who lose sight of it, make their own standards to benefit themselves and their own selfish interests. Their mortal perspective becomes their standard and for some their god.
 
 Ammon taught King Lamoni, who had always lived by the light of his mortality, about God, a divine power higher than the king. The king “supposed that whatsoever \[he\] did was right” ([[Alma 18.5|Alma 18:5]]). But Ammon’s example and message touched his heart, and he “began to fear exceedingly, with fear lest he had done wrong” ([[Alma 18.5|Alma 18:5]]). Ammon then “expounded unto them the plan of redemption” ([[Alma 18.39|Alma 18:39]]).
 
-After the prodigal son had lost all, “he came to himself, \[and\] he said, … I will arise and go to my father, and will say unto him, Father, I have sinned against heaven, and before thee” ([[Luke 15.17|Luke 15:17–18]][[Luke 15.18|]]). It is significant that he acknowledged his sin against heaven, for there really is a heaven and a merciful and a just God who reigns there. He revealed a divine plan that includes the Final Judgment by His Son, who “employeth no servant there,” and where we will all stand someday ([[2 Nephi 9.41|2 Ne. 9:41]]).
+After the prodigal son had lost all, “he came to himself, \[and\] he said, … I will arise and go to my father, and will say unto him, Father, I have sinned against heaven, and before thee” ([[Luke 15.17|Luke 15:17–18]][[Luke 15.18|]]). It is significant that he acknowledged his sin against heaven, for there really is a heaven and a merciful and a just God who reigns there. He revealed a divine plan that includes the Final Judgment by His Son, who “employeth no servant there,” and where we will all stand someday ([[2 Nephi 9.41|2 Ne. 9:41]]).
 
 I am eternally thankful for wonderful parents and home-centered gospel learning where I first obtained an eternal perspective. That perspective was reinforced through my youth by leaders and teachers as I attended Church and seminary.
 
@@ -38,7 +38,7 @@ The most significant decision I made in my life to gain an eternal perspective a
 
 While prayer, scripture study, and service in the Church helped me to learn the Father’s plan and gain and develop an eternal perspective, I have an increased appreciation for the contribution that sacred hymns bring to conversion.
 
-During my childhood and youth and especially in Primary, the hymns of the Restoration, written by true servants of God, played a profound role in my conversion to the gospel and an understanding of His plan. President Packer has said, “If we will listen, they are teaching the gospel, for the hymns of the Restoration are, in fact, a course in doctrine!” (in Conference Report, Oct. 1991, 29; or *Ensign,* Nov. 1991, 22).
+During my childhood and youth and especially in Primary, the hymns of the Restoration, written by true servants of God, played a profound role in my conversion to the gospel and an understanding of His plan. President Packer has said, “If we will listen, they are teaching the gospel, for the hymns of the Restoration are, in fact, a course in doctrine!” (in Conference Report, Oct. 1991, [[1991 October - Reverence Invites Revelation.md|29]]; or *Ensign,* Nov. 1991, 22).
 
 In the First Presidency preface of the current hymnal, we are reminded that “inspirational music is an essential part of our church meetings. … Some of the greatest sermons are preached by the singing of hymns. Hymns move us to repentance and good works, build testimony and faith, comfort the weary, console the mourning, and inspire us to endure to the end” (*Hymns,* ix).
 
@@ -62,4 +62,5 @@ I testify that the great plan of the Eternal God is true. God lives. Jesus is Hi
 
 
 
-#Activation #Adversity #Anger #Commandments #Conversion #Faith #Missionary_Work #Music #Perspective #Plan_Of_Salvation #Repentance #Seminary #Standards #Teaching #Testimony
+
+#Activation #Adversity #Anger #Commandments #Conversion #Faith #MissionaryWork #Music #Perspective #PlanOfSalvation #Repentance #Seminary #Standards #Teaching #Testimony

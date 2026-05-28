@@ -1,6 +1,6 @@
 # Families Can Be Eternal
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -55,8 +55,6 @@ We genuinely welcome help, real help, from churches, schools, colleges, and univ
 Oh, brothers and sisters, *families can be forever!* Do not let the lures of the moment draw you away from them! *Divinity, eternity,* and *family*—they go together, hand in hand, and so must we!
 
 I bear you my solemn witness that God lives, that Jesus Christ lives, and that he is our Savior and Redeemer. I leave you my love and my blessings, in the name of Jesus Christ, amen.
-
-
 
 
 

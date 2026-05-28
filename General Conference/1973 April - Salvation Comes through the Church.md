@@ -1,6 +1,6 @@
 # Salvation Comes through the Church
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -32,7 +32,7 @@ But there were men in the Lord’s own day who taught false doctrines and led th
 
 He said to them, “Did not Moses give you the law, and yet none of you keepeth the law?” ([[John 7.19|John 7:19]].)
 
-And again he said, “… had ye believed Moses, ye would have believed me: for he wrote of me.” ([[John 5.46|John 5:46]].)
+And again he said, “… had ye believed Moses, ye would have believed me: for he wrote of me.” ([[John 5.46|John 5:46]].)
 
 What a sad commentary! Had the people believed Moses, instead of the crafty false teachers of their day, they would have accepted Christ, because Moses wrote of Christ. And if they had accepted Jesus, they would have received salvation through his church.
 
@@ -78,7 +78,7 @@ Historians say that within one hundred years after Christ, as many as thirty spl
 
 Further evidence of early apostasy in the Church is brought forcefully and particularly to our attention by the manner in which Paul wrote his first letter to the Corinthians.
 
-In it he testified that there can be no divisions in Christ. Rather, he said, “… I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.” ([[1 Corinthians 1.10|1 Cor. 1:10]].)
+In it he testified that there can be no divisions in Christ. Rather, he said, “… I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.” ([[1 Corinthians 1.10|1 Cor. 1:10]].)
 
 Some of the denominations which developed during the very early years of Christianity were these:
 
@@ -104,7 +104,7 @@ The Manecheans, and a number of others.
 
 After the fall of Jerusalem about a.d. 70, the Hellenists seized the upper hand in the Christian religion, taking advantage of the Greek influence, which was being superimposed on the existing culture of the area. Greek philosophical ideas entered strongly into the Christian picture, changing the doctrines and practices of the gospel. This will be understood more readily when it is remembered that both Arius and Athanasius of the Nicene Creed controversy were Greek philosophers. This also is why the early New Testament manuscripts were written in Greek.
 
-These bits of history reveal clearly the importance of avoiding splinter groups, for as Paul expressed it, some “saith I am of Paul; and I of Apollos; and I of Cephas” ([[1 Corinthians 1.12|1 Cor. 1:12]]), but Christ cannot be divided. There is no Savior but Jesus, and he saves only in his own strait and narrow way and not according to man-made creeds and rituals.
+These bits of history reveal clearly the importance of avoiding splinter groups, for as Paul expressed it, some “saith I am of Paul; and I of Apollos; and I of Cephas” ([[1 Corinthians 1.12|1 Cor. 1:12]]), but Christ cannot be divided. There is no Savior but Jesus, and he saves only in his own strait and narrow way and not according to man-made creeds and rituals.
 
 It is all important, then, that members should not separate themselves from the true church, nor apostatize from it, nor be guilty of behavior which would justify their excommunication.
 
@@ -138,7 +138,7 @@ The language of the Lord is simple and easily understood. If any have apostatize
 
 Salvation is not to be found in splinter groups today any more than it was to be found in the various denominations which polluted the teachings of Moses anciently or which, in the days of early Christianity, transgressed the laws, changed the ordinances, and broke the everlasting covenant.
 
-The Lord says further in this same section of the Doctrine & Covenants: “… all they who are not found written in the book of remembrance shall find none inheritance in that day, but they shall be cut asunder, and their portion shall be appointed them among unbelievers, where are wailing and gnashing of teeth.” ([[D&C 85.9|D&C 85:9]].)
+The Lord says further in this same section of the Doctrine & Covenants: “… all they who are not found written in the book of remembrance shall find none inheritance in that day, but they shall be cut asunder, and their portion shall be appointed them among unbelievers, where are wailing and gnashing of teeth.” ([[D&C 85.9|D&C 85:9]].)
 
 There are some who claim that even though they are excommunicated from the Church, their priesthood and temple blessings are not taken away. Let us remind those persons that the power to seal is also the power to loose, for the Lord has said of his true servants that “whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.” ([[Matthew 16.19|Matt. 16:19]]; [[D&C 132.46|D&C 132:46]].) Excommunication takes away all rights, privileges, and blessings of the Church.
 
@@ -167,6 +167,4 @@ But let us remember that his yoke cannot be separated from his church, and his b
 
 
 
-
-
-#Apostasy #Plan_Of_Salvation
+#Apostasy #PlanOfSalvation

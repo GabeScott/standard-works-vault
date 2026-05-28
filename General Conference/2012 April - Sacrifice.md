@@ -1,6 +1,6 @@
 # Sacrifice
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/04/sacrifice?lang=eng)
 
-The atoning sacrifice of Jesus Christ has been called the “most transcendent of all events from creation’s dawn to the endless ages of eternity.”[^1] That sacrifice is the central message of all the prophets. It was prefigured by the animal sacrifices prescribed by the law of Moses. A prophet declared that their whole meaning “point\[ed\] to that great and last sacrifice \[of\] … the Son of God, yea, infinite and eternal” ([[Alma 34.14|Alma 34:14]]). Jesus Christ endured incomprehensible suffering to make Himself a sacrifice for the sins of all. That sacrifice offered the ultimate good—the pure Lamb without blemish—for the ultimate measure of evil—the sins of the entire world. In the memorable words of Eliza R. Snow:
+The atoning sacrifice of Jesus Christ has been called the “most transcendent of all events from creation’s dawn to the endless ages of eternity.”[^1] That sacrifice is the central message of all the prophets. It was prefigured by the animal sacrifices prescribed by the law of Moses. A prophet declared that their whole meaning “point\[ed\] to that great and last sacrifice \[of\] … the Son of God, yea, infinite and eternal” ([[Alma 34.14|Alma 34:14]]). Jesus Christ endured incomprehensible suffering to make Himself a sacrifice for the sins of all. That sacrifice offered the ultimate good—the pure Lamb without blemish—for the ultimate measure of evil—the sins of the entire world. In the memorable words of Eliza R. Snow:
 
 >His precious blood he freely spilt;
 >His life he freely gave,
@@ -18,9 +18,9 @@ The atoning sacrifice of Jesus Christ has been called the “most transcendent o
 
 That sacrifice—the Atonement of Jesus Christ—is at the center of the plan of salvation.
 
-The incomprehensible suffering of Jesus Christ ended sacrifice by the shedding of blood, but it did not end the importance of sacrifice in the gospel plan. Our Savior requires us to continue to offer sacrifices, but the sacrifices He now commands are that we “offer for a sacrifice unto \[Him\] a broken heart and a contrite spirit” ([[3 Nephi 9.20|3 Nephi 9:20]]). He also commands each of us to love and serve one another—in effect, to offer a small imitation of His own sacrifice by making sacrifices of our own time and selfish priorities. In an inspired hymn, we sing, “Sacrifice brings forth the blessings of heaven.”[^3]
+The incomprehensible suffering of Jesus Christ ended sacrifice by the shedding of blood, but it did not end the importance of sacrifice in the gospel plan. Our Savior requires us to continue to offer sacrifices, but the sacrifices He now commands are that we “offer for a sacrifice unto \[Him\] a broken heart and a contrite spirit” ([[3 Nephi 9.20|3 Nephi 9:20]]). He also commands each of us to love and serve one another—in effect, to offer a small imitation of His own sacrifice by making sacrifices of our own time and selfish priorities. In an inspired hymn, we sing, “Sacrifice brings forth the blessings of heaven.”[^3]
 
-I will speak of these mortal sacrifices our Savior asks us to make. This will not include sacrifices we are compelled to make or actions that may be motivated by personal advantage rather than service or sacrifice (see [[2 Nephi 26.29|2 Nephi 26:29]]).
+I will speak of these mortal sacrifices our Savior asks us to make. This will not include sacrifices we are compelled to make or actions that may be motivated by personal advantage rather than service or sacrifice (see [[2 Nephi 26.29|2 Nephi 26:29]]).
 
 ## I.
 
@@ -34,7 +34,7 @@ For most followers of Christ, our sacrifices involve what we can do on a day-to-
 
 My first examples are our Mormon pioneers. Their epic sacrifices of lives, family relationships, homes, and comforts are at the foundation of the restored gospel. Sarah Rich spoke for what motivated these pioneers when she described her husband, Charles, being called away on a mission: “This truly was a trying time for me as well as for my husband; but duty called us to part for a season and knowing that we \[were\] obeying the will of the Lord, we felt to sacrifice our own feelings in order to help establish the work … of helping to build up the Kingdom of God on earth.”[^4]
 
-Today the most visible strength of The Church of Jesus Christ of Latter-day Saints is the unselfish service and sacrifice of its members. Prior to the rededication of one of our temples, a Christian minister asked President Gordon B. Hinckley why it did not contain any representation of the cross, the most common symbol of the Christian faith. President Hinckley replied that the symbols of *our* Christian faith are “the lives of our people.”[^5] Truly, our lives of service and sacrifice are the most appropriate expressions of our commitment to serve the Master and our fellowmen.
+Today the most visible strength of The Church of Jesus Christ of Latter-day Saints is the unselfish service and sacrifice of its members. Prior to the rededication of one of our temples, a Christian minister asked President Gordon B. Hinckley why it did not contain any representation of the cross, the most common symbol of the Christian faith. President Hinckley replied that the symbols of *our* Christian faith are “the lives of our people.”[^5] Truly, our lives of service and sacrifice are the most appropriate expressions of our commitment to serve the Master and our fellowmen.
 
 ## III.
 
@@ -48,7 +48,7 @@ We are frequently asked, “How do you persuade your young people and your older
 
 Other sacrifices resulting from missionary service are the sacrifices of those who act on the teachings of the missionaries and become members of the Church. For many converts, these sacrifices are very significant, including the loss of friends and family associations.
 
-Many years ago this conference heard of a young man who found the restored gospel while he was studying in the United States. As this man was about to return to his native land, President Gordon B. Hinckley asked him what would happen to him when he returned home as a Christian. “My family will be disappointed,” the young man answered. “They may cast me out and regard me as dead. As for my future and my career, all opportunity may be foreclosed against me.”
+Many years ago this conference heard of a young man who found the restored gospel while he was studying in the United States. As this man was about to return to his native land, President Gordon B. Hinckley asked him what would happen to him when he returned home as a Christian. “My family will be disappointed,” the young man answered. “They may cast me out and regard me as dead. As for my future and my career, all opportunity may be foreclosed against me.”
 
 “Are you willing to pay so great a price for the gospel?” President Hinckley asked.
 
@@ -56,13 +56,13 @@ Tearfully the young man answered, “It’s true, isn’t it?” When that was a
 
 Other examples of service and sacrifice appear in the lives of the faithful members who serve in our temples. Temple service is unique to Latter-day Saints, but the significance of such sacrifice should be understandable to all Christians. Latter-day Saints have no tradition of service in a monastery, but we can still understand and honor the sacrifice of those whose Christian faith motivates them to devote their lives to that religious activity.
 
-In this conference just a year ago, President Thomas S. Monson shared an example of sacrifice in connection with temple service. A faithful Latter-day Saint father on a remote island in the Pacific did heavy physical work in a faraway place for six years to earn the money necessary to take his wife and 10 children for marriage and sealing for eternity in the New Zealand Temple. President Monson explained, “Those who understand the eternal blessings which come from the temple know that no sacrifice is too great, no price too heavy, no struggle too difficult in order to receive those blessings.”[^9]
+In this conference just a year ago, President Thomas S. Monson shared an example of sacrifice in connection with temple service. A faithful Latter-day Saint father on a remote island in the Pacific did heavy physical work in a faraway place for six years to earn the money necessary to take his wife and 10 children for marriage and sealing for eternity in the New Zealand Temple. President Monson explained, “Those who understand the eternal blessings which come from the temple know that no sacrifice is too great, no price too heavy, no struggle too difficult in order to receive those blessings.”[^9]
 
 I am grateful for the marvelous examples of Christian love, service, and sacrifice I have seen among the Latter-day Saints. I see you performing your Church callings, often at great sacrifice of time and means. I see you serving missions at your own expense. I see you cheerfully donating your professional skills in service to your fellowmen. I see you caring for the poor through personal efforts and through supporting Church welfare and humanitarian contributions.[^10] All of this is affirmed in a nationwide study which concluded that active members of The Church of Jesus Christ of Latter-day Saints “volunteer and donate significantly more than the average American and are even more generous in time and money than the upper \[20 percent\] of religious people in America.”[^11]
 
 Such examples of giving to others strengthen all of us. They remind us of the Savior’s teaching:
 
-“If any man will come after me, let him deny himself. …
+“If any man will come after me, let him deny himself. …
 
 “For whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it” ([[Matthew 16.24|Matthew 16:24–25]][[Matthew 16.25|]]).
 
@@ -81,23 +81,23 @@ I know that Jesus Christ is the Only Begotten Son of God the Eternal Father. I k
 
 
 
-[^1]: Bruce R. McConkie, *The Promised Messiah: The First Coming of Christ* (1981), 218.
+[^1]: Bruce R. McConkie, *The Promised Messiah: The First Coming of Christ* (1981), 218.
 
-[^2]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
+[^2]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-[^3]: “Praise to the Man,” *Hymns,* no. 27.
+[^3]: “Praise to the Man,” *Hymns,* no. 27.
 
-[^4]: Sarah Rich, in Guinevere Thomas Woolstenhulme, “I Have Seen Many Miracles,” in Richard E. Turley Jr. and Brittany A. Chapman, eds., *Women of Faith in the Latter Days: Volume 1, 1775–1820* (2011), 283.
+[^4]: Sarah Rich, in Guinevere Thomas Woolstenhulme, “I Have Seen Many Miracles,” in Richard E. Turley Jr. and Brittany A. Chapman, eds., *Women of Faith in the Latter Days: Volume 1, 1775–1820* (2011), 283.
 
-[^5]: Gordon B. Hinckley, “The Symbol of Our Faith,” *Liahona* and *Ensign,* Apr. 2005, 3.
+[^5]: Gordon B. Hinckley, “The Symbol of Our Faith,” *Liahona* and *Ensign,* Apr. 2005, 3.
 
-[^6]: See Harold G. Hillam, “Sacrifice in the Service,” *Ensign,* Nov. 1995, 42.
+[^6]: See Harold G. Hillam, “Sacrifice in the Service,” *Ensign,* Nov. 1995, 42.
 
-[^7]: Gordon B. Hinckley, “The Miracle of Faith,” *Liahona,* July 2001, 84; *Ensign,* May 2001, 68.
+[^7]: Gordon B. Hinckley, “The Miracle of Faith,” *Liahona,* July 2001, 84; *Ensign,* May 2001, 68.
 
-[^8]: Gordon B. Hinckley, “It’s True, Isn’t It?” *Tambuli,* Oct. 1993, 3–4; *Ensign,* July 1993, 2; see also Neil L. Andersen, “It’s True, Isn’t It? Then What Else Matters?” *Liahona* and *Ensign,* May 2007, 74.
+[^8]: Gordon B. Hinckley, “It’s True, Isn’t It?” *Tambuli,* Oct. 1993, 3–4; *Ensign,* July 1993, 2; see also Neil L. Andersen, “It’s True, Isn’t It? Then What Else Matters?” *Liahona* and *Ensign,* May 2007, 74.
 
-[^9]: Thomas S. Monson, “The Holy Temple—a Beacon to the World,” *Liahona* and *Ensign,* May 2011, 91–92.
+[^9]: Thomas S. Monson, “The Holy Temple—a Beacon to the World,” *Liahona* and *Ensign,* May 2011, 91–92.
 
 [^10]: See, for example, Naomi Schaefer Riley, “What the Mormons Know about Welfare,” *Wall Street Journal,* Feb. 18, 2012, A11.
 
@@ -107,6 +107,4 @@ I know that Jesus Christ is the Only Begotten Son of God the Eternal Father. I k
 
 [^13]: *Lectures on Faith* (1985), 69.
 
-
-
-#Missionary_Work #Sacrifice #Service #Temple_Work
+#MissionaryWork #Sacrifice #Service #TempleWork

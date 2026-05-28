@@ -4,6 +4,3 @@
 
 [JST 1 Corinthians 7:2](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-cor/7?lang=eng)
 
-
-
-

@@ -1,6 +1,6 @@
 # Seek Out Your Spiritual Leader
 
-By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
+By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -41,8 +41,6 @@ It is a gift from the Spirit to believe on the words of your priesthood leaders.
 Remember, last of all, we do not desire blind obedience in the Church. We desire that every individual may know for himself that the counsel he receives from his leaders comes from the Lord. He has the right and the great privilege to know for himself of the Lord that he has been counseled aright. If he will be patient and wait upon the Lord, he will find that his priesthood leaders truly do counsel in righteousness, thus enabling him to walk upon safe ground.
 
 I pray that each of us might be more humble and desirous of receiving and obeying counsel. May each of us seek not to counsel the Lord, but seek counsel from his hand and from his inspired priesthood leaders, *as it is the same.* In the name of Jesus Christ, Amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # “Whoso Receiveth Them, Receiveth Me”
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -36,7 +36,7 @@ Our friend Bette shared an experience she had at church when she was 10 years ol
 
 My friend Leif attended church by himself. Once, while in Primary, he was asked to give a short talk. He had no mom or dad at church to stand beside him and help him if he forgot what to say. Leif was terrified. Rather than embarrass himself, he just stayed away from church for several months.
 
-“Jesus called a little child unto him, and set him in the midst of them …
+“Jesus called a little child unto him, and set him in the midst of them …
 
 “And \[said\] whoso shall receive one such little child in my name receiveth me.”[^9]
 
@@ -50,7 +50,7 @@ Our friend Zuleika comes from Alegrete, Brazil. Although her family was not reli
 
 While a child’s earthly situation may not be ideal, a child’s spiritual DNA is perfect because one’s true identity is as a son or daughter of God.
 
-President Thomas S. Monson has said: “Help God’s children understand what is genuine and important in this life. Help them develop the strength to choose paths that will keep them safely on the way to eternal life.”[^10] Let’s open our arms and our hearts a little wider. These youth need our time and our testimonies.
+President Thomas S. Monson has said: “Help God’s children understand what is genuine and important in this life. Help them develop the strength to choose paths that will keep them safely on the way to eternal life.”[^10] Let’s open our arms and our hearts a little wider. These youth need our time and our testimonies.
 
 Brandon, who joined the Church in Colorado in high school, spoke to me of those who reached out to him both before and after his baptism. He said: “I was in the homes of families that lived the gospel. It showed me a standard that I felt I could have in my own family.”
 
@@ -66,7 +66,7 @@ There, standing at the door, was the new bishop. Max didn’t know him, and he f
 
 Knowing someone’s name can make a difference.
 
-“And \[Jesus\] commanded that their little children should be brought \[to him\]. …
+“And \[Jesus\] commanded that their little children should be brought \[to him\]. …
 
 “And … he took \[them\], one by one, and blessed them, and prayed unto the Father for them.
 
@@ -107,7 +107,7 @@ I was deeply moved by this experience and saw it as symbolic of our need to reac
 
 [^2]: See “Family Structure,” Child Trends DataBank (Dec. 2015), appendix 1, page 9, childtrends.org/databank.
 
-[^3]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129, paragraphs 7 and 6.
+[^3]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129, paragraphs 7 and 6.
 
 [^4]: I want to personally acknowledge the tens of thousands of righteous mothers, many of them single parents, who courageously take the primary responsibility of spiritually strengthening their children. Our friend Shelley from Canada said of her mother:
 
@@ -121,16 +121,14 @@ I was deeply moved by this experience and saw it as symbolic of our need to reac
 
 [^9]: [[Matthew 18.2|Matthew 18:2, 5]][[Matthew 18.5|]].
 
-[^10]: Thomas S. Monson, “[Learn of Me](https://churchofjesuschrist.org/study/liahona/2016/03/learn-of-me?lang=eng),” *Ensign* or *Liahona,* Mar. 2016, 6.
+[^10]: Thomas S. Monson, “[Learn of Me](https://www.churchofjesuschrist.org/study/liahona/2016/03/learn-of-me?lang=eng),” *Ensign* or *Liahona,* Mar. 2016, 6.
 
-[^11]: See Max H. Molgard, *Inviting the Spirit into Our Lives* (1993), 99.
+[^11]: See Max H. Molgard, *Inviting the Spirit into Our Lives* (1993), 99.
 
-[^12]: [[3 Nephi 17.11|3 Nephi 17:11, 21–22]][[3 Nephi 17.21|]][[3 Nephi 17.22|]].
+[^12]: [[3 Nephi 17.11|3 Nephi 17:11, 21–22]][[3 Nephi 17.21|]][[3 Nephi 17.22|]].
 
 [^13]: Emily, although without active parents, spoke lovingly of grandparents, uncles and aunts, and others who “stood in” for her parents. Speaking of a Young Women leader in Michigan, she said: “Her children were grown, and she made it her point to make each of the young women feel as though they were her own daughter. … Her smile could warm your heart on the hardest of days. … I’ve made it my goal to follow her lead and be a Sister Molnar for those children who may feel ‘different,’ ‘left out,’ or ‘excluded.’”
 
 [^14]: [[Matthew 18.5|Matthew 18:5]].
-
-
 
 #Children #Family #Fellowshipping #Parenthood #Youth

@@ -1,6 +1,6 @@
 # Embrace the Future with Faith
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -18,7 +18,7 @@ You young women have also been remarkable. Though social media has been flooded 
 
 Sisters, you have all been absolutely heroic! I marvel at your strength and your faith. You have shown that in difficult circumstances, you bravely carry on. I love you, and I assure you that the Lord loves you and sees the great work you are performing. Thank you! Once again, you have proven that you are literally the hope of Israel!
 
-You embody the hopes that President Gordon B. Hinckley had for you when he introduced “The Family: A Proclamation to the World” 25 years ago in the September 1995 general Relief Society meeting.[^1] It is significant that he chose to introduce this important proclamation to the sisters of the Church. By doing so, President Hinckley underscored the irreplaceable influence of women in the Lord’s plan.
+You embody the hopes that President Gordon B. Hinckley had for you when he introduced “The Family: A Proclamation to the World” 25 years ago in the September 1995 general Relief Society meeting.[^1] It is significant that he chose to introduce this important proclamation to the sisters of the Church. By doing so, President Hinckley underscored the irreplaceable influence of women in the Lord’s plan.
 
 Now, I would love to know what you have learned this year. Have you grown closer to the Lord, or do you feel further away from Him? And how have current events made you feel about the future?
 
@@ -93,7 +93,7 @@ As you prepare to embrace the future with faith, these promises *will* be yours!
 
 
 
-[^1]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org. In the address that accompanied this proclamation, President Gordon B. Hinckley said to the sisters: “I am grateful for the strength that you have and for your loyalty, your faith, your love. I am thankful for the resolution which you carry in your hearts to walk in faith, to keep the commandments, to do what is right at all times and in all circumstances” (“[[1995 October - Stand Strong against the Wiles of the World.md|Stand Strong against the Wiles of the World]],” *Ensign,* Nov. 1995, 98–99).
+[^1]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org. In the address that accompanied this proclamation, President Gordon B. Hinckley said to the sisters: “I am grateful for the strength that you have and for your loyalty, your faith, your love. I am thankful for the resolution which you carry in your hearts to walk in faith, to keep the commandments, to do what is right at all times and in all circumstances” (“[[1995 October - Stand Strong against the Wiles of the World.md|Stand Strong against the Wiles of the World]],” *Ensign,* Nov. 1995, 98–99).
 
 [^2]: [[Luke 21.26|Luke 21:26]]; see also [[D&C 45.26|Doctrine and Covenants 45:26]].
 
@@ -101,9 +101,9 @@ As you prepare to embrace the future with faith, these promises *will* be yours!
 
 [^4]: [[D&C 1.35|Doctrine and Covenants 1:35]].
 
-[^5]: See [[D&C 1.17|Doctrine and Covenants 1:17]]. The Apostle Paul prophesied that “in the last days perilous times \[would\] come.” That would make our day spiritually treacherous. (See [[2 Timothy 3.1|2 Timothy 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
+[^5]: See [[D&C 1.17|Doctrine and Covenants 1:17]]. The Apostle Paul prophesied that “in the last days perilous times \[would\] come.” That would make our day spiritually treacherous. (See [[2 Timothy 3.1|2 Timothy 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
 
-[^6]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 512.
+[^6]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-44?lang=eng&id=p19#p19)* (2007), 512.
 
 [^7]: [[D&C 38.30|Doctrine and Covenants 38:30]].
 
@@ -119,11 +119,11 @@ As you prepare to embrace the future with faith, these promises *will* be yours!
 
 [^13]: [[D&C 115.6|Doctrine and Covenants 115:6]].
 
-[^14]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona,* Nov. 2019, 76–79.
+[^14]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona,* Nov. 2019, 76–79.
 
-[^15]: Eliza R. Snow taught that the Holy Ghost “satisfies and fills up every longing of the human heart. … When I am filled with that Spirit, my soul is satisfied, and I can say in good earnest, that the trifling things of the day do not seem to stand in my way at all. … Is it not our privilege to so live that we can have this constantly flowing into our souls?” (in *Daughters in My Kingdom: The History and Work of Relief Society* \[2011\], 46).
+[^15]: Eliza R. Snow taught that the Holy Ghost “satisfies and fills up every longing of the human heart. … When I am filled with that Spirit, my soul is satisfied, and I can say in good earnest, that the trifling things of the day do not seem to stand in my way at all. … Is it not our privilege to so live that we can have this constantly flowing into our souls?” (in *[Daughters in My Kingdom: The History and Work of Relief Society](https://www.churchofjesuschrist.org/study/manual/daughters-in-my-kingdom-the-history-and-work-of-relief-society/a-wide-and-extensive-sphere-of-action?lang=eng&id=p21#p21)* \[2011\], 46).
 
-[^16]: See Daniel Burke, “Utah Earthquake Damages Mormon Temple and Knocks Trumpet from Iconic Angel Statue,” Mar. 18, 2020, cnn.com.
+[^16]: See Daniel Burke, “Utah Earthquake Damages Mormon Temple and Knocks Trumpet from Iconic Angel Statue,” Mar. 18, 2020, cnn.com.
 
 [^17]: [[Mosiah 5.15|Mosiah 5:15]].
 
@@ -133,10 +133,8 @@ As you prepare to embrace the future with faith, these promises *will* be yours!
 
 [^20]: [[D&C 42.61|Doctrine and Covenants 42:61]].
 
-[^21]: The Apostle Paul signaled this reality when he attributed Timothy’s unfeigned faith to his mother, Eunice, and his grandmother Lois (see [[2 Timothy 1.5|2 Timothy 1:5]]).
+[^21]: The Apostle Paul signaled this reality when he attributed Timothy’s unfeigned faith to his mother, Eunice, and his grandmother Lois (see [[2 Timothy 1.5|2 Timothy 1:5]]).
 
 [^22]: [[Alma 58.11|Alma 58:11]].
-
-
 
 #Faith #Preparation

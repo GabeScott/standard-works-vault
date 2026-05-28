@@ -1,6 +1,6 @@
 # One More Day
 
-By Elder Taylor G. Godoy - *Of the Seventy*
+By Elder Taylor G. Godoy - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -56,15 +56,13 @@ And it is because of this sacrifice, after following the process of sincere repe
 
 At the same time, as we honor and are grateful for His sacrifice, we can receive in a great measure the intense desire to be better children of God, to stay away from sin, and to keep covenants like never before.
 
-Then, like Enos after receiving the forgiveness of his sins, we will feel the desire ourselves to sacrifice and to seek the well-being of our brothers and sisters (see [[Enos 1.9|Enos 1:9]]). And we will be more willing every “one more day” to follow the invitation that President Howard W. Hunter extended to us when he said: “Mend a quarrel. Seek out a forgotten friend. Dismiss suspicion and replace it with trust. … Give a soft answer. Encourage youth. Manifest your loyalty in word and deed. Keep a promise. Forgo a grudge. Forgive an enemy. Apologize. Try to understand. Examine your demands on others. Think first of someone else. Be kind. Be gentle. Laugh a little more. Express your gratitude. Welcome a stranger. Gladden the heart of a child. … Speak your love and then speak it again” ( \[2015\], 32; adapted from “What We Think Christmas Is,” *McCall’s,* Dec. 1959, 82–83).
+Then, like Enos after receiving the forgiveness of his sins, we will feel the desire ourselves to sacrifice and to seek the well-being of our brothers and sisters (see [[Enos 1.9|Enos 1:9]]). And we will be more willing every “one more day” to follow the invitation that President Howard W. Hunter extended to us when he said: “Mend a quarrel. Seek out a forgotten friend. Dismiss suspicion and replace it with trust. … Give a soft answer. Encourage youth. Manifest your loyalty in word and deed. Keep a promise. Forgo a grudge. Forgive an enemy. Apologize. Try to understand. Examine your demands on others. Think first of someone else. Be kind. Be gentle. Laugh a little more. Express your gratitude. Welcome a stranger. Gladden the heart of a child. … Speak your love and then speak it again” ([Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/the-life-and-ministry-of-howard-w-hunter?lang=eng) \[2015\], 32; adapted from “What We Think Christmas Is,” *McCall’s,* Dec. 1959, 82–83).
 
-May we fill our days with that impulse and the strength that personal sacrifice and the sacrifice that we make for or receive from others give us. And in a special way, may we enjoy the peace and rejoicing that the sacrifice of the Only Begotten offers us; yes, that peace that is mentioned when we read that Adam fell that men might be, and men are—you are—that you might have joy (see [[2 Nephi 2.25|2 Nephi 2:25]]). That joy is real joy that only the sacrifice and the Atonement of the Savior Jesus Christ can provide.
+May we fill our days with that impulse and the strength that personal sacrifice and the sacrifice that we make for or receive from others give us. And in a special way, may we enjoy the peace and rejoicing that the sacrifice of the Only Begotten offers us; yes, that peace that is mentioned when we read that Adam fell that men might be, and men are—you are—that you might have joy (see [[2 Nephi 2.25|2 Nephi 2:25]]). That joy is real joy that only the sacrifice and the Atonement of the Savior Jesus Christ can provide.
 
 It is my prayer that we follow Him, that we believe Him, that we love Him, and that we feel the love demonstrated by His sacrifice every time we have the opportunity to live one more day. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Atonement #Jesus_Christ #Plan_Of_Salvation #Sacrifice
+#Atonement #JesusChrist #PlanOfSalvation #Sacrifice

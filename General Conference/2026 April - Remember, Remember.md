@@ -24,7 +24,7 @@ Keeping God’s commandments is a blessing, both temporal and spiritual. If we c
 
 God reminds us that His commandments are firm and that obedience to them brings promised blessings.
 
-President Dallin H. Oaks shared how the commandments of God guide and steady our lives. He said: “Our experiences in mortality are like the little boy and his father flying a kite on a windy day. As the kite rose higher, the winds caused it to tug on the connecting string in the little boy’s hand. Inexperienced with the force of mortal winds, he proposed to cut the string so the kite could rise higher. His wise father counseled no, explaining that the string is what holds the kite in place against mortal winds. If we lose our hold on the string, the kite will not rise higher. It will be carried about by these winds and inevitably crash to the earth.”[^1]
+President Dallin H. Oaks shared how the commandments of God guide and steady our lives. He said: “Our experiences in mortality are like the little boy and his father flying a kite on a windy day. As the kite rose higher, the winds caused it to tug on the connecting string in the little boy’s hand. Inexperienced with the force of mortal winds, he proposed to cut the string so the kite could rise higher. His wise father counseled no, explaining that the string is what holds the kite in place against mortal winds. If we lose our hold on the string, the kite will not rise higher. It will be carried about by these winds and inevitably crash to the earth.”[^1]
 
 We need to return to our Heavenly Father through coming unto Jesus Christ. That was the plan that we agreed to and caused us to “\[shout\] for joy” ([[Job 38.7|Job 38:7]]).
 
@@ -38,7 +38,7 @@ Jesus Christ stands at the very heart of God’s plan of salvation and exaltatio
 
 “And now, my sons, remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation; that when the devil shall send forth his mighty winds, yea, his shafts in the whirlwind, yea, when all his hail and his mighty storm shall beat upon you, it shall have no power over you to drag you down to the gulf of misery and endless wo, because of the rock upon which ye are built, which is a sure foundation, a foundation whereon if men build they cannot fall.”
 
-Elder David A. Bednar taught how we can secure that foundation in our lives: “The sacred covenants and ordinances of the Savior’s restored gospel can be compared to the anchor pins and steel rods used to connect a building to bedrock. Every time we faithfully receive, review, remember, and renew sacred covenants, our spiritual anchors are secured ever more firmly and steadfastly to the ‘rock’ of Jesus Christ.”[^2]
+Elder David A. Bednar taught how we can secure that foundation in our lives: “The sacred covenants and ordinances of the Savior’s restored gospel can be compared to the anchor pins and steel rods used to connect a building to bedrock. Every time we faithfully receive, review, remember, and renew sacred covenants, our spiritual anchors are secured ever more firmly and steadfastly to the ‘rock’ of Jesus Christ.”[^2]
 
 ## 5. “Remember, Remember” ([[Helaman 14.30|Helaman 14:30)]]
 
@@ -65,7 +65,8 @@ Let us remember, remember our Savior, especially in this Easter season. He is re
 
 
 
-[^1]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 24.
+[^1]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 24.
 
-[^2]: David A. Bednar, “[[2024 April - “Be Still, and Know That I Am God”.md|Be Still, and Know That I Am God]],” *Liahona*, May 2024, 29–30.
+[^2]: David A. Bednar, “[[2024 April - “Be Still, and Know That I Am God”.md|Be Still, and Know That I Am God]],” *Liahona*, May 2024, 29–30.
 
+#Agency #BookOfMormon #Commandments #JesusChrist

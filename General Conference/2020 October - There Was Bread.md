@@ -1,6 +1,6 @@
 # There Was Bread
 
-By Bishop W. Christopher Waddell - *First Counselor in the Presiding Bishopric*
+By Bishop W. Christopher Waddell - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -14,7 +14,7 @@ The young deacon then sat down on a chair, threw his hands in the air, and shout
 
 From the beginning of time, the Lord has provided direction to help His people prepare spiritually and temporally against the calamities and trials that He knows will come as part of this mortal experience. These calamities may be personal or general in nature, but the Lord’s guidance will provide protection and support to the extent that we heed and act upon His counsel. A wonderful example is provided in an account from the book of Genesis, where we learn of Joseph in Egypt and his inspired interpretation of Pharaoh’s dream.
 
-“And Joseph said unto Pharaoh, … God hath shewed Pharaoh what he is about to do. …
+“And Joseph said unto Pharaoh, … God hath shewed Pharaoh what he is about to do. …
 
 “Behold, there come seven years of great plenty throughout all the land of Egypt:
 
@@ -24,7 +24,7 @@ Pharaoh listened to Joseph, responded to what God had showed him in a dream, and
 
 “And in the seven plenteous years the earth brought forth by handfuls.
 
-“And he gathered up all the food of the seven years. …
+“And he gathered up all the food of the seven years. …
 
 “And Joseph gathered corn as the sand of the sea, … until he left numbering; for it was without number.”[^2]
 
@@ -42,7 +42,7 @@ The Lord does not expect us to do more than we can do, but He does expect us to 
 
 Church leaders have often encouraged Latter-day Saints “to prepare for adversity in life by having a basic supply of food and water and some money in savings.”[^8] At the same time, we are encouraged to “be wise” and “not go to extremes”[^9] in our efforts to establish a home storage supply and a financial reserve. A resource entitled *Personal Finances for Self-Reliance,* published in 2017 and currently available on the Church website in 36 languages, begins with a message from the First Presidency, which states:
 
-“The Lord has declared, ‘It is my purpose to provide for my saints’ \[[[D&C 104.15|Doctrine and Covenants 104:15]]\]. This revelation is a promise from the Lord that He will provide temporal blessings and open the door of self-reliance. …
+“The Lord has declared, ‘It is my purpose to provide for my saints’ \[[[D&C 104.15|Doctrine and Covenants 104:15]]\]. This revelation is a promise from the Lord that He will provide temporal blessings and open the door of self-reliance. …
 
 “… Accepting and living these principles will better enable you to receive the temporal blessings promised by the Lord.
 
@@ -66,7 +66,7 @@ Key home storage principles include the storage of food, the storage of water, a
 
 As we embrace spiritual principles and seek inspiration from the Lord, we will be guided to know the Lord’s will for us, individually and as families, and how best to apply the important principles of temporal preparedness. The most important step of all is to begin.
 
-Elder David A. Bednar taught this principle when he said: “Taking action is the exercise of faith. … True faith is focused in and on the Lord Jesus Christ and always leads to action.”[^18]
+Elder David A. Bednar taught this principle when he said: “Taking action is the exercise of faith. … True faith is focused in and on the Lord Jesus Christ and always leads to action.”[^18]
 
 Brothers and sisters, in an ever-changing world, we must prepare for uncertainties. Even with better days ahead, we know that the temporal peaks and valleys of mortality will continue. As we seek to become temporally prepared, we can face the trials of life with increased confidence, peace in our hearts, and like Joseph in Egypt, we will be able to say, even in stressful circumstances, “There was bread.”[^19] In the name of Jesus Christ, amen.
 
@@ -85,32 +85,30 @@ Brothers and sisters, in an ever-changing world, we must prepare for uncertainti
 
 [^6]: [[Genesis 41.54|Genesis 41:54]].
 
-[^7]: Russell M. Nelson, in Joy D. Jones, “[[2020 April - An Especially Noble Calling.md|An Especially Noble Calling]],” *Ensign* or *Liahona,* May 2020, 16.
+[^7]: Russell M. Nelson, in Joy D. Jones, “[[2020 April - An Especially Noble Calling.md|An Especially Noble Calling]],” *Ensign* or *Liahona,* May 2020, 16.
 
-[^8]: *All Is Safely Gathered In: Family Home Storage* (pamphlet, 2007), 1.
+[^8]: *[All Is Safely Gathered In: Family Home Storage](https://www.churchofjesuschrist.org/study/manual/family-home-storage/family-home-storage?lang=eng)* (pamphlet, 2007), 1.
 
-[^9]: *All Is Safely Gathered In,* 1.
+[^9]: *[All Is Safely Gathered In,](https://www.churchofjesuschrist.org/study/manual/family-home-storage/family-home-storage?lang=eng)* 1.
 
-[^10]: “[Message from the First Presidency](https://churchofjesuschrist.org/study/manual/personal-finances-for-self-reliance/message-from-the-first-presidency?lang=eng),” *Personal Finances for Self-Reliance* (2017), inside front cover.
+[^10]: “[Message from the First Presidency](https://www.churchofjesuschrist.org/study/manual/personal-finances-for-self-reliance/message-from-the-first-presidency?lang=eng),” *Personal Finances for Self-Reliance* (2017), inside front cover.
 
 [^11]: [[Genesis 41.54|Genesis 41:54]].
 
 [^12]: See [[D&C 29.34|Doctrine and Covenants 29:34–35]][[D&C 29.35|]].
 
-[^13]: *Personal Finances for Self-Reliance,* 4.
+[^13]: *[Personal Finances for Self-Reliance,](https://www.churchofjesuschrist.org/study/manual/personal-finances-for-self-reliance/1-becoming-a-wise-and-faithful-steward/my-foundation-self-reliance-is-a-principle-of-salvation?lang=eng)* 4.
 
 [^14]: [[Mosiah 4.27|Mosiah 4:27]].
 
 [^15]: [[Alma 37.6|Alma 37:6]].
 
-[^16]: Gordon B. Hinckley, “[[2005 October - If Ye Are Prepared Ye Shall Not Fear.md|If Ye Are Prepared Ye Shall Not Fear]],” *Ensign* or *Liahona,* Nov. 2005, 62.
+[^16]: Gordon B. Hinckley, “[[2005 October - If Ye Are Prepared Ye Shall Not Fear.md|If Ye Are Prepared Ye Shall Not Fear]],” *Ensign* or *Liahona,* Nov. 2005, 62.
 
-[^17]: “[Emergency Preparedness](https://churchofjesuschrist.org/study/manual/gospel-topics/emergency-preparedness?lang=eng),” Gospel Topics, topics.ChurchofJesusChrist.org.
+[^17]: “[Emergency Preparedness](https://www.churchofjesuschrist.org/study/manual/gospel-topics/emergency-preparedness?lang=eng),” Gospel Topics, topics.ChurchofJesusChrist.org.
 
-[^18]: David A. Bednar, “[Exercise Faith in Christ](https://www.churchofjesuschrist.org/media/video/2014-06-2100-exercise-faith-in-christ?lang=eng)” (video), ChurchofJesusChrist.org/media.
+[^18]: David A. Bednar, “[Exercise Faith in Christ](https://www.churchofjesuschrist.org/media/video/2014-06-2100-exercise-faith-in-christ?lang=eng)” (video), ChurchofJesusChrist.org/media.
 
 [^19]: [[Genesis 41.54|Genesis 41:54]].
 
-
-
-#Preparation #Self-Reliance
+#Preparation #Self-reliance

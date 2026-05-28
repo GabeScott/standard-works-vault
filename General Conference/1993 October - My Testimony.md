@@ -52,7 +52,7 @@ I thank the Lord for the testimony he has given me of the wholeness of the gospe
 
 “And again we bear record—for we saw and heard, and this is the testimony of the gospel of Christ concerning them who shall come forth in the resurrection of the just—
 
-“They are they who received the testimony of Jesus, and believed on his name and were baptized after the manner of his burial. …
+“They are they who received the testimony of Jesus, and believed on his name and were baptized after the manner of his burial. …
 
 “They are they into whose hands the Father has given all things—
 
@@ -107,8 +107,6 @@ I love them and I thank them, and I love and thank you, my brethren, wherever yo
 You too are of the substance of my testimony, as are the many faithful and able women at both the general and local levels of the Church—women of great capacity and faith without whom this work would be woefully incomplete. They too have been called of God.
 
 To my Eternal Father I give thanks for that essence of divinity which is within each of us and for the gift of life which comes from Him. I thank my Redeemer for His supreme gift to all, the gift of eternal life. These are they whom I worship and reverence and love. These are they to whom and through whom I pray. They are my Father and my God, my Redeemer and my Lord. And of them I testify in the sacred name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Finding Lasting Peace and Building Eternal Families
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -14,11 +14,11 @@ The scriptures testify of Him and provide an example of perfect righteousness fo
 
 “To be a Christian is to admire Jesus so sincerely and so fervently that the whole life goes out to him in an aspiration to be like him.
 
-“… We may come to know him through the words he spoke, through the deeds he did, and also through his silences. We may know him also by the impression which he made first upon his friends and secondly upon his foes, and thirdly upon the general body of his contemporaries. …
+“… We may come to know him through the words he spoke, through the deeds he did, and also through his silences. We may know him also by the impression which he made first upon his friends and secondly upon his foes, and thirdly upon the general body of his contemporaries. …
 
-“One of the notes of twentieth century life is discontent \[and trouble\]. …
+“One of the notes of twentieth century life is discontent \[and trouble\]. …
 
-“… The world is crying out for something, it scarce knows what. Wealth has come, … \[and\] the world is filled with … inventions of human skill and genius, but … we are \[still\] restless, unsatisfied, \[and\] bewildered. … \[If we open\] the New Testament \[we are greeted by these words\], ‘Come unto me and I will give you rest, I am the bread of life, I am the Light of the world, If any man thirst let him come unto me and drink, My peace I give unto you, You shall receive power, You shall rejoice’” (*The Character of Jesus* \[1908\], 7, 11, 15–16).
+“… The world is crying out for something, it scarce knows what. Wealth has come, … \[and\] the world is filled with … inventions of human skill and genius, but … we are \[still\] restless, unsatisfied, \[and\] bewildered. … \[If we open\] the New Testament \[we are greeted by these words\], ‘Come unto me and I will give you rest, I am the bread of life, I am the Light of the world, If any man thirst let him come unto me and drink, My peace I give unto you, You shall receive power, You shall rejoice’” (*The Character of Jesus* \[1908\], 7, 11, 15–16).
 
 Men and women are shaped partly by those among whom they choose to live. Those to whom they look up and try to emulate also shape them. Jesus is the great Exemplar. The only way to find lasting peace is to look to Him and live.
 
@@ -44,7 +44,7 @@ It is contained in [[Matthew 13.25|Matthew chapter 13]][[Matthew 13.26|]][[Matth
 
 That old enemy of all mankind has found as many devices as he can think of to scatter tares far and wide. He has found ways to have them penetrate even the sanctity of our own homes. The wicked and worldly ways have become so widespread there seems to be no real way of weeding them out. They come by wire and through the air into the very devices we have developed to educate and entertain us. The wheat and the tares have grown close together. A steward managing the field must, with all his or her power, nourish that which is good and make it so strong and beautiful the tares will have no appeal either to the eye or the ear. How blessed are we as members of the Lord’s Church to have the precious gospel of our Lord and Savior as a foundation on which we can build our lives.
 
-From the Book of Mormon in 2 Nephi we read: “For behold, again I say unto you that if ye will enter in by the way, and receive the Holy Ghost, it will show unto you all things what ye should do” ([[2 Nephi 32.5|2 Nephi 32:5]]).
+From the Book of Mormon in 2 Nephi we read: “For behold, again I say unto you that if ye will enter in by the way, and receive the Holy Ghost, it will show unto you all things what ye should do” ([[2 Nephi 32.5|2 Nephi 32:5]]).
 
 We must never let the noise of the world overpower and overwhelm that still, small voice.
 
@@ -54,7 +54,7 @@ Many in our worried society understand that the disintegration of the family wil
 
 As the world continues to watch us, let us be certain that our example will sustain and support the plan the Lord has designed for His children here in mortality. The greatest teaching of all must be done by righteous example. Our homes must be holy places in order to stand against the pressures of the world. Remember that the greatest of all the blessings of the Lord come through and are given to righteous families.
 
-We must carefully continue to evaluate our performance as parents. The most powerful teaching a child will ever receive will come from concerned and righteous fathers and mothers. Let us first look at the role of the mother. Listen to this quote from President Gordon B. Hinckley:
+We must carefully continue to evaluate our performance as parents. The most powerful teaching a child will ever receive will come from concerned and righteous fathers and mothers. Let us first look at the role of the mother. Listen to this quote from President Gordon B. Hinckley:
 
 “Women who make a house a home make a far greater contribution to society than those who command large armies or stand at the head of impressive corporations. Who can put a price tag on the influence a mother has on her children, a grandmother on her posterity, or aunts and sisters on their extended family?
 
@@ -76,13 +76,13 @@ Fathers set an example of faithful gospel service.
 
 Please remember, brethren, your sacred calling as a father in Israel—your most important calling in time and eternity—a calling from which you are never released.
 
-Many years ago at stake conferences, we would show a film clip to illustrate the theme of the message we were presenting. During the course of a year, as we traveled around the Church on our assigned stake conference visits, we became very familiar with the content of the film. We could almost quote it by heart. The message has remained in my mind over all these years. The film was narrated by President Harold B. Lee and gave an account of an occurrence in the home of his daughter. It goes something like this:
+Many years ago at stake conferences, we would show a film clip to illustrate the theme of the message we were presenting. During the course of a year, as we traveled around the Church on our assigned stake conference visits, we became very familiar with the content of the film. We could almost quote it by heart. The message has remained in my mind over all these years. The film was narrated by President Harold B. Lee and gave an account of an occurrence in the home of his daughter. It goes something like this:
 
 One evening the mother of the home was frantically trying to finish bottling some fruit. Finally the children were ready for bed and were settled down. It was now time to get to the fruit. As she began to peel and pit the fruit, two little boys appeared in the kitchen and announced that they were ready for their bedtime prayers.
 
 Not wanting to be interrupted, the mother said very quickly to the boys, “Why don’t you just say your prayers alone tonight, and Mother will just keep working on the fruit?”
 
-The older of the two sons firmly planted his feet and asked, “Which is the most important, prayers or fruit?” (See *Teachings of Presidents of the Church: Harold B. Lee* \[2000\], 143–44.)
+The older of the two sons firmly planted his feet and asked, “Which is the most important, prayers or fruit?” (See *Teachings of Presidents of the Church: Harold B. Lee* \[2000\], 143–44.)
 
 Sometimes we find ourselves in situations when we have the opportunity to teach children a lesson which will have a lasting effect on their young lives. Of course, prayers are more important than fruit. A successful parent should never be too busy to capture a moment in a child’s life when an important lesson can be taught.
 
@@ -95,6 +95,4 @@ It is the gospel of Jesus Christ that provides this foundation upon which we can
 
 
 
-
-
-#Family #Fatherhood #Jesus_Christ #Motherhood
+#Family #Fatherhood #JesusChrist #Motherhood

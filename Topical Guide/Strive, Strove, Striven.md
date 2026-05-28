@@ -1,9 +1,8 @@
 # Strive, Strove, Striven
 
-
 My spirit shall not always *strive* with man, [[Genesis 6.3|Genesis 6:3]] ([[1 Nephi 7.14|1 Nephi 7:14]]; [[2 Nephi 26.11|2 Nephi 26:11]]; [[Mormon 5.16|Mormon 5:16]]; [[Ether 2.15|Ether 2:15]]; [[D&C 1.33|D&C 1:33]]; [[Moses 8.17|Moses 8:17]]).
 
-herdmen of Gerar did *strive* with Isaac's, [[Genesis 26.20|Genesis 26:20]].
+herdmen of Gerar did *strive* with Isaac’s, [[Genesis 26.20|Genesis 26:20]].
 
 if men *strive* together, [[Exodus 21.18|Exodus 21:18]].
 
@@ -25,7 +24,7 @@ He shall not *strive*, nor cry, [[Matthew 12.19|Matthew 12:19]].
 
 Jews therefore *strove* among themselves, [[John 6.52|John 6:52]].
 
-scribes that were of the Pharisees' part arose, and *strove*, [[Acts 23.9|Acts 23:9]].
+scribes that were of the Pharisees’ part arose, and *strove*, [[Acts 23.9|Acts 23:9]].
 
 man that *striveth* for the mastery is temperate, [[1 Corinthians 9.25|1 Corinthians 9:25]].
 

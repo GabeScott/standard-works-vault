@@ -1,6 +1,6 @@
 # Standing by Our Promises and Covenants
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -22,7 +22,7 @@ The Lord has said, “Every soul who forsaketh his sins and cometh unto me, and 
 
 I learned the importance of keeping my word in my youth. One such example is when I stood at attention to recite the Scout Oath. Our association with the Boy Scouts of America, as it now concludes, will always be an important legacy to me and this Church. To the Scouting organization, to the scores of men and women who have served diligently as Scout leaders, to the moms—real credit goes there—and to the young men who have participated in Scouting, we say, “Thank you.”
 
-In this very session, our dear prophet, President Russell M. Nelson, and Elder Quentin L. Cook have announced adjustments that will refocus our attention on youth and align our organizations with revealed truth. In addition, just last Sunday, President Nelson and President M. Russell Ballard explained the new Children and Youth of The Church of Jesus Christ of Latter-day Saints program for the entire Church. It is a worldwide initiative focused on our Lord and Savior, Jesus Christ. The First Presidency and Quorum of the Twelve Apostles are unified in this new direction, and I personally bear my witness that the Lord has guided us every step of the way. I am excited for the children and youth of the Church to experience this integrated focus on them both at home and at church—through gospel learning, service and activities, and personal development.
+In this very session, our dear prophet, President Russell M. Nelson, and Elder Quentin L. Cook have announced adjustments that will refocus our attention on youth and align our organizations with revealed truth. In addition, just last Sunday, President Nelson and President M. Russell Ballard explained the new Children and Youth of The Church of Jesus Christ of Latter-day Saints program for the entire Church. It is a worldwide initiative focused on our Lord and Savior, Jesus Christ. The First Presidency and Quorum of the Twelve Apostles are unified in this new direction, and I personally bear my witness that the Lord has guided us every step of the way. I am excited for the children and youth of the Church to experience this integrated focus on them both at home and at church—through gospel learning, service and activities, and personal development.
 
 The youth theme for this coming year, 2020, speaks of Nephi’s classic promise to “go and do.” He wrote, “And it came to pass that I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.”[^3] Although it was uttered long ago, we in the Church stand on that promise today.
 
@@ -50,7 +50,7 @@ Reflect with me on examples of promises in the scriptures. Ammon and the sons of
 
 Ruth, in the Old Testament, promised her mother-in-law, “Whither thou goest, I will go.”[^12] She lived true to her word. The good Samaritan, in a parable in the New Testament, promised the innkeeper if he would care for the injured traveler, “Whatsoever thou spendest more, when I come again, I will repay thee.”[^13] Zoram, in the Book of Mormon, promised to go into the wilderness with Nephi and his brothers. Nephi recounted, “When Zoram had made an oath unto us, our fears did cease concerning him.”[^14]
 
-What of the ancient promise “made to the fathers” as described in the scriptures that “the hearts of the children shall turn to their fathers”?[^15] In the pre-earth life when we chose God’s plan, we made a promise to help gather Israel on both sides of the veil. “We went into a partnership with the Lord,” Elder John A. Widtsoe explained years ago. “The working out of the plan became then not merely the Father’s work, and the Savior’s work, but also our work.”[^16]
+What of the ancient promise “made to the fathers” as described in the scriptures that “the hearts of the children shall turn to their fathers”?[^15] In the pre-earth life when we chose God’s plan, we made a promise to help gather Israel on both sides of the veil. “We went into a partnership with the Lord,” Elder John A. Widtsoe explained years ago. “The working out of the plan became then not merely the Father’s work, and the Savior’s work, but also our work.”[^16]
 
 “\[The\] gathering is the most important thing taking place on earth today,” President Nelson has said as he has traveled the world. “When we speak of the *gathering,* we are simply saying this fundamental truth: every one of our Heavenly Father’s children, on both sides of the veil, deserves to hear the message of the restored gospel of Jesus Christ.”[^17]
 
@@ -65,17 +65,17 @@ Of this I testify and promise in the name of Jesus Christ, amen.
 
 [^2]: [[D&C 93.1|Doctrine and Covenants 93:1]].
 
-[^3]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^3]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
 [^4]: [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
 
-[^5]: [[3 Nephi 18.7|3 Nephi 18:7]].
+[^5]: [[3 Nephi 18.7|3 Nephi 18:7]].
 
 [^6]: [[D&C 82.10|Doctrine and Covenants 82:10]].
 
 [^7]: See [[D&C 89.18|Doctrine and Covenants 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]].
 
-[^8]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona,* May 2017, 41.
+[^8]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona,* May 2017, 41.
 
 [^9]: [[Matthew 25.40|Matthew 25:40]].
 
@@ -87,16 +87,14 @@ Of this I testify and promise in the name of Jesus Christ, amen.
 
 [^13]: [[Luke 10.35|Luke 10:35]].
 
-[^14]: [[1 Nephi 4.37|1 Nephi 4:37]].
+[^14]: [[1 Nephi 4.37|1 Nephi 4:37]].
 
 [^15]: [[D&C 2.2|Doctrine and Covenants 2:2]]; see also [[D&C 27.9|Doctrine and Covenants 27:9]]; [[D&C 128.17|128:17]]; [[Joseph Smith History 1.39|Joseph Smith—History 1:39]].
 
-[^16]: John A. Widtsoe, “The Worth of Souls,” *Utah Genealogical and Historical Magazine,* Oct. 1934, 189.
+[^16]: John A. Widtsoe, “The Worth of Souls,” *Utah Genealogical and Historical Magazine,* Oct. 1934, 189.
 
-[^17]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org, 8.
+[^17]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org, 8.
 
 [^18]: [[Mosiah 2.41|Mosiah 2:41]].
-
-
 
 #Covenants

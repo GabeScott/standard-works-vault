@@ -1,13 +1,12 @@
 # Reward
 
+*See also* [[Abundant Life.md|Abundant Life]]; [[Blessing.md|Blessing]]; [[Bribe.md|Bribe]]; [[Glory.md|Glory]]; [[God, Justice of.md|God, Justice of]]; [[Good Works.md|Good Works]]; [[Heaven.md|Heaven]]; [[Hire.md|Hire]]; [[Inheritance.md|Inheritance]]; [[Judgment, the Last.md|Judgment, the Last]]; [[Justice.md|Justice]]; [[Retribution.md|Retribution]]; [[Wages.md|Wages]]
 
-*See also* [[Abundant Life.md|Abundant Life]]; [[Blessing.md|Blessing]]; [[Bribe, Bribery.md|Bribe]]; [[Glory.md|Glory]]; [[God, Justice of.md|God, Justice of]]; [[Good Works.md|Good Works]]; [[Heaven.md|Heaven]]; [[Hire, Hireling.md|Hire]]; [[Inheritance.md|Inheritance]]; [[Judgment, the Last.md|Judgment, the Last]]; [[Justice.md|Justice]]; [[Retribution.md|Retribution]]; [[Wages.md|Wages]]
-
-I am ... thy exceeding great *reward*, [[Genesis 15.1|Genesis 15:1]].
+I am … thy exceeding great *reward*, [[Genesis 15.1|Genesis 15:1]].
 
 Wherefore have ye *rewarded* evil for good, [[Genesis 44.4|Genesis 44:4]].
 
-Lord ... regardeth not persons, nor taketh *reward*, [[Deuteronomy 10.17|Deuteronomy 10:17]].
+Lord … regardeth not persons, nor taketh *reward*, [[Deuteronomy 10.17|Deuteronomy 10:17]].
 
 Cursed be he that taketh *reward* to slay an innocent person, [[Deuteronomy 27.25|Deuteronomy 27:25]].
 
@@ -19,7 +18,7 @@ Lord shall *reward* the doer of evil according to his wickedness, [[2 Samuel 3.3
 
 he *rewardeth* him, and he shall know it, [[Job 21.19|Job 21:19]].
 
-Lord ... plentifully *rewardeth* the proud doer, [[Psalms 31.23|Psalms 31:23]].
+Lord … plentifully *rewardeth* the proud doer, [[Psalms 31.23|Psalms 31:23]].
 
 *reward* for the righteous, [[Psalms 58.11|Psalms 58:11]].
 
@@ -49,15 +48,15 @@ thy work shall be *rewarded*, [[Jeremiah 31.16|Jeremiah 31:16]].
 
 thy *reward* shall return upon thine own head, [[Obadiah 1.15|Obadiah 1:15]].
 
-great is your *reward* in heaven, [[Matthew 5.12|Matthew 5:12]] ([[Luke 6.23|Luke 6:23]], [[Luke 6.35|Luke 6:35]]; [[3 Nephi 12.12|3 Nephi 12:12]]; [[D&C 127.4|D&C 127:4]]).
+great is your *reward* in heaven, [[Matthew 5.12|Matthew 5:12]] ([[Luke 6.23|Luke 6:23]]; [[Luke 6.35|Luke 6:35]]; [[3 Nephi 12.12|3 Nephi 12:12]]; [[D&C 127.4|D&C 127:4]]).
 
 love them which love you, what *reward* have ye, [[Matthew 5.46|Matthew 5:46]].
 
-alms before men ... ye have no *reward*, [[Matthew 6.1|Matthew 6:1]].
+alms before men … ye have no *reward*, [[Matthew 6.1|Matthew 6:1]].
 
 thy Father which seeth in secret shall *reward* thee openly, [[Matthew 6.6|Matthew 6:6]].
 
-receiveth a prophet ... shall receive a prophet's *reward*, [[Matthew 10.41|Matthew 10:41]].
+receiveth a prophet … shall receive a prophet’s *reward*, [[Matthew 10.41|Matthew 10:41]].
 
 shall in no wise lose his *reward*, [[Matthew 10.42|Matthew 10:42]] ([[Mark 9.41|Mark 9:41]]).
 
@@ -85,7 +84,7 @@ that we receive a full *reward*, [[2 John 1.8|2 John 1:8]].
 
 greedily after the error of Balaam for *reward*, [[Jude 1.11|Jude 1:11]].
 
-be thou faithful ... and I will give thee a *crown*, [[Revelation 2.10|Revelation 2:10]].
+be thou faithful … and I will give thee a *crown*, [[Revelation 2.10|Revelation 2:10]].
 
 *Reward* her even as she *rewarded* you, [[Revelation 18.6|Revelation 18:6]].
 
@@ -93,19 +92,19 @@ reap their *rewards* according to their works, [[Alma 3.26|Alma 3:26]] ([[Alma 9
 
 shall reap the *rewards* of your faith, [[Alma 32.43|Alma 32:43]].
 
-devil ... *rewardeth* you no good thing, [[Alma 34.39|Alma 34:39]].
+devil … *rewardeth* you no good thing, [[Alma 34.39|Alma 34:39]].
 
 then shall ye receive your *reward*, [[Alma 41.14|Alma 41:14]].
 
-sow good ... reap good for your *reward*, [[D&C 6.33|D&C 6:33]].
+sow good … reap good for your *reward*, [[D&C 6.33|D&C 6:33]].
 
-Pray always, lest you ... lose your *reward*, [[D&C 31.12|D&C 31:12]].
+Pray always, lest you … lose your *reward*, [[D&C 31.12|D&C 31:12]].
 
 great shall be thy *reward*, [[D&C 42.65|D&C 42:65]].
 
 I come quickly, and my *reward* is with me, [[D&C 54.10|D&C 54:10]].
 
-Lord shall come ... and he shall *reward* every man, [[D&C 56.19|D&C 56:19]].
+Lord shall come … and he shall *reward* every man, [[D&C 56.19|D&C 56:19]].
 
 he that is faithful in tribulation, the *reward* of the same is greater in the kingdom, [[D&C 58.2|D&C 58:2]].
 
@@ -117,12 +116,10 @@ works shall follow him, and also a *reward*, [[D&C 63.48|D&C 63:48]].
 
 *reward* of their diligence, [[D&C 70.15|D&C 70:15]].
 
-if men will smite you ... ye shall be *rewarded*, [[D&C 98.23|D&C 98:23]].
+if men will smite you … ye shall be *rewarded*, [[D&C 98.23|D&C 98:23]].
 
 until he repent and *reward* thee four-fold, [[D&C 98.44|D&C 98:44]].
 
 he will mete out a just recompense of *reward*, [[D&C 127.3|D&C 127:3]].
 
 glory is their eternal *reward*, [[D&C 135.6|D&C 135:6]].
-
-*See also* [[Psalms 31.19|Psalms 31:19]]; [[Isaiah 64.4|Isaiah 64:4]]; [[Matthew 20.1|Matt. 20:1-14]][[Matthew 20.2|]][[Matthew 20.3|]][[Matthew 20.4|]][[Matthew 20.5|]][[Matthew 20.6|]][[Matthew 20.7|]][[Matthew 20.8|]][[Matthew 20.9|]][[Matthew 20.10|]][[Matthew 20.11|]][[Matthew 20.12|]][[Matthew 20.13|]][[Matthew 20.14|]]; [[Matthew 25.34|Matthew 25:34]]; [[1 Corinthians 2.9|1 Corinthians 2:9]]; [[1 Corinthians 9.25|1 Corinthians 9:25]]; [[2 Timothy 2.5|2 Timothy 2:5]]; [[2 Timothy 4.8|2 Timothy 4:8]]; [[James 1.12|James 1:12]]; [[Alma 26.5|Alma 26:5]]; [[Abraham 3.26|Abraham 3:26]].

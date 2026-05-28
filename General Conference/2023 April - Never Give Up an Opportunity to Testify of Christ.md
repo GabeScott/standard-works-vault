@@ -1,6 +1,6 @@
 # Never Give Up an Opportunity to Testify of Christ
 
-By President Bonnie H. Cordon - *Young Women General President*
+By President Bonnie H. Cordon - *Young Women General President*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -8,7 +8,7 @@ By President Bonnie H. Cordon - *Young Women General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/04/12cordon?lang=eng)
 
-Five years ago today, we raised our hands to sustain our beloved prophet, President Russell M. Nelson, as President of The Church of Jesus Christ of Latter-day Saints―the Lord’s mouthpiece for this remarkable season of growth and revelation. Through him, we have received countless invitations and have been promised glorious blessings if we will center our lives on our Savior, Jesus Christ.
+Five years ago today, we raised our hands to sustain our beloved prophet, President Russell M. Nelson, as President of The Church of Jesus Christ of Latter-day Saints―the Lord’s mouthpiece for this remarkable season of growth and revelation. Through him, we have received countless invitations and have been promised glorious blessings if we will center our lives on our Savior, Jesus Christ.
 
 In 2011, while I was serving with my husband as mission leaders in beautiful Curitiba, Brazil, my phone rang during a meeting. Rushing to silence it, I noticed the call was from my father. I quickly left the meeting to answer: “Hi, Dad!”
 
@@ -26,7 +26,7 @@ Like you, I have occasionally stood on the first Sunday of the month and borne a
 
 Yet this plea felt more personal! It seemed as though he was saying, “Bonnie, don’t let the world overtake you! Stay true to your covenants with the Savior. Seek to experience His blessings every day, and be able to testify through the Holy Ghost of His power and presence in your life!”
 
-We live in a fallen world, with distractions coaxing our eyes and hearts downward instead of heavenward. Much like the Nephites in [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], *we need Jesus Christ*. Can you imagine yourself there, among people who had experienced so much chaos and destruction? What would it be like to hear the Lord’s personal invitation:
+We live in a fallen world, with distractions coaxing our eyes and hearts downward instead of heavenward. Much like the Nephites in [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], *we need Jesus Christ*. Can you imagine yourself there, among people who had experienced so much chaos and destruction? What would it be like to hear the Lord’s personal invitation:
 
 “Arise and come forth unto me, that ye may *thrust* your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may *know* that I am … the God of the whole earth, and have been slain for the sins of the world.
 
@@ -71,16 +71,14 @@ Oh, how I love Him. How grateful we are for His infinite Atonement, which has �
 
 
 
-[^1]: [[3 Nephi 11.14|3 Nephi 11:14–16]][[3 Nephi 11.15|]][[3 Nephi 11.16|]]; emphasis added.
+[^1]: [[3 Nephi 11.14|3 Nephi 11:14–16]][[3 Nephi 11.15|]][[3 Nephi 11.16|]]; emphasis added.
 
-[^2]: See Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 88–92.
+[^2]: See Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 88–92.
 
 [^3]: See [[Alma 30.44|Alma 30:44]]; [[D&C 6.36|Doctrine and Covenants 6:36]]; [[Moses 6.63|Moses 6:63]].
 
 [^4]: [[Mosiah 27.31|Mosiah 27:31]]; see also [[D&C 88.104|Doctrine and Covenants 88:104]].
 
-[^5]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93.
+[^5]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93.
 
-
-
-#Discipleship #Holy_Ghost #Jesus_Christ #Testimony
+#Discipleship #HolyGhost #JesusChrist #Testimony

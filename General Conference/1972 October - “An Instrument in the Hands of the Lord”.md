@@ -1,6 +1,6 @@
 # “An Instrument in the Hands of the Lord”
 
-By President Rex D. Pinegar - *Of the First Council of the Seventy*
+By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -13,8 +13,6 @@ I am reminded as I approach you today of a scripture that was written to me in a
 “And behold, when I see many of my brethren truly penitent, and coming to the Lord their God, then is my soul filled with joy; then do I remember what the Lord has done for me, yea, even that he hath heard my prayer; yea, then do I remember his merciful arm which he extended towards me.”
 
 That we may all remember that arm is my prayer in the name of Jesus Christ. Amen.
-
-
 
 
 

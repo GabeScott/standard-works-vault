@@ -1,6 +1,6 @@
 # Should the Commandments Be Rewritten?
 
-By Elder Richard L. Evans - *Of the Council of the Twelve*
+By Elder Richard L. Evans - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -46,7 +46,7 @@ And if anyone doubts that all forms of moral infraction and perversion are not c
 
 Why quibble? Why not simply accept the facts and be honest with ourselves?
 
-“… fear God, and keep his commandments: for this is the whole duty of man.” ([[Ecclesiastes 12.13|Eccl. 12:13]].)
+“… fear God, and keep his commandments: for this is the whole duty of man.” ([[Ecclesiastes 12.13|Eccl. 12:13]].)
 
 “If ye love me,” said our Savior, “keep my commandments.” ([[John 14.15|John 14:15]].)
 
@@ -54,25 +54,25 @@ But we ought also to keep the commandments simply as a favor to ourselves.
 
 Many years ago Emerson wrote an essay, “Compensation,” in which he said:
 
-“The world looks like a multiplication-table, or a mathematical equation, which, turn it how you will, balances itself. … Every secret is told, every crime is punished, every virtue rewarded, every wrong redressed, in silence and certainty. …
+“The world looks like a multiplication-table, or a mathematical equation, which, turn it how you will, balances itself. … Every secret is told, every crime is punished, every virtue rewarded, every wrong redressed, in silence and certainty. …
 
-“Cause and effect, means and ends, seed and fruit, cannot be severed; for the effect already blooms in the cause, … the fruit in the seed. …
+“Cause and effect, means and ends, seed and fruit, cannot be severed; for the effect already blooms in the cause, … the fruit in the seed. …
 
-“What will you have? quoth God; pay for it and take it. … Thou shalt be paid exactly for what thou hast done, no more, no less. …
+“What will you have? quoth God; pay for it and take it. … Thou shalt be paid exactly for what thou hast done, no more, no less. …
 
-“A man cannot speak but he judges himself. … Every opinion reacts on him who utters it. …
+“A man cannot speak but he judges himself. … Every opinion reacts on him who utters it. …
 
-“You cannot do wrong without suffering wrong. …
+“You cannot do wrong without suffering wrong. …
 
-“The thief steals from himself. The swindler swindles himself. …
+“The thief steals from himself. The swindler swindles himself. …
 
-“… it is impossible to get anything without its price. …
+“… it is impossible to get anything without its price. …
 
 “Commit a crime, and it seems as if a coat of snow fell on the ground, such as reveals in the woods the track of every partridge and fox and squirrel and mole. You cannot recall the spoken word, you cannot wipe out the foot-track, you cannot draw up the ladder, so as to leave no inlet or clew.
 
-“… we gain the strength of the temptation we resist. …
+“… we gain the strength of the temptation we resist. …
 
-“Men suffer all their life long under the foolish superstition that they can be cheated. But it is … impossible for a man to be cheated by anyone but himself. …”
+“Men suffer all their life long under the foolish superstition that they can be cheated. But it is … impossible for a man to be cheated by anyone but himself. …”
 
 I heard from President Lee a very short sentence that said essentially what Emerson said, that there are no successful sinners. It is a remarkable sentence to contemplate.
 
@@ -115,8 +115,6 @@ Should the commandments be rewritten? No, they should be reread and become the g
 I remember the words of a beloved stake president, and I thank him for the thought he left with me some months ago. He said, “I used to ride the range with my father, looking for lost sheep or cattle. And as we would mount a ridge we would look off into a distant hollow or a clump of trees, and my father would say, ‘There they are.’” But this stake president said, “My father could see farther than I could, and often I couldn’t see them. But I knew they were there because my father said so.”
 
 There are many things, my beloved brethren and sisters, that I know and you know are there, because our Father said so. And I know that he lives, that he made us in his image, that he sent his divine Son, our Savior, to show us the way of life and redeem us from death. I know that he will enter into our lives as fully as we let him, and that his church and gospel and way of life are on earth and here with us, and that we will realize our highest possibilities if we accept the counsels God has given, and that we will fall somewhat, somewhere short of what we might have been, or might have had, if we run contrary to his commandments. God bless you and be with you always, I pray in the name of Jesus Christ. Amen.
-
-
 
 
 

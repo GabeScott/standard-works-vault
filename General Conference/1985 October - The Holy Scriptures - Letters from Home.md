@@ -30,7 +30,7 @@ When I went out alone, I took my scriptures with me. I read about my Father in H
 
 After a time we gathered together. Everyone had opened and read his or her letter. One young woman stood expressing the feelings of her heart. She held her letter close. In her words, “I nearly bawled my face off when I sat there alone and realized how much my mom and dad love me.” I nearly bawled my face off when I read again about how very much our Father in Heaven loves us.
 
-Can you imagine being away from home and receiving a letter from your parents and not bothering to open it or read it? This is what happens when we don’t read these precious records. The holy scriptures are like letters from home telling us how we can draw near to our Father in Heaven. He tells us to come as we are. No one will be denied. He loves everyone. (See [[3 Nephi 9.14|3 Ne. 9:14, 17–18]][[3 Nephi 9.17|]][[3 Nephi 9.18|]].)
+Can you imagine being away from home and receiving a letter from your parents and not bothering to open it or read it? This is what happens when we don’t read these precious records. The holy scriptures are like letters from home telling us how we can draw near to our Father in Heaven. He tells us to come as we are. No one will be denied. He loves everyone. (See [[3 Nephi 9.14|3 Ne. 9:14, 17–18]][[3 Nephi 9.17|]][[3 Nephi 9.18|]].)
 
 I ask you, will you open your scriptures and read them every day? Why? Because the glorious promises will then be yours. You can have a sure testimony of our Father in Heaven’s love for you. You can know the gospel plan and the blessings that come through obedience and right choices. The verses you mark will become anchors to cling to when the voices of the world try to confuse you or discourage you. They will lift you up in spirit when you’re down, and you can experience the feeling of being close to our Father in Heaven. I know this, but I’d like you to hear from a young woman who has made a habit of reading the scriptures. I’ve asked Gail Gardner to tell you how it works for her.
 
@@ -67,8 +67,6 @@ Let me tell you about this old set that my mom and dad gave me when I was sevent
 Through prayer and study you can know the scriptures are true. I am so anxious for you to know and love the scriptures so they can provide answers during your teenage years when the climb is steep and scary and risky and you need inspiration as you make important choices every day. As you become more and more familiar with the scriptures, they can eventually become your favorite stories, easy to read; and they will help you have determination to stand firm for righteousness, even when it’s hard.
 
 After this conference, will you join with me in making a renewed commitment to increase your scripture study on a regular basis? Will you make a plan to have a set of your own scriptures to keep close and carry with you? Will every one of you within the sound of my voice accept the invitation, the challenge, to make a commitment to read the scriptures this year regularly? If you will do this, I promise you, and bear my witness, that our Father in Heaven will draw near to you because you will be drawing near to Him. (See [[D&C 88.63|D&C 88:63]].) We live and will one day die. And when we do, we will know our Savior, for we will have searched the holy scriptures and felt His nearness as He walks with us on our journey home. To this I bear my testimony, in the name of Jesus Christ, amen.
-
-
 
 
 

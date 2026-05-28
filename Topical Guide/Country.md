@@ -1,6 +1,5 @@
 # Country
 
-
 *See also* [[Nations.md|Nations]]
 
 Abram, Get thee out of thy *country*, [[Genesis 12.1|Genesis 12:1]] ([[Acts 7.3|Acts 7:3]]).
@@ -9,7 +8,7 @@ unto thy seed, I will give all these *countries*, [[Genesis 26.3|Genesis 26:3]].
 
 one of your own *country*, [[Leviticus 16.29|Leviticus 16:29]].
 
-cometh out of a far *country* for thy name's sake, [[1 Kings 8.41|1 Kings 8:41]].
+cometh out of a far *country* for thy name’s sake, [[1 Kings 8.41|1 Kings 8:41]].
 
 I have scattered them among the *countries*, [[Ezekiel 11.16|Ezekiel 11:16]].
 

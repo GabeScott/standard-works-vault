@@ -1,6 +1,6 @@
 # Lessons at the Well
 
-By Susan H. Porter - *First Counselor in the Primary General Presidency*
+By Susan H. Porter - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -10,7 +10,7 @@ By Susan H. Porter - *First Counselor in the Primary General Presidency*
 
 What a joy it is to be gathered with each of you in this women’s session of general conference!
 
-I grew up in western New York and attended a small branch of the Church about 20 miles (32 km) from our home. As I sat in Sunday School class in the basement of our old rented chapel with only my friend Patti Jo, I never could have imagined being part of a global sisterhood of millions of women.
+I grew up in western New York and attended a small branch of the Church about 20 miles (32 km) from our home. As I sat in Sunday School class in the basement of our old rented chapel with only my friend Patti Jo, I never could have imagined being part of a global sisterhood of millions of women.
 
 Five years ago my husband, Bruce, became seriously ill when we were serving with the consecrated Saints in the Europe East Area. We returned home, and he passed away only a few weeks later. My life changed overnight. I was grieving and felt weak and vulnerable. I pled with the Lord to direct my path: “What would Thou have me do?”
 
@@ -38,7 +38,7 @@ In a familiar verse in the Doctrine and Covenants, the Lord encourages women and
 
 Sisters, the power is in *us* to bring to pass much righteousness!
 
-President Russell M. Nelson testified, “Every woman and every man who makes covenants with God and keeps those covenants, and who participates worthily in priesthood ordinances, has direct access to the power of God.”[^5]
+President Russell M. Nelson testified, “Every woman and every man who makes covenants with God and keeps those covenants, and who participates worthily in priesthood ordinances, has direct access to the power of God.”[^5]
 
 I have come to know that as we strive to honor sacred covenants made at baptism and in holy temples, the Lord will bless us “with *His* healing, strengthening power” and with “spiritual insights and awakenings \[we’ve\] never had before.”[^6]
 
@@ -58,7 +58,7 @@ Even in very small amounts, each affects everything around it. The Savior invite
 
 It is surprising how much difference a sprinkling of salt makes in the flavor of what we eat. And yet salt is one of the least expensive and simplest ingredients.
 
-In the book of 2 Kings, we read of “a little maid”[^11] who was captured by the Syrians and became a servant to the wife of Naaman, captain of the Syrian army. She was *as salt*; she was young, of no worldly importance, and her life as a slave in a foreign country was clearly not what she had hoped for.
+In the book of 2 Kings, we read of “a little maid”[^11] who was captured by the Syrians and became a servant to the wife of Naaman, captain of the Syrian army. She was *as salt*; she was young, of no worldly importance, and her life as a slave in a foreign country was clearly not what she had hoped for.
 
 However, she spoke two sentences with the power of God, testifying to Naaman’s wife: “Would God my lord were with the prophet that is in Samaria! for he would recover him of his leprosy.”[^12]
 
@@ -88,7 +88,7 @@ Sisters, hearts can be changed and lives blessed as we offer a pinch of salt, a 
 
 I testify that the *Savior* is the salt in our lives, inviting *us* to taste of His joy and love.[^14] It is *He* who is the leaven when our lives are hard, bringing *us* hope[^15] and lifting our burdens[^16] through His matchless power and redeeming love.[^17] *He* is our light,[^18] illuminating *our* path back home.
 
-I pray that we can come to the Savior, like the woman at the well, and drink of His living water. With the people of Samaria, we can then declare, “Now we believe, … for we have heard him ourselves, and know that this is indeed the Christ, the Saviour of the world.”[^19] In the name of Jesus Christ, amen.
+I pray that we can come to the Savior, like the woman at the well, and drink of His living water. With the people of Samaria, we can then declare, “Now we believe, … for we have heard him ourselves, and know that this is indeed the Christ, the Saviour of the world.”[^19] In the name of Jesus Christ, amen.
 
 
 
@@ -101,9 +101,9 @@ I pray that we can come to the Savior, like the woman at the well, and drink of 
 
 [^4]: [[D&C 58.27|Doctrine and Covenants 58:27–28]][[D&C 58.28|]]; emphasis added.
 
-[^5]: Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 77. “Every time you worthily serve and worship in the temple, you leave armed with God’s power and with His angels having ‘charge over’ you \[[[D&C 109.22|Doctrine and Covenants 109:22]]\]” (page 78).
+[^5]: Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 77. “Every time you worthily serve and worship in the temple, you leave armed with God’s power and with His angels having ‘charge over’ you \[[[D&C 109.22|Doctrine and Covenants 109:22]]\]” (page 78).
 
-[^6]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94, 95.
+[^6]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94, 95.
 
 [^7]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
@@ -113,9 +113,9 @@ I pray that we can come to the Savior, like the woman at the well, and drink of 
 
 [^10]: [[Matthew 13.33|Matthew 13:33]].
 
-[^11]: [[2 Kings 5.2|2 Kings 5:2]].
+[^11]: [[2 Kings 5.2|2 Kings 5:2]].
 
-[^12]: [[2 Kings 5.3|2 Kings 5:3]].
+[^12]: [[2 Kings 5.3|2 Kings 5:3]].
 
 [^13]: [[Isaiah 61.3|Isaiah 61:3]].
 
@@ -129,5 +129,6 @@ I pray that we can come to the Savior, like the woman at the well, and drink of 
 
 [^18]: See [[Psalms 27.1|Psalm 27:1]]; [[John 8.12|John 8:12]]; [[D&C 88.50|Doctrine and Covenants 88:50]]; see also Sharon Eubank, “[[2019 April - Christ - The Light That Shines in Darkness.md|Christ: The Light That Shines in Darkness]],” *Ensign* or *Liahona*, May 2019, 73–76.
 
+[^19]: [[John 4.42|John 4:42]].
 
-#Adversity #Divine_Nature #Jesus_Christ #Power
+#Adversity #DivineNature #JesusChrist #Power

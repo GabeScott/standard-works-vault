@@ -63,6 +63,4 @@ I leave my witness that this is God’s work. It is the most important work in a
 
 
 
-
-
 #Media #Priesthood #Service

@@ -25,6 +25,4 @@ And so it is that I feel for the sisters of the Church this love, and sense the 
 
 
 
-
-
-#Relief_Society
+#ReliefSociety

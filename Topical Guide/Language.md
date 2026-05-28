@@ -1,19 +1,18 @@
 # Language
 
-
 *See also* [[Communication.md|Communication]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Speech.md|Speech]]; [[Tongue.md|Tongue]]; [[Writing.md|Writing]]
 
 whatsoever Adam called every living creature, that was the *name* thereof, [[Genesis 2.19|Genesis 2:19]] ([[Moses 3.20|Moses 3:20]]; [[Abraham 5.21|Abraham 5:21]]).
 
 whole earth was of one *language*, [[Genesis 11.1|Genesis 11:1]].
 
-Lord did there confound the *language*, [[Genesis 11.9|Genesis 11:9]] ([[Omni 1.22|Omni 1:22]]; [[Mosiah 28.17|Mosiah 28:17]]; [[Ether 1.33|Ether 1:33]], [[Ether 1.35|Ether 1:35]]).
+Lord did there confound the *language*, [[Genesis 11.9|Genesis 11:9]] ([[Omni 1.22|Omni 1:22]]; [[Mosiah 28.17|Mosiah 28:17]]; [[Ether 1.33|Ether 1:33]]; [[Ether 1.35|Ether 1:35]]).
 
-Say now *Shibboleth*: and he said Sibboleth: for he could not ... pronounce it right, [[Judges 12.6|Judges 12:6]].
+Say now *Shibboleth*: and he said Sibboleth: for he could not … pronounce it right, [[Judges 12.6|Judges 12:6]].
 
-a loud voice in the Jews' *language*, [[2 Kings 18.28|2 Kings 18:28]] ([[Isaiah 36.13|Isaiah 36:13]]).
+a loud voice in the Jews’ *language*, [[2 Kings 18.28|2 Kings 18:28]] ([[Isaiah 36.13|Isaiah 36:13]]).
 
-their children ... could not speak in the Jews' *language*, [[Nehemiah 13.24|Nehemiah 13:24]].
+their children … could not speak in the Jews’ *language*, [[Nehemiah 13.24|Nehemiah 13:24]].
 
 no speech nor *language*, where their voice is, [[Psalms 19.3|Psalms 19:3]].
 
@@ -45,13 +44,13 @@ write them in a *language* that they cannot be read, [[Ether 3.22|Ether 3:22]].
 
 to another, the interpretation of *languages*, [[Moroni 10.16|Moroni 10:16]].
 
-these commandments ... given ... of their *language*, [[D&C 1.24|D&C 1:24]].
+these commandments … given … of their *language*, [[D&C 1.24|D&C 1:24]].
 
 *Speaking* unto you that you may naturally understand, [[D&C 29.33|D&C 29:33]].
 
-every man shall hear ... gospel ... in his own *language*, [[D&C 90.11|D&C 90:11]].
+every man shall hear … gospel … in his own *language*, [[D&C 90.11|D&C 90:11]].
 
-become acquainted ... with *languages*, tongues, [[D&C 90.15|D&C 90:15]].
+become acquainted … with *languages*, tongues, [[D&C 90.15|D&C 90:15]].
 
 *language* which was pure and undefiled, [[Moses 6.6|Moses 6:6]].
 

@@ -135,7 +135,7 @@ On this Easter eve, may our thoughts turn to Him who atoned for our sins, who sh
 
 [^6]: Berlin Germany Regional Conference, 16 June 1996.
 
-[^7]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^7]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^8]: [[D&C 88.118|D&C 88:118]].
 
@@ -152,7 +152,5 @@ On this Easter eve, may our thoughts turn to Him who atoned for our sins, who sh
 [^14]: Will L. Thompson, “Put Your Shoulder to the Wheel,” *Hymns,* no. 252.
 
 [^15]: Samuel Medley, “I Know That My Redeemer Lives,” *Hymns,* no. 136.
-
-
 
 #Agency #Discipleship #Education #Gratitude #Joy #Obedience #Work

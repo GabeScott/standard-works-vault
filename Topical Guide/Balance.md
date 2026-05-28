@@ -1,7 +1,6 @@
 # Balance
 
-
-Just *balances*, just weights ... shall ye have, [[Leviticus 19.36|Leviticus 19:36]].
+Just *balances*, just weights … shall ye have, [[Leviticus 19.36|Leviticus 19:36]].
 
 my calamity laid in the *balances* together, [[Job 6.2|Job 6:2]].
 
@@ -11,7 +10,7 @@ to be laid in the *balance*, they are altogether, [[Psalms 62.9|Psalms 62:9]].
 
 false *balance* is abomination to the Lord, [[Proverbs 11.1|Proverbs 11:1]].
 
-A just weight and *balance* are the Lord's, [[Proverbs 16.11|Proverbs 16:11]].
+A just weight and *balance* are the Lord’s, [[Proverbs 16.11|Proverbs 16:11]].
 
 weighed in the *balances*, and art found wanting, [[Daniel 5.27|Daniel 5:27]].
 

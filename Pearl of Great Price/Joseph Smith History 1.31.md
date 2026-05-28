@@ -5,4 +5,4 @@
 [Joseph Smith History 1:31](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.31?lang=eng#p31)
 
 
-[^a]: [[Acts 10.30|Acts 10:30 (30-33)]]; [[1 Nephi 8.5|1 Ne. 8:5]]; [[3 Nephi 11.8|3 Ne. 11:8.]]
+[^a]: [[Acts 10.30|Acts 10:30 (30–33)]][[Acts 10.31|]][[Acts 10.32|]][[Acts 10.33|]]; [[1 Nephi 8.5|1 Ne. 8:5]]; [[3 Nephi 11.8|3 Ne. 11:8]].  

@@ -1,19 +1,18 @@
 # Resist
 
-
-*See also* [[Hardheartedness, Harden, Hardness.md|Hardheartedness]]; [[Rebellion, Rebel.md|Rebellion]]; [[Revolt.md|Revolt]]
+*See also* [[Hardheartedness.md|Hardheartedness]]; [[Rebellion.md|Rebellion]]; [[Revolt.md|Revolt]]
 
 Satan standing at his right hand to *resist* him, [[Zechariah 3.1|Zechariah 3:1]].
 
 I say unto you, That ye *resist* not evil, [[Matthew 5.39|Matthew 5:39]] ([[3 Nephi 12.39|3 Nephi 12:39]]).
 
-your adversaries shall not be able to ... *resist*, [[Luke 21.15|Luke 21:15]].
+your adversaries shall not be able to … *resist*, [[Luke 21.15|Luke 21:15]].
 
 they were not able to *resist* the wisdom, [[Acts 6.10|Acts 6:10]].
 
 ye do always *resist* the Holy Ghost, [[Acts 7.51|Acts 7:51]].
 
-Whosoever ... *resisteth* the power, *resisteth* the ordinance of God, [[Romans 13.2|Romans 13:2]].
+Whosoever … *resisteth* the power, *resisteth* the ordinance of God, [[Romans 13.2|Romans 13:2]].
 
 these also *resist* the truth, [[2 Timothy 3.8|2 Timothy 3:8]].
 

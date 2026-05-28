@@ -4,7 +4,7 @@ By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2000 General Conference*
 
->*Of all the things for which I feel grateful … , one stands out preeminently. That is a living testimony of Jesus Christ.*
+>*Of all the things for which I feel grateful … , one stands out preeminently. That is a living testimony of Jesus Christ.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2000/04/my-testimony?lang=eng)
 
@@ -16,9 +16,9 @@ On the other hand, during these years I have come to know of the mean and contem
 
 “Cursed are all those that shall lift up the heel against mine anointed, saith the Lord, and cry they have sinned when they have not sinned before me, … but have done that which was meet in mine eyes, and which I commanded them.
 
-“… Those who cry transgression do it because they are the servants of sin, and are the children of disobedience themselves. …
+“… Those who cry transgression do it because they are the servants of sin, and are the children of disobedience themselves. …
 
-“Wo unto them. …
+“Wo unto them. …
 
 “Their basket shall not be full, their houses and their barns shall perish, and they themselves shall be despised by those that flattered them” ([[D&C 121.16|D&C 121:16–17, 19–20]][[D&C 121.17|]][[D&C 121.19|]][[D&C 121.20|]]).
 
@@ -50,7 +50,7 @@ When I went on a mission to the British Isles, that testimony quickened. Each mo
 
 “The same was in the beginning with God.
 
-“All things were made by him; and without him was not any thing made that was made. …
+“All things were made by him; and without him was not any thing made that was made. …
 
 “And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth” ([[John 1.1|John 1:1–3, 14]][[John 1.2|]][[John 1.3|]][[John 1.14|]]).
 
@@ -130,7 +130,7 @@ Those who walked with Him in Palestine bore witness of His divinity. The centuri
 
 Thomas, on seeing His resurrected body, cried out in wonder, “My Lord and my God” ([[John 20.28|John 20:28]]).
 
-Those in this hemisphere to whom He appeared heard the voice of the Father introduce Him: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name” ([[3 Nephi 11.7|3 Ne. 11:7]]).
+Those in this hemisphere to whom He appeared heard the voice of the Father introduce Him: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name” ([[3 Nephi 11.7|3 Ne. 11:7]]).
 
 And the Prophet Joseph, speaking in this dispensation, declared:
 
@@ -145,6 +145,4 @@ Gratefully, and with love undiminished, I bear witness of these things in His Ho
 
 
 
-
-
-#Example #Friendship #Gratitude #Jesus_Christ #Missionary_Work #Satan #Temptation #Testimony #Youth
+#Example #Friendship #Gratitude #JesusChrist #MissionaryWork #Satan #Temptation #Testimony #Youth

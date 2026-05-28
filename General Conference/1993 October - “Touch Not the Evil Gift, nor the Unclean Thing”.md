@@ -40,13 +40,13 @@ The Lord has told us in holy writ that before we ever came to this earth we were
 
 Now, if you have this problem we speak of, let me give you hope and a plan of attack. If you are young, go to your parents or your bishop for help. Both young and older must go to the Lord. Stopping the activity and cleansing the spirit of the impurities of which we’ve been speaking will not be easy, and it will not be quick, but it can be sure. I quote from a talk given at this pulpit several years ago:
 
-“The secret to cleansing our spirit of whatever the impurity is not very complicated. It begins with \[sincere, heartfelt\] prayer every morning and ends with prayer every night. This is the most important step I know in the cleansing process. It may simply be a prayer for strength to turn from bad habits,” or a prayer that sin will be distasteful to you (H. Burke Peterson, in Conference Report, Oct. 1980, p. 57; or *Ensign,* Nov. 1980, p. 39).
+“The secret to cleansing our spirit of whatever the impurity is not very complicated. It begins with \[sincere, heartfelt\] prayer every morning and ends with prayer every night. This is the most important step I know in the cleansing process. It may simply be a prayer for strength to turn from bad habits,” or a prayer that sin will be distasteful to you (H. Burke Peterson, in Conference Report, Oct. 1980, [[1980 October - Purify Our Minds and Spirits.md|p. 57]]; or *Ensign,* Nov. 1980, p. 39).
 
-Meanwhile, remember that not all prayers are answered the same day or even the next day. Sometimes it takes a long time. But “with this step in place, I have seen hundreds of miracles take place. Without it, there is continued frustration, unhappiness, ineffectiveness, and despair” (in Conference Report, Oct. 1980, p. 57; or *Ensign,* Nov. 1980, p. 39).
+Meanwhile, remember that not all prayers are answered the same day or even the next day. Sometimes it takes a long time. But “with this step in place, I have seen hundreds of miracles take place. Without it, there is continued frustration, unhappiness, ineffectiveness, and despair” (in Conference Report, Oct. 1980, [[1980 October - Purify Our Minds and Spirits.md|p. 57]]; or *Ensign,* Nov. 1980, p. 39).
 
 If you have tried and have given up, I plead with you to try again and again and again. Our Heavenly Father will not forsake your efforts if you persist.
 
-The second step in this plan of attack is to gain an added measure of spiritual strength through a daily study of the scriptures. Your study need not be long, but it should be every day. If I were you, I would read the scriptures tonight and never let a day pass without reading in them, even if only for a few minutes. There is an added measure of inspiration promised to those who read the scriptures regularly (see Conference Report, Oct. 1980, p. 57; or *Ensign,* Nov. 1980, p. 39).
+The second step in this plan of attack is to gain an added measure of spiritual strength through a daily study of the scriptures. Your study need not be long, but it should be every day. If I were you, I would read the scriptures tonight and never let a day pass without reading in them, even if only for a few minutes. There is an added measure of inspiration promised to those who read the scriptures regularly (see Conference Report, Oct. 1980, [[1980 October - Purify Our Minds and Spirits.md|p. 57]]; or *Ensign,* Nov. 1980, p. 39).
 
 The scriptures will assist us to overpower darkness with light.
 
@@ -57,8 +57,6 @@ I testify that the Savior is at the head of this work. May I echo the words that
 “Yea, come unto Christ, and be perfected in him, and deny yourselves of all ungodliness; and if ye shall deny yourselves of all ungodliness, and love God with all your might, mind and strength, then is his grace sufficient for you, that by his grace ye may be perfect in Christ; and if by the grace of God ye are perfect in Christ, ye can in nowise deny the power of God” ([[Moroni 10.32|Moro. 10:32]]).
 
 Of him I testify in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,5 @@
 # Holy Ghost, Loss of
 
-
 *See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Holy Ghost, Unpardonable Sin against.md|Holy Ghost, Unpardonable Sin against]]
 
 My *spirit* shall not always strive with man, [[Genesis 6.3|Genesis 6:3]] ([[1 Nephi 7.14|1 Nephi 7:14]]; [[2 Nephi 26.11|2 Nephi 26:11]]; [[Ether 15.19|Ether 15:19]]; [[Moroni 8.28|Moroni 8:28]]; [[D&C 1.33|D&C 1:33]]).
@@ -21,9 +20,9 @@ flesh lusteth against the *Spirit*, [[Galatians 5.17|Galatians 5:17]].
 
 *depart* from the faith, giving heed to seducing spirits, [[1 Timothy 4.1|1 Timothy 4:1]].
 
-If they shall *fall* away ... crucify ... Son of God afresh, [[Hebrews 6.6|Hebrews 6:6]].
+If they shall *fall* away … crucify … Son of God afresh, [[Hebrews 6.6|Hebrews 6:6]].
 
-who separate themselves ... *having not* the Spirit, [[Jude 1.19|Jude 1:19]].
+who separate themselves … *having not* the Spirit, [[Jude 1.19|Jude 1:19]].
 
 harden their hearts against the Holy *Spirit*, [[2 Nephi 33.2|2 Nephi 33:2]].
 
@@ -39,16 +38,16 @@ contend no more against the *Holy Ghost*, [[Alma 34.38|Alma 34:38]].
 
 you have tasted at the time I withdrew my *Spirit*, [[D&C 19.20|D&C 19:20]].
 
-looketh upon a woman to lust ... not have the *Spirit*, [[D&C 42.23|D&C 42:23]] ([[D&C 63.16|D&C 63:16]]).
+looketh upon a woman to lust … not have the *Spirit*, [[D&C 42.23|D&C 42:23]] ([[D&C 63.16|D&C 63:16]]).
 
 I am holding my *Spirit* from the inhabitants, [[D&C 63.32|D&C 63:32]].
 
 received not counsel, but grieved the *Spirit*, [[D&C 63.55|D&C 63:55]].
 
-sought evil ... Lord, withheld my *Spirit*, [[D&C 64.16|D&C 64:16]].
+sought evil … Lord, withheld my *Spirit*, [[D&C 64.16|D&C 64:16]].
 
 manifestations of the *Spirit* shall be withheld, [[D&C 70.14|D&C 70:14]].
 
 *Spirit* of the Lord is grieved; and when it is withdrawn, [[D&C 121.37|D&C 121:37]].
 
-*Holy Ghost* ... may descend upon him and not *tarry*, [[D&C 130.23|D&C 130:23]].
+*Holy Ghost* … may descend upon him and not *tarry*, [[D&C 130.23|D&C 130:23]].

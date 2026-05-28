@@ -1,9 +1,8 @@
 # Marvelous
 
-
 *See also* [[Wonderful.md|Wonderful]]
 
-O Lord ... I will shew forth all thy *marvellous* works, [[Psalms 9.1|Psalms 9:1]].
+O Lord … I will shew forth all thy *marvellous* works, [[Psalms 9.1|Psalms 9:1]].
 
 *Marvellous* things did he in the sight of their fathers, [[Psalms 78.12|Psalms 78:12]].
 
@@ -15,7 +14,7 @@ out of darkness into his *marvellous* light, [[1 Peter 2.9|1 Peter 2:9]].
 
 Great and *marvellous* are thy works, [[Revelation 15.3|Revelation 15:3]].
 
-light which did light up his mind ... was a *marvelous* light of his goodness, [[Alma 19.6|Alma 19:6]].
+light which did light up his mind … was a *marvelous* light of his goodness, [[Alma 19.6|Alma 19:6]].
 
 *marvelous* work is about to come forth, [[D&C 4.1|D&C 4:1]] ([[D&C 12.1|D&C 12:1]]).
 

@@ -1,6 +1,6 @@
 # In Saving Others We Save Ourselves
 
-By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
+By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -41,6 +41,4 @@ My brothers and sisters, may we better understand the duties associated with our
 
 
 
-
-
-#Missionary_Work
+#MissionaryWork

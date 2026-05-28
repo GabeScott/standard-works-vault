@@ -1,6 +1,5 @@
 # Speak, Spake, Spoken
 
-
 *See also* [[Speech.md|Speech]]; [[Talk.md|Talk]]
 
 we cannot *speak* unto thee bad or good, [[Genesis 24.50|Genesis 24:50]].
@@ -13,11 +12,11 @@ place where God *spake* with him, Beth-el, [[Genesis 35.15|Genesis 35:15]].
 
 God *spake* unto Israel in the visions, [[Genesis 46.2|Genesis 46:2]].
 
-*speak* all that I command thee: and Aaron ... shall *speak* unto Pharaoh, [[Exodus 7.2|Exodus 7:2]].
+*speak* all that I command thee: and Aaron … shall *speak* unto Pharaoh, [[Exodus 7.2|Exodus 7:2]].
 
 God *spake* all these words, [[Exodus 20.1|Exodus 20:1]].
 
-*Speak* thou with us ... but let not God *speak* with us, lest we die, [[Exodus 20.19|Exodus 20:19]].
+*Speak* thou with us … but let not God *speak* with us, lest we die, [[Exodus 20.19|Exodus 20:19]].
 
 meet you, to *speak* there unto thee, [[Exodus 29.42|Exodus 29:42]].
 
@@ -43,7 +42,7 @@ When a prophet *speaketh* in the name of the Lord, [[Deuteronomy 18.22|Deuterono
 
 Spirit of the Lord *spake* by me, [[2 Samuel 23.2|2 Samuel 23:2]].
 
-what the Lord saith ... will I *speak*, [[1 Kings 22.14|1 Kings 22:14]] ([[2 Chronicles 18.13|2 Chronicles 18:13]]).
+what the Lord saith … will I *speak*, [[1 Kings 22.14|1 Kings 22:14]] ([[2 Chronicles 18.13|2 Chronicles 18:13]]).
 
 *spakest* with them from heaven, [[Nehemiah 9.13|Nehemiah 9:13]].
 
@@ -69,7 +68,7 @@ time to keep silence, and a time to *speak*, [[Ecclesiastes 3.7|Ecclesiastes 3:7
 
 every mouth *speaketh* folly, [[Isaiah 9.17|Isaiah 9:17]] ([[2 Nephi 19.17|2 Nephi 19:17]]).
 
-with ... another tongue will he *speak*, [[Isaiah 28.11|Isaiah 28:11]] ([[1 Corinthians 14.21|1 Corinthians 14:21]]).
+with … another tongue will he *speak*, [[Isaiah 28.11|Isaiah 28:11]] ([[1 Corinthians 14.21|1 Corinthians 14:21]]).
 
 I have not *spoken* in secret, [[Isaiah 45.19|Isaiah 45:19]].
 
@@ -119,7 +118,7 @@ We *speak* that we do know, [[John 3.11|John 3:11]].
 
 he whom God hath sent *speaketh* the words of God, [[John 3.34|John 3:34]].
 
-know ... whether it be of God, or whether I *speak* of myself, [[John 7.17|John 7:17]].
+know … whether it be of God, or whether I *speak* of myself, [[John 7.17|John 7:17]].
 
 Never man *spake* like this man, [[John 7.46|John 7:46]].
 
@@ -137,7 +136,7 @@ which the Holy Ghost by the mouth of David *spake* before concerning Judas, [[Ac
 
 began to *speak* with other tongues, [[Acts 2.4|Acts 2:4]].
 
-things, which God hath *spoken* by ... his holy prophets, [[Acts 3.21|Acts 3:21]].
+things, which God hath *spoken* by … his holy prophets, [[Acts 3.21|Acts 3:21]].
 
 we cannot but *speak* the things which we have seen, [[Acts 4.20|Acts 4:20]].
 
@@ -145,7 +144,7 @@ they *spake* the word of God with boldness, [[Acts 4.31|Acts 4:31]].
 
 angel which *spake* to him in the mount, [[Acts 7.38|Acts 7:38]].
 
-*spake* the Lord to Paul ... Be not afraid, but *speak*, [[Acts 18.9|Acts 18:9]].
+*spake* the Lord to Paul … Be not afraid, but *speak*, [[Acts 18.9|Acts 18:9]].
 
 Well *spake* the Holy Ghost by Esaias, [[Acts 28.25|Acts 28:25]].
 
@@ -189,13 +188,13 @@ These things *speak*, and exhort, [[Titus 2.15|Titus 2:15]].
 
 *speak* evil of no man, [[Titus 3.2|Titus 3:2]].
 
-God ... *spake* in time past unto the fathers by the prophets, [[Hebrews 1.1|Hebrews 1:1]].
+God … *spake* in time past unto the fathers by the prophets, [[Hebrews 1.1|Hebrews 1:1]].
 
-let every man be ... slow to *speak*, [[James 1.19|James 1:19]].
+let every man be … slow to *speak*, [[James 1.19|James 1:19]].
 
 *Speak* not evil one of another, [[James 4.11|James 4:11]].
 
-laying aside all malice ... and all evil *speakings*, [[1 Peter 2.1|1 Peter 2:1]].
+laying aside all malice … and all evil *speakings*, [[1 Peter 2.1|1 Peter 2:1]].
 
 they *speak* against you as evildoers, [[1 Peter 2.12|1 Peter 2:12]].
 
@@ -209,7 +208,7 @@ not afraid to *speak* evil of dignities, [[2 Peter 2.10|2 Peter 2:10]] ([[Jude 1
 
 they *speak* great swelling words of vanity, [[2 Peter 2.18|2 Peter 2:18]] ([[Jude 1.16|Jude 1:16]]).
 
-Spirit ... *spake* unto me as a man *speaketh* with another, [[1 Nephi 11.11|1 Nephi 11:11]].
+Spirit … *spake* unto me as a man *speaketh* with another, [[1 Nephi 11.11|1 Nephi 11:11]].
 
 he hath *spoken* unto you in a still small voice, [[1 Nephi 17.45|1 Nephi 17:45]].
 
@@ -217,7 +216,7 @@ unto them will I *speak* particularly, [[2 Nephi 25.8|2 Nephi 25:8]].
 
 destroyed shall *speak* unto them out of the ground, [[2 Nephi 26.16|2 Nephi 26:16]].
 
-faithful should *speak* as ... from the dead, [[2 Nephi 27.13|2 Nephi 27:13]].
+faithful should *speak* as … from the dead, [[2 Nephi 27.13|2 Nephi 27:13]].
 
 I shall *speak* unto the Jews, [[2 Nephi 29.12|2 Nephi 29:12]].
 
@@ -235,7 +234,7 @@ he did *speak* peace to our souls, [[Alma 58.11|Alma 58:11]].
 
 they also had what they should *speak* given unto them, [[Helaman 5.18|Helaman 5:18]].
 
-Holy Spirit of God did ... *speak* forth, [[Helaman 5.45|Helaman 5:45]].
+Holy Spirit of God did … *speak* forth, [[Helaman 5.45|Helaman 5:45]].
 
 we both saw and heard Jesus *speak*, [[3 Nephi 17.17|3 Nephi 17:17]] ([[3 Nephi 19.32|3 Nephi 19:32]]).
 
@@ -263,7 +262,7 @@ my voice which *speaketh* them unto you, [[D&C 18.35|D&C 18:35]].
 
 who *spake* as they were inspired by the gift of the Holy Ghost, [[D&C 20.26|D&C 20:26]].
 
-see that there is no ... evil *speaking*, [[D&C 20.54|D&C 20:54]].
+see that there is no … evil *speaking*, [[D&C 20.54|D&C 20:54]].
 
 be given thee in the very moment what thou shalt *speak*, [[D&C 24.6|D&C 24:6]].
 
@@ -275,7 +274,7 @@ Thou shalt not *speak* evil of thy neighbor, [[D&C 42.27|D&C 42:27]].
 
 I will *speak* unto you and prophesy, [[D&C 45.15|D&C 45:15]].
 
-He that *speaketh* ... is of God, [[D&C 52.16|D&C 52:16]].
+He that *speaketh* … is of God, [[D&C 52.16|D&C 52:16]].
 
 sacred, and must be *spoken* with care, [[D&C 63.64|D&C 63:64]].
 
@@ -287,4 +286,4 @@ tongue of the dumb shall *speak*, [[D&C 84.70|D&C 84:70]].
 
 it was done as I *spake*, [[Moses 2.5|Moses 2:5]] ([[Moses 7.4|Moses 7:4]]).
 
-I *speak* for mine elect's sake, [[Joseph Smith Matthew 1.29|Joseph Smith Matthew 1:29]].
+I *speak* for mine elect’s sake, [[Joseph Smith Matthew 1.29|Joseph Smith Matthew 1:29]].

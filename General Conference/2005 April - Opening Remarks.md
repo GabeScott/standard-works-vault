@@ -16,7 +16,7 @@ On March 12, 1995, there was bestowed upon us the high and sacred responsibility
 
 In the conference that followed I made this statement:
 
-“Now, my brethren and sisters, the time has come for us to stand a little taller, to lift our eyes and stretch our minds to a greater comprehension and understanding of the grand millennial mission of this, The Church of Jesus Christ of Latter-day Saints. This is a season to be strong. It is a time to move forward without hesitation, knowing well the meaning, the breadth, and the importance of our mission. It is a time to do what is right regardless of the consequences that might follow. It is a time to be found keeping the commandments. It is a season to reach out with kindness and love to those in distress and to those who are wandering in darkness and pain. It is a time to be considerate and good, decent and courteous toward one another in all of our relationships—in other words, to become more Christlike” (in Conference Report, Apr. 1995, 95; or *Ensign,* May 1995, 71).
+“Now, my brethren and sisters, the time has come for us to stand a little taller, to lift our eyes and stretch our minds to a greater comprehension and understanding of the grand millennial mission of this, The Church of Jesus Christ of Latter-day Saints. This is a season to be strong. It is a time to move forward without hesitation, knowing well the meaning, the breadth, and the importance of our mission. It is a time to do what is right regardless of the consequences that might follow. It is a time to be found keeping the commandments. It is a season to reach out with kindness and love to those in distress and to those who are wandering in darkness and pain. It is a time to be considerate and good, decent and courteous toward one another in all of our relationships—in other words, to become more Christlike” (in Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|95]]; or *Ensign,* May 1995, 71).
 
 You must be the judge of how far we have come in realizing the fulfillment of that invitation given 10 years ago.
 
@@ -78,6 +78,4 @@ This, my brothers and sisters, is my invitation to you this morning. I extend my
 
 
 
-
-
-#Church_Growth #Education #Faith #Gratitude
+#ChurchGrowth #Education #Faith #Gratitude

@@ -1,6 +1,6 @@
 # The Priesthood Man
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -98,7 +98,5 @@ God the Father lives and will answer your prayers for the help you need to serve
 [^2]: [[Matthew 6.1|Matthew 6:1–4]][[Matthew 6.2|]][[Matthew 6.3|]][[Matthew 6.4|]].
 
 [^3]: [[Moses 1.37|Moses 1:37–39]][[Moses 1.38|]][[Moses 1.39|]].
-
-
 
 #Example #Honesty #Prayer #Priesthood #Service

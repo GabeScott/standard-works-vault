@@ -1,6 +1,6 @@
 # Closing Remarks
 
-By President Harold B. Lee - *President of the Church*
+By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -26,7 +26,7 @@ We have had some who, writing in the public press occasionally, are among those 
 
 I always remember the word of the Lord when I hear these things said by those who are trying to tear down his work. The Lord has said:
 
-“Wherefore, confound your enemies; call upon them to meet you both in public and in private; …
+“Wherefore, confound your enemies; call upon them to meet you both in public and in private; …
 
 “Wherefore, let them bring forth their strong reasons against the Lord.
 
@@ -34,7 +34,7 @@ I always remember the word of the Lord when I hear these things said by those wh
 
 “And if any man lift his voice against you he shall be confounded in mine own due time.
 
-“Wherefore, keep my commandments. …” ([[D&C 71.7|D&C 71:7–11]][[D&C 71.8|]][[D&C 71.9|]][[D&C 71.10|]][[D&C 71.11|]].)
+“Wherefore, keep my commandments. …” ([[D&C 71.7|D&C 71:7–11]][[D&C 71.8|]][[D&C 71.9|]][[D&C 71.10|]][[D&C 71.11|]].)
 
 What he is trying to have us understand is that he will take care of our enemies if we continue to keep the commandments. So, you Saints of the Most High God, when these things come, and they will come—this has been prophesied—you just say,
 
@@ -66,7 +66,7 @@ It is that foundation upon which the Church and kingdom of God is built in our d
 
 “For it is my voice which speaketh them unto you; for they are given by my Spirit unto you, and by my power you can read them one to another; and save it were by my power you could not have them.” ([[D&C 18.31|D&C 18:31, 33–35]][[D&C 18.33|]][[D&C 18.34|]][[D&C 18.35|]].)
 
-And then he added this: “Wherefore, you can testify \[meaning that one stands in the pulpit and reads from these revelations\] that you have heard my voice, and know my words.” ([[D&C 18.36|D&C 18:36]].) For as I have already quoted, he said, “… whether by mine own voice or by the voice of my servants, it is the same.” ([[D&C 1.38|D&C 1:38]].)
+And then he added this: “Wherefore, you can testify \[meaning that one stands in the pulpit and reads from these revelations\] that you have heard my voice, and know my words.” ([[D&C 18.36|D&C 18:36]].) For as I have already quoted, he said, “… whether by mine own voice or by the voice of my servants, it is the same.” ([[D&C 1.38|D&C 1:38]].)
 
 Now, you Latter-day Saints, I think you have never attended a conference where in these three days you have heard more inspired declarations on most every subject and problem about which you have been worrying. If you want to know what the Lord would have the Saints know and to have his guidance and direction for the next six months, get a copy of the proceedings of this conference, and you will have the latest word of the Lord as far as the Saints are concerned. And \[also\] all others who are not of us, but who believe what has been said has been the mind of the Lord, the will of the Lord, and the voice of the Lord, and the power of God unto salvation. (See [[D&C 68.4|D&C 68:4]].)
 
@@ -84,7 +84,7 @@ May I paraphrase what the Lord has said in this great revelation from which I ha
 
 Where else can you go for guidance? Where is there safety in the world today? Safety can’t be won by tanks and guns and the airplanes and atomic bombs. There is only one place of safety and that is within the realm of the power of Almighty God that he gives to those who keep his commandments and listen to his voice, as he speaks through the channels that he has ordained for that purpose.
 
-In the answer that he gave to his disciples, when he told them that he was coming again, he explained some important things to them. The disciples asked him, “… Tell us, when shall these things be and the end of the world or the destruction of the wicked, which is the end of the world?” (See [[Matthew 24.3|Matt. 24:3]].) In their question, you have the definition of what it means to say “the end of the world.”
+In the answer that he gave to his disciples, when he told them that he was coming again, he explained some important things to them. The disciples asked him, “… Tell us, when shall these things be and the end of the world or the destruction of the wicked, which is the end of the world?” (See [[Matthew 24.3|Matt. 24:3]].) In their question, you have the definition of what it means to say “the end of the world.”
 
 And then he gave to his disciples what we read in the twenty-fourth chapter of the Book of Matthew, what may be better understood from the Inspired Version, which is found in the Pearl of Great Price. He said, when the fig tree “begins to put forth leaves, you know that summer is nigh at hand.” ([[Joseph Smith Matthew 1.39|JS—M 1:39]].)
 
@@ -100,7 +100,7 @@ He gave them certain signs by which they might know that his coming was nigh, ev
 
 “For as the light of the morning cometh out of the east and shineth even unto the west, … so shall also the coming of the Son of Man be.” ([[Joseph Smith Matthew 1.20|JS—M 1:20–22, 25–26]][[Joseph Smith Matthew 1.21|]][[Joseph Smith Matthew 1.22|]][[Joseph Smith Matthew 1.25|]][[Joseph Smith Matthew 1.26|]].)
 
-Then he speaks of the wars that shall come: “… for nations shall rise against nation, and kingdom against kingdom; there shall be famines, and pestilences, and earthquakes, in divers places.
+Then he speaks of the wars that shall come: “… for nations shall rise against nation, and kingdom against kingdom; there shall be famines, and pestilences, and earthquakes, in divers places.
 
 “And again, because iniquity shall abound, the love of many shall wax cold; but he that shall not be overcome, the same shall be saved.
 
@@ -141,8 +141,6 @@ Sometimes when the veil has been very thin, I have thought that if the struggle 
 I extend my blessings to you wonderful Saints. Go back to your homes now. Take the love of the General Authorities to your people. We extend to those who are not members of the Church the hand of fellowship. May we reach out to those who have lost their sense of direction and, before it is too late, try to win them back into the fold; because they are all God’s children, and he wants us to save all of them.
 
 Peace be with you, not the peace that comes from the legislation in the halls of congress, but the peace that comes in the way that the Master said, by overcoming all the things of the world. That God may help us so to understand and may you know that I know with a certainty that defies all doubt that this is his work, that he is guiding us and directing us today, as he has done in every dispensation of the gospel, and I say that with all the humility of my soul, in the name of the Lord, Jesus Christ. Amen.
-
-
 
 
 

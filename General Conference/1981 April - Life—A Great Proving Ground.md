@@ -1,6 +1,6 @@
 # Life—A Great Proving Ground
 
-By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -26,7 +26,7 @@ Also, “Whatever principle of intelligence we attain unto in this life, it will
 
 “And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come.” ([[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]].)
 
-President Spencer W. Kimball has counseled us in this manner: “Let us … seek to read and understand and apply the principles and inspired counsel found within the \[scriptures\]. If we do so, we shall discover that our personal *acts* of righteousness will also bring *personal revelation or inspiration* when needed into our own lives.” (*Ensign,* Sept. 1975, p. 4.)
+President Spencer W. Kimball has counseled us in this manner: “Let us … seek to read and understand and apply the principles and inspired counsel found within the \[scriptures\]. If we do so, we shall discover that our personal *acts* of righteousness will also bring *personal revelation or inspiration* when needed into our own lives.” (*Ensign,* Sept. 1975, p. 4.)
 
 An abundance of modern revelation is to be found in latter-day scriptures. These scriptures explain in detail how to meet today’s challenges. Knowledge received from studying the scriptures assists us in making correct decisions in all areas of life’s activities and helps us to know God and understand his purposes.
 
@@ -34,7 +34,7 @@ Now, with reference to the part that prayer plays in accomplishing our eternal o
 
 The Prophet Joseph Smith observed that “it is the first principle of the gospel to know for a certainty the character of God, and to know that we may converse with Him as one man converses with another.” (*History of the Church,* 6:305.)
 
-Brigham Young, in his realistic manner, stated, “You know that it is one peculiarity of our faith and religion never to ask the Lord to do a thing without being willing to help him all that we are able; and then the Lord will do the rest.” (*Discourses of Brigham Young,* comp. John A. Widtsoe, Salt Lake City: Deseret Book Company, 1941, p. 43.)
+Brigham Young, in his realistic manner, stated, “You know that it is one peculiarity of our faith and religion never to ask the Lord to do a thing without being willing to help him all that we are able; and then the Lord will do the rest.” (*Discourses of Brigham Young,* comp. John A. Widtsoe, Salt Lake City: Deseret Book Company, 1941, p. 43.)
 
 “Please, Lord, help me to help myself.” I am convinced that this prayer for increased personal power is one that God answers. We can learn to solve our problems with God’s help.
 
@@ -112,13 +112,11 @@ I bear you my testimony that I know that God lives and that Jesus is the Christ,
 
 And I know that Joseph Smith was the instrument in the hands of the Lord in restoring the gospel in its fulness, in restoring the power to act in the name of God, and in reestablishing the Church of Jesus Christ upon the earth.
 
-I also bear witness that President Spencer W. Kimball is a prophet of God, acting under divine guidance in administering the affairs of the kingdom of God on the earth today. May the Lord bless and sustain him.
+I also bear witness that President Spencer W. Kimball is a prophet of God, acting under divine guidance in administering the affairs of the kingdom of God on the earth today. May the Lord bless and sustain him.
 
 I sincerely pray that we will understand the purpose of life, conform our life-style to eternal gospel principles, enjoy peace, happiness, and growth, and receive eternal life, the greatest gift of God, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Plan_Of_Salvation #Work
+#PlanOfSalvation #Work

@@ -1,7 +1,6 @@
 # Resurrection
 
-
-*See also* [[Eternal Life.md|Eternal Life]]; [[Fall of Man.md|Fall of Man]]; [[Immortality, Immortal.md|Immortality]]; [[Jesus Christ, Resurrection.md|Jesus Christ, Resurrection]]; [BD Resurrection](https://www.churchofjesuschrist.org/study/scriptures/bd/resurrection?lang=eng)
+*See also* [[Eternal Life.md|Eternal Life]]; [[Fall of Man.md|Fall of Man]]; [[Immortality.md|Immortality]]; [[Jesus Christ, Resurrection.md|Jesus Christ, Resurrection]]; [[BD Resurrection.md|BD Resurrection]]
 
 he bringeth down to the grave, and *bringeth* up, [[1 Samuel 2.6|1 Samuel 2:6]].
 
@@ -23,7 +22,7 @@ Sadducees, which say that there is no *resurrection*, [[Matthew 22.23|Matthew 22
 
 in the *resurrection* they neither marry, nor are given in marriage, [[Matthew 22.30|Matthew 22:30]] ([[Luke 20.35|Luke 20:35]]).
 
-graves were opened; and many bodies ... *arose*, [[Matthew 27.52|Matthew 27:52]] ([[3 Nephi 23.9|3 Nephi 23:9]]).
+graves were opened; and many bodies … *arose*, [[Matthew 27.52|Matthew 27:52]] ([[3 Nephi 23.9|3 Nephi 23:9]]).
 
 as touching the dead, that they *rise*, [[Mark 12.26|Mark 12:26]].
 
@@ -47,13 +46,13 @@ they heard of the *resurrection* of the dead, [[Acts 17.32|Acts 17:32]].
 
 *resurrection* of the dead, both of the just and unjust, [[Acts 24.15|Acts 24:15]].
 
-Why ... incredible ... that God should *raise* the dead, [[Acts 26.8|Acts 26:8]].
+Why … incredible … that God should *raise* the dead, [[Acts 26.8|Acts 26:8]].
 
 we shall be also in the likeness of his *resurrection*, [[Romans 6.5|Romans 6:5]].
 
-he ... shall also *quicken* your mortal bodies, [[Romans 8.11|Romans 8:11]].
+he … shall also *quicken* your mortal bodies, [[Romans 8.11|Romans 8:11]].
 
-God ... will also *raise* up us by his own power, [[1 Corinthians 6.14|1 Corinthians 6:14]].
+God … will also *raise* up us by his own power, [[1 Corinthians 6.14|1 Corinthians 6:14]].
 
 by man came also the *resurrection* of the dead, [[1 Corinthians 15.21|1 Corinthians 15:21]].
 
@@ -63,13 +62,13 @@ So also is the *resurrection* of the dead, [[1 Corinthians 15.42|1 Corinthians 1
 
 it is *raised* a spiritual body, [[1 Corinthians 15.44|1 Corinthians 15:44]] ([[D&C 88.27|D&C 88:27]]).
 
-trust ... in God which *raiseth* the dead, [[2 Corinthians 1.9|2 Corinthians 1:9]].
+trust … in God which *raiseth* the dead, [[2 Corinthians 1.9|2 Corinthians 1:9]].
 
 *quickened* us together with Christ, [[Ephesians 2.5|Ephesians 2:5]].
 
 change our vile *body*, that it may be fashioned like unto his, [[Philippians 3.21|Philippians 3:21]].
 
-you ... hath he *quickened* together with him, [[Colossians 2.13|Colossians 2:13]].
+you … hath he *quickened* together with him, [[Colossians 2.13|Colossians 2:13]].
 
 dead in Christ shall *rise* first, [[1 Thessalonians 4.16|1 Thessalonians 4:16]].
 
@@ -79,7 +78,7 @@ that they might obtain a better *resurrection*, [[Hebrews 11.35|Hebrews 11:35]].
 
 unto a lively hope by the *resurrection* of Jesus, [[1 Peter 1.3|1 Peter 1:3]].
 
-doth also now save us ... by the *resurrection* of Jesus, [[1 Peter 3.21|1 Peter 3:21]].
+doth also now save us … by the *resurrection* of Jesus, [[1 Peter 3.21|1 Peter 3:21]].
 
 when he shall appear, we shall be *like* him, [[1 John 3.2|1 John 3:2]].
 
@@ -99,7 +98,7 @@ there is a *resurrection*, therefore the grave hath no victory, [[Mosiah 16.8|Mo
 
 day cometh that all shall *rise* from the dead, [[Alma 11.41|Alma 11:41]].
 
-body is *raised* ... the whole becoming spiritual, [[Alma 11.45|Alma 11:45]].
+body is *raised* … the whole becoming spiritual, [[Alma 11.45|Alma 11:45]].
 
 all things shall be *restored* to their proper order, [[Alma 41.4|Alma 41:4]].
 
@@ -125,7 +124,7 @@ spirit and element, inseparably *connected*, [[D&C 93.33|D&C 93:33]].
 
 Angels, who are *resurrected* personages, having bodies of flesh and bones, [[D&C 129.1|D&C 129:1]].
 
-intelligence ... will rise with us in the *resurrection*, [[D&C 130.18|D&C 130:18]].
+intelligence … will rise with us in the *resurrection*, [[D&C 130.18|D&C 130:18]].
 
 graves of the saints shall be *opened*, [[D&C 133.56|D&C 133:56]].
 
@@ -134,5 +133,3 @@ departed the mortal life, firm in the hope of a glorious *resurrection*, [[D&C 1
 dry bones, which were to be *clothed* upon with flesh, [[D&C 138.43|D&C 138:43]].
 
 bring to pass the *immortality* and eternal life of man, [[Moses 1.39|Moses 1:39]].
-
-*See also* [[Deuteronomy 32.39|Deuteronomy 32:39]]; [[Psalms 16.9|Psalms 16:9]]; [[Psalms 17.15|Psalms 17:15]]; [[Matthew 25.46|Matthew 25:46]]; [[Hebrews 6.2|Hebrews 6:2]]; [[Revelation 20.12|Revelation 20:12]]; [[D&C 43.18|D&C 43:18]].

@@ -16,9 +16,9 @@ In more than 165 countries of the world, our sisters are being instruments in th
 
 I marvel at an inspired ward Relief Society president in Korea who decided to visit every less-active sister in her ward. To date she has visited 25 sisters, and all but 3 of them have come back to church.
 
-Sisters such as these are living testaments to President Hinckley’s statement that “no calling in this church is … of little consequence. All of us in the pursuit of our duty touch the lives of others. …
+Sisters such as these are living testaments to President Hinckley’s statement that “no calling in this church is … of little consequence. All of us in the pursuit of our duty touch the lives of others. …
 
-“… Whatever your calling, it is as fraught with the same kind of opportunity to accomplish good as is mine. … Our work is to go about doing good as did \[the Master\]” (“This Is the Work of the Master,” *Ensign,* May 1995, 71).
+“… Whatever your calling, it is as fraught with the same kind of opportunity to accomplish good as is mine. … Our work is to go about doing good as did \[the Master\]” (“This Is the Work of the Master,” *Ensign,* May 1995, 71).
 
 Truly, we may *each* be an instrument in the hands of God. Happily, we need not all be the same kind of instrument. Just as the instruments in an orchestra differ in size, shape, and sound, we too are different from one another. We have different talents and inclinations, but just as the French horn cannot duplicate the sound of the piccolo, neither is it necessary for us to all serve the Lord in the same way. Sister Eliza R. Snow said that “there is *no sister* so isolated and her sphere so narrow but what she can do a great deal towards establishing the Kingdom of God upon the earth” (*Woman’s Exponent,* 15 Sept. 1873, 62; emphasis added). Our privilege and our responsibility as daughters of God and as sisters of Relief Society, then, is to become the most effective instruments *we* can be.
 
@@ -40,7 +40,7 @@ It is almost impossible to be an effective instrument within our own families, w
 
 Our ability to hear the voice of the Spirit is dependent upon our willingness to keep the commandments, for “when we obtain any blessing from God, it is by obedience to that law upon which it is predicated” ([[D&C 130.21|D&C 130:21]]). If we want to experience the inexpressible joy of gospel living and feel of Christ’s atoning mercies, obedience to all, and not just a select few, of God’s commandments is the only way.
 
-Have we received the immeasurable blessings of holding weekly family home evening and daily scripture study and prayer? Do we understand the far-reaching blessings of keeping our covenants and filling our minds with only that which is “virtuous, lovely, or of good report”? ([[Articles of Faith 1.13|A of F 1:13]]). When obedience becomes a quest, it is no longer an irritation.
+Have we received the immeasurable blessings of holding weekly family home evening and daily scripture study and prayer? Do we understand the far-reaching blessings of keeping our covenants and filling our minds with only that which is “virtuous, lovely, or of good report”? ([[Articles of Faith 1.13|A of F 1:13]]). When obedience becomes a quest, it is no longer an irritation.
 
 Relief Society can help us abide by divine laws and become closer to God. Imagine what goodness will fill the earth when, under the direction of the priesthood, this circle of righteous women unite to bring to pass righteous purposes! When we unitedly serve each other and all of our Father’s children, we can be instruments in the hands of God, not only to relieve physical suffering but, more importantly, to succor those who are in need spiritually.
 
@@ -56,7 +56,7 @@ Once again, Relief Society can help. Sister Elsa Bluhm, who is 102, knew the gos
 
 This happy ending began with one woman’s insistent, loving, righteous example. Elsa invited the Spirit into their home and marriage by loving her husband and loving the Lord. She was both faithful and filled with faith, even when at times she felt alone. She was an instrument in the hands of God in her own home.
 
-For each of us, our righteous examples may seem small, but by influence they are great. To all within your sphere of influence, “be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]). Let others feel the peace and joy that gospel living brings you. Invite your friends not of our faith or less-active members over for family home evening. Bring them to church and set an example of reverence for them. Let them see that you avoid movies or television shows or Internet sites that would drive the Spirit away and thus make us less-effective instruments.
+For each of us, our righteous examples may seem small, but by influence they are great. To all within your sphere of influence, “be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]). Let others feel the peace and joy that gospel living brings you. Invite your friends not of our faith or less-active members over for family home evening. Bring them to church and set an example of reverence for them. Let them see that you avoid movies or television shows or Internet sites that would drive the Spirit away and thus make us less-effective instruments.
 
 President Hinckley has repeatedly asked us to become better missionaries, and Elder M. Russell Ballard of the Quorum of the Twelve Apostles has indicated that if the missionary program of the Church is to accomplish all it must, we as sisters must join in the effort.
 
@@ -69,6 +69,4 @@ When you return home this night, will you take a moment to write down impression
 
 
 
-
-
-#Education #Family_Home_Evening #Love #Obedience #Prayer #Relief_Society #Reverence #Scripture_Study #Service #Testimony #Truth #Women #Work
+#Education #FamilyHomeEvening #Love #Obedience #Prayer #ReliefSociety #Reverence #ScriptureStudy #Service #Testimony #Truth #Work #Women

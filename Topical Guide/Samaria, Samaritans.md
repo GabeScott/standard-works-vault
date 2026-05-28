@@ -1,4 +1,3 @@
 # Samaria, Samaritans
 
-
-*See* [BD Samaria](https://www.churchofjesuschrist.org/study/scriptures/bd/samaria?lang=eng); [Samaritans](https://www.churchofjesuschrist.org/study/scriptures/bd/samaritans?lang=eng)
+*See also* [[BD Samaria.md|BD Samaria]]; [[BD Samaritans.md|BD Samaritans]]

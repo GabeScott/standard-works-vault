@@ -1,6 +1,6 @@
 # The Price of Priesthood Power
 
-By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
+By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -52,7 +52,7 @@ Are you willing to search the scriptures and feast on the words of Christ[^13]�
 
 Are you willing to worship in the temple regularly? The Lord loves to do His own teaching in His holy house. Imagine how pleased He would be if you asked Him to teach you about priesthood keys, authority, and power as you experience the ordinances of the Melchizedek Priesthood in the holy temple.[^15] Imagine the increase in priesthood power that could be yours.
 
-Are you willing to follow President Thomas S. Monson’s example of serving others? For decades he has taken the long way home, following promptings of the Spirit to arrive on someone’s doorstep and then hear words such as, “How did you know it was the anniversary of our daughter’s death?” or “How did you know it was my birthday?” And if you truly want more priesthood power, you will cherish and care for your wife, embracing both her *and* her counsel.
+Are you willing to follow President Thomas S. Monson’s example of serving others? For decades he has taken the long way home, following promptings of the Spirit to arrive on someone’s doorstep and then hear words such as, “How did you know it was the anniversary of our daughter’s death?” or “How did you know it was my birthday?” And if you truly want more priesthood power, you will cherish and care for your wife, embracing both her *and* her counsel.
 
 Now, if all of this sounds excessive, please consider how different our relationships with our wife, children, and associates at work would be if we were *as* concerned about gaining priesthood power as we are in progressing at work or increasing the balance in our bank account. If we will humbly present ourselves before the Lord and ask Him to teach us, He will show us how to increase *our* access to *His* power.
 
@@ -60,12 +60,12 @@ In these latter days, we know there will be earthquakes in diverse places.[^16] 
 
 Are we willing to pray, fast, study, seek, worship, and serve as men of God so we can have that kind of priesthood power? Because two little girls were so eager to be sealed to their family, their father and brother were willing to pay the price to bear the holy Melchizedek Priesthood.
 
-My dear brethren, we have been given a sacred trust—the authority of God to bless others. May each one of us rise up as the man God foreordained us to be—ready to bear the priesthood of God bravely, eager to pay whatever price is required to increase his power in the priesthood. With *that* power, we can help prepare the world for the Second Coming of our Savior, Jesus Christ. This is His Church, led today by His prophet, President Thomas S. Monson, whom I dearly love and sustain. I so testify in the name of Jesus Christ, amen.
+My dear brethren, we have been given a sacred trust—the authority of God to bless others. May each one of us rise up as the man God foreordained us to be—ready to bear the priesthood of God bravely, eager to pay whatever price is required to increase his power in the priesthood. With *that* power, we can help prepare the world for the Second Coming of our Savior, Jesus Christ. This is His Church, led today by His prophet, President Thomas S. Monson, whom I dearly love and sustain. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96.
+[^1]: See Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96.
 
 [^2]: [[D&C 84.18|Doctrine and Covenants 84:18]].
 
@@ -77,26 +77,24 @@ My dear brethren, we have been given a sacred trust—the authority of God to bl
 
 [^6]: See [[Genesis 25.29|Genesis 25:29–34]][[Genesis 25.30|]][[Genesis 25.31|]][[Genesis 25.32|]][[Genesis 25.33|]][[Genesis 25.34|]].
 
-[^7]: See [[Genesis 12.3|Genesis 12:3]]; [[Genesis 17.2|17:2–8]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]]; [[Galatians 3.29|Galatians 3:29]]; [[1 Nephi 15.14|1 Nephi 15:14–18]][[1 Nephi 15.15|]][[1 Nephi 15.16|]][[1 Nephi 15.17|]][[1 Nephi 15.18|]]; [[Abraham 2.9|Abraham 2:9–11]][[Abraham 2.10|]][[Abraham 2.11|]].
+[^7]: See [[Genesis 12.3|Genesis 12:3]]; [[Genesis 17.2|17:2–8]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]]; [[Galatians 3.29|Galatians 3:29]]; [[1 Nephi 15.14|1 Nephi 15:14–18]][[1 Nephi 15.15|]][[1 Nephi 15.16|]][[1 Nephi 15.17|]][[1 Nephi 15.18|]]; [[Abraham 2.9|Abraham 2:9–11]][[Abraham 2.10|]][[Abraham 2.11|]].
 
 [^8]: See [[D&C 128.20|Doctrine and Covenants 128:20]]. The Savior, Moses, and Elijah (sometimes referred to as Elias) initially gave the keys to Peter, James, and John on the mount when Jesus was transfigured before them (see [[Matthew 17.1|Matthew 17:1–4]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]]; [[Mark 9.2|Mark 9:2–9]][[Mark 9.3|]][[Mark 9.4|]][[Mark 9.5|]][[Mark 9.6|]][[Mark 9.7|]][[Mark 9.8|]][[Mark 9.9|]]; [[Luke 9.28|Luke 9:28–30]][[Luke 9.29|]][[Luke 9.30|]]; [[D&C 63.21|Doctrine and Covenants 63:21]]).
 
-[^9]: [[2 Peter 1.4|2 Peter 1:4]].
+[^9]: [[2 Peter 1.4|2 Peter 1:4]].
 
-[^10]: See [[2 Peter 1.5|2 Peter 1:5–10]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]][[2 Peter 1.9|]][[2 Peter 1.10|]].
+[^10]: See [[2 Peter 1.5|2 Peter 1:5–10]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]][[2 Peter 1.9|]][[2 Peter 1.10|]].
 
 [^11]: See [[D&C 4.6|Doctrine and Covenants 4:6]] (note: here, in a revelation to Joseph Smith, the Lord added *humility* to Peter’s list).
 
-[^12]: See [[1 Corinthians 12.4|1 Corinthians 12:4–11]][[1 Corinthians 12.5|]][[1 Corinthians 12.6|]][[1 Corinthians 12.7|]][[1 Corinthians 12.8|]][[1 Corinthians 12.9|]][[1 Corinthians 12.10|]][[1 Corinthians 12.11|]]; [[Moroni 10.8|Moroni 10:8–17]][[Moroni 10.9|]][[Moroni 10.10|]][[Moroni 10.11|]][[Moroni 10.12|]][[Moroni 10.13|]][[Moroni 10.14|]][[Moroni 10.15|]][[Moroni 10.16|]][[Moroni 10.17|]]; [[D&C 46.11|Doctrine and Covenants 46:11]].
+[^12]: See [[1 Corinthians 12.4|1 Corinthians 12:4–11]][[1 Corinthians 12.5|]][[1 Corinthians 12.6|]][[1 Corinthians 12.7|]][[1 Corinthians 12.8|]][[1 Corinthians 12.9|]][[1 Corinthians 12.10|]][[1 Corinthians 12.11|]]; [[Moroni 10.8|Moroni 10:8–17]][[Moroni 10.9|]][[Moroni 10.10|]][[Moroni 10.11|]][[Moroni 10.12|]][[Moroni 10.13|]][[Moroni 10.14|]][[Moroni 10.15|]][[Moroni 10.16|]][[Moroni 10.17|]]; [[D&C 46.11|Doctrine and Covenants 46:11]].
 
-[^13]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^13]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^14]: See [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
+[^14]: See [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
 
 [^15]: See [[D&C 84.19|Doctrine and Covenants 84:19–20]][[D&C 84.20|]].
 
 [^16]: See [[D&C 45.33|Doctrine and Covenants 45:33]].
 
-
-
-#Authority #Divine_Nature #Prayer #Priesthood #Scripture_Study #Service #Temple_Work
+#Authority #DivineNature #Prayer #Priesthood #ScriptureStudy #Service #TempleWork

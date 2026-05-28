@@ -34,7 +34,7 @@ To parents in the Church we say: Love each other with all your hearts. Keep the 
 
 It is the will of the Lord to strengthen and preserve the family unit. We plead with fathers to take their rightful place as the head of the house. We ask mothers to sustain and support their husbands and to be lights to their children.
 
-President Joseph F. Smith said: “Motherhood lies at the foundation of happiness in the home, and of prosperity in the nation. God has laid upon men and women very sacred obligations with respect to motherhood, and they are obligations that cannot be disregarded without invoking divine displeasure.” (*Gospel Doctrine* \[Deseret Book, 1939\], p. 288.) Also, “To be a successful father or a successful mother is greater than to be a successful general or a successful statesman.” (Ibid., p. 285.)
+President Joseph F. Smith said: “Motherhood lies at the foundation of happiness in the home, and of prosperity in the nation. God has laid upon men and women very sacred obligations with respect to motherhood, and they are obligations that cannot be disregarded without invoking divine displeasure.” (*Gospel Doctrine* \[Deseret Book, 1939\], p. 288.) Also, “To be a successful father or a successful mother is greater than to be a successful general or a successful statesman.” (Ibid., p. 285.)
 
 To the youth of Zion we say: The Lord bless you and keep you, which most assuredly will be so as you learn his laws and live in harmony with them. Be true to every trust. Honor thy father and thy mother. Dwell together in love and conformity. Be modest in your dress. Overcome the world, and do not be led astray by the fashions and practices of those whose interests are centered upon the things of this world.
 
@@ -53,8 +53,6 @@ I know by the revelations of the Holy Ghost to my soul that God our Heavenly Fat
 I know and testify that the Lord’s purposes on earth shall prevail. The Church of Jesus Christ of Latter-day Saints is here to stay. The Lord’s work shall triumph. No power on earth can prevent the spread of truth and the preaching of the gospel in every nation.
 
 I feel to thank the Lord for his goodness and grace, for all the blessings he has showered upon us so abundantly; and I pray that we may all be worthy to receive the eternal fullness which he offers his saints through the gospel of his Son, and I do this in the name of Jesus Christ. Amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Address Given by President Marion G. Romney at Welfare Services Session Saturday, April 5, 1975
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -35,8 +35,6 @@ This welfare program was set up under inspiration in the days of President Grant
 I know from my own experience and the witnesses by the thousands that I have received of the Spirit that this is the Lord’s work. It is to prepare us. If you’ll think of the most sacred place you ever have been, you’ll remember that the final thing that we are to do is to be able and willing to consecrate all that we have to the building up of the kingdom of God, to care for our fellow men. When we do this we’ll be ready for the coming of the Messiah.
 
 The Lord bless you, brothers and sisters, that you may listen and that you may implement the things that have been taught us here this morning, and live under the guidance of the Spirit day by day. That is possible when we get the connection made between us and the Spirit, and then walk under its guidance. I bless you that we may do so, in the name of Jesus Christ, our Redeemer. Amen.
-
-
 
 
 

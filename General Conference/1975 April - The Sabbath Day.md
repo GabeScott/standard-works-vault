@@ -1,6 +1,6 @@
 # The Sabbath Day
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -84,7 +84,7 @@ He also gave the Sabbath to ancient Israel as a sign that he lives—a sign, as 
 
 If we violate his holy day—willingly and willfully—to that extent do we not become enemies of God? We do most certainly become covenant breakers, for he gave us his Sabbath by covenant—a perpetual covenant throughout all generations. (See [[Exodus 31.16|Ex. 31:16]].)
 
-President David O. McKay called attention to another most important phase of this subject. He said that the Christian Sabbath of course is Sunday, in commemoration of the resurrection of the Savior on the first day of the week. He calls the resurrection of Christ the greatest event in all history and notes that by proper observance of the Sabbath we show our respect for the Lord’s passion and his resurrection from the dead. (See *Gospel Ideals,* Deseret News Press, 1953, pp. 397–98.)
+President David O. McKay called attention to another most important phase of this subject. He said that the Christian Sabbath of course is Sunday, in commemoration of the resurrection of the Savior on the first day of the week. He calls the resurrection of Christ the greatest event in all history and notes that by proper observance of the Sabbath we show our respect for the Lord’s passion and his resurrection from the dead. (See *Gospel Ideals,* Deseret News Press, 1953, pp. 397–98.)
 
 With this thought in mind, let us ask ourselves how important the Lord’s atonement is to us. How dear to us is the Lord Jesus Christ? How deeply are we concerned about immortality? Is the resurrection of vital interest to us?
 
@@ -107,8 +107,6 @@ How dare we trifle with Almighty God?
 The Lord declares that to qualify to enter his presence we must live by every word that proceeds forth from his mouth (see [[D&C 84.44|D&C 84:44]]), and the law of the Sabbath is one of the most important in the entire gospel plan.
 
 May we have the courage and the good sense to keep it, I humbly pray in the sacred name of Jesus Christ. Amen.
-
-
 
 
 

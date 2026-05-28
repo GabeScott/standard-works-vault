@@ -1,6 +1,6 @@
 # It’s Never Too Early and It’s Never Too Late
 
-By Elder Bradley D. Foster - *Of the Seventy*
+By Elder Bradley D. Foster - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -12,7 +12,7 @@ Brothers and sisters, we are engaged in a battle with the world. In the past, th
 
 The children of the Church sing a song that teaches them about their real identity: “I am a child of God. … He has sent me here, has given me an earthly home with parents.” Then the children’s plea to us: “Lead me, guide me, walk beside me. … Help me to understand his words before it grows too late.”[^1]
 
-President Russell M. Nelson taught us in our last general conference that, from here on out, we must be engaged in “intentional parenting.”[^2] These are perilous times. But the good news is God knew this would be the case, and He has provided counsel in the scriptures for us to know how to help our children and our grandchildren.
+President Russell M. Nelson taught us in our last general conference that, from here on out, we must be engaged in “intentional parenting.”[^2] These are perilous times. But the good news is God knew this would be the case, and He has provided counsel in the scriptures for us to know how to help our children and our grandchildren.
 
 In the Book of Mormon, the Savior appeared to the Nephites. He gathered their little children around Him. He blessed them, prayed for them, and wept over them.[^3] Then He said to the parents, “Behold your little ones.”[^4]
 
@@ -56,7 +56,7 @@ Here was a father, year after year, “line upon line; here a little, and there 
 
 When I drove home that night, I asked myself, “What kind of father will Pablo be?” And the answer was crystal clear: he’ll be just like his dad. Jesus said, “The Son can do nothing of himself, but what he seeth the Father do.”[^11] This is the pattern of how Heavenly Father blesses His children from generation to generation.
 
-As I continued to think about my experience with Pablo, I felt sad because my four daughters were grown and the nine grandchildren I had at the time didn’t live nearby. I then thought, “How could I ever help them the way Pablo’s father helped him? Had too much time gone by?” As I offered a prayer in my heart, the Spirit whispered this profound truth: “It’s never too early and it’s never too late to begin this important process.” I knew immediately what that meant. I could hardly wait to get home. I asked my wife, Sharol, to call all of our children and tell them that we needed to visit with them; I had something really important to tell them. My urgency startled them a little.
+As I continued to think about my experience with Pablo, I felt sad because my four daughters were grown and the nine grandchildren I had at the time didn’t live nearby. I then thought, “How could I ever help them the way Pablo’s father helped him? Had too much time gone by?” As I offered a prayer in my heart, the Spirit whispered this profound truth: “It’s never too early and it’s never too late to begin this important process.” I knew immediately what that meant. I could hardly wait to get home. I asked my wife, Sharol, to call all of our children and tell them that we needed to visit with them; I had something really important to tell them. My urgency startled them a little.
 
 We began with our oldest daughter and her husband. I said: “Your mother and I want you to know that we were your age once. We were 31, with a small family. We have an idea of what you might encounter. It might be a financial or health challenge. It may be a crisis of faith. You may just get overwhelmed with life. When these things happen, we want you to come and talk to us. We’ll help you get through them. Now, we don’t want to be in your business all the time, but we want you to know that we are always in your corner. And while we’re together, I want to tell you about an interview I just had with a young man named Pablo.”
 
@@ -79,19 +79,19 @@ It is my witness that our Heavenly Father loved us so much that He sent His Only
 
 [^1]: “I Am a Child of God,” *Hymns,* no. 301.
 
-[^2]: See Russell M. Nelson, [“The Sabbath Is a Delight,”](https://churchofjesuschrist.org/study/ensign/2015/05/sunday-afternoon-session/the-sabbath-is-a-delight?lang=eng) *Ensign* or *Liahona,* May 2015, 131.
+[^2]: See Russell M. Nelson, “[The Sabbath Is a Delight](https://www.churchofjesuschrist.org/study/ensign/2015/05/sunday-afternoon-session/the-sabbath-is-a-delight?lang=eng),” *Ensign* or *Liahona,* May 2015, 131.
 
-[^3]: See [[3 Nephi 17.21|3 Nephi 17:21]].
+[^3]: See [[3 Nephi 17.21|3 Nephi 17:21]].
 
-[^4]: [[3 Nephi 17.23|3 Nephi 17:23]].
+[^4]: [[3 Nephi 17.23|3 Nephi 17:23]].
 
 [^5]: See [[Matthew 13.1|Matthew 13:1–13]][[Matthew 13.2|]][[Matthew 13.3|]][[Matthew 13.4|]][[Matthew 13.5|]][[Matthew 13.6|]][[Matthew 13.7|]][[Matthew 13.8|]][[Matthew 13.9|]][[Matthew 13.10|]][[Matthew 13.11|]][[Matthew 13.12|]][[Matthew 13.13|]].
 
 [^6]: [[Matthew 13.19|Matthew 13:19]]; emphasis added.
 
-[^7]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^7]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
-[^8]: [[2 Nephi 33.1|2 Nephi 33:1]].
+[^8]: [[2 Nephi 33.1|2 Nephi 33:1]].
 
 [^9]: See “Anne Sullivan,” biography.com/people/anne-sullivan-9498826; “Helen Keller,” biography.com/people/helen-keller-9361967.
 
@@ -101,6 +101,4 @@ It is my witness that our Heavenly Father loved us so much that He sent His Only
 
 [^12]: Adapted from Elizabeth Akers Allen’s poem “Rock Me to Sleep,” in William Cullen Bryant, ed., *The Family Library of Poetry and Song* (1870), 222–23.
 
-
-
-#Children #Conversion #Divine_Nature #Parenthood
+#Children #Conversion #DivineNature #Parenthood

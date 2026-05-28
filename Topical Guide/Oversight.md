@@ -1,6 +1,5 @@
 # Oversight
 
-
 *oversight* of all the tabernacle, [[Numbers 4.16|Numbers 4:16]].
 
 *oversight* of the house of the Lord, [[2 Kings 12.11|2 Kings 12:11]].

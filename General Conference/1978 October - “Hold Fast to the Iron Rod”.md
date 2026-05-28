@@ -1,6 +1,6 @@
 # “Hold Fast to the Iron Rod”
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -74,7 +74,7 @@ Bearing false witness and coveting the belongings of others are further evidence
 
 Kindness, helpfulness, love, concern, generosity—we could go on for the list of virtues is endless. The development of these traits is what the Lord asks of us.
 
-“If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
+“If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
 
 The gospel of Jesus Christ is true. Any earnest seeker can know for himself that it is true by studying and living its principles and seeking the companionship and help of the Holy Ghost. But how much easier it is to understand and accept if the seeker after the truth can also see the principles of the gospel at work in the lives of others. No greater service can be given to the missionary calling of the Church than to exemplify positive Christian virtues in our lives.
 
@@ -85,6 +85,4 @@ May the Lord bless us, each one, to hold fast to the iron rod, I humbly pray, in
 
 
 
-
-
-#Family_History #Sabbath #Self-Reliance #Spirituality
+#FamilyHistory #Sabbath #Self-reliance #Spirituality

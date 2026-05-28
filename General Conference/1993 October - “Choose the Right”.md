@@ -44,7 +44,7 @@ Now for the second example. In the land of Ammonihah, Amulek and Alma also found
 
 Then Zeezrom taunted Amulek, but Amulek’s response was marvelous as he explained the plan of redemption:
 
-“And I say unto you again that he cannot save them in their sins; for I cannot deny his word, and he hath said that no unclean thing can inherit the kingdom of heaven; therefore, how can ye be saved, except ye inherit the kingdom of heaven? Therefore, ye cannot be saved in your sins. …
+“And I say unto you again that he cannot save them in their sins; for I cannot deny his word, and he hath said that no unclean thing can inherit the kingdom of heaven; therefore, how can ye be saved, except ye inherit the kingdom of heaven? Therefore, ye cannot be saved in your sins. …
 
 “And he shall come into the world to redeem his people; and he shall take upon him the transgressions of those who believe on his name; and these are they that shall have eternal life, and salvation cometh to none else.
 
@@ -60,7 +60,7 @@ Consider the counsel given by President Spencer W. Kimball:
 
 “Now may I make a recommendation? Develop discipline of self so that, more and more, you do not have to decide and redecide what you will do when you are confronted with the same temptation time and time again. You need only to decide some things once. How great a blessing it is to be free of agonizing over and over again regarding a temptation. To do such is time-consuming and very risky.
 
-“Likewise, my dear young friends, the positive things you will want to accomplish need be decided upon only once—like going on a mission and living worthily in order to get married in the temple—and then all other decisions related to these goals can fall into line. Otherwise, each consideration is risky, and each equivocation may result in error. There are some things Latter-day Saints do and other things we just don’t do. The sooner you take a stand, the taller you will be!” (*President Kimball Speaks Out* \[Salt Lake City: Deseret Book Co., 1981\], p. 94).
+“Likewise, my dear young friends, the positive things you will want to accomplish need be decided upon only once—like going on a mission and living worthily in order to get married in the temple—and then all other decisions related to these goals can fall into line. Otherwise, each consideration is risky, and each equivocation may result in error. There are some things Latter-day Saints do and other things we just don’t do. The sooner you take a stand, the taller you will be!” (*President Kimball Speaks Out* \[Salt Lake City: Deseret Book Co., 1981\], p. 94).
 
 To offset the worldly messages that entice us to choose the wrong, the Lord has blessed us with symbols of purity to keep us on the right course to choose the right. I was reminded of one of these at a baptism of one of my granddaughters a few months ago. In the little program that preceded the ordinance of baptism, my granddaughter read a poem, which had been written by her mother for this special occasion.
 
@@ -111,8 +111,6 @@ I hope and pray that you great young people of the Church will have the courage 
 I promise you that you will receive everlasting happiness if you consistently choose to do what is right.
 
 God lives! Jesus is the Christ! Obedience to His laws will lead us to life eternal is my solemn witness to you in the name of our Lord and Savior Jesus Christ, amen.
-
-
 
 
 

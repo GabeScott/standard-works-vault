@@ -47,6 +47,4 @@ As President Spencer W. Kimball said, “As we give, we find that ‘sacrifice b
 
 
 
-
-
-#Blessings #Joy #Sacrifice #Scripture_Study
+#Blessings #Joy #Sacrifice #ScriptureStudy

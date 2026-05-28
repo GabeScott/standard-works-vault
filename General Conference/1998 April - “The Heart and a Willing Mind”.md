@@ -14,7 +14,7 @@ Wherever I go, we are brothers. It is instant, and it is reassuring. I return to
 
 Men of the priesthood, I remember a story about a schoolteacher who asked a returning class what their fathers had taught them about self-reliance during a summer vacation. After several accounts were told, she asked Johnny what his dad had done. And Johnny replied, “My dad taught me how to swim; he took me out in the middle of Utah Lake, threw me overboard, and told me to swim back to shore.” “Wow,” the teacher said, “that took a lot of courage.” And Johnny replied, “It wasn’t bad at all after I got out of the gunnysack.” Well, my young friends, life will be a challenge, but our Father in Heaven has given us the means to get through it safely. Let’s talk about that for a few minutes.
 
-The Lord wants you to have the greatest of all experiences as you make your journey on this earth. This can be a magnificent journey filled with literally thousands of tremendous experiences and spiritual confirmations if you will find your way through the many choices that will be yours along the way. The road given by our Father in Heaven is clearly marked, but the patterns and ways of the world can deceive you. But remember, “Ye are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]). You are the means by which truth and goodness and eternal life will be made known to the whole world. We are all part of it. As the Lord said to Joseph Smith in 1831, we will all need “the heart and a willing mind” ([[D&C 64.34|D&C 64:34]]).
+The Lord wants you to have the greatest of all experiences as you make your journey on this earth. This can be a magnificent journey filled with literally thousands of tremendous experiences and spiritual confirmations if you will find your way through the many choices that will be yours along the way. The road given by our Father in Heaven is clearly marked, but the patterns and ways of the world can deceive you. But remember, “Ye are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]). You are the means by which truth and goodness and eternal life will be made known to the whole world. We are all part of it. As the Lord said to Joseph Smith in 1831, we will all need “the heart and a willing mind” ([[D&C 64.34|D&C 64:34]]).
 
 Young men, life is eternal. The Lord Jesus Christ and His servants give hope and witness to the world that the journey we take is from our Father’s presence to earth and then home again to our Father in Heaven to live eternally. We all bear this good news to the world. It is a supernal message of everlasting life and everlasting relationships—even eternal marriages and families. Nothing transcends its meaning, its value, its promise. With this knowledge and love, we can help transform hopes and dreams and help others to find eternal truths and the inward peace and security that they bring.
 
@@ -50,11 +50,9 @@ I testify God lives, that His Son is the Redeemer of this earth, and that this g
 
 - *Begin with the end in mind* with *“the heart and a willing mind.”*
 
-Remember the Lord said, “For them that honour me I will honour” ([[1 Samuel 2.30|1 Sam. 2:30]]). May this be our journey, in the name of Jesus Christ, amen.
+Remember the Lord said, “For them that honour me I will honour” ([[1 Samuel 2.30|1 Sam. 2:30]]). May this be our journey, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Commandments #God_The_Father #Jesus_Christ #Missionary_Work #Priesthood
+#Commandments #GodTheFather #JesusChrist #MissionaryWork #Priesthood

@@ -5,7 +5,7 @@
 [Joseph Smith History 1:72](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.72?lang=eng#p72)
 
 
-[^a]: [[Luke 3.4|Luke 3:4.]]
-[^b]: [[Matthew 3.1|Matt. 3:1 (1-12).]]
-[^c]: [[D&C 7.7|D&C 7:7 (5-7)]]; [[D&C 27.12|27:12]]. TG [[Priesthood, Keys of]]; [[Priesthood, Melchizedek]].
-[^d]: TG [[Elder, Melchizedek Priesthood]].
+[^a]: [[Luke 3.4|Luke 3:4]].  
+[^b]: [[Matthew 3.1|Matt. 3:1 (1–12)]][[Matthew 3.2|]][[Matthew 3.3|]][[Matthew 3.4|]][[Matthew 3.5|]][[Matthew 3.6|]][[Matthew 3.7|]][[Matthew 3.8|]][[Matthew 3.9|]][[Matthew 3.10|]][[Matthew 3.11|]][[Matthew 3.12|]].  
+[^c]: [[D&C 7.5|D&C 7:7 (5–7)]][[D&C 7.6|]][[D&C 7.7|]]; [[D&C 27.12|27:12]]. [[Priesthood, Keys of|TG Priesthood, Keys of]]; [[Priesthood, Melchizedek|Priesthood, Melchizedek]].  
+[^d]: [[Elder|TG Elder]].  

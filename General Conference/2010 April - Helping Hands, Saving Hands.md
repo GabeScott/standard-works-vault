@@ -8,7 +8,7 @@ By Elder Koichi Aoyagi - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/04/helping-hands-saving-hands?lang=eng)
 
-My brothers and sisters, I am deeply grateful for the opportunity to speak at this conference. I am grateful for President Thomas S. Monson, and I testify that he is a prophet of the living God. I am deeply impressed by the wonderful example of President Monson, who has spent his life using his hands to help and save others.
+My brothers and sisters, I am deeply grateful for the opportunity to speak at this conference. I am grateful for President Thomas S. Monson, and I testify that he is a prophet of the living God. I am deeply impressed by the wonderful example of President Monson, who has spent his life using his hands to help and save others.
 
 We live in a day when many people are faced with calamities and are in need of help due to the devastating effects of earthquakes, tsunamis, hurricanes, and other natural disasters. The Church is reaching out to these people through humanitarian aid. Church members faithfully give generous fast offerings each month and perform service in a spirit of love. They literally offer helping hands in the Lord’s way. They follow the commandment of the Lord to “remember in all things the poor and the needy, the sick and the afflicted, for he that doeth not these things, the same is not my disciple” ([[D&C 52.40|D&C 52:40]]).
 
@@ -32,7 +32,7 @@ I do not have time to tell you about all the good things I see Church members do
 
 Sometimes we feel that we are weak and lack the strength to rescue others, but the Lord reminds us, “Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.40|Matthew 25:40]]).
 
-I close with a quote by President Thomas S. Monson: “My brothers and sisters, we are surrounded by those in need of our attention, our encouragement, our support, our comfort, our kindness—be they family members, friends, acquaintances, or strangers. We are the Lord’s hands here upon the earth, with the mandate to serve and to lift His children. He is dependent upon each of us.”[^5]
+I close with a quote by President Thomas S. Monson: “My brothers and sisters, we are surrounded by those in need of our attention, our encouragement, our support, our comfort, our kindness—be they family members, friends, acquaintances, or strangers. We are the Lord’s hands here upon the earth, with the mandate to serve and to lift His children. He is dependent upon each of us.”[^5]
 
 May we follow the counsel and example of the prophet and each day seek out those in need, that we might be the hands of the Lord in helping and saving His children, I pray in the name of Jesus Christ, amen.
 
@@ -47,8 +47,6 @@ May we follow the counsel and example of the prophet and each day seek out those
 
 [^4]: “Follow the Prophet,” *Children’s Songbook,* 111.
 
-[^5]: Thomas S. Monson, in Conference Report, Oct. 2009, 84; or *Ensign,* Nov. 2009, 86.
-
-
+[^5]: Thomas S. Monson, in Conference Report, Oct. 2009, [[2009 October - What Have I Done for Someone Today.md|84]]; or *Ensign,* Nov. 2009, 86.
 
 #Conversion #Love #Service

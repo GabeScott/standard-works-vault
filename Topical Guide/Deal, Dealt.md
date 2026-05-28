@@ -1,6 +1,5 @@
 # Deal, Dealt
 
-
 let us *deal* wisely with them, [[Exodus 1.10|Exodus 1:10]].
 
 *deal* kindly and truly with thee, [[Joshua 2.14|Joshua 2:14]].

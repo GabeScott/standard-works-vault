@@ -8,7 +8,7 @@ By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/gaining-a-testimony-of-god-the-father-his-son-jesus-christ-and-the-holy-ghost?lang=eng)
 
-Like you, I appreciated the participation in the solemn assembly. But I thought I might give one point of doctrine and help. When we raised our hands to the square in the solemn assembly, it was not just a vote in that we gave of ourselves a private and personal commitment, even a covenant, to sustain and to uphold the laws, ordinances, commandments, and the prophet of God, President Thomas S. Monson. I so appreciated participating with you and raising my right hand to the square.
+Like you, I appreciated the participation in the solemn assembly. But I thought I might give one point of doctrine and help. When we raised our hands to the square in the solemn assembly, it was not just a vote in that we gave of ourselves a private and personal commitment, even a covenant, to sustain and to uphold the laws, ordinances, commandments, and the prophet of God, President Thomas S. Monson. I so appreciated participating with you and raising my right hand to the square.
 
 My brothers and sisters, over the past few months I have had a humbling experience which has given me the opportunity to reflect with gratitude on the gift of life. In the course of this experience, I have continually pondered my testimony of God our Eternal Father and His eldest Son, our Savior and Redeemer, Jesus Christ, and how I gained my testimony of the Father and the Son.
 
@@ -34,11 +34,11 @@ Who is this Jesus? He participated with His Father in the Creation of the world 
 
 It is very enlightening and touching to me to consider how Jesus talks to His Father. In His great Intercessory Prayer, which is found in the Bible in the book of John, it is unmistakably clear that Jesus acknowledges He is the Son. Listen to His words as He reports the obedient completion of His earthly mission to His Father in Heaven:
 
-“I have glorified thee on the earth: I have finished the work which thou gavest me to do. …
+“I have glorified thee on the earth: I have finished the work which thou gavest me to do. …
 
-“For I have given unto them \[the disciples\] the words which thou gavest me … , and they have believed that thou didst send me. …
+“For I have given unto them \[the disciples\] the words which thou gavest me … , and they have believed that thou didst send me. …
 
-“As thou hast sent me into the world, even so have I also sent them into the world. …
+“As thou hast sent me into the world, even so have I also sent them into the world. …
 
 “And the glory which thou gavest me I have given them; that they may be one, even as we are one.”[^11]
 
@@ -46,11 +46,11 @@ Through the course of the Savior’s ministry, the disciples did indeed become o
 
 The Savior also prayed:
 
-“O Father, glorify thou me … with the glory which I had with thee before the world was. …
+“O Father, glorify thou me … with the glory which I had with thee before the world was. …
 
-“… That the world may know that thou hast sent me, and hast loved them, as thou hast loved me.
+“… That the world may know that thou hast sent me, and hast loved them, as thou hast loved me.
 
-“… For thou lovedst me before the foundation of the world.”[^12]
+“… For thou lovedst me before the foundation of the world.”[^12]
 
 Oh, how Jesus wanted us to know the Father as He did. He prayed:
 
@@ -73,7 +73,7 @@ As an Apostle of the Lord Jesus Christ, I testify of the truth of what is in the
 
 
 
-[^1]: [[3 Nephi 11.32|3 Nephi 11:32]].
+[^1]: [[3 Nephi 11.32|3 Nephi 11:32]].
 
 [^2]: [[Articles of Faith 1.1|Articles of Faith 1:1]].
 
@@ -87,7 +87,7 @@ As an Apostle of the Lord Jesus Christ, I testify of the truth of what is in the
 
 [^7]: [[Luke 9.35|Luke 9:35]].
 
-[^8]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^8]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
 [^9]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
@@ -115,8 +115,6 @@ As an Apostle of the Lord Jesus Christ, I testify of the truth of what is in the
 
 [^21]: [[John 3.16|John 3:16]].
 
-[^22]: [[3 Nephi 18.20|3 Nephi 18:20]].
+[^22]: [[3 Nephi 18.20|3 Nephi 18:20]].
 
-
-
-#Godhead #Jesus_Christ #Testimony
+#Godhead #JesusChrist #Testimony

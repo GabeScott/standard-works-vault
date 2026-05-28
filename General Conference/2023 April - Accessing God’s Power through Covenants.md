@@ -1,6 +1,6 @@
 # Accessing God’s Power through Covenants
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -16,7 +16,7 @@ Like the Amazon, we have a natural flow to our lives; we tend to do what comes n
 
 Unlike the Amazon, we can choose whether we yield to heavenly powers or “go with the flow.”[^3] Going against the flow may be difficult. But when we yield “to the enticings of the Holy Spirit” and put off the selfish tendencies of the natural man or woman,[^4] we can receive the Savior’s transforming power in our lives, the power to do difficult things.
 
-President Russell M. Nelson taught us how to do this. He promised, “Each person who makes covenants in baptismal fonts and in temples—and keeps them—has increased access to the power of Jesus Christ … \[to lift\] us above the pull of this fallen world.”[^5] In other words, we can access the power of God, but only when we connect with Him through sacred covenants.
+President Russell M. Nelson taught us how to do this. He promised, “Each person who makes covenants in baptismal fonts and in temples—and keeps them—has increased access to the power of Jesus Christ … \[to lift\] us above the pull of this fallen world.”[^5] In other words, we can access the power of God, but only when we connect with Him through sacred covenants.
 
 Before the earth was created, God established covenants as the mechanism by which we, His children, could unite ourselves to Him. Based on eternal, unchanging law, He specified the nonnegotiable conditions whereby we are transformed, saved, and exalted. In this life, we make these covenants by participating in priesthood ordinances and promising to do what God asks us to do, and in return, God promises us certain blessings.[^6]
 
@@ -55,27 +55,27 @@ As you come to Christ and are connected to Him and our Heavenly Father by covena
 
 [^2]: Approximately 30 miles.
 
-[^3]: We have a choice because God has given us the privilege to choose and act for ourselves. See Guide to the Scriptures, “[Agency](https://churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” scriptures.ChurchofJesusChrist.org; [[2 Nephi 2.27|2 Nephi 2:27]]; [[Moses 7.32|Moses 7:32]].
+[^3]: We have a choice because God has given us the privilege to choose and act for ourselves. See Guide to the Scriptures, “[Agency](https://www.churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” scriptures.ChurchofJesusChrist.org; [[2 Nephi 2.27|2 Nephi 2:27]]; [[Moses 7.32|Moses 7:32]].
 
 [^4]: See [[Mosiah 3.19|Mosiah 3:19]].
 
-[^5]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96, 97.
+[^5]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96, 97.
 
-[^6]: See Guide to the Scriptures, “[Covenant](https://churchofjesuschrist.org/study/scriptures/gs/covenant?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^6]: See Guide to the Scriptures, “[Covenant](https://www.churchofjesuschrist.org/study/scriptures/gs/covenant?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
-[^7]: Everyone stumbles on occasion, but God is patient with our stumbles and has given us the gift of repentance even after breaking a covenant. As Elder Richard G. Scott taught, “The Lord sees weaknesses differently than He \[sees\] rebellion … \[because\] when the Lord speaks of weaknesses, it is always with mercy” (“[[2013 October - Personal Strength through the Atonement of Jesus Christ.md|Personal Strength through the Atonement of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2013, 83). Thus, we should not doubt the Savior’s ability to help us with our weaknesses. However, consciously breaking a covenant with the callous plan to repent afterwards—in other words, preplanned sin and repentance—is repugnant to the Lord (see [[Hebrews 6.4|Hebrews 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]]).
+[^7]: Everyone stumbles on occasion, but God is patient with our stumbles and has given us the gift of repentance even after breaking a covenant. As Elder Richard G. Scott taught, “The Lord sees weaknesses differently than He \[sees\] rebellion … \[because\] when the Lord speaks of weaknesses, it is always with mercy” (“[[2013 October - Personal Strength through the Atonement of Jesus Christ.md|Personal Strength through the Atonement of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2013, 83). Thus, we should not doubt the Savior’s ability to help us with our weaknesses. However, consciously breaking a covenant with the callous plan to repent afterwards—in other words, preplanned sin and repentance—is repugnant to the Lord (see [[Hebrews 6.4|Hebrews 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]]).
 
 [^8]: See Robert Bolt, *A Man for All Seasons: A Play in Two Acts* (1990), xiii–xiv, 140.
 
-[^9]: See [[2 Nephi 31.17|2 Nephi 31:17–18]][[2 Nephi 31.18|]].
+[^9]: See [[2 Nephi 31.17|2 Nephi 31:17–18]][[2 Nephi 31.18|]].
 
-[^10]: See [[2 Nephi 31.4|2 Nephi 31:4–15]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]].
+[^10]: See [[2 Nephi 31.4|2 Nephi 31:4–15]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]].
 
 [^11]: Luke records, “And the Holy Ghost descended in a bodily shape like a dove upon him, and a voice came from heaven, which said, Thou art my beloved Son; in thee I am well pleased” ([[Luke 3.22|Luke 3:22]]). Mark records, “And there came a voice from heaven, saying, Thou art my beloved Son, in whom I am well pleased” ([[Mark 1.11|Mark 1:11]]). William Tyndale’s translation is even more vivid and intimate than the King James Version. In his translation, the voice of Heavenly Father says, “Thou arte my dear Son in whom I delyghte” (in Brian Moynahan, *God’s Bestseller: William Tyndale, Thomas More, and the Writing of the English Bible—A Story of Martyrdom and Betrayal* \[2002\], 58). Only Matthew reports that the voice was more generally directed, saying, “And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased” ([[Matthew 3.17|Matthew 3:17]]). The Gospel of John reports only of the baptism by John the Baptist: “And I saw, and bare record that this is the Son of God” ([[John 1.34|John 1:34]]).
 
-[^12]: See [[2 Nephi 31.13|2 Nephi 31:13]]; [[D&C 20.77|Doctrine and Covenants 20:77]].
+[^12]: See [[2 Nephi 31.13|2 Nephi 31:13]]; [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^13]: President Dallin H. Oaks explained the importance of the term “willing” as we renew our baptismal covenant with the sacrament: “It is significant that when we partake of the sacrament we do not witness that we *take upon us* the name of Jesus Christ. We witness that we are *willing* to do so. \[See [[D&C 20.77|Doctrine and Covenants 20:77]].\] The fact that we only witness to our willingness suggests that something else must happen before we actually take that sacred name upon us in the most important sense” (“[[1985 April - Taking upon Us the Name of Jesus Christ.md|Taking upon Us the Name of Jesus Christ]],” *Ensign*, May 1985, 81). The “something else” refers to temple blessings and future exaltation.
+[^13]: President Dallin H. Oaks explained the importance of the term “willing” as we renew our baptismal covenant with the sacrament: “It is significant that when we partake of the sacrament we do not witness that we *take upon us* the name of Jesus Christ. We witness that we are *willing* to do so. \[See [[D&C 20.77|Doctrine and Covenants 20:77]].\] The fact that we only witness to our willingness suggests that something else must happen before we actually take that sacred name upon us in the most important sense” (“[[1985 April - Taking upon Us the Name of Jesus Christ.md|Taking upon Us the Name of Jesus Christ]],” *Ensign*, May 1985, 81). The “something else” refers to temple blessings and future exaltation.
 
 [^14]: [[Exodus 20.7|Exodus 20:7]].
 
@@ -83,11 +83,11 @@ As you come to Christ and are connected to Him and our Heavenly Father by covena
 
 [^16]: See Strong, *The New Strong’s Expanded Exhaustive Concordance of the Bible*, Hebrew dictionary section, page 273, number 7723.
 
-[^17]: Elder David A. Bednar taught: “The baptismal covenant clearly contemplates a future event or events and looks forward to the temple. … The process of taking upon ourselves the name of Jesus Christ that is commenced in the waters of baptism is continued and enlarged in the house of the Lord. As we stand in the waters of baptism, we look to the temple. As we partake of the sacrament, we look to the temple. We pledge to always remember the Savior and to keep His commandments as preparation to participate in the sacred ordinances of the temple and receive the highest blessings available through the name and by the authority of the Lord Jesus Christ. Thus, in the ordinances of the holy temple we more completely and fully take upon us the name of Jesus Christ” (“[[2009 April - Honorably Hold a Name and Standing.md|Honorably Hold a Name and Standing]],” *Ensign* or *Liahona*, May 2009, 98). The process is probably not complete until “we shall be like him” ([[Moroni 7.48|Moroni 7:48]]), when we have fully been transformed.
+[^17]: Elder David A. Bednar taught: “The baptismal covenant clearly contemplates a future event or events and looks forward to the temple. … The process of taking upon ourselves the name of Jesus Christ that is commenced in the waters of baptism is continued and enlarged in the house of the Lord. As we stand in the waters of baptism, we look to the temple. As we partake of the sacrament, we look to the temple. We pledge to always remember the Savior and to keep His commandments as preparation to participate in the sacred ordinances of the temple and receive the highest blessings available through the name and by the authority of the Lord Jesus Christ. Thus, in the ordinances of the holy temple we more completely and fully take upon us the name of Jesus Christ” (“[[2009 April - Honorably Hold a Name and Standing.md|Honorably Hold a Name and Standing]],” *Ensign* or *Liahona*, May 2009, 98). The process is probably not complete until “we shall be like him” ([[Moroni 7.48|Moroni 7:48]]), when we have fully been transformed.
 
-[^18]: As explained in the *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [27.2](https://churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11) (ChurchofJesusChrist.org), the covenants are to live the law of obedience, obey the law of sacrifice, obey the law of the gospel of Jesus Christ, keep the law of chastity, and keep the law of consecration; see also David A. Bednar, “[[2020 April - “Let This House Be Built unto My Name”.md|Let This House Be Built unto My Name]],” *Ensign* or *Liahona*, May 2020, 84–87.
+[^18]: As explained in the *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [27.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11) (ChurchofJesusChrist.org), the covenants are to live the law of obedience, obey the law of sacrifice, obey the law of the gospel of Jesus Christ, keep the law of chastity, and keep the law of consecration; see also David A. Bednar, “[[2020 April - “Let This House Be Built unto My Name”.md|Let This House Be Built unto My Name]],” *Ensign* or *Liahona*, May 2020, 84–87.
 
-[^19]: See [[D&C 109.14|Doctrine and Covenants 109:14–15]][[D&C 109.15|]]. Elder D. Todd Christofferson taught, “The ‘fulness of the Holy Ghost’ includes what Jesus described as ‘the promise which I give unto you of eternal life, even the glory of the celestial kingdom; which glory is that of the church of the Firstborn, even of God, the holiest of all, through Jesus Christ his Son’ ([[D&C 88.4|D&C 88:4–5]][[D&C 88.5|]])” (“[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona*, May 2009, 23, note 5).
+[^19]: See [[D&C 109.14|Doctrine and Covenants 109:14–15]][[D&C 109.15|]]. Elder D. Todd Christofferson taught, “The ‘fulness of the Holy Ghost’ includes what Jesus described as ‘the promise which I give unto you of eternal life, even the glory of the celestial kingdom; which glory is that of the church of the Firstborn, even of God, the holiest of all, through Jesus Christ his Son’ ([[D&C 88.4|D&C 88:4–5]][[D&C 88.5|]])” (“[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona*, May 2009, 23, note 5).
 
 [^20]: See [[D&C 109.15|Doctrine and Covenants 109:15]].
 
@@ -95,18 +95,16 @@ As you come to Christ and are connected to Him and our Heavenly Father by covena
 
 [^22]: See [[D&C 109.21|Doctrine and Covenants 109:21]].
 
-[^23]: See [[D&C 109.15|Doctrine and Covenants 109:15, 22]][[D&C 109.22|]]; Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98.
+[^23]: See [[D&C 109.15|Doctrine and Covenants 109:15, 22]][[D&C 109.22|]]; Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98.
 
-[^24]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96; [[D&C 84.20|Doctrine and Covenants 84:20]]. Notably, President Nelson said, “Each time you seek for and follow the promptings of the Spirit, each time you do anything good—things that ‘the natural man’ would not do—you are overcoming the world” (“[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 97).
+[^24]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96; [[D&C 84.20|Doctrine and Covenants 84:20]]. Notably, President Nelson said, “Each time you seek for and follow the promptings of the Spirit, each time you do anything good—things that ‘the natural man’ would not do—you are overcoming the world” (“[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 97).
 
 [^25]: [[Hebrews 11.13|Hebrews 11:13]].
 
-[^26]: “[Redeemer of Israel](https://churchofjesuschrist.org/study/manual/hymns/redeemer-of-israel?lang=eng),” *Hymns*, no. 6, verse 5. This was Lena Sofia Renlund’s favorite hymn.
+[^26]: “[Redeemer of Israel](https://www.churchofjesuschrist.org/study/manual/hymns/redeemer-of-israel?lang=eng),” *Hymns*, no. 6, verse 5. This was Lena Sofia Renlund’s favorite hymn.
 
 [^27]: See [[Moroni 10.30|Moroni 10:30–33]][[Moroni 10.31|]][[Moroni 10.32|]][[Moroni 10.33|]].
 
 [^28]: See [[D&C 132.19|Doctrine and Covenants 132:19–20]][[D&C 132.20|]].
 
-
-
-#Covenants #Discipleship #Jesus_Christ #Ordinances #Temples
+#Covenants #Discipleship #JesusChrist #Ordinances #Temples

@@ -1,6 +1,6 @@
 # Let the Holy Spirit Guide
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/let-the-holy-spirit-guide?lang=eng)
 
-Brothers and sisters, I, like all of you, recognize we are seeing the hastening of the Lord’s work through President Thomas S. Monson and his message this morning. President Monson, we love you, sustain you, and ever pray for you, “our prophet dear.”[^1]
+Brothers and sisters, I, like all of you, recognize we are seeing the hastening of the Lord’s work through President Thomas S. Monson and his message this morning. President Monson, we love you, sustain you, and ever pray for you, “our prophet dear.”[^1]
 
 We have felt an outpouring of the Spirit this weekend. Whether you are here in this great hall or watching from homes or gathered in meetinghouses in distant parts of the world, you have had the opportunity to feel the Spirit of the Lord. That Spirit confirms to your hearts and minds the truths taught at this conference.
 
@@ -89,9 +89,9 @@ May we take seriously the Lord’s call to “be of good cheer, for I will lead 
 
 
 
-[^1]: “God Bless Our Prophet Dear,” *Hymns,* no. 24.
+[^1]: “God Bless Our Prophet Dear,” *Hymns,* no. 24.
 
-[^2]: “Let the Holy Spirit Guide,” *Hymns,* no. 143.
+[^2]: “Let the Holy Spirit Guide,” *Hymns,* no. 143.
 
 [^3]: [[D&C 130.22|Doctrine and Covenants 130:22]].
 
@@ -107,30 +107,28 @@ May we take seriously the Lord’s call to “be of good cheer, for I will lead 
 
 [^9]: [[D&C 8.2|Doctrine and Covenants 8:2]].
 
-[^10]: [[3 Nephi 19.33|3 Nephi 19:33]].
+[^10]: [[3 Nephi 19.33|3 Nephi 19:33]].
 
-[^11]: See [[1 Kings 18.17|1 Kings 18:17–29]][[1 Kings 18.18|]][[1 Kings 18.19|]][[1 Kings 18.20|]][[1 Kings 18.21|]][[1 Kings 18.22|]][[1 Kings 18.23|]][[1 Kings 18.24|]][[1 Kings 18.25|]][[1 Kings 18.26|]][[1 Kings 18.27|]][[1 Kings 18.28|]][[1 Kings 18.29|]].
+[^11]: See [[1 Kings 18.17|1 Kings 18:17–29]][[1 Kings 18.18|]][[1 Kings 18.19|]][[1 Kings 18.20|]][[1 Kings 18.21|]][[1 Kings 18.22|]][[1 Kings 18.23|]][[1 Kings 18.24|]][[1 Kings 18.25|]][[1 Kings 18.26|]][[1 Kings 18.27|]][[1 Kings 18.28|]][[1 Kings 18.29|]].
 
-[^12]: [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
+[^12]: [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
 
-[^13]: Thomas S. Monson, “[[1985 April - “The Spirit Giveth Life”.md|The Spirit Giveth Life]],” *Ensign,* May 1985, 70.
+[^13]: Thomas S. Monson, “[[1985 April - “The Spirit Giveth Life”.md|The Spirit Giveth Life]],” *Ensign,* May 1985, 70.
 
-[^14]: [[1 Nephi 17.45|1 Nephi 17:45]].
+[^14]: [[1 Nephi 17.45|1 Nephi 17:45]].
 
-[^15]: [[3 Nephi 17.21|3 Nephi 17:21]].
+[^15]: [[3 Nephi 17.21|3 Nephi 17:21]].
 
-[^16]: [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]].
+[^16]: [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]].
 
-[^17]: See Truman G. Madsen, *Joseph Smith the Prophet* (1989), 103.
+[^17]: See Truman G. Madsen, *Joseph Smith the Prophet* (1989), 103.
 
 [^18]: [[D&C 85.6|Doctrine and Covenants 85:6]].
 
-[^19]: Thomas S. Monson, “[[2008 October - To Learn, to Do, to Be.md|To Learn, to Do, to Be]],” *Ensign* or *Liahona,* Nov. 2008, 62.
+[^19]: Thomas S. Monson, “[[2008 October - To Learn, to Do, to Be.md|To Learn, to Do, to Be]],” *Ensign* or *Liahona,* Nov. 2008, 62.
 
 [^20]: [[D&C 11.12|Doctrine and Covenants 11:12]].
 
 [^21]: [[D&C 78.18|Doctrine and Covenants 78:18]].
 
-
-
-#God_The_Father #Godhead #Holy_Ghost #Jesus_Christ #Promptings #Worthiness
+#GodTheFather #Godhead #HolyGhost #JesusChrist #Promptings #Worthiness

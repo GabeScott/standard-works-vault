@@ -5,5 +5,5 @@
 [Psalms 54:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/54.7?lang=eng#p7)
 
 
-[^a]: [[Deliver, Deliverance|TG Deliver]].
-[^b]: [[Psalms 118.7|Ps. 118:7]].
+[^a]: [[Deliver, Deliverance|TG Deliver]].  
+[^b]: [[Psalms 118.7|Ps. 118:7]].  

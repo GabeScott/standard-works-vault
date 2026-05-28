@@ -1,6 +1,6 @@
 # The Last Words of Moroni
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -22,7 +22,7 @@ Their enemies, known as Lamanites, came against them on this hill. Of that dread
 
 “My people, with their wives and their children, did now behold the armies of the Lamanites marching towards them; and with that awful fear of death which fills the breasts of all the wicked, did they await to receive them.
 
-“… Every soul was filled with terror because of the greatness of their numbers.
+“… Every soul was filled with terror because of the greatness of their numbers.
 
 “And it came to pass that they did fall upon my people with the sword, and with the bow, and with the arrow, and with the ax, and with all manner of weapons of war.
 
@@ -60,9 +60,9 @@ When finished with the record, Moroni was to hide it up in that same Hill Cumora
 
 Realizing the importance of completing it, this lone survivor wrote: “I, Moroni, do finish the record of my father, Mormon” ([[Mormon 8.1|Morm. 8:1]]).
 
-Then he wrote a description of the last battle and added: “I … remain alone to write the sad tale of the destruction of my people. …
+Then he wrote a description of the last battle and added: “I … remain alone to write the sad tale of the destruction of my people. …
 
-“Therefore I will write and hide up the records in the earth. …
+“Therefore I will write and hide up the records in the earth. …
 
 “My father hath been slain in battle, and all my kinsfolk, and I have not friends nor whither to go; and how long the Lord will suffer that I may live I know not.” ([[Mormon 8.3|Morm. 8:3–5]][[Mormon 8.4|]][[Mormon 8.5|]].)
 
@@ -74,7 +74,7 @@ In closing his record, and knowing that it would come to us, Moroni pleaded with
 
 “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing.
 
-“And I know that ye do walk in the pride of your hearts; …
+“And I know that ye do walk in the pride of your hearts; …
 
 “Ye do love money, and your substance, and your fine apparel.” ([[Mormon 8.35|Morm. 8:35–36]][[Mormon 8.36|]].)
 
@@ -133,6 +133,4 @@ The last words of Moroni! Dare we forget them? God grant that we never will, I p
 
 
 
-
-
-#Book_Of_Mormon
+#BookOfMormon

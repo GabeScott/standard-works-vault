@@ -40,11 +40,11 @@ A treasured remnant of our heritage of economic self-sufficiency is the Church W
 
 “He that loveth not knoweth not God; for God is love.
 
-“In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. …
+“In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. …
 
-“Beloved, if God so loved us, we ought also to love one another” ([[1 John 4.7|1 Jn. 4:7–9, 11]][[1 John 4.8|]][[1 John 4.9|]][[1 John 4.11|]]).
+“Beloved, if God so loved us, we ought also to love one another” ([[1 John 4.7|1 Jn. 4:7–9, 11]][[1 John 4.8|]][[1 John 4.9|]][[1 John 4.11|]]).
 
-Then in 1 John, the third chapter, he wrote: “But whoso hath this world’s good, and seeth his brother have need, and shutteth up his bowels of compassion from him, how dwelleth the love of God in him?” ([[1 John 3.17|1 Jn. 3:17]]).
+Then in 1 John, the third chapter, he wrote: “But whoso hath this world’s good, and seeth his brother have need, and shutteth up his bowels of compassion from him, how dwelleth the love of God in him?” ([[1 John 3.17|1 Jn. 3:17]]).
 
 It is our understanding of the principle of love that encourages us to give generously to the fast offerings, a wonderful, revealed system in which on the first Sunday of each month we voluntarily refrain from eating two meals and contribute the cost of those meals to our bishop. He then has the resources to help him help those in need. The system is mostly painless, and it raises our appreciation for those who are without and provides a means to satisfy their daily requirements.
 
@@ -66,7 +66,7 @@ The second requirement in the Prophet Joseph’s community of Saints was that of
 
 From the *Encyclopedia of Mormonism* we read, “Educational ideas and practices of the Church grew directly out of certain revelations received by Joseph Smith that emphasize the eternal nature of knowledge and the vital role learning plays in the spiritual, moral, and intellectual development of mankind” (“Education,” in Daniel H. Ludlow, ed., *Encyclopedia of Mormonism,* 5 vols. \[1992\], 2:441).
 
-There are verses in our modern scripture that make special mention of the importance of secular and spiritual learning. A few of these are, first from the Book of Mormon, “But to be learned is good if they hearken unto the counsels of God” ([[2 Nephi 9.29|2 Ne. 9:29]]).
+There are verses in our modern scripture that make special mention of the importance of secular and spiritual learning. A few of these are, first from the Book of Mormon, “But to be learned is good if they hearken unto the counsels of God” ([[2 Nephi 9.29|2 Ne. 9:29]]).
 
 And from the Doctrine and Covenants:
 
@@ -74,7 +74,7 @@ And from the Doctrine and Covenants:
 
 “And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come” ([[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]]).
 
-From the Articles of Faith, “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
+From the Articles of Faith, “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
 
 The final desire of the Prophet Joseph Smith was to build a community of spiritual Saints. This begins in the home. The most important instruction our children will ever receive will be that which parents give to them in their own home, if parents diligently teach their children the way our Father in Heaven would like them to follow. One instruction our leaders have given us is to hold regular family home evenings where we can meet together weekly, learn gospel principles, and build family unity. Here we can counsel together, read the scriptures, pray together, and play together. Our greatest goal is to become an eternal family. We build a community of Saints one family at a time.
 
@@ -93,6 +93,4 @@ Historical information is from *Church History in the Fulness of Times,* 2nd ed.
 
 
 
-
-
-#Children #Church_History #Church_Membership #Education #Faith #Family #Fasting #Generosity #Home #Kindness #Love #Missionary_Work #Parents #Self-Reliance #Teaching #Temple_Work #Unity #Welfare #Work
+#Children #ChurchHistory #ChurchMembership #Education #Faith #Family #Fasting #Generosity #Home #Kindness #Love #MissionaryWork #Parents #Self-reliance #Teaching #TempleWork #Unity #Welfare #Work

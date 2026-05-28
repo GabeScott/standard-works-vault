@@ -65,7 +65,7 @@ Throughout His mortal life the Savior taught that we should care for one another
 
 There are opportunities everywhere to help those in need. I submit to you that at some time in our lives, each of us will be poor in some way and will need the help of another person. For “are we not all beggars?”[^11]
 
-President Spencer W. Kimball said: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other.”[^12]
+President Spencer W. Kimball said: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other.”[^12]
 
 Last summer when I was away from home, a fierce wind and rainstorm blew through our neighborhood. A huge tree had fallen from my neighbor’s yard, filling my yard and knocking down power lines. The tree needed to be removed before the damage could be repaired and power restored to my home.
 
@@ -84,7 +84,7 @@ We must be “fixed in \[our\] purpose”[^13] as we seek to increase in faith a
 
 [^2]: [[Moses 1.39|Moses 1:39]].
 
-[^3]: See Julie B. Beck, “Fulfilling the Purpose of Relief Society,” *Liahona* and *Ensign,* Nov. 2008, 109–11.
+[^3]: See Julie B. Beck, “Fulfilling the Purpose of Relief Society,” *Liahona* and *Ensign,* Nov. 2008, 109–11.
 
 [^4]: See [[Isaiah 41.10|Isaiah 41:10–14]][[Isaiah 41.11|]][[Isaiah 41.12|]][[Isaiah 41.13|]][[Isaiah 41.14|]].
 
@@ -92,20 +92,18 @@ We must be “fixed in \[our\] purpose”[^13] as we seek to increase in faith a
 
 [^6]: See [[Mosiah 3.17|Mosiah 3:17]].
 
-[^7]: See [[3 Nephi 18.15|3 Nephi 18:15, 18–19]][[3 Nephi 18.18|]][[3 Nephi 18.19|]]; [[D&C 10.5|D&C 10:5]].
+[^7]: See [[3 Nephi 18.15|3 Nephi 18:15, 18–19]][[3 Nephi 18.18|]][[3 Nephi 18.19|]]; [[D&C 10.5|D&C 10:5]].
 
 [^8]: See [[John 14.15|John 14:15]].
 
-[^9]: See [[1 Nephi 8.2|1 Nephi 8:2–37]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]].
+[^9]: See [[1 Nephi 8.2|1 Nephi 8:2–37]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]].
 
-[^10]: See [[Matthew 4.23|Matthew 4:23]]; [[Matthew 9.35|9:35]]; [[Luke 4.40|Luke 4:40]]; [[John 2.23|John 2:23]]; [[Mosiah 3.5|Mosiah 3:5]]; [[3 Nephi 17.7|3 Nephi 17:7–9]][[3 Nephi 17.8|]][[3 Nephi 17.9|]]; [[3 Nephi 26.15|26:15]]; [[D&C 35.9|D&C 35:9]].
+[^10]: See [[Matthew 4.23|Matthew 4:23]]; [[Matthew 9.35|9:35]]; [[Luke 4.40|Luke 4:40]]; [[John 2.23|John 2:23]]; [[Mosiah 3.5|Mosiah 3:5]]; [[3 Nephi 17.7|3 Nephi 17:7–9]][[3 Nephi 17.8|]][[3 Nephi 17.9|]]; [[3 Nephi 26.15|26:15]]; [[D&C 35.9|D&C 35:9]].
 
 [^11]: [[Mosiah 4.19|Mosiah 4:19]].
 
-[^12]: Spencer W. Kimball, “The Abundant Life,” *Tambuli,* June 1979, 4; *Ensign,* July 1978, 4.
+[^12]: Spencer W. Kimball, “The Abundant Life,” *Tambuli,* June 1979, 4; *Ensign,* July 1978, 4.
 
 [^13]: “The Time Is Far Spent,” *Hymns,* no. 266.
-
-
 
 #Faith #Family #Service

@@ -66,19 +66,17 @@ I remember meeting a wonderful couple who were missionaries among the Southeast 
 
 I have rejoiced in the rich experiences of the past fourteen years, but I look forward to the challenges of the golden years ahead. I look forward to new experiences, new adventures, new horizons, new worlds to conquer. I look forward to new opportunities to grow physically, mentally, socially, and spiritually. I pray that my life, from this day forth, will testify that I am a disciple of Jesus Christ, the Son of God!
 
-I pray that you and I might wear ourselves out in the service of the Lord so that at the end of our useful, productive lives we can exult with Paul: “I have fought a good fight, I have finished my course, I have kept the faith: Henceforth there is laid up for me a crown of righteousness” ([[2 Timothy 4.7|2 Tim. 4:7–8]][[2 Timothy 4.8|]]).
+I pray that you and I might wear ourselves out in the service of the Lord so that at the end of our useful, productive lives we can exult with Paul: “I have fought a good fight, I have finished my course, I have kept the faith: Henceforth there is laid up for me a crown of righteousness” ([[2 Timothy 4.7|2 Tim. 4:7–8]][[2 Timothy 4.8|]]).
 
 I conclude my public ministry by paraphrasing the words I spoke in 1978, words that have even deeper meaning for me after that choice experience.
 
-President Benson declared that the highest honor we could have is to be members of God’s Church, which I am; to know that Christ is our Savior, which, I testify to you, I know; to hold his holy priesthood, which I do; and to be part of an eternal family unit, which I am. (See *Ensign,* May 1978, p. 72). I’m honored above all men. I’m blessed above all men. And I am so grateful for the holy calling which I have enjoyed. I rejoice in the opportunity that has been mine of consecrating my entire life to his service.
+President Benson declared that the highest honor we could have is to be members of God’s Church, which I am; to know that Christ is our Savior, which, I testify to you, I know; to hold his holy priesthood, which I do; and to be part of an eternal family unit, which I am. (See *Ensign,* May 1978, p. 72). I’m honored above all men. I’m blessed above all men. And I am so grateful for the holy calling which I have enjoyed. I rejoice in the opportunity that has been mine of consecrating my entire life to his service.
 
 Every blessing I have in my life, everything I hold dear and precious in my heart, I can trace to my membership in The Church of Jesus Christ of Latter-day Saints, to my love of the Lord, to my testimony of his divine gospel, and to the responses I have made to the opportunities for service.
 
-My beloved Brethren, my dear wife and I are still prepared to go wherever you want to send us and to do whatever you ask of us, and pray only that we might be instruments in the hands of the Lord to assist you in your awesome assignment to build the kingdom of God, to sanctify his people, and to prepare the way for Christ to come in his glory, when every knee will bow and every tongue confess that he is the Savior of the world, which I testify in the name of Jesus Christ, amen. (See Conference Report, Apr. 1978, p. 109; or *Ensign,* May 1978, p. 72).
+My beloved Brethren, my dear wife and I are still prepared to go wherever you want to send us and to do whatever you ask of us, and pray only that we might be instruments in the hands of the Lord to assist you in your awesome assignment to build the kingdom of God, to sanctify his people, and to prepare the way for Christ to come in his glory, when every knee will bow and every tongue confess that he is the Savior of the world, which I testify in the name of Jesus Christ, amen. (See Conference Report, Apr. 1978, p. 109; or *Ensign,* May 1978, p. 72).
 
 
 
 
-
-
-#Elderly #Missionary_Work #Service
+#Elderly #MissionaryWork #Service

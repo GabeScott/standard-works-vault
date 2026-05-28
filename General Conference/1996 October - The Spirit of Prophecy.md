@@ -73,22 +73,20 @@ In the name of Jesus Christ, amen.
 
 [^1]: [[Joseph Smith History 1.14|JS—H 1:14–17]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]].
 
-[^2]: In Conference Report, Oct. 1984, 68; or *Ensign,* Nov. 1984, 52.
+[^2]: In Conference Report, Oct. 1984, [[1984 October - The Cornerstones of Our Faith.md|68]]; or *Ensign,* Nov. 1984, 52.
 
-[^3]: [[2 Nephi 33.1|2 Ne. 33:1–2]][[2 Nephi 33.2|]].
+[^3]: [[2 Nephi 33.1|2 Ne. 33:1–2]][[2 Nephi 33.2|]].
 
 [^4]: [[D&C 35.13|D&C 35:13]].
 
-[^5]: In Conference Report, Oct. 1995, 69; or *Ensign,* Nov. 1995, 51.
+[^5]: In Conference Report, Oct. 1995, [[1995 October - Of Missions, Temples, and Stewardship.md|69]]; or *Ensign,* Nov. 1995, 51.
 
-[^6]: In Conference Report, Oct. 1995, 69; or *Ensign,* Nov. 1995, 51.
+[^6]: In Conference Report, Oct. 1995, [[1995 October - Of Missions, Temples, and Stewardship.md|69]]; or *Ensign,* Nov. 1995, 51.
 
 [^7]: [[Helaman 4.12|Hel. 4:12]].
 
 [^8]: [[Helaman 4.23|Hel. 4:23]].
 
-[^9]: In Conference Report, Apr. 1977, 115; or *Ensign,* May 1977, 78.
+[^9]: In Conference Report, Apr. 1977, [[1977 April - Revelation - The Word of the Lord to His Prophets.md|115]]; or *Ensign,* May 1977, 78.
 
-
-
-#Faith #Holy_Ghost #Jesus_Christ #Missionary_Work #Prophecy #Prophets #Restoration #Sacrifice #Testimony #Truth
+#Faith #HolyGhost #JesusChrist #MissionaryWork #Prophecy #Prophets #Restoration #Sacrifice #Testimony #Truth

@@ -8,7 +8,7 @@ By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 We are living in what may be termed one of the most important periods in the history of the world. This is the dispensation of the fulness of times, a time when the keys of all former dispensations have been given to the prophets of the restoration; a time when God has spoken from the heavens, angels have appeared to man; a time when men and women have the Holy Ghost conferred upon them. Moroni has said that by the power of the Holy Ghost we may know the truth of all things. There is need for this great power in the earth today—this steering power. It is our duty and responsibility to live worthy of the blessings that we enjoy. Where much is given, much is required. We are required to live exemplary lives, to keep the commandments of the Lord, and it is also our responsibility to carry the true gospel message to all mankind.
 
-A prophet of the Book of Mormon said: “… men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].) Pleasure is not necessarily joy. Lehi was undoubtedly not speaking of temporary pleasure, but of eternal joy. In referring to man he was not limiting his existence to mortality. He was speaking of eternal man. Man can have joy in accomplishment, particularly eternal accomplishment. If he fails to live in such a way as to receive the blessing of eternal life in the kingdom of his Father, he will reap misery and disappointment.
+A prophet of the Book of Mormon said: “… men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].) Pleasure is not necessarily joy. Lehi was undoubtedly not speaking of temporary pleasure, but of eternal joy. In referring to man he was not limiting his existence to mortality. He was speaking of eternal man. Man can have joy in accomplishment, particularly eternal accomplishment. If he fails to live in such a way as to receive the blessing of eternal life in the kingdom of his Father, he will reap misery and disappointment.
 
 The Lord showed unto Abraham the intelligences that were organized before the world was. And God saw these souls, that they were good, and he stood in the midst of them, and he said unto those who were with him (there were many noble and great ones):
 
@@ -30,7 +30,7 @@ The same is true of spiritual values. One cannot expect to inherit eternal life 
 
 The Savior of the world unselfishly and willingly paid the utmost price, even that of his own blood, in order that mankind might be redeemed from the grave. Death before that time was a matter of serious concern. The grave seemingly had won a victory. There was indeed the sting of death. His offering made it possible for us to come forth from the grave, to break the bondage of the tomb. He bought us with a price, the price being his own blood. He has also set the price which we must pay in order to obtain salvation in his presence and that of our Heavenly Father, and that price is the keeping of his commandments. Those commandments are God’s laws—nature’s laws too—and the breaking of them brings penalties; observance brings the promised blessings.
 
-The Lord has told us, “… my yoke is easy, and my burden is light.” ([[Matthew 11.30|Matt. 11:30]].) This does not mean that one can receive exaltation in the kingdom of our Heavenly Father at bargain prices. There are those who offer such bargains, but one gets merely what he pays for. If we are to attain eternal life in our Father’s kingdom, it is not sufficient that we have mere passive belief in our Lord and Savior and his great redeeming sacrifice. Surely one cannot expect to receive the greatest blessings that the Father has in store for his faithful children by paying bargain prices.
+The Lord has told us, “… my yoke is easy, and my burden is light.” ([[Matthew 11.30|Matt. 11:30]].) This does not mean that one can receive exaltation in the kingdom of our Heavenly Father at bargain prices. There are those who offer such bargains, but one gets merely what he pays for. If we are to attain eternal life in our Father’s kingdom, it is not sufficient that we have mere passive belief in our Lord and Savior and his great redeeming sacrifice. Surely one cannot expect to receive the greatest blessings that the Father has in store for his faithful children by paying bargain prices.
 
 There are those who seem to take the attitude that inasmuch as they have been baptized by immersion and by one having proper authority, and have had hands laid upon their heads for the reception of the Holy Ghost, their salvation is assured. Others seem to think that if they have had the priesthood conferred upon them, there is nothing further required at their hands. Aren’t we as badly mistaken when we fail to live the life of a Latter-day Saint, after we come into the Church, as are those who think that mere belief in the Lord is sufficient? Where much is given, much is required, and if after the light of Christ comes into our souls we allow that light to become dimmed, we are under greater condemnation than those who have not had the light. Of what good is the priesthood to one if he does not honor it and live worthy of that great power?
 
@@ -42,7 +42,7 @@ The injunction to those who accept the gospel is that they “add to \[their\] f
 
 “And to godliness brotherly kindness; and to brotherly kindness charity.
 
-“For if these things be in you, and abound, they make you that ye shall neither be barren nor unfruitful in the knowledge of our Lord Jesus Christ.” ([[2 Peter 1.5|2 Pet. 1:5–8]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]].)
+“For if these things be in you, and abound, they make you that ye shall neither be barren nor unfruitful in the knowledge of our Lord Jesus Christ.” ([[2 Peter 1.5|2 Pet. 1:5–8]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]].)
 
 Just as in this enlightened age the inventive mind and the creative hand have added greatly to man’s obligations, so has the fact that the Spirit of the Lord has borne testimony to our souls of the truth of this work added greatly to our responsibilities.
 
@@ -73,6 +73,4 @@ I testify that Jesus is the Christ and that he is the author of the restored gos
 
 
 
-
-
-#Plan_Of_Salvation
+#PlanOfSalvation

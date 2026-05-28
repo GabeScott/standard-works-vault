@@ -1,6 +1,6 @@
 # After the Fourth Day
 
-By Elder W. Mark Bassett - *Of the Seventy*
+By Elder W. Mark Bassett - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -36,7 +36,7 @@ When the Savior arrived in Bethany, all had lost hope that Lazarus could be save
 
 “I will not leave you comfortless: I will come to you.”[^13]
 
-Sometimes it may seem like He doesn’t come to us until the figurative fourth day, after all hope seems lost. But why so late? President Thomas S. Monson taught, “Our Heavenly Father, who gives us so much to delight in, also knows that we learn and grow and become stronger as we face and survive the trials through which we must pass.”[^14]
+Sometimes it may seem like He doesn’t come to us until the figurative fourth day, after all hope seems lost. But why so late? President Thomas S. Monson taught, “Our Heavenly Father, who gives us so much to delight in, also knows that we learn and grow and become stronger as we face and survive the trials through which we must pass.”[^14]
 
 Even the Prophet Joseph Smith faced an enormous fourth-day experience. Remember his pleading? “O God, where art thou? And where is the pavilion that covereth thy hiding place?”[^15] As we trust in Him, we can expect a like answer: “My son \[or daughter\], peace be unto thy soul; thine adversity and thine afflictions shall be but a small moment.”[^16]
 
@@ -54,19 +54,19 @@ We know that “faith \[in the Lord Jesus Christ\] is a principle of action”[^
 
 How can we move stones and build upon His rock?[^24] We can abide by the **counsel** of prophets.
 
-For example, last October, President Russell M. Nelson pleaded with us to take charge of our own testimonies of the Savior and His gospel, to work for them and nurture them, to feed them truth, and to avoid polluting them with false philosophies of unbelievers. He promised each of us, “As you make the continual strengthening of your testimony of Jesus Christ your highest priority, watch for miracles to happen in your life.”[^25]
+For example, last October, President Russell M. Nelson pleaded with us to take charge of our own testimonies of the Savior and His gospel, to work for them and nurture them, to feed them truth, and to avoid polluting them with false philosophies of unbelievers. He promised each of us, “As you make the continual strengthening of your testimony of Jesus Christ your highest priority, watch for miracles to happen in your life.”[^25]
 
 *We can do this!*
 
 How can we figuratively arise and come forth? We can joyfully repent and choose to obey **commandments**. The Lord said, “He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.”[^26] We can strive to repent daily and joyfully move forward with a willing heart full of love for the Lord.
 
-How can we, with the Lord’s help, loose ourselves of all that binds us? We can intentionally bind ourselves first and foremost to our Heavenly Father and His Son, Jesus Christ, through **covenants**. Elder D. Todd Christofferson taught: “What is the source of \[our\] moral and spiritual power, and how do we obtain it? The source is God. Our access to that power is through our covenants with Him. … In these divine agreements, God binds Himself to sustain, sanctify, and exalt us in return for our commitment to serve Him and keep His commandments.”[^27] We can make and keep sacred covenants.
+How can we, with the Lord’s help, loose ourselves of all that binds us? We can intentionally bind ourselves first and foremost to our Heavenly Father and His Son, Jesus Christ, through **covenants**. Elder D. Todd Christofferson taught: “What is the source of \[our\] moral and spiritual power, and how do we obtain it? The source is God. Our access to that power is through our covenants with Him. … In these divine agreements, God binds Himself to sustain, sanctify, and exalt us in return for our commitment to serve Him and keep His commandments.”[^27] We can make and keep sacred covenants.
 
 “Take ye away the stone.” “Come forth.” “Loose him, and let him go.”
 
 Counsels, commandments, and covenants. *We can do this!*
 
-Elder Jeffrey R. Holland promised, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come*.”[^28]
+Elder Jeffrey R. Holland promised, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come*.”[^28]
 
 And finally, “Wherefore, be of good cheer, and do not fear, for I the Lord am with you, and will stand by you.”[^29]
 
@@ -81,11 +81,11 @@ This is my witness and testimony, in the sacred name of Him who will always come
 
 [^3]: [[John 11.14|John 11:14]].
 
-[^4]: [[John 11.21|John 11:21, 32]][[John 11.32|]].
+[^4]: [[John 11.21|John 11:21, 32]][[John 11.32|]].
 
 [^5]: [[John 11.39|John 11:39]].
 
-[^6]: “The soul, according to Jewish belief, lingered in the vicinity of the body three days after death. According to Jewish conviction, consequently, a resuscitation of one who had died was impossible on the fourth day, since the soul would not enter again into the body that had altered its position. It was all the more impressive for the witnesses of the miracle that Jesus raised Lazarus on the fourth day. The fourth day thus has a special meaning here and is taken over deliberately by the narrator for use in connection with the greatest of all possible resurrection miracles” (Ernst Haenchen, *John 2: A Commentary on the Gospel of John, Chapters 7–21*, ed. Robert W. Funk and Ulrich Busse, trans. Robert W. Funk \[1984\], 60–61).
+[^6]: “The soul, according to Jewish belief, lingered in the vicinity of the body three days after death. According to Jewish conviction, consequently, a resuscitation of one who had died was impossible on the fourth day, since the soul would not enter again into the body that had altered its position. It was all the more impressive for the witnesses of the miracle that Jesus raised Lazarus on the fourth day. The fourth day thus has a special meaning here and is taken over deliberately by the narrator for use in connection with the greatest of all possible resurrection miracles” (Ernst Haenchen, *John 2: A Commentary on the Gospel of John, Chapters 7–21*, ed. Robert W. Funk and Ulrich Busse, trans. Robert W. Funk \[1984\], 60–61).
 
 [^7]: [[John 11.33|John 11:33–34]][[John 11.34|]].
 
@@ -101,7 +101,7 @@ This is my witness and testimony, in the sacred name of Him who will always come
 
 [^13]: [[John 14.18|John 14:18]].
 
-[^14]: Thomas S. Monson, “[[2013 October - “I Will Not Fail Thee, nor Forsake Thee”.md|I Will Not Fail Thee, nor Forsake Thee]],” *Ensign* or *Liahona*, Nov. 2013, 87. President Monson further explained: “We know that there are times when we will experience heartbreaking sorrow, when we will grieve, and when we may be tested to our limits. However, such difficulties allow us to change for the better, to rebuild our lives in the way our Heavenly Father teaches us, and to become something different from what we were—better than we were, more understanding than we were, more empathetic than we were, with stronger testimonies than we had before” (“[[2013 October - “I Will Not Fail Thee, nor Forsake Thee”.md|I Will Not Fail Thee, Nor Forsake Thee]],” 87). See also [[D&C 84.119|Doctrine and Covenants 84:119]]: “For I, the Lord, have put forth my hand to exert the powers of heaven; ye cannot see it now, yet a little while and ye shall see it, and know that I am, and that I will come.”
+[^14]: Thomas S. Monson, “[[2013 October - “I Will Not Fail Thee, nor Forsake Thee”.md|I Will Not Fail Thee, nor Forsake Thee]],” *Ensign* or *Liahona*, Nov. 2013, 87. President Monson further explained: “We know that there are times when we will experience heartbreaking sorrow, when we will grieve, and when we may be tested to our limits. However, such difficulties allow us to change for the better, to rebuild our lives in the way our Heavenly Father teaches us, and to become something different from what we were—better than we were, more understanding than we were, more empathetic than we were, with stronger testimonies than we had before” (“[[2013 October - “I Will Not Fail Thee, nor Forsake Thee”.md|I Will Not Fail Thee, Nor Forsake Thee]],” 87). See also [[D&C 84.119|Doctrine and Covenants 84:119]]: “For I, the Lord, have put forth my hand to exert the powers of heaven; ye cannot see it now, yet a little while and ye shall see it, and know that I am, and that I will come.”
 
 [^15]: [[D&C 121.1|Doctrine and Covenants 121:1]].
 
@@ -113,23 +113,24 @@ This is my witness and testimony, in the sacred name of Him who will always come
 
 [^19]: [[John 11.44|John 11:44]].
 
-[^20]: President Russell M. Nelson remarked: “Often, my counselors and I have watched through tear-brimmed eyes as He has interceded in extremely challenging circumstances after we had done our best and could do no more. We do indeed stand all amazed” (“[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 6).
+[^20]: President Russell M. Nelson remarked: “Often, my counselors and I have watched through tear-brimmed eyes as He has interceded in extremely challenging circumstances after we had done our best and could do no more. We do indeed stand all amazed” (“[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 6).
 
-[^21]: Bible Dictionary, “[Faith](https://churchofjesuschrist.org/study/scriptures/bd/faith?lang=eng).”
+[^21]: Bible Dictionary, “[[BD Faith|Faith]].”
 
-[^22]: Guide to the Scriptures, “[Faith](https://churchofjesuschrist.org/study/scriptures/gs/faith?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^22]: Guide to the Scriptures, “[Faith](https://www.churchofjesuschrist.org/study/scriptures/gs/faith?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^23]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-[^24]: See [[3 Nephi 11.32|3 Nephi 11:32–39]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
+[^24]: See [[3 Nephi 11.32|3 Nephi 11:32–39]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
 
-[^25]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
+[^25]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
 
 [^26]: [[John 14.21|John 14:21]].
 
-[^27]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona*, May 2009, 20.
+[^27]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona*, May 2009, 20.
 
-[^28]: Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign*, Nov. 1999, 38; *Liahona*, Jan. 2000, 45.
+[^28]: Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign*, Nov. 1999, 38; *Liahona*, Jan. 2000, 45.
 
+[^29]: [[D&C 68.6|Doctrine and Covenants 68:6]].
 
-#Adversity #Covenants #Death #Faith #Hope #Jesus_Christ #Miracles #Obedience
+#Adversity #Covenants #Death #Faith #Hope #JesusChrist #Miracles #Obedience

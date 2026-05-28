@@ -1,25 +1,24 @@
 # Comfort
 
-
 *See also* [[Holy Ghost, Comforter.md|Holy Ghost, Comforter]]
 
-Isaac was *comforted* after his mother's death, [[Genesis 24.67|Genesis 24:67]].
+Isaac was *comforted* after his mother’s death, [[Genesis 24.67|Genesis 24:67]].
 
 rose up to *comfort* him; but he refused to be *comforted*, [[Genesis 37.35|Genesis 37:35]].
 
 rod and thy staff they *comfort* me, [[Psalms 23.4|Psalms 23:4]].
 
-thou hast been a ... *refuge* from the storm, [[Isaiah 25.4|Isaiah 25:4]].
+thou hast been a … *refuge* from the storm, [[Isaiah 25.4|Isaiah 25:4]].
 
 Lord hath *comforted* his people, [[Isaiah 49.13|Isaiah 49:13]].
 
 Lord shall *comfort* Zion: he will *comfort* all, [[Isaiah 51.3|Isaiah 51:3]] ([[2 Nephi 8.3|2 Nephi 8:3]]).
 
-to *comfort* all that mourn, [[Isaiah 61.2|Isaiah 61:2]] ([[Luke 4.17|Luke 4:17-18]][[Luke 4.18|]]).
+to *comfort* all that mourn, [[Isaiah 61.2|Isaiah 61:2]].
 
 As one whom his mother *comforteth*, so will I *comfort* you, [[Isaiah 66.13|Isaiah 66:13]].
 
-Rahel weeping ... refused to be *comforted*, [[Jeremiah 31.15|Jeremiah 31:15]] ([[Matthew 2.18|Matthew 2:18]]).
+Rahel weeping … refused to be *comforted*, [[Jeremiah 31.15|Jeremiah 31:15]] ([[Matthew 2.18|Matthew 2:18]]).
 
 Lord shall yet *comfort* Zion, [[Zechariah 1.17|Zechariah 1:17]].
 
@@ -35,7 +34,7 @@ in the *comfort* of the Holy Ghost, [[Acts 9.31|Acts 9:31]].
 
 through patience and *comfort* of the scriptures, [[Romans 15.4|Romans 15:4]].
 
-the God of all *comfort*, [[2 Corinthians 1.3|2 Corinthians 1:3]] ([[2 Corinthians 1.3|1:3-6]][[2 Corinthians 1.4|]][[2 Corinthians 1.5|]][[2 Corinthians 1.6|]]).
+the God of all *comfort*, [[2 Corinthians 1.3|2 Corinthians 1:3]].
 
 I am filled with *comfort*, [[2 Corinthians 7.4|2 Corinthians 7:4]].
 
@@ -54,5 +53,3 @@ calling shall be for a *comfort* unto my servant, [[D&C 25.5|D&C 25:5]].
 My son, *peace* be unto thy soul, [[D&C 121.7|D&C 121:7]].
 
 I will refuse to be *comforted*, [[Moses 7.44|Moses 7:44]].
-
-*See also* [[Psalms 18.2|Psalms 18:2]]; [[D&C 138.42|D&C 138:42]].

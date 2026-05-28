@@ -52,7 +52,7 @@ The Lord has said, “Whom I love I also chasten that their sins may be forgiven
 
 Sometimes we might think that the Lord does not hear or answer our prayers. At such times we need to stop and ponder what we have done throughout our lives. If necessary we must put our lives in harmony with the gospel of Jesus Christ. Through the Prophet Joseph Smith, the Lord revealed:
 
-“I, the Lord, have suffered the affliction to come upon them, wherewith they have been afflicted, in consequence of their transgressions. …
+“I, the Lord, have suffered the affliction to come upon them, wherewith they have been afflicted, in consequence of their transgressions. …
 
 “They were slow to hearken unto the voice of the Lord their God; therefore, the Lord their God is slow to hearken unto their prayers, to answer them in the day of their trouble.
 
@@ -70,9 +70,9 @@ The Lord’s invitation to each of us is “come unto me, all ye that labour and
 
 The prophet Mormon taught:
 
-“Wherefore, if a man have faith he must needs have hope; for without faith there cannot be any hope. …
+“Wherefore, if a man have faith he must needs have hope; for without faith there cannot be any hope. …
 
-“… And if a man be meek and lowly in heart, and confesses by the power of the Holy Ghost that Jesus is the Christ, he must needs have charity.”[^16]
+“… And if a man be meek and lowly in heart, and confesses by the power of the Holy Ghost that Jesus is the Christ, he must needs have charity.”[^16]
 
 If we daily exercise faith, meekness, charity, and lowliness in heart, confessing that Jesus is the Christ, and accepting His Atonement, we will be blessed with the strength and hope to face and overcome the trials and pains of this life.
 
@@ -91,7 +91,7 @@ God is our Father. We are His children. He loves us. He desires our happiness he
 
 [^1]: [[John 16.33|John 16:33]].
 
-[^2]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^2]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^3]: [[Moroni 10.22|Moroni 10:22]].
 
@@ -125,5 +125,6 @@ God is our Father. We are His children. He loves us. He desires our happiness he
 
 [^18]: [[D&C 78.18|D&C 78:18]].
 
+[^19]: [[Ether 12.4|Ether 12:4]].
 
 #Adversity #Attitude #Faith #Hope #Love #Peace #Repentance

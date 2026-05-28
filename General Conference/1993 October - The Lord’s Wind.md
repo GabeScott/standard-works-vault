@@ -73,6 +73,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Faith #Missionary_Work #Prayer
+#Faith #MissionaryWork #Prayer

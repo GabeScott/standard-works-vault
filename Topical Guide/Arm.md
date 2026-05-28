@@ -1,7 +1,6 @@
 # Arm
 
-
-*See also* [[Might.md|Might]]; [[Power, Powerful.md|Power]]; [[Strength.md|Strength]]; [[Trust Not in the Arm of Flesh.md|Trust Not in the Arm of Flesh]]
+*See also* [[Might.md|Might]]; [[Power.md|Power]]; [[Strength.md|Strength]]; [[Trust Not in the Arm of Flesh.md|Trust Not in the Arm of Flesh]]
 
 by the greatness of thine *arm*, [[Exodus 15.16|Exodus 15:16]].
 
@@ -29,13 +28,13 @@ to whom is the *arm* of the Lord revealed, [[Isaiah 53.1|Isaiah 53:1]] ([[John 1
 
 mine own *arm* brought salvation unto me, [[Isaiah 63.5|Isaiah 63:5]].
 
-took them up in his *arms* ... and blessed them, [[Mark 10.16|Mark 10:16]].
+took them up in his *arms* … and blessed them, [[Mark 10.16|Mark 10:16]].
 
 they were *armed* with righteousness, [[1 Nephi 14.14|1 Nephi 14:14]].
 
-encircled ... in the *arms* of his love, [[2 Nephi 1.15|2 Nephi 1:15]].
+encircled … in the *arms* of his love, [[2 Nephi 1.15|2 Nephi 1:15]].
 
-trust in thee ... not ... in the *arm* of flesh, [[2 Nephi 4.34|2 Nephi 4:34]].
+trust in thee … not … in the *arm* of flesh, [[2 Nephi 4.34|2 Nephi 4:34]].
 
 his *arm* of mercy is extended, [[Jacob 6.5|Jacob 6:5]].
 

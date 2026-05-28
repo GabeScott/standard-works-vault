@@ -10,7 +10,7 @@ By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 I speak to the fathers of the families and to families everywhere in the Church.
 
-Years ago we began correlation under the direction of President Harold B. Lee. At that time President Thomas S. Monson said: “Today, we are encamped against the greatest array of sin, vice, and evil ever assembled before our eyes. … The battle plan whereby we fight to save the souls of men is not our own. It \[came through\] the inspiration and revelation of the Lord.”[^1]
+Years ago we began correlation under the direction of President Harold B. Lee. At that time President Thomas S. Monson said: “Today, we are encamped against the greatest array of sin, vice, and evil ever assembled before our eyes. … The battle plan whereby we fight to save the souls of men is not our own. It \[came through\] the inspiration and revelation of the Lord.”[^1]
 
 During those years of correlation, the whole operating face of the Church was changed. The entire curriculum was restructured. The objectives and relationships of the organizations one to another were redefined. The key word during those years of correlation and restructuring was *priesthood.*
 
@@ -36,7 +36,7 @@ It has been over 180 years since the priesthood was restored. We now number near
 
 The Book of Mormon makes it clear that we never will dominate by numbers. But we have the power of the priesthood.[^19]
 
-The prophet Nephi wrote, “It came to pass that I beheld the church of the Lamb of God, and its numbers were few … ; nevertheless, I beheld that the church of the Lamb, who were the saints of God, were also upon all the face of the earth; and their dominions upon the face of the earth were small.”[^20]
+The prophet Nephi wrote, “It came to pass that I beheld the church of the Lamb of God, and its numbers were few … ; nevertheless, I beheld that the church of the Lamb, who were the saints of God, were also upon all the face of the earth; and their dominions upon the face of the earth were small.”[^20]
 
 President Joseph Fielding Smith said, “While it may be said … that we are but a handful in comparison with … the world, yet we may be compared with the leaven of which the Savior spoke, which will eventually leaven \[or lift\] the whole world.”[^21]
 
@@ -50,11 +50,11 @@ Priesthood is the authority and the power which God has granted to men on earth 
 
 We have done very well at distributing the *authority* of the priesthood. We have priesthood authority planted nearly everywhere. We have quorums of elders and high priests worldwide. But distributing the *authority* of the priesthood has raced, I think, ahead of distributing the *power* of the priesthood. The priesthood does not have the strength that it should have and will not have until the *power* of the priesthood is firmly fixed in the families as it should be.
 
-President Harold B. Lee stated: “It seems clear to me that the Church has *no choice*—and never has had—but to do more to assist the *family* in carrying out *its* divine mission, not only because that is the order of heaven, but also because that is the most *practical* contribution we can make to our youth—to help improve the quality of life in the Latter-day Saint homes. As important as our many programs and organizational efforts are, these *should not* supplant the home; they should *support* the home.”[^24]
+President Harold B. Lee stated: “It seems clear to me that the Church has *no choice*—and never has had—but to do more to assist the *family* in carrying out *its* divine mission, not only because that is the order of heaven, but also because that is the most *practical* contribution we can make to our youth—to help improve the quality of life in the Latter-day Saint homes. As important as our many programs and organizational efforts are, these *should not* supplant the home; they should *support* the home.”[^24]
 
-President Joseph F. Smith made this statement about the priesthood in the home: “In the home the presiding authority is always vested in the father, and in all home affairs and family matters there is no other authority paramount. To illustrate this principle, a single incident will perhaps suffice. It sometimes happens that the elders are called in to administer to the members of a family. Among these elders there may be presidents of stakes, apostles, or even members of the first presidency of the Church. It is not proper under these circumstances for the father to stand back and expect the elders to direct the administration of this important ordinance. The father is there. It is his right and it is his duty to preside. He should select the one who is to administer the oil, and the one who is to be mouth in prayer, and he should not feel that because there are present presiding authorities in the Church that he is therefore divested of his rights to direct the administration of that blessing of the gospel in his home. (If the father be absent, the mother should request the presiding authority present to take charge.) The father presides at the table, at prayer, and gives general directions relating to his family life whoever may be present.”[^25]
+President Joseph F. Smith made this statement about the priesthood in the home: “In the home the presiding authority is always vested in the father, and in all home affairs and family matters there is no other authority paramount. To illustrate this principle, a single incident will perhaps suffice. It sometimes happens that the elders are called in to administer to the members of a family. Among these elders there may be presidents of stakes, apostles, or even members of the first presidency of the Church. It is not proper under these circumstances for the father to stand back and expect the elders to direct the administration of this important ordinance. The father is there. It is his right and it is his duty to preside. He should select the one who is to administer the oil, and the one who is to be mouth in prayer, and he should not feel that because there are present presiding authorities in the Church that he is therefore divested of his rights to direct the administration of that blessing of the gospel in his home. (If the father be absent, the mother should request the presiding authority present to take charge.) The father presides at the table, at prayer, and gives general directions relating to his family life whoever may be present.”[^25]
 
-During the Vietnam War, we held a series of special meetings for members of the Church called into military service. After such a meeting in Chicago, I was standing next to President Harold B. Lee when a fine young Latter-day Saint told President Lee that he was on leave to visit his home and then had orders to Vietnam. He asked President Lee to give him a blessing.
+During the Vietnam War, we held a series of special meetings for members of the Church called into military service. After such a meeting in Chicago, I was standing next to President Harold B. Lee when a fine young Latter-day Saint told President Lee that he was on leave to visit his home and then had orders to Vietnam. He asked President Lee to give him a blessing.
 
 Much to my surprise, President Lee said, “Your father should give you the blessing.”
 
@@ -135,7 +135,7 @@ I bear witness of the power of the priesthood given to the Church to protect us 
 
 
 
-[^1]: Thomas S. Monson, “Correlation Brings Blessings,” *Relief Society Magazine,* Apr. 1967, 247.
+[^1]: Thomas S. Monson, “Correlation Brings Blessings,” *Relief Society Magazine,* Apr. 1967, 247.
 
 [^2]: See [[Judges 7.4|Judges 7:4–8]][[Judges 7.5|]][[Judges 7.6|]][[Judges 7.7|]][[Judges 7.8|]].
 
@@ -157,7 +157,7 @@ I bear witness of the power of the priesthood given to the Church to protect us 
 
 [^11]: See [[Joseph Smith History 1.33|Joseph Smith—History 1:33–34, 59]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.59|]].
 
-[^12]: See [Book of Mormon introduction](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng); [[D&C 135.3|Doctrine and Covenants 135:3]].
+[^12]: See [Book of Mormon introduction](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng); [[D&C 135.3|Doctrine and Covenants 135:3]].
 
 [^13]: See [[Joseph Smith History 1.68|Joseph Smith—History 1:68–69]][[Joseph Smith History 1.69|]].
 
@@ -171,30 +171,28 @@ I bear witness of the power of the priesthood given to the Church to protect us 
 
 [^18]: See [[D&C 42.58|Doctrine and Covenants 42:58]].
 
-[^19]: See [[1 Nephi 14.14|1 Nephi 14:14]].
+[^19]: See [[1 Nephi 14.14|1 Nephi 14:14]].
 
-[^20]: [[1 Nephi 14.12|1 Nephi 14:12]].
+[^20]: [[1 Nephi 14.12|1 Nephi 14:12]].
 
 [^21]: Joseph Fielding Smith, in Conference Report, Oct. 1968, 123.
 
-[^22]: See Boyd K. Packer, “What Every Elder Should Know—and Every Sister as Well: A Primer on Principles of Priesthood Government,” *Tambuli,* Nov. 1994, 15–24; *Ensign,* Feb. 1993, 7–13.
+[^22]: See Boyd K. Packer, “What Every Elder Should Know—and Every Sister as Well: A Primer on Principles of Priesthood Government,” *Tambuli,* Nov. 1994, 15–24; *Ensign,* Feb. 1993, 7–13.
 
-[^23]: See *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 141; [[JST Genesis 14.28|Joseph Smith Translation, Genesis 14:28–31]][[JST Genesis 14.29|]][[JST Genesis 14.30|]][[JST Genesis 14.31|]], in Bible appendix.
+[^23]: See *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 141; [[JST Genesis 14.28|Joseph Smith Translation, Genesis 14:28–31]][[JST Genesis 14.29|]][[JST Genesis 14.30|]][[JST Genesis 14.31|]], in Bible appendix.
 
-[^24]: Harold B. Lee, “Preparing Our Youth,” *Ensign,* Mar. 1971, 3; emphasis added.
+[^24]: Harold B. Lee, “Preparing Our Youth,” *Ensign,* Mar. 1971, 3; emphasis added.
 
-[^25]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 287.
+[^25]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 287.
 
 [^26]: [[D&C 1.19|Doctrine and Covenants 1:19]].
 
-[^27]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^27]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
 [^28]: [[D&C 82.10|Doctrine and Covenants 82:10]].
 
 [^29]: [[Ephesians 2.20|Ephesians 2:20–22]][[Ephesians 2.21|]][[Ephesians 2.22|]].
 
 [^30]: [[Moses 1.39|Moses 1:39]].
-
-
 
 #Family #Fatherhood #Priesthood

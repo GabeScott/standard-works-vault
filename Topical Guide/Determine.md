@@ -1,6 +1,5 @@
 # Determine
 
-
 *See also* [[Purpose.md|Purpose]]
 
 Son of man goeth, as it was *determined*, [[Luke 22.22|Luke 22:22]].

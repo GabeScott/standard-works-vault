@@ -30,15 +30,13 @@ As we conclude, may I leave with you, in the form of a word of benediction, some
 
 “See that ye love one another; cease to be covetous; learn to impart one to another as the gospel requires.
 
-“Cease to be idle; cease to be unclean; cease to find fault one with another. …
+“Cease to be idle; cease to be unclean; cease to find fault one with another. …
 
 “And above all things, clothe yourselves with the bond of charity, as with a mantle, which is the bond of perfectness and peace.
 
 “Pray always, that ye may not faint, until I come. Behold, and lo, I will come quickly, and receive you unto myself \[saith the Lord\]. Amen.” ([[D&C 88.121|D&C 88:121, 123–26]][[D&C 88.123|]][[D&C 88.124|]][[D&C 88.125|]][[D&C 88.126|]].)
 
 Our prayers go with you. May there come into your minds remembrances of the wonderful things we have heard as we have sat together as the Saints of God and partaken of his everlasting truths, I humbly pray in the name of Jesus Christ, amen.
-
-
 
 
 

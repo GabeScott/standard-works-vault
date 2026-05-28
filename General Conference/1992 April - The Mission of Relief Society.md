@@ -23,6 +23,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Charity #Relief_Society #Women
+#Charity #ReliefSociety #Women

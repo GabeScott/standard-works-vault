@@ -1,6 +1,5 @@
 # Brethren
 
-
 *See also* [[Brother.md|Brother]]
 
 for we be *brethren*, [[Genesis 13.8|Genesis 13:8]].
@@ -11,15 +10,15 @@ his *brethren* envied him, [[Genesis 37.11|Genesis 37:11]].
 
 Joseph knew his *brethren*, but they knew not him, [[Genesis 42.8|Genesis 42:8]].
 
-Moses ... went out unto his *brethren*, [[Exodus 2.11|Exodus 2:11]] ([[Acts 7.23|Acts 7:23]]).
+Moses … went out unto his *brethren*, [[Exodus 2.11|Exodus 2:11]] ([[Acts 7.23|Acts 7:23]]).
 
-but over your *brethren* ... ye shall not rule, [[Leviticus 25.46|Leviticus 25:46]].
+but over your *brethren* … ye shall not rule, [[Leviticus 25.46|Leviticus 25:46]].
 
 heart be not lifted up above his *brethren*, [[Deuteronomy 17.20|Deuteronomy 17:20]].
 
-Prophet ... of thy *brethren*, [[Deuteronomy 18.15|Deuteronomy 18:15]] ([[Acts 3.22|Acts 3:22]]).
+Prophet … of thy *brethren*, [[Deuteronomy 18.15|Deuteronomy 18:15]] ([[Acts 3.22|Acts 3:22]]).
 
-Ye are my *brethren* ... my bones and my flesh, [[2 Samuel 19.12|2 Samuel 19:12]].
+Ye are my *brethren* … my bones and my flesh, [[2 Samuel 19.12|2 Samuel 19:12]].
 
 nor fight against your *brethren*, [[1 Kings 12.24|1 Kings 12:24]] ([[2 Chronicles 11.4|2 Chronicles 11:4]]).
 
@@ -27,9 +26,9 @@ will ye even sell your *brethren*, [[Nehemiah 5.8|Nehemiah 5:8]].
 
 declare thy name unto my *brethren*, [[Psalms 22.22|Psalms 22:22]] ([[Hebrews 2.12|Hebrews 2:12]]).
 
-good ... for *brethren* to dwell together in unity, [[Psalms 133.1|Psalms 133:1]].
+good … for *brethren* to dwell together in unity, [[Psalms 133.1|Psalms 133:1]].
 
-even thy *brethren* ... have dealt treacherously, [[Jeremiah 12.6|Jeremiah 12:6]].
+even thy *brethren* … have dealt treacherously, [[Jeremiah 12.6|Jeremiah 12:6]].
 
 if ye salute your *brethren* only, what do ye more, [[Matthew 5.47|Matthew 5:47]].
 
@@ -47,7 +46,7 @@ when thou art converted, strengthen thy *brethren*, [[Luke 22.32|Luke 22:32]].
 
 neither did his *brethren* believe in him, [[John 7.5|John 7:5]].
 
-continued with one accord in prayer ... with his *brethren*, [[Acts 1.14|Acts 1:14]].
+continued with one accord in prayer … with his *brethren*, [[Acts 1.14|Acts 1:14]].
 
 to visit his *brethren* the children of Israel, [[Acts 7.23|Acts 7:23]] ([[Acts 15.36|Acts 15:36]]).
 
@@ -57,7 +56,7 @@ he might be the firstborn among many *brethren*, [[Romans 8.29|Romans 8:29]].
 
 when ye sin so against the *brethren*, [[1 Corinthians 8.12|1 Corinthians 8:12]].
 
-Have we not power to lead about ... the *brethren* of the Lord, [[1 Corinthians 9.5|1 Corinthians 9:5]].
+Have we not power to lead about … the *brethren* of the Lord, [[1 Corinthians 9.5|1 Corinthians 9:5]].
 
 he was seen of above five hundred *brethren*, [[1 Corinthians 15.6|1 Corinthians 15:6]].
 
@@ -71,7 +70,7 @@ he is not ashamed to call them *brethren*, [[Hebrews 2.11|Hebrews 2:11]].
 
 to be made like unto his *brethren*, [[Hebrews 2.17|Hebrews 2:17]].
 
-be ye all of one mind, having ... love as *brethren*, [[1 Peter 3.8|1 Peter 3:8]].
+be ye all of one mind, having … love as *brethren*, [[1 Peter 3.8|1 Peter 3:8]].
 
 death unto life, because we love the *brethren*, [[1 John 3.14|1 John 3:14]].
 

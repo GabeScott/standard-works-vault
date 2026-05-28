@@ -1,6 +1,5 @@
 # Commend
 
-
 *See also* [[Commit.md|Commit]]
 
 the lord *commended* the unjust steward, [[Luke 16.8|Luke 16:8]].

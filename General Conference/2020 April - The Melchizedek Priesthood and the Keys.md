@@ -1,6 +1,6 @@
 # The Melchizedek Priesthood and the Keys
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -34,33 +34,31 @@ The same principle applies when a father is absent and a mother is the family le
 
 If fathers would magnify their priesthood in their own family, it would further the mission of the Church as much as anything else they might do. Fathers who hold the Melchizedek Priesthood should exercise their authority “by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned” ([[D&C 121.41|Doctrine and Covenants 121:41]]). That high standard for the exercise of all priesthood authority is most important in the family. Holders of the priesthood should also keep the commandments so they will have the power of the priesthood to give blessings to their family members. They should cultivate loving family relationships so that family members will want to ask them for blessings. And parents should encourage more priesthood blessings in the family.[^5]
 
-In these conference meetings, as we seek brief shelter from our mortal concerns with a devastating pandemic, we have been taught great principles of eternity. I encourage each of us to have our eye “single” to receive these truths of eternity so that our bodies “shall be full of light” ([[3 Nephi 13.22|3 Nephi 13:22]]).
+In these conference meetings, as we seek brief shelter from our mortal concerns with a devastating pandemic, we have been taught great principles of eternity. I encourage each of us to have our eye “single” to receive these truths of eternity so that our bodies “shall be full of light” ([[3 Nephi 13.22|3 Nephi 13:22]]).
 
-In His sermon to multitudes recorded in the Bible and in the Book of Mormon, the Savior taught that mortal bodies can be full of light or full of darkness. We, of course, want to be filled with light, and our Savior taught us how we can make this happen. We should listen to messages about the truths of eternity. He used the example of our eye, through which we take light into our bodies. If our “eye be single”—in other words, if we are concentrating on receiving eternal light and understanding—He explained, “thy whole body shall be full of light” ([[Matthew 6.22|Matthew 6:22]]; [[3 Nephi 13.22|3 Nephi 13:22]]). But if our “eye be evil”—that is, if we look for evil and take that into our bodies—He warned, “thy whole body shall be full of darkness” ([[3 Nephi 13.23|verse 23]]). In other words, the light or darkness in our bodies depends on how we see—or receive—the eternal truths we are taught.
+In His sermon to multitudes recorded in the Bible and in the Book of Mormon, the Savior taught that mortal bodies can be full of light or full of darkness. We, of course, want to be filled with light, and our Savior taught us how we can make this happen. We should listen to messages about the truths of eternity. He used the example of our eye, through which we take light into our bodies. If our “eye be single”—in other words, if we are concentrating on receiving eternal light and understanding—He explained, “thy whole body shall be full of light” ([[Matthew 6.22|Matthew 6:22]]; [[3 Nephi 13.22|3 Nephi 13:22]]). But if our “eye be evil”—that is, if we look for evil and take that into our bodies—He warned, “thy whole body shall be full of darkness” ([[3 Nephi 13.23|verse 23]]). In other words, the light or darkness in our bodies depends on how we see—or receive—the eternal truths we are taught.
 
-We should follow the Savior’s invitation to seek and ask to understand the truths of eternity. He promises that our Father in Heaven is willing to teach everyone the truths they seek (see [[3 Nephi 14.8|3 Nephi 14:8]]). If we desire this and have our eye single to receive them, the Savior promises that the truths of eternity “shall be opened” unto us (see [[3 Nephi 14.7|3 Nephi 14:7–8]][[3 Nephi 14.8|]]).
+We should follow the Savior’s invitation to seek and ask to understand the truths of eternity. He promises that our Father in Heaven is willing to teach everyone the truths they seek (see [[3 Nephi 14.8|3 Nephi 14:8]]). If we desire this and have our eye single to receive them, the Savior promises that the truths of eternity “shall be opened” unto us (see [[3 Nephi 14.7|3 Nephi 14:7–8]][[3 Nephi 14.8|]]).
 
-In contrast, Satan is anxious to confuse our thinking or to lead us astray on important matters like the operations of the priesthood of God. The Savior warned of such “false prophets, who come to you in sheep’s clothing, but inwardly they are ravening wolves” ([[3 Nephi 14.15|3 Nephi 14:15]]). He gave us this test to help us choose the truth from among different teachings that might confuse us: “Ye shall know them by their fruits,” He taught ([[3 Nephi 14.16|3 Nephi 14:16]]). “A good tree cannot bring forth evil fruit, neither \[can\] a corrupt tree bring forth good fruit” ([[3 Nephi 14.18|verse 18]]). Therefore, we should look to the results—“the fruits”—of principles that are taught and the persons who teach them. That is the best answer to many of the objections we hear against the Church and its doctrines and policies and leadership. Follow the test the Savior taught. Look to the fruits—the results.
+In contrast, Satan is anxious to confuse our thinking or to lead us astray on important matters like the operations of the priesthood of God. The Savior warned of such “false prophets, who come to you in sheep’s clothing, but inwardly they are ravening wolves” ([[3 Nephi 14.15|3 Nephi 14:15]]). He gave us this test to help us choose the truth from among different teachings that might confuse us: “Ye shall know them by their fruits,” He taught ([[3 Nephi 14.16|3 Nephi 14:16]]). “A good tree cannot bring forth evil fruit, neither \[can\] a corrupt tree bring forth good fruit” ([[3 Nephi 14.18|verse 18]]). Therefore, we should look to the results—“the fruits”—of principles that are taught and the persons who teach them. That is the best answer to many of the objections we hear against the Church and its doctrines and policies and leadership. Follow the test the Savior taught. Look to the fruits—the results.
 
 When we think of the fruits of the gospel and the restored Church of Jesus Christ, we rejoice in how the Church, in the lifetimes of its living members, has expanded from local congregations in the Intermountain West to where a majority of its more than 16 million members reside in nations other than the United States. With that growth, we have felt increases in the Church’s capacity to assist its members. We assist in keeping the commandments, in fulfilling responsibilities to preach the restored gospel, in gathering Israel, and in building temples throughout the world.
 
-We are led by a prophet, President Russell M. Nelson, whose leadership the Lord has used to achieve the progress we have felt during all of the more than two years of his leadership. Now we will be blessed to hear from President Nelson, who will teach us how to further our progress in this restored Church of Jesus Christ in these challenging times.
+We are led by a prophet, President Russell M. Nelson, whose leadership the Lord has used to achieve the progress we have felt during all of the more than two years of his leadership. Now we will be blessed to hear from President Nelson, who will teach us how to further our progress in this restored Church of Jesus Christ in these challenging times.
 
 I testify of the truth of these things and join you in praying for our prophet, from whom we will next hear, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See Dallin H. Oaks, “[[2005 October - Priesthood Authority in the Family and the Church.md|Priesthood Authority in the Family and the Church]],” *Ensign* or *Liahona,* Nov. 2005, 24–27.
+[^1]: See Dallin H. Oaks, “[[2005 October - Priesthood Authority in the Family and the Church.md|Priesthood Authority in the Family and the Church]],” *Ensign* or *Liahona,* Nov. 2005, 24–27.
 
-[^2]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona,* Nov. 2019, 76–79; Dallin H. Oaks, “[[2005 October - Priesthood Authority in the Family and the Church.md|Priesthood Authority in the Family and the Church]],” 24–27; Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52.
+[^2]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona,* Nov. 2019, 76–79; Dallin H. Oaks, “[[2005 October - Priesthood Authority in the Family and the Church.md|Priesthood Authority in the Family and the Church]],” 24–27; Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52.
 
-[^3]: See Dallin H. Oaks, “[[2018 April - The Powers of the Priesthood.md|The Powers of the Priesthood]],” *Ensign* or *Liahona,* May 2018, 65–68.
+[^3]: See Dallin H. Oaks, “[[2018 April - The Powers of the Priesthood.md|The Powers of the Priesthood]],” *Ensign* or *Liahona,* May 2018, 65–68.
 
-[^4]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” 76–79.
+[^4]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” 76–79.
 
-[^5]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 68–75; Dallin H. Oaks, “[[2018 April - The Powers of the Priesthood.md|The Powers of the Priesthood]],” 65–68.
-
-
+[^5]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 68–75; Dallin H. Oaks, “[[2018 April - The Powers of the Priesthood.md|The Powers of the Priesthood]],” 65–68.
 
 #Family #Priesthood

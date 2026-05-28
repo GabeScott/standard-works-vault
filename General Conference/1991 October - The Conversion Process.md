@@ -26,9 +26,9 @@ After our baptism, many relatives, including our parents, several brothers and s
 
 Eighteen years ago my wife and I were sealed in eternal marriage in the Salt Lake Temple, and the following year we were sealed as a family with our daughters, Liana and Maritza, in the Los Angeles Temple. For all these things, I express my gratitude to my Heavenly Father and his Son, Jesus Christ.
 
-I can say with President Harold B. Lee: “As you can see, one is converted when he sees with his eyes what he ought to see; when he hears with his ears what he ought to hear; and when he understands with his heart what he ought to understand. And what he ought to see, hear, and understand is truth—eternal truth—and then practice it. That is conversion” (*Stand Ye in Holy Places* \[Salt Lake City: Deseret Book Co., 1974\], p. 92).
+I can say with President Harold B. Lee: “As you can see, one is converted when he sees with his eyes what he ought to see; when he hears with his ears what he ought to hear; and when he understands with his heart what he ought to understand. And what he ought to see, hear, and understand is truth—eternal truth—and then practice it. That is conversion” (*Stand Ye in Holy Places* \[Salt Lake City: Deseret Book Co., 1974\], p. 92).
 
-President Ezra Taft Benson, at an area conference in Sweden in 1974, said: “It is not on the pinnacle of success and ease where men and women grow most. It is often down in the valley of heartache and disappointment and reverses where men and women grow into strong characters” (in Conference Report, Denmark, Finland, Norway, and Sweden Area Conference 1974, p. 70).
+President Ezra Taft Benson, at an area conference in Sweden in 1974, said: “It is not on the pinnacle of success and ease where men and women grow most. It is often down in the valley of heartache and disappointment and reverses where men and women grow into strong characters” (in Conference Report, Denmark, Finland, Norway, and Sweden Area Conference 1974, p. 70).
 
 I know the meaning of repentance and forgiveness as part of the process of conversion through faith in our Lord Jesus Christ. I have partaken of the blessings stated in [[Moroni 6.1|Moroni, chapter 6, verses 1 to 4]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]]:
 
@@ -45,6 +45,4 @@ Brothers and sisters, I testify to you that God lives and loves us; that he sent
 
 
 
-
-
-#Holy_Ghost #Missionary_Work #Repentance #Testimony
+#HolyGhost #MissionaryWork #Repentance #Testimony

@@ -1,7 +1,6 @@
 # Wisdom
 
-
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Education.md|Education]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Intelligence.md|Intelligence]]; [[Knowledge.md|Knowledge]]; [[Learn, Learning.md|Learn]]; [[Prudence, Prudent.md|Prudence]]; [[Understanding.md|Understanding]]; [[Wise, Wiser.md|Wise]]
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Education.md|Education]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Intelligence.md|Intelligence]]; [[Knowledge.md|Knowledge]]; [[Learn.md|Learn]]; [[Prudence.md|Prudence]]; [[Understanding.md|Understanding]]; [[Wise.md|Wise]]
 
 filled with the spirit of *wisdom*, [[Exodus 28.3|Exodus 28:3]].
 
@@ -9,13 +8,13 @@ filled him with the spirit of God, in *wisdom*, [[Exodus 31.3|Exodus 31:3]] ([[E
 
 do them; for this is your *wisdom*, [[Deuteronomy 4.6|Deuteronomy 4:6]].
 
-Joshua ... was full of the spirit of *wisdom*, [[Deuteronomy 34.9|Deuteronomy 34:9]].
+Joshua … was full of the spirit of *wisdom*, [[Deuteronomy 34.9|Deuteronomy 34:9]].
 
 *wisdom* of God was in him, [[1 Kings 3.28|1 Kings 3:28]].
 
 God gave Solomon *wisdom*, [[1 Kings 4.29|1 Kings 4:29]].
 
-Solomon exceeded all ... for *wisdom*, [[1 Kings 10.23|1 Kings 10:23]] ([[2 Chronicles 9.22|2 Chronicles 9:22]]).
+Solomon exceeded all … for *wisdom*, [[1 Kings 10.23|1 Kings 10:23]] ([[2 Chronicles 9.22|2 Chronicles 9:22]]).
 
 With the ancient is *wisdom*, [[Job 12.12|Job 12:12]].
 
@@ -55,7 +54,7 @@ Whoso loveth *wisdom* rejoiceth his father, [[Proverbs 29.3|Proverbs 29:3]].
 
 rod and reproof give *wisdom*, [[Proverbs 29.15|Proverbs 29:15]].
 
-man's *wisdom* maketh his face to shine, [[Ecclesiastes 8.1|Ecclesiastes 8:1]].
+man’s *wisdom* maketh his face to shine, [[Ecclesiastes 8.1|Ecclesiastes 8:1]].
 
 *Wisdom* is better than strength, [[Ecclesiastes 9.16|Ecclesiastes 9:16]].
 
@@ -67,7 +66,7 @@ spirit of *wisdom* and understanding, [[Isaiah 11.2|Isaiah 11:2]] ([[2 Nephi 21.
 
 Let not the wise man glory in his *wisdom*, [[Jeremiah 9.23|Jeremiah 9:23]].
 
-in all matters of *wisdom* and understanding ... he found them ten times better, [[Daniel 1.20|Daniel 1:20]].
+in all matters of *wisdom* and understanding … he found them ten times better, [[Daniel 1.20|Daniel 1:20]].
 
 he giveth *wisdom* unto the wise, [[Daniel 2.21|Daniel 2:21]].
 
@@ -75,11 +74,11 @@ he giveth *wisdom* unto the wise, [[Daniel 2.21|Daniel 2:21]].
 
 *wisdom* is justified of her children, [[Matthew 11.19|Matthew 11:19]] ([[Luke 7.35|Luke 7:35]]).
 
-she came ... to hear the *wisdom* of Solomon, [[Matthew 12.42|Matthew 12:42]] ([[Luke 11.31|Luke 11:31]]).
+she came … to hear the *wisdom* of Solomon, [[Matthew 12.42|Matthew 12:42]] ([[Luke 11.31|Luke 11:31]]).
 
 Whence hath this man this *wisdom*, [[Matthew 13.54|Matthew 13:54]] ([[Mark 6.2|Mark 6:2]]).
 
-turn ... disobedient to the *wisdom* of the just, [[Luke 1.17|Luke 1:17]].
+turn … disobedient to the *wisdom* of the just, [[Luke 1.17|Luke 1:17]].
 
 child grew, and waxed strong in spirit, filled with *wisdom*, [[Luke 2.40|Luke 2:40]].
 
@@ -91,7 +90,7 @@ they were not able to resist the *wisdom*, [[Acts 6.10|Acts 6:10]].
 
 Moses was learned in all the *wisdom* of the Egyptians, [[Acts 7.22|Acts 7:22]].
 
-depth ... of the *wisdom* and knowledge of God, [[Romans 11.33|Romans 11:33]].
+depth … of the *wisdom* and knowledge of God, [[Romans 11.33|Romans 11:33]].
 
 preach the gospel: not with *wisdom* of words, [[1 Corinthians 1.17|1 Corinthians 1:17]].
 
@@ -99,7 +98,7 @@ I will destroy the *wisdom* of the wise, [[1 Corinthians 1.19|1 Corinthians 1:19
 
 hath not God made foolish the *wisdom* of this world, [[1 Corinthians 1.20|1 Corinthians 1:20]] ([[1 Corinthians 3.19|1 Corinthians 3:19]]).
 
-Christ ... the *wisdom* of God, [[1 Corinthians 1.24|1 Corinthians 1:24]].
+Christ … the *wisdom* of God, [[1 Corinthians 1.24|1 Corinthians 1:24]].
 
 we speak the *wisdom* of God in a mystery, [[1 Corinthians 2.7|1 Corinthians 2:7]].
 
@@ -109,7 +108,7 @@ not with fleshly *wisdom*, but by the grace of God, [[2 Corinthians 1.12|2 Corin
 
 he hath abounded toward us in all *wisdom*, [[Ephesians 1.8|Ephesians 1:8]].
 
-God ... give unto you the spirit of *wisdom*, [[Ephesians 1.17|Ephesians 1:17]].
+God … give unto you the spirit of *wisdom*, [[Ephesians 1.17|Ephesians 1:17]].
 
 known by the church the manifold *wisdom* of God, [[Ephesians 3.10|Ephesians 3:10]].
 
@@ -131,19 +130,19 @@ done in the *wisdom* of him who knoweth all things, [[2 Nephi 2.24|2 Nephi 2:24]
 
 their *wisdom* is foolishness, [[2 Nephi 9.28|2 Nephi 9:28]].
 
-puffed up because of their ... *wisdom*, [[2 Nephi 9.42|2 Nephi 9:42]].
+puffed up because of their … *wisdom*, [[2 Nephi 9.42|2 Nephi 9:42]].
 
 spirit of *wisdom* and understanding, [[2 Nephi 21.2|2 Nephi 21:2]].
 
 see fit in mine own *wisdom* to reveal, [[2 Nephi 27.22|2 Nephi 27:22]].
 
-those who hearken unto my precepts ... learn *wisdom*, [[2 Nephi 28.30|2 Nephi 28:30]].
+those who hearken unto my precepts … learn *wisdom*, [[2 Nephi 28.30|2 Nephi 28:30]].
 
 he counseleth in *wisdom*, [[Jacob 4.10|Jacob 4:10]].
 
 tell you these things that ye may learn *wisdom*, [[Mosiah 2.17|Mosiah 2:17]].
 
-Spirit ... guide you in *wisdom's* paths, [[Mosiah 2.36|Mosiah 2:36]].
+Spirit … guide you in *wisdom’s* paths, [[Mosiah 2.36|Mosiah 2:36]].
 
 he has all *wisdom*, [[Mosiah 4.9|Mosiah 4:9]] ([[Alma 26.35|Alma 26:35]]).
 
@@ -165,7 +164,7 @@ bring forth fruits of praise and *wisdom*, [[D&C 52.17|D&C 52:17]].
 
 their *wisdom* shall be great, [[D&C 76.9|D&C 76:9]].
 
-shall speak ... the words of *wisdom*, [[D&C 78.2|D&C 78:2]].
+shall speak … the words of *wisdom*, [[D&C 78.2|D&C 78:2]].
 
 *wisdom* receiveth *wisdom*, [[D&C 88.40|D&C 88:40]].
 
@@ -173,7 +172,7 @@ teach one another words of *wisdom*, [[D&C 88.118|D&C 88:118]] ([[D&C 109.7|D&C 
 
 shall find *wisdom* and great treasures of knowledge, [[D&C 89.19|D&C 89:19]].
 
-many ... are seeking diligently to learn *wisdom*, [[D&C 97.1|D&C 97:1]].
+many … are seeking diligently to learn *wisdom*, [[D&C 97.1|D&C 97:1]].
 
 show forth my *wisdom* through the weak things, [[D&C 124.1|D&C 124:1]].
 

@@ -1,6 +1,6 @@
 # Adam, the Archangel
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -132,8 +132,9 @@ At the close of this dispensation he will there deliver up his stewardship to Ch
 
 If any of you have been confused by false teachers who come among us, if you have been assailed by advocates of erroneous doctrines, counsel with your priesthood leaders. They will not lead you astray, but will direct you into paths of truth and salvation.
 
-I bear you my solemn testimony that this—The Church of Jesus Christ of Latter-day Saints—is indeed the church and kingdom of God. Jesus is the Christ. Spencer W. Kimball is his prophet. We are the legal and divinely chosen custodians of the restored truth. This I testify in the name of Jesus Christ, amen.
+I bear you my solemn testimony that this—The Church of Jesus Christ of Latter-day Saints—is indeed the church and kingdom of God. Jesus is the Christ. Spencer W. Kimball is his prophet. We are the legal and divinely chosen custodians of the restored truth. This I testify in the name of Jesus Christ, amen.
 
 
 
-#Adam_And_Eve
+
+#AdamAndEve

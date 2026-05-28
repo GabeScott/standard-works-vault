@@ -129,7 +129,7 @@ If we will be true to the truth, accept the invitation to walk with President Go
 
 [^5]: “Oh Say, What Is Truth?” *Hymns,* no. 272.
 
-[^6]: [[2 Nephi 31.18|2 Ne. 31:18]].
+[^6]: [[2 Nephi 31.18|2 Ne. 31:18]].
 
 [^7]: [[Alma 39.11|Alma 39:11]].
 
@@ -141,17 +141,17 @@ If we will be true to the truth, accept the invitation to walk with President Go
 
 [^11]: [[Joseph Smith History 1.19|JS—H 1:19]].
 
-[^12]: [[1 Samuel 16.7|1 Sam. 16:7]].
+[^12]: [[1 Samuel 16.7|1 Sam. 16:7]].
 
 [^13]: [[John 7.24|John 7:24]].
 
 [^14]: [[Matthew 7.15|Matt. 7:15–16]][[Matthew 7.16|]].
 
-[^15]: [[2 Nephi 31.13|2 Ne. 31:13]]; see also [[Jacob 6.5|Jacob 6:5]]; [[Mosiah 7.33|Mosiah 7:33]]; [[3 Nephi 10.6|3 Ne. 10:6]]; [[D&C 18.27|D&C 18:27–28]][[D&C 18.28|]].
+[^15]: [[2 Nephi 31.13|2 Ne. 31:13]]; see also [[Jacob 6.5|Jacob 6:5]]; [[Mosiah 7.33|Mosiah 7:33]]; [[3 Nephi 10.6|3 Ne. 10:6]]; [[D&C 18.27|D&C 18:27–28]][[D&C 18.28|]].
 
 [^16]: [[James 1.8|James 1:8]].
 
-[^17]: [[Matthew 6.24|Matt. 6:24]]; see also [[Luke 16.13|Luke 16:13]]; [[3 Nephi 13.24|3 Ne. 13:24]].
+[^17]: [[Matthew 6.24|Matt. 6:24]]; see also [[Luke 16.13|Luke 16:13]]; [[3 Nephi 13.24|3 Ne. 13:24]].
 
 [^18]: Marion G. Romney, “The Price of Peace,” *Ensign,* Oct. 1983, 6.
 
@@ -175,9 +175,9 @@ If we will be true to the truth, accept the invitation to walk with President Go
 
 [^28]: [[D&C 72.3|D&C 72:3]].
 
-[^29]: [[2 Nephi 9.22|2 Ne. 9:22]].
+[^29]: [[2 Nephi 9.22|2 Ne. 9:22]].
 
-[^30]: [[2 Nephi 9.46|2 Ne. 9:46]].
+[^30]: [[2 Nephi 9.46|2 Ne. 9:46]].
 
 [^31]: See [[Alma 34.33|Alma 34:33–37]][[Alma 34.34|]][[Alma 34.35|]][[Alma 34.36|]][[Alma 34.37|]].
 
@@ -193,5 +193,6 @@ If we will be true to the truth, accept the invitation to walk with President Go
 
 [^37]: [[D&C 4.2|D&C 4:2]].
 
+[^38]: [[D&C 59.23|D&C 59:23]].
 
-#Accountability #Atonement #Church_Growth #Covenants #Employment #Home_Teaching #Jesus_Christ #Peace #Pioneers #Plan_Of_Salvation #Repentance #Sacrament #Temples #Truth
+#Accountability #Atonement #ChurchGrowth #Covenants #Employment #HomeTeaching #JesusChrist #Peace #Pioneers #PlanOfSalvation #Repentance #Sacrament #Temples #Truth

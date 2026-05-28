@@ -1,7 +1,6 @@
 # Corruption
 
-
-*See also* [[Bribe, Bribery.md|Bribe]]; [[Evil.md|Evil]]; [[False Doctrine.md|False Doctrine]]; [[Filthiness, Filthy.md|Filthiness]]; [[Fraud.md|Fraud]]; [[Idolatry, Idol.md|Idolatry]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Pollution, Pollute.md|Pollution]]; [[Sin.md|Sin]]; [[Wickedness, Wicked.md|Wickedness]]
+*See also* [[Bribe.md|Bribe]]; [[Evil.md|Evil]]; [[False Doctrine.md|False Doctrine]]; [[Filthiness.md|Filthiness]]; [[Fraud.md|Fraud]]; [[Idolatry.md|Idolatry]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Pollution.md|Pollution]]; [[Sin.md|Sin]]; [[Wickedness.md|Wickedness]]
 
 right hand of the mount of *corruption*, [[2 Kings 23.13|2 Kings 23:13]].
 
@@ -13,9 +12,9 @@ he, whom God raised again, saw no *corruption*, [[Acts 13.37|Acts 13:37]].
 
 delivered from the bondage of *corruption*, [[Romans 8.21|Romans 8:21]].
 
-sown in *corruption* ... raised in incorruption, [[1 Corinthians 15.42|1 Corinthians 15:42]].
+sown in *corruption* … raised in incorruption, [[1 Corinthians 15.42|1 Corinthians 15:42]].
 
-he that soweth to his flesh ... reap *corruption*, [[Galatians 6.8|Galatians 6:8]].
+he that soweth to his flesh … reap *corruption*, [[Galatians 6.8|Galatians 6:8]].
 
 *corruption* that is in the world through lust, [[2 Peter 1.4|2 Peter 1:4]].
 

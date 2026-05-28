@@ -59,7 +59,7 @@ I testify of the sacrifice and service of the Lord Jesus Christ, who gave everyt
 
 [^3]: See [[Mosiah 4.27|Mosiah 4:27]].
 
-[^4]: This is a major doctrine too expansive for documentation here. See [[Moses 5.4|Moses 5:4–8]][[Moses 5.5|]][[Moses 5.6|]][[Moses 5.7|]][[Moses 5.8|]]; [[3 Nephi 9.17|3 Nephi 9:17–21]][[3 Nephi 9.18|]][[3 Nephi 9.19|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]]; [[D&C 59.8|D&C 59:8–12]][[D&C 59.9|]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]]; [[D&C 97.8|97:8–9]][[D&C 97.9|]].
+[^4]: This is a major doctrine too expansive for documentation here. See [[Moses 5.4|Moses 5:4–8]][[Moses 5.5|]][[Moses 5.6|]][[Moses 5.7|]][[Moses 5.8|]]; [[3 Nephi 9.17|3 Nephi 9:17–21]][[3 Nephi 9.18|]][[3 Nephi 9.19|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]]; [[D&C 59.8|D&C 59:8–12]][[D&C 59.9|]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]]; [[D&C 97.8|97:8–9]][[D&C 97.9|]].
 
 [^5]: See *Lectures on Faith* (1985), 68–69.
 
@@ -69,6 +69,4 @@ I testify of the sacrifice and service of the Lord Jesus Christ, who gave everyt
 
 [^8]: [[Mosiah 14.4|Mosiah 14:4]]; see also [[Isaiah 53.4|Isaiah 53:4]].
 
-
-
-#Church_Callings #Family #Sacrifice #Service
+#ChurchCallings #Family #Sacrifice #Service

@@ -10,7 +10,7 @@ By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 I am happy to be here with you tonight and humbled to think of your goodness. You are an inspiring and beautiful sight. I hope my mother or Sister Dalton will sign my Personal Progress knowledge value experience number 4 because this talk should certainly fulfill the requirement of giving a five-minute talk on a gospel subject (see *Young Women Personal Progress* \[booklet, 2001\], 35).
 
-I love young women, I love my young women, and I love the Young Women program. When I was a young girl, the Young Women program and Mutual were an important part of my life. I loved my friends, the lessons we were taught, youth conferences, and camp. My leaders loved me and taught me the truths of the gospel. They served as second witnesses to the gospel principles my parents had taught. My parents, my bishop, and my dear Young Women leaders were “example\[s\] of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Timothy 4:12]]). I willingly followed their examples because I wanted to be like them.
+I love young women, I love my young women, and I love the Young Women program. When I was a young girl, the Young Women program and Mutual were an important part of my life. I loved my friends, the lessons we were taught, youth conferences, and camp. My leaders loved me and taught me the truths of the gospel. They served as second witnesses to the gospel principles my parents had taught. My parents, my bishop, and my dear Young Women leaders were “example\[s\] of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Timothy 4:12]]). I willingly followed their examples because I wanted to be like them.
 
 Thinking back to when I was a young woman, I recognize that I did not understand the magnitude of what was happening in my life. I did not realize that my participation in each and every Church activity was helping me develop a lifelong pattern and commitment to follow the teachings of Jesus Christ. I didn’t understand that I was being prepared for my future life as an individual, a wife, a mother, and a leader. I didn’t understand that as I tried to choose the right, I was honoring my baptismal covenants, exercising faith, increasing my virtue, and preparing to go to the temple. I couldn’t see all of this then, but in very small, incremental steps, I was becoming a believer—and “an example of the believers.”
 
@@ -60,7 +60,7 @@ In my journal I committed to do the following. Now, granted, some of them reflec
 
 Because I participated in this “small and simple” Personal Progress activity, my testimony of prophets and my commitment to follow Jesus Christ greatly increased. Completing this goal prepared me to be more receptive to the Spirit the next time I attended church and the temple. Each time I review the words I wrote in my journal, I feel the Spirit and remember what I felt when I did this experience at my kitchen table. Alma chapter 5 is now one of my favorite chapters. Truly, I received many blessings as I did this, *my* Personal Progress experience.
 
-Earlier I mentioned Sister Andersen and her *Beehive Girl’s Handbook.* She is the wife of Elder Neil L. Andersen of the Presidency of the Seventy \[now a member of the Quorum of the Twelve Apostles\], a mother, and a grandmother. I love the thought that even though she has moved so many times, she has always known where to find her *Beehive Girl’s Handbook* and achievement bandlo. Sister Andersen has stood by her husband and taught the gospel all over the world. She has also exemplified womanhood and goodness as a faithful member of the Church.
+Earlier I mentioned Sister Andersen and her *Beehive Girl’s Handbook.* She is the wife of Elder Neil L. Andersen of the Presidency of the Seventy \[now a member of the Quorum of the Twelve Apostles\], a mother, and a grandmother. I love the thought that even though she has moved so many times, she has always known where to find her *Beehive Girl’s Handbook* and achievement bandlo. Sister Andersen has stood by her husband and taught the gospel all over the world. She has also exemplified womanhood and goodness as a faithful member of the Church.
 
 As an 11-year-old girl, Sister Andersen couldn’t wait to enter the Young Women program. When her birthday finally arrived, she was given the *Beehive Girl’s Handbook.* Sister Andersen explains:
 
@@ -85,6 +85,4 @@ May each of us strive to be “an example of the believers.” May we live the g
 
 
 
-
-
-#Example #Goals #Young_Women
+#Example #Goals #YoungWomen

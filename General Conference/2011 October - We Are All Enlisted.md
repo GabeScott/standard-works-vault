@@ -1,6 +1,6 @@
 # We Are All Enlisted
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/10/we-are-all-enlisted?lang=eng)
 
-In the spirit of that remarkably stirring hymn and with Elder Richard G. Hinckley’s eloquent invocation in my heart, I wish to speak rather candidly tonight, brethren, and I include in that candor the young men of the Aaronic Priesthood.
+In the spirit of that remarkably stirring hymn and with Elder Richard G. Hinckley’s eloquent invocation in my heart, I wish to speak rather candidly tonight, brethren, and I include in that candor the young men of the Aaronic Priesthood.
 
 When we rehearse the grandeur of Joseph Smith’s First Vision, we sometimes gloss over the menacing confrontation that came just prior to it, a confrontation intended to destroy the boy if possible but in any case to block the revelation that was to come. We don’t talk about the adversary any more than we have to, and I don’t like talking about him at all, but the experience of young Joseph reminds us of what every man, including every young man, in this audience needs to remember.
 
@@ -16,7 +16,7 @@ Number one, Satan, or Lucifer, or the father of lies—call him what you will—
 
 So what are some of the devil’s tactics in this contest when eternal life is at stake? Here again the experience in the Sacred Grove is instructive. Joseph recorded that in an effort to oppose all that lay ahead, Lucifer exerted “such an astonishing influence over me as to bind my tongue so that I could not speak.”[^1]
 
-As President Boyd K. Packer taught this morning, Satan cannot directly take a life. That is one of many things he cannot do. But apparently his effort to stop the work will be reasonably well served if he can just bind the tongue of the faithful. Brethren, if that is the case, I am looking tonight for men young and old who care enough about this battle between good and evil to sign on and speak up. We are at war, and for these next few minutes, I want to be a one-man recruiting station.
+As President Boyd K. Packer taught this morning, Satan cannot directly take a life. That is one of many things he cannot do. But apparently his effort to stop the work will be reasonably well served if he can just bind the tongue of the faithful. Brethren, if that is the case, I am looking tonight for men young and old who care enough about this battle between good and evil to sign on and speak up. We are at war, and for these next few minutes, I want to be a one-man recruiting station.
 
 Do I need to hum a few bars of “We Are All Enlisted”? You know, the line about “We are waiting now for soldiers; who’ll volunteer?”[^2] Of course, the great thing about this call to arms is that we ask *not* for volunteers to fire a rifle or throw a hand grenade. No, we want battalions who will take as their weapons “every word that proceedeth forth from the mouth of God.”[^3] So I am looking tonight for missionaries who will not voluntarily bind their tongues but will, with the Spirit of the Lord and the power of their priesthood, open their mouths and speak miracles. Such speech, the early brethren taught, would be the means by which faith’s “mightiest works have been, and will be, performed.”[^4]
 
@@ -61,26 +61,24 @@ In the name of Jesus Christ, our Master, amen.
 
 [^1]: [[Joseph Smith History 1.15|Joseph Smith—History 1:15]].
 
-[^2]: “We Are All Enlisted,” *Hymns,* no. 250.
+[^2]: “We Are All Enlisted,” *Hymns,* no. 250.
 
 [^3]: [[D&C 84.44|Doctrine and Covenants 84:44]]; see also [[Deuteronomy 8.3|Deuteronomy 8:3]]; [[Matthew 4.4|Matthew 4:4]].
 
 [^4]: *Lectures on Faith* (1985), 73.
 
-[^5]: [[1 Nephi 8.28|1 Nephi 8:28]].
+[^5]: [[1 Nephi 8.28|1 Nephi 8:28]].
 
-[^6]: [[2 Nephi 31.18|2 Nephi 31:18]].
+[^6]: [[2 Nephi 31.18|2 Nephi 31:18]].
 
-[^7]: *Hymns,* no. 250.
+[^7]: *Hymns,* no. 250.
 
 [^8]: [[Matthew 28.19|Matthew 28:19]].
 
-[^9]: [[2 Nephi 33.9|2 Nephi 33:9]].
+[^9]: [[2 Nephi 33.9|2 Nephi 33:9]].
 
 [^10]: [[D&C 123.12|Doctrine and Covenants 123:12]].
 
-[^11]: *Hymns,* no. 250.
+[^11]: *Hymns,* no. 250.
 
-
-
-#Missionary_Work #Satan #Worthiness
+#MissionaryWork #Satan #Worthiness

@@ -1,11 +1,10 @@
 # Compassion
 
-
-*See also* [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Comfort.md|Comfort]]; [[God, Love of.md|God, Love of]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]; [[Loving-Kindness.md|Loving-Kindness]]; [[Mercy, Merciful.md|Mercy]]; [[Pity.md|Pity]]; [[Welfare.md|Welfare]]
+*See also* [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Comfort.md|Comfort]]; [[God, Love of.md|God, Love of]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]; [[Loving-Kindness.md|Loving-Kindness]]; [[Mercy.md|Mercy]]; [[Pity.md|Pity]]; [[Welfare.md|Welfare]]
 
 Thou shalt *not curse* the deaf, [[Leviticus 19.14|Leviticus 19:14]].
 
-had *compassion* on them ... because of his covenant, [[2 Kings 13.23|2 Kings 13:23]].
+had *compassion* on them … because of his covenant, [[2 Kings 13.23|2 Kings 13:23]].
 
 To him that is afflicted *pity* should be shewed, [[Job 6.14|Job 6:14]].
 
@@ -13,7 +12,7 @@ He that hath *pity* upon the poor lendeth unto the Lord, [[Proverbs 19.17|Prover
 
 he hath *borne* our griefs, [[Isaiah 53.4|Isaiah 53:4]] ([[Mosiah 14.4|Mosiah 14:4]]).
 
-yet will he have *compassion* according to the multitude, [[Lamentations 3.32|Lamentations 3:32]] ([[Lamentations 3.22|3:22-36]][[Lamentations 3.23|]][[Lamentations 3.24|]][[Lamentations 3.25|]][[Lamentations 3.26|]][[Lamentations 3.27|]][[Lamentations 3.28|]][[Lamentations 3.29|]][[Lamentations 3.30|]][[Lamentations 3.31|]][[Lamentations 3.32|]][[Lamentations 3.33|]][[Lamentations 3.34|]][[Lamentations 3.35|]][[Lamentations 3.36|]]).
+yet will he have *compassion* according to the multitude, [[Lamentations 3.32|Lamentations 3:32]].
 
 shew mercy and *compassions* every man to his brother, [[Zechariah 7.9|Zechariah 7:9]].
 
@@ -27,13 +26,13 @@ Jesus had *compassion* on them, and touched their eyes, [[Matthew 20.34|Matthew 
 
 Jesus, moved with *compassion*, put forth his hand, [[Mark 1.41|Mark 1:41]].
 
-Lord ... hath had *compassion* on thee, [[Mark 5.19|Mark 5:19]].
+Lord … hath had *compassion* on thee, [[Mark 5.19|Mark 5:19]].
 
 if thou canst do any thing, have *compassion* on us, [[Mark 9.22|Mark 9:22]].
 
 when the Lord saw her, he had *compassion*, [[Luke 7.13|Luke 7:13]].
 
-Samaritan ... when he saw him, he had *compassion*, [[Luke 10.33|Luke 10:33]].
+Samaritan … when he saw him, he had *compassion*, [[Luke 10.33|Luke 10:33]].
 
 his father saw him, and had *compassion*, [[Luke 15.20|Luke 15:20]].
 
@@ -63,12 +62,10 @@ my bowels are filled with *compassion* towards you, [[3 Nephi 17.6|3 Nephi 17:6]
 
 Lord had *compassion* upon Jared, [[Ether 1.35|Ether 1:35]].
 
-*remember* ... the poor and the needy, the sick, [[D&C 52.40|D&C 52:40]].
+*remember* … the poor and the needy, the sick, [[D&C 52.40|D&C 52:40]].
 
 I will have *compassion* upon you, [[D&C 64.2|D&C 64:2]].
 
 mercy hath *compassion* on mercy, [[D&C 88.40|D&C 88:40]].
 
 thy bowels be moved with *compassion* toward them, [[D&C 121.3|D&C 121:3]].
-
-*See also* [[Psalms 86.15|Psalms 86:15]]; [[Galatians 6.2|Galatians 6:2]]; [[Hebrews 13.3|Hebrews 13:3]]; [[Moses 7.41|Moses 7:41]].

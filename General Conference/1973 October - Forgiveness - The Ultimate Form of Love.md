@@ -1,6 +1,6 @@
 # Forgiveness: The Ultimate Form of Love
 
-By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -10,9 +10,9 @@ After a meeting with a group of students recently one young man waited to ask a 
 
 I had not responded to such a question just that way before, but the answer did put into words the deep yearnings of my heart.
 
-In ancient times Abraham was called the “friend of God.” Jesus, shortly before his crucifixion, said to his disciples, “Ye are my friends, if ye do whatsoever I command you. Henceforth I call you not servants … but I have called you friends. …” ([[John 15.14|John 15:14–15]][[John 15.15|]].)
+In ancient times Abraham was called the “friend of God.” Jesus, shortly before his crucifixion, said to his disciples, “Ye are my friends, if ye do whatsoever I command you. Henceforth I call you not servants … but I have called you friends. …” ([[John 15.14|John 15:14–15]][[John 15.15|]].)
 
-In 1832, to a group of elders returning from missionary service, he repeated the message: “… from henceforth I shall call you friends. …” ([[D&C 84.77|D&C 84:77]].)
+In 1832, to a group of elders returning from missionary service, he repeated the message: “… from henceforth I shall call you friends. …” ([[D&C 84.77|D&C 84:77]].)
 
 Today I would like to speak of one lesson among many that he taught us and that you and I must learn if we are to merit his friendship.
 
@@ -22,9 +22,9 @@ Was this act of forgiveness less difficult than sacrificing his mortal life? Was
 
 He met the test. What of us? Perhaps we shall not be called upon to give our lives for our friends or our faith (though perhaps some shall), but it is certain that every one of us has and will have occasion to confront the other challenge. What will we do with it? What *are* we doing with it?
 
-Someone has written: “… the withholding of love is the negation of the spirit of Christ, the proof that we never knew him, that for us he lived in vain. It means that he suggested nothing in all our thoughts, that he inspired nothing in all our lives, that we were not once near enough to him to be seized with the spell of his compassion for the world.”
+Someone has written: “… the withholding of love is the negation of the spirit of Christ, the proof that we never knew him, that for us he lived in vain. It means that he suggested nothing in all our thoughts, that he inspired nothing in all our lives, that we were not once near enough to him to be seized with the spell of his compassion for the world.”
 
-Christ’s example and instructions to his friends are clear. He forgave, and he said: “… Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you.” ([[Matthew 5.44|Matt. 5:44]].)
+Christ’s example and instructions to his friends are clear. He forgave, and he said: “… Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you.” ([[Matthew 5.44|Matt. 5:44]].)
 
 What is our response when we are offended, misunderstood, unfairly or unkindly treated, or sinned against, made an offender for a word, falsely accused, passed over, hurt by those we love, our offerings rejected? Do we resent, become bitter, hold a grudge? Or do we resolve the problem if we can, forgive, and rid ourselves of the burden?
 
@@ -48,13 +48,13 @@ But not only our eternal salvation depends upon our willingness and capacity to 
 
 Paul wrote to the Romans that nothing “shall be able to separate us from the love of God, which is in Christ Jesus our Lord.” ([[Romans 8.39|Rom. 8:39]].)
 
-I am sure this is true. I bear testimony that this is true. But it is also true that we can *separate ourselves* from his spirit. In Isaiah it is written: “… your iniquities have separated between you and your God. …” ([[Isaiah 59.2|Isa. 59:2]].) Again, “… they have rewarded evil unto themselves.” ([[Isaiah 3.9|Isa. 3:9]].)
+I am sure this is true. I bear testimony that this is true. But it is also true that we can *separate ourselves* from his spirit. In Isaiah it is written: “… your iniquities have separated between you and your God. …” ([[Isaiah 59.2|Isa. 59:2]].) Again, “… they have rewarded evil unto themselves.” ([[Isaiah 3.9|Isa. 3:9]].)
 
-Through Helaman we learn that “whosoever doeth iniquity, doeth it unto himself …” ([[Helaman 14.30|Hel. 14:30]]); and from Benjamin, “… ye do withdraw yourselves from the Spirit of the Lord. …” ([[Mosiah 2.36|Mosiah 2:36]].)
+Through Helaman we learn that “whosoever doeth iniquity, doeth it unto himself …” ([[Helaman 14.30|Hel. 14:30]]); and from Benjamin, “… ye do withdraw yourselves from the Spirit of the Lord. …” ([[Mosiah 2.36|Mosiah 2:36]].)
 
 In every case of sin this is true. Envy, arrogance, unrighteous dominion—these canker the soul of one who is guilty of them. It is true also if we fail to forgive. Even if it appears that another may be deserving of our resentment or hatred, none of us can afford to pay the price of resenting or hating, because of what it does to us. If we have felt the gnawing, mordant inroads of these emotions, we know the harm we suffer.
 
-So Paul taught the Corinthians that they must “see that none render evil for evil unto any man. …” ([[1 Thessalonians 5.15|1 Thes. 5:15]].)
+So Paul taught the Corinthians that they must “see that none render evil for evil unto any man. …” ([[1 Thessalonians 5.15|1 Thes. 5:15]].)
 
 It is reported that President Brigham Young once said that he who takes offense when no offense was intended is a fool, and he who takes offense when offense *was* intended is usually a fool. It was then explained that there are two courses of action to follow when one is bitten by a rattlesnake. One may, in anger, fear, or vengefulness, pursue the creature and kill it. Or he may make full haste to get the venom out of his system. If we pursue the latter course we will likely survive, but if we attempt to follow the former, we may not be around long enough to finish it.
 
@@ -80,11 +80,9 @@ More than 250 years ago Joseph Addison printed in *The Spectator* a paragraph of
 
 God help us to rid ourselves of resentment and pettiness and foolish pride; to love, and to forgive, in order that we may be friends with ourselves, with others, and with the Lord.
 
-“… even as Christ forgave you, so also do ye.” ([[Colossians 3.13|Col. 3:13]].)
+“… even as Christ forgave you, so also do ye.” ([[Colossians 3.13|Col. 3:13]].)
 
 In the name of Jesus Christ. Amen.
-
-
 
 
 

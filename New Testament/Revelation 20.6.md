@@ -9,4 +9,4 @@
 [^b]: [[D&C 63.18|D&C 63:18]].  
 [^c]: [[Resurrection|TG Resurrection]].  
 [^d]: [[Death, Spiritual, Second|TG Death, Spiritual, Second]].  
-[^e]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]; [[Priest, Melchizedek Priesthood|Priest, Melchizedek Priesthood]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^e]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]; [[Priest, Melchizedek Priesthood|Priest, Melchizedek Priesthood]]. [[BD Priests|BD Priests]].  

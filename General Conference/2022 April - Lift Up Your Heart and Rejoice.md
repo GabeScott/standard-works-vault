@@ -1,6 +1,6 @@
 # Lift Up Your Heart and Rejoice
 
-By Elder Marcos A. Aidukaitis - *Of the Seventy*
+By Elder Marcos A. Aidukaitis - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -8,11 +8,11 @@ By Elder Marcos A. Aidukaitis - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/04/25aidukaitis?lang=eng)
 
-Speaking to Thomas B. Marsh, a recent convert, the Lord said encouragingly, “Lift up your heart and rejoice, for the hour of your mission is come” ([[D&C 31.3|Doctrine and Covenants 31:3]]).
+Speaking to Thomas B. Marsh, a recent convert, the Lord said encouragingly, “Lift up your heart and rejoice, for the hour of your mission is come” ([[D&C 31.3|Doctrine and Covenants 31:3]]).
 
 I believe this invitation can serve as an inspiration for all members of the Church. After all, we have each received from our Heavenly Father the mission of gathering Israel on both sides of the veil.
 
-“That gathering,” President Russell M. Nelson has said, “is the most important thing taking place on earth today. Nothing else compares in magnitude, nothing else compares in importance, nothing else compares in majesty.”[^1]
+“That gathering,” President Russell M. Nelson has said, “is the most important thing taking place on earth today. Nothing else compares in magnitude, nothing else compares in importance, nothing else compares in majesty.”[^1]
 
 Certainly, there are many worthy causes in the world. It is impossible to name them all. But wouldn’t you like to participate in a great cause within your reach and where your contribution makes a vital difference? The gathering makes an eternal difference to all. People of all ages can participate in this cause regardless of their circumstances and where they live. There is no other cause in the world more inclusive.
 
@@ -20,7 +20,7 @@ Speaking specifically to the youth, President Nelson said that “our Heavenly F
 
 Yes, you have been prepared from before this life and born now to participate in the great work of the gathering of Israel on both sides of the veil in these latter days (see [[D&C 138.53|Doctrine and Covenants 138:53–56]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]]).
 
-Why is this cause so important? Because “the worth of souls is great in the sight of God” ([[D&C 18.10|Doctrine and Covenants 18:10]]). And because “whoso believeth in \[Jesus Christ\], and is baptized, the same shall be saved; and … shall inherit the kingdom of God” ([[3 Nephi 11.33|3 Nephi 11:33]]). Furthermore, “all that \[the\] Father hath shall be given unto” those who receive His ordinances and keep His covenants ([[D&C 84.38|Doctrine and Covenants 84:38]]). In addition, “the labourers are few” ([[Luke 10.2|Luke 10:2]]).
+Why is this cause so important? Because “the worth of souls is great in the sight of God” ([[D&C 18.10|Doctrine and Covenants 18:10]]). And because “whoso believeth in \[Jesus Christ\], and is baptized, the same shall be saved; and … shall inherit the kingdom of God” ([[3 Nephi 11.33|3 Nephi 11:33]]). Furthermore, “all that \[the\] Father hath shall be given unto” those who receive His ordinances and keep His covenants ([[D&C 84.38|Doctrine and Covenants 84:38]]). In addition, “the labourers are few” ([[Luke 10.2|Luke 10:2]]).
 
 Only in The Church of Jesus Christ of Latter-day Saints do we find the power, the authority, and the way to offer such a blessing to others, whether living or dead.
 
@@ -70,21 +70,19 @@ Dear youth throughout the world, I extend the same invitation that our prophet, 
 
 We were born at this time for a divine purpose, the gathering of Israel. When we serve as full-time missionaries, we will be challenged at times, but the Lord Himself is our great exemplar and guide in such circumstances. He understands what a difficult mission is. With His help, we can do hard things. He will be by our side (see [[D&C 84.88|Doctrine and Covenants 84:88]]), and He will bless us greatly as we humbly serve Him.
 
-For all these reasons, I am not surprised that the Lord said to Thomas B. Marsh and to all of us, “Lift up your heart and rejoice, for the hour of your mission is come.” In the name of Jesus Christ, amen.
+For all these reasons, I am not surprised that the Lord said to Thomas B. Marsh and to all of us, “Lift up your heart and rejoice, for the hour of your mission is come.” In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p58#p58)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
+[^1]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p58#p58)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
 
-[^2]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p66#p66).”
+[^2]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p66#p66).”
 
-[^3]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p100#p100).”
+[^3]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p100#p100).”
 
-[^4]: *Preach My Gospel: A Guide to Missionary Service* (2019), v.
+[^4]: *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/first-presidency-message?lang=eng&id=p5#p5)* (2019), v.
 
-[^5]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p79-p80#p79).”
+[^5]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p79-p80#p79).”
 
-
-
-#Blessings #Gathering #Missionary_Work #Youth
+#Blessings #Gathering #MissionaryWork #Youth

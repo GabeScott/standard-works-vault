@@ -1,4 +1,3 @@
 # Depression
 
-
-*See* [[Despair.md|Despair]]; [[Sorrow.md|Sorrow]]
+*See also* [[Despair.md|Despair]]; [[Sorrow.md|Sorrow]]

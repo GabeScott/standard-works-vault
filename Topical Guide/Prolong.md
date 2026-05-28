@@ -1,6 +1,5 @@
 # Prolong
 
-
 that thou mayest *prolong* thy days upon the earth, [[Deuteronomy 4.40|Deuteronomy 4:40]] ([[Deuteronomy 5.16|Deuteronomy 5:16]]; [[Deuteronomy 6.2|Deuteronomy 6:2]]).
 
 that ye shall not *prolong* your days, [[Deuteronomy 30.18|Deuteronomy 30:18]].

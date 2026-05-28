@@ -1,13 +1,12 @@
 # Learn, Learning
 
-
-*See also* [[Education.md|Education]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Knowledge.md|Knowledge]]; [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Teaching, Teach, Taught.md|Teaching]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
+*See also* [[Education.md|Education]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Knowledge.md|Knowledge]]; [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Teaching.md|Teaching]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
 
 I have *learned* by experience, [[Genesis 30.27|Genesis 30:27]].
 
 hear my words, that they may *learn* to fear, [[Deuteronomy 4.10|Deuteronomy 4:10]] ([[Deuteronomy 31.13|Deuteronomy 31:13]]).
 
-statutes ... that ye may *learn* them, [[Deuteronomy 5.1|Deuteronomy 5:1]].
+statutes … that ye may *learn* them, [[Deuteronomy 5.1|Deuteronomy 5:1]].
 
 I have been afflicted; that I might *learn* thy statutes, [[Psalms 119.71|Psalms 119:71]].
 
@@ -19,7 +18,7 @@ teach a just man, and he will increase in *learning*, [[Proverbs 9.9|Proverbs 9:
 
 neither shall they *learn* war any more, [[Isaiah 2.4|Isaiah 2:4]] ([[Micah 4.3|Micah 4:3]]; [[2 Nephi 12.4|2 Nephi 12:4]]).
 
-deliver to one that is *learned*, [[Isaiah 29.11|Isaiah 29:11]] ([[2 Nephi 27.15|2 Ne. 27:15-20]][[2 Nephi 27.16|]][[2 Nephi 27.17|]][[2 Nephi 27.18|]][[2 Nephi 27.19|]][[2 Nephi 27.20|]]).
+deliver to one that is *learned*, [[Isaiah 29.11|Isaiah 29:11]].
 
 they that murmured shall *learn* doctrine, [[Isaiah 29.24|Isaiah 29:24]] ([[2 Nephi 27.35|2 Nephi 27:35]]).
 
@@ -29,7 +28,7 @@ God gave them knowledge and skill in all *learning*, [[Daniel 1.17|Daniel 1:17]]
 
 knock, and it shall be *opened* unto you, [[Matthew 7.7|Matthew 7:7]] ([[3 Nephi 14.7|3 Nephi 14:7]]).
 
-*learn* of me ... and ye shall find rest unto your souls, [[Matthew 11.29|Matthew 11:29]].
+*learn* of me … and ye shall find rest unto your souls, [[Matthew 11.29|Matthew 11:29]].
 
 *learn* a parable of the fig tree, [[Matthew 24.32|Matthew 24:32]] ([[Mark 13.28|Mark 13:28]]; [[D&C 35.16|D&C 35:16]]; [[Joseph Smith Matthew 1.38|Joseph Smith Matthew 1:38]]).
 
@@ -37,7 +36,7 @@ knock, and it shall be *opened* unto you, [[Matthew 7.7|Matthew 7:7]] ([[3 Nephi
 
 *learned* of the Father, cometh unto me, [[John 6.45|John 6:45]].
 
-Spirit of truth ... will *guide* you into all truth, [[John 16.13|John 16:13]].
+Spirit of truth … will *guide* you into all truth, [[John 16.13|John 16:13]].
 
 Moses was *learned* in all the wisdom, [[Acts 7.22|Acts 7:22]].
 
@@ -61,9 +60,9 @@ add to your faith virtue; and to virtue *knowledge*, [[2 Peter 1.5|2 Peter 1:5]]
 
 taught somewhat in all the *learning* of my father, [[1 Nephi 1.1|1 Nephi 1:1]].
 
-scriptures ... might be for our profit and *learning*, [[1 Nephi 19.23|1 Nephi 19:23]].
+scriptures … might be for our profit and *learning*, [[1 Nephi 19.23|1 Nephi 19:23]].
 
-I speak ... for your profit and *learning*, [[2 Nephi 2.14|2 Nephi 2:14]].
+I speak … for your profit and *learning*, [[2 Nephi 2.14|2 Nephi 2:14]].
 
 writeth them for the *learning* and the profit of my children, [[2 Nephi 4.15|2 Nephi 4:15]].
 
@@ -71,7 +70,7 @@ to be *learned* is good if they hearken, [[2 Nephi 9.29|2 Nephi 9:29]].
 
 who are puffed up because of their *learning*, [[2 Nephi 9.42|2 Nephi 9:42]].
 
-preach up ... their own wisdom and their own *learning*, [[2 Nephi 26.20|2 Nephi 26:20]].
+preach up … their own wisdom and their own *learning*, [[2 Nephi 26.20|2 Nephi 26:20]].
 
 he was *learned*, that he had a perfect knowledge, [[Jacob 7.4|Jacob 7:4]].
 
@@ -91,7 +90,7 @@ receive great *learning* because of their riches, [[3 Nephi 6.12|3 Nephi 6:12]].
 
 ye may *learn* to be more wise than we have been, [[Mormon 9.31|Mormon 9:31]].
 
-*Learn* of me ... and you shall have peace in me, [[D&C 19.23|D&C 19:23]].
+*Learn* of me … and you shall have peace in me, [[D&C 19.23|D&C 19:23]].
 
 he that *receiveth* light, and continueth in God, receiveth more, [[D&C 50.24|D&C 50:24]].
 
@@ -99,7 +98,7 @@ seek *learning*, even by study and also by faith, [[D&C 88.118|D&C 88:118]] ([[D
 
 *learn* to impart one to another, [[D&C 88.123|D&C 88:123]].
 
-study and *learn* ... books ... languages, tongues, [[D&C 90.15|D&C 90:15]].
+study and *learn* … books … languages, tongues, [[D&C 90.15|D&C 90:15]].
 
 chastened until they *learn* obedience, [[D&C 105.6|D&C 105:6]] ([[D&C 105.3|D&C 105:3]]).
 
@@ -107,7 +106,7 @@ let every man *learn* his duty, and to act in the office, [[D&C 107.99|D&C 107:9
 
 they do not *learn* this one lesson, [[D&C 121.35|D&C 121:35]] ([[D&C 121.39|D&C 121:39]]).
 
-Whatever ... *intelligence* we attain unto in this life, it will rise with us, [[D&C 130.18|D&C 130:18]].
+Whatever … *intelligence* we attain unto in this life, it will rise with us, [[D&C 130.18|D&C 130:18]].
 
 impossible for a man to be saved in *ignorance*, [[D&C 131.6|D&C 131:6]].
 

@@ -32,7 +32,7 @@ My own Relief Society president recently said: “The thing I … promise … yo
 
 Joseph Smith told the sisters on that June day in 1842:
 
-“When persons manifest the least kindness and love to me, O what pow’r it has over my mind. …
+“When persons manifest the least kindness and love to me, O what pow’r it has over my mind. …
 
 “… The nearer we get to our heavenly Father, the more are we dispos’d to look with compassion on perishing souls—\[we feel that we want\] to take them upon our shoulders and cast their sins behind our back. \[My talk is intended for\] all this Society—if you would have God have mercy on you, have mercy on one another.”[^2]
 
@@ -74,16 +74,16 @@ As covenant women, we have broad influence. That influence is applied in everyda
 
 Relief Society and Young Women are not simply classes. They can also be unforgettable experiences where very different women all get into the same boat and row until we find our *swing.* I offer this invitation: be part of a collective force that changes the world for good. Our covenantal assignment is to minister, to lift up the hands that hang down, to put struggling people on our backs or in our arms and carry them. It isn’t complicated to know what to do, but it often goes against our selfish interests, and we have to try. The women of this Church have unlimited potential to change society. I have full spiritual confidence that, as we seek union of feeling, we will call down the power of God to make our efforts whole.
 
-When the Church commemorated the 1978 revelation on priesthood, President Russell M. Nelson extended a powerful prophetic blessing: “It is my prayer *and blessing* that I leave upon all who are listening that we may overcome any burdens of prejudice and walk uprightly with God—and with one another—in perfect peace and harmony.”[^10]
+When the Church commemorated the 1978 revelation on priesthood, President Russell M. Nelson extended a powerful prophetic blessing: “It is my prayer *and blessing* that I leave upon all who are listening that we may overcome any burdens of prejudice and walk uprightly with God—and with one another—in perfect peace and harmony.”[^10]
 
 May we draw on this prophetic blessing and use our individual and collective efforts to increase unity in the world. I leave my testimony in the words of the Lord Jesus Christ’s humble, timeless prayer: “That they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us.”[^11] In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: “[Minutes and Discourse, 9 June 1842](https://www.josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/1),” 61, Joseph Smith Papers, josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/1.
+[^1]: “[Minutes and Discourse, 9 June 1842](https://www.josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/1),” 61, Joseph Smith Papers, josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/1.
 
-[^2]: “[Minutes and Discourse, 9 June 1842](https://www.josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/2),” 62, Joseph Smith Papers, josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/2.
+[^2]: “[Minutes and Discourse, 9 June 1842](https://www.josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/2),” 62, Joseph Smith Papers, josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/2.
 
 [^3]: See Cree-L Kofford, “[[1999 April - Your Name Is Safe in Our Home.md|Your Name Is Safe in Our Home]],” *Ensign,* May 1999, 81–83; *Liahona,* July 1999, 96–98.
 
@@ -99,10 +99,8 @@ May we draw on this prophetic blessing and use our individual and collective eff
 
 [^9]: [[Moses 7.18|Moses 7:18]].
 
-[^10]: Russell M. Nelson, “[Building Bridges](https://churchofjesuschrist.org/study/new-era/2018/08/be-one/building-bridges?lang=eng&id=p14#p14),” *New Era,* Aug. 2018, 6; *Liahona,* Dec. 2018, 51; emphasis added.
+[^10]: Russell M. Nelson, “[Building Bridges](https://www.churchofjesuschrist.org/study/new-era/2018/08/be-one/building-bridges?lang=eng&id=p14#p14),” *New Era,* Aug. 2018, 6; *Liahona,* Dec. 2018, 51; emphasis added.
 
 [^11]: [[John 17.21|John 17:21]].
-
-
 
 #Diversity #Mercy #Prejudice #Unity

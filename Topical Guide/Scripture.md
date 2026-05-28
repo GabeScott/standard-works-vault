@@ -1,13 +1,12 @@
 # Scripture
 
-
-*See also* [[Scriptures, Lost.md|Scriptures, Lost]]; [[Scriptures, Preservation of.md|Scriptures, Preservation of]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Scriptures, Writing of.md|Scriptures, Writing of]]; [[Scriptures to Come Forth.md|Scriptures to Come Forth]]; [BD Scripture](https://www.churchofjesuschrist.org/study/scriptures/bd/scripture?lang=eng)
+*See also* [[Scriptures, Lost.md|Scriptures, Lost]]; [[Scriptures, Preservation of.md|Scriptures, Preservation of]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Scriptures, Writing of.md|Scriptures, Writing of]]; [[Scriptures to Come Forth.md|Scriptures to Come Forth]]; [[BD Scripture.md|BD Scripture]]
 
 I will shew thee that which is noted in the *scripture*, [[Daniel 10.21|Daniel 10:21]].
 
 This day is this *scripture* fulfilled in your ears, [[Luke 4.21|Luke 4:21]].
 
-Did not our heart burn within us, while he ... opened to us the *scriptures*, [[Luke 24.32|Luke 24:32]].
+Did not our heart burn within us, while he … opened to us the *scriptures*, [[Luke 24.32|Luke 24:32]].
 
 that they might understand the *scriptures*, [[Luke 24.45|Luke 24:45]].
 
@@ -17,7 +16,7 @@ they believed the *scripture*, [[John 2.22|John 2:22]].
 
 they knew not the *scripture*, that he must rise, [[John 20.9|John 20:9]].
 
-Philip ... began at the same *scripture*, and preached unto him Jesus, [[Acts 8.35|Acts 8:35]].
+Philip … began at the same *scripture*, and preached unto him Jesus, [[Acts 8.35|Acts 8:35]].
 
 promised afore by his prophets in the holy *scriptures*, [[Romans 1.2|Romans 1:2]].
 
@@ -29,7 +28,7 @@ Christ died for our sins according to the *scriptures*, [[1 Corinthians 15.3|1 C
 
 they understand not the *scriptures*, [[Jacob 2.23|Jacob 2:23]].
 
-began to ... unfold the *scriptures*, [[Alma 12.1|Alma 12:1]].
+began to … unfold the *scriptures*, [[Alma 12.1|Alma 12:1]].
 
 *scriptures* are laid before thee, [[Alma 30.44|Alma 30:44]].
 
@@ -43,13 +42,13 @@ Proving to the world that the holy *scriptures* are true, [[D&C 20.11|D&C 20:11]
 
 shall be dealt with as the *scriptures* direct, [[D&C 20.80|D&C 20:80]].
 
-observe to do ... until the fulness of my *scriptures* is given, [[D&C 42.15|D&C 42:15]].
+observe to do … until the fulness of my *scriptures* is given, [[D&C 42.15|D&C 42:15]].
 
 this is what the *scriptures* mean, [[D&C 74.7|D&C 74:7]].
 
 my will that you should hasten to translate my *scriptures*, [[D&C 93.53|D&C 93:53]].
 
-building of a house ... for the work of the printing ... of my *scriptures*, [[D&C 94.10|D&C 94:10]].
+building of a house … for the work of the printing … of my *scriptures*, [[D&C 94.10|D&C 94:10]].
 
 He quoted many other passages of *scripture*, [[Joseph Smith History 1.41|Joseph Smith History 1:41]].
 

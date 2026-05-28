@@ -1,6 +1,6 @@
 # The Lord Expects Righteousness
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -48,7 +48,7 @@ We *believe,* and it is our testimony, and we proclaim it to the world, “that 
 
 We *know,* and it is our testimony, and we proclaim it to the world, that to be saved men must “believe that salvation was, and is, and is to come, in and through the atoning blood of Christ, the Lord Omnipotent.” ([[Mosiah 3.18|Mosiah 3:18]].)
 
-“And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins.” ([[2 Nephi 25.26|2 Ne. 25:26]].)
+“And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins.” ([[2 Nephi 25.26|2 Ne. 25:26]].)
 
 For the past century and a half since the Restoration, beginning with the Prophet Joseph Smith, the latter-day prophets of God have raised their voices in clarity and with authority and truth as they have borne their testimonies of the divinity of this great latter-day work and the redemptive power of the gospel of Jesus Christ.
 
@@ -59,6 +59,4 @@ As we begin this conference let us wait upon the Lord for His blessing and His d
 
 
 
-
-
-#Jesus_Christ #Missionary_Work
+#JesusChrist #MissionaryWork

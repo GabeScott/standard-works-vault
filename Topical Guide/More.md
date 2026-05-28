@@ -1,6 +1,5 @@
 # More
 
-
 whatsoever is *more* than these cometh of evil, [[Matthew 5.37|Matthew 5:37]].
 
 loveth father or mother *more* than me is not worthy, [[Matthew 10.37|Matthew 10:37]].
@@ -15,4 +14,4 @@ in the gift of his Son hath God prepared a *more* excellent way, [[Ether 12.11|E
 
 whatsoever is *more* or less than this is the spirit of that wicked one, [[D&C 93.25|D&C 93:25]].
 
-that which is *more* or less ... shall be attended with cursings, [[D&C 124.120|D&C 124:120]].
+that which is *more* or less … shall be attended with cursings, [[D&C 124.120|D&C 124:120]].

@@ -1,6 +1,6 @@
 # The Governing Ones
 
-By Elder William R. Bradford - *Of the First Quorum of the Seventy*
+By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -69,8 +69,6 @@ The time must quickly come when, as the governing ones, we fully shoulder our re
 Brethren, in some things there remains a considerable distance between what we are and what we should become.
 
 That we may understand and fulfill our roles as the governing ones, in lockstep with our living prophet, who is the mouthpiece of God, I plead, in the name of Jesus Christ, the Master, amen.
-
-
 
 
 

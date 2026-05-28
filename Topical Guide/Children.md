@@ -1,7 +1,6 @@
 # Children
 
-
-*See also* [[Barren, Barrenness.md|Barren]]; [[Birth Control.md|Birth Control]]; [[Child.md|Child]]; [[Children of Light.md|Children of Light]]; [[Conceived in Sin.md|Conceived in Sin]]; [[Education.md|Education]]; [[Family.md|Family]]; [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Family, Love within.md|Family, Love within]]; [[Family, Patriarchal.md|Family, Patriarchal]]; [[Honoring Father and Mother.md|Honoring Father and Mother]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Salvation of Little Children.md|Salvation of Little Children]]
+*See also* [[Barren.md|Barren]]; [[Birth Control.md|Birth Control]]; [[Child.md|Child]]; [[Children of Light.md|Children of Light]]; [[Conceived in Sin.md|Conceived in Sin]]; [[Education.md|Education]]; [[Family.md|Family]]; [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Family, Love within.md|Family, Love within]]; [[Family, Patriarchal.md|Family, Patriarchal]]; [[Honoring Father and Mother.md|Honoring Father and Mother]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Salvation of Little Children.md|Salvation of Little Children]]
 
 Be fruitful, and *multiply*, and replenish the earth, [[Genesis 1.28|Genesis 1:28]].
 
@@ -11,7 +10,7 @@ when Rachel saw that she bare Jacob no *children*, [[Genesis 30.1|Genesis 30:1]]
 
 visiting the iniquity of the fathers upon the *children*, [[Exodus 20.5|Exodus 20:5]] ([[Exodus 34.7|Exodus 34:7]]; [[Numbers 14.18|Numbers 14:18]]; [[Deuteronomy 5.9|Deuteronomy 5:9]]).
 
-that they may teach their *children*, [[Deuteronomy 4.10|Deuteronomy 4:10]] ([[Deuteronomy 11.19|11:19-21]][[Deuteronomy 11.20|]][[Deuteronomy 11.21|]]).
+that they may teach their *children*, [[Deuteronomy 4.10|Deuteronomy 4:10]].
 
 shalt teach them diligently unto thy *children*, [[Deuteronomy 6.7|Deuteronomy 6:7]].
 
@@ -23,9 +22,9 @@ when your *children* ask their fathers, [[Joshua 4.6|Joshua 4:6]].
 
 ye shall let your *children* know, [[Joshua 4.22|Joshua 4:22]].
 
-two she bears ... tare forty and two *children* of them, [[2 Kings 2.24|2 Kings 2:24]].
+two she bears … tare forty and two *children* of them, [[2 Kings 2.24|2 Kings 2:24]].
 
-Out of the mouth of *babes* ... hast thou ordained strength, [[Psalms 8.2|Psalms 8:2]].
+Out of the mouth of *babes* … hast thou ordained strength, [[Psalms 8.2|Psalms 8:2]].
 
 you are *children* of the most High, [[Psalms 82.6|Psalms 82:6]].
 
@@ -57,11 +56,11 @@ they are my people, *children* that will not lie, [[Isaiah 63.8|Isaiah 63:8]].
 
 as Zion travailed, she brought forth her *children*, [[Isaiah 66.8|Isaiah 66:8]].
 
-the *children's* teeth are set on edge, [[Jeremiah 31.29|Jeremiah 31:29]] ([[Ezekiel 18.2|Ezekiel 18:2]]).
+the *children’s* teeth are set on edge, [[Jeremiah 31.29|Jeremiah 31:29]] ([[Ezekiel 18.2|Ezekiel 18:2]]).
 
 *Children* in whom was no blemish, [[Daniel 1.4|Daniel 1:4]].
 
-turn ... the heart of the *children* to their fathers, [[Malachi 4.6|Malachi 4:6]] ([[Luke 1.17|Luke 1:17]];; [[D&C 98.16|D&C 98:16]]; [[Joseph Smith History 1.39|Joseph Smith History 1:39]]).
+turn … the heart of the *children* to their fathers, [[Malachi 4.6|Malachi 4:6]] ([[Luke 1.17|Luke 1:17]]; [[D&C 98.16|D&C 98:16]]; [[Joseph Smith History 1.39|Joseph Smith History 1:39]]).
 
 slew all the *children* that were in Bethlehem, [[Matthew 2.16|Matthew 2:16]].
 
@@ -69,7 +68,7 @@ Rachel weeping for her *children*, [[Matthew 2.18|Matthew 2:18]].
 
 stones to raise up *children* unto Abraham, [[Matthew 3.9|Matthew 3:9]] ([[Luke 3.8|Luke 3:8]]).
 
-peacemakers ... shall be called the *children* of God, [[Matthew 5.9|Matthew 5:9]] ([[3 Nephi 12.9|3 Nephi 12:9]]).
+peacemakers … shall be called the *children* of God, [[Matthew 5.9|Matthew 5:9]] ([[3 Nephi 12.9|3 Nephi 12:9]]).
 
 That ye may be the *children* of your Father, [[Matthew 5.45|Matthew 5:45]].
 
@@ -83,11 +82,11 @@ to give good gifts unto your *children*, [[Matthew 7.11|Matthew 7:11]] ([[Luke 1
 
 wisdom is justified of her *children*, [[Matthew 11.19|Matthew 11:19]].
 
-Except ye ... become as little *children*, [[Matthew 18.3|Matthew 18:3]].
+Except ye … become as little *children*, [[Matthew 18.3|Matthew 18:3]].
 
 despise not one of these *little ones*, [[Matthew 18.10|Matthew 18:10]].
 
-not the will of your Father ... that one of these *little ones* should perish, [[Matthew 18.14|Matthew 18:14]].
+not the will of your Father … that one of these *little ones* should perish, [[Matthew 18.14|Matthew 18:14]].
 
 Suffer little *children*, and forbid them not, [[Matthew 19.14|Matthew 19:14]] ([[Mark 10.14|Mark 10:14]]; [[Luke 18.16|Luke 18:16]]).
 
@@ -99,7 +98,7 @@ ye shall be the *children* of the Highest, [[Luke 6.35|Luke 6:35]].
 
 *children* of God, being the *children* of the resurrection, [[Luke 20.36|Luke 20:36]].
 
-If ye were Abraham's *children*, [[John 8.39|John 8:39]].
+If ye were Abraham’s *children*, [[John 8.39|John 8:39]].
 
 he should gather together in one the *children* of God, [[John 11.52|John 11:52]].
 
@@ -131,9 +130,9 @@ charged every one of you, as a father doth his *children*, [[1 Thessalonians 2.1
 
 ruleth well his own house, having his *children* in subjection with all gravity, [[1 Timothy 3.4|1 Timothy 3:4]].
 
-*children* ... learn first to shew piety at home, [[1 Timothy 5.4|1 Timothy 5:4]].
+*children* … learn first to shew piety at home, [[1 Timothy 5.4|1 Timothy 5:4]].
 
-teach the young women ... to love their *children*, [[Titus 2.4|Titus 2:4]].
+teach the young women … to love their *children*, [[Titus 2.4|Titus 2:4]].
 
 As obedient *children*, not fashioning yourselves, [[1 Peter 1.14|1 Peter 1:14]].
 
@@ -149,9 +148,9 @@ he hath created his *children* that they should possess it, [[1 Nephi 17.36|1 Ne
 
 they would have had no *children*, [[2 Nephi 2.23|2 Nephi 2:23]].
 
-learning and ... profit of my *children*, [[2 Nephi 4.15|2 Nephi 4:15]].
+learning and … profit of my *children*, [[2 Nephi 4.15|2 Nephi 4:15]].
 
-we write ... that our *children* may know, [[2 Nephi 25.26|2 Nephi 25:26]].
+we write … that our *children* may know, [[2 Nephi 25.26|2 Nephi 25:26]].
 
 lost the confidence of your *children*, [[Jacob 2.35|Jacob 2:35]].
 
@@ -171,11 +170,11 @@ little *children* do have words given unto them, [[Alma 32.23|Alma 32:23]].
 
 commanded that their little *children* should be brought, [[3 Nephi 17.11|3 Nephi 17:11]].
 
-took their little *children* ... and blessed, [[3 Nephi 17.21|3 Nephi 17:21]].
+took their little *children* … and blessed, [[3 Nephi 17.21|3 Nephi 17:21]].
 
-angels ... encircled those *little ones*, [[3 Nephi 17.24|3 Nephi 17:24]].
+angels … encircled those *little ones*, [[3 Nephi 17.24|3 Nephi 17:24]].
 
-Pray ... that your wives and your *children* may be blessed, [[3 Nephi 18.21|3 Nephi 18:21]].
+Pray … that your wives and your *children* may be blessed, [[3 Nephi 18.21|3 Nephi 18:21]].
 
 all thy *children* shall be taught of the Lord, [[3 Nephi 22.13|3 Nephi 22:13]].
 
@@ -189,11 +188,11 @@ little *children* need no repentance, neither baptism, [[Moroni 8.11|Moroni 8:11
 
 *children* who have arrived at the years of accountability, [[D&C 18.42|D&C 18:42]].
 
-*children* ... bring them unto the elders, [[D&C 20.70|D&C 20:70]].
+*children* … bring them unto the elders, [[D&C 20.70|D&C 20:70]].
 
 *children* are redeemed from the foundation of the world, [[D&C 29.46|D&C 29:46]].
 
-*children* shall grow up without sin unto salvation, [[D&C 45.58|D&C 45:58]] ([[D&C 45.54|45:54-58]][[D&C 45.55|]][[D&C 45.56|]][[D&C 45.57|]][[D&C 45.58|]]).
+*children* shall grow up without sin unto salvation, [[D&C 45.58|D&C 45:58]].
 
 Fear not, little *children*, for you are mine, [[D&C 50.41|D&C 50:41]].
 
@@ -201,7 +200,7 @@ little *children* also may receive instruction, [[D&C 55.4|D&C 55:4]].
 
 *children* shall grow up until they become old, [[D&C 63.51|D&C 63:51]].
 
-parents have *children* ... that teach them not to understand, [[D&C 68.25|D&C 68:25]].
+parents have *children* … that teach them not to understand, [[D&C 68.25|D&C 68:25]].
 
 *children* are also growing up in wickedness, [[D&C 68.31|D&C 68:31]].
 
@@ -215,13 +214,13 @@ bring up your *children* in light, [[D&C 93.40|D&C 93:40]].
 
 if the *children* shall repent, [[D&C 98.47|D&C 98:47]].
 
-a welding link ... between the fathers and the *children*, [[D&C 128.18|D&C 128:18]].
+a welding link … between the fathers and the *children*, [[D&C 128.18|D&C 128:18]].
 
 *children* who die before they arrive at the years, [[D&C 137.10|D&C 137:10]].
 
 their *children* were taught to read and write, [[Moses 6.6|Moses 6:6]].
 
-atoned for original guilt ... of the *children*, [[Moses 6.54|Moses 6:54]].
+atoned for original guilt … of the *children*, [[Moses 6.54|Moses 6:54]].
 
 teach these things freely unto your *children*, [[Moses 6.58|Moses 6:58]].
 

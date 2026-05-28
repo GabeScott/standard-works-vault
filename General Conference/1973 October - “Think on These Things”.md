@@ -1,6 +1,6 @@
 # “Think on These Things”
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -26,31 +26,31 @@ I think the Latter-day Saints have a great obligation pressing in upon them to r
 
 Now for a text I take these words of Isaiah, words which he addressed to us, to the House of Israel, to the members of the Lord’s Kingdom. He asked:
 
-“… Who among us shall dwell with the devouring fire? who among us shall dwell with everlasting burnings?” ([[Isaiah 33.14|Isa. 33:14]].)
+“… Who among us shall dwell with the devouring fire? who among us shall dwell with everlasting burnings?” ([[Isaiah 33.14|Isa. 33:14]].)
 
 That is, who in the Church shall gain an inheritance in the celestial kingdom? Who will go where God and Christ and holy beings are? Who will overcome the world, work the works of righteousness, and enduring in faith and devotion to the end hear the blessed benediction, “Come, and inherit the kingdom of my Father.”
 
 Isaiah answers:
 
-“He that walketh righteously, and speaketh uprightly; he that despiseth the gain of oppressions, that shaketh his hands from holding of bribes, that stoppeth his ears from hearing of blood, and shutteth his eyes from seeing evil; He shall dwell on high. …” ([[Isaiah 33.15|Isa. 33:15–16]][[Isaiah 33.16|]].)
+“He that walketh righteously, and speaketh uprightly; he that despiseth the gain of oppressions, that shaketh his hands from holding of bribes, that stoppeth his ears from hearing of blood, and shutteth his eyes from seeing evil; He shall dwell on high. …” ([[Isaiah 33.15|Isa. 33:15–16]][[Isaiah 33.16|]].)
 
 Now if I may, I shall take these words of Isaiah, spoken by the power of the Holy Ghost in the first instance, and give some indication as to how they apply to us and our circumstances.
 
 First, “He that walketh righteously, and speaketh uprightly.” That is, building on the atoning sacrifice of the Lord Jesus Christ, we must keep the commandments. We must speak the truth and work the works of righteousness. We shall be judged by our thoughts, our words and our deeds.
 
-Second, “… he that despiseth the gain of oppressions.” That is, we must act with equity and justice toward our fellowmen. It is the Lord himself who said that he, at the day of his coming, will be a swift witness against those that oppress the hireling in his wages.
+Second, “… he that despiseth the gain of oppressions.” That is, we must act with equity and justice toward our fellowmen. It is the Lord himself who said that he, at the day of his coming, will be a swift witness against those that oppress the hireling in his wages.
 
-Third, “… he that shaketh his hands from holding of bribes.” That is, we must reject every effort to buy influence, and instead deal fairly and impartially with our fellowmen. God is no respecter of persons. He esteemeth all flesh alike; and those only who keep his commandments find special favor with him. Salvation is free; it cannot be purchased with money; and those only are saved who abide the law upon which its receipt is predicated. Bribery is of the world.
+Third, “… he that shaketh his hands from holding of bribes.” That is, we must reject every effort to buy influence, and instead deal fairly and impartially with our fellowmen. God is no respecter of persons. He esteemeth all flesh alike; and those only who keep his commandments find special favor with him. Salvation is free; it cannot be purchased with money; and those only are saved who abide the law upon which its receipt is predicated. Bribery is of the world.
 
-Fourth, he “… that stoppeth his ears from hearing of blood, and shutteth his eyes from seeing evil.” That is, we must not center our attention on evil and wickedness. We must cease to find fault and look for good in government and in the world. We must take an affirmative, wholesome approach to all things.
+Fourth, he “… that stoppeth his ears from hearing of blood, and shutteth his eyes from seeing evil.” That is, we must not center our attention on evil and wickedness. We must cease to find fault and look for good in government and in the world. We must take an affirmative, wholesome approach to all things.
 
-There is an eternal law, ordained by God himself before the foundations of the world, that every man shall reap as he sows. If we think evil thoughts, our tongues will utter unclean sayings. If we speak words of wickedness, we shall end up doing the works of wickedness. If our minds are centered on the carnality and evil of the world, then worldliness and unrighteousness will seem to us to be the normal way of life. If we ponder things related to sex immorality in our minds, we will soon think everybody is immoral and unclean and it will break down the barrier between us and the world. And so with every other unwholesome, unclean, impure, and ungodly course. And so it is that the Lord says he hates and esteems as an abomination, “an heart that deviseth wicked imaginations. …” ([[Proverbs 6.18|Prov. 6:18]].)
+There is an eternal law, ordained by God himself before the foundations of the world, that every man shall reap as he sows. If we think evil thoughts, our tongues will utter unclean sayings. If we speak words of wickedness, we shall end up doing the works of wickedness. If our minds are centered on the carnality and evil of the world, then worldliness and unrighteousness will seem to us to be the normal way of life. If we ponder things related to sex immorality in our minds, we will soon think everybody is immoral and unclean and it will break down the barrier between us and the world. And so with every other unwholesome, unclean, impure, and ungodly course. And so it is that the Lord says he hates and esteems as an abomination, “an heart that deviseth wicked imaginations. …” ([[Proverbs 6.18|Prov. 6:18]].)
 
-On the other hand, if we are pondering in our hearts the things of righteousness, we shall become righteous. If virtue garnishes our thoughts unceasingly, our confidence shall wax strong in the presence of God and he in turn will rain down righteousness upon us. Truly as Jacob said, “… to be carnally-minded is death, and to be spiritually-minded is life eternal.” ([[2 Nephi 9.39|2 Ne. 9:39]].) And as Paul said, “Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap. For he that soweth to his flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the Spirit reap life everlasting.” ([[Galatians 6.7|Gal. 6:7–8]][[Galatians 6.8|]].)
+On the other hand, if we are pondering in our hearts the things of righteousness, we shall become righteous. If virtue garnishes our thoughts unceasingly, our confidence shall wax strong in the presence of God and he in turn will rain down righteousness upon us. Truly as Jacob said, “… to be carnally-minded is death, and to be spiritually-minded is life eternal.” ([[2 Nephi 9.39|2 Ne. 9:39]].) And as Paul said, “Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap. For he that soweth to his flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the Spirit reap life everlasting.” ([[Galatians 6.7|Gal. 6:7–8]][[Galatians 6.8|]].)
 
 And yet again from Paul:
 
-“… whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report; if there be any virtue, and if there be any praise, think on these things.” ([[Philippians 4.8|Philip. 4:8]].)
+“… whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report; if there be any virtue, and if there be any praise, think on these things.” ([[Philippians 4.8|Philip. 4:8]].)
 
 To enable us to keep our minds centered on righteousness, we should consciously elect to ponder the truths of salvation in our hearts. Brother Packer yesterday pleaded with eloquence that we sing the songs of Zion in order to center our thoughts on wholesome things. I would like to add that we can also—after we have had the opening song—call on ourselves to preach a sermon. I have preached many sermons walking along congested city streets, or tramping desert trails, or in lonely places, thus centering my mind on the Lord’s affairs and the things of righteousness; and I might say they have been better sermons than I have ever preached to congregations.
 
@@ -81,8 +81,6 @@ When I think that the Lord has a living oracle guiding his earthly kingdom, and 
 >
 
 And we have the promise that if we seek him with full purpose of heart, keeping his commandments and walking uprightly before him, we shall indeed see his face and eventually be inheritors with him of eternal life in his Father’s kingdom. Of this I testify, and for this I pray for all of us, in the name of Jesus Christ. Amen.
-
-
 
 
 

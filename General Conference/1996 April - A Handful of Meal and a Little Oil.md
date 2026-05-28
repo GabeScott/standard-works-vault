@@ -60,7 +60,7 @@ Furthermore, I know that a talk in general conference is not going to cut throug
 
 “And thus, in their prosperous circumstances, they did not send away any who were naked, or that were hungry, or that were athirst, or that were sick, or that had not been nourished; and they did not set their hearts upon riches; therefore they were liberal to all, both old and young, both bond and free, both male and female, whether out of the church or in the church, having no respect to persons as to those who stood in need.”[^15]
 
-How much that passage from the first chapter of Alma sounds like the wonder that was Nauvoo. Said the Prophet Joseph in that blessed time: “Respecting how much a man … shall give … we have no special instructions … ; he is to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other, or in no church at all, wherever he finds them.”[^16]
+How much that passage from the first chapter of Alma sounds like the wonder that was Nauvoo. Said the Prophet Joseph in that blessed time: “Respecting how much a man … shall give … we have no special instructions … ; he is to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other, or in no church at all, wherever he finds them.”[^16]
 
 Remember what the Book of Mormon taught us. It is difficult enough to be poor in material goods, but the greater pain is in the heavy heart, the dwindling hope, the damaged dreams, the parental anguish, the childhood disappointment that almost always attend such circumstances.
 
@@ -77,11 +77,11 @@ May God, who has blessed all of us so mercifully and many of us so abundantly, b
 
 
 
-[^1]: See [[1 Kings 17.1|1 Kgs. 17:1–24]][[1 Kings 17.2|]][[1 Kings 17.3|]][[1 Kings 17.4|]][[1 Kings 17.5|]][[1 Kings 17.6|]][[1 Kings 17.7|]][[1 Kings 17.8|]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]][[1 Kings 17.17|]][[1 Kings 17.18|]][[1 Kings 17.19|]][[1 Kings 17.20|]][[1 Kings 17.21|]][[1 Kings 17.22|]][[1 Kings 17.23|]][[1 Kings 17.24|]].
+[^1]: See [[1 Kings 17.1|1 Kgs. 17:1–24]][[1 Kings 17.2|]][[1 Kings 17.3|]][[1 Kings 17.4|]][[1 Kings 17.5|]][[1 Kings 17.6|]][[1 Kings 17.7|]][[1 Kings 17.8|]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]][[1 Kings 17.17|]][[1 Kings 17.18|]][[1 Kings 17.19|]][[1 Kings 17.20|]][[1 Kings 17.21|]][[1 Kings 17.22|]][[1 Kings 17.23|]][[1 Kings 17.24|]].
 
 [^2]: See [[Mark 12.41|Mark 12:41–44]][[Mark 12.42|]][[Mark 12.43|]][[Mark 12.44|]].
 
-[^3]: [[1 Timothy 1.5|1 Tim. 1:5]].
+[^3]: [[1 Timothy 1.5|1 Tim. 1:5]].
 
 [^4]: See [[D&C 58.11|D&C 58:11]].
 
@@ -95,7 +95,7 @@ May God, who has blessed all of us so mercifully and many of us so abundantly, b
 
 [^9]: [[Mosiah 4.21|Mosiah 4:21, 16, 19, 26]][[Mosiah 4.16|]][[Mosiah 4.19|]][[Mosiah 4.26|]].
 
-[^10]: [[4 Nephi 1.2|4 Ne. 1:2–3]][[4 Nephi 1.3|]].
+[^10]: [[4 Nephi 1.2|4 Ne. 1:2–3]][[4 Nephi 1.3|]].
 
 [^11]: [[Moses 7.18|Moses 7:18]].
 
@@ -111,6 +111,4 @@ May God, who has blessed all of us so mercifully and many of us so abundantly, b
 
 [^17]: Drusilla Dorris Hendricks, “Historical Sketch of James Hendricks and Drusilla Dorris Hendricks,” Historical Department, Archives Division, The Church of Jesus Christ of Latter-day Saints, Salt Lake City, typescript, 19–23.
 
-
-
-#Atonement #Faith #Generosity #Holy_Ghost #Jesus_Christ #Neighbors
+#Atonement #Faith #Generosity #HolyGhost #JesusChrist #Neighbors

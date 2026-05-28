@@ -1,6 +1,6 @@
 # All May Share in Adam’s Blessing
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -16,7 +16,7 @@ In the next chapter we read:
 
 “Now this same Priesthood, which was in the beginning, shall be in the end of the world also.
 
-“Now this prophecy Adam spake, as he was moved upon by the Holy Ghost, and a genealogy was kept of the children of God. …” ([[Moses 6.7|Moses 6:7–8]][[Moses 6.8|]].)
+“Now this prophecy Adam spake, as he was moved upon by the Holy Ghost, and a genealogy was kept of the children of God. …” ([[Moses 6.7|Moses 6:7–8]][[Moses 6.8|]].)
 
 This became the record of the royal seed, which is a record in part, at least, of the fulfillment of this promise. This we have today, at least in part, which is known as the Bible.
 
@@ -58,7 +58,7 @@ The last dispensation is to be the dispensation of the fulness of times. Apostle
 
 “That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him.” ([[Ephesians 1.9|Eph. 1:9–10]][[Ephesians 1.10|]].)
 
-The Prophet Joseph Smith put it this way: “… that the dispensation of the fulness of times is made up of all the dispensations that ever have been given since the world began, until this time” (Franklin D. Richards, *Compendium,* 1898, p. 143), this being the time referred to as the end of time to prepare for the coming of the millennial reign of the Lord Jesus Christ on this earth.
+The Prophet Joseph Smith put it this way: “… that the dispensation of the fulness of times is made up of all the dispensations that ever have been given since the world began, until this time” (Franklin D. Richards, *Compendium,* 1898, p. 143), this being the time referred to as the end of time to prepare for the coming of the millennial reign of the Lord Jesus Christ on this earth.
 
 I testify to you—this is that time. The gospel of Jesus Christ is here now, with all the keys of the priesthood, to open the way for his coming.
 
@@ -71,6 +71,4 @@ We invite all to hear, accept, and embrace this gospel. This invitation is to al
 
 
 
-
-
-#Last_Days #Patriarchal_Blessings
+#LastDays #PatriarchalBlessings

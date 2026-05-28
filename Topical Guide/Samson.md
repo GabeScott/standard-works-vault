@@ -1,4 +1,3 @@
 # Samson
 
-
-*See* [BD Samson](https://www.churchofjesuschrist.org/study/scriptures/bd/samson?lang=eng)
+*See also* [[BD Samson.md|BD Samson]]

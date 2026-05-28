@@ -1,6 +1,6 @@
 # Put Ye On the Lord Jesus Christ
 
-By Sister J. Anette Dennis - *First Counselor in the Relief Society General Presidency*
+By Sister J. Anette Dennis - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -18,7 +18,7 @@ When God the Father offered His Only Begotten Son as a sacrifice for us, Jesus C
 
 We have the privilege and blessing of being invited into a covenant relationship with God, in which our own lives can become a symbol of that covenant. Covenants create the kind of relationship that allows God to mold and change us over time and lift us to become more like the Savior, drawing us closer and closer to Him and our Father[^9] and eventually preparing us to enter Their presence.
 
-Each person on earth is a beloved son or daughter of God.[^10] When we choose to be part of a covenant, it enhances and deepens our relationship with Him. President Russell M. Nelson has taught that when we choose to make covenants with God, our relationship with Him can become much closer than it was before our covenant, and it enables Him to bless us with an extra measure of His mercy and love, a covenantal love referred to as *hesed* in the Hebrew language.[^11] The covenant path is all about our relationship with God—our *hesed* relationship with Him.[^12]
+Each person on earth is a beloved son or daughter of God.[^10] When we choose to be part of a covenant, it enhances and deepens our relationship with Him. President Russell M. Nelson has taught that when we choose to make covenants with God, our relationship with Him can become much closer than it was before our covenant, and it enables Him to bless us with an extra measure of His mercy and love, a covenantal love referred to as *hesed* in the Hebrew language.[^11] The covenant path is all about our relationship with God—our *hesed* relationship with Him.[^12]
 
 Our Father wants a deeper relationship with all His sons and daughters,[^13] but it is our choice. As we choose to draw nearer to Him through a *covenant* relationship, it allows Him to draw nearer to us[^14] and more fully bless us.
 
@@ -50,7 +50,7 @@ As I keep my covenants and obligations with God, including wearing the garment o
 
 If you have not yet done so, I invite you to choose a deeper relationship with God by making covenants with Him in the house of the Lord. Study the talks of our prophet (including the beautiful teachings in the footnotes of his talks, which most conference talks have). He has spoken repeatedly about covenants for years and especially since becoming President of the Church. Learn from his teachings about the beautiful blessings and increased power and capacity that can be yours through making and keeping covenants with God.[^43]
 
-The *General Handbook* states that it is not required to have a mission call or be engaged to be married to make temple covenants.[^44] A person must be at least 18 years old, no longer be attending high school or the equivalent, and be a member of the Church for at least one year. There are also standards of personal holiness required.[^45] If you have the desire to deepen your relationship with your Father in Heaven and Jesus Christ by making sacred covenants in the house of the Lord, I invite you to speak with your bishop or branch president and let him know of your desires. He will help you know how to prepare to receive and honor those covenants.
+The *General Handbook* states that it is not required to have a mission call or be engaged to be married to make temple covenants.[^44] A person must be at least 18 years old, no longer be attending high school or the equivalent, and be a member of the Church for at least one year. There are also standards of personal holiness required.[^45] If you have the desire to deepen your relationship with your Father in Heaven and Jesus Christ by making sacred covenants in the house of the Lord, I invite you to speak with your bishop or branch president and let him know of your desires. He will help you know how to prepare to receive and honor those covenants.
 
 Through a covenant relationship with God, our own lives can become a living symbol of our commitment to and deep love for our Father in Heaven, our *hesed* for Him,[^46] and our desire to progress and eventually become like our Savior, being prepared to one day enter Their presence. I testify that the great blessings of that covenant relationship are well worth the price. In the name of Jesus Christ, amen.
 
@@ -71,31 +71,31 @@ Through a covenant relationship with God, our own lives can become a living symb
 
 [^7]: See [[John 3.16|John 3:16–17]][[John 3.17|]].
 
-[^8]: See [[John 1.29|John 1:29]]; [[1 Nephi 11.20|1 Nephi 11:20–22]][[1 Nephi 11.21|]][[1 Nephi 11.22|]]; see also Russell M. Nelson, “[[1996 October - The Atonement.md|The Atonement]],” *Ensign*, Nov. 1996, 34–35.
+[^8]: See [[John 1.29|John 1:29]]; [[1 Nephi 11.20|1 Nephi 11:20–22]][[1 Nephi 11.21|]][[1 Nephi 11.22|]]; see also Russell M. Nelson, “[[1996 October - The Atonement.md|The Atonement]],” *Ensign*, Nov. 1996, 34–35.
 
-[^9]: “By entering into a covenant with us, God not only binds us to Him, but it is as if He straps us on His back and takes us where only He can go” (Kerry Muhlestein, *God Will Prevail: Ancient Covenants, Modern Blessings, and the Gathering of Israel* \[2021\], 8). See [[D&C 133.53|Doctrine and Covenants 133:53]].
+[^9]: “By entering into a covenant with us, God not only binds us to Him, but it is as if He straps us on His back and takes us where only He can go” (Kerry Muhlestein, *God Will Prevail: Ancient Covenants, Modern Blessings, and the Gathering of Israel* \[2021\], 8). See [[D&C 133.53|Doctrine and Covenants 133:53]].
 
-[^10]: “All human beings—male and female—are created in the image of God. Each is a beloved spirit son or daughter of heavenly parents, and, as such, each has a divine nature and destiny” (“[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library).
+[^10]: “All human beings—male and female—are created in the image of God. Each is a beloved spirit son or daughter of heavenly parents, and, as such, each has a divine nature and destiny” (“[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library).
 
-[^11]: “*Hesed* is a … term describing a covenant relationship in which both parties are bound to be loyal and faithful to each other. … Because God has *hesed* for those who have covenanted with Him, … He will continue to work with them and offer them opportunities to change. … And should they stray, He will help them find their way back to Him,” just as He did time and time again with His covenant people in Old Testament times. “When we enter a covenant with God, we have made a covenant with Him who will always keep His word. He will do everything He can, without infringing on our agency, to help us keep ours” (Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p10,13,57#p10),” *Liahona*, Oct. 2022, 6, 11; see also Muhlestein, *God Will Prevail*, 9–12; [[Deuteronomy 7.9|Deuteronomy 7:9]]).
+[^11]: “*Hesed* is a … term describing a covenant relationship in which both parties are bound to be loyal and faithful to each other. … Because God has *hesed* for those who have covenanted with Him, … He will continue to work with them and offer them opportunities to change. … And should they stray, He will help them find their way back to Him,” just as He did time and time again with His covenant people in Old Testament times. “When we enter a covenant with God, we have made a covenant with Him who will always keep His word. He will do everything He can, without infringing on our agency, to help us keep ours” (Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p10,13,57#p10),” *Liahona*, Oct. 2022, 6, 11; see also Muhlestein, *God Will Prevail*, 9–12; [[Deuteronomy 7.9|Deuteronomy 7:9]]).
 
-[^12]: God will never abandon His covenant relationships. “He will never tire in His efforts to help us, and we will never exhaust His merciful patience with us” (Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p14#p14),” 6). We are joyfully bound together through an everlasting covenant.
+[^12]: God will never abandon His covenant relationships. “He will never tire in His efforts to help us, and we will never exhaust His merciful patience with us” (Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p14#p14),” 6). We are joyfully bound together through an everlasting covenant.
 
-[^13]: See [[Jeremiah 31.33|Jeremiah 31:33]]; [[1 Nephi 17.40|1 Nephi 17:40]]; Russell M. Nelson, “[Let God Prevail](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p14#p14),” *Ensign* or *Liahona*, Nov. 2020, 92.
+[^13]: See [[Jeremiah 31.33|Jeremiah 31:33]]; [[1 Nephi 17.40|1 Nephi 17:40]]; Russell M. Nelson, “[Let God Prevail](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p14#p14),” *Ensign* or *Liahona*, Nov. 2020, 92.
 
 [^14]: See [[James 4.8|James 4:8]]; [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-[^15]: See Russell M. Nelson, “[[2011 October - Covenants.md|Covenants]],” *Ensign* or *Liahona*, Nov. 2011, 86.
+[^15]: See Russell M. Nelson, “[[2011 October - Covenants.md|Covenants]],” *Ensign* or *Liahona*, Nov. 2011, 86.
 
 [^16]: See [[Mosiah 5.5|Mosiah 5:5]]; [[Mosiah 18.8|18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]].
 
-[^17]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 77; Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94; Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96*; *Camille N. Johnson, “[[2023 April - Jesus Christ Is Relief.md|Jesus Christ Is Relief]],” *Liahona*, May 2023, 82; Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power through Covenants]],” *Liahona*, May 2023, 35–37; Jean B. Bingham, “[[2022 April - Covenants with God Strengthen, Protect, and Prepare Us for Eternal Glory.md|Covenants with God Strengthen, Protect, and Prepare Us for Eternal Glory]],” *Liahona*, May 2022, 66.
+[^17]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 77; Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94; Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96*; *Camille N. Johnson, “[[2023 April - Jesus Christ Is Relief.md|Jesus Christ Is Relief]],” *Liahona*, May 2023, 82; Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power through Covenants]],” *Liahona*, May 2023, 35–37; Jean B. Bingham, “[[2022 April - Covenants with God Strengthen, Protect, and Prepare Us for Eternal Glory.md|Covenants with God Strengthen, Protect, and Prepare Us for Eternal Glory]],” *Liahona*, May 2022, 66.
 
-[^18]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p19#p19),” 7.
+[^18]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p19#p19),” 7.
 
 [^19]: See [[Romans 6.3|Romans 6:3–4]][[Romans 6.4|]]; [[Colossians 2.12|Colossians 2:12]].
 
-[^20]: See [[2 Nephi 31.13|2 Nephi 31:13]]; [[Moroni 6.3|Moroni 6:3]]; [[D&C 20.77|Doctrine and Covenants 20:77]].
+[^20]: See [[2 Nephi 31.13|2 Nephi 31:13]]; [[Moroni 6.3|Moroni 6:3]]; [[D&C 20.77|Doctrine and Covenants 20:77]].
 
 [^21]: [[Galatians 3.27|Galatians 3:27]].
 
@@ -103,52 +103,50 @@ Through a covenant relationship with God, our own lives can become a living symb
 
 [^23]: See [[John 6.56|John 6:56]].
 
-[^24]: President Russell M. Nelson said: “Often, I hear the expression that we partake of the sacrament to renew covenants made at baptism. While that’s true, it’s much more than that. I’ve made a new covenant. You have made new covenants” (in Dale G. Renlund, “[[2019 October - Unwavering Commitment to Jesus Christ.md|Unwavering Commitment to Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2019, 25, footnote 18).
+[^24]: President Russell M. Nelson said: “Often, I hear the expression that we partake of the sacrament to renew covenants made at baptism. While that’s true, it’s much more than that. I’ve made a new covenant. You have made new covenants” (in Dale G. Renlund, “[Unwavering Commitment to Jesus Christ](https://www.churchofjesuschrist.org/study/general-conference/2019/10/16renlund?lang=eng&id=note18#note18),” *Ensign* or *Liahona*, Nov. 2019, 25, footnote 18).
 
-[^25]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p45#p45),” 10.
+[^25]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p45#p45),” 10.
 
-[^26]: See Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” 93–94.
+[^26]: See Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” 93–94.
 
-[^27]: See [[2 Nephi 28.30|2 Nephi 28:30]].
+[^27]: See [[2 Nephi 28.30|2 Nephi 28:30]].
 
-[^28]: See “[Sacred Temple Clothing](https://churchofjesuschrist.org/study/video/sacred-temple-clothing/2020-01-0100-sacred-temple-clothing-1080p?lang=eng),” ChurchofJesusChrist.org.
+[^28]: See “[Sacred Temple Clothing](https://www.churchofjesuschrist.org/study/video/sacred-temple-clothing/2020-01-0100-sacred-temple-clothing-1080p?lang=eng),” ChurchofJesusChrist.org.
 
-[^29]: See [[Exodus 28.1|Exodus 28]][[Exodus 28.2|]][[Exodus 28.3|]][[Exodus 28.4|]][[Exodus 28.5|]][[Exodus 28.6|]][[Exodus 28.7|]][[Exodus 28.8|]][[Exodus 28.9|]][[Exodus 28.10|]][[Exodus 28.11|]][[Exodus 28.12|]][[Exodus 28.13|]][[Exodus 28.14|]][[Exodus 28.15|]][[Exodus 28.16|]][[Exodus 28.17|]][[Exodus 28.18|]][[Exodus 28.19|]][[Exodus 28.20|]][[Exodus 28.21|]][[Exodus 28.22|]][[Exodus 28.23|]][[Exodus 28.24|]][[Exodus 28.25|]][[Exodus 28.26|]][[Exodus 28.27|]][[Exodus 28.28|]][[Exodus 28.29|]][[Exodus 28.30|]][[Exodus 28.31|]][[Exodus 28.32|]][[Exodus 28.33|]][[Exodus 28.34|]][[Exodus 28.35|]][[Exodus 28.36|]][[Exodus 28.37|]][[Exodus 28.38|]][[Exodus 28.39|]][[Exodus 28.40|]][[Exodus 28.41|]][[Exodus 28.42|]][[Exodus 28.43|]]; [[Exodus 40.12|40:12–13]][[Exodus 40.13|]].
+[^29]: See [[Exodus 28.1|Exodus 28]][[Exodus 28.2|]][[Exodus 28.3|]][[Exodus 28.4|]][[Exodus 28.5|]][[Exodus 28.6|]][[Exodus 28.7|]][[Exodus 28.8|]][[Exodus 28.9|]][[Exodus 28.10|]][[Exodus 28.11|]][[Exodus 28.12|]][[Exodus 28.13|]][[Exodus 28.14|]][[Exodus 28.15|]][[Exodus 28.16|]][[Exodus 28.17|]][[Exodus 28.18|]][[Exodus 28.19|]][[Exodus 28.20|]][[Exodus 28.21|]][[Exodus 28.22|]][[Exodus 28.23|]][[Exodus 28.24|]][[Exodus 28.25|]][[Exodus 28.26|]][[Exodus 28.27|]][[Exodus 28.28|]][[Exodus 28.29|]][[Exodus 28.30|]][[Exodus 28.31|]][[Exodus 28.32|]][[Exodus 28.33|]][[Exodus 28.34|]][[Exodus 28.35|]][[Exodus 28.36|]][[Exodus 28.37|]][[Exodus 28.38|]][[Exodus 28.39|]][[Exodus 28.40|]][[Exodus 28.41|]][[Exodus 28.42|]][[Exodus 28.43|]]; [[Exodus 40.12|40:12–13]][[Exodus 40.13|]].
 
-[^30]: See “[Sacred Temple Clothing](https://churchofjesuschrist.org/study/video/sacred-temple-clothing/2020-01-0100-sacred-temple-clothing-1080p?lang=eng),” ChurchofJesusChrist.org.
+[^30]: See “[Sacred Temple Clothing](https://www.churchofjesuschrist.org/study/video/sacred-temple-clothing/2020-01-0100-sacred-temple-clothing-1080p?lang=eng),” ChurchofJesusChrist.org.
 
 [^31]: See [[Genesis 3.21|Genesis 3:21]].
 
-[^32]: See Russell M. Nelson, “[[1996 October - The Atonement.md|The Atonement]],” 34.
+[^32]: See Russell M. Nelson, “[[1996 October - The Atonement.md|The Atonement]],” 34.
 
-[^33]: [[Romans 13.12|Romans 13:12, 14]][[Romans 13.14|]].
+[^33]: [[Romans 13.12|Romans 13:12, 14]][[Romans 13.14|]].
 
 [^34]: See [[Ephesians 6.10|Ephesians 6:10–18]][[Ephesians 6.11|]][[Ephesians 6.12|]][[Ephesians 6.13|]][[Ephesians 6.14|]][[Ephesians 6.15|]][[Ephesians 6.16|]][[Ephesians 6.17|]][[Ephesians 6.18|]].
 
-[^35]: See [[Mosiah 24.13|Mosiah 24:13–15]][[Mosiah 24.14|]][[Mosiah 24.15|]]; David A. Bednar, “[[2014 April - Bear Up Their Burdens with Ease.md|Bear Up Their Burdens with Ease]],” *Ensign* or *Liahona*, May 2014, 88–89.
+[^35]: See [[Mosiah 24.13|Mosiah 24:13–15]][[Mosiah 24.14|]][[Mosiah 24.15|]]; David A. Bednar, “[[2014 April - Bear Up Their Burdens with Ease.md|Bear Up Their Burdens with Ease]],” *Ensign* or *Liahona*, May 2014, 88–89.
 
-[^36]: See [[Psalms 119.105|Psalm 119:105]]; [[1 Nephi 17.13|1 Nephi 17:13]].
+[^36]: See [[Psalms 119.105|Psalm 119:105]]; [[1 Nephi 17.13|1 Nephi 17:13]].
 
-[^37]: Elder Neal A. Maxwell taught, “The submission of one’s will is really the only uniquely personal thing we have to place on God’s altar” (“[[1995 October - “Swallowed Up in the Will of the Father”.md|Swallowed Up in the Will of the Father]],” *Ensign*, Nov. 1995, 24).
+[^37]: Elder Neal A. Maxwell taught, “The submission of one’s will is really the only uniquely personal thing we have to place on God’s altar” (“[[1995 October - “Swallowed Up in the Will of the Father”.md|Swallowed Up in the Will of the Father]],” *Ensign*, Nov. 1995, 24).
 
 [^38]: Not because of personal preference, inconvenience, or style, but because of certain medical conditions, for some people, wearing the garment is much more difficult. The Lord knows our hearts and understands our desires to honor our commitments with Him. See, for example, [[Mosiah 4.24|Mosiah 4:24–25]][[Mosiah 4.25|]].
 
-[^39]: We should not seek to judge others’ use of the temple garment. See [[Alma 41.14|Alma 41:14]]; see also Dieter F. Uchtdorf, “[[2012 April - The Merciful Obtain Mercy.md|The Merciful Obtain Mercy]],” *Ensign* or *Liahona*, May 2012, 70, 75.
+[^39]: We should not seek to judge others’ use of the temple garment. See [[Alma 41.14|Alma 41:14]]; see also Dieter F. Uchtdorf, “[[2012 April - The Merciful Obtain Mercy.md|The Merciful Obtain Mercy]],” *Ensign* or *Liahona*, May 2012, 70, 75.
 
-[^40]: See Jeffrey R. Holland, “[[2009 April - None Were with Him.md|None Were with Him]],” *Ensign* or *Liahona*, May 2009, 86–88.
+[^40]: See Jeffrey R. Holland, “[[2009 April - None Were with Him.md|None Were with Him]],” *Ensign* or *Liahona*, May 2009, 86–88.
 
 [^41]: See [[John 3.16|John 3:16–17]][[John 3.17|]]; [[John 15.12|15:12–13]][[John 15.13|]]; [[D&C 34.3|Doctrine and Covenants 34:3]].
 
 [^42]: See [[Isaiah 49.14|Isaiah 49:14–16]][[Isaiah 49.15|]][[Isaiah 49.16|]].
 
-[^43]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” 4–11; Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” 76–79; Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 92–95; Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” 93–96; Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 95–98; Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona*, Nov. 2015, 95–97.
+[^43]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” 4–11; Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” 76–79; Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 92–95; Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” 93–96; Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 95–98; Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona*, Nov. 2015, 95–97.
 
-[^44]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [26.5.1](https://churchofjesuschrist.org/study/manual/general-handbook/26-temple-recommends?lang=eng&id=title17#title17), [27.2.2](https://churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11), Gospel Library.
+[^44]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [26.5.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/26-temple-recommends?lang=eng&id=title17#title17), [27.2.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11), Gospel Library.
 
-[^45]: See Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2019, 121.
+[^45]: See Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2019, 121.
 
-[^46]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p57#p57),” 11.
+[^46]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p57#p57),” 11.
 
-
-
-#Baptism #Covenants #Discipleship #Jesus_Christ #Sacrament #Symbols #Temples
+#Baptism #Covenants #Discipleship #JesusChrist #Sacrament #Symbols #Temples

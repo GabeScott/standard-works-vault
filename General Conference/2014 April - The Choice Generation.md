@@ -1,6 +1,6 @@
 # The Choice Generation
 
-By Randall L. Ridd - *Second Counselor in the Young Men General Presidency*
+By Randall L. Ridd - *Second Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -10,17 +10,17 @@ By Randall L. Ridd - *Second Counselor in the Young Men General Presidency*
 
 Young men, you have probably heard before that you are a “chosen generation,” meaning that God chose and prepared you to come to earth at this time for a great purpose. I know this to be true. But this evening I would like to address you as the “choice generation” because never before in history have individuals been blessed with so many choices. More choices mean more opportunities; more opportunities mean more potential to do good and, unfortunately, evil. I believe that God sent you here at this time because He trusts you to successfully discern among the mind-boggling choices available.
 
-In 1974, President Spencer W. Kimball said, “I believe that the Lord is anxious to put into our hands inventions of which we laymen have hardly had a glimpse” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, 10).
+In 1974, President Spencer W. Kimball said, “I believe that the Lord is anxious to put into our hands inventions of which we laymen have hardly had a glimpse” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, 10).
 
 And He has! You are growing up with one of the greatest tools for good in the history of man: the Internet. With it comes an elaborate buffet of choices. The abundance of choice, however, carries with it an equal portion of accountability. It facilitates your access to both the very best and the very worst the world has to offer. With it you can accomplish great things in a short period of time, or you can get caught up in endless loops of triviality that waste your time and degrade your potential. With the click of a button, you can access whatever your heart desires. That’s the key—what does your heart desire? What do you gravitate toward? Where will your desires lead?
 
 Remember that God “granteth unto men according to their desire” ([[Alma 29.4|Alma 29:4]]) and that He “will judge all men according to their works, according to the desire of their hearts” ([[D&C 137.9|D&C 137:9]]; see also [[Alma 41.3|Alma 41:3]]).
 
-Elder Bruce R. McConkie said: “In a real though figurative sense, the *book of life* is the record of the acts of men as such record is written in their own bodies. … That is, every thought, word, and deed has an \[effect\] on the human body; all these leave their marks, marks which can be read by Him who is Eternal as easily as the words in a book can be read” (*Mormon Doctrine,* 2nd ed. \[1966\], 97).
+Elder Bruce R. McConkie said: “In a real though figurative sense, the *book of life* is the record of the acts of men as such record is written in their own bodies. … That is, every thought, word, and deed has an \[effect\] on the human body; all these leave their marks, marks which can be read by Him who is Eternal as easily as the words in a book can be read” (*Mormon Doctrine,* 2nd ed. \[1966\], 97).
 
 The Internet also records your desires, expressed in the form of searches and clicks. There are legions waiting to fill those desires. As you surf the Internet, you leave tracks—what you communicate, where you have been, how long you have been there, and the kinds of things that interest you. In this way, the Internet creates a cyber profile for you—in a sense, your “cyber book of life.” As in life, the Internet will give you more and more of what you seek. If your desires are pure, the Internet can magnify them, making it ever easier to engage in worthy pursuits. But the opposite is also true.
 
-Elder Neal A. Maxwell put it this way:
+Elder Neal A. Maxwell put it this way:
 
 “What we insistently desire, over time, is what we will eventually become and what we will receive in eternity. …
 
@@ -44,9 +44,9 @@ Young men, remember who you really are. Remember that you hold the holy priestho
 
 ## Second: Plug In to the Source of Power
 
-Right in the palm of your hand you have the wisdom of the ages—more importantly, the words of the prophets, from Old Testament days to President Thomas S. Monson. But if you don’t regularly recharge your cell phone, it is useless, and you feel lost and out of touch. You wouldn’t think of going a single day without charging your battery.
+Right in the palm of your hand you have the wisdom of the ages—more importantly, the words of the prophets, from Old Testament days to President Thomas S. Monson. But if you don’t regularly recharge your cell phone, it is useless, and you feel lost and out of touch. You wouldn’t think of going a single day without charging your battery.
 
-As important as it is to leave home every day with a full charge on your cell phone, it is far more important to be fully charged spiritually. Every time you plug in your phone, use it as a reminder to ask yourself if you have plugged in to the most important source of spiritual power—prayer and scripture study, which will charge you with inspiration through the Holy Ghost (see [[D&C 11.12|D&C 11:12–14]][[D&C 11.13|]][[D&C 11.14|]]). It will help you know the mind and will of the Lord to make the small but important daily choices that determine your direction. Many of us immediately stop whatever we are doing to read a text message—should we not place even more importance on messages from the Lord? Neglecting to connect to this power should be unthinkable to us (see [[2 Nephi 32.3|2 Nephi 32:3]]).
+As important as it is to leave home every day with a full charge on your cell phone, it is far more important to be fully charged spiritually. Every time you plug in your phone, use it as a reminder to ask yourself if you have plugged in to the most important source of spiritual power—prayer and scripture study, which will charge you with inspiration through the Holy Ghost (see [[D&C 11.12|D&C 11:12–14]][[D&C 11.13|]][[D&C 11.14|]]). It will help you know the mind and will of the Lord to make the small but important daily choices that determine your direction. Many of us immediately stop whatever we are doing to read a text message—should we not place even more importance on messages from the Lord? Neglecting to connect to this power should be unthinkable to us (see [[2 Nephi 32.3|2 Nephi 32:3]]).
 
 ## Third: Owning a Smartphone Does Not Make You Smart, but Using It Wisely Can
 
@@ -54,11 +54,9 @@ Young men, don’t do dumb things with your smartphone. You all know what I mean
 
 ## Fourth: The Lord Provides Technology to Accomplish His Purposes
 
-The divine purpose of technology is to hasten the work of salvation. As members of the choice generation, you understand technology. Use it to accelerate your progress toward perfection. Because you have been given much, you too must give (see “Because I Have Been Given Much,” *Hymns,* no. 219). The Lord expects you to use these great tools to take His work to the next level, to share the gospel in ways that are beyond my generation’s wildest imagination. Where generations past influenced their neighbors and their town, you have the power through the Internet and social media to reach beyond borders and influence the whole world.
+The divine purpose of technology is to hasten the work of salvation. As members of the choice generation, you understand technology. Use it to accelerate your progress toward perfection. Because you have been given much, you too must give (see “Because I Have Been Given Much,” *Hymns,* no. 219). The Lord expects you to use these great tools to take His work to the next level, to share the gospel in ways that are beyond my generation’s wildest imagination. Where generations past influenced their neighbors and their town, you have the power through the Internet and social media to reach beyond borders and influence the whole world.
 
 I testify that this is the Lord’s Church. You were chosen to participate in His work at this time because He trusts you to make the right choices. You are the choice generation. In the name of Jesus Christ, amen.
-
-
 
 
 

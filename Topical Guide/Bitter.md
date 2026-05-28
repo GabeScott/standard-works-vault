@@ -1,6 +1,5 @@
 # Bitter
 
-
 made their lives *bitter* with hard bondage, [[Exodus 1.14|Exodus 1:14]].
 
 with *bitter* herbs they shall eat it, [[Exodus 12.8|Exodus 12:8]].
@@ -33,4 +32,4 @@ whose fruit is most *bitter*, [[Jacob 5.52|Jacob 5:52]].
 
 never should have *bitter* they could not know the sweet, [[D&C 29.39|D&C 29:39]].
 
-taste the *bitter* ... to prize the good, [[Moses 6.55|Moses 6:55]].
+taste the *bitter* … to prize the good, [[Moses 6.55|Moses 6:55]].

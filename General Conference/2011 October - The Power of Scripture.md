@@ -1,6 +1,6 @@
 # The Power of Scripture
 
-By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -40,13 +40,13 @@ Scriptures can communicate different meanings at different times in our life, ac
 
 How do you personally use the scriptures? Do you mark your copy? Do you put notes in the margin to remember a moment of spiritual guidance or an experience that has taught you a profound lesson? Do you use all of the standard works, including the Old Testament? I have found precious truths in the pages of the Old Testament that are key ingredients to the platform of truth that guides my life and acts as a resource when I try to share a gospel message with others. For that reason, I love the Old Testament. I find precious jewels of truth spread throughout its pages. For example:
 
-“And Samuel said, Hath the Lord as great delight in burnt offerings and sacrifices, as in obeying the voice of the Lord? Behold, to obey is better than sacrifice, and to hearken than the fat of rams” ([[1 Samuel 15.22|1 Samuel 15:22]]).
+“And Samuel said, Hath the Lord as great delight in burnt offerings and sacrifices, as in obeying the voice of the Lord? Behold, to obey is better than sacrifice, and to hearken than the fat of rams” ([[1 Samuel 15.22|1 Samuel 15:22]]).
 
 “Trust in the Lord with all thine heart; and lean not unto thine own understanding.
 
 “In all thy ways acknowledge him, and he shall direct thy paths.
 
-“Be not wise in thine own eyes: fear the Lord, and depart from evil. …
+“Be not wise in thine own eyes: fear the Lord, and depart from evil. …
 
 “My son, despise not the chastening of the Lord; neither be weary of his correction:
 
@@ -70,7 +70,7 @@ The New Testament is also a source of diamond truth:
 
 “And he said unto him, Lord, I am ready to go with thee, both into prison, and to death.
 
-“And he said, I tell thee, Peter, the cock shall not crow this day, before that thou shalt thrice deny that thou knowest me. …
+“And he said, I tell thee, Peter, the cock shall not crow this day, before that thou shalt thrice deny that thou knowest me. …
 
 “But a certain maid beheld him as he sat by the fire, and earnestly looked upon him, and said, This man was also with him.
 
@@ -115,8 +115,6 @@ May each of us avail ourselves of the wealth of blessings that result from scrip
 
 
 
-[^1]: See Gordon B. Hinckley, “A Testimony Vibrant and True,” *Liahona* and *Ensign,* Aug. 2005, 6.
+[^1]: See Gordon B. Hinckley, “A Testimony Vibrant and True,” *Liahona* and *Ensign,* Aug. 2005, 6.
 
-
-
-#Book_Of_Mormon #Holy_Ghost #Prophets #Scripture_Study #Scriptures
+#BookOfMormon #HolyGhost #Prophets #ScriptureStudy #Scriptures

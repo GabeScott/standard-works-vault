@@ -1,6 +1,6 @@
 # “I Am the Vine, Ye Are the Branches”
 
-By Elder Dean L. Larsen - *Of the First Quorum of the Seventy*
+By Elder Dean L. Larsen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -35,8 +35,6 @@ Since receiving a phone call several days ago from President Kimball, in an atte
 “Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples.” ([[John 15.3|John 15:3–5, 7–8]][[John 15.4|]][[John 15.5|]][[John 15.7|]][[John 15.8|]].)
 
 I bear witness today, brothers and sisters, that the Lord Jesus Christ lives, that this is his work, that President Kimball is indeed the Lord’s prophet upon the earth. The Lord will come again to reign as King of kings and as Lord of lords. May we be worthy to be with those who serve and live with him when that time comes, I pray, and solemnly invoke his blessings upon us all this day, in the name of Jesus Christ. Amen.
-
-
 
 
 

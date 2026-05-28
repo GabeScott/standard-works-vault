@@ -14,7 +14,7 @@ To the rich young man, Jesus said, “Sell all that thou hast, and distribute un
 
 I am grateful for teachings received over the years that have helped me better follow the Savior. For my purpose today, I simply would like to focus on one. As the Primary song goes, “Follow the prophet; he knows the way.”[^3]
 
-In October 2024, President Dallin H. Oaks gave the following counsel: “Following Christ is not a casual or occasional practice. It is a continuous commitment and way of life that should guide us at all times and in all places. His teachings and His example define the path for every disciple of Jesus Christ. And all are invited to this path.”[^4]
+In October 2024, President Dallin H. Oaks gave the following counsel: “Following Christ is not a casual or occasional practice. It is a continuous commitment and way of life that should guide us at all times and in all places. His teachings and His example define the path for every disciple of Jesus Christ. And all are invited to this path.”[^4]
 
 ## Gospel Culture
 
@@ -28,7 +28,7 @@ I am so grateful that my parents exercised faith and chose to keep their covenan
 
 President Oaks taught:
 
-“The gospel of Jesus Christ challenges us to change. ‘Repent’ is its most frequent message, and repenting means giving up all of our practices﻿—personal, family, ethnic, and national﻿—that are contrary to the commandments of God. The purpose of the gospel is to transform common creatures into celestial citizens, and that requires change. …
+“The gospel of Jesus Christ challenges us to change. ‘Repent’ is its most frequent message, and repenting means giving up all of our practices﻿—personal, family, ethnic, and national﻿—that are contrary to the commandments of God. The purpose of the gospel is to transform common creatures into celestial citizens, and that requires change. …
 
 “The traditions or culture or way of life of a people inevitably include some practices that must be changed by those who wish to qualify for God’s choicest blessings.”[^5]
 
@@ -52,7 +52,7 @@ It is interesting to me that some people would think that God’s prophets live 
 
 As we learn in the book of Mosiah, “A seer can know of things which are past, and also of things which are to come, and by them shall all things be revealed, or, rather, shall secret things be made manifest, and hidden things shall come to light, and things which are not known shall be made known by them, and also things shall be made known by them which otherwise could not be known.”[^9]
 
-I testify that we are led today by a living prophet, President Dallin H. Oaks. He, along with the counselors in the First Presidency and the Quorum of the Twelve Apostles, are indeed prophets, seers, and revelators. I am grateful to have participated in the solemn assembly this morning. My dear brothers and sisters, especially you, my dear young friends, when we follow their teachings and examples, we are following our Savior, Jesus Christ. I so testify in the sacred name of Jesus Christ, amen.
+I testify that we are led today by a living prophet, President Dallin H. Oaks. He, along with the counselors in the First Presidency and the Quorum of the Twelve Apostles, are indeed prophets, seers, and revelators. I am grateful to have participated in the solemn assembly this morning. My dear brothers and sisters, especially you, my dear young friends, when we follow their teachings and examples, we are following our Savior, Jesus Christ. I so testify in the sacred name of Jesus Christ, amen.
 
 
 
@@ -63,15 +63,16 @@ I testify that we are led today by a living prophet, President Dallin H. Oaks. 
 
 [^3]: “Follow the Prophet,” *Children’s Songbook*, 111.
 
-[^4]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 23.
+[^4]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 23.
 
-[^5]: Dallin H. Oaks, “[[2003 October - Repentance and Change.md|Repentance and Change]],” *Liahona*, Nov. 2003, 37–38.
+[^5]: Dallin H. Oaks, “[[2003 October - Repentance and Change.md|Repentance and Change]],” *Liahona*, Nov. 2003, 37–38.
 
-[^6]: Dallin H. Oaks, “[[2015 October - Strengthened by the Atonement of Jesus Christ.md|Strengthened by the Atonement of Jesus Christ]],” *Liahona*, Nov. 2015, 61.
+[^6]: Dallin H. Oaks, “[[2015 October - Strengthened by the Atonement of Jesus Christ.md|Strengthened by the Atonement of Jesus Christ]],” *Liahona*, Nov. 2015, 61.
 
-[^7]: Dallin H. Oaks, “[[1987 October - “The Light and Life of the World”.md|The Light and Life of the World]],” *Ensign*, Nov. 1987, 64.
+[^7]: Dallin H. Oaks, “[[1987 October - “The Light and Life of the World”.md|The Light and Life of the World]],” *Ensign*, Nov. 1987, 64.
 
 [^8]: See [[Ezekiel 33.2|Ezekiel 33:2–7]][[Ezekiel 33.3|]][[Ezekiel 33.4|]][[Ezekiel 33.5|]][[Ezekiel 33.6|]][[Ezekiel 33.7|]].
 
 [^9]: [[Mosiah 8.17|Mosiah 8:17]].
 
+#AtonementOfJesusChrist #JesusChrist #Prophets #Traditions

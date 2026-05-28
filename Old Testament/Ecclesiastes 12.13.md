@@ -5,6 +5,6 @@
 [Ecclesiastes 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/12.13?lang=eng#p13)
 
 
-[^a]: OR Revere God. [[Reverence|TG Reverence]].
-[^b]: [[Obedience, Obedient, Obey|TG Obedience]].
-[^c]: [[Duty|TG Duty]]; [[Mission of Early Saints|Mission of Early Saints]].
+[^a]: OR Revere God. [[Reverence|TG Reverence]].  
+[^b]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^c]: [[Duty|TG Duty]]; [[Mission of Early Saints|Mission of Early Saints]].  

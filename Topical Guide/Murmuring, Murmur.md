@@ -1,13 +1,12 @@
 # Murmuring, Murmur
 
-
-*See also* [[Disobedience, Disobey.md|Disobedience]]; [[Disputations, Dispute.md|Disputations]]; [[Ingratitude.md|Ingratitude]]; [[Rebellion, Rebel.md|Rebellion]]
+*See also* [[Disobedience.md|Disobedience]]; [[Disputations.md|Disputations]]; [[Ingratitude.md|Ingratitude]]; [[Rebellion.md|Rebellion]]
 
 people *murmured* against Moses, [[Exodus 15.24|Exodus 15:24]].
 
-congregation ... of Israel *murmured* against Moses, [[Exodus 16.2|Exodus 16:2]].
+congregation … of Israel *murmured* against Moses, [[Exodus 16.2|Exodus 16:2]].
 
-people thirsted there for water; and ... *murmured*, [[Exodus 17.3|Exodus 17:3]].
+people thirsted there for water; and … *murmured*, [[Exodus 17.3|Exodus 17:3]].
 
 children of Israel *murmured* against Moses and against Aaron, [[Numbers 14.2|Numbers 14:2]] ([[Numbers 16.41|Numbers 16:41]]).
 
@@ -19,9 +18,9 @@ they that *murmured* shall learn doctrine, [[Isaiah 29.24|Isaiah 29:24]].
 
 Pharisees *murmured* against his disciples, [[Luke 5.30|Luke 5:30]].
 
-scribes *murmured* ... This man receiveth sinners, [[Luke 15.2|Luke 15:2]].
+scribes *murmured* … This man receiveth sinners, [[Luke 15.2|Luke 15:2]].
 
-all *murmured*, saying, That he was gone to be guest with ... sinner, [[Luke 19.7|Luke 19:7]].
+all *murmured*, saying, That he was gone to be guest with … sinner, [[Luke 19.7|Luke 19:7]].
 
 Jews then *murmured* at him, [[John 6.41|John 6:41]].
 
@@ -35,9 +34,9 @@ Do all things without *murmurings* and disputings, [[Philippians 2.14|Philippian
 
 These are *murmurers*, complainers, [[Jude 1.16|Jude 1:16]].
 
-they did *murmur* ... against their father, [[1 Nephi 2.11|1 Nephi 2:11]].
+they did *murmur* … against their father, [[1 Nephi 2.11|1 Nephi 2:11]].
 
-favored ... because thou hast not *murmured*, [[1 Nephi 3.6|1 Nephi 3:6]].
+favored … because thou hast not *murmured*, [[1 Nephi 3.6|1 Nephi 3:6]].
 
 Laman and Lemuel again began to *murmur*, [[1 Nephi 3.31|1 Nephi 3:31]] ([[1 Nephi 17.17|1 Nephi 17:17]]).
 
@@ -45,9 +44,9 @@ father began to *murmur* against the Lord, [[1 Nephi 16.20|1 Nephi 16:20]].
 
 bear their journeyings without *murmurings*, [[1 Nephi 17.2|1 Nephi 17:2]].
 
-Nephi, said ... they should *murmur* no more, [[1 Nephi 17.49|1 Nephi 17:49]].
+Nephi, said … they should *murmur* no more, [[1 Nephi 17.49|1 Nephi 17:49]].
 
-I do not write ... all the words which they *murmured* against me, [[2 Nephi 5.4|2 Nephi 5:4]].
+I do not write … all the words which they *murmured* against me, [[2 Nephi 5.4|2 Nephi 5:4]].
 
 they that *murmured* shall learn doctrine, [[2 Nephi 27.35|2 Nephi 27:35]].
 

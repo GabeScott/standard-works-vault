@@ -1,15 +1,14 @@
 # Warn, Warnings
 
+*See also* [[Admonish.md|Admonish]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Rebuke.md|Rebuke]]; [[Reproof.md|Reproof]]
 
-*See also* [[Admonish.md|Admonish]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Rebuke.md|Rebuke]]; [[Reproof, Reprove.md|Reproof]]
-
-man of God ... *warned* him, [[2 Kings 6.10|2 Kings 6:10]].
+man of God … *warned* him, [[2 Kings 6.10|2 Kings 6:10]].
 
 *warn* them that they trespass not against the Lord, [[2 Chronicles 19.10|2 Chronicles 19:10]].
 
 by them is thy servant *warned*, [[Psalms 19.11|Psalms 19:11]].
 
-To whom shall I ... give *warning*, [[Jeremiah 6.10|Jeremiah 6:10]].
+To whom shall I … give *warning*, [[Jeremiah 6.10|Jeremiah 6:10]].
 
 *warn* the wicked, and he turn not, [[Ezekiel 3.19|Ezekiel 3:19]].
 
@@ -63,8 +62,6 @@ ye *warn* him in my name, [[D&C 98.28|D&C 98:28]].
 
 let thy *warning* voice go forth, [[D&C 112.5|D&C 112:5]].
 
-Neither did the rebellious who rejected the testimonies and the *warnings* ... behold his presence, [[D&C 138.21|D&C 138:21]].
+Neither did the rebellious who rejected the testimonies and the *warnings* … behold his presence, [[D&C 138.21|D&C 138:21]].
 
 Noah, who gave *warning* of the flood, [[D&C 138.41|D&C 138:41]].
-
-*See also* [[Amos 3.7|Amos 3:7]].

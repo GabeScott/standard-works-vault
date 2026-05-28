@@ -1,7 +1,6 @@
 # Footstool
 
-
-build an house of rest ... for the *footstool* of our God, [[1 Chronicles 28.2|1 Chronicles 28:2]].
+build an house of rest … for the *footstool* of our God, [[1 Chronicles 28.2|1 Chronicles 28:2]].
 
 worship at his *footstool*, [[Psalms 99.5|Psalms 99:5]] ([[Psalms 132.7|Psalms 132:7]]).
 
@@ -13,4 +12,4 @@ earth is my *footstool*, [[Isaiah 66.1|Isaiah 66:1]] ([[Matthew 5.35|Matthew 5:3
 
 sit here under my *footstool*, [[James 2.3|James 2:3]].
 
-became living souls ... upon the *footstool* of God, [[Moses 6.9|Moses 6:9]].
+became living souls … upon the *footstool* of God, [[Moses 6.9|Moses 6:9]].

@@ -4,6 +4,3 @@
 
 [JST Luke 3:7](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/3?lang=eng)
 
-
-
-

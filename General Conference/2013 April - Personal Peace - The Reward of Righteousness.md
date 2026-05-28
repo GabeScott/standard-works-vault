@@ -1,6 +1,6 @@
 # Personal Peace: The Reward of Righteousness
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -16,7 +16,7 @@ Second, I met with thousands of faithful members of the Church in the Ivory Coas
 
 Events often occur that rob us of peace and heighten our sense of vulnerability.
 
-Who can forget the evil attacks of September 11, 2001, on various U.S. locations? Such events remind us how quickly our feelings of peace and safety can be destroyed.
+Who can forget the evil attacks of September 11, 2001, on various U.S. locations? Such events remind us how quickly our feelings of peace and safety can be destroyed.
 
 Our oldest son and his wife, who were expecting their first child, lived three blocks from the World Trade Center in New York City when the first plane crashed into the North Tower. They went to the roof of their apartment building and were horrified as they watched what they thought was some kind of terrible accident. Then they witnessed the second plane crash into the South Tower. They immediately realized that this was no accident and believed lower Manhattan was under attack. When the South Tower collapsed, their apartment building was engulfed in the dust cloud that rained down over lower Manhattan.
 
@@ -36,7 +36,7 @@ As recited in the 10th chapter of Matthew, the Savior instructed the Twelve and 
 
 In the Lord’s preface to the Doctrine and Covenants, a number of very important principles are taught. With respect to those who do not repent, His Spirit (the Spirit of Christ), which is given to every person who comes into the world,[^8] “shall not always strive with man.”[^9] Also, “peace shall be taken from the earth.”[^10] Prophets have declared that peace has indeed been taken from the earth.[^11] Lucifer has not yet been bound and exercises power in this dominion.[^12]
 
-The heavenly aspiration of good people everywhere has and always will be for peace in the world. We must never give up on achieving this goal. But, President Joseph F. Smith taught, “There never can come to the world that spirit of peace and love … until mankind will receive God’s truth and God’s message … and acknowledge his power and authority which is divine.”[^13]
+The heavenly aspiration of good people everywhere has and always will be for peace in the world. We must never give up on achieving this goal. But, President Joseph F. Smith taught, “There never can come to the world that spirit of peace and love … until mankind will receive God’s truth and God’s message … and acknowledge his power and authority which is divine.”[^13]
 
 We earnestly hope and pray for universal peace, but it is as individuals and families that we achieve the kind of peace that is the promised reward of righteousness. This peace is a promised gift of the Savior’s mission and atoning sacrifice.
 
@@ -46,7 +46,7 @@ President John Taylor taught that peace is not only desirable, but “it is the 
 
 The peace to which I am referring is not just a temporary tranquility. It is an abiding deep happiness and spiritual contentment.[^16]
 
-President Heber J. Grant described the Savior’s peace this way: “His peace will ease our suffering, bind up our broken hearts, blot out our hates, engender in our breasts a love of fellow men that will suffuse our souls with calm and happiness.”[^17] In my meetings with Emilie Parker’s parents, I saw that the Savior’s peace has eased their suffering and is helping to bind up their broken hearts. It is notable that immediately after the shooting, Brother Parker expressed forgiveness to the perpetrator. As President Grant said, the Savior’s peace can “blot out our hates.” Judgment is the Lord’s.
+President Heber J. Grant described the Savior’s peace this way: “His peace will ease our suffering, bind up our broken hearts, blot out our hates, engender in our breasts a love of fellow men that will suffuse our souls with calm and happiness.”[^17] In my meetings with Emilie Parker’s parents, I saw that the Savior’s peace has eased their suffering and is helping to bind up their broken hearts. It is notable that immediately after the shooting, Brother Parker expressed forgiveness to the perpetrator. As President Grant said, the Savior’s peace can “blot out our hates.” Judgment is the Lord’s.
 
 The Ivory Coast Saints, during the period of civil war in their country, found peace by focusing on living the gospel of Jesus Christ, with particular emphasis on family history and temple work for their ancestors.[^18]
 
@@ -56,7 +56,7 @@ We all long for peace. Peace is not just safety or lack of war, violence, confli
 
 “And then, if thou endure it well, God shall exalt thee on high.”[^19]
 
-Remember, “God is not the author of confusion, but \[the author\] of peace.”[^20] For those who reject God, there is no peace. We all participated in the councils of heaven that provided for moral agency, knowing that there would be mortal pain and even unspeakable tragedy because of the abuse of agency. We understood that this could leave us angry, bewildered, defenseless, and vulnerable. But we also knew that the Savior’s Atonement would overcome and compensate for all of the unfairness of mortal life and bring us peace. Elder Marion D. Hanks had a framed statement on his wall by Ugo Betti: “To believe in God is to know that all the rules will be fair, and that there will be wonderful surprises.”[^21]
+Remember, “God is not the author of confusion, but \[the author\] of peace.”[^20] For those who reject God, there is no peace. We all participated in the councils of heaven that provided for moral agency, knowing that there would be mortal pain and even unspeakable tragedy because of the abuse of agency. We understood that this could leave us angry, bewildered, defenseless, and vulnerable. But we also knew that the Savior’s Atonement would overcome and compensate for all of the unfairness of mortal life and bring us peace. Elder Marion D. Hanks had a framed statement on his wall by Ugo Betti: “To believe in God is to know that all the rules will be fair, and that there will be wonderful surprises.”[^21]
 
 *What are the sources of peace?* Many search for peace in worldly ways, which never have and never will succeed. Peace is not found by attaining great wealth, power, or prominence.[^22] Peace is not found in the pursuit of pleasure, entertainment, or leisure. None of these can, even when attained in abundance, create any lasting happiness or peace.
 
@@ -76,7 +76,7 @@ In the celestial room, free from the turmoil of the world, she dissolved in tear
 
 *The Savior is the source of true peace.* Even with the trials of life, because of the Savior’s Atonement and His grace, righteous living will be rewarded with personal peace. In the intimate setting of the Passover chamber, the Savior promised His Apostles that they would be blessed with the “Comforter, which is the Holy Ghost” and then uttered these important words: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you.”[^30] Then just before His Intercessory Prayer: “These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.”[^31]
 
-Eliza R. Snow penned this concept beautifully:
+Eliza R. Snow penned this concept beautifully:
 
 >Lift up your hearts in praise to God;
 >Let your rejoicings never cease.
@@ -89,15 +89,15 @@ I so testify in the name of Jesus Christ, amen.
 
 
 
-[^1]: Two conferences were held in Abidjan on Sunday, February 10, 2013; 9,693 were in attendance—619 of whom were not yet members of the Church. Total Church membership in the Ivory Coast is approximately 19,000.
+[^1]: Two conferences were held in Abidjan on Sunday, February 10, 2013; 9,693 were in attendance—619 of whom were not yet members of the Church. Total Church membership in the Ivory Coast is approximately 19,000.
 
 [^2]: [[D&C 115.6|Doctrine and Covenants 115:6]].
 
-[^3]: The word *peace* has different meanings. In classical Greek it refers to cessation, discontinuance, or absence of hostilities between rival forces. In Hebrew the word has a more comprehensive meaning and sometimes is just a form of greeting. Peace is also a “state of existence that comes to man only upon the terms and conditions set by God” (Howard W. Hunter, in Conference Report, Oct. 1966, 15).
+[^3]: The word *peace* has different meanings. In classical Greek it refers to cessation, discontinuance, or absence of hostilities between rival forces. In Hebrew the word has a more comprehensive meaning and sometimes is just a form of greeting. Peace is also a “state of existence that comes to man only upon the terms and conditions set by God” (Howard W. Hunter, in Conference Report, Oct. 1966, 15).
 
 [^4]: [[Luke 2.14|Luke 2:14]]; emphasis added.
 
-[^5]: See [[Matthew 2.16|Matthew 2:16]]; see also Ross Douthat, “The Loss of the Innocents,” *New York Times,* Dec. 16, 2012, 12.
+[^5]: See [[Matthew 2.16|Matthew 2:16]]; see also Ross Douthat, “The Loss of the Innocents,” *New York Times,* Dec. 16, 2012, 12.
 
 [^6]: [[Matthew 10.16|Matthew 10:16, 22]][[Matthew 10.22|]].
 
@@ -109,29 +109,29 @@ I so testify in the name of Jesus Christ, amen.
 
 [^10]: [[D&C 1.35|Doctrine and Covenants 1:35]].
 
-[^11]: President Woodruff declared this in 1894 and again in 1896. See *The Discourses of Wilford Woodruff,* ed. G. Homer Durham (1946), 251–52; see also Marion G. Romney, in Conference Report, Apr. 1967, 79–82.
+[^11]: President Woodruff declared this in 1894 and again in 1896. See *The Discourses of Wilford Woodruff,* ed. G. Homer Durham (1946), 251–52; see also Marion G. Romney, in Conference Report, Apr. 1967, 79–82.
 
-[^12]: See Joseph Fielding Smith, *The Predicted Judgments,* Brigham Young University Speeches of the Year (Mar. 21, 1967), 5–6. However, as Elder Neal A. Maxwell stated, “We can have inner peace even though peace has been taken from the earth … \[and\] ‘all things \[are\] in commotion’” (“Behold, the Enemy Is Combined,” *Ensign,* May 1993, 79).
+[^12]: See Joseph Fielding Smith, *The Predicted Judgments,* Brigham Young University Speeches of the Year (Mar. 21, 1967), 5–6. However, as Elder Neal A. Maxwell stated, “We can have inner peace even though peace has been taken from the earth … \[and\] ‘all things \[are\] in commotion’” (“Behold, the Enemy Is Combined,” *Ensign,* May 1993, 79).
 
-[^13]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 400.
+[^13]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 400.
 
 [^14]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
 [^15]: *Teachings of Presidents of the Church: John Taylor* (2001), 151.
 
-[^16]: From the ancient Greeks to our own day, these words—*happiness* and *contentment—*have been parsed, dissected, and grappled with not only as to their meaning but also the guidance they give to our lives. See David Malouf, *The Happy Life: The Search for Contentment in the Modern World* (2011). See also a review of Mr. Malouf’s book, in R. Jay Magill Jr., “How to Live Well,” *Wall Street Journal,* Jan. 26–27, 2013, C6.
+[^16]: From the ancient Greeks to our own day, these words—*happiness* and *contentment—*have been parsed, dissected, and grappled with not only as to their meaning but also the guidance they give to our lives. See David Malouf, *The Happy Life: The Search for Contentment in the Modern World* (2011). See also a review of Mr. Malouf’s book, in R. Jay Magill Jr., “How to Live Well,” *Wall Street Journal,* Jan. 26–27, 2013, C6.
 
-[^17]: *Teachings of Presidents of the Church: Heber J. Grant* (2002), 226.
+[^17]: *Teachings of Presidents of the Church: Heber J. Grant* (2002), 226.
 
-[^18]: “Three of the five Ivory Coast stakes are among the top 25 in the Church in the percentage of adults \[submitting\] family names for temple ordinances,” and the Cocody Cote d’Ivoire Stake is the highest (C. Terry Warner and Susan Warner, “Apostle Visits Ivory Coast, Is ‘Impressed with Exceptional Spirit,’” *Church News,* Mar. 3, 2013, 4, 14). In the wake of the civil war and the closest temple being 12 hours away by bus in Accra, Ghana, this is marvelous evidence of faith and has resulted in personal and family peace.
+[^18]: “Three of the five Ivory Coast stakes are among the top 25 in the Church in the percentage of adults \[submitting\] family names for temple ordinances,” and the Cocody Cote d’Ivoire Stake is the highest (C. Terry Warner and Susan Warner, “Apostle Visits Ivory Coast, Is ‘Impressed with Exceptional Spirit,’” *Church News,* Mar. 3, 2013, 4, 14). In the wake of the civil war and the closest temple being 12 hours away by bus in Accra, Ghana, this is marvelous evidence of faith and has resulted in personal and family peace.
 
-[^19]: [[D&C 121.7|Doctrine and Covenants 121:7–8]][[D&C 121.8|]]. President Harold B. Lee taught, “So, we must be refined; we must be tested in order to prove the strength and power that are in us” (*Teachings of Presidents of the Church: Harold B. Lee* \[2000\], 208).
+[^19]: [[D&C 121.7|Doctrine and Covenants 121:7–8]][[D&C 121.8|]]. President Harold B. Lee taught, “So, we must be refined; we must be tested in order to prove the strength and power that are in us” (*Teachings of Presidents of the Church: Harold B. Lee* \[2000\], 208).
 
-[^20]: [[1 Corinthians 14.33|1 Corinthians 14:33]].
+[^20]: [[1 Corinthians 14.33|1 Corinthians 14:33]].
 
-[^21]: In Marion D. Hanks, “A Loving, Communicating God,” *Ensign,* Nov. 1992, 65.
+[^21]: In Marion D. Hanks, “A Loving, Communicating God,” *Ensign,* Nov. 1992, 65.
 
-[^22]: See Jeffrey R. Holland, *For Times of Trouble* (2012), 79. Elder Holland teaches that “true poverty may do more to destroy the human spirit than any other condition except sin itself.” But the righteous use of money can enhance peace.
+[^22]: See Jeffrey R. Holland, *For Times of Trouble* (2012), 79. Elder Holland teaches that “true poverty may do more to destroy the human spirit than any other condition except sin itself.” But the righteous use of money can enhance peace.
 
 [^23]: “Where Can I Turn for Peace?” *Hymns,* no. 129.
 
@@ -139,11 +139,11 @@ I so testify in the name of Jesus Christ, amen.
 
 [^25]: John Greenleaf Whittier put it simply: “Heed how thou livest. Do not act by day which from the night shall drive thy peace away” (“Conduct \[From the Mahabharata\],” in *The Complete Poetical Works of John Greenleaf Whittier* \[1802\], 484).
 
-[^26]: [[Mosiah 4.3|Mosiah 4:3]]; emphasis added; see also Marion G. Romney, in Conference Report, Apr. 1967, 79–82.
+[^26]: [[Mosiah 4.3|Mosiah 4:3]]; emphasis added; see also Marion G. Romney, in Conference Report, Apr. 1967, 79–82.
 
 [^27]: Conscience is a moral compass pointing us toward peace. It is activated by at least two sources: the Light of Christ, a glorious birthright from our Heavenly Father (see [[D&C 88.6|Doctrine and Covenants 88:6–13]][[D&C 88.7|]][[D&C 88.8|]][[D&C 88.9|]][[D&C 88.10|]][[D&C 88.11|]][[D&C 88.12|]][[D&C 88.13|]]; [[D&C 93.2|93:2]]), and the gift of the Holy Ghost (see [[D&C 39.6|Doctrine and Covenants 39:6]]).
 
-[^28]: “Two sets of forgiveness are required to bring peace to the transgressor—one from the proper authorities of the Lord’s Church, and one from the Lord himself. \[See [[Mosiah 26.29|Mosiah 26:29]].\]” (*Teachings of Presidents of the Church: Spencer W. Kimball* \[2006\], 41).
+[^28]: “Two sets of forgiveness are required to bring peace to the transgressor—one from the proper authorities of the Lord’s Church, and one from the Lord himself. \[See [[Mosiah 26.29|Mosiah 26:29]].\]” (*Teachings of Presidents of the Church: Spencer W. Kimball* \[2006\], 41).
 
 [^29]: “How Gentle God’s Commands,” *Hymns,* no. 125.
 
@@ -152,7 +152,5 @@ I so testify in the name of Jesus Christ, amen.
 [^31]: [[John 16.33|John 16:33]].
 
 [^32]: “Though Deepening Trials,” *Hymns,* no. 122.
-
-
 
 #Peace #Temples

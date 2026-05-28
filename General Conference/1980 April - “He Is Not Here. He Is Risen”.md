@@ -1,6 +1,6 @@
 # “He Is Not Here. He Is Risen”
 
-By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -56,7 +56,7 @@ Following his betrayal, and when the morning was come, the chief priests and his
 
 He was taken to Calvary. At the third hour, they crucified Jesus, and with him they crucified two thieves (see [[Mark 15.25|Mark 15:25, 27]][[Mark 15.27|]]). “And there was … darkness over all the earth until the ninth hour.
 
-“… and the veil of the temple was rent in the midst” ([[Luke 23.44|Luke 23:44–45]][[Luke 23.45|]]).
+“… and the veil of the temple was rent in the midst” ([[Luke 23.44|Luke 23:44–45]][[Luke 23.45|]]).
 
 After three days, very early in the morning on the first day of the week, the women came to the sepulcher with spices to anoint the body of Jesus. Instead, they were greeted by a young man in a long white garment who announced: “He is not here. He is risen” (see [[Luke 24.6|Luke 24:6]]). Jesus showed himself first to Mary Magdalene and afterward to the Apostles.
 
@@ -82,7 +82,7 @@ Now today in this peaceful valley, in this historic tabernacle, we witness the f
 
 The motivating force behind the sustaining and vigorous growth of the Church is that it is true. It is God’s plan. The gospel provides the only way to a mortal life of happiness and a joy forever.
 
-Count Leo Tolstoy, Russian author and statesman, in conversation with Andrew D. White, United States foreign minister to Russia, in 1892 said, “I wish you would tell me about your American religion.”
+Count Leo Tolstoy, Russian author and statesman, in conversation with Andrew D. White, United States foreign minister to Russia, in 1892 said, “I wish you would tell me about your American religion.”
 
 “We have no state church in America,” replied Dr. White.
 
@@ -103,6 +103,4 @@ It is not only destined to *become* but *is* the greatest power in the world. I 
 
 
 
-
-
-#Jesus_Christ
+#JesusChrist

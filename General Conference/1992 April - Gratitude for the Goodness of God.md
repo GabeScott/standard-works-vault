@@ -16,7 +16,7 @@ The Savior tells us:
 
 “I came into the world to do the will of my Father, because my Father sent me.
 
-“And my Father sent me that I might be lifted up upon the cross” ([[3 Nephi 27.13|3 Ne. 27:13–14]][[3 Nephi 27.14|]]).
+“And my Father sent me that I might be lifted up upon the cross” ([[3 Nephi 27.13|3 Ne. 27:13–14]][[3 Nephi 27.14|]]).
 
 The Prophet Joseph Smith recorded:
 
@@ -42,7 +42,7 @@ How grateful I am for the scriptures, which give examples of Jesus’ expressing
 
 At the Last Supper, “the Lord Jesus the same night … he was betrayed took bread:
 
-“And *when he had given thanks,* he brake it, and said, Take, eat: this is my body, which is broken for you” ([[1 Corinthians 11.23|1 Cor. 11:23–24]][[1 Corinthians 11.24|]]; italics added).
+“And *when he had given thanks,* he brake it, and said, Take, eat: this is my body, which is broken for you” ([[1 Corinthians 11.23|1 Cor. 11:23–24]][[1 Corinthians 11.24|]]; italics added).
 
 “And he took the cup, *and when he had given thanks,* he gave it to them: and they all drank of it” ([[Mark 14.23|Mark 14:23]]; italics added).
 
@@ -66,7 +66,7 @@ On another occasion, the disciples of Jesus prayed earnestly for the Holy Ghost.
 
 “Father, *I thank thee* that thou hast given the Holy Ghost unto these whom I have chosen; and it is because of their belief in me that I have chosen them out of the world.
 
-“Father, I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words” ([[3 Nephi 19.19|3 Ne. 19:19–21]][[3 Nephi 19.20|]][[3 Nephi 19.21|]]; italics added).
+“Father, I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words” ([[3 Nephi 19.19|3 Ne. 19:19–21]][[3 Nephi 19.20|]][[3 Nephi 19.21|]]; italics added).
 
 Prayer is an essential part of conveying appreciation to our Heavenly Father. He awaits our expressions of gratefulness each morning and night in sincere, simple prayer from our hearts for our many blessings, gifts, and talents.
 
@@ -123,6 +123,4 @@ That we may feel true gratitude for the goodness of God for all the blessings th
 
 
 
-
-
-#Gratitude #Jesus_Christ #Prayer #Repentance
+#Gratitude #JesusChrist #Prayer #Repentance

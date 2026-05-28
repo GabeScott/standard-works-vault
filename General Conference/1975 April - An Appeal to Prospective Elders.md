@@ -1,6 +1,6 @@
 # An Appeal to Prospective Elders
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -46,7 +46,7 @@ The next years saw me busy getting an education, raising a family. I was not aro
 
 The morning after my arrival in Tokyo, I was leaving the mission home with President Abo when a Japanese elder spoke to him in Japanese. President Abo said that the matter was urgent and apologized for the delay.
 
-He went through some papers with the elder, discussing them in Japanese. Then he held up one of the letters and, pointing to a sentence, he said, *“Korewa …”*
+He went through some papers with the elder, discussing them in Japanese. Then he held up one of the letters and, pointing to a sentence, he said, *“Korewa …”*
 
 And before he could complete the sentence I had completed it in my mind. *Korewa nan desuka.* I knew what he was saying. I knew what he was asking the elder. *Korewa nan desuka* means “What is this?” After 26 years, having been back in Japan but overnight, a sentence had come back into my mind—*Korewa nan desuka,* “What is this?”
 
@@ -61,7 +61,7 @@ And then I recalled a little song that I had learned those 26 years before, and 
 >*Hitotsu watashi ni kudasai na*
 >
 
-I think that may make Brother Ottley restless, but …
+I think that may make Brother Ottley restless, but …
 
 Sister Watanabe said, “I know that song.” And so we sang it together to the little children and then she told me the meaning of it, and as she did so, I remembered that also.
 
@@ -160,6 +160,7 @@ This awkward newness of making such a change in your lives will soon fade, and s
 I bear witness to you, my brethren, you of the prospective elders and you in like situations, that the gospel of Jesus Christ is true. We love you, and the thousands of voices—the voices of the priesthood home teachers, the Relief Society sisters, the bishops, the stake presidents, the quorum leaders—all speaking through inspiration of Him—the voices of those who are called as leaders in the Church, are calling to you as David called to his wayward son, Absalom, “Come back, my son.”
 
 God grant that you who are fathers, who are without that inspiration in your home and in your family, can return and speak once again, after your sojourn in the wilderness, with the language of inspiration. You likewise can bear witness that you know, as I know, that He lives. In the name of Jesus Christ. Amen.
+
 
 
 

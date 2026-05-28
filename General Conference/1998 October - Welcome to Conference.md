@@ -8,7 +8,7 @@ By President Gordon B. Hinckley - *President of the Church*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/10/welcome-to-conference?lang=eng)
 
-My brothers and sisters, we welcome you most warmly. We welcome you to this great conference. There are some 6,000 of us here in the Tabernacle and millions more in other halls across the world. We are all one great family. We have one Lord, one faith, one baptism. In fulfillment of the words of Peter, we are “a chosen generation, a royal priesthood, an holy nation, a peculiar people; that \[we\] should shew forth the praises of him who hath called \[us\] out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
+My brothers and sisters, we welcome you most warmly. We welcome you to this great conference. There are some 6,000 of us here in the Tabernacle and millions more in other halls across the world. We are all one great family. We have one Lord, one faith, one baptism. In fulfillment of the words of Peter, we are “a chosen generation, a royal priesthood, an holy nation, a peculiar people; that \[we\] should shew forth the praises of him who hath called \[us\] out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 For the most part, we are a happy people. We are mindful of and continue to pray for those who are experiencing hardship due to natural or man-caused calamity. But even those among our number who are bowed down with sorrow and pain go forward in faith with the certain assurance that God lives and is watching over His children.
 
@@ -31,6 +31,4 @@ Now, brothers and sisters, I invite all of you to listen to those whom you have 
 
 
 
-
-
-#Family #General_Conference #Jesus_Christ #Scripture_Study
+#Family #GeneralConference #JesusChrist #ScriptureStudy

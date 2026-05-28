@@ -1,6 +1,5 @@
 # Scorner
 
-
 *scorners* delight in their scorning, [[Proverbs 1.22|Proverbs 1:22]].
 
 *scorner* heareth not rebuke, [[Proverbs 13.1|Proverbs 13:1]].

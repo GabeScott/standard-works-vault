@@ -1,6 +1,6 @@
 # Your Potential, Your Privilege
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -95,13 +95,13 @@ My dear brethren, may we diligently seek to learn the doctrine of the holy pries
 
 [^6]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-[^7]: [[1 Nephi 19.24|1 Nephi 19:24]].
+[^7]: [[1 Nephi 19.24|1 Nephi 19:24]].
 
 [^8]: See [[James 1.22|James 1:22]].
 
 [^9]: *Teachings: Joseph Smith,* 108–9.
 
-[^10]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^10]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^11]: [[D&C 88.40|Doctrine and Covenants 88:40]].
 
@@ -121,6 +121,4 @@ My dear brethren, may we diligently seek to learn the doctrine of the holy pries
 
 [^19]: [[Philippians 4.13|Philippians 4:13]].
 
-
-
-#Holy_Ghost #Priesthood #Service
+#HolyGhost #Priesthood #Service

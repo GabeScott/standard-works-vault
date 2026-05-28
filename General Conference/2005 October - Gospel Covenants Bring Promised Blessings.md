@@ -16,7 +16,7 @@ I feel particularly blessed that my brother, sisters, and I were born of righteo
 
 I have mentioned these sacred relationships because of the happiness that I feel knowing there is a binding covenant with each of them sealed in the holy temple. I am profoundly grateful to know that regardless of any challenges that yet await us, there is hope and confidence in knowing that by keeping the covenants of the gospel, all of the momentary trials of life can be transcended. The scriptures teach us that all will eventually be well as we are faithful to our covenants. King Benjamin taught:
 
-“Because of the covenant which ye have made ye shall be called the children of Christ. …
+“Because of the covenant which ye have made ye shall be called the children of Christ. …
 
 “Therefore, I would that ye should take upon you the name of Christ, all you that have entered into the covenant with God that ye should be obedient unto the end of your lives.
 
@@ -26,13 +26,13 @@ Giving careful attention to covenant making is critical to our eternal salvation
 
 In the Old Testament we are taught the Lord’s covenant pattern in Noah’s experience with a wicked world and the Lord’s plan for cleansing the earth. Because of Noah’s faithful, steadfast commitment, the Lord said to him:
 
-“But with thee will I establish my covenant; and thou shalt come into the ark, thou, and thy sons, and thy wife, and thy sons’ wives with thee. …
+“But with thee will I establish my covenant; and thou shalt come into the ark, thou, and thy sons, and thy wife, and thy sons’ wives with thee. …
 
 “And Noah did … all that the Lord commanded him” ([[Genesis 6.18|Genesis 6:18]]; [[Genesis 7.5|7:5]]).
 
 After the floods were abated, they went forth out of the ark.
 
-“And Noah builded an altar unto the Lord. …
+“And Noah builded an altar unto the Lord. …
 
 “And God spake unto Noah, and to his sons \[who were\] with him, saying,
 
@@ -50,7 +50,7 @@ In this dispensation, covenant making has taken on a new perspective different f
 
 The work among those who lived previously is aggressively going forward with the forces of heaven commissioned by the Lord. In President Joseph F. Smith’s vision of the dead, he records:
 
-“But behold, from among the righteous, he organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth. …
+“But behold, from among the righteous, he organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth. …
 
 “I beheld that the faithful elders of this dispensation, when they depart from mortal life, continue their labors in the preaching of the gospel of repentance and redemption” ([[D&C 138.30|D&C 138:30, 57]][[D&C 138.57|]]).
 
@@ -63,6 +63,4 @@ I feel humbled at the opportunity to serve in this trusted calling and pray that
 
 
 
-
-
-#Covenants #Faith #Obedience #Sacrifice #Temple_Work
+#Covenants #Faith #Obedience #Sacrifice #TempleWork

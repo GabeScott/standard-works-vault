@@ -10,7 +10,7 @@ Ten years ago President Spencer W. Kimball stood at this pulpit. In that confere
 
 In the decade of his leadership that has followed, we have seen progress and growth unequaled in the history of the Church.
 
-In his first conference address as President of the Church, President Kimball declared the program of the Church is “to reaffirm and boldly carry forward the work of God in cleanliness, uprightness, and to take that gospel of truth to that world that needs so much that godly life.” (*Ensign,* May 1974, p. 8.)
+In his first conference address as President of the Church, President Kimball declared the program of the Church is “to reaffirm and boldly carry forward the work of God in cleanliness, uprightness, and to take that gospel of truth to that world that needs so much that godly life.” (*Ensign,* May 1974, p. 8.)
 
 My message today is to provide counsel on how we as a church and as individuals can carry forward the work of God to all the world.
 
@@ -80,9 +80,9 @@ I think we can say without exaggeration that never before in any dispensation ha
 
 Now our challenge is to do as the Lord commanded: “Study my word which hath gone forth among the children of men” ([[D&C 11.22|D&C 11:22]]).
 
-This year we are to read the Book of Mormon in the adult curriculum of the Church. The Prophet Joseph Smith said of this sacred record: “The Book of Mormon \[is\] the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book” (*Teachings of the Prophet Joseph Smith,* comp. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1977\], p. 194).
+This year we are to read the Book of Mormon in the adult curriculum of the Church. The Prophet Joseph Smith said of this sacred record: “The Book of Mormon \[is\] the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book” (*Teachings of the Prophet Joseph Smith,* comp. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1977\], p. 194).
 
-We urge you to study the Book of Mormon as individuals and families and then to do as the prophet Nephi counseled: liken the scriptures to yourselves so that it will be for your profit and learning. (See [[1 Nephi 19.23|1 Ne. 19:23–24]][[1 Nephi 19.24|]].)
+We urge you to study the Book of Mormon as individuals and families and then to do as the prophet Nephi counseled: liken the scriptures to yourselves so that it will be for your profit and learning. (See [[1 Nephi 19.23|1 Ne. 19:23–24]][[1 Nephi 19.24|]].)
 
 We have requested priesthood leaders to minimize administrative meetings on the Sabbath so that families may engage in worship and family time. Our hope is that you will use this time to attend your meetings, render Christian service, visit family members, hold family home evenings, and study the scriptures.
 
@@ -172,7 +172,7 @@ But opposition is not new to the Church. We have had opposition in the past, and
 
 I carry with me a statement of the Lord from the Book of Mormon, which my brethren of the Twelve have heard me quote. The passage reads as follows:
 
-“No weapon that is formed against thee shall prosper; and every tongue that shall revile against thee in judgment thou shalt condemn. This is the heritage of the servants of the Lord, and their righteousness is of me, saith the Lord.” ([[3 Nephi 22.17|3 Ne. 22:17]].)
+“No weapon that is formed against thee shall prosper; and every tongue that shall revile against thee in judgment thou shalt condemn. This is the heritage of the servants of the Lord, and their righteousness is of me, saith the Lord.” ([[3 Nephi 22.17|3 Ne. 22:17]].)
 
 Brothers and sisters, this is the work of the Lord. This is His church on the earth. He has entrusted His church to the care of humble men, who have extraordinary responsibilities. We need your faith, your support, and your constant prayers.
 
@@ -181,8 +181,6 @@ I testify to you that God lives and that today He communicates to His servants H
 I pray most earnestly that God’s favor and blessing will be on you, your families, and good men and women the world over, for we all are children of one Father.
 
 To this I testify and leave my blessing, in the name of Jesus Christ, amen.
-
-
 
 
 

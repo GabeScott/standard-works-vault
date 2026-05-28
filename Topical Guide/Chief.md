@@ -1,9 +1,8 @@
 # Chief
 
-
 *See also* [[Chief Priest.md|Chief Priest]]; [[Prince.md|Prince]]
 
-assembled ... the *chief* of the fathers, [[1 Kings 8.1|1 Kings 8:1]] ([[2 Chronicles 5.2|2 Chronicles 5:2]]).
+assembled … the *chief* of the fathers, [[1 Kings 8.1|1 Kings 8:1]] ([[2 Chronicles 5.2|2 Chronicles 5:2]]).
 
 the *chief* of the Levites, had the oversight, [[Nehemiah 11.16|Nehemiah 11:16]].
 
@@ -19,4 +18,4 @@ the *chief* of the people sought to destroy him, [[Luke 19.47|Luke 19:47]].
 
 in nothing am I behind the very *chiefest* apostles, [[2 Corinthians 12.11|2 Corinthians 12:11]].
 
-came ... to save sinners; of whom I am *chief*, [[1 Timothy 1.15|1 Timothy 1:15]].
+came … to save sinners; of whom I am *chief*, [[1 Timothy 1.15|1 Timothy 1:15]].

@@ -52,9 +52,9 @@ I have time to read only one testimonial. It comes from a young man who has been
 
 He says: “It is so wonderful that I do not have to just dream anymore about my education or my future. The Lord has cleared the way, and I am doing it!
 
-“I am currently attending a great technical institute in our country, where I am studying to become a computer technician. … By going to school, I am discovering my abilities. The discipline I developed on my mission helps me to succeed. … Never before has any young man felt more blessed than I do. The PEF has strengthened my faith in the Lord Jesus Christ. Now, more than ever, I feel the responsibility the gospel places upon me to prepare myself to be a better member, a better leader, and a better father. …
+“I am currently attending a great technical institute in our country, where I am studying to become a computer technician. … By going to school, I am discovering my abilities. The discipline I developed on my mission helps me to succeed. … Never before has any young man felt more blessed than I do. The PEF has strengthened my faith in the Lord Jesus Christ. Now, more than ever, I feel the responsibility the gospel places upon me to prepare myself to be a better member, a better leader, and a better father. …
 
-“My dear mother, who has sacrificed so much, gets so emotional that she cries when she prays at night because of her gratitude to the Lord. …
+“My dear mother, who has sacrificed so much, gets so emotional that she cries when she prays at night because of her gratitude to the Lord. …
 
 “Now, I envision my town being blessed because of me. I envision the Church with leaders who have financial stability and who can support the Lord’s work with all their might, mind, and strength. I see the Church prospering. I am excited to start my own family and teach them that we can be self-sufficient. So I must finish my education. I will then repay the loan quickly to help my fellowmen. … I am grateful for the Savior’s mercy. He truly sustains us with His love.”
 
@@ -65,6 +65,4 @@ May the Lord bless you, and each of us, as we rejoice in our opportunity to be a
 
 
 
-
-
-#Church_Growth #Church_History #Education #Generosity #Media
+#ChurchHistory #ChurchGrowth #Education #Generosity #Media

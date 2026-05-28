@@ -12,7 +12,7 @@ I hope you young men will also listen carefully, inasmuch as you are now prepari
 
 Fathers, yours is an eternal calling from which you are never released. Callings in the Church, as important as they are, by their very nature are only for a period of time, and then an appropriate release takes place. But a father’s calling is eternal, and its importance transcends time. It is a calling for both time and eternity.
 
-President Harold B. Lee truly stated that “the most important of the Lord’s work that you \[fathers\] will ever do will be the work you do within the walls of your own home. Home teaching, bishopric’s work, and other Church duties are all important, but the most important work is within the walls of your home” (*Strengthening the Home,* pamphlet, 1973, p. 7).
+President Harold B. Lee truly stated that “the most important of the Lord’s work that you \[fathers\] will ever do will be the work you do within the walls of your own home. Home teaching, bishopric’s work, and other Church duties are all important, but the most important work is within the walls of your home” (*Strengthening the Home,* pamphlet, 1973, p. 7).
 
 What, then, is a father’s specific responsibility within the sacred walls of his home? May I suggest two basic responsibilities of every father in Israel.
 
@@ -20,7 +20,7 @@ First, you have a sacred responsibility to provide for the material needs of you
 
 The Lord clearly defined the roles of providing for and rearing a righteous posterity. In the beginning, Adam, not Eve, was instructed to earn the bread by the sweat of his brow.
 
-The Apostle Paul counsels husbands and fathers, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Tim. 5:8]]).
+The Apostle Paul counsels husbands and fathers, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Tim. 5:8]]).
 
 Early in the history of the restored Church, the Lord specifically charged men with the obligation to provide for their wives and family. In January of 1832 He said, “Verily I say unto you, that every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown” ([[D&C 75.28|D&C 75:28]]). Three months later the Lord said again, “Women have claim on their husbands for their maintenance, until their husbands are taken” ([[D&C 83.2|D&C 83:2]]). This is the divine right of a wife and mother. While she cares for and nourishes her children at home, her husband earns the living for the family, which makes this nourishing possible.
 
@@ -28,9 +28,9 @@ In a home where there is an able-bodied husband, he is expected to be the breadw
 
 Also, the need for education or material things does not justify the postponing of children in order to keep the wife working as the breadwinner of the family.
 
-I remember the counsel of our beloved prophet Spencer W. Kimball to married students. He said: “I have told tens of thousands of young folks that when they marry they should not wait for children until they have finished their schooling and financial desires. … They should live together normally and let the children come. …
+I remember the counsel of our beloved prophet Spencer W. Kimball to married students. He said: “I have told tens of thousands of young folks that when they marry they should not wait for children until they have finished their schooling and financial desires. … They should live together normally and let the children come. …
 
-“I know of no scriptures,” President Kimball continued, “where an authorization is given to young wives to withhold their families and go to work to put their husbands through school. There are thousands of husbands who have worked their own way through school and have reared families at the same time” (“Marriage Is Honorable,” in *Speeches of the Year, 1973,* Provo: Brigham Young University Press, 1974, p. 263).
+“I know of no scriptures,” President Kimball continued, “where an authorization is given to young wives to withhold their families and go to work to put their husbands through school. There are thousands of husbands who have worked their own way through school and have reared families at the same time” (“Marriage Is Honorable,” in *Speeches of the Year, 1973,* Provo: Brigham Young University Press, 1974, p. 263).
 
 Brethren of the priesthood, I continue to emphasize the importance of mothers staying home to nurture, care for, and train their children in the principles of righteousness.
 
@@ -48,7 +48,7 @@ Yes, brethren, as fathers in Israel you have a great responsibility to provide f
 
 Second, you have a sacred responsibility to provide spiritual leadership in your family.
 
-In a pamphlet published some years ago by the Council of the Twelve, we said the following: “Fatherhood is leadership, the most important kind of leadership. It has always been so; it always will be so. Father, with the assistance and counsel and encouragement of your eternal companion, you preside in the home” (*Father, Consider Your Ways,* pamphlet, 1973, pp. 4–5).
+In a pamphlet published some years ago by the Council of the Twelve, we said the following: “Fatherhood is leadership, the most important kind of leadership. It has always been so; it always will be so. Father, with the assistance and counsel and encouragement of your eternal companion, you preside in the home” (*Father, Consider Your Ways,* pamphlet, 1973, pp. 4–5).
 
 However, along with that presiding position come important obligations. We sometimes hear accounts of men, even in the Church, who think that being head of the home somehow puts them in a superior role and allows them to dictate and make demands upon their family.
 
@@ -113,8 +113,6 @@ Remember your sacred calling as a father in Israel—your most important calling
 May you always provide for the material needs of your family and, with your eternal companion at your side, may you fulfill your sacred responsibility to provide the spiritual leadership in your home.
 
 To this end I pray, in the name of Jesus Christ, amen.
-
-
 
 
 

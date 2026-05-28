@@ -1,6 +1,5 @@
 # Catch, Caught
 
-
 behold behind him a ram *caught* in a thicket, [[Genesis 22.13|Genesis 22:13]].
 
 he lieth in wait to *catch* the poor, [[Psalms 10.9|Psalms 10:9]].
@@ -29,6 +28,6 @@ I was *caught* away in the Spirit, [[1 Nephi 11.1|1 Nephi 11:1]].
 
 they have *caught* you in the words, [[D&C 10.13|D&C 10:13]].
 
-saints ... who are alive, shall be quickened and be *caught* up, [[D&C 88.96|D&C 88:96]] ([[D&C 101.31|D&C 101:31]]; [[D&C 109.75|D&C 109:75]]).
+saints … who are alive, shall be quickened and be *caught* up, [[D&C 88.96|D&C 88:96]] ([[D&C 101.31|D&C 101:31]]; [[D&C 109.75|D&C 109:75]]).
 
 he was *caught* away by the Spirit, [[Moses 6.64|Moses 6:64]].

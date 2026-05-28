@@ -1,13 +1,12 @@
 # Provoking, Provoke
 
-
 *See also* [[Anger.md|Anger]]; [[Kindle.md|Kindle]]; [[Stir.md|Stir]]
 
 obey his voice, *provoke* him not, [[Exodus 23.21|Exodus 23:21]].
 
 How long will this people *provoke* me, [[Numbers 14.11|Numbers 14:11]].
 
-turn unto other gods ... and *provoke* me, [[Deuteronomy 31.20|Deuteronomy 31:20]].
+turn unto other gods … and *provoke* me, [[Deuteronomy 31.20|Deuteronomy 31:20]].
 
 *provoked* me to anger with their vanities, [[Deuteronomy 32.21|Deuteronomy 32:21]].
 
@@ -21,7 +20,7 @@ Satan stood up against Israel, and *provoked* David to number Israel, [[1 Chroni
 
 oft did they *provoke* him in the wilderness, [[Psalms 78.40|Psalms 78:40]].
 
-*provoked* him at the ... Red sea, [[Psalms 106.7|Psalms 106:7]].
+*provoked* him at the … Red sea, [[Psalms 106.7|Psalms 106:7]].
 
 A people that *provoketh* me to anger continually, [[Isaiah 65.3|Isaiah 65:3]].
 

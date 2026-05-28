@@ -1,4 +1,3 @@
 # Forgetfulness
 
-
-*See* [[Veil.md|Veil]]
+*See also* [[Veil.md|Veil]]

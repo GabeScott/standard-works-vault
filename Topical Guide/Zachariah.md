@@ -1,4 +1,3 @@
 # Zachariah
 
-
-*See* [BD Zachariah](https://www.churchofjesuschrist.org/study/scriptures/bd/zachariah?lang=eng)
+*See also* [[BD Zachariah.md|BD Zachariah]]

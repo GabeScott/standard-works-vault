@@ -10,11 +10,11 @@ My brothers and sisters, the Church is at one of those hinge points in its histo
 
 Among other things, the past obscurity of the Church is giving way to visibility. Obscurity denotes that which is “generally unknown” and “withdrawn from the centers of activity”: hence, the obscure is often misunderstood.
 
-The Lord described how He will bring His latter-day work “forth out of obscurity and out of darkness.” ([[D&C 1.30|D&C 1:30]]; see also [[1 Nephi 22.12|1 Ne. 22:12]]; [[2 Nephi 1.23|2 Ne. 1:23]]; [[2 Nephi 27.29|27:29]].) Thus, as foreseen, Christ and His work are becoming a light which can no longer be hidden. (See [[D&C 14.9|D&C 14:9]].) This emerging reality brings with it its own set of challenges and opportunities. For instance, though the gospel light is small, the adversary knows what it signifies, hence his disproportionate efforts to dim it.
+The Lord described how He will bring His latter-day work “forth out of obscurity and out of darkness.” ([[D&C 1.30|D&C 1:30]]; see also [[1 Nephi 22.12|1 Ne. 22:12]]; [[2 Nephi 1.23|2 Ne. 1:23]]; [[2 Nephi 27.29|27:29]].) Thus, as foreseen, Christ and His work are becoming a light which can no longer be hidden. (See [[D&C 14.9|D&C 14:9]].) This emerging reality brings with it its own set of challenges and opportunities. For instance, though the gospel light is small, the adversary knows what it signifies, hence his disproportionate efforts to dim it.
 
-Furthermore, God has chosen to work through those whom the world regards as weak and foolish. (See [[1 Corinthians 1.27|1 Cor. 1:27]]; [[D&C 1.19|D&C 1:19, 28]][[D&C 1.28|]]; [[D&C 133.58|133:58–59]][[D&C 133.59|]].) With heightened visibility, this fact, too, then creates its own set of challenges. Nevertheless, “God hath chosen the foolish … to confound the wise; … the weak … to confound the … mighty.” ([[1 Corinthians 1.27|1 Cor. 1:27]].)
+Furthermore, God has chosen to work through those whom the world regards as weak and foolish. (See [[1 Corinthians 1.27|1 Cor. 1:27]]; [[D&C 1.19|D&C 1:19, 28]][[D&C 1.28|]]; [[D&C 133.58|133:58–59]][[D&C 133.59|]].) With heightened visibility, this fact, too, then creates its own set of challenges. Nevertheless, “God hath chosen the foolish … to confound the wise; … the weak … to confound the … mighty.” ([[1 Corinthians 1.27|1 Cor. 1:27]].)
 
-Disciples need not be embarrassed by considerations of scale any more than by the infrequency of prestigious converts, since, as Paul said, “Not many wise men after the flesh, not many mighty, not many noble, are called.” ([[1 Corinthians 1.26|1 Cor. 1:26]].)
+Disciples need not be embarrassed by considerations of scale any more than by the infrequency of prestigious converts, since, as Paul said, “Not many wise men after the flesh, not many mighty, not many noble, are called.” ([[1 Corinthians 1.26|1 Cor. 1:26]].)
 
 But there is still more to be allowed for!
 
@@ -60,9 +60,9 @@ The same general disregard attends those whom God chooses as His leaders; moreov
 
 Moses was described as the most meek man upon the face of the earth. (See [[Numbers 12.3|Num. 12:3]].) Yet Moses had a brief moment when he rashly declared, “Hear now, ye rebels; must *we* fetch you water out of this rock?” ([[Numbers 20.10|Num. 20:10]]; italics added.) Even so, the Lord readied remarkable Moses for later service, including that atop the Mount of Transfiguration. (See [[Matthew 17.1|Matt. 17:1–4]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]].)
 
-After Paul wrote his touching epistle on love to the Saints at Corinth (see [[1 Corinthians 13.1|1 Cor. 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]]), he wrote to Galatian members, using some stinging and sarcastic language. Furthermore, companion Barnabas apparently heard Paul’s tongue when it was not the tongue of an angel. (See [[Acts 15.2|Acts 15:2]].)
+After Paul wrote his touching epistle on love to the Saints at Corinth (see [[1 Corinthians 13.1|1 Cor. 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]]), he wrote to Galatian members, using some stinging and sarcastic language. Furthermore, companion Barnabas apparently heard Paul’s tongue when it was not the tongue of an angel. (See [[Acts 15.2|Acts 15:2]].)
 
-Paul even noted his tendency to boast (see [[2 Corinthians 10.8|2 Cor. 10:8, 13, 15]][[2 Corinthians 10.13|]][[2 Corinthians 10.15|]]; [[2 Corinthians 11.1|11:1, 16, 21]][[2 Corinthians 11.16|]][[2 Corinthians 11.21|]]; [[2 Corinthians 12.1|12:1]]), reminding us of the wisdom of yet another prophet who wrote: “I do not boast in my own strength, nor in my own wisdom; …
+Paul even noted his tendency to boast (see [[2 Corinthians 10.8|2 Cor. 10:8, 13, 15]][[2 Corinthians 10.13|]][[2 Corinthians 10.15|]]; [[2 Corinthians 11.1|11:1, 16, 21]][[2 Corinthians 11.16|]][[2 Corinthians 11.21|]]; [[2 Corinthians 12.1|12:1]]), reminding us of the wisdom of yet another prophet who wrote: “I do not boast in my own strength, nor in my own wisdom; …
 
 “But I will boast of my God.” ([[Alma 26.11|Alma 26:11–12]][[Alma 26.12|]].)
 
@@ -74,7 +74,7 @@ Throughout scriptural history, we see recurring efforts to demean prophets in or
 
 Like his predecessors, Joseph Smith reflected some of the anxieties and activities of his time and period. Yet a torrent of truth came through that good, but imperfect, conduit—more than Joseph could communicate, as he once declared:
 
-“It is my meditation all the day and more than my meat and drink to know how I shall make the saints of God to comprehend the visions that roll like an overflowing surge, before my mind.” (Andrew F. Ehat and Lyndon W. Cook, eds. and comps., *The Words of Joseph Smith,* Provo, Utah: Religious Studies Center, Brigham Young University, 1980, p. 196.)
+“It is my meditation all the day and more than my meat and drink to know how I shall make the saints of God to comprehend the visions that roll like an overflowing surge, before my mind.” (Andrew F. Ehat and Lyndon W. Cook, eds. and comps., *The Words of Joseph Smith,* Provo, Utah: Religious Studies Center, Brigham Young University, 1980, p. 196.)
 
 Some followers became disaffected, but later returned—including once-statusful men like Oliver Cowdery, Martin Harris, and Thomas B. Marsh. Yet these men voted with their feet to rejoin and reconcile with the kingdom. The true doctrines drew them back, however, and the only status sought or conferred was membership, once again, in the Lord’s church.
 
@@ -88,7 +88,7 @@ And Lorenzo Snow practiced:
 
 From Elder B. H. Roberts, who loved the Prophet dearly, there were these words:
 
-“Joseph Smith … claimed for himself no special sanctity, no faultless life, no perfection of character, no inerrancy for every word spoken by him. And as he did not claim these things for himself, so can they not be claimed for him by others. …
+“Joseph Smith … claimed for himself no special sanctity, no faultless life, no perfection of character, no inerrancy for every word spoken by him. And as he did not claim these things for himself, so can they not be claimed for him by others. …
 
 “Yet to Joseph Smith was given,” said Brother Roberts, “access to the mind of Deity, through the revelations of God to him.” (*Comprehensive History,* 2:360–61.)
 
@@ -112,21 +112,21 @@ Why those two particular trials?
 
 Also, why not give us a lengthier Book of Mormon?
 
-“Behold, I was about to write them, all which were engraven upon the plates of Nephi, but the Lord forbade it, saying: I will try the faith of my people.” ([[3 Nephi 26.11|3 Ne. 26:11]].)
+“Behold, I was about to write them, all which were engraven upon the plates of Nephi, but the Lord forbade it, saying: I will try the faith of my people.” ([[3 Nephi 26.11|3 Ne. 26:11]].)
 
 Again we must wait for our full answer.
 
-So the process of proving, reproving, and improving unfolds; it should neither offend us nor surprise us. Meanwhile, unevenness in the spiritual development of people means untidiness in the history of people, and we should not make an individual “an offender for a word” ([[Isaiah 29.21|Isa. 29:21]]; [[2 Nephi 27.32|2 Ne. 27:32]]), as if a single communication could set aside all else an individual may have communicated or stood for!
+So the process of proving, reproving, and improving unfolds; it should neither offend us nor surprise us. Meanwhile, unevenness in the spiritual development of people means untidiness in the history of people, and we should not make an individual “an offender for a word” ([[Isaiah 29.21|Isa. 29:21]]; [[2 Nephi 27.32|2 Ne. 27:32]]), as if a single communication could set aside all else an individual may have communicated or stood for!
 
 Some lie in wait in our day, as during the ministry of Jesus, seeking to “provoke him to speak of many things,” seeking to “catch something out of his mouth that they might accuse him.” ([[Luke 11.53|Luke 11:53–54]][[Luke 11.54|]].) The Pharisees actually “took counsel how they might entangle him in his talk.” ([[Matthew 22.15|Matt. 22:15]].)
 
 The finished mosaic of the history of the Restoration will be larger and more varied as more pieces of tile emerge, adjusting a sequence here or enlarging there a sector of our understanding.
 
-The fundamental outline is in place now, however. But history deals with imperfect people in process of time, whose imperfections produce refractions as the pure light of the gospel plays upon them. There may even be a few pieces of tile which, for the moment, do not seem to fit. We can wait, as we must, to learn later whether, for instance, Matthew’s or Luke’s account of Jesus’ Davidic descent is correct. (See [[Matthew 1.1|Matt. 1]][[Matthew 1.2|]][[Matthew 1.3|]][[Matthew 1.4|]][[Matthew 1.5|]][[Matthew 1.6|]][[Matthew 1.7|]][[Matthew 1.8|]][[Matthew 1.9|]][[Matthew 1.10|]][[Matthew 1.11|]][[Matthew 1.12|]][[Matthew 1.13|]][[Matthew 1.14|]][[Matthew 1.15|]][[Matthew 1.16|]][[Matthew 1.17|]][[Matthew 1.18|]][[Matthew 1.19|]][[Matthew 1.20|]][[Matthew 1.21|]][[Matthew 1.22|]][[Matthew 1.23|]][[Matthew 1.24|]][[Matthew 1.25|]]; [[Luke 3.1|Luke 3]][[Luke 3.2|]][[Luke 3.3|]][[Luke 3.4|]][[Luke 3.5|]][[Luke 3.6|]][[Luke 3.7|]][[Luke 3.8|]][[Luke 3.9|]][[Luke 3.10|]][[Luke 3.11|]][[Luke 3.12|]][[Luke 3.13|]][[Luke 3.14|]][[Luke 3.15|]][[Luke 3.16|]][[Luke 3.17|]][[Luke 3.18|]][[Luke 3.19|]][[Luke 3.20|]][[Luke 3.21|]][[Luke 3.22|]][[Luke 3.23|]][[Luke 3.24|]][[Luke 3.25|]][[Luke 3.26|]][[Luke 3.27|]][[Luke 3.28|]][[Luke 3.29|]][[Luke 3.30|]][[Luke 3.31|]][[Luke 3.32|]][[Luke 3.33|]][[Luke 3.34|]][[Luke 3.35|]][[Luke 3.36|]][[Luke 3.37|]][[Luke 3.38|]].) Meanwhile, the Father has, on several occasions, given us Jesus’ crucial genealogy: “This is My Beloved Son, in whom I am well pleased. Hear Him!” (See [[Matthew 3.17|Matt. 3:17]]; [[Matthew 17.5|17:5]]; [[3 Nephi 11.7|3 Ne. 11:7]]; [[Joseph Smith History 1.17|JS—H 1:17]]; italics added.)
+The fundamental outline is in place now, however. But history deals with imperfect people in process of time, whose imperfections produce refractions as the pure light of the gospel plays upon them. There may even be a few pieces of tile which, for the moment, do not seem to fit. We can wait, as we must, to learn later whether, for instance, Matthew’s or Luke’s account of Jesus’ Davidic descent is correct. (See [[Matthew 1.1|Matt. 1]][[Matthew 1.2|]][[Matthew 1.3|]][[Matthew 1.4|]][[Matthew 1.5|]][[Matthew 1.6|]][[Matthew 1.7|]][[Matthew 1.8|]][[Matthew 1.9|]][[Matthew 1.10|]][[Matthew 1.11|]][[Matthew 1.12|]][[Matthew 1.13|]][[Matthew 1.14|]][[Matthew 1.15|]][[Matthew 1.16|]][[Matthew 1.17|]][[Matthew 1.18|]][[Matthew 1.19|]][[Matthew 1.20|]][[Matthew 1.21|]][[Matthew 1.22|]][[Matthew 1.23|]][[Matthew 1.24|]][[Matthew 1.25|]]; [[Luke 3.1|Luke 3]][[Luke 3.2|]][[Luke 3.3|]][[Luke 3.4|]][[Luke 3.5|]][[Luke 3.6|]][[Luke 3.7|]][[Luke 3.8|]][[Luke 3.9|]][[Luke 3.10|]][[Luke 3.11|]][[Luke 3.12|]][[Luke 3.13|]][[Luke 3.14|]][[Luke 3.15|]][[Luke 3.16|]][[Luke 3.17|]][[Luke 3.18|]][[Luke 3.19|]][[Luke 3.20|]][[Luke 3.21|]][[Luke 3.22|]][[Luke 3.23|]][[Luke 3.24|]][[Luke 3.25|]][[Luke 3.26|]][[Luke 3.27|]][[Luke 3.28|]][[Luke 3.29|]][[Luke 3.30|]][[Luke 3.31|]][[Luke 3.32|]][[Luke 3.33|]][[Luke 3.34|]][[Luke 3.35|]][[Luke 3.36|]][[Luke 3.37|]][[Luke 3.38|]].) Meanwhile, the Father has, on several occasions, given us Jesus’ crucial genealogy: “This is My Beloved Son, in whom I am well pleased. Hear Him!” (See [[Matthew 3.17|Matt. 3:17]]; [[Matthew 17.5|17:5]]; [[3 Nephi 11.7|3 Ne. 11:7]]; [[Joseph Smith History 1.17|JS—H 1:17]]; italics added.)
 
 Granted, there is not full correlation among the four Gospels about the events and participants at the empty garden tomb. (See [[Matthew 28.1|Matt. 28:1–8]][[Matthew 28.2|]][[Matthew 28.3|]][[Matthew 28.4|]][[Matthew 28.5|]][[Matthew 28.6|]][[Matthew 28.7|]][[Matthew 28.8|]]; [[Mark 16.1|Mark 16:1–8]][[Mark 16.2|]][[Mark 16.3|]][[Mark 16.4|]][[Mark 16.5|]][[Mark 16.6|]][[Mark 16.7|]][[Mark 16.8|]]; [[Luke 24.1|Luke 24:1–9]][[Luke 24.2|]][[Luke 24.3|]][[Luke 24.4|]][[Luke 24.5|]][[Luke 24.6|]][[Luke 24.7|]][[Luke 24.8|]][[Luke 24.9|]]; [[John 20.1|John 20:1–10]][[John 20.2|]][[John 20.3|]][[John 20.4|]][[John 20.5|]][[John 20.6|]][[John 20.7|]][[John 20.8|]][[John 20.9|]][[John 20.10|]].) Yet the important thing is that the tomb was empty, because Jesus had been resurrected! Essence, not tactical detail! Moreover, the faithful, then and now, understand why the resurrected Jesus did not appear to the Sanhedrin, to Caiaphas, or Pilate—but, instead, to the bands of believers at Bethany and Bountiful.
 
-Why, for instance, did not ancient Church leaders more carefully record the fulfillment of certain prophecies of Samuel, the Lamanite? (See [[3 Nephi 23.9|3 Ne. 23:9–14]][[3 Nephi 23.10|]][[3 Nephi 23.11|]][[3 Nephi 23.12|]][[3 Nephi 23.13|]][[3 Nephi 23.14|]].) Belatedly, at Jesus’ direction, it was written fully and precisely.
+Why, for instance, did not ancient Church leaders more carefully record the fulfillment of certain prophecies of Samuel, the Lamanite? (See [[3 Nephi 23.9|3 Ne. 23:9–14]][[3 Nephi 23.10|]][[3 Nephi 23.11|]][[3 Nephi 23.12|]][[3 Nephi 23.13|]][[3 Nephi 23.14|]].) Belatedly, at Jesus’ direction, it was written fully and precisely.
 
 So, belatedly, the fulness of the history of the dispensation of the fulness of times will be written!
 
@@ -134,7 +134,7 @@ The final mosaic of the Restoration will be resplendent, reflecting divine desig
 
 At the perfect day, we will see that we have been a part of things too wonderful for us. Part of the marvel and the wonder of God’s “marvelous work and a wonder” will be how perfect Divinity mercifully used us—imperfect humanity.
 
-Meanwhile, amid the human dissonance, those with ears to hear will follow the beckoning sounds of a certain trumpet. (See [[1 Corinthians 14.8|1 Cor. 14:8]].)
+Meanwhile, amid the human dissonance, those with ears to hear will follow the beckoning sounds of a certain trumpet. (See [[1 Corinthians 14.8|1 Cor. 14:8]].)
 
 Besides, whatever the present, do we not rightly sing of our God “We’ve proved him in days that are past”? (*Hymns,* no. 196).
 
@@ -143,6 +143,4 @@ This is the Lord’s work! It will roll on until all His purposes are fulfilled 
 
 
 
-
-
-#Church_Growth #Joseph_Smith #Opposition
+#ChurchGrowth #JosephSmith #Opposition

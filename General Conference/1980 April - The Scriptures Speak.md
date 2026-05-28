@@ -10,7 +10,7 @@ We have been taught by our President and our leaders that we should study and re
 
 The Savior of the world advised us to read the scriptures. He said: “Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me” ([[John 5.39|John 5:39]]). Is there anything worth seeking more than eternal life?
 
-As I read the scriptures—and I have read the Book of Mormon during the past six months and most of the Bible—I always find something therein that I did not remember was there when I read it before. And I would like to use as a sort of a text for what I say here today a verse that I took from the book of Nahum, chapter 2, in the Bible, which reads as follows: “The chariots shall be with flaming torches in the day of his preparation. …
+As I read the scriptures—and I have read the Book of Mormon during the past six months and most of the Bible—I always find something therein that I did not remember was there when I read it before. And I would like to use as a sort of a text for what I say here today a verse that I took from the book of Nahum, chapter 2, in the Bible, which reads as follows: “The chariots shall be with flaming torches in the day of his preparation. …
 
 “The chariots shall rage in the streets, they shall justle one against another in the broad ways: they shall seem like torches, they shall run like the lightnings” ([[Nahum 2.3|Nahum 2:3–4]][[Nahum 2.4|]]).
 
@@ -63,6 +63,4 @@ I pray God to bless you all, and bear you my witness of the divinity of this wor
 
 
 
-
-
-#Jesus_Christ #Restoration
+#JesusChrist #Restoration

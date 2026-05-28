@@ -1,7 +1,6 @@
 # Laziness
 
-
-*See also* [[Idleness, Idle, Idler.md|Idleness]]; [[Sleep, Slept.md|Sleep]]; [[Slothful, Slothfulness.md|Slothful]]
+*See also* [[Idleness.md|Idleness]]; [[Sleep.md|Sleep]]; [[Slothful.md|Slothful]]
 
 Go to the ant, thou *sluggard*; consider her ways, [[Proverbs 6.6|Proverbs 6:6]].
 
@@ -23,9 +22,9 @@ thus they were supported in their *laziness*, [[Mosiah 11.6|Mosiah 11:6]].
 
 they were a very *indolent* people, [[Alma 17.15|Alma 17:15]].
 
-they became more hardened ... giving way to *indolence*, [[Alma 47.36|Alma 47:36]].
+they became more hardened … giving way to *indolence*, [[Alma 47.36|Alma 47:36]].
 
-Wo unto you ... who will not *labor* with your own hands, [[D&C 56.17|D&C 56:17]].
+Wo unto you … who will not *labor* with your own hands, [[D&C 56.17|D&C 56:17]].
 
 men should be *anxiously* engaged in a good cause, [[D&C 58.27|D&C 58:27]].
 

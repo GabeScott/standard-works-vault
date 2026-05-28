@@ -1,9 +1,8 @@
 # Take, Took, Taken
 
-
 *See also* [[Accept.md|Accept]]; [[Receive.md|Receive]]
 
-Enoch ... was not; for God *took* him, [[Genesis 5.24|Genesis 5:24]] ([[Moses 7.69|Moses 7:69]]).
+Enoch … was not; for God *took* him, [[Genesis 5.24|Genesis 5:24]] ([[Moses 7.69|Moses 7:69]]).
 
 I will *take* you to me for a people, [[Exodus 6.7|Exodus 6:7]].
 
@@ -27,7 +26,7 @@ he that *taketh* not his cross, and followeth after me, [[Matthew 10.38|Matthew 
 
 from him shall be *taken* away even that he hath, [[Matthew 13.12|Matthew 13:12]] ([[Matthew 25.29|Matthew 25:29]]; [[Mark 4.25|Mark 4:25]]; [[Luke 8.18|Luke 8:18]]; [[Luke 19.26|Luke 19:26]]).
 
-let him ... *take* up his cross, [[Matthew 16.24|Matthew 16:24]] ([[Mark 8.34|Mark 8:34]]; [[Luke 9.23|Luke 9:23]]).
+let him … *take* up his cross, [[Matthew 16.24|Matthew 16:24]] ([[Mark 8.34|Mark 8:34]]; [[Luke 9.23|Luke 9:23]]).
 
 kingdom of God shall be *taken* from you, [[Matthew 21.43|Matthew 21:43]].
 
@@ -39,11 +38,11 @@ one shall be *taken*, and the other left, [[Matthew 24.40|Matthew 24:40]] ([[Luk
 
 *take* away this cup from me, [[Mark 14.36|Mark 14:36]].
 
-*take* ye no thought how ... ye shall answer, [[Luke 12.11|Luke 12:11]].
+*take* ye no thought how … ye shall answer, [[Luke 12.11|Luke 12:11]].
 
 *Take* from him the pound, [[Luke 19.24|Luke 19:24]].
 
-he *took* the cup ... and said, *Take* this, and divide it, [[Luke 22.17|Luke 22:17]].
+he *took* the cup … and said, *Take* this, and divide it, [[Luke 22.17|Luke 22:17]].
 
 he *took* bread, and blessed it, [[Luke 24.30|Luke 24:30]].
 
@@ -61,7 +60,7 @@ while they beheld, he was *taken* up, [[Acts 1.9|Acts 1:9]].
 
 ye shall *take* it patiently, [[1 Peter 2.20|1 Peter 2:20]].
 
-hold that fast ... that no man *take* thy crown, [[Revelation 3.11|Revelation 3:11]].
+hold that fast … that no man *take* thy crown, [[Revelation 3.11|Revelation 3:11]].
 
 let him *take* the water of life freely, [[Revelation 22.17|Revelation 22:17]].
 
@@ -75,7 +74,7 @@ they have *taken* away from the gospel of the Lamb, [[1 Nephi 13.26|1 Nephi 13:2
 
 willing to *take* upon you the name of Christ, [[2 Nephi 31.13|2 Nephi 31:13]] ([[Mosiah 5.8|Mosiah 5:8]]; [[D&C 18.21|D&C 18:21]]).
 
-Christ ... *take* upon him the image of man, [[Mosiah 7.27|Mosiah 7:27]].
+Christ … *take* upon him the image of man, [[Mosiah 7.27|Mosiah 7:27]].
 
 he will *take* upon him death, [[Alma 7.12|Alma 7:12]].
 
@@ -87,22 +86,20 @@ willing to *take* upon them the name of thy Son, [[Moroni 4.3|Moroni 4:3]] ([[D&
 
 from him shall be *taken* even the light which he has, [[D&C 1.33|D&C 1:33]].
 
-Priesthood of Aaron ... shall never be *taken* again from the earth, ([[Joseph Smith History 1.69|Joseph Smith History 1:69]]).
-
 let those who are sanctified *take* heed, [[D&C 20.34|D&C 20:34]].
 
 you must *take* up your cross, [[D&C 23.6|D&C 23:6]].
 
-I ... have *taken* the Zion of Enoch, [[D&C 38.4|D&C 38:4]] ([[Moses 7.23|Moses 7:23]]).
+I … have *taken* the Zion of Enoch, [[D&C 38.4|D&C 38:4]] ([[Moses 7.23|Moses 7:23]]).
 
 ye do it not, it shall be *taken*, even that which ye have received, [[D&C 43.10|D&C 43:10]] ([[D&C 60.3|D&C 60:3]]).
 
-wise ... have *taken* the Holy Spirit for their guide, [[D&C 45.57|D&C 45:57]].
+wise … have *taken* the Holy Spirit for their guide, [[D&C 45.57|D&C 45:57]].
 
 strong in the Spirit, let him *take* with him him that is weak, [[D&C 84.106|D&C 84:106]].
 
 wicked one cometh and *taketh* away light, [[D&C 93.39|D&C 93:39]].
 
-choice spirits who were reserved ... to *take* part in laying the foundations, [[D&C 138.53|D&C 138:53]].
+choice spirits who were reserved … to *take* part in laying the foundations, [[D&C 138.53|D&C 138:53]].
 
 esteem my words as naught and *take* many of them from the book, [[Moses 1.41|Moses 1:41]].

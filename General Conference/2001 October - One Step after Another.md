@@ -138,7 +138,7 @@ Our Heavenly Father lives and knows and loves each one of us. Jesus is the Chris
 
 [^7]: [[Psalms 119.105|Ps. 119:105]].
 
-[^8]: [[1 Nephi 8.24|1 Ne. 8:24]].
+[^8]: [[1 Nephi 8.24|1 Ne. 8:24]].
 
 [^9]: [[James 1.5|James 1:5]].
 
@@ -146,6 +146,4 @@ Our Heavenly Father lives and knows and loves each one of us. Jesus is the Chris
 
 [^11]: “Does the Journey Seem Long?” *Hymns,* no. 127.
 
-
-
-#Adversity #Dedication #Disabilities #Faith #God_The_Father #Holy_Ghost #Priorities #Prophets #Scriptures #Truth
+#Adversity #Dedication #Disabilities #Faith #GodTheFather #HolyGhost #Priorities #Prophets #Scriptures #Truth

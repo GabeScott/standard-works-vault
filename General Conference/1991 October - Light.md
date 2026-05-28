@@ -12,7 +12,7 @@ Two types of light are physical light and spiritual light.
 
 *Physical light,* especially natural light, affects the moods of people. When summer’s light begins to fade, days grow shorter, and the winter season looms darkly ahead, natural light becomes a more precious commodity, especially to people who live in extreme northern climates. There, where darkness reigns for up to three months a year and then summer blooms into three months of constant daylight, moods swing with the seasons.
 
-Light does have a profound effect on human mood and behavior. Mounting evidence indicates that people who are feeling a little down and need a lift can get it by going outside in daylight. Walking in the light is a natural mood booster. Many who simply walk for half an hour or more during the daylight hours receive a distinct benefit. (See *The Walking Magazine,* Jan.–Feb. 1989, pp. 28–30.)
+Light does have a profound effect on human mood and behavior. Mounting evidence indicates that people who are feeling a little down and need a lift can get it by going outside in daylight. Walking in the light is a natural mood booster. Many who simply walk for half an hour or more during the daylight hours receive a distinct benefit. (See *The Walking Magazine,* Jan.–Feb. 1989, pp. 28–30.)
 
 Scientists are not entirely certain which wavelengths cause light’s mood-boosting effects. Researchers believe that these effects are traceable to light taken in *through the eyes* and not through the skin.
 
@@ -20,7 +20,7 @@ A second medical use of light is light therapy for treating some cancers. Certai
 
 Shifting from these brief remarks about physical light, I should like to consider a kind of light that has infinitely greater power and effect. I speak of *spiritual light.* It comes from God and his gospel. In the scriptures, we find reference to a relationship between the physical light of the sun and spiritual light. We read in the Doctrine and Covenants, section 88, of “the light of truth;
 
-“Which truth shineth. This is the light of Christ. As also he is in the sun, and the light of the sun, and the power thereof by which it was made. …
+“Which truth shineth. This is the light of Christ. As also he is in the sun, and the light of the sun, and the power thereof by which it was made. …
 
 “And the light which shineth, which giveth you light, is through him who enlighteneth your eyes, which is the same light that quickeneth your understandings;
 
@@ -56,7 +56,7 @@ John said, “Then spake Jesus again unto them, saying, *I am the light of the w
 
 “2. By this same immensity-filling light—and also, to certain faithful ones, by the power of the Holy Ghost!—he enlightens the mind and quickens the understanding.
 
-“3. By his own upright, sinless, and perfect course, in \[premortal life\], in mortality, and in resurrected glory, he sets a perfect example and is able to say to all men: ‘Follow thou me.’ ([[2 Nephi 31.10|2 Ne. 31:10]].)” (*The Promised Messiah* \[Salt Lake City: Deseret Book Co., 1978\], p. 208.)
+“3. By his own upright, sinless, and perfect course, in \[premortal life\], in mortality, and in resurrected glory, he sets a perfect example and is able to say to all men: ‘Follow thou me.’ ([[2 Nephi 31.10|2 Ne. 31:10]].)” (*The Promised Messiah* \[Salt Lake City: Deseret Book Co., 1978\], p. 208.)
 
 In the First Vision, *light* released the boy Joseph from oppressive darkness.
 
@@ -66,9 +66,9 @@ Commenting on this passage, Elder Bruce R. McConkie states: “Christ is the lig
 
 President Joseph F. Smith said:
 
-“One fault to be avoided by the Saints, young and old, is the tendency to live on *borrowed light,* with their own hidden under a bushel; to permit the savor of their salt of knowledge to be lost; and the light within them to be reflected, rather than original. …
+“One fault to be avoided by the Saints, young and old, is the tendency to live on *borrowed light,* with their own hidden under a bushel; to permit the savor of their salt of knowledge to be lost; and the light within them to be reflected, rather than original. …
 
-“Men and women should become settled in the truth, and *founded in the knowledge of the gospel,* depending upon no person for borrowed or reflected light, but trusting only upon the Holy Spirit, who is ever the same, shining forever and testifying to the individual and the priesthood, who live in harmony with the laws of the gospel, of the glory and the will of the Father. They will then have light everlasting which cannot be obscured. By its shining in their lives, they shall cause others to glorify God; and by their well-doing put to silence the ignorance of foolish men, and show forth the praises of him who hath called them out of darkness into his marvelous light” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], pp. 87–88; italics added).
+“Men and women should become settled in the truth, and *founded in the knowledge of the gospel,* depending upon no person for borrowed or reflected light, but trusting only upon the Holy Spirit, who is ever the same, shining forever and testifying to the individual and the priesthood, who live in harmony with the laws of the gospel, of the glory and the will of the Father. They will then have light everlasting which cannot be obscured. By its shining in their lives, they shall cause others to glorify God; and by their well-doing put to silence the ignorance of foolish men, and show forth the praises of him who hath called them out of darkness into his marvelous light” (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], pp. 87–88; italics added).
 
 Light persuades us to do good; it leads us to Christ. It led my family as it has led yours, and it can and will lead all to him.
 
@@ -93,6 +93,4 @@ I must return and report my stewardship and *my words* in the heavens when I lea
 
 
 
-
-
-#Faith #Hope #Jesus_Christ #Obedience #Testimony
+#Faith #Hope #JesusChrist #Obedience #Testimony

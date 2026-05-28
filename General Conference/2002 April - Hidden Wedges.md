@@ -12,7 +12,7 @@ In April 1966, at the Church’s annual general conference, Elder Spencer W. Kim
 
 Whitman wrote: “The ice storm \[that winter\] wasn’t generally destructive. True, a few wires came down, and there was a sudden jump in accidents along the highway. … Normally, the big walnut tree could easily have borne the weight that formed on its spreading limbs. It was the iron wedge in its heart that caused the damage.
 
-“The story of the iron wedge began years ago when the white-haired farmer \[who now inhabited the property on which it stood\] was a lad on his father’s homestead. The sawmill had then only recently been moved from the valley, and the settlers were still finding tools and odd pieces of equipment scattered about. …
+“The story of the iron wedge began years ago when the white-haired farmer \[who now inhabited the property on which it stood\] was a lad on his father’s homestead. The sawmill had then only recently been moved from the valley, and the settlers were still finding tools and odd pieces of equipment scattered about. …
 
 “On this particular day, it was a faller’s wedge—wide, flat, and heavy, a foot or more long, and splayed from mighty poundings,” which the lad found in the south pasture. A faller’s wedge, used to help fell a tree, is inserted in a cut made by a saw and then struck with a sledge hammer to widen the cut.
 
@@ -20,9 +20,9 @@ Whitman wrote: “The ice storm \[that winter\] wasn’t generally destructive. 
 
 “He truly meant to, but he never did. \[The wedge\] was there between the limbs, a little tight, when he attained his manhood. It was there, now firmly gripped, when he married and took over his father’s farm. It was half grown over on the day the threshing crew ate dinner under the tree. … Grown in and healed over, the wedge was still in the tree the winter the ice storm came.
 
-“In the chill silence of that wintry night, … one of the three major limbs split away from the trunk and crashed to the ground. This so unbalanced the remainder of the top that it, too, split apart and went down. When the storm was over, not a twig of the once-proud tree remained.
+“In the chill silence of that wintry night, … one of the three major limbs split away from the trunk and crashed to the ground. This so unbalanced the remainder of the top that it, too, split apart and went down. When the storm was over, not a twig of the once-proud tree remained.
 
-“Early the next morning, the farmer went out to mourn his loss. …
+“Early the next morning, the farmer went out to mourn his loss. …
 
 “Then, his eyes caught sight of something in the splintered ruin. ‘The wedge,’ he muttered reproachfully. ‘The wedge I found in the south pasture.’ A glance told him why the tree had fallen. Growing, edge-up in the trunk, the wedge had prevented the limb fibers from knitting together as they should.”[^1]
 
@@ -76,7 +76,7 @@ A lovely lady of more than 90 years visited with me one day and unexpectedly rec
 
 As I listened to her, the words written by John Greenleaf Whittier came into my mind: “Of all sad words of tongue or pen, / The saddest are these: ‘It might have been!’”[^6]
 
-From 3 Nephi in the Book of Mormon comes this inspired counsel: “There shall be no disputations among you. … For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another. Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.”[^7]
+From 3 Nephi in the Book of Mormon comes this inspired counsel: “There shall be no disputations among you. … For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another. Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.”[^7]
 
 Let me conclude with an account of two men who are heroes to me. Their acts of courage were not performed on a national scale, but rather in a peaceful valley known as Midway, Utah.
 
@@ -107,10 +107,8 @@ This is my plea and my prayer, in the name of Jesus Christ, amen.
 
 [^6]: “Maud Muller,” lines 107–8; in *The Complete Poetical Works of Whittier* (1892), 48.
 
-[^7]: [[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].
+[^7]: [[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].
 
 [^8]: [[John 13.35|John 13:35]].
-
-
 
 #Family #Forgiveness #Love #Obedience #Sin

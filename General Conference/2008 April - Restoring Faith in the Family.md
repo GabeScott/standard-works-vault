@@ -24,7 +24,7 @@ One thing that becomes clear to the enlightened mind is that there are laws that
 
 I believe that this premise also applies to ethical standards and moral values. It is, therefore, our responsibility to safeguard the home as a center of learning where these virtues can be instilled in an atmosphere of love and through the power of example.[^4]
 
-President Thomas S. Monson has taught, “Youth need fewer critics and more models.”[^5]
+President Thomas S. Monson has taught, “Youth need fewer critics and more models.”[^5]
 
 Reflecting on my own life, I realize how I gained an appreciation for the core values that are necessary for the development of a sound character. Where did I learn loyalty, integrity, and dependability? I learned these qualities in the home from the example of my parents. How did I gain an appreciation for the value of selfless service? I did so by observing and enjoying my mother’s devotion to her family. Where did I learn honor and respect for daughters of God? I learned from the example of my father.
 
@@ -40,9 +40,9 @@ I was introduced to the restored gospel of Jesus Christ in my teenage years by P
 
 I have enjoyed 67 years of happiness in marriage and family life—21 as a son in the home of my parents and 46 as a husband, culminating in the joy of being a father and grandfather. What more could one hope for? Simply stated, that these same opportunities would be enjoyed by everyone.
 
-Returning to the teachings of Paul recorded in 1 Corinthians, we find these words:
+Returning to the teachings of Paul recorded in 1 Corinthians, we find these words:
 
-“Even so the things of God knoweth no man \[except he has\] the Spirit of God. …
+“Even so the things of God knoweth no man \[except he has\] the Spirit of God. …
 
 “But the natural man receiveth not the things of … God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned.”[^7]
 
@@ -91,17 +91,17 @@ It is my prayer that we can stand together, with courage and conviction, as guar
 
 [^1]: [[Alma 42.8|Alma 42:8]]; see also [[Alma 24.14|Alma 24:14]].
 
-[^2]: See Guide to the Scriptures, “Principle,” www.scriptures.lds.org.
+[^2]: See Guide to the Scriptures, “[Principle](https://www.churchofjesuschrist.org/study/scriptures/gs/principle?lang=eng),” www.scriptures.lds.org.
 
-[^3]: [[1 Corinthians 2.11|1 Corinthians 2:11]].
+[^3]: [[1 Corinthians 2.11|1 Corinthians 2:11]].
 
 [^4]: See [[Proverbs 22.6|Proverbs 22:6]].
 
-[^5]: Thomas S. Monson, in Conference Report, Oct. 2004, 61; or *Ensign,* Nov. 2004, 57.
+[^5]: Thomas S. Monson, in Conference Report, Oct. 2004, [[2004 October - Anxiously Engaged.md|61]]; or *Ensign,* Nov. 2004, 57.
 
 [^6]: See [[D&C 128.19|D&C 128:19]].
 
-[^7]: [[1 Corinthians 2.11|1 Corinthians 2:11, 14]][[1 Corinthians 2.14|]].
+[^7]: [[1 Corinthians 2.11|1 Corinthians 2:11, 14]][[1 Corinthians 2.14|]].
 
 [^8]: See [[John 7.16|John 7:16–17]][[John 7.17|]]; [[Jacob 4.8|Jacob 4:8]].
 
@@ -119,9 +119,9 @@ It is my prayer that we can stand together, with courage and conviction, as guar
 
 [^15]: See [[D&C 68.25|D&C 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]].
 
-[^16]: [[2 Nephi 5.27|2 Nephi 5:27]].
+[^16]: [[2 Nephi 5.27|2 Nephi 5:27]].
 
-[^17]: [[2 Nephi 22.3|2 Nephi 22:3]].
+[^17]: [[2 Nephi 22.3|2 Nephi 22:3]].
 
 [^18]: [[John 10.10|John 10:10]].
 
@@ -130,7 +130,5 @@ It is my prayer that we can stand together, with courage and conviction, as guar
 [^20]: See [[D&C 130.2|D&C 130:2]].
 
 [^21]: From Helen Steiner Rice, *Expressions of Comfort* (Uhrichsville, Ohio: Barbour Publishing, 2007), 187–88. Used by permission.
-
-
 
 #Example #Faith #Family #Obedience

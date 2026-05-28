@@ -49,7 +49,7 @@ Each of you has a part to play in this great and marvelous work. The Savior will
 
 [^3]: [[Moses 1.6|Moses 1:6]]; emphasis added.
 
-[^4]: See Bible Dictionary, “Israel,” 708.
+[^4]: See Bible Dictionary, “[[BD Israel|Israel]],” 708.
 
 [^5]: [[D&C 25.1|D&C 25:1]]; emphasis added.
 
@@ -83,6 +83,4 @@ Each of you has a part to play in this great and marvelous work. The Savior will
 
 [^20]: See [[D&C 112.10|D&C 112:10]]; [[Abraham 1.18|Abraham 1:18]].
 
-
-
-#Divine_Nature #Faith #Joseph_Smith #Prayer #Restoration #Testimony
+#DivineNature #Faith #JosephSmith #Prayer #Restoration #Testimony

@@ -1,6 +1,6 @@
 # Prayer and Revelation
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -14,7 +14,7 @@ In addition, however, it may properly be said that prayer includes other means b
 
 Nephi doesn’t use the word *prayer* in introducing his account of his great vision. He simply says:
 
-“After I had desired to know the things that my father had seen, and believing that the Lord was able to make them known unto me, as I sat pondering in mine heart I was caught away in the Spirit of the Lord, yea, into an exceeding high mountain.” ([[1 Nephi 11.1|1 Ne. 11:1]].)
+“After I had desired to know the things that my father had seen, and believing that the Lord was able to make them known unto me, as I sat pondering in mine heart I was caught away in the Spirit of the Lord, yea, into an exceeding high mountain.” ([[1 Nephi 11.1|1 Ne. 11:1]].)
 
 There is no doubt in my mind but that Nephi’s pondering was in essence a prayer.
 
@@ -52,7 +52,7 @@ The importance of prayer is emphasized by the fact that the most oft-repeated co
 
 The first commandment God gave Adam and Eve was “that they should worship the Lord their God.”
 
-And later “an angel of the Lord appeared unto Adam, saying: …
+And later “an angel of the Lord appeared unto Adam, saying: …
 
 “Thou shalt do all that thou doest in the name of the Son, and thou shalt repent and call upon God in the name of the Son forevermore.” ([[Moses 5.5|Moses 5:5–6, 8]][[Moses 5.6|]][[Moses 5.8|]].)
 
@@ -60,15 +60,15 @@ The Lord took occasion to personally instruct the brother of Jared as to the imp
 
 “And the brother of Jared repented of the evil which he had done, and *did call upon the name of the Lord.*
 
-“… And the Lord said unto him: I will forgive thee and thy brethren … but thou shalt not sin any more, for ye shall remember that my Spirit will not always strive with man; wherefore, if ye will sin until ye are fully ripe ye shall be cut off from the presence of the Lord.” ([[Ether 2.13|Ether 2:13–15]][[Ether 2.14|]][[Ether 2.15|]]; italics added.)
+“… And the Lord said unto him: I will forgive thee and thy brethren … but thou shalt not sin any more, for ye shall remember that my Spirit will not always strive with man; wherefore, if ye will sin until ye are fully ripe ye shall be cut off from the presence of the Lord.” ([[Ether 2.13|Ether 2:13–15]][[Ether 2.14|]][[Ether 2.15|]]; italics added.)
 
 Amulek admonished the backsliding Nephites in these words:
 
 “May God grant unto you, my brethren, that ye may begin to exercise your faith unto repentance, that ye begin to call upon his holy name, that he would have mercy upon you;
 
-“… cry unto him for mercy; for he is mighty to save.
+“… cry unto him for mercy; for he is mighty to save.
 
-“… humble yourselves, and continue in prayer unto him.”
+“… humble yourselves, and continue in prayer unto him.”
 
 He thus instructed them what to pray about, and where, and how often they should pray.
 
@@ -76,9 +76,9 @@ He thus instructed them what to pray about, and where, and how often they should
 
 “Cry unto him in your houses, yea, over all your household, both morning, mid-day, and evening.
 
-“… cry unto him against the power of your enemies.
+“… cry unto him against the power of your enemies.
 
-“… cry unto him against the devil, who is an enemy to all righteousness.
+“… cry unto him against the devil, who is an enemy to all righteousness.
 
 “Cry unto him over the crops of your fields, that ye may prosper in them.
 
@@ -86,7 +86,7 @@ He thus instructed them what to pray about, and where, and how often they should
 
 “But this is not all; ye must pour out your souls in your closets, and your secret places, and in your wilderness.
 
-“… And when you do not cry unto the Lord, let your hearts be full, drawn out in prayer unto him continually for your welfare, and also for the welfare of those who are around you.” ([[Alma 34.17|Alma 34:17–27]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]].)
+“… And when you do not cry unto the Lord, let your hearts be full, drawn out in prayer unto him continually for your welfare, and also for the welfare of those who are around you.” ([[Alma 34.17|Alma 34:17–27]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]].)
 
 As Jesus after His resurrection administered among the Nephites, He taught them how to pray by giving them the Lord’s Prayer as a pattern. And thereafter, He thus instructed His Nephite disciples:
 
@@ -98,7 +98,7 @@ As to promised rewards, He said:
 
 “And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you.
 
-“Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.18|3 Ne. 18:18–21]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]].)
+“Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.18|3 Ne. 18:18–21]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]].)
 
 In this last dispensation, almost two years before the Church was organized, the Lord said to the Prophet Joseph Smith:
 
@@ -112,7 +112,7 @@ He directed the priests of the Church to “visit the house of each member, and 
 
 He admonished Joseph Knight, “You must *pray vocally before the world* as well as in secret, and in your family, and among your friends, and in all places.” ([[D&C 23.6|D&C 23:6]]; italics added.)
 
-And to Thomas B. Marsh: “Pray always, lest you enter into temptation and lose your reward.” ([[D&C 31.12|D&C 31:12]].)
+And to Thomas B. Marsh: “Pray always, lest you enter into temptation and lose your reward.” ([[D&C 31.12|D&C 31:12]].)
 
 To others He said, *“Pray always … that you may abide the day of his coming, whether in life or in death.”* ([[D&C 61.39|D&C 61:39]]; italics added.)
 
@@ -134,7 +134,7 @@ In addition to the spoken word, the Lord at times appears personally.
 
 “Abraham, talked with the Lord, face to face, as one man talketh with another.” ([[Abraham 3.11|Abr. 3:11]].)
 
-“And God spake unto Moses. …
+“And God spake unto Moses. …
 
 “And … the glory of the Lord was upon Moses, so that Moses stood in the presence of God, and talked with him face to face.” ([[Moses 1.3|Moses 1:3, 31]][[Moses 1.31|]].)
 
@@ -148,7 +148,7 @@ Sometimes the Lord sends personal representatives to communicate with men He sen
 
 Introducing his account of these visits, the Prophet wrote:
 
-“After I had retired to my bed for the night, I betook myself to prayer and supplication to Almighty God. …
+“After I had retired to my bed for the night, I betook myself to prayer and supplication to Almighty God. …
 
 “While I was thus in the act of calling upon God, I discovered a light appearing in my room, which continued to increase until the room was lighter than at noonday, when immediately a personage appeared at my bedside, standing in the air.” ([[Joseph Smith History 1.29|JS—H 1:29–30]][[Joseph Smith History 1.30|]].)
 
@@ -179,8 +179,6 @@ In making decisions, revelation from the Lord is available to everyone who will 
 “But if it be not right you shall have no such feelings.” ([[D&C 9.8|D&C 9:8–9]][[D&C 9.9|]].)
 
 To the truthfulness of these divine teachings concerning prayer and revelation, I bear witness to you in the name of Jesus Christ, our Redeemer. Amen.
-
-
 
 
 

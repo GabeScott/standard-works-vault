@@ -1,4 +1,3 @@
 # Ancient of Days
 
-
-*See* [[Adam.md|Adam]]
+*See also* [[Adam.md|Adam]]

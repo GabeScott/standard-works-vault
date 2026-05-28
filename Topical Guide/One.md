@@ -1,6 +1,5 @@
 # One
 
-
 *See also* [[Unity.md|Unity]]
 
 Let the waters under the heaven be gathered together unto *one* place, [[Genesis 1.9|Genesis 1:9]] ([[Moses 2.9|Moses 2:9]]; [[Abraham 4.9|Abraham 4:9]]).
@@ -29,7 +28,7 @@ I and my Father are *one*, [[John 10.30|John 10:30]].
 
 that they may be *one*, as we are, [[John 17.11|John 17:11]] ([[John 17.22|John 17:22]]).
 
-they all may be *one* ... that they also may be *one* in us, [[John 17.21|John 17:21]].
+they all may be *one* … that they also may be *one* in us, [[John 17.21|John 17:21]].
 
 continued with *one* accord in prayer, [[Acts 1.14|Acts 1:14]] ([[Acts 15.25|Acts 15:25]]).
 
@@ -45,11 +44,11 @@ So we, being many, are *one* body in Christ, [[Romans 12.5|Romans 12:5]].
 
 he that is joined unto the Lord is *one* spirit, [[1 Corinthians 6.17|1 Corinthians 6:17]].
 
-there is but *one* God ... and *one* Lord Jesus Christ, [[1 Corinthians 8.6|1 Corinthians 8:6]].
+there is but *one* God … and *one* Lord Jesus Christ, [[1 Corinthians 8.6|1 Corinthians 8:6]].
 
 be of *one* mind, [[2 Corinthians 13.11|2 Corinthians 13:11]] ([[1 Peter 3.8|1 Peter 3:8]]).
 
-neither male nor female ... all *one* in Christ, [[Galatians 3.28|Galatians 3:28]].
+neither male nor female … all *one* in Christ, [[Galatians 3.28|Galatians 3:28]].
 
 to make in himself of twain *one* new man, [[Ephesians 2.15|Ephesians 2:15]].
 

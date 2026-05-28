@@ -133,7 +133,7 @@ I bear to you, my beloved sisters, my witness that Heavenly Father lives, that J
 
 [^2]: [[Alma 37.47|Alma 37:47]].
 
-[^3]: [[1 Corinthians 3.16|1 Cor. 3:16]].
+[^3]: [[1 Corinthians 3.16|1 Cor. 3:16]].
 
 [^4]: [[D&C 88.118|D&C 88:118]].
 
@@ -143,12 +143,10 @@ I bear to you, my beloved sisters, my witness that Heavenly Father lives, that J
 
 [^7]: [[Luke 18.22|Luke 18:22]].
 
-[^8]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^8]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^9]: See [[Mosiah 2.17|Mosiah 2:17]].
 
 [^10]: See [[D&C 76.6|D&C 76:6]].
 
-
-
-#Goals #Jesus_Christ #Parents #Patriarchal_Blessings #Prayer #Service #Young_Women
+#Goals #JesusChrist #Parents #PatriarchalBlessings #Prayer #Service #YoungWomen

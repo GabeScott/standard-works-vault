@@ -1,6 +1,6 @@
 # The Aaronic Priesthood
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -167,8 +167,6 @@ John the Baptist restored the Aaronic Priesthood with these words:
 “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins.” ([[D&C 13.1|D&C 13]].)
 
 You—our deacons, teachers, and priests—have been given sacred authority. May the angels minister unto you. May the power of the priesthood be upon you, our beloved young brethren, and upon your sons throughout the generations ahead. I bear witness that the gospel is true, that the priesthood holds great power, a guiding, protecting power for those who hold the Aaronic Priesthood. In the name of Jesus Christ, amen.
-
-
 
 
 

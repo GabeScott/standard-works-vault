@@ -49,6 +49,4 @@ Lucifer is unleashing vulgar, revolting, violent, and sleazy filth with the desi
 
 
 
-
-
-#Councils #Duty #Family #Friendship #Holy_Ghost #Jesus_Christ #Joy #Missionary_Work #Prayer #Reverence #Service #Teaching #Testimony #Truth #Women
+#Councils #Duty #Family #Friendship #HolyGhost #Joy #JesusChrist #MissionaryWork #Prayer #Reverence #Service #Teaching #Testimony #Truth #Women

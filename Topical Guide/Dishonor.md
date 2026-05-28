@@ -1,6 +1,5 @@
 # Dishonor
 
-
 *See also* [[Reproach.md|Reproach]]; [[Shame.md|Shame]]
 
 son *dishonoureth* the father, [[Micah 7.6|Micah 7:6]].

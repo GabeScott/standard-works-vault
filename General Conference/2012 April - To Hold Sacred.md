@@ -1,6 +1,6 @@
 # To Hold Sacred
 
-By Elder Paul B. Pieper - *Of the Seventy*
+By Elder Paul B. Pieper - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -34,7 +34,7 @@ With respect to that which we receive by the Spirit, the Lord said, “Remember 
 
 That which is sacred to God becomes sacred to us only through the exercise of agency; each must choose to accept and hold sacred that which God has defined as sacred. He sends light and knowledge from heaven. He invites us to receive and treat it as sacred.
 
-But “there is an opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]). The opposite of sacred is profane or secular—that which is temporal or worldly. The worldly constantly competes with the sacred for our attention and priorities. Knowledge of the secular is essential for our daily temporal living. The Lord instructs us to seek learning and wisdom, to study and learn out of the best books, and to become acquainted with languages, tongues, and people (see [[D&C 88.118|D&C 88:118]]; [[D&C 90.15|90:15]]). Therefore, the choice to place the sacred above the secular is one of relative priority, not exclusivity; “to be learned is good *if* \[we\] hearken unto the counsels of God” ([[2 Nephi 9.29|2 Nephi 9:29]]; emphasis added).
+But “there is an opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]). The opposite of sacred is profane or secular—that which is temporal or worldly. The worldly constantly competes with the sacred for our attention and priorities. Knowledge of the secular is essential for our daily temporal living. The Lord instructs us to seek learning and wisdom, to study and learn out of the best books, and to become acquainted with languages, tongues, and people (see [[D&C 88.118|D&C 88:118]]; [[D&C 90.15|90:15]]). Therefore, the choice to place the sacred above the secular is one of relative priority, not exclusivity; “to be learned is good *if* \[we\] hearken unto the counsels of God” ([[2 Nephi 9.29|2 Nephi 9:29]]; emphasis added).
 
 The battle for priority between the sacred and the secular in each human heart can be illustrated by Moses’s experience at the burning bush. There Moses received his sacred calling from Jehovah to deliver the children of Israel from bondage. However, initially his worldly knowledge of the power of Egypt and the pharaoh caused him to doubt. Ultimately, Moses exercised faith in the Lord’s word, subjugating his secular knowledge and trusting in the sacred. That trust provided him power to overcome temporal trials and lead Israel out of Egypt.
 
@@ -42,9 +42,9 @@ After escaping from the armies of Noah only to fall into slavery at the hands of
 
 Joseph Smith faced a similar dilemma in the early days of translating the Book of Mormon. He knew the sacred nature of the plates and the work of translation. Yet he was persuaded by Martin Harris to give priority to the worldly concerns of friendship and finances, contrary to sacred instructions. As a result, the manuscript of the translation was lost. The Lord upbraided Joseph for delivering “that which \[is\] sacred, unto wickedness” ([[D&C 10.9|D&C 10:9]]) and deprived him for a time of the plates and the gift to translate. When Joseph’s priorities were properly reestablished, the sacred things were returned and the work continued.
 
-The Book of Mormon provides other examples of the struggle to give priority to the sacred. It speaks of believers whose faith led them to the tree of life to partake of its sacred fruit, the love of God. Then the mocking of those in the great and spacious building caused the believers to shift their focus from the sacred to the secular. (See [[1 Nephi 8.11|1 Nephi 8:11, 24–28]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].) Later the Nephites chose pride and denied the spirit of prophecy and revelation, “making a mock of that which was sacred” ([[Helaman 4.12|Helaman 4:12]]). Even some eyewitnesses of the signs and miracles associated with the Lord’s birth chose to reject sacred manifestations from heaven in favor of secular explanations (see [[3 Nephi 2.1|3 Nephi 2:1–3]][[3 Nephi 2.2|]][[3 Nephi 2.3|]]).
+The Book of Mormon provides other examples of the struggle to give priority to the sacred. It speaks of believers whose faith led them to the tree of life to partake of its sacred fruit, the love of God. Then the mocking of those in the great and spacious building caused the believers to shift their focus from the sacred to the secular. (See [[1 Nephi 8.11|1 Nephi 8:11, 24–28]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].) Later the Nephites chose pride and denied the spirit of prophecy and revelation, “making a mock of that which was sacred” ([[Helaman 4.12|Helaman 4:12]]). Even some eyewitnesses of the signs and miracles associated with the Lord’s birth chose to reject sacred manifestations from heaven in favor of secular explanations (see [[3 Nephi 2.1|3 Nephi 2:1–3]][[3 Nephi 2.2|]][[3 Nephi 2.3|]]).
 
-Today the struggle continues. Secular voices are growing in volume and intensity. They increasingly urge believers to abandon beliefs the world considers irrational and unreasonable. Because “we see through a glass, darkly” ([[1 Corinthians 13.12|1 Corinthians 13:12]]) and “do not know the meaning of all things” ([[1 Nephi 11.17|1 Nephi 11:17]]), at times we may feel vulnerable and in need of greater spiritual assurances. The Lord told Oliver Cowdery:
+Today the struggle continues. Secular voices are growing in volume and intensity. They increasingly urge believers to abandon beliefs the world considers irrational and unreasonable. Because “we see through a glass, darkly” ([[1 Corinthians 13.12|1 Corinthians 13:12]]) and “do not know the meaning of all things” ([[1 Nephi 11.17|1 Nephi 11:17]]), at times we may feel vulnerable and in need of greater spiritual assurances. The Lord told Oliver Cowdery:
 
 “If you desire a further witness, cast your mind upon the night that you cried unto me in your heart, that you might know concerning the truth of these things.
 
@@ -59,6 +59,4 @@ May the Lord bless us to ever and always recognize, remember, and hold sacred th
 
 
 
-
-
-#Holy_Ghost #Sacredness #Worldliness
+#HolyGhost #Sacredness #Worldliness

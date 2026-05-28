@@ -44,13 +44,13 @@ They supported each other, they did the best they could, and they knew the Churc
 
 In many countries the Church is still in its beginnings, and the organizational circumstances are sometimes far from perfect. However, the members may have a perfect testimony of the truth in their hearts. As the members will stay in their countries and build the Church, despite economic challenges and hardships, future generations will be grateful to those courageous modern-day pioneers. They abide by the loving invitation of the First Presidency given in 1999:
 
-“In our day, the Lord has seen fit to provide the blessings of the gospel, including an increased number of temples, in many parts of the world. Therefore, we wish to reiterate the long-standing counsel to members of the Church to remain in their homelands rather than immigrate to the United States. …
+“In our day, the Lord has seen fit to provide the blessings of the gospel, including an increased number of temples, in many parts of the world. Therefore, we wish to reiterate the long-standing counsel to members of the Church to remain in their homelands rather than immigrate to the United States. …
 
 “As members throughout the world remain in their homelands, working to build the Church in their native countries, great blessings will come to them personally and to the Church collectively” (First Presidency letter, Dec. 1, 1999).
 
 May I add a word of caution to those of us who live in large wards and stakes. We have to be careful that the center of our testimony is not located in the social dimension of the Church community or the wonderful activities, programs, and organizations of our wards and stakes. All of these things are important and valuable to have, but they are not enough. Even friendship is not enough.
 
-We recognize that we are living in a time of turmoil, disaster, and war. We and many others feel strongly the great need for a “defense, and for a refuge from the storm, and from wrath when it shall be poured out without mixture upon the whole earth” ([[D&C 115.6|D&C 115:6]]). How do we find such a place of safety? The prophet of God, even President Hinckley, has taught: “Our safety lies in the virtue of our lives. Our strength lies in our righteousness” (in Conference Report, Oct. 2001, 112; or *Ensign,* Nov. 2001, 90).
+We recognize that we are living in a time of turmoil, disaster, and war. We and many others feel strongly the great need for a “defense, and for a refuge from the storm, and from wrath when it shall be poured out without mixture upon the whole earth” ([[D&C 115.6|D&C 115:6]]). How do we find such a place of safety? The prophet of God, even President Hinckley, has taught: “Our safety lies in the virtue of our lives. Our strength lies in our righteousness” (in Conference Report, Oct. 2001, [[2001 October - “Till We Meet Again”.md|112]]; or *Ensign,* Nov. 2001, 90).
 
 Recall with me how Jesus Christ instructed His Apostles, clearly and directly, at the beginning of His mortal ministry, “\[Come,\] follow me, and I will make you fishers of men” ([[Matthew 4.19|Matthew 4:19]]). This was also the beginning of the ministry of the Twelve Apostles, and I suspect that they had a feeling of inadequacy, as I deeply have, being one who has also been called to this sacred work. May I suggest that the Savior Himself teaches us here a lesson about core doctrine and priorities in life. Individually, we need to first “follow Him,” and as we do this, the Savior will bless us beyond our own capacity to become what He wants us to be.
 
@@ -71,6 +71,4 @@ Of this I testify in the name of Jesus Christ, amen.
 
 
 
-
-
-#Agency #Conversion #Faith #Jesus_Christ #Obedience
+#Agency #Conversion #Faith #JesusChrist #Obedience

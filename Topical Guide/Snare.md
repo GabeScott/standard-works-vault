@@ -1,6 +1,5 @@
 # Snare
 
-
 How long shall this man be a *snare* unto us, [[Exodus 10.7|Exodus 10:7]].
 
 it will surely be a *snare* unto thee, [[Exodus 23.33|Exodus 23:33]] ([[Deuteronomy 7.16|Deuteronomy 7:16]]).
@@ -41,7 +40,7 @@ fall, and be broken, and be *snared*, [[Isaiah 8.15|Isaiah 8:15]] ([[2 Nephi 18.
 
 prophet is a *snare* of a fowler, [[Hosea 9.8|Hosea 9:8]].
 
-as a *snare* shall it come on all them that dwell on ... earth, [[Luke 21.35|Luke 21:35]].
+as a *snare* shall it come on all them that dwell on … earth, [[Luke 21.35|Luke 21:35]].
 
 fall into reproach and the *snare* of the devil, [[1 Timothy 3.7|1 Timothy 3:7]].
 
@@ -55,7 +54,7 @@ ye are laying traps and *snares* to catch the holy ones of God, [[Alma 10.17|Alm
 
 this was a *snare* of the adversary, [[Alma 12.6|Alma 12:6]].
 
-divide asunder all the cunning and the *snares* ... of the devil, [[Helaman 3.29|Helaman 3:29]].
+divide asunder all the cunning and the *snares* … of the devil, [[Helaman 3.29|Helaman 3:29]].
 
 catch themselves in their own *snare*, [[D&C 10.26|D&C 10:26]].
 
@@ -63,4 +62,4 @@ lest their faith fail and they are caught in *snares*, [[D&C 61.18|D&C 61:18]].
 
 lest judgment shall come upon them as a *snare*, [[D&C 63.15|D&C 63:15]].
 
-pride ... bringeth a *snare* upon your souls, [[D&C 90.17|D&C 90:17]].
+pride … bringeth a *snare* upon your souls, [[D&C 90.17|D&C 90:17]].

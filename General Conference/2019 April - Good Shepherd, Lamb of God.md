@@ -1,6 +1,6 @@
 # Good Shepherd, Lamb of God
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/53gong?lang=eng)
 
-Dear brothers and sisters, have you ever had trouble falling asleep and tried counting imaginary sheep? As fluffy sheep jump over a fence, you count: 1, 2, 3, … 245, 246, … 657, 658 …[^1]
+Dear brothers and sisters, have you ever had trouble falling asleep and tried counting imaginary sheep? As fluffy sheep jump over a fence, you count: 1, 2, 3, … 245, 246, … 657, 658 …[^1]
 
 In my case, counting sheep doesn’t make me sleepy. I worry about missing or losing one, and that keeps me awake.
 
@@ -28,7 +28,7 @@ As our Good Shepherd, Jesus Christ calls us in His voice and His name. He seeks 
 
 First, our Good Shepherd “calleth his own sheep by name. … They know his voice.”[^6] And “in his own name he doth call you, which is the name of Christ.”[^7] As we seek with real intent to follow Jesus Christ, inspiration comes to do good, to love God, and to serve Him.[^8] As we study, ponder, and pray; as we regularly renew sacramental and temple covenants; and as we invite all to come to His gospel and ordinances, we are hearkening to His voice.
 
-In our day, President Russell M. Nelson counsels us to call the restored Church by the name Jesus Christ revealed: The Church of Jesus Christ of Latter-day Saints.[^9] The Lord said, “Whatsoever ye shall do, ye shall do it *in my name;* therefore ye shall call the church *in my name;* and ye shall call upon the Father *in my name* that he will bless the church for my sake.”[^10] Across the world, in our hearts and homes, we call upon the Father in the name of Jesus Christ. We are grateful for such generous blessing of our home-centered, Church-supported worship, gospel study, and wholesome family activities.
+In our day, President Russell M. Nelson counsels us to call the restored Church by the name Jesus Christ revealed: The Church of Jesus Christ of Latter-day Saints.[^9] The Lord said, “Whatsoever ye shall do, ye shall do it *in my name;* therefore ye shall call the church *in my name;* and ye shall call upon the Father *in my name* that he will bless the church for my sake.”[^10] Across the world, in our hearts and homes, we call upon the Father in the name of Jesus Christ. We are grateful for such generous blessing of our home-centered, Church-supported worship, gospel study, and wholesome family activities.
 
 Second, our Good Shepherd seeks and gathers us into His one fold. He asks, “What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine in the wilderness, and go after that which is lost, *until he find it*?”[^11]
 
@@ -54,7 +54,7 @@ The sacrificial Lamb of God was foreshadowed from the beginning. The angel told 
 
 Father Abraham, who established covenant blessings for all the nations of the earth, experienced what it meant to offer his begotten son.
 
-“And Isaac spake unto Abraham his father, and said, My father: and he said, Here am I, my son. And he said, Behold the fire and the wood: but where is the lamb … ?
+“And Isaac spake unto Abraham his father, and said, My father: and he said, Here am I, my son. And he said, Behold the fire and the wood: but where is the lamb … ?
 
 “And Abraham said, My son, God will provide himself a lamb.”[^33]
 
@@ -117,31 +117,31 @@ I testify of Him, our perfect Good Shepherd, the perfect Lamb of God. He calls u
 
 [^8]: See [[Moroni 7.13|Moroni 7:13]]; [[D&C 8.2|Doctrine and Covenants 8:2–3]][[D&C 8.3|]].
 
-[^9]: See Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona,* Nov. 2018, 87–89.
+[^9]: See Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona,* Nov. 2018, 87–89.
 
-[^10]: [[3 Nephi 27.7|3 Nephi 27:7]]; emphasis added.
+[^10]: [[3 Nephi 27.7|3 Nephi 27:7]]; emphasis added.
 
 [^11]: [[Luke 15.4|Luke 15:4]], emphasis added; see also [[D&C 18.15|Doctrine and Covenants 18:15]].
 
-[^12]: [[Ezekiel 34.12|Ezekiel 34:12]]; see also [[Jeremiah 31.10|Jeremiah 31:10]]; [[Ezekiel 34.6|Ezekiel 34:6, 11–14]][[Ezekiel 34.11|]][[Ezekiel 34.12|]][[Ezekiel 34.13|]][[Ezekiel 34.14|]]; [[Micah 5.8|Micah 5:8]]; [[Matthew 10.6|Matthew 10:6]]; [[Matthew 15.24|15:24]]. These prophecies of scattering and the prophecies and promises of covenant gathering are a consistent theme of the prophets, including President Russell M. Nelson.
+[^12]: [[Ezekiel 34.12|Ezekiel 34:12]]; see also [[Jeremiah 31.10|Jeremiah 31:10]]; [[Ezekiel 34.6|Ezekiel 34:6, 11–14]][[Ezekiel 34.11|]][[Ezekiel 34.12|]][[Ezekiel 34.13|]][[Ezekiel 34.14|]]; [[Micah 5.8|Micah 5:8]]; [[Matthew 10.6|Matthew 10:6]]; [[Matthew 15.24|15:24]]. These prophecies of scattering and the prophecies and promises of covenant gathering are a consistent theme of the prophets, including President Russell M. Nelson.
 
-[^13]: [[1 Nephi 22.25|1 Nephi 22:25]].
+[^13]: [[1 Nephi 22.25|1 Nephi 22:25]].
 
 [^14]: See [[Hebrews 13.20|Hebrews 13:20]].
 
-[^15]: [[John 10.16|John 10:16]]; see also [[3 Nephi 15.21|3 Nephi 15:21]]; [[3 Nephi 16.1|16:1, 3]][[3 Nephi 16.3|]]; [[D&C 10.59|Doctrine and Covenants 10:59–60]][[D&C 10.60|]].
+[^15]: [[John 10.16|John 10:16]]; see also [[3 Nephi 15.21|3 Nephi 15:21]]; [[3 Nephi 16.1|16:1, 3]][[3 Nephi 16.3|]]; [[D&C 10.59|Doctrine and Covenants 10:59–60]][[D&C 10.60|]].
 
-[^16]: [[3 Nephi 15.24|3 Nephi 15:24]]; see also [[3 Nephi 15.17|3 Nephi 15:17, 21]][[3 Nephi 15.21|]].
+[^16]: [[3 Nephi 15.24|3 Nephi 15:24]]; see also [[3 Nephi 15.17|3 Nephi 15:17, 21]][[3 Nephi 15.21|]].
 
-[^17]: See [[3 Nephi 16.1|3 Nephi 16:1, 3]][[3 Nephi 16.3|]]; see also [[D&C 10.59|Doctrine and Covenants 10:59–60]][[D&C 10.60|]].
+[^17]: See [[3 Nephi 16.1|3 Nephi 16:1, 3]][[3 Nephi 16.3|]]; see also [[D&C 10.59|Doctrine and Covenants 10:59–60]][[D&C 10.60|]].
 
 [^18]: See [[Mosiah 26.21|Mosiah 26:21]].
 
-[^19]: See [[2 Nephi 31.13|2 Nephi 31:13–14, 21]][[2 Nephi 31.14|]][[2 Nephi 31.21|]].
+[^19]: See [[2 Nephi 31.13|2 Nephi 31:13–14, 21]][[2 Nephi 31.14|]][[2 Nephi 31.21|]].
 
-[^20]: [[2 Nephi 31.5|2 Nephi 31:5]]; see also [[Alma 7.14|Alma 7:14]].
+[^20]: [[2 Nephi 31.5|2 Nephi 31:5]]; see also [[Alma 7.14|Alma 7:14]].
 
-[^21]: See [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]]; [[John 15.9|John 15:9–13]][[John 15.10|]][[John 15.11|]][[John 15.12|]][[John 15.13|]]; [[Mosiah 25.18|Mosiah 25:18]]; [[Helaman 11.21|Helaman 11:21]]; see also Russell M. Nelson, “Hope of Israel” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org; Russell M. Nelson, “[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona,* Nov. 2006, 79–82.
+[^21]: See [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]]; [[John 15.9|John 15:9–13]][[John 15.10|]][[John 15.11|]][[John 15.12|]][[John 15.13|]]; [[Mosiah 25.18|Mosiah 25:18]]; [[Helaman 11.21|Helaman 11:21]]; see also Russell M. Nelson, “Hope of Israel” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org; Russell M. Nelson, “[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona,* Nov. 2006, 79–82.
 
 [^22]: [[Psalms 80.1|Psalm 80:1]].
 
@@ -159,17 +159,17 @@ I testify of Him, our perfect Good Shepherd, the perfect Lamb of God. He calls u
 
 [^29]: [[John 10.13|John 10:13]].
 
-[^30]: [[3 Nephi 14.15|3 Nephi 14:15]]; see also [[Matthew 7.15|Matthew 7:15]]; [[Alma 5.60|Alma 5:60]].
+[^30]: [[3 Nephi 14.15|3 Nephi 14:15]]; see also [[Matthew 7.15|Matthew 7:15]]; [[Alma 5.60|Alma 5:60]].
 
-[^31]: See [[2 Nephi 9.10|2 Nephi 9:10–12]][[2 Nephi 9.11|]][[2 Nephi 9.12|]]. By conquering physical death and spiritual separation, the Lamb of God makes possible the gathering of all so there is, in time and eternity, one Shepherd.
+[^31]: See [[2 Nephi 9.10|2 Nephi 9:10–12]][[2 Nephi 9.11|]][[2 Nephi 9.12|]]. By conquering physical death and spiritual separation, the Lamb of God makes possible the gathering of all so there is, in time and eternity, one Shepherd.
 
 [^32]: [[Moses 5.7|Moses 5:7–8]][[Moses 5.8|]].
 
 [^33]: [[Genesis 22.7|Genesis 22:7–8]][[Genesis 22.8|]]; see also [[Jacob 4.5|Jacob 4:5]].
 
-[^34]: [[John 1.29|John 1:29]]; [[1 Nephi 11.21|1 Nephi 11:21]].
+[^34]: [[John 1.29|John 1:29]]; [[1 Nephi 11.21|1 Nephi 11:21]].
 
-[^35]: [[1 Nephi 11.21|1 Nephi 11:21, 27]][[1 Nephi 11.27|]].
+[^35]: [[1 Nephi 11.21|1 Nephi 11:21, 27]][[1 Nephi 11.27|]].
 
 [^36]: [[Mosiah 14.6|Mosiah 14:6]]; see also [[Isaiah 53.6|Isaiah 53:6]].
 
@@ -177,9 +177,9 @@ I testify of Him, our perfect Good Shepherd, the perfect Lamb of God. He calls u
 
 [^38]: Conversation with Pornthip “Tippy” Coyle, Feb. 2019, used with permission.
 
-[^39]: “Dear to the Heart of the Shepherd,” *Hymns,* no. 221. Other hymns that highlight our Shepherd and His sheep include the following: “The Lord My Pasture Will Prepare,” *Hymns,* no. 109:
+[^39]: “Dear to the Heart of the Shepherd,” *Hymns,* no. 221. Other hymns that highlight our Shepherd and His sheep include the following: “The Lord My Pasture Will Prepare,” *Hymns,* no. 109:
 
-[^40]: [[1 Nephi 14.14|1 Nephi 14:14]]; see also [[1 Nephi 13.35|1 Nephi 13:35, 37]][[1 Nephi 13.37|]]: “Plain and precious \[writings shall\] … come forth … by the gift and power of the Lamb. … If \[we\] endure unto the end … \[we\] shall be saved in the everlasting kingdom of the Lamb.”
+[^40]: [[1 Nephi 14.14|1 Nephi 14:14]]; see also [[1 Nephi 13.35|1 Nephi 13:35, 37]][[1 Nephi 13.37|]]: “Plain and precious \[writings shall\] … come forth … by the gift and power of the Lamb. … If \[we\] endure unto the end … \[we\] shall be saved in the everlasting kingdom of the Lamb.”
 
 [^41]: [[Isaiah 40.11|Isaiah 40:11]].
 
@@ -199,6 +199,4 @@ I testify of Him, our perfect Good Shepherd, the perfect Lamb of God. He calls u
 
 [^49]: [[D&C 109.79|Doctrine and Covenants 109:79]].
 
-
-
-#Jesus_Christ
+#JesusChrist

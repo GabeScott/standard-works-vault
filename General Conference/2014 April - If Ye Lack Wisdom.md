@@ -1,6 +1,6 @@
 # If Ye Lack Wisdom
 
-By Elder Marcos A. Aidukaitis - *Of the Seventy*
+By Elder Marcos A. Aidukaitis - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -24,7 +24,7 @@ Listen to this guidance, provided by the scriptures: “The Spirit of Christ is 
 
 In a real sense, we face the same dilemma that Joseph Smith faced in his youth. We too often find ourselves lacking wisdom.
 
-In the kingdom of God, the search for truth is appreciated, encouraged, and in no way repressed or feared. Church members are strongly counseled by the Lord Himself to seek for knowledge.[^2] He said, “Seek ye diligently … ; yea, seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.”[^3] However, how can we recognize truth in a world that is increasingly blunt in its attacks on the things pertaining to God?
+In the kingdom of God, the search for truth is appreciated, encouraged, and in no way repressed or feared. Church members are strongly counseled by the Lord Himself to seek for knowledge.[^2] He said, “Seek ye diligently … ; yea, seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.”[^3] However, how can we recognize truth in a world that is increasingly blunt in its attacks on the things pertaining to God?
 
 The scriptures teach us how:
 
@@ -32,7 +32,7 @@ First, we can know the truth by observing its fruits.
 
 During His great Sermon on the Mount, the Lord said:
 
-“Even so every good tree bringeth forth good fruit; but a corrupt tree bringeth forth evil fruit. …
+“Even so every good tree bringeth forth good fruit; but a corrupt tree bringeth forth evil fruit. …
 
 “Wherefore by their fruits ye shall know them.”[^4]
 
@@ -46,9 +46,9 @@ Second, we can find truth by experimenting on the word ourselves.
 
 The prophet Alma taught:
 
-“We will compare the word unto a seed. … If ye give place, that a seed may be planted in your heart, behold, if it be a true seed, \[and\] … if ye do not cast it out by your unbelief, … behold, it will begin to swell within your breasts; and … ye will begin to say within yourselves—It must … be that this is a good seed, … for it beginneth to enlarge my soul; yea, it beginneth to enlighten my understanding, yea, it beginneth to be delicious to me. …
+“We will compare the word unto a seed. … If ye give place, that a seed may be planted in your heart, behold, if it be a true seed, \[and\] … if ye do not cast it out by your unbelief, … behold, it will begin to swell within your breasts; and … ye will begin to say within yourselves—It must … be that this is a good seed, … for it beginneth to enlarge my soul; yea, it beginneth to enlighten my understanding, yea, it beginneth to be delicious to me. …
 
-“… And now, … will not this strengthen your faith? Yea, it will strengthen your faith. …
+“… And now, … will not this strengthen your faith? Yea, it will strengthen your faith. …
 
 “… For every seed bringeth forth unto its own likeness.”[^6]
 
@@ -129,6 +129,4 @@ I bear my testimony that this is the true Church of Jesus Christ. I have seen it
 
 [^16]: [[James 1.5|James 1:5]].
 
-
-
-#Faith #Joseph_Smith #Technology #Testimony #Truth
+#Faith #JosephSmith #Technology #Testimony #Truth

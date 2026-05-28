@@ -1,6 +1,6 @@
 # The Truth of All Things
 
-By Elder David F. Evans - *Of the Seventy*
+By Elder David F. Evans - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -18,7 +18,7 @@ Mom put the responsibility of developing faith and finding answers on me. She kn
 
 Over time I came to know that my mother was teaching me Heavenly Father’s pattern for seeking truth. Faith grew, answers began to come, and I accepted a mission call.
 
-There came a time, early in my mission, when I knew that I had to know whether the Church was true and Joseph Smith was a prophet of God. I felt what President Thomas S. Monson expressed so clearly in our last general conference: “If you do not have a firm testimony of these things, do that which is necessary to obtain one. It is essential for you to have your own testimony in these difficult times, for the testimonies of others will carry you only so far.”[^4] I knew what was necessary. I needed to read the Book of Mormon with a sincere heart, with real intent, and ask God whether it is true.
+There came a time, early in my mission, when I knew that I had to know whether the Church was true and Joseph Smith was a prophet of God. I felt what President Thomas S. Monson expressed so clearly in our last general conference: “If you do not have a firm testimony of these things, do that which is necessary to obtain one. It is essential for you to have your own testimony in these difficult times, for the testimonies of others will carry you only so far.”[^4] I knew what was necessary. I needed to read the Book of Mormon with a sincere heart, with real intent, and ask God whether it is true.
 
 Listen to our Heavenly Father’s remarkable promise given through the prophet Moroni: “When ye shall receive these things, I would exhort you that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost.”[^5]
 
@@ -44,9 +44,9 @@ Not long ago her bishop asked to see her and her husband. He asked them to accep
 
 Patient covenant keeping brings the blessings of heaven into our lives.[^17]
 
-I have found great comfort in the Lord’s promise that “by the power of the Holy Ghost ye may know the truth of all things.”[^18] Without knowing everything, we can know the truth. We can know that the Book of Mormon is true. In fact, as President Russell M. Nelson taught this afternoon, we can “feel, deep in ‘the inmost part’ of our hearts \[see [[Alma 13.27|Alma 13:27]]\], that the Book of Mormon *is* unequivocally the word of God.” And we can “feel it so deeply that we would never want to live even one day without it.”[^19]
+I have found great comfort in the Lord’s promise that “by the power of the Holy Ghost ye may know the truth of all things.”[^18] Without knowing everything, we can know the truth. We can know that the Book of Mormon is true. In fact, as President Russell M. Nelson taught this afternoon, we can “feel, deep in ‘the inmost part’ of our hearts \[see [[Alma 13.27|Alma 13:27]]\], that the Book of Mormon *is* unequivocally the word of God.” And we can “feel it so deeply that we would never want to live even one day without it.”[^19]
 
-We can know that God is our Father, who loves us, and that His Son, Jesus Christ, is our Savior and Redeemer. We can know that membership in His Church is to be cherished and that weekly partaking of the sacrament will help us and our family be safe. We can know that through temple ordinances, families really can be together forever. We can know that the Atonement of Jesus Christ and the blessings of repentance and forgiveness are true and real. We can know that our dear prophet, President Thomas S. Monson, is the Lord’s prophet and that his counselors and the members of the Quorum of the Twelve are apostles, prophets, seers, and revelators.
+We can know that God is our Father, who loves us, and that His Son, Jesus Christ, is our Savior and Redeemer. We can know that membership in His Church is to be cherished and that weekly partaking of the sacrament will help us and our family be safe. We can know that through temple ordinances, families really can be together forever. We can know that the Atonement of Jesus Christ and the blessings of repentance and forgiveness are true and real. We can know that our dear prophet, President Thomas S. Monson, is the Lord’s prophet and that his counselors and the members of the Quorum of the Twelve are apostles, prophets, seers, and revelators.
 
 All of this I know to be true and bear my witness in the name of Jesus Christ, amen.
 
@@ -55,17 +55,17 @@ All of this I know to be true and bear my witness in the name of Jesus Christ, a
 
 [^1]: See [[Moroni 10.5|Moroni 10:5]].
 
-[^2]: One such question concerned the availability of the priesthood to all worthy men. This question was resolved by a revelation received by President Spencer W. Kimball, his counselors, and the members of the Twelve on June 1, 1978. This revelation is [Official Declaration 2](https://churchofjesuschrist.org/study/scriptures/dc-testament/od/2?lang=eng) in the Doctrine and Covenants.
+[^2]: One such question concerned the availability of the priesthood to all worthy men. This question was resolved by a revelation received by President Spencer W. Kimball, his counselors, and the members of the Twelve on June 1, 1978. This revelation is [[Official Declaration 2.1|Official Declaration 2]] in the Doctrine and Covenants.
 
 [^3]: See, for example, [[Luke 21.15|Luke 21:15]]; [[Romans 8.5|Romans 8:5]]; [[Alma 32.41|Alma 32:41–43]][[Alma 32.42|]][[Alma 32.43|]]; [[Ether 12.19|Ether 12:19]]; [[D&C 21.5|Doctrine and Covenants 21:5]]; [[D&C 101.38|101:38]]; [[D&C 107.30|107:30–31]][[D&C 107.31|]].
 
-[^4]: Thomas S. Monson, “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” *Ensign* or *Liahona,* May 2017, 87.
+[^4]: Thomas S. Monson, “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” *Ensign* or *Liahona,* May 2017, 87.
 
 [^5]: [[Moroni 10.4|Moroni 10:4]].
 
-[^6]: Thomas S. Monson, “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” 87.
+[^6]: Thomas S. Monson, “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” 87.
 
-[^7]: [[2 Nephi 2.14|2 Nephi 2:14]]; see also David A. Bednar, “[Seek Learning by Faith](https://churchofjesuschrist.org/study/liahona/2007/09/seek-learning-by-faith?lang=eng),” *Ensign,* Sept. 2007, 63–65; *Liahona,* Sept. 2007, 19–21.
+[^7]: [[2 Nephi 2.14|2 Nephi 2:14]]; see also David A. Bednar, “[Seek Learning by Faith](https://www.churchofjesuschrist.org/study/liahona/2007/09/seek-learning-by-faith?lang=eng),” *Ensign,* Sept. 2007, 63–65; *Liahona,* Sept. 2007, 19–21.
 
 [^8]: See, for example, [[John 7.17|John 7:17]], in which the Lord promised, “If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” See also [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
@@ -79,18 +79,16 @@ All of this I know to be true and bear my witness in the name of Jesus Christ, a
 
 [^13]: [[D&C 88.118|Doctrine and Covenants 88:118]].
 
-[^14]: Thomas S. Monson, “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” 87.
+[^14]: Thomas S. Monson, “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” 87.
 
-[^15]: [[Mosiah 24.15|Mosiah 24:15]]; see also [[Mosiah 24.13|Mosiah 24:13–14]][[Mosiah 24.14|]]; David A. Bednar, “[[2014 April - Bear Up Their Burdens with Ease.md|Bear Up Their Burdens with Ease]],” *Ensign* or *Liahona,* May 2014, 87–90.
+[^15]: [[Mosiah 24.15|Mosiah 24:15]]; see also [[Mosiah 24.13|Mosiah 24:13–14]][[Mosiah 24.14|]]; David A. Bednar, “[[2014 April - Bear Up Their Burdens with Ease.md|Bear Up Their Burdens with Ease]],” *Ensign* or *Liahona,* May 2014, 87–90.
 
 [^16]: [[Mosiah 2.36|Mosiah 2:36]].
 
-[^17]: See Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 38; *Liahona,* Jan. 2000, 45. In this message, Elder Holland stated, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come.*”
+[^17]: See Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 38; *Liahona,* Jan. 2000, 45. In this message, Elder Holland stated, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come.*”
 
 [^18]: [[Moroni 10.5|Moroni 10:5]].
 
-[^19]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]]” *Ensign* or *Liahona,* Nov. 2017, 63.
+[^19]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]]” *Ensign* or *Liahona,* Nov. 2017, 63.
 
-
-
-#Book_Of_Mormon #Covenants #Faith #Patience #Testimony #Truth
+#BookOfMormon #Covenants #Faith #Patience #Testimony #Truth

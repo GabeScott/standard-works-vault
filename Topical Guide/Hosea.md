@@ -1,4 +1,3 @@
 # Hosea
 
-
-*See* [BD Hosea](https://www.churchofjesuschrist.org/study/scriptures/bd/hosea?lang=eng)
+*See also* [[BD Hosea.md|BD Hosea]]

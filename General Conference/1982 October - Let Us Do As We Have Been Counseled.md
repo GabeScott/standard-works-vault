@@ -1,6 +1,6 @@
 # Let Us Do As We Have Been Counseled
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -25,8 +25,6 @@ I want to thank the Lord personally for all the blessings he has bestowed upon m
 I wish to thank the Lord that we can participate in this kind of service, and go away from here determined to improve our lives and to be an influence for good in the world. And I bear testimony that this is the work of the Lord. I know it is true, and if we will live according to its teachings we will have greater joy than we will find in any other way.
 
 May the Lord bless us to this end, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,5 @@
 # Commune
 
-
 I will *commune* with thee, [[Exodus 25.22|Exodus 25:22]].
 
 *commune* with your own heart upon your bed, [[Psalms 4.4|Psalms 4:4]].

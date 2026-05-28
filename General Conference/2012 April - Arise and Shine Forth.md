@@ -1,6 +1,6 @@
 # Arise and Shine Forth
 
-By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
+By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -22,9 +22,9 @@ One of the greatest ways we can arise and shine forth is to confidently obey the
 
 There may be those of you who are tempted to disregard or dismiss the standards in *For the Strength of Youth.* They may look at the booklet and say, “See, Mother, the book doesn’t talk about *\[fill in the current issue\].*” Or they may justify to themselves, “What I’m doing isn’t that bad. I’m certainly not as bad as *\[insert the name of a friend or an acquaintance\].*”
 
-President Harold B. Lee taught, “The most important of all the commandments of God is that one that you are having the most difficulty keeping today.”[^6] King Benjamin explained, “I cannot tell you all the things whereby ye may commit sin; for there are divers ways and means, even so many that I cannot number them.”[^7] If you are struggling with keeping these standards and commandments, I encourage you to look for support within the gospel. Read your scriptures. Spend time on the Church’s official website, , to find answers to your questions. Talk to your parents, your Church leaders, and those who shine brightly as they live the gospel. Pray. Pour out your heart to your Heavenly Father, who loves you. Use the gift of repentance daily. Serve others. And most important, listen to and obey the promptings of the Holy Ghost.
+President Harold B. Lee taught, “The most important of all the commandments of God is that one that you are having the most difficulty keeping today.”[^6] King Benjamin explained, “I cannot tell you all the things whereby ye may commit sin; for there are divers ways and means, even so many that I cannot number them.”[^7] If you are struggling with keeping these standards and commandments, I encourage you to look for support within the gospel. Read your scriptures. Spend time on the Church’s official website, [LDS.org](https://www.churchofjesuschrist.org), to find answers to your questions. Talk to your parents, your Church leaders, and those who shine brightly as they live the gospel. Pray. Pour out your heart to your Heavenly Father, who loves you. Use the gift of repentance daily. Serve others. And most important, listen to and obey the promptings of the Holy Ghost.
 
-President Thomas S. Monson encourages us all with these words: “My young friends, be strong. … You know what is right and what is wrong, and no disguise, however appealing, can change that. … If your so-called friends urge you to do anything you know to be wrong, *you* be the one to make a stand for right, even if you stand alone.”[^8]
+President Thomas S. Monson encourages us all with these words: “My young friends, be strong. … You know what is right and what is wrong, and no disguise, however appealing, can change that. … If your so-called friends urge you to do anything you know to be wrong, *you* be the one to make a stand for right, even if you stand alone.”[^8]
 
 Heavenly Father does not want us to look to the world and *follow* its ever-changing trends. He wants us to look to Him and follow His unchanging guidance. He wants us to live the gospel and *lead* others to it by setting the standard high.
 
@@ -53,17 +53,17 @@ Dear young women, each of you has been born with great potential. You are belove
 
 [^2]: [[Mosiah 5.15|Mosiah 5:15]].
 
-[^3]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^3]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^4]: [[Joshua 1.9|Joshua 1:9]].
 
 [^5]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-[^6]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 30.
+[^6]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 30.
 
 [^7]: [[Mosiah 4.29|Mosiah 4:29]].
 
-[^8]: Thomas S. Monson, “Examples of Righteousness,” *Liahona* and *Ensign,* May 2008, 65.
+[^8]: Thomas S. Monson, “Examples of Righteousness,” *Liahona* and *Ensign,* May 2008, 65.
 
 [^9]: [[Judges 13.5|Judges 13:5]].
 
@@ -78,7 +78,5 @@ Dear young women, each of you has been born with great potential. You are belove
 [^14]: For a portion of this story, see Joanna Ehrisman, “The Thing about Being Mormon,” in Katilin Medlin and others, eds., *Going on 15: Memoirs of Freshmen* (2010), 93–96.
 
 [^15]: Personal correspondence to author, 2012.
-
-
 
 #Courage #Example #Obedience #Standards

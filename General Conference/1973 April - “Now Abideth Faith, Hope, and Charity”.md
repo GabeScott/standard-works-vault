@@ -1,6 +1,6 @@
 # “Now Abideth Faith, Hope, and Charity”
 
-By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -10,15 +10,15 @@ President Romney recently said, “Welfare is not a program of the Church; it is
 
 Now the scriptures are replete with verses bearing witness to what President Romney has said. In Mosiah, King Benjamin said:
 
-“… and ye will not suffer that the beggar putteth up his petition to you in vain. …
+“… and ye will not suffer that the beggar putteth up his petition to you in vain. …
 
 “Perhaps thou shalt say: The man has brought upon himself his misery; therefore I will stay my hand, and will not give unto him of my food, nor impart unto him of my substance … for his punishments are just—
 
 “But … whosoever doeth this the same hath great cause to repent; and except he repenteth of that which he hath done he perisheth forever, and hath no interest in the kingdom of God.
 
-“For behold, are we not all beggars? …” ([[Mosiah 4.16|Mosiah 4:16–18]][[Mosiah 4.17|]][[Mosiah 4.18|]].)
+“For behold, are we not all beggars? …” ([[Mosiah 4.16|Mosiah 4:16–18]][[Mosiah 4.17|]][[Mosiah 4.18|]].)
 
-And then clearly Paul said: “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.” ([[1 Corinthians 13.1|1 Cor. 13:1]].)
+And then clearly Paul said: “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.” ([[1 Corinthians 13.1|1 Cor. 13:1]].)
 
 And then, of course, the great Savior of heaven and earth, in one of his great parables, taught us a most profound lesson. He said:
 
@@ -154,11 +154,9 @@ Isn’t that what the Lord would want us to do if he were here to show us the wa
 
 Who received the greater blessing? Was it the elders who went out into the field and harvested Brother Goates’ load of beets? I want you to know they received a great blessing.
 
-And now in conclusion, you remember the words of Paul. He said: “And now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.13|1 Cor. 13:13]].)
+And now in conclusion, you remember the words of Paul. He said: “And now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.13|1 Cor. 13:13]].)
 
 And I pray that the charity of Jesus Christ will be with and abide with each one of us, that we will understand the total dimension of welfare services in the Church, in the name of Jesus Christ, our Master. Amen.
-
-
 
 
 

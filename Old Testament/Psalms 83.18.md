@@ -5,5 +5,5 @@
 [Psalms 83:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/83.18?lang=eng#p18)
 
 
-[^a]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].
-[^b]: [[Psalms 97.9|Ps. 97:9]].
+[^a]: [[Jesus Christ, Jehovah|TG Jesus Christ, Jehovah]].  
+[^b]: [[Psalms 97.9|Ps. 97:9]].  

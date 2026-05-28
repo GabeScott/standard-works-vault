@@ -1,6 +1,6 @@
 # Sisterhood: Oh, How We Need Each Other
 
-By Bonnie L. Oscarson - *Young Women General President*
+By Bonnie L. Oscarson - *Young Women General President*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -18,7 +18,7 @@ To be sisters implies that there is an unbreakable bond between us. Sisters take
 
 The adversary would have us be critical or judgmental of one another. He wants us to concentrate on our differences and compare ourselves to one another. You may love to exercise vigorously for an hour each day because it makes you feel so good, while I consider it to be a major athletic event if I walk up one flight of stairs instead of taking the elevator. We can still be friends, can’t we?
 
-We as women can be particularly hard on ourselves. When we compare ourselves to one another, we will always feel inadequate or resentful of others. Sister Patricia T. Holland once said, “The point is, we simply cannot call ourselves Christian and continue to judge one another—or ourselves—so harshly.”[^3] She goes on to say that there is nothing that is worth us losing our compassion and sisterhood over. We just need to relax and rejoice in our divine differences. We need to realize that we all desire to serve in the kingdom, using our unique talents and gifts in our own ways. Then we can enjoy our sisterhood and our associations and begin to serve.
+We as women can be particularly hard on ourselves. When we compare ourselves to one another, we will always feel inadequate or resentful of others. Sister Patricia T. Holland once said, “The point is, we simply cannot call ourselves Christian and continue to judge one another—or ourselves—so harshly.”[^3] She goes on to say that there is nothing that is worth us losing our compassion and sisterhood over. We just need to relax and rejoice in our divine differences. We need to realize that we all desire to serve in the kingdom, using our unique talents and gifts in our own ways. Then we can enjoy our sisterhood and our associations and begin to serve.
 
 The fact of the matter is, we really and truly need each other. Women naturally seek friendship, support, and companionship. We have so much to learn from one another, and we often let self-imposed barriers keep us from enjoying associations which could be among the greatest blessings in our lives. For example, we women who are a little older need what you Primary-age girls have to offer. We can learn much from you about Christlike service and love.
 
@@ -44,7 +44,7 @@ I think of the great help that the sisters in Relief Society can be in welcoming
 
 Thank you to all the women of the Church who are reaching out across age and cultural lines to bless and serve others. Young women are serving Primary children and the elderly. Single sisters of all ages spend countless hours watching out for the needs of those around them. We recognize the thousands of young women who are giving up 18 months of their lives to share the gospel with the world. All of these things are evidence that, as our beloved hymn states, “The errand of angels is given to women.”[^5]
 
-If there are barriers, it is because we ourselves have created them. We must stop concentrating on our differences and look for what we have in common; then we can begin to realize our greatest potential and achieve the greatest good in this world. Sister Marjorie P. Hinckley once said, “Oh, how we need each other. Those of us who are old need you who are young. And, hopefully, you who are young need some of us who are old. It is a sociological fact that women need women. We need deep and satisfying and loyal friendships with each other.”[^6] Sister Hinckley was right; oh, how we need each other!
+If there are barriers, it is because we ourselves have created them. We must stop concentrating on our differences and look for what we have in common; then we can begin to realize our greatest potential and achieve the greatest good in this world. Sister Marjorie P. Hinckley once said, “Oh, how we need each other. Those of us who are old need you who are young. And, hopefully, you who are young need some of us who are old. It is a sociological fact that women need women. We need deep and satisfying and loyal friendships with each other.”[^6] Sister Hinckley was right; oh, how we need each other!
 
 Sisters, there is no other group of women in the world who have access to greater blessings than we do as Latter-day Saint women. We are members of the Lord’s Church, and regardless of our individual circumstances, we can all enjoy the full blessings of priesthood power through keeping the covenants we have made at baptism and in the temple. We have living prophets to lead and teach us, and we enjoy the great gift of the Holy Ghost, which serves as a comfort and guide in our lives. We are blessed to work hand in hand with righteous brothers as we strengthen homes and families. We have access to the strength and power of temple ordinances and so much more.
 
@@ -55,20 +55,18 @@ I extend to you an invitation that was issued once before by a Relief Society ge
 
 
 
-[^1]: See Barbara B. Smith, [“The Bonds of Sisterhood,”](https://churchofjesuschrist.org/study/ensign/1983/03/the-bonds-of-sisterhood?lang=eng) *Ensign,* Mar. 1983, 20–23.
+[^1]: See Barbara B. Smith, “[The Bonds of Sisterhood](https://www.churchofjesuschrist.org/study/ensign/1983/03/the-bonds-of-sisterhood?lang=eng),” *Ensign,* Mar. 1983, 20–23.
 
 [^2]: [[D&C 38.27|Doctrine and Covenants 38:27]].
 
-[^3]: Patricia T. Holland, “‘One Thing Needful’: Becoming Women of Greater Faith in Christ,” *Ensign,* Oct. 1987, 29.
+[^3]: Patricia T. Holland, “‘One Thing Needful’: Becoming Women of Greater Faith in Christ,” *Ensign,* Oct. 1987, 29.
 
 [^4]: [[Luke 1.7|Luke 1:7]].
 
-[^5]: “As Sisters in Zion,” *Hymns,* no. 309.
+[^5]: “As Sisters in Zion,” *Hymns,* no. 309.
 
-[^6]: *Glimpses into the Life and Heart of Marjorie Pay Hinckley,* ed. Virginia H. Pearce (1999), 254–55.
+[^6]: *Glimpses into the Life and Heart of Marjorie Pay Hinckley,* ed. Virginia H. Pearce (1999), 254–55.
 
-[^7]: Bonnie D. Parkin, “Choosing Charity: That Good Part,” *Ensign* or *Liahona,* Nov. 2003, 106.
-
-
+[^7]: Bonnie D. Parkin, “Choosing Charity: That Good Part,” *Ensign* or *Liahona,* Nov. 2003, 106.
 
 #Love #Service #Sisterhood

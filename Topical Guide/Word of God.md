@@ -1,6 +1,5 @@
 # Word of God
 
-
 *See also* [[Guidance, Divine.md|Guidance, Divine]]; [[Revelation.md|Revelation]]; [[Word.md|Word]]; [[Word of the Lord.md|Word of the Lord]]
 
 *word of God* came unto Shemaiah, [[1 Kings 12.22|1 Kings 12:22]].
@@ -27,7 +26,7 @@ Gentiles had also received the *word of God*, [[Acts 11.1|Acts 11:1]].
 
 *word of God* grew and multiplied, [[Acts 12.24|Acts 12:24]].
 
-Sergius Paulus ... desired to hear the *word of God*, [[Acts 13.7|Acts 13:7]].
+Sergius Paulus … desired to hear the *word of God*, [[Acts 13.7|Acts 13:7]].
 
 mightily grew the *word of God*, [[Acts 19.20|Acts 19:20]].
 
@@ -51,7 +50,7 @@ have tasted the good *word of God*, [[Hebrews 6.5|Hebrews 6:5]].
 
 worlds were framed by the *word of God*, [[Hebrews 11.3|Hebrews 11:3]].
 
-born again ... by the *word of God*, [[1 Peter 1.23|1 Peter 1:23]].
+born again … by the *word of God*, [[1 Peter 1.23|1 Peter 1:23]].
 
 by the *word of God* the heavens were of old, [[2 Peter 3.5|2 Peter 3:5]].
 
@@ -77,7 +76,7 @@ nourished by the good *word of God*, [[Jacob 6.7|Jacob 6:7]].
 
 Amlicites knew not that they were fulfilling the *words of God*, [[Alma 3.18|Alma 3:18]].
 
-go forth among his people ... that he might preach the *word of God*, [[Alma 4.19|Alma 4:19]].
+go forth among his people … that he might preach the *word of God*, [[Alma 4.19|Alma 4:19]].
 
 try the virtue of the *word of God*, [[Alma 31.5|Alma 31:5]].
 
@@ -85,6 +84,6 @@ lay hold upon the *word of God*, [[Helaman 3.29|Helaman 3:29]].
 
 Why have ye transfigured the holy *word of God*, [[Mormon 8.33|Mormon 8:33]].
 
-Book of Mormon, which contains ... the *word of God*, [[D&C 19.26|D&C 19:26]].
+Book of Mormon, which contains … the *word of God*, [[D&C 19.26|D&C 19:26]].
 
 We believe the Bible to be the *word of God*, [[Articles of Faith 1.8|Articles of Faith 1:8]].

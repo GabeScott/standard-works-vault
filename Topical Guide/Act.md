@@ -1,6 +1,5 @@
 # Act
 
-
 bring to pass his *act*, his strange *act*, [[Isaiah 28.21|Isaiah 28:21]] ([[D&C 95.4|D&C 95:4]]; [[D&C 101.95|D&C 101:95]]).
 
 this woman was taken in adultery, in the very *act*, [[John 8.4|John 8:4]].
@@ -23,4 +22,4 @@ Seventy are to *act* in the name of the Lord, [[D&C 107.34|D&C 107:34]].
 
 let every man learn his duty, and to *act* in the office, [[D&C 107.99|D&C 107:99]].
 
-governments ... men accountable for their *acts* in relation to them, [[D&C 134.1|D&C 134:1]].
+governments … men accountable for their *acts* in relation to them, [[D&C 134.1|D&C 134:1]].

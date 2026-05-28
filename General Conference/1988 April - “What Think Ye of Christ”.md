@@ -16,7 +16,7 @@ We read from Helaman:
 
 The Lamb of God came to earth to redeem and to teach. He taught the blessed law of love:
 
-“Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
+“Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
 
 “Thou shalt love thy neighbour as thyself” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]]).
 
@@ -39,6 +39,4 @@ I certify to you that we are led by living prophets today who receive inspiratio
 
 
 
-
-
-#Atonement #Jesus_Christ
+#Atonement #JesusChrist

@@ -1,6 +1,6 @@
 # We Are One
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -28,7 +28,7 @@ He was walking on the street in March just a year ago when he felt that he shoul
 
 The first two elders arrived in September of 2012. The orphan boy was their first baptism into The Church of Jesus Christ of Latter-day Saints. By March of this year he had been a member for four months. He had been ordained a priest in the Aaronic Priesthood and so could baptize the second convert to the Church. He was the first priesthood pioneer to gather other children of Heavenly Father with him to establish the Church in a city of approximately 130,000 people.
 
-On Easter Sunday, March 31, 2013, the Church membership there had grown to the huge number of six members in that city. He was the only local member who attended the meeting that Sunday. His knee had been injured the day before, but he was determined to be there. He had prayed that he would be able to walk to church. And so he was there. He shared the sacrament with four young elders and a missionary couple—the total congregation.
+On Easter Sunday, March 31, 2013, the Church membership there had grown to the huge number of six members in that city. He was the only local member who attended the meeting that Sunday. His knee had been injured the day before, but he was determined to be there. He had prayed that he would be able to walk to church. And so he was there. He shared the sacrament with four young elders and a missionary couple—the total congregation.
 
 That story does not seem remarkable unless you recognize in it the pattern of God’s hand in building His kingdom. I have seen it many times.
 
@@ -66,7 +66,7 @@ But there is one way in which we are one in our charge in the priesthood. We san
 
 We share experiences in the way in which the Lord builds His kingdom on earth. In His Church, with all the wonderful tools and organization we have been given, there is still a fundamental truth taught by prophets of how we are to fulfill our priesthood mandate of missionary work.
 
-In the 1959 April general conference, President David O. McKay taught this principle, as have the prophets since his day, including President Thomas S. Monson. President McKay related in his closing comments that in 1923 in the British Mission, there was a general instruction sent out to the members of the Church. They were told not to spend money on advertising to combat the bad feelings of the people against the Church. President McKay said the decision was: “Throw the responsibility upon every member of the Church that in the coming year of 1923 every member will be a missionary. Every member a missionary! You may bring your mother into the Church, or it may be your father; perhaps your fellow companion in the workshop. Somebody will hear the good message of the truth through you.”
+In the 1959 April general conference, President David O. McKay taught this principle, as have the prophets since his day, including President Thomas S. Monson. President McKay related in his closing comments that in 1923 in the British Mission, there was a general instruction sent out to the members of the Church. They were told not to spend money on advertising to combat the bad feelings of the people against the Church. President McKay said the decision was: “Throw the responsibility upon every member of the Church that in the coming year of 1923 every member will be a missionary. Every member a missionary! You may bring your mother into the Church, or it may be your father; perhaps your fellow companion in the workshop. Somebody will hear the good message of the truth through you.”
 
 And President McKay continued: “And that is the message today. *Every member*—a million and a half—*a missionary!*”[^2]
 
@@ -93,8 +93,6 @@ I pray that wherever we are and whatever duties we have in the priesthood of God
 
 [^1]: [[D&C 38.40|Doctrine and Covenants 38:40–42]][[D&C 38.41|]][[D&C 38.42|]].
 
-[^2]: David O. McKay, in Conference Report, Apr. 1959, 122.
+[^2]: David O. McKay, in Conference Report, Apr. 1959, 122.
 
-
-
-#Missionary_Work #Priesthood #Unity
+#MissionaryWork #Priesthood #Unity

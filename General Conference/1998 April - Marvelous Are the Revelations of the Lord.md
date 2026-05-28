@@ -10,7 +10,7 @@ By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 One of the most extraordinary events in the history of mankind occurred on a spring day in 1820 when Joseph Smith Jr. went into a grove of trees near his home to ask God for direction, light, and truth. As he knelt in humble, sincere prayer, according to his own account of the event: “I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me.
 
-“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^1]
+“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^1]
 
 At that moment, the world became a different place. The heavens, long silent, were once again opened, and revealed light and truth poured forth that eventually resulted in the organization of The Church of Jesus Christ of Latter-day Saints upon the earth.
 
@@ -46,21 +46,21 @@ I do not believe that anyone seeking light and knowledge can read from the revel
 
 “All these had departed the mortal life, firm in the hope of a glorious resurrection, through the grace of God the Father and his Only Begotten Son, Jesus Christ.
 
-“I beheld that they were filled with joy and gladness, and were rejoicing together because the day of their deliverance was at hand. …
+“I beheld that they were filled with joy and gladness, and were rejoicing together because the day of their deliverance was at hand. …
 
 “While this vast multitude waited and conversed, rejoicing in the hour of their deliverance from the chains of death, the Son of God appeared, …
 
-“And there he preached to them the everlasting gospel, the doctrine of the resurrection and the redemption of mankind from the fall, and from individual sins on conditions of repentance. …
+“And there he preached to them the everlasting gospel, the doctrine of the resurrection and the redemption of mankind from the fall, and from individual sins on conditions of repentance. …
 
 “And the saints rejoiced in their redemption, and bowed the knee and acknowledged the Son of God as their Redeemer and Deliverer from death and the chains of hell.
 
-“Their countenances shone, and the radiance from the presence of the Lord rested upon them, and they sang praises unto his holy name. …
+“Their countenances shone, and the radiance from the presence of the Lord rested upon them, and they sang praises unto his holy name. …
 
 “Thus was the gospel preached to those who had died in their sins, without a knowledge of the truth, or in transgression, having rejected the prophets.
 
 “These were taught faith in God, repentance from sin, vicarious baptism for the remission of sins, the gift of the Holy Ghost by the laying on of hands,
 
-“And all other principles of the gospel that were necessary for them to know. …
+“And all other principles of the gospel that were necessary for them to know. …
 
 “And so it was made known among the dead, both small and great, the unrighteous as well as the faithful, that redemption had been wrought through the sacrifice of the Son of God upon the cross.”[^14]
 
@@ -111,6 +111,4 @@ My brothers and sisters, we need to embrace, study, and appreciate the revealed 
 
 [^16]: [[D&C 138.57|D&C 138:57–59]][[D&C 138.58|]][[D&C 138.59|]].
 
-
-
-#Church_Organization #Holy_Ghost #Joseph_Smith #Plan_Of_Salvation #Priesthood #Prophets #Restoration #Resurrection #Scriptures #Spirituality #Temples
+#ChurchOrganization #HolyGhost #JosephSmith #PlanOfSalvation #Priesthood #Prophets #Restoration #Resurrection #Scriptures #Spirituality #Temples

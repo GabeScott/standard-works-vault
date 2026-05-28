@@ -1,6 +1,6 @@
 # The Need for Love
 
-By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
+By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -37,8 +37,6 @@ Jesus, out of pure unselfish love, gave his life for our sakes. Had he been as s
 I understand now why Jesus always spoke out so strongly against disputations and contention. Contention is of the devil and not of God. I see the need for modern prophets to be in communication with God. I see their strivings to lead God’s children toward truth and righteousness. Their message may be unpopular, but it is needed, for it is the only way to happiness. O people both within and without the Church, please realize that we are living in the last days. It is a day when love is waxing cold. People who will not listen to these warnings are preparing themselves for destruction. Jesus Christ will soon come in power and glory. When he comes only those will be spared who have learned to love God and one another with all their heart, might, mind, and strength.
 
 I testify that God lives, that Jesus is the risen Christ, and that God speaks to us today in the only way he can, through divinely called prophets who know the truth of these things. Please listen! In the name of Jesus Christ, amen.
-
-
 
 
 

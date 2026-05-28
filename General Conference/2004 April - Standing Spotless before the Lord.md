@@ -16,15 +16,15 @@ Although we overcame the mud slides, we were all spotted with mud. The missionar
 
 As you and I slosh through the mud slides of life, we can’t help getting a few mud spots on us along the way either. And we don’t want to stand before the Lord looking muddy.
 
-When the Savior appeared in ancient America, He said, “Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day” ([[3 Nephi 27.20|3 Nephi 27:20]]).
+When the Savior appeared in ancient America, He said, “Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day” ([[3 Nephi 27.20|3 Nephi 27:20]]).
 
 Alma warns us about some of the ways we become spotted with mud: “For our words will condemn us, yea, all our works will condemn us; we shall not be found spotless; and our thoughts will also condemn us” ([[Alma 12.14|Alma 12:14]]).
 
 Alma also said:
 
-“Ye cannot be saved; for there can no man be saved except his garments are washed white; yea, his garments must be purified until they are cleansed from all stain. …
+“Ye cannot be saved; for there can no man be saved except his garments are washed white; yea, his garments must be purified until they are cleansed from all stain. …
 
-“… How will any of you feel, if ye shall stand before the bar of God, having your garments stained with blood and all manner of filthiness?” ([[Alma 5.21|Alma 5:21–22]][[Alma 5.22|]]).
+“… How will any of you feel, if ye shall stand before the bar of God, having your garments stained with blood and all manner of filthiness?” ([[Alma 5.21|Alma 5:21–22]][[Alma 5.22|]]).
 
 He also tells us about “all the holy prophets, whose garments are cleansed and are spotless, pure and white” ([[Alma 5.24|Alma 5:24]]).
 
@@ -32,13 +32,13 @@ He then asks us how we are doing as we cross through the mud slides of life: “
 
 Because of repentance and the Atonement of Jesus Christ, our garments can be spotless, pure, fair, and white. Moroni pleads, “O then ye unbelieving, turn ye unto the Lord; cry mightily unto the Father in the name of Jesus, that perhaps ye may be found spotless, pure, fair, and white, having been cleansed by the blood of the Lamb, at that great and last day” ([[Mormon 9.6|Mormon 9:6]]).
 
-In 1 Samuel we read, “Look not on his countenance, or on the height of his stature; … for man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Samuel 16:7]]).
+In 1 Samuel we read, “Look not on his countenance, or on the height of his stature; … for man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Samuel 16:7]]).
 
 The Nephites were looking on the outward appearance of the Lamanites, for Jacob declared, “Wherefore, a commandment I give unto you, which is the word of God, that ye revile no more against them because of the darkness of their skins” ([[Jacob 3.9|Jacob 3:9]]).
 
 Our Father knows and loves His children all over the world, from Boston to Okinawa, from San Antonio to Spain, from Italy to Costa Rica. In Ghana, President Gordon B. Hinckley recently thanked the Lord “for the brotherhood that exists among us, that neither color of skin nor land of birth can separate us as Thy sons and daughters” (Accra Ghana Temple dedicatory prayer, in “Brotherhood Exists,” *Church News,* Jan. 17, 2004, 11).
 
-We invite men and women everywhere, whatever language or culture, to “come unto \[Christ\] and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; … \[for\] all are alike unto God” ([[2 Nephi 26.33|2 Nephi 26:33]]).
+We invite men and women everywhere, whatever language or culture, to “come unto \[Christ\] and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; … \[for\] all are alike unto God” ([[2 Nephi 26.33|2 Nephi 26:33]]).
 
 We come to this world in many colors, shapes, sizes, and circumstances. We don’t have to be rich, tall, thin, brilliant, or beautiful to be saved in the kingdom of God—only pure. We need to be obedient to the Lord Jesus Christ and keep His commandments. And we can all choose to do that regardless of where we live or what we look like.
 
@@ -54,7 +54,7 @@ Today many of their descendants are reading about this in their own copies of th
 
 I have seen humble descendants of Lehi come down from the mountains to that temple and openly weep as they stood there in awe. One gave me an *abrazo* and asked me to take that hug of love, appreciation, and brotherhood back to all those beloved missionaries who brought them the gospel and to all the Saints whose tithing faithfulness has brought temple blessings within reach. Because of the Atonement of Jesus Christ, we can all stand spotless, pure, and white before the Lord.
 
-With great gratitude I lift my voice with Nephi: “And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children \[and our grandchildren\] may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
+With great gratitude I lift my voice with Nephi: “And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children \[and our grandchildren\] may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
 
 My wife and I love this scripture so much that she painted it on a wall in our living room, below a beautiful white porcelain *Christus.* They are a constant reminder for us to live Christ-centered lives.
 
@@ -69,6 +69,4 @@ I bear witness that He lives and He loves us. He is our Savior and our Redeemer.
 
 
 
-
-
-#Atonement #Jesus_Christ #Love #Repentance
+#Atonement #JesusChrist #Love #Repentance

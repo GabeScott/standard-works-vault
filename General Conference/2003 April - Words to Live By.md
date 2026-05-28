@@ -32,7 +32,7 @@ Life is short. “It is even a vapour, that appeareth for a little time, and the
 
 The expectations of the Father exceed merely devising a way to make a living or indulging ourselves in the beauties and pleasures of this earth, even though the Lord has assured us, “It pleaseth God that he hath given all these things unto man; for unto this end were they made to be used, with judgment, not to excess” ([[D&C 59.20|D&C 59:20]]).
 
-Successfully working our way through life, while keeping our eye on life’s true purposes, blesses us both here and hereafter. Obeying the commandments, keeping sacred covenants, and being “anxiously engaged in a good cause” ([[D&C 58.27|D&C 58:27]]) enable us to partake of the joy that is the purpose of our earthly existence (see [[2 Nephi 2.25|2 Nephi 2:25]]).
+Successfully working our way through life, while keeping our eye on life’s true purposes, blesses us both here and hereafter. Obeying the commandments, keeping sacred covenants, and being “anxiously engaged in a good cause” ([[D&C 58.27|D&C 58:27]]) enable us to partake of the joy that is the purpose of our earthly existence (see [[2 Nephi 2.25|2 Nephi 2:25]]).
 
 The Lord has given us this additional assurance: “But learn that he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come” ([[D&C 59.23|D&C 59:23]]).
 
@@ -40,7 +40,7 @@ So our earthly mission hasn’t much to do at all with our mortal careers. It ha
 
 I testify that the godly life will lead us back to the Father, who gave us life here and who will receive us back into eternal life.
 
-Many of God’s children live life as though there were no tomorrow, no day of reckoning. They fill their lives with the pursuit of comfort, gain, and pleasure. Of such, Nephi said, “Yea, and there shall be many which shall say: Eat, drink, and be merry, for tomorrow we die; and it shall be well with us” ([[2 Nephi 28.7|2 Nephi 28:7]]). Many compound this miscalculation by concluding, “Nevertheless, fear God—he will justify in committing a little sin; yea, lie a little, take the advantage of one because of his words, dig a pit for thy neighbor; there is no harm in this; and do all these things, for tomorrow we die; and if it so be that we are guilty, God will beat us with a few stripes, and at last we shall be saved in the kingdom of God” ([[2 Nephi 28.8|2 Nephi 28:8]]).
+Many of God’s children live life as though there were no tomorrow, no day of reckoning. They fill their lives with the pursuit of comfort, gain, and pleasure. Of such, Nephi said, “Yea, and there shall be many which shall say: Eat, drink, and be merry, for tomorrow we die; and it shall be well with us” ([[2 Nephi 28.7|2 Nephi 28:7]]). Many compound this miscalculation by concluding, “Nevertheless, fear God—he will justify in committing a little sin; yea, lie a little, take the advantage of one because of his words, dig a pit for thy neighbor; there is no harm in this; and do all these things, for tomorrow we die; and if it so be that we are guilty, God will beat us with a few stripes, and at last we shall be saved in the kingdom of God” ([[2 Nephi 28.8|2 Nephi 28:8]]).
 
 As the result of such erroneous thinking, the world is filled with lurid and lascivious attractions. We see young men who refuse to marry; young women who foolishly surrender their virtue in pursuit of lustful relationships; couples who purposefully refuse to have children or who opt for a “trophy child” because a family would interfere with plans for adventure, leisure, or maximum financial gain.
 
@@ -59,6 +59,4 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-#Obedience #Plan_Of_Salvation
+#Obedience #PlanOfSalvation

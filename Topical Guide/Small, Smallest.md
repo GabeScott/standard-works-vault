@@ -1,6 +1,5 @@
 # Small, Smallest
 
-
 *See also* [[Little.md|Little]]
 
 Seemeth it but a *small* thing unto you, [[Numbers 16.9|Numbers 16:9]].
@@ -23,7 +22,7 @@ who hath despised the day of *small* things, [[Zechariah 4.10|Zechariah 4:10]].
 
 are ye unworthy to judge the *smallest* matters, [[1 Corinthians 6.2|1 Corinthians 6:2]].
 
-ships ... turned about with a very *small* helm, [[James 3.4|James 3:4]].
+ships … turned about with a very *small* helm, [[James 3.4|James 3:4]].
 
 I saw the dead, *small* and great, [[Revelation 20.12|Revelation 20:12]] ([[D&C 128.6|D&C 128:6]]).
 

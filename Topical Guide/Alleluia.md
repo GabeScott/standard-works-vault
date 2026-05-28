@@ -1,4 +1,3 @@
 # Alleluia
 
-
-*See* [BD Alleluia](https://www.churchofjesuschrist.org/study/scriptures/bd/alleluia?lang=eng)
+*See also* [[BD Alleluia.md|BD Alleluia]]

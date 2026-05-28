@@ -1,9 +1,8 @@
 # Imagination, Imagine
 
-
 *See also* [[Device.md|Device]]
 
-*imagination* of man's heart is evil from his youth, [[Genesis 8.21|Genesis 8:21]] ([[Moses 8.22|Moses 8:22]]).
+*imagination* of man’s heart is evil from his youth, [[Genesis 8.21|Genesis 8:21]] ([[Moses 8.22|Moses 8:22]]).
 
 though I walk in the *imagination* of mine heart, [[Deuteronomy 29.19|Deuteronomy 29:19]].
 
@@ -21,9 +20,9 @@ Casting down *imaginations*, and every high thing, [[2 Corinthians 10.5|2 Corint
 
 because of the foolish *imaginations* of his heart, [[1 Nephi 2.11|1 Nephi 2:11]] ([[1 Nephi 17.20|1 Nephi 17:20]]).
 
-large and spacious building ... is vain *imaginations*, [[1 Nephi 12.18|1 Nephi 12:18]].
+large and spacious building … is vain *imaginations*, [[1 Nephi 12.18|1 Nephi 12:18]].
 
-*imagine* ... that ye hear the voice of the Lord, [[Alma 5.16|Alma 5:16]].
+*imagine* … that ye hear the voice of the Lord, [[Alma 5.16|Alma 5:16]].
 
 many more things did the people *imagine*, [[Helaman 16.22|Helaman 16:22]].
 
@@ -31,4 +30,4 @@ many more things did the people *imagine*, [[Helaman 16.22|Helaman 16:22]].
 
 *imagined* up unto yourselves a god, [[Mormon 9.10|Mormon 9:10]].
 
-*imagination* of his thoughts as upon eagles' wings, [[D&C 124.99|D&C 124:99]].
+*imagination* of his thoughts as upon eagles’ wings, [[D&C 124.99|D&C 124:99]].

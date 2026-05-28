@@ -1,6 +1,6 @@
 # Become a Star Thrower
 
-By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -44,7 +44,7 @@ Every inactive young man has a bishop and quorum president.
 
 And every member of the Church has a stake president or a mission president.
 
-President Harold B. Lee taught: “There is no new organization necessary to take care of the needs of this people. All that is necessary is to put the priesthood of God to work.” (In Conference Report, Oct. 1972, p. 124.)
+President Harold B. Lee taught: “There is no new organization necessary to take care of the needs of this people. All that is necessary is to put the priesthood of God to work.” (In Conference Report, Oct. 1972, [[1972 October - Admonitions for the Priesthood of God.md|p. 124]].)
 
 Your attention to this alarming trend of inactivity must now become one of our most urgent priorities. The worth of all souls is great in the sight of God, whether they be nonmembers, inactive members, or active members.
 
@@ -76,13 +76,13 @@ Loren Eiseley walked along a stormy beach late one afternoon “with the wind ro
 
 “‘Yes,’” \[said the man standing in the rainbow\] and with a quick … gentle movement he picked up the star and spun it … far out into the sea.
 
-“It may live,” he said, “if the offshore pull is strong enough. …”
+“It may live,” he said, “if the offshore pull is strong enough. …”
 
 At first Eiseley felt only the futility of the man’s efforts, “throwing one starfish at a time back into the sea when it nightly tosses out hundreds.” He walked away, looking sadly “at the shell collectors … \[and\] the steaming kettles in which … voiceless things were being boiled alive.”
 
 The next morning Eiseley again went to the beach. Again the star thrower was there. “Silently \[Eiseley\] … picked up a still-living star, spinning it far out into the waves. … ‘I understand,’ \[he\] said. ‘Call \[me a star\] thrower \[also\].’”
 
-Of throwing the starfish back he wrote, “It was like a sowing—the sowing of life on an infinitely gigantic scale. …” He saw the star thrower stoop and throw once more. Eiseley joined with him. They “flung and flung again while all about \[them\] roared the insatiable waters.”
+Of throwing the starfish back he wrote, “It was like a sowing—the sowing of life on an infinitely gigantic scale. …” He saw the star thrower stoop and throw once more. Eiseley joined with him. They “flung and flung again while all about \[them\] roared the insatiable waters.”
 
 They, “alone and small in that immensity, hurled back the living stars.” They set their shoulders and “cast, … slowly, deliberately, and well. The task was not to be assumed lightly.” (Loren Eiseley, *The Star Thrower* \[New York: Harcourt, Brace, Jovanovich, 1978\], pp. 171–73, 184.) Each moment counted if they were to rescue the starfish that they sought to save.
 
@@ -93,6 +93,7 @@ In a world where materialism, cynicism, and hopelessness exists, we share the me
 Be a star thrower! Then you may better understand our Lord’s commandment: “Thou shalt love thy neighbour as thyself.” ([[Matthew 19.19|Matt. 19:19]].)
 
 God bless us all in his divine work of the recovering of souls, that our resolve will be firm, that our timing will be now, and that our success will be sweet, in the name of Jesus Christ, our Savior, amen.
+
 
 
 

@@ -12,7 +12,7 @@ As parents and leaders of youth, it might be easy to lose our faith and wring ou
 
 Our circumstances today are not without precedence or hope. When Enoch was the prophet, the heavens wept because of the wickedness of the world (see [[Moses 7.28|Moses 7:28–37]][[Moses 7.29|]][[Moses 7.30|]][[Moses 7.31|]][[Moses 7.32|]][[Moses 7.33|]][[Moses 7.34|]][[Moses 7.35|]][[Moses 7.36|]][[Moses 7.37|]]). There is no doubt the heavens are weeping today.
 
-Elisha the prophet was surrounded by the whole Syrian army determined to kill him. He reassured his worried and only companion, who was busy counting Syrian heads, that when we are on the Lord’s side, regardless of numbers or worldly power, we are in the majority. I testify that the consoling words of Elisha to his young friend are still true today: “They that be with us are more than they that be with them” ([[2 Kings 6.16|2 Kgs. 6:16]]). The Lord will surround and protect our young people with chariots of fire, as He did for Elisha, in the form of parents, grandparents, aunts, uncles, neighbors, leaders, and friends who will vigorously love them and lead them.
+Elisha the prophet was surrounded by the whole Syrian army determined to kill him. He reassured his worried and only companion, who was busy counting Syrian heads, that when we are on the Lord’s side, regardless of numbers or worldly power, we are in the majority. I testify that the consoling words of Elisha to his young friend are still true today: “They that be with us are more than they that be with them” ([[2 Kings 6.16|2 Kgs. 6:16]]). The Lord will surround and protect our young people with chariots of fire, as He did for Elisha, in the form of parents, grandparents, aunts, uncles, neighbors, leaders, and friends who will vigorously love them and lead them.
 
 The past four years I have been immersed in the work of Young Women. As we cross the world visiting with them, we learn to some degree about their hopes and dreams and fears and disappointments. I echo President Hinckley’s words: this is “the best generation this Church has ever had” (*Church News,* 15 Feb. 1997, 3). As a whole, these young people are valiantly and energetically taking a stand for goodness and decency.
 
@@ -57,6 +57,4 @@ I close with my testimony that we are not alone in this sacred trust of parentin
 
 
 
-
-
-#Evil #Example #Family #Leadership #Listening #Love #Parents #Spirituality #Temples #Young_Women #Youth
+#Evil #Example #Family #Leadership #Listening #Love #Parents #Spirituality #Temples #YoungWomen #Youth

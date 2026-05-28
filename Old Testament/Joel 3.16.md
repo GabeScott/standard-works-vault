@@ -5,9 +5,9 @@
 [Joel 3:16](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.16?lang=eng#p16)
 
 
-[^a]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].
-[^b]: [[Jeremiah 25.30|Jer. 25:30]].
-[^c]: [[Zion, Sion|TG Zion]].
-[^d]: [[D&C 133.21|D&C 133:21]].
-[^e]: [[D&C 21.6|D&C 21:6]]. [[Last Days|TG Last Days]].
-[^f]: [[Hope|TG Hope]].
+[^a]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  
+[^b]: [[Jeremiah 25.30|Jer. 25:30]].  
+[^c]: [[Zion, Sion|TG Zion]].  
+[^d]: [[D&C 133.21|D&C 133:21]].  
+[^e]: [[D&C 21.6|D&C 21:6]]. [[Last Days|TG Last Days]].  
+[^f]: [[Hope|TG Hope]].  

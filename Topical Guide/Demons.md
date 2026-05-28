@@ -1,4 +1,3 @@
 # Demons
 
-
-*See* [[Spirits, Evil or Unclean.md|Spirits, Evil or Unclean]]
+*See also* [[Spirits, Evil or Unclean.md|Spirits, Evil or Unclean]]

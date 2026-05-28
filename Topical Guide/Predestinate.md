@@ -1,6 +1,5 @@
 # Predestinate
 
-
 *See also* [[Foreordination.md|Foreordination]]
 
 whom he did foreknow, he also did *predestinate*, [[Romans 8.29|Romans 8:29]].

@@ -1,6 +1,5 @@
 # Drink Offering
 
-
 he poured a *drink offering*, [[Genesis 35.14|Genesis 35:14]].
 
 fourth part of an hin of wine for a *drink offering*, [[Exodus 29.40|Exodus 29:40]].

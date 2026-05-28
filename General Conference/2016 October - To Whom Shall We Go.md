@@ -1,6 +1,6 @@
 # To Whom Shall We Go?
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -10,9 +10,9 @@ By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 Several years ago my family and I visited the Holy Land. One of my vivid memories from our trip was a visit to the upper room in Jerusalem, the traditional site of the Last Supper.
 
-As we stood in that place, I read to them from [[John 17.1|John 17]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.7|]][[John 17.8|]][[John 17.9|]][[John 17.10|]][[John 17.11|]][[John 17.12|]][[John 17.13|]][[John 17.14|]][[John 17.15|]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.19|]][[John 17.20|]][[John 17.21|]][[John 17.22|]][[John 17.23|]][[John 17.24|]][[John 17.25|]][[John 17.26|]], where Jesus pleads with His Father for His disciples:
+As we stood in that place, I read to them from [[John 17.1|John 17]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.7|]][[John 17.8|]][[John 17.9|]][[John 17.10|]][[John 17.11|]][[John 17.12|]][[John 17.13|]][[John 17.14|]][[John 17.15|]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.19|]][[John 17.20|]][[John 17.21|]][[John 17.22|]][[John 17.23|]][[John 17.24|]][[John 17.25|]][[John 17.26|]], where Jesus pleads with His Father for His disciples:
 
-“I pray for them … that they may be one, as we are. …
+“I pray for them … that they may be one, as we are. …
 
 “Neither pray I for these alone, but for them also which shall believe on me through their word;
 
@@ -42,7 +42,7 @@ If any one of you is faltering in your faith, I ask you the same question that P
 
 Never abandon the great truths revealed through the Prophet Joseph Smith. Never stop reading, pondering, and applying the doctrine of Christ contained in the Book of Mormon.
 
-Never fail to give equal time to the Lord through honest attempts to understand what the Lord has revealed. As my dear friend and former colleague Elder Neal A. Maxwell once said, “We should not assume … that just because something is unexplainable by us it is unexplainable.”[^6]
+Never fail to give equal time to the Lord through honest attempts to understand what the Lord has revealed. As my dear friend and former colleague Elder Neal A. Maxwell once said, “We should not assume … that just because something is unexplainable by us it is unexplainable.”[^6]
 
 So before you make that spiritually perilous choice to leave, I encourage you to stop and think carefully before giving up whatever it was that brought you to your testimony of the restored Church of Jesus Christ in the first place. Stop and think about what you have felt here and why you felt it. Think about the times when the Holy Ghost has borne witness to you of eternal truth.
 
@@ -103,15 +103,15 @@ Jesus is our Savior and Redeemer, and His restored gospel will lead us safely ba
 
 [^5]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-[^6]: Neal A. Maxwell, *Not My Will, But Thine* (1988), 124.
+[^6]: Neal A. Maxwell, *Not My Will, But Thine* (1988), 124.
 
 [^7]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-[^8]: See [[1 Nephi 8.20|1 Nephi 8:20–30]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]].
+[^8]: See [[1 Nephi 8.20|1 Nephi 8:20–30]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]].
 
 [^9]: [[John 6.67|John 6:67]].
 
-[^10]: [[1 Nephi 8.15|1 Nephi 8:15]].
+[^10]: [[1 Nephi 8.15|1 Nephi 8:15]].
 
 [^11]: See [[Mark 4.35|Mark 4:35–41]][[Mark 4.36|]][[Mark 4.37|]][[Mark 4.38|]][[Mark 4.39|]][[Mark 4.40|]][[Mark 4.41|]].
 
@@ -121,8 +121,6 @@ Jesus is our Savior and Redeemer, and His restored gospel will lead us safely ba
 
 [^14]: [[D&C 115.6|Doctrine and Covenants 115:6]].
 
-[^15]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^15]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-
-
-#Faith #Jesus_Christ #Loyalty
+#Faith #JesusChrist #Loyalty

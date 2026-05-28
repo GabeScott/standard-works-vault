@@ -8,7 +8,7 @@ By Elder Hartman Rector, Jr. - *Of the First Quorum of the Seventy*
 
 “The gospel makes evil minded men good, and good men better and women and children better than they have ever been before.”
 
-So said the prophet David O. McKay. To illustrate I would like to share with you a conversion story. The account concerns Louis Novak, a Lutheran minister, and his wife, Alice, and their two children, Kurt and Kristin. Reverend Novak and his wife had been born, baptized, raised, confirmed, and married in the Lutheran Church. It was with a sense of pride on the part of his parents and a sense of duty on his own part that he went through two Lutheran private colleges and a Lutheran theological graduate school to become a pastor in the American Lutheran Church. For nearly fourteen years he and his wife served in the Lutheran Church and endeavored to find truth and spiritual peace. During that period, from all external appearances, they were able to attain a level of income, style of life, social stratum, and educational prestige which left little to be desired. With such stability and high approval from family, friends, and supervisors, it could be said “they had it made.” Yet they were not satisfied. They had haunting insecurity in their souls that something very basic and important was missing in their lives. They could not be satisfied.
+So said the prophet David O. McKay. To illustrate I would like to share with you a conversion story. The account concerns Louis Novak, a Lutheran minister, and his wife, Alice, and their two children, Kurt and Kristin. Reverend Novak and his wife had been born, baptized, raised, confirmed, and married in the Lutheran Church. It was with a sense of pride on the part of his parents and a sense of duty on his own part that he went through two Lutheran private colleges and a Lutheran theological graduate school to become a pastor in the American Lutheran Church. For nearly fourteen years he and his wife served in the Lutheran Church and endeavored to find truth and spiritual peace. During that period, from all external appearances, they were able to attain a level of income, style of life, social stratum, and educational prestige which left little to be desired. With such stability and high approval from family, friends, and supervisors, it could be said “they had it made.” Yet they were not satisfied. They had haunting insecurity in their souls that something very basic and important was missing in their lives. They could not be satisfied.
 
 The soul that is honest in heart must search.
 
@@ -67,8 +67,6 @@ The Reverend continues, “As the program began, a member of the Seventies made 
 “On a lonely Kansas cemetery there stands a gray monument. On it are the four names of our family. At the bottom are engraved these words: ‘This family is sealed for all time and eternity.’ Behind the tears of temporary loss our eyes show the clear and joyous knowledge that our decision was truly the correct decision.”
 
 Surely the gospel does make “good men better and women and children better than they have ever been before.” In the name of Jesus Christ. Amen.
-
-
 
 
 

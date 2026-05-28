@@ -1,6 +1,6 @@
 # Waiting on the Road to Damascus
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -38,7 +38,7 @@ This can be our experience if we move forward with faith and do not wait too lon
 
 I testify to you that our Father in Heaven loves His children. He loves us. He loves you. When necessary the Lord will even carry you over obstacles as you seek His peace with a broken heart and a contrite spirit. Often He speaks to us in ways that we can hear only with our heart. To better hear His voice, it would be wise to turn down the volume control of the worldly noise in our lives. If we ignore or block out the promptings of the Spirit for whatever reason, they become less noticeable until we cannot hear them at all. Let us learn to hearken to the promptings of the Spirit and then be eager to heed them.
 
-Our beloved prophet, Thomas S. Monson, is our example in this regard. The stories of his attention to the whisperings of the Spirit are numerous. Elder Jeffrey R. Holland relates one such example:
+Our beloved prophet, Thomas S. Monson, is our example in this regard. The stories of his attention to the whisperings of the Spirit are numerous. Elder Jeffrey R. Holland relates one such example:
 
 Once while President Monson was on assignment in Louisiana, a stake president asked him if he would have time to visit a 10-year-old girl named Christal, who was in the final stages of cancer. Christal’s family had been praying that President Monson would come. But their home was far away, and the schedule was so tight that there wasn’t time. So instead, President Monson asked that those who offered prayers during the stake conference include Christal in their prayers. Surely the Lord and the family would understand.
 
@@ -48,7 +48,7 @@ During the Saturday session of the conference, as President Monson stood to spea
 
 He listened to the Spirit and rearranged his schedule. Early the next morning, President Monson left the ninety and nine and traveled many miles to be at the bedside of the one.
 
-Once there, he “gazed down upon a child too ill to rise, too weak to speak. Her illness had now rendered her sightless. Deeply touched by the scene and the Spirit of the Lord … , Brother Monson … took the child’s frail hand in his own. ‘Christal,’ he whispered, ‘I am here.’
+Once there, he “gazed down upon a child too ill to rise, too weak to speak. Her illness had now rendered her sightless. Deeply touched by the scene and the Spirit of the Lord … , Brother Monson … took the child’s frail hand in his own. ‘Christal,’ he whispered, ‘I am here.’
 
 “With great effort she whispered back, ‘Brother Monson, I just knew you would come.’”[^5]
 
@@ -62,7 +62,7 @@ Our Father in Heaven expects us to study it out first and then pray for guidance
 
 It has been my experience that some of the most powerful promptings we receive are not only for our own benefit but also for the benefit of others. If we are thinking only of ourselves, we may miss some of the most powerful spiritual experiences and profound revelations of our lives.
 
-President Spencer W. Kimball taught this concept when he said: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other.”[^7] Brothers and sisters, we each have a covenant responsibility to be sensitive to the needs of others and serve as the Savior did—to reach out, bless, and uplift those around us.
+President Spencer W. Kimball taught this concept when he said: “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other.”[^7] Brothers and sisters, we each have a covenant responsibility to be sensitive to the needs of others and serve as the Savior did—to reach out, bless, and uplift those around us.
 
 Often, the answer to our prayer does not come while we’re on our knees but while we’re on our feet serving the Lord and serving those around us. Selfless acts of service and consecration refine our spirits, remove the scales from our spiritual eyes, and open the windows of heaven. By becoming the answer to someone’s prayer, we often find the answer to our own.
 
@@ -97,13 +97,13 @@ Brothers and sisters, dear friends, let us not wait too long on *our* road to Da
 
 [^3]: [[Mark 10.14|Mark 10:14]].
 
-[^4]: See Jeffrey R. Holland, “President Thomas S. Monson: Man of Action, Man of Faith, Always ‘on the Lord’s Errand,’” *Ensign,* Feb. 1986, 16; or *Tambuli,* Oct.–Nov. 1986, 20.
+[^4]: See Jeffrey R. Holland, “President Thomas S. Monson: Man of Action, Man of Faith, Always ‘on the Lord’s Errand,’” *Ensign,* Feb. 1986, 16; or *Tambuli,* Oct.–Nov. 1986, 20.
 
-[^5]: Jeffrey R. Holland, *Ensign,* Feb. 1986, 16; or *Tambuli,* Oct.–Nov. 1986, 20.
+[^5]: Jeffrey R. Holland, *Ensign,* Feb. 1986, 16; or *Tambuli,* Oct.–Nov. 1986, 20.
 
 [^6]: [[Acts 9.6|Acts 9:6]].
 
-[^7]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 82.
+[^7]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 82.
 
 [^8]: [[D&C 28.16|Doctrine and Covenants 28:16]].
 
@@ -117,6 +117,4 @@ Brothers and sisters, dear friends, let us not wait too long on *our* road to Da
 
 [^13]: [[John 20.29|John 20:29]].
 
-
-
-#Faith #Holy_Ghost #Service
+#Faith #HolyGhost #Service

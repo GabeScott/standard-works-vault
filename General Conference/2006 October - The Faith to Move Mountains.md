@@ -32,9 +32,9 @@ Much has been written concerning this, and I need not go into detail. All of you
 
 Fortunately, they were passed by Franklin D. Richards on his way from England. He had a lightweight conveyance with horses and was able to travel much faster. He came on to this valley. It was this very season of the year. The general conference was in session. When Brigham Young received the news, he immediately stood before the congregation and said:
 
-“I will now give this people the subject and the text for the Elders who may speak to-day and during the conference, it is this, on the 5th day of October, 1856, many of our brethren and sisters are on the plains with hand-carts, and probably many are now 700 miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’ I want the brethren who may speak to understand that their text is the people on the plains, and the subject matter for this community is to send for them and bring them in before the winter sets in. …
+“I will now give this people the subject and the text for the Elders who may speak to-day and during the conference, it is this, on the 5th day of October, 1856, many of our brethren and sisters are on the plains with hand-carts, and probably many are now 700 miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’ I want the brethren who may speak to understand that their text is the people on the plains, and the subject matter for this community is to send for them and bring them in before the winter sets in. …
 
-“I shall call upon the Bishops this day, I shall not wait until to-morrow, nor until \[the\] next day, for 60 good mule teams and 12 or 15 wagons. I do not want to send oxen, I want good horses and mules. They are in this Territory, and we must have them; also 12 tons of flour and 40 good teamsters, … 60 or 65 good spans of mules, or horses, with harness. …
+“I shall call upon the Bishops this day, I shall not wait until to-morrow, nor until \[the\] next day, for 60 good mule teams and 12 or 15 wagons. I do not want to send oxen, I want good horses and mules. They are in this Territory, and we must have them; also 12 tons of flour and 40 good teamsters, … 60 or 65 good spans of mules, or horses, with harness. …
 
 “I will tell you all,” said he, “that your faith, religion, and profession of religion, will never save one soul of you in the celestial kingdom of our God, unless you carry out just such principles as I am now teaching you. Go and bring in those people now on the plains, and attend strictly to those things which we call temporal, or temporal duties, otherwise your faith will be in vain; the preaching you have heard will be in vain to you, and you will sink to hell, unless you attend to the things we tell you” (*Deseret News,* Oct. 15, 1856, 252).
 
@@ -69,8 +69,6 @@ To his son Helaman, Alma declared, “Preach unto them repentance, and faith on 
 May the Lord bless us with faith in the great cause of which we are a part. May faith be as a candle to guide us in the night by its light. May it go before us as a cloud in the day.
 
 For this I humbly pray, in the sacred and holy name of Him who is the strength of our faith, even the Lord Jesus Christ, amen.
-
-
 
 
 

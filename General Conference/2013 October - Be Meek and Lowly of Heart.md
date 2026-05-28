@@ -44,9 +44,9 @@ Among instructions found in his Second Epistle to Timothy, the Apostle Paul said
 
 “And that they may recover themselves.”[^13]
 
-By controlling our reactions, being calm and temperate, and avoiding contention, we will begin to qualify for the gift of meekness. President Henry B. Eyring once said, “When we with faith control our tempers and subdue our pride, the Holy Ghost gives His approval, and sacred promises and covenants become sure.”[^14]
+By controlling our reactions, being calm and temperate, and avoiding contention, we will begin to qualify for the gift of meekness. President Henry B. Eyring once said, “When we with faith control our tempers and subdue our pride, the Holy Ghost gives His approval, and sacred promises and covenants become sure.”[^14]
 
-Another step to attain meekness is to become humble. The Lord instructed Thomas B. Marsh through the Prophet Joseph Smith, saying, “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers.”[^15]
+Another step to attain meekness is to become humble. The Lord instructed Thomas B. Marsh through the Prophet Joseph Smith, saying, “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers.”[^15]
 
 I believe, brothers and sisters, that only those who are humble are able to acknowledge and understand the Lord’s answers to their prayers. The humble are teachable, recognizing how dependent they are on God and desiring to be subject to His will. The humble are meek and have the ability to influence others to be the same. God’s promise to the humble is that He will lead them by the hand. I truly believe that we will avoid detours and sadness in our lives as long as we walk hand in hand with the Lord.
 
@@ -56,7 +56,7 @@ Brother Mahlangu accepted that decision with meekness, humility, and without res
 
 Later the Church organized a branch in his neighborhood in Soweto. This was possible only because of the determination, courage, and faithfulness of people like Brother Mahlangu who remained faithful for so many years under difficult circumstances.
 
-One of Brother Mahlangu’s friends, who had joined the Church at the same time, recounted this story to me when I visited the Soweto stake. At the end of our conversation, he gave me a hug. At that moment, brothers and sisters, I felt as if I was encircled in the Savior’s loving arms. Meekness emanated from this good brother’s eyes. With a heart full of goodness and deep gratitude, he asked if I could just tell President Thomas S. Monson how grateful and blessed he and many others were for having the true gospel in their lives. Brother Mahlangu and his friend’s example of meekness truly influenced many lives for good—especially mine.
+One of Brother Mahlangu’s friends, who had joined the Church at the same time, recounted this story to me when I visited the Soweto stake. At the end of our conversation, he gave me a hug. At that moment, brothers and sisters, I felt as if I was encircled in the Savior’s loving arms. Meekness emanated from this good brother’s eyes. With a heart full of goodness and deep gratitude, he asked if I could just tell President Thomas S. Monson how grateful and blessed he and many others were for having the true gospel in their lives. Brother Mahlangu and his friend’s example of meekness truly influenced many lives for good—especially mine.
 
 Brothers and sisters, I believe the Savior Jesus Christ is the supreme example of meekness. Even during the last moments of His mortal life, being unfairly accused and condemned, painfully carrying His cross up to Golgotha, being mocked and cursed by His enemies, being abandoned by many who knew Him and had witnessed His miracles, He was nailed on the cross.
 
@@ -71,7 +71,7 @@ I bear my witness that Jesus Christ is our Savior. I testify to you that, thanks
 
 [^2]: [[Moroni 7.44|Moroni 7:44]].
 
-[^3]: Guide to the Scriptures, [“Meek, Meekness”](https://churchofjesuschrist.org/study/scriptures/gs/meek-meekness?lang=eng); scriptures.lds.org.
+[^3]: Guide to the Scriptures, “[Meek, Meekness](https://www.churchofjesuschrist.org/study/scriptures/gs/meek-meekness?lang=eng)”; scriptures.lds.org.
 
 [^4]: See [[Galatians 5.22|Galatians 5:22–23]][[Galatians 5.23|]].
 
@@ -91,14 +91,12 @@ I bear my witness that Jesus Christ is our Savior. I testify to you that, thanks
 
 [^12]: *Teachings of Presidents of the Church: Lorenzo Snow* (2012), 100, 101.
 
-[^13]: [[2 Timothy 2.24|2 Timothy 2:24–26]][[2 Timothy 2.25|]][[2 Timothy 2.26|]].
+[^13]: [[2 Timothy 2.24|2 Timothy 2:24–26]][[2 Timothy 2.25|]][[2 Timothy 2.26|]].
 
-[^14]: Henry B. Eyring, “Families under Covenant,” *Ensign* or *Liahona,* May 2012, 65.
+[^14]: Henry B. Eyring, “Families under Covenant,” *Ensign* or *Liahona,* May 2012, 65.
 
 [^15]: [[D&C 112.10|Doctrine and Covenants 112:10]].
 
 [^16]: [[Luke 23.34|Luke 23:34]].
 
-
-
-#Humility #Meekness #Self-Control
+#Humility #Meekness #Self-control

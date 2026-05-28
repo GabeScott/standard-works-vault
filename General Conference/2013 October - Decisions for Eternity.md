@@ -1,6 +1,6 @@
 # Decisions for Eternity
 
-By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/10/decisions-for-eternity?lang=eng)
 
-My dear brothers and sisters, each day is a day of decision. President Thomas S. Monson has taught us that “decisions determine destiny.”[^1] The wise use of your freedom to make your own decisions is crucial to your spiritual growth, now and for eternity. You are never too young to learn, never too old to change. Your yearnings to learn and change come from a divinely instilled striving for eternal progression.[^2] Each day brings opportunity for decisions for eternity.
+My dear brothers and sisters, each day is a day of decision. President Thomas S. Monson has taught us that “decisions determine destiny.”[^1] The wise use of your freedom to make your own decisions is crucial to your spiritual growth, now and for eternity. You are never too young to learn, never too old to change. Your yearnings to learn and change come from a divinely instilled striving for eternal progression.[^2] Each day brings opportunity for decisions for eternity.
 
 We are eternal beings—spirit children of heavenly parents. The Bible records that “God created man in his own image, … male and female created he them.”[^3] Recently I heard a chorus of children sing the beloved song “I Am a Child of God.”[^4] I wondered, “Why haven’t I heard that song rendered more often by singing mothers or faithful fathers?” Are we not *all* children of God? In truth, not one of us can *ever stop* being a child of God!
 
@@ -67,9 +67,9 @@ My dear brothers and sisters, each day is a day of decision, and our decisions d
 
 
 
-[^1]: Thomas S. Monson, “Decisions Determine Destiny” (Church Educational System fireside, Nov. 6, 2005), 3; [speeches.byu.edu](http://speeches.byu.edu).
+[^1]: Thomas S. Monson, “Decisions Determine Destiny” (Church Educational System fireside, Nov. 6, 2005), 3; [speeches.byu.edu](https://speeches.byu.edu).
 
-[^2]: The concept of eternal progression was captured well by W. W. Phelps in his text to the hymn “If You Could Hie to Kolob” (*Hymns,* no. 284). Verse 4 reads: “There is no end to virtue; / There is no end to might; / There is no end to wisdom; / There is no end to light. / There is no end to union; / There is no end to youth; / There is no end to priesthood; / There is no end to truth.” Verse 5 concludes: “There is no end to glory; / There is no end to love; / There is no end to being; / There is no death above.”
+[^2]: The concept of eternal progression was captured well by W. W. Phelps in his text to the hymn “If You Could Hie to Kolob” (*Hymns,* no. 284). Verse 4 reads: “There is no end to virtue; / There is no end to might; / There is no end to wisdom; / There is no end to light. / There is no end to union; / There is no end to youth; / There is no end to priesthood; / There is no end to truth.” Verse 5 concludes: “There is no end to glory; / There is no end to love; / There is no end to being; / There is no death above.”
 
 [^3]: [[Genesis 1.27|Genesis 1:27]]; see also [[Colossians 3.10|Colossians 3:10]]; [[Alma 18.34|Alma 18:34]]; [[Ether 3.15|Ether 3:15]]; [[Moses 6.9|Moses 6:9]].
 
@@ -93,7 +93,7 @@ My dear brothers and sisters, each day is a day of decision, and our decisions d
 
 [^13]: The Psalmist wrote, “Precious in the sight of the Lord is the death of his saints” ([[Psalms 116.15|Psalm 116:15]]). Death is precious because it is a “homecoming” for the Saint with the Lord.
 
-[^14]: [[1 Corinthians 3.16|1 Corinthians 3:16]]; see also [[1 Corinthians 6.19|6:19]].
+[^14]: [[1 Corinthians 3.16|1 Corinthians 3:16]]; see also [[1 Corinthians 6.19|6:19]].
 
 [^15]: [[Abraham 3.23|Abraham 3:23]].
 
@@ -107,11 +107,11 @@ My dear brothers and sisters, each day is a day of decision, and our decisions d
 
 [^20]: Attributes of “faith, virtue, knowledge, temperance, patience, brotherly kindness, godliness, charity, humility, \[and\] diligence” ([[D&C 4.6|Doctrine and Covenants 4:6]]) are among the spiritual gifts we can develop and be given. Gratitude is another spiritual attribute that can be developed. Gratitude shapes mood and productivity. And when you have “spiritually been born of God,” you may gratefully receive His image in your countenance (see [[Alma 5.14|Alma 5:14]]).
 
-[^21]: See [[1 Corinthians 12.1|1 Corinthians 12]][[1 Corinthians 12.2|]][[1 Corinthians 12.3|]][[1 Corinthians 12.4|]][[1 Corinthians 12.5|]][[1 Corinthians 12.6|]][[1 Corinthians 12.7|]][[1 Corinthians 12.8|]][[1 Corinthians 12.9|]][[1 Corinthians 12.10|]][[1 Corinthians 12.11|]][[1 Corinthians 12.12|]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]][[1 Corinthians 12.28|]][[1 Corinthians 12.29|]][[1 Corinthians 12.30|]][[1 Corinthians 12.31|]]; [[1 Corinthians 14.1|14:1–12]][[1 Corinthians 14.2|]][[1 Corinthians 14.3|]][[1 Corinthians 14.4|]][[1 Corinthians 14.5|]][[1 Corinthians 14.6|]][[1 Corinthians 14.7|]][[1 Corinthians 14.8|]][[1 Corinthians 14.9|]][[1 Corinthians 14.10|]][[1 Corinthians 14.11|]][[1 Corinthians 14.12|]]; [[Moroni 10.8|Moroni 10:8–19]][[Moroni 10.9|]][[Moroni 10.10|]][[Moroni 10.11|]][[Moroni 10.12|]][[Moroni 10.13|]][[Moroni 10.14|]][[Moroni 10.15|]][[Moroni 10.16|]][[Moroni 10.17|]][[Moroni 10.18|]][[Moroni 10.19|]]; [[D&C 46.10|Doctrine and Covenants 46:10–29]][[D&C 46.11|]][[D&C 46.12|]][[D&C 46.13|]][[D&C 46.14|]][[D&C 46.15|]][[D&C 46.16|]][[D&C 46.17|]][[D&C 46.18|]][[D&C 46.19|]][[D&C 46.20|]][[D&C 46.21|]][[D&C 46.22|]][[D&C 46.23|]][[D&C 46.24|]][[D&C 46.25|]][[D&C 46.26|]][[D&C 46.27|]][[D&C 46.28|]][[D&C 46.29|]].
+[^21]: See [[1 Corinthians 12.1|1 Corinthians 12]][[1 Corinthians 12.2|]][[1 Corinthians 12.3|]][[1 Corinthians 12.4|]][[1 Corinthians 12.5|]][[1 Corinthians 12.6|]][[1 Corinthians 12.7|]][[1 Corinthians 12.8|]][[1 Corinthians 12.9|]][[1 Corinthians 12.10|]][[1 Corinthians 12.11|]][[1 Corinthians 12.12|]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]][[1 Corinthians 12.28|]][[1 Corinthians 12.29|]][[1 Corinthians 12.30|]][[1 Corinthians 12.31|]]; [[1 Corinthians 14.1|14:1–12]][[1 Corinthians 14.2|]][[1 Corinthians 14.3|]][[1 Corinthians 14.4|]][[1 Corinthians 14.5|]][[1 Corinthians 14.6|]][[1 Corinthians 14.7|]][[1 Corinthians 14.8|]][[1 Corinthians 14.9|]][[1 Corinthians 14.10|]][[1 Corinthians 14.11|]][[1 Corinthians 14.12|]]; [[Moroni 10.8|Moroni 10:8–19]][[Moroni 10.9|]][[Moroni 10.10|]][[Moroni 10.11|]][[Moroni 10.12|]][[Moroni 10.13|]][[Moroni 10.14|]][[Moroni 10.15|]][[Moroni 10.16|]][[Moroni 10.17|]][[Moroni 10.18|]][[Moroni 10.19|]]; [[D&C 46.10|Doctrine and Covenants 46:10–29]][[D&C 46.11|]][[D&C 46.12|]][[D&C 46.13|]][[D&C 46.14|]][[D&C 46.15|]][[D&C 46.16|]][[D&C 46.17|]][[D&C 46.18|]][[D&C 46.19|]][[D&C 46.20|]][[D&C 46.21|]][[D&C 46.22|]][[D&C 46.23|]][[D&C 46.24|]][[D&C 46.25|]][[D&C 46.26|]][[D&C 46.27|]][[D&C 46.28|]][[D&C 46.29|]].
 
 [^22]: Some are tempted to eat too much. “Obesity has reached epidemic proportions globally, with at least 2.8 million people dying each year as a result of being overweight” (“10 Facts on Obesity,” World Health Organization, Mar. 2013, www.who.int/features/factfiles/obesity/en). Others are tempted to eat too little. Anorexia and bulimia devastate many lives, marriages, and families. And some are tempted by sexual appetites forbidden by our Creator. Clarification is found in *Handbook 2: Administering the Church,* which states: “The Lord’s law of chastity is abstinence from sexual relations outside of lawful marriage and fidelity within marriage. … Adultery, fornication, homosexual or lesbian relations, and every other unholy, unnatural, or impure practice are sinful.” Still quoting from the handbook: “Homosexual behavior violates the commandments of God, is contrary to the purposes of human sexuality, and deprives people of the blessings that can be found in family life and in the saving ordinances of the gospel. … While opposing homosexual behavior, the Church reaches out with understanding and respect to individuals who are attracted to those of the same gender” (\[2010\], 21.4.5; 21.4.6).
 
-[^23]: See [[1 Corinthians 6.9|1 Corinthians 6:9–20]][[1 Corinthians 6.10|]][[1 Corinthians 6.11|]][[1 Corinthians 6.12|]][[1 Corinthians 6.13|]][[1 Corinthians 6.14|]][[1 Corinthians 6.15|]][[1 Corinthians 6.16|]][[1 Corinthians 6.17|]][[1 Corinthians 6.18|]][[1 Corinthians 6.19|]][[1 Corinthians 6.20|]]; [[James 1.25|James 1:25–27]][[James 1.26|]][[James 1.27|]]; [[D&C 130.20|Doctrine and Covenants 130:20–21]][[D&C 130.21|]]. And we should always remember that “men are, that they might have joy” ([[2 Nephi 2.25|2 Nephi 2:25]]).
+[^23]: See [[1 Corinthians 6.9|1 Corinthians 6:9–20]][[1 Corinthians 6.10|]][[1 Corinthians 6.11|]][[1 Corinthians 6.12|]][[1 Corinthians 6.13|]][[1 Corinthians 6.14|]][[1 Corinthians 6.15|]][[1 Corinthians 6.16|]][[1 Corinthians 6.17|]][[1 Corinthians 6.18|]][[1 Corinthians 6.19|]][[1 Corinthians 6.20|]]; [[James 1.25|James 1:25–27]][[James 1.26|]][[James 1.27|]]; [[D&C 130.20|Doctrine and Covenants 130:20–21]][[D&C 130.21|]]. And we should always remember that “men are, that they might have joy” ([[2 Nephi 2.25|2 Nephi 2:25]]).
 
 [^24]: Mortality is a period of testing, as explained in scripture: “We will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them” ([[Abraham 3.25|Abraham 3:25]]).
 
@@ -125,7 +125,7 @@ My dear brothers and sisters, each day is a day of decision, and our decisions d
 
 [^29]: See [[Romans 8.13|Romans 8:13–17]][[Romans 8.14|]][[Romans 8.15|]][[Romans 8.16|]][[Romans 8.17|]]; [[Galatians 5.13|Galatians 5:13–25]][[Galatians 5.14|]][[Galatians 5.15|]][[Galatians 5.16|]][[Galatians 5.17|]][[Galatians 5.18|]][[Galatians 5.19|]][[Galatians 5.20|]][[Galatians 5.21|]][[Galatians 5.22|]][[Galatians 5.23|]][[Galatians 5.24|]][[Galatians 5.25|]]; [[D&C 88.86|Doctrine and Covenants 88:86]].
 
-[^30]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^30]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^31]: See [[D&C 131.1|Doctrine and Covenants 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]].
 
@@ -137,20 +137,18 @@ My dear brothers and sisters, each day is a day of decision, and our decisions d
 
 [^35]: See [[Genesis 2.24|Genesis 2:24–25]][[Genesis 2.25|]]; [[Genesis 3.20|3:20–21]][[Genesis 3.21|]]; [[Genesis 4.1|4:1–2, 25]][[Genesis 4.2|]][[Genesis 4.25|]].
 
-[^36]: Dr. Patrick F. Fagan wrote: “The indispensable building block upon which the fortunes of the economy depends \[is\] the married-parent household—especially the child-rich family that worships weekly. … Every marriage creates a new household, an independent economic unit that generates income, spends, saves, and invests” (“The Family GDP: How Marriage and Fertility Drive the Economy,” *The Family in America,* vol. 24, no. 2 \[Spring 2010\], 136).
+[^36]: Dr. Patrick F. Fagan wrote: “The indispensable building block upon which the fortunes of the economy depends \[is\] the married-parent household—especially the child-rich family that worships weekly. … Every marriage creates a new household, an independent economic unit that generates income, spends, saves, and invests” (“The Family GDP: How Marriage and Fertility Drive the Economy,” *The Family in America,* vol. 24, no. 2 \[Spring 2010\], 136).
 
-[^37]: See [[Exodus 20.14|Exodus 20:14]]; [[Leviticus 18.22|Leviticus 18:22]]; [[Leviticus 20.13|20:13]]; [[Deuteronomy 5.18|Deuteronomy 5:18]]; [[Matthew 5.27|Matthew 5:27–28]][[Matthew 5.28|]]; [[Mark 10.19|Mark 10:19]]; [[Luke 18.20|Luke 18:20]]; [[Romans 1.26|Romans 1:26–27]][[Romans 1.27|]]; [[Romans 13.9|13:9]]; [[Mosiah 13.22|Mosiah 13:22]]; [[3 Nephi 12.27|3 Nephi 12:27–28]][[3 Nephi 12.28|]]; [[D&C 42.24|Doctrine and Covenants 42:24]]; [[D&C 59.6|59:6]].
+[^37]: See [[Exodus 20.14|Exodus 20:14]]; [[Leviticus 18.22|Leviticus 18:22]]; [[Leviticus 20.13|20:13]]; [[Deuteronomy 5.18|Deuteronomy 5:18]]; [[Matthew 5.27|Matthew 5:27–28]][[Matthew 5.28|]]; [[Mark 10.19|Mark 10:19]]; [[Luke 18.20|Luke 18:20]]; [[Romans 1.26|Romans 1:26–27]][[Romans 1.27|]]; [[Romans 13.9|13:9]]; [[Mosiah 13.22|Mosiah 13:22]]; [[3 Nephi 12.27|3 Nephi 12:27–28]][[3 Nephi 12.28|]]; [[D&C 42.24|Doctrine and Covenants 42:24]]; [[D&C 59.6|59:6]].
 
-[^38]: See Gordon B. Hinckley, [“This Thing Was Not Done in a Corner,”](https://churchofjesuschrist.org/study/ensign/1996/11/this-thing-was-not-done-in-a-corner?lang=eng) *Ensign,* Nov. 1996, 49.
+[^38]: See Gordon B. Hinckley, [“This Thing Was Not Done in a Corner,”](https://www.churchofjesuschrist.org/study/ensign/1996/11/this-thing-was-not-done-in-a-corner?lang=eng) *Ensign,* Nov. 1996, 49.
 
 [^39]: See [[D&C 14.7|Doctrine and Covenants 14:7]].
 
 [^40]: See [[Moses 1.39|Moses 1:39]].
 
-[^41]: See [[2 Nephi 9.41|2 Nephi 9:41, 46]][[2 Nephi 9.46|]]; [[Mosiah 16.10|Mosiah 16:10]].
+[^41]: See [[2 Nephi 9.41|2 Nephi 9:41, 46]][[2 Nephi 9.46|]]; [[Mosiah 16.10|Mosiah 16:10]].
 
 [^42]: We will be judged according to our deeds and the desire of our hearts (see [[D&C 137.9|Doctrine and Covenants 137:9]]; see also [[Hebrews 4.12|Hebrews 4:12]]; [[Alma 18.32|Alma 18:32]]; [[D&C 6.16|Doctrine and Covenants 6:16]]; [[D&C 88.109|88:109]]).
 
-
-
-#Agency #Family #Marriage #Plan_Of_Salvation
+#Agency #Family #Marriage #PlanOfSalvation

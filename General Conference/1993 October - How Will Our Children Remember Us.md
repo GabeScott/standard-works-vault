@@ -48,7 +48,7 @@ It helps children to see that good parents can have differing opinions and that 
 
 Parents are counseled to teach their children by precept and example. The Lord has said:
 
-“Inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents. …
+“Inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents. …
 
 “And they shall also teach their children to pray, and to walk uprightly before the Lord” ([[D&C 68.25|D&C 68:25, 28]][[D&C 68.28|]]).
 
@@ -62,7 +62,7 @@ If the example we have received from our parents was not good, it is our respons
 
 Certainly parents will make mistakes in their parenting process, but through humility, faith, prayer, and study, each person can learn a better way and in so doing bless the lives of family members now and teach correct traditions for the generations that follow.
 
-The Lord’s promises are sure: “I will instruct thee and teach thee in the way which thou shalt go” ([[Psalms 32.8|Ps. 32:8]]). And again: “Whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you” ([[3 Nephi 18.20|3 Ne. 18:20]]).
+The Lord’s promises are sure: “I will instruct thee and teach thee in the way which thou shalt go” ([[Psalms 32.8|Ps. 32:8]]). And again: “Whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you” ([[3 Nephi 18.20|3 Ne. 18:20]]).
 
 Selfishness is so frequently at the core of family relationship problems. When individuals focus on their own selfish interests, they miss opportunities to listen, to understand, or to consider the other person’s feelings or needs.
 
@@ -70,7 +70,7 @@ President Benson has cautioned us:
 
 “We must be more Christlike in our attitude and behavior than what we see in the world. We should be as charitable and considerate with our loved ones as Christ is with us. He is kind, loving, and patient with each of us. Should we not reciprocate the same love to our \[companions\] and children?
 
-“… ‘What manner of men ought we to be?’ You remember the Lord’s answer is this: ‘Verily I say unto you, *even as I am*’ ([[3 Nephi 27.27|3 Ne. 27:27]]; emphasis added)” (in Conference Report, Oct. 1983, p. 64; or *Ensign,* Nov. 1983, p. 44).
+“… ‘What manner of men ought we to be?’ You remember the Lord’s answer is this: ‘Verily I say unto you, *even as I am*’ ([[3 Nephi 27.27|3 Ne. 27:27]]; emphasis added)” (in Conference Report, Oct. 1983, [[1983 October - What Manner of Men Ought We to Be.md|p. 64]]; or *Ensign,* Nov. 1983, p. 44).
 
 President Benson continues:
 
@@ -78,7 +78,7 @@ President Benson continues:
 
 “Such actions, if practiced by a priesthood holder, are almost inconceivable. They are totally out of character with the teachings of the Church and the gospel of Jesus Christ.
 
-“As priesthood holders, we are to emulate the character of the Savior” (in Conference Report, Oct. 1983, p. 61; or *Ensign,* Nov. 1983, p. 42).
+“As priesthood holders, we are to emulate the character of the Savior” (in Conference Report, Oct. 1983, [[1983 October - What Manner of Men Ought We to Be.md|p. 61]]; or *Ensign,* Nov. 1983, p. 42).
 
 Section 121 of the Doctrine and Covenants teaches us, “No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned” ([[D&C 121.41|D&C 121:41]]).
 
@@ -86,13 +86,13 @@ These qualities of kindness and pure knowledge are reflective of our Heavenly Fa
 
 We get an insight into the love Jesus had for His Father, our Father in Heaven, in Jesus’ intercessory prayer, recorded in the Bible, seventeenth chapter of John. The suffering and the atoning sacrifice were nigh at hand.
 
-“These words spake Jesus, and lifted up his eyes to heaven, and said, Father, the hour is come; glorify thy Son, that thy Son also may glorify thee. …
+“These words spake Jesus, and lifted up his eyes to heaven, and said, Father, the hour is come; glorify thy Son, that thy Son also may glorify thee. …
 
 “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou has sent” ([[John 17.1|John 17:1, 3]][[John 17.3|]]).
 
 Jesus acknowledged He was with His Father before coming to earth and the love they had for each other. He said:
 
-“O Father, glorify thou me with thine own self with the glory which I had with thee before the world was … , that \[the world\] may know that thou hast sent me, and hast loved them, as thou hast loved me … : for thou lovedst me before the foundation of the world” ([[John 17.5|John 17:5, 23–24]][[John 17.23|]][[John 17.24|]]).
+“O Father, glorify thou me with thine own self with the glory which I had with thee before the world was … , that \[the world\] may know that thou hast sent me, and hast loved them, as thou hast loved me … : for thou lovedst me before the foundation of the world” ([[John 17.5|John 17:5, 23–24]][[John 17.23|]][[John 17.24|]]).
 
 It is touching to me that Jesus closes His prayer with a desire that we might know and love our Father as He does, even though we can’t remember Him in our mortal estate.
 
@@ -101,8 +101,6 @@ Jesus prayed,
 “O righteous Father, the world hath not known thee: but I have known thee, and these \[disciples\] have known that thou hast sent me” ([[John 17.25|John 17:25]]).
 
 Jesus was able to complete his mission of the Atonement on earth because of the knowledge, example, and love of His Father. Likewise, may each of us, as parents and especially as brethren in the priesthood, through our example, love, and care, be remembered by our children to have the qualities that our Heavenly Father and our Savior have, that we may endure to the end and someday return with our families to their celestial presence, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

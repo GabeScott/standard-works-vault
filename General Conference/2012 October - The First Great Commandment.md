@@ -1,6 +1,6 @@
 # The First Great Commandment
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/the-first-great-commandment?lang=eng)
 
-There is almost no group in history for whom I have more sympathy than I have for the eleven remaining Apostles immediately following the death of the Savior of the world. I think we sometimes forget just how inexperienced they still were and how totally dependent upon Jesus they had of necessity been. To them He had said, “Have I been so long time with you, and yet hast thou not known me … ?”[^1]
+There is almost no group in history for whom I have more sympathy than I have for the eleven remaining Apostles immediately following the death of the Savior of the world. I think we sometimes forget just how inexperienced they still were and how totally dependent upon Jesus they had of necessity been. To them He had said, “Have I been so long time with you, and yet hast thou not known me … ?”[^1]
 
 But, of course, to them He hadn’t been with them nearly long enough. Three years isn’t long to call an entire Quorum of Twelve Apostles from a handful of new converts, purge from them the error of old ways, teach them the wonders of the gospel of Jesus Christ, and then leave them to carry on the work until they too were killed. Quite a staggering prospect for a group of newly ordained elders.
 
@@ -42,7 +42,7 @@ My beloved brothers and sisters, I am not certain just what our experience will 
 
 “If ye love me, keep my commandments,”[^14] Jesus said. So we have neighbors to bless, children to protect, the poor to lift up, and the truth to defend. We have wrongs to make right, truths to share, and good to do. In short, we have a life of devoted discipleship to give in demonstrating our love of the Lord. We can’t quit and we can’t go back. After an encounter with the living Son of the living God, nothing is ever again to be as it was before. The Crucifixion, Atonement, and Resurrection of Jesus Christ mark the beginning of a Christian life, not the end of it. It was this truth, this reality, that allowed a handful of Galilean fishermen-turned-again-Apostles without “a single synagogue or … sword”[^15] to leave those nets a second time and go on to shape the history of the world in which we now live.
 
-I testify from the bottom of my heart, with the intensity of my soul, to all who can hear my voice that those apostolic keys have been restored to the earth, and they are found in The Church of Jesus Christ of Latter-day Saints. To those who have not yet joined with us in this great final cause of Christ, we say, “Please come.” To those who were once with us but have retreated, preferring to pick and choose a few cultural hors d’oeuvres from the smorgasbord of the Restoration and leave the rest of the feast, I say that I fear you face a lot of long nights and empty nets. The call is to come back, to stay true, to love God, and to lend a hand. I include in that call to fixed faithfulness every returned missionary who ever stood in a baptismal font and with arm to the square said, “Having been commissioned of Jesus Christ.”[^16] That commission was to have changed your convert forever, but it was surely supposed to have changed you forever as well. To the youth of the Church rising up to missions and temples and marriage, we say: “Love God and remain clean from the blood and sins of this generation. You have a monumental work to do, underscored by that marvelous announcement President Thomas S. Monson made yesterday morning. Your Father in Heaven expects your loyalty and your love at every stage of your life.”
+I testify from the bottom of my heart, with the intensity of my soul, to all who can hear my voice that those apostolic keys have been restored to the earth, and they are found in The Church of Jesus Christ of Latter-day Saints. To those who have not yet joined with us in this great final cause of Christ, we say, “Please come.” To those who were once with us but have retreated, preferring to pick and choose a few cultural hors d’oeuvres from the smorgasbord of the Restoration and leave the rest of the feast, I say that I fear you face a lot of long nights and empty nets. The call is to come back, to stay true, to love God, and to lend a hand. I include in that call to fixed faithfulness every returned missionary who ever stood in a baptismal font and with arm to the square said, “Having been commissioned of Jesus Christ.”[^16] That commission was to have changed your convert forever, but it was surely supposed to have changed you forever as well. To the youth of the Church rising up to missions and temples and marriage, we say: “Love God and remain clean from the blood and sins of this generation. You have a monumental work to do, underscored by that marvelous announcement President Thomas S. Monson made yesterday morning. Your Father in Heaven expects your loyalty and your love at every stage of your life.”
 
 To all within the sound of my voice, the voice of Christ comes ringing down through the halls of time, asking each one of us while there is time, “Do you love me?” And for every one of us, I answer with my honor and my soul, “Yea, Lord, we do love thee.” And having set our “hand to the plough,”[^17] we will never look back until this work is finished and love of God and neighbor rules the world. In the name of Jesus Christ, amen.
 
@@ -77,12 +77,10 @@ To all within the sound of my voice, the voice of Christ comes ringing down thro
 
 [^14]: [[John 14.15|John 14:15]].
 
-[^15]: Frederic W. Farrar, *The Life of Christ* (1994), 656; see chapter 62 for more on the plight of this newly founded Church.
+[^15]: Frederic W. Farrar, *The Life of Christ* (1994), 656; see chapter 62 for more on the plight of this newly founded Church.
 
 [^16]: [[D&C 20.73|Doctrine and Covenants 20:73]].
 
 [^17]: [[Luke 9.62|Luke 9:62]].
 
-
-
-#Discipleship #Love #Loyalty
+#Discipleship #Loyalty #Love

@@ -1,6 +1,6 @@
 # Finding Joy in Sharing the Gospel
 
-By Cristina B. Franco - *Second Counselor in the Primary General Presidency*
+By Cristina B. Franco - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -75,11 +75,11 @@ Susana also said, “Other times I just smile while I am waiting for the train. 
 
 When he said no, she gave him a pass-along card and invited him to attend the upcoming Sunday services. The following Sunday, she greeted him at the door.
 
-President Dallin H. Oaks taught:
+President Dallin H. Oaks taught:
 
-“There are three things all members can do to help share the gospel. …
+“There are three things all members can do to help share the gospel. …
 
-“*First,* we can all pray for desire to help with this vital part of the work of salvation. …
+“*First,* we can all pray for desire to help with this vital part of the work of salvation. …
 
 “*Second,* we can keep the commandments. … Faithful members will always have the Savior’s Spirit … with them to guide them as they seek to participate in the great work of sharing the restored gospel of Jesus Christ.
 
@@ -111,20 +111,18 @@ I bear witness that these words are true and that we have a loving Father in Hea
 
 
 
-[^1]: “The Church of Jesus Christ,” *Children’s Songbook,* 77.
+[^1]: “The Church of Jesus Christ,” *Children’s Songbook,* 77.
 
-[^2]: *Preach My Gospel: A Guide to Missionary Service,* rev. ed. (2018), 48.
+[^2]: *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-2-the-plan-of-salvation?lang=eng),* rev. ed. (2018), 48.
 
-[^3]: Dallin H. Oaks, “[[2016 October - Sharing the Restored Gospel.md|Sharing the Restored Gospel]],” *Ensign* or *Liahona,* Nov. 2016, 58.
+[^3]: Dallin H. Oaks, “[[2016 October - Sharing the Restored Gospel.md|Sharing the Restored Gospel]],” *Ensign* or *Liahona,* Nov. 2016, 58.
 
-[^4]: *Handbook 2: Administering the Church,* [5.0](https://churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/the-work-of-salvation-in-the-ward-and-stake/the-work-of-salvation-in-the-ward-and-stake?lang=eng), ChurchofJesusChrist.org; see also L. Whitney Clayton, “[The Work of Salvation: Then and Now](https://churchofjesuschrist.org/study/liahona/2014/09/the-work-of-salvation-then-and-now?lang=eng),” *Ensign,* Sept. 2014, 63; *Liahona,* Sept. 2014, 23.
+[^4]: *Handbook 2: Administering the Church,* [5.0](https://www.churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/the-work-of-salvation-in-the-ward-and-stake/the-work-of-salvation-in-the-ward-and-stake?lang=eng), ChurchofJesusChrist.org; see also L. Whitney Clayton, “[The Work of Salvation: Then and Now](https://www.churchofjesuschrist.org/study/liahona/2014/09/the-work-of-salvation-then-and-now?lang=eng),” *Ensign,* Sept. 2014, 63; *Liahona,* Sept. 2014, 23.
 
 [^5]: [[D&C 84.85|Doctrine and Covenants 84:85]].
 
 [^6]: [[D&C 18.15|Doctrine and Covenants 18:15–16]][[D&C 18.16|]].
 
-[^7]: “The Church of Jesus Christ,” 77.
+[^7]: “The Church of Jesus Christ,” 77.
 
-
-
-#Missionary_Work
+#MissionaryWork

@@ -1,6 +1,6 @@
 # “Never Be Weary of Good Works”
 
-By Elder Jack H Goaslind, Jr. - *Of the First Quorum of the Seventy*
+By Elder Jack H Goaslind, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -17,8 +17,6 @@ I’m grateful for relatives and friends who have been patient and understanding
 May I extend a special love and greeting to my son who is in the Language Training Mission and who will leave Tuesday for Padova, Italy.
 
 I bear to you today, my brothers and sisters, my testimony—for which I am grateful—that the Lord Jesus Christ lives, that this is his work, that President Spencer Woolley Kimball is indeed the Lord’s prophet upon the earth, and I love him. I pledge to him, to my Brethren of the General Authorities, and to you, my brothers and sisters, that I will serve with all of my heart, might, mind, and strength. In the name of the Lord Jesus Christ, amen.
-
-
 
 
 

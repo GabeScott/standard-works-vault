@@ -1,6 +1,6 @@
 # God Loves His Children
 
-By Elder Taniela B. Wakolo - *Of the Seventy*
+By Elder Taniela B. Wakolo - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -12,13 +12,13 @@ Brothers and sisters, I rejoice with you in the gospel of Jesus Christ. I bring 
 
 On this Easter morning, I testify of the living Christ, that He rose from the dead and that His love for us and for our Father in Heaven is pure and eternal. Today, I desire to focus on the love of Heavenly Father and Jesus Christ for all, which is manifest through the Atonement of Jesus Christ. “For God so loved the world, that he gave his only begotten Son” ([[John 3.16|John 3:16]]).
 
-When the prophet Nephi was asked by an angel about his knowledge of God, Nephi responded simply, “I know that he loveth his children” (see [[1 Nephi 11.16|1 Nephi 11:16–17]][[1 Nephi 11.17|]]).
+When the prophet Nephi was asked by an angel about his knowledge of God, Nephi responded simply, “I know that he loveth his children” (see [[1 Nephi 11.16|1 Nephi 11:16–17]][[1 Nephi 11.17|]]).
 
-A verse from the Book of Mormon: Another Testament of Jesus Christ powerfully describes the Savior’s perfect love: “And the world, because of their iniquity, shall judge him to be a thing of naught; … they scourge him, … they smite him, … they spit upon him, and he suffereth it, because of his loving kindness and his long-suffering towards the children of men” ([[1 Nephi 19.9|1 Nephi 19:9]]). The Savior’s universal love is the motivating force behind all that He does. We know that it is the same love our Father in Heaven has for us, because the Savior humbly taught that He and the Father “are one” (see [[John 10.30|John 10:30]]; [[John 17.20|17:20–23]][[John 17.21|]][[John 17.22|]][[John 17.23|]]).
+A verse from the Book of Mormon: Another Testament of Jesus Christ powerfully describes the Savior’s perfect love: “And the world, because of their iniquity, shall judge him to be a thing of naught; … they scourge him, … they smite him, … they spit upon him, and he suffereth it, because of his loving kindness and his long-suffering towards the children of men” ([[1 Nephi 19.9|1 Nephi 19:9]]). The Savior’s universal love is the motivating force behind all that He does. We know that it is the same love our Father in Heaven has for us, because the Savior humbly taught that He and the Father “are one” (see [[John 10.30|John 10:30]]; [[John 17.20|17:20–23]][[John 17.21|]][[John 17.22|]][[John 17.23|]]).
 
 How, then, do we reciprocate and show our gratitude for Their universal love? The Savior taught us with this simple, all-encompassing invitation: “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]).
 
-President Dallin H. Oaks taught, “God’s universal and perfect love is shown in all the blessings of His gospel plan, including the fact that His choicest blessings are reserved for those who obey His laws.”[^1]
+President Dallin H. Oaks taught, “God’s universal and perfect love is shown in all the blessings of His gospel plan, including the fact that His choicest blessings are reserved for those who obey His laws.”[^1]
 
 I would like to share three specific ways our Heavenly Father manifests His love for us, His children.
 
@@ -32,9 +32,9 @@ Distractions can sometimes prevent us from experiencing God’s love in our fami
 
 ## Second, He Manifests His Love to His Children by Calling Prophets
 
-Our current world is deluged in a “war of words and tumult of opinions” ([[Joseph Smith History 1.10|Joseph Smith—History 1:10]]). Paul reminds us that “there are … so many kinds of voices in the world” ([[1 Corinthians 14.10|1 Corinthians 14:10]]). Which of all the voices rise clearly and meaningfully above the fray? It is the voice of God’s prophets, seers, and revelators.
+Our current world is deluged in a “war of words and tumult of opinions” ([[Joseph Smith History 1.10|Joseph Smith—History 1:10]]). Paul reminds us that “there are … so many kinds of voices in the world” ([[1 Corinthians 14.10|1 Corinthians 14:10]]). Which of all the voices rise clearly and meaningfully above the fray? It is the voice of God’s prophets, seers, and revelators.
 
-I remember vividly, after undergoing surgery in 2018 and upon returning to work, I was in the parking garage at Church headquarters. Suddenly, I heard the voice of President Russell M. Nelson calling, “Taniela, Taniela.” I ran toward him, and he asked how I was doing.
+I remember vividly, after undergoing surgery in 2018 and upon returning to work, I was in the parking garage at Church headquarters. Suddenly, I heard the voice of President Russell M. Nelson calling, “Taniela, Taniela.” I ran toward him, and he asked how I was doing.
 
 I said, “I am recovering very well, President Nelson.”
 
@@ -67,14 +67,12 @@ I conclude. Our Eternal Father and His Son, Jesus Christ, show Their love by mak
 
 
 
-[^1]: Dallin H. Oaks, “[[2009 October - Love and Law.md|Love and Law]],” *Ensign* or *Liahona*, Nov. 2009, 26.
+[^1]: Dallin H. Oaks, “[[2009 October - Love and Law.md|Love and Law]],” *Ensign* or *Liahona*, Nov. 2009, 26.
 
-[^2]: See Russell M. Nelson, “[[2020 April - Opening the Heavens for Help.md|Opening the Heavens for Help]],” *Ensign* or *Liahona*, May 2020, 73–74; “[[2020 October - Embrace the Future with Faith.md|Embrace the Future with Faith]],” *Ensign* or *Liahona*, Nov. 2020, 73–76; “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
+[^2]: See Russell M. Nelson, “[[2020 April - Opening the Heavens for Help.md|Opening the Heavens for Help]],” *Ensign* or *Liahona*, May 2020, 73–74; “[[2020 October - Embrace the Future with Faith.md|Embrace the Future with Faith]],” *Ensign* or *Liahona*, Nov. 2020, 73–76; “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
 
-[^3]: See “[President Russell M. Nelson on the Healing Power of Gratitude](https://www.churchofjesuschrist.org/media/video/2020-11-1100-president-russell-m-nelson-on-the-healing-power-of-gratitude)” (video), ChurchofJesusChrist.org.
+[^3]: See “[President Russell M. Nelson on the Healing Power of Gratitude](https://www.churchofjesuschrist.org/media/video/2020-11-1100-president-russell-m-nelson-on-the-healing-power-of-gratitude)” (video), ChurchofJesusChrist.org.
 
-[^4]: “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” ChurchofJesusChrist.org.
+[^4]: “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” ChurchofJesusChrist.org.
 
-
-
-#Atonement #Chastening #Family #God_The_Father #Jesus_Christ #Love #Prophets
+#Atonement #Chastening #Family #GodTheFather #JesusChrist #Love #Prophets

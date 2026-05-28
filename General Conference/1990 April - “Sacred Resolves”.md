@@ -12,13 +12,13 @@ May I, in conclusion, read some of the words he has said in the past on this occ
 
 “I commend my Brethren … for the excellent addresses they have given. My humble prayer is that all of us will follow the counsel and instruction we have received.
 
-“As we have felt the Spirit and made new and sacred resolves, may we now have the courage and fortitude to carry out those resolves” (in Conference Report, Apr. 1988, p. 97; or *Ensign,* May 1988, p. 84).
+“As we have felt the Spirit and made new and sacred resolves, may we now have the courage and fortitude to carry out those resolves” (in Conference Report, Apr. 1988, [[1988 April - “Come unto Christ, and Be Perfected in Him”.md|p. 97]]; or *Ensign,* May 1988, p. 84).
 
 “We should like to reaffirm to all the world that The Church of Jesus Christ of Latter-day Saints is led by our Lord and Savior Jesus Christ. We believe in Christ. We accept and affirm His teachings as revealed truths from God. We know Him to be the literal Son of God. We love Him as our resurrected Lord and Savior.
 
 “We believe there is ‘none other name under heaven given among men, whereby we must be saved’ ([[Acts 4.12|Acts 4:12]]).
 
-“So we invite all men, as the Book of Mormon declares, to ‘Come unto Christ, and be \[redeemed\] in him, and deny yourselves of all ungodliness, and love God with all your \[heart\], mind and strength’ ([[Moroni 10.32|Moro. 10:32]])” (*Ensign,* Dec. 1985, p. 5).
+“So we invite all men, as the Book of Mormon declares, to ‘Come unto Christ, and be \[redeemed\] in him, and deny yourselves of all ungodliness, and love God with all your \[heart\], mind and strength’ ([[Moroni 10.32|Moro. 10:32]])” (*Ensign,* Dec. 1985, p. 5).
 
 “I bear witness to you that Jesus is the Christ, the Savior and Redeemer of the world—the very Son of God.
 
@@ -30,7 +30,7 @@ May I, in conclusion, read some of the words he has said in the past on this occ
 
 “His friends *deserted* Him.
 
-“His closest associates did not fully *understand* his mission, and they *doubted.* One of the most trusted *denied* knowing Him. …
+“His closest associates did not fully *understand* his mission, and they *doubted.* One of the most trusted *denied* knowing Him. …
 
 “He asked *forgiveness* for His tormenters and then willingly gave up his life.
 
@@ -38,7 +38,7 @@ May I, in conclusion, read some of the words he has said in the past on this occ
 
 “An immense stone was placed over the opening.
 
-“In the minds of his stunned followers over and over echoed some of his last words, ‘… be of good cheer; I have overcome the world’ \[[[John 16.33|John 16:33]]\]” (in Conference Report, Apr. 1964, p. 119).
+“In the minds of his stunned followers over and over echoed some of his last words, ‘… be of good cheer; I have overcome the world’ \[[[John 16.33|John 16:33]]\]” (in Conference Report, Apr. 1964, p. 119).
 
 Last Thursday, in a meeting in the temple of all of the General Authorities, where we bore testimonies one to another and partook of the sacrament of the Lord’s Supper, President Benson stood before his brethren and said with conviction and emotion, “I love you, my brethren. I bless you in your great ministry.”
 
@@ -49,6 +49,4 @@ To these words of his I add my own testimony that God our Eternal Father lives; 
 
 
 
-
-
-#Jesus_Christ
+#JesusChrist

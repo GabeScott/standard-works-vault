@@ -20,9 +20,9 @@ Daddy’s response, typical for him, was, “You’re an honest man, aren’t yo
 
 A few weeks later I asked my dad about the spare tire. He told me that it had been returned.
 
-My father, now in his 90th year, still goes about his life the same way. Most people his age *receive* meals-on-wheels, but my dad *delivers* food to the “aged.” He’s often at the bedside of friends who are ill or dying. He goes out with his chain saw, helping the Rotary club with their annual cleanup efforts. As I think of Daddy’s life and actions, I’m reminded of President Boyd K. Packer’s thought: he’s “active in the gospel” (in Conference Report, Apr. 2003, 87; or *Ensign,* May 2003, 82). His life, as the hymn suggests, touches lives for good, and in the touching, all are enriched (see “Each Life That Touches Ours for Good,” *Hymns,* no. 293). My father understands friendship.
+My father, now in his 90th year, still goes about his life the same way. Most people his age *receive* meals-on-wheels, but my dad *delivers* food to the “aged.” He’s often at the bedside of friends who are ill or dying. He goes out with his chain saw, helping the Rotary club with their annual cleanup efforts. As I think of Daddy’s life and actions, I’m reminded of President Boyd K. Packer’s thought: he’s “active in the gospel” (in Conference Report, Apr. 2003, [[2003 April - The Golden Years.md|87]]; or *Ensign,* May 2003, 82). His life, as the hymn suggests, touches lives for good, and in the touching, all are enriched (see “Each Life That Touches Ours for Good,” *Hymns,* no. 293). My father understands friendship.
 
-As a Relief Society presidency, we sometimes hear women say that they don’t feel the love of the Lord. But perhaps they would feel more of His love if they looked for His hand in the actions of those who care for them. It may be a member of their branch or ward, a neighbor, or even a stranger who blesses them and manifests Christ’s love. Elder Henry B. Eyring instructed us: “You are called to represent the Savior. Your voice to testify becomes the same as His voice, your hands to lift the same as His hands” (in Conference Report, Oct. 2002, 80; or *Ensign,* Nov. 2002, 76). If we can lift others in Christ’s name, surely we can also be lifted.
+As a Relief Society presidency, we sometimes hear women say that they don’t feel the love of the Lord. But perhaps they would feel more of His love if they looked for His hand in the actions of those who care for them. It may be a member of their branch or ward, a neighbor, or even a stranger who blesses them and manifests Christ’s love. Elder Henry B. Eyring instructed us: “You are called to represent the Savior. Your voice to testify becomes the same as His voice, your hands to lift the same as His hands” (in Conference Report, Oct. 2002, [[2002 October - Rise to Your Call.md|80]]; or *Ensign,* Nov. 2002, 76). If we can lift others in Christ’s name, surely we can also be lifted.
 
 One home teacher I know faithfully made monthly visits to an elderly widow. More than just visit, however, each fall he winterized the sister’s air conditioner and checked the filter on her furnace. Was that God’s love or the love of the home teacher? The answer, of course, is both.
 
@@ -55,8 +55,6 @@ It should be obvious to each of us that our ultimate friendship should be with o
 As I think back to the day I was greeted in the temple by so many I loved, I like to imagine that our daily lives can be equally blessed. I felt a love that seemed a glimpse of the pure love of Christ—the charity that should fill our hearts. I picture wards and branches where friends of all ages and backgrounds stand together and model their lives on the teachings of Jesus Christ.
 
 I bear you my testimony today that Christ lives. I give thanks for Him. I pray that I may always be His friend and that in doing so, I will be your friend as well. In the name of Jesus Christ, amen.
-
-
 
 
 

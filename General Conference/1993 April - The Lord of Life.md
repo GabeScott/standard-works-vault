@@ -10,11 +10,11 @@ First, may I thank my grandchildren, who have been praying the last couple of we
 
 Springtime in Utah brings the anticipated renewal of life. Easter approaches, and once again we ponder the Resurrection and our Father’s plan of salvation. The miracles of nature and the gospel combine to remind us that the Lord of Life is a God of miracles.
 
-For many, perhaps the most spectacular miracle would be the raising of someone from the dead. The scriptures describe the supreme joy of the widows of Zarephath and Nain whose dead sons were restored to life (see [[1 Kings 17.17|1 Kgs. 17:17–24]][[1 Kings 17.18|]][[1 Kings 17.19|]][[1 Kings 17.20|]][[1 Kings 17.21|]][[1 Kings 17.22|]][[1 Kings 17.23|]][[1 Kings 17.24|]]; [[Luke 7.11|Luke 7:11–15]][[Luke 7.12|]][[Luke 7.13|]][[Luke 7.14|]][[Luke 7.15|]]). The most dramatic episode tells how the Savior went to the sepulcher of His beloved friend Lazarus, who had lain dead for four days. Asking them to take away the stone, “he cried with a loud voice, Lazarus, come forth. And he that was dead came forth, bound hand and foot with graveclothes” ([[John 11.43|John 11:43–44]][[John 11.44|]]).
+For many, perhaps the most spectacular miracle would be the raising of someone from the dead. The scriptures describe the supreme joy of the widows of Zarephath and Nain whose dead sons were restored to life (see [[1 Kings 17.17|1 Kgs. 17:17–24]][[1 Kings 17.18|]][[1 Kings 17.19|]][[1 Kings 17.20|]][[1 Kings 17.21|]][[1 Kings 17.22|]][[1 Kings 17.23|]][[1 Kings 17.24|]]; [[Luke 7.11|Luke 7:11–15]][[Luke 7.12|]][[Luke 7.13|]][[Luke 7.14|]][[Luke 7.15|]]). The most dramatic episode tells how the Savior went to the sepulcher of His beloved friend Lazarus, who had lain dead for four days. Asking them to take away the stone, “he cried with a loud voice, Lazarus, come forth. And he that was dead came forth, bound hand and foot with graveclothes” ([[John 11.43|John 11:43–44]][[John 11.44|]]).
 
-The Prophet Joseph Smith shared a profound insight which I’ll rephrase in the form of a question: *Is it any more incredible that one could be raised from the dead than to be spiritually reborn?* (see *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 191).
+The Prophet Joseph Smith shared a profound insight which I’ll rephrase in the form of a question: *Is it any more incredible that one could be raised from the dead than to be spiritually reborn?* (see *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 191).
 
-John the Apostle taught that the highest manifestation of our Heavenly Father’s love was to send “his only begotten Son into the world, that we might live through him” ([[1 John 4.9|1 Jn. 4:9]]).
+John the Apostle taught that the highest manifestation of our Heavenly Father’s love was to send “his only begotten Son into the world, that we might live through him” ([[1 John 4.9|1 Jn. 4:9]]).
 
 Few understood this during His ministry. The intellectual Nicodemus was impressed with the miracles of Jesus; but even with extensive knowledge of the scriptures, he could not grasp the doctrine of spiritual rebirth, the transformation of the human soul, what it means to be born again (see [[John 3.1|John 3:1–10]][[John 3.2|]][[John 3.3|]][[John 3.4|]][[John 3.5|]][[John 3.6|]][[John 3.7|]][[John 3.8|]][[John 3.9|]][[John 3.10|]]).
 
@@ -66,7 +66,13 @@ I do not know how our Savior actually performs the sanctifying miracle of the At
 
 3. The Atonement must be infinite and eternal, available to all mankind.
 
-4. I believe, to use an insurance phrase, we must pay the deductible. We must experience sorrow enough, suffering enough, guilt enough so we are conscious and appreciative of the heavier burden borne by the Savior.My soul pains when His atonement is treated lightly, when the blessing of repentance is reduced to simply “taking care of it with the bishop,” when there is brief confession without humility or godly sorrow. This attitude of entitlement rather than privilege was recently expressed by a young Church member who wrote:“I have done bad things that I knew were bad because I’ve been taught that ever since I can remember. … I know repentance is a great gift. Without it I would be lost. I am not ready to repent of my sins; but I know that when I am ready, I can.”Such indulgence in premeditated sin shows pitiful misunderstanding of repentance. As Amulek warned, we must not procrastinate the day of our repentance until the end (see [[Alma 34.32|Alma 34:32–35]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]]). Judgment for us could be today or tomorrow. We must not risk our opportunity to repent. Salvation is not just an escape from the penalty of sin but deliverance from sinfulness. The truly penitent not only seek forgiveness for past sins but plead for the Savior to purge their hearts of the desire or appetite for sin.
+4. I believe, to use an insurance phrase, we must pay the deductible. We must experience sorrow enough, suffering enough, guilt enough so we are conscious and appreciative of the heavier burden borne by the Savior.
+
+My soul pains when His atonement is treated lightly, when the blessing of repentance is reduced to simply “taking care of it with the bishop,” when there is brief confession without humility or godly sorrow. This attitude of entitlement rather than privilege was recently expressed by a young Church member who wrote:
+
+“I have done bad things that I knew were bad because I’ve been taught that ever since I can remember. … I know repentance is a great gift. Without it I would be lost. I am not ready to repent of my sins; but I know that when I am ready, I can.”
+
+Such indulgence in premeditated sin shows pitiful misunderstanding of repentance. As Amulek warned, we must not procrastinate the day of our repentance until the end (see [[Alma 34.32|Alma 34:32–35]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]]). Judgment for us could be today or tomorrow. We must not risk our opportunity to repent. Salvation is not just an escape from the penalty of sin but deliverance from sinfulness. The truly penitent not only seek forgiveness for past sins but plead for the Savior to purge their hearts of the desire or appetite for sin.
 
 5. Finally, we must acknowledge the gift and comply with the conditions so that redemption might be complete. Love motivates our obedience to God. To express our love and gratitude for the Atonement, we covenant with our Heavenly Father to take upon us the name of His Son and to bear witness of Him at all times and in all places, observing His commandments (see [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]]).
 
@@ -75,6 +81,4 @@ I bear my solemn witness that full acceptance of the Atonement, with the saving 
 
 
 
-
-
-#Atonement #Conversion #Jesus_Christ #Repentance
+#Atonement #Conversion #JesusChrist #Repentance

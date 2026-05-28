@@ -36,19 +36,17 @@ Yes, I have maintained a cheerful disposition, and I will gladly share with you 
 
 Not long ago I had the privilege of attending a mission presidents’ seminar in San Francisco with Elder David B. Haight of the Council of the Twelve. He shared with us some thoughts from an author about growing old.
 
-“Nobody grows old by merely living a number of years. People grow old only by deserting their ideals. … There is \[always\] the love of wonder, \[a\] childlike appetite for what \[is\] next, and the joy … of life. You are as young as your faith, as old as your doubt; as young as your self-confidence, as old as your fear \[or\] despair. In the \[center\] of every heart there is a recording chamber; so long as it receives messages of beauty, hope, cheer, and courage, so long are you young” (Douglas MacArthur, *A Soldier Speaks,* ed. Vorin E. Whan, Jr. \[New York: Frederick A. Praeger, 1965\], p. 313).
+“Nobody grows old by merely living a number of years. People grow old only by deserting their ideals. … There is \[always\] the love of wonder, \[a\] childlike appetite for what \[is\] next, and the joy … of life. You are as young as your faith, as old as your doubt; as young as your self-confidence, as old as your fear \[or\] despair. In the \[center\] of every heart there is a recording chamber; so long as it receives messages of beauty, hope, cheer, and courage, so long are you young” (Douglas MacArthur, *A Soldier Speaks,* ed. Vorin E. Whan, Jr. \[New York: Frederick A. Praeger, 1965\], p. 313).
 
 How blessed are we to be part of a rapidly expanding church that teaches beauty, hope, cheer, courage, faith, and happiness that enable us to stay young at heart through faithful service in whatever calling we may have.
 
 President Thomas S. Monson’s First Presidency message entitled “Happiness, the Universal Quest” in the October 1993 issue of the *Ensign* magazine, shares five important ways to obtain lasting happiness in this life and the life to come, based on the words of the Prophet Joseph Smith:
 
-“Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it” (p. 2).
+“Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it” (p. 2).
 
 Therefore, let us all walk in these clearly defined paths to increase our happiness.
 
 In closing, I bear solemn witness that God, our Eternal Father, lives; that Jesus is the Christ, the Only Begotten Son of the Father born in the flesh, the Savior and Redeemer of all mankind; that Joseph Smith was a prophet of the living God; and that every man who has succeeded him as President of the Church has been a living prophet, including President Ezra Taft Benson in our day and time. This is my personal, eternal testimony, in the name of Jesus Christ, amen.
-
-
 
 
 

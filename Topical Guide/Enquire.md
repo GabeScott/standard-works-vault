@@ -1,4 +1,3 @@
 # Enquire
 
-
-*See* [[Inquire.md|Inquire]]
+*See also* [[Inquire.md|Inquire]]

@@ -1,7 +1,6 @@
 # Avenge
 
-
-*See also* [[Recompence, Recompense.md|Recompence]]; [[Vengeance.md|Vengeance]]
+*See also* [[Recompence.md|Recompence]]; [[Vengeance.md|Vengeance]]
 
 Cain shall be *avenged* sevenfold, [[Genesis 4.24|Genesis 4:24]] ([[Moses 5.48|Moses 5:48]]).
 

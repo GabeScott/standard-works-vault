@@ -94,19 +94,19 @@ May we all, especially the poor in spirit, come unto Him and be made whole, I pr
 
 [^2]: [[Matthew 11.28|Matthew 11:28–29]][[Matthew 11.29|]].
 
-[^3]: [[3 Nephi 12.3|3 Nephi 12:3]]; emphasis added.
+[^3]: [[3 Nephi 12.3|3 Nephi 12:3]]; emphasis added.
 
 [^4]: [[John 1.35|John 1:35–39, 43]][[John 1.36|]][[John 1.37|]][[John 1.38|]][[John 1.39|]][[John 1.43|]].
 
 [^5]: [[Matthew 4.19|Matthew 4:19]].
 
-[^6]: [[2 Nephi 9.43|2 Nephi 9:43]].
+[^6]: [[2 Nephi 9.43|2 Nephi 9:43]].
 
 [^7]: See [[Alma 32.27|Alma 32:27]]; emphasis added.
 
 [^8]: See [[Alma 32.21|Alma 32:21]].
 
-[^9]: [[2 Nephi 31.13|2 Nephi 31:13, 17]][[2 Nephi 31.17|]].
+[^9]: [[2 Nephi 31.13|2 Nephi 31:13, 17]][[2 Nephi 31.17|]].
 
 [^10]: [[D&C 81.5|D&C 81:5]].
 
@@ -120,7 +120,7 @@ May we all, especially the poor in spirit, come unto Him and be made whole, I pr
 
 [^15]: “Lord, I Would Follow Thee,” *Hymns,* no. 220.
 
-[^16]: [[1 Nephi 21.16|1 Nephi 21:16]].
+[^16]: [[1 Nephi 21.16|1 Nephi 21:16]].
 
 [^17]: [[Mark 5.36|Mark 5:36]].
 
@@ -128,6 +128,4 @@ May we all, especially the poor in spirit, come unto Him and be made whole, I pr
 
 [^19]: George Blair, “The Carpenter of Nazareth,” in Obert C. Tanner, *Christ’s Ideals for Living* (Sunday School manual, 1955), 22.
 
-
-
-#Jesus_Christ #Peace #Repentance
+#JesusChrist #Peace #Repentance

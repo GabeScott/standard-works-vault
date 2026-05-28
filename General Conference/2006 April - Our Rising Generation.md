@@ -12,9 +12,9 @@ Good evening, my dear brethren of the priesthood. Tonight throughout the world w
 
 In an early Book of Mormon time, the members of the Church also gathered near a temple to receive instruction from their prophet and leader. Late in his life, King Benjamin called upon fathers to bring their families together, to give them counsel and admonitions. From Mosiah we read:
 
-“And it came to pass that when they came up to the temple, they pitched their tents round about, every man according to his family. …
+“And it came to pass that when they came up to the temple, they pitched their tents round about, every man according to his family. …
 
-“… Every man having his tent with the door thereof towards the temple, that thereby they might remain in their tents and hear the words which king Benjamin should speak unto them” ([[Mosiah 2.5|Mosiah 2:5–6]][[Mosiah 2.6|]]).
+“… Every man having his tent with the door thereof towards the temple, that thereby they might remain in their tents and hear the words which king Benjamin should speak unto them” ([[Mosiah 2.5|Mosiah 2:5–6]][[Mosiah 2.6|]]).
 
 I love the imagery of these verses. Figuratively speaking, brethren, are the doors of our homes pitched towards the temples we so love? Do we attend as often as we can, showing our children through our example the importance of these sacred and special places?
 
@@ -56,13 +56,11 @@ However, I realized we had an opportunity to add more meaningful spiritual exper
 
 Looking to another Book of Mormon time: Nephi lived in a situation where some members of his family struggled with obedience, harmony, and faithfulness. He most certainly understood the necessity for attentive commitment to children of the rising generation. He said late in his life:
 
-“And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
+“And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
 
 I pray that as the holders of the priesthood of God we may each of us do all things that lie in our power to teach our youth what source they may look to for a remission of their sins, even the Lord Jesus Christ. May we each respond with our most sincere efforts to “all hands on deck” as it pertains to saving our own rising generation—they are certainly worth our very best efforts.
 
 I testify that this is the Lord’s true Church, directed by Him through our dear prophet, even Gordon B. Hinckley, whom I love and sustain. In the name of Jesus Christ, amen.
-
-
 
 
 

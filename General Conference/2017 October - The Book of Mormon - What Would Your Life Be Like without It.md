@@ -1,6 +1,6 @@
 # The Book of Mormon: What Would Your Life Be Like without It?
 
-By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
+By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -32,15 +32,15 @@ I explained that after the Savior’s Crucifixion and Resurrection, He came to t
 
 At this point, the king became *very* interested. I turned to the mission president accompanying me and asked if he had an extra copy of the Book of Mormon with him. He pulled one from his briefcase.
 
-I opened it to [[3 Nephi 11.1|3 Nephi chapter 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], and together the king and I read the Savior’s sermon to the Nephites. I then presented the copy of the Book of Mormon to him. His response lodged in my mind and heart forever: “You could have given me diamonds or rubies, but nothing is more precious to me than this additional knowledge about the Lord Jesus Christ.”
+I opened it to [[3 Nephi 11.1|3 Nephi chapter 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], and together the king and I read the Savior’s sermon to the Nephites. I then presented the copy of the Book of Mormon to him. His response lodged in my mind and heart forever: “You could have given me diamonds or rubies, but nothing is more precious to me than this additional knowledge about the Lord Jesus Christ.”
 
-After experiencing the power of the Savior’s words in 3 Nephi, the king proclaimed, “If I am converted and join the Church, I will bring my whole tribe with me.”
+After experiencing the power of the Savior’s words in 3 Nephi, the king proclaimed, “If I am converted and join the Church, I will bring my whole tribe with me.”
 
 “Oh, King,” I said, “it doesn’t work that way. Conversion is an individual matter. The Savior ministered to the Nephites one by one. Each individual receives a witness and testimony of the gospel of Jesus Christ.”[^1]
 
 My brothers and sisters, how precious *is* the Book of Mormon to you? If you were offered diamonds or rubies *or* the Book of Mormon, which would you choose? Honestly, which *is* of greater worth to you?
 
-Remember in the Sunday morning session of the April 2017 general conference, President Thomas S. Monson pleaded with “each of us to prayerfully study and ponder the Book of Mormon each day.”[^2] Many have responded to our prophet’s plea.
+Remember in the Sunday morning session of the April 2017 general conference, President Thomas S. Monson pleaded with “each of us to prayerfully study and ponder the Book of Mormon each day.”[^2] Many have responded to our prophet’s plea.
 
 Let me say that neither I nor eight-year-old Riley knew anyone was taking our pictures. Notice that Riley is reading his Book of Mormon with the help of an “I Am a Child of God” bookmark.
 
@@ -90,11 +90,11 @@ I testify that Joseph Smith was and is *the* prophet of this last dispensation. 
 
 I testify that Jesus Christ is the literal and living Son of our living God. He is our Savior, our Redeemer, our great Exemplar, and our Advocate with the Father. He was the promised Messiah, the mortal Messiah, and will be the millennial Messiah. I testify with my whole soul that in a most miraculous and singular way, the Book of Mormon teaches us of Jesus Christ and His gospel.
 
-I know that President Thomas S. Monson is the prophet of God on the earth today. I love him and sustain him with all of my heart. I so testify in the sacred name of Jesus Christ, amen.
+I know that President Thomas S. Monson is the prophet of God on the earth today. I love him and sustain him with all of my heart. I so testify in the sacred name of Jesus Christ, amen.
 
 ## President Nelson’s Book of Mormon Lists
 
-**The Book of Mormon is:**
+**The Book of Mormon *is:***
 
 - Another testament of Jesus Christ. Its major writers—Nephi, Jacob, Mormon, Moroni—and its translator, Joseph Smith, were *all* eyewitnesses of the Lord.
 
@@ -102,13 +102,13 @@ I know that President Thomas S. Monson is the prophet of God on the earth today
 
 - True, as attested by the Lord Himself.
 
-**The Book of Mormon affirms:**
+**The Book of Mormon *affirms:***
 
 - The individual identity of Heavenly Father and His Beloved Son, Jesus Christ.
 
 - The necessity of the Fall of Adam and the wisdom of Eve, that men might have joy.
 
-**The Book of Mormon refutes notions that:**
+**The Book of Mormon *refutes* notions that:**
 
 - Revelation ended with the Bible.
 
@@ -120,7 +120,7 @@ I know that President Thomas S. Monson is the prophet of God on the earth today
 
 - The Fall of Adam tainted mankind with “original sin.”
 
-**The Book of Mormon fulfills biblical prophecies that:**
+**The Book of Mormon *fulfills biblical prophecies* that:**
 
 - “Other sheep” shall hear His voice.
 
@@ -132,7 +132,7 @@ I know that President Thomas S. Monson is the prophet of God on the earth today
 
 - The land of inheritance for the lineage of Joseph is the Western Hemisphere.
 
-**The Book of Mormon clarifies understanding about:**
+**The Book of Mormon *clarifies* understanding about:**
 
 - Our premortal existence.
 
@@ -156,7 +156,7 @@ I know that President Thomas S. Monson is the prophet of God on the earth today
 
 - How human behavior is influenced more by the power of the word than the power of the sword.
 
-**The Book of Mormon reveals information previously unknown:**
+**The Book of Mormon *reveals information previously unknown:***
 
 - Baptisms were performed before Jesus Christ was born.
 
@@ -177,19 +177,19 @@ I know that President Thomas S. Monson is the prophet of God on the earth today
 
 
 
-[^1]: See [[3 Nephi 17.9|3 Nephi 17:9–12]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]].
+[^1]: See [[3 Nephi 17.9|3 Nephi 17:9–12]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]].
 
-[^2]: Thomas S. Monson, “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” *Ensign* or *Liahona,* May 2017, 87.
+[^2]: Thomas S. Monson, “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” *Ensign* or *Liahona,* May 2017, 87.
 
 [^3]: See [[Alma 42.8|Alma 42:8]].
 
 [^4]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-[^5]: See, for example, [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
+[^5]: See, for example, [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
 
-[^6]: See [[1 Nephi 13.29|1 Nephi 13:29–33]][[1 Nephi 13.30|]][[1 Nephi 13.31|]][[1 Nephi 13.32|]][[1 Nephi 13.33|]].
+[^6]: See [[1 Nephi 13.29|1 Nephi 13:29–33]][[1 Nephi 13.30|]][[1 Nephi 13.31|]][[1 Nephi 13.32|]][[1 Nephi 13.33|]].
 
-[^7]: See [[2 Nephi 26.1|2 Nephi 26–33]][[2 Nephi 26.2|]][[2 Nephi 26.3|]][[2 Nephi 26.4|]][[2 Nephi 26.5|]][[2 Nephi 26.6|]][[2 Nephi 26.7|]][[2 Nephi 26.8|]][[2 Nephi 26.9|]][[2 Nephi 26.10|]][[2 Nephi 26.11|]][[2 Nephi 26.12|]][[2 Nephi 26.13|]][[2 Nephi 26.14|]][[2 Nephi 26.15|]][[2 Nephi 26.16|]][[2 Nephi 26.17|]][[2 Nephi 26.18|]][[2 Nephi 26.19|]][[2 Nephi 26.20|]][[2 Nephi 26.21|]][[2 Nephi 26.22|]][[2 Nephi 26.23|]][[2 Nephi 26.24|]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]][[2 Nephi 26.29|]][[2 Nephi 26.30|]][[2 Nephi 26.31|]][[2 Nephi 26.32|]][[2 Nephi 26.33|]].
+[^7]: See [[2 Nephi 26.1|2 Nephi 26–33]][[2 Nephi 26.2|]][[2 Nephi 26.3|]][[2 Nephi 26.4|]][[2 Nephi 26.5|]][[2 Nephi 26.6|]][[2 Nephi 26.7|]][[2 Nephi 26.8|]][[2 Nephi 26.9|]][[2 Nephi 26.10|]][[2 Nephi 26.11|]][[2 Nephi 26.12|]][[2 Nephi 26.13|]][[2 Nephi 26.14|]][[2 Nephi 26.15|]][[2 Nephi 26.16|]][[2 Nephi 26.17|]][[2 Nephi 26.18|]][[2 Nephi 26.19|]][[2 Nephi 26.20|]][[2 Nephi 26.21|]][[2 Nephi 26.22|]][[2 Nephi 26.23|]][[2 Nephi 26.24|]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]][[2 Nephi 26.29|]][[2 Nephi 26.30|]][[2 Nephi 26.31|]][[2 Nephi 26.32|]][[2 Nephi 26.33|]].
 
 [^8]: See [[Moroni 8.11|Moroni 8:11–15]][[Moroni 8.12|]][[Moroni 8.13|]][[Moroni 8.14|]][[Moroni 8.15|]].
 
@@ -201,8 +201,6 @@ I know that President Thomas S. Monson is the prophet of God on the earth today
 
 [^12]: See [[Alma 13.27|Alma 13:27]].
 
-[^13]: See *Teachings of Presidents of the Church: Brigham Young* (1997), 299. He was referring to the importance of temple and family history work.
+[^13]: See *[Teachings of Presidents of the Church: Brigham Young](https://www.churchofjesuschrist.org/study/manual/teachings-brigham-young/chapter-41?lang=eng)* (1997), 299. He was referring to the importance of temple and family history work.
 
-
-
-#Book_Of_Mormon #Conversion #Jesus_Christ
+#BookOfMormon #Conversion #JesusChrist

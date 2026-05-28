@@ -14,15 +14,15 @@ A few months ago I had the privilege to hear a powerful testimony from a man sea
 
 I believe that words and actions are rooted in our thoughts and that our thoughts determine our deeds. Our daily decisions, planned or spontaneous, are the result of our thoughts, and we are responsible for them. Although we as individuals might think that we are and can act independently of God, we cannot escape the realization that we are subject to eternal laws. Our happiness and our peace in this life, as well as in the life after, depend on our readiness to base our thoughts and actions on God-given laws. True peace of mind and everlasting happiness come from being in harmony with God. If we are to be one with Deity, then it is we who must change—and not God.
 
-I believe that the two men chose different paths because their way of thinking and their understanding of God are different. It is essential to know God so that we can gain eternal blessings and salvation through living in accordance with the gospel of Jesus Christ. Gaining a knowledge of Christ and God is a prerequisite for a true understanding of our mission in life. Lowell L. Bennion writes in his book *Legacies of Jesus:* “One of the most important things we need to learn is what are the attributes of God. Christ came to earth to reveal to us the character of God. He is the revelation of God to human beings, teaching us by precept and example the meaning of faith, humility, integrity, and love” (*Legacies of Jesus* \[Salt Lake City: Deseret Book Co., 1990\], p. 61).
+I believe that the two men chose different paths because their way of thinking and their understanding of God are different. It is essential to know God so that we can gain eternal blessings and salvation through living in accordance with the gospel of Jesus Christ. Gaining a knowledge of Christ and God is a prerequisite for a true understanding of our mission in life. Lowell L. Bennion writes in his book *Legacies of Jesus:* “One of the most important things we need to learn is what are the attributes of God. Christ came to earth to reveal to us the character of God. He is the revelation of God to human beings, teaching us by precept and example the meaning of faith, humility, integrity, and love” (*Legacies of Jesus* \[Salt Lake City: Deseret Book Co., 1990\], p. 61).
 
 We learn of God through Christ’s life; we know God through following Christ’s example. My dear brothers and sisters and friends and listeners, let us truly know our Savior and His Father. We should ask ourselves if our decisions are in accordance with the example of Christ, that we may follow in Christ’s footsteps. Let us not be deceived or dissuaded from Christ’s way, but let us reap the blessings of peace and eternal joy through following Him.
 
-Christ’s teachings, His example, and His perfection leave no question that He is the Son of God. He says of Himself, “And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning” ([[3 Nephi 11.11|3 Ne. 11:11]]).
+Christ’s teachings, His example, and His perfection leave no question that He is the Son of God. He says of Himself, “And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning” ([[3 Nephi 11.11|3 Ne. 11:11]]).
 
 With that knowledge of Him we are promised, as it is written in John, “And this is the will of him that sent me, that every one which … believeth on him, may have everlasting life: and I will raise him up at the last day” ([[John 6.40|John 6:40]]).
 
-In order to go the right direction in life and receive the blessings of the gospel, it is important first to be willing to accept the restored gospel in all its fulness. Christ said to Joseph Smith regarding the restoration of His gospel, “A light shall break forth … , and it shall be the fulness of my gospel” ([[D&C 45.28|D&C 45:28]]).
+In order to go the right direction in life and receive the blessings of the gospel, it is important first to be willing to accept the restored gospel in all its fulness. Christ said to Joseph Smith regarding the restoration of His gospel, “A light shall break forth … , and it shall be the fulness of my gospel” ([[D&C 45.28|D&C 45:28]]).
 
 In addition, it is important to accept God’s divine authority and the authority of His servants. Paul explained to the branch in Ephesus why authority was given and why we will be blessed when following the servants of the Lord. He wrote:
 
@@ -43,6 +43,4 @@ I testify to you that Joseph Smith saw the Father and the Son. They are real. Je
 
 
 
-
-
-#Authority #Commandments #God_The_Father #Jesus_Christ #Joy #Peace
+#Authority #Commandments #GodTheFather #Joy #JesusChrist #Peace

@@ -1,6 +1,5 @@
 # Fashion
 
-
 *See also* [[Modesty.md|Modesty]]; [[Peer Influence.md|Peer Influence]]
 
 this is the *fashion* which thou shalt make it, [[Genesis 6.15|Genesis 6:15]].
@@ -9,7 +8,7 @@ rear up the tabernacle according to the *fashion* thereof, [[Exodus 26.30|Exodus
 
 *fashioned* it with a graving tool, [[Exodus 32.4|Exodus 32:4]].
 
-smith ... *fashioneth* it with hammers, [[Isaiah 44.12|Isaiah 44:12]].
+smith … *fashioneth* it with hammers, [[Isaiah 44.12|Isaiah 44:12]].
 
 make it according to the *fashion* that he had seen, [[Acts 7.44|Acts 7:44]].
 

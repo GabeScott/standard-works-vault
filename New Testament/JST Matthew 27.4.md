@@ -4,6 +4,3 @@
 
 [JST Matthew 27:4](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/27?lang=eng)
 
-
-
-

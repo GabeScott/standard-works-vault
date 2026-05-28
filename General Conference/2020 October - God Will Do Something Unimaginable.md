@@ -1,6 +1,6 @@
 # God Will Do Something Unimaginable
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -122,7 +122,7 @@ This happened to Simon Peter and other disciples who went fishing on the Sea of 
 
 “That night they caught nothing.
 
-“But when the morning \[came\], Jesus stood on the shore. …
+“But when the morning \[came\], Jesus stood on the shore. …
 
 “And he said unto them, Cast the net on the \[*other*\] side of the ship, and ye shall find.”
 
@@ -132,18 +132,18 @@ God has revealed and will continue to reveal His almighty hand. The day will com
 
 I bear my witness that this is God’s work and He will continue to do many unimaginable things among His children, His people. God holds us in the palm of His caring and compassionate hands.
 
-I testify that President Russell M. Nelson is God’s prophet for our day.
+I testify that President Russell M. Nelson is God’s prophet for our day.
 
 As an Apostle of the Lord, I invite and bless you to “cheerfully do all things that lie in \[your\] power; and then may \[you\] stand still, with the utmost assurance, to see the salvation of God, and for his arm to be revealed.”[^11] And I promise that the Lord will cause unimaginable things to come from your righteous labors. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Quartz monzonite that looked like granite, taken from a quarry at the mouth of Little Cottonwood Canyon, 20 miles (32 km) southeast of the city.
+[^1]: Quartz monzonite that looked like granite, taken from a quarry at the mouth of Little Cottonwood Canyon, 20 miles (32 km) southeast of the city.
 
-[^2]: For a more in-depth look at this period of history, see *Saints: The Story of the Church of Jesus Christ in the Latter Days,* vol. 2, *No Unhallowed Hand, 1846–1893* (2020), chapters [17](https://churchofjesuschrist.org/study/history/saints-v2/part-2/17-the-folks-are-reforming?lang=eng), [19](https://churchofjesuschrist.org/study/history/saints-v2/part-2/19-the-chambers-of-the-lord?lang=eng), and [21](https://churchofjesuschrist.org/study/history/saints-v2/part-2/21-the-same-great-work?lang=eng).
+[^2]: For a more in-depth look at this period of history, see *Saints: The Story of the Church of Jesus Christ in the Latter Days,* vol. 2, *No Unhallowed Hand, 1846–1893* (2020), chapters [17](https://www.churchofjesuschrist.org/study/history/saints-v2/part-2/17-the-folks-are-reforming?lang=eng), [19](https://www.churchofjesuschrist.org/study/history/saints-v2/part-2/19-the-chambers-of-the-lord?lang=eng), and [21](https://www.churchofjesuschrist.org/study/history/saints-v2/part-2/21-the-same-great-work?lang=eng).
 
-[^3]: See “How Firm a Foundation,” *Hymns,* no. 85.
+[^3]: See “How Firm a Foundation,” *Hymns,* no. 85.
 
 [^4]: See [[Moses 7.13|Moses 7:13–18]][[Moses 7.14|]][[Moses 7.15|]][[Moses 7.16|]][[Moses 7.17|]][[Moses 7.18|]].
 
@@ -159,5 +159,6 @@ As an Apostle of the Lord, I invite and bless you to “cheerfully do all things
 
 [^10]: See [[John 21.1|John 21:1–6]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]].
 
+[^11]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-#Adversity #Faith #Missionary_Work #Prophets
+#Adversity #Faith #MissionaryWork #Prophets

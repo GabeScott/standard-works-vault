@@ -1,6 +1,6 @@
 # Seeing More of Jesus Christ in Our Lives
 
-By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
+By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -8,7 +8,7 @@ By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presiden
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/10/13browning?lang=eng)
 
-Brothers and sisters, how humbled I am to stand before you this morning. I knit my heart with yours in gratitude to be assembled, wherever you are across the world, to hear messages from prophets, apostles, seers, revelators, and leaders in God’s kingdom. We figuratively become like the people of King Benjamin’s day, pitching our tents and having our doors open and directed toward God’s prophet on the earth,[^1] President Russell M. Nelson.
+Brothers and sisters, how humbled I am to stand before you this morning. I knit my heart with yours in gratitude to be assembled, wherever you are across the world, to hear messages from prophets, apostles, seers, revelators, and leaders in God’s kingdom. We figuratively become like the people of King Benjamin’s day, pitching our tents and having our doors open and directed toward God’s prophet on the earth,[^1] President Russell M. Nelson.
 
 I’ve had poor eyesight for as long as I can remember and have always needed the aid of prescription lenses to correct my vision. When I open my eyes every morning, the world appears very disorienting. Everything is out of focus, grainy, and distorted. Even my dear husband is more reminiscent of an abstract portrait than the well-loved and comforting figure he really is! My reflexive need, before I do anything else at the start of my day, is to reach for my glasses to help me make sense of my surroundings and enjoy a more vibrant experience as they help me navigate throughout my day.
 
@@ -28,7 +28,7 @@ The everyday world of the Israelites had become disoriented and obscure. The chi
 
 Ultimately a great portion of the Israelites rejected His message, even going so far as to accuse the Savior—He who *gave* the law and declared that He *was* “the law, and the light”[^11]—of breaking it. Yet Jesus in His Sermon on the Mount, speaking on the law of Moses, declared, “Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil.”[^12] Then the Savior, through His eternal Atonement, ended the codes, regulations, and ceremonial practices observed by the people of Israel at that time. His final sacrifice led the shift from sacrificial burnt offerings to our rendering of “a broken heart and a contrite spirit,”[^13] from the ordinance of sacrifice to the ordinance of sacrament.
 
-President M. Russell Ballard, teaching on the subject, said, “In a sense, the sacrifice changed from the *offering* to the *offerer*.”[^14] When we bring our offering to the Savior, we are being invited to see more of Jesus Christ in our lives, as we humbly submit our will to Him in recognition and understanding of His perfect submission to the will of the Father. When we fix our sight on Jesus Christ, we recognize and we understand that He is the only source and way to receive forgiveness and redemption, even unto eternal life and exaltation.
+President M. Russell Ballard, teaching on the subject, said, “In a sense, the sacrifice changed from the *offering* to the *offerer*.”[^14] When we bring our offering to the Savior, we are being invited to see more of Jesus Christ in our lives, as we humbly submit our will to Him in recognition and understanding of His perfect submission to the will of the Father. When we fix our sight on Jesus Christ, we recognize and we understand that He is the only source and way to receive forgiveness and redemption, even unto eternal life and exaltation.
 
 As an early follower of the gospel, I encountered many who observed and perceived changes in my behaviors, practices, and choices after I joined the Church. They were curious about the “whys” of what they were seeing—why I chose to be baptized and join *this* congregation of believers, even The Church of Jesus Christ of Latter-day Saints; why I refrain from certain practices on the Sabbath; why I’m faithful in keeping the Word of Wisdom; why I read the Book of Mormon; why I believe in and incorporate the teachings of modern-day prophets and apostles into my life; why I attend weekly Church meetings; why I invite others to “*come and see, come and help,* … *come and stay*,”[^15] and “come and belong.”[^16]
 
@@ -47,31 +47,31 @@ I learned then, as I know now, that our Savior, Jesus Christ, directs our feet t
 
 [^3]: [[Jacob 4.13|Jacob 4:13]].
 
-[^4]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 41.
+[^4]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 41.
 
-[^5]: Russell M. Nelson, “[[2021 October - Make Time for the Lord.md|Make Time for the Lord]],” *Liahona*, Nov. 2021, 120, 121.
+[^5]: Russell M. Nelson, “[[2021 October - Make Time for the Lord.md|Make Time for the Lord]],” *Liahona*, Nov. 2021, 120, 121.
 
-[^6]: See Gib Kocherhans, “[Reflections on the Law of Moses: Old Testament Apostasy in Context](https://churchofjesuschrist.org/study/ensign/1981/06/reflections-on-the-law-of-moses-old-testament-apostasy-in-context?lang=eng&id=p2#p2),” *Ensign*, June 1981, 14–21.
+[^6]: See Gib Kocherhans, “[Reflections on the Law of Moses: Old Testament Apostasy in Context](https://www.churchofjesuschrist.org/study/ensign/1981/06/reflections-on-the-law-of-moses-old-testament-apostasy-in-context?lang=eng&id=p2#p2),” *Ensign*, June 1981, 14–21.
 
 [^7]: [[Alma 25.15|Alma 25:15]].
 
 [^8]: See [[Alma 25.16|Alma 25:16]].
 
-[^9]: See Kocherhans, “[Reflections on the Law of Moses](https://churchofjesuschrist.org/study/ensign/1981/06/reflections-on-the-law-of-moses-old-testament-apostasy-in-context?lang=eng&id=p2#p2),” 14–21.
+[^9]: See Kocherhans, “[Reflections on the Law of Moses](https://www.churchofjesuschrist.org/study/ensign/1981/06/reflections-on-the-law-of-moses-old-testament-apostasy-in-context?lang=eng&id=p2#p2),” 14–21.
 
-[^10]: See Stephen E. Robinson, “[The Law after Christ](https://churchofjesuschrist.org/study/ensign/1983/09/the-law-after-christ?lang=eng),” *Ensign*, Sept. 1983, 69–73.
+[^10]: See Stephen E. Robinson, “[The Law after Christ](https://www.churchofjesuschrist.org/study/ensign/1983/09/the-law-after-christ?lang=eng),” *Ensign*, Sept. 1983, 69–73.
 
-[^11]: [[3 Nephi 15.9|3 Nephi 15:9]].
+[^11]: [[3 Nephi 15.9|3 Nephi 15:9]].
 
 [^12]: [[Matthew 5.17|Matthew 5:17]].
 
-[^13]: [[2 Nephi 2.7|2 Nephi 2:7]].
+[^13]: [[2 Nephi 2.7|2 Nephi 2:7]].
 
-[^14]: M. Russell Ballard, “[The Law of Sacrifice](https://churchofjesuschrist.org/study/ensign/1998/10/the-law-of-sacrifice?lang=eng&id=p34#p34),” *Ensign*, Oct. 1998, 10; *Liahona*, Mar. 2002, [16](https://churchofjesuschrist.org/study/liahona/2002/03/the-law-of-sacrifice?lang=eng&id=p35#p35).
+[^14]: M. Russell Ballard, “[The Law of Sacrifice](https://www.churchofjesuschrist.org/study/ensign/1998/10/the-law-of-sacrifice?lang=eng&id=p34#p34),” *Ensign*, Oct. 1998, 10; *Liahona*, Mar. 2002, [16](https://www.churchofjesuschrist.org/study/liahona/2002/03/the-law-of-sacrifice?lang=eng&id=p35#p35).
 
-[^15]: Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 17.
+[^15]: Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 17.
 
-[^16]: Dieter F. Uchtdorf, “[[2020 April - Come and Belong.md|Come and Belong]],” *Ensign* or *Liahona*, May 2020, 106.
+[^16]: Dieter F. Uchtdorf, “[[2020 April - Come and Belong.md|Come and Belong]],” *Ensign* or *Liahona*, May 2020, 106.
 
 [^17]: [[Alma 25.15|Alma 25:15–16]][[Alma 25.16|]].
 
@@ -83,6 +83,4 @@ I learned then, as I know now, that our Savior, Jesus Christ, directs our feet t
 
 [^21]: See [[Jeremiah 29.13|Jeremiah 29:13]].
 
-
-
-#Commandments #Discipleship #Jesus_Christ #Testimony
+#Commandments #Discipleship #JesusChrist #Testimony

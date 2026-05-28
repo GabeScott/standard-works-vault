@@ -1,6 +1,6 @@
 # “Seek Not for Riches But for Wisdom”
 
-By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -78,7 +78,8 @@ I know that my confused friends and all of us as we seek not for riches but for 
 
 May we so live that we may be worthy of these blessings.
 
-I bear you my witness that I know that God lives and that Jesus is the Christ. And I know that the Prophet Joseph Smith was the instrument in the hands of the Lord in restoring the gospel of Jesus Christ in its fulness as well as the power to act in the name of God. I also bear witness that President Spencer W. Kimball is a prophet of God. May the Lord sustain and magnify him, and may we also sustain him in every way, I pray in the name of Jesus Christ. Amen.
+I bear you my witness that I know that God lives and that Jesus is the Christ. And I know that the Prophet Joseph Smith was the instrument in the hands of the Lord in restoring the gospel of Jesus Christ in its fulness as well as the power to act in the name of God. I also bear witness that President Spencer W. Kimball is a prophet of God. May the Lord sustain and magnify him, and may we also sustain him in every way, I pray in the name of Jesus Christ. Amen.
+
 
 
 

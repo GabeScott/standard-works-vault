@@ -18,7 +18,7 @@ May I share with you some personal examples and thank those people who have been
 
 I feel deep gratitude to my mother, who allowed me to be responsible and didn’t always fix my mistakes. To my father, who is soon to be eighty-nine years old and is living with us, thank you, Dad. Thank you for teaching me as the scriptures counsel, “only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned; … reproving betimes with sharpness, when moved upon by the Holy Ghost; and then showing forth afterwards an increase of love” ([[D&C 121.41|D&C 121:41, 43]][[D&C 121.43|]]).
 
-The strongest intertwining roots in my life are those of my companion and sweetheart, Ed, who is supernally righteous. He has taught and encouraged me, exemplifying President Hunter’s prayer “that we might treat each other with more kindness, more courtesy, more humility and patience and forgiveness” (quoted in *Ensign,* July 1994, p. 4).
+The strongest intertwining roots in my life are those of my companion and sweetheart, Ed, who is supernally righteous. He has taught and encouraged me, exemplifying President Hunter’s prayer “that we might treat each other with more kindness, more courtesy, more humility and patience and forgiveness” (quoted in *Ensign,* July 1994, p. 4).
 
 To my children, who are a part of my roots, who are a brightness of hope in my life—thank you for helping me stand tall with gladness because you are trying.
 
@@ -38,7 +38,7 @@ Since my call I’ve knelt and asked, “Father, what do you want the children t
 
 Teach and show the children that Heavenly Father loves them and has confidence in them because they are his children.
 
-Teach and show them that they do need Jesus, our Savior, our guide. Help them understand and accept his love and trust him and follow him. Teach them that our prophet, President Howard W. Hunter, has said, “We should at every opportunity ask ourselves, ‘What would Jesus do?’ and then be more courageous to act upon the answer.” He also said, “We must know Christ better than we know him; we must remember him more often than we remember him; we must serve him more valiantly than we serve him” (“He Invites Us to Follow Him,” *Ensign,* Sept. 1994, p. 5).
+Teach and show them that they do need Jesus, our Savior, our guide. Help them understand and accept his love and trust him and follow him. Teach them that our prophet, President Howard W. Hunter, has said, “We should at every opportunity ask ourselves, ‘What would Jesus do?’ and then be more courageous to act upon the answer.” He also said, “We must know Christ better than we know him; we must remember him more often than we remember him; we must serve him more valiantly than we serve him” (“He Invites Us to Follow Him,” *Ensign,* Sept. 1994, p. 5).
 
 Teach the children that at eight years of age, when they are baptized and receive the Holy Ghost, they will be responsible for their choices. Teach them that they will be tempted, but as they listen to the still, small voice of the Holy Ghost, he will help them with their choices.
 
@@ -48,13 +48,11 @@ And please, will each one of you be as the stalwart and dependable redwood trees
 
 And now I look to the future. How grateful I am for the principle of presidency, and for Sister Anne Wirthlin and Sister Susan Warner. “In the multitude of counsellors there is safety” ([[Proverbs 11.14|Prov. 11:14]]). We will stand together in unity as we support our priesthood leaders and help parents teach and strengthen children.
 
-To the Primary children of the world, I want you to know that there are many people you don’t even know who love you and care about you, who want you to be safe, be happy, and feel peace. I love you and would want you to feel “encircled about … in the arms of his love” ([[2 Nephi 1.15|2 Ne. 1:15]]) and my love. Listen carefully to every good thing you hear about Heavenly Father and Jesus our Savior and then try your very best to follow him by doing what he wants you to do.
+To the Primary children of the world, I want you to know that there are many people you don’t even know who love you and care about you, who want you to be safe, be happy, and feel peace. I love you and would want you to feel “encircled about … in the arms of his love” ([[2 Nephi 1.15|2 Ne. 1:15]]) and my love. Listen carefully to every good thing you hear about Heavenly Father and Jesus our Savior and then try your very best to follow him by doing what he wants you to do.
 
 All of us can be like the giant redwood trees and support and strengthen each other, especially the children, that when storms arise we can actually hold each other up. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Children #Family_Home_Evening #Love #Ordinances #Prayer
+#Children #FamilyHomeEvening #Love #Ordinances #Prayer

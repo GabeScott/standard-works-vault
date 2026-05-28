@@ -38,7 +38,7 @@ Jesus Christ presented his Father’s eternal plan, that plan of which we are al
 
 Jesus Christ is the creator of all things on earth, under the direction of his Father (see [[Moses 1.33|Moses 1:33]]; [[Ephesians 3.9|Eph. 3:9]]).
 
-“The Father sent the Son to be the Saviour of the world” ([[1 John 4.14|1 Jn. 4:14]]). Jesus Christ came to this earth, born of Mary, a mortal mother. His Father was Almighty God (see [[Luke 1.26|Luke 1:26–35]][[Luke 1.27|]][[Luke 1.28|]][[Luke 1.29|]][[Luke 1.30|]][[Luke 1.31|]][[Luke 1.32|]][[Luke 1.33|]][[Luke 1.34|]][[Luke 1.35|]]).
+“The Father sent the Son to be the Saviour of the world” ([[1 John 4.14|1 Jn. 4:14]]). Jesus Christ came to this earth, born of Mary, a mortal mother. His Father was Almighty God (see [[Luke 1.26|Luke 1:26–35]][[Luke 1.27|]][[Luke 1.28|]][[Luke 1.29|]][[Luke 1.30|]][[Luke 1.31|]][[Luke 1.32|]][[Luke 1.33|]][[Luke 1.34|]][[Luke 1.35|]]).
 
 Jesus Christ was baptized by immersion by John the Baptist, and the Holy Ghost was manifest in the “Spirit like a dove descending upon him” ([[Mark 1.10|Mark 1:10]]). And his Father spoke: “Thou art my beloved Son, in whom I am well pleased” ([[Mark 1.11|Mark 1:11]]).
 
@@ -54,7 +54,7 @@ Jesus Christ’s ascension into heaven before the eyes of his disciples was acco
 
 Jesus Christ appeared with his Father and restored the same organization he established during his ministry through Joseph Smith the Prophet in these latter days. In addition to the Bible, the Book of Mormon was revealed to the world as another witness to testify of his divine calling and ministry.
 
-Jesus Christ leads and guides his church today through revelation to a prophet, President Ezra Taft Benson, and his Counselors in the First Presidency and the Twelve Apostles—the same organization he established when he was here on earth (see [[D&C 102.9|D&C 102:9, 23]][[D&C 102.23|]]; [[Articles of Faith 1.6|A of F 1:6]]).
+Jesus Christ leads and guides his church today through revelation to a prophet, President Ezra Taft Benson, and his Counselors in the First Presidency and the Twelve Apostles—the same organization he established when he was here on earth (see [[D&C 102.9|D&C 102:9, 23]][[D&C 102.23|]]; [[Articles of Faith 1.6|A of F 1:6]]).
 
 Jesus Christ’s admonition to “come … follow me” and “follow thou me” is the challenge that he gave to each of us (see [[Matthew 19.21|Matt. 19:21]]; [[John 21.22|John 21:22]]). He lived in the preexistence in the spirit world; he dwelt and we dwelt with God the Father. He is the Son, Jesus Christ.
 
@@ -62,13 +62,11 @@ We took a mortal body upon us. We will have opposition; we will taste death and 
 
 May I close my testimony in the same words as the prophet Mormon did shortly after recounting the birth of the Savior:
 
-“Behold, I am a disciple of Jesus Christ, the Son of God. I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]).
+“Behold, I am a disciple of Jesus Christ, the Son of God. I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]).
 
 In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Jesus_Christ
+#JesusChrist

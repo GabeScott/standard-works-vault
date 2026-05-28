@@ -1,4 +1,3 @@
 # Adamic Language
 
-
-*See* [[Language.md|Language]]
+*See also* [[Language.md|Language]]

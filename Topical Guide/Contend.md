@@ -1,6 +1,5 @@
 # Contend
 
-
 *See also* [[Contention.md|Contention]]
 
 such as keep the law *contend* with them, [[Proverbs 28.4|Proverbs 28:4]].
@@ -23,6 +22,6 @@ he that will *contend* against the word of the Lord, [[Ether 4.8|Ether 4:8]].
 
 *Contend* against no church, save it be the church of the devil, [[D&C 18.20|D&C 18:20]].
 
-*Contend* thou ... let thy warning voice go forth, [[D&C 112.5|D&C 112:5]].
+*Contend* thou … let thy warning voice go forth, [[D&C 112.5|D&C 112:5]].
 
 Cease to *contend* one with another, [[D&C 136.23|D&C 136:23]].

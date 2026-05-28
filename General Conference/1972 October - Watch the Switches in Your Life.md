@@ -1,6 +1,6 @@
 # Watch the Switches in Your Life
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -36,7 +36,7 @@ We discovered that the train had been properly made up in Oakland, California, a
 
 That piece of steel was a switch point, and the car that should have been in Newark, New Jersey, was in New Orleans, Louisiana, thirteen hundred miles away.
 
-So it is with our lives—a cigarette smoked, a can of beer drunk at a party, a shot of Speed taken on a dare, a careless giving in to an impulse on a date. Each has thrown a switch in the life of a boy that put him on a track that carried him far away from what might have been a great and foreordained calling. And as Nephi said, “… thus the devil cheateth their souls and leadeth them away carefully down to hell.” ([[2 Nephi 28.21|2 Ne. 28:21]].)
+So it is with our lives—a cigarette smoked, a can of beer drunk at a party, a shot of Speed taken on a dare, a careless giving in to an impulse on a date. Each has thrown a switch in the life of a boy that put him on a track that carried him far away from what might have been a great and foreordained calling. And as Nephi said, “… thus the devil cheateth their souls and leadeth them away carefully down to hell.” ([[2 Nephi 28.21|2 Ne. 28:21]].)
 
 I hold in my hand a small package that I bought in Switzerland. Do you remember the movie *Sound of Music,* with its final, beautiful song, “The Edelweiss Song”? It speaks of the flower of the Alps—“small and white, clean and bright, bless my homeland forever.”
 
@@ -78,13 +78,11 @@ That boy today presides over The Church of Jesus Christ of Latter-day Saints. Th
 
 For a period of three weeks last month, we walked together, I as his junior companion, in the ministry of the Lord. I give you my witness of the workings of the Spirit in this the prophet of our day, the Spirit nurtured and cultivated and listened to through years reaching back to boyhood.
 
-Be prayerful, my friends, and listen. You may never hear a voice. You likely will not. But in a manner that you cannot explain, you will be prompted and blessed. For the Lord has promised, “I will tell you in your … heart, by the Holy Ghost, which shall come upon you. …” ([[D&C 8.2|D&C 8:2]].)
+Be prayerful, my friends, and listen. You may never hear a voice. You likely will not. But in a manner that you cannot explain, you will be prompted and blessed. For the Lord has promised, “I will tell you in your … heart, by the Holy Ghost, which shall come upon you. …” ([[D&C 8.2|D&C 8:2]].)
 
 Be prayerful, and you will know that God hears and answers. Not always as we might wish him to answer, but with the passing of the years, there will come a realization as certain as the sunrise that he heard and responded.
 
 And so, watch the switches in your life, the small but important day-to-day decisions. Be smart, my dear young friends. Be clean. Be obedient. Be prayerful. To do so will require a measure of discipline, the exercise of which will bring strength and capacity for great and demanding tasks that lie ahead of you in building the kingdom of God and in filling places of useful service in the work of the world. Your lives will be satisfying and your joy will be eternal. I so promise you as a servant of the Lord, and invoke upon you that sweet peace which comes from him alone, in the name of Jesus Christ. Amen.
-
-
 
 
 

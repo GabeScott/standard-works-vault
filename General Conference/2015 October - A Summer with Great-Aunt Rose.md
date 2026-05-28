@@ -1,6 +1,6 @@
 # A Summer with Great-Aunt Rose
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -110,7 +110,7 @@ Eva furrowed her brow. “But wait a minute,” she said. “Are you saying that
 
 “Oh, of course it can!” Aunt Rose exclaimed. “Dear child, now is *part* of eternity. It doesn’t only begin after we die! Faith and hope will open your eyes to the happiness that is placed before you.
 
-“I know a poem that says, ‘Forever—is composed of Nows.’[^6] I didn’t want my forever to be composed of dark and fearful ‘Nows.’ And I didn’t want to live in the gloom of a bunker, gritting my teeth, closing my eyes, and resentfully enduring to the bitter end. Faith gave me the hope I needed to live joyfully now!”
+“I know a poem that says, ‘Forever—is composed of Nows.’[^6] I didn’t want my forever to be composed of dark and fearful ‘Nows.’ And I didn’t want to live in the gloom of a bunker, gritting my teeth, closing my eyes, and resentfully enduring to the bitter end. Faith gave me the hope I needed to live joyfully now!”
 
 “So what did you do then?” Eva asked.
 
@@ -151,19 +151,20 @@ As you walk along your own bright path of discipleship, I pray that faith will f
 
 [^1]: See, for example, [[Matthew 13.24|Matthew 13:24–30]][[Matthew 13.25|]][[Matthew 13.26|]][[Matthew 13.27|]][[Matthew 13.28|]][[Matthew 13.29|]][[Matthew 13.30|]]; [[Matthew 18.23|18:23–35]][[Matthew 18.24|]][[Matthew 18.25|]][[Matthew 18.26|]][[Matthew 18.27|]][[Matthew 18.28|]][[Matthew 18.29|]][[Matthew 18.30|]][[Matthew 18.31|]][[Matthew 18.32|]][[Matthew 18.33|]][[Matthew 18.34|]][[Matthew 18.35|]]; [[Matthew 20.1|20:1–16]][[Matthew 20.2|]][[Matthew 20.3|]][[Matthew 20.4|]][[Matthew 20.5|]][[Matthew 20.6|]][[Matthew 20.7|]][[Matthew 20.8|]][[Matthew 20.9|]][[Matthew 20.10|]][[Matthew 20.11|]][[Matthew 20.12|]][[Matthew 20.13|]][[Matthew 20.14|]][[Matthew 20.15|]][[Matthew 20.16|]]; [[Matthew 22.1|22:1–14]][[Matthew 22.2|]][[Matthew 22.3|]][[Matthew 22.4|]][[Matthew 22.5|]][[Matthew 22.6|]][[Matthew 22.7|]][[Matthew 22.8|]][[Matthew 22.9|]][[Matthew 22.10|]][[Matthew 22.11|]][[Matthew 22.12|]][[Matthew 22.13|]][[Matthew 22.14|]]; [[Matthew 25.1|25]][[Matthew 25.2|]][[Matthew 25.3|]][[Matthew 25.4|]][[Matthew 25.5|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]][[Matthew 25.11|]][[Matthew 25.12|]][[Matthew 25.13|]][[Matthew 25.14|]][[Matthew 25.15|]][[Matthew 25.16|]][[Matthew 25.17|]][[Matthew 25.18|]][[Matthew 25.19|]][[Matthew 25.20|]][[Matthew 25.21|]][[Matthew 25.22|]][[Matthew 25.23|]][[Matthew 25.24|]][[Matthew 25.25|]][[Matthew 25.26|]][[Matthew 25.27|]][[Matthew 25.28|]][[Matthew 25.29|]][[Matthew 25.30|]][[Matthew 25.31|]][[Matthew 25.32|]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]][[Matthew 25.41|]][[Matthew 25.42|]][[Matthew 25.43|]][[Matthew 25.44|]][[Matthew 25.45|]][[Matthew 25.46|]]; [[Luke 10.25|Luke 10:25–37]][[Luke 10.26|]][[Luke 10.27|]][[Luke 10.28|]][[Luke 10.29|]][[Luke 10.30|]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]]; [[Luke 15.11|15:11–32]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]].
 
-[^2]: See, for example, Thomas S. Monson, [“Guided Safely Home,”](https://churchofjesuschrist.org/study/ensign/2014/11/priesthood-session/guided-safely-home?lang=eng) *Ensign* or *Liahona,* Nov. 2014, 67–69; [“Love—the Essence of the Gospel,”](https://churchofjesuschrist.org/study/ensign/2014/05/sunday-morning-session/love-the-essence-of-the-gospel?lang=eng) *Ensign* or *Liahona,* May 2014, 91–94; [“We Never Walk Alone,”](https://churchofjesuschrist.org/study/ensign/2013/11/general-relief-society-meeting/we-never-walk-alone?lang=eng) *Ensign* or *Liahona,* Nov. 2013, 121–24; [“Obedience Brings Blessings,”](https://churchofjesuschrist.org/study/ensign/2013/05/sunday-morning-session/obedience-brings-blessings?lang=eng) *Ensign* or *Liahona,* May 2013, 89–92.
+[^2]: See, for example, Thomas S. Monson, “[Guided Safely Home](https://www.churchofjesuschrist.org/study/ensign/2014/11/priesthood-session/guided-safely-home?lang=eng),” *Ensign* or *Liahona,* Nov. 2014, 67–69; “[Love—the Essence of the Gospel](https://www.churchofjesuschrist.org/study/ensign/2014/05/sunday-morning-session/love-the-essence-of-the-gospel?lang=eng),” *Ensign* or *Liahona,* May 2014, 91–94; “[We Never Walk Alone](https://www.churchofjesuschrist.org/study/ensign/2013/11/general-relief-society-meeting/we-never-walk-alone?lang=eng),” *Ensign* or *Liahona,* Nov. 2013, 121–24; “[Obedience Brings Blessings](https://www.churchofjesuschrist.org/study/ensign/2013/05/sunday-morning-session/obedience-brings-blessings?lang=eng),” *Ensign* or *Liahona,* May 2013, 89–92.
 
-[^3]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+[^3]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^4]: [[Revelation 21.3|Revelation 21:3–4]][[Revelation 21.4|]].
 
-[^5]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^5]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
-[^6]: “Forever—is composed of Nows,” in *Final Harvest: Emily Dickinson’s Poems,* sel. Thomas H. Johnson (1961), 158; see also poetryfoundation.org/poem/182912.
+[^6]: “Forever—is composed of Nows,” in *Final Harvest: Emily Dickinson’s Poems,* sel. Thomas H. Johnson (1961), 158; see also poetryfoundation.org/poem/182912.
 
 [^7]: See [[Luke 9.24|Luke 9:24]].
 
 [^8]: “Often the prickly thorn produces tender roses” (Ovid, *Epistulae ex ponto,* book 2, epistle 2, line 34; “Saepe creat molles aspera spina rosas”).
 
+[^9]: See [[Moroni 7.42|Moroni 7:42]].
 
 #Adversity #Faith #Hope #Joy #Love

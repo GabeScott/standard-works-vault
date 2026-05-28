@@ -1,6 +1,6 @@
 # Special Lessons
 
-By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
+By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -12,11 +12,11 @@ For the past 20 months, our family has been blessed with the privilege of having
 
 Little Paxton, our grandson, was born with a very rare chromosomal deletion, a genetic disorder that distinguishes him, literally, as one in hundreds of millions. For our daughter and her husband, an uncharted, life-changing journey began when Paxton was born. This experience has become a crucible for learning special lessons tied to the eternities.
 
-Dear Elder Russell M. Nelson, who just spoke to us, taught:
+Dear Elder Russell M. Nelson, who just spoke to us, taught:
 
-“For reasons usually unknown, some people are born with physical limitations. Specific parts of the body may be abnormal. Regulatory systems may be out of balance. And all of our bodies are subject to disease and death. Nevertheless, the gift of a physical body is priceless. …
+“For reasons usually unknown, some people are born with physical limitations. Specific parts of the body may be abnormal. Regulatory systems may be out of balance. And all of our bodies are subject to disease and death. Nevertheless, the gift of a physical body is priceless. …
 
-“A perfect body is not required to achieve a divine destiny. In fact, some of the sweetest spirits are housed in frail frames. …
+“A perfect body is not required to achieve a divine destiny. In fact, some of the sweetest spirits are housed in frail frames. …
 
 “Eventually the time will come when each ‘spirit and … body shall be reunited again in … perfect form; both limb and joint shall be restored to its proper frame’ ([[Alma 11.43|Alma 11:43]]). Then, thanks to the Atonement of Jesus Christ, we can become perfected in Him.”[^1]
 
@@ -30,7 +30,7 @@ Trusting in God’s will is central to our mortality. With faith in Him, we draw
 
 After His Resurrection, when visiting the Americas, our Savior, Jesus Christ, reached out to all with this invitation:
 
-“Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, or halt, or maimed, or leprous, or that are withered, or that are deaf, or that are afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you; my bowels are filled with mercy. …
+“Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, or halt, or maimed, or leprous, or that are withered, or that are deaf, or that are afflicted in any manner? Bring them hither and I will heal them, for I have compassion upon you; my bowels are filled with mercy. …
 
 “And it came to pass that when he had thus spoken, all the multitude, with one accord, did go forth with their sick and their afflicted, and their lame, and with their blind, and with their dumb, and with all them that were afflicted in any manner; and he did heal them every one as they were brought forth unto him.”[^3]
 
@@ -42,7 +42,7 @@ God’s works are definitely being made manifest through Paxton.
 
 We are learning patience, faith, and gratitude through the balm of service, endless hours of intense emotions, tears of empathy, and the prayers and expressions of love for dear ones in need, especially Paxton and his parents.
 
-President James E. Faust, my boyhood stake president, said: “I have a great appreciation for those loving parents who stoically bear and overcome their anguish and heartbreak for a child who was born with or who has developed a serious mental or physical infirmity. This anguish often continues every day, without relief, during the lifetime of the parent or the child. Not infrequently, parents are required to give superhuman nurturing care that never ceases, day or night. Many a mother’s arms and heart have ached years on end, giving comfort and relieving the suffering of her special child.”[^5]
+President James E. Faust, my boyhood stake president, said: “I have a great appreciation for those loving parents who stoically bear and overcome their anguish and heartbreak for a child who was born with or who has developed a serious mental or physical infirmity. This anguish often continues every day, without relief, during the lifetime of the parent or the child. Not infrequently, parents are required to give superhuman nurturing care that never ceases, day or night. Many a mother’s arms and heart have ached years on end, giving comfort and relieving the suffering of her special child.”[^5]
 
 As described in Mosiah, we have witnessed the Savior’s pure love given to Paxton’s family, which love is available to all: “And now it came to pass that the burdens which were laid upon Alma and his brethren were made light; yea, the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord.”[^6]
 
@@ -56,11 +56,11 @@ Paxton’s family has learned they are surrounded by countless heavenly and eart
 
 We continue to learn the important value of being aware of and interested in the lives of those around us, learning not only the importance of giving help but also the overwhelming joy that comes from helping others.
 
-Dear President Thomas S. Monson, who is such a magnificent example of lifting the downtrodden, said: “God bless all who endeavor to be their brother’s keeper, who give to ameliorate suffering, who strive with all that is good within them to make a better world. Have you noticed that such individuals have a brighter smile? Their footsteps are more certain. They have an aura about them of contentment and satisfaction … for one cannot participate in helping others without experiencing a rich blessing himself.”[^8]
+Dear President Thomas S. Monson, who is such a magnificent example of lifting the downtrodden, said: “God bless all who endeavor to be their brother’s keeper, who give to ameliorate suffering, who strive with all that is good within them to make a better world. Have you noticed that such individuals have a brighter smile? Their footsteps are more certain. They have an aura about them of contentment and satisfaction … for one cannot participate in helping others without experiencing a rich blessing himself.”[^8]
 
 Though we will face trials, adversities, disabilities, heartaches, and all manner of afflictions, our caring, loving Savior will always be there for us. He has promised:
 
-“I will not leave you comfortless: I will come to you. …
+“I will not leave you comfortless: I will come to you. …
 
 “My peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”[^9]
 
@@ -79,23 +79,24 @@ Brothers and sisters, it is my hope and prayer that we will continue to bear nob
 
 
 
-[^1]: Russell M. Nelson, “We Are Children of God,” *Liahona,* Jan. 1999, 103; *Ensign,* Nov. 1998, 86, 87.
+[^1]: Russell M. Nelson, “We Are Children of God,” *Liahona,* Jan. 1999, 103; *Ensign,* Nov. 1998, 86, 87.
 
 [^2]: See [[Job 38.7|Job 38:7]].
 
-[^3]: [[3 Nephi 17.7|3 Nephi 17:7, 9]][[3 Nephi 17.9|]].
+[^3]: [[3 Nephi 17.7|3 Nephi 17:7, 9]][[3 Nephi 17.9|]].
 
 [^4]: [[John 9.3|John 9:3]].
 
-[^5]: James E. Faust, “The Works of God,” *Ensign,* Nov. 1984, 54.
+[^5]: James E. Faust, “The Works of God,” *Ensign,* Nov. 1984, 54.
 
 [^6]: [[Mosiah 24.15|Mosiah 24:15]].
 
 [^7]: [[D&C 18.10|Doctrine and Covenants 18:10]].
 
-[^8]: Thomas S. Monson, “Our Brothers’ Keepers,” *Ensign,* June 1998, 39.
+[^8]: Thomas S. Monson, “Our Brothers’ Keepers,” *Ensign,* June 1998, 39.
 
 [^9]: [[John 14.18|John 14:18, 27]][[John 14.27|]].
 
+[^10]: “We Are All Enlisted,” *Hymns,* no. 250.
 
 #Adversity #Disabilities #Service

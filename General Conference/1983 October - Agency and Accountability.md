@@ -44,7 +44,7 @@ By strict obedience Jesus won. He did not succumb to Satan’s temptings. And if
 
 But I worry, Sisters. I sometimes wonder if we know God’s will for us, if we know what is hurtful or sinful and why, if we have the faintest notion, on the other hand, of the glories he has in store for our reward, here as well as hereafter, if we are obedient. I wonder if mothers have *really* taught daughters about truth, agency, and accountability. Are daughters sharing with mothers their own learnings? Individuals and families are strengthened as we help each other grow in the gospel of Jesus Christ.
 
-The 1984 scriptural theme approved by the General Authorities for young women to recite in class each week is “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, *save he shall prepare a way* for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]]; italics added.) We *can* do what we’re supposed to do.
+The 1984 scriptural theme approved by the General Authorities for young women to recite in class each week is “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, *save he shall prepare a way* for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]]; italics added.) We *can* do what we’re supposed to do.
 
 We are not alone. We can feel the sustaining power of the Savior. He will help us as we strive to make right choices all along the path.
 
@@ -53,8 +53,6 @@ Now, Sisters, let’s love him enough to be obedient. This is the season for str
 Recently I was doing some prayerful thinking about this heavy responsibility I have right now—young women need so much guidance, protection, and love. On this occasion I felt inadequate, and as I measured my weaknesses, against all the wickedly clever ones in the world, I admit that I sagged for a time. But after praying earnestly, I looked deep inside to the core of me, where the Spirit can touch us, and I knew then that I wouldn’t give up. Whatever I am, whatever I need to overcome, I will be one upon whom the Lord can count. We can all use our agency this way—to be one upon whom the Lord can count.
 
 Let’s do it! In the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Hear Him
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -78,7 +78,7 @@ That theophany initiated the Restoration of the fulness of the gospel of Jesus C
 
 We wondered if a monument should be erected. But as we considered the unique historic and international impact of that First Vision, we felt impressed to create a monument not of granite or stone but of words—words of solemn and sacred proclamation—written, not to be carved in “tables of stone” but rather to be etched in the “fleshy tables” of our hearts.[^14]
 
-Since the Church was organized, only five proclamations have been issued, with the last being “The Family: A Proclamation to the World,” presented by President Gordon B. Hinckley in 1995.
+Since the Church was organized, only five proclamations have been issued, with the last being “The Family: A Proclamation to the World,” presented by President Gordon B. Hinckley in 1995.
 
 Now as we contemplate this significant time in the history of the world and the Lord’s charge to gather scattered Israel in preparation for the Second Coming of Jesus Christ, we, the First Presidency and Council of the Twelve Apostles, issue the following proclamation. Its title is “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World.” It is authored by the First Presidency and the Council of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints. It is dated April 2020. To prepare for today, I previously recorded this proclamation in the Sacred Grove, where Joseph Smith first saw the Father and the Son.
 
@@ -92,7 +92,7 @@ Now as we contemplate this significant time in the history of the world and the 
 
 “We further witness that Joseph Smith was given the gift and power of God to translate an ancient record: the Book of Mormon—Another Testament of Jesus Christ. Pages of this sacred text include an account of the personal ministry of Jesus Christ among people in the Western Hemisphere soon after His Resurrection. It teaches of life’s purpose and explains the doctrine of Christ, which is central to that purpose. As a companion scripture to the Bible, the Book of Mormon testifies that all human beings are sons and daughters of a loving Father in Heaven, that He has a divine plan for our lives, and that His Son, Jesus Christ, speaks today as well as in days of old.
 
-“We declare that The Church of Jesus Christ of Latter-day Saints, organized on April 6, 1830, is Christ’s New Testament Church restored. This Church is anchored in the perfect life of its chief cornerstone, Jesus Christ, and in His infinite Atonement and literal Resurrection. Jesus Christ has once again called Apostles and has given them priesthood authority. He invites all of us to come unto Him and His Church, to receive the Holy Ghost, the ordinances of salvation, and to gain enduring joy.
+“We declare that The Church of Jesus Christ of Latter-day Saints, organized on April 6, 1830, is Christ’s New Testament Church restored. This Church is anchored in the perfect life of its chief cornerstone, Jesus Christ, and in His infinite Atonement and literal Resurrection. Jesus Christ has once again called Apostles and has given them priesthood authority. He invites all of us to come unto Him and His Church, to receive the Holy Ghost, the ordinances of salvation, and to gain enduring joy.
 
 “Two hundred years have now elapsed since this Restoration was initiated by God the Father and His Beloved Son, Jesus Christ. Millions throughout the world have embraced a knowledge of these prophesied events.
 
@@ -111,23 +111,23 @@ God lives! Jesus is the Christ! His Church has been restored! He and His Father,
 
 [^1]: [[D&C 121.27|Doctrine and Covenants 121:27]].
 
-[^2]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^2]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
 [^3]: [[D&C 121.28|Doctrine and Covenants 121:28]].
 
-[^4]: See [[1 Nephi 22.23|1 Nephi 22:23]].
+[^4]: See [[1 Nephi 22.23|1 Nephi 22:23]].
 
 [^5]: [[Ether 12.5|Ether 12:5]].
 
 [^6]: See [[D&C 123.12|Doctrine and Covenants 123:12]].
 
-[^7]: See [[Isaiah 5.20|Isaiah 5:20]]; [[2 Nephi 15.20|2 Nephi 15:20]].
+[^7]: See [[Isaiah 5.20|Isaiah 5:20]]; [[2 Nephi 15.20|2 Nephi 15:20]].
 
-[^8]: See [[2 Nephi 25.4|2 Nephi 25:4]]; [[Alma 5.43|Alma 5:43]].
+[^8]: See [[2 Nephi 25.4|2 Nephi 25:4]]; [[Alma 5.43|Alma 5:43]].
 
 [^9]: [[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]].
 
-[^10]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^10]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
 [^11]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
@@ -135,8 +135,6 @@ God lives! Jesus is the Christ! His Church has been restored! He and His Father,
 
 [^13]: In the Old Testament, the word *hearken* is translated from the Hebrew *shama,* which is a strong verb that means to “listen with the intent to obey.” *Hearken* is a scriptural word that occurs in 40 sections of the Doctrine and Covenants.
 
-[^14]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^14]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
-
-
-#Holy_Ghost #Jesus_Christ #Revelation #Scripture_Study #Temple_Work
+#HolyGhost #JesusChrist #Revelation #ScriptureStudy #TempleWork

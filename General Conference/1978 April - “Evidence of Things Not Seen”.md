@@ -1,6 +1,6 @@
 # “Evidence of Things Not Seen”
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -62,7 +62,7 @@ The Lord himself predicted that there would be other volumes of scripture in add
 
 “And it shall come to pass that the Jews shall have the words of the Nephites, and the Nephites shall have the words of the Jews; and the Nephites and the Jews shall have the words of the lost tribes of Israel; and the lost tribes of Israel shall have the words of the Nephites and the Jews.
 
-“And it shall come to pass that my people, which are of the house of Israel, shall be gathered home unto the lands of their possessions; and my word also shall be gathered in one.” ([[2 Nephi 29.3|2 Ne. 29:3, 7–14]][[2 Nephi 29.7|]][[2 Nephi 29.8|]][[2 Nephi 29.9|]][[2 Nephi 29.10|]][[2 Nephi 29.11|]][[2 Nephi 29.12|]][[2 Nephi 29.13|]][[2 Nephi 29.14|]].)
+“And it shall come to pass that my people, which are of the house of Israel, shall be gathered home unto the lands of their possessions; and my word also shall be gathered in one.” ([[2 Nephi 29.3|2 Ne. 29:3, 7–14]][[2 Nephi 29.7|]][[2 Nephi 29.8|]][[2 Nephi 29.9|]][[2 Nephi 29.10|]][[2 Nephi 29.11|]][[2 Nephi 29.12|]][[2 Nephi 29.13|]][[2 Nephi 29.14|]].)
 
 So said the Lord.
 
@@ -114,7 +114,7 @@ So the published Book of Mormon is a physical witness to the fact of immortality
 
 In this day of doubt and criticism, should we not be grateful for physical evidence of unseen things? Then shall we not accept the Book of Mormon as such evidence?
 
-The chief reason we have the Book of Mormon is that in the mouth of two or three witnesses shall all things be established. (See [[2 Corinthians 13.1|2 Cor. 13:1]].) We have the Bible; we also have the Book of Mormon. They constitute two voices—two volumes of scripture—from two widely separated ancient peoples, both bearing testimony to the divinity of the Lord Jesus Christ.
+The chief reason we have the Book of Mormon is that in the mouth of two or three witnesses shall all things be established. (See [[2 Corinthians 13.1|2 Cor. 13:1]].) We have the Bible; we also have the Book of Mormon. They constitute two voices—two volumes of scripture—from two widely separated ancient peoples, both bearing testimony to the divinity of the Lord Jesus Christ.
 
 But we have two other scriptural witnesses also, making four altogether. They are the modern scriptures given as revelations through the Prophet Joseph Smith, and they, too, declare that Jesus is the Christ, the Savior, the Creator, the long-promised Messiah.
 
@@ -133,6 +133,4 @@ This we solemnly affirm with all the power of our being, in the name of Jesus Ch
 
 
 
-
-
-#Book_Of_Mormon #Prophets #Restoration
+#BookOfMormon #Prophets #Restoration

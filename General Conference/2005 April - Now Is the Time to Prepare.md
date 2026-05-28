@@ -24,7 +24,7 @@ Great is the knowledge that “whatever principle of intelligence we attain … 
 
 That glorious goal seems mighty distant if one is discouraged by worldly trouble and gloom. I remember when a friend having a difficult day exclaimed, “Oh, why was I ever born?” God’s plan answers his question. We came into this life to acquire a physical body. We may fall in love and be married. We may have children and experience the trials of mortal life. (Please forgive me for mentioning children and the trials of life in the same breath. I sense that they are both part of our growing process.) The Church was restored—the earth was created—so that those families could be sealed in holy temples. Otherwise, the whole earth would be “utterly wasted.”[^8]
 
-We came to be tried, to be tested, and to choose.[^9] Our decisions determine our destiny. We are “free to choose liberty and eternal life, through the great Mediator … , or to choose captivity and death.”[^10] Those who choose the Lord’s way will likely endure persecution.[^11] But their reward is certain. Those who prove faithful “shall inherit the kingdom of God, … and their joy shall be full forever.”[^12] Sister Nelson has earned that reward. What comfort that brings to me and our family!
+We came to be tried, to be tested, and to choose.[^9] Our decisions determine our destiny. We are “free to choose liberty and eternal life, through the great Mediator … , or to choose captivity and death.”[^10] Those who choose the Lord’s way will likely endure persecution.[^11] But their reward is certain. Those who prove faithful “shall inherit the kingdom of God, … and their joy shall be full forever.”[^12] Sister Nelson has earned that reward. What comfort that brings to me and our family!
 
 Trials and tests apply to rich and poor alike. Years ago I was asked to perform an operation upon a very wealthy man. A surgical biopsy confirmed that he had an advanced cancer that had spread throughout his body. As I reported this news, his immediate response was to rely upon his wealth. He would go anywhere or do anything to treat his condition. He thought he could buy his way back to health. But he soon passed away. Someone asked, “How much wealth did he leave?” The answer, of course, was, “All of it!”
 
@@ -34,7 +34,15 @@ In radiant contrast, Sister Nelson prepared throughout her life for the time whe
 
 Some people live as if there were no day of reckoning. Others waste today’s time with a disabling fear of tomorrow or a paralyzing preoccupation over mistakes of yesterday. Each of us might well heed the words of a poet, as posted on a sundial:
 
-The shadow by my finger castDivides the future from the past:Before it, sleeps the unborn hour,In darkness, and beyond thy power:Behind its unreturning line,The vanished hour, no longer thine:One hour alone is in thy hands,—The NOW on which the shadow stands.[^14]
+>The shadow by my finger cast
+>Divides the future from the past:
+>Before it, sleeps the unborn hour,
+>In darkness, and beyond thy power:
+>Behind its unreturning line,
+>The vanished hour, no longer thine:
+>One hour alone is in thy hands,—
+>The NOW on which the shadow stands.[^14]
+>
 
 ## *How* Do We Prepare?
 
@@ -65,11 +73,11 @@ Now is the time to prepare. Then, when death comes, we can move toward the celes
 
 [^1]: [[Alma 34.32|Alma 34:32–33]][[Alma 34.33|]]; see also [[Alma 13.27|Alma 13:27]].
 
-[^2]: Scripture admonishes each of us to “harden not your hearts any longer; for behold, now is the time and the day of your salvation; … therefore, if ye will repent … , immediately shall the great plan of redemption be brought about unto you” ([[Alma 34.31|Alma 34:31]]).
+[^2]: Scripture admonishes each of us to “harden not your hearts any longer; for behold, now is the time and the day of your salvation; … therefore, if ye will repent … , immediately shall the great plan of redemption be brought about unto you” ([[Alma 34.31|Alma 34:31]]).
 
 [^3]: [[Alma 34.34|Alma 34:34]]; emphasis added.
 
-[^4]: [[Mormon 9.14|Mormon 9:14]]; see also [[2 Nephi 9.15|2 Nephi 9:15–16]][[2 Nephi 9.16|]]; [[D&C 88.27|D&C 88:27–32, 34–35]][[D&C 88.28|]][[D&C 88.29|]][[D&C 88.30|]][[D&C 88.31|]][[D&C 88.32|]][[D&C 88.34|]][[D&C 88.35|]]; [[D&C 130.2|130:2]].
+[^4]: [[Mormon 9.14|Mormon 9:14]]; see also [[2 Nephi 9.15|2 Nephi 9:15–16]][[2 Nephi 9.16|]]; [[D&C 88.27|D&C 88:27–32, 34–35]][[D&C 88.28|]][[D&C 88.29|]][[D&C 88.30|]][[D&C 88.31|]][[D&C 88.32|]][[D&C 88.34|]][[D&C 88.35|]]; [[D&C 130.2|130:2]].
 
 [^5]: [[D&C 130.18|D&C 130:18]].
 
@@ -79,23 +87,23 @@ Now is the time to prepare. Then, when death comes, we can move toward the celes
 
 [^8]: See [[D&C 2.1|D&C 2:1–3]][[D&C 2.2|]][[D&C 2.3|]]; [[D&C 138.48|138:48]]; [[Joseph Smith History 1.39|Joseph Smith—History 1:39]].
 
-[^9]: See [[2 Nephi 9.27|2 Nephi 9:27]]; [[D&C 98.12|D&C 98:12]]; [[Abraham 3.24|Abraham 3:24–26]][[Abraham 3.25|]][[Abraham 3.26|]].
+[^9]: See [[2 Nephi 9.27|2 Nephi 9:27]]; [[D&C 98.12|D&C 98:12]]; [[Abraham 3.24|Abraham 3:24–26]][[Abraham 3.25|]][[Abraham 3.26|]].
 
-[^10]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^10]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^11]: See [[2 Timothy 3.12|2 Timothy 3:12]].
+[^11]: See [[2 Timothy 3.12|2 Timothy 3:12]].
 
-[^12]: [[2 Nephi 9.18|2 Nephi 9:18]].
+[^12]: [[2 Nephi 9.18|2 Nephi 9:18]].
 
 [^13]: [[Helaman 13.38|Helaman 13:38]].
 
 [^14]: Henry Van Dyke, “The Sun-Dial at Wells College,” in *The Poems of Henry Van Dyke* (1911), 345. Sundial and poem displayed at Wells College, Aurora, New York.
 
-[^15]: [[1 Nephi 10.21|1 Nephi 10:21]].
+[^15]: [[1 Nephi 10.21|1 Nephi 10:21]].
 
 [^16]: [[D&C 132.21|D&C 132:21]]; see also [[D&C 88.36|D&C 88:36–39]][[D&C 88.37|]][[D&C 88.38|]][[D&C 88.39|]].
 
-[^17]: [[Moroni 10.32|Moroni 10:32]]; see also [[2 Nephi 2.21|2 Nephi 2:21]]; [[Mormon 9.28|Mormon 9:28]].
+[^17]: [[Moroni 10.32|Moroni 10:32]]; see also [[2 Nephi 2.21|2 Nephi 2:21]]; [[Mormon 9.28|Mormon 9:28]].
 
 [^18]: [[D&C 98.11|D&C 98:11]].
 
@@ -109,7 +117,7 @@ Now is the time to prepare. Then, when death comes, we can move toward the celes
 
 [^23]: [[D&C 137.9|D&C 137:9]].
 
-[^24]: See [[Malachi 3.10|Malachi 3:10]]; [[3 Nephi 24.10|3 Nephi 24:10]]. Tithing also prepares people against a future day of vengeance and burning (see [[D&C 85.3|D&C 85:3]]).
+[^24]: See [[Malachi 3.10|Malachi 3:10]]; [[3 Nephi 24.10|3 Nephi 24:10]]. Tithing also prepares people against a future day of vengeance and burning (see [[D&C 85.3|D&C 85:3]]).
 
 [^25]: See Spencer J. Condie, *Russell M. Nelson: Father, Surgeon, Apostle* (2003), 104.
 
@@ -117,22 +125,20 @@ Now is the time to prepare. Then, when death comes, we can move toward the celes
 
 [^27]: [[D&C 132.19|D&C 132:19]]; see also [[D&C 75.5|D&C 75:5]]; [[D&C 101.65|101:65]].
 
-[^28]: See [[2 Nephi 33.4|2 Nephi 33:4]]; [[3 Nephi 15.9|3 Nephi 15:9]]; [[3 Nephi 27.21|27:21–22]][[3 Nephi 27.22|]]; [[D&C 14.7|D&C 14:7]].
+[^28]: See [[2 Nephi 33.4|2 Nephi 33:4]]; [[3 Nephi 15.9|3 Nephi 15:9]]; [[3 Nephi 27.21|27:21–22]][[3 Nephi 27.22|]]; [[D&C 14.7|D&C 14:7]].
 
 [^29]: See [[Alma 42.8|Alma 42:8–9]][[Alma 42.9|]].
 
-[^30]: See [[1 Corinthians 15.50|1 Corinthians 15:50–54]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]]; [[1 John 5.11|1 John 5:11, 20]][[1 John 5.20|]]; [[Alma 12.25|Alma 12:25]]; [[Mormon 9.13|Mormon 9:13]]; [[D&C 46.14|D&C 46:14]]; [[D&C 76.40|76:40–42, 50–59]][[D&C 76.41|]][[D&C 76.42|]][[D&C 76.50|]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]]; [[D&C 133.62|133:62]].
+[^30]: See [[1 Corinthians 15.50|1 Corinthians 15:50–54]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]]; [[1 John 5.11|1 John 5:11, 20]][[1 John 5.20|]]; [[Alma 12.25|Alma 12:25]]; [[Mormon 9.13|Mormon 9:13]]; [[D&C 46.14|D&C 46:14]]; [[D&C 76.40|76:40–42, 50–59]][[D&C 76.41|]][[D&C 76.42|]][[D&C 76.50|]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]]; [[D&C 133.62|133:62]].
 
-[^31]: [[3 Nephi 12.20|3 Nephi 12:20]].
+[^31]: [[3 Nephi 12.20|3 Nephi 12:20]].
 
-[^32]: See [[1 Nephi 10.20|1 Nephi 10:20]]; [[2 Nephi 9.41|2 Nephi 9:41–46]][[2 Nephi 9.42|]][[2 Nephi 9.43|]][[2 Nephi 9.44|]][[2 Nephi 9.45|]][[2 Nephi 9.46|]]; [[Alma 12.27|Alma 12:27]].
+[^32]: See [[1 Nephi 10.20|1 Nephi 10:20]]; [[2 Nephi 9.41|2 Nephi 9:41–46]][[2 Nephi 9.42|]][[2 Nephi 9.43|]][[2 Nephi 9.44|]][[2 Nephi 9.45|]][[2 Nephi 9.46|]]; [[Alma 12.27|Alma 12:27]].
 
 [^33]: See [[John 14.2|John 14:2]]; [[D&C 98.18|D&C 98:18]].
 
 [^34]: See [[D&C 78.7|D&C 78:7]]; [[D&C 131.1|131:1–3]][[D&C 131.2|]][[D&C 131.3|]].
 
-[^35]: See [[2 Nephi 31.20|2 Nephi 31:20]]; [[Mosiah 16.7|Mosiah 16:7–8]][[Mosiah 16.8|]]; [[Moroni 7.38|Moroni 7:38–48]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
-
-
+[^35]: See [[2 Nephi 31.20|2 Nephi 31:20]]; [[Mosiah 16.7|Mosiah 16:7–8]][[Mosiah 16.8|]]; [[Moroni 7.38|Moroni 7:38–48]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
 
 #Agency #Death #Obedience #Preparation #Repentance

@@ -1,6 +1,5 @@
 # Weigh
 
-
 *See also* [[Weight.md|Weight]]
 
 Let me be *weighed* in an even balance, [[Job 31.6|Job 31:6]].
@@ -15,6 +14,6 @@ My heart hath been *weighed* down with sorrow, [[2 Nephi 1.17|2 Nephi 1:17]].
 
 I this day am *weighed* down, [[Jacob 2.3|Jacob 2:3]].
 
-he was ... *weighed* down with sorrow, [[Alma 8.14|Alma 8:14]].
+he was … *weighed* down with sorrow, [[Alma 8.14|Alma 8:14]].
 
 may not the things which I have written grieve thee, to *weigh* thee down, [[Moroni 9.25|Moroni 9:25]].

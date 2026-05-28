@@ -1,6 +1,5 @@
 # Visitation
 
-
 thy *visitation* hath preserved my spirit, [[Job 10.12|Job 10:12]].
 
 what will ye do in the day of *visitation*, [[Isaiah 10.3|Isaiah 10:3]] ([[2 Nephi 20.3|2 Nephi 20:3]]).

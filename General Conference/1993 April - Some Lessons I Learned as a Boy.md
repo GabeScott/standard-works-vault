@@ -88,7 +88,7 @@ We were miserable performers as children. We could do all kinds of things togeth
 
 “Pretty soon the man returned from the field, put on his coat, slipped one foot into a shoe, felt something hard, took it out and found a silver dollar. Wonder and surprise \[shone\] upon his face. He looked at the dollar again and again, turned around and could see nobody, then proceeded to put on the other shoe; when to his great surprise he found another dollar. His feelings overcame him. … He knelt down and offered aloud a prayer of thanksgiving, in which he spoke of his wife being sick and helpless and his children without bread. … He fervently thanked the Lord for this bounty from unknown hands and evoked the blessing of heaven upon those who gave him this needed help.
 
-“The boys remained \[hidden\] until he had gone.” They had been touched by his prayer and felt something warm within their hearts. As they left to walk down the road, one said to the other, “Don’t you have a good feeling?” (Bryant S. Hinckley, *Not by Bread Alone* \[Salt Lake City: Bookcraft, 1955\], p. 95).
+“The boys remained \[hidden\] until he had gone.” They had been touched by his prayer and felt something warm within their hearts. As they left to walk down the road, one said to the other, “Don’t you have a good feeling?” (Bryant S. Hinckley, *Not by Bread Alone* \[Salt Lake City: Bookcraft, 1955\], p. 95).
 
 Out of those simple little meetings, held in the parlor of our old home, came something indescribable and wonderful. Our love for our parents was strengthened. Our love for brothers and sisters was enhanced. Our love for the Lord was increased. An appreciation for simple goodness grew in our hearts. These wonderful things came about because our parents followed the counsel of the President of the Church. I have learned something tremendously significant out of that.
 
@@ -121,6 +121,4 @@ Fathers, be good men, that your wives will speak of you with love and appreciati
 
 
 
-
-
-#Obedience #Peer_Pressure #Preparation #Standards #Work
+#Obedience #PeerPressure #Preparation #Standards #Work

@@ -1,6 +1,6 @@
 # A Thousand Witnesses
 
-By Elder James M. Paramore - *Of the First Quorum of the Seventy*
+By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -27,8 +27,6 @@ Brethren, my wife is such a wonderful woman. In all of those years, she has sust
 I am so grateful for the gospel of Jesus Christ. I have received a thousand witnesses in the course of my life with my missionaries and my family. I saw a daughter one night beside herself with the pain of an earache. My wife came and said, “Jim, I think you should give your daughter a blessing.” I went and gave my lovely girl a blessing; and, brethren, before I could finish the words, she was asleep.
 
 I want you to know that my life has been and will be dedicated to the things of God, for I know He lives, and I love His work, and I love and know the principles of the gospel are true. I pledge my support to the prophet and to the Council of the Twelve Apostles, and to Brother Richards and the other presidents. I pray that it might be said of me as the apostle Paul said at the end of his days: “This one thing I do.” ([[Philippians 3.13|Philip. 3:13]].) In the name of Jesus Christ, amen.
-
-
 
 
 

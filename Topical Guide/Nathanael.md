@@ -1,4 +1,3 @@
 # Nathanael
 
-
-*See* [BD Nathanael](https://www.churchofjesuschrist.org/study/scriptures/bd/nathanael?lang=eng)
+*See also* [[BD Nathanael.md|BD Nathanael]]

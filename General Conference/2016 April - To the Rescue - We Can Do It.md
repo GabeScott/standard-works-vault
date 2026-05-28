@@ -1,6 +1,6 @@
 # To the Rescue: We Can Do It
 
-By Elder Mervyn B. Arnold - *Of the Seventy*
+By Elder Mervyn B. Arnold - *Of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -72,7 +72,7 @@ Fernando is now serving as bishop for the third time, and he continues to rescue
 
 ## Principle 4: No Matter Our Age, We Are All Called to Go to the Rescue
 
-President Henry B. Eyring declared, “Whatever our age, capacity, Church calling, or location, we are as one called to the work to help \[the Savior\] in His harvest of souls until He comes again.”[^9]
+President Henry B. Eyring declared, “Whatever our age, capacity, Church calling, or location, we are as one called to the work to help \[the Savior\] in His harvest of souls until He comes again.”[^9]
 
 Each day more and more of our children, our youth, our young single adults, and our adult members of all ages are heeding the Savior’s clarion call to go to the rescue. Thank you for your efforts! Allow me to share some examples:
 
@@ -84,7 +84,7 @@ Sister Reeves began sharing the gospel with each telemarketer who called.
 
 James invited his nonmember friend Shane to his daughter’s baptism.
 
-Spencer sent his less-active sister a link to President Russell M. Nelson’s conference address and reported, “She read the talk, and a window was opened.”
+Spencer sent his less-active sister a link to President Russell M. Nelson’s conference address and reported, “She read the talk, and a window was opened.”
 
 The Lord has provided all of the tools necessary for us to go to the rescue of our less-active and nonmember friends. *We can all do it!*
 
@@ -103,13 +103,14 @@ I solemnly testify that I know Jesus is the Good Shepherd, that He loves us, and
 
 [^4]: [[Ezekiel 34.4|Ezekiel 34:4, 10]][[Ezekiel 34.10|]].
 
-[^5]: Thomas S. Monson, October 2015 General Authority Leadership Meeting, used with permission.
+[^5]: Thomas S. Monson, October 2015 General Authority Leadership Meeting, used with permission.
 
 [^6]: [[D&C 84.106|Doctrine and Covenants 84:106]].
 
 [^7]: See [[Luke 15.5|Luke 15:5]].
 
-[^8]: See Mervyn B. Arnold, “[[2004 April - Strengthen Thy Brethren.md|Strengthen Thy Brethren]],” *Ensign* or *Liahona,* May 2004, 46–47.
+[^8]: See Mervyn B. Arnold, “[[2004 April - Strengthen Thy Brethren.md|Strengthen Thy Brethren]],” *Ensign* or *Liahona,* May 2004, 46–47.
 
+[^9]: Henry B. Eyring, “[[2013 April - We Are One.md|We Are One]],” *Ensign* or *Liahona,* May 2013, 62.
 
-#Activation #Fellowshipping #Friendship #Missionary_Work
+#Activation #Fellowshipping #Friendship #MissionaryWork

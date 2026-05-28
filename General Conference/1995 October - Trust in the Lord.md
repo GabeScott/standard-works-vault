@@ -26,7 +26,7 @@ As in all things, the Master is our perfect example. Who could have asked with m
 
 How grateful I am personally that our Savior taught we should conclude our most urgent, deeply felt prayers, when we ask for that which is of utmost importance to us, with “Thy will be done” ([[Matthew 26.42|Matt. 26:42]]). Your willingness to accept the will of the Father will not change what, in His wisdom, He has chosen to do. However, it will certainly change the effect of those decisions on you personally. That evidence of the proper exercise of agency allows His decisions to produce far greater blessings in your life. I have found that because of our Father’s desire for us to grow, He may give us gentle, almost imperceptible promptings that, if we are willing to accept without complaint, He will enlarge to become a very clear indication of His will. This enlightenment comes because of our faith and our willingness to do what He asks even though we would desire something else.
 
-Our Father in Heaven has invited you to express your needs, hopes, and desires unto Him. That should not be done in a spirit of negotiation, but rather as a willingness to obey His will no matter what direction that takes. His invitation “Ask, and ye shall receive” ([[3 Nephi 27.29|3 Ne. 27:29]]) does not assure that you will get what you *want.* It does guarantee that, if worthy, you will get what you *need,* as judged by a Father who loves you perfectly, who wants your eternal happiness even more than do you.
+Our Father in Heaven has invited you to express your needs, hopes, and desires unto Him. That should not be done in a spirit of negotiation, but rather as a willingness to obey His will no matter what direction that takes. His invitation “Ask, and ye shall receive” ([[3 Nephi 27.29|3 Ne. 27:29]]) does not assure that you will get what you *want.* It does guarantee that, if worthy, you will get what you *need,* as judged by a Father who loves you perfectly, who wants your eternal happiness even more than do you.
 
 I testify that when the Lord closes one important door in your life, He shows His continuing love and compassion by opening many other compensating doors through your exercise of faith. He will place in your path packets of spiritual sunlight to brighten your way. They often come after the trial has been the greatest, as evidence of the compassion and love of an all-knowing Father. They point the way to greater happiness and more understanding and strengthen your determination to accept and be obedient to His will.
 
@@ -49,6 +49,4 @@ I testify that you have a Heavenly Father who loves you. I witness that the Savi
 
 
 
-
-
-#Adversity #Agency #Example #Jesus_Christ #Joy #Peace #Prayer #Repentance #Sin #Trust
+#Agency #Adversity #Example #Joy #JesusChrist #Peace #Prayer #Repentance #Sin #Trust

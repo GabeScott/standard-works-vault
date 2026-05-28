@@ -38,7 +38,7 @@ It is in the home that one learns that faith is intimately related to the Atonem
 
 Without the effects of the Atonement in our lives, it would be impossible to develop the type of faith necessary for repentance, and so we would remain outside the marvelous plan of mercy since “only unto him that has faith unto repentance is brought about the great and eternal plan of redemption” ([[Alma 34.16|Alma 34:16]]).
 
-Repentance—that change that takes place in the heart, that is born of love for the Lord, that leads us to move away from sin and to submit to His will—can “become effective and accepted by God” “only through the atonement of Jesus Christ” (Guide to the Scriptures, “Repent, Repentance,” 206).
+Repentance—that change that takes place in the heart, that is born of love for the Lord, that leads us to move away from sin and to submit to His will—can “become effective and accepted by God” “only through the atonement of Jesus Christ” (Guide to the Scriptures, “[Repent, Repentance](https://www.churchofjesuschrist.org/study/scriptures/gs/repent-repentance?lang=eng&id=p1#p1),” 206).
 
 Once God has accepted repentance, the process that we are describing leads us to participate in ordinances and the covenants associated with them, such as baptism and confirmation. The renewal of these covenants is brought about when we regularly and worthily partake of the sacrament, and then the remission of our sins is realized.
 
@@ -52,11 +52,9 @@ The decision to incorporate them into our lives and the opportunity to begin the
 
 It is our duty to continue teaching them to a world that needs them more all the time, because:
 
-“Hath he commanded any that they should not partake of his salvation? Behold I say unto you, Nay; but he hath given it free for all men; and he hath commanded his people that they should persuade all men to repentance” ([[2 Nephi 26.27|2 Nephi 26:27]]).
+“Hath he commanded any that they should not partake of his salvation? Behold I say unto you, Nay; but he hath given it free for all men; and he hath commanded his people that they should persuade all men to repentance” ([[2 Nephi 26.27|2 Nephi 26:27]]).
 
 I share with you my testimony that these principles are true. I testify that the Atonement of Jesus Christ makes it possible to incorporate them into our lives. I know this because I am striving together with my family to live in accordance with them. In the name of Jesus Christ, amen.
-
-
 
 
 

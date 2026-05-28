@@ -44,7 +44,7 @@ With every covenant we make and every effort we give to keep it, we can receive 
 
 ## A New Beginning in How We View Repentance
 
-Repentance opens the door to our new beginnings, fresh starts, and second chances. Our dear President Russell M. Nelson’s teachings have cleared up misconceptions about the divine gift of repentance, and I think we are finally beginning to grasp it.[^17]
+Repentance opens the door to our new beginnings, fresh starts, and second chances. Our dear President Russell M. Nelson’s teachings have cleared up misconceptions about the divine gift of repentance, and I think we are finally beginning to grasp it.[^17]
 
 It is exciting to hear our youth describe what repentance means to them. I recently heard a young woman say, with a smile on her face, “When I think of repentance, daily repentance, I feel incredible joy and hope. I feel the love and happiness of my Heavenly Father and my Saviour. I am not afraid to come to Heavenly Father in prayer and ask for His help with whatever I’m struggling with. I know They’re not trying to catch me doing something wrong. Their arms are open wide. This is repentance to me,” she said. This young woman understands that because of Jesus Christ, she can have new beginnings!
 
@@ -77,7 +77,7 @@ Because He always did those things which pleased His Father,[^30] and because He
 
 
 
-[^1]: [[Acts 10.38|Acts 10:38]]; see also “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p2#p2),” Gospel Library.
+[^1]: [[Acts 10.38|Acts 10:38]]; see also “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p2#p2),” Gospel Library.
 
 [^2]: See [[Moroni 7.12|Moroni 7:12–13]][[Moroni 7.13|]].
 
@@ -95,7 +95,7 @@ Because He always did those things which pleased His Father,[^30] and because He
 
 [^9]: [[Luke 8.48|Luke 8:48]].
 
-[^10]: See Shayne M. Bowen, “[[2012 October - “Because I Live, Ye Shall Live Also”.md|Because I Live, Ye Shall Live Also]],” *Ensign* or *Liahona*, Nov. 2012, 15–17.
+[^10]: See Shayne M. Bowen, “[[2012 October - “Because I Live, Ye Shall Live Also”.md|Because I Live, Ye Shall Live Also]],” *Ensign* or *Liahona*, Nov. 2012, 15–17.
 
 [^11]: [[John 3.3|John 3:3]]; [[Mosiah 27.25|Mosiah 27:25]].
 
@@ -103,7 +103,7 @@ Because He always did those things which pleased His Father,[^30] and because He
 
 [^13]: [[Moroni 6.8|Moroni 6:8]].
 
-[^14]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^14]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
 [^15]: See [[D&C 19.16|Doctrine and Covenants 19:16–19]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]].
 
@@ -137,10 +137,8 @@ Because He always did those things which pleased His Father,[^30] and because He
 
 [^30]: See [[John 8.29|John 8:29]].
 
-[^31]: [[3 Nephi 11.11|3 Nephi 11:11]].
+[^31]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
 [^32]: [[Psalms 23.6|Psalm 23:6]].
 
-
-
-#Healing #Jesus_Christ #Repentance
+#Healing #JesusChrist #Repentance

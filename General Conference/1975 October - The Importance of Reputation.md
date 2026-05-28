@@ -1,6 +1,6 @@
 # The Importance of Reputation
 
-By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
+By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -67,8 +67,6 @@ I know through many years of experience in both Church and business affairs that
 I testify that in order to obtain real joy and happiness in this life and be effective servants of the Lord in helping to build his kingdom, we must build and retain a good reputation. This can only be accomplished by repenting of our sins and living the principles of the gospel, thereby keeping the commandments of God.
 
 May we all do this, I humbly pray, in the name of our Lord and Savior, Jesus Christ. Amen.
-
-
 
 
 

@@ -1,7 +1,6 @@
 # Humility, Humble
 
-
-*See also* [[Contrite Heart.md|Contrite Heart]]; [[Meek, Meekness.md|Meek]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Submissiveness, Submit.md|Submissiveness]]; [[Teachable.md|Teachable]]
+*See also* [[Contrite Heart.md|Contrite Heart]]; [[Meek.md|Meek]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Submissiveness.md|Submissiveness]]; [[Teachable.md|Teachable]]
 
 thou refuse to *humble* thyself before me, [[Exodus 10.3|Exodus 10:3]].
 
@@ -9,7 +8,7 @@ if then their uncircumcised hearts be *humbled*, [[Leviticus 26.41|Leviticus 26:
 
 forty years in the wilderness, to *humble* thee, [[Deuteronomy 8.2|Deuteronomy 8:2]].
 
-If my people ... shall *humble* themselves, and pray, [[2 Chronicles 7.14|2 Chronicles 7:14]].
+If my people … shall *humble* themselves, and pray, [[2 Chronicles 7.14|2 Chronicles 7:14]].
 
 *humbled* himself for the pride of his heart, [[2 Chronicles 32.26|2 Chronicles 32:26]].
 
@@ -29,9 +28,9 @@ mighty man shall be *humbled*, [[Isaiah 5.15|Isaiah 5:15]] ([[2 Nephi 15.15|2 Ne
 
 him also that is of a contrite and *humble* spirit, [[Isaiah 57.15|Isaiah 57:15]].
 
-Lord require of thee, but ... to walk *humbly*, [[Micah 6.8|Micah 6:8]].
+Lord require of thee, but … to walk *humbly*, [[Micah 6.8|Micah 6:8]].
 
-Whosoever ... shall *humble* himself as this little child, [[Matthew 18.4|Matthew 18:4]].
+Whosoever … shall *humble* himself as this little child, [[Matthew 18.4|Matthew 18:4]].
 
 will be chief among you, let him be your *servant*, [[Matthew 20.27|Matthew 20:27]].
 
@@ -45,21 +44,21 @@ he *humbled* himself, and became obedient unto death, [[Philippians 2.8|Philippi
 
 in a voluntary *humility* and worshipping of angels, [[Colossians 2.18|Colossians 2:18]].
 
-as the elect of God ... *humbleness* of mind, [[Colossians 3.12|Colossians 3:12]].
+as the elect of God … *humbleness* of mind, [[Colossians 3.12|Colossians 3:12]].
 
-*Humble* yourselves ... and he shall lift you up, [[James 4.10|James 4:10]].
+*Humble* yourselves … and he shall lift you up, [[James 4.10|James 4:10]].
 
 be clothed with *humility*: for God resisteth the proud, [[1 Peter 5.5|1 Peter 5:5]].
 
 come down in the depths of *humility*, [[2 Nephi 9.42|2 Nephi 9:42]] ([[3 Nephi 12.2|3 Nephi 12:2]]).
 
-gone astray save it be ... the *humble* followers of Christ, [[2 Nephi 28.14|2 Nephi 28:14]] ([[Helaman 6.5|Helaman 6:5]], [[Helaman 6.39|Helaman 6:39]]).
+gone astray save it be … the *humble* followers of Christ, [[2 Nephi 28.14|2 Nephi 28:14]] ([[Helaman 6.5|Helaman 6:5]]; [[Helaman 6.39|Helaman 6:39]]).
 
 becometh as a child, submissive, meek, *humble*, [[Mosiah 3.19|Mosiah 3:19]].
 
 *humble* yourselves even in the depths of *humility*, [[Mosiah 4.11|Mosiah 4:11]].
 
-Could ye say, if ye were called to die at this time ... ye have been sufficiently *humble*, [[Alma 5.27|Alma 5:27]].
+Could ye say, if ye were called to die at this time … ye have been sufficiently *humble*, [[Alma 5.27|Alma 5:27]].
 
 *humble* themselves without being compelled to be *humble*, [[Alma 32.16|Alma 32:16]].
 
@@ -75,17 +74,17 @@ he told me in plain *humility*, [[Ether 12.39|Ether 12:39]].
 
 as they were *humble* they might be made strong, [[D&C 1.28|D&C 1:28]].
 
-Remember faith, virtue ... *humility*, [[D&C 4.6|D&C 4:6]].
+Remember faith, virtue … *humility*, [[D&C 4.6|D&C 4:6]].
 
-trust in that Spirit which leadeth to ... walk *humbly*, [[D&C 11.12|D&C 11:12]].
+trust in that Spirit which leadeth to … walk *humbly*, [[D&C 11.12|D&C 11:12]].
 
 except he shall be *humble* and full of love, [[D&C 12.8|D&C 12:8]].
 
-All those who *humble* themselves ... be baptized, [[D&C 20.37|D&C 20:37]].
+All those who *humble* themselves … be baptized, [[D&C 20.37|D&C 20:37]].
 
 as will hearken to my voice and *humble* themselves, [[D&C 29.2|D&C 29:2]].
 
-repent ... and become truly *humble*, [[D&C 54.3|D&C 54:3]].
+repent … and become truly *humble*, [[D&C 54.3|D&C 54:3]].
 
 *humble* yourselves before me, [[D&C 67.10|D&C 67:10]].
 
@@ -98,5 +97,3 @@ Be thou *humble*, [[D&C 112.10|D&C 112:10]].
 ignorant learn wisdom by *humbling* himself, [[D&C 136.32|D&C 136:32]].
 
 man is *nothing*, which thing I never had supposed, [[Moses 1.10|Moses 1:10]].
-
-*See also* [[Matthew 11.29|Matthew 11:29]]; [[Luke 17.10|Luke 17:10]]; [[John 13.14|John 13:14]]; [[Romans 12.3|Romans 12:3]]; [[2 Corinthians 12.10|2 Corinthians 12:10]]; [[Philippians 2.3|Philippians 2:3]]; [[Alma 1.26|Alma 1:26]]; [[Alma 38.14|Alma 38:14]]; [[Moroni 7.43|Moroni 7:43]]; [[D&C 56.18|D&C 56:18]].

@@ -68,7 +68,7 @@ He answered, “It is through the Spirit. That is the only way we can communicat
 
 So where should our focus be? “And if your eye be single to my glory, your whole bodies shall be filled with light, and there shall be no darkness in you; and that body which is filled with light comprehendeth all things.”[^14] That can happen if we take responsibility for our dirty linen through repentance and make sure it is clean.
 
-May we enjoy the Savior’s promise through Moroni to “arise … and put on thy beautiful garments. … Come unto Christ … and love God with all your might, mind and strength, … that by his grace ye may be perfect in Christ … through the shedding of \[His\] blood … , which is in the covenant of the Father unto the remission of your sins, that ye become holy, without spot.”[^15] In the name of Jesus Christ, amen.
+May we enjoy the Savior’s promise through Moroni to “arise … and put on thy beautiful garments. … Come unto Christ … and love God with all your might, mind and strength, … that by his grace ye may be perfect in Christ … through the shedding of \[His\] blood … , which is in the covenant of the Father unto the remission of your sins, that ye become holy, without spot.”[^15] In the name of Jesus Christ, amen.
 
 
 
@@ -102,7 +102,5 @@ May we enjoy the Savior’s promise through Moroni to “arise … and put on th
 [^14]: [[D&C 88.67|D&C 88:67]].
 
 [^15]: [[Moroni 10.31|Moroni 10:31–33]][[Moroni 10.32|]][[Moroni 10.33|]].
-
-
 
 #Atonement #Forgiveness #Judging #Repentance

@@ -1,6 +1,6 @@
 # “Thou Shalt Receive Revelation”
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -34,7 +34,7 @@ The Lord Jehovah—the God of our Fathers; the God of Abraham, Isaac, and Jacob;
 
 “I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.
 
-“… I will manifest myself to my people in mercy. …
+“… I will manifest myself to my people in mercy. …
 
 “Yea, I will appear unto my servants, and speak unto them with mine own voice, if my people will keep my commandments.” ([[D&C 110.3|D&C 110:3–4, 7–8]][[D&C 110.4|]][[D&C 110.7|]][[D&C 110.8|]].)
 
@@ -50,7 +50,7 @@ The voice of God—speaking audibly after the manner of our language, and also s
 
 Times without number faithful members of the Lord’s church have labored and struggled with near unsolvable problems, have reached what seemed to them to be proper solutions and have then received a spiritual confirmation certifying to the truth and verity of their decisions.
 
-We cannot speak of revelation without bearing testimony of the great and wondrous outpouring of divine knowledge that came to President Spencer W. Kimball setting forth that the priesthood and all of the blessings and obligations of the gospel should now be offered to those of all nations, races, and colors.
+We cannot speak of revelation without bearing testimony of the great and wondrous outpouring of divine knowledge that came to President Spencer W. Kimball setting forth that the priesthood and all of the blessings and obligations of the gospel should now be offered to those of all nations, races, and colors.
 
 Truly, the Holy Ghost is a revelator. He speaks and his voice is the voice of the Lord. He is Christ’s minister, his agent, his representative. He says what the Lord Jesus would say if he were personally present.
 
@@ -66,7 +66,7 @@ This is the day of which Joseph Smith said: “God hath not revealed anything to
 
 And we look forward to that glorious millennial day when “they shall teach no more every man his neighbour, and every man his brother, saying, Know the Lord: for they shall all know me, from the least of them unto the greatest of them, saith the Lord” ([[Jeremiah 31.34|Jer. 31:34]]).
 
-But even now there is no end to the revelations we may receive. “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” ([[Articles of Faith 1.9|A of F 1:9]]).
+But even now there is no end to the revelations we may receive. “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” ([[Articles of Faith 1.9|A of F 1:9]]).
 
 To the prophets, seers, and revelators he will manifest his mind and his will concerning the Church and the world. To the presiding officers in the stakes and wards and quorums he will reveal what should be for those organizations. To fathers and mothers and children he will reveal “great treasures of knowledge, even hidden treasures” ([[D&C 89.19|D&C 89:19]]) to guide them along the way to perfection.
 
@@ -78,11 +78,9 @@ By his own mouth he has given us this promise: “It shall come to pass that eve
 
 Such is his promise to us here and now while we yet dwell as mortals in a world of sorrow and sin. It is our privilege even now—the privilege of all who hold the holy priesthood—if we will strip ourselves from jealousies and fears and humble ourselves before him, as he has said, to have the veil rent and see him and know that he is. (See [[D&C 67.10|D&C 67:10]].)
 
-To carnal men, and even to those among us whose souls are not attuned to the Infinite, these promises may seem as the gibberish of alien tongues, but to those whose souls are afire with the light of heaven they will be as a bush that burns and is not consumed. As Paul, our fellow apostle and witness of that same Lord whose servants we are, expressed it: “The things of God knoweth no man, except he has the Spirit of God” ([[1 Corinthians 2.note11c|JST, 1 Cor. 2:11]]).
+To carnal men, and even to those among us whose souls are not attuned to the Infinite, these promises may seem as the gibberish of alien tongues, but to those whose souls are afire with the light of heaven they will be as a bush that burns and is not consumed. As Paul, our fellow apostle and witness of that same Lord whose servants we are, expressed it: “The things of God knoweth no man, except he has the Spirit of God” ([JST, 1 Cor. 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2?lang=eng&id=note11c#note11c)).
 
 Now may I bear a solemn witness, one borne of the Spirit, that these doctrines are true, that the Lord God is raining down righteousness upon his people, and that he will continue to do so until that perfect day when they know all things and become as he is. In the name of the Lord Jesus Christ, amen.
-
-
 
 
 

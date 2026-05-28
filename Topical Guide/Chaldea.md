@@ -1,4 +1,3 @@
 # Chaldea
 
-
-*See* [BD Chaldea](https://www.churchofjesuschrist.org/study/scriptures/bd/chaldea?lang=eng)
+*See also* [[BD Chaldea.md|BD Chaldea]]

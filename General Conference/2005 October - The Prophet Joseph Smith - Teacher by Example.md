@@ -20,7 +20,7 @@ Before Joseph’s 15th year, his family moved to Manchester, New York. He later 
 
 “I often said to myself: … Who of all these parties are right; or, are they all wrong together? If any one of them be right, which is it, and how shall I know it?
 
-“While I was laboring under the extreme difficulties caused by … these parties of religionists, I was one day reading the Epistle of James, first chapter and fifth verse … : *If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.*”[^2]
+“While I was laboring under the extreme difficulties caused by … these parties of religionists, I was one day reading the Epistle of James, first chapter and fifth verse … : *If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.*”[^2]
 
 Joseph reported that he knew he must either put the Lord to the test and ask Him or perhaps choose to remain in darkness forever. Early one morning he stepped into a grove, now called sacred, and knelt and prayed, having faith that God would give him the enlightenment which he so earnestly sought. Two personages appeared to Joseph—the Father and the Son—and he was told, in answer to his question, that he was to join none of the churches, for none of them was true. The Prophet Joseph Smith taught us the principle of *faith*—by example. His simple prayer of faith on that spring morning in 1820 brought about this marvelous work which continues today throughout the world.
 
@@ -97,6 +97,4 @@ I testify of this solemn truth, in the name of Jesus Christ, amen.
 
 [^10]: “Praise to the Man,” *Hymns,* no. 27.
 
-
-
-#Courage #Dedication #Example #Faith #Honesty #Joseph_Smith #Love #Missionary_Work #Patience #Teaching
+#Courage #Dedication #Example #Faith #Honesty #JosephSmith #Love #MissionaryWork #Patience #Teaching

@@ -1,7 +1,6 @@
 # Company
 
-
-they spake unto all the *company* of ... Israel, [[Numbers 14.7|Numbers 14:7]].
+they spake unto all the *company* of … Israel, [[Numbers 14.7|Numbers 14:7]].
 
 divided the three hundred men into three *companies*, [[Judges 7.16|Judges 7:16]].
 

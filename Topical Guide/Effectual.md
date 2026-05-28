@@ -1,4 +1,3 @@
 # Effectual
 
-
-*See* [[Door.md|Door]]
+*See also* [[Door.md|Door]]

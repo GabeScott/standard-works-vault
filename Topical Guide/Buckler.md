@@ -1,6 +1,5 @@
 # Buckler
 
-
 *See also* [[Shield.md|Shield]]
 
 he is a *buckler* to all them that trust, [[2 Samuel 22.31|2 Samuel 22:31]] ([[Psalms 18.30|Psalms 18:30]]).

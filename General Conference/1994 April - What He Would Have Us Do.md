@@ -21,6 +21,4 @@ May we praise His name, follow His example, and incorporate His truths into our 
 
 
 
-
-
-#Jesus_Christ #Obedience
+#JesusChrist #Obedience

@@ -5,6 +5,6 @@
 [Deuteronomy 28:58](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.58?lang=eng#p58)
 
 
-[^a]: [[Obedience, Obedient, Obey|TG Obedience]].
-[^b]: [[Psalms 48.10|Ps. 48:10]]. [[Name|TG Name]].
-[^c]: HEB Jehovah.
+[^a]: [[Obedience, Obedient, Obey|TG Obedience]].  
+[^b]: [[Psalms 48.10|Ps. 48:10]]. [[Name|TG Name]].  
+[^c]: HEB Jehovah.  

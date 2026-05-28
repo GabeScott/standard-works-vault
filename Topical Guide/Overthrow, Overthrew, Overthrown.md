@@ -1,6 +1,5 @@
 # Overthrow, Overthrew, Overthrown
 
-
 Lord *overthrew* the Egyptians, [[Exodus 14.27|Exodus 14:27]].
 
 thou shalt utterly *overthrow* them, [[Exodus 23.24|Exodus 23:24]].
@@ -21,9 +20,9 @@ cities which the Lord *overthrew*, [[Jeremiah 20.16|Jeremiah 20:16]].
 
 I will *overthrow* the throne of kingdoms, [[Haggai 2.22|Haggai 2:22]].
 
-Jesus ... *overthrew* the tables of the moneychangers, [[Matthew 21.12|Matthew 21:12]] ([[Mark 11.15|Mark 11:15]]; [[John 2.15|John 2:15]]).
+Jesus … *overthrew* the tables of the moneychangers, [[Matthew 21.12|Matthew 21:12]] ([[Mark 11.15|Mark 11:15]]; [[John 2.15|John 2:15]]).
 
-have erred ... and *overthrow* the faith of some, [[2 Timothy 2.18|2 Timothy 2:18]].
+have erred … and *overthrow* the faith of some, [[2 Timothy 2.18|2 Timothy 2:18]].
 
 that he might *overthrow* the doctrine of Christ, [[Jacob 7.2|Jacob 7:2]].
 

@@ -1,6 +1,6 @@
 # Decisions
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -87,8 +87,6 @@ It is your decision!
 I encourage all to realize the importance, and the great asset that is ours, of free agency, and learn to use it wisely by making decisions with the help of the Lord through prayer.
 
 I pray for the blessings of the Lord upon all who seek to do his will, in the name of Jesus Christ. Amen.
-
-
 
 
 

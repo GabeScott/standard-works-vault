@@ -1,9 +1,8 @@
 # Pull
 
-
 from thy state shall he *pull* thee down, [[Isaiah 22.19|Isaiah 22:19]].
 
-set thee ... to root out, and to *pull* down, [[Jeremiah 1.10|Jeremiah 1:10]].
+set thee … to root out, and to *pull* down, [[Jeremiah 1.10|Jeremiah 1:10]].
 
 shall he not *pull* up the roots, [[Ezekiel 17.9|Ezekiel 17:9]].
 
@@ -17,7 +16,7 @@ straightway *pull* him out on the sabbath day, [[Luke 14.5|Luke 14:5]].
 
 mighty through God to the *pulling* down of strong holds, [[2 Corinthians 10.4|2 Corinthians 10:4]].
 
-that he might *pull* down ... all the pride, [[Alma 4.19|Alma 4:19]].
+that he might *pull* down … all the pride, [[Alma 4.19|Alma 4:19]].
 
 provoke not the Lord our God to *pull* down his wrath, [[Alma 12.37|Alma 12:37]].
 

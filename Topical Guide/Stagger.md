@@ -1,7 +1,6 @@
 # Stagger
 
-
-They ... *stagger* like a drunken man, [[Psalms 107.27|Psalms 107:27]].
+They … *stagger* like a drunken man, [[Psalms 107.27|Psalms 107:27]].
 
 as a drunken man *staggereth* in his vomit, [[Isaiah 19.14|Isaiah 19:14]].
 

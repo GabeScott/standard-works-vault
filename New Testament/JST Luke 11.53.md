@@ -4,6 +4,3 @@
 
 [JST Luke 11:53](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/11?lang=eng)
 
-
-
-

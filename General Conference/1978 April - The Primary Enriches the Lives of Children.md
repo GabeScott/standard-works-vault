@@ -1,6 +1,6 @@
 # The Primary Enriches the Lives of Children
 
-By Elder David B. Haight - *Of the Council of the Twelve*
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -34,13 +34,13 @@ In 1878 Farmington, Utah, was a cultured community with over 1,200 people and a 
 
 But with all this spiritual and cultural influence, Farmington, like other communities, had its juvenile problems—little boys out late at night; darkness and mischief made the boys into a challenge.
 
-Bishop John W. Hess, a Mormon Battalion veteran, called a meeting of parents and urged them to look after their children. These conditions also concerned Aurelia Rogers. She pondered and prayed.
+Bishop John W. Hess, a Mormon Battalion veteran, called a meeting of parents and urged them to look after their children. These conditions also concerned Aurelia Rogers. She pondered and prayed.
 
-In March 1878, Eliza R. Snow and others attended a Relief Society conference in Farmington. Aurelia Rogers later wrote:
+In March 1878, Eliza R. Snow and others attended a Relief Society conference in Farmington. Aurelia Rogers later wrote:
 
-“After the meeting, … when on their way to the depot, these sisters … stopped at my home. … The topic of our conversation was the young people, and the rough, careless ways of many of the young men and boys. … I asked the question, “What will our girls do for good husbands, if this state of things continues? … Could there not be an organization for little boys, and have them trained to make better men?” (Aurelia S. Rogers, *Life Sketches,* Salt Lake City: George Q. Cannon and Sons Co., 1898, pp. 207–8.)
+“After the meeting, … when on their way to the depot, these sisters … stopped at my home. … The topic of our conversation was the young people, and the rough, careless ways of many of the young men and boys. … I asked the question, “What will our girls do for good husbands, if this state of things continues? … Could there not be an organization for little boys, and have them trained to make better men?” (Aurelia S. Rogers, *Life Sketches,* Salt Lake City: George Q. Cannon and Sons Co., 1898, pp. 207–8.)
 
-Eliza R. Snow seemed deeply impressed with the question and indicated she would speak to the Brethren.
+Eliza R. Snow seemed deeply impressed with the question and indicated she would speak to the Brethren.
 
 Brigham Young had died a few months before. The Twelve, with John Taylor as president of the council, presided over the Church.
 
@@ -107,8 +107,6 @@ Today we not only honor Aurelia Rogers but all the Primary leaders and teachers 
 >
 
 May we as parents and spiritual leaders be blessed to understand what the Master meant when he said, “Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven.” ([[Matthew 18.3|Matt. 18:3]].) In the name of Jesus Christ, amen.
-
-
 
 
 

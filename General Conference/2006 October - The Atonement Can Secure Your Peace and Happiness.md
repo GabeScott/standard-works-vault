@@ -18,7 +18,7 @@ The companionship has studied the rules and techniques of rock climbing. They ha
 
 In real life, the anchors are the laws of God that provide protection under all of the challenges that you will face. The rope and carabiners that secure the rope to the anchors represent obedience to those commandments. When you learn those commandments, continue to practice them, and have a plan to avoid danger, you will have a secure means of obtaining protection against Satan’s temptations. You will develop strength of character that will fortify you against transgression. Should you make a wrong move, there need be no enduring problem, because of the belaying, or help, that is available through your repentance.
 
-Let the Savior be your “lead” in life. He has said, “I am … the Rock of Heaven … ; whoso cometh in at the gate and climbeth up by me shall never fall.”[^1] The Redeemer will safely lead you over the most difficult obstacles of life. His laws are absolutely secure anchors of protection that dispel fear and assure success in an otherwise dangerous world. Such a life will certainly provide you peace and happiness.
+Let the Savior be your “lead” in life. He has said, “I am … the Rock of Heaven … ; whoso cometh in at the gate and climbeth up by me shall never fall.”[^1] The Redeemer will safely lead you over the most difficult obstacles of life. His laws are absolutely secure anchors of protection that dispel fear and assure success in an otherwise dangerous world. Such a life will certainly provide you peace and happiness.
 
 True, enduring happiness, with the accompanying strength, courage, and capacity to overcome the greatest difficulties, will come as you center your life in Jesus Christ. Obedience to His teachings provides a secure ascent in the journey of life. That takes effort. While there is no guarantee of overnight results, there is the assurance that, in the Lord’s time, solutions will come, peace will prevail, and happiness will be yours.
 
@@ -51,10 +51,8 @@ I testify that with unimaginable suffering and agony at an incalculable price, t
 
 [^2]: See [[D&C 133.50|D&C 133:50, 52–53]][[D&C 133.52|]][[D&C 133.53|]].
 
-[^3]: [[2 Nephi 2.8|2 Nephi 2:8]]; emphasis added.
+[^3]: [[2 Nephi 2.8|2 Nephi 2:8]]; emphasis added.
 
-[^4]: [[2 Nephi 25.23|2 Nephi 25:23]].
-
-
+[^4]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 #Atonement #Joy #Obedience #Peace #Repentance

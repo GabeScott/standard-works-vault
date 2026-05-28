@@ -1,6 +1,5 @@
 # Spice
 
-
 *spices* for anointing oil, [[Exodus 25.6|Exodus 25:6]].
 
 Take thou also unto thee principal *spices*, [[Exodus 30.23|Exodus 30:23]].

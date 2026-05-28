@@ -25,7 +25,7 @@ The other verses of this hymn show that our love toward our fellow men is indeed
 
 The greatest expression of love from our Father in Heaven to the human family is probably the infinite atonement of the Savior. “For God so loved the world,” said John, “that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” ([[John 3.16|John 3:16]].)
 
-The most noble expression of love by man is to “love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
+The most noble expression of love by man is to “love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
 
 “And the second is like unto it, Thou shalt love thy neighbour as thyself.” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]].)
 
@@ -65,9 +65,9 @@ Sister Kimball had her coat, but the mission president’s wife did not. Preside
 
 He has literally spent his life in taking off his coat, so to speak, and putting it around the shoulders of those he judged to be in greater need: people of all colors and creeds; men, women, and children. It has never made any difference to him. All are his brothers. All are his sisters.
 
-“And charity suffereth long, and is kind, and envieth not, and is not puffed up, seeketh not her own, is not easily provoked, thinketh no evil, and rejoiceth not in iniquity but rejoiceth in the truth, beareth all things, believeth all things, hopeth all things, endureth all things. …
+“And charity suffereth long, and is kind, and envieth not, and is not puffed up, seeketh not her own, is not easily provoked, thinketh no evil, and rejoiceth not in iniquity but rejoiceth in the truth, beareth all things, believeth all things, hopeth all things, endureth all things. …
 
-“\[For\] charity is the pure love of Christ, and it endureth forever.” ([[Moroni 7.45|Moro. 7:45, 47]][[Moroni 7.47|]]; see also [[1 Corinthians 13.1|1 Cor. 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].)
+“\[For\] charity is the pure love of Christ, and it endureth forever.” ([[Moroni 7.45|Moro. 7:45, 47]][[Moroni 7.47|]]; see also [[1 Corinthians 13.1|1 Cor. 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].)
 
 Not long ago Sister Dunn and I attended a stake conference in Marilia, Brazil. Marilia is a beautiful city of 100,000 in the southeast interior of the country. The Sunday session had just concluded. The theme was the atonement of Christ and how he is the Savior of the whole world.
 
@@ -95,8 +95,6 @@ The final verse of the hymn that we mentioned in the beginning goes like this:
 >
 
 By way of testimony, I wish to express my love for my Father in Heaven, for his son Jesus Christ, for each one of you wherever you are, and for these my brethren and associates of the General Authorities. In the name of Jesus Christ, amen.
-
-
 
 
 

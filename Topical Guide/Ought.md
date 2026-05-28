@@ -1,6 +1,5 @@
 # Ought
 
-
 these *ought* ye to have done, [[Matthew 23.23|Matthew 23:23]] ([[Luke 11.42|Luke 11:42]]).
 
 these things *ought* not so to be, [[James 3.10|James 3:10]].

@@ -5,5 +5,5 @@
 [Deuteronomy 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.13?lang=eng#p13)
 
 
-[^a]: HEB purge.
-[^b]: [[1 Kings 2.31|1 Kgs. 2:31]]. [[Guilt, Guilty|TG Guilt]].
+[^a]: HEB purge.  
+[^b]: [[1 Kings 2.31|1 Kgs. 2:31]]. [[Guilt, Guilty|TG Guilt]].  

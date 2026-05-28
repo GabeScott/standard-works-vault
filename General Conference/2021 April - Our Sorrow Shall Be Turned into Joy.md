@@ -1,6 +1,6 @@
 # Our Sorrow Shall Be Turned into Joy
 
-By Elder S. Mark Palmer - *Of the Seventy*
+By Elder S. Mark Palmer - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -8,11 +8,11 @@ By Elder S. Mark Palmer - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/04/43palmer?lang=eng)
 
-Several years ago, while attending meetings in Salt Lake City, I was greeted by our dear prophet, Russell M. Nelson. In his typically warm and personal way, he asked, “Mark, how is your mum doing?”
+Several years ago, while attending meetings in Salt Lake City, I was greeted by our dear prophet, Russell M. Nelson. In his typically warm and personal way, he asked, “Mark, how is your mum doing?”
 
 I told him I had been with her earlier that week at her home in New Zealand and that she was getting old but was full of faith and an inspiration to all who knew her.
 
-He then said, “Please give her my love … and tell her I look forward to seeing her again.”
+He then said, “Please give her my love … and tell her I look forward to seeing her again.”
 
 I was rather surprised and asked, “Do you have a trip planned to New Zealand soon?”
 
@@ -20,9 +20,9 @@ With thoughtful sincerity he replied, “Oh no, I will see her in the next life.
 
 There was nothing frivolous in his response. It was a perfectly natural expression of fact. In that private, unguarded moment, I heard and felt pure testimony from a living prophet that life continues after death.
 
-This conference weekend you will hear living apostles and prophets testify of the Resurrection of Jesus Christ. “The fundamental principles of our religion are the testimony of the Apostles and Prophets, concerning Jesus Christ, that He died, was buried, and rose again the third day\[;\] … all other things which pertain to our religion are only appendages to \[this truth\].”[^1] I promise that as you listen with real intent, the Spirit will confirm in your mind and your heart the truth of these testimonies.[^2]
+This conference weekend you will hear living apostles and prophets testify of the Resurrection of Jesus Christ. “The fundamental principles of our religion are the testimony of the Apostles and Prophets, concerning Jesus Christ, that He died, was buried, and rose again the third day\[;\] … all other things which pertain to our religion are only appendages to \[this truth\].”[^1] I promise that as you listen with real intent, the Spirit will confirm in your mind and your heart the truth of these testimonies.[^2]
 
-Jesus’s ancient Apostles were forever changed after He appeared to them following His death. Ten of them saw for themselves that He had been resurrected. Thomas, being initially absent, declared, “Except I shall see … , I will not believe.”[^3] Later Jesus admonished Thomas, “Be not faithless, but believing.”[^4] Then the Lord taught the vital role of faith: “Blessed are they that have *not *seen, and yet have believed.”[^5]
+Jesus’s ancient Apostles were forever changed after He appeared to them following His death. Ten of them saw for themselves that He had been resurrected. Thomas, being initially absent, declared, “Except I shall see … , I will not believe.”[^3] Later Jesus admonished Thomas, “Be not faithless, but believing.”[^4] Then the Lord taught the vital role of faith: “Blessed are they that have *not *seen, and yet have believed.”[^5]
 
 The resurrected Lord gave His Apostles the charge to testify of Him. As with our living Apostles today, they left behind worldly occupations and spent the rest of their lives boldly declaring that God had raised up this Jesus. Their powerful testimonies led to thousands accepting the invitation to be baptized.[^6]
 
@@ -55,11 +55,11 @@ How I look forward to the day I will meet my sister Ann. I look forward to a joy
 
 
 
-[^1]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18) (2007), 49.
+[^1]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18) (2007), 49.
 
 [^2]: See [[D&C 8.2|Doctrine and Covenants 8:2]].
 
-[^3]: [[John 20.25|John 20:25]]. “It is common in our secular world to say that ‘seeing is believing.’ The way of the Lord is best defined by a different maxim: ‘Believing is seeing.’ Faith in the Lord is the premise, not the conclusion” (Lance B. Wickman, “[[2002 October - But If Not.md|But If Not]],” *Ensign* or *Liahona*, Nov. 2002, 31).
+[^3]: [[John 20.25|John 20:25]]. “It is common in our secular world to say that ‘seeing is believing.’ The way of the Lord is best defined by a different maxim: ‘Believing is seeing.’ Faith in the Lord is the premise, not the conclusion” (Lance B. Wickman, “[[2002 October - But If Not.md|But If Not]],” *Ensign* or *Liahona*, Nov. 2002, 31).
 
 [^4]: [[John 20.27|John 20:27]].
 
@@ -71,5 +71,6 @@ How I look forward to the day I will meet my sister Ann. I look forward to a joy
 
 [^8]: Kenneth Molony Palmer and Jill Garlick Palmer.
 
+[^9]: See [[Matthew 16.19|Matthew 16:19]].
 
-#Adversity #Conversion #Faith #Jesus_Christ #Joy #Resurrection
+#Adversity #Conversion #Faith #Joy #JesusChrist #Resurrection

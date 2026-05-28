@@ -97,6 +97,4 @@ In the name of the Lord Jesus Christ, amen.
 
 [^5]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 255–56.
 
-
-
 #Bishops #Commandments #Home #Morality #Priesthood

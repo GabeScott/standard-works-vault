@@ -34,7 +34,7 @@ Note particularly that last verse, “All things were made by him; and without h
 
 He was the great Creator. It was His finger that wrote the commandments on the mount. It was He who left His royal courts on high and came to earth, born under the most humble of circumstances. During His brief ministry, He healed the sick, caused the blind to see, raised the dead, and rebuked the scribes and Pharisees. He was the only perfect man ever to walk the earth. All of this was part of His Father’s plan. In the Garden of Gethsemane, He suffered so greatly that he sweat drops of blood as He pleaded with His Father. But this was all a part of His great atoning sacrifice. He was taken by the mob and appeared before Pilate with the mob crying for His death. He carried the cross, the instrument of His death. On Golgotha He gave His life, crying out, “Father, forgive them; for they know not what they do” ([[Luke 23.34|Luke 23:34]]).
 
-His body was tenderly laid in the tomb of Joseph of Arimathea. But three days later, on that first Easter morning, the tomb was emptied. Mary of Magdala spoke to Him, and He spoke to her. He appeared to His Apostles. He walked with two disciples on the road to Emmaus. And, we are told, He was seen by some 500 others (see [[1 Corinthians 15.6|1 Corinthians 15:6]]).
+His body was tenderly laid in the tomb of Joseph of Arimathea. But three days later, on that first Easter morning, the tomb was emptied. Mary of Magdala spoke to Him, and He spoke to her. He appeared to His Apostles. He walked with two disciples on the road to Emmaus. And, we are told, He was seen by some 500 others (see [[1 Corinthians 15.6|1 Corinthians 15:6]]).
 
 He had said, “And other sheep I have, which are not of this fold: them also I must bring, and they shall hear my voice; and there shall be one fold, and one shepherd” ([[John 10.16|John 10:16]]). Accordingly, He appeared to those assembled in the land Bountiful in the Western Hemisphere. Here, He taught the people as He had taught them in the Old World. This is all recorded in detail in the Book of Mormon, which stands as a second witness of the divinity of our Lord.
 
@@ -61,8 +61,6 @@ Just think of what this one little woman did. She performed these vicarious endo
 Now, my brothers and sisters, this is my testimony, which I solemnly bear before you.
 
 God bless you, every one, you faithful Latter-day Saints. May there be peace and love in your homes and faith and prayer to guide you in all that you undertake is my humble prayer in the sacred name of Jesus Christ, amen.
-
-
 
 
 

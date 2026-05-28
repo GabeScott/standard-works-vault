@@ -18,7 +18,7 @@ There has never been a more marvelous time in the history of this Church. More t
 
 Tonight I speak with special emphasis to you young priesthood bearers who will take this Church into the future. You do not follow the ways of the world by engaging in unwholesome activities or wearing strange clothes and ornaments. We are proud of you. We have great confidence in you.
 
-I take as my text the profound but simple message of the Savior to the ruler of the synagogue. You will recall that the ruler was told that his daughter was dead and that he should not trouble the Master about it. When the Savior came into the house of this grieving father, He said: “Why make ye this ado, and weep? the damsel is not dead, but sleepeth. … And he took the \[girl\] by the hand, and said … , I say unto thee, arise. And straightway the damsel arose, and walked. … And they were astonished with a great astonishment.”[^1]
+I take as my text the profound but simple message of the Savior to the ruler of the synagogue. You will recall that the ruler was told that his daughter was dead and that he should not trouble the Master about it. When the Savior came into the house of this grieving father, He said: “Why make ye this ado, and weep? the damsel is not dead, but sleepeth. … And he took the \[girl\] by the hand, and said … , I say unto thee, arise. And straightway the damsel arose, and walked. … And they were astonished with a great astonishment.”[^1]
 
 The Savior’s words to the leader of the synagogue capture the essence of this story: “Be not afraid, only believe.”[^2] These five words comprise my message to you.
 
@@ -95,15 +95,15 @@ If we believe and are faithful, we are promised all that the Father has. If we r
 
 
 
-[^1]: [[Mark 5.39|Mark 5:39, 41–42]][[Mark 5.41|]][[Mark 5.42|]]; see also [[Mark 5.35|vv. 35–42]][[Mark 5.36|]][[Mark 5.37|]][[Mark 5.38|]][[Mark 5.39|]][[Mark 5.40|]][[Mark 5.41|]][[Mark 5.42|]].
+[^1]: [[Mark 5.39|Mark 5:39, 41–42]][[Mark 5.41|]][[Mark 5.42|]]; see also [[Mark 5.35|vv. 35–42]][[Mark 5.36|]][[Mark 5.37|]][[Mark 5.38|]][[Mark 5.39|]][[Mark 5.40|]][[Mark 5.41|]][[Mark 5.42|]].
 
 [^2]: [[Mark 5.36|Mark 5:36]].
 
-[^3]: See [[Articles of Faith 1.1|A of F 1:1]]; [[Mosiah 4.9|Mosiah 4:9]].
+[^3]: See [[Articles of Faith 1.1|A of F 1:1]]; [[Mosiah 4.9|Mosiah 4:9]].
 
-[^4]: [[2 Kings 6.14|2 Kgs. 6:14–17]][[2 Kings 6.15|]][[2 Kings 6.16|]][[2 Kings 6.17|]].
+[^4]: [[2 Kings 6.14|2 Kgs. 6:14–17]][[2 Kings 6.15|]][[2 Kings 6.16|]][[2 Kings 6.17|]].
 
-[^5]: See [[2 Kings 6.18|2 Kgs. 6:18–23]][[2 Kings 6.19|]][[2 Kings 6.20|]][[2 Kings 6.21|]][[2 Kings 6.22|]][[2 Kings 6.23|]].
+[^5]: See [[2 Kings 6.18|2 Kgs. 6:18–23]][[2 Kings 6.19|]][[2 Kings 6.20|]][[2 Kings 6.21|]][[2 Kings 6.22|]][[2 Kings 6.23|]].
 
 [^6]: See Wayne B. Lynn, *Lessons from Life* (1987), 51–52.
 
@@ -117,6 +117,4 @@ If we believe and are faithful, we are promised all that the Father has. If we r
 
 [^11]: “Behold! A Royal Army,” *Hymns,* no. 251.
 
-
-
-#Adversity #Atonement #Blessings #Endurance #Evil #Faith #Family #Fear #Holy_Ghost #Jesus_Christ #Pioneers #Priesthood #Prophets #Satan
+#Adversity #Atonement #Blessings #Endurance #Evil #Faith #Family #Fear #HolyGhost #JesusChrist #Pioneers #Priesthood #Prophets #Satan

@@ -1,6 +1,6 @@
 # Except Ye Are One
 
-By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -10,7 +10,7 @@ To Latter-day Saints throughout the world, and to men and women of goodwill ever
 
 We affirm before all men our belief in God the Eternal Father and in his Son, Jesus Christ, and in the Holy Ghost. This is the first article of our faith and the foundation of all of our work.
 
-We are particularly pleased to have with us—yes, pleased and honored—this remarkable man whom we sustain as a prophet of God, our prophet, seer, and revelator, our friend and leader, President Spencer W. Kimball.
+We are particularly pleased to have with us—yes, pleased and honored—this remarkable man whom we sustain as a prophet of God, our prophet, seer, and revelator, our friend and leader, President Spencer W. Kimball.
 
 We regret that the condition of his health does not permit him to speak to us. We have heard him many times in the past as he has spoken from this pulpit, and the memories of his great testimonies continue to encourage and strengthen all of us.
 
@@ -33,8 +33,6 @@ The Lord said that except ye are one, ye are not mine. (See [[D&C 38.27|D&C 38:2
 This great unity is the hallmark of the true church of Christ. It is felt among our people throughout the world. As we are one, we are his.
 
 And so, as we open this great conference, from which there will be radiated across the world a feeling of love, we pray that we shall be blessed of the Lord. We pray for our prophet dear, whom we love and honor. We pray for one another that we may go on in unity and strength. If we do so, no power beneath the heavens can stop the onward progress of this great kingdom. I pray that we shall never be wanting in our faith, in our devotion, in our love for the Lord and his work, and in our desire to serve unitedly for the advancement of The Church of Jesus Christ of Latter-day Saints, in the name of Jesus Christ, amen.
-
-
 
 
 

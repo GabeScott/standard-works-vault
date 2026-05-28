@@ -153,6 +153,4 @@ In the name of Jesus Christ, amen.
 
 [^8]: [[Matthew 6.19|Matthew 6:19–21]][[Matthew 6.20|]][[Matthew 6.21|]].
 
-
-
 #Joy #Love #Preparation #Priorities #Sacrifice

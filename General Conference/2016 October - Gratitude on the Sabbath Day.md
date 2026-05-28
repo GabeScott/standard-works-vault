@@ -1,6 +1,6 @@
 # Gratitude on the Sabbath Day
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -8,7 +8,7 @@ By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/gratitude-on-the-sabbath-day?lang=eng)
 
-My dear brothers and sisters who are spread across the world in The Church of Jesus Christ of Latter-day Saints, I am grateful that President Thomas S. Monson has asked me to speak in conference on this Sabbath day. I pray that the Holy Ghost will carry my words into your heart.
+My dear brothers and sisters who are spread across the world in The Church of Jesus Christ of Latter-day Saints, I am grateful that President Thomas S. Monson has asked me to speak in conference on this Sabbath day. I pray that the Holy Ghost will carry my words into your heart.
 
 Today I desire to speak about feelings of the heart. The one I will focus on is gratitude—particularly on the Sabbath day.
 
@@ -114,9 +114,10 @@ I testify that God the Father knows and loves you. The Savior, the Lord Jesus Ch
 
 [^5]: [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|5:2]]; [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
 
-[^6]: [[1 Nephi 14.12|1 Nephi 14:12, 14]][[1 Nephi 14.14|]].
+[^6]: [[1 Nephi 14.12|1 Nephi 14:12, 14]][[1 Nephi 14.14|]].
 
 [^7]: [[D&C 78.17|Doctrine and Covenants 78:17–19]][[D&C 78.18|]][[D&C 78.19|]]; emphasis added.
 
+[^8]: [[Mosiah 24.13|Mosiah 24:13–15]][[Mosiah 24.14|]][[Mosiah 24.15|]].
 
-#Adversity #Church_Callings #Gratitude #Love #Sabbath #Sacrament #Service
+#Adversity #ChurchCallings #Gratitude #Love #Sabbath #Sacrament #Service

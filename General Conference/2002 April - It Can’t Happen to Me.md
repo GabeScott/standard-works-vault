@@ -87,7 +87,7 @@ The sure way to have life’s joys and blessings come to you is to follow our li
 
 [^10]: Shanna Ghaznavi, “Don’t Bet Your Life,” *New Era,* Feb. 2002, 26.
 
-[^11]: [[1 Corinthians 13.12|1 Cor. 13:12]].
+[^11]: [[1 Corinthians 13.12|1 Cor. 13:12]].
 
 [^12]: [[John 14.26|John 14:26]].
 
@@ -103,6 +103,4 @@ The sure way to have life’s joys and blessings come to you is to follow our li
 
 [^18]: See [[John 20.29|John 20:29]].
 
-
-
-#Faith #Individual_Worth #Self-Control #Temptation
+#Faith #IndividualWorth #Self-control #Temptation

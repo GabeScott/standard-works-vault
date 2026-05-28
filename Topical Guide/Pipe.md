@@ -1,6 +1,5 @@
 # Pipe
 
-
 *See also* [[Musical Instruments.md|Musical Instruments]]
 
 the people *piped* with *pipes*, [[1 Kings 1.40|1 Kings 1:40]].

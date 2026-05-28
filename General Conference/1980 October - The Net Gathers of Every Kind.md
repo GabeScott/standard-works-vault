@@ -1,6 +1,6 @@
 # The Net Gathers of Every Kind
 
-By Elder Neal A. Maxwell - *Of the Presidency of the First Quorum of the Seventy*
+By Elder Neal A. Maxwell - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -12,7 +12,7 @@ A few of these have said to their behavioral Babylons, “We bid thee farewell,�
 
 Other newcomers have ceased trying to live “without God in the world,” a condition “contrary to the nature of happiness” ([[Alma 41.11|Alma 41:11]]). They have seen how a mortal life so lived is “no more than a night in a second-class hotel” (Saint Teresa of Avila, as quoted by Malcolm Muggeridge, “The Great Liberal Death Wish,” *Imprimis,* May 1979, Hillsdale College, Michigan).
 
-Some will even come out of the kingdom of the devil, which the Lord has promised to shake in order to stir some therein to repentance (see [[2 Nephi 28.19|2 Ne. 28:19]]). These souls, bruised but believing, will have fought their way through guerrilla territory, searching for spiritual liberty even as forces in the world seek “to overthrow the freedom of all lands, nations, and countries” ([[Ether 8.25|Ether 8:25]]).
+Some will even come out of the kingdom of the devil, which the Lord has promised to shake in order to stir some therein to repentance (see [[2 Nephi 28.19|2 Ne. 28:19]]). These souls, bruised but believing, will have fought their way through guerrilla territory, searching for spiritual liberty even as forces in the world seek “to overthrow the freedom of all lands, nations, and countries” ([[Ether 8.25|Ether 8:25]]).
 
 New arrivals are not asked to renounce their country or that which is good in their culture. All must, however, let go of the things which injure the soul, and there are some such things in every life and in every culture.
 
@@ -24,7 +24,7 @@ The workers who come to the Lord’s vineyard in the last hour will receive the 
 
 The story is told of the first two marines ever—in the American revolutionary war. One boarded a ship mere minutes ahead of the other. When the second man came on board, all enthused about being a marine, the earlier arrival scornfully said, “You should have been here in the old outfit!”
 
-Paul said we should not expect the social register to enter the Church en masse (see [[1 Corinthians 1.26|1 Cor. 1:26]]). Besides, a *Who’s Who* is not needed in a church which teaches us all our real identity and which features a democracy of dress in the holy temples.
+Paul said we should not expect the social register to enter the Church en masse (see [[1 Corinthians 1.26|1 Cor. 1:26]]). Besides, a *Who’s Who* is not needed in a church which teaches us all our real identity and which features a democracy of dress in the holy temples.
 
 Arrivés will come into the Church as its leaders are cruelly caricatured by some in the world. For perspective, imagine how television’s six o’clock news would have portrayed Noah as he worked on his ark day by day. Besides, attention from the Adversary is merely a cruel form of commendation, if we can but stand the “praise.”
 
@@ -42,7 +42,7 @@ Involve newcomers quickly in the Lord’s work. They have been called to his vin
 
 Let us listen lovingly and encouragingly as all newcomers utter their first halting public prayers and give their first tender talks, feeling unready and unworthy—but so glad to belong. We can tell them, by the way, that the sense of inadequacy never seems to go away.
 
-However, what we now are as a people is clearly not enough, for “Zion must increase in beauty, and in holiness” ([[D&C 82.14|D&C 82:14]]). As in the time of Alma, the bad conduct of a few members slows the work (see [[Alma 39.11|Alma 39:11]]). Indeed, Zion will not be fully redeemed until after we have been first chastened (see [[D&C 100.13|D&C 100:13]]). Let us, therefore, not be too long-suffering with our own shortcomings. And when we are given thorns in the flesh, let us not demand to see the rose garden (see [[2 Corinthians 12.7|2 Cor. 12:7]])!
+However, what we now are as a people is clearly not enough, for “Zion must increase in beauty, and in holiness” ([[D&C 82.14|D&C 82:14]]). As in the time of Alma, the bad conduct of a few members slows the work (see [[Alma 39.11|Alma 39:11]]). Indeed, Zion will not be fully redeemed until after we have been first chastened (see [[D&C 100.13|D&C 100:13]]). Let us, therefore, not be too long-suffering with our own shortcomings. And when we are given thorns in the flesh, let us not demand to see the rose garden (see [[2 Corinthians 12.7|2 Cor. 12:7]])!
 
 Let us participate in the rigorous calisthenics of daily improvement, and not just in the classroom rhetoric of eternal progression!
 
@@ -52,11 +52,11 @@ Whether old-timers, returnees, or recruits, we must all finally make that “mig
 
 If there are disappointments, let us not turn away but turn to, remembering Peter’s immortal interrogative of the Savior, “Lord, to whom shall we go?” ([[John 6.68|John 6:68]]). There is, my brothers and sisters, no other “plan of happiness” (see [[Alma 42.8|Alma 42:8]]), only multiple-choice misery.
 
-Let all of us be filled with quiet wonder, but also with quiet determination concerning the marvelous things we have been called to do in such stress-filled times, “for the Lord shall comfort Zion. … Joy and gladness shall be found therein, thanksgiving and the voice of melody.” ([[2 Nephi 8.3|2 Ne. 8:3]].)
+Let all of us be filled with quiet wonder, but also with quiet determination concerning the marvelous things we have been called to do in such stress-filled times, “for the Lord shall comfort Zion. … Joy and gladness shall be found therein, thanksgiving and the voice of melody.” ([[2 Nephi 8.3|2 Ne. 8:3]].)
 
 As we build a holier Zion, with “the voice of melody” we will sing those lyrics—“All is well, all is well” (“Come, Come, Ye Saints,” *Hymns,* no. 13)—but sometimes as a reassuring sob as well as a song, awaiting the promised day when “sorrow and sighing shall flee away” ([[Isaiah 35.10|Isa. 35:10]]).
 
-With Paul, we can say, “We are troubled on every side, yet not distressed; we are perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed” ([[2 Corinthians 4.8|2 Cor. 4:8–9]][[2 Corinthians 4.9|]])—perhaps adding, “We are confronted, but not surprised; we are falsely accused, but pray for our accusers; we are reviled, but respond with Christian service.” Brothers and sisters, we can be walking witnesses and standing sermons to which objective onlookers can say a quiet amen.
+With Paul, we can say, “We are troubled on every side, yet not distressed; we are perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed” ([[2 Corinthians 4.8|2 Cor. 4:8–9]][[2 Corinthians 4.9|]])—perhaps adding, “We are confronted, but not surprised; we are falsely accused, but pray for our accusers; we are reviled, but respond with Christian service.” Brothers and sisters, we can be walking witnesses and standing sermons to which objective onlookers can say a quiet amen.
 
 The Savior has told us that just as when the fig tree puts forth its leaves, we may know that summer is nigh, so it will be with his second coming (see [[Luke 21.28|Luke 21:28–30]][[Luke 21.29|]][[Luke 21.30|]]). The foreseen summer of circumstances is now upon us. Let us not, therefore, complain of the heat!
 
@@ -64,9 +64,7 @@ The Savior will be in our midst saying, “Fear not, little flock” (see [[D&C 
 
 There will be no more questions then about the historicity of Jesus of Nazareth. For the faithful “of every kind,” gladly gathered into his gospel net, there never was any question—only answers!
 
-Meanwhile, may God help us to receive more effectively all newcomers and returnees to Zion—even as God has so mercifully received us into his Church. There will be one more regal reception at the gate, where Jesus is the sole gatekeeper. He awaits us there, not only to certify us, but because his divine love brings him to welcome us. Hence he “employeth no servant there” ([[2 Nephi 9.41|2 Ne. 9:41]]). May we be ready to be so received, as he leads us with his “kindly light,” I pray in the name of Jesus Christ, amen.
-
-
+Meanwhile, may God help us to receive more effectively all newcomers and returnees to Zion—even as God has so mercifully received us into his Church. There will be one more regal reception at the gate, where Jesus is the sole gatekeeper. He awaits us there, not only to certify us, but because his divine love brings him to welcome us. Hence he “employeth no servant there” ([[2 Nephi 9.41|2 Ne. 9:41]]). May we be ready to be so received, as he leads us with his “kindly light,” I pray in the name of Jesus Christ, amen.
 
 
 

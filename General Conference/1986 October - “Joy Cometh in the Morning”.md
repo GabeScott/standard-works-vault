@@ -6,7 +6,7 @@ By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1986/10/joy-cometh-in-the-morning?lang=eng)
 
-The title of my message is taken from the thirtieth Psalm, verse 5 \[[[Psalms 30.5|Ps. 30:5]]\]: “Joy cometh in the morning.” As I discussed this scripture with members of our family, they recalled that “men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]), but they had not pondered the intriguing concept that “joy cometh in the morning.”
+The title of my message is taken from the thirtieth Psalm, verse 5 \[[[Psalms 30.5|Ps. 30:5]]\]: “Joy cometh in the morning.” As I discussed this scripture with members of our family, they recalled that “men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]), but they had not pondered the intriguing concept that “joy cometh in the morning.”
 
 One of our family said, “News reports appear almost daily concerning people who have problems with drugs, drinking, and emotional distress. How can they, and we, attain the joy spoken of in the scriptures?”
 
@@ -20,7 +20,7 @@ As I so counseled my family in that conversation, we all might consider those th
 
 ## Courtesy to Companions
 
-Joy in the morning begins with courtesy to companions. When shades of slumber first admit the light of dawn, I reach gently for my beloved companion nearby. I gain sweet reassurance that all is well with her even before my eyes are fully opened. That reminds me, incidentally, of advice given by President David O. McKay, who said, “During courtship we should keep our eyes wide open, but after marriage keep them half-shut” (in Conference Report, Apr. 1956, p. 9).
+Joy in the morning begins with courtesy to companions. When shades of slumber first admit the light of dawn, I reach gently for my beloved companion nearby. I gain sweet reassurance that all is well with her even before my eyes are fully opened. That reminds me, incidentally, of advice given by President David O. McKay, who said, “During courtship we should keep our eyes wide open, but after marriage keep them half-shut” (in Conference Report, Apr. 1956, p. 9).
 
 My sweetheart has done that. Through our many long years of postgraduate study, professional responsibilities, and a growing family, she did not complain. Recently I overheard a conversation she had with young mothers enduring similar stress. They asked her how she had managed with ten children and a husband whose time to help was so limited. Kindness was reflected in her reply: “Through our struggling years I didn’t expect much, so I was rarely disappointed.”
 
@@ -36,7 +36,7 @@ And joy is derived in Church service. Alma so expressed this thought: “That pe
 
 Through service in the temples, the concept of courtesy to companions can be nobly extended to those who have passed beyond the veil. The gospel brings glad tidings for the dead and a voice of gladness for the living and the dead—for all, glad tidings of great joy (see [[D&C 128.19|D&C 128:19]]).
 
-Even when death’s veil separates us from parents who gave so much that we might be, their righteous influence continues with us. And as they may watch from windows of heaven, their mornings will be brighter if they can truly say, as did the Apostle, “I have no greater joy than to hear that my children walk in truth” ([[3 John 1.4|3 Jn. 1:4]]).
+Even when death’s veil separates us from parents who gave so much that we might be, their righteous influence continues with us. And as they may watch from windows of heaven, their mornings will be brighter if they can truly say, as did the Apostle, “I have no greater joy than to hear that my children walk in truth” ([[3 John 1.4|3 Jn. 1:4]]).
 
 Above all, courtesy to companions cannot be defiled by disobedience to the law of chastity. That sin is joy’s deadly poison. The first morning’s glance in the mirror cannot reflect joy if there is any recollection of misdeeds the night before. The surest step toward joy in the morning is virtue in the evening! Virtue includes courtesy to companions all day long.
 
@@ -62,7 +62,7 @@ I learned long ago that a period of uninterrupted scriptural study in the mornin
 
 Joy cometh in the morning when personal talents are developed. Each of us is blessed with different potential. I don’t think I could get up early enough to become a portrait painter. But I have appreciated teachings since my earliest childhood from parents who knew the joy that good music brings. And some of the sweetest sounds in our home have been those from songs and instruments of children improving their talents.
 
-Even in Old Testament days, “David spake to the chief of the Levites to appoint their brethren to be the singers with instruments of musick, … sounding, by lifting up the voice with joy” ([[1 Chronicles 15.16|1 Chr. 15:16]]).
+Even in Old Testament days, “David spake to the chief of the Levites to appoint their brethren to be the singers with instruments of musick, … sounding, by lifting up the voice with joy” ([[1 Chronicles 15.16|1 Chr. 15:16]]).
 
 Confidence to begin each morning ready to meet the challenges of the day comes from spiritual self-esteem.
 
@@ -70,17 +70,17 @@ Confidence to begin each morning ready to meet the challenges of the day comes f
 
 “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
+“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
 
 Physical conditioning from regular exercise is important. And we can do so much more to keep our bodies strong.
 
 In 1833 the Prophet Joseph Smith received the Word of Wisdom by revelation. It includes these simple directives: We are not to drink alcohol, tea, or coffee, and we are not to use tobacco. Prophets in our generation and in this conference have told us also to avoid harmful drugs. Now medical science increasingly confirms the physical benefits of compliance with these teachings.
 
-The damaging effects of alcohol are so widely known, additional comment is hardly needed. Harm inflicted by alcohol has been demonstrated, for example, by a study of the relationship between alcohol consumption among expectant mothers and the birth weight of their newborn infants. Findings published from the U. S. National Institutes of Health disclosed that consumption of one to two alcoholic drinks a day was associated with a substantially increased risk of producing a growth-retarded infant (see James L. Mills, et. al., “Maternal Alcohol consumption and Birth Weight,” *Journal of the American Medical Association,* 12 Oct. 1984, pp. 1875–79).
+The damaging effects of alcohol are so widely known, additional comment is hardly needed. Harm inflicted by alcohol has been demonstrated, for example, by a study of the relationship between alcohol consumption among expectant mothers and the birth weight of their newborn infants. Findings published from the U. S. National Institutes of Health disclosed that consumption of one to two alcoholic drinks a day was associated with a substantially increased risk of producing a growth-retarded infant (see James L. Mills, et. al., “Maternal Alcohol consumption and Birth Weight,” *Journal of the American Medical Association,* 12 Oct. 1984, pp. 1875–79).
 
-Scientists now know that smoking tobacco is the number one preventable cause of death in all the world. It is the leading preventable cause of heart disease, lung disease, artery disease, and cancer (see William W. Pollin and R. T. Ravenholt, “Tobacco Addiction and Tobacco Mortality,” *Journal of the American Medical Association,* 23 Nov. 1984, pp. 2849–54; *1986 Heart Facts,* American Heart Association, 1986, p. 16; “The Health Consequences of Smoking: A Report of the Surgeon General,” publication DHHS (PHS) 84-50204, U.S. Department of Health and Human Services, Public Health Services, Office of Smoking and Health, Rockville, Md., 1983).
+Scientists now know that smoking tobacco is the number one preventable cause of death in all the world. It is the leading preventable cause of heart disease, lung disease, artery disease, and cancer (see William W. Pollin and R. T. Ravenholt, “Tobacco Addiction and Tobacco Mortality,” *Journal of the American Medical Association,* 23 Nov. 1984, pp. 2849–54; *1986 Heart Facts,* American Heart Association, 1986, p. 16; “The Health Consequences of Smoking: A Report of the Surgeon General,” publication DHHS (PHS) 84-50204, U.S. Department of Health and Human Services, Public Health Services, Office of Smoking and Health, Rockville, Md., 1983).
 
-Still another report indicates that more than one-fourth of all deaths in the United States are now caused by conditions which physicians classify as addictive disorders (see Pollin and Ravenholt, p. 2849).
+Still another report indicates that more than one-fourth of all deaths in the United States are now caused by conditions which physicians classify as addictive disorders (see Pollin and Ravenholt, p. 2849).
 
 Obedience to the Word of Wisdom keeps one free from all such addictions. This protection is pronounced by covenant in the last verse of the eighty-ninth section of the Doctrine and Covenants:
 
@@ -108,17 +108,15 @@ The dawning of a brighter day heralds a time of forgiveness. Shadows of yesterda
 
 Joy comes from our posterity, and we rejoice as they are blessed by the ordinances of salvation and exaltation.
 
-Our family experienced that in a special way recently as our youngest daughter was sealed to her eternal companion in the holy temple. To witness this event, along with other family members, were her parents and all eight of her older sisters and their husbands. For us, there was truly joy in the morning on that day. Then we really felt the scriptural truth, “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]).
+Our family experienced that in a special way recently as our youngest daughter was sealed to her eternal companion in the holy temple. To witness this event, along with other family members, were her parents and all eight of her older sisters and their husbands. For us, there was truly joy in the morning on that day. Then we really felt the scriptural truth, “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]).
 
-These experiences, glorious as they are, become but prelude to that great day ahead, when the faithful will stand at the latter day upon the earth. They shall abide the Second Coming of the Lord and shall stand with him when he appears (see [[Malachi 3.2|Mal. 3:2–12]][[Malachi 3.3|]][[Malachi 3.4|]][[Malachi 3.5|]][[Malachi 3.6|]][[Malachi 3.7|]][[Malachi 3.8|]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]; [[3 Nephi 24.2|3 Ne. 24:2–12]][[3 Nephi 24.3|]][[3 Nephi 24.4|]][[3 Nephi 24.5|]][[3 Nephi 24.6|]][[3 Nephi 24.7|]][[3 Nephi 24.8|]][[3 Nephi 24.9|]][[3 Nephi 24.10|]][[3 Nephi 24.11|]][[3 Nephi 24.12|]]). On that joyous morning, the mirror will reflect the miracle of the first resurrection. The faithful shall be crowned with glory, immortality, and eternal life (see [[D&C 75.5|D&C 75:5]]; [[D&C 138.51|138:51]]).
+These experiences, glorious as they are, become but prelude to that great day ahead, when the faithful will stand at the latter day upon the earth. They shall abide the Second Coming of the Lord and shall stand with him when he appears (see [[Malachi 3.2|Mal. 3:2–12]][[Malachi 3.3|]][[Malachi 3.4|]][[Malachi 3.5|]][[Malachi 3.6|]][[Malachi 3.7|]][[Malachi 3.8|]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]; [[3 Nephi 24.2|3 Ne. 24:2–12]][[3 Nephi 24.3|]][[3 Nephi 24.4|]][[3 Nephi 24.5|]][[3 Nephi 24.6|]][[3 Nephi 24.7|]][[3 Nephi 24.8|]][[3 Nephi 24.9|]][[3 Nephi 24.10|]][[3 Nephi 24.11|]][[3 Nephi 24.12|]]). On that joyous morning, the mirror will reflect the miracle of the first resurrection. The faithful shall be crowned with glory, immortality, and eternal life (see [[D&C 75.5|D&C 75:5]]; [[D&C 138.51|138:51]]).
 
 Once again “morning stars \[will\] sing together, and … all the sons \[and daughters\] of God \[will\] shout for joy!” ([[D&C 128.23|D&C 128:23]]; see also [[Job 38.7|Job 38:7]]). For on that morning, “the glory of the Lord shall be revealed, and all flesh shall see it together” ([[Isaiah 40.5|Isa. 40:5]]; see also [[Ezekiel 20.48|Ezek. 20:48]]; [[Luke 3.6|Luke 3:6]]; [[D&C 101.23|D&C 101:23]]).
 
-Then, “there’ll be peace and contentment evermore, ev’ry heart, ev’ry voice on that day will rejoice. … There’ll be joy in the morning on that day” (Natalie Sleeth, “Joy in the Morning,” Carol Stream, Illinois: Hope Publishing Co., 1977, pp. 4–5, 9–10). It shall be ours—through our faithfulness—I testify in the name of Jesus Christ, amen.
+Then, “there’ll be peace and contentment evermore, ev’ry heart, ev’ry voice on that day will rejoice. … There’ll be joy in the morning on that day” (Natalie Sleeth, “Joy in the Morning,” Carol Stream, Illinois: Hope Publishing Co., 1977, pp. 4–5, 9–10). It shall be ours—through our faithfulness—I testify in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Joy #Self-Esteem #Word_Of_Wisdom
+#Joy #Self-esteem #WordOfWisdom

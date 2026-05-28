@@ -1,6 +1,6 @@
 # I Know It. I Live It. I Love It.
 
-By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
+By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -48,14 +48,14 @@ At a Young Women leadership meeting in Eugene, Oregon, I had the privilege of me
 
 Sister Wilberger’s 19-year-old daughter, Brooke, was tragically killed several years ago while on summer break after her first year at university. Sister Wilberger recalled, “It was a difficult and dark time for our family. However, Brooke had given us a great gift. We didn’t recognize this as she was growing up, but every single year and moment of her brief life, Brooke had given us the greatest gift a daughter could give her parents. Brooke was a righteous daughter of God. … Because of this gift and especially because of the enabling power of the Atonement, I have had strength, comfort, and the Savior’s promised peace. I have no question where Brooke is now and look forward to our loving reunion.”[^9]
 
-I have a testimony of our Heavenly Father’s great plan of eternal happiness. I know that He knows us and loves us. I know that He has prepared a prophet, President Thomas S. Monson, to encourage us and help guide us back to Him. I pray that each of us will put forth the effort to be able to confidently declare, “I’m a Mormon. I know it. I live it. I love it.” I say these things humbly in the name of Jesus Christ, amen.
+I have a testimony of our Heavenly Father’s great plan of eternal happiness. I know that He knows us and loves us. I know that He has prepared a prophet, President Thomas S. Monson, to encourage us and help guide us back to Him. I pray that each of us will put forth the effort to be able to confidently declare, “I’m a Mormon. I know it. I live it. I love it.” I say these things humbly in the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[Romans 1.16|Romans 1:16]].
 
-[^2]: George Q. Cannon, in *Teachings of Presidents of the Church: Joseph Smith* (2007), 261.
+[^2]: George Q. Cannon, in *Teachings of Presidents of the Church: Joseph Smith* (2007), 261.
 
 [^3]: *Teachings: Joseph Smith,* 265; see also Martha Jane Knowlton Coray, notebook, Church History Library, Salt Lake City.
 
@@ -70,7 +70,5 @@ I have a testimony of our Heavenly Father’s great plan of eternal happiness. I
 [^8]: [[Luke 22.42|Luke 22:42]].
 
 [^9]: Personal correspondence.
-
-
 
 #Commitment #Obedience

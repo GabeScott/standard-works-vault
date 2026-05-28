@@ -79,7 +79,7 @@ May God bless us to honor each virtuous woman, I pray in the name of Jesus Chris
 
 [^1]: See [[D&C 23.3|D&C 23:3]].
 
-[^2]: Many scriptures teach us to honor our parents. See [[Exodus 20.12|Ex. 20:12]]; [[Deuteronomy 5.16|Deut. 5:16]]; [[Matthew 15.4|Matt. 15:4]]; [[Matthew 19.19|19:19]]; [[Mark 7.10|Mark 7:10]]; [[Mark 10.19|10:19]]; [[Luke 18.20|Luke 18:20]]; [[Ephesians 6.2|Eph. 6:2]]; [[1 Nephi 17.55|1 Ne. 17:55]]; [[Mosiah 13.20|Mosiah 13:20]]; JST, Matt. 19:19 (The Holy Scriptures: Inspired Version); [[JST Mark 7.12|JST, Mark 7:12]], Bible appendix.
+[^2]: Many scriptures teach us to honor our parents. See [[Exodus 20.12|Ex. 20:12]]; [[Deuteronomy 5.16|Deut. 5:16]]; [[Matthew 15.4|Matt. 15:4]]; [[Matthew 19.19|19:19]]; [[Mark 7.10|Mark 7:10]]; [[Mark 10.19|10:19]]; [[Luke 18.20|Luke 18:20]]; [[Ephesians 6.2|Eph. 6:2]]; [[1 Nephi 17.55|1 Ne. 17:55]]; [[Mosiah 13.20|Mosiah 13:20]]; JST, Matt. 19:19 (The Holy Scriptures: Inspired Version); [[JST Mark 7.12|JST, Mark 7:12]], Bible appendix.
 
 [^3]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (1965–75), 6:178. In 1935 the First Presidency stated, “The true spirit of the Church of Jesus Christ of Latter-day Saints gives to woman the highest place of honor in human life” (in *Messages of the First Presidency,* 6:5).
 
@@ -101,6 +101,4 @@ May God bless us to honor each virtuous woman, I pray in the name of Jesus Chris
 
 [^12]: See [[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]]; [[D&C 68.25|D&C 68:25–31]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]][[D&C 68.29|]][[D&C 68.30|]][[D&C 68.31|]].
 
-
-
-#Children #Family #Fatherhood #Home #Joy #Marriage #Media #Motherhood #Parenthood #Plan_Of_Salvation #Priesthood #Respect #Satan #Women
+#Children #Family #Fatherhood #Home #Joy #Marriage #Media #Motherhood #Parenthood #PlanOfSalvation #Priesthood #Respect #Satan #Women

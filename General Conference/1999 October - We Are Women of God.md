@@ -40,7 +40,7 @@ This summer I had an unforgettable experience in the Holy Land. As I sat on the 
 
 Twenty years ago at this very meeting President Kimball made a statement we have quoted ever since: “Much of the major growth that is coming to the Church in the last days … will happen to the degree that the women of the Church reflect righteousness and articulateness in their lives and to the degree that \[they\] are seen as *distinct* and *different*—in happy ways—from the women of the world” (*Ensign,* Nov. 1979, 103–4; emphasis added). We can no longer be content to just quote President Kimball. We are the sisters who must and will make his prophecy a reality. But we can do it. I know we can.
 
-President Gordon B. Hinckley said recently that “the eternal salvation of the world … rests upon the shoulders of this Church. … No other people in the history of the world have received … \[a\] more compelling mandate … , and we’d better be getting at it” (“‘Church Is Really Doing Well,’” *Church News,* 3 July 1999, 3).
+President Gordon B. Hinckley said recently that “the eternal salvation of the world … rests upon the shoulders of this Church. … No other people in the history of the world have received … \[a\] more compelling mandate … , and we’d better be getting at it” (“‘Church Is Really Doing Well,’” *Church News,* 3 July 1999, 3).
 
 Women of God, that includes us. Tonight I invite each of us to identify at least one thing we can do to come out of the world and come closer to Christ. And then next month, another. And then another. Sisters, this is a call to arms, it’s a call to action, a call to arise. A call to arm ourselves with power and with righteousness. A call to rely on the arm of the Lord rather than the arm of flesh. A call to “arise and shine forth, that \[our\] light may be a standard for the nations” ([[D&C 115.5|D&C 115:5]]). A call to *live* as women of God so that we and our families may return safely home.
 
@@ -49,6 +49,4 @@ We have such cause to rejoice, for the gospel of Jesus Christ *is* the voice of 
 
 
 
-
-
-#Atonement #Family #Jesus_Christ #Plan_Of_Salvation #Relief_Society #Satan #Women #Worldliness
+#Atonement #Family #JesusChrist #PlanOfSalvation #ReliefSociety #Satan #Women #Worldliness

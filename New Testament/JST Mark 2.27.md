@@ -4,6 +4,3 @@
 
 [JST Mark 2:27](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-mark/2?lang=eng)
 
-
-
-

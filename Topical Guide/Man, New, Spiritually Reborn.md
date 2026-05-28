@@ -1,7 +1,6 @@
 # Man, New, Spiritually Reborn
 
-
-*See also* [[Conversion, Convert.md|Conversion]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Sanctification, Sanctify.md|Sanctification]]
+*See also* [[Conversion.md|Conversion]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Sanctification.md|Sanctification]]
 
 God gave him another *heart*, [[1 Samuel 10.9|1 Samuel 10:9]].
 
@@ -43,9 +42,9 @@ we have no more *disposition* to do evil, but to do good, [[Mosiah 5.2|Mosiah 5:
 
 ye are *born* of him and have become his sons, [[Mosiah 5.7|Mosiah 5:7]].
 
-all mankind ... must be *born* again; yea, born of God, [[Mosiah 27.25|Mosiah 27:25]].
+all mankind … must be *born* again; yea, born of God, [[Mosiah 27.25|Mosiah 27:25]].
 
-have ye spiritually been *born* of God, [[Alma 5.14|Alma 5:14]] ([[Alma 5.7|Alma 5:7]], [[Alma 5.8|Alma 5:8]], [[Alma 5.9|Alma 5:9]], [[Alma 5.10|Alma 5:10]], [[Alma 5.11|Alma 5:11]], [[Alma 5.12|Alma 5:12]], [[Alma 5.13|Alma 5:13]], [[Alma 5.14|Alma 5:14]][[Alma 5.26|Alma 5:26]], [[Alma 5.27|Alma 5:27]], [[Alma 5.28|Alma 5:28]]).
+have ye spiritually been *born* of God, [[Alma 5.14|Alma 5:14]].
 
 they must repent and be *born* again, [[Alma 5.49|Alma 5:49]] ([[Alma 7.14|Alma 7:14]]).
 
@@ -64,5 +63,3 @@ possessor of all things except he be *purified*, [[D&C 50.28|D&C 50:28]].
 ye must be *born* again into the kingdom of heaven, [[Moses 6.59|Moses 6:59]].
 
 he was *born* of the Spirit, and became quickened, [[Moses 6.65|Moses 6:65]].
-
-*See also* [[John 5.24|John 5:24]]; [[John 8.51|John 8:51]]; [[1 Peter 2.24|1 Peter 2:24]]; [[1 John 3.14|1 John 3:14]]; [[D&C 76.69|D&C 76:69]].

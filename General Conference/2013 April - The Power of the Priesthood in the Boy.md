@@ -1,6 +1,6 @@
 # The Power of the Priesthood in the Boy
 
-By Elder Tad R. Callister - *Of the Presidency of the Seventy*
+By Elder Tad R. Callister - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -8,13 +8,13 @@ By Elder Tad R. Callister - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/04/the-power-of-the-priesthood-in-the-boy?lang=eng)
 
-In 1878 my great-grandfather George F. Richards was 17 years of age. As was sometimes the case in those days, he had already been ordained an elder. One Sunday his mother was groaning in intense pain. As his father was not available, the bishop and several others were invited to give her a blessing, but no relief came. Accordingly, she turned to her son George and asked him to lay hands on her head. He wrote in his diary, “In the midst of my tears for my mother’s suffering and the task of performing an administration such as I had never yet done, I retired to another room where I wept and prayed.”
+In 1878 my great-grandfather George F. Richards was 17 years of age. As was sometimes the case in those days, he had already been ordained an elder. One Sunday his mother was groaning in intense pain. As his father was not available, the bishop and several others were invited to give her a blessing, but no relief came. Accordingly, she turned to her son George and asked him to lay hands on her head. He wrote in his diary, “In the midst of my tears for my mother’s suffering and the task of performing an administration such as I had never yet done, I retired to another room where I wept and prayed.”
 
 When he became composed, he laid his hands on her and gave her a very simple blessing. He later noted, “My mother ceased her groaning and received relief from her suffering while my hands were yet on her head.” He then recorded in his diary this most insightful observation. He said he had always felt that the reason his mother did not get relief from the bishop’s blessing was not because the Lord failed to honor the bishop’s blessing but because the Lord had reserved this blessing for a boy, to teach him a lesson that the priesthood in the boy is just as powerful as the priesthood in the man when exercised in righteousness.
 
 Tonight I would like to speak about that power. Though I will refer to deacons quorum presidents, the principles discussed apply to all Aaronic Priesthood youth and their respective leaders, including our teachers quorum presidents and assistants to the priests quorum president.
 
-While serving as a mission president, I observed that there was a dramatic increase in the spirituality and leadership skills of young men during their mission years. If we could somehow quantify these qualities over their Aaronic Priesthood and mission years, perhaps they would look something like the blue line you see on this graph. In my mind there are at least three key factors that contribute to such dramatic growth in the mission years: (1) we trust these young men as never before, (2) we have high but loving expectations of them, and (3) we train and retrain them so they can fulfill those expectations with excellence.
+While serving as a mission president, I observed that there was a dramatic increase in the spirituality and leadership skills of young men during their mission years. If we could somehow quantify these qualities over their Aaronic Priesthood and mission years, perhaps they would look something like the blue line you see on this graph. In my mind there are at least three key factors that contribute to such dramatic growth in the mission years: (1) we trust these young men as never before, (2) we have high but loving expectations of them, and (3) we train and retrain them so they can fulfill those expectations with excellence.
 
 One might appropriately ask, “Why could not these same principles be employed with deacons quorum presidents?” If that were done, perhaps the growth would commence much earlier and look more like the green line on the graph. For a moment, may I address how these principles might apply to a deacons quorum president.
 
@@ -26,7 +26,7 @@ Inherent in every calling in this Church is the right to receive revelation. Hen
 
 A wise leader will teach the deacons quorum president those principles that will be helpful in obtaining revelation. He may teach him the unequivocal promise of the Lord: “If thou shalt ask, thou shalt receive revelation upon revelation” ([[D&C 42.61|D&C 42:61]]). The Lord is most generous in giving revelation. Did He not remind Joseph Smith and Oliver Cowdery, “As often as thou hast inquired thou hast received instruction of my Spirit” ([[D&C 6.14|D&C 6:14]])? And so it can be with you deacons quorum presidents. The Lord loves you and wants to reveal to you His mind and will. Could you ever imagine the Lord having a problem He could not solve? I can’t. Because you are entitled to revelation, He can help you solve every concern you have as president of your quorum if you will but seek His help.
 
-You wonderful leaders might teach this deacons quorum president that revelation is not a substitute for hard work and homework. President Henry B. Eyring once asked President Harold B. Lee, “How do I get revelation?” President Lee responded, “If you want to get revelation, do your homework.”[^1] The wise leader might discuss with his deacons quorum president some of the spiritual homework he might do in preparing to recommend his counselors. He might need to ask and answer questions such as: Who would be a good example that could lift the other boys? Or who would be sensitive to the needs of those who face special challenges?
+You wonderful leaders might teach this deacons quorum president that revelation is not a substitute for hard work and homework. President Henry B. Eyring once asked President Harold B. Lee, “How do I get revelation?” President Lee responded, “If you want to get revelation, do your homework.”[^1] The wise leader might discuss with his deacons quorum president some of the spiritual homework he might do in preparing to recommend his counselors. He might need to ask and answer questions such as: Who would be a good example that could lift the other boys? Or who would be sensitive to the needs of those who face special challenges?
 
 And finally this wise leader might teach him how to recognize and act upon revelation when it comes. We live in an action-packed, fast-paced world where bright lights and high-volume speakers are the norm. But this young man needs to know that this is the world’s way, not the Lord’s way. The Savior was born in the relative anonymity of a manger; He performed the most magnificent and incomparable act of all time in the quiet of a garden; and Joseph received his First Vision in the seclusion of a grove. God’s answers come by the still, small voice—feelings of peace or comfort, impressions to do good, enlightenment—sometimes in the form of tiny seeds of thoughts which if reverenced and nourished can grow into spiritual redwoods. Sometimes these impressions or thoughts might even cause you deacons quorum presidents to recommend as a counselor or extend an assignment to a young man who is currently less active.
 
@@ -44,7 +44,7 @@ I replied, “Do you want us now to call someone else to serve as stake clerk wh
 
 And do it he did. There are not only many men but also many boys who will respond to a call when they know the Lord is calling them and that the Lord needs them.
 
-Next you can let this deacons quorum president know that one of the Lord’s expectations of him is to rescue the lost, both less active and nonmember. The Lord declared His central mission in these terms: “For the Son of man is come to save that which was lost” ([[Matthew 18.11|Matthew 18:11]]). If it is a priority of the Savior to rescue the lost, if it is a priority of President Thomas S. Monson to do so, as demonstrated by his entire life, should it not be a priority of every leader, every deacons quorum president in this Church to do likewise? At the core of our leadership, as a central part of our ministry, should be the burning, driving, unrelenting resolve to go get the lost and bring them back.
+Next you can let this deacons quorum president know that one of the Lord’s expectations of him is to rescue the lost, both less active and nonmember. The Lord declared His central mission in these terms: “For the Son of man is come to save that which was lost” ([[Matthew 18.11|Matthew 18:11]]). If it is a priority of the Savior to rescue the lost, if it is a priority of President Thomas S. Monson to do so, as demonstrated by his entire life, should it not be a priority of every leader, every deacons quorum president in this Church to do likewise? At the core of our leadership, as a central part of our ministry, should be the burning, driving, unrelenting resolve to go get the lost and bring them back.
 
 One young man who was visited by his quorum members said, “It was surprising today when … 30 people just came up to my house. … It makes me want to go to church now.” How can a youth resist love and attention like that?
 
@@ -59,5 +59,6 @@ If you deacons quorum presidents will magnify your calling, you will be instrume
 
 
 
+[^1]: In Henry B. Eyring, “Waiting Upon the Lord,” in *Brigham Young University 1990–91 Devotional and Fireside Speeches* (1991), 17; available at speeches.byu.edu.
 
 #Activation #Leadership #Priesthood #Trust

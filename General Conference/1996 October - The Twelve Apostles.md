@@ -30,7 +30,7 @@ The Melchizedek Priesthood, the consummate authority given to man from God, was 
 
 The First Presidency was in place by 1833; then two years later, in February of 1835, came the Quorum of the Twelve Apostles. And that is as it should be. The First Presidency came first in sequence and stands first in authority. And true to the pattern, it was made of men called from the ordinary pursuits of life.
 
-With the First Presidency and the Quorum of the Twelve in place, with the offices of the Seventy and the Presiding Bishopric revealed, the proper order of things prevails. But there is a difference. Perhaps President J. Reuben Clark said it best: “Some of the General Authorities \[the Apostles\] have had assigned to them a special calling; they possess a special gift; they are sustained as prophets, seers, and revelators, which gives them a special spiritual endowment in connection with their teaching of \[this\] people. They have the right, the power, and the authority to declare the mind and will of God to his people, subject to the overall power and authority of the President of the Church. Others of the General Authorities are not given this special spiritual endowment … ; the resulting limitation … applies to every other officer and member of the Church, for none of them is spiritually endowed as a prophet, seer, and revelator.”[^7]
+With the First Presidency and the Quorum of the Twelve in place, with the offices of the Seventy and the Presiding Bishopric revealed, the proper order of things prevails. But there is a difference. Perhaps President J. Reuben Clark said it best: “Some of the General Authorities \[the Apostles\] have had assigned to them a special calling; they possess a special gift; they are sustained as prophets, seers, and revelators, which gives them a special spiritual endowment in connection with their teaching of \[this\] people. They have the right, the power, and the authority to declare the mind and will of God to his people, subject to the overall power and authority of the President of the Church. Others of the General Authorities are not given this special spiritual endowment … ; the resulting limitation … applies to every other officer and member of the Church, for none of them is spiritually endowed as a prophet, seer, and revelator.”[^7]
 
 Furthermore, President Clark said that among those of the Twelve and the Presidency, “only the President of the Church, the Presiding High Priest, is sustained as Prophet, Seer, and Revelator for the Church, and he alone has the right to receive revelations for the Church, either new or amendatory, or to give authoritative interpretations of scriptures that shall be binding on the Church, or change in any way the existing doctrines of the Church.”[^8]
 
@@ -62,9 +62,9 @@ Some few within the Church openly, or perhaps far worse, in the darkness of anon
 
 “Cursed are all those that shall lift up the heel against mine anointed, saith the Lord, and cry they have sinned when they have not sinned … but have done that which was meet in mine eyes, and which I commanded them.
 
-“But those who cry transgression do it because they are the servants of sin, and are the children of disobedience themselves. …
+“But those who cry transgression do it because they are the servants of sin, and are the children of disobedience themselves. …
 
-“… Because they have offended my little ones they shall be severed from the ordinances of mine house.
+“… Because they have offended my little ones they shall be severed from the ordinances of mine house.
 
 “Their basket shall not be full, their houses and their barns shall perish, and they themselves shall be despised by those that flattered them.
 
@@ -115,7 +115,7 @@ There are limits to what the Spirit permits us to say.[^34] And so I close with 
 
 [^4]: [[Ephesians 4.14|Eph. 4:14]].
 
-[^5]: See [[Articles of Faith 1.6|A of F 1:6]]; [[Ephesians 2.20|Eph. 2:20]].
+[^5]: See [[Articles of Faith 1.6|A of F 1:6]]; [[Ephesians 2.20|Eph. 2:20]].
 
 [^6]: [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]].
 
@@ -127,7 +127,7 @@ There are limits to what the Spirit permits us to say.[^34] And so I close with 
 
 [^10]: [[D&C 112.17|D&C 112:17]]; see also [[D&C 107.35|D&C 107:35]]; [[D&C 124.128|124:128]].
 
-[^11]: Bible Dictionary, “[Apostle](https://churchofjesuschrist.org/study/scriptures/bd/apostle?lang=eng),” 612.
+[^11]: Bible Dictionary, “[[BD Apostle|Apostle]],” 612.
 
 [^12]: [[D&C 112.19|D&C 112:19]].
 
@@ -137,7 +137,7 @@ There are limits to what the Spirit permits us to say.[^34] And so I close with 
 
 [^15]: Joseph Fielding Smith, *The Twelve Apostles* (address to seminary and institute faculty, 18 June 1958), 6.
 
-[^16]: [[2 Nephi 32.3|2 Ne. 32:3]].
+[^16]: [[2 Nephi 32.3|2 Ne. 32:3]].
 
 [^17]: [[Moroni 7.31|Moro. 7:31–32]][[Moroni 7.32|]].
 
@@ -149,7 +149,7 @@ There are limits to what the Spirit permits us to say.[^34] And so I close with 
 
 [^21]: [[D&C 112.9|D&C 112:9]].
 
-[^22]: [[Isaiah 29.21|Isa. 29:21]]; see also [[2 Nephi 27.32|2 Ne. 27:32]].
+[^22]: [[Isaiah 29.21|Isa. 29:21]]; see also [[2 Nephi 27.32|2 Ne. 27:32]].
 
 [^23]: [[D&C 121.16|D&C 121:16–17, 19–21]][[D&C 121.17|]][[D&C 121.19|]][[D&C 121.20|]][[D&C 121.21|]].
 
@@ -167,7 +167,7 @@ There are limits to what the Spirit permits us to say.[^34] And so I close with 
 
 [^30]: [[D&C 124.45|D&C 124:45]].
 
-[^31]: [[3 Nephi 12.1|3 Ne. 12:1]].
+[^31]: [[3 Nephi 12.1|3 Ne. 12:1]].
 
 [^32]: [[D&C 124.45|D&C 124:45]].
 
@@ -177,6 +177,4 @@ There are limits to what the Spirit permits us to say.[^34] And so I close with 
 
 [^35]: [[D&C 1.30|D&C 1:30]].
 
-
-
-#Angels #Family #Holy_Ghost #Prophets #Quorum_Of_The_Twelve_Apostles #Restoration #Testimony #Unity
+#Angels #Family #HolyGhost #QuorumOfTheTwelveApostles #Prophets #Restoration #Testimony #Unity

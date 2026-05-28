@@ -75,6 +75,4 @@ May we grow in faith through the love and blessing of our Lord and Savior. May w
 
 
 
-
-
-#Faith #Plan_Of_Salvation #Prayer
+#Faith #PlanOfSalvation #Prayer

@@ -1,18 +1,18 @@
 # The Long Line of the Lonely
 
-By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1981/04/the-long-line-of-the-lonely?lang=eng)
 
-Today I desire to preach no sermon nor deliver a formal message. Rather, may I simply share with you my innermost thoughts. President David O. McKay referred to such as “heart petals.” I open to your view a window to my soul.
+Today I desire to preach no sermon nor deliver a formal message. Rather, may I simply share with you my innermost thoughts. President David O. McKay referred to such as “heart petals.” I open to your view a window to my soul.
 
 The Epistle of James has long been a favorite book of the Holy Bible. I find his brief message heart-warming and filled with life. Each of us can quote that well-known passage, “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.” ([[James 1.5|James 1:5]].) How many of us, however, remember his definition of religion? “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” ([[James 1.27|James 1:27]].)
 
 The word *widow* appears to have had a most significant meaning to our Lord. He cautioned His disciples to beware the example of the scribes, who feigned righteousness by their long apparel and their lengthy prayers, but who devoured the houses of widows. (See [[Mark 12.38|Mark 12:38, 40]][[Mark 12.40|]].)
 
-To the Nephites came the direct warning, “I will come near to you to judgment; and I will be a swift witness against … those that oppress the … widow.” ([[3 Nephi 24.5|3 Ne. 24:5]].)
+To the Nephites came the direct warning, “I will come near to you to judgment; and I will be a swift witness against … those that oppress the … widow.” ([[3 Nephi 24.5|3 Ne. 24:5]].)
 
 To the Prophet Joseph Smith He directed, “The storehouse shall be kept by the consecrations of the church; and widows and orphans shall be provided for, as also the poor.” ([[D&C 83.6|D&C 83:6]].)
 
@@ -34,7 +34,7 @@ The ranks of those in special need grow larger day by day. Note the obituary pag
 
 After the funeral flowers fade, the well wishes of friends become memories, the prayers offered and words spoken dim in the corridors of the mind. Those who grieve frequently join that vast throng I shall entitle “The Long Line of the Lonely.” Missed is the laughter of children, the commotion of teenagers, and the tender, loving concern of a departed companion. The clock ticks more loudly, time passes more slowly, and four walls do indeed a prison make.
 
-Hopefully, all of us may again hear the echo of words spoken by the Master: “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
+Hopefully, all of us may again hear the echo of words spoken by the Master: “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
 
 As we resolve to minister more diligently to those in need, let us remember to include our children in these learning lessons of life.
 
@@ -74,7 +74,7 @@ At another nursing home on First South, we might interrupt, as I did a few years
 
 Let’s hurry along to Redwood Road. There is a much larger home here where many widows reside. Most are seated in the well-lighted living room. But in her bedroom, alone, is one on whom I must call. She hasn’t spoken a word since a devastating stroke some years ago. But then, who knows what she hears?—so I speak of good times together. There isn’t a flicker of recognition, not a word spoken. In fact, an attendant asks if I am aware that this patient hasn’t uttered a word for years. It made no difference. Not only had I enjoyed my one-sided conversation with her—I had communed with God.
 
-When our beloved President Spencer W. Kimball met recently with those from a country where want is present, he asked not regarding statistics, but rather inquired: “Do our people have enough to eat? Are the widows cared for?” He was concerned.
+When our beloved President Spencer W. Kimball met recently with those from a country where want is present, he asked not regarding statistics, but rather inquired: “Do our people have enough to eat? Are the widows cared for?” He was concerned.
 
 During the administration of President George Albert Smith, there lived in our ward an impoverished widow who cared for her three mature daughters, each of whom was an invalid. They were large in size and almost totally helpless. To this dear woman fell the task to bathe, to feed, to dress, and to care for her girls. Means were limited. Outside help was nonexistent. Then came the blow that the house she rented was to be sold. What was she to do? Where would she go? The bishop came to the Church Office Building to inquire if there were some way the house could be purchased. It was so small, the price so reasonable. The request was considered, then denied.
 
@@ -95,6 +95,4 @@ May we see that special star, may we hear that same salutation, is my humble pra
 
 
 
-
-
-#Charity #Single_Members
+#Charity #SingleMembers

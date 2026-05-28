@@ -1,6 +1,5 @@
 # Lift
 
-
 *See also* [[Exalt.md|Exalt]]; [[Magnify.md|Magnify]]
 
 *lift* thou up thy rod, [[Exodus 14.16|Exodus 14:16]].
@@ -35,9 +34,9 @@ men pray every where, *lifting* up holy hands, [[1 Timothy 2.8|1 Timothy 2:8]].
 
 *lift* up the hands which hang down, [[Hebrews 12.12|Hebrews 12:12]].
 
-Humble yourselves ... and he shall *lift* you up, [[James 4.10|James 4:10]].
+Humble yourselves … and he shall *lift* you up, [[James 4.10|James 4:10]].
 
-angel ... *lifted* up his hand to heaven, [[Revelation 10.5|Revelation 10:5]].
+angel … *lifted* up his hand to heaven, [[Revelation 10.5|Revelation 10:5]].
 
 he was *lifted* up upon the cross, [[1 Nephi 11.33|1 Nephi 11:33]].
 
@@ -47,13 +46,13 @@ Gentiles are *lifted* up in the pride of their eyes, [[2 Nephi 26.20|2 Nephi 26:
 
 ye are *lifted* up in the pride of your hearts, [[Jacob 2.13|Jacob 2:13]] ([[Mormon 8.28|Mormon 8:28]]).
 
-not belong to their church ... being *lifted* up in the pride of their own eyes, [[Alma 1.32|Alma 1:32]].
+not belong to their church … being *lifted* up in the pride of their own eyes, [[Alma 1.32|Alma 1:32]].
 
 hearts were *lifted* up unto great boasting, [[Alma 31.25|Alma 31:25]].
 
 seek to get gain that they might be *lifted* up, [[Helaman 6.17|Helaman 6:17]].
 
-as he *lifted* up the brazen serpent ... so shall he be *lifted* up who should come, [[Helaman 8.14|Helaman 8:14]].
+as he *lifted* up the brazen serpent … so shall he be *lifted* up who should come, [[Helaman 8.14|Helaman 8:14]].
 
 thou shalt be *lifted* up at the last day, [[D&C 5.35|D&C 5:35]].
 

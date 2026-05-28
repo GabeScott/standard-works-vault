@@ -1,6 +1,5 @@
 # Content
 
-
 *See also* [[Contentment.md|Contentment]]; [[Satisfy.md|Satisfy]]
 
 be *content* with your wages, [[Luke 3.14|Luke 3:14]].

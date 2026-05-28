@@ -44,7 +44,15 @@ There is a question in both the Old and the New Testaments: “What is man, that
 
 The answer is taught most simply in the song we sang together at the intermission of the meeting:
 
-I am a child of God,And He has sent me here,Has given me an earthly homeWith parents kind and dear. …I am a child of God,Rich blessings are in store;If I but learn to do his willI’ll live with him once more.(*Sing with Me,* B-76.)
+>I am a child of God,
+>And He has sent me here,
+>Has given me an earthly home
+>With parents kind and dear. …
+>
+>Rich blessings are in store;
+>If I but learn to do his will
+>I’ll live with him once more.
+>
 
 ## Children of God
 
@@ -140,7 +148,7 @@ Paul used the plural *many* and the singular *one* in the same verse:
 
 “For though there be that are called gods, whether in heaven or in earth, (as there be gods many, and lords many,)
 
-“But to us there is but one God, the Father.” ([[1 Corinthians 8.5|1 Cor. 8:5–6]][[1 Corinthians 8.6|]].)
+“But to us there is but one God, the Father.” ([[1 Corinthians 8.5|1 Cor. 8:5–6]][[1 Corinthians 8.6|]].)
 
 Anyone who believes and teaches of God the Father, and accepts the divinity of Christ, and of the Holy Ghost, teaches a plurality of Gods.
 
@@ -158,7 +166,11 @@ The Apostle Paul understood this doctrine and wrote to the Philippians:
 
 Lorenzo Snow, a modern Apostle, wrote a poem to his ancient counterpart Paul, from which I quote only one verse:
 
-A Son of God, like God to be,Would not be robbing Deity,And he who has this hope within,Will purify himself from sin.(*Improvement Era,* June 1919, p. 661.)
+>A Son of God, like God to be,
+>Would not be robbing Deity,
+>And he who has this hope within,
+>Will purify himself from sin.
+>
 
 ## Purity
 
@@ -172,7 +184,7 @@ We did not invent this doctrine. Much of it was preserved in the Bible as it was
 
 With the restoration of the fulness of the gospel came the Book of Mormon, Another Testament of Jesus Christ. Other revelations were given and continue to be given, and verses which seemed to oppose one another have harmony.
 
-The Prophet Joseph Smith said, “It is the first principle of the Gospel to know for a certainty the Character of God.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co. 1938, p. 345.)
+The Prophet Joseph Smith said, “It is the first principle of the Gospel to know for a certainty the Character of God.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co. 1938, p. 345.)
 
 And that knowledge is given us.
 
@@ -188,13 +200,11 @@ There are those who mock our beliefs in the most uncharitable ways. And we will 
 
 We will strive with every exertion to teach what Christ taught, to live as He lived, to endure as He endured.
 
-We began with this question: “What is man that thou art mindful of him?” Christ, our Redeemer, our Elder Brother, asked, “What manner of men ought ye to be?” And then He answered, “Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+We began with this question: “What is man that thou art mindful of him?” Christ, our Redeemer, our Elder Brother, asked, “What manner of men ought ye to be?” And then He answered, “Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 I bear solemn witness that Jesus is the Christ, the Only Begotten of the Father in the flesh; that He is our Redeemer, our Savior; that God is our Father. This we know through the gift of the Holy Ghost. And I humbly but resolutely affirm that we will not, we cannot, stray from this doctrine. On this fundamental truth we will *never* yield! In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Divine_Nature #Family #God_The_Father #Opposition #Scriptures #Truth
+#DivineNature #Family #GodTheFather #Opposition #Scriptures #Truth

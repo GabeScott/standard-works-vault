@@ -7,6 +7,6 @@
 
 [^a]: [[Leviticus 8.13|Lev. 8:13]].  
 [^b]: HEB bind headdresses.  
-[^c]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]; [[Priesthood, Aaronic|Priesthood, Aaronic]]. [BD Priests](https://www.churchofjesuschrist.org/study/scriptures/bd/priests?lang=eng).  
+[^c]: [[Priest, Aaronic Priesthood|TG Priest, Aaronic Priesthood]]; [[Priesthood, Aaronic|Priesthood, Aaronic]]. [[BD Priests|BD Priests]].  
 [^d]: [[Exodus 27.21|Ex. 27:21]].  
 [^e]: [[Priesthood, Authority|TG Priesthood, Authority]].  

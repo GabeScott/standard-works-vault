@@ -45,6 +45,4 @@ Brothers and sisters, live the commandments. Do what is right. Take advantage of
 
 
 
-
-
-#Commandments #Family_History #God_The_Father #Jesus_Christ #Media #Restoration
+#Commandments #FamilyHistory #GodTheFather #JesusChrist #Media #Restoration

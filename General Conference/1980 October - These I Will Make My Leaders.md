@@ -1,6 +1,6 @@
 # These I Will Make My Leaders
 
-By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
+By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -36,7 +36,7 @@ A leader must be a good listener. He must be willing to take counsel. He must sh
 
 In my experience, the Holy Ghost moves to reprove with sharpness only very rarely. Any reproving should be done gently in an effort to convince the one being reproved that it is done in his own interest.
 
-President Joseph F. Smith reminds us:
+President Joseph F. Smith reminds us:
 
 “One of the highest qualities of all true leadership is a high standard of courage. … There has never been time in the Church when its leaders were not required to be courageous men; not alone courageous in the sense that they were able to meet physical dangers, but also in the sense that they were steadfast and true to a clear and upright conviction.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 155.)
 
@@ -44,7 +44,7 @@ With faith in the Lord and humility, a priesthood leader may confidently expect 
 
 After receiving such divine assurance by and through the power of the Holy Ghost, the humble leader can then pursue an unswerving course with the absolute conviction in mind and heart that that which is being done is on the right course and is what the Lord himself would do in the matter.
 
-I am impressed with the deep humility of President Kimball. Years ago he related an experience that emphasizes that the person in a Church position is not as great as the calling. Elder Spencer W. Kimball gives us this story:
+I am impressed with the deep humility of President Kimball. Years ago he related an experience that emphasizes that the person in a Church position is not as great as the calling. Elder Spencer W. Kimball gives us this story:
 
 “In a hotel in the Pocono Mountains of Pennsylvania long years ago, I learned an important lesson when the president of the Rotary International said to the district governors in the assembly:
 
@@ -58,11 +58,11 @@ Years ago I recall President John Kelly, who was then presiding over the Fort Wo
 
 Brethren, we can learn, we can study, we can comprehend the basic things we need to know as members of God’s holy priesthood. We can learn the giant truths and teach them with intelligence and understanding to those who come to learn. We can also lean upon the strengths of others whose talents are greater than our own. The priesthood quorum is designed to give opportunity for its members to contribute their talents to the building of a strong quorum.
 
-I come now to the genius of leadership, through the priesthood, in the government of the Church. I wish to quote President Stephen L Richards, who said:
+I come now to the genius of leadership, through the priesthood, in the government of the Church. I wish to quote President Stephen L Richards, who said:
 
 “As I conceive it, the genius of our Church government is government through *councils.* … Hardly a day passes but that I see the wisdom, God’s wisdom, in creating councils: to govern his Kingdom. In the spirit under which we labor, men can get together with seemingly divergent views and far different backgrounds, and under the operation of that spirit, by counseling together, they can arrive at an accord.” (In Conference Report, Oct. 1953, p. 86; italics added.)
 
-Counseling together as leaders is the key to the successful functioning of a presidency or a bishopric. But what if unity in decision making is difficult or is absent? President Joseph F. Smith gave us this advice:
+Counseling together as leaders is the key to the successful functioning of a presidency or a bishopric. But what if unity in decision making is difficult or is absent? President Joseph F. Smith gave us this advice:
 
 “When bishops and their counselors do not see eye to eye, or when presidents and their counselors have any difference whatever in their sentiments or in their policy, it is their duty to get together, to go before the Lord together and humble themselves before him until they get revelation from the Lord and see the truth alike, that they may go before their people unitedly” (*Gospel Doctrine,* p. 156).
 
@@ -96,7 +96,7 @@ Sometimes leaders hold the reins too tightly, often limiting the natural talents
 
 Leadership does not always produce a harmonious symphony of faith, skills, and talents of the group, producing maximum effectiveness and power. It is sometimes a loud solo. President Lee taught a fuller meaning of the scripture, “Wherefore, now let every man learn his duty, and to act in the office in which he is appointed, in all diligence” ([[D&C 107.99|D&C 107:99]]). In addition to having all of us learn our duties, leaders should let, or permit, their associates to be fully effective within their own office and callings, and helpers should be fully clothed with appropriate authority.
 
-Recently Elder Howard W. Hunter effectively taught the Regional Representatives on this subject: “The story is told of how in ancient Greece, Alexander the Great went to the brilliant Diogenes who was busy doing some research. Alexander hovered about Diogenes anxiously and asked: ‘How can I help you?’ Diogenes replied simply: ‘Please stand out of my light!’”
+Recently Elder Howard W. Hunter effectively taught the Regional Representatives on this subject: “The story is told of how in ancient Greece, Alexander the Great went to the brilliant Diogenes who was busy doing some research. Alexander hovered about Diogenes anxiously and asked: ‘How can I help you?’ Diogenes replied simply: ‘Please stand out of my light!’”
 
 I pray that, by laboring diligently under the guidance of the Holy Spirit, those who have and will be called to leadership will see our duty clearer and have farther vision to set goals and chart a more righteous course.
 
@@ -107,6 +107,4 @@ That it may be so I pray humbly in the name of Jesus Christ, amen.
 
 
 
-
-
-#Conversion #Missionary_Work
+#Conversion #MissionaryWork

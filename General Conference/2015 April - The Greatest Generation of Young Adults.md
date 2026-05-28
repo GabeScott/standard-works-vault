@@ -1,6 +1,6 @@
 # The Greatest Generation of Young Adults
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -12,7 +12,7 @@ One of the great pleasures I enjoy as I travel throughout the world is the oppor
 
 During the October 2002 general priesthood meeting, I challenged bishops, parents, and prospective missionaries to “raise the bar” for full-time missionary service.
 
-I then said that “what we need … is the greatest generation of missionaries in the history of the Church. We need worthy, qualified, spiritually energized missionaries. …
+I then said that “what we need … is the greatest generation of missionaries in the history of the Church. We need worthy, qualified, spiritually energized missionaries. …
 
 “… We need your whole heart and soul. We need vibrant, thinking, passionate missionaries who know how to listen to and respond to the whisperings of the Holy Spirit.”[^1]
 
@@ -26,7 +26,7 @@ Fortunately the Lord has provided ways for us to reach out to you. For example, 
 
 Your photograph comes up on a computer screen, together with key information provided by your bishop and stake president. When your picture appears, we look into your eyes and review your answers to the missionary recommendation questions. For that brief moment, it seems as if you are present and responding to us directly.
 
-As we look at your photograph, we trust that you have cleared in every way the “raised bar” required today to be a faithful, successful missionary. Then, by the power of the Spirit of the Lord and under the direction of President Thomas S. Monson, we assign you to one of the Church’s 406 worldwide missions.
+As we look at your photograph, we trust that you have cleared in every way the “raised bar” required today to be a faithful, successful missionary. Then, by the power of the Spirit of the Lord and under the direction of President Thomas S. Monson, we assign you to one of the Church’s 406 worldwide missions.
 
 No, it isn’t the same as a personal, face-to-face interview. But it’s close.
 
@@ -87,16 +87,14 @@ Be strong, brethren. Keep the commandments of God. The Lord Jesus Christ promise
 
 
 
-[^1]: M. Russell Ballard, “The Greatest Generation of Missionaries,” *Ensign* or *Liahona,* Nov. 2002, 47.
+[^1]: M. Russell Ballard, “The Greatest Generation of Missionaries,” *Ensign* or *Liahona,* Nov. 2002, 47.
 
 [^2]: [[D&C 58.27|Doctrine and Covenants 58:27]].
 
-[^3]: See First Presidency letter, Apr. 21, 2011.
+[^3]: See First Presidency letter, Apr. 21, 2011.
 
 [^4]: See “New Religion Classes to Be Offered at Church Universities and Institutes of Religion,” [lds.org/topics/education/new-religion-classes](https://www.lds.org/topics/education/new-religion-classes).
 
 [^5]: See [[Mosiah 3.5|Mosiah 3:5–13]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]][[Mosiah 3.12|]][[Mosiah 3.13|]].
 
-
-
-#Dating #Discipleship #Institute #Jesus_Christ #Marriage #Seminary #Young_Single_Adults
+#Dating #Discipleship #Institute #JesusChrist #Marriage #Seminary #YoungSingleAdults

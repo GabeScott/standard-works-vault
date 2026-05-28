@@ -5,4 +5,4 @@
 [2 Nephi 16:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/16?lang=eng&id=p2#p2)
 
 
-[^a]: [[Cherubim|TG Cherubim]]. [BD Seraphim](https://www.churchofjesuschrist.org/study/scriptures/bd/seraphim?lang=eng).  
+[^a]: [[Cherubim|TG Cherubim]]. [[BD Seraphim|BD Seraphim]].  

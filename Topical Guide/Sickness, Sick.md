@@ -1,17 +1,16 @@
 # Sickness, Sick
 
-
-*See also* [[Administrations to the Sick.md|Administrations to the Sick]]; [[Disease, Diseased.md|Disease]]; [[Heal, Healing.md|Heal]]; [[Health.md|Health]]; [[Infirmity.md|Infirmity]]; [[Leprosy, Leper, Leprous.md|Leprosy]]
+*See also* [[Administrations to the Sick.md|Administrations to the Sick]]; [[Disease.md|Disease]]; [[Heal.md|Heal]]; [[Health.md|Health]]; [[Infirmity.md|Infirmity]]; [[Leprosy.md|Leprosy]]
 
 will take *sickness* away from the midst of thee, [[Exodus 23.25|Exodus 23:25]] ([[Deuteronomy 7.15|Deuteronomy 7:15]]).
 
-Lord will make ... sore *sicknesses*, and of long continuance, [[Deuteronomy 28.59|Deuteronomy 28:59]].
+Lord will make … sore *sicknesses*, and of long continuance, [[Deuteronomy 28.59|Deuteronomy 28:59]].
 
 she said, He is *sick*, [[1 Samuel 19.14|1 Samuel 19:14]].
 
 whatsoever plague, whatsoever *sickness* there be, [[1 Kings 8.37|1 Kings 8:37]].
 
-son ... fell sick ... and his *sickness* was so sore, [[1 Kings 17.17|1 Kings 17:17]].
+son … fell sick … and his *sickness* was so sore, [[1 Kings 17.17|1 Kings 17:17]].
 
 was Hezekiah *sick*, [[2 Kings 20.1|2 Kings 20:1]] ([[2 Chronicles 32.24|2 Chronicles 32:24]]; [[Isaiah 38.1|Isaiah 38:1]]).
 
@@ -23,7 +22,7 @@ make all his bed in his *sickness*, [[Psalms 41.3|Psalms 41:3]].
 
 Hope deferred maketh the heart *sick*, [[Proverbs 13.12|Proverbs 13:12]].
 
-stricken me ... and I was not *sick*, [[Proverbs 23.35|Proverbs 23:35]].
+stricken me … and I was not *sick*, [[Proverbs 23.35|Proverbs 23:35]].
 
 whole head is *sick*, [[Isaiah 1.5|Isaiah 1:5]].
 
@@ -39,9 +38,9 @@ healing all manner of *sickness*, [[Matthew 4.23|Matthew 4:23]].
 
 they brought unto him all *sick* people, [[Matthew 4.24|Matthew 4:24]].
 
-servant ... *sick* of the palsy, [[Matthew 8.6|Matthew 8:6]] ([[Luke 7.2|Luke 7:2]]).
+servant … *sick* of the palsy, [[Matthew 8.6|Matthew 8:6]] ([[Luke 7.2|Luke 7:2]]).
 
-wife's mother ... *sick* of a fever, [[Matthew 8.14|Matthew 8:14]] ([[Mark 1.30|Mark 1:30]]).
+wife’s mother … *sick* of a fever, [[Matthew 8.14|Matthew 8:14]] ([[Mark 1.30|Mark 1:30]]).
 
 healed all that were *sick*, [[Matthew 8.16|Matthew 8:16]] ([[Mark 1.34|Mark 1:34]]; [[Luke 4.40|Luke 4:40]]).
 
@@ -49,11 +48,11 @@ took our infirmities, and bare our *sicknesses*, [[Matthew 8.17|Matthew 8:17]].
 
 They that be whole need not a physician, but they that are *sick*, [[Matthew 9.12|Matthew 9:12]] ([[Mark 2.17|Mark 2:17]]; [[Luke 5.31|Luke 5:31]]).
 
-gave them power ... to heal all manner of *sickness*, [[Matthew 10.1|Matthew 10:1]] ([[Mark 3.15|Mark 3:15]]).
+gave them power … to heal all manner of *sickness*, [[Matthew 10.1|Matthew 10:1]] ([[Mark 3.15|Mark 3:15]]).
 
 Heal the *sick*, [[Matthew 10.8|Matthew 10:8]] ([[Luke 9.2|Luke 9:2]]; [[Luke 10.9|Luke 10:9]]).
 
-Jesus went forth ... and he healed their *sick*, [[Matthew 14.14|Matthew 14:14]].
+Jesus went forth … and he healed their *sick*, [[Matthew 14.14|Matthew 14:14]].
 
 I was *sick*, and ye visited me, [[Matthew 25.36|Matthew 25:36]].
 
@@ -95,11 +94,11 @@ they did heal the *sick*, and raise the dead, [[4 Nephi 1.5|4 Nephi 1:5]].
 
 they shall heal the *sick*, [[D&C 35.9|D&C 35:9]].
 
-*sick* ... shall be nourished ... with herbs, [[D&C 42.43|D&C 42:43]].
+*sick* … shall be nourished … with herbs, [[D&C 42.43|D&C 42:43]].
 
 desolating *sickness* shall cover the land, [[D&C 45.31|D&C 45:31]].
 
-remember in all things ... the *sick* and the afflicted, [[D&C 52.40|D&C 52:40]].
+remember in all things … the *sick* and the afflicted, [[D&C 52.40|D&C 52:40]].
 
 Lay your hands upon the *sick*, and they shall recover, [[D&C 66.9|D&C 66:9]].
 

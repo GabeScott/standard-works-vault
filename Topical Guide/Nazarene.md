@@ -1,4 +1,3 @@
 # Nazarene
 
-
-*See* [BD Nazarene](https://www.churchofjesuschrist.org/study/scriptures/bd/nazarene?lang=eng)
+*See also* [[BD Nazarene.md|BD Nazarene]]

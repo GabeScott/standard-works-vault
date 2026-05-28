@@ -1,11 +1,10 @@
 # Glorious
 
-
 *See also* [[Excellent.md|Excellent]]; [[Glorify.md|Glorify]]; [[Glory.md|Glory]]; [[Honorable.md|Honorable]]; [[Noble.md|Noble]]
 
 fear this *glorious* and fearful name, The Lord, [[Deuteronomy 28.58|Deuteronomy 28:58]].
 
-he shall be for a *glorious* throne to his father's, [[Isaiah 22.23|Isaiah 22:23]].
+he shall be for a *glorious* throne to his father’s, [[Isaiah 22.23|Isaiah 22:23]].
 
 delivered from the bondage of corruption into the *glorious* liberty, [[Romans 8.21|Romans 8:21]].
 

@@ -1,6 +1,6 @@
 # “Fear Not; I Am with Thee”
 
-By Jean A. Stevens - *First Counselor in the Primary General Presidency*
+By Jean A. Stevens - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -40,7 +40,7 @@ As Deric expressed, not every prayer is answered so quickly. But truly our Fathe
 
 We can trust that He will help us, not necessarily in the way we want but in the way that will best help us to grow. Submitting our will to His may be difficult, but it is essential to becoming like Him and finding the peace He offers us.
 
-We can come to feel, as C. S. Lewis described: “I pray because I can’t help myself. … I pray because the need flows out of me all the time, waking and sleeping. It doesn’t change God. It changes me.”[^3]
+We can come to feel, as C. S. Lewis described: “I pray because I can’t help myself. … I pray because the need flows out of me all the time, waking and sleeping. It doesn’t change God. It changes me.”[^3]
 
 There are many accounts in the scriptures of those who have put their trust in the Lord and who have been helped and delivered by Him. Think of young David, who escaped certain death at the hand of the mighty Goliath by relying on the Lord. Consider Nephi, whose pleadings to God in faith brought deliverance from his brothers who sought to take his life. Remember young Joseph Smith, who prayerfully sought the Lord’s help. He was delivered from the power of darkness and received a miraculous answer. Each faced real and difficult challenges. Each acted in faith and put his trust in the Lord. Each received His help. And still in our day, God’s power and love are manifest in the lives of His children.
 
@@ -67,11 +67,12 @@ I share my humble but certain witness that God our Father knows us personally an
 
 [^1]: [[Moses 1.39|Moses 1:39]].
 
-[^2]: [[1 Nephi 1.20|1 Nephi 1:20]].
+[^2]: [[1 Nephi 1.20|1 Nephi 1:20]].
 
-[^3]: Spoken by the character of C. S. Lewis as portrayed in William Nicholson, *Shadowlands* (1989), 103.
+[^3]: Spoken by the character of C. S. Lewis as portrayed in William Nicholson, *Shadowlands* (1989), 103.
 
 [^4]: Harry Emerson Fosdick, *Twelve Tests of Character* (1923), 88.
 
+[^5]: [[Isaiah 41.10|Isaiah 41:10]].
 
-#Adversity #Faith #God_The_Father #Prayer #Trust
+#Adversity #Faith #GodTheFather #Prayer #Trust

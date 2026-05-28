@@ -16,7 +16,7 @@ Resurrection is the reuniting of the body and the spirit. As Jesus was resurrect
 
 The scriptures teach us that there *is* promise beyond—that there *is* a reward for service rendered and for attainment. The reward is exaltation in the celestial kingdom of God. Exaltation is the highest of three degrees of glory in the celestial kingdom. The celestial kingdom is the highest of three kingdoms in the realm of immortality. Exaltation is earned by accepting Jesus Christ and His divine sonship and following His precepts.
 
-Jesus showed us the way. Its simplicity is encompassed in His Beatitudes, which have echoed down through the centuries of time and will yet echo through the millennia of time: “Blessed are the poor in spirit: for theirs is the kingdom of heaven.” ([[Matthew 5.3|Matt. 5:3]].) In repeating the Sermon on the Mount to the people in ancient America, He said it differently: “Blessed are the poor in spirit *who come unto me,* for theirs is the kingdom of heaven.” ([[3 Nephi 12.3|3 Ne. 12:3]]; italics added.) This addition, “who come unto me,” enables one to better understand the meaning of this verse. The Lord said he is angered with the inhabitants of the earth, for “they seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own god.” ([[D&C 1.16|D&C 1:16]].) The Beatitudes are steps we can take to come to Christ.
+Jesus showed us the way. Its simplicity is encompassed in His Beatitudes, which have echoed down through the centuries of time and will yet echo through the millennia of time: “Blessed are the poor in spirit: for theirs is the kingdom of heaven.” ([[Matthew 5.3|Matt. 5:3]].) In repeating the Sermon on the Mount to the people in ancient America, He said it differently: “Blessed are the poor in spirit *who come unto me,* for theirs is the kingdom of heaven.” ([[3 Nephi 12.3|3 Ne. 12:3]]; italics added.) This addition, “who come unto me,” enables one to better understand the meaning of this verse. The Lord said he is angered with the inhabitants of the earth, for “they seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own god.” ([[D&C 1.16|D&C 1:16]].) The Beatitudes are steps we can take to come to Christ.
 
 *Step 1.* To come unto Christ, one’s first step is to come forth with a broken heart and a contrite spirit that results in overcoming unrighteous pride and becoming submissive to His will.
 
@@ -24,7 +24,7 @@ Jesus showed us the way. Its simplicity is encompassed in His Beatitudes, which 
 
 *Step 3.* “Blessed are the meek: for they shall inherit the earth.” ([[Matthew 5.5|Matt. 5:5]].) The dictionary defines *meek* as “enduring injury with patience and without resentment.” This is an important virtue that one must develop in preparation for entrance into the celestial kingdom, which kingdom the earth will become when it is celestialized.
 
-*Step 4.* “Blessed are they which do hunger and thirst after righteousness: for they shall be filled.” ([[Matthew 5.6|Matt. 5:6]].) The scripture from ancient America adds, “shall be filled with the Holy Ghost.” ([[3 Nephi 12.6|3 Ne. 12:6]].)
+*Step 4.* “Blessed are they which do hunger and thirst after righteousness: for they shall be filled.” ([[Matthew 5.6|Matt. 5:6]].) The scripture from ancient America adds, “shall be filled with the Holy Ghost.” ([[3 Nephi 12.6|3 Ne. 12:6]].)
 
 A young man approached Socrates and asked him to be his tutor and to teach him what he knew. Socrates took the young man to the seaside and out into the water. Then he pushed his head under the water for almost too long. The young man struggled, came up gasping for air, and demanded the meaning of such an unwarranted action. The great Socrates responded, “When you want to learn as badly as you want a breath of air, only then can I teach you what you want to know.” To understand the gospel of Jesus Christ, one must first have a strong desire to learn and a willingness to study.
 
@@ -58,7 +58,7 @@ And where did Jesus go? He went to His Father. But before He went to His Father,
 
 The Lord said, “My people must be tried in all things, that they may be prepared to receive the glory that I have for them, even the glory of Zion; and he that will not bear chastisement is not worthy of my kingdom.” ([[D&C 136.31|D&C 136:31]].)
 
-At the conclusion of the Sermon on the Mount in the Holy Land, the Savior said, “Be ye therefore perfect, even as your Father which is in Heaven is perfect.” ([[Matthew 5.48|Matt. 5:48]].) But when the Savior repeated the Sermon on the Mount to the people of ancient America, He said, “Therefore I would that ye should be perfect *even as I,* or your Father who is in heaven is perfect.” ([[3 Nephi 12.48|3 Ne. 12:48]]; italics added.)
+At the conclusion of the Sermon on the Mount in the Holy Land, the Savior said, “Be ye therefore perfect, even as your Father which is in Heaven is perfect.” ([[Matthew 5.48|Matt. 5:48]].) But when the Savior repeated the Sermon on the Mount to the people of ancient America, He said, “Therefore I would that ye should be perfect *even as I,* or your Father who is in heaven is perfect.” ([[3 Nephi 12.48|3 Ne. 12:48]]; italics added.)
 
 Something important occurred between the time He taught this sermon to the people in the Holy Land and when He taught it to the people of ancient America. In the meantime, He went through His Gethsemane, where He drank the bitter cup and did not shrink. We too should strive for perfection, bear up under our problems and our sorrows, remain faithful to the end, and not shrink.
 
@@ -69,6 +69,4 @@ I testify that this restored gospel which we espouse is indeed the real truth an
 
 
 
-
-
-#Jesus_Christ #Plan_Of_Salvation #Resurrection
+#JesusChrist #PlanOfSalvation #Resurrection

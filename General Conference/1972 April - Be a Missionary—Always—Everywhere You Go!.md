@@ -1,6 +1,6 @@
 # Be a Missionary—Always—Everywhere You Go!
 
-By Elder William H. Bennett - *Assistant to the Council of the Twelve*
+By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -14,7 +14,7 @@ As I thought about what I might say today, I reminded myself of the mission of t
 
 Then in his Sermon on the Mount, the Savior said, “Be ye therefore perfect, even as your Father which is in heaven is perfect.” ([[Matthew 5.48|Matt. 5:48]].) In these words I find an expression of hope and confidence as well as a challenge from our Savior.
 
-I then thought about how the Church and the gospel can help men and women in reaching these great objectives. The words of President David O. McKay came to mind: “The purpose of the gospel is to make bad men good and good men better—to change men’s lives.”
+I then thought about how the Church and the gospel can help men and women in reaching these great objectives. The words of President David O. McKay came to mind: “The purpose of the gospel is to make bad men good and good men better—to change men’s lives.”
 
 I also contemplated the day-to-day operations of the Church and the performance of Church members in the stakes, wards, and missions as revealed in stake activity reports, genealogy reports, mission reports, etc.; and I realized that, while the Church and its members have moved forward and upward in many ways, there is much more that needs to be done.
 
@@ -42,7 +42,7 @@ Second, as members of the Church, it is our responsibility to assist the mission
 
 There are opportunities all around us if we are but alert to them. To illustrate this, I should like to share with you several personal experiences I have had over the years that bear this out and that have strengthened my own testimony, enriched my life, and enabled me to explain the gospel to others.
 
-The question, “What is the main obstacle to success in stake missionary work?” was asked by President S. Dilworth Young of a group of stake missionaries in the East Cache Stake some years ago. A lady missionary’s prompt reply was, “The failure of too many Latter-day Saints to live the gospel as Latter-day Saints should.”
+The question, “What is the main obstacle to success in stake missionary work?” was asked by President S. Dilworth Young of a group of stake missionaries in the East Cache Stake some years ago. A lady missionary’s prompt reply was, “The failure of too many Latter-day Saints to live the gospel as Latter-day Saints should.”
 
 As I have attended stake conferences, I have observed that this also applies to other stakes in the Church. We can and ought to do something to change this situation. We can change it by letting our lives be shining examples of the gospel of Jesus Christ in action.
 
@@ -50,7 +50,7 @@ During World War II, while serving with the 31st Infantry Division in the Dutch 
 
 As we proceeded on one particular patrol behind enemy lines, a native dog fell in with our group; and try as we would, we couldn’t get that dog to leave. I became concerned about this. Later on, however, its alertness caused us to be suspicious to the point where we took extra precautions as we proceeded on to lower ground after coming to a fork in the trail. Therefore, when the enemy opened fire shortly thereafter, we were not caught completely by surprise. Four men were wounded in the initial burst of fire, but not a single man lost his life. We were able to evacuate the wounded and withdraw to the rear under heavy machine gun and rifle fire without losing a single man.
 
-Sergeant Leslie E. Milam of Natchitoches, Louisiana, the only other Mormon in my company, was with me on this patrol. After we returned to the rear, he was contacted by Sergeant Dabbs, our platoon guide, who said that he was aware that Sergeant Milam and I had been meeting on Sundays, whenever conditions would permit, for short religious discussions. He indicated that he knew that our lives had been miraculously saved in this patrol, and he requested permission to meet with us in our next religious discussion. He did meet with us, and he was just as sincere as we were in expressing gratitude to our Father in heaven for his protection and watchful care.
+Sergeant Leslie E. Milam of Natchitoches, Louisiana, the only other Mormon in my company, was with me on this patrol. After we returned to the rear, he was contacted by Sergeant Dabbs, our platoon guide, who said that he was aware that Sergeant Milam and I had been meeting on Sundays, whenever conditions would permit, for short religious discussions. He indicated that he knew that our lives had been miraculously saved in this patrol, and he requested permission to meet with us in our next religious discussion. He did meet with us, and he was just as sincere as we were in expressing gratitude to our Father in heaven for his protection and watchful care.
 
 Shortly after this ambush, Private Collins, who went through the ambush with us, sought me out one night after dark and said, “Lieutenant Bennett, I think we had some help from on high out there the other day.”
 
@@ -99,6 +99,4 @@ I bear you my testimony that this work is true. God lives, and his Son Jesus Chr
 
 
 
-
-
-#Example #Missionary_Work
+#Example #MissionaryWork

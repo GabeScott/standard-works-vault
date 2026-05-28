@@ -1,6 +1,6 @@
 # Laying the Foundation of a Great Work
 
-By Elder Steven R. Bangerter - *Of the Seventy*
+By Elder Steven R. Bangerter - *Of the Seventy*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -10,7 +10,7 @@ By Elder Steven R. Bangerter - *Of the Seventy*
 
 As parents in Zion, we have a sacred duty to awaken within our children passion and commitment to the joy, light, and truths of the gospel of Jesus Christ. While raising our children, we establish traditions within our home and we build patterns of communication and behavior within our family relationships. In doing so, the traditions we establish should ingrain strong, unwavering characteristics of goodness in our children that will infuse them with strength to confront the challenges of life.
 
-For many years our family has enjoyed the annual tradition of camping high in the Uintah Mountains of northeastern Utah. We travel 20 miles (32 km) over a rocky dirt road to arrive at a beautiful green valley with towering canyon walls and through which runs a river filled with cold, clear water. Each year, hoping to reaffirm the value of gospel doctrine and practices within the hearts of our children and our grandchildren, Susan and I ask each of our six sons and their families to prepare a short message on a topic they feel is an important element in the foundation of a Christ-centered home. We then gather for a family devotional in a secluded place, and each presents their message.
+For many years our family has enjoyed the annual tradition of camping high in the Uintah Mountains of northeastern Utah. We travel 20 miles (32 km) over a rocky dirt road to arrive at a beautiful green valley with towering canyon walls and through which runs a river filled with cold, clear water. Each year, hoping to reaffirm the value of gospel doctrine and practices within the hearts of our children and our grandchildren, Susan and I ask each of our six sons and their families to prepare a short message on a topic they feel is an important element in the foundation of a Christ-centered home. We then gather for a family devotional in a secluded place, and each presents their message.
 
 This year our grandchildren wrote the topic of their message on stones and then, one by one, buried them next to one another, representing a sure foundation upon which a happy life is established. Woven among all six of their messages was the immutable, eternal truth that Jesus Christ is the cornerstone of that foundation.
 
@@ -18,7 +18,7 @@ In the words of Isaiah, “Therefore thus saith the Lord God, Behold, I lay in Z
 
 Lessons taught through the traditions we establish in our homes, though small and simple, are increasingly important in today’s world. What are the small and simple things that, when established, will perform a great work in the lives of our children?
 
-President Russell M. Nelson recently addressed a large congregation near Toronto, Canada, and poignantly reminded parents of the sacred responsibility we have to teach our children. Among the essential responsibilities identified, President Nelson emphasized the duties we have as parents to teach our children to understand why we partake of the sacrament, the significance of being born in the covenant, and the importance of preparing for and receiving a patriarchal blessing, and he encouraged parents to lead out in the reading of scriptures together as a family.[^3] By these efforts, our beloved prophet urges us to make our homes “sanctuaries of faith.”[^4]
+President Russell M. Nelson recently addressed a large congregation near Toronto, Canada, and poignantly reminded parents of the sacred responsibility we have to teach our children. Among the essential responsibilities identified, President Nelson emphasized the duties we have as parents to teach our children to understand why we partake of the sacrament, the significance of being born in the covenant, and the importance of preparing for and receiving a patriarchal blessing, and he encouraged parents to lead out in the reading of scriptures together as a family.[^3] By these efforts, our beloved prophet urges us to make our homes “sanctuaries of faith.”[^4]
 
 In the Book of Mormon, Enos records the profound gratitude he felt for the example of his father, who “taught \[him\] in his language, and also in the nurture and admonition of the Lord.” With great emotion, Enos exclaimed, “And blessed be the name of my God for it.”[^5]
 
@@ -61,14 +61,12 @@ The things we talk of, the things we preach and teach determine the things that 
 
 [^5]: [[Enos 1.1|Enos 1:1]].
 
-[^6]: See Dallin H. Oaks, “[[2005 October - Priesthood Authority in the Family and the Church.md|Priesthood Authority in the Family and the Church]],” *Ensign* or *Liahona,* Nov. 2005, 24–27.
+[^6]: See Dallin H. Oaks, “[[2005 October - Priesthood Authority in the Family and the Church.md|Priesthood Authority in the Family and the Church]],” *Ensign* or *Liahona,* Nov. 2005, 24–27.
 
 [^7]: [[Helaman 5.12|Helaman 5:12]].
 
 [^8]: [[Proverbs 22.6|Proverbs 22:6]].
 
 [^9]: [[Deuteronomy 6.7|Deuteronomy 6:7]].
-
-
 
 #Faith #Parenthood #Teaching #Traditions

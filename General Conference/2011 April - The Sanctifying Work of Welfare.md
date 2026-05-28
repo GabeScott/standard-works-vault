@@ -1,6 +1,6 @@
 # The Sanctifying Work of Welfare
 
-By Bishop H. David Burton - *Presiding Bishop*
+By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -8,21 +8,21 @@ By Bishop H. David Burton - *Presiding Bishop*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/the-sanctifying-work-of-welfare?lang=eng)
 
-Good morning, brothers and sisters. In 1897 a young David O. McKay stood at a door with a tract in his hand. As a missionary in Stirling, Scotland, he had done this many times before. But on that day a very haggard woman opened the door and stood before him. She was poorly dressed and had sunken cheeks and unkempt hair.
+Good morning, brothers and sisters. In 1897 a young David O. McKay stood at a door with a tract in his hand. As a missionary in Stirling, Scotland, he had done this many times before. But on that day a very haggard woman opened the door and stood before him. She was poorly dressed and had sunken cheeks and unkempt hair.
 
 She took the tract Elder McKay offered to her and spoke six words that he subsequently would never forget: “Will this buy me any bread?”
 
 This encounter left a lasting impression on the young missionary. He later wrote: “From that moment I had a deeper realization that the Church of Christ should be and is interested in the temporal salvation of man. I walked away from the door feeling that that \[woman\], with … bitterness in \[her heart\] toward man and God, \[was\] in no position to receive the message of the gospel. \[She was\] in need of temporal help, and there was no organization, so far as I could learn, in Stirling that could give it to \[her\].”[^1]
 
-A few decades later the world groaned under the burden of the Great Depression. It was during that time, on April 6, 1936, that President Heber J. Grant and his counselors, J. Reuben Clark and David O. McKay, announced what would later become known as the welfare program of the Church. Interestingly, two weeks later Elder Melvin J. Ballard was appointed as its first chairman and Harold B. Lee its first managing director.
+A few decades later the world groaned under the burden of the Great Depression. It was during that time, on April 6, 1936, that President Heber J. Grant and his counselors, J. Reuben Clark and David O. McKay, announced what would later become known as the welfare program of the Church. Interestingly, two weeks later Elder Melvin J. Ballard was appointed as its first chairman and Harold B. Lee its first managing director.
 
-This was no ordinary endeavor. Although the Lord had raised up remarkable souls to administer it, President J. Reuben Clark made it clear that “the setting up of the \[welfare\] machinery is the result of a revelation by the Holy Ghost to President Grant, that it has been carried on since that time by equivalent revelations which have come to the brethren who have had it in charge.”[^2]
+This was no ordinary endeavor. Although the Lord had raised up remarkable souls to administer it, President J. Reuben Clark made it clear that “the setting up of the \[welfare\] machinery is the result of a revelation by the Holy Ghost to President Grant, that it has been carried on since that time by equivalent revelations which have come to the brethren who have had it in charge.”[^2]
 
 The commitment of Church leaders to relieve human suffering was as certain as it was irrevocable. President Grant wanted “a system that would … reach out and take care of the people no matter what the cost.” He said he would even go so far as to “close the seminaries, shut down missionary work for a period of time, or even close the temples, but they would not let the people go hungry.”[^3]
 
-I was at President Gordon B. Hinckley’s side in Managua, Nicaragua, when he spoke to 1,300 members of the Church who had survived a devastating hurricane that claimed more than 11,000 lives. “As long as the Church has resources,” he said to them, “we will not let you go hungry or without clothing or without shelter. We shall do all that we can to assist in the way that the Lord has designated that it should be done.”[^4]
+I was at President Gordon B. Hinckley’s side in Managua, Nicaragua, when he spoke to 1,300 members of the Church who had survived a devastating hurricane that claimed more than 11,000 lives. “As long as the Church has resources,” he said to them, “we will not let you go hungry or without clothing or without shelter. We shall do all that we can to assist in the way that the Lord has designated that it should be done.”[^4]
 
-One of the distinguishing characteristics of this inspired, gospel-centered endeavor is its emphasis on personal responsibility and self-reliance. President Marion G. Romney explained: “Many programs have been set up by well-meaning individuals to aid those who are in need. However, many of these programs are designed with the shortsighted objective of ‘helping people,’ as opposed to ‘helping people help themselves.’”[^5]
+One of the distinguishing characteristics of this inspired, gospel-centered endeavor is its emphasis on personal responsibility and self-reliance. President Marion G. Romney explained: “Many programs have been set up by well-meaning individuals to aid those who are in need. However, many of these programs are designed with the shortsighted objective of ‘helping people,’ as opposed to ‘helping people help themselves.’”[^5]
 
 Self-reliance is a product of provident living and exercising economic self-discipline. From the beginning the Church has taught that families—to the extent they can—need to assume responsibility for their own temporal welfare. Each generation is required to learn anew the foundational principles of self-reliance: avoid debt, implement principles of thrift, prepare for times of distress, listen to and follow the words of the living oracles, develop the discipline to distinguish between needs and wants and then live accordingly.
 
@@ -42,7 +42,7 @@ Rather than allow their brothers and sisters to suffer hunger, the brethren of t
 
 A moment in time from my own family history exemplifies a commitment to care for those in need. Many have heard of the Willie and Martin handcart companies and how these faithful pioneers suffered and died as they endured winter cold and debilitating conditions during their trek west. Robert Taylor Burton, one of my great-great-grandfathers, was one of those whom Brigham Young asked to ride out and rescue those dear, desperate Saints.
 
-Of this time Grandfather wrote in his journal: “Snow deep \[and\] very cold. … So cold that \[we\] could not move. … Thermometer 11 degrees below zero \[-24°C\] … ; so cold the people could not travel.”[^12]
+Of this time Grandfather wrote in his journal: “Snow deep \[and\] very cold. … So cold that \[we\] could not move. … Thermometer 11 degrees below zero \[-24°C\] … ; so cold the people could not travel.”[^12]
 
 Life-saving supplies were distributed to the stranded Saints, but “in spite of all \[the rescuers\] could do many were laid to rest by the wayside.”[^13]
 
@@ -61,15 +61,15 @@ The work of caring for one another and being “kind to the poor” is a sanctif
 
 
 
-[^1]: *Cherished Experiences from the Writings of President David O. McKay,* comp. Clare Middlemiss (1955), 189.
+[^1]: *Cherished Experiences from the Writings of President David O. McKay,* comp. Clare Middlemiss (1955), 189.
 
-[^2]: J. Reuben Clark Jr., “Testimony of Divine Origin of Welfare Plan,” *Church News,* Aug. 8, 1951, 15; see also Glen L. Rudd, *Pure Religion: The Story of Church Welfare since 1930* (1995), 47.
+[^2]: J. Reuben Clark Jr., “Testimony of Divine Origin of Welfare Plan,” *Church News,* Aug. 8, 1951, 15; see also Glen L. Rudd, *Pure Religion: The Story of Church Welfare since 1930* (1995), 47.
 
-[^3]: Glen L. Rudd, *Pure Religion,* 34.
+[^3]: Glen L. Rudd, *Pure Religion,* 34.
 
-[^4]: Gordon B. Hinckley, in “President Hinckley Visits Hurricane Mitch Victims and Mid-Atlantic United States,” *Ensign,* Feb. 1999, 74.
+[^4]: Gordon B. Hinckley, in “President Hinckley Visits Hurricane Mitch Victims and Mid-Atlantic United States,” *Ensign,* Feb. 1999, 74.
 
-[^5]: Marion G. Romney, in Conference Report, Oct. 1982, 132; or *Ensign,* Nov. 1982, 91.
+[^5]: Marion G. Romney, in Conference Report, Oct. 1982, [[1982 October - The Celestial Nature of Self-reliance.md|132]]; or *Ensign,* Nov. 1982, 91.
 
 [^6]: See [[D&C 104.15|Doctrine and Covenants 104:15–18]][[D&C 104.16|]][[D&C 104.17|]][[D&C 104.18|]]; see also [[D&C 105.2|Doctrine and Covenants 105:2–3]][[D&C 105.3|]].
 
@@ -81,9 +81,9 @@ The work of caring for one another and being “kind to the poor” is a sanctif
 
 [^10]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 452.
 
-[^11]: Interview with Harold C. Brown, former Welfare Services Department managing director.
+[^11]: Interview with Harold C. Brown, former Welfare Services Department managing director.
 
-[^12]: Journal of Robert T. Burton, Church History Library, Salt Lake City, Nov. 2–6, 1856.
+[^12]: Journal of Robert T. Burton, Church History Library, Salt Lake City, Nov. 2–6, 1856.
 
 [^13]: Robert Taylor Burton, in Janet Burton Seegmiller, *“Be Kind to the Poor”: The Life Story of Robert Taylor Burton* (1988), 164.
 
@@ -91,10 +91,8 @@ The work of caring for one another and being “kind to the poor” is a sanctif
 
 [^15]: Robert Taylor Burton, in Seegmiller, *“Be Kind to the Poor,”* 416.
 
-[^16]: See Dieter F. Uchtdorf, in Conference Report, Apr. 2010, 68–71; or *Ensign,* May 2010, 68–70, 75.
+[^16]: See Dieter F. Uchtdorf, in Conference Report, Apr. 2010, [[2010 April - “You Are My Hands”.md|68–71]]; or *Ensign,* May 2010, 68–70, 75.
 
 [^17]: [[Luke 10.37|Luke 10:37]].
 
-
-
-#Charity #Self-Reliance #Service #Welfare
+#Charity #Self-reliance #Service #Welfare

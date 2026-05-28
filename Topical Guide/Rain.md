@@ -1,7 +1,6 @@
 # Rain
 
-
-*See also* [BD Rain](https://www.churchofjesuschrist.org/study/scriptures/bd/rain?lang=eng)
+*See also* [[BD Rain.md|BD Rain]]
 
 God had not caused it to *rain*, [[Genesis 2.5|Genesis 2:5]] ([[Moses 3.5|Moses 3:5]]; [[Abraham 5.5|Abraham 5:5]]).
 
@@ -11,7 +10,7 @@ I will *rain* bread from heaven for you, [[Exodus 16.4|Exodus 16:4]].
 
 I will give you *rain* in due season, [[Leviticus 26.4|Leviticus 26:4]].
 
-I will give ... the first *rain* and the latter *rain*, [[Deuteronomy 11.14|Deuteronomy 11:14]].
+I will give … the first *rain* and the latter *rain*, [[Deuteronomy 11.14|Deuteronomy 11:14]].
 
 My doctrine shall drop as the *rain*, [[Deuteronomy 32.2|Deuteronomy 32:2]].
 
@@ -51,11 +50,11 @@ sendeth *rain* on the just and on the unjust, [[Matthew 5.45|Matthew 5:45]].
 
 *rain* descended, and the floods came, [[Matthew 7.25|Matthew 7:25]] ([[3 Nephi 14.25|3 Nephi 14:25]]; [[D&C 90.5|D&C 90:5]]).
 
-he ... gave us *rain* from heaven, [[Acts 14.17|Acts 14:17]].
+he … gave us *rain* from heaven, [[Acts 14.17|Acts 14:17]].
 
 earth which drinketh in the *rain*, [[Hebrews 6.7|Hebrews 6:7]].
 
-Elias ... prayed earnestly that it might not *rain*, [[James 5.17|James 5:17]].
+Elias … prayed earnestly that it might not *rain*, [[James 5.17|James 5:17]].
 
 power to shut heaven, that it *rain* not, [[Revelation 11.6|Revelation 11:6]].
 
@@ -63,6 +62,6 @@ send forth *rain* upon the face of the earth, [[Helaman 11.13|Helaman 11:13]].
 
 *rains* and the floods have I sent forth, [[Ether 2.24|Ether 2:24]].
 
-inhabitants began to be destroyed ... for there was no *rain*, [[Ether 9.30|Ether 9:30]] ([[Ether 9.35|Ether 9:35]]).
+inhabitants began to be destroyed … for there was no *rain*, [[Ether 9.30|Ether 9:30]] ([[Ether 9.35|Ether 9:35]]).
 
 heavens weep, and shed forth their tears as the *rain* upon the mountains, [[Moses 7.28|Moses 7:28]].

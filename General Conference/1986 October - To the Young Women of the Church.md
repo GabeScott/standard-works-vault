@@ -12,7 +12,7 @@ Last April general conference I had a similar opportunity to speak to all the me
 
 Some of what I say this evening will be exactly what I said to the young men six months ago, and which I want you to know likewise applies directly to you. I shall discuss other matters with you this evening that apply only to you, as young sisters, and your sacred callings as daughters of our Father in Heaven.
 
-President David O. McKay said, “There is nothing so sacred as true womanhood” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, p. 353). I agree with that statement with all my heart.
+President David O. McKay said, “There is nothing so sacred as true womanhood” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, p. 353). I agree with that statement with all my heart.
 
 I appreciate so much the theme of your meeting this evening, “Abound in Hope.” It is an inspired theme.
 
@@ -80,9 +80,9 @@ Yes, one can repent of moral transgression. The miracle of forgiveness is real, 
 
 President Kimball was emphatic on this point. In his marvelous book *The Miracle of Forgiveness,* he stated:
 
-“That man \[or woman\] who resists temptation and lives without sin is far better off than the man \[or woman\] who has fallen, no matter how repentant the latter may be. …
+“That man \[or woman\] who resists temptation and lives without sin is far better off than the man \[or woman\] who has fallen, no matter how repentant the latter may be. …
 
-“How much better it is never to have committed the sin!” (Salt Lake City: Bookcraft, 1969, p. 357).
+“How much better it is never to have committed the sin!” (Salt Lake City: Bookcraft, 1969, p. 357).
 
 One of our fine stake presidents shared with us the following experience:
 
@@ -94,13 +94,13 @@ One of our fine stake presidents shared with us the following experience:
 
 Adultery, or anything like unto it, is abominable in the sight of the Lord. President Kimball also wisely observed:
 
-“Among the most common sexual sins our young people commit are necking and petting. Not only do these improper relations often lead to fornication, pregnancy, and abortion—all ugly sins—but in and of themselves they are pernicious evils, and it is often difficult for youth to distinguish where one ends and another begins. …
+“Among the most common sexual sins our young people commit are necking and petting. Not only do these improper relations often lead to fornication, pregnancy, and abortion—all ugly sins—but in and of themselves they are pernicious evils, and it is often difficult for youth to distinguish where one ends and another begins. …
 
-“Too often, young people dismiss their petting with a shrug of their shoulders as a *little* indiscretion, while admitting that fornication is a base transgression. Too many of them are shocked, or feign to be, when told that what they have done in the name of petting was in reality \[a form of\] fornication” (*The Miracle of Forgiveness,* pp. 65–66).
+“Too often, young people dismiss their petting with a shrug of their shoulders as a *little* indiscretion, while admitting that fornication is a base transgression. Too many of them are shocked, or feign to be, when told that what they have done in the name of petting was in reality \[a form of\] fornication” (*The Miracle of Forgiveness,* pp. 65–66).
 
 Young sisters, be modest. Modesty in dress and language and deportment is a true mark of refinement and a hallmark of a virtuous Latter-day Saint woman. Shun the low and the vulgar and the suggestive.
 
-Together with the young men of the Aaronic Priesthood, remember the scriptural injunction, “Be ye clean, that bear the vessels of the Lord” ([[Isaiah 52.11|Isa. 52:11]]; [[3 Nephi 20.41|3 Ne. 20:41]]).
+Together with the young men of the Aaronic Priesthood, remember the scriptural injunction, “Be ye clean, that bear the vessels of the Lord” ([[Isaiah 52.11|Isa. 52:11]]; [[3 Nephi 20.41|3 Ne. 20:41]]).
 
 Remember the story of Joseph in Egypt, who hearkened not to the wife of Potiphar and maintained his purity and virtue (see [[Genesis 39.7|Gen. 39:7–21]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]][[Genesis 39.13|]][[Genesis 39.14|]][[Genesis 39.15|]][[Genesis 39.16|]][[Genesis 39.17|]][[Genesis 39.18|]][[Genesis 39.19|]][[Genesis 39.20|]][[Genesis 39.21|]]).
 
@@ -112,23 +112,23 @@ We counsel you, young women, not to pollute your minds with such degrading matte
 
 Also, don’t listen to music that is degrading. Remember Elder Boyd K. Packer’s statement:
 
-“Music, once … innocent, now is often used for wicked purposes. …
+“Music, once … innocent, now is often used for wicked purposes. …
 
-“In our day music itself has been corrupted. Music can, by its tempo, by its beat, by its intensity \[and I would add, by its lyrics\], dull the spiritual sensitivity of men \[and women\]. …
+“In our day music itself has been corrupted. Music can, by its tempo, by its beat, by its intensity \[and I would add, by its lyrics\], dull the spiritual sensitivity of men \[and women\]. …
 
-“Young people,” Elder Packer goes on to say, “you cannot afford to fill your mind with this unworthy hard music of our day” (*Ensign,* Jan. 1974, pp. 25, 28).
+“Young people,” Elder Packer goes on to say, “you cannot afford to fill your mind with this unworthy hard music of our day” (*Ensign,* Jan. 1974, pp. 25, 28).
 
 Instead, we encourage you to listen to uplifting music, both popular and classical, that builds the spirit. Learn some favorite hymns from our new hymnbook that build faith and spirituality. Attend dances where the music and the lighting and the dance movements are conducive to the Spirit. Watch those shows and entertainment that lift the spirit and promote clean thoughts and actions. Read books and magazines that do the same.
 
 Remember, young women, the importance of proper dating. President Kimball gave some wise counsel on this subject:
 
-“Clearly, right marriage begins with right dating. … Therefore, this warning comes with great emphasis. Do not take the chance of dating nonmembers, or members who are untrained and faithless. A girl may say, ‘Oh, I do not intend to marry this person. It is just a “fun” date.’ But one cannot afford to take a chance on falling in love with someone who may never accept the gospel” (*The Miracle of Forgiveness,* pp. 241–42).
+“Clearly, right marriage begins with right dating. … Therefore, this warning comes with great emphasis. Do not take the chance of dating nonmembers, or members who are untrained and faithless. A girl may say, ‘Oh, I do not intend to marry this person. It is just a “fun” date.’ But one cannot afford to take a chance on falling in love with someone who may never accept the gospel” (*The Miracle of Forgiveness,* pp. 241–42).
 
 Our Heavenly Father wants you to date young men who are faithful members of the Church, who will be worthy to take you to the temple and be married the Lord’s way. There will be a new spirit in Zion when the young women will say to their boyfriends, “If you cannot get a temple recommend, then I am not about to tie my life to you, even for mortality!” And the young returned missionary will say to his girlfriend, “I am sorry, but as much as I love you, I will not marry out of the holy temple.”
 
 My young sisters, we have such hope for you. We have such great expectations for you. Don’t settle for less than what the Lord wants you to be.
 
-As the prophet Nephi exclaims in 2 Nephi 31:20 \[[[2 Nephi 31.20|2 Ne. 31:20]]\]: “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus sayeth the Father: Ye shall have eternal life.”
+As the prophet Nephi exclaims in 2 Nephi 31:20 \[[[2 Nephi 31.20|2 Ne. 31:20]]\]: “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus sayeth the Father: Ye shall have eternal life.”
 
 Yes, give me a young woman who loves home and family, who reads and ponders the scriptures daily, who has a burning testimony of the Book of Mormon. Give me a young woman who faithfully attends her church meetings, who is a seminary graduate, who has earned her Young Womanhood Recognition Award and wears it with pride! Give me a young woman who is virtuous and who has maintained her personal purity, who will not settle for less than a temple marriage, and I will give you a young woman who will perform miracles for the Lord now and throughout eternity.
 
@@ -157,6 +157,4 @@ Live up to your divine potential. Remember who you are and the divine heritage t
 
 
 
-
-
-#Church_Meetings #Family #Marriage #Missionary_Work #Morality #Patriarchal_Blessings #Scripture_Study #Women #Young_Women #Youth
+#ChurchMeetings #Family #Marriage #MissionaryWork #Morality #PatriarchalBlessings #ScriptureStudy #Women #YoungWomen #Youth

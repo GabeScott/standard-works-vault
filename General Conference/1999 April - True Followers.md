@@ -55,7 +55,7 @@ As His true followers, the Savior wants us to love others as He loves them—mor
 
 [^4]: [[John 14.26|John 14:26]].
 
-[^5]: [[3 Nephi 27.27|3 Ne. 27:27]].
+[^5]: [[3 Nephi 27.27|3 Ne. 27:27]].
 
 [^6]: [[Ether 12.34|Ether 12:34]].
 
@@ -85,6 +85,4 @@ As His true followers, the Savior wants us to love others as He loves them—mor
 
 [^19]: *Hymns,* no. 131.
 
-
-
-#Holy_Ghost #Jesus_Christ #Joy #Love #Missionary_Work #Motherhood #Obedience #Service
+#HolyGhost #Joy #JesusChrist #Love #MissionaryWork #Motherhood #Obedience #Service

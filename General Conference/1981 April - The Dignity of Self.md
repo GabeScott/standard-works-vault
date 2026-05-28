@@ -1,6 +1,6 @@
 # The Dignity of Self
 
-By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
+By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -10,9 +10,9 @@ By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 This morning I desire to say something which hopefully might give some help and perhaps another focus to the minds of young people. I have never felt more keenly the need for both the aid of the divine Spirit and the understanding of those who hear. I humbly pray that I might not be misunderstood.
 
-I should like to begin by relating a marvelous vision Joseph Smith the Prophet had concerning the Twelve Apostles in his day, which has profound significance for me. Heber C. Kimball recorded, “The following vision was manifested to him \[Joseph Smith\] as near as I can recollect:
+I should like to begin by relating a marvelous vision Joseph Smith the Prophet had concerning the Twelve Apostles in his day, which has profound significance for me. Heber C. Kimball recorded, “The following vision was manifested to him \[Joseph Smith\] as near as I can recollect:
 
-“He saw the Twelve going forth, and they appeared to be in a far distant land. After some time they unexpectedly met together, apparently in great tribulation, their clothes all ragged, and their knees and feet sore. They formed into a circle, and all stood with their eyes fixed upon the ground. The Savior appeared and stood in their midst and wept over them, and wanted to show Himself to them, but they did not discover Him.” (Orson F. Whitney, *Life of Heber C. Kimball,* 2d ed., Salt Lake City: Bookcraft, p. 93; see also *History of the Church,* 2:381.)
+“He saw the Twelve going forth, and they appeared to be in a far distant land. After some time they unexpectedly met together, apparently in great tribulation, their clothes all ragged, and their knees and feet sore. They formed into a circle, and all stood with their eyes fixed upon the ground. The Savior appeared and stood in their midst and wept over them, and wanted to show Himself to them, but they did not discover Him.” (Orson F. Whitney, *Life of Heber C. Kimball,* 2d ed., Salt Lake City: Bookcraft, p. 93; see also *History of the Church,* 2:381.)
 
 A message that can be inferred from this is that, because the Twelve had suffered so much, had endured so greatly, and had so exhausted themselves in leading the battle of righteousness, they were bowed down and did not look up. Had they only looked up they might have beheld the Lord Jesus, who wanted them to see him, weeping over them, suffering with them, and standing in their midst.
 
@@ -62,7 +62,7 @@ Like Stephen, those who pursue holiness see the glory of God. (See [[Acts 7.55|A
 
 “Verily, thus saith the Lord: It shall come to pass that every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall see my face and know that I am.” ([[D&C 93.1|D&C 93:1]].)
 
-As I began, I referred to the vision of Joseph the Prophet concerning the Twelve Apostles in his time. No one need assume that the Twelve who failed to see the Savior because they stood with their eyes fixed upon the ground had in any way failed in their labors. As a body they continued strong and steadfast in their ministry. Their discouragement was only temporary. Their labors were heroic; their acts were bold and courageous. Joseph the Prophet, at the conclusion of that vision, was privileged to see the completion of the work of the Twelve. Heber C. Kimball records: “He (Joseph) saw until they had accomplished their work, and arrived at the gate of the celestial city; there Father Adam stood and opened the gate to them, and as they entered he embraced them one by one and kissed them. He \[Adam\] then led them to the throne of God, and then the Savior embraced each one of them and kissed them, and crowned each one of them in the presence of God. … The impression this vision left on Brother Joseph’s mind was of so acute a nature, that he never could refrain from weeping while rehearsing it.” (Whitney, *Life of Heber C. Kimball,* pp. 93–94.)
+As I began, I referred to the vision of Joseph the Prophet concerning the Twelve Apostles in his time. No one need assume that the Twelve who failed to see the Savior because they stood with their eyes fixed upon the ground had in any way failed in their labors. As a body they continued strong and steadfast in their ministry. Their discouragement was only temporary. Their labors were heroic; their acts were bold and courageous. Joseph the Prophet, at the conclusion of that vision, was privileged to see the completion of the work of the Twelve. Heber C. Kimball records: “He (Joseph) saw until they had accomplished their work, and arrived at the gate of the celestial city; there Father Adam stood and opened the gate to them, and as they entered he embraced them one by one and kissed them. He \[Adam\] then led them to the throne of God, and then the Savior embraced each one of them and kissed them, and crowned each one of them in the presence of God. … The impression this vision left on Brother Joseph’s mind was of so acute a nature, that he never could refrain from weeping while rehearsing it.” (Whitney, *Life of Heber C. Kimball,* pp. 93–94.)
 
 The dignity of self is greatly enhanced by looking upward in the search for holiness. Like the giant trees, we should reach up for the light. The most important source of light we can come to know is the gift of the Holy Ghost. It is the source of inner strength and peace.
 
@@ -82,6 +82,4 @@ I have a conviction of these matters from sacred inner whisperings. I know that 
 
 
 
-
-
-#Morality #Self-Esteem
+#Morality #Self-esteem

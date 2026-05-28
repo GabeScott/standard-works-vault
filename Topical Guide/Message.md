@@ -1,6 +1,5 @@
 # Message
 
-
 Ehud said, I have a *message* from God, [[Judges 3.20|Judges 3:20]].
 
 He that sendeth a *message* by the hand of a fool, [[Proverbs 26.6|Proverbs 26:6]].

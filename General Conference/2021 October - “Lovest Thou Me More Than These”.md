@@ -1,6 +1,6 @@
 # “Lovest Thou Me More Than These?”
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -10,7 +10,7 @@ By President M. Russell Ballard - *Acting President of the Quorum of the Twelve
 
 In November 2019, my friend and I visited the Holy Land. While there, we reviewed and studied scriptures about Jesus Christ’s life. One morning we stood on the northwestern shore of the Sea of Galilee at a place that may have been where Jesus met His disciples following His Resurrection.
 
-After Jesus’s Resurrection, as we read in [[John 21.1|John chapter 21]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]][[John 21.18|]][[John 21.19|]][[John 21.20|]][[John 21.21|]][[John 21.22|]][[John 21.23|]][[John 21.24|]][[John 21.25|]], Peter and the other disciples fished all night without success.[^1] In the morning, they saw a man standing on the shore who told them to cast their net on the other side of the boat. To their astonishment, the net was filled miraculously.[^2]
+After Jesus’s Resurrection, as we read in [[John 21.1|John chapter 21]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]][[John 21.18|]][[John 21.19|]][[John 21.20|]][[John 21.21|]][[John 21.22|]][[John 21.23|]][[John 21.24|]][[John 21.25|]], Peter and the other disciples fished all night without success.[^1] In the morning, they saw a man standing on the shore who told them to cast their net on the other side of the boat. To their astonishment, the net was filled miraculously.[^2]
 
 They immediately recognized that the man was the Lord, and they rushed to greet Him.
 
@@ -46,11 +46,11 @@ These two scriptures also teach that to return to Their presence we need to *bel
 
 Today’s world is unsettled. There are disappointments, disagreements, distress, and distractions.
 
-President Dallin H. Oaks, speaking in 2017, noted the following: “These are challenging times, filled with big worries: wars and rumors of wars, possible epidemics of infectious diseases, droughts, floods, and global warming.”[^11]
+President Dallin H. Oaks, speaking in 2017, noted the following: “These are challenging times, filled with big worries: wars and rumors of wars, possible epidemics of infectious diseases, droughts, floods, and global warming.”[^11]
 
 We cannot lose our love for and hope in Jesus, even if we face seemingly overwhelming challenges. Heavenly Father and Jesus will never forget us. They love us.
 
-Last October, President Russell M. Nelson taught us the importance of putting Heavenly Father and Jesus Christ first in our lives. President Nelson taught us that one meaning of the word *Israel* is “let God prevail.”[^12]
+Last October, President Russell M. Nelson taught us the importance of putting Heavenly Father and Jesus Christ first in our lives. President Nelson taught us that one meaning of the word *Israel* is “let God prevail.”[^12]
 
 He asked each of us these questions: “Are *you* willing to let God prevail in your life? Are *you* willing to let God be the most important influence in your life? Will you allow His words, His commandments, and His covenants to influence what you do each day? Will you allow His voice to take priority over any other? Are you *willing* to let whatever He needs you to do take precedence over every other ambition? Are you *willing* to have your will swallowed up in His?”[^13]
 
@@ -81,9 +81,9 @@ I testify that Jesus Christ is our beloved Savior. He is the Only Begotten Son o
 
 [^4]: [[John 21.15|John 21:15]]; emphasis added.
 
-[^5]: “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p13#p13),” ChurchofJesusChrist.org.
+[^5]: “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p13#p13),” ChurchofJesusChrist.org.
 
-[^6]: “[The Living Christ](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p14#p14),” ChurchofJesusChrist.org.
+[^6]: “[The Living Christ](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng&id=p14#p14),” ChurchofJesusChrist.org.
 
 [^7]: [[John 3.16|John 3:16]].
 
@@ -93,16 +93,14 @@ I testify that Jesus Christ is our beloved Savior. He is the Only Begotten Son o
 
 [^10]: [[Moses 4.2|Moses 4:2]].
 
-[^11]: Dallin H. Oaks, “[Push Back against the World](https://speeches.byuh.edu/commencement/push-back-against-the-world)” (Brigham Young University–Hawaii commencement address, Feb. 25, 2017), speeches.byuh.edu.
+[^11]: Dallin H. Oaks, “[Push Back against the World](https://speeches.byuh.edu/commencement/push-back-against-the-world)” (Brigham Young University–Hawaii commencement address, Feb. 25, 2017), speeches.byuh.edu.
 
-[^12]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92; see also Bible Dictionary, “[Israel](https://churchofjesuschrist.org/study/scriptures/bd/israel?lang=eng).”
+[^12]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92; see also Bible Dictionary, “[[BD Israel|Israel]].”
 
-[^13]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 94.
+[^13]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 94.
 
-[^14]: See [[John 15.12|John 15:12–13]][[John 15.13|]]; [[Ephesians 5.1|Ephesians 5:1–2]][[Ephesians 5.2|]]; [[1 John 3.2|1 John 3:2–3, 16–18, 23–24]][[1 John 3.3|]][[1 John 3.16|]][[1 John 3.17|]][[1 John 3.18|]][[1 John 3.23|]][[1 John 3.24|]]; [[1 John 4.7|4:7, 9–11, 20–21]][[1 John 4.9|]][[1 John 4.10|]][[1 John 4.11|]][[1 John 4.20|]][[1 John 4.21|]]; [[Moses 1.39|Moses 1:39]].
+[^14]: See [[John 15.12|John 15:12–13]][[John 15.13|]]; [[Ephesians 5.1|Ephesians 5:1–2]][[Ephesians 5.2|]]; [[1 John 3.2|1 John 3:2–3, 16–18, 23–24]][[1 John 3.3|]][[1 John 3.16|]][[1 John 3.17|]][[1 John 3.18|]][[1 John 3.23|]][[1 John 3.24|]]; [[1 John 4.7|4:7, 9–11, 20–21]][[1 John 4.9|]][[1 John 4.10|]][[1 John 4.11|]][[1 John 4.20|]][[1 John 4.21|]]; [[Moses 1.39|Moses 1:39]].
 
 [^15]: [[John 21.15|John 21:15]].
 
-
-
-#Discipleship #Jesus_Christ #Love #Priorities
+#Discipleship #JesusChrist #Love #Priorities

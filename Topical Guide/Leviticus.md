@@ -1,4 +1,3 @@
 # Leviticus
 
-
-*See* [BD Leviticus](https://www.churchofjesuschrist.org/study/scriptures/bd/leviticus?lang=eng)
+*See also* [[BD Leviticus.md|BD Leviticus]]

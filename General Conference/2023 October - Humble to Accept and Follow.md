@@ -1,6 +1,6 @@
 # Humble to Accept and Follow
 
-By Elder Joni L. Koch - *Of the Seventy*
+By Elder Joni L. Koch - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -32,7 +32,7 @@ Then what is humility? According to *Preach My Gospel*, it is a “willingness t
 
 There are certainly many opportunities for us all to improve in this Christlike attribute. I would like to explore first how humble we’ve been, or should be, in following the counsel of our prophet. A pop quiz for us individually could be:
 
-- Do we mention the full name of the Church in all our interactions? President Russell M. Nelson said, “To remove the Lord’s name from the Lord’s Church is a major victory for Satan.”[^4]
+- Do we mention the full name of the Church in all our interactions? President Russell M. Nelson said, “To remove the Lord’s name from the Lord’s Church is a major victory for Satan.”[^4]
 
 - Are we letting God prevail in our lives by accepting our prophet’s very specific invitation? “Today I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice.”[^5]
 
@@ -75,24 +75,22 @@ May we be humble to follow the counsel of our prophets and accept that only God 
 
 [^2]: [[Proverbs 29.23|Proverbs 29:23]].
 
-[^3]: “Seek Christlike Attributes,” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), [131](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng&id=p54-p55#p54).
+[^3]: “Seek Christlike Attributes,” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), [131](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng&id=p54-p55#p54).
 
-[^4]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88.
+[^4]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88.
 
-[^5]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
+[^5]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
-[^6]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–98.
+[^6]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–98.
 
-[^7]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
+[^7]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
 
-[^8]: See [[Numbers 21.7|Numbers 21:7–9]][[Numbers 21.8|]][[Numbers 21.9|]]; [[1 Nephi 17.41|1 Nephi 17:41]].
+[^8]: See [[Numbers 21.7|Numbers 21:7–9]][[Numbers 21.8|]][[Numbers 21.9|]]; [[1 Nephi 17.41|1 Nephi 17:41]].
 
-[^9]: [[1 Nephi 17.41|1 Nephi 17:41]].
+[^9]: [[1 Nephi 17.41|1 Nephi 17:41]].
 
-[^10]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^10]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^11]: [[D&C 112.10|Doctrine and Covenants 112:10]].
-
-
 
 #Humility #Pride #Prophets

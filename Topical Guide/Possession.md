@@ -1,11 +1,10 @@
 # Possession
 
-
-*See also* [[Goods.md|Goods]]; [[Inheritance.md|Inheritance]]; [[Riches.md|Riches]]; [[Stewardship, Steward.md|Stewardship]]; [[Treasure.md|Treasure]]; [[Wealth.md|Wealth]]; [[Worldliness.md|Worldliness]]
+*See also* [[Goods.md|Goods]]; [[Inheritance.md|Inheritance]]; [[Riches.md|Riches]]; [[Stewardship.md|Stewardship]]; [[Treasure.md|Treasure]]; [[Wealth.md|Wealth]]; [[Worldliness.md|Worldliness]]
 
 land of Canaan, for an everlasting *possession*, [[Genesis 17.8|Genesis 17:8]].
 
-give this land to thy seed ... for an everlasting *possession*, [[Genesis 48.4|Genesis 48:4]].
+give this land to thy seed … for an everlasting *possession*, [[Genesis 48.4|Genesis 48:4]].
 
 it is their perpetual *possession*, [[Leviticus 25.34|Leviticus 25:34]].
 
@@ -17,7 +16,7 @@ sorrowful: for he had great *possessions*, [[Matthew 19.22|Matthew 19:22]] ([[Ma
 
 sold their *possessions* and goods, [[Acts 2.45|Acts 2:45]].
 
-Ananias, with Sapphira ... sold a *possession*, [[Acts 5.1|Acts 5:1]].
+Ananias, with Sapphira … sold a *possession*, [[Acts 5.1|Acts 5:1]].
 
 promised that he would give it to him for a *possession*, [[Acts 7.5|Acts 7:5]].
 

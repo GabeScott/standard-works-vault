@@ -26,7 +26,7 @@ Of all that has been collected, preserved, and written by historians over those 
 
 “I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me.
 
-“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^4]
+“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^4]
 
 Hear him, Joseph did! And millions have heard or read and believed his account and have embraced the gospel of Jesus Christ he helped restore. I believe Joseph Smith and know he was a true prophet of God. Remembering his experience of the First Vision never fails to stir my soul to greater commitment and action.
 
@@ -41,7 +41,7 @@ Coming unto Christ and being perfected in Him is, I believe, the ultimate purpos
 
 
 
-[^1]: See [[2 Nephi 1.12|2 Nephi 1:12]]; [[Mosiah 6.3|Mosiah 6:3]]; [[Helaman 5.14|Helaman 5:14]].
+[^1]: See [[2 Nephi 1.12|2 Nephi 1:12]]; [[Mosiah 6.3|Mosiah 6:3]]; [[Helaman 5.14|Helaman 5:14]].
 
 [^2]: [[Mosiah 4.29|Mosiah 4:29–30]][[Mosiah 4.30|]].
 
@@ -51,12 +51,10 @@ Coming unto Christ and being perfected in Him is, I believe, the ultimate purpos
 
 [^5]: In Gordon B. Hinckley, *Faith: The Essence of True Religion* (1989), 115.
 
-[^6]: See [[3 Nephi 18.7|3 Nephi 18:7, 11]][[3 Nephi 18.11|]].
+[^6]: See [[3 Nephi 18.7|3 Nephi 18:7, 11]][[3 Nephi 18.11|]].
 
 [^7]: [[John 14.26|John 14:26]].
 
 [^8]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-
-
-#Church_History
+#ChurchHistory

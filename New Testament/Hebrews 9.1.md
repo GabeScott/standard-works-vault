@@ -5,6 +5,6 @@
 [Hebrews 9:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.1?lang=eng#p1)
 
 
-[^a]: [[Law of Moses|TG Law of Moses]].
-[^b]: [[Ordinance|TG Ordinance]].
-[^c]: [[Service|TG Service]].
+[^a]: [[Law of Moses|TG Law of Moses]].  
+[^b]: [[Ordinance|TG Ordinance]].  
+[^c]: [[Service|TG Service]].  

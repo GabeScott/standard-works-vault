@@ -61,7 +61,7 @@ There are lesbian women, as well as homosexual men, in the Church. The Lord God 
 
 Sometimes we hear of Church members who outwardly do all the things that would indicate full Church involvement, yet who neglect their children or abuse them physically, emotionally, or sexually, who are untrue to their covenants and marriage vows, or who are dishonest in other ways. If such a person is listening, could we plead with you this night to repent, to seek help and forgiveness.
 
-Mormon wrote of other people in another time and place who also were in such a state of wickedness. He said, as it might be said today, “Now they did not sin ignorantly, for they knew the will of God concerning them” ([[3 Nephi 6.18|3 Ne. 6:18]]).
+Mormon wrote of other people in another time and place who also were in such a state of wickedness. He said, as it might be said today, “Now they did not sin ignorantly, for they knew the will of God concerning them” ([[3 Nephi 6.18|3 Ne. 6:18]]).
 
 I have a sweet friend who some time ago found herself in such a state. I do not know, nor need I know, what her problem was, but she did summon the courage to go tearfully to her bishop to confess. A Church court was held. She was excommunicated and began the difficult process of repentance. Quite a long time later, after the spiritual healing had taken place and at the time of her baptism, she expressed great appreciation to a bishop who had shed tears of caring for her, even while being firm in the steps that must be taken; to a dear friend in Relief Society, who, she said, had helped her “to understand and forgive all those who couldn’t understand or forgive” her; to those who had helped to keep her testimony strong in those quiet, desperate times when “coming home again” seemed nearly impossible.
 
@@ -100,11 +100,11 @@ For this family, as for others who experience trials and grief, love and help we
 
 May we never be indifferent, sisters, to the suffering of others. May we be sensitive to those about us who are hurting for whatever reason.
 
-May we, when the trials are our own, look up with “a perfect brightness of hope” ([[2 Nephi 31.20|2 Ne. 31:20]]) in the Lord Jesus Christ and say, as did Paul:
+May we, when the trials are our own, look up with “a perfect brightness of hope” ([[2 Nephi 31.20|2 Ne. 31:20]]) in the Lord Jesus Christ and say, as did Paul:
 
 “We are troubled on every side, yet not distressed; we are perplexed, but not in despair;
 
-“Persecuted, but not forsaken; cast down, but not destroyed” ([[2 Corinthians 4.8|2 Cor. 4:8]]).
+“Persecuted, but not forsaken; cast down, but not destroyed” ([[2 Corinthians 4.8|2 Cor. 4:8]]).
 
 Death and adversity come to us all, but so does life everlasting!
 
@@ -113,8 +113,6 @@ Death and adversity come to us all, but so does life everlasting!
 >
 
 I bear you my testimony that the gospel is true, that we are led today by a prophet and by the priesthood of God. May we heed their counsel as we meet our personal challenges and help others to do so, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

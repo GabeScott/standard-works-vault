@@ -1,6 +1,6 @@
 # The Message of Elijah
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -16,9 +16,9 @@ Over the centuries there has been a great departure from the original Christian 
 
 But Christ himself is not divided—not the true Christ. This was fully explained by the apostle Paul as he wrote to the Corinthians and upbraided them for the divisions which existed among them.
 
-“Is Christ divided?” he demanded of them. “Was Paul crucified for you? or were ye baptized in the name of Paul?” ([[1 Corinthians 1.13|1 Cor. 1:13]].)
+“Is Christ divided?” he demanded of them. “Was Paul crucified for you? or were ye baptized in the name of Paul?” ([[1 Corinthians 1.13|1 Cor. 1:13]].)
 
-So he challenged them, saying, “Every one of you saith, I am of Paul; and I of Apollos; and I of Cephas; and I of Christ” ([[1 Corinthians 1.12|1 Cor. 1:12]]), thus showing the ruptures which had broken out among these people whom Paul had converted only a short time before. But this was one of the symptoms of those times—evidence that even in Paul’s day Christianity was beginning to disintegrate.
+So he challenged them, saying, “Every one of you saith, I am of Paul; and I of Apollos; and I of Cephas; and I of Christ” ([[1 Corinthians 1.12|1 Cor. 1:12]]), thus showing the ruptures which had broken out among these people whom Paul had converted only a short time before. But this was one of the symptoms of those times—evidence that even in Paul’s day Christianity was beginning to disintegrate.
 
 It is evident from the scriptures that through the foreknowledge of God the ancient apostles were shown in advance that Christianity would be splintered, that its unity for which Christ had prayed would be destroyed, and that thus would come a general falling away from the original truth.
 
@@ -54,9 +54,9 @@ Salvation comes only through faith in the Lord Jesus Christ, repentance from sin
 
 But can the dead comply with these terms? Yes, they can if they will. But how is it possible?
 
-Peter taught that while Christ’s body lay in the tomb after the crucifixion his eternal spirit went to the realm of the dead, who were alive and alert in a spirit existence. Each person was still himself. Each could listen and learn—and so they did, for Jesus taught them his gospel just as he had taught it here on earth. (See [[1 Peter 3.1|1 Pet. 3]][[1 Peter 3.2|]][[1 Peter 3.3|]][[1 Peter 3.4|]][[1 Peter 3.5|]][[1 Peter 3.6|]][[1 Peter 3.7|]][[1 Peter 3.8|]][[1 Peter 3.9|]][[1 Peter 3.10|]][[1 Peter 3.11|]][[1 Peter 3.12|]][[1 Peter 3.13|]][[1 Peter 3.14|]][[1 Peter 3.15|]][[1 Peter 3.16|]][[1 Peter 3.17|]][[1 Peter 3.18|]][[1 Peter 3.19|]][[1 Peter 3.20|]][[1 Peter 3.21|]][[1 Peter 3.22|]].)
+Peter taught that while Christ’s body lay in the tomb after the crucifixion his eternal spirit went to the realm of the dead, who were alive and alert in a spirit existence. Each person was still himself. Each could listen and learn—and so they did, for Jesus taught them his gospel just as he had taught it here on earth. (See [[1 Peter 3.1|1 Pet. 3]][[1 Peter 3.2|]][[1 Peter 3.3|]][[1 Peter 3.4|]][[1 Peter 3.5|]][[1 Peter 3.6|]][[1 Peter 3.7|]][[1 Peter 3.8|]][[1 Peter 3.9|]][[1 Peter 3.10|]][[1 Peter 3.11|]][[1 Peter 3.12|]][[1 Peter 3.13|]][[1 Peter 3.14|]][[1 Peter 3.15|]][[1 Peter 3.16|]][[1 Peter 3.17|]][[1 Peter 3.18|]][[1 Peter 3.19|]][[1 Peter 3.20|]][[1 Peter 3.21|]][[1 Peter 3.22|]].)
 
-Peter further said: “For for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.” ([[1 Peter 4.6|1 Pet. 4:6]].)
+Peter further said: “For for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.” ([[1 Peter 4.6|1 Pet. 4:6]].)
 
 Would Jesus have preached to them if they could not hear and understand? Would he have preached faith and repentance if they were not able to believe and repent? Is not the Savior practical and realistic?
 
@@ -127,6 +127,4 @@ But each of us must do our part for our own deceased relatives. It is so essenti
 
 
 
-
-
-#Family_History #Temple_Work
+#FamilyHistory #TempleWork

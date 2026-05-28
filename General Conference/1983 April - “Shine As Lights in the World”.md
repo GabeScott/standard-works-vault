@@ -1,6 +1,6 @@
 # “Shine As Lights in the World”
 
-By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
+By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -28,7 +28,7 @@ Let us, therefore, place several such lamentations beside the revelations of God
 
 “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
-“Men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
+“Men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
 
 “But the very hairs of your head are all numbered.” (See [[Matthew 10.29|Matt. 10:29–30]][[Matthew 10.30|]].)
 
@@ -38,25 +38,25 @@ Not only are the hairs of our heads numbered, but the planets also: “But only 
 
 *The reassurances:* “And the graves were opened; and many bodies of the saints which slept arose,
 
-“And came out of the graves after his resurrection, and went into the holy city, and appeared unto many.” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]]; see also [[3 Nephi 23.9|3 Ne. 23:9–11]][[3 Nephi 23.10|]][[3 Nephi 23.11|]].)
+“And came out of the graves after his resurrection, and went into the holy city, and appeared unto many.” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]]; see also [[3 Nephi 23.9|3 Ne. 23:9–11]][[3 Nephi 23.10|]][[3 Nephi 23.11|]].)
 
-“O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
+“O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
 
-“O how great the plan of our God!” ([[2 Nephi 9.13|2 Ne. 9:13]].)
+“O how great the plan of our God!” ([[2 Nephi 9.13|2 Ne. 9:13]].)
 
-Some despair who are, as Peter said, willingly ignorant (see [[2 Peter 3.5|2 Pet. 3:5]]) or, as Nephi said, who will not search or understand great knowledge (see [[2 Nephi 32.7|2 Ne. 32:7]]). For these, a pessimistic philosophy is “pleasing unto the carnal mind.” ([[Alma 30.53|Alma 30:53]].) Why? Because behavioral permissiveness flourishes amid a sense of hopelessness. Because if human appetites are mistakenly viewed as the only authentic reality and “now” as the only moment which matters, why should one checkrein any impulse or defer any gratification? Hence, immortality and accountability are intertwined!
+Some despair who are, as Peter said, willingly ignorant (see [[2 Peter 3.5|2 Pet. 3:5]]) or, as Nephi said, who will not search or understand great knowledge (see [[2 Nephi 32.7|2 Ne. 32:7]]). For these, a pessimistic philosophy is “pleasing unto the carnal mind.” ([[Alma 30.53|Alma 30:53]].) Why? Because behavioral permissiveness flourishes amid a sense of hopelessness. Because if human appetites are mistakenly viewed as the only authentic reality and “now” as the only moment which matters, why should one checkrein any impulse or defer any gratification? Hence, immortality and accountability are intertwined!
 
 Yes, there are some who live without hope who, though having reached such a wrong conclusion, nevertheless maintain right conduct. In such decent individuals, the light of Christ, though unacknowledged, burns still. (See [[D&C 84.46|D&C 84:46]].) If it were not so, we would despise a Gandhi and admire a Hitler, instead of feeling just the opposite!
 
 Such spreading pessimism does not necessarily mean “back to the catacombs” for Christians, or that secular Caesars will soon reopen the Colosseum. But, already, there are would-be Caesars who will refuse to settle for citizens who render to Caesar only that which is his—and unto God all that is His. (See [[Matthew 22.21|Matt. 22:21]].)
 
-This sense of despair is further intensified by the demonstrated emptiness of materialism. Increased goods will not suffice if men display decreased goodness. Likewise, the mere accumulation of knowledge without purpose and of information without wisdom constitutes ever learning but never coming to a knowledge of the truth. (See [[2 Timothy 3.7|2 Tim. 3:7]].)
+This sense of despair is further intensified by the demonstrated emptiness of materialism. Increased goods will not suffice if men display decreased goodness. Likewise, the mere accumulation of knowledge without purpose and of information without wisdom constitutes ever learning but never coming to a knowledge of the truth. (See [[2 Timothy 3.7|2 Tim. 3:7]].)
 
 Afflicted with anguish, some wander to and fro upon the earth in search of truth without knowing where to find it. (See [[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]]; [[D&C 123.12|D&C 123:12]].) One such prominent wanderer was described by a colleague: “It is strange how he persists … in wandering to-and-fro. … He can neither believe, nor be comfortable in his unbelief.” (Nathaniel Hawthorne, 20 Nov. 1856 in *English Notebooks,* ed. Randall Stewart \[New York: MLA\], pp. 432–33.)
 
-Such is the scene, therefore, of which we are a part. Many reject the scriptures, the moral memory of mankind, and then declare absolutely the absence of absolutes. Others reject the light of the gospel and then grump over the growing darkness. Still others cut themselves off from God and lament the loneliness of the universe. Some pursue the paths of him who openly desires mankind’s misery (see [[2 Nephi 2.27|2 Ne. 2:27]]), and then bemoan their discontent.
+Such is the scene, therefore, of which we are a part. Many reject the scriptures, the moral memory of mankind, and then declare absolutely the absence of absolutes. Others reject the light of the gospel and then grump over the growing darkness. Still others cut themselves off from God and lament the loneliness of the universe. Some pursue the paths of him who openly desires mankind’s misery (see [[2 Nephi 2.27|2 Ne. 2:27]]), and then bemoan their discontent.
 
-The true Christian, of course, does not see life as an easy passage: “The cross comes before the crown and tomorrow is a Monday morning!” (C. S. Lewis, *The Weight of Glory* \[Grand Rapids, Michigan: William B. Eerdmans Publishing Co., 1965\], p. 14.) With ultimate hope, however, we can live cheerfully amid proximate insecurity. Life is a test in which man must overcome by faith, walking on the strait and narrow path—which is surely no escalator—but the path is there!
+The true Christian, of course, does not see life as an easy passage: “The cross comes before the crown and tomorrow is a Monday morning!” (C. S. Lewis, *The Weight of Glory* \[Grand Rapids, Michigan: William B. Eerdmans Publishing Co., 1965\], p. 14.) With ultimate hope, however, we can live cheerfully amid proximate insecurity. Life is a test in which man must overcome by faith, walking on the strait and narrow path—which is surely no escalator—but the path is there!
 
 And death is not the permanent annihilation of the human personality and individuality! President Brigham Young wisely declared that the preservation of human intelligence and individuality through the Atonement and resurrection “is the greatest gift that ever was bestowed on mankind.” (*Journal of Discourses,* 5:53.)
 
@@ -70,7 +70,7 @@ And, however articulate some of those despairing actors are in this human drama,
 
 Meanwhile, we should not impute man’s failures to God! “Remember, remember that it is not the work of God that is frustrated, but the work of men.” ([[D&C 3.3|D&C 3:3]].)
 
-Indeed, man’s successes and failures were known from the beginning by the Lord and were taken into account by Him in the unfolding of His plan of salvation. (See [[1 Nephi 9.6|1 Ne. 9:6]].) His purposes will be fully achieved.
+Indeed, man’s successes and failures were known from the beginning by the Lord and were taken into account by Him in the unfolding of His plan of salvation. (See [[1 Nephi 9.6|1 Ne. 9:6]].) His purposes will be fully achieved.
 
 Justice, love, mercy, and truth will finally prevail in a universe presided over by a Lord who is a determined as well as a loving Tutor. This mortal school is one of which the Father and the Son have solemnly declared, “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.” ([[Abraham 3.25|Abr. 3:25]].)
 
@@ -107,8 +107,6 @@ Let the winds and the storms beat and pound upon such faithful Saints; they will
 God bless you faithful brothers and sisters for shining “as lights in the world” ([[Philippians 2.15|Philip. 2:15]]), as beacons to dispel despair. To a world spiritually illiterate, you give great lessons in the grammar of the gospel, including this one: death is a mere comma, not an exclamation point!
 
 In the holy name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,4 +1,3 @@
 # Teraphim
 
-
-*See* [BD Teraphim](https://www.churchofjesuschrist.org/study/scriptures/bd/teraphim?lang=eng)
+*See also* [[BD Teraphim.md|BD Teraphim]]

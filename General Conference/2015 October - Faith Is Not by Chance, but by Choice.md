@@ -1,6 +1,6 @@
 # Faith Is Not by Chance, but by Choice
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -12,7 +12,7 @@ The Savior perceived the strength or weakness in the faith of those around Him. 
 
 I ask myself, “How does the Savior see my faith?” And tonight I ask you, “How does the Savior see your faith?”
 
-Faith in the Lord Jesus Christ is not something ethereal, floating loosely in the air. Faith does not fall upon us by chance or stay with us by birthright. It is, as the scriptures say, “substance … , the evidence of things not seen.”[^5] Faith emits a spiritual light, and that light is discernible.[^6] Faith in Jesus Christ is a gift from heaven that comes as we choose to believe[^7] and as we seek it and hold on to it. Your faith is either growing stronger or becoming weaker. Faith is a principle of power, important not only in this life but also in our progression beyond the veil.[^8] By the grace of Christ, we will one day be saved through faith on His name.[^9] The future of your faith is not by chance, but by choice.
+Faith in the Lord Jesus Christ is not something ethereal, floating loosely in the air. Faith does not fall upon us by chance or stay with us by birthright. It is, as the scriptures say, “substance … , the evidence of things not seen.”[^5] Faith emits a spiritual light, and that light is discernible.[^6] Faith in Jesus Christ is a gift from heaven that comes as we choose to believe[^7] and as we seek it and hold on to it. Your faith is either growing stronger or becoming weaker. Faith is a principle of power, important not only in this life but also in our progression beyond the veil.[^8] By the grace of Christ, we will one day be saved through faith on His name.[^9] The future of your faith is not by chance, but by choice.
 
 ## The Faith of a Young Brazilian
 
@@ -50,23 +50,23 @@ Both the Bible and the Book of Mormon give us the beautiful assurance that Jesus
 
 Another gift from God that enlarges our faith is the guidance of the First Presidency and the Quorum of the Twelve. Today we sustained three new members of the Twelve, and I welcome Elder Rasband, Elder Stevenson, and Elder Renlund to the sacred circle of the Quorum of the Twelve. Paul said:
 
-“He \[called\] apostles; and … prophets; …
+“He \[called\] apostles; and … prophets; …
 
-“For the perfecting of the saints … :
+“For the perfecting of the saints … :
 
-“Till we all come in … unity of … faith, and … the knowledge of the Son of God … :
+“Till we all come in … unity of … faith, and … the knowledge of the Son of God … :
 
 “… No more … tossed to and fro, and carried about with every wind of doctrine, by the … cunning craftiness \[of those who\] lie in wait to deceive.”[^22]
 
 The guidance of the First Presidency and the Twelve help protect our faith.
 
-Although your beginning fire of faith may be small, righteous choices bring greater confidence in God, and your faith grows. The difficulties of mortality blow against you, and evil forces lurk in the darkness, hoping to extinguish your faith. But as you continue to make good choices, trust in God, and follow His Son, the Lord sends increased light and knowledge, and your faith becomes settled and unwavering. President Thomas S. Monson said: “Fear not. … The future is as bright as your faith.”[^23]
+Although your beginning fire of faith may be small, righteous choices bring greater confidence in God, and your faith grows. The difficulties of mortality blow against you, and evil forces lurk in the darkness, hoping to extinguish your faith. But as you continue to make good choices, trust in God, and follow His Son, the Lord sends increased light and knowledge, and your faith becomes settled and unwavering. President Thomas S. Monson said: “Fear not. … The future is as bright as your faith.”[^23]
 
 ## Porter, Zane, and Max Openshaw
 
 The faith of the young men of this Church is remarkable!
 
-On June 12 of this year, I received an email telling me that the bishop from a Utah ward, his wife, and two of their children had been killed in an airplane accident. Bishop Mark Openshaw had been piloting the plane as it left a small airfield, when it suddenly fell from the sky and crashed to the earth. Bishop Openshaw, his wife, Amy, and their children Tanner and Ellie were killed in the accident. Miraculously their five-year-old son, Max, thrown out of the airplane in his airplane seat, escaped with only broken bones.
+On June 12 of this year, I received an email telling me that the bishop from a Utah ward, his wife, and two of their children had been killed in an airplane accident. Bishop Mark Openshaw had been piloting the plane as it left a small airfield, when it suddenly fell from the sky and crashed to the earth. Bishop Openshaw, his wife, Amy, and their children Tanner and Ellie were killed in the accident. Miraculously their five-year-old son, Max, thrown out of the airplane in his airplane seat, escaped with only broken bones.
 
 I learned that their son Elder Porter Openshaw was serving in the Marshall Islands Majuro Mission and that their 17-year-old son, Zane, was on a school cultural exchange in Germany.
 
@@ -76,7 +76,7 @@ Ultimately it was Elder Openshaw and his brother Zane who decided that others co
 
 As I spoke with Elder Openshaw, I felt his sadness but also his unquenchable fire of faith. “I have the confidence,” he told me, “and I know without a shadow of a doubt that I will see my family again. … Strength in our trials is always found in … our Lord, Jesus Christ. … God’s omnipotent hand has been so apparent in helping \[me\] and my brothers throughout \[this\] very difficult challenge.”[^24]
 
-I met Zane for the first time at the funeral. As I looked at the four caskets before us in the chapel, I marveled at the faith of this 17-year-old as he addressed the congregation. “Today,” he said, “we have gathered with humble hearts and weary souls to remember the lives of my mom, dad, Tanner, and Ellie. … We have talked together, cried together, remembered together, and felt the hand of God together. …
+I met Zane for the first time at the funeral. As I looked at the four caskets before us in the chapel, I marveled at the faith of this 17-year-old as he addressed the congregation. “Today,” he said, “we have gathered with humble hearts and weary souls to remember the lives of my mom, dad, Tanner, and Ellie. … We have talked together, cried together, remembered together, and felt the hand of God together. …
 
 “The day after I heard the news of the accident, I found a letter in my bag from my mom. In the letter she wrote: ‘Zane, remember who you are and where you come from. We will be praying for you and missing you.’” Zane continued: “There could not be more fitting last words from my mother. I know that she, along with Tanner, Ellie, and my dad are … praying for \[my brothers and\] me. I know that … they pray that I remember who I am … because I, like you, am a child of God, and He has sent me here. I testify \[that\] … no matter how alone we feel, God will not forsake us.”[^25]
 
@@ -97,44 +97,42 @@ My dear friends, your faith did not begin at birth, and it will not end at death
 
 [^6]: See [[Alma 32.35|Alma 32:35]].
 
-[^7]: See L. Whitney Clayton, [“Choose to Believe,”](https://churchofjesuschrist.org/study/ensign/2015/05/saturday-morning-session/choose-to-believe?lang=eng) *Ensign* or *Liahona,* May 2015, 36–39.
+[^7]: See L. Whitney Clayton, “[Choose to Believe](https://www.churchofjesuschrist.org/study/ensign/2015/05/saturday-morning-session/choose-to-believe?lang=eng),” *Ensign* or *Liahona,* May 2015, 36–39.
 
 [^8]: See *Lectures on Faith* (1985), 3.
 
 [^9]: See [[Ephesians 2.8|Ephesians 2:8]].
 
-[^10]: [[1 Samuel 15.22|1 Samuel 15:22]].
+[^10]: [[1 Samuel 15.22|1 Samuel 15:22]].
 
-[^11]: Personal discussion with Aroldo Cavalcante, Aug. 29, 2015, Salvador, Brazil, as well as an email dated Aug. 31, 2015. There is much more to the story of Aroldo Cavalcante’s commitment to his mother to care for his sisters and brother. During the years following his mother’s death, he would openly refer to his brother and sisters as his “children.” During his mission, his letters and calls on Christmas and Mother’s Day often addressed the individual challenges of each family member. Through great sacrifice after his mission, Aroldo took financial responsibility for their education and the mission of his brother. Aroldo waited until his sisters and brother were married before marrying at age 32. They remain a very close family.
+[^11]: Personal discussion with Aroldo Cavalcante, Aug. 29, 2015, Salvador, Brazil, as well as an email dated Aug. 31, 2015. There is much more to the story of Aroldo Cavalcante’s commitment to his mother to care for his sisters and brother. During the years following his mother’s death, he would openly refer to his brother and sisters as his “children.” During his mission, his letters and calls on Christmas and Mother’s Day often addressed the individual challenges of each family member. Through great sacrifice after his mission, Aroldo took financial responsibility for their education and the mission of his brother. Aroldo waited until his sisters and brother were married before marrying at age 32. They remain a very close family.
 
 [^12]: [[Luke 22.32|Luke 22:32]].
 
 [^13]: [[D&C 8.2|Doctrine and Covenants 8:2]].
 
-[^14]: [[1 Corinthians 2.11|1 Corinthians 2:11]].
+[^14]: [[1 Corinthians 2.11|1 Corinthians 2:11]].
 
 [^15]: [[John 14.16|John 14:16–17]][[John 14.17|]].
 
-[^16]: See Adam Kotter, [“When Doubts and Questions Arise,”](https://churchofjesuschrist.org/study/ensign/2015/03/when-doubts-and-questions-arise?lang=eng) *Ensign,* Mar. 2015, 37–39; *Liahona,* Mar. 2015, 39–41.
+[^16]: See Adam Kotter, “[When Doubts and Questions Arise](https://www.churchofjesuschrist.org/study/ensign/2015/03/when-doubts-and-questions-arise?lang=eng),” *Ensign,* Mar. 2015, 37–39; *Liahona,* Mar. 2015, 39–41.
 
-[^17]: Elder Neal A. Maxwell once said: “Some insist upon studying the Church only through the eyes of its defectors—like interviewing Judas to understand Jesus. Defectors always tell us more about themselves than about that from which they have departed” (“All Hell Is Moved” \[Brigham Young University devotional, Nov. 8, 1977\], 3, [speeches.byu.edu](https://speeches.byu.edu/talks/neal-a-maxwell/hell-moved)).
+[^17]: Elder Neal A. Maxwell once said: “Some insist upon studying the Church only through the eyes of its defectors—like interviewing Judas to understand Jesus. Defectors always tell us more about themselves than about that from which they have departed” (“All Hell Is Moved” \[Brigham Young University devotional, Nov. 8, 1977\], 3, [speeches.byu.edu](https://speeches.byu.edu/talks/neal-a-maxwell/hell-moved)).
 
-[^18]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^18]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^19]: “I never told you I was perfect; but there is no error in the revelations which I have taught” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 522).
 
-[^20]: See John W. Welch and Tim Rathbone, “The Translation of the Book of Mormon: Basic Historical Information” (Foundation for Ancient Research and Mormon Studies, 1986).
+[^20]: See John W. Welch and Tim Rathbone, “The Translation of the Book of Mormon: Basic Historical Information” (Foundation for Ancient Research and Mormon Studies, 1986).
 
-[^21]: A spiritual witness of the Book of Mormon is central to the conversion of Latter-day Saints. It is a witness that needs to be renewed over and over again. If not, the spiritual feelings fade and one no longer remembers the power he or she once felt. “And the people began to forget those signs and wonders which they had heard, and began to be less and less astonished at a … wonder from heaven, insomuch that they began to be hard in their hearts, and blind in their minds, and began to disbelieve all which they had heard and seen … and \[began\] to believe that the doctrine of Christ was a foolish and a vain thing” ([[3 Nephi 2.1|3 Nephi 2:1–2]][[3 Nephi 2.2|]]).
+[^21]: A spiritual witness of the Book of Mormon is central to the conversion of Latter-day Saints. It is a witness that needs to be renewed over and over again. If not, the spiritual feelings fade and one no longer remembers the power he or she once felt. “And the people began to forget those signs and wonders which they had heard, and began to be less and less astonished at a … wonder from heaven, insomuch that they began to be hard in their hearts, and blind in their minds, and began to disbelieve all which they had heard and seen … and \[began\] to believe that the doctrine of Christ was a foolish and a vain thing” ([[3 Nephi 2.1|3 Nephi 2:1–2]][[3 Nephi 2.2|]]).
 
 [^22]: [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]].
 
-[^23]: Thomas S. Monson, “Be of Good Cheer,” *Ensign* or *Liahona,* May 2009, 92.
+[^23]: Thomas S. Monson, “Be of Good Cheer,” *Ensign* or *Liahona,* May 2009, 92.
 
-[^24]: Personal email received from Elder Porter Openshaw, Aug. 23, 2015.
+[^24]: Personal email received from Elder Porter Openshaw, Aug. 23, 2015.
 
-[^25]: Comments by Zane Openshaw at the funeral for his family members, June 22, 2015.
+[^25]: Comments by Zane Openshaw at the funeral for his family members, June 22, 2015.
 
-
-
-#Book_Of_Mormon #Faith #Holy_Ghost #Joseph_Smith #Missionary_Work #Obedience #Priesthood #Prophets
+#BookOfMormon #Faith #HolyGhost #JosephSmith #MissionaryWork #Obedience #Priesthood #Prophets

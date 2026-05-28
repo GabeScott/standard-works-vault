@@ -1,6 +1,6 @@
 # A Perfect Brightness of Hope
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/04/43holland?lang=eng)
 
-Last October, President Russell M. Nelson invited us to look *ahead* to this April 2020 conference by each of us in our own way looking *back* to see the majesty of God’s hand in restoring the gospel of Jesus Christ. Sister Holland and I took that prophetic invitation seriously. We imagined ourselves living in the early 1800s, looking at the religious beliefs of that day. In that imagined setting, we asked ourselves, “What’s missing here? What do we wish we had? What do we *hope* God will provide in response to our spiritual longing?”
+Last October, President Russell M. Nelson invited us to look *ahead* to this April 2020 conference by each of us in our own way looking *back* to see the majesty of God’s hand in restoring the gospel of Jesus Christ. Sister Holland and I took that prophetic invitation seriously. We imagined ourselves living in the early 1800s, looking at the religious beliefs of that day. In that imagined setting, we asked ourselves, “What’s missing here? What do we wish we had? What do we *hope* God will provide in response to our spiritual longing?”
 
 Well, for one thing, we realized that two centuries ago we would have dearly hoped for the restoration of a truer concept of God than most in that day had, hidden as He often seemed to be behind centuries of error and misunderstanding. To borrow a phrase from William Ellery Channing, a prominent religious figure of the day, we would have looked for the “parental character of God,” which Channing considered “the first great doctrine of Christianity.”[^1] Such a doctrine would have recognized Deity as a caring Father in Heaven, rather than a harsh judge dispensing stern justice or as an absentee landlord who had once been engaged in earthly matters but was now preoccupied somewhere else in the universe.
 
@@ -32,7 +32,7 @@ In this bicentennial year, when we look back to see all we have been given and r
 
 Paraphrasing one of the most inspiring valedictories ever recorded in scripture, I say with the prophet Nephi and that young sister:
 
-“My beloved brethren \[and sisters\], after ye have \[received these first fruits of the Restoration\], I would ask if all is done? Behold, I say unto you, Nay. …
+“My beloved brethren \[and sisters\], after ye have \[received these first fruits of the Restoration\], I would ask if all is done? Behold, I say unto you, Nay. …
 
 “… Ye must press forward with a steadfastness in Christ, *having a perfect brightness of hope,* and a love of God and of all men. … If ye shall\[,\] … saith the Father: Ye shall have eternal life.”[^19]
 
@@ -41,9 +41,9 @@ I give thanks, my brothers and sisters, for all we have been given in this last 
 
 
 
-[^1]: “The Essence of the Christian Religion,” in *The Works of William E. Channing* (1888), 1004.
+[^1]: “The Essence of the Christian Religion,” in *The Works of William E. Channing* (1888), 1004.
 
-[^2]: [[2 Nephi 26.24|2 Nephi 26:24]].
+[^2]: [[2 Nephi 26.24|2 Nephi 26:24]].
 
 [^3]: See [[John 3.16|John 3:16–17]][[John 3.17|]].
 
@@ -53,13 +53,13 @@ I give thanks, my brothers and sisters, for all we have been given in this last 
 
 [^6]: [[John 14.2|John 14:2]].
 
-[^7]: See [[1 Corinthians 15.29|1 Corinthians 15:29]]; [[D&C 128.15|Doctrine and Covenants 128:15–17]][[D&C 128.16|]][[D&C 128.17|]].
+[^7]: See [[1 Corinthians 15.29|1 Corinthians 15:29]]; [[D&C 128.15|Doctrine and Covenants 128:15–17]][[D&C 128.16|]][[D&C 128.17|]].
 
 [^8]: See [[Hebrews 6.19|Hebrews 6:19]]; [[Ether 12.4|Ether 12:4]].
 
-[^9]: See Na Zhu and others, “A Novel Coronavirus from Patients with Pneumonia in China, 2019,” *New England Journal of Medicine,* Feb. 20, 2020, 727–33.
+[^9]: See Na Zhu and others, “A Novel Coronavirus from Patients with Pneumonia in China, 2019,” *New England Journal of Medicine,* Feb. 20, 2020, 727–33.
 
-[^10]: See “Examination and Description of Soil Profiles,” in *Soil Survey Manual,* ed. C. Ditzler, K. Scheffe, and H. C. Monger (2017), nrcs.usda.gov.
+[^10]: See “Examination and Description of Soil Profiles,” in *Soil Survey Manual,* ed. C. Ditzler, K. Scheffe, and H. C. Monger (2017), nrcs.usda.gov.
 
 [^11]: See [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; [[Mark 12.29|Mark 12:29–33]][[Mark 12.30|]][[Mark 12.31|]][[Mark 12.32|]][[Mark 12.33|]]; see also [[Leviticus 19.18|Leviticus 19:18]]; [[Deuteronomy 6.1|Deuteronomy 6:1–6]][[Deuteronomy 6.2|]][[Deuteronomy 6.3|]][[Deuteronomy 6.4|]][[Deuteronomy 6.5|]][[Deuteronomy 6.6|]].
 
@@ -67,7 +67,7 @@ I give thanks, my brothers and sisters, for all we have been given in this last 
 
 [^13]: See [[Romans 4.18|Romans 4:18]].
 
-[^14]: R. J. Snell, “Quiet Hope: A New Year’s Resolution,” *Public Discourse: The Journal of the Witherspoon Institute, *Dec. 31, 2019, thepublicdiscourse.com.
+[^14]: R. J. Snell, “Quiet Hope: A New Year’s Resolution,” *Public Discourse: The Journal of the Witherspoon Institute, *Dec. 31, 2019, thepublicdiscourse.com.
 
 [^15]: [[Ezekiel 37.11|Ezekiel 37:11]].
 
@@ -75,14 +75,12 @@ I give thanks, my brothers and sisters, for all we have been given in this last 
 
 [^17]: “Abide with Me!” *Hymns,* no. 166.
 
-[^18]: Judith Mahlangu (multistake conference near Johannesburg, South Africa, Nov. 10, 2019), in Sydney Walker, “Elder Holland Visits Southeast Africa during ‘Remarkable Time of Growth,’” *Church News,* Nov. 27, 2019, thechurchnews.com.
+[^18]: Judith Mahlangu (multistake conference near Johannesburg, South Africa, Nov. 10, 2019), in Sydney Walker, “Elder Holland Visits Southeast Africa during ‘Remarkable Time of Growth,’” *Church News,* Nov. 27, 2019, thechurchnews.com.
 
-[^19]: [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]]; emphasis added.
+[^19]: [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]]; emphasis added.
 
 [^20]: “Stopping by Woods on a Snowy Evening,” lines 14–16, in *The Poetry of Robert Frost: The Collected Poems,* ed. Edward Connery Lathem (1969), 225.
 
-[^21]: [[2 Nephi 31.20|2 Nephi 31:20]].
-
-
+[^21]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 #Hope #Restoration

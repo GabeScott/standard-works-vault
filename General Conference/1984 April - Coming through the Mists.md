@@ -14,9 +14,9 @@ As I approach this assignment, I am brought back to some guidelines, an expressi
 
 “There are, for the Church and for each and all of its members, two prime things which may not be overlooked, forgotten, shaded, or discarded:
 
-“First: That Jesus Christ is the Son of God. …
+“First: That Jesus Christ is the Son of God. …
 
-“Second … : That the Father and the Son actually … appeared to the Prophet Joseph in a vision … ; that the Gospel and the holy Priesthood … were … restored to the earth from which they were lost by the apostasy of the Primitive Church.” (“The Charted Course of the Church in Education,” an address delivered in Aspen Grove, Utah, 8 Aug. 1938, p. 3.)
+“Second … : That the Father and the Son actually … appeared to the Prophet Joseph in a vision … ; that the Gospel and the holy Priesthood … were … restored to the earth from which they were lost by the apostasy of the Primitive Church.” (“The Charted Course of the Church in Education,” an address delivered in Aspen Grove, Utah, 8 Aug. 1938, p. 3.)
 
 I testify that these stipulations are true because this knowledge has been revealed to me by the unquestionable Spirit of God.
 
@@ -24,11 +24,11 @@ In a time described in the scriptures as being filled with “wickedness and ven
 
 For us who claim leadership through prophets called of God, it is a good time to pay attention. For those who ignore the commandments, you may not receive many other warnings, “for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat.” ([[Matthew 7.13|Matt. 7:13]].)
 
-The warning is against unrighteousness. That means sin and wickedness. This is defined by Peter as if he were speaking of this present time. He speaks of “denying the Lord,” of covetousness to “make merchandise of you,” of the example of the iniquity of Sodom and Gomorrha, and of “the filthy conversation of the wicked, … having eyes full of adultery, and that cannot cease from sin.” ([[2 Peter 2.1|2 Pet. 2:1, 3, 6, 7, 14]][[2 Peter 2.3|]][[2 Peter 2.6|]][[2 Peter 2.7|]][[2 Peter 2.14|]].)
+The warning is against unrighteousness. That means sin and wickedness. This is defined by Peter as if he were speaking of this present time. He speaks of “denying the Lord,” of covetousness to “make merchandise of you,” of the example of the iniquity of Sodom and Gomorrha, and of “the filthy conversation of the wicked, … having eyes full of adultery, and that cannot cease from sin.” ([[2 Peter 2.1|2 Pet. 2:1, 3, 6, 7, 14]][[2 Peter 2.3|]][[2 Peter 2.6|]][[2 Peter 2.7|]][[2 Peter 2.14|]].)
 
 A moment’s reflection on the displays in the media and in advertising, the inducement to use drugs, alcohol, and so forth, makes it very plain that for the sake of making money there is an attempt to buy or sell our souls, making “merchandise of you.”
 
-Newspaper articles and public expressions often carry the “filthy conversation of the wicked.” ([[2 Peter 2.7|2 Pet. 2:7]].) We call it what it is: “A wicked and adulterous generation.”
+Newspaper articles and public expressions often carry the “filthy conversation of the wicked.” ([[2 Peter 2.7|2 Pet. 2:7]].) We call it what it is: “A wicked and adulterous generation.”
 
 We are indeed constantly bombarded by a display of wickedness as it flashes before us, sometimes in ways that we cannot avoid.
 
@@ -52,7 +52,7 @@ In approaching the young man, Brother Smith was rudely rebuffed: “Leave me alo
 
 “Where is it?” inquired the young man.
 
-“It is here in this book,” responded Brother Smith. “The Book of Mormon, 1 Nephi, chapter 8. Will you read it and see if you can see the picture?”
+“It is here in this book,” responded Brother Smith. “The Book of Mormon, 1 Nephi, chapter 8. Will you read it and see if you can see the picture?”
 
 Later Brother Smith inquired if the young man had read it.
 
@@ -68,7 +68,7 @@ Later Brother Smith inquired if the young man had read it.
 
 Brother Smith then obtained the necessary materials for painting a picture and presented them to the young man, who for the first time responded with warmth and appreciation to be able to use good equipment, and he painted the picture. Brother Smith brought it with him to our sacrament meeting, and so I have seen it. It is, of course, the picture of Lehi’s dream.
 
-Now, will you try to see the picture in your own imagination? All you who have read 1 Nephi, chapter 8, will recall the scene. If you have not read it, I wish you would do so and get the feeling and the vision of this picture.
+Now, will you try to see the picture in your own imagination? All you who have read 1 Nephi, chapter 8, will recall the scene. If you have not read it, I wish you would do so and get the feeling and the vision of this picture.
 
 The description is as follows: First, Lehi wandering through a dreary waste, then coming to a spacious field; the tree with the most desirable fruit to be happy, the love of God; Lehi’s desire to share the fruit with his family; the rebellion of two of his sons; the pressing forward of many people to receive the fruit; the mists of darkness, which arose to obscure the path; the river of water along the path, which could mean destruction; the rod of iron, which represented security in staying on the path; the huge building across the river filled with scoffing people; the susceptibility of those who had followed the path to succumb to the scorn and pride of those of the world; and the wandering away of those who had partaken of the fruit of the tree of life into forbidden paths of destruction.
 
@@ -112,8 +112,6 @@ In one of the hymns, we sing of Nephi, a seer of olden time. Nephi, of course, a
 >
 
 In the name of Jesus Christ, amen.
-
-
 
 
 

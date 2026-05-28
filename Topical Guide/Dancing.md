@@ -1,7 +1,6 @@
 # Dancing
 
-
-*See also* [BD Dancing](https://www.churchofjesuschrist.org/study/scriptures/bd/dancing?lang=eng)
+*See also* [[BD Dancing.md|BD Dancing]]
 
 saw the calf, and the *dancing*, [[Exodus 32.19|Exodus 32:19]].
 

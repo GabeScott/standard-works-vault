@@ -12,7 +12,7 @@ The name of which I shall speak is not a personal name, yet the same principles 
 
 “Thus shall my church be called in the last days, even The Church of Jesus Christ of Latter-day Saints” ([[D&C 115.4|D&C 115:4]]).
 
-Note carefully the language of the Lord. He did not say, “Thus shall my church be *named.*” He said, “Thus shall my church be *called.*” Years ago, members were cautioned by the Brethren, who wrote, “We feel that some may be misled by the too frequent use of the term ‘Mormon Church’” (*Member-Missionary Class, Instructor’s Guide* \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1982\], p. 2). Before any other name is considered to be a legitimate substitute, the thoughtful person might reverently consider the feelings of the Heavenly Parent who bestowed that name.
+Note carefully the language of the Lord. He did not say, “Thus shall my church be *named.*” He said, “Thus shall my church be *called.*” Years ago, members were cautioned by the Brethren, who wrote, “We feel that some may be misled by the too frequent use of the term ‘Mormon Church’” (*Member-Missionary Class, Instructor’s Guide* \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1982\], p. 2). Before any other name is considered to be a legitimate substitute, the thoughtful person might reverently consider the feelings of the Heavenly Parent who bestowed that name.
 
 Surely every word that proceeds from the mouth of the Lord is precious. So each word in this name must be important—divinely designated for a reason. If we study the key words in that name, we can better understand the name’s full significance.
 
@@ -22,7 +22,7 @@ The last word in the title is *Saints.* I smile when I remember a comment made a
 
 Such a comment was not only amusing but revealing. It evidenced unfamiliarity with the language of the Bible, in which the word *saint* is used much more frequently than is the term *Christian.*
 
-The word *Christian* appears in only three verses of the King James Version of the Bible. One verse describes the historical fact that “disciples were called Christians first in Antioch” ([[Acts 11.26|Acts 11:26]]); another quotes a sarcastic nonbeliever, King Agrippa (see [[Acts 26.28|Acts 26:28]]); and the third indicates that one known as “a Christian” must be prepared to suffer ([[1 Peter 4.16|1 Pet. 4:16]]).
+The word *Christian* appears in only three verses of the King James Version of the Bible. One verse describes the historical fact that “disciples were called Christians first in Antioch” ([[Acts 11.26|Acts 11:26]]); another quotes a sarcastic nonbeliever, King Agrippa (see [[Acts 26.28|Acts 26:28]]); and the third indicates that one known as “a Christian” must be prepared to suffer ([[1 Peter 4.16|1 Pet. 4:16]]).
 
 In contrast, the term *saint* (or *saints*) appears in thirty-six verses of the Old Testament and in sixty-two verses of the New Testament.
 
@@ -34,11 +34,11 @@ In his epistle to the Ephesians, Paul used the word *saint* at least once in eve
 
 Despite its use in ninety-eight verses of the Bible, the term *saint* is still not well understood. Some mistakenly think that it implies beatification or perfection. Not so! A saint is a believer in Christ and knows of His perfect love. The giving saint shares in a true spirit of that love, and the receiving saint accepts in a true spirit of gratitude. A saint serves others, knowing that the more one serves, the greater the opportunity for the Spirit to sanctify and purify.
 
-A saint is tolerant and is attentive to the pleadings of other human beings, not only to spoken messages but to unspoken messages as well. A saint is different from an individual whose response to a concern might be a selfish “What do *I* care” attitude. A real saint responds, “What? I *do* care!” *Do* is an action verb, and it becomes the driving force in the reply of one who will care for another in need (see [[1 Corinthians 12.25|1 Cor. 12:25–27]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]]; [[2 Corinthians 7.12|2 Cor. 7:12]]).
+A saint is tolerant and is attentive to the pleadings of other human beings, not only to spoken messages but to unspoken messages as well. A saint is different from an individual whose response to a concern might be a selfish “What do *I* care” attitude. A real saint responds, “What? I *do* care!” *Do* is an action verb, and it becomes the driving force in the reply of one who will care for another in need (see [[1 Corinthians 12.25|1 Cor. 12:25–27]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]]; [[2 Corinthians 7.12|2 Cor. 7:12]]).
 
 A saint “refrain\[s\] from idleness” ([[Alma 38.12|Alma 38:12]]) and seeks learning by study and also by faith. Education not only helps in communication with others, it enables one to discern truth from error, particularly through studying the scriptures (see [[D&C 88.118|D&C 88:118]]).
 
-A saint is honest and kind, paying financial obligations promptly and fully, treating others as she or he would want to be treated (see [[Matthew 7.12|Matt. 7:12]]; [[3 Nephi 14.12|3 Ne. 14:12]]; [[D&C 112.11|D&C 112:11]]).
+A saint is honest and kind, paying financial obligations promptly and fully, treating others as she or he would want to be treated (see [[Matthew 7.12|Matt. 7:12]]; [[3 Nephi 14.12|3 Ne. 14:12]]; [[D&C 112.11|D&C 112:11]]).
 
 A saint is an honorable citizen, knowing that the very country which provides opportunity and protection deserves support, including prompt payment of taxes and personal participation in its legal political process (see [[D&C 134.5|D&C 134:5]]).
 
@@ -56,13 +56,13 @@ Finally, a saint is one who receives the gifts of the Spirit that God has promis
 
 The term *latter-day* is an expression especially difficult for translators who labor in languages in which there is not a good equivalent term. Some translations may suggest *last* day.
 
-It is true that scriptures foretell the final days of the earth’s temporal existence as a telestial sphere. The earth will then be renewed and receive its paradisiacal, or terrestrial, glory (see [[Articles of Faith 1.10|A of F 1:10]]). Ultimately, the earth will become celestialized (see [[Revelation 21.1|Rev. 21:1]]; [[D&C 77.1|D&C 77:1]]; [[D&C 88.25|88:25–26]][[D&C 88.26|]]). But its *last* days must be preceded by its *latter* days!
+It is true that scriptures foretell the final days of the earth’s temporal existence as a telestial sphere. The earth will then be renewed and receive its paradisiacal, or terrestrial, glory (see [[Articles of Faith 1.10|A of F 1:10]]). Ultimately, the earth will become celestialized (see [[Revelation 21.1|Rev. 21:1]]; [[D&C 77.1|D&C 77:1]]; [[D&C 88.25|88:25–26]][[D&C 88.26|]]). But its *last* days must be preceded by its *latter* days!
 
 We live in those latter days, and they are really remarkable. The Lord’s Spirit is being poured out upon all inhabitants of the earth, precisely as the Prophet Joel foretold. His prophecy was of such significance that the angel Moroni reaffirmed it to the Prophet Joseph Smith (see [[Joel 2.28|Joel 2:28–32]][[Joel 2.29|]][[Joel 2.30|]][[Joel 2.31|]][[Joel 2.32|]]; [[Joseph Smith History 1.41|JS—H 1:41]]).
 
 For millennia, methods of farming, travel, and communication were largely unchanged from ancient techniques. Developments since the birth of Joseph Smith, however, have risen in remarkable contrast.
 
-Joseph Smith had long been foreordained as God’s prophet for the restoration of the gospel in the fulness of times (see [[2 Nephi 3.7|2 Ne. 3:7–15]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]][[2 Nephi 3.12|]][[2 Nephi 3.13|]][[2 Nephi 3.14|]][[2 Nephi 3.15|]]). Twenty-five years after his birth, The Church of Jesus Christ of Latter-day Saints was officially organized.
+Joseph Smith had long been foreordained as God’s prophet for the restoration of the gospel in the fulness of times (see [[2 Nephi 3.7|2 Ne. 3:7–15]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]][[2 Nephi 3.12|]][[2 Nephi 3.13|]][[2 Nephi 3.14|]][[2 Nephi 3.15|]]). Twenty-five years after his birth, The Church of Jesus Christ of Latter-day Saints was officially organized.
 
 Later in that same century, the telegraph was developed, the Atlantic Ocean was first crossed by a steamship, and the telephone, the automobile, and motion pictures were invented.
 
@@ -82,15 +82,15 @@ Political changes have occurred recently in many countries. Previous restriction
 
 By divine directive, the title of the Church bears the sacred name of Jesus Christ, whose church this is (see [[D&C 115.3|D&C 115:3–4]][[D&C 115.4|]]). He so decreed more than once. Nearly two thousand years ago, the Lord said, “Ye shall *call* the church in my name; …
 
-“And how be it my church save it be *called* in my name?” ([[3 Nephi 27.7|3 Ne. 27:7–8]][[3 Nephi 27.8|]]; italics added).
+“And how be it my church save it be *called* in my name?” ([[3 Nephi 27.7|3 Ne. 27:7–8]][[3 Nephi 27.8|]]; italics added).
 
-We worship God the Eternal Father in the name of His Son by the power of the Holy Ghost. We know the premortal Jesus to be Jehovah, God of the Old Testament. We know Him to be “the chief corner stone” upon which the organization of His Church is based ([[Ephesians 2.20|Eph. 2:20]]). We know Him to be the Rock from whom revelation comes to His authorized agents (see [[1 Corinthians 10.4|1 Cor. 10:4]]; [[Helaman 5.12|Hel. 5:12]]) and to all who worthily seek Him (see [[D&C 88.63|D&C 88:63]]).
+We worship God the Eternal Father in the name of His Son by the power of the Holy Ghost. We know the premortal Jesus to be Jehovah, God of the Old Testament. We know Him to be “the chief corner stone” upon which the organization of His Church is based ([[Ephesians 2.20|Eph. 2:20]]). We know Him to be the Rock from whom revelation comes to His authorized agents (see [[1 Corinthians 10.4|1 Cor. 10:4]]; [[Helaman 5.12|Hel. 5:12]]) and to all who worthily seek Him (see [[D&C 88.63|D&C 88:63]]).
 
-We know that He came into the world to do the will of His Father, who sent Him (see [[3 Nephi 27.13|3 Ne. 27:13]]). His divine mission was to effect the Atonement, which was to break the bands of death and enable us to receive immortality and eternal life.
+We know that He came into the world to do the will of His Father, who sent Him (see [[3 Nephi 27.13|3 Ne. 27:13]]). His divine mission was to effect the Atonement, which was to break the bands of death and enable us to receive immortality and eternal life.
 
 The living Lord’s divine mission still continues. One day we will stand before Him in judgment. He has foretold that event:
 
-“Whoso repenteth and is baptized in my name shall be filled; and if he endureth to the end, behold, him will I hold guiltless before my Father at that day when I shall stand to judge the world” ([[3 Nephi 27.16|3 Ne. 27:16]]).
+“Whoso repenteth and is baptized in my name shall be filled; and if he endureth to the end, behold, him will I hold guiltless before my Father at that day when I shall stand to judge the world” ([[3 Nephi 27.16|3 Ne. 27:16]]).
 
 We revere the name of Jesus Christ. He is our risen Redeemer.
 
@@ -114,7 +114,7 @@ Admission into His church is by baptism. This sacred ordinance is reserved only 
 
 Through the ordinance of baptism, we take upon ourselves the name of the Lord and covenant to be saints in these latter days. We covenant to live by the doctrines of the Church as recorded in sacred scriptures and as revealed to prophets, ancient and modern.
 
-“We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” ([[Articles of Faith 1.9|A of F 1:9]]).
+“We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” ([[Articles of Faith 1.9|A of F 1:9]]).
 
 These revelations include fundamental truths essential to our everlasting happiness and joy. They teach of priorities with eternal potential, such as love of God, family, mother, father, children, and home; self-mastery; care of the poor and needy; service; and thoughtful consideration for others.
 
@@ -127,6 +127,4 @@ As members of His church, we are privileged to participate in its divine destiny
 
 
 
-
-
-#Name_Of_Church #Obedience
+#NameOfChurch #Obedience

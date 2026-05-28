@@ -1,12 +1,12 @@
 # “We Need a Listening Ear”
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/10/we-need-a-listening-ear?lang=eng)
 
-My beloved brethren and sisters all over the world, this morning I express our greetings to Elders Gene R. Cook and F. Enzio Busche, who are ill at this time. I greet you this morning with deepest feelings of love and gratitude at this, the opening session of the world conference of The Church of Jesus Christ of Latter-day Saints.
+My beloved brethren and sisters all over the world, this morning I express our greetings to Elders Gene R. Cook and F. Enzio Busche, who are ill at this time. I greet you this morning with deepest feelings of love and gratitude at this, the opening session of the world conference of The Church of Jesus Christ of Latter-day Saints.
 
 Many things have happened, personally and in the Church, in the interval since our April conference six months ago. I have twice been hospitalized and am most thankful that I am alive and well and able to meet with you today. I thank you for the many prayers offered in my behalf and am grateful that our Heavenly Father answered those prayers with blessings upon me in such rich abundance.
 
@@ -52,15 +52,15 @@ From time immemorial the Lord has counseled us to be a record-keeping people. In
 
 And further: “And it came to pass that the Lord spake unto Moses, saying: Behold, I reveal unto you concerning this heaven, and this earth; write the words which I speak” ([[Moses 2.1|Moses 2:1]]).
 
-Nephi said to his brothers as they journeyed from the wilderness back to Jerusalem to obtain the plates of brass: “Behold, it is wisdom in God that we should obtain these records, that we may preserve unto our children the language of our fathers” ([[1 Nephi 3.19|1 Ne. 3:19]]).
+Nephi said to his brothers as they journeyed from the wilderness back to Jerusalem to obtain the plates of brass: “Behold, it is wisdom in God that we should obtain these records, that we may preserve unto our children the language of our fathers” ([[1 Nephi 3.19|1 Ne. 3:19]]).
 
 When the Savior visited this continent following his resurrection, he commanded the Nephites to bring their records up to date, saying:
 
-“Therefore give heed to my words; write the things which I have told you. …
+“Therefore give heed to my words; write the things which I have told you. …
 
-“And Jesus said unto them: How be it that ye have not written this thing … ?
+“And Jesus said unto them: How be it that ye have not written this thing … ?
 
-“And it came to pass that Jesus commanded that it should be written; therefore it was written according as he commanded” ([[3 Nephi 23.4|3 Ne. 23:4, 11, 13]][[3 Nephi 23.11|]][[3 Nephi 23.13|]]).
+“And it came to pass that Jesus commanded that it should be written; therefore it was written according as he commanded” ([[3 Nephi 23.4|3 Ne. 23:4, 11, 13]][[3 Nephi 23.11|]][[3 Nephi 23.13|]]).
 
 And in our day the Lord said to the Prophet Joseph Smith, “And again, let all the records be had in order, that they may be put in the archives of my holy temple” ([[D&C 127.9|D&C 127:9]]).
 
@@ -78,7 +78,7 @@ Each of us is a son or daughter of God and has a responsibility to measure up to
 
 Tonight I plan to speak to the priesthood brethren, assembled in hundreds of locations around the world, and remind them that “we have all been blessed with special women in our lives who have had a deep and lasting influence upon us. Their contribution has been and is important to us \[brethren\] and is something which will be of everlasting value to us.” (See *Ensign,* Nov. 1979, p. 48.) I wish to emphasize that thought this morning. I cannot impress upon all of us too strongly the high place of honor and respect our wives, mothers, sisters, and daughters hold in The Church of Jesus Christ of Latter-day Saints.
 
-“Nevertheless neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]).
+“Nevertheless neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]).
 
 Brethren, we cannot be exalted without our wives. There can be no heaven without righteous women.
 
@@ -94,7 +94,7 @@ The tobacco habit can be cured by merely living the Word of Wisdom and the comma
 
 Living the completely chaste life, committing no adultery or fornication, being completely true to one’s spouse, and honoring the marriage covenant would rid the world of the ravages of the ugly, painful, and costly venereal diseases. It would strengthen the home, abolish the evils of divorce, and eliminate the necessity for the calamity of unwarranted abortions—one of the major evils of our day.
 
-While addressing the Saints from this pulpit in 1948, the late President J. Reuben Clark, Jr., spoke concerning having a prophet and a listening ear. He had read a pamphlet stating, “We need a prophet.” In answer he said, “No, we have had modern-day prophets for more than a hundred years, and they have given us the word of the Lord.” He continued, “The trouble with the world is they do not want a prophet teaching righteousness. They want a prophet that will tell them that what they are doing is right, no matter how wrong it may be.” A prophet has spoken—the prophet is speaking. We do not need another prophet. What we need is a listening ear. (See Conference Report, Oct. 1948, pp. 79–80).
+While addressing the Saints from this pulpit in 1948, the late President J. Reuben Clark, Jr., spoke concerning having a prophet and a listening ear. He had read a pamphlet stating, “We need a prophet.” In answer he said, “No, we have had modern-day prophets for more than a hundred years, and they have given us the word of the Lord.” He continued, “The trouble with the world is they do not want a prophet teaching righteousness. They want a prophet that will tell them that what they are doing is right, no matter how wrong it may be.” A prophet has spoken—the prophet is speaking. We do not need another prophet. What we need is a listening ear. (See Conference Report, Oct. 1948, pp. 79–80).
 
 I pray that we may not only heed the words of President Clark, but that we may listen and follow the counsel that is now given as it comes by inspiration and revelation from the Lord himself to the prophets today.
 
@@ -105,8 +105,6 @@ The gospel of Jesus Christ is for all the world. It is the message of salvation 
 Brothers and sisters, this is the work of the Lord. It is true. May the Lord bless us all in our homes and families as we strive to draw nearer to him and keep his commandments. We extend the same prayer and blessing to our Father’s other children everywhere and invite them to come and be one with us in the Lord’s true kingdom here upon the earth.
 
 This is my prayer and my testimony in the name of our beloved Savior, Jesus Christ, amen.
-
-
 
 
 

@@ -44,7 +44,7 @@ But wonderful as this time is, it is fraught with peril. Evil is all about us. I
 
 “Traitors, heady, highminded, lovers of pleasures more than lovers of God;
 
-“Having a form of godliness, but denying the power thereof: from such turn away” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]]).
+“Having a form of godliness, but denying the power thereof: from such turn away” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]]).
 
 We see today all of these evils, more commonly and generally, than they have ever been seen before, as we have so recently been reminded by what has occurred in New York City, Washington, and Pennsylvania, of which I shall speak tomorrow morning. We live in a season when fierce men do terrible and despicable things. We live in a season of war. We live in a season of arrogance. We live in a season of wickedness, pornography, immorality. All of the sins of Sodom and Gomorrah haunt our society. Our young people have never faced a greater challenge. We have never seen more clearly the lecherous face of evil.
 
@@ -61,8 +61,6 @@ As we recognize our place and our goal, we cannot become arrogant. We cannot bec
 How I love you, my brothers and sisters of this great cause. I love you for what you have become and for what you can become. Notwithstanding the afflictions about us, notwithstanding the sordid things we see almost everywhere, notwithstanding the conflict that sweeps across the world, we can be better.
 
 I invoke the blessings of heaven upon you as I express my love for you and commend to you the great messages you will hear from this pulpit during the next two days, and do so in the sacred name of our Lord, Jesus Christ, amen.
-
-
 
 
 

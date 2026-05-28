@@ -16,7 +16,7 @@ Has it only been one year since our beloved prophet announced the building of 32
 
 Our youngest son, Spencer, now serving a mission in Mongolia, wrote that his mission president was addressing the missionaries and members concerning their duty in building up the Church there. “As President Cox opened the discussion for questions, the first response was, ‘When is Mongolia going to have a temple?’ These people,” Spencer said, “are hungering for the gospel to play a greater part in their lives. They don’t even have a Book of Mormon yet, and they want a temple.”
 
-Why all this fuss about temples? Simply put, the purpose of temples “is to redeem all mankind who are obedient to the laws and commandments of God. The gospel in its fulness was revealed to Adam. … \[And\] Saints of all ages have had temples in one form or another” (David B. Haight, in Conference Report, Apr. 1993, 29–30; or *Ensign,* May 1993, 23–24).
+Why all this fuss about temples? Simply put, the purpose of temples “is to redeem all mankind who are obedient to the laws and commandments of God. The gospel in its fulness was revealed to Adam. … \[And\] Saints of all ages have had temples in one form or another” (David B. Haight, in Conference Report, Apr. 1993, [[1993 April - Personal Temple Worship.md|29–30]]; or *Ensign,* May 1993, 23–24).
 
 Joseph Smith said, “The greatest responsibility in this world that God has laid upon us is to seek after our dead” (*History of the Church,* 6:313). If this is true, then as parents and family members our greatest challenge is to prepare our families for the temple. Parents have the primary responsibility, but grandparents, aunts and uncles, even brothers and sisters all may teach the family.
 
@@ -46,11 +46,19 @@ New understanding comes as we prepare our families for the temple. May I share a
 
 2. *The spiritual atmosphere of the temple curbs our appetite for worldly things.* When we attend frequently, we no longer have such a need to wear the latest fashion, and we are not so easily drawn to the entertainment of the world.
 
-3. *The temple is a place of revelation.* Many years ago I was walking into the temple, and in my mind I heard the words, *Learn public speaking.* I thought to myself, *When will I ever have need for public speaking?* Over several months’ period of time I tried very inadequately to conjure up some enthusiasm to obey the prompting I had received. I even checked out a tape from the local library by a public speaker who admitted that his goal was to someday speak in the Mormon Tabernacle. I thought at the time, *I’ll never be speaking in the Tabernacle!*Elder John A. Widtsoe has said, “At the most unexpected moments, in or out of the temple will come to \[us\], as a revelation, the solution of the problems that vex \[our lives\]. … It is a place where revelations may be expected” (“Temple Worship,” *Utah Genealogical and Historical Magazine,* Apr. 1921, 63–64).
+3. *The temple is a place of revelation.* Many years ago I was walking into the temple, and in my mind I heard the words, *Learn public speaking.* I thought to myself, *When will I ever have need for public speaking?* Over several months’ period of time I tried very inadequately to conjure up some enthusiasm to obey the prompting I had received. I even checked out a tape from the local library by a public speaker who admitted that his goal was to someday speak in the Mormon Tabernacle. I thought at the time, *I’ll never be speaking in the Tabernacle!*
 
-4. *One of the biggest lessons I have learned is that Satan will try to keep us from going to the temple.* During a discussion with friends once, they shared with me that whenever they attend, they don’t tell anybody they are going. They just jump into their cars and go because if they don’t, something is sure to happen to keep them away.I remember reading of a warning given by the president of the Logan Temple that Satan’s followers will “whisper in the ears of the people persuading them not to go to the Temple” (“Genealogical Department,” *Church News,* 12 Dec. 1936, 8). “Temple work brings so much resistance because it is the source of so much spiritual power to the Latter-day Saints” (Boyd K. Packer, “The Holy Temple,” *Ensign,* Feb. 1995, 36).
+Elder John A. Widtsoe has said, “At the most unexpected moments, in or out of the temple will come to \[us\], as a revelation, the solution of the problems that vex \[our lives\]. … It is a place where revelations may be expected” (“Temple Worship,” *Utah Genealogical and Historical Magazine,* Apr. 1921, 63–64).
 
-5. *The Spirit of Elijah is brooding in the land.* As we work with youth of the Church, we see they are being drawn to their temples.In Nicaragua, Central America, a group of 49 young women and their leaders took 2,000 names to the Guatemala City Temple. It took each girl a year to save enough money to go. These faithful young women rode a bus almost two days’ journey through three country borders and spent two or three days at the temple before returning home.In another ward, young people have located the names of 10,000 ancestors as they have turned their hearts to their families. Where temples are available, we see youth doing baptisms for the dead, sometimes on an individual weekly basis.
+4. *One of the biggest lessons I have learned is that Satan will try to keep us from going to the temple.* During a discussion with friends once, they shared with me that whenever they attend, they don’t tell anybody they are going. They just jump into their cars and go because if they don’t, something is sure to happen to keep them away.
+
+I remember reading of a warning given by the president of the Logan Temple that Satan’s followers will “whisper in the ears of the people persuading them not to go to the Temple” (“Genealogical Department,” *Church News,* 12 Dec. 1936, 8). “Temple work brings so much resistance because it is the source of so much spiritual power to the Latter-day Saints” (Boyd K. Packer, “The Holy Temple,” *Ensign,* Feb. 1995, 36).
+
+5. *The Spirit of Elijah is brooding in the land.* As we work with youth of the Church, we see they are being drawn to their temples.
+
+In Nicaragua, Central America, a group of 49 young women and their leaders took 2,000 names to the Guatemala City Temple. It took each girl a year to save enough money to go. These faithful young women rode a bus almost two days’ journey through three country borders and spent two or three days at the temple before returning home.
+
+In another ward, young people have located the names of 10,000 ancestors as they have turned their hearts to their families. Where temples are available, we see youth doing baptisms for the dead, sometimes on an individual weekly basis.
 
 6. *In the temple the Spirit of the Lord provides comfort and peace, especially during moments of despair.* Recently I met a 35-year-old woman in the temple. As we visited, I asked if her husband was with her. With a look of tenderness in her eyes, she shared with me that he had died of a brain tumor three months ago. The temple is her anchor; the Spirit found in the temple gives her comfort and peace, and perhaps her husband was there.
 
@@ -69,6 +77,4 @@ Brothers and sisters, as servants of the living God, we shall press forward in t
 
 
 
-
-
-#Children #Covenants #Parenthood #Preparation #Satan #Spirituality #Teaching #Temple_Work #Temples
+#Children #Covenants #Parenthood #Preparation #Satan #Spirituality #Teaching #Temples #TempleWork

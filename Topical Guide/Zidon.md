@@ -1,4 +1,3 @@
 # Zidon
 
-
-*See* [BD Zidon](https://www.churchofjesuschrist.org/study/scriptures/bd/zidon?lang=eng)
+*See also* [[BD Zidon.md|BD Zidon]]

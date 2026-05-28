@@ -1,6 +1,6 @@
 # Grateful in Any Circumstances
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -109,17 +109,17 @@ May we “live in thanksgiving daily”[^18]—especially during the seemingly u
 
 
 
-[^1]: [[D&C 59.7|Doctrine and Covenants 59:7]]; see also [[Ephesians 5.20|Ephesians 5:20]]; [[1 Thessalonians 5.18|1 Thessalonians 5:18]]; [[Mosiah 26.39|Mosiah 26:39]]; [[Alma 7.23|Alma 7:23]]; [[D&C 98.1|Doctrine and Covenants 98:1]].
+[^1]: [[D&C 59.7|Doctrine and Covenants 59:7]]; see also [[Ephesians 5.20|Ephesians 5:20]]; [[1 Thessalonians 5.18|1 Thessalonians 5:18]]; [[Mosiah 26.39|Mosiah 26:39]]; [[Alma 7.23|Alma 7:23]]; [[D&C 98.1|Doctrine and Covenants 98:1]].
 
 [^2]: [[Psalms 147.7|Psalm 147:7]].
 
 [^3]: [[Alma 37.37|Alma 37:37]].
 
-[^4]: See [[1 Nephi 18.10|1 Nephi 18:10–16]][[1 Nephi 18.11|]][[1 Nephi 18.12|]][[1 Nephi 18.13|]][[1 Nephi 18.14|]][[1 Nephi 18.15|]][[1 Nephi 18.16|]].
+[^4]: See [[1 Nephi 18.10|1 Nephi 18:10–16]][[1 Nephi 18.11|]][[1 Nephi 18.12|]][[1 Nephi 18.13|]][[1 Nephi 18.14|]][[1 Nephi 18.15|]][[1 Nephi 18.16|]].
 
 [^5]: [[Job 1.21|Job 1:21]].
 
-[^6]: For examples of pioneers who maintained a cheerful attitude despite intense difficulty, see Andrew D. Olsen, *The Price We Paid: The Extraordinary Story of the Willie and Martin Handcart Pioneers* (2006), 10, 366–67.
+[^6]: For examples of pioneers who maintained a cheerful attitude despite intense difficulty, see Andrew D. Olsen, *The Price We Paid: The Extraordinary Story of the Willie and Martin Handcart Pioneers* (2006), 10, 366–67.
 
 [^7]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
@@ -131,7 +131,7 @@ May we “live in thanksgiving daily”[^18]—especially during the seemingly u
 
 [^11]: [[Luke 24.39|Luke 24:39]].
 
-[^12]: See [[Romans 5.3|Romans 5:3]]; [[2 Corinthians 4.17|2 Corinthians 4:17]]; [[2 Corinthians 12.10|12:10]].
+[^12]: See [[Romans 5.3|Romans 5:3]]; [[2 Corinthians 4.17|2 Corinthians 4:17]]; [[2 Corinthians 12.10|12:10]].
 
 [^13]: See [[Moses 1.3|Moses 1:3]].
 
@@ -139,9 +139,10 @@ May we “live in thanksgiving daily”[^18]—especially during the seemingly u
 
 [^15]: [[Alma 26.13|Alma 26:13]].
 
-[^16]: See Marcus Tullius Cicero, *Oratio Pro Cnæo Plancio,* XXXIII, section 80; quoted in Joseph B. Wirthlin, “Live in Thanksgiving Daily,” *Ensign,* Sept. 2001, 8.
+[^16]: See Marcus Tullius Cicero, *Oratio Pro Cnæo Plancio,* XXXIII, section 80; quoted in Joseph B. Wirthlin, “Live in Thanksgiving Daily,” *Ensign,* Sept. 2001, 8.
 
 [^17]: [[D&C 78.19|Doctrine and Covenants 78:19]]; emphasis added.
 
+[^18]: [[Alma 34.38|Alma 34:38]].
 
 #Adversity #Gratitude

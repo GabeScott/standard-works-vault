@@ -1,6 +1,6 @@
 # The Faith of a Child
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -26,7 +26,7 @@ Christal never made the flight to Salt Lake City. Her condition deteriorated. Th
 
 Meanwhile in Salt Lake City, with no knowledge of the events transpiring in Shreveport, a most unusual situation developed. For the weekend of the Shreveport Louisiana Stake Conference, I had been assigned to El Paso, Texas. President Ezra Taft Benson called me to his office and explained that one of the other Brethren had done some preparatory work regarding the stake division in El Paso. He asked if I would mind were another to be assigned to El Paso and I assigned elsewhere. Of course there was no problem—anywhere would be fine with me. Then President Benson said, “Brother Monson, I feel impressed to have you visit the Shreveport Louisiana Stake.” The assignment was accepted. The day came. I arrived in Shreveport.
 
-That Saturday afternoon was filled with meetings—one with the stake presidency, one with priesthood leaders, one with the patriarch, then yet another with the general leadership of the stake. Rather apologetically, Stake President Charles F. Cagle asked if my schedule would permit me time to provide a blessing to a ten-year-old girl afflicted with cancer. Her name: Christal Methvin. I responded that, if possible, I would do so, and then inquired if she would be at the conference, or was she in a Shreveport hospital? Knowing the time was tightly scheduled, President Cage almost whispered that Christal was confined to her home—*more than eighty miles from Shreveport!*
+That Saturday afternoon was filled with meetings—one with the stake presidency, one with priesthood leaders, one with the patriarch, then yet another with the general leadership of the stake. Rather apologetically, Stake President Charles F. Cagle asked if my schedule would permit me time to provide a blessing to a ten-year-old girl afflicted with cancer. Her name: Christal Methvin. I responded that, if possible, I would do so, and then inquired if she would be at the conference, or was she in a Shreveport hospital? Knowing the time was tightly scheduled, President Cage almost whispered that Christal was confined to her home—*more than eighty miles from Shreveport!*
 
 I examined the schedule of meetings for that evening and the next morning—even my return flight. There simply was no available time. An alternative suggestion came to mind. Could we not remember the little one in our public prayers at conference? Surely the Lord would understand. On this basis, we proceeded with the scheduled meetings.
 
@@ -81,8 +81,6 @@ I know these are the words he spoke to the throng gathered on the coast of Judea
 I know these are the words he spoke to an apostle on assignment in Shreveport, Louisiana—for I heard them.
 
 To these truths I bear record, in the name of Jesus Christ. Amen.
-
-
 
 
 

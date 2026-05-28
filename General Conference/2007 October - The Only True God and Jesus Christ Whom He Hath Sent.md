@@ -77,10 +77,8 @@ I testify that my witness of these things is true and that the heavens are open 
 
 [^18]: See [[Romans 6.9|Romans 6:9]]; [[Alma 11.45|Alma 11:45]].
 
-[^19]: See [[1 Nephi 10.6|1 Nephi 10:6]]; [[2 Nephi 2.8|2 Nephi 2:8]]; [[2 Nephi 31.19|31:19]]; [[Moroni 6.4|Moroni 6:4]]; [[Romans 3.note24a|Joseph Smith Translation, Romans 3:24]].
+[^19]: See [[1 Nephi 10.6|1 Nephi 10:6]]; [[2 Nephi 2.8|2 Nephi 2:8]]; [[2 Nephi 31.19|31:19]]; [[Moroni 6.4|Moroni 6:4]]; [Joseph Smith Translation, Romans 3:24](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3?lang=eng&id=note24a#note24a).
 
 [^20]: [[John 17.3|John 17:3]].
 
-
-
-#Atonement #Godhead #Jesus_Christ #Restoration
+#Atonement #Godhead #JesusChrist #Restoration

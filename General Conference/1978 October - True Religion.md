@@ -1,6 +1,6 @@
 # True Religion
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -72,13 +72,11 @@ Poor, indeed, and destitute is the man who disclaims being religious because he 
 
 “And these shall go away into everlasting punishment: but the righteous into life eternal.” ([[Matthew 25.45|Matt. 25:45–46]][[Matthew 25.46|]].)
 
-President Joseph F. Smith, a former president of the Church, wrote these words many years ago: “Do not say that you are not naturally religious, and so make that an excuse for evil deeds and forbidden acts. … Be rather religious both in appearance and in reality, remembering what true religion means. Even as the testimony of Jesus is the spirit of prophecy, so is the possession of the knowledge that you love purity, righteousness, honesty, justice and well-doing, an indisputable evidence that you are naturally religious.”
+President Joseph F. Smith, a former president of the Church, wrote these words many years ago: “Do not say that you are not naturally religious, and so make that an excuse for evil deeds and forbidden acts. … Be rather religious both in appearance and in reality, remembering what true religion means. Even as the testimony of Jesus is the spirit of prophecy, so is the possession of the knowledge that you love purity, righteousness, honesty, justice and well-doing, an indisputable evidence that you are naturally religious.”
 
 President Smith continued: “Search your hearts, and you will find deep down that you possess this knowledge. Then encourage its growth and development, to the gaining of your own salvation.” (“Not Naturally Religious,” *Improvement Era,* Apr. 1906, p. 495.)
 
 I pray we may serve our fellowmen and remain unspotted from worldly influences, so that we may be worthy to be considered truly religious and receive the approbation of the Lord, in the name of Jesus Christ. Amen.
-
-
 
 
 

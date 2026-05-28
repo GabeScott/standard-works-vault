@@ -1,6 +1,5 @@
 # Noon
 
-
 *See also* [[Noonday.md|Noonday]]
 
 Evening, and morning, and at *noon*, will I pray, [[Psalms 55.17|Psalms 55:17]].

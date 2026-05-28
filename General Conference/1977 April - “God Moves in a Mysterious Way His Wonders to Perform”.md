@@ -65,6 +65,4 @@ God bless you. I believe the words of the prophets, and I know that this Church 
 
 
 
-
-
-#Family_History #Prophecy #Restoration
+#FamilyHistory #Prophecy #Restoration

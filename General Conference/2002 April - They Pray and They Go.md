@@ -16,7 +16,7 @@ The promise from the book of Proverbs gives us courage:
 
 “Trust in the Lord with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.”[^1]
 
-We need but to turn to the account found in 1 Kings to appreciate anew the principle that when we follow the counsel of the Lord, when we pray and then go, the outcome benefits all. There we read that a most severe drought had gripped the land. Famine followed. Elijah the prophet received from the Lord what to him must have been an amazing instruction: “Get thee to Zarephath … : behold, I have commanded a widow woman there to sustain thee.” When he had found the widow, Elijah declared, “Fetch me, I pray thee, a little water in a vessel, that I may drink.
+We need but to turn to the account found in 1 Kings to appreciate anew the principle that when we follow the counsel of the Lord, when we pray and then go, the outcome benefits all. There we read that a most severe drought had gripped the land. Famine followed. Elijah the prophet received from the Lord what to him must have been an amazing instruction: “Get thee to Zarephath … : behold, I have commanded a widow woman there to sustain thee.” When he had found the widow, Elijah declared, “Fetch me, I pray thee, a little water in a vessel, that I may drink.
 
 “And as she was going to fetch it, he called to her, and said, Bring me, I pray thee, a morsel of bread in thine hand.”
 
@@ -30,7 +30,7 @@ How implausible to her must have been Elijah’s response: “Fear not; go and d
 
 “And the barrel of meal wasted not, neither did the cruse of oil fail.”[^2]
 
-If I were to ask you which of all the passages in the Book of Mormon is the most widely read, I venture it would be the account found in 1 Nephi concerning Nephi, his brothers, his father, and the command to obtain from Laban the plates of brass. Perhaps this is because most of us, from time to time, pledge to again read the Book of Mormon. Usually we begin with 1 Nephi. In reality, the passages found therein portray beautifully the need to pray and then to go and do. Said Nephi, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.”[^3]
+If I were to ask you which of all the passages in the Book of Mormon is the most widely read, I venture it would be the account found in 1 Nephi concerning Nephi, his brothers, his father, and the command to obtain from Laban the plates of brass. Perhaps this is because most of us, from time to time, pledge to again read the Book of Mormon. Usually we begin with 1 Nephi. In reality, the passages found therein portray beautifully the need to pray and then to go and do. Said Nephi, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.”[^3]
 
 We remember the commandment. We remember the response. We remember the outcome.
 
@@ -44,7 +44,7 @@ From the movie *Shenandoah* come the spoken words which inspire: “If we don’
 
 There are now more than 60,000 full-time missionaries serving the Lord throughout the world. Many of this vast throng are listening in tonight and viewing this priesthood session of general conference. They pray and then they go, trusting in the Lord concerning where they are sent and trusting in their mission president as to where they serve within their missions. Among the many revelations concerning their sacred callings are two passages which are favorites of mine. Both are from the Doctrine and Covenants.
 
-The first is from section 100. You will remember that Joseph Smith and Sidney Rigdon had been absent from their families for some time, and they were concerned about them. The Lord revealed unto them this assurance, which is comforting to missionaries throughout the Church: “Verily, thus saith the Lord unto you, my friends … , your families are well; they are in mine hands, and I will do with them as seemeth me good; for in me there is all power.”[^5]
+The first is from section 100. You will remember that Joseph Smith and Sidney Rigdon had been absent from their families for some time, and they were concerned about them. The Lord revealed unto them this assurance, which is comforting to missionaries throughout the Church: “Verily, thus saith the Lord unto you, my friends … , your families are well; they are in mine hands, and I will do with them as seemeth me good; for in me there is all power.”[^5]
 
 The second is from the 84th section of the Doctrine and Covenants: “Whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”[^6]
 
@@ -95,9 +95,9 @@ In the name of Jesus Christ, amen.
 
 [^1]: [[Proverbs 3.5|Prov. 3:5–6]][[Proverbs 3.6|]].
 
-[^2]: [[1 Kings 17.9|1 Kgs. 17:9–11, 13–16]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]]; see also [[1 Kings 17.12|v. 12]].
+[^2]: [[1 Kings 17.9|1 Kgs. 17:9–11, 13–16]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]]; see also [[1 Kings 17.12|v. 12]].
 
-[^3]: [[1 Nephi 3.7|1 Ne. 3:7]].
+[^3]: [[1 Nephi 3.7|1 Ne. 3:7]].
 
 [^4]: See Richard J. Marshall, “Saga of Sacrifice,” *Ensign,* Aug. 1974, 66–67.
 
@@ -109,12 +109,10 @@ In the name of Jesus Christ, amen.
 
 [^8]: [[Matthew 19.26|Matt. 19:26]].
 
-[^9]: [[1 Samuel 16.7|1 Sam. 16:7]].
+[^9]: [[1 Samuel 16.7|1 Sam. 16:7]].
 
 [^10]: [[Matthew 28.20|Matt. 28:20]].
 
 [^11]: [[James 1.22|James 1:22]].
 
-
-
-#Blessings #Faith #Missionary_Work #Prayer #Work
+#Blessings #Faith #MissionaryWork #Prayer #Work

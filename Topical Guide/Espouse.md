@@ -1,6 +1,5 @@
 # Espouse
 
-
 *See also* [[Betroth.md|Betroth]]; [[Marriage, Marry.md|Marriage, Marry]]
 
 Mary was *espoused* to Joseph, [[Matthew 1.18|Matthew 1:18]].

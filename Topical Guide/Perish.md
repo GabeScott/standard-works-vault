@@ -1,6 +1,5 @@
 # Perish
 
-
 *See also* [[Destroy.md|Destroy]]; [[Die.md|Die]]
 
 that the land *perish* not through the famine, [[Genesis 41.36|Genesis 41:36]].
@@ -9,7 +8,7 @@ unto the Lord to gaze, and many of them *perish*, [[Exodus 19.21|Exodus 19:21]].
 
 ye shall *perish* among the heathen, [[Leviticus 26.38|Leviticus 26:38]].
 
-I testify ... that ye shall surely *perish*, [[Deuteronomy 8.19|Deuteronomy 8:19]] ([[Deuteronomy 30.18|Deuteronomy 30:18]]).
+I testify … that ye shall surely *perish*, [[Deuteronomy 8.19|Deuteronomy 8:19]] ([[Deuteronomy 30.18|Deuteronomy 30:18]]).
 
 way of the ungodly shall *perish*, [[Psalms 1.6|Psalms 1:6]].
 
@@ -39,7 +38,7 @@ it is profitable for thee that one of thy members should *perish*, [[Matthew 5.2
 
 Lord, save us: we *perish*, [[Matthew 8.25|Matthew 8:25]] ([[Mark 4.38|Mark 4:38]]; [[Luke 8.24|Luke 8:24]]).
 
-not the will of your Father ... that one of these little ones should *perish*, [[Matthew 18.14|Matthew 18:14]].
+not the will of your Father … that one of these little ones should *perish*, [[Matthew 18.14|Matthew 18:14]].
 
 they that take the sword shall *perish* with the sword, [[Matthew 26.52|Matthew 26:52]].
 
@@ -67,7 +66,7 @@ By faith the harlot Rahab *perished* not, [[Hebrews 11.31|Hebrews 11:31]].
 
 shall utterly *perish* in their own corruption, [[2 Peter 2.12|2 Peter 2:12]].
 
-Lord ... not willing that any should *perish*, [[2 Peter 3.9|2 Peter 3:9]].
+Lord … not willing that any should *perish*, [[2 Peter 3.9|2 Peter 3:9]].
 
 *perished* in the gainsaying of Core, [[Jude 1.11|Jude 1:11]].
 
@@ -105,4 +104,4 @@ an idol, which waxeth old and shall *perish* in Babylon, [[D&C 1.16|D&C 1:16]].
 
 these which thine eyes are upon shall *perish* in the floods, [[Moses 7.38|Moses 7:38]].
 
-famine might be turned away ... that they might not *perish*, [[Abraham 2.17|Abraham 2:17]].
+famine might be turned away … that they might not *perish*, [[Abraham 2.17|Abraham 2:17]].

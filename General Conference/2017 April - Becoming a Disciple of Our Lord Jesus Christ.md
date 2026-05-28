@@ -1,6 +1,6 @@
 # Becoming a Disciple of Our Lord Jesus Christ
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -30,7 +30,7 @@ Of these, Jesus declared:
 
 The attributes of the Savior, as we perceive them, are not a script to be followed or list to be checked off. They are interwoven characteristics, added one to another, which develop in us in interactive ways. In other words, we cannot obtain one Christlike characteristic without also obtaining and influencing others. As one characteristic becomes strong, so do many more.
 
-In [[2 Peter 1.1|2 Peter]][[2 Peter 1.2|]][[2 Peter 1.3|]][[2 Peter 1.4|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]][[2 Peter 1.9|]][[2 Peter 1.10|]][[2 Peter 1.11|]][[2 Peter 1.12|]][[2 Peter 1.13|]][[2 Peter 1.14|]][[2 Peter 1.15|]][[2 Peter 1.16|]][[2 Peter 1.17|]][[2 Peter 1.18|]][[2 Peter 1.19|]][[2 Peter 1.20|]][[2 Peter 1.21|]] and in [[D&C 4.1|Doctrine and Covenants section 4]][[D&C 4.2|]][[D&C 4.3|]][[D&C 4.4|]][[D&C 4.5|]][[D&C 4.6|]][[D&C 4.7|]], we learn that faith in the Lord Jesus Christ is the foundation. We measure our faith by what it leads us to do—by our obedience. “If ye will have faith in me,” the Lord promised, “ye shall have power to do whatsoever thing is expedient in me.”[^8] Faith is a catalyst. Without works, without virtuous living, our faith is without power to activate discipleship. Indeed, faith is dead.[^9]
+In [[2 Peter 1.1|2 Peter]][[2 Peter 1.2|]][[2 Peter 1.3|]][[2 Peter 1.4|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]][[2 Peter 1.9|]][[2 Peter 1.10|]][[2 Peter 1.11|]][[2 Peter 1.12|]][[2 Peter 1.13|]][[2 Peter 1.14|]][[2 Peter 1.15|]][[2 Peter 1.16|]][[2 Peter 1.17|]][[2 Peter 1.18|]][[2 Peter 1.19|]][[2 Peter 1.20|]][[2 Peter 1.21|]] and in [[D&C 4.1|Doctrine and Covenants section 4]][[D&C 4.2|]][[D&C 4.3|]][[D&C 4.4|]][[D&C 4.5|]][[D&C 4.6|]][[D&C 4.7|]], we learn that faith in the Lord Jesus Christ is the foundation. We measure our faith by what it leads us to do—by our obedience. “If ye will have faith in me,” the Lord promised, “ye shall have power to do whatsoever thing is expedient in me.”[^8] Faith is a catalyst. Without works, without virtuous living, our faith is without power to activate discipleship. Indeed, faith is dead.[^9]
 
 And so, Peter explains, “add to your faith virtue.” This virtue is more than sexual purity. It is cleanliness and holiness in mind and body. Virtue is also power. As we faithfully live the gospel, we will have power to be virtuous in every thought, feeling, and action. Our minds become more receptive to the promptings of the Holy Ghost and the Light of Christ.[^10] We embody Christ not only in what we say and do but also in who we are.
 
@@ -63,7 +63,7 @@ Brothers and sisters, we are all called to be disciples of our Savior. Let this 
 
 
 
-[^1]: [[2 Peter 1.5|2 Peter 1:5–7]][[2 Peter 1.6|]][[2 Peter 1.7|]].
+[^1]: [[2 Peter 1.5|2 Peter 1:5–7]][[2 Peter 1.6|]][[2 Peter 1.7|]].
 
 [^2]: See [[Luke 13.14|Luke 13:14]].
 
@@ -81,7 +81,7 @@ Brothers and sisters, we are all called to be disciples of our Savior. Let this 
 
 [^9]: See [[James 2.20|James 2:20]].
 
-[^10]: See [[1 Corinthians 2.16|1 Corinthians 2:16]].
+[^10]: See [[1 Corinthians 2.16|1 Corinthians 2:16]].
 
 [^11]: [[John 7.17|John 7:17]].
 
@@ -105,11 +105,12 @@ Brothers and sisters, we are all called to be disciples of our Savior. Let this 
 
 [^21]: [[Moroni 7.47|Moroni 7:47]].
 
-[^22]: [[1 Corinthians 13.1|1 Corinthians 13:1–2]][[1 Corinthians 13.2|]].
+[^22]: [[1 Corinthians 13.1|1 Corinthians 13:1–2]][[1 Corinthians 13.2|]].
 
 [^23]: See [[D&C 4.5|Doctrine and Covenants 4:5]].
 
-[^24]: [[1 Corinthians 13.13|1 Corinthians 13:13]].
+[^24]: [[1 Corinthians 13.13|1 Corinthians 13:13]].
 
+[^25]: [[Mormon 9.27|Mormon 9:27]].
 
-#Adversity #Charity #Discipleship #Faith #Jesus_Christ #Obedience #Patience
+#Adversity #Charity #Discipleship #Faith #JesusChrist #Obedience #Patience

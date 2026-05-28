@@ -8,7 +8,7 @@ By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/one-in-christ?lang=eng)
 
-Good afternoon, my dear brothers and sisters. As we say in my native Brazilian Portuguese, “Boa tarde!” I feel blessed to gather together in this wonderful general conference of The Church of Jesus Christ of Latter-day Saints under the direction of our beloved prophet, President Russell M. Nelson. I marvel at the great opportunity each of us has to listen to the Lord’s voice through His servants on earth in these latter days we are living in.
+Good afternoon, my dear brothers and sisters. As we say in my native Brazilian Portuguese, “Boa tarde!” I feel blessed to gather together in this wonderful general conference of The Church of Jesus Christ of Latter-day Saints under the direction of our beloved prophet, President Russell M. Nelson. I marvel at the great opportunity each of us has to listen to the Lord’s voice through His servants on earth in these latter days we are living in.
 
 My home country of Brazil is very rich in natural resources. One of them is the famous Amazon River, one of the largest and longest rivers in the world. It is formed by two separate rivers, the Solimões and Negro. Interestingly, they flow together for a number of miles before the waters blend, due to the rivers having very different origins, speeds, temperatures, and chemical compositions. After several miles, the waters finally blend together, becoming a river different than its individual parts. Only after these parts merge, the Amazon River becomes so powerful that when it reaches the Atlantic Ocean, it pushes back the seawater so that fresh water can still be found for many miles out into the ocean.
 
@@ -18,7 +18,7 @@ The Lord has inspired His prophets to teach us how we can support and love each 
 
 When we promise at baptism to follow the Savior, we witness before the Father that we are willing to take upon us the name of Christ.[^2] As we strive to acquire His divine attributes in our lives, we become different than we were, through the Atonement of Christ the Lord, and our love for all people increases naturally.[^3] We feel a sincere concern for everyone’s welfare and happiness. We see each other as brothers and sisters, as children of God with divine origin, attributes, and potential. We desire to care for each other and bear one another’s burdens.[^4]
 
-This is what Paul described as charity.[^5] Mormon, a prophet of the Book of Mormon, described it as “the pure love of Christ,”[^6] which is the most sublime, noblest, and strongest form of love. Our current prophet, President Russell M. Nelson, recently described a manifestation of this pure love of Christ as ministering, which is a more focused and holier approach to love and care for other individuals like the Savior did.[^7]
+This is what Paul described as charity.[^5] Mormon, a prophet of the Book of Mormon, described it as “the pure love of Christ,”[^6] which is the most sublime, noblest, and strongest form of love. Our current prophet, President Russell M. Nelson, recently described a manifestation of this pure love of Christ as ministering, which is a more focused and holier approach to love and care for other individuals like the Savior did.[^7]
 
 Let us consider this principle of love and care, as the Savior did, within the context of encouraging, helping, and supporting those who are recent converts and those beginning to show interest in attending our Church services.
 
@@ -63,21 +63,21 @@ I invite you to seek the Lord’s help in loving others as He has loved you. Let
 
 [^4]: See [[Mosiah 18.8|Mosiah 18:8]].
 
-[^5]: See [[1 Corinthians 13.1|1 Corinthians 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].
+[^5]: See [[1 Corinthians 13.1|1 Corinthians 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].
 
 [^6]: [[Moroni 7.47|Moroni 7:47]].
 
-[^7]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 68–75.
+[^7]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 68–75.
 
 [^8]: See [[Mosiah 27.25|Mosiah 27:25]].
 
-[^9]: [[1 Peter 2.9|1 Peter 2:9]].
+[^9]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^10]: See [[D&C 18.10|Doctrine and Covenants 18:10]].
 
-[^11]: [[Moroni 6.4|Moroni 6:4]]; see also “[How Do I Work with Stake and Ward Leaders?](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-work-with-stake-and-ward-leaders?lang=eng)” *Preach My Gospel: A Guide to Missionary Service,* rev. ed. (2018), lds.org/manual/missionary.
+[^11]: [[Moroni 6.4|Moroni 6:4]]; see also “[How Do I Work with Stake and Ward Leaders?](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-work-with-stake-and-ward-leaders?lang=eng)” *Preach My Gospel: A Guide to Missionary Service,* rev. ed. (2018), lds.org/manual/missionary.
 
-[^12]: See [[1 Nephi 7.12|1 Nephi 7:12]].
+[^12]: See [[1 Nephi 7.12|1 Nephi 7:12]].
 
 [^13]: See [[Mormon 8.35|Mormon 8:35]].
 
@@ -85,10 +85,8 @@ I invite you to seek the Lord’s help in loving others as He has loved you. Let
 
 [^15]: [[Ephesians 2.19|Ephesians 2:19]].
 
-[^16]: [[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added.
+[^16]: [[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added.
 
 [^17]: [[Moroni 7.48|Moroni 7:48]].
 
-
-
-#Church_Callings #Conversion #Convert_Retention #Friendship #Love #Scripture_Study
+#ChurchCallings #ConvertRetention #Conversion #Friendship #Love #ScriptureStudy

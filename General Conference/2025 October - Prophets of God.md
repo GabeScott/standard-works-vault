@@ -8,15 +8,15 @@ By Sister Andrea Muñoz Spannaus - *Second Counselor in the Young Women General 
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/10/46spannaus?lang=eng)
 
-Dear youth, what a beautiful conference session we are having! We have already heard three living Apostles of Jesus Christ. What a wonderful blessing! And we will still hear one more, Elder Henry B. Eyring. The spiritual feast continues!
+Dear youth, what a beautiful conference session we are having! We have already heard three living Apostles of Jesus Christ. What a wonderful blessing! And we will still hear one more, Elder Henry B. Eyring. The spiritual feast continues!
 
 When I spoke last year, we learned how to face this world through David’s experience with Goliath. Remember the five stones? Today I am sharing an Old Testament story I read at your age which left me wanting to be like its protagonist. The Bible does not tell us her name, so we will call her the woman of Shunem because this is the name of her town.
 
-One day the prophet Elisha was passing through Shunem, and we read that there “was a great woman; and she \[invited\][^1] him to eat bread. And so it was, that as oft as he passed by, he turned in … to eat bread.”[^2] I imagine the prophet Elisha was so happy with the invitation to eat at her house! He had already gone several times, when one day the woman said to her husband, “Now, I perceive that this *is an holy man of God*.”[^3]
+One day the prophet Elisha was passing through Shunem, and we read that there “was a great woman; and she \[invited\][^1] him to eat bread. And so it was, that as oft as he passed by, he turned in … to eat bread.”[^2] I imagine the prophet Elisha was so happy with the invitation to eat at her house! He had already gone several times, when one day the woman said to her husband, “Now, I perceive that this *is an holy man of God*.”[^3]
 
 The woman says, “*Now,* I perceive.” It seems she invited Elisha to her house without knowing he was the prophet; she received her testimony through the Holy Ghost by listening carefully to what Elisha said and taught. (Remember, there were no pictures at that time! So it was hard to recognize the prophet just by his face.)
 
-But the story does not end there. One day the woman said to her husband, “Let us make a little chamber, … and let us set for him there a bed, and a table, and a stool, and a candlestick: and it shall be, when he cometh to us, that he shall turn in.”[^4]
+But the story does not end there. One day the woman said to her husband, “Let us make a little chamber, … and let us set for him there a bed, and a table, and a stool, and a candlestick: and it shall be, when he cometh to us, that he shall turn in.”[^4]
 
 This faithful woman was willing to build a room in her house so that the prophet, passing through the city, would have a place to stay!
 
@@ -34,7 +34,7 @@ Let’s start at the beginning.
 
 **Prophets are seers and revelators.** That means they can see what others cannot see, and they can prophesy of future events. They can also prepare us for calamities. Prophets receive commandments and revelations from the Lord.[^7] The [[Articles of Faith 1.9|ninth article of faith]] speaks of the continuing revelation in these last days. It says, “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God.”
 
-Elder Gary E. Stevenson said, “The Lord continues to reveal His commandments and will to His prophets today because He desires to lead us to happiness in this life and to celestial glory in the next life.”[^8]
+Elder Gary E. Stevenson said, “The Lord continues to reveal His commandments and will to His prophets today because He desires to lead us to happiness in this life and to celestial glory in the next life.”[^8]
 
 Prophets also proclaim the gospel and are inspired teachers and messengers of God to everyone on earth.[^9]
 
@@ -81,29 +81,29 @@ I am grateful for the guidance and consecrated efforts of the living prophets. I
 
 [^1]: The Spanish translation of this phrase conveys the meaning “insistently invited.”
 
-[^2]: [[2 Kings 4.8|2 Kings 4:8]].
+[^2]: [[2 Kings 4.8|2 Kings 4:8]].
 
-[^3]: [[2 Kings 4.9|2 Kings 4:9]]; emphasis added.
+[^3]: [[2 Kings 4.9|2 Kings 4:9]]; emphasis added.
 
-[^4]: [[2 Kings 4.10|2 Kings 4:10]].
+[^4]: [[2 Kings 4.10|2 Kings 4:10]].
 
 [^5]: See [[Amos 3.7|Amos 3:7]].
 
-[^6]: “Under the Lord’s direction, \[the President of the Church\] presides over the Church and is the only person on earth authorized to exercise all priesthood keys. … He has authority to receive revelation and declare the will of God for the whole Church” (*General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [5.1.1.1](https://churchofjesuschrist.org/study/manual/general-handbook/5-general-and-area-leadership?lang=eng&id=title_number3#title_number3), Gospel Library).
+[^6]: “Under the Lord’s direction, \[the President of the Church\] presides over the Church and is the only person on earth authorized to exercise all priesthood keys. … He has authority to receive revelation and declare the will of God for the whole Church” (*General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [5.1.1.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/5-general-and-area-leadership?lang=eng&id=title_number3#title_number3), Gospel Library).
 
 [^7]: See [[D&C 1.38|Doctrine and Covenants 1:38]].
 
-[^8]: Gary E. Stevenson, “[The Gospel of Jesus Christ: A Cheering Sound](https://churchofjesuschrist.org/study/ftsoy/2025/07/02-the-gospel-of-jesus-christ-a-cheering-sound?lang=eng),” *For the Strength of Youth*, July 2025, 5.
+[^8]: Gary E. Stevenson, “[The Gospel of Jesus Christ: A Cheering Sound](https://www.churchofjesuschrist.org/study/ftsoy/2025/07/02-the-gospel-of-jesus-christ-a-cheering-sound?lang=eng),” *For the Strength of Youth*, July 2025, 5.
 
 [^9]: See [[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]]; [[D&C 21.1|Doctrine and Covenants 21:1, 4–5]][[D&C 21.4|]][[D&C 21.5|]]; [[D&C 107.35|107:35]].
 
-[^10]: “Each Apostle holds all the keys of the kingdom and exercises those keys under the direction of the President of the Church” (*General Handbook*, [5.1.1.1](https://churchofjesuschrist.org/study/manual/general-handbook/5-general-and-area-leadership?lang=eng&id=title_number3#title_number3)).
+[^10]: “Each Apostle holds all the keys of the kingdom and exercises those keys under the direction of the President of the Church” (*General Handbook*, [5.1.1.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/5-general-and-area-leadership?lang=eng&id=title_number3#title_number3)).
 
-[^11]: See *General Handbook*, [5.1.1.1](https://churchofjesuschrist.org/study/manual/general-handbook/5-general-and-area-leadership?lang=eng&id=title_number3#title_number3).
+[^11]: See *General Handbook*, [5.1.1.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/5-general-and-area-leadership?lang=eng&id=title_number3#title_number3).
 
 [^12]: See [[D&C 107.27|Doctrine and Covenants 107:27–31]][[D&C 107.28|]][[D&C 107.29|]][[D&C 107.30|]][[D&C 107.31|]].
 
-[^13]: “The Twelve Apostles are ‘special witnesses’ of the name of Jesus Christ. … They witness to all the world of His divinity and the reality of His Resurrection” (*General Handbook*, [5.1.1.1](https://churchofjesuschrist.org/study/manual/general-handbook/5-general-and-area-leadership?lang=eng&id=title_number3#title_number3)).
+[^13]: “The Twelve Apostles are ‘special witnesses’ of the name of Jesus Christ. … They witness to all the world of His divinity and the reality of His Resurrection” (*General Handbook*, [5.1.1.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/5-general-and-area-leadership?lang=eng&id=title_number3#title_number3)).
 
 [^14]: [[Mosiah 15.1|Mosiah 15:1–2]][[Mosiah 15.2|]].
 
@@ -111,9 +111,9 @@ I am grateful for the guidance and consecrated efforts of the living prophets. I
 
 [^16]: [[Ether 12.39|Ether 12:39]].
 
-[^17]: Speaking of the Book of Mormon, the Prophet Joseph Smith taught: “This book also tells us that our Savior made his appearance upon this continent after his resurrection, that he planted the gospel here in all its fulness, and richness, and power, and blessings; that they had apostles, prophets, pastors, teachers and evangelists; the same order, the same priesthood, the same ordinances, gifts, powers, and blessings, as were enjoyed on the Eastern Continent” ([History, 1838–1856, volume C-1 [2 November 1838–31 July 1842]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-c-1-2-november-1838-31-july-1842/456), 1282, josephsmithpapers.org).
+[^17]: Speaking of the Book of Mormon, the Prophet Joseph Smith taught: “This book also tells us that our Savior made his appearance upon this continent after his resurrection, that he planted the gospel here in all its fulness, and richness, and power, and blessings; that they had apostles, prophets, pastors, teachers and evangelists; the same order, the same priesthood, the same ordinances, gifts, powers, and blessings, as were enjoyed on the Eastern Continent” ([History, 1838–1856, volume C-1 \[2 November 1838–31 July 1842\]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-c-1-2-november-1838-31-july-1842/456), 1282, josephsmithpapers.org).
 
-[^18]: [[3 Nephi 12.1|3 Nephi 12:1]]; emphasis added.
+[^18]: [[3 Nephi 12.1|3 Nephi 12:1]]; emphasis added.
 
 [^19]: [[Moses 6.58|Moses 6:58]]; emphasis added.
 
@@ -144,7 +144,5 @@ I am grateful for the guidance and consecrated efforts of the living prophets. I
 [^32]: See [[D&C 1.30|Doctrine and Covenants 1:30]].
 
 [^33]: See [[Articles of Faith 1.5|Articles of Faith 1:5]].
-
-
 
 #Prophets #Revelation #Teaching #Testimony #Youth

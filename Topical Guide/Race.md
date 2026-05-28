@@ -1,7 +1,6 @@
 # Race
 
-
-*See also* [[Run, Ran.md|Run]]
+*See also* [[Run.md|Run]]
 
 *race* is not to the swift, [[Ecclesiastes 9.11|Ecclesiastes 9:11]].
 

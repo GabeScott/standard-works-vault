@@ -54,7 +54,7 @@ You are asked to *look* for an answer to your prayers.[^5] Obey the Master’s c
 
 This guidance about prayer given to Oliver Cowdery can also aid you: “Behold, … you have supposed that I would give it unto you, when you took no thought save it was to ask me.
 
-“… You must study it out in your mind; then … ask me if it be right, and if it is right … your bosom shall burn … ; therefore, you shall *feel* that it is right.”[^8]
+“… You must study it out in your mind; then … ask me if it be right, and if it is right … your bosom shall burn … ; therefore, you shall *feel* that it is right.”[^8]
 
 Then the answer comes as a *feeling* with an accompanying conviction. The Savior defines two separate ways: “I will tell you in your *mind* and in your *heart,* by the Holy Ghost.”[^9]
 
@@ -103,6 +103,4 @@ I testify our Father will always answer your prayers in the way and in the time 
 
 [^13]: [[D&C 59.21|D&C 59:21]].
 
-
-
-#Faith #God_The_Father #Peace #Prayer
+#Faith #GodTheFather #Peace #Prayer

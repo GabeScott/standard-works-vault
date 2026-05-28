@@ -8,7 +8,7 @@ By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/10/sacrament-meeting-and-the-sacrament?lang=eng)
 
-We live in the perilous times prophesied by the Apostle Paul (see [[2 Timothy 3.1|2 Timothy 3:1]]). Those who try to walk the straight and narrow path see inviting detours on every hand. We can be distracted, degraded, downhearted, or depressed. How can we have the Spirit of the Lord to guide our choices and keep us on the path?
+We live in the perilous times prophesied by the Apostle Paul (see [[2 Timothy 3.1|2 Timothy 3:1]]). Those who try to walk the straight and narrow path see inviting detours on every hand. We can be distracted, degraded, downhearted, or depressed. How can we have the Spirit of the Lord to guide our choices and keep us on the path?
 
 In modern revelation the Lord gave the answer in this commandment:
 
@@ -28,13 +28,13 @@ There are occasional exceptions. I sense that some in the rising generation and 
 
 ## II.
 
-I begin with how members of the Church should prepare themselves to participate in the ordinance of the sacrament. In a worldwide leadership training meeting five years ago, Elder Russell M. Nelson of the Quorum of the Twelve Apostles taught priesthood leaders of the Church how to plan and conduct sacrament meetings. “We commemorate His Atonement in a very personal way,” Elder Nelson said. “We bring a broken heart and a contrite spirit to our sacrament meeting. It is the highlight of our Sabbath-day observance” (“Worshiping at Sacrament Meeting,” *Liahona,* Aug. 2004, 12; *Ensign,* Aug. 2004, 26).
+I begin with how members of the Church should prepare themselves to participate in the ordinance of the sacrament. In a worldwide leadership training meeting five years ago, Elder Russell M. Nelson of the Quorum of the Twelve Apostles taught priesthood leaders of the Church how to plan and conduct sacrament meetings. “We commemorate His Atonement in a very personal way,” Elder Nelson said. “We bring a broken heart and a contrite spirit to our sacrament meeting. It is the highlight of our Sabbath-day observance” (“Worshiping at Sacrament Meeting,” *Liahona,* Aug. 2004, 12; *Ensign,* Aug. 2004, 26).
 
 We are seated well before the meeting begins. “During that quiet interval, prelude music is subdued. This is not a time for conversation or transmission of messages but a period of prayerful meditation as leaders and members prepare spiritually for the sacrament” (*Liahona,* Aug. 2004, 13; *Ensign,* Aug. 2004, 27).
 
-When the Savior appeared to the Nephites following His Resurrection, He taught them that they should stop the practice of sacrifice by the shedding of blood. Instead, “ye shall offer for a sacrifice unto me a broken heart and a contrite spirit” ([[3 Nephi 9.20|3 Nephi 9:20]]). That commandment, repeated in the modern revelation directing us to partake of the sacrament each week, tells us how we should prepare. As Elder Nelson taught, “Each member of the Church bears responsibility for the spiritual enrichment that can come from a sacrament meeting” (*Liahona,* Aug. 2004, 14; *Ensign,* Aug. 2004, 28).
+When the Savior appeared to the Nephites following His Resurrection, He taught them that they should stop the practice of sacrifice by the shedding of blood. Instead, “ye shall offer for a sacrifice unto me a broken heart and a contrite spirit” ([[3 Nephi 9.20|3 Nephi 9:20]]). That commandment, repeated in the modern revelation directing us to partake of the sacrament each week, tells us how we should prepare. As Elder Nelson taught, “Each member of the Church bears responsibility for the spiritual enrichment that can come from a sacrament meeting” (*Liahona,* Aug. 2004, 14; *Ensign,* Aug. 2004, 28).
 
-In his writings on the doctrines of salvation, President Joseph Fielding Smith teaches that we partake of the sacrament as our part of commemorating the Savior’s death and sufferings for the redemption of the world. This ordinance was introduced so that we can renew our covenants to serve Him, to obey Him, and to always remember Him. President Smith adds, “We cannot retain the Spirit of the Lord if we do not consistently comply with this commandment” (*Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. \[1954–56\], 2:341).
+In his writings on the doctrines of salvation, President Joseph Fielding Smith teaches that we partake of the sacrament as our part of commemorating the Savior’s death and sufferings for the redemption of the world. This ordinance was introduced so that we can renew our covenants to serve Him, to obey Him, and to always remember Him. President Smith adds, “We cannot retain the Spirit of the Lord if we do not consistently comply with this commandment” (*Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. \[1954–56\], 2:341).
 
 ## III.
 
@@ -50,27 +50,27 @@ When we do this—when we join in the solemnity that should always accompany the
 
 ## IV.
 
-The resurrected Lord emphasized the importance of the sacrament when He visited the American continent and instituted this ordinance among the faithful Nephites. He blessed the emblems of the sacrament and gave them to His disciples and the multitude (see [[3 Nephi 18.1|3 Nephi 18:1–10]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]]), commanding:
+The resurrected Lord emphasized the importance of the sacrament when He visited the American continent and instituted this ordinance among the faithful Nephites. He blessed the emblems of the sacrament and gave them to His disciples and the multitude (see [[3 Nephi 18.1|3 Nephi 18:1–10]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]]), commanding:
 
 “And this shall ye always do to those who repent and are baptized in my name; and ye shall do it in remembrance of my blood, which I have shed for you, that ye may witness unto the Father that ye do always remember me. And if ye do always remember me ye shall have my Spirit to be with you.
 
-“… And if ye shall always do these things blessed are ye, for ye are built upon my rock.
+“… And if ye shall always do these things blessed are ye, for ye are built upon my rock.
 
-“But whoso among you shall do more or less than these are not built upon my rock, but are built upon a sandy foundation; and when the rain descends, and the floods come, and the winds blow, and beat upon them, they shall fall” ([[3 Nephi 18.11|3 Nephi 18:11–13]][[3 Nephi 18.12|]][[3 Nephi 18.13|]]).
+“But whoso among you shall do more or less than these are not built upon my rock, but are built upon a sandy foundation; and when the rain descends, and the floods come, and the winds blow, and beat upon them, they shall fall” ([[3 Nephi 18.11|3 Nephi 18:11–13]][[3 Nephi 18.12|]][[3 Nephi 18.13|]]).
 
-The sacrament is the ordinance that replaced the blood sacrifices and burnt offerings of the Mosaic law, and with it came the Savior’s promise: “And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost” ([[3 Nephi 9.20|3 Nephi 9:20]]).
+The sacrament is the ordinance that replaced the blood sacrifices and burnt offerings of the Mosaic law, and with it came the Savior’s promise: “And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost” ([[3 Nephi 9.20|3 Nephi 9:20]]).
 
 ## V.
 
 Now I speak particularly to the priesthood holders who officiate in the sacrament. This ordinance should always be performed with reverence and dignity. Priests who offer the prayers in behalf of the congregation should speak the words slowly and distinctly, expressing the terms of the covenants and promised blessings. This is a very sacred act.
 
-The teachers who prepare and the deacons who pass the emblems of the sacrament also perform a very sacred act. I love President Thomas S. Monson’s account of how, as a 12-year-old deacon, he was asked by the bishop to take the sacrament to a bedfast brother who longed for this blessing. “His gratitude overwhelmed me,” President Monson said. “The Spirit of the Lord came over me. I stood on sacred ground” (*Inspiring Experiences That Build Faith* \[1994\], 188). All who officiate in this sacred ordinance stand on sacred ground.
+The teachers who prepare and the deacons who pass the emblems of the sacrament also perform a very sacred act. I love President Thomas S. Monson’s account of how, as a 12-year-old deacon, he was asked by the bishop to take the sacrament to a bedfast brother who longed for this blessing. “His gratitude overwhelmed me,” President Monson said. “The Spirit of the Lord came over me. I stood on sacred ground” (*Inspiring Experiences That Build Faith* \[1994\], 188). All who officiate in this sacred ordinance stand on sacred ground.
 
-Young men who officiate in the ordinance of the sacrament should be worthy. The Lord has said, “Be ye clean that bear the vessels of the Lord” ([[D&C 38.42|D&C 38:42]]). The scriptural warning about partaking of the sacrament unworthily (see [[1 Corinthians 11.29|1 Corinthians 11:29]]; [[3 Nephi 18.29|3 Nephi 18:29]]) surely applies also to those who officiate in that ordinance. In administering discipline to Church members who have committed serious sins, a bishop can temporarily withdraw the privilege of *partaking* of the sacrament. That same authority is surely available to withdraw the privilege of *officiating* in that sacred ordinance.
+Young men who officiate in the ordinance of the sacrament should be worthy. The Lord has said, “Be ye clean that bear the vessels of the Lord” ([[D&C 38.42|D&C 38:42]]). The scriptural warning about partaking of the sacrament unworthily (see [[1 Corinthians 11.29|1 Corinthians 11:29]]; [[3 Nephi 18.29|3 Nephi 18:29]]) surely applies also to those who officiate in that ordinance. In administering discipline to Church members who have committed serious sins, a bishop can temporarily withdraw the privilege of *partaking* of the sacrament. That same authority is surely available to withdraw the privilege of *officiating* in that sacred ordinance.
 
 What I said earlier about the importance of appropriate dress for those who receive the ordinance of the sacrament obviously applies with special force to the young men of the Aaronic Priesthood who officiate in any part of that sacred ordinance. All should be well groomed and modestly dressed. There should be nothing about their personal appearance or actions that would call special attention to themselves or distract anyone present from full attention to the worship and covenant making that are the purpose of this sacred service.
 
-Elder Jeffrey R. Holland gave a valuable teaching on this subject in general conference 13 years ago. Since most of our current deacons were not even born when these words were last spoken here, I repeat them for their benefit and that of their parents and teachers: “May I suggest that wherever possible a white shirt be worn by the deacons, teachers, and priests who handle the sacrament. For sacred ordinances in the Church we often use ceremonial clothing, and a white shirt could be seen as a gentle reminder of the white clothing you wore in the baptismal font and an anticipation of the white shirt you will soon wear into the temple and onto your missions” (in Conference Report, Oct. 1995, 89; or *Ensign,* Nov. 1995, 68).
+Elder Jeffrey R. Holland gave a valuable teaching on this subject in general conference 13 years ago. Since most of our current deacons were not even born when these words were last spoken here, I repeat them for their benefit and that of their parents and teachers: “May I suggest that wherever possible a white shirt be worn by the deacons, teachers, and priests who handle the sacrament. For sacred ordinances in the Church we often use ceremonial clothing, and a white shirt could be seen as a gentle reminder of the white clothing you wore in the baptismal font and an anticipation of the white shirt you will soon wear into the temple and onto your missions” (in Conference Report, Oct. 1995, [[1995 October - “This Do in Remembrance of Me”.md|89]]; or *Ensign,* Nov. 1995, 68).
 
 Finally, the sacrament is administered only when authorized by the one holding the keys to this priesthood ordinance. This is why the sacrament is not generally served in the home or at family reunions, even where there are sufficient priesthood holders available. Those who officiate at the sacrament table, prepare the sacrament, or pass it to the congregation should be designated by one who holds or exercises the keys of this ordinance. I refer to the bishopric or to the presidencies of the teachers or deacons quorums. “\[My\] house is a house of order,” the Lord declared ([[D&C 132.8|D&C 132:8]]).
 
@@ -79,6 +79,4 @@ How can we have the Spirit of the Lord to guide our choices so that we will rema
 
 
 
-
-
-#Church_Meetings #Reverence #Sacrament
+#ChurchMeetings #Reverence #Sacrament

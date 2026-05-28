@@ -1,6 +1,6 @@
 # The Importance of Prayer
 
-By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -12,7 +12,7 @@ We have prayed that the Spirit of the Lord would be with us, and our prayers hav
 
 In the time allotted to me today I would like to further consider with you the importance of prayer.
 
-Implanted in the heart of every person, regardless of his or her race or color, is the desire to worship, in some manner, a divine being. The Prophet Joseph Smith observed that “it is the first principle of the gospel to know for a certainty the character of God, and to know that we may converse with Him as one man converses with another. …” (*Documentary History of the Church,* vol. 6, p. 305.)
+Implanted in the heart of every person, regardless of his or her race or color, is the desire to worship, in some manner, a divine being. The Prophet Joseph Smith observed that “it is the first principle of the gospel to know for a certainty the character of God, and to know that we may converse with Him as one man converses with another. …” (*Documentary History of the Church,* vol. 6, p. 305.)
 
 With the knowledge that we can converse with God as one man converses with another, we also understand that we not only have a divine spark within us, but that we are actually spirit children of our Father in heaven.
 
@@ -66,7 +66,7 @@ This sample prayer envisions appreciation, simplicity, and the avoidance of vain
 
 Now, when to pray: Generally, I think we might say that we should pray in secret, with our families, and in worship meetings and public assemblies.
 
-Secret prayer should have a place in every person’s life. Again the Savior gave us the pattern when he said: “… when thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.” ([[Matthew 6.6|Matt. 6:6]].)
+Secret prayer should have a place in every person’s life. Again the Savior gave us the pattern when he said: “… when thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.” ([[Matthew 6.6|Matt. 6:6]].)
 
 The Prophet Joseph Smith, speaking on this subject, stated: “We would say to the brethren, seek to know God in your closets, call upon him in the fields. Follow the directions of the Book of Mormon, and pray over, and for your families, your cattle, your flocks, your herds, your corn, and all things that you possess; ask the blessing of God upon all your labors, and everything that you engage in.” (*DHC,* vol. 5, p. 31.)
 
@@ -84,7 +84,7 @@ Our sacramental and baptismal prayers, of course, are certainly a very important
 
 The Lord has also charged parents “to teach their children to pray, and walk uprightly before the Lord.” ([[D&C 68.28|D&C 68:28]].)
 
-President Heber J. Grant, in referring to this matter, said, “I have little or no fear for the boy or the girl, the young man or the young woman, who honestly and conscientiously supplicate God twice a day for the guidance of His Spirit. I am sure that when temptation comes they will have the strength to overcome it by the inspiration that shall be given to them.” (*Gospel Standards,* p. 26.)
+President Heber J. Grant, in referring to this matter, said, “I have little or no fear for the boy or the girl, the young man or the young woman, who honestly and conscientiously supplicate God twice a day for the guidance of His Spirit. I am sure that when temptation comes they will have the strength to overcome it by the inspiration that shall be given to them.” (*Gospel Standards,* p. 26.)
 
 As parents, it is clearly our duty and privilege to teach our children to pray, and regular family prayers set the pattern.
 
@@ -99,8 +99,6 @@ Yes, as we do our part or magnify our callings, the Lord will make us equal to t
 May we this day commit ourselves to so live that we may go before the Lord with a clear conscience and ask for his divine guidance and assistance. As we do this, we will truly appreciate the words of the beautiful hymn: “O how praying rests the weary! Prayer will change the night to day.” (*Hymns,* no. 31.)
 
 May the choice blessings of our Father in heaven attend you, I humbly pray in the name of Jesus Christ. Amen.
-
-
 
 
 

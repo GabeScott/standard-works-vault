@@ -1,7 +1,6 @@
 # Glad
 
-
-*See also* [[Gladness.md|Gladness]]; [[Happiness, Happy.md|Happiness]]; [[Joy.md|Joy]]; [[Please.md|Please]]
+*See also* [[Gladness.md|Gladness]]; [[Happiness.md|Happiness]]; [[Joy.md|Joy]]; [[Please.md|Please]]
 
 my heart is *glad*, [[Psalms 16.9|Psalms 16:9]] ([[Acts 2.26|Acts 2:26]]).
 
@@ -13,7 +12,7 @@ Egypt was *glad* when they departed, [[Psalms 105.38|Psalms 105:38]].
 
 wise son maketh a *glad* father, [[Proverbs 10.1|Proverbs 10:1]] ([[Proverbs 15.20|Proverbs 15:20]]).
 
-heart ... a good word maketh it *glad*, [[Proverbs 12.25|Proverbs 12:25]].
+heart … a good word maketh it *glad*, [[Proverbs 12.25|Proverbs 12:25]].
 
 is *glad* at calamities shall not be unpunished, [[Proverbs 17.5|Proverbs 17:5]].
 

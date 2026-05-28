@@ -14,7 +14,7 @@ In these perilous times, I find comfort in the promise that “if \[we\] are pre
 
 I empathize with President Joseph F. Smith when he said back in 1907, “Today it is too much the case that our young, vigorous, intelligent women feel that only the aged should be connected with the Relief Society.” Then he declared, *“This is a mistake.”[^2]*
 
-I recently visited Ethiopia, where I met Jennifer Smith. If ever a woman could say she didn’t fit, it was Sister Smith. She said: “I was so unlike any other \[sister\] in our branch. Language, clothing, culture, all seemed to be \[a\] gap \[between us. But\] when we spoke of the Savior … the gap narrowed. When we spoke of a loving Heavenly Father … , there was no gap.” She continued, “We cannot change nor take away the burdens of others, but we can include and belong to each other in love.”[^3]
+I recently visited Ethiopia, where I met Jennifer Smith. If ever a woman could say she didn’t fit, it was Sister Smith. She said: “I was so unlike any other \[sister\] in our branch. Language, clothing, culture, all seemed to be \[a\] gap \[between us. But\] when we spoke of the Savior … the gap narrowed. When we spoke of a loving Heavenly Father … , there was no gap.” She continued, “We cannot change nor take away the burdens of others, but we can include and belong to each other in love.”[^3]
 
 These sisters found a piece of Zion by becoming “of one heart and one mind.”[^4] For “if ye are not one,” says the Lord, “ye are not mine.”[^5] President Hinckley has said that if we “will be united and speak with one voice, \[our\] strength will be incalculable.”[^6] As sisters in Zion, how do we become one? The same way we belong to a spouse or to a family: we share who we are—our feelings, our thoughts, our hearts.
 
@@ -79,9 +79,9 @@ In the name of Jesus Christ, amen.
 
 [^8]: “The Relief Society,” *Ensign,* May 1998, 73.
 
-[^9]: [[1 Corinthians 12.25|1 Corinthians 12:25]].
+[^9]: [[1 Corinthians 12.25|1 Corinthians 12:25]].
 
-[^10]: [[1 Corinthians 12.26|1 Corinthians 12:26]].
+[^10]: [[1 Corinthians 12.26|1 Corinthians 12:26]].
 
 [^11]: [[D&C 84.110|D&C 84:110]]; emphasis added.
 
@@ -91,6 +91,4 @@ In the name of Jesus Christ, amen.
 
 [^14]: Roger Hoffman, “Consider the Lilies.”
 
-
-
-#Preparation #Relief_Society #Service #Sisterhood
+#Preparation #ReliefSociety #Service #Sisterhood

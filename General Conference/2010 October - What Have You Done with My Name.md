@@ -8,7 +8,7 @@ By Elder Mervyn B. Arnold - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/10/what-have-you-done-with-my-name?lang=eng)
 
-When President George Albert Smith was young, his deceased grandfather George A. Smith appeared to him in a dream and asked, “I would like to know what you have done with my name.” President Smith responded, “I have never done anything with your name of which you need be ashamed.”[^1]
+When President George Albert Smith was young, his deceased grandfather George A. Smith appeared to him in a dream and asked, “I would like to know what you have done with my name.” President Smith responded, “I have never done anything with your name of which you need be ashamed.”[^1]
 
 Each week as we partake of the sacrament, we covenant and promise that we are willing to take upon us the name of Christ, always remember Him, and keep His commandments. If we are willing to do so, we are promised that most wonderful blessing—that His Spirit will always be with us.[^2]
 
@@ -22,17 +22,17 @@ Together we wept openly, giving thanks, knowing they had left us something much 
 
 When the beloved prophet Helaman and his wife were blessed with two sons, they named them Lehi and Nephi. Helaman told his sons why they were named after two of their ancestors who had lived upon the earth almost 600 years prior to their births. He said:
 
-“Behold, my sons, … I have given unto you the names of our first parents \[Lehi and Nephi\] … ; and this I have done that when you remember your names … ye may remember *their works;* and when ye remember *their works ye may know how that it is said, and also written, that they were good.*
+“Behold, my sons, … I have given unto you the names of our first parents \[Lehi and Nephi\] … ; and this I have done that when you remember your names … ye may remember *their works;* and when ye remember *their works ye may know how that it is said, and also written, that they were good.*
 
 “Therefore, my sons, I would that ye should do that which is good, *that it may be said of you, and also written, even as it has been said and written of them.*
 
-“… *That ye may have that precious gift of eternal life.*”[^5]
+“… *That ye may have that precious gift of eternal life.*”[^5]
 
 Brothers and sisters, in 600 years, how will our names be remembered?
 
 Speaking of how we can take upon us the name of Christ, and thus protect our good name, Moroni taught:
 
-“And again I would exhort you that ye would *come unto Christ,* and lay hold upon *every good gift,* and *touch not the evil gift, nor the unclean thing.* …
+“And again I would exhort you that ye would *come unto Christ,* and lay hold upon *every good gift,* and *touch not the evil gift, nor the unclean thing.* …
 
 “Yea, *come unto Christ,* and be perfected in him, and deny yourselves of all ungodliness.”[^6]
 
@@ -54,7 +54,7 @@ Our Heavenly Father knew that we would all make mistakes. I am so grateful for t
 
 Our Savior invites us on a daily basis to cleanse our names and return to His presence. His encouragement is full of love and tenderness. Envision with me the Savior’s embrace as I read His words: “Will ye not now return unto me, and repent of your sins, and be converted, that I may heal you?”[^9]
 
-Today I would like to extend the same challenge to each one of you that my parents, who will be forever remembered because of their good names, extended to me. Before you act, picture the Savior standing at your side and ask yourself, “Would I think it, would I say it, or would I do it knowing He is there?” For surely He is there. Our beloved President Thomas S. Monson, who I testify is a prophet, often quotes the following verse of scripture when speaking of our Lord and Savior: “For I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts.”[^10]
+Today I would like to extend the same challenge to each one of you that my parents, who will be forever remembered because of their good names, extended to me. Before you act, picture the Savior standing at your side and ask yourself, “Would I think it, would I say it, or would I do it knowing He is there?” For surely He is there. Our beloved President Thomas S. Monson, who I testify is a prophet, often quotes the following verse of scripture when speaking of our Lord and Savior: “For I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts.”[^10]
 
 In that glorious day when we stand before our beloved Savior to report what we have done with His name, may we be able to declare: “I have fought a good fight, I have finished my course, I have kept the faith.”[^11] “I have honored Thy name.” I testify Jesus is the Christ. He did die that we might live. In the name of Jesus Christ, amen.
 
@@ -77,12 +77,10 @@ In that glorious day when we stand before our beloved Savior to report what we h
 
 [^8]: [[Alma 41.10|Alma 41:10]].
 
-[^9]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^9]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
 [^10]: [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-[^11]: [[2 Timothy 4.7|2 Timothy 4:7]].
+[^11]: [[2 Timothy 4.7|2 Timothy 4:7]].
 
-
-
-#Commandments #Jesus_Christ #Obedience
+#Commandments #JesusChrist #Obedience

@@ -1,12 +1,12 @@
 # To Those Searching for Happiness
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/04/to-those-searching-for-happiness?lang=eng)
 
-In 1896, about two years before I was born, Mr. R. M. Bryce Thomas from London, England, paid a visit to Salt Lake City, Utah, where he first learned about The Church of Jesus Christ of Latter-day Saints.
+In 1896, about two years before I was born, Mr. R. M. Bryce Thomas from London, England, paid a visit to Salt Lake City, Utah, where he first learned about The Church of Jesus Christ of Latter-day Saints.
 
 Following this visit, and after a thorough and searching investigation into the practices and doctrines of the Church, and a comparison of the teachings of the primitive Church of Jesus Christ which was established by Him, with his own church in England, he subsequently became a baptized member.
 
@@ -34,7 +34,7 @@ In 1897 when Bryce Thomas first wrote his article, there were only 37 stakes as 
 
 I quote again from the pamphlet:
 
-“I found that this people possessed a beautiful Temple and a very fine Tabernacle, with prettily laid out and well cared for grounds; their houses too were neat and picturesque, with nice gardens attached to them, while they could boast of a Tabernacle Choir … , the best that I have ever heard. Everything to do with this people appeared to be most excellently managed and looked after, while their missionaries were preaching the Gospel in most parts of the world, having gone out altogether at their own cost, and at a very great sacrifice of self in all cases. The Church organization of the Saints too appeared to be complete and effective. … I therefore decided to secure some of their books, especially the Book of Mormon, in order to learn more of their character and of their doctrines.” (Thomas, first edition, p. 3.)
+“I found that this people possessed a beautiful Temple and a very fine Tabernacle, with prettily laid out and well cared for grounds; their houses too were neat and picturesque, with nice gardens attached to them, while they could boast of a Tabernacle Choir … , the best that I have ever heard. Everything to do with this people appeared to be most excellently managed and looked after, while their missionaries were preaching the Gospel in most parts of the world, having gone out altogether at their own cost, and at a very great sacrifice of self in all cases. The Church organization of the Saints too appeared to be complete and effective. … I therefore decided to secure some of their books, especially the Book of Mormon, in order to learn more of their character and of their doctrines.” (Thomas, first edition, p. 3.)
 
 This he did, and his extensive study convinced him that there truly had been an apostasy from the Church as established by Jesus Christ. He states that he could not find a church which had the same organization and teachings of Jesus Christ as set forth in the Old and New Testament.
 
@@ -52,11 +52,11 @@ In The Church of Jesus Christ of Latter-day Saints, children are not baptized un
 
 From the Bible Mr. Thomas learned that baptism for the dead was practiced in the primitive Church, but had been done away with in latter days. He found much evidence to support this doctrine which caused Paul to write in an epistle to the Corinthians:
 
-“Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
+“Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 Peter answered that question in these words:
 
-“For for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit” ([[1 Peter 4.6|1 Pet. 4:6]]).
+“For for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit” ([[1 Peter 4.6|1 Pet. 4:6]]).
 
 We know by the scriptures that the gospel is preached to the dead and the dead are to be judged according to men in the flesh and live according to God in the spirit. Thus baptism is necessary for those who, during their lifetime, had not opportunity for this ordinance of baptism by immersion for the remission of sin.
 
@@ -137,8 +137,6 @@ Jesus said, “This is my work and my glory—to bring to pass the immortality a
 This is so important, that he gave his life for us that we may be resurrected, and he gave us the plan of life and salvation by which this may be accomplished. Read the Bible and the Book of Mormon, which testify of the things which I have told you this day.
 
 If you are searching for happiness in this life and eternal life with God the Father and his Son Jesus Christ hereafter, then I would exhort all of you to find the way, the truth, and the life, which is in The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ, amen.
-
-
 
 
 

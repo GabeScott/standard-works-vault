@@ -66,7 +66,7 @@ To our hundreds of thousands of home teachers and visiting teachers, I suggest t
 
 As we approach 2008 and a new course of study in our Melchizedek Priesthood quorums and Relief Societies, I renew our caution about how we use the *Teachings of Presidents of the Church* manuals. Many years of inspired work have produced our 2008 volume of the teachings of Joseph Smith, the founding prophet of this dispensation. This is a landmark among Church books. In the past, some teachers have given a chapter of the *Teachings* manuals no more than a brief mention and then substituted a lesson of their own choice. It may have been a good lesson, but this is not an acceptable practice. A gospel teacher is called to teach the subject specified from the inspired materials provided. The best thing a teacher can do with *Teachings: Joseph Smith* is to select and quote from the words of the Prophet on principles that are specially suited to the needs of class members and then direct a class discussion on how to apply those principles in the circumstances of their lives.
 
-I testify of our Heavenly Father, whose children we are and whose plan is designed to qualify us for “eternal life, … the greatest of all the gifts of God” ([[D&C 14.7|D&C 14:7]]; see also [[D&C 76.51|D&C 76:51–59]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]]). I testify of Jesus Christ, whose Atonement makes it possible. And I testify that we are led by prophets—our President, Gordon B. Hinckley, and his counselors—in the name of Jesus Christ, amen.
+I testify of our Heavenly Father, whose children we are and whose plan is designed to qualify us for “eternal life, … the greatest of all the gifts of God” ([[D&C 14.7|D&C 14:7]]; see also [[D&C 76.51|D&C 76:51–59]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]]). I testify of Jesus Christ, whose Atonement makes it possible. And I testify that we are led by prophets—our President, Gordon B. Hinckley, and his counselors—in the name of Jesus Christ, amen.
 
 
 
@@ -79,16 +79,14 @@ I testify of our Heavenly Father, whose children we are and whose plan is design
 
 [^4]: See Nancy Gibbs, “The Magic of the Family Meal,” *Time,* June 12, 2006, 51–52; see also Sarah Jane Weaver, “Family Dinner,” *Church News,* Sept. 8, 2007, 5.
 
-[^5]: In Conference Report, Oct. 2002, 109–10; or *Ensign,* Nov. 2002, 100.
+[^5]: In Conference Report, Oct. 2002, [[2002 October - Each a Better Person.md|109–10]]; or *Ensign,* Nov. 2002, 100.
 
 [^6]: First Presidency letter, Feb. 11, 1999; printed in *Church News,* Feb. 27, 1999, 3.
 
 [^7]: “The Doctrinal Foundation of the Auxiliaries,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 5, 7–8; see also *Ensign,* Aug. 2005, 62, 67.
 
-[^8]: In Conference Report, Oct. 2006, 17, 19; or *Ensign,* Nov. 2006, 18–20.
+[^8]: In Conference Report, Oct. 2006, [[2006 October - O Be Wise.md|17, 19]]; or *Ensign,* Nov. 2006, 18–20.
 
 [^9]: “America the Beautiful,” *Hymns,* no. 338.
-
-
 
 #Family #Priorities #Teaching

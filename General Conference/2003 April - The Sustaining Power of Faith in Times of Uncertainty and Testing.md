@@ -6,7 +6,7 @@ By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 >*Faith in God and in His guidance through the Holy Spirit will sustain you in an increasingly more challenging world.*
 
-[Link](https://www.churchofjesuschrist.org/study/general-conference/2003/04/the-sustaining-power-of-faith-in-times-of-uncertainty-and-testing)
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2003/04/the-sustaining-power-of-faith-in-times-of-uncertainty-and-testing?lang=eng)
 
 Who does not have need of assurance in times of uncertainty and testing? Who is so self-confident that there is never want for a stabilizing influence in life? A fundamental purpose of earth life is personal growth and attainment. Consequently, there must be times of trial and quandary to provide opportunity for that development. What child could ever grow to be self-supporting in maturity if all the critical decisions were made by parents? So it is with our Heavenly Father. His plan of happiness is conceived so that we will have challenges, even difficulties, where decisions of great importance must be made so that we can grow, develop, and succeed in this mortal probation.[^1] Gratefully, in His perfect love, He has provided a way for us to resolve those challenges while growing in strength and capacity. I speak of the sustaining power of faith in times of uncertainty and testing.
 
@@ -66,7 +66,5 @@ There are many around you who are confused and are seeking solutions to life’s
 [^5]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 338.
 
 [^6]: [[James 1.3|James 1:3–4]][[James 1.4|]].
-
-
 
 #Adversity #Character #Faith #Obedience #Peace #Prayer

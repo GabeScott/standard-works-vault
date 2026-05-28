@@ -1,6 +1,6 @@
 # No Time for Contention
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -24,7 +24,7 @@ Certain people and organizations are trying to provoke us into contention with s
 
 “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
-“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.” ([[3 Nephi 11.29|3 Ne. 11:29, 30]][[3 Nephi 11.30|]].)
+“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.” ([[3 Nephi 11.29|3 Ne. 11:29, 30]][[3 Nephi 11.30|]].)
 
 We need to be reminded that contention is a striving against one another, especially in controversy or argument. It is to struggle, fight, battle, quarrel, or dispute. Contention never was and never will be an ally of progress. Our loyalty will never be measured by our participation in controversy. Some misunderstand the realm, scope, and dangers of contention. Too many of us are inclined to declare, “Who, me? I am not contentious, and I’ll fight anyone who says I am.” There are still those among us who would rather lose a friend than an argument. How important it is to know how to disagree without being disagreeable. It behooves all of us to be in the position to involve ourselves in factual discussions and meaningful study, but never in bitter arguments and contention.
 
@@ -46,7 +46,7 @@ There is an area, perhaps insignificant to some, that seems to me to be gnawing 
 
 Stories often reiterate the hate and bitterness caused by contention among neighbors. Some families have been forced to move because of bitter controversy. Going the extra mile, turning the other cheek, swallowing one’s pride, and apologizing are often the only ways in which contention among neighbors can be erased.
 
-From the Savior’s words we learn the source of contention, whether it be in the home, in the community, among the leaders, or in the classroom. “For verily, verily, I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.” ([[3 Nephi 11.29|3 Ne. 11:29]].) This means that Satan has power over us only when we let him in. We have agency. We can choose our behavior. The Prophet Joseph Smith said on one occasion, “The devil has no power over us only as we permit him. The moment we revolt at anything which comes from God, the devil takes power.” (*Teachings of the Prophet Joseph Smith,* p. 181.)
+From the Savior’s words we learn the source of contention, whether it be in the home, in the community, among the leaders, or in the classroom. “For verily, verily, I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.” ([[3 Nephi 11.29|3 Ne. 11:29]].) This means that Satan has power over us only when we let him in. We have agency. We can choose our behavior. The Prophet Joseph Smith said on one occasion, “The devil has no power over us only as we permit him. The moment we revolt at anything which comes from God, the devil takes power.” (*Teachings of the Prophet Joseph Smith,* p. 181.)
 
 When one considers the bad feeling and the unpleasantness caused by contention, it is well to ask, “Why do I participate?” If we are really honest with ourselves, our answers may be something like: “When I argue and am disagreeable, I do not have to change myself. It gives me a chance to get even.” “I am unhappy and I want others to be miserable too.” “I can feel self-righteous. In this way I get my ego built up.” “I don’t want others to forget how much I know!”
 
@@ -69,8 +69,6 @@ Let me share with you some suggestions for alleviating contention:
 5. Practice speaking in a soft, calm voice. The peaceful life can best be attained not by those who speak with a voice of “great tumultuous noise” but by those who follow the Savior’s example and speak with “a still voice of perfect mildness.” ([[Helaman 5.30|Hel. 5:30]].)
 
 There is no time for contention. We must have the will and discipline in our daily lives to fight contention. I promise the valiant God’s help in their efforts to conquer this horrendous foe. Let us “Cease to contend one with another; cease to speak evil one of another.” ([[D&C 136.23|D&C 136:23]].) We only have time to be about our Father’s business. To these truths I leave my testimony, in the name of Jesus Christ. Amen.
-
-
 
 
 

@@ -1,6 +1,6 @@
 # Learn from Alma and Amulek
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -163,5 +163,6 @@ Of this I testify and leave you my blessing as an Apostle of the Lord in the nam
 
 [^13]: [[James 1.5|James 1:5]].
 
+[^14]: See [[Alma 10.7|Alma 10:7]].
 
-#Activation #Book_Of_Mormon #Leadership #Repentance #Service
+#Activation #BookOfMormon #Leadership #Repentance #Service

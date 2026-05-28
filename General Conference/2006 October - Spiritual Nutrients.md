@@ -67,7 +67,7 @@ Brethren, I hope we will be faithful and true to all of our covenants. I pray th
 
 [^2]: [[Job 32.8|Job 32:8]].
 
-[^3]: [[1 Timothy 4.6|1 Timothy 4:6]].
+[^3]: [[1 Timothy 4.6|1 Timothy 4:6]].
 
 [^4]: [[D&C 20.37|D&C 20:37]].
 
@@ -88,7 +88,5 @@ Brethren, I hope we will be faithful and true to all of our covenants. I pray th
 [^12]: [[Alma 34.34|Alma 34:34]].
 
 [^13]: [[D&C 132.47|D&C 132:47]].
-
-
 
 #Faith #Healing #Priesthood #Scriptures #Service

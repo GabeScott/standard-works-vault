@@ -1,6 +1,5 @@
 # Need
 
-
 *See also* [[Necessity.md|Necessity]]; [[Needful.md|Needful]]; [[Needy.md|Needy]]; [[Want.md|Want]]
 
 surely lend him sufficient for his *need*, [[Deuteronomy 15.8|Deuteronomy 15:8]].
@@ -11,7 +10,7 @@ They that be whole *need* not a physician, [[Matthew 9.12|Matthew 9:12]].
 
 parted them to all men, as every man had *need*, [[Acts 2.45|Acts 2:45]].
 
-distribution was ... according as he had *need*, [[Acts 4.35|Acts 4:35]].
+distribution was … according as he had *need*, [[Acts 4.35|Acts 4:35]].
 
 say unto the hand, I have no *need* of thee, [[1 Corinthians 12.21|1 Corinthians 12:21]].
 
@@ -23,7 +22,7 @@ find grace to help in time of *need*, [[Hebrews 4.16|Hebrews 4:16]].
 
 ye have *need* that one teach you, [[Hebrews 5.12|Hebrews 5:12]].
 
-whoso ... seeth his brother have *need*, [[1 John 3.17|1 John 3:17]].
+whoso … seeth his brother have *need*, [[1 John 3.17|1 John 3:17]].
 
 city had no *need* of the sun, [[Revelation 21.23|Revelation 21:23]].
 
@@ -35,7 +34,7 @@ succor those that stand in *need*, [[Mosiah 4.16|Mosiah 4:16]].
 
 comfort those that stand in *need*, [[Mosiah 18.9|Mosiah 18:9]].
 
-ask the Father ... what things soever ye shall stand in *need*, [[Mormon 9.27|Mormon 9:27]].
+ask the Father … what things soever ye shall stand in *need*, [[Mormon 9.27|Mormon 9:27]].
 
 the whole *need* no physician, [[Moroni 8.8|Moroni 8:8]].
 
@@ -45,9 +44,9 @@ he that supposeth that little children *need* baptism is in the gall of bitterne
 
 every man who has *need* may be amply supplied, [[D&C 42.33|D&C 42:33]].
 
-wo be unto man ... that wasteth flesh and hath no *need*, [[D&C 49.21|D&C 49:21]].
+wo be unto man … that wasteth flesh and hath no *need*, [[D&C 49.21|D&C 49:21]].
 
-portions ... according to his circumstances and his wants and *needs*, [[D&C 51.3|D&C 51:3]].
+portions … according to his circumstances and his wants and *needs*, [[D&C 51.3|D&C 51:3]].
 
 he that keepeth the laws of God hath no *need* to break the laws of the land, [[D&C 58.21|D&C 58:21]].
 

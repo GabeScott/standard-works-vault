@@ -1,6 +1,6 @@
 # Let the Clarion Trumpet Sound
 
-By Elder Gregory A. Schwitzer - *Of the Seventy*
+By Elder Gregory A. Schwitzer - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -53,7 +53,7 @@ It is time for us, as Latter-day Saints, to stand up and testify. It is time for
 
 [^1]: “I Am a Child of God,” *Hymns,* no. 301.
 
-[^2]: [[1 Corinthians 14.7|1 Corinthians 14:7–8]][[1 Corinthians 14.8|]].
+[^2]: [[1 Corinthians 14.7|1 Corinthians 14:7–8]][[1 Corinthians 14.8|]].
 
 [^3]: [[Acts 2.14|Acts 2:14]].
 
@@ -65,8 +65,6 @@ It is time for us, as Latter-day Saints, to stand up and testify. It is time for
 
 [^7]: See [[Acts 26.26|Acts 26:26–30]][[Acts 26.27|]][[Acts 26.28|]][[Acts 26.29|]][[Acts 26.30|]].
 
-[^8]: See [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]].
-
-
+[^8]: See [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]].
 
 #Courage #Discipleship

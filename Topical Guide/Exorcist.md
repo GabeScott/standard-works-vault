@@ -1,6 +1,5 @@
 # Exorcist
 
-
-*See also* [BD Exorcist](https://www.churchofjesuschrist.org/study/scriptures/bd/exorcist?lang=eng)
+*See also* [[BD Exorcist.md|BD Exorcist]]
 
 certain of the vagabond Jews, *exorcists*, [[Acts 19.13|Acts 19:13]].

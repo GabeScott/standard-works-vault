@@ -1,6 +1,5 @@
 # Hungry
 
-
 *See also* [[Hunger.md|Hunger]]
 
 which giveth food to the *hungry*, [[Psalms 146.7|Psalms 146:7]].
@@ -19,12 +18,12 @@ He hath filled the *hungry* with good things, [[Luke 1.53|Luke 1:53]].
 
 one is *hungry*, and another is drunken, [[1 Corinthians 11.21|1 Corinthians 11:21]].
 
-obtain riches ... to feed the *hungry*, [[Jacob 2.19|Jacob 2:19]].
+obtain riches … to feed the *hungry*, [[Jacob 2.19|Jacob 2:19]].
 
 such as feeding the *hungry*, [[Mosiah 4.26|Mosiah 4:26]].
 
-pride, despising ... those who were *hungry*, [[Alma 4.12|Alma 4:12]].
+pride, despising … those who were *hungry*, [[Alma 4.12|Alma 4:12]].
 
-suffer the *hungry* ... to pass by you, [[Mormon 8.39|Mormon 8:39]].
+suffer the *hungry* … to pass by you, [[Mormon 8.39|Mormon 8:39]].
 
-preach this gospel ... shall not go *hungry*, [[D&C 84.80|D&C 84:80]].
+preach this gospel … shall not go *hungry*, [[D&C 84.80|D&C 84:80]].

@@ -1,4 +1,3 @@
 # Nebuchadnezzar, Nebuchadrezzar
 
-
-*See* [BD Nebuchadnezzar](https://www.churchofjesuschrist.org/study/scriptures/bd/nebuchadnezzar?lang=eng)
+*See also* [[BD Nebuchadnezzar.md|BD Nebuchadnezzar]]

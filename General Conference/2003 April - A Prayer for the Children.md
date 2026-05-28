@@ -10,11 +10,11 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 At the close of His first day teaching among the Nephite faithful, the resurrected Jesus turned His attention to a special audience which often stands just below the level of our gaze, sometimes nearly out of sight.
 
-The sacred record says: “He commanded that their little children should be brought \[forward\]. …
+The sacred record says: “He commanded that their little children should be brought \[forward\]. …
 
-“And … when they had knelt upon the ground, … he himself also knelt … ; and behold he prayed unto the Father, and the things which he prayed cannot be written, … so great and marvelous \[were the\] things … \[He did\] speak unto the Father. …
+“And … when they had knelt upon the ground, … he himself also knelt … ; and behold he prayed unto the Father, and the things which he prayed cannot be written, … so great and marvelous \[were the\] things … \[He did\] speak unto the Father. …
 
-“… When Jesus had made an end of praying … , he arose … and … wept, … and he took their little children, one by one, and blessed them, and \[again\] prayed unto the Father for them.
+“… When Jesus had made an end of praying … , he arose … and … wept, … and he took their little children, one by one, and blessed them, and \[again\] prayed unto the Father for them.
 
 “And when he had done this he wept again; … \[saying\] unto the multitude, … Behold your little ones.”
 
@@ -57,11 +57,11 @@ May it always be so, I earnestly pray—for the children—in the name of Jesus 
 
 
 
-[^1]: [[3 Nephi 17.11|3 Nephi 17:11, 14–16, 18, 21–23]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.18|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]].
+[^1]: [[3 Nephi 17.11|3 Nephi 17:11, 14–16, 18, 21–23]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.18|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]].
 
 [^2]: See [[John 14.6|John 14:6]].
 
-[^3]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^3]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^4]: [[D&C 68.4|D&C 68:4]].
 
@@ -73,20 +73,18 @@ May it always be so, I earnestly pray—for the children—in the name of Jesus 
 
 [^8]: Marshall McLuhan, quoted in John Leo, “The Proper Place for Commercials,” *U.S. News and World Report,* 30 Oct. 1989, 71.
 
-[^9]: See [[Isaiah 54.2|Isaiah 54:2]]; [[3 Nephi 22.2|3 Nephi 22:2]].
+[^9]: See [[Isaiah 54.2|Isaiah 54:2]]; [[3 Nephi 22.2|3 Nephi 22:2]].
 
 [^10]: See [[Luke 15.17|Luke 15:17]].
 
 [^11]: See Joseph Smith, comp., *Lectures on Faith* (1985), 37 for a defining statement on the parental power of human testimony.
 
-[^12]: [[2 Nephi 25.23|2 Nephi 25:23, 26, 28]][[2 Nephi 25.26|]][[2 Nephi 25.28|]]; emphasis added.
+[^12]: [[2 Nephi 25.23|2 Nephi 25:23, 26, 28]][[2 Nephi 25.26|]][[2 Nephi 25.28|]]; emphasis added.
 
 [^13]: I am indebted to Kahlil Gibran’s *The Prophet* for the suggestion of this metaphor.
 
 [^14]: In *The Columbia World of Quotations* (1996), no. 48047.
 
-[^15]: [[3 Nephi 17.23|3 Nephi 17:23–24]][[3 Nephi 17.24|]].
-
-
+[^15]: [[3 Nephi 17.23|3 Nephi 17:23–24]][[3 Nephi 17.24|]].
 
 #Children #Example #Faith #Parenthood #Testimony

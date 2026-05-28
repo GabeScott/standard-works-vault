@@ -4,6 +4,3 @@
 
 [JST 1 Peter 3:20](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-pet/3?lang=eng)
 
-
-
-

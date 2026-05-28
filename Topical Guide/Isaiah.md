@@ -1,4 +1,3 @@
 # Isaiah
 
-
-*See* [BD Isaiah](https://www.churchofjesuschrist.org/study/scriptures/bd/isaiah?lang=eng)
+*See also* [[BD Isaiah.md|BD Isaiah]]

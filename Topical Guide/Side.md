@@ -1,7 +1,6 @@
 # Side
 
-
-Who is on the Lord's *side*, [[Exodus 32.26|Exodus 32:26]].
+Who is on the Lord’s *side*, [[Exodus 32.26|Exodus 32:26]].
 
 Lord is on my *side*, [[Psalms 118.6|Psalms 118:6]].
 

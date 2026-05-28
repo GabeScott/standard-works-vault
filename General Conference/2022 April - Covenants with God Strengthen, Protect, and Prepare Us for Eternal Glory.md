@@ -1,6 +1,6 @@
 # Covenants with God Strengthen, Protect, and Prepare Us for Eternal Glory
 
-By Jean B. Bingham - *Relief Society General President*
+By Jean B. Bingham - *Relief Society General President*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -26,13 +26,13 @@ I vividly remember rappelling with a group of young women. I was first in the gr
 
 Later, I learned that the anchor bolt had not been securely set, and as I stepped off the edge, the person belaying me was jerked on his back and pulled towards the edge of the cliff. Somehow, he wedged his feet against some rocks. Stabilized in that position, he was able to laboriously lower me, hand over hand, with the rope. Although I couldn’t see him, I knew he was working with all his strength to save me. Another friend was at the bottom of the cliff, prepared to catch me if the rope ceased to hold. As I came within reach, he caught my harness and lowered me to the ground.
 
-With Jesus Christ as our anchor and perfect partner, we are assured of His loving strength in trial and of eventual deliverance through Him. As President M. Russell Ballard taught: “Faith in God and in his Son, the Lord Jesus Christ, is the … anchor we must have in our lives to hold us fast during times of social turbulence and wickedness. … Our faith … must be centered in Jesus Christ, his life and his atonement, and in the restoration of his gospel.”[^2]
+With Jesus Christ as our anchor and perfect partner, we are assured of His loving strength in trial and of eventual deliverance through Him. As President M. Russell Ballard taught: “Faith in God and in his Son, the Lord Jesus Christ, is the … anchor we must have in our lives to hold us fast during times of social turbulence and wickedness. … Our faith … must be centered in Jesus Christ, his life and his atonement, and in the restoration of his gospel.”[^2]
 
 The spiritual equipment that keeps us from being broken on the rocks of adversity is our testimony of Jesus Christ and the covenants we make. We can rely on these supports to guide and carry us to safety. As our willing partner, the Savior will not allow us to fall beyond His reach. Even in our times of suffering and sorrow, He is there to lift and encourage. His power helps us recover from the often-devastating impact of others’ choices. However, we each must put on the harness and make sure the knots are securely tied. We must choose to be anchored to the Savior, to be bound to Him by our covenants.[^3]
 
 How do we strengthen that anchor? We pray with a humble heart, study and ponder the scriptures, take the sacrament with a spirit of repentance and reverence, strive to keep the commandments, and follow the prophet’s counsel. And as we fulfill our everyday tasks in “higher and holier”[^4] ways, we become more connected to the Savior and, at the same time, help others come unto Him.
 
-What does that “higher and holier” way look like? We try to live the gospel in all our interactions. We care for those in need by truly ministering, expressing love through simple service. We share the good news of the gospel with those who need peace and strength and “know not where to find it.”[^5] We work to unite families for eternity on both sides of the veil. And for those who have made covenants in the house of the Lord, as President Russell M. Nelson explained, “Each adult temple patron will wear the sacred garment of the priesthood, \[which\] … reminds us … to walk on the covenant path each day in a higher and holier way.”[^6] These actions are not just an occasional splurge but are essential to our daily happiness—and eternal joy.
+What does that “higher and holier” way look like? We try to live the gospel in all our interactions. We care for those in need by truly ministering, expressing love through simple service. We share the good news of the gospel with those who need peace and strength and “know not where to find it.”[^5] We work to unite families for eternity on both sides of the veil. And for those who have made covenants in the house of the Lord, as President Russell M. Nelson explained, “Each adult temple patron will wear the sacred garment of the priesthood, \[which\] … reminds us … to walk on the covenant path each day in a higher and holier way.”[^6] These actions are not just an occasional splurge but are essential to our daily happiness—and eternal joy.
 
 There is nothing more important to our eternal progress than keeping our covenants with God. When our temple covenants are in force, we can trust in a joyful reunion with loved ones on the other side of the veil. That child or parent or spouse who has left mortality is hoping with all his or her heart that you will be true to the covenants that bind you together. If we disregard or treat lightly our covenants with God, we are putting those eternal ties in danger. Now is the time to repent, repair, and try again.
 
@@ -51,27 +51,28 @@ I testify that as we choose to make covenants with Heavenly Father and access th
 
 [^1]: See “[About the Temple Endowment](https://www.churchofjesuschrist.org/temples/what-is-temple-endowment?lang=eng),” temples.ChurchofJesusChrist.org.
 
-[^2]: M. Russell Ballard, “[Anchor Your Soul](https://churchofjesuschrist.org/study/new-era/1993/03/anchor-your-soul?lang=eng&id=p4#p4),” *New Era*, Mar. 1993, 4.
+[^2]: M. Russell Ballard, “[Anchor Your Soul](https://www.churchofjesuschrist.org/study/new-era/1993/03/anchor-your-soul?lang=eng&id=p4#p4),” *New Era*, Mar. 1993, 4.
 
 [^3]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-[^4]: See Marianne Holman Prescott, “[The Higher and Holier Way](https://www.thechurchnews.com/leaders-and-ministry/2018-05-04/a-higher-and-holier-way-relief-society-general-presidency-shares-more-insight-to-the-call-to-minster-156491),” *Church News*, May 8, 2019, 18.
+[^4]: See Marianne Holman Prescott, “[The Higher and Holier Way](https://www.thechurchnews.com/2018/5/4/23215319/a-higher-and-holier-way-relief-society-general-presidency-shares-more-insight-to-the-call-to-minster),” *Church News*, May 8, 2019, 18.
 
 [^5]: [[D&C 123.12|Doctrine and Covenants 123:12]].
 
-[^6]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2019, 121.
+[^6]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2019, 121.
 
-[^7]: Russell M. Nelson, in Sarah Jane Weaver, “[Prophet Addresses 49,089 in Seattle’s Safeco Field](https://www.churchofjesuschrist.org/church/news/president-nelson-shares-5-lessons-life-has-taught-me-with-49000-in-safeco-field?lang=eng),” *Church News*, Sept. 23, 2018, 8.
+[^7]: Russell M. Nelson, in Sarah Jane Weaver, “[Prophet Addresses 49,089 in Seattle’s Safeco Field](https://www.churchofjesuschrist.org/church/news/president-nelson-shares-5-lessons-life-has-taught-me-with-49000-in-safeco-field?lang=eng),” *Church News*, Sept. 23, 2018, 8.
 
 [^8]: [[D&C 6.21|Doctrine and Covenants 6:21]].
 
 [^9]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-[^10]: See [[3 Nephi 18.24|3 Nephi 18:24]].
+[^10]: See [[3 Nephi 18.24|3 Nephi 18:24]].
 
-[^11]: See Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona*, Nov. 2015, 96.
+[^11]: See Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona*, Nov. 2015, 96.
 
-[^12]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [26.5.1](https://churchofjesuschrist.org/study/manual/general-handbook/26-temple-recommends?lang=eng), ChurchofJesusChrist.org.
+[^12]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [26.5.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/26-temple-recommends?lang=eng), ChurchofJesusChrist.org.
 
+[^13]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” ChurchofJesusChrist.org.
 
-#Adversity #Covenants #Jesus_Christ #Joy #Service #Temples
+#Adversity #Covenants #Joy #JesusChrist #Service #Temples

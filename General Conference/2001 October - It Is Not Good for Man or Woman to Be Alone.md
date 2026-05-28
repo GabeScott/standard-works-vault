@@ -32,7 +32,7 @@ Your future husbands and the men with whom you serve will need the support only 
 
 Young men, your ordination to the priesthood is a grand privilege and responsibility—and not a license to dominate. Be unfailingly worthy to exercise this godly power, which is given you to be of service. A man is never more magnificent than when he is guided by the Spirit to honor the priesthood he holds.
 
-If you will marry a virtuous woman who can hear the voice of the Lord, she will bless your life every day of your life. Consider Eve. She was the first to see that the fruit of the tree was good, and after partaking, she “gave unto her husband … , and he did eat.”[^16] Were it not for Eve, our progression would have ceased. Elder Dallin H. Oaks stated that her act was “a glorious necessity \[that opened\] the doorway toward eternal life. Adam showed his wisdom by doing the same.”[^17]
+If you will marry a virtuous woman who can hear the voice of the Lord, she will bless your life every day of your life. Consider Eve. She was the first to see that the fruit of the tree was good, and after partaking, she “gave unto her husband … , and he did eat.”[^16] Were it not for Eve, our progression would have ceased. Elder Dallin H. Oaks stated that her act was “a glorious necessity \[that opened\] the doorway toward eternal life. Adam showed his wisdom by doing the same.”[^17]
 
 Young men, you will preside at home and in the Church. But be humble enough to listen to and learn from the women in your life. They will provide insight, balance, and unique wisdom. And when challenges come, you will see how resilient a woman committed to God the Father and Jesus Christ is.
 
@@ -53,9 +53,9 @@ Our Father’s patterns help us avoid deception. Look to the Lord and not to the
 
 [^2]: [[Moses 3.18|Moses 3:18]]; see also [[Abraham 5.14|Abr. 5:14]].
 
-[^3]: [[1 Corinthians 11.11|1 Cor. 11:11]].
+[^3]: [[1 Corinthians 11.11|1 Cor. 11:11]].
 
-[^4]: [[1 Peter 5.8|1 Pet. 5:8]].
+[^4]: [[1 Peter 5.8|1 Pet. 5:8]].
 
 [^5]: [[D&C 52.14|D&C 52:14]].
 
@@ -63,7 +63,7 @@ Our Father’s patterns help us avoid deception. Look to the Lord and not to the
 
 [^7]: See [[Moses 5.27|Moses 5:27]].
 
-[^8]: See [[2 Nephi 2.20|2 Ne. 2:20]].
+[^8]: See [[2 Nephi 2.20|2 Ne. 2:20]].
 
 [^9]: See [[Moses 5.12|Moses 5:12]].
 
@@ -81,10 +81,8 @@ Our Father’s patterns help us avoid deception. Look to the Lord and not to the
 
 [^16]: [[Moses 4.12|Moses 4:12]].
 
-[^17]: In Conference Report, Oct. 1993, 98; or *Ensign,* Nov. 1993, 73.
+[^17]: In Conference Report, Oct. 1993, [[1993 October - “The Great Plan of Happiness”.md|98]]; or *Ensign,* Nov. 1993, 73.
 
 [^18]: See [[Abraham 3.26|Abr. 3:26]].
 
-
-
-#Children #Disabilities #Faith #Family #Holy_Ghost #Humility #Marriage #Priesthood #Satan #Temples #Women #Work #Worthiness
+#Children #Disabilities #Faith #Family #HolyGhost #Humility #Marriage #Priesthood #Satan #Temples #Work #Women #Worthiness

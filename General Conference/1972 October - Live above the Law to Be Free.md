@@ -16,15 +16,15 @@ This ability to turn everything into something good appears to be a godly charac
 
 Naturally, such a remarkable person would be enticing to the opposite sex, and so it was with Joseph. Potiphar’s wife, who, to say the most for her, was of very doubtful character, attempted to seduce Joseph; but Joseph was untouchable because of his trust and reliance on the Lord. He tried to reason with her, saying:
 
-“… my master … hath committed all that he hath to my hand;
+“… my master … hath committed all that he hath to my hand;
 
-“There is none greater in this house than I; neither hath he kept back any thing from me but thee, because thou art his wife. …” ([[Genesis 39.8|Gen. 39:8–9]][[Genesis 39.9|]].)
+“There is none greater in this house than I; neither hath he kept back any thing from me but thee, because thou art his wife. …” ([[Genesis 39.8|Gen. 39:8–9]][[Genesis 39.9|]].)
 
-Then, it would seem that he would have followed this declaration with a profession of loyalty to his master because of his appreciation of the trust that Potiphar had placed in him. But he did not; instead, his statement of why he could not submit to her demands revealed the real strength of this choice young man. He said: “… how then can I do this great wickedness, and sin against God?” ([[Genesis 39.9|Gen. 39:9]].) With this statement Joseph showed that he was determined to do the right thing, but do it for the right reason. That reason: because he loved the Lord.
+Then, it would seem that he would have followed this declaration with a profession of loyalty to his master because of his appreciation of the trust that Potiphar had placed in him. But he did not; instead, his statement of why he could not submit to her demands revealed the real strength of this choice young man. He said: “… how then can I do this great wickedness, and sin against God?” ([[Genesis 39.9|Gen. 39:9]].) With this statement Joseph showed that he was determined to do the right thing, but do it for the right reason. That reason: because he loved the Lord.
 
 Oh, yes, it is good to be loyal to your employer, or your friends, or your family. Loyalty is akin to honesty; and if you are not honest, you are really not much good. You are no good to yourself because you lie to yourself. This is called rationalization, but it is really just lying. You are no good to your friends because they cannot trust you. You are no good to the Lord because he cannot use you—unless, of course, it would be as a bad example. If you make a mistake, all is not lost. You can always be used as a bad example.
 
-Joseph vividly demonstrated why he was favored of the Lord, or, as the scriptures said, why “the Lord was with Joseph, and he was a prosperous man. …” ([[Genesis 39.2|Gen. 39:2]].) His reliance was upon the Lord. His trust was in the Lord, and his allegiance ran to the Lord.
+Joseph vividly demonstrated why he was favored of the Lord, or, as the scriptures said, why “the Lord was with Joseph, and he was a prosperous man. …” ([[Genesis 39.2|Gen. 39:2]].) His reliance was upon the Lord. His trust was in the Lord, and his allegiance ran to the Lord.
 
 I believe this is the greatest lesson that can be learned by the youth of Zion—to do the right thing because you love the Lord. It is so vitally important that, I feel, if you do anything in righteousness for any other reason than you love the Lord, you are wrong—at least you are on very shaky ground. And, somewhere your reasons for acting in righteousness will not be strong enough to see you through. You will give way to expediency, or peer group pressure, or honor, or fame, or applause, or the thrill of the moment, or some other worldly reason. Unless your motives are built upon the firm foundation of love of the Lord, you will not be able to stand.
 
@@ -44,11 +44,11 @@ It seems that, at this day and time, everything is in a state of change. There a
 
 Whether walking on the moon, or probing the immensity and vastness of space, or in the depths of the sea, or in darkest Africa, or in Salt Lake City, he is there.
 
-Oh, if we could only learn this lesson and look to his living prophet on earth! In this day and time, following the living prophet is the only way that we can follow the Lord God and do his will. You can’t do it by quoting the dead prophets or ignoring or throwing rocks at the living prophets. Following the prophet today, President Harold B. Lee, is the only real safety we can know in this time of decay.
+Oh, if we could only learn this lesson and look to his living prophet on earth! In this day and time, following the living prophet is the only way that we can follow the Lord God and do his will. You can’t do it by quoting the dead prophets or ignoring or throwing rocks at the living prophets. Following the prophet today, President Harold B. Lee, is the only real safety we can know in this time of decay.
 
 Let us continue with Joseph’s story, and perhaps we can learn how to handle difficult situations by following Joseph’s example. The scripture records that Joseph stoutly resisted the advances of Potiphar’s wife, but one day as he went into the house “to do his business,” it so happened that “there was none of the men of the house there within.” ([[Genesis 39.11|Gen. 39:11]].)
 
-Now, this is always a dangerous situation and should be avoided if at all possible. Potiphar’s wife became particularly insistent, even to taking hold of his coat and attempting to draw him to her. But Joseph did the very best thing he could do under the circumstances. The scripture records, “… he left his garment in her hand, and fled, and got him out.” ([[Genesis 39.12|Gen. 39:12]].) Or, in today’s language—*he ran.*
+Now, this is always a dangerous situation and should be avoided if at all possible. Potiphar’s wife became particularly insistent, even to taking hold of his coat and attempting to draw him to her. But Joseph did the very best thing he could do under the circumstances. The scripture records, “… he left his garment in her hand, and fled, and got him out.” ([[Genesis 39.12|Gen. 39:12]].) Or, in today’s language—*he ran.*
 
 Maybe that doesn’t sound like a very sophisticated thing to do, but sometimes running is the only thing to do. This was such a time. I am sure that Joseph did not know he was going to be alone with her, or he would not have gone into the house. I have great faith in Joseph.
 
@@ -84,7 +84,7 @@ Of course, there is no guarantee that your personal barriers will always stand; 
 
 Yes, Joseph ran, and because he did, he was temporarily placed in prison, where he was shut out from society, but if he had not run, he would have been an eternal prisoner, being shut out from God perhaps forever, because he would not have been in condition to receive the necessary communications that made him the great prophet that he was.
 
-The Lord has such great and tremendous blessing in store for the youth of Zion today if they will but walk uprightly before him and keep his commandments and thus qualify for his blessings. As it is written, “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].) Such blessings come only through obedience to his commandments.
+The Lord has such great and tremendous blessing in store for the youth of Zion today if they will but walk uprightly before him and keep his commandments and thus qualify for his blessings. As it is written, “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].) Such blessings come only through obedience to his commandments.
 
 “There is a law, irrevocably decreed in heaven before the foundations of this world, upon which all blessings are predicated—
 
@@ -93,8 +93,6 @@ The Lord has such great and tremendous blessing in store for the youth of Zion t
 Again, he has said, “If ye love me, keep my commandments.” ([[John 14.15|John 14:15]].)
 
 I pray that we may walk in righteousness because we love the Lord, for surely this *is* the right reason. In the name of Jesus Christ. Amen.
-
-
 
 
 

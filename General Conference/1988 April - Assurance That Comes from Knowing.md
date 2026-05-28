@@ -36,7 +36,7 @@ In the face of this distorted understanding of the truth, Latter-day Saints who 
 
 This assurance and firm commitment “to stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death” ([[Mosiah 18.9|Mosiah 18:9]]) could appear as boastful pride before those accustomed to using mental scarecrows.
 
-But it is not that way. To confuse pride with safety, and vanity with testimony, shows lack of understanding by those who have not allowed the tempering of the Spirit to enter their hearts, who have not had the experience Nephi did when he said, “I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father” ([[1 Nephi 2.16|1 Ne. 2:16]]).
+But it is not that way. To confuse pride with safety, and vanity with testimony, shows lack of understanding by those who have not allowed the tempering of the Spirit to enter their hearts, who have not had the experience Nephi did when he said, “I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father” ([[1 Nephi 2.16|1 Ne. 2:16]]).
 
 So in most cases the problem is not with the sower, but with the soil where the seed is planted, and very often those who are insecure challenge the self-confident person, not necessarily because of his self-confidence but because, by comparison, their own insecurity becomes evident.
 
@@ -60,7 +60,7 @@ This is the assurance found in the lives of faithful Latter-day Saints, coming f
 
 The world may claim that this is pride, but members of the Lord’s kingdom, those who do not live by borrowed light, those who have gained a testimony for themselves that this work is true, call it assurance.
 
-It is the testimony, it is the true knowledge that “God hath not given us the spirit of fear; but of power, and of love, and of a sound mind” ([[2 Timothy 1.7|2 Tim. 1:7]]). This gives us the courage, the strength, and the commitment to testify of Christ and his gospel regardless of circumstances or external factors. But for the weak, the unsure, or those who question that the Latter-day Saints are Christians, these circumstances and external factors prove to be more important than learning of Christ and gaining a testimony.
+It is the testimony, it is the true knowledge that “God hath not given us the spirit of fear; but of power, and of love, and of a sound mind” ([[2 Timothy 1.7|2 Tim. 1:7]]). This gives us the courage, the strength, and the commitment to testify of Christ and his gospel regardless of circumstances or external factors. But for the weak, the unsure, or those who question that the Latter-day Saints are Christians, these circumstances and external factors prove to be more important than learning of Christ and gaining a testimony.
 
 The assurance seen in faithful members of The Church of Jesus Christ of Latter-day Saints is the result of being “doers of the word, and not hearers only” ([[James 1.22|James 1:22]]); it is the result of striving to “live by every word that proceedeth forth from the mouth of God” ([[D&C 84.44|D&C 84:44]]) instead of talking of God yet not conforming actions to His word, as do those who are insecure. It is this assurance, the firm testimony of thousands of missionaries who are “occupied” with all their “heart, might, mind and strength” ([[D&C 4.2|D&C 4:2]]) in serving their fellowmen, as contrasted with millions who are “preoccupied” with worldly involvements and give only lip service.
 
@@ -78,7 +78,7 @@ Wisdom is not to be proclaimed or exhibited, but rather, it is to be sought, to 
 
 What is most important, then, is what we do with our lives. For faithful members of The Church of Jesus Christ of Latter-day Saints, the truth is not an end in itself. Our lives are a constant quest and example of a dynamic relationship between truth and knowledge, between living and being.
 
-As President Joseph F. Smith said, “Pure intelligence comprises not only knowledge, but also the power to properly apply that knowledge” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 58).
+As President Joseph F. Smith said, “Pure intelligence comprises not only knowledge, but also the power to properly apply that knowledge” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 58).
 
 In majestic clarity the Savior declared concerning this subject, “My doctrine is not mine, but his that sent me.
 
@@ -91,6 +91,4 @@ To all those faithful Latter-day Saints who share their testimonies concerning t
 
 
 
-
-
-#Example #Holy_Ghost #Testimony
+#Example #HolyGhost #Testimony

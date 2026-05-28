@@ -1,6 +1,6 @@
 # Reach for the Stars
 
-By Barbara B. Smith - *Relief Society General President*
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -34,7 +34,7 @@ The first hard rule of fixing our scale of living below our means is to budget, 
 
 We should help all women enjoy the peace of mind that comes from making and following a plan for spending. Their lives will begin to have an aura of serenity when their expenses stay within their income.
 
-Women must learn to budget and to help their children learn to budget also. Women and children should know that, no matter how important or how worthwhile an item might seem to be, if they cannot afford it, it is an unwise expenditure. Such expenditures lead to debt; and unwise debt leads to economic insecurity, which most often causes stress in the family. You can make it easier for your children if you do as Elder Marvin J. Ashton suggests: “‘Save your money’ is a hollow pronouncement from a parent to a child. ‘Save your money for a mission, a bicycle, a doll house, a trousseau, or a car’ makes understandable sense.” (*Ensign,* July 1975, p. 73.)
+Women must learn to budget and to help their children learn to budget also. Women and children should know that, no matter how important or how worthwhile an item might seem to be, if they cannot afford it, it is an unwise expenditure. Such expenditures lead to debt; and unwise debt leads to economic insecurity, which most often causes stress in the family. You can make it easier for your children if you do as Elder Marvin J. Ashton suggests: “‘Save your money’ is a hollow pronouncement from a parent to a child. ‘Save your money for a mission, a bicycle, a doll house, a trousseau, or a car’ makes understandable sense.” (*Ensign,* July 1975, p. 73.)
 
 Living on a budget is not a chore. It need not even be a deprivation. Budgeting should be a great learning experience.
 
@@ -63,6 +63,4 @@ May we look for the stars and find satisfaction, even joy, in living according t
 
 
 
-
-
-#Financial_Management #Preparation #Self-Reliance
+#FinancialManagement #Preparation #Self-reliance

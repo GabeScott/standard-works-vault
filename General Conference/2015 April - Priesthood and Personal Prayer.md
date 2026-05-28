@@ -1,6 +1,6 @@
 # Priesthood and Personal Prayer
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -26,7 +26,7 @@ The words came to my mind and my lips that she would live. The doctor standing b
 
 The difference in my feelings at the hospital and the sadness I felt as I walked away from that door as a deacon came from what I had learned about the connection of prayer to priesthood power. As a deacon, I had not yet learned that the power to speak and act in God’s name requires revelation and that to have it when we need it requires praying and working in faith for the companionship of the Holy Ghost.
 
-On the evening before I went to that door for fast offerings, I had said my prayers at bedtime. But for weeks and months before that phone call came from the hospital, I had followed a pattern of prayer and made the effort that President Joseph F. Smith taught will allow God to give us the inspiration necessary for us to have power in the priesthood. He put it simply:
+On the evening before I went to that door for fast offerings, I had said my prayers at bedtime. But for weeks and months before that phone call came from the hospital, I had followed a pattern of prayer and made the effort that President Joseph F. Smith taught will allow God to give us the inspiration necessary for us to have power in the priesthood. He put it simply:
 
 “We do not have to cry unto him with many words. We do not have to weary him with long prayers. What we do need, and what we should do as Latter-day Saints, for our own good, is to go before him often, to witness unto him that we remember him and that we are willing to take upon us his name, keep his commandments, work righteousness; and that we desire his Spirit to help us.”[^1]
 
@@ -40,7 +40,7 @@ President Smith suggested that you will need to pray that God will recognize you
 
 I will give you an example of what a home teacher might do as he prays. You may already know that you are to:
 
-“Visit the house of each member, exhorting them to pray vocally and in secret and attend to all family duties. …
+“Visit the house of each member, exhorting them to pray vocally and in secret and attend to all family duties. …
 
 “… Watch over the church always, and be with and strengthen them;
 
@@ -85,17 +85,17 @@ I bear you my testimony that God the Father lives, loves us, and hears our every
 
 
 
-[^1]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 23.
+[^1]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 23.
 
-[^2]: *Teachings: Joseph F. Smith,* 26.
+[^2]: *Teachings: Joseph F. Smith,* 26.
 
 [^3]: [[Luke 11.2|Luke 11:2]].
 
-[^4]: See Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 215–21.
+[^4]: See Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 215–21.
 
 [^5]: [[D&C 20.51|Doctrine and Covenants 20:51, 53–55]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]].
 
-[^6]: See *Teachings: Joseph F. Smith,* 26.
+[^6]: See *Teachings: Joseph F. Smith,* 26.
 
 [^7]: [[Matthew 25.21|Matthew 25:21]].
 
@@ -103,6 +103,4 @@ I bear you my testimony that God the Father lives, loves us, and hears our every
 
 [^9]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-#Holy_Ghost #Home_Teaching #Prayer #Priesthood #Service
+#HolyGhost #HomeTeaching #Prayer #Priesthood #Service

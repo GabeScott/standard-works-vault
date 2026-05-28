@@ -1,6 +1,6 @@
 # The Responsibility of Young Aaronic Priesthood Bearers
 
-By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -88,7 +88,7 @@ Our Lord counseled us to “seek … first the kingdom of God, and his righteous
 
 You hold sacred priesthood keys, rights, and responsibilities. A troubled world is waiting to hear from you. What will you say? How will you say it? Will the world know that you know for sure where you are going?
 
-Paul taught his young friend Timothy, “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.7|2 Tim. 1:7]].)
+Paul taught his young friend Timothy, “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.7|2 Tim. 1:7]].)
 
 The Lord has placed in our hands the divine power and authority to act in all things, to preach the gospel and perform the ordinances of salvation by which men are sealed up into eternal life. You *are* different from the rest of the world.
 
@@ -106,13 +106,13 @@ Our Lord has used young men your age in many miraculous ways.
 
 Jesus taught and confounded the priests in the temple when only twelve.
 
-David, the young shepherd boy, with complete faith in the Lord, met the Philistine giant, Goliath, on the battlefield. With a prayer in his heart and unafraid, David took a stone out of his bag and, whirling the sling around his head, flung the stone at Goliath, and it sank deep into his forehead. Goliath fell to the earth. A young boy’s courage and faith in God had saved the Israelites. (See [[1 Samuel 17.1|1 Sam. 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]].)
+David, the young shepherd boy, with complete faith in the Lord, met the Philistine giant, Goliath, on the battlefield. With a prayer in his heart and unafraid, David took a stone out of his bag and, whirling the sling around his head, flung the stone at Goliath, and it sank deep into his forehead. Goliath fell to the earth. A young boy’s courage and faith in God had saved the Israelites. (See [[1 Samuel 17.1|1 Sam. 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]].)
 
 Joseph Smith at age fourteen read in James: “If any of you lack wisdom, let him ask of God, … and it shall be given him.” ([[James 1.5|James 1:5]].) Later he said:
 
-“Never did any passage of scripture come with more power to the heart of man. … It seemed to enter with great force into every feeling of my heart. …
+“Never did any passage of scripture come with more power to the heart of man. … It seemed to enter with great force into every feeling of my heart. …
 
-“I retired to the woods. …
+“I retired to the woods. …
 
 “I kneeled down and began to offer up the desire of my heart to God.” ([[Joseph Smith History 1.12|JS—H 1:12, 14–15]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]].)
 
@@ -136,7 +136,7 @@ Your character is yours alone to build. No one can injure your character but you
 
 Life is a competition not with others, but with ourselves. We should seek each day to live stronger, better, truer lives; each day to master some weakness of yesterday; each day to repair a mistake; each day to surpass ourselves.
 
-Elder Howard W. Hunter’s grandson attended tithing settlement with his father some time ago. The bishop indicated his pleasure in the young lad’s wanting to pay a full tithing and asked him if he thought the gospel was true. This seven-year-old boy, having paid his full tithe of fourteen cents, said he guessed the gospel was true, “but it sure costs a lot of money.”
+Elder Howard W. Hunter’s grandson attended tithing settlement with his father some time ago. The bishop indicated his pleasure in the young lad’s wanting to pay a full tithing and asked him if he thought the gospel was true. This seven-year-old boy, having paid his full tithe of fourteen cents, said he guessed the gospel was true, “but it sure costs a lot of money.”
 
 We learn in our youth to pay an honest tithing. The Lord requires one-tenth of what we earn. If you work as a bagger in a grocery store, the money you are paid for every tenth bag of groceries you carry out to a car belongs to the Lord. Pay your tithing monthly or weekly as you are paid. Never be in debt to the Lord. Spiritual and temporal blessings will be yours as you carefully honor this commandment.
 
@@ -157,8 +157,6 @@ My father was our bishop, but he died before I received the priesthood. I rememb
 As quorum officers we accounted for all of our members and would see that they were all at church. We enjoyed being together. We chopped wood for the elderly and the widows, filled the coal bins at church, cleaned the meetinghouse every Saturday afternoon, swept the steps, raked the gravel yard, saw that the sacrament trays and lace sacrament cloths were clean and fresh, and had real pride in the appearance of our little meetinghouse.
 
 We were part of the Church and the Church was part of us. We knew it; we felt it! We held the priesthood of God! Understanding teachers guided us and helped us broaden our vision and our ever-expanding role as young men; but more important, they helped prepare us to be called in our youth to be servants of our Savior. He needs every one of you young men who hold the priesthood. I testify that this work is true. I do it humbly, in the holy name of Jesus Christ, amen.
-
-
 
 
 

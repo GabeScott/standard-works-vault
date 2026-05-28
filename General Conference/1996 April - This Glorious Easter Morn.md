@@ -68,7 +68,7 @@ They came running, and their fears were confirmed. Disconsolate, they looked and
 
 “Jesus saith unto her, Touch me not; for I am not yet ascended to my Father: but go to my brethren, and say unto them, I ascend unto my Father, and your Father; and to my God, and your God” ([[John 20.11|John 20:11–17]][[John 20.12|]][[John 20.13|]][[John 20.14|]][[John 20.15|]][[John 20.16|]][[John 20.17|]]).
 
-She who had loved Him so much, she who had been healed by Him, was the first to whom He appeared. There followed others, even, as Paul declares, up to 500 brethren at one time (see [[1 Corinthians 15.6|1 Cor. 15:6]]).
+She who had loved Him so much, she who had been healed by Him, was the first to whom He appeared. There followed others, even, as Paul declares, up to 500 brethren at one time (see [[1 Corinthians 15.6|1 Cor. 15:6]]).
 
 Now the Apostles understood what He had tried to teach them. Thomas, on feeling of His wounds, declared, “My Lord and my God” ([[John 20.28|John 20:28]]).
 
@@ -80,7 +80,7 @@ There is nothing more universal than death, and nothing brighter with hope and f
 
 What meaning would life have without the reality of immortality? Otherwise life would become only a dismal journey of “getting and spending,” only to end in utter and hopeless oblivion.
 
-“O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]]).
+“O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]]).
 
 The pain of death is swallowed up in the peace of eternal life. Of all the events in the chronicles of humanity, none is of such consequence as this.
 
@@ -90,7 +90,7 @@ Contemplating the wonder of the Atonement wrought in behalf of all mankind, the 
 
 Whenever the cold hand of death strikes, there shines through the gloom and the darkness of that hour the triumphant figure of the Lord Jesus Christ, He, the Son of God, who by His matchless and eternal power overcame death. He is the Redeemer of the world. He gave His life for each of us. He took it up again and became the firstfruits of them that slept. He, as King of Kings, stands triumphant above all other kings. He, as the Omnipotent One, stands above all rulers. He is our comfort, our only true comfort, when the dark shroud of earthly night closes about us as the spirit departs the human form.
 
-Towering above all mankind stands Jesus the Christ, the King of glory, the unblemished Messiah, the Lord Emmanuel. In the hour of deepest sorrow we draw hope and peace and certitude from the words of the angel that Easter morning, “He is not here: for he is risen, as he said” ([[Matthew 28.6|Matt. 28:6]]). We draw strength from the words of Paul, “As in Adam all die, even so in Christ … all \[are\] made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
+Towering above all mankind stands Jesus the Christ, the King of glory, the unblemished Messiah, the Lord Emmanuel. In the hour of deepest sorrow we draw hope and peace and certitude from the words of the angel that Easter morning, “He is not here: for he is risen, as he said” ([[Matthew 28.6|Matt. 28:6]]). We draw strength from the words of Paul, “As in Adam all die, even so in Christ … all \[are\] made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
 
 >I stand all amazed at the love Jesus offers me,
 >Confused at the grace that so fully he proffers me.
@@ -106,6 +106,4 @@ He is our King, our Lord, our Master, the living Christ, who stands on the right
 
 
 
-
-
-#Atonement #Church_Growth #Covenants #Death #Evil #Family #Jesus_Christ #Resurrection #Scriptures #Service #Testimony #Youth
+#Atonement #ChurchGrowth #Covenants #Death #Evil #Family #JesusChrist #Resurrection #Scriptures #Service #Testimony #Youth

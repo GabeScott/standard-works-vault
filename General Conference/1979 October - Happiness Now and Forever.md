@@ -1,6 +1,6 @@
 # Happiness Now and Forever
 
-By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
+By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -10,7 +10,7 @@ What would you think of a man who would chop up a beautiful grand piano to make 
 
 If every day seems devoid of real satisfaction and meaning, if the things you want most in life seem unobtainable, or if in despair you have turned to the wrong things in an attempt to find happiness and companionship, we have for you a message of hope and assurance. Since it is based on religious principles that you at present may not fully understand, please do not reject it, for with all the conviction of my soul I know that it will bring you what you most desire.
 
-The Lord inspired a prophet to declare, “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]), that is, happiness now and forever. But you say, “How can you find happiness? So many give advice, but often it is confusing and expressed in terms and concepts I don’t understand.”
+The Lord inspired a prophet to declare, “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]), that is, happiness now and forever. But you say, “How can you find happiness? So many give advice, but often it is confusing and expressed in terms and concepts I don’t understand.”
 
 God knew that his children would face this challenge, so he provided an unfailing way to recognize his true plan for happiness.
 
@@ -48,11 +48,9 @@ As the magnet in my example was drawn to the influence representing truth, so ca
 
 Find a member of The Church of Jesus Christ of Latter-day Saints, a Mormon, and ask for the restored truth. Obtain a copy of the Book of Mormon, read it, ponder it, live its principles, and you will find happiness now and forever.
 
-With all the sincerity of my soul, in deep humility, I solemnly testify that God the Father through his Son Jesus Christ has restored to earth the fulness of his truth. He has restored his priesthood, the authority to perform the necessary saving ordinances in his name. President Spencer W. Kimball is his prophet. I love him and sustain him with all my heart. I testify that this, The Church of Jesus Christ of Latter-day Saints, is the only place on earth where that fulness of truth and priesthood authority can be found. In the name of Jesus Christ, amen.
+With all the sincerity of my soul, in deep humility, I solemnly testify that God the Father through his Son Jesus Christ has restored to earth the fulness of his truth. He has restored his priesthood, the authority to perform the necessary saving ordinances in his name. President Spencer W. Kimball is his prophet. I love him and sustain him with all my heart. I testify that this, The Church of Jesus Christ of Latter-day Saints, is the only place on earth where that fulness of truth and priesthood authority can be found. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Holy_Ghost
+#HolyGhost

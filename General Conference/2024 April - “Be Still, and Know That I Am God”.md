@@ -1,6 +1,6 @@
 # “Be Still, and Know That I Am God”
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -79,7 +79,7 @@ I joyfully witness that God is our Heavenly Father, we are His children, and Jes
 
 [^1]: [[Psalms 46.10|Psalm 46:10]]; see also [[D&C 101.16|Doctrine and Covenants 101:16]].
 
-[^2]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^2]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
 [^3]: [[D&C 101.16|Doctrine and Covenants 101:16]]; emphasis added.
 
@@ -89,13 +89,13 @@ I joyfully witness that God is our Heavenly Father, we are His children, and Jes
 
 [^6]: See [[Mosiah 15.6|Mosiah 15:6–9]][[Mosiah 15.7|]][[Mosiah 15.8|]][[Mosiah 15.9|]].
 
-[^7]: See [[2 Nephi 2.27|2 Nephi 2:27–28]][[2 Nephi 2.28|]].
+[^7]: See [[2 Nephi 2.27|2 Nephi 2:27–28]][[2 Nephi 2.28|]].
 
 [^8]: See [[Moroni 7.28|Moroni 7:28]].
 
 [^9]: [[Helaman 5.12|Helaman 5:12]]; emphasis added.
 
-[^10]: [[Ephesians 2.19|Ephesians 2:19–20]][[Ephesians 2.20|]] indicates that the “household of God” (the Church of Jesus Christ) is “built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone.” Thus, in the analogy used in Ephesians, Jesus Christ is the central component in the foundation upon which  is built.
+[^10]: [[Ephesians 2.19|Ephesians 2:19–20]][[Ephesians 2.20|]] indicates that the “household of God” (the Church of Jesus Christ) is “built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone.” Thus, in the analogy used in Ephesians, Jesus Christ is the central component in the foundation upon which **His Church** is built.
 
 [^11]: [[Ether 12.4|Ether 12:4]]; emphasis added.
 
@@ -103,22 +103,20 @@ I joyfully witness that God is our Heavenly Father, we are His children, and Jes
 
 [^13]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
-[^14]: See [[Colossians 1.23|Colossians 1:23]]; [[Colossians 2.7|2:7]]; [[2 Peter 1.12|2 Peter 1:12]]; Neal A. Maxwell, “[[1987 April - “Overcome … Even As I Also Overcame”.md|Overcome … Even As I Also Overcame]],” *Ensign*, May 1987, 70–72.
+[^14]: See [[Colossians 1.23|Colossians 1:23]]; [[Colossians 2.7|2:7]]; [[2 Peter 1.12|2 Peter 1:12]]; Neal A. Maxwell, “[[1987 April - “Overcome … Even As I Also Overcame”.md|Overcome … Even As I Also Overcame]],” *Ensign*, May 1987, 70–72.
 
 [^15]: [[Ephesians 2.19|Ephesians 2:19]].
 
-[^16]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 130.
+[^16]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 130.
 
 [^17]: [[D&C 59.9|Doctrine and Covenants 59:9]].
 
 [^18]: [[Mosiah 18.30|Mosiah 18:30]].
 
-[^19]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^19]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^20]: See [[Ephesians 1.10|Ephesians 1:10]].
 
-[^21]: See [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
+[^21]: See [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
 
-
-
-#Covenants #God_The_Father #Jesus_Christ #Ordinances #Reverence #Sabbath #Temples
+#Covenants #GodTheFather #JesusChrist #Ordinances #Reverence #Sabbath #Temples

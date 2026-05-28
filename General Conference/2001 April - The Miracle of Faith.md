@@ -83,6 +83,4 @@ O Father, help us to be faithful unto Thee and unto our glorious Redeemer, to se
 
 
 
-
-
-#Church_History #Conversion #Faith #Family #Loyalty #Missionary_Work #Restoration #Sacrifice #Temples #Testimony #Tithing
+#ChurchHistory #Conversion #Faith #Family #Loyalty #MissionaryWork #Restoration #Sacrifice #Temples #Testimony #Tithing

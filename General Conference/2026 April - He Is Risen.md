@@ -1,6 +1,6 @@
 # He Is Risen
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -18,7 +18,7 @@ After three days in a borrowed tomb, Jesus Christ broke the bands of death impos
 
 When Mary and other faithful women[^11] approached the Garden Tomb to care for the body of their Lord, they found two angels, who announced, “He is not here, but is risen.”[^12]
 
-Those glorious words, “He is risen,” have sparked religious ceremony, gratitude, faith in Jesus Christ and His promises for centuries. President Dallin H. Oaks has testified: “The resurrection is a pillar of our faith. It adds meaning to our doctrine, motivation to our behavior, and hope for our future.”[^13]
+Those glorious words, “He is risen,” have sparked religious ceremony, gratitude, faith in Jesus Christ and His promises for centuries. President Dallin H. Oaks has testified: “The resurrection is a pillar of our faith. It adds meaning to our doctrine, motivation to our behavior, and hope for our future.”[^13]
 
 Jesus Christ is more than a mortal first laid in a manger, more than a friend, teacher, rabbi, minister, or prophet. He is the Only Begotten Son of the Father.[^14] And by divine design, His Resurrection by His own godly power reunited His body and His spirit.[^15] What a majestic and monumental event in Father in Heaven’s eternal plan.
 
@@ -57,7 +57,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 
 
-[^1]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49.
+[^1]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18)* (2007), 49.
 
 [^2]: [[Exodus 3.16|Exodus 3:16]].
 
@@ -65,7 +65,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^4]: [[John 8.12|John 8:12]].
 
-[^5]: [[2 Nephi 25.19|2 Nephi 25:19]].
+[^5]: [[2 Nephi 25.19|2 Nephi 25:19]].
 
 [^6]: [[D&C 42.1|Doctrine and Covenants 42:1]].
 
@@ -73,7 +73,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^8]: See [[D&C 76.17|Doctrine and Covenants 76:17]].
 
-[^9]: [[1 Timothy 6.15|1 Timothy 6:15]].
+[^9]: [[1 Timothy 6.15|1 Timothy 6:15]].
 
 [^10]: [[Mosiah 27.31|Mosiah 27:31]]; see also [[Isaiah 45.23|Isaiah 45:23]]; [[Philippians 2.10|Philippians 2:10–11]][[Philippians 2.11|]]; [[D&C 76.110|Doctrine and Covenants 76:110]]; [[D&C 88.104|88:104]].
 
@@ -81,7 +81,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^12]: See [[Luke 24.5|Luke 24:5–6]][[Luke 24.6|]].
 
-[^13]: Dallin H. Oaks, “[[2000 April - Resurrection.md|Resurrection]],” *Ensign*, May 2000, 14; *Liahona*, July 2000, 16.
+[^13]: Dallin H. Oaks, “[[2000 April - Resurrection.md|Resurrection]],” *Ensign*, May 2000, 14; *Liahona*, July 2000, 16.
 
 [^14]: See [[John 3.16|John 3:16]].
 
@@ -95,17 +95,17 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^19]: [[Moses 7.35|Moses 7:35]].
 
-[^20]: See [[1 Corinthians 15.6|1 Corinthians 15:6]]. The Holy Land is very much a backdrop to the narratives of both the New and Old Testaments, though it is not mentioned explicitly in the Bible. It has been called the “Promised Land” and at the time of Christ’s ministry would have included the areas of Galilee, Judea, and Samaria.
+[^20]: See [[1 Corinthians 15.6|1 Corinthians 15:6]]. The Holy Land is very much a backdrop to the narratives of both the New and Old Testaments, though it is not mentioned explicitly in the Bible. It has been called the “Promised Land” and at the time of Christ’s ministry would have included the areas of Galilee, Judea, and Samaria.
 
-[^21]: In the land called Bountiful, a great multitude of the people of Nephi gathered around the temple and marveled at the changes that had taken place in the land (see [[3 Nephi 11.1|3 Nephi 11:1]]).
+[^21]: In the land called Bountiful, a great multitude of the people of Nephi gathered around the temple and marveled at the changes that had taken place in the land (see [[3 Nephi 11.1|3 Nephi 11:1]]).
 
-[^22]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^22]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
-[^23]: [[3 Nephi 11.8|3 Nephi 11:8]].
+[^23]: [[3 Nephi 11.8|3 Nephi 11:8]].
 
-[^24]: [[3 Nephi 11.9|3 Nephi 11:9]].
+[^24]: [[3 Nephi 11.9|3 Nephi 11:9]].
 
-[^25]: [[3 Nephi 11.10|3 Nephi 11:10]].
+[^25]: [[3 Nephi 11.10|3 Nephi 11:10]].
 
 [^26]: See [[Matthew 14.31|Matthew 14:31]].
 
@@ -117,17 +117,17 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^30]: [[Isaiah 41.10|Isaiah 41:10]].
 
-[^31]: [[3 Nephi 11.14|3 Nephi 11:14]].
+[^31]: [[3 Nephi 11.14|3 Nephi 11:14]].
 
-[^32]: [[3 Nephi 11.15|3 Nephi 11:15]]. The number of those gathered at the temple is mentioned in [[3 Nephi 17.25|3 Nephi 17:25]].
+[^32]: [[3 Nephi 11.15|3 Nephi 11:15]]. The number of those gathered at the temple is mentioned in [[3 Nephi 17.25|3 Nephi 17:25]].
 
-[^33]: [[3 Nephi 17.11|3 Nephi 17:11]].
+[^33]: [[3 Nephi 17.11|3 Nephi 17:11]].
 
-[^34]: [[3 Nephi 17.21|3 Nephi 17:21]].
+[^34]: [[3 Nephi 17.21|3 Nephi 17:21]].
 
-[^35]: See Ronald A. Rasband, “[[2012 April - Special Lessons.md|Special Lessons]],” *Liahona*, May 2012, 80–82.
+[^35]: See Ronald A. Rasband, “[[2012 April - Special Lessons.md|Special Lessons]],” *Liahona*, May 2012, 80–82.
 
-[^36]: [[3 Nephi 17.7|3 Nephi 17:7]].
+[^36]: [[3 Nephi 17.7|3 Nephi 17:7]].
 
 [^37]: [[John 9.3|John 9:3]].
 
@@ -143,7 +143,8 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^43]: [[Isaiah 49.16|Isaiah 49:16]].
 
-[^44]: “He Is Risen!,” *Hymns*, no. 199.
+[^44]: “He Is Risen!,” *Hymns*, no. 199.
 
 [^45]: See [[D&C 107.23|Doctrine and Covenants 107:23]].
 
+#JesusChrist #Resurrection

@@ -1,6 +1,6 @@
 # The Angel Moroni Came!
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -34,7 +34,7 @@ At His resurrection, an angel rolled the stone away from the tomb. The women saw
 
 When Stephen bore his final testimony to his persecutors, his face shone like that of an angel. (See [[Acts 6.15|Acts 6:15]].)
 
-An angel released Peter from prison. (See [[Acts 5.19|Acts 5:19]].) Paul spoke of the tongues of men and of angels. (See [[1 Corinthians 13.1|1 Cor. 13:1]].)
+An angel released Peter from prison. (See [[Acts 5.19|Acts 5:19]].) Paul spoke of the tongues of men and of angels. (See [[1 Corinthians 13.1|1 Cor. 13:1]].)
 
 The scripture clearly teaches that the purpose of the ministry of angels is “to call men unto repentance … by declaring the word of Christ unto the chosen vessels of the Lord, that they may bear testimony of him.” ([[Moroni 7.31|Moro. 7:31]].) And that is very pertinent with regard to Moroni.
 
@@ -115,8 +115,6 @@ So, again, we testify that the Book of Mormon is true. It is the word of Almight
 We testify that Joseph Smith indeed was a modern prophet of God, raised up specially for the purpose we have described.
 
 And most solemnly we testify that Jesus Christ of Nazareth is the Son of God, our Savior, our Redeemer, our Creator. We testify further that we are His ordained servants, and we speak by the power that he restored to us and has given to us in this day. And we testify, in all solemnity, that this work in which we are engaged is verily true, in the name of the Lord Jesus Christ, amen.
-
-
 
 
 

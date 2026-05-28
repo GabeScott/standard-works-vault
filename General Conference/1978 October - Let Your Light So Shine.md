@@ -1,6 +1,6 @@
 # Let Your Light So Shine
 
-By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
+By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -40,13 +40,13 @@ Jesus wants every one of us to know him because of the transforming power of tha
 
 Today there are far too many so-called Christian leaders who are divided over the most fundamental of all Christian doctrines, one about which no faithful member of our church in all the world has the slightest doubt. This schism is dramatically set forth in a recent issue of *Time* magazine and is entitled “New Debate Over Jesus’ Divinity.” Many modern scholars express the view that “Jesus did not proclaim himself as the eternal Son of God, nor did the early Christians.” Seven university theologians in England published a book contending that Jesus was not really God at all. In America much of the same is going on. An eminent clergyman expressed the conviction of many “that Jesus never claimed to be God, nor to be related to him as son.” In summarizing, *Time* said that “in view of the new Christology (of the so-called Christian advocates) Christ is not as divine as he used to be.” (*Time,* 27 Feb. 1978.)
 
-Such a twisted and compromising viewpoint sounds a clarion call for the priesthood and the sisters, pillars of the Church whose example “is like unto leaven” ([[Matthew 13.33|Matt. 13:33]]), to make an even greater effort to move in and fill the tragic void. On the divinity of our Lord and Savior Jesus Christ, the position of the restored church and its members is eloquently stated by Elder James E. Talmage in these words:
+Such a twisted and compromising viewpoint sounds a clarion call for the priesthood and the sisters, pillars of the Church whose example “is like unto leaven” ([[Matthew 13.33|Matt. 13:33]]), to make an even greater effort to move in and fill the tragic void. On the divinity of our Lord and Savior Jesus Christ, the position of the restored church and its members is eloquently stated by Elder James E. Talmage in these words:
 
 “The solemn testimonies of millions dead and of millions living unite in proclaiming Him as divine, the Son of the Living God, the Redeemer and Savior of the human race, the Eternal Judge of the souls of men, the Chosen and Anointed of the Father—in short, the Christ.” (*Jesus the Christ,* 3rd ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916, pp. 1–2.)
 
 Our church does not and will not in any way compromise its position! It never at any time or place falters, hesitates, or shows any reluctance to bear unwavering testimony to the divinity of Jesus Christ. The state of the world being what it is, each priesthood bearer must take advantage of every opportunity to testify of the Savior and teach and exemplify gospel truth, letting his light so shine before friends and strangers alike to perpetuate the truth concerning our Savior, Jesus Christ.
 
-In closing I bear deep and solemn testimony of my absolute conviction of the Savior as expressed in these words from a simple and beautiful poem by Elder Bruce R. McConkie, entitled “I Believe in Christ.”
+In closing I bear deep and solemn testimony of my absolute conviction of the Savior as expressed in these words from a simple and beautiful poem by Elder Bruce R. McConkie, entitled “I Believe in Christ.”
 
 >I believe in Christ—my Lord, my God—
 >My feet he plants on gospel sod;
@@ -64,6 +64,4 @@ I testify to you that President Kimball is indeed a mighty prophet of the Lord. 
 
 
 
-
-
-#Healing #Jesus_Christ
+#Healing #JesusChrist

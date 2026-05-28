@@ -119,7 +119,7 @@ In the name of Jesus Christ, amen.
 
 [^7]: Henry Wadsworth Longfellow, “A Psalm of Life,” lines 5–8
 
-[^8]: “Jesus Loves Me!” Anna B. Warner, in *Alexander’s Gospel Songs,* comp. Charles M. Alexander (New York: Fleming H. Revell Co., 1908), p. 139.
+[^8]: “Jesus Loves Me!” Anna B. Warner, in *Alexander’s Gospel Songs,* comp. Charles M. Alexander (New York: Fleming H. Revell Co., 1908), p. 139.
 
 [^9]: “If the Way Be Full of Trial, Weary Not,” *Deseret Sunday School Songs* (Salt Lake City: Deseret Sunday School Union, 1909), no. 158.
 
@@ -131,6 +131,4 @@ In the name of Jesus Christ, amen.
 
 [^13]: “God of Our Fathers, Known of Old,” *Hymns,* 1985, no. 80.
 
-
-
-#Adversity #Example #Jesus_Christ #Patience #Resurrection #Scriptures #Service
+#Adversity #Example #JesusChrist #Patience #Resurrection #Scriptures #Service

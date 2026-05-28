@@ -1,20 +1,20 @@
 # Faith in the Lord Jesus Christ
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/10/faith-in-the-lord-jesus-christ?lang=eng)
 
-Brethren, I have decided to talk to you and to myself tonight about “faith in the Lord Jesus Christ” which the Prophet Joseph Smith named as “the first principle … of the Gospel” ([[Articles of Faith 1.4|A of F 1:4]]).
+Brethren, I have decided to talk to you and to myself tonight about “faith in the Lord Jesus Christ” which the Prophet Joseph Smith named as “the first principle … of the Gospel” ([[Articles of Faith 1.4|A of F 1:4]]).
 
-The scriptures leave no doubt about the importance of such faith. In the very beginning, an angel sent by the Lord instructed Adam that the sacrifice he was offering was “a similitude of the sacrifice of the Only Begotten of the Father, …
+The scriptures leave no doubt about the importance of such faith. In the very beginning, an angel sent by the Lord instructed Adam that the sacrifice he was offering was “a similitude of the sacrifice of the Only Begotten of the Father, …
 
 “Wherefore,” he (the angel) added, “thou shalt do all that thou doest in the name of the Son, and thou shalt repent and call upon God in the name of the Son forevermore” ([[Moses 5.7|Moses 5:7–8]][[Moses 5.8|]]).
 
 Nephi thus instructed his people:
 
-“Behold I say unto you, that … as the Lord … liveth, there is none other name given under heaven save it be this Jesus Christ, … whereby man can be saved” ([[2 Nephi 25.20|2 Ne. 25:20]]).
+“Behold I say unto you, that … as the Lord … liveth, there is none other name given under heaven save it be this Jesus Christ, … whereby man can be saved” ([[2 Nephi 25.20|2 Ne. 25:20]]).
 
 Some four hundred years later, King Benjamin declared:
 
@@ -24,7 +24,7 @@ When Peter and John were asked by the Sadducees “by what power, or by what nam
 
 “If we this day be examined of the good deed done to the impotent man, by what means he is made whole;
 
-“Be it known unto you all, and to all the people of Israel, that by the name of Jesus Christ of Nazareth, whom ye crucified, whom God raised from the dead, even by him doth this man stand here before you whole. …
+“Be it known unto you all, and to all the people of Israel, that by the name of Jesus Christ of Nazareth, whom ye crucified, whom God raised from the dead, even by him doth this man stand here before you whole. …
 
 “Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved” ([[Acts 4.7|Acts 4:7–10, 12]][[Acts 4.8|]][[Acts 4.9|]][[Acts 4.10|]][[Acts 4.12|]]).
 
@@ -62,7 +62,7 @@ On this point, the resurrected Jesus said to the Nephites:
 
 “Now this is the commandment \[this is the resurrected Jesus talking\]: Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day.
 
-“Verily, verily, I say unto you, this is my gospel” ([[3 Nephi 27.13|3 Ne. 27:13–17, 19–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]).
+“Verily, verily, I say unto you, this is my gospel” ([[3 Nephi 27.13|3 Ne. 27:13–17, 19–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]).
 
 This, of course, is the perfect definition of the gospel. It was, however, spoken by way of summary and conclusion after the risen Jesus had spent days—perhaps weeks—explaining the principles and ordinances of the gospel to the Nephites. They, therefore, were able to understand his summary.
 
@@ -72,7 +72,7 @@ This program the Lord presented to his spirit children in the great pre-earth co
 
 “Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; and among all these there were many of the noble and great ones;
 
-“And God saw these souls that they were good, and he stood in the midst of them, and he said: These I will make my rulers; for he stood among those that were spirits, …
+“And God saw these souls that they were good, and he stood in the midst of them, and he said: These I will make my rulers; for he stood among those that were spirits, …
 
 “And there stood one among them that was like unto God, and he said unto those who were with him: We will go down, for there is space there, and we will take of these materials, and we will make an earth whereon these may dwell;
 
@@ -120,17 +120,17 @@ Not only did he win victory over the grave, but being sinless himself and being 
 
 “‘Which suffering caused myself, even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit—and would that I might not drink the bitter cup, and shrink—
 
-“‘Nevertheless, glory be to the Father, and I partook and finished my preparations unto the children of men’ \[[[D&C 19.16|D&C 19:16–19]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]]\]” (James E. Talmage, *The Articles of Faith,* 12th ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924, p. 78).
+“‘Nevertheless, glory be to the Father, and I partook and finished my preparations unto the children of men’ \[[[D&C 19.16|D&C 19:16–19]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]]\]” (James E. Talmage, *The Articles of Faith,* 12th ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924, p. 78).
 
 Jacob, the brother of Nephi, thus describes the predicament we would be in without the benefit of Christ’s atonement. He said:
 
 “O the wisdom of God, his mercy and grace! For behold, if the flesh should rise no more our spirits must become subject to that angel who fell from before the presence of the Eternal God, and became the devil, to rise no more.
 
-“O how great the goodness of our God, who prepareth a way for our escape from the grasp of this awful monster; …
+“O how great the goodness of our God, who prepareth a way for our escape from the grasp of this awful monster; …
 
 “And because of the way of deliverance of our God, the Holy One of Israel, this death, of which I have spoken, which is the temporal, shall deliver up its dead; which death is the grave.
 
-“And this death of which I have spoken, which is the spiritual death, shall deliver up its dead; which spiritual death is hell; wherefore, death and hell must deliver up their dead, and hell must deliver up its captive spirits, and the grave must deliver up its captive bodies, and the bodies and the spirits of men will be restored one to the other; and it is by the power of the resurrection of the Holy One of Israel” ([[2 Nephi 9.8|2 Ne. 9:8, 10–12]][[2 Nephi 9.10|]][[2 Nephi 9.11|]][[2 Nephi 9.12|]]).
+“And this death of which I have spoken, which is the spiritual death, shall deliver up its dead; which spiritual death is hell; wherefore, death and hell must deliver up their dead, and hell must deliver up its captive spirits, and the grave must deliver up its captive bodies, and the bodies and the spirits of men will be restored one to the other; and it is by the power of the resurrection of the Holy One of Israel” ([[2 Nephi 9.8|2 Ne. 9:8, 10–12]][[2 Nephi 9.10|]][[2 Nephi 9.11|]][[2 Nephi 9.12|]]).
 
 Without the services of Jesus Christ, which he proffered in the great heavenly council and which he has since performed, there would have been no hope for us to receive the blessings provided by the gospel. And we have no prospect of receiving them now unless we have faith in the Lord Jesus Christ, because, as he said to the Pharisees, “If ye believe not that I am he, ye shall die in your sins” ([[John 8.24|John 8:24]]). This is according to the gospel, which Paul said “is the power of God unto salvation” ([[Romans 1.16|Rom. 1:16]]).
 
@@ -139,6 +139,4 @@ These are some of the reasons why “Faith in the Lord Jesus Christ” is the fi
 
 
 
-
-
-#Faith #Jesus_Christ #Plan_Of_Salvation
+#Faith #JesusChrist #PlanOfSalvation

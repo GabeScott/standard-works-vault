@@ -1,6 +1,5 @@
 # Liberal, Liberality
 
-
 *liberal* soul shall be made fat, [[Proverbs 11.25|Proverbs 11:25]].
 
 vile person shall be no more called *liberal*, [[Isaiah 32.5|Isaiah 32:5]].

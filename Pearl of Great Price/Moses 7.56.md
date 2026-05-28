@@ -6,7 +6,7 @@
 
 
 [^a]: [[Veil|TG Veil]].  
-[^b]: [[Matthew 27.51|Matt. 27:51 (45, 50–51)]].  
+[^b]: [[Matthew 27.45|Matt. 27:51 (45, 50–51)]][[Matthew 27.50|]][[Matthew 27.51|]].  
 [^c]: [[Saints|TG Saints]].  
 [^d]: [[Exaltation|TG Exaltation]].  
 [^e]: [[Matthew 25.34|Matt. 25:34]].  

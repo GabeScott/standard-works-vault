@@ -1,4 +1,3 @@
 # Sodom
 
-
-*See* [BD Gomorrah](https://www.churchofjesuschrist.org/study/scriptures/bd/gomorrah?lang=eng)
+*See also* [[BD Gomorrah.md|BD Gomorrah]]

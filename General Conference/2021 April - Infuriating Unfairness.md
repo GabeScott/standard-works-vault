@@ -1,6 +1,6 @@
 # Infuriating Unfairness
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -42,7 +42,7 @@ As we develop faith in Jesus Christ, we should also strive to become like Him. W
 
 Someone who has been anxiously engaged in combating unfairness is attorney Bryan Stevenson. His legal practice in the United States is dedicated to defending the wrongly accused, ending excessive punishment, and protecting basic human rights. Some years ago, Mr. Stevenson defended a man who had been falsely accused of murder and was condemned to die. Mr. Stevenson asked the man’s local Christian church for support, even though the man was not active in his church and was disparaged in the community due to a widely known extramarital affair.
 
-To focus the congregation on what really mattered, Mr. Stevenson spoke to them about the woman accused of adultery who was brought to Jesus. The accusers wanted to stone her to death, but Jesus said, “He that is without sin … , let him first cast a stone at her.”[^18] The woman’s accusers withdrew. Jesus did not condemn the woman but charged her to sin no more.[^19]
+To focus the congregation on what really mattered, Mr. Stevenson spoke to them about the woman accused of adultery who was brought to Jesus. The accusers wanted to stone her to death, but Jesus said, “He that is without sin … , let him first cast a stone at her.”[^18] The woman’s accusers withdrew. Jesus did not condemn the woman but charged her to sin no more.[^19]
 
 After recounting this episode, Mr. Stevenson observed that self-righteousness, fear, and anger have caused even Christians to hurl stones at people who stumble. He then said, “We can’t simply watch that happen,” and he encouraged the congregants to become “stonecatchers.”[^20] Brothers and sisters, not throwing stones is the first step in treating others with compassion. The second step is to try to catch stones thrown by others.
 
@@ -75,7 +75,7 @@ I testify that the Savior lives. He understands unfairness. The marks in the pal
 
 [^4]: See [[Hebrews 4.15|Hebrews 4:15]].
 
-[^5]: [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]].
+[^5]: [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]].
 
 [^6]: See [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
@@ -83,11 +83,11 @@ I testify that the Savior lives. He understands unfairness. The marks in the pal
 
 [^8]: A word of caution: We should resist the temptation to create our own theories as to *how* and *when*, regardless of how well reasoned or plausible. We cannot justifiably fill the void for what God has not yet revealed.
 
-[^9]: *Preach My Gospel: A Guide to Missionary Service* (2018), 52; see also [[Isaiah 61.2|Isaiah 61:2–3]][[Isaiah 61.3|]]; [[Revelation 21.4|Revelation 21:4]]. “All that is unfair about life can be made right” likely means that the consequences of unfairness to us will be resolved, mitigated, or lifted. In his final general conference talk, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” Elder Joseph B. Wirthlin said: “Every tear today will eventually be returned a hundredfold with tears of rejoicing and gratitude. … A principle of compensation prevails” (*Ensign* or *Liahona*, Nov. 2008, 28).
+[^9]: *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-2-the-plan-of-salvation?lang=eng&id=p19#p19)* (2018), 52; see also [[Isaiah 61.2|Isaiah 61:2–3]][[Isaiah 61.3|]]; [[Revelation 21.4|Revelation 21:4]]. “All that is unfair about life can be made right” likely means that the consequences of unfairness to us will be resolved, mitigated, or lifted. In his final general conference talk, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” Elder Joseph B. Wirthlin said: “Every tear today will eventually be returned a hundredfold with tears of rejoicing and gratitude. … A principle of compensation prevails” (*Ensign* or *Liahona*, Nov. 2008, 28).
 
 [^10]: See [[John 16.33|John 16:33]].
 
-[^11]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^11]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
 [^12]: See [[Job 42.10|Job 42:10, 12–13]][[Job 42.12|]][[Job 42.13|]]; [[Jacob 3.1|Jacob 3:1]].
 
@@ -95,9 +95,9 @@ I testify that the Savior lives. He understands unfairness. The marks in the pal
 
 [^14]: See [[Mosiah 4.9|Mosiah 4:9]].
 
-[^15]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 93. *Myopic* means nearsighted.
+[^15]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 93. *Myopic* means nearsighted.
 
-[^16]: For example, Captain Moroni affirmed that it is wrong for individuals to stand by and “do nothing” when they can assist others (see [[Alma 60.9|Alma 60:9–11]][[Alma 60.10|]][[Alma 60.11|]]; see also [[2 Corinthians 1.3|2 Corinthians 1:3–4]][[2 Corinthians 1.4|]]).
+[^16]: For example, Captain Moroni affirmed that it is wrong for individuals to stand by and “do nothing” when they can assist others (see [[Alma 60.9|Alma 60:9–11]][[Alma 60.10|]][[Alma 60.11|]]; see also [[2 Corinthians 1.3|2 Corinthians 1:3–4]][[2 Corinthians 1.4|]]).
 
 [^17]: [[D&C 58.27|Doctrine and Covenants 58:27]]; see also verses [[D&C 58.26|26, 28–29]][[D&C 58.28|]][[D&C 58.29|]].
 
@@ -109,21 +109,22 @@ I testify that the Savior lives. He understands unfairness. The marks in the pal
 
 [^21]: See [[Matthew 25.31|Matthew 25:31–46]][[Matthew 25.32|]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]][[Matthew 25.41|]][[Matthew 25.42|]][[Matthew 25.43|]][[Matthew 25.44|]][[Matthew 25.45|]][[Matthew 25.46|]].
 
-[^22]: See [[Acts 10.38|Acts 10:38]]; see also Russell M. Nelson, “[[2019 October - The Second Great Commandment.md|The Second Great Commandment]],” *Ensign* or *Liahona*, Nov. 2019, 96–100.
+[^22]: See [[Acts 10.38|Acts 10:38]]; see also Russell M. Nelson, “[[2019 October - The Second Great Commandment.md|The Second Great Commandment]],” *Ensign* or *Liahona*, Nov. 2019, 96–100.
 
 [^23]: See [[D&C 1.17|Doctrine and Covenants 1:17, 22–23]][[D&C 1.22|]][[D&C 1.23|]].
 
-[^24]: These precepts are clearly articulated in “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org.
+[^24]: These precepts are clearly articulated in “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org.
 
 [^25]: [[Alma 62.41|Alma 62:41]].
 
-[^26]: See Amos C. Brown, in Boyd Matheson, “‘It Can Be Well with This Nation’ If We Lock Arms as Children of God,” *Church News*, July 25, 2019, thechurchnews.com.
+[^26]: See Amos C. Brown, in Boyd Matheson, “‘It Can Be Well with This Nation’ If We Lock Arms as Children of God,” *Church News*, July 25, 2019, thechurchnews.com.
 
 [^27]: [[Alma 31.38|Alma 31:38]].
 
 [^28]: See [[Luke 4.16|Luke 4:16–19]][[Luke 4.17|]][[Luke 4.18|]][[Luke 4.19|]]. To heal the brokenhearted is to restore those whose mind, will, intellect, or inner self has been shattered or crushed (see James Strong, *The New Strong’s Expanded Exhaustive Concordance of the Bible* \[2010\], Hebrew dictionary section, 139 and 271).
 
-[^29]: See, for instance, Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94; Dallin H. Oaks, “[[2020 October - Love Your Enemies.md|Love Your Enemies]],” *Ensign* or *Liahona*, Nov. 2020, 26–29. President Nelson exhorted: “Today I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice. I plead with you to promote respect for all of God’s children.” This is more than just being opposed to attitudes and actions of prejudice. President Oaks quoted the Reverend Theresa A. Dear: “Racism thrives on hatred, oppression, collusion, passivity, indifference and silence.” Then he said, “As members of The Church of Jesus Christ of Latter-day Saints, we must do better to help root out racism.”
+[^29]: See, for instance, Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94; Dallin H. Oaks, “[[2020 October - Love Your Enemies.md|Love Your Enemies]],” *Ensign* or *Liahona*, Nov. 2020, 26–29. President Nelson exhorted: “Today I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice. I plead with you to promote respect for all of God’s children.” This is more than just being opposed to attitudes and actions of prejudice. President Oaks quoted the Reverend Theresa A. Dear: “Racism thrives on hatred, oppression, collusion, passivity, indifference and silence.” Then he said, “As members of The Church of Jesus Christ of Latter-day Saints, we must do better to help root out racism.”
 
+[^30]: See [[Isaiah 61.3|Isaiah 61:3]]. Receiving a crown of beauty means that we become joint-heirs with Jesus Christ in the kingdom of God. See also Donald W. Parry, Jay A. Parry, and Tina M. Peterson, *Understanding Isaiah* (1998), 541–43.
 
-#Adversity #Atonement #Compassion #Faith #God_The_Father #Jesus_Christ
+#Adversity #Atonement #Compassion #Faith #GodTheFather #JesusChrist

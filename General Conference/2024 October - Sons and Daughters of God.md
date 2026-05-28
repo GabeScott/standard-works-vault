@@ -1,6 +1,6 @@
 # Sons and Daughters of God
 
-By Elder Rubén V. Alliaud - *Of the Seventy*
+By Elder Rubén V. Alliaud - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -60,11 +60,11 @@ How different our decisions would be if we really knew who we really are.
 
 We live in a challenging world, a world of increasing commotion,[^15] where honorable people strive to at least emphasize our human dignity, while we belong to a church and embrace a gospel that lift our vision and invite us into the divine.
 
-Jesus’s commandment to be “perfect, even as \[our\] Father which is in heaven is perfect”[^16] is a clear reflection of His high expectations and our eternal possibilities. Now, none of this will happen overnight. In the words of President Jeffrey R. Holland, it will happen “eventually.”[^17] But the promise is that if we “come unto Christ,” we will “be perfected in him.”[^18] That requires a lot of work—not just any work, but a divine work. His work!
+Jesus’s commandment to be “perfect, even as \[our\] Father which is in heaven is perfect”[^16] is a clear reflection of His high expectations and our eternal possibilities. Now, none of this will happen overnight. In the words of President Jeffrey R. Holland, it will happen “eventually.”[^17] But the promise is that if we “come unto Christ,” we will “be perfected in him.”[^18] That requires a lot of work—not just any work, but a divine work. His work!
 
 Now, the good news is that it is precisely our Father in Heaven who has said, “For behold, this is *my work* and my glory—to bring to pass the immortality and eternal life of man.”[^19]
 
-President Russell M. Nelson’s invitation to “think celestial”[^20] implies a wonderful reminder of our divine nature, origin, and potential destination. We can obtain the celestial only through Jesus Christ’s atoning sacrifice.
+President Russell M. Nelson’s invitation to “think celestial”[^20] implies a wonderful reminder of our divine nature, origin, and potential destination. We can obtain the celestial only through Jesus Christ’s atoning sacrifice.
 
 Perhaps that is why Satan enticed Jesus with the very same temptation from the beginning to the end of His earthly ministry. Matthew recorded that while Jesus hung on the cross, those “that passed by reviled him, … saying, … *If thou be the Son of God*, come down from the cross.”[^21] Glory be to God that He did not hearken but instead provided the way for us to receive all celestial blessings.
 
@@ -75,15 +75,15 @@ I testify as with the Apostle Paul that “the Spirit itself beareth witness wit
 
 
 
-[^1]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-2?lang=eng&id=p16#p16) (2007), 40, 41; see also [[D&C 130.22|Doctrine and Covenants 130:22]].
+[^1]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-2?lang=eng&id=p16#p16) (2007), 40, 41; see also [[D&C 130.22|Doctrine and Covenants 130:22]].
 
-[^2]: See [[2 Peter 1.4|2 Peter 1:4]]; “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
+[^2]: See [[2 Peter 1.4|2 Peter 1:4]]; “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
 [^3]: [[Genesis 1.26|Genesis 1:26]].
 
 [^4]: [[Psalms 82.6|Psalm 82:6]]; see also [[John 10.34|John 10:34–35]][[John 10.35|]].
 
-[^5]: [Preach My Gospel: A Guide to Sharing the Gospel](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/08-chapter-3-lesson-1?lang=eng&id=p11#p11) (2023), 31.
+[^5]: [Preach My Gospel: A Guide to Sharing the Gospel](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/08-chapter-3-lesson-1?lang=eng&id=p11#p11) (2023), 31.
 
 [^6]: [[Hebrews 12.9|Hebrews 12:9]].
 
@@ -107,18 +107,16 @@ I testify as with the Apostle Paul that “the Spirit itself beareth witness wit
 
 [^16]: [[Matthew 5.48|Matthew 5:48]]; see also Joseph Smith Translation, Matthew 5:50 (in [[Matthew 5.48|Matthew 5:48]], footnote *a*).
 
-[^17]: Jeffrey R. Holland, “[[2017 October - Be Ye Therefore Perfect—Eventually.md|Be Ye Therefore Perfect—Eventually]],” *Ensign* or *Liahona*, Nov. 2017, 40–42.
+[^17]: Jeffrey R. Holland, “[[2017 October - Be Ye Therefore Perfect—Eventually.md|Be Ye Therefore Perfect—Eventually]],” *Ensign* or *Liahona*, Nov. 2017, 40–42.
 
 [^18]: [[Moroni 10.32|Moroni 10:32]].
 
 [^19]: [[Moses 1.39|Moses 1:39]]; emphasis added.
 
-[^20]: Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–19.
+[^20]: Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–19.
 
 [^21]: [[Matthew 27.39|Matthew 27:39–40]][[Matthew 27.40|]]; emphasis added.
 
 [^22]: [[Romans 8.16|Romans 8:16–17]][[Romans 8.17|]].
 
-
-
-#Divine_Nature #God_The_Father #Jesus_Christ #Satan #Temptation #Truth
+#DivineNature #GodTheFather #JesusChrist #Satan #Temptation #Truth

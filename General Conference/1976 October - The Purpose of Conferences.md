@@ -1,6 +1,6 @@
 # The Purpose of Conferences
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -56,7 +56,7 @@ He said our young people are traveling oceans where great disasters can come unl
 
 “As a leader of the Church, and in a measure being responsible for youth and their well-being, I raise my voice loud and strong and unfalteringly to say to the youth: ‘You are in a hazardous area and perhaps in a period of your lives where there are some dangers. Tighten your belts, hold on, and you can survive this turbulence.’ When we have been warned we should listen and put it into our lives and be sure that we avoid the shoals and the rocks and the danger points.”
 
-The President spoke very strongly against fornication, adultery, and other perversions. He quoted Paul, who cautioned not to “company with fornicators. … Therefore put away from among yourselves that wicked person.” ([[1 Corinthians 5.9|1 Cor. 5:9, 13]][[1 Corinthians 5.13|]].)
+The President spoke very strongly against fornication, adultery, and other perversions. He quoted Paul, who cautioned not to “company with fornicators. … Therefore put away from among yourselves that wicked person.” ([[1 Corinthians 5.9|1 Cor. 5:9, 13]][[1 Corinthians 5.13|]].)
 
 President Kimball continued: “Oh, if our young people could learn this basic lesson—to always keep good company, to never be found with those who tend to lower their standards! We must repeat what we have said many times: Fornication with all its accompanying sins, great and small, was evil and wholly condemned by the Lord in Adam’s day, in Moses’ day, in Paul’s day, and in 1976. The Church has no tolerance for any kind of perversions.”
 
@@ -72,7 +72,7 @@ Then he said:
 
 “Improper sex can bring only unhappiness, disappointment, disgust, and usually rejection. In one dark, unglorious hour, lives can be shattered. Chastity lost is gone forever, and virtue stolen cannot be returned. Our final words are those of the Prophet Isaiah: ‘Be ye clean, that bear the vessels of the Lord.’” ([[Isaiah 52.11|Isa. 52:11]].)
 
-Elder Thomas S. Monson described an area conference as a time to ponder, a time to pray, a time to reflect, and a time to resolve. He spoke of free agency, saying:
+Elder Thomas S. Monson described an area conference as a time to ponder, a time to pray, a time to reflect, and a time to resolve. He spoke of free agency, saying:
 
 “This gift of agency, this right to choose, is overwhelming in its importance, everlasting in its significance. What choices will you make? From this area conference let us not return to our homes unchanged. Rather let us stride from this building with our heads uplifted, our minds filled, our hearts touched, and our souls stirred.”
 
@@ -80,15 +80,15 @@ He made suggestions to be incorporated into each life to achieve the goals set, 
 
 He gave as a second suggestion that we must also *learn.* Then he quoted from James: “Be ye doers of the word, and not hearers only, deceiving your own selves.” ([[James 1.22|James 1:22]].) We must learn from the scriptures and from good books, he told them, and also from the lives of good men, such as the General Authorities.
 
-The third suggestion was that we should *labor.* He reminded us of Nephi’s declaration: “I will go and *do* the things which the Lord hath commanded.” ([[1 Nephi 3.7|1 Ne. 3:7]], italics added.) He told us to share our testimonies through our labors in building the kingdom of God.
+The third suggestion was that we should *labor.* He reminded us of Nephi’s declaration: “I will go and *do* the things which the Lord hath commanded.” ([[1 Nephi 3.7|1 Ne. 3:7]], italics added.) He told us to share our testimonies through our labors in building the kingdom of God.
 
 His final suggestion was to *love.* He told us what the Savior said to the lawyer about the first and great commandment to love God, and the second which was “Thou shalt love thy neighbour as thyself.” ([[Matthew 22.39|Matt. 22:39]].)
 
 He concluded by saying:
 
-“Soon this historic series of conference sessions will come to a close. The throngs will leave, the lights will dim, the strains from the organ will fade and disappear; but you and I, we will never again be the same. We have heard a prophet’s voice, even that of President Spencer W. Kimball. We have worshipped together in love. We have felt our Heavenly Father’s divine approval. Hopefully each has decided: I will listen; I will learn; I will labor; I will love. To assist us in our determined course the ever-present help of the Lord is assured. ‘Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him.’” ([[Revelation 3.20|Rev. 3:20]].)
+“Soon this historic series of conference sessions will come to a close. The throngs will leave, the lights will dim, the strains from the organ will fade and disappear; but you and I, we will never again be the same. We have heard a prophet’s voice, even that of President Spencer W. Kimball. We have worshipped together in love. We have felt our Heavenly Father’s divine approval. Hopefully each has decided: I will listen; I will learn; I will labor; I will love. To assist us in our determined course the ever-present help of the Lord is assured. ‘Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him.’” ([[Revelation 3.20|Rev. 3:20]].)
 
-Beautifully exemplifying the theme of our conferences was a talk given by Elder Boyd K. Packer on “the voice of warning.” He began by quoting from the first section of the Doctrine and Covenants, wherein the Lord said:
+Beautifully exemplifying the theme of our conferences was a talk given by Elder Boyd K. Packer on “the voice of warning.” He began by quoting from the first section of the Doctrine and Covenants, wherein the Lord said:
 
 “The voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.
 
@@ -116,13 +116,11 @@ Elder Packer concluded his account in these words:
 
 And so, my brothers and sisters and friends, the main purpose of area conferences, the main purpose of general conferences, the main purpose of *this* conference, is to sound the voice of warning. You who hear and are warned must warn your neighbors. If we fail to heed the warnings given, or fail to warn our neighbors, we all may be lost.
 
-In this day when so many have turned away their hearts and their ears from the word of the Lord, it behooves all who yet believe to be more diligent and more faithful and more anxious to proclaim the principles of the gospel of Jesus Christ. I bear testimony that God lives, that Jesus is the Christ, and that this is his church which he directs through our prophet, Spencer W. Kimball. Let us so live that we, with our families and loved ones, may be saved from the destruction which is inevitable unless we turn again to God and keep his commandments.
+In this day when so many have turned away their hearts and their ears from the word of the Lord, it behooves all who yet believe to be more diligent and more faithful and more anxious to proclaim the principles of the gospel of Jesus Christ. I bear testimony that God lives, that Jesus is the Christ, and that this is his church which he directs through our prophet, Spencer W. Kimball. Let us so live that we, with our families and loved ones, may be saved from the destruction which is inevitable unless we turn again to God and keep his commandments.
 
 That we may all be engaged in works of righteousness, and with love in our hearts and a testimony of the truth on our lips, heed the warning voice of our prophet, and in turn warn our neighbors, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Church_Meetings
+#ChurchMeetings

@@ -1,6 +1,5 @@
 # Prosperous
 
-
 *See also* [[Rich.md|Rich]]
 
 Lord had made his journey *prosperous* or not, [[Genesis 24.21|Genesis 24:21]].

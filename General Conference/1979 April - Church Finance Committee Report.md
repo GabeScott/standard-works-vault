@@ -1,6 +1,6 @@
 # Church Finance Committee Report
 
-By Presented by Wilford G. Edling - *Chairman, Church Finance Committee*
+By Presented by Wilford G. Edling - *Chairman, Church Finance Committee*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -16,7 +16,19 @@ The Auditing Department, which is independent of all other departments, function
 
 Based on our review of the annual financial report and other accounting data, and our study of the accounting and auditing methods by which financial operations are controlled, together with continuing discussions with personnel of the Financial, Auditing and Law departments, we are of the opinion that the general funds of the Church, received and expended during the year 1978, have been properly accounted for in accordance with established procedures outlined herein.
 
-Respectfully submitted,CHURCH FINANCE COMMITTEEWilford G. EdlingHarold H. BennettWeston E. HamiltonDavid M. KennedyWarren E. Pugh
+Respectfully submitted,
+
+CHURCH FINANCE COMMITTEE
+
+Wilford G. Edling
+
+Harold H. Bennett
+
+Weston E. Hamilton
+
+David M. Kennedy
+
+Warren E. Pugh
 
 
 

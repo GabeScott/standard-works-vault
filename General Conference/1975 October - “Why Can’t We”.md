@@ -1,6 +1,6 @@
 # “Why Can’t We?”
 
-By Elder David B. Haight - *Assistant to the Council of the Twelve*
+By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -59,6 +59,7 @@ Recently a man told how he became lost in the middle of a ward with 500 members:
 Our prophet has spoken. Quorums are accepting this challenge, “Why can’t we?” The quorums know that we can. They all realize that there are thousands of men who are waiting only for the friendly extending of the hand. Quorum presidents realize, “The night is far spent, the day is at hand.” ([[Romans 13.12|Rom. 13:12]].)
 
 I testify that Jesus the Christ is the source of priesthood power. No power can stay the progress of his church. In the name of Jesus Christ. Amen.
+
 
 
 

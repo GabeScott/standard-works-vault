@@ -1,6 +1,6 @@
 # Spiritual Crocodiles
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -103,8 +103,6 @@ I have been nipped a time or two and on occasion have needed some spiritual firs
 Fortunately, there is spiritual first aid for those who have been bitten. The bishop of the ward is the guide in charge of this first aid. He can also treat those who have been badly morally mauled by these spiritual crocodiles—and see them completely healed.
 
 That experience in Africa was another reminder for me to follow the Guide. I follow Him because I want to. Through the other experience I came to know the Guide. I bear witness that He lives, that Jesus is the Christ. I know that He has a body of flesh and bones, that He directs this Church, and His purpose is to see all of us guided safely back into His presence. In the name of Jesus Christ. Amen.
-
-
 
 
 

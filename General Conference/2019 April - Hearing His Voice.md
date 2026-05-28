@@ -1,6 +1,6 @@
 # Hearing His Voice
 
-By Elder David P. Homer - *Of the Seventy*
+By Elder David P. Homer - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -42,13 +42,13 @@ We will find our Father’s voice in many places. We will find it when we pray, 
 
 Today we sustained 15 men as prophets, seers, and revelators. Their spirituality and experience give them a unique perspective that we desperately need. Their messages are easy to find and spoken with absolute clarity. They tell us what God wants us to know, whether it is popular or not.[^19]
 
-Seeking His voice in any one of these places is good, but seeking it in many of them is even better. And when we hear it, we need to follow the direction that is given. The Apostle James said, “Be ye doers of the word, and not hearers only.”[^20] And President Thomas S. Monson once taught: “We watch. We wait. We listen for that still, small voice. When it speaks, wise men and women obey.”[^21]
+Seeking His voice in any one of these places is good, but seeking it in many of them is even better. And when we hear it, we need to follow the direction that is given. The Apostle James said, “Be ye doers of the word, and not hearers only.”[^20] And President Thomas S. Monson once taught: “We watch. We wait. We listen for that still, small voice. When it speaks, wise men and women obey.”[^21]
 
 ## When Direction Is Slow to Come
 
 Early in my professional life, Sister Homer and I were asked to accept a change in job assignment. At the time, it seemed to us a *huge* decision. We studied, we fasted, and we prayed, but an answer was slow to come. Eventually, we made a decision and pressed forward. As we did, we felt settled and soon learned that it was one of the best decisions we had ever made.
 
-As a result, we have learned that answers are sometimes slow to come. This can be because it is not the right time, because an answer is not needed, or because God trusts us to make the decision ourselves. Elder Richard G. Scott once taught that we should be grateful for such times and made this promise: “When you are living worthily and your choice is consistent with the Savior’s teachings and you need to act, proceed with trust. … God will not let you proceed too far without a warning impression if you have made the wrong decision.”[^22]
+As a result, we have learned that answers are sometimes slow to come. This can be because it is not the right time, because an answer is not needed, or because God trusts us to make the decision ourselves. Elder Richard G. Scott once taught that we should be grateful for such times and made this promise: “When you are living worthily and your choice is consistent with the Savior’s teachings and you need to act, proceed with trust. … God will not let you proceed too far without a warning impression if you have made the wrong decision.”[^22]
 
 ## We Must Choose
 
@@ -65,7 +65,7 @@ Brothers and sisters, in a world with so many competing voices, I testify that o
 
 
 
-[^1]: [[1 Kings 18.21|1 Kings 18:21]].
+[^1]: [[1 Kings 18.21|1 Kings 18:21]].
 
 [^2]: See [[Revelation 3.15|Revelation 3:15–16]][[Revelation 3.16|]].
 
@@ -83,15 +83,15 @@ Brothers and sisters, in a world with so many competing voices, I testify that o
 
 [^9]: [[Alma 30.60|Alma 30:60]].
 
-[^10]: See [[2 Nephi 31.18|2 Nephi 31:18]].
+[^10]: See [[2 Nephi 31.18|2 Nephi 31:18]].
 
 [^11]: [[John 14.26|John 14:26]].
 
-[^12]: [[2 Nephi 32.5|2 Nephi 32:5]]; see also [[2 Nephi 32.1|2 Nephi 32:1–4]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]].
+[^12]: [[2 Nephi 32.5|2 Nephi 32:5]]; see also [[2 Nephi 32.1|2 Nephi 32:1–4]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]].
 
 [^13]: [[D&C 8.2|Doctrine and Covenants 8:2]].
 
-[^14]: [[3 Nephi 11.3|3 Nephi 11:3]].
+[^14]: [[3 Nephi 11.3|3 Nephi 11:3]].
 
 [^15]: [[D&C 128.1|Doctrine and Covenants 128:1]].
 
@@ -105,12 +105,10 @@ Brothers and sisters, in a world with so many competing voices, I testify that o
 
 [^20]: [[James 1.22|James 1:22]].
 
-[^21]: Thomas S. Monson, “[The Spirit Giveth Life](https://churchofjesuschrist.org/study/ensign/1997/06/the-spirit-giveth-life?lang=eng),” *Ensign* or *Liahona,* June 1997, 4.
+[^21]: Thomas S. Monson, “[The Spirit Giveth Life](https://www.churchofjesuschrist.org/study/ensign/1997/06/the-spirit-giveth-life?lang=eng),” *Ensign* or *Liahona,* June 1997, 4.
 
-[^22]: Richard G. Scott, “[[2007 April - Using the Supernal Gift of Prayer.md|Using the Supernal Gift of Prayer]],” *Ensign* or *Liahona,* May 2007, 10.
+[^22]: Richard G. Scott, “[[2007 April - Using the Supernal Gift of Prayer.md|Using the Supernal Gift of Prayer]],” *Ensign* or *Liahona,* May 2007, 10.
 
-[^23]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^23]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-
-
-#Holy_Ghost #Spirituality
+#HolyGhost #Spirituality

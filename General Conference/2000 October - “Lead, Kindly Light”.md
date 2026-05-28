@@ -12,7 +12,7 @@ When he was just 10 years old, Joshua Dennis spent five days trapped in the pitc
 
 Joshua’s simple but profound faith had been nurtured by his parents, who taught him that he had a Heavenly Father who knew where he was at all times. They taught him he had been born with the Light of Christ within him. Truly, Josh had been brought up in light and truth (see [[D&C 93.40|D&C 93:40]]) so that when he found himself huddled on a ledge 2,000 feet deep in a mine, he had drawn upon that light to sustain and comfort him, to give him courage and hope. Josh experienced what Abinadi taught when, speaking of Christ, he said, “He is the light and the life of the world; yea, a light that is endless, that can never be darkened” ([[Mosiah 16.9|Mosiah 16:9]]).
 
-How fitting that the Savior’s birth in Bethlehem was accompanied by miraculous displays of light in the Western Hemisphere. At the time of His birth, “at the going down of the sun there was no darkness; and the people began to be astonished because … there was no darkness in all that night” ([[3 Nephi 1.15|3 Ne. 1:15, 19]][[3 Nephi 1.19|]]). This celebration of light stood in stark contrast to that which occurred at His Crucifixion, when “there was thick darkness upon all the face of the land, insomuch that the inhabitants thereof … could feel the vapor of darkness” ([[3 Nephi 8.20|3 Ne. 8:20]]; see also [[3 Nephi 8.21|vv. 21–23]][[3 Nephi 8.22|]][[3 Nephi 8.23|]]).
+How fitting that the Savior’s birth in Bethlehem was accompanied by miraculous displays of light in the Western Hemisphere. At the time of His birth, “at the going down of the sun there was no darkness; and the people began to be astonished because … there was no darkness in all that night” ([[3 Nephi 1.15|3 Ne. 1:15, 19]][[3 Nephi 1.19|]]). This celebration of light stood in stark contrast to that which occurred at His Crucifixion, when “there was thick darkness upon all the face of the land, insomuch that the inhabitants thereof … could feel the vapor of darkness” ([[3 Nephi 8.20|3 Ne. 8:20]]; see also [[3 Nephi 8.21|vv. 21–23]][[3 Nephi 8.22|]][[3 Nephi 8.23|]]).
 
 There are all kinds of darkness in this world: darkness that comes from sin; darkness that comes from discouragement, disappointment, and despair; darkness that comes from loneliness and feelings of inadequacy. Just as the light that burned in Josh Dennis’s heart was stronger than the suffocating darkness that engulfed him, the light of Jesus Christ is stronger than any darkness we face in this life, *if* we have faith in Him, seek after Him, and obey Him. For as the Lord revealed through the Prophet Joseph, “If your eye be single to my glory, your whole bodies shall be filled with light, and there shall be no darkness in you” ([[D&C 88.67|D&C 88:67]]).
 
@@ -45,6 +45,4 @@ I know from my own experience, just as surely as Josh knows from his, of the rea
 
 
 
-
-
-#Agency #Commandments #Covenants #Faith #Jesus_Christ #Loneliness #Sin #Truth
+#Agency #Commandments #Covenants #Faith #JesusChrist #Loneliness #Sin #Truth

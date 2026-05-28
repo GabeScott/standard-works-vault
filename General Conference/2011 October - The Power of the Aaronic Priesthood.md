@@ -1,6 +1,6 @@
 # The Power of the Aaronic Priesthood
 
-By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
+By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -8,7 +8,7 @@ By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/10/the-power-of-the-aaronic-priesthood?lang=eng)
 
-In a recent training session for General Authorities, President Thomas S. Monson emphasized anew the duties and opportunities for Aaronic Priesthood bearers.[^1] It is in the spirit of that instruction that I address you.
+In a recent training session for General Authorities, President Thomas S. Monson emphasized anew the duties and opportunities for Aaronic Priesthood bearers.[^1] It is in the spirit of that instruction that I address you.
 
 Duty, properly carried out, determines the destiny of peoples and nations. So fundamental is the principle of duty that priesthood bearers are admonished, “Wherefore, now let every man learn his duty, and to act in the office in which he is appointed, in all diligence.”[^2]
 
@@ -44,15 +44,15 @@ It has been my experience that you who serve as deacons, teachers, and priests a
 >We say, “Behold the man!”[^9]
 >
 
-“The power and authority of the … Aaronic Priesthood, is to hold the keys of the ministering of angels, and to administer in outward ordinances, the letter of the gospel, the baptism of repentance for the remission of sins, agreeable to the covenants and commandments.”[^10] President Boyd K. Packer has observed: “We have done very well at distributing the *authority* of the priesthood. We have priesthood authority planted nearly everywhere. … But distributing the *authority* of the priesthood has raced, I think, ahead of distributing the *power* of the priesthood.”[^11] For the everlasting welfare of God’s children, this must be remedied.
+“The power and authority of the … Aaronic Priesthood, is to hold the keys of the ministering of angels, and to administer in outward ordinances, the letter of the gospel, the baptism of repentance for the remission of sins, agreeable to the covenants and commandments.”[^10] President Boyd K. Packer has observed: “We have done very well at distributing the *authority* of the priesthood. We have priesthood authority planted nearly everywhere. … But distributing the *authority* of the priesthood has raced, I think, ahead of distributing the *power* of the priesthood.”[^11] For the everlasting welfare of God’s children, this must be remedied.
 
-Our prophet has told us how this can be done. Quoting George Q. Cannon, President Monson said: “I want to see the power of the Priesthood strengthened. … I want to see this strength and power diffused through the entire body of the Priesthood, reaching from the head down to the least and most humble deacon in the Church. Every man should seek for and enjoy the revelations of God, the light of heaven shining in his soul and giving unto him knowledge concerning his duties, concerning that portion of the work … that devolves upon him in his Priesthood.”[^12]
+Our prophet has told us how this can be done. Quoting George Q. Cannon, President Monson said: “I want to see the power of the Priesthood strengthened. … I want to see this strength and power diffused through the entire body of the Priesthood, reaching from the head down to the least and most humble deacon in the Church. Every man should seek for and enjoy the revelations of God, the light of heaven shining in his soul and giving unto him knowledge concerning his duties, concerning that portion of the work … that devolves upon him in his Priesthood.”[^12]
 
 What can a deacon, teacher, or priest do to receive the spirit of revelation and magnify his calling? He can live so as to enjoy the cleansing, sanctifying, and illuminating power of the Holy Ghost.
 
 The importance of this is found in these words from Alma: “Now I say unto you that this is the order after which I am called, … to preach unto … the rising generation … that they must repent and be *born again.*”[^13] When one is born again, his heart is changed. He has no appetite for things evil or unclean. He feels a deep and abiding love for God. He wants to be good, to serve others, and to keep the commandments.[^14]
 
-President Joseph F. Smith described his experience with this mighty change: “The feeling that came upon me was that of pure peace, of love and of light. I felt in my soul that if I had sinned … it had been forgiven me; that I was indeed cleansed from sin; my heart was touched and I felt that I would not injure the smallest insect beneath my feet. I felt as though I wanted to do good everywhere to everybody and to everything. I felt a newness of life, a newness of desire to do that which was right. There was not one particle of desire for evil left in my soul. I was but a little boy, it is true, … but this was the influence that came upon me, and I know that it was from God, and was and ever has been a living witness to me of my acceptance of the Lord.”[^15]
+President Joseph F. Smith described his experience with this mighty change: “The feeling that came upon me was that of pure peace, of love and of light. I felt in my soul that if I had sinned … it had been forgiven me; that I was indeed cleansed from sin; my heart was touched and I felt that I would not injure the smallest insect beneath my feet. I felt as though I wanted to do good everywhere to everybody and to everything. I felt a newness of life, a newness of desire to do that which was right. There was not one particle of desire for evil left in my soul. I was but a little boy, it is true, … but this was the influence that came upon me, and I know that it was from God, and was and ever has been a living witness to me of my acceptance of the Lord.”[^15]
 
 So we call upon you wonderful young brethren to diligently strive to be “born again.”[^16] Pray for this mighty change in your life. Study the scriptures. Desire more than all else to know God and to become like His holy Son. Enjoy your youth but “put away childish things”:[^17]
 
@@ -91,13 +91,13 @@ I bear witness, God is our Eternal Father and dwells in yonder heavens. Jesus th
 
 
 
-[^1]: Thomas S. Monson, General Authority training meeting, Apr. 2010.
+[^1]: Thomas S. Monson, General Authority training meeting, Apr. 2010.
 
 [^2]: [[D&C 107.99|Doctrine and Covenants 107:99]].
 
-[^3]: Thomas S. Monson, in Conference Report, Apr. 2005, 59; or *Ensign,* May 2005, 54.
+[^3]: Thomas S. Monson, in Conference Report, Apr. 2005, [[2005 April - The Sacred Call of Service.md|59]]; or *Ensign,* May 2005, 54.
 
-[^4]: George Albert Smith, in Conference Report, Apr. 1942, 14; see also Thomas S. Monson, in Conference Report, Apr. 2005, 59; or *Ensign,* May 2005, 54.
+[^4]: George Albert Smith, in Conference Report, Apr. 1942, 14; see also Thomas S. Monson, in Conference Report, Apr. 2005, [[2005 April - The Sacred Call of Service.md|59]]; or *Ensign,* May 2005, 54.
 
 [^5]: [[John 5.30|John 5:30]].
 
@@ -105,29 +105,29 @@ I bear witness, God is our Eternal Father and dwells in yonder heavens. Jesus th
 
 [^7]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
-[^8]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^8]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
-[^9]: Poem by Keith B. McMullin; see Keith B. McMullin, in Conference Report, Oct. 1997, 57; or *Ensign,* Nov. 1997, 42.
+[^9]: Poem by Keith B. McMullin; see Keith B. McMullin, in Conference Report, Oct. 1997, [[1997 October - “Behold the Man”.md|57]]; or *Ensign,* Nov. 1997, 42.
 
 [^10]: [[D&C 107.20|Doctrine and Covenants 107:20]].
 
-[^11]: Boyd K. Packer, in Conference Report, Apr. 2010, 5; or *Ensign,* May 2010, 7.
+[^11]: Boyd K. Packer, in Conference Report, Apr. 2010, [[2010 April - The Power of the Priesthood.md|5]]; or *Ensign,* May 2010, 7.
 
-[^12]: George Q. Cannon, *Deseret Weekly,* Nov. 2, 1889, 593; quoted by Thomas S. Monson in a General Authority training meeting, Apr. 2010.
+[^12]: George Q. Cannon, *Deseret Weekly,* Nov. 2, 1889, 593; quoted by Thomas S. Monson in a General Authority training meeting, Apr. 2010.
 
 [^13]: [[Alma 5.49|Alma 5:49]]; emphasis added.
 
-[^14]: See Marion G. Romney, in Conference Report, Oct. 1975, 107–11; or *Ensign,* Nov. 1975, 71–73.
+[^14]: See Marion G. Romney, in Conference Report, Oct. 1975, [[1975 October - According to the Covenants.md|107–11]]; or *Ensign,* Nov. 1975, 71–73.
 
-[^15]: Joseph F. Smith, in Conference Report, Apr. 1898, 66.
+[^15]: Joseph F. Smith, in Conference Report, Apr. 1898, 66.
 
 [^16]: See [[John 3.3|John 3:3–7]][[John 3.4|]][[John 3.5|]][[John 3.6|]][[John 3.7|]]; [[Alma 5.14|Alma 5:14–21, 49]][[Alma 5.15|]][[Alma 5.16|]][[Alma 5.17|]][[Alma 5.18|]][[Alma 5.19|]][[Alma 5.20|]][[Alma 5.21|]][[Alma 5.49|]].
 
-[^17]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
+[^17]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
 
-[^18]: See [[2 Timothy 2.16|2 Timothy 2:16, 22–26]][[2 Timothy 2.22|]][[2 Timothy 2.23|]][[2 Timothy 2.24|]][[2 Timothy 2.25|]][[2 Timothy 2.26|]].
+[^18]: See [[2 Timothy 2.16|2 Timothy 2:16, 22–26]][[2 Timothy 2.22|]][[2 Timothy 2.23|]][[2 Timothy 2.24|]][[2 Timothy 2.25|]][[2 Timothy 2.26|]].
 
-[^19]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^19]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^20]: [[Luke 18.22|Luke 18:22]]; see also [[John 14.12|John 14:12–14]][[John 14.13|]][[John 14.14|]].
 
@@ -137,12 +137,10 @@ I bear witness, God is our Eternal Father and dwells in yonder heavens. Jesus th
 
 [^23]: [[D&C 20.53|Doctrine and Covenants 20:53]].
 
-[^24]: [[1 Timothy 4.14|1 Timothy 4:14]].
+[^24]: [[1 Timothy 4.14|1 Timothy 4:14]].
 
-[^25]: [[2 Timothy 1.7|2 Timothy 1:7–9]][[2 Timothy 1.8|]][[2 Timothy 1.9|]].
+[^25]: [[2 Timothy 1.7|2 Timothy 1:7–9]][[2 Timothy 1.8|]][[2 Timothy 1.9|]].
 
-[^26]: Thomas S. Monson, General Authority training meeting, Apr. 2010.
+[^26]: Thomas S. Monson, General Authority training meeting, Apr. 2010.
 
-
-
-#Holy_Ghost #Priesthood #Service #Spirituality #Youth
+#HolyGhost #Priesthood #Service #Spirituality #Youth

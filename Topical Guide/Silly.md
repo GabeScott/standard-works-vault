@@ -1,7 +1,6 @@
 # Silly
 
-
-Ephraim ... is like a *silly* dove without heart, [[Hosea 7.11|Hosea 7:11]].
+Ephraim … is like a *silly* dove without heart, [[Hosea 7.11|Hosea 7:11]].
 
 lead captive *silly* women laden with sins, [[2 Timothy 3.6|2 Timothy 3:6]].
 

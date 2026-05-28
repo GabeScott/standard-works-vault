@@ -1,6 +1,6 @@
 # Waiting upon the Lord: Thy Will Be Done
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/10/waiting-upon-the-lord-thy-will-be-done?lang=eng)
 
-On this Sabbath morning, we give thanks for and testify of the living reality of our Savior. His gospel has been restored through the Prophet Joseph Smith. The Book of Mormon is true. We are led by a living prophet today, President Thomas S. Monson. Above all, we bear solemn witness of the Atonement of Jesus Christ and the eternal blessings that flow from it.
+On this Sabbath morning, we give thanks for and testify of the living reality of our Savior. His gospel has been restored through the Prophet Joseph Smith. The Book of Mormon is true. We are led by a living prophet today, President Thomas S. Monson. Above all, we bear solemn witness of the Atonement of Jesus Christ and the eternal blessings that flow from it.
 
 During the past few months, I have had the opportunity to study and learn more about the Savior’s atoning sacrifice and how He prepared Himself to make that eternal offering for each one of us.
 
@@ -54,7 +54,7 @@ Even with the shining examples of Job, the prophets, and the Savior, we will sti
 
 In my life I have learned that sometimes I do not receive an answer to a prayer because the Lord knows I am not ready. When He does answer, it is often “here a little and there a little”[^33] because that is all that I can bear or all I am willing to do.
 
-Too often we pray to have patience, but we want it right now! As a young man, President David O. McKay prayed for a witness of the truthfulness of the gospel. Many years later, while he was serving his mission in Scotland, that witness finally came. Later he wrote, “It was an assurance to me that sincere prayer is answered ‘sometime, somewhere.’”[^34]
+Too often we pray to have patience, but we want it right now! As a young man, President David O. McKay prayed for a witness of the truthfulness of the gospel. Many years later, while he was serving his mission in Scotland, that witness finally came. Later he wrote, “It was an assurance to me that sincere prayer is answered ‘sometime, somewhere.’”[^34]
 
 We may not know when or how the Lord’s answers will be given, but in His time and His way, I testify, His answers will come. For some answers we may have to wait until the hereafter. This may be true for some promises in our patriarchal blessings and for some blessings for family members. Let us not give up on the Lord. His blessings are eternal, not temporary.
 
@@ -62,7 +62,7 @@ Waiting upon the Lord gives us a priceless opportunity to discover that there ar
 
 As we endure physical suffering, we are increasingly aware of how many wait upon each of us. To all the Marys and Marthas, to all of the good Samaritans who minister to the sick, succor the weak, and care for the mentally and physically infirm, I feel the gratitude of a loving Heavenly Father and His Beloved Son. In your daily Christlike ministry, you are waiting upon the Lord and doing your Heavenly Father’s will. His assurance to you is clear: “Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.”[^35] He knows your sacrifices and your sorrows. He hears your prayers. His peace and rest will be yours as you continue to wait upon Him in faith.
 
-Every one of us is more beloved to the Lord than we can possibly understand or imagine. Let us therefore be kinder to one another and kinder toward ourselves. Let us remember that as we wait upon the Lord, we are becoming “saint\[s\] through \[His\] atonement … , submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon \[us\], even as a child doth submit to his father.”[^36]
+Every one of us is more beloved to the Lord than we can possibly understand or imagine. Let us therefore be kinder to one another and kinder toward ourselves. Let us remember that as we wait upon the Lord, we are becoming “saint\[s\] through \[His\] atonement … , submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon \[us\], even as a child doth submit to his father.”[^36]
 
 Such was the submission of our Savior to His Father in the Garden of Gethsemane. He implored His disciples, “Watch with me,” yet three times He returned to them to find their eyes heavy with sleep.[^37] Without the companionship of these disciples and ultimately without the presence of His Father, the Savior chose to suffer our “pains and afflictions and temptations of every kind.”[^38] With an angel sent to strengthen Him,[^39] He “shrank not to drink the bitter cup.”[^40] He waited upon His Father, saying, “Thy will be done,”[^41] and He humbly trod the winepress alone.[^42] Now, as one of His Twelve Apostles in these latter days, I pray that we will be strengthened to watch with Him and wait upon Him through all our days.
 
@@ -93,7 +93,7 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 
 [^11]: [[D&C 121.1|Doctrine and Covenants 121:1]].
 
-[^12]: [[Psalms 37.9|Psalm 37:9]]; [[Psalms 123.2|123:2]]; [[Isaiah 8.17|Isaiah 8:17]]; [[Isaiah 40.31|40:31]]; [[2 Nephi 18.17|2 Nephi 18:17]].
+[^12]: [[Psalms 37.9|Psalm 37:9]]; [[Psalms 123.2|123:2]]; [[Isaiah 8.17|Isaiah 8:17]]; [[Isaiah 40.31|40:31]]; [[2 Nephi 18.17|2 Nephi 18:17]].
 
 [^13]: [[D&C 122.7|Doctrine and Covenants 122:7]].
 
@@ -101,13 +101,13 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 
 [^15]: [[Psalms 30.5|Psalm 30:5]].
 
-[^16]: [[Matthew 6.10|Matthew 6:10]]; [[3 Nephi 13.10|3 Nephi 13:10]]; see also [[Matthew 26.39|Matthew 26:39]].
+[^16]: [[Matthew 6.10|Matthew 6:10]]; [[3 Nephi 13.10|3 Nephi 13:10]]; see also [[Matthew 26.39|Matthew 26:39]].
 
 [^17]: [[Alma 32.41|Alma 32:41]].
 
 [^18]: [[Matthew 6.10|Matthew 6:10]]; [[Luke 11.2|Luke 11:2]].
 
-[^19]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^19]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^20]: [[Romans 5.3|Romans 5:3]].
 
@@ -115,7 +115,7 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 
 [^22]: [[Alma 45.17|Alma 45:17]].
 
-[^23]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^23]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^24]: [[Moroni 6.4|Moroni 6:4]].
 
@@ -133,11 +133,11 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 
 [^31]: [[Job 13.15|Job 13:15]].
 
-[^32]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^32]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-[^33]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^33]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-[^34]: *Teachings of Presidents of the Church: David O. McKay* (2003), xviii.
+[^34]: *Teachings of Presidents of the Church: David O. McKay* (2003), xviii.
 
 [^35]: [[Matthew 25.40|Matthew 25:40]].
 
@@ -149,13 +149,13 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 
 [^39]: See [[Luke 22.43|Luke 22:43]].
 
-[^40]: “In Memory of the Crucified,” *Hymns,* no. 190; see also [[3 Nephi 11.11|3 Nephi 11:11]]; [[D&C 19.18|Doctrine and Covenants 19:18–19]][[D&C 19.19|]].
+[^40]: “In Memory of the Crucified,” *Hymns,* no. 190; see also [[3 Nephi 11.11|3 Nephi 11:11]]; [[D&C 19.18|Doctrine and Covenants 19:18–19]][[D&C 19.19|]].
 
 [^41]: [[Matthew 26.42|Matthew 26:42]].
 
 [^42]: See [[D&C 76.107|Doctrine and Covenants 76:107]]; [[D&C 88.106|88:106]]; [[D&C 133.50|133:50]].
 
-[^43]: “Where Can I Turn for Peace?” *Hymns,* no. 129.
+[^43]: “Where Can I Turn for Peace?” *Hymns,* no. 129.
 
 [^44]: [[Psalms 121.4|Psalm 121:4]].
 
@@ -163,5 +163,6 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 
 [^46]: [[Isaiah 40.31|Isaiah 40:31]].
 
+[^47]: [[Matthew 26.42|Matthew 26:42]].
 
 #Adversity #Endurance #Faith #Hope #Opposition #Patience #Trust

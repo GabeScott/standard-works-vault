@@ -42,13 +42,13 @@ In Sweden, Bishop Krister Stendahl of the Lutheran church visited the Stockholm 
 
 “Imagine that a new, gleaming white temple with slender pinnacles and towers has been erected to the glory of God. Not a church, not a chapel, but a *temple* for sacred ordinances, performed quietly and in solemn dignity.
 
-“A temple where the innermost room is named ‘the celestial.’ A temple where the faithful perform vicarious work according to Paul’s statement on baptism for the dead ([[1 Corinthians 15.29|1 Cor. 15:29]]).
+“A temple where the innermost room is named ‘the celestial.’ A temple where the faithful perform vicarious work according to Paul’s statement on baptism for the dead ([[1 Corinthians 15.29|1 Cor. 15:29]]).
 
-“All in consequence of the wisdom and calling of Joseph Smith. …
+“All in consequence of the wisdom and calling of Joseph Smith. …
 
 “What shall we think and say about this? To pretend that it does not concern us that the Mormons—The Church of Jesus Christ of Latter-day Saints—have built a temple in our midst would be conceited or condescending.
 
-“Therefore I will rejoice with them over this temple that they have erected with much sacrifice to the glory of God. To experience their joy and pride over the beauty of the temple warms one’s heart in a special way” (*Svenska Kyrkans Tidning,* 11 July 1985, p. 1).
+“Therefore I will rejoice with them over this temple that they have erected with much sacrifice to the glory of God. To experience their joy and pride over the beauty of the temple warms one’s heart in a special way” (*Svenska Kyrkans Tidning,* 11 July 1985, p. 1).
 
 President Thomas S. Monson has given me permission to share with you his impressions when he rededicated the German Democratic Republic for the advancement of the work of the Church:
 
@@ -77,6 +77,4 @@ In closing, brothers and sisters, I want to say that this is the way we tried to
 
 
 
-
-
-#Faith #Missionary_Work #Temples #Testimony
+#Faith #MissionaryWork #Temples #Testimony

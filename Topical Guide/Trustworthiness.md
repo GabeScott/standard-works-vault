@@ -1,9 +1,8 @@
 # Trustworthiness
 
+*See also* [[Dependability.md|Dependability]]; [[Faithfulness.md|Faithfulness]]; [[Honesty.md|Honesty]]; [[Obedience.md|Obedience]]; [[Trust in God.md|Trust in God]]
 
-*See also* [[Dependability.md|Dependability]]; [[Faithfulness.md|Faithfulness]]; [[Honesty.md|Honesty]]; [[Obedience, Obedient, Obey.md|Obedience]]; [[Trust in God.md|Trust in God]]
-
-he will ... *keep* the way of the Lord, [[Genesis 18.19|Genesis 18:19]].
+he will … *keep* the way of the Lord, [[Genesis 18.19|Genesis 18:19]].
 
 he hath *committed* all that he hath to my hand, [[Genesis 39.8|Genesis 39:8]].
 
@@ -13,7 +12,7 @@ delivered his servants that *trusted* in him, [[Daniel 3.28|Daniel 3:28]].
 
 who will commit to your *trust* the true riches, [[Luke 16.11|Luke 16:11]].
 
-gospel ... which was committed to my *trust*, [[1 Timothy 1.11|1 Timothy 1:11]].
+gospel … which was committed to my *trust*, [[1 Timothy 1.11|1 Timothy 1:11]].
 
 Timothy, keep that which is committed to thy *trust*, [[1 Timothy 6.20|1 Timothy 6:20]].
 

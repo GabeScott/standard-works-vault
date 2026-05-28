@@ -1,6 +1,6 @@
 # The Lord Expects His Saints to Follow the Commandments
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -22,7 +22,7 @@ One prophet said:
 
 “When heaven is shut up, and there is no rain, because they have sinned against thee; if they pray toward this place, and confess thy name, and turn from their sin, when thou afflictest them:
 
-“Then hear thou in heaven, and forgive the sin of thy servants, and of thy people Israel, that thou teach them the good way wherein they should walk, and give rain upon thy land, which thou hast given to thy people for an inheritance.” ([[1 Kings 8.35|1 Kgs. 8:35–36]][[1 Kings 8.36|]].)
+“Then hear thou in heaven, and forgive the sin of thy servants, and of thy people Israel, that thou teach them the good way wherein they should walk, and give rain upon thy land, which thou hast given to thy people for an inheritance.” ([[1 Kings 8.35|1 Kgs. 8:35–36]][[1 Kings 8.36|]].)
 
 The Lord uses the weather sometimes to discipline his people for the violation of his laws. He said to the children of Israel:
 
@@ -38,7 +38,7 @@ With the great worry and suffering in the East and threats of drouth here in the
 
 From all around the world we have received letters indicating a general response to the suggestion. From Brisbane, Australia, comes this:
 
-“We received your cable inviting the Saints in Brisbane to join you and the world in a day of fasting and prayer. We share your love and concern for all of our Heavenly Father’s children. …”
+“We received your cable inviting the Saints in Brisbane to join you and the world in a day of fasting and prayer. We share your love and concern for all of our Heavenly Father’s children. …”
 
 Perhaps the day has come when we should take stock of ourselves and see if we are worthy to ask or if we have been breaking the commandments, making ourselves unworthy of receiving the blessings.
 
@@ -78,7 +78,7 @@ The Lord reverses now and warns:
 
 “I also will do this unto you; I will even appoint over you terror, consumption, and the burning ague, that shall consume the eyes, and cause sorrow of heart: and ye shall sow your seed in vain, for your enemies shall eat it.
 
-“And I will set my face against you, and ye shall be slain before your enemies: they that hate you shall reign over you; and ye shall flee when none pursueth you. …
+“And I will set my face against you, and ye shall be slain before your enemies: they that hate you shall reign over you; and ye shall flee when none pursueth you. …
 
 “And I will break the pride of your power; and I will make your heaven as iron, and your earth as brass:
 
@@ -92,15 +92,15 @@ Can you think how the highways could be made desolate? When fuel and power are l
 
 Have you ever thought, my good folks, that the matter of peace is in the hands of the Lord who says:
 
-“And I will bring a sword upon you. …” ([[Leviticus 26.25|Lev. 26:25]]).
+“And I will bring a sword upon you. …” ([[Leviticus 26.25|Lev. 26:25]]).
 
 Would that be difficult? Do you read the papers? Are you acquainted with the hatreds in the world? What guarantee have you for permanent peace?
 
-“… and ye shall be delivered into the hand of the enemy.” ([[Leviticus 26.25|Lev. 26:25]].)
+“… and ye shall be delivered into the hand of the enemy.” ([[Leviticus 26.25|Lev. 26:25]].)
 
 Are there enemies who could and would afflict us? Have you thought of that?
 
-“And I will make your cities waste,” he says, “and bring your sanctuaries unto desolation. …
+“And I will make your cities waste,” he says, “and bring your sanctuaries unto desolation. …
 
 “Then shall the land enjoy her sabbaths, as long as it lieth desolate, and ye be in your enemies’ land; even then shall the land rest, and enjoy her sabbaths.
 
@@ -130,7 +130,7 @@ Is the time to enter new life? As the clear-thinking apostle Paul said:
 
 “For which things’ sake the wrath of God cometh on the children of disobedience.” ([[Colossians 3.5|Col. 3:5–6]][[Colossians 3.6|]].)
 
-Would this be a good time to eliminate “the works of the flesh … ; Adultery, fornication, uncleanness, lasciviousness, idolatry, witchcraft, hatred, variance, emulations, wrath, strife, seditions, heresies, envyings, murders, drunkenness, revellings, and such like,” remembering that “they which do such things shall not inherit the kingdom of God”? ([[Galatians 5.19|Gal. 5:19–21]][[Galatians 5.20|]][[Galatians 5.21|]].)
+Would this be a good time to eliminate “the works of the flesh … ; Adultery, fornication, uncleanness, lasciviousness, idolatry, witchcraft, hatred, variance, emulations, wrath, strife, seditions, heresies, envyings, murders, drunkenness, revellings, and such like,” remembering that “they which do such things shall not inherit the kingdom of God”? ([[Galatians 5.19|Gal. 5:19–21]][[Galatians 5.20|]][[Galatians 5.21|]].)
 
 The Lord asks, “And why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]].)
 
@@ -173,8 +173,6 @@ There was Sonja’s garden in the heart of São Paulo, a great metropolis. Other
 One home teacher reports: “Of the five families whom I visit, all have home gardens, and it makes me very proud. I find them anxious now to plant for another year.”
 
 Brothers and sisters, this is the work of the Lord. We deal with many things which are thought to be not so spiritual; but all things are spiritual with the Lord, and he expects us to listen, and to obey, and to follow the commandments. And I beg of you—all of us—that we live the commandments of the Lord which are brought forth in these conferences from time to time by the various Brethren. And I bear testimony to the divinity of it all, in the name of Jesus Christ. Amen.
-
-
 
 
 

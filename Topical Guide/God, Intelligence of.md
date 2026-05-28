@@ -1,6 +1,5 @@
 # God, Intelligence of
 
-
 *See also* [[God, Foreknowledge of.md|God, Foreknowledge of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Intelligence.md|Intelligence]]
 
 my *thoughts* are not your thoughts, [[Isaiah 55.8|Isaiah 55:8]].

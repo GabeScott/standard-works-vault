@@ -60,6 +60,4 @@ May God bless us as parents to teach our children to walk uprightly before the L
 
 
 
-
-
-#Agency #Children #Example #Home #Parenthood #Prayer #Scripture_Study
+#Agency #Children #Example #Home #Parenthood #Prayer #ScriptureStudy

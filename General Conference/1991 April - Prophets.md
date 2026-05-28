@@ -43,6 +43,4 @@ I leave you my special witness of the reality of our Father in Heaven, that Jesu
 
 
 
-
-
 #Adversity #Faith #Home #Leadership #Priesthood #Prophecy #Prophets #Unity

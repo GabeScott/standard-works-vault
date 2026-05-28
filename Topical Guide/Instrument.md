@@ -1,6 +1,5 @@
 # Instrument
 
-
 *See also* [[Musical Instruments.md|Musical Instruments]]
 
 *instruments* of cruelty are in their habitations, [[Genesis 49.5|Genesis 49:5]].

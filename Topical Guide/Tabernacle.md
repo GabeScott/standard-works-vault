@@ -1,11 +1,10 @@
 # Tabernacle
 
-
-*See also* [[Body, Sanctity of.md|Body, Sanctity of]]; [[Church.md|Church]]; [[Sanctuary.md|Sanctuary]]; [[Temple.md|Temple]]; [[Temple, House of the Lord.md|Temple, House of the Lord]]; [[Tent.md|Tent]]; [BD Tabernacle](https://www.churchofjesuschrist.org/study/scriptures/bd/tabernacle?lang=eng)
+*See also* [[Body, Sanctity of.md|Body, Sanctity of]]; [[Church.md|Church]]; [[Sanctuary.md|Sanctuary]]; [[Temple.md|Temple]]; [[Temple, House of the Lord.md|Temple, House of the Lord]]; [[Tent.md|Tent]]; [[BD Tabernacle.md|BD Tabernacle]]
 
 let them make me a *sanctuary*, [[Exodus 25.8|Exodus 25:8]] ([[Exodus 26.30|Exodus 26:30]]).
 
-after the pattern of the *tabernacle* ... shall ye make it, [[Exodus 25.9|Exodus 25:9]].
+after the pattern of the *tabernacle* … shall ye make it, [[Exodus 25.9|Exodus 25:9]].
 
 *tabernacle* of the congregation without the veil, [[Exodus 27.21|Exodus 27:21]].
 
@@ -13,7 +12,7 @@ after the pattern of the *tabernacle* ... shall ye make it, [[Exodus 25.9|Exodus
 
 thou shalt anoint the *tabernacle* of the congregation, [[Exodus 30.26|Exodus 30:26]] ([[Exodus 40.9|Exodus 40:9]]).
 
-Lord ... spake unto him out of the *tabernacle*, [[Leviticus 1.1|Leviticus 1:1]].
+Lord … spake unto him out of the *tabernacle*, [[Leviticus 1.1|Leviticus 1:1]].
 
 when they defile my *tabernacle*, [[Leviticus 15.31|Leviticus 15:31]].
 
@@ -31,7 +30,7 @@ Israel assembled together at Shiloh, and set up the *tabernacle*, [[Joshua 18.1|
 
 she went up to the *house* of the Lord, [[1 Samuel 1.7|1 Samuel 1:7]].
 
-Zadok ... took an horn of oil out of the *tabernacle*, [[1 Kings 1.39|1 Kings 1:39]].
+Zadok … took an horn of oil out of the *tabernacle*, [[1 Kings 1.39|1 Kings 1:39]].
 
 the *tabernacle* of the congregation of God, [[2 Chronicles 1.3|2 Chronicles 1:3]].
 
@@ -55,13 +54,13 @@ to keep the feast of *tabernacles*, [[Zechariah 14.16|Zechariah 14:16]].
 
 let us make here three *tabernacles*, [[Matthew 17.4|Matthew 17:4]] ([[Mark 9.5|Mark 9:5]]; [[Luke 9.33|Luke 9:33]]).
 
-Jews' feast of *tabernacles* was at hand, [[John 7.2|John 7:2]].
+Jews’ feast of *tabernacles* was at hand, [[John 7.2|John 7:2]].
 
 desired to find a *tabernacle* for the God of Jacob, [[Acts 7.46|Acts 7:46]].
 
 earthly house of this *tabernacle* were dissolved, [[2 Corinthians 5.1|2 Corinthians 5:1]].
 
-minister ... of the true *tabernacle*, [[Hebrews 8.2|Hebrews 8:2]].
+minister … of the true *tabernacle*, [[Hebrews 8.2|Hebrews 8:2]].
 
 *tabernacle* which is called the Holiest of all, [[Hebrews 9.3|Hebrews 9:3]].
 
@@ -77,9 +76,9 @@ temple of the *tabernacle* of the testimony, [[Revelation 15.5|Revelation 15:5]]
 
 *tabernacle* of God is with men, [[Revelation 21.3|Revelation 21:3]].
 
-Lord Omnipotent ... shall dwell in a *tabernacle* of clay, [[Mosiah 3.5|Mosiah 3:5]] ([[Alma 7.8|Alma 7:8]]; [[Moroni 9.6|Moroni 9:6]]).
+Lord Omnipotent … shall dwell in a *tabernacle* of clay, [[Mosiah 3.5|Mosiah 3:5]] ([[Alma 7.8|Alma 7:8]]; [[Moroni 9.6|Moroni 9:6]]).
 
-house of the Lord ... a *tabernacle* of the Holy Spirit, [[D&C 88.137|D&C 88:137]].
+house of the Lord … a *tabernacle* of the Holy Spirit, [[D&C 88.137|D&C 88:137]].
 
 made flesh my *tabernacle*, [[D&C 93.4|D&C 93:4]].
 
@@ -87,4 +86,4 @@ elements are the *tabernacle* of God, [[D&C 93.35|D&C 93:35]].
 
 veil of the covering of my temple, in my *tabernacle*, [[D&C 101.23|D&C 101:23]].
 
-there shall be my *tabernacle* ... called Zion, [[Moses 7.62|Moses 7:62]].
+there shall be my *tabernacle* … called Zion, [[Moses 7.62|Moses 7:62]].

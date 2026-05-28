@@ -1,6 +1,6 @@
 # Bonded to Jesus Christ: Becoming the Salt of the Earth
 
-By Elder José A. Teixeira - *Of the Presidency of the Seventy*
+By Elder José A. Teixeira - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -44,7 +44,7 @@ Remember the *marnotos*, the salt workers; they use simple tools to harvest the 
 
 3. Being willing to accept a calling and serving in the Church. Service in our local congregations allows us to support one another and grow together. While serving is not always convenient, it is always rewarding.
 
-4. And finally, using digital communication tools with purpose. Today, digital communication tools allow us to connect as never before. Like most of you, I use these tools to connect with brothers and sisters in the Church and with my family and friends. As I connect with them, I feel closer to them; we can minister to each other in times of need when we cannot be physically present. These tools are undoubtedly a blessing, yet these very same tools can drag us away from the depth of meaningful interactions and eventually cause us to be pulled into habits that waste our time in less purposeful activities. Striving to be the salt of the earth includes so much more than an endless scrolling of reels on a six-inch (15 cm) screen.
+4. And finally, using digital communication tools with purpose. Today, digital communication tools allow us to connect as never before. Like most of you, I use these tools to connect with brothers and sisters in the Church and with my family and friends. As I connect with them, I feel closer to them; we can minister to each other in times of need when we cannot be physically present. These tools are undoubtedly a blessing, yet these very same tools can drag us away from the depth of meaningful interactions and eventually cause us to be pulled into habits that waste our time in less purposeful activities. Striving to be the salt of the earth includes so much more than an endless scrolling of reels on a six-inch (15 cm) screen.
 
 As we keep the house of the Lord central in our lives, intentionally strengthen others by living the gospel, accept callings to serve, and use digital tools with purpose, we can preserve our spiritual vitality. Just as salt in its purest form has the power to enhance and preserve, so too does our faith in Jesus Christ when it is nourished and protected by our dedication to Christlike service and love.
 
@@ -57,8 +57,6 @@ As we remain bonded to the Lord, our lives will naturally reflect His light, and
 
 [^2]: [[Matthew 5.13|Matthew 5:13]].
 
-[^3]: Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 79.
+[^3]: Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 79.
 
-
-
-#Discipleship #Faith #Jesus_Christ #Service
+#Discipleship #Faith #JesusChrist #Service

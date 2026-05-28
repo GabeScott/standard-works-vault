@@ -1,6 +1,6 @@
 # The Law of the Fast: A Personal Responsibility to Care for the Poor and Needy
 
-By Bishop Dean M. Davies - *Second Counselor in the Presiding Bishopric*
+By Bishop Dean M. Davies - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -52,11 +52,11 @@ Isaiah then went on to list the wonderful blessings promised by the Lord to thos
 
 “And the Lord shall guide thee continually, and satisfy thy soul in drought.”[^5]
 
-Regarding this scripture, President Harold B. Lee had this to say: “The tremendous blessings that come \[from fasting\] have been spelled out in every dispensation, and here the Lord is telling us through this great prophet why there is fasting, and the blessings that come from fasting. … If you analyze … the 58th chapter of the book of Isaiah you will find unraveled why the Lord wants us to pay fast offerings, why he wants us to fast. It’s because by qualifying thus we can call and the Lord can answer. We can cry and the Lord will say, ‘Here I am.’”
+Regarding this scripture, President Harold B. Lee had this to say: “The tremendous blessings that come \[from fasting\] have been spelled out in every dispensation, and here the Lord is telling us through this great prophet why there is fasting, and the blessings that come from fasting. … If you analyze … the 58th chapter of the book of Isaiah you will find unraveled why the Lord wants us to pay fast offerings, why he wants us to fast. It’s because by qualifying thus we can call and the Lord can answer. We can cry and the Lord will say, ‘Here I am.’”
 
 President Lee adds: “Do we ever want to be in a condition where we can call and he won’t answer? We will cry in our distress and he won’t be with us? I think it is time we are thinking about these fundamentals because these are the days that lie ahead, when we are going to need more and more the blessings of the Lord, when the judgments are poured out without mixture upon the whole earth.”[^6]
 
-Our beloved prophet, President Thomas S. Monson, has shared his testimony of these principles—a testimony borne of personal experience. He said: “No member of the Church who has helped provide for those in need ever forgets or regrets the experience. Industry, thrift, self-reliance, and sharing with others are not new to us.”[^7]
+Our beloved prophet, President Thomas S. Monson, has shared his testimony of these principles—a testimony borne of personal experience. He said: “No member of the Church who has helped provide for those in need ever forgets or regrets the experience. Industry, thrift, self-reliance, and sharing with others are not new to us.”[^7]
 
 Brethren, members of The Church of Jesus Christ of Latter-day Saints are a covenant-making, commandment-keeping people. I cannot think of any law, any commandment, which, if kept faithfully, is easier to keep and which provides greater blessings than the law of the fast. When we fast and give an honest fast offering, we contribute to the Lord’s storehouse what would have been expended on the cost of the meals. It does not require monetary sacrifice in excess of what would be expended normally. At the same time, we are promised the extraordinary blessings, as previously noted.
 
@@ -70,7 +70,7 @@ President Monson has said, “Those bishops who organize their Aaronic Priesthoo
 
 Bishops, remember that circumstances vary widely from one area to another and from country to country. Door-to-door contacting by Aaronic Priesthood quorum members may not be practical in the region where you live. However, we invite you to prayerfully consider the prophet’s counsel and seek inspiration on appropriate ways in which the Aaronic Priesthood holders in your wards can magnify their priesthood by participating in the collection of fast offerings.
 
-In [[3 Nephi 27.27|chapter 27 of 3 Nephi]], the risen Lord asked, “What manner of men ought ye to be?” He responded, “Even as I am.”[^9] As we take upon ourselves the name of Christ and strive to follow Him, we will receive His image in our countenance and become more like Him. Caring for the poor and needy is inherent in the ministry of the Savior. It is in everything He does. He reaches out to all and lifts us. His yoke is easy, and His burden is light. I invite each of us to become more like the Savior by caring for the poor and needy, by faithfully keeping the law of the fast, and by contributing a generous fast offering. I humbly testify that faithfully caring for the poor and needy is a reflection of spiritual maturity and will bless both the giver and the receiver. In the sacred name of Jesus Christ, amen.
+In [[3 Nephi 27.27|chapter 27 of 3 Nephi]], the risen Lord asked, “What manner of men ought ye to be?” He responded, “Even as I am.”[^9] As we take upon ourselves the name of Christ and strive to follow Him, we will receive His image in our countenance and become more like Him. Caring for the poor and needy is inherent in the ministry of the Savior. It is in everything He does. He reaches out to all and lifts us. His yoke is easy, and His burden is light. I invite each of us to become more like the Savior by caring for the poor and needy, by faithfully keeping the law of the fast, and by contributing a generous fast offering. I humbly testify that faithfully caring for the poor and needy is a reflection of spiritual maturity and will bless both the giver and the receiver. In the sacred name of Jesus Christ, amen.
 
 
 
@@ -85,14 +85,12 @@ In [[3 Nephi 27.27|chapter 27 of 3 Nephi]], the risen Lord asked, “What manne
 
 [^5]: [[Isaiah 58.8|Isaiah 58:8–11]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]].
 
-[^6]: Harold B. Lee, “Listen, and Obey” (Welfare Agricultural Meeting, Apr. 3, 1971), copy of typescript, 14, Church History Library, Salt Lake City.
+[^6]: Harold B. Lee, “Listen, and Obey” (Welfare Agricultural Meeting, Apr. 3, 1971), copy of typescript, 14, Church History Library, Salt Lake City.
 
-[^7]: Thomas S. Monson, “Are We Prepared?” *Ensign* or *Liahona,* Sept. 2014, 4.
+[^7]: Thomas S. Monson, “Are We Prepared?” *Ensign* or *Liahona,* Sept. 2014, 4.
 
-[^8]: Thomas S. Monson, in a meeting with the Presiding Bishopric, Feb. 28, 2014.
+[^8]: Thomas S. Monson, in a meeting with the Presiding Bishopric, Feb. 28, 2014.
 
-[^9]: [[3 Nephi 27.27|3 Nephi 27:27]].
+[^9]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
-
-
-#Fasting #Self-Reliance #Service #Welfare
+#Fasting #Self-reliance #Service #Welfare

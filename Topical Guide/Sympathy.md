@@ -1,4 +1,3 @@
 # Sympathy
 
-
-*See* [[Compassion.md|Compassion]]
+*See also* [[Compassion.md|Compassion]]

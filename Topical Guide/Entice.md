@@ -1,6 +1,5 @@
 # Entice
 
-
 *See also* [[Tempt.md|Tempt]]
 
 *Entice* him, and see wherein his great strength lieth, [[Judges 16.5|Judges 16:5]].
@@ -23,4 +22,4 @@ yields to the *enticings* of the Holy Spirit, [[Mosiah 3.19|Mosiah 3:19]].
 
 being who did *entice* our first parents, [[Helaman 6.26|Helaman 6:26]].
 
-devil ... *enticeth* to sin, [[Moroni 7.12|Moroni 7:12]].
+devil … *enticeth* to sin, [[Moroni 7.12|Moroni 7:12]].

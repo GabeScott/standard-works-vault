@@ -5,5 +5,5 @@
 [1 Chronicles 29:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.12?lang=eng#p12)
 
 
-[^a]: [[Treasure|TG Treasure]].
-[^b]: [[Mosiah 2.25|Mosiah 2:25]]; [[Mosiah 4.22|4:22]].
+[^a]: [[Treasure|TG Treasure]].  
+[^b]: [[Mosiah 2.25|Mosiah 2:25]]; [[Mosiah 4.22|4:22]].  

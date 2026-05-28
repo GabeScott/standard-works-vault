@@ -66,7 +66,7 @@ There is a courage far greater than Gareth needed to face the black knight. It i
 
 You have an alarm system built into both body and spirit. In your body it is pain; in your spirit it is guilt—or spiritual pain. While neither pain nor guilt is pleasant, and an excess of either can be destructive, both are a protection, for they sound the alarm “Don’t do that again!”
 
-Be grateful for both. If the nerve endings in your hands were altered so that you couldn’t feel pain, you might put them in fire or machinery and destroy them. In your teenage heart of hearts, you know right from wrong. (See [[2 Nephi 2.5|2 Ne. 2:5]].) Learn to pay attention to that spiritual voice of warning within you. Even then, you will not get by without some mistakes.
+Be grateful for both. If the nerve endings in your hands were altered so that you couldn’t feel pain, you might put them in fire or machinery and destroy them. In your teenage heart of hearts, you know right from wrong. (See [[2 Nephi 2.5|2 Ne. 2:5]].) Learn to pay attention to that spiritual voice of warning within you. Even then, you will not get by without some mistakes.
 
 ## Forgiveness
 
@@ -109,6 +109,4 @@ God bless you young women and young men who struggle through the worrisome teena
 
 
 
-
-
-#Agency #Courage #Forgiveness #Jesus_Christ #Obedience #Temptation #Youth
+#Agency #Courage #Forgiveness #JesusChrist #Obedience #Temptation #Youth

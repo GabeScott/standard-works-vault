@@ -42,7 +42,7 @@ Not so long ago, I hiked with a group of youth to the top of Ensign Peak. There 
 
 I can see a day when the world will look to you and say: “Who are you? Who are these young women who radiate this light? Why are you so happy? Why do you know your direction in such a confusing world?” And you will arise and stand on your feet and say with conviction: “We are daughters of our Heavenly Father, who loves us, and we love Him. We will ‘stand as witnesses of God at all times and in all things, and in all places.’”[^19]
 
-My call to you is the same as Moroni’s call: “Awake, and arise … , O daughter\[s\] of Zion.”[^20] He saw you. He saw this day. These are your days! It is up to you to decide that you will “arise and shine forth.” I believe that as you awake and arise, your light will be a standard to the nations, but I also believe your standards will be a light to the nations. You are set apart. You distinguished yourselves in the premortal existence. Your lineage carries with it a covenant and promises. You have inherited the spiritual attributes of the faithful—even Abraham, Isaac, and Jacob. Your very nature reflects your divine heritage and destiny. The fact that you were born a girl is not by chance. Your divine characteristics will be magnified as you lead others and arise to your divine potential. Draw close to the Savior. He lives! He is the light, life, and hope of the world. He will lead you and give you courage to share your light. As my grandfather taught me, “When you live close to God and His infinite grace, you won’t have to tell, it will show in your face.” In the name of Jesus Christ, amen.
+My call to you is the same as Moroni’s call: “Awake, and arise … , O daughter\[s\] of Zion.”[^20] He saw you. He saw this day. These are your days! It is up to you to decide that you will “arise and shine forth.” I believe that as you awake and arise, your light will be a standard to the nations, but I also believe your standards will be a light to the nations. You are set apart. You distinguished yourselves in the premortal existence. Your lineage carries with it a covenant and promises. You have inherited the spiritual attributes of the faithful—even Abraham, Isaac, and Jacob. Your very nature reflects your divine heritage and destiny. The fact that you were born a girl is not by chance. Your divine characteristics will be magnified as you lead others and arise to your divine potential. Draw close to the Savior. He lives! He is the light, life, and hope of the world. He will lead you and give you courage to share your light. As my grandfather taught me, “When you live close to God and His infinite grace, you won’t have to tell, it will show in your face.” In the name of Jesus Christ, amen.
 
 
 
@@ -57,11 +57,11 @@ My call to you is the same as Moroni’s call: “Awake, and arise … , O dau
 
 [^5]: Gordon B. Hinckley, “Standing Strong and Immovable,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20.
 
-[^6]: [[1 Peter 2.9|1 Peter 2:9]].
+[^6]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^7]: [[D&C 115.5|D&C 115:5]].
 
-[^8]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^8]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^9]: See [[Exodus 34.30|Exodus 34:30]]; [[Mosiah 13.5|Mosiah 13:5]]; [[Matthew 17.1|Matthew 17:1–2]][[Matthew 17.2|]].
 
@@ -86,7 +86,5 @@ My call to you is the same as Moroni’s call: “Awake, and arise … , O dau
 [^19]: Young Women theme; see also [[Mosiah 18.9|Mosiah 18:9]].
 
 [^20]: [[Moroni 10.31|Moroni 10:31]].
-
-
 
 #Example #Obedience #Spirituality

@@ -25,6 +25,4 @@ I have a testimony of the scriptures. I know that if we “trust in the Lord” 
 
 
 
-
-
-#Scripture_Study #Trust #Young_Women
+#ScriptureStudy #Trust #YoungWomen

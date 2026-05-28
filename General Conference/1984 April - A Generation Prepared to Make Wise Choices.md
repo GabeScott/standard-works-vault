@@ -30,15 +30,13 @@ Brothers and sisters, there are good and gifted people in this church. This is a
 
 Now, this brings me to my concern as I leave this very fine opportunity that has been ours. We must raise up a generation that is prepared to make wise choices, to stand and to withstand. We must raise up people who will desire to make the holy covenants and keep them, and learn the word of God and share it. This has been a deep feeling within us as a presidency.
 
-We have reestablished a wonderful, old tradition that many of us here grew up with in the old MIA. The young people are given a new scripture theme every year, and the girls memorize it and recite it each week. They speak of it, they set their goals by it, and we hope they try to live by it. This year’s scripture is the theme of commitment taken from [[1 Nephi 3.7|1 Ne. 3:7]]: “I will go and do the things which the Lord hath commanded.” “I will go.” We say it over and over again.
+We have reestablished a wonderful, old tradition that many of us here grew up with in the old MIA. The young people are given a new scripture theme every year, and the girls memorize it and recite it each week. They speak of it, they set their goals by it, and we hope they try to live by it. This year’s scripture is the theme of commitment taken from [[1 Nephi 3.7|1 Ne. 3:7]]: “I will go and do the things which the Lord hath commanded.” “I will go.” We say it over and over again.
 
-You parents listening to this conference have more responsibility than we do as church workers. I echo what has been said by the Brethren. This recitation of [[1 Nephi 3.7|1 Ne. 3:7]] should become a reality in the lives of the coming generation, who must be prepared, as President Kimball told us several years ago, as a covenant generation to prepare the way for the coming of the Lord.
+You parents listening to this conference have more responsibility than we do as church workers. I echo what has been said by the Brethren. This recitation of [[1 Nephi 3.7|1 Ne. 3:7]] should become a reality in the lives of the coming generation, who must be prepared, as President Kimball told us several years ago, as a covenant generation to prepare the way for the coming of the Lord.
 
 Those of you who are gathered here in this historic Tabernacle or tuned into the conference listen to the messages translated into your own languages. This is so you can understand the word of God. It would warm your heart to see the numerous translators in their booths below us here in the Tabernacle. Many of them are youth. The Lord promised his children that they would be taught the gospel in their own language. This Church is making that happen. My concern is that families need to teach the gospel to each other *in the language of God,* our Heavenly Father. In the home, when direction is needed, when a problem or misunderstanding arises, I pray that we may open the scriptures with our youth beside us and find the law irrevocably decreed upon which blessings are predicated. Reading the will of God in the language of God builds reverence and witness and commitment, and we will all live more purely.
 
 I love the gospel. I love the Lord. I am grateful that there is not a doubt in my mind that these men here are his special servants. I am happy to have served in whatever way I have. And I am grateful that there are people like you who will take up the concerns that we have had, who will prepare these young ones, who are so precious. In the name of Jesus Christ, amen.
-
-
 
 
 

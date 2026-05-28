@@ -6,11 +6,11 @@ By President Ezra Taft Benson - *President of the Council of the Twelve*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/04/the-book-of-mormon-is-the-word-of-god?lang=eng)
 
-I speak to you today on a most vital subject. As members of The Church of Jesus Christ of Latter-day Saints, “we believe … the Book of Mormon to be the word of God.” ([[Articles of Faith 1.8|A of F 1:8]].) God has so declared it, so have its writers, so have its witnesses, and so do all those who have read it and received a personal revelation from God as to its truthfulness.
+I speak to you today on a most vital subject. As members of The Church of Jesus Christ of Latter-day Saints, “we believe … the Book of Mormon to be the word of God.” ([[Articles of Faith 1.8|A of F 1:8]].) God has so declared it, so have its writers, so have its witnesses, and so do all those who have read it and received a personal revelation from God as to its truthfulness.
 
-In section 20 of the Doctrine and Covenants the Lord says that he gave Joseph Smith “power from on high … to translate the Book of Mormon; Which contains … the fulness of the gospel of Jesus Christ … ; Which was given by inspiration.” ([[D&C 20.8|D&C 20:8–10]][[D&C 20.9|]][[D&C 20.10|]].)
+In section 20 of the Doctrine and Covenants the Lord says that he gave Joseph Smith “power from on high … to translate the Book of Mormon; Which contains … the fulness of the gospel of Jesus Christ … ; Which was given by inspiration.” ([[D&C 20.8|D&C 20:8–10]][[D&C 20.9|]][[D&C 20.10|]].)
 
-Nephi, one of the prophet-writers of the Book of Mormon, testifies that the book contains “the words of Christ” ([[2 Nephi 33.10|2 Ne. 33:10]]), and Moroni, the last writer in the book, testifies that “these things are true.” ([[Moroni 7.35|Moro. 7:35]].)
+Nephi, one of the prophet-writers of the Book of Mormon, testifies that the book contains “the words of Christ” ([[2 Nephi 33.10|2 Ne. 33:10]]), and Moroni, the last writer in the book, testifies that “these things are true.” ([[Moroni 7.35|Moro. 7:35]].)
 
 This same Moroni, as an angelic being sent from God, showed these ancient records to three witnesses in our day. Their testimony of the records is contained in the front of the Book of Mormon. They state: “We also know that they have been translated by the gift and power of God, for his voice hath declared it unto us; wherefore we know of a surety that the work is true.”
 
@@ -24,11 +24,11 @@ Nephi, the first prophet-writer in the Book of Mormon, states: “For the fulnes
 
 “Wherefore, the things which are pleasing unto the world I do not write, but the things which are pleasing unto God and unto those who are not of the world.
 
-“Wherefore, I shall give commandment unto my seed, that they shall not occupy these plates with things which are not of worth unto the children of men.” ([[1 Nephi 6.4|1 Ne. 6:4–6]][[1 Nephi 6.5|]][[1 Nephi 6.6|]].)
+“Wherefore, I shall give commandment unto my seed, that they shall not occupy these plates with things which are not of worth unto the children of men.” ([[1 Nephi 6.4|1 Ne. 6:4–6]][[1 Nephi 6.5|]][[1 Nephi 6.6|]].)
 
 The Book of Mormon brings men to Christ through two basic means. First, it tells in a plain manner of Christ and his gospel. It testifies of his divinity and of the necessity for a Redeemer and the need of our putting trust in him. It bears witness of the Fall and the Atonement and the first principles of the gospel, including our need of a broken heart and a contrite spirit and a spiritual rebirth. It proclaims we must endure to the end in righteousness and live the moral life of a Saint.
 
-Second, the Book of Mormon exposes the enemies of Christ. It confounds false doctrines and lays down contention. (See [[2 Nephi 3.12|2 Ne. 3:12]].) It fortifies the humble followers of Christ against the evil designs, strategies, and doctrines of the devil in our day. The type of apostates in the Book of Mormon are similar to the type we have today. God, with his infinite foreknowledge, so molded the Book of Mormon that we might see the error and know how to combat false educational, political, religious, and philosophical concepts of our time.
+Second, the Book of Mormon exposes the enemies of Christ. It confounds false doctrines and lays down contention. (See [[2 Nephi 3.12|2 Ne. 3:12]].) It fortifies the humble followers of Christ against the evil designs, strategies, and doctrines of the devil in our day. The type of apostates in the Book of Mormon are similar to the type we have today. God, with his infinite foreknowledge, so molded the Book of Mormon that we might see the error and know how to combat false educational, political, religious, and philosophical concepts of our time.
 
 Now God expects us to use the Book of Mormon in several ways. We are to read it ourselves—carefully, prayerfully—and ponder as we read, as to whether this book is the work of God or of an unlearned youth. And then when we are finished reading the things in the book, Moroni exhorts us to put them to the test in these words:
 
@@ -36,7 +36,7 @@ Now God expects us to use the Book of Mormon in several ways. We are to read it 
 
 We are to use the Book of Mormon as the basis for our teaching. In section 42 of the Doctrine and Covenants, the Lord states: “And again, the elders, priests and teachers of this church shall teach the principles of my gospel, which are in … the Book of Mormon, in the which is the fulness of the gospel.” ([[D&C 42.12|D&C 42:12]].)
 
-As we read and teach, we are to liken the Book of Mormon scriptures unto us “that it might be for our profit and learning.” ([[1 Nephi 19.23|1 Ne. 19:23]].)
+As we read and teach, we are to liken the Book of Mormon scriptures unto us “that it might be for our profit and learning.” ([[1 Nephi 19.23|1 Ne. 19:23]].)
 
 We are to use the Book of Mormon in handling objections to the Church. God the Father and his Son Jesus Christ revealed themselves to Joseph Smith in a marvelous vision. After that glorious event, Joseph Smith told a minister about it. Joseph was surprised to hear the minister say that there were no such things as visions or revelations in these days, that all such things had ceased. (See [[Joseph Smith History 1.21|JS—H 1:21]].)
 
@@ -52,11 +52,11 @@ Fourth, explain that whether or not we have modern prophets and revelation reall
 
 Therefore, the only problem the objector has to resolve for himself is whether the Book of Mormon is true. For if the Book of Mormon is true, then Jesus is the Christ, Joseph Smith was his prophet, The Church of Jesus Christ of Latter-day Saints is true, and it is being led today by a prophet receiving revelation.
 
-Our main task is to declare the gospel and do it effectively. We are not obligated to answer every objection. Every man eventually is backed up to the wall of faith, and there he must make his stand. “And if they are not the words of Christ, judge ye,” said Nephi, “for Christ will show unto you, with power and great glory, that they are his words, at the last day; and you and I shall stand face to face before his bar; and ye shall know that I have been commanded of him to write these things.” ([[2 Nephi 33.11|2 Ne. 33:11]].) Every man must judge for himself, knowing God will hold him accountable.
+Our main task is to declare the gospel and do it effectively. We are not obligated to answer every objection. Every man eventually is backed up to the wall of faith, and there he must make his stand. “And if they are not the words of Christ, judge ye,” said Nephi, “for Christ will show unto you, with power and great glory, that they are his words, at the last day; and you and I shall stand face to face before his bar; and ye shall know that I have been commanded of him to write these things.” ([[2 Nephi 33.11|2 Ne. 33:11]].) Every man must judge for himself, knowing God will hold him accountable.
 
-The Book of Mormon is to be used “for a standard unto my people, which are of the house of Israel,” the Lord says, and its words “shall hiss forth unto the ends of the earth.” ([[2 Nephi 29.2|2 Ne. 29:2]].) We, the members of the Church, and particularly the missionaries, have to be the “hissers,” or the tellers and testifiers, of the Book of Mormon unto the ends of the earth.
+The Book of Mormon is to be used “for a standard unto my people, which are of the house of Israel,” the Lord says, and its words “shall hiss forth unto the ends of the earth.” ([[2 Nephi 29.2|2 Ne. 29:2]].) We, the members of the Church, and particularly the missionaries, have to be the “hissers,” or the tellers and testifiers, of the Book of Mormon unto the ends of the earth.
 
-The Book of Mormon is the great standard we are to use. It shows that Joseph Smith was a prophet. It contains the words of Christ, and its great mission is to bring men to Christ and all other things are secondary. The golden question of the Book of Mormon is “Do you want to learn more of Christ?” The Book of Mormon is the great finder of the golden contact. It does not contain things which are “pleasing unto the world” ([[1 Nephi 6.5|1 Ne. 6:5]]), and so the worldly are not interested in it. It is a great sieve.
+The Book of Mormon is the great standard we are to use. It shows that Joseph Smith was a prophet. It contains the words of Christ, and its great mission is to bring men to Christ and all other things are secondary. The golden question of the Book of Mormon is “Do you want to learn more of Christ?” The Book of Mormon is the great finder of the golden contact. It does not contain things which are “pleasing unto the world” ([[1 Nephi 6.5|1 Ne. 6:5]]), and so the worldly are not interested in it. It is a great sieve.
 
 Anyone who has diligently sought to know the doctrines and teachings of the Book of Mormon and has used it conscientiously in missionary work knows within his soul that this is *the* instrument which God has given to the missionaries to convince the Jew and Gentile and Lamanite of the truthfulness of our message.
 
@@ -88,7 +88,7 @@ Do eternal consequences rest upon our response to this book? Yes, either to our 
 
 Every Latter-day Saint should make the study of this book a lifetime pursuit. Otherwise he is placing his soul in jeopardy and neglecting that which could give spiritual and intellectual unity to his whole life. There is a difference between a convert who is built on the rock of Christ through the Book of Mormon and stays hold of that iron rod, and one who is not.
 
-Over a quarter of a century ago I listened in this Tabernacle to these words: “A few years ago as I began to practice law, members of my family were a little uneasy. They were afraid I would lose my faith. I wanted to practice law, but I had an even greater desire to keep my testimony, and so I decided upon a little procedure which I recommend to you. For thirty minutes each morning before I began the day’s work I read from the Book of Mormon . … and in just a few minutes a day I read the Book of Mormon through, every year, for nine years. I know that it kept me in harmony, so far as I did keep in harmony, with the Spirit of the Lord.” (*Conference Report,* Apr. 1949, p. 36.) It will hold us as close to the Spirit of the Lord as anything I know. That was President Marion G. Romney. I echo his counsel.
+Over a quarter of a century ago I listened in this Tabernacle to these words: “A few years ago as I began to practice law, members of my family were a little uneasy. They were afraid I would lose my faith. I wanted to practice law, but I had an even greater desire to keep my testimony, and so I decided upon a little procedure which I recommend to you. For thirty minutes each morning before I began the day’s work I read from the Book of Mormon . … and in just a few minutes a day I read the Book of Mormon through, every year, for nine years. I know that it kept me in harmony, so far as I did keep in harmony, with the Spirit of the Lord.” (*Conference Report,* Apr. 1949, p. 36.) It will hold us as close to the Spirit of the Lord as anything I know. That was President Marion G. Romney. I echo his counsel.
 
 What, then, are we to say of the Book of Mormon? I bear witness that it is verily true. I know this as I know that I live. We stand with the Prophet Joseph Smith when he said, “I told the brethren that the Book of Mormon was the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book.” (*History of the Church,* 4:461.)
 
@@ -97,6 +97,4 @@ May we know and use the keystone and get nearer to God, I pray in the name of Je
 
 
 
-
-
-#Book_Of_Mormon #Repentance
+#BookOfMormon #Repentance

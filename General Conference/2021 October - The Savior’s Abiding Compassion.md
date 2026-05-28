@@ -55,17 +55,17 @@ I pray that we will become more long-suffering and understanding of others and t
 
 [^3]: See [[Luke 7.40|Luke 7:40–50]][[Luke 7.41|]][[Luke 7.42|]][[Luke 7.43|]][[Luke 7.44|]][[Luke 7.45|]][[Luke 7.46|]][[Luke 7.47|]][[Luke 7.48|]][[Luke 7.49|]][[Luke 7.50|]].
 
-[^4]: See [[1 Nephi 17.45|1 Nephi 17:45–46]][[1 Nephi 17.46|]].
+[^4]: See [[1 Nephi 17.45|1 Nephi 17:45–46]][[1 Nephi 17.46|]].
 
 [^5]: See [[Matthew 5.20|Matthew 5:20]]; [[Matthew 16.6|16:6–12]][[Matthew 16.7|]][[Matthew 16.8|]][[Matthew 16.9|]][[Matthew 16.10|]][[Matthew 16.11|]][[Matthew 16.12|]]; [[Matthew 23.1|23]][[Matthew 23.2|]][[Matthew 23.3|]][[Matthew 23.4|]][[Matthew 23.5|]][[Matthew 23.6|]][[Matthew 23.7|]][[Matthew 23.8|]][[Matthew 23.9|]][[Matthew 23.10|]][[Matthew 23.11|]][[Matthew 23.12|]][[Matthew 23.13|]][[Matthew 23.14|]][[Matthew 23.15|]][[Matthew 23.16|]][[Matthew 23.17|]][[Matthew 23.18|]][[Matthew 23.19|]][[Matthew 23.20|]][[Matthew 23.21|]][[Matthew 23.22|]][[Matthew 23.23|]][[Matthew 23.24|]][[Matthew 23.25|]][[Matthew 23.26|]][[Matthew 23.27|]][[Matthew 23.28|]][[Matthew 23.29|]][[Matthew 23.30|]][[Matthew 23.31|]][[Matthew 23.32|]][[Matthew 23.33|]][[Matthew 23.34|]][[Matthew 23.35|]][[Matthew 23.36|]][[Matthew 23.37|]][[Matthew 23.38|]][[Matthew 23.39|]]; [[Luke 11.37|Luke 11:37–44]][[Luke 11.38|]][[Luke 11.39|]][[Luke 11.40|]][[Luke 11.41|]][[Luke 11.42|]][[Luke 11.43|]][[Luke 11.44|]]; [[Luke 18.9|18:9–14]][[Luke 18.10|]][[Luke 18.11|]][[Luke 18.12|]][[Luke 18.13|]][[Luke 18.14|]].
 
 [^6]: [[Matthew 9.36|Matthew 9:36]].
 
-[^7]: See [[Matthew 20.34|Matthew 20:34]]; [[Mark 1.41|Mark 1:41]]; [[Luke 7.13|Luke 7:13]]; [[3 Nephi 17.6|3 Nephi 17:6]].
+[^7]: See [[Matthew 20.34|Matthew 20:34]]; [[Mark 1.41|Mark 1:41]]; [[Luke 7.13|Luke 7:13]]; [[3 Nephi 17.6|3 Nephi 17:6]].
 
-[^8]: See Guide to the Scriptures, “[Charity](https://churchofjesuschrist.org/study/scriptures/gs/charity?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^8]: See Guide to the Scriptures, “[Charity](https://www.churchofjesuschrist.org/study/scriptures/gs/charity?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
-[^9]: See Guide to the Scriptures, “[Compassion](https://churchofjesuschrist.org/study/scriptures/gs/compassion?lang=eng).”
+[^9]: See Guide to the Scriptures, “[Compassion](https://www.churchofjesuschrist.org/study/scriptures/gs/compassion?lang=eng).”
 
 [^10]: See [[Luke 7.1|Luke 7:1–10]][[Luke 7.2|]][[Luke 7.3|]][[Luke 7.4|]][[Luke 7.5|]][[Luke 7.6|]][[Luke 7.7|]][[Luke 7.8|]][[Luke 7.9|]][[Luke 7.10|]].
 
@@ -75,18 +75,16 @@ I pray that we will become more long-suffering and understanding of others and t
 
 [^13]: [[Matthew 7.3|Matthew 7:3]].
 
-[^14]: See Guide to the Scriptures, “[Omniscient](https://churchofjesuschrist.org/study/scriptures/gs/omniscient?lang=eng).”
+[^14]: See Guide to the Scriptures, “[Omniscient](https://www.churchofjesuschrist.org/study/scriptures/gs/omniscient?lang=eng).”
 
-[^15]: See [[1 Samuel 16.7|1 Samuel 16:7]].
+[^15]: See [[1 Samuel 16.7|1 Samuel 16:7]].
 
 [^16]: [[John 7.24|John 7:24]].
 
-[^17]: [[3 Nephi 27.27|3 Nephi 27:27]].
+[^17]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
-[^18]: [[3 Nephi 12.48|3 Nephi 12:48]].
+[^18]: [[3 Nephi 12.48|3 Nephi 12:48]].
 
-[^19]: See Guide to the Scriptures, “[Peacemaker](https://churchofjesuschrist.org/study/scriptures/gs/peacemaker?lang=eng).”
+[^19]: See Guide to the Scriptures, “[Peacemaker](https://www.churchofjesuschrist.org/study/scriptures/gs/peacemaker?lang=eng).”
 
-
-
-#Compassion #Jesus_Christ #Judging #Mercy
+#Compassion #Judging #JesusChrist #Mercy

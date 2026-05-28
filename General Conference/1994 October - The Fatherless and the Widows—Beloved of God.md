@@ -23,7 +23,7 @@ As of old, the heartbroken frequently and silently repeat the ancient question: 
 >Where can I turn for peace? Where is my solace
 >When other sources cease to make me whole?
 >When with a wounded heart, anger, or malice,
->I draw myself apart, Searching my soul? …
+>I draw myself apart, Searching my soul? …
 >
 >He answers privately, Reaches my reaching
 >In my Gethsemane, Savior and Friend.
@@ -37,9 +37,9 @@ The reassuring words of Elijah penetrated her very being:
 
 “Fear not; go and do as thou hast said: but make me thereof a little cake first, and bring it unto me, and after make for thee and for thy son.
 
-“For thus saith the Lord God of Israel, The barrel of meal shall not waste, neither shall the cruse of oil fail. …
+“For thus saith the Lord God of Israel, The barrel of meal shall not waste, neither shall the cruse of oil fail. …
 
-“And she went and did according to the saying of Elijah. …
+“And she went and did according to the saying of Elijah. …
 
 “And the barrel of meal wasted not, neither did the cruse of oil fail.”[^4]
 
@@ -75,11 +75,11 @@ There may exist an actual need for food, clothing, even shelter. Such can be sup
 
 Let us remember that after the funeral flowers fade, the well-wishes of friends become memories, and the prayers offered and words spoken dim in the corridors of the mind. Those who grieve frequently find themselves alone. Missed is the laughter of children, the commotion of teenagers, and the tender, loving concern of a departed companion. The clock ticks more loudly, time passes more slowly, and four walls do indeed a prison make.
 
-Hopefully all of us may again hear the echo of words spoken by the Master, inspiring us to good deeds: “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.”[^10]
+Hopefully all of us may again hear the echo of words spoken by the Master, inspiring us to good deeds: “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.”[^10]
 
 The late Elder Richard L. Evans left for our contemplation and action this admonition:
 
-“We who are \[young\] should never become so blindly absorbed in our own pursuits as to forget that there are still with us those who will live in loneliness unless we let them share our lives as once they let us share theirs. …
+“We who are \[young\] should never become so blindly absorbed in our own pursuits as to forget that there are still with us those who will live in loneliness unless we let them share our lives as once they let us share theirs. …
 
 “We cannot bring them back the morning hours of youth. But we can help them live in the warm glow of a sunset made more beautiful by our thoughtfulness, by our provision, and by our active and unfeigned love. Life in its fulness is a loving ministry of service from generation to generation. God grant that those who belong to us may never be left in loneliness.”[^11]
 
@@ -114,15 +114,15 @@ May the peace promised by the Savior be the gift of one and all this Sabbath day
 
 [^2]: “Where Can I Turn for Peace?” *Hymns,* 1985, no. 129.
 
-[^3]: [[1 Kings 17.12|1 Kgs. 17:12]].
+[^3]: [[1 Kings 17.12|1 Kgs. 17:12]].
 
-[^4]: [[1 Kings 17.13|1 Kgs. 17:13–16]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
+[^4]: [[1 Kings 17.13|1 Kgs. 17:13–16]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
 
 [^5]: [[Luke 7.11|Luke 7:11–15]][[Luke 7.12|]][[Luke 7.13|]][[Luke 7.14|]][[Luke 7.15|]].
 
 [^6]: See [[Luke 20.46|Luke 20:46–47]][[Luke 20.47|]].
 
-[^7]: [[3 Nephi 24.5|3 Ne. 24:5]].
+[^7]: [[3 Nephi 24.5|3 Ne. 24:5]].
 
 [^8]: [[D&C 83.6|D&C 83:6]].
 
@@ -130,14 +130,12 @@ May the peace promised by the Savior be the gift of one and all this Sabbath day
 
 [^10]: [[Matthew 25.40|Matt. 25:40]].
 
-[^11]: Richard L. Evans, *Thoughts for One Hundred Days* (Salt Lake City: Publishers Press, 1966), p. 222.
+[^11]: Richard L. Evans, *Thoughts for One Hundred Days* (Salt Lake City: Publishers Press, 1966), p. 222.
 
 [^12]: *History of the Church,* 4:567.
 
 [^13]: [[Luke 10.37|Luke 10:37]].
 
 [^14]: [[James 1.27|James 1:27]].
-
-
 
 #Atonement #Charity #Compassion #Death #Elderly

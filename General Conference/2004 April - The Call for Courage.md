@@ -24,7 +24,7 @@ The courage of a military leader was recorded by a young infantryman wearing the
 
 “\[At a critical point in the battle,\] he waved his hand toward the enemy and shouted, ‘Forward men! Forward! Just follow me!’ …
 
-“… With courage and resolution \[they followed\] after him like a wide raging torrent,” and the objective was seized and held.[^1]
+“… With courage and resolution \[they followed\] after him like a wide raging torrent,” and the objective was seized and held.[^1]
 
 At an earlier time, in a land far distant, another leader issued the same plea: “Follow me.”[^2] He was not a general of war. Rather, He was the Prince of Peace, the Son of God. Those who followed Him then and those who follow Him now win a far more significant victory, with consequences that are everlasting. The need for courage is constant.
 
@@ -36,7 +36,7 @@ Who can help but be inspired by the lives of the 2,000 stripling sons of Helaman
 
 Perhaps each of these accounts is crowned by the example of Moroni, who had the courage to persevere to the end in righteousness.[^5]
 
-All were fortified by the words of Moses: “Be strong and of a good courage, fear not, nor be afraid … : for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.”[^6] He did not fail them. He will not fail us. He did not forsake them. He will not forsake us.
+All were fortified by the words of Moses: “Be strong and of a good courage, fear not, nor be afraid … : for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.”[^6] He did not fail them. He will not fail us. He did not forsake them. He will not forsake us.
 
 It is this sweet assurance that can guide you and me—in our time, in our day, in our lives. Of course we will face fear, experience ridicule, and meet opposition. Let us have the courage to defy the consensus, the courage to stand for principle. Courage, not compromise, brings the smile of God’s approval. Courage becomes a living and an attractive virtue when it is regarded not only as a willingness to die manfully, but also as a determination to live decently. A moral coward is one who is afraid to do what he thinks is right because others will disapprove or laugh. Remember that all men have their fears, but those who face their fears with dignity have courage as well.
 
@@ -143,5 +143,6 @@ May we each have the courage to do so, I pray, in the name of Jesus Christ, amen
 
 [^11]: See Hugh Nibley, *Abraham in Egypt* (1981), 192.
 
+[^12]: [[D&C 107.99|D&C 107:99]].
 
 #Adversity #Courage #Duty

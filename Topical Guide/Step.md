@@ -1,6 +1,5 @@
 # Step
 
-
 *steps* of a good man are ordered by the Lord, [[Psalms 37.23|Psalms 37:23]].
 
 neither have our *steps* declined, [[Psalms 44.18|Psalms 44:18]].
@@ -15,6 +14,6 @@ walked we not in the same *steps*, [[2 Corinthians 12.18|2 Corinthians 12:18]].
 
 example, that ye should follow his *steps*, [[1 Peter 2.21|1 Peter 2:21]].
 
-Emer ... did fill the *steps* of his father, [[Ether 9.15|Ether 9:15]].
+Emer … did fill the *steps* of his father, [[Ether 9.15|Ether 9:15]].
 
 all men should *step* forward and use their ability, [[D&C 134.8|D&C 134:8]].

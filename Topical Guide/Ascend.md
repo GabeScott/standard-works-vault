@@ -1,7 +1,6 @@
 # Ascend
 
-
-ladder ... angels of God *ascending* and descending, [[Genesis 28.12|Genesis 28:12]].
+ladder … angels of God *ascending* and descending, [[Genesis 28.12|Genesis 28:12]].
 
 I saw gods *ascending* out of the earth, [[1 Samuel 28.13|1 Samuel 28:13]].
 
@@ -27,12 +26,12 @@ Who shall *ascend* into heaven, [[Romans 10.6|Romans 10:6]].
 
 When he *ascended* up on high, [[Ephesians 4.8|Ephesians 4:8]] ([[Ephesians 4.10|Ephesians 4:10]]).
 
-smoke of the incense ... *ascended* up before God, [[Revelation 8.4|Revelation 8:4]].
+smoke of the incense … *ascended* up before God, [[Revelation 8.4|Revelation 8:4]].
 
 they *ascended* up to heaven in a cloud, [[Revelation 11.12|Revelation 11:12]].
 
 he departed from them, and *ascended* into heaven, [[3 Nephi 18.39|3 Nephi 18:39]].
 
-*ascended* into heaven ... to reign, [[D&C 20.24|D&C 20:24]].
+*ascended* into heaven … to reign, [[D&C 20.24|D&C 20:24]].
 
 He that *ascended* up on high, [[D&C 88.6|D&C 88:6]].

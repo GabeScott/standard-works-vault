@@ -12,7 +12,7 @@ Today there are compelling reasons to reemphasize this counsel. We heard it done
 
 Members of the Church are feeling the economic pinch of higher taxes and inflation coupled with conditions of continuing recession. Some have come to their bishops seeking assistance to pay for house payments, car loans, and utilities.
 
-Unfortunately, there has been fostered in the minds of some an expectation that when we experience hard times, when we have been unwise and extravagant with our resources and have lived beyond our means, we should look to either the Church or government to bail us out. Forgotten by some of our members is an underlying principle of the Church welfare plan that “no true Latter-day Saint will, while physically able, voluntarily shift from himself the burden of his own support” (Marion G. Romney, in Conference Report, Oct. 1973, p. 106).
+Unfortunately, there has been fostered in the minds of some an expectation that when we experience hard times, when we have been unwise and extravagant with our resources and have lived beyond our means, we should look to either the Church or government to bail us out. Forgotten by some of our members is an underlying principle of the Church welfare plan that “no true Latter-day Saint will, while physically able, voluntarily shift from himself the burden of his own support” (Marion G. Romney, in Conference Report, Oct. 1973, [[1973 October - Church Welfare—Some Fundamentals.md|p. 106]]).
 
 One of the first principles revealed to father Adam when he was driven out of the Garden of Eden was this: “In the sweat of thy face shalt thou eat bread, till thou return unto the ground” ([[Genesis 3.19|Gen. 3:19]]). All we obtain in life of a material nature comes as a product of labor and the providence of God. Work alone produces life’s necessities.
 
@@ -38,21 +38,21 @@ Food production is just one part of the repeated emphasis that you store a provi
 
 From the standpoint of food production, storage, handling, and the Lord’s counsel, wheat should have high priority. “There is more salvation and security in wheat,” said Orson Hyde years ago, “than in all the political schemes of the world” (in *Journal of Discourses,* 2:207). Water, of course, is essential. Other basics could include honey or sugar, legumes, milk products or substitutes, and salt or its equivalent. The revelation to produce and store food may be as essential to our temporal welfare today as boarding the ark was to the people in the days of Noah.
 
-Elder Harold B. Lee counseled,
+Elder Harold B. Lee counseled,
 
-“Perhaps if we think not in terms of a year’s supply of what we ordinarily would use, and think more in terms of what it would take to keep us alive in case we didn’t have anything else to eat, that last would be very easy to put in storage for a year … just enough to keep us alive if we didn’t have anything else to eat. We wouldn’t get fat on it, but we would live; and if you think in terms of that kind of annual storage rather than a whole year’s supply of everything that you are accustomed to eat which, in most cases, is utterly impossible for the average family, I think we will come nearer to what President J. Reuben Clark, Jr., advised us way back in 1937.” (In Welfare Conference, 1 October 1966.)
+“Perhaps if we think not in terms of a year’s supply of what we ordinarily would use, and think more in terms of what it would take to keep us alive in case we didn’t have anything else to eat, that last would be very easy to put in storage for a year … just enough to keep us alive if we didn’t have anything else to eat. We wouldn’t get fat on it, but we would live; and if you think in terms of that kind of annual storage rather than a whole year’s supply of everything that you are accustomed to eat which, in most cases, is utterly impossible for the average family, I think we will come nearer to what President J. Reuben Clark, Jr., advised us way back in 1937.” (In Welfare Conference, 1 October 1966.)
 
 There are blessings in being close to the soil, in raising your own food even if it is only a garden in your yard and a fruit tree or two. Those families will be fortunate who, in the last days, have an adequate supply of food because of their foresight and ability to produce their own.
 
 The counsel from Church authorities has been consistent over the years and is well summarized in these words:
 
-“First, and above and beyond everything else, let us live righteously. …
+“First, and above and beyond everything else, let us live righteously. …
 
 “Let us avoid debt as we would avoid a plague; where we are now in debt, let us get out of debt; if not today, then tomorrow.
 
 “Let us straitly and strictly live within our incomes, and save a little.
 
-“Let every head of every household see to it that he has on hand enough food and clothing, and, where possible, fuel also, for at least a year ahead. You of small means put your money in foodstuffs and wearing apparel, not in stocks and bonds; you of large means will think you know how to care for yourselves, but I may venture to suggest that you do not speculate. Let every head of every household aim to own his own home, free from mortgage. Let every man who has a garden spot, garden it; every man who owns a farm, farm it.” (President J. Reuben Clark, Jr., in Conference Report, Apr. 1937, p. 26.)
+“Let every head of every household see to it that he has on hand enough food and clothing, and, where possible, fuel also, for at least a year ahead. You of small means put your money in foodstuffs and wearing apparel, not in stocks and bonds; you of large means will think you know how to care for yourselves, but I may venture to suggest that you do not speculate. Let every head of every household aim to own his own home, free from mortgage. Let every man who has a garden spot, garden it; every man who owns a farm, farm it.” (President J. Reuben Clark, Jr., in Conference Report, Apr. 1937, p. 26.)
 
 You do not need to go into debt, may I add, to obtain a year’s supply. Plan to build up your food supply just as you would a savings account. Save a little for storage each pay-check. Can or bottle fruit and vegetables from your gardens and orchards. Learn how to preserve food through drying and possibly freezing. Make your storage a part of your budget. Store seeds and have sufficient tools on hand to do the job. If you are saving and planning for a second car or a TV set or some item which merely adds to your comfort or pleasure, you may need to change your priorities. We urge you to do this prayerfully and *do it now.*
 
@@ -66,7 +66,7 @@ Too often we bask in our comfortable complacency and rationalize that the ravage
 
 The Lord has warned and forewarned us against a day of great tribulation and given us counsel, through His servants, on how we can be prepared for these difficult times. Have we heeded His counsel?
 
-I bear you my testimony that President Heber J. Grant was inspired of the Lord in establishing the Church Welfare program. The First Presidency was inspired when they made the first public announcement in 1936 and declared the prime purpose of Church welfare was “to help the people help themselves” (in Conference Report, Oct. 1936, p. 3). I bear witness to that inspired counsel from 1936 to the present day that the Saints lay up a year’s supply of food. When President Spencer W. Kimball persistently admonishes the members to plant gardens and fruit trees and produce our own food, he is likewise inspired of the Lord.
+I bear you my testimony that President Heber J. Grant was inspired of the Lord in establishing the Church Welfare program. The First Presidency was inspired when they made the first public announcement in 1936 and declared the prime purpose of Church welfare was “to help the people help themselves” (in Conference Report, Oct. 1936, p. 3). I bear witness to that inspired counsel from 1936 to the present day that the Saints lay up a year’s supply of food. When President Spencer W. Kimball persistently admonishes the members to plant gardens and fruit trees and produce our own food, he is likewise inspired of the Lord.
 
 Be faithful, my brothers and sisters, to this counsel and you will be blessed—yes, the most blessed people in all the earth. You are good people. I know that. But all of us need to be better than we are. Let us be in a position so we are able to not only feed ourselves through the home production and storage, but others as well.
 
@@ -75,6 +75,4 @@ May God bless us to be prepared for the days which lie ahead, which may be the m
 
 
 
-
-
-#Self-Reliance
+#Self-reliance

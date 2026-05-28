@@ -10,7 +10,7 @@ By Elder Patrick Kearon - *Of the Seventy*
 
 “For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in:
 
-“Naked, and ye clothed me. …
+“Naked, and ye clothed me. …
 
 “… Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.”[^1]
 
@@ -40,7 +40,7 @@ We must be careful that news of the refugees’ plight does not somehow become c
 
 If you are asking, “What can I do?” let us first remember that we should not serve at the expense of our families and other responsibilities,[^9] nor should we expect our leaders to organize projects for us. But as youth, men, women, and families, we can join in this great humanitarian endeavor.
 
-In response to the invitation from the First Presidency to participate in Christlike service to refugees worldwide,[^10] the General Presidencies of the Relief Society, Young Women, and Primary have organized a relief effort entitled “I Was a Stranger.” Sister Burton introduced this to the women of the Church last weekend in the general women’s session. There are multiple helpful ideas, resources, and suggestions for service on .
+In response to the invitation from the First Presidency to participate in Christlike service to refugees worldwide,[^10] the General Presidencies of the Relief Society, Young Women, and Primary have organized a relief effort entitled “I Was a Stranger.” Sister Burton introduced this to the women of the Church last weekend in the general women’s session. There are multiple helpful ideas, resources, and suggestions for service on [IWasAStranger.lds.org](https://www.churchofjesuschrist.org/serve/caring).
 
 Begin on your knees in prayer. Then think in terms of doing something close to home, in your own community, where you will find people who need help in adapting to their new circumstances. The ultimate aim is their rehabilitation to an industrious and self-reliant life.
 
@@ -61,13 +61,13 @@ Being a refugee may be a defining moment in the lives of those who are refugees,
 
 [^1]: [[Matthew 25.35|Matthew 25:35–36, 40]][[Matthew 25.36|]][[Matthew 25.40|]].
 
-[^2]: See Stephanie Nebehay, “World’s Refugees and Displaced Exceed Record 60 Million,” Dec. 18, 2015, reuters.com.
+[^2]: See Stephanie Nebehay, “World’s Refugees and Displaced Exceed Record 60 Million,” Dec. 18, 2015, reuters.com.
 
 [^3]: See “Facts and Figures about Refugees,” unhcr.org.uk/about-us/key-facts-and-figures.html.
 
-[^4]: See “A Record 1.25 Million Asylum Seekers Arrived in the EU Last Year,” Mar. 4, 2016, businessinsider.com.
+[^4]: See “A Record 1.25 Million Asylum Seekers Arrived in the EU Last Year,” Mar. 4, 2016, businessinsider.com.
 
-[^5]: Linda K. Burton, “[[2016 April - “I Was a Stranger”.md|I Was a Stranger]],” *Ensign* or *Liahona,* May 2016, 14.
+[^5]: Linda K. Burton, “[[2016 April - “I Was a Stranger”.md|I Was a Stranger]],” *Ensign* or *Liahona,* May 2016, 14.
 
 [^6]: [[James 1.27|James 1:27]].
 
@@ -75,16 +75,14 @@ Being a refugee may be a defining moment in the lives of those who are refugees,
 
 [^8]: [[Alma 1.30|Alma 1:30]].
 
-[^9]: See First Presidency letter, Mar. 26, 2016; see also [[Mosiah 4.27|Mosiah 4:27]].
+[^9]: See First Presidency letter, Mar. 26, 2016; see also [[Mosiah 4.27|Mosiah 4:27]].
 
-[^10]: See First Presidency letter, Oct. 27, 2015.
+[^10]: See First Presidency letter, Oct. 27, 2015.
 
 [^11]: [[D&C 115.6|Doctrine and Covenants 115:6]]; see also [[Isaiah 4.5|Isaiah 4:5–6]][[Isaiah 4.6|]].
 
-[^12]: [[2 Timothy 1.7|2 Timothy 1:7]].
+[^12]: [[2 Timothy 1.7|2 Timothy 1:7]].
 
 [^13]: [[Matthew 25.40|Matthew 25:40]].
-
-
 
 #Charity #Compassion #Love #Service

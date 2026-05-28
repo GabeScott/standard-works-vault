@@ -1,6 +1,6 @@
 # Profiles of Faith
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 Who can help but be uplifted and inspired just to worship in this historic tabernacle and to listen to this glorious choir?
 
-It has been said that “when Evan Stephens was conductor of the Tabernacle Choir, he was thrilled on one occasion by a sermon delivered by the late President Joseph F. Smith on the subject, \[of “The Faith of Latter-day Saint Youth.”\] At the close of the service Professor Stephens strolled alone up City Creek Canyon \[to the north\], pondering the inspired words of the President. Suddenly \[the inspiration of heaven\] came upon him and seated upon a rock which was standing firm under the pressure of the rushing water, he wrote with a pencil” these words:
+It has been said that “when Evan Stephens was conductor of the Tabernacle Choir, he was thrilled on one occasion by a sermon delivered by the late President Joseph F. Smith on the subject, \[of “The Faith of Latter-day Saint Youth.”\] At the close of the service Professor Stephens strolled alone up City Creek Canyon \[to the north\], pondering the inspired words of the President. Suddenly \[the inspiration of heaven\] came upon him and seated upon a rock which was standing firm under the pressure of the rushing water, he wrote with a pencil” these words:
 
 >Shall the youth of Zion falter
 >In defending truth and right?
@@ -46,7 +46,7 @@ Another group which amazes the world and inspires faith is that army of Latter-d
 
 More generally, the bishop and stake president write, “John is a fine young man. He has prepared for his mission physically, mentally, financially, and spiritually. He will serve gladly and with distinction wherever he is called.”
 
-One day I was with President Spencer W. Kimball as he signed these special calls to full-time missionary service. Suddenly he noticed the call of his own grandson. He signed his name as president of the Church and then penned a personal line at the bottom which read, “I’m proud of you. Love, Grandpa.”
+One day I was with President Spencer W. Kimball as he signed these special calls to full-time missionary service. Suddenly he noticed the call of his own grandson. He signed his name as president of the Church and then penned a personal line at the bottom which read, “I’m proud of you. Love, Grandpa.”
 
 When the call is received, the college text is closed and the scriptures opened. Family, friends, and often a special friend are left behind. Suspended are dating, dancing, and driving, as the three *D*s are exchanged for the three *T*s—tracting, teaching, and testifying.
 
@@ -91,6 +91,4 @@ My sincere prayer is that we will stand with the youth of Zion, remain true to t
 
 
 
-
-
-#Missionary_Work #Youth
+#MissionaryWork #Youth

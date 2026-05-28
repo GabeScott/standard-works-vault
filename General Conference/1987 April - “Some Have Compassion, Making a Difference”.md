@@ -24,7 +24,7 @@ Some of us have strayed at one time or another. Some have repented and come back
 
 As member shepherds of our Father in Heaven’s flock, we should not judge why some have strayed, but rather should try unceasingly to bring them back again into the fold, knowing Jesus can heal them when none other can.
 
-In 1829, the Lord instructed us through his first latter-day prophet, Joseph Smith, to “remember the worth of souls is great in the sight of God; … And how great is his joy in the soul that repenteth!” ([[D&C 18.10|D&C 18:10, 13]][[D&C 18.13|]]). We need to be as Lehi, who said in Book of Mormon times, “I have none other object save it be the everlasting welfare of your souls” ([[2 Nephi 2.30|2 Ne. 2:30]]).
+In 1829, the Lord instructed us through his first latter-day prophet, Joseph Smith, to “remember the worth of souls is great in the sight of God; … And how great is his joy in the soul that repenteth!” ([[D&C 18.10|D&C 18:10, 13]][[D&C 18.13|]]). We need to be as Lehi, who said in Book of Mormon times, “I have none other object save it be the everlasting welfare of your souls” ([[2 Nephi 2.30|2 Ne. 2:30]]).
 
 In this, the last dispensation, we have prophets to guide and direct us with their counsel.
 
@@ -46,7 +46,7 @@ The message from the First Presidency, in part, said:
 
 “‘“For my yoke is easy and my burden is light”’ ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]).
 
-“We plead with you. We pray for you. We invite and welcome you with love and appreciation” (*Ensign,* Mar. 1986, p. 88; italics added).
+“We plead with you. We pray for you. We invite and welcome you with love and appreciation” (*Ensign,* Mar. 1986, p. 88; italics added).
 
 For you and me, as members of The Church of Jesus Christ of Latter-day Saints, our responsibilities are clear; we are to:
 
@@ -60,13 +60,13 @@ We must do as Jude, the brother of James, admonished:
 
 There are principles that will help us to “have compassion, making a difference.” These principles are encompassed in Luke, chapter 15, where Jesus used three parables to give us examples of the importance He placed on finding those who are lost and rendering “compassion, making a difference.”
 
-In the parable of the lost sheep, the shepherd went after the lost sheep and searched until he found the lost lamb. He then returned, rejoicing (see [[Luke 15.4|vs. 4–7]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]]).
+In the parable of the lost sheep, the shepherd went after the lost sheep and searched until he found the lost lamb. He then returned, rejoicing (see [[Luke 15.4|vs. 4–7]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]]).
 
-In the parable of the lost coin, the widow lit a candle, which gave light, and swept every corner to find the lost coin. She rejoiced upon finding it (see [[Luke 15.8|vs. 8–10]][[Luke 15.9|]][[Luke 15.10|]]).
+In the parable of the lost coin, the widow lit a candle, which gave light, and swept every corner to find the lost coin. She rejoiced upon finding it (see [[Luke 15.8|vs. 8–10]][[Luke 15.9|]][[Luke 15.10|]]).
 
 Both of these parables are examples of action taken to search, light up the darkness, and sweep until a treasured possession or lost soul is found and returned to a rejoicing home.
 
-On the other hand, in the parable of the prodigal son, a caring father patiently waited for his son to “come to himself” (see [[Luke 15.11|vs. 11–32]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]). He provided a loving atmosphere at home to welcome his son with open arms and willing hands so that they might rejoice together. The key is that the son knew that upon his return he would be loved and welcomed home by his father.
+On the other hand, in the parable of the prodigal son, a caring father patiently waited for his son to “come to himself” (see [[Luke 15.11|vs. 11–32]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]). He provided a loving atmosphere at home to welcome his son with open arms and willing hands so that they might rejoice together. The key is that the son knew that upon his return he would be loved and welcomed home by his father.
 
 Coming home can have its challenges, too. When the prodigal son came home, his faithful brother was jealous of the attention extended to his repentant brother. The faithful brother was judgmental and had not developed spiritually enough to rejoice at his brother’s return. The father had to reassure the faithful son of his love.
 
@@ -98,13 +98,13 @@ Each of us can have similar experiences in our local wards and branches by worki
 
 Concerning those who were *not* numbered among His people, Jesus said to the Nephites:
 
-“Nevertheless, ye shall not cast him out of your synagogues, or your places of worship, for unto such shall ye continue to minister; *for ye know not but what they will return and repent,* and come unto me with full purpose of heart, and *I shall heal them;* and *ye shall be the means* of bringing salvation unto them” ([[3 Nephi 18.32|3 Ne. 18:32]]; italics added).
+“Nevertheless, ye shall not cast him out of your synagogues, or your places of worship, for unto such shall ye continue to minister; *for ye know not but what they will return and repent,* and come unto me with full purpose of heart, and *I shall heal them;* and *ye shall be the means* of bringing salvation unto them” ([[3 Nephi 18.32|3 Ne. 18:32]]; italics added).
 
 Brothers and sisters, may we leave this conference with a renewed determination, through our prayers of faith and “compassion, making a difference,” to bring at least one precious soul back to salvation and exaltation. May the prayer of Alma also be our prayer:
 
-“O Lord, wilt thou comfort my soul, and give unto me success, and also my fellow laborers who are with me. …
+“O Lord, wilt thou comfort my soul, and give unto me success, and also my fellow laborers who are with me. …
 
-“Wilt thou grant unto them that they may have strength, that they may bear their afflictions which shall come upon them. …
+“Wilt thou grant unto them that they may have strength, that they may bear their afflictions which shall come upon them. …
 
 “O Lord, wilt thou grant unto us that we may have success in bringing them again unto thee in Christ.
 
@@ -115,6 +115,4 @@ Brothers and sisters, may we leave this conference with a renewed determination,
 
 
 
-
-
-#Fellowshipping #Missionary_Work #Temptation
+#Fellowshipping #MissionaryWork #Temptation

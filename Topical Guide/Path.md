@@ -1,6 +1,5 @@
 # Path
 
-
 *See also* [[Highway.md|Highway]]; [[Way.md|Way]]
 
 he leadeth me in the *paths* of righteousness, [[Psalms 23.3|Psalms 23:3]].
@@ -35,7 +34,7 @@ it showeth unto the children of men the straitness of the *path*, [[2 Nephi 31.9
 
 then are ye in this strait and narrow *path*, [[2 Nephi 31.18|2 Nephi 31:18]].
 
-Spirit of the Lord ... to guide you in wisdom's *paths*, [[Mosiah 2.36|Mosiah 2:36]].
+Spirit of the Lord … to guide you in wisdom’s *paths*, [[Mosiah 2.36|Mosiah 2:36]].
 
 I perceive that ye are in the *paths* of righteousness, [[Alma 7.19|Alma 7:19]].
 

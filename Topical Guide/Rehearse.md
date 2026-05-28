@@ -1,6 +1,5 @@
 # Rehearse
 
-
 *rehearse* it in the ears of Joshua, [[Exodus 17.14|Exodus 17:14]].
 
 they *rehearse* the righteous acts of the Lord, [[Judges 5.11|Judges 5:11]].

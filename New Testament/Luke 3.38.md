@@ -5,7 +5,7 @@
 [Luke 3:38](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.38?lang=eng#p38)
 
 
-[^a]: [[Family, Patriarchal|TG Family, Patriarchal]].
-[^b]: [[Adam|TG Adam]].
-[^c]: JST Luke 3:45 … who was formed of God, and the first man upon the earth.
-[^d]: [[Moses 6.22|Moses 6:22]]. [[Man, Physical Creation of|TG Man, Physical Creation of]].
+[^a]: [[Family, Patriarchal|TG Family, Patriarchal]].  
+[^b]: [[Adam|TG Adam]].  
+[^c]: JST Luke 3:45 … who was formed of God, and the first man upon the earth.  
+[^d]: [[Moses 6.22|Moses 6:22]]. [[Man, Physical Creation of|TG Man, Physical Creation of]].  

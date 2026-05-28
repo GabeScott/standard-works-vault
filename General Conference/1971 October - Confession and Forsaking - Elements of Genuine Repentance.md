@@ -1,6 +1,6 @@
 # Confession and Forsaking: Elements of Genuine Repentance
 
-By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
+By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -22,11 +22,11 @@ Listen to a letter received by a bishop from one in such a circumstance. There h
 >But take the dimness of my soul away.’”
 >
 
-President Spencer W. Kimball has described just such a situation as I have referred to:
+President Spencer W. Kimball has described just such a situation as I have referred to:
 
 “Sometimes a guilt consciousness overpowers a person with such a heaviness that when a repentant one looks back and sees the ugliness, the loathsomeness of the transgression, he is almost overwhelmed and wonders, ‘Can the Lord ever forgive me? Can I ever forgive myself?’ But when one reaches the depths of despondency and feels the hopelessness of his position, and when he cries out to God for mercy in helplessness but in faith, there comes a still, small, but penetrating voice whispering to his soul, ‘Thy sins are forgiven thee.’” (*Miracle of Forgiveness* \[Bookcraft, 1969\], p. 344.)
 
-The scriptures give us great comfort. In First John we read: “If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.” ([[1 John 1.9|1 Jn. 1:9]].)
+The scriptures give us great comfort. In First John we read: “If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.” ([[1 John 1.9|1 Jn. 1:9]].)
 
 And again we read: “For I the Lord cannot look upon sin with the least degree of allowance;
 
@@ -34,7 +34,7 @@ And again we read: “For I the Lord cannot look upon sin with the least degree 
 
 Possibly one of the most soul-satisfying scriptures to the transgressor is this: “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.” ([[D&C 58.42|D&C 58:42]].)
 
-President Kimball has used some sound logic as he explains this matter. He said: “… the call to repentance from sin is to all men … the call promises forgiveness of sin to those who respond. What a farce it would be to call people to repentance if there were no forgiveness, and what a waste of the life of Christ if it failed to bring the opportunity for salvation and exaltation!” (*The Miracle of Forgiveness,* p. 344.)
+President Kimball has used some sound logic as he explains this matter. He said: “… the call to repentance from sin is to all men … the call promises forgiveness of sin to those who respond. What a farce it would be to call people to repentance if there were no forgiveness, and what a waste of the life of Christ if it failed to bring the opportunity for salvation and exaltation!” (*The Miracle of Forgiveness,* p. 344.)
 
 One of the most beautiful scriptures comes from Isaiah, in which is given the promise of forgiveness to all who repent:
 
@@ -48,7 +48,7 @@ Confession and forsaking, then, are the two important elements of repentance. Af
 
 Following confession, the transgressor should demonstrate with good works his repentance, keeping faithfully the commandments of the Lord. Restitution is also an important part of repentance. Restitution, to the degree possible, should be made to restore that which has been taken or to repair the damage that has been done, demonstrating to those offended by his actions his remorse and determination to make amends.
 
-President Harold B. Lee has expressed this so beautifully:
+President Harold B. Lee has expressed this so beautifully:
 
 “That confession must be made first to him or her who has been most wronged by your acts. A sincere confession is not merely admitting guilt after the proof is already in evidence. If you have ‘offended many persons openly,’ your acknowledgment is to be made openly and before those whom you have offended that you might show your shame and humility and willingness to receive a merited rebuke. If your act is secret and has resulted in injury to no one but yourself, your confession should be in secret, and your Heavenly Father who hears in secret may reward you openly. Acts that may affect your standing in the Church, or your right to privileges or advancement in the Church, are to be promptly confessed to the bishop whom the Lord has appointed as a shepherd over every flock and commissioned to be a common judge in Israel. He may hear such confessions in secret and deal justly and mercifully, as each case warrants. … Following confession, one in sin must show forth the fruits of his repentance by good deeds that are weighed against the bad. He must make proper restitution to the limit of his power to restore that which he has taken away or to repair the damage he has done.” (*Youth and the Church* \[Deseret Book Co., 1970\], p. 99.)
 
@@ -56,7 +56,7 @@ After one has confessed his transgression and started in motion the processes of
 
 In a revelation to the Church in Kirtland, Ohio, in 1831, the Lord said:
 
-“… verily I say unto you, I, the Lord, forgive sins unto those who confess their sins before me and ask forgiveness, who have not sinned unto death.
+“… verily I say unto you, I, the Lord, forgive sins unto those who confess their sins before me and ask forgiveness, who have not sinned unto death.
 
 “Wherefore, I say unto you, that ye ought to forgive one another; for he that forgiveth not his brother his trespasses standeth condemned before the Lord; for there remaineth in him the greater sin.
 
@@ -74,15 +74,13 @@ The *General Handbook of Instructions of the Church* indicates a certain time of
 
 But whatever the penalties, however long or arduous the process, even humbling in sackcloth and ashes, repentance is the only course.
 
-Through the atoning blood of Jesus Christ our sins can be washed clear. In the words of Amulek: “… he said unto him that the Lord surely should come to redeem his people, but that he should not come to redeem them in their sins, but to redeem them from their sins.
+Through the atoning blood of Jesus Christ our sins can be washed clear. In the words of Amulek: “… he said unto him that the Lord surely should come to redeem his people, but that he should not come to redeem them in their sins, but to redeem them from their sins.
 
 “And he hath power given unto him from the Father to redeem them from their sins because of repentance.” ([[Helaman 5.10|Hel. 5:10–11]][[Helaman 5.11|]].)
 
 Now one final bit of assurance that the repentant one may be forgiven: “Verily, thus saith the Lord: It shall come to pass that every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall see my face and know that I am.” ([[D&C 93.1|D&C 93:1]].)
 
 It may not be easy—the road may be long, but I leave you my witness it is the way the Lord has provided in his mercy to us. In the name of Jesus Christ. Amen.
-
-
 
 
 

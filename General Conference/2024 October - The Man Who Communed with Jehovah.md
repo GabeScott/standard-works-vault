@@ -1,6 +1,6 @@
 # The Man Who Communed with Jehovah
 
-By Elder Kyle S. McKay - *Of the Seventy*
+By Elder Kyle S. McKay - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -24,7 +24,7 @@ Joseph’s experience in the grove gave him confidence to ask for *forgiveness* 
 
 ## Regular Repentance
 
-On September 21, 1823, Joseph earnestly prayed for forgiveness, confident that because of his experience in the grove three years earlier, heaven would respond again.[^6] And it did. The Lord sent an angel, Moroni, to instruct Joseph and inform him of an ancient record he would later translate by the gift and power of God—the Book of Mormon.
+On September 21, 1823, Joseph earnestly prayed for forgiveness, confident that because of his experience in the grove three years earlier, heaven would respond again.[^6] And it did. The Lord sent an angel, Moroni, to instruct Joseph and inform him of an ancient record he would later translate by the gift and power of God—the Book of Mormon.
 
 Almost 13 years after that, Joseph and Oliver Cowdery knelt in solemn, silent prayer in the newly dedicated Kirtland Temple. We do not know what they prayed for, but their prayers likely included a plea for forgiveness, for, as they arose, the Savior appeared and declared, “Behold, your sins are forgiven you; you are clean before me.”[^7]
 
@@ -58,7 +58,7 @@ In 1842, Joseph wrote of amazing things that would come to pass in this last dis
 
 To his friend Benjamin Johnson, Joseph said, “Benjamin, \[if I die\] I \[would\] not be far away from you, and if on the other side of the veil, I \[would\] still be working with you, and with a power greatly increased, to roll on this kingdom.”[^22]
 
-On June 27, 1844, Joseph Smith and his brother Hyrum were murdered. Joseph’s body was laid to rest, but his testimony continues to reverberate around the world and in my soul:
+On June 27, 1844, Joseph Smith and his brother Hyrum were murdered. Joseph’s body was laid to rest, but his testimony continues to reverberate around the world and in my soul:
 
 “I had seen a vision; I knew it, and I knew that God knew it, and I could not deny it.”[^23]
 
@@ -79,7 +79,7 @@ Joseph Smith is now part of that heavenly priesthood of which he spoke. As he pr
 
 
 
-[^1]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18) (2007), 49.
+[^1]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18) (2007), 49.
 
 [^2]: [[Joseph Smith History 1.19|Joseph Smith—History 1:19]].
 
@@ -87,7 +87,7 @@ Joseph Smith is now part of that heavenly priesthood of which he spoke. As he pr
 
 [^4]: [[Joseph Smith History 1.26|Joseph Smith—History 1:26]].
 
-[^5]: Steven Harper, in Spencer W. McBride, host, *The First Vision: A Joseph Smith Papers Podcast*, episode 6, “[I Had Seen a Vision](https://www.josephsmithpapers.org/articles/the-first-vision-podcast-episode-6-transcript),” Joseph Smith Papers Project, May 16, 2024, ChurchofJesusChrist.org.
+[^5]: Steven Harper, in Spencer W. McBride, host, *The First Vision: A Joseph Smith Papers Podcast*, episode 6, “[I Had Seen a Vision](https://www.josephsmithpapers.org/articles/the-first-vision-podcast-episode-6-transcript),” Joseph Smith Papers Project, May 16, 2024, ChurchofJesusChrist.org.
 
 [^6]: See [[Joseph Smith History 1.28|Joseph Smith—History 1:28–29]][[Joseph Smith History 1.29|]].
 
@@ -107,7 +107,7 @@ Joseph Smith is now part of that heavenly priesthood of which he spoke. As he pr
 
 [^14]: See [[D&C 19.18|Doctrine and Covenants 19:18]].
 
-[^15]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^15]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^16]: See [[Mosiah 4.8|Mosiah 4:8]]; [[Alma 42.13|Alma 42:13, 23–24]][[Alma 42.23|]][[Alma 42.24|]].
 
@@ -119,24 +119,22 @@ Joseph Smith is now part of that heavenly priesthood of which he spoke. As he pr
 
 [^20]: See [[D&C 43.16|Doctrine and Covenants 43:16]]; [[D&C 109.22|109:22]].
 
-[^21]: *Teachings: Joseph Smith*, 514.
+[^21]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-44?lang=eng&id=p25#p25)*, 514.
 
-[^22]: Joseph Smith, in Benjamin F. Johnson letter to George S. Gibbs, circa 1903, Church History Library, Salt Lake City.
+[^22]: Joseph Smith, in Benjamin F. Johnson letter to George S. Gibbs, circa 1903, Church History Library, Salt Lake City.
 
 [^23]: [[Joseph Smith History 1.25|Joseph Smith—History 1:25]].
 
-[^24]: *Teachings: Joseph Smith*, 522.
+[^24]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-45?lang=eng&id=p19#p19)*, 522.
 
-[^25]: *Teachings: Joseph Smith*, 49.
+[^25]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18)*, 49.
 
 [^26]: [[John 1.6|John 1:6, 8, 7]][[John 1.8|]][[John 1.7|]].
 
-[^27]: “Praise to the Man,” *Hymns*, no. 27.
+[^27]: “Praise to the Man,” *Hymns*, no. 27.
 
 [^28]: [[D&C 6.18|Doctrine and Covenants 6:18]].
 
-[^29]: *Hymns*, no. 27.
+[^29]: *Hymns*, no. 27.
 
-
-
-#First_Vision #Joseph_Smith #Repentance #Restoration
+#FirstVision #JosephSmith #Repentance #Restoration

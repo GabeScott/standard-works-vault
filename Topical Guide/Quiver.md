@@ -1,7 +1,6 @@
 # Quiver
 
-
-take ... thy *quiver* and thy bow, [[Genesis 27.3|Genesis 27:3]].
+take … thy *quiver* and thy bow, [[Genesis 27.3|Genesis 27:3]].
 
 Happy is the man that hath his *quiver* full, [[Psalms 127.5|Psalms 127:5]].
 

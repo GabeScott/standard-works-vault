@@ -1,7 +1,6 @@
 # Parable
 
-
-*See also* [[Byword.md|Byword]]; [[Jesus Christ, Teaching Mode of.md|Jesus Christ, Teaching Mode of]]; [[Proverb.md|Proverb]]; [BD Parables](https://www.churchofjesuschrist.org/study/scriptures/bd/parables?lang=eng)
+*See also* [[Byword.md|Byword]]; [[Jesus Christ, Teaching Mode of.md|Jesus Christ, Teaching Mode of]]; [[Proverb.md|Proverb]]; [[BD Parables.md|BD Parables]]
 
 he took up his *parable*, [[Numbers 23.7|Numbers 23:7]].
 
@@ -17,7 +16,7 @@ speak I to them in *parables*, [[Matthew 13.13|Matthew 13:13]] ([[Mark 4.11|Mark
 
 without a *parable* spake he not, [[Matthew 13.34|Matthew 13:34]] ([[Mark 4.34|Mark 4:34]]).
 
-Jesus ... spake unto them again by *parables*, [[Matthew 22.1|Matthew 22:1]].
+Jesus … spake unto them again by *parables*, [[Matthew 22.1|Matthew 22:1]].
 
 learn a *parable* of the fig tree, [[Matthew 24.32|Matthew 24:32]] ([[Mark 13.28|Mark 13:28]]; [[Luke 21.29|Luke 21:29]]; [[Joseph Smith Matthew 1.38|Joseph Smith Matthew 1:38]]).
 
@@ -27,7 +26,7 @@ they shall learn the *parable* of the fig tree, [[D&C 35.16|D&C 35:16]].
 
 with them like unto a *parable*, [[D&C 45.36|D&C 45:36]].
 
-thus saith the Lord ... concerning the *parable* of the wheat and of the tares, [[D&C 86.1|D&C 86:1]].
+thus saith the Lord … concerning the *parable* of the wheat and of the tares, [[D&C 86.1|D&C 86:1]].
 
 unto this *parable* I will liken all these kingdoms, [[D&C 88.61|D&C 88:61]].
 

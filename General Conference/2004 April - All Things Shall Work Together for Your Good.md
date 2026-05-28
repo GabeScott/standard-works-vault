@@ -67,6 +67,4 @@ I testify that Heavenly Father is a tender, loving parent who desires to bless u
 
 
 
-
-
 #Courage #Endurance #Faith #Love #Service #Trust

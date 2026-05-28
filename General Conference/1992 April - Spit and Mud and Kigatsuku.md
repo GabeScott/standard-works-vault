@@ -36,11 +36,9 @@ And fourth, Jesus didn’t just dump that service on the man and walk away. He g
 
 Our desire to serve is divine. Charity is our motto. As women, we beseech with the prophets of old:
 
-“And let these my words, wherewith I have made supplication before the Lord, be nigh unto the Lord our God day and night, that he maintain the cause of … his people Israel at all times.” ([[1 Kings 8.59|1 Kgs. 8:59]].)
+“And let these my words, wherewith I have made supplication before the Lord, be nigh unto the Lord our God day and night, that he maintain the cause of … his people Israel at all times.” ([[1 Kings 8.59|1 Kgs. 8:59]].)
 
 “That \[we\] may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; that \[we\] may become the \[daughters\] of God; that when he shall appear we shall be like him.” ([[Moroni 7.48|Moro. 7:48]].) In the name of Jesus Christ, amen.
-
-
 
 
 

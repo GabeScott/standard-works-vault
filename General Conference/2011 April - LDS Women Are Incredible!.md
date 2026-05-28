@@ -1,6 +1,6 @@
 # LDS Women Are Incredible!
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -24,7 +24,7 @@ A predominant attribute in the lives of our pioneer ancestors is the faith of th
 
 The heroic accounts of what these pioneer women sacrificed and accomplished as they crossed the plains are a priceless legacy to the Church. I am moved by the account of Elizabeth Jackson, whose husband, Aaron, died after the last crossing of the Platte River with the Martin handcart company. She wrote:
 
-“I will not attempt to describe my feelings at finding myself thus left a widow with three children, under such excruciating circumstances. … I believe … that my sufferings for the Gospel’s sake will be sanctified unto me for my good. …
+“I will not attempt to describe my feelings at finding myself thus left a widow with three children, under such excruciating circumstances. … I believe … that my sufferings for the Gospel’s sake will be sanctified unto me for my good. …
 
 “I \[appealed\] to the Lord, … He who had promised to be a husband to the widow, and a father to the fatherless. I appealed to him and he came to my aid.”[^4]
 
@@ -80,7 +80,7 @@ You devoted sisters who are single parents for whatever reason, our hearts reach
 
 You valiant and faithful single sisters, please know that we love and appreciate you, and we assure you that no eternal blessing will be withheld from you.
 
-The remarkable pioneer woman Emily H. Woodmansee penned the text of the hymn “As Sisters in Zion.” She correctly asserts that the “errand of angels is given to women.”[^22] This has been described as “nothing less than to do the direct and immediate bidding of our Father in Heaven, and ‘this is a gift that … sisters … claim.’”[^23]
+The remarkable pioneer woman Emily H. Woodmansee penned the text of the hymn “As Sisters in Zion.” She correctly asserts that the “errand of angels is given to women.”[^22] This has been described as “nothing less than to do the direct and immediate bidding of our Father in Heaven, and ‘this is a gift that … sisters … claim.’”[^23]
 
 Dear sisters, we love and admire you. We appreciate your service in the Lord’s kingdom. You are incredible! I express particular appreciation for the women in my life. I testify of the reality of the Atonement, the divinity of the Savior, and the Restoration of His Church, in the name of Jesus Christ, amen.
 
@@ -89,11 +89,11 @@ Dear sisters, we love and admire you. We appreciate your service in the Lord’s
 
 [^1]: Wallace Stegner, *The Gathering of Zion: The Story of the Mormon Trail* (1971), 13.
 
-[^2]: Robert D. Putnam and David E. Campbell, *American Grace: How Religion Divides and Unites Us* (2010), 233.
+[^2]: Robert D. Putnam and David E. Campbell, *American Grace: How Religion Divides and Unites Us* (2010), 233.
 
 [^3]: See *Handbook 2: Administering the Church* (2010), 1.3.1; see also [[Moses 5.1|Moses 5:1, 4, 12, 27]][[Moses 5.4|]][[Moses 5.12|]][[Moses 5.27|]].
 
-[^4]: Elizabeth Horrocks Jackson Kingsford, in Andrew D. Olsen, *The Price We Paid: The Extraordinary Story of the Willie and Martin Handcart Pioneers* (2006), 445.
+[^4]: Elizabeth Horrocks Jackson Kingsford, in Andrew D. Olsen, *The Price We Paid: The Extraordinary Story of the Willie and Martin Handcart Pioneers* (2006), 445.
 
 [^5]: See Olsen, *The Price We Paid,* 445–46.
 
@@ -127,12 +127,10 @@ Dear sisters, we love and admire you. We appreciate your service in the Lord’s
 
 [^20]: See Simon Collins, “Put Family before Moneymaking Is Message from Festival,” *New Zealand Herald,* Feb. 1, 2010, A2.
 
-[^21]: Gordon B. Hinckley, in Conference Report, Oct. 1996, 94; or *Ensign,* Nov. 1996, 69; see also Spencer W. Kimball, in Conference Report, Oct. 1979, 71; or *Ensign,* Nov. 1979, 48–49.
+[^21]: Gordon B. Hinckley, in Conference Report, Oct. 1996, [[1996 October - Women of the Church.md|94]]; or *Ensign,* Nov. 1996, 69; see also Spencer W. Kimball, in Conference Report, Oct. 1979, [[1979 October - Our Sisters in the Church.md|71]]; or *Ensign,* Nov. 1979, 48–49.
 
 [^22]: “As Sisters in Zion,” *Hymns,* no. 309.
 
 [^23]: Karen Lynn Davidson, *Our Latter-Day Hymns: The Stories and the Messages,* rev. ed. (2009), 338–39.
-
-
 
 #Councils #Family #Motherhood #Women

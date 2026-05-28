@@ -4,6 +4,3 @@
 
 [JST Acts 22:29](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-acts/22?lang=eng)
 
-
-
-

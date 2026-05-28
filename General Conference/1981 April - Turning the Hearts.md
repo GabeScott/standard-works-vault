@@ -48,7 +48,7 @@ I am convinced that these records we are commanded to write are absolutely vital
 
 After quoting this verse from Revelation, the Prophet Joseph Smith said, as recorded in [[D&C 128.7|Doctrine and Covenants 128:7–8]][[D&C 128.8|]]:
 
-“You will discover in this quotation that the *books* were opened; and another book was opened, which was the book of life; but the dead were judged out of those things which were written in the *books,* according to their works; consequently, the *books* spoken of must be the books which contained the record of their works, and refer to the records which are kept on the earth. …
+“You will discover in this quotation that the *books* were opened; and another book was opened, which was the book of life; but the dead were judged out of those things which were written in the *books,* according to their works; consequently, the *books* spoken of must be the books which contained the record of their works, and refer to the records which are kept on the earth. …
 
 “Now, the nature of this ordinance consists in the power of the priesthood, by the revelation of Jesus Christ, wherein it is granted that whatsoever you bind on earth shall be bound in heaven, and whatsoever you loose on earth shall be loosed in heaven. Or, in other words, taking a different view of the translation, whatsoever you record on earth shall be recorded in heaven, and whatsoever you do not record on earth shall not be recorded in heaven; for out of the *books* shall your dead be judged.” (*Teachings of the Prophet Joseph Smith,* comp. Joseph Fielding Smith, Salt Lake City: Deseret Book, 1977, p. 356; italics added.)
 
@@ -63,6 +63,4 @@ Of course, none of this would mean very much if we did not have a holy house in 
 
 
 
-
-
-#Family_History
+#FamilyHistory

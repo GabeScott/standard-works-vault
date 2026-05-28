@@ -97,7 +97,7 @@ In the name of Jesus Christ, amen.
 
 [^7]: See [[Matthew 8.25|Matthew 8:25–27]][[Matthew 8.26|]][[Matthew 8.27|]]; [[Mark 4.39|Mark 4:39]].
 
-[^8]: [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]]; emphasis added.
+[^8]: [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]]; emphasis added.
 
 [^9]: *History of the Church,* 5:134–35.
 
@@ -121,10 +121,8 @@ In the name of Jesus Christ, amen.
 
 [^19]: [[Romans 13.12|Romans 13:12–14]][[Romans 13.13|]][[Romans 13.14|]].
 
-[^20]: In Conference Report, Oct. 1995, 95; or *Ensign,* May 1995, 71; see also Conference Report, Apr. 2005, 3; or *Ensign,* May 2005, 4.
+[^20]: In Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|95]]; or *Ensign,* May 1995, 71; see also Conference Report, Apr. 2005, [[2003 April - The Condition of the Church.md|3]]; or *Ensign,* May 2005, 4.
 
 [^21]: [[Philippians 4.7|Philippians 4:7]].
 
-
-
-#Faith #Jesus_Christ #Obedience #Preparation
+#Faith #JesusChrist #Obedience #Preparation

@@ -1,6 +1,5 @@
 # Kinsman
 
-
 *See also* [[Kin.md|Kin]]; [[Kindred.md|Kindred]]; [[Kinsfolk.md|Kinsfolk]]
 
 near of kin unto us, one of our next *kinsmen*, [[Ruth 2.20|Ruth 2:20]].

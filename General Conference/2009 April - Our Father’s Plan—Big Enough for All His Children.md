@@ -93,7 +93,7 @@ I rejoice in the great plan of salvation that is big enough for all of our Fathe
 
 [^1]: [[John 16.33|John 16:33]]; emphasis added.
 
-[^2]: Charles Dickens, “The Uncommercial Traveller,” *All the Year Round,* July 4, 1863, 449; see also David M. W. Pickup, *The Pick and Flower of England* (2001), 2.
+[^2]: Charles Dickens, “The Uncommercial Traveller,” *All the Year Round,* July 4, 1863, 449; see also David M. W. Pickup, *The Pick and Flower of England* (2001), 2.
 
 [^3]: Dickens, “The Uncommercial Traveller,” 446.
 
@@ -113,21 +113,21 @@ I rejoice in the great plan of salvation that is big enough for all of our Fathe
 
 [^11]: See Nassim Nicholas Taleb, *The Black Swan: The Impact of the Highly Improbable* (2007), xvii–xxviii.
 
-[^12]: Gary G. Ely, May 16, 2008, conversation preparatory to his service as president of the Colorado Denver North Mission.
+[^12]: Gary G. Ely, May 16, 2008, conversation preparatory to his service as president of the Colorado Denver North Mission.
 
 [^13]: In Newell Cook McMillan, comp., *The Life and History of Phineas Wolcott Cook* (1980), 19–20; spelling and punctuation standardized.
 
-[^14]: See Frederic W. Farrar, *Eternal Hope* (1892), xxxvi–xlii. For an expanded discussion of this topic, see H. Wallace Goddard, “God’s Plan—Kinder Than We Dare to Expect,” *Meridian Magazine,* www.ldsmag.com/myth/060217plan.html.
+[^14]: See Frederic W. Farrar, *Eternal Hope* (1892), xxxvi–xlii. For an expanded discussion of this topic, see H. Wallace Goddard, “God’s Plan—Kinder Than We Dare to Expect,” *Meridian Magazine,* www.ldsmag.com/myth/060217plan.html.
 
 [^15]: *Poems of Tennyson,* ed. Henry Frowde (1907), 387–88.
 
-[^16]: See Frederic W. Farrar, *Eternal Hope,* xxii.
+[^16]: See Frederic W. Farrar, *Eternal Hope,* xxii.
 
 [^17]: See [[D&C 29.46|D&C 29:46–50]][[D&C 29.47|]][[D&C 29.48|]][[D&C 29.49|]][[D&C 29.50|]]; [[D&C 137.7|137:7–10]][[D&C 137.8|]][[D&C 137.9|]][[D&C 137.10|]].
 
 [^18]: [[Alma 40.12|Alma 40:12]].
 
-[^19]: See [[2 Nephi 9.10|2 Nephi 9:10–14]][[2 Nephi 9.11|]][[2 Nephi 9.12|]][[2 Nephi 9.13|]][[2 Nephi 9.14|]]; [[D&C 76.84|D&C 76:84–86]][[D&C 76.85|]][[D&C 76.86|]].
+[^19]: See [[2 Nephi 9.10|2 Nephi 9:10–14]][[2 Nephi 9.11|]][[2 Nephi 9.12|]][[2 Nephi 9.13|]][[2 Nephi 9.14|]]; [[D&C 76.84|D&C 76:84–86]][[D&C 76.85|]][[D&C 76.86|]].
 
 [^20]: See [[Alma 40.14|Alma 40:14]].
 
@@ -135,7 +135,7 @@ I rejoice in the great plan of salvation that is big enough for all of our Fathe
 
 [^22]: See [[Isaiah 14.12|Isaiah 14:12–15]][[Isaiah 14.13|]][[Isaiah 14.14|]][[Isaiah 14.15|]]; [[Luke 10.18|Luke 10:18]]; [[Revelation 12.7|Revelation 12:7–9]][[Revelation 12.8|]][[Revelation 12.9|]]; [[D&C 76.32|D&C 76:32–37]][[D&C 76.33|]][[D&C 76.34|]][[D&C 76.35|]][[D&C 76.36|]][[D&C 76.37|]].
 
-[^23]: [[D&C 76.41|D&C 76:41]]; see also [[1 Corinthians 15.22|1 Corinthians 15:22]].
+[^23]: [[D&C 76.41|D&C 76:41]]; see also [[1 Corinthians 15.22|1 Corinthians 15:22]].
 
 [^24]: [[John 14.1|John 14:1–2]][[John 14.2|]].
 
@@ -143,15 +143,15 @@ I rejoice in the great plan of salvation that is big enough for all of our Fathe
 
 [^26]: [[Joseph Smith History 1.19|Joseph Smith—History 1:19]]; see also [[Joseph Smith History 1.20|v. 20]].
 
-[^27]: See [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; see also [[Hebrews 6.1|Hebrews 6:1–2]][[Hebrews 6.2|]]; [[2 John 1.9|2 John 1:9–10]][[2 John 1.10|]]; [[3 Nephi 11.30|3 Nephi 11:30–40]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]].
+[^27]: See [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; see also [[Hebrews 6.1|Hebrews 6:1–2]][[Hebrews 6.2|]]; [[2 John 1.9|2 John 1:9–10]][[2 John 1.10|]]; [[3 Nephi 11.30|3 Nephi 11:30–40]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]].
 
-[^28]: Mary Jordan, “The New Face of Global Mormonism,” *Washington Post,* Nov. 19, 2007, p. A01.
+[^28]: Mary Jordan, “The New Face of Global Mormonism,” *Washington Post,* Nov. 19, 2007, p. A01.
 
-[^29]: Gordon B. Hinckley, in Conference Report, Apr. 1995, 94; or *Ensign,* May 1995, 71.
+[^29]: Gordon B. Hinckley, in Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|94]]; or *Ensign,* May 1995, 71.
 
 [^30]: See [[Luke 6.37|Luke 6:37]].
 
-[^31]: [[2 Nephi 26.27|2 Nephi 26:27]].
+[^31]: [[2 Nephi 26.27|2 Nephi 26:27]].
 
 [^32]: See [[D&C 93.1|D&C 93:1]].
 
@@ -159,8 +159,6 @@ I rejoice in the great plan of salvation that is big enough for all of our Fathe
 
 [^34]: “Come, Come, Ye Saints,” *Hymns,* no. 30.
 
-[^35]: Orson F. Whitney, *Saturday Night Thoughts* (1921), 323.
+[^35]: Orson F. Whitney, *Saturday Night Thoughts* (1921), 323.
 
-
-
-#Atonement #Church_Doctrine #Judging #Plan_Of_Salvation #Respect
+#Atonement #ChurchDoctrine #Judging #PlanOfSalvation #Respect

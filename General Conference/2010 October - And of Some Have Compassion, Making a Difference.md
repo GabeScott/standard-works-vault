@@ -20,7 +20,7 @@ The Savior has asked us to do the things which He has done,[^4] to bear one anot
 
 Visiting teaching gives women the opportunity to watch over, strengthen, and teach one another. Much like a teacher in the Aaronic Priesthood is charged with the responsibility “to watch over the church always, and \[to\] be with and strengthen them,”[^9] a visiting teacher shows her love by prayerfully considering each woman she is called to serve.
 
-Sister Julie B. Beck has reminded us, “Because we follow the example and teachings of Jesus Christ, we value this sacred assignment to love, know, serve, understand, teach, and minister in His behalf.”[^10]
+Sister Julie B. Beck has reminded us, “Because we follow the example and teachings of Jesus Christ, we value this sacred assignment to love, know, serve, understand, teach, and minister in His behalf.”[^10]
 
 Today I want to talk about two things:
 
@@ -68,7 +68,7 @@ My own dear mother was a wonderful and dedicated visiting teacher for many years
 
 Not all experiences related to visiting teaching are warm and wonderful. Sometimes it is hard, such as visiting a home where you really aren’t welcome or when it is difficult to meet with a sister with a very busy schedule. It may take longer to build a good relationship with some sisters. But when we truly seek to love, care for, and pray for the sister, the Holy Ghost will help us find a way to watch over and strengthen her.
 
-President Thomas S. Monson is a master at ministering as the Savior did. He is constantly found visiting and helping others. He has said: “We are surrounded by those in need of our attention, our encouragement, our support, our comfort, our kindness. … We are the Lord’s hands here upon the earth, with the mandate to serve and to lift His children. He is dependent upon each of us.”[^12]
+President Thomas S. Monson is a master at ministering as the Savior did. He is constantly found visiting and helping others. He has said: “We are surrounded by those in need of our attention, our encouragement, our support, our comfort, our kindness. … We are the Lord’s hands here upon the earth, with the mandate to serve and to lift His children. He is dependent upon each of us.”[^12]
 
 “And no one can assist in this work except \[she\] shall be humble and full of love, having faith, hope, and charity, being temperate in all things, whatsoever shall be entrusted to \[her\] care.”[^13]
 
@@ -97,11 +97,11 @@ Sisters, I love you. I pray that you will feel the love of our Heavenly Father a
 
 [^9]: [[D&C 20.53|Doctrine and Covenants 20:53]].
 
-[^10]: Julie B. Beck, “Relief Society: A Sacred Work,” *Liahona* and *Ensign,* Nov. 2009, 113.
+[^10]: Julie B. Beck, “Relief Society: A Sacred Work,” *Liahona* and *Ensign,* Nov. 2009, 113.
 
 [^11]: [[Mosiah 18.21|Mosiah 18:21]].
 
-[^12]: Thomas S. Monson, “What Have I Done for Someone Today?” *Liahona* and *Ensign,* Nov. 2009, 86.
+[^12]: Thomas S. Monson, “What Have I Done for Someone Today?” *Liahona* and *Ensign,* Nov. 2009, 86.
 
 [^13]: [[D&C 12.8|Doctrine and Covenants 12:8]].
 

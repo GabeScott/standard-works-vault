@@ -1,6 +1,6 @@
 # Preserving the Voice of the Covenant People in the Rising Generation
 
-By Brother Jan E. Newman - *Second Counselor in the Sunday School General Presidency*
+By Brother Jan E. Newman - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -28,13 +28,13 @@ This kind of strength doesn’t just happen. It is not passed on to the next gen
 
 We learn this lesson from another account in the Book of Mormon. When King Benjamin gave his final address to his people, they gathered as families to hear his words.[^7] King Benjamin bore powerful witness of Jesus Christ, and the people were deeply moved by his testimony. They declared:
 
-“The Spirit … has wrought a mighty change in us, or in our hearts. …
+“The Spirit … has wrought a mighty change in us, or in our hearts. …
 
 “And we are willing to enter into a covenant with our God to do his will … all the remainder of our days.”[^8]
 
 One might expect that little children with such deeply converted parents would eventually become converted and make covenants themselves. And yet, for some reason not mentioned in the record, the covenant made by the parents did not get traction with some of their children. Several years later “there were many of the rising generation that could not understand the words of king Benjamin, being little children at the time he spake unto his people; and they did not believe the tradition of their fathers.
 
-“They did not believe what had been said concerning the resurrection of the dead, neither did they believe concerning the coming of Christ. …
+“They did not believe what had been said concerning the resurrection of the dead, neither did they believe concerning the coming of Christ. …
 
 “And they would not be baptized; neither would they join the church. And they were a separate people as to their faith.”[^9]
 
@@ -44,7 +44,7 @@ We can start by following the example of Nephi: “We talk of Christ, we rejoice
 
 The voice of the covenant people is found in our own words of testimony. It is found in the words of living prophets. And it is preserved powerfully in the scriptures. It is there that our children will come to know Jesus and find answers to their questions. It is there they will learn for themselves the doctrine of Christ. It is there they will find hope. This will prepare them for a lifetime of seeking truth and living on the covenant path.
 
-I love this counsel from President Russell M. Nelson:
+I love this counsel from President Russell M. Nelson:
 
 “Where *can* we go to hear Him?
 
@@ -65,11 +65,11 @@ Let us accept the Savior’s invitation and bring our children to Him. As we do 
 
 
 
-[^1]: [[3 Nephi 17.11|3 Nephi 17:11]].
+[^1]: [[3 Nephi 17.11|3 Nephi 17:11]].
 
-[^2]: [[3 Nephi 17.23|3 Nephi 17:23–24]][[3 Nephi 17.24|]]; see also [[3 Nephi 17.11|3 Nephi 17:11–22]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]].
+[^2]: [[3 Nephi 17.23|3 Nephi 17:23–24]][[3 Nephi 17.24|]]; see also [[3 Nephi 17.11|3 Nephi 17:11–22]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]].
 
-[^3]: See [[4 Nephi 1.1|4 Nephi 1:1–22]][[4 Nephi 1.2|]][[4 Nephi 1.3|]][[4 Nephi 1.4|]][[4 Nephi 1.5|]][[4 Nephi 1.6|]][[4 Nephi 1.7|]][[4 Nephi 1.8|]][[4 Nephi 1.9|]][[4 Nephi 1.10|]][[4 Nephi 1.11|]][[4 Nephi 1.12|]][[4 Nephi 1.13|]][[4 Nephi 1.14|]][[4 Nephi 1.15|]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]][[4 Nephi 1.19|]][[4 Nephi 1.20|]][[4 Nephi 1.21|]][[4 Nephi 1.22|]].
+[^3]: See [[4 Nephi 1.1|4 Nephi 1:1–22]][[4 Nephi 1.2|]][[4 Nephi 1.3|]][[4 Nephi 1.4|]][[4 Nephi 1.5|]][[4 Nephi 1.6|]][[4 Nephi 1.7|]][[4 Nephi 1.8|]][[4 Nephi 1.9|]][[4 Nephi 1.10|]][[4 Nephi 1.11|]][[4 Nephi 1.12|]][[4 Nephi 1.13|]][[4 Nephi 1.14|]][[4 Nephi 1.15|]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]][[4 Nephi 1.19|]][[4 Nephi 1.20|]][[4 Nephi 1.21|]][[4 Nephi 1.22|]].
 
 [^4]: See [[Luke 6.47|Luke 6:47–49]][[Luke 6.48|]][[Luke 6.49|]]; [[Helaman 5.12|Helaman 5:12]].
 
@@ -83,22 +83,20 @@ Let us accept the Savior’s invitation and bring our children to Him. As we do 
 
 [^9]: [[Mosiah 26.1|Mosiah 26:1–2, 4]][[Mosiah 26.2|]][[Mosiah 26.4|]].
 
-[^10]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^10]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^11]: “There are many things to teach about in the restored gospel of Jesus Christ—principles, commandments, prophecies, and scripture stories. But all of these are branches of the same tree, for they all have one purpose: to help all people come unto Christ and be perfected in Him (see [[Jarom 1.11|Jarom 1:11]]; [[Moroni 10.32|Moroni 10:32]]). So no matter what you are teaching, remember that you are really teaching about Jesus Christ and how to become like Him” (*Teaching in the Savior’s Way: For All Who Teach in the Home and in the Church* \[2022\], [6](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/04-part-1/05-teach-about-jesus-christ?lang=eng&id=p1#p1)).
+[^11]: “There are many things to teach about in the restored gospel of Jesus Christ—principles, commandments, prophecies, and scripture stories. But all of these are branches of the same tree, for they all have one purpose: to help all people come unto Christ and be perfected in Him (see [[Jarom 1.11|Jarom 1:11]]; [[Moroni 10.32|Moroni 10:32]]). So no matter what you are teaching, remember that you are really teaching about Jesus Christ and how to become like Him” (*Teaching in the Savior’s Way: For All Who Teach in the Home and in the Church* \[2022\], [6](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/04-part-1/05-teach-about-jesus-christ?lang=eng&id=p1#p1)).
 
-[^12]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 89.
+[^12]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 89.
 
-[^13]: *Teaching in the Savior’s Way*, [31](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=p8#p8).
+[^13]: *Teaching in the Savior’s Way*, [31](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=p8#p8).
 
-[^14]: Special accommodations can be made for parents who teach in Primary, such as meeting during the 20-minute Primary singing time or holding a separate meeting at another time (see *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [17.4](https://churchofjesuschrist.org/study/manual/general-handbook/17-teaching-the-gospel?lang=eng&id=title_number41#title_number41), Gospel Library).
+[^14]: Special accommodations can be made for parents who teach in Primary, such as meeting during the 20-minute Primary singing time or holding a separate meeting at another time (see *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [17.4](https://www.churchofjesuschrist.org/study/manual/general-handbook/17-teaching-the-gospel?lang=eng&id=title_number41#title_number41), Gospel Library).
 
-[^15]: Members and leaders can order *Teaching in the Savior’s Way* through Distribution Services. It is also available digitally in the Gospel Library.
+[^15]: Members and leaders can order *[Teaching in the Savior’s Way](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022?lang=eng)* through Distribution Services. It is also available digitally in the Gospel Library.
 
-[^16]: See *General Handbook*, [13.5](https://churchofjesuschrist.org/study/manual/general-handbook/13-sunday-school?lang=eng&id=title_number18#title_number18).
+[^16]: See *General Handbook*, [13.5](https://www.churchofjesuschrist.org/study/manual/general-handbook/13-sunday-school?lang=eng&id=title_number18#title_number18).
 
 [^17]: [[Enos 1.1|Enos 1:1]]. Remember that among the rising generation of unbelievers in the Book of Mormon were Alma the Younger and the sons of Mosiah. When Alma the Younger finally recognized his need to change his life, he remembered what his father had taught about Jesus Christ—teachings that Alma had apparently ignored in the past. But the memory of it remained, and that memory saved Alma spiritually (see [[Alma 36.17|Alma 36:17–20]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]]).
 
-
-
-#Children #Councils #Covenants #Jesus_Christ #Parents #Scripture_Study #Teaching
+#Children #Councils #Covenants #JesusChrist #Parents #ScriptureStudy #Teaching

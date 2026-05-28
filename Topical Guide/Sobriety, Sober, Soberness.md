@@ -1,6 +1,5 @@
 # Sobriety, Sober, Soberness
 
-
 *See also* [[Levity.md|Levity]]
 
 think *soberly*, according as God hath dealt, [[Romans 12.3|Romans 12:3]].
@@ -11,9 +10,9 @@ let us, who are of the day, be *sober*, [[1 Thessalonians 5.8|1 Thessalonians 5:
 
 women adorn themselves in modest apparel, with shamefacedness and *sobriety*, [[1 Timothy 2.9|1 Timothy 2:9]].
 
-continue in faith ... with *sobriety*, [[1 Timothy 2.15|1 Timothy 2:15]].
+continue in faith … with *sobriety*, [[1 Timothy 2.15|1 Timothy 2:15]].
 
-A bishop then must be ... *sober*, [[1 Timothy 3.2|1 Timothy 3:2]].
+A bishop then must be … *sober*, [[1 Timothy 3.2|1 Timothy 3:2]].
 
 Likewise must the deacons be *grave*, [[1 Timothy 3.8|1 Timothy 3:8]].
 
@@ -35,7 +34,7 @@ be ye therefore *sober*, and watch unto prayer, [[1 Peter 4.7|1 Peter 4:7]].
 
 Be *sober*, be vigilant, [[1 Peter 5.8|1 Peter 5:8]].
 
-responsibility ... to magnify mine office with *soberness*, [[Jacob 2.2|Jacob 2:2]].
+responsibility … to magnify mine office with *soberness*, [[Jacob 2.2|Jacob 2:2]].
 
 walk in the ways of truth and *soberness*, [[Mosiah 4.15|Mosiah 4:15]].
 

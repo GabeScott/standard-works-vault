@@ -1,6 +1,6 @@
 # Becoming Goodly Parents
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -14,7 +14,7 @@ So much has changed during my lifetime. I have seen the development of the indus
 
 Through all the fast-paced changes occurring around us, we earnestly pray and work to ensure that the values of the gospel of Jesus Christ endure. Already some of them are in jeopardy of being lost. At the top of the list of these values and, therefore, prime targets of the adversary, are the sanctity of marriage and the central importance of families. They provide an anchor and the safe harbor of a home where each child of a loving Heavenly Father can be influenced for good and acquire eternal values.
 
-My own family, anticipating the celebration of this 90-year milestone in my life, started helping me remember and appreciate the experiences of my long life. For example, my niece gathered and shared with me several letters that I had written to my parents nearly 70 years ago from my marine outpost on the island of Saipan in the Pacific during World War II.
+My own family, anticipating the celebration of this 90-year milestone in my life, started helping me remember and appreciate the experiences of my long life. For example, my niece gathered and shared with me several letters that I had written to my parents nearly 70 years ago from my marine outpost on the island of Saipan in the Pacific during World War II.
 
 One of these letters particularly caught my eye. It was a letter I wrote to my mother for her to open and read on Mother’s Day 1945. I would like to share some excerpts with you in the hope you will see why I will ever be grateful to my loving father and mother for the lessons I learned from their teaching in the home. My parents are the defining example I retain of goodly parents who placed their marriage and the proper rearing of children as their highest priority.
 
@@ -60,15 +60,15 @@ Fourth, parents can share their testimonies often with their children, commit th
 
 Fifth, we can organize our families based on clear, simple family rules and expectations, wholesome family traditions and rituals, and “family economics,” where children have household responsibilities and can earn allowances so that they can learn to budget, save, and pay tithing on the money they earn.
 
-These suggestions for creating stronger *family cultures* work in tandem with the culture of the Church. Our strengthened family cultures will be a protection for our children from “the fiery darts of the adversary” ([[1 Nephi 15.24|1 Nephi 15:24]]) embedded in their peer culture, the entertainment and celebrity cultures, the credit and entitlement cultures, and the Internet and media cultures to which they are constantly exposed. Strong family cultures will help our children live in the world and not become “of the world” ([[John 15.19|John 15:19]]).
+These suggestions for creating stronger *family cultures* work in tandem with the culture of the Church. Our strengthened family cultures will be a protection for our children from “the fiery darts of the adversary” ([[1 Nephi 15.24|1 Nephi 15:24]]) embedded in their peer culture, the entertainment and celebrity cultures, the credit and entitlement cultures, and the Internet and media cultures to which they are constantly exposed. Strong family cultures will help our children live in the world and not become “of the world” ([[John 15.19|John 15:19]]).
 
-President Joseph Fielding Smith taught: “It is the duty of parents to teach their children these saving principles of the gospel of Jesus Christ, so that they will know why they are to be baptized and that they may be impressed in their hearts with a desire to continue to keep the commandments of God after they are baptized, that they may come back into his presence. Do you, my good brethren and sisters, want your families, your children; do you want to be sealed to your fathers and your mothers before you … ? If so, then you must begin by teaching at the cradle-side. You are to teach by example as well as precept.”[^2]
+President Joseph Fielding Smith taught: “It is the duty of parents to teach their children these saving principles of the gospel of Jesus Christ, so that they will know why they are to be baptized and that they may be impressed in their hearts with a desire to continue to keep the commandments of God after they are baptized, that they may come back into his presence. Do you, my good brethren and sisters, want your families, your children; do you want to be sealed to your fathers and your mothers before you … ? If so, then you must begin by teaching at the cradle-side. You are to teach by example as well as precept.”[^2]
 
 The proclamation on the family says:
 
-“Husband and wife have a solemn responsibility to love and care for each other and for their children. ‘Children are an heritage of the Lord’ ([[Psalms 127.3|Psalm 127:3]]). Parents have a sacred duty to rear their children in love and righteousness, to provide for their physical and spiritual needs, and to teach them to love and serve one another, observe the commandments of God, and be law-abiding citizens wherever they live. …
+“Husband and wife have a solemn responsibility to love and care for each other and for their children. ‘Children are an heritage of the Lord’ ([[Psalms 127.3|Psalm 127:3]]). Parents have a sacred duty to rear their children in love and righteousness, to provide for their physical and spiritual needs, and to teach them to love and serve one another, observe the commandments of God, and be law-abiding citizens wherever they live. …
 
-“… By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families. Mothers are primarily responsible for the nurture of their children. In these sacred responsibilities, fathers and mothers are obligated to help one another as equal partners.”[^3]
+“… By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families. Mothers are primarily responsible for the nurture of their children. In these sacred responsibilities, fathers and mothers are obligated to help one another as equal partners.”[^3]
 
 I believe it is by divine design that the role of motherhood emphasizes the nurturing and teaching of the next generation. But it is wonderful to see husbands and wives who have worked out real partnerships where they blend together their influence and communicate effectively both about their children and to their children.
 
@@ -79,12 +79,10 @@ God bless you goodly mothers and fathers in Zion. He has entrusted to your care 
 
 
 
-[^1]: Mother’s Day letter from L. Tom Perry to his mother, sent from Saipan, dated May 3, 1945.
+[^1]: Mother’s Day letter from L. Tom Perry to his mother, sent from Saipan, dated May 3, 1945.
 
 [^2]: Joseph Fielding Smith, in Conference Report, Oct. 1948, 153.
 
 [^3]: “The Family: A Proclamation to the World,” *Liahona* and *Ensign,* Nov. 2010, 129.
-
-
 
 #Family #Marriage #Parenthood

@@ -1,6 +1,6 @@
 # “She Stretcheth Out Her Hand to the Poor”
 
-By Barbara B. Smith - *Relief Society General President*
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -61,8 +61,6 @@ Through the scriptures we are admonished by the Lord to be “anxiously engaged 
 Only when a woman understands the importance and the enrichment of service and evaluates her opportunities—neither making excuses to avoid service nor overextending herself unwisely—can she enjoy the promised blessings of service as she follows the example of the “virtuous woman,” as “she stretcheth out her hand to the poor, yea, she reacheth forth her hands to the needy.”
 
 It is my prayer that women may, with discernment, minister to the poor and needy—even to the poor in spirit—and serve them well, in the name of Jesus Christ. Amen.
-
-
 
 
 

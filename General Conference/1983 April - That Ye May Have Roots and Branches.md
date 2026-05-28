@@ -8,7 +8,7 @@ By Elder Hartman Rector, Jr. - *Of the First Quorum of the Seventy*
 
 “Will a man rob God?” ([[Malachi 3.8|Mal. 3:8]].) This must be one of the most pointed questions ever asked in the holy scriptures. The implications are that an affirmative answer would mean that those who rob God will be cursed by God and burned as stubble at the Lord’s second coming. (See [[Malachi 3.9|Mal. 3:9]]; [[Malachi 4.1|4:1]].)
 
-This query was made of ancient Israel through the prophet Malachi, but it didn’t apply only to ancient Israel. It quite obviously applied to the Nephites and Lamanites on this continent, too, for the resurrected Lord repeated it to them when he visited them in about a.d. 34. (See [[3 Nephi 24.8|3 Ne. 24:8–9]][[3 Nephi 24.9|]].) I presume modern Israel is also included under the same injunction, for surely the Lord used almost the same words when he warned of the burning that would precede his second coming, and tithing seems to be the critical judgment criterion. (See [[D&C 64.23|D&C 64:23–24]][[D&C 64.24|]].)
+This query was made of ancient Israel through the prophet Malachi, but it didn’t apply only to ancient Israel. It quite obviously applied to the Nephites and Lamanites on this continent, too, for the resurrected Lord repeated it to them when he visited them in about a.d. 34. (See [[3 Nephi 24.8|3 Ne. 24:8–9]][[3 Nephi 24.9|]].) I presume modern Israel is also included under the same injunction, for surely the Lord used almost the same words when he warned of the burning that would precede his second coming, and tithing seems to be the critical judgment criterion. (See [[D&C 64.23|D&C 64:23–24]][[D&C 64.24|]].)
 
 On the other hand, those who do pay tithing (give the Lord *his* tenth) are promised that the windows of heaven will be opened to them and their blessings will exceed their ability to receive. (See [[Malachi 3.10|Mal. 3:10]].) Further, the Lord “will rebuke the devourer for \[their\] sakes, and he shall not destroy the fruits of \[their\] ground.” ([[Malachi 3.11|Mal. 3:11]].) This is a blessing of great magnitude.
 
@@ -36,7 +36,7 @@ The Lord answers, “Ye have said, It is vain to serve God: and what profit is i
 
 Did you ever look at the boat in the driveway of the nonmember next door and think: “He doesn’t pay tithing, or perhaps attend church on Sunday. He gets to watch the Super Bowl and the World Series and so forth on Sunday. He doesn’t seem to do any of the things I have to do, and yet he seems to be getting along as well as I am, maybe even better than I am.” Did you ever have any such thoughts? Well, if so, I would imagine that is what the Lord is referring to in these passages. Then the Lord drops the bombshell:
 
-“Then they that feared the Lord spake often one to another.” (Like we are doing now. Did you ever notice that those who love the Lord are always talking to each other? One meeting after another.) “And the Lord hearkened, and heard it, and a book of remembrance was written before him for them that feared the Lord, and that thought upon his name.” ([[Malachi 3.16|Mal. 3:16]] and [[3 Nephi 24.16|3 Ne. 24:16]].)
+“Then they that feared the Lord spake often one to another.” (Like we are doing now. Did you ever notice that those who love the Lord are always talking to each other? One meeting after another.) “And the Lord hearkened, and heard it, and a book of remembrance was written before him for them that feared the Lord, and that thought upon his name.” ([[Malachi 3.16|Mal. 3:16]] and [[3 Nephi 24.16|3 Ne. 24:16]].)
 
 Ah! the light breaks. There is a record kept—and surely there is one. One group is receiving its reward now; the other is laying it up in heaven; and out of the books which are written and shall be written shall the dead be judged. (See [[Revelation 20.12|Rev. 20:12]].) Then the Lord gives his word, which he cannot break, for surely “I, the Lord, am bound *when* ye do what I say.” ([[D&C 82.10|D&C 82:10]]; italics added.) And here is the Lord’s promise: “And they shall be mine, saith the Lord of hosts, in that day when I make up my jewels; and I will spare them, as a man spareth his own son that serveth him.” ([[Malachi 3.17|Mal. 3:17]].) Surely, it is very difficult not to be partial to your own son who is working for you, if he does a good job. I presume there is nothing wrong in feeling that way about your own son. The Lord seems to think not.
 
@@ -53,8 +53,6 @@ Then this becomes really serious, since there is no exaltation without your fami
 Tithing, then, is one of the bedrock foundation principles of exaltation. And, as it turns out, when a man pays tithing, the Lord opens the windows of heaven and rebukes the devourer so that it doesn’t cost him anything, but really puts him far more ahead than he ever could have been if he had not paid it. It is a principle of great promise and brings eternal joy and happiness.
 
 Who, then, can afford not to give the Lord his tenth? Surely neither you nor I; which witness I bear. For surely the Lord God has spoken it. And in the words of King Benjamin, “He never doth vary from that which he hath said.” ([[Mosiah 2.22|Mosiah 2:22]].) In the name of the Lord Jesus Christ, amen.
-
-
 
 
 

@@ -28,7 +28,7 @@ Though my personal suffering is not to be compared to the Savior’s agony in Ge
 
 Jesus chose not to be released from this world until He had endured to the end and completed the mission He had been sent to accomplish for mankind. Upon the cross of Calvary, Jesus commended His spirit to His Father with a simple statement: “It is finished” ([[John 19.30|John 19:30]]). Having endured to the end, He was released from mortality.
 
-We too must endure to the end. The Book of Mormon teaches, “Unless a man shall endure to the end, in following the example of the Son of the living God, he cannot be saved” ([[2 Nephi 31.16|2 Ne. 31:16]]).
+We too must endure to the end. The Book of Mormon teaches, “Unless a man shall endure to the end, in following the example of the Son of the living God, he cannot be saved” ([[2 Nephi 31.16|2 Ne. 31:16]]).
 
 The experiences of the last two years have made me stronger in spirit and have given me courage to testify more boldly to the world the deep feelings of my heart. I stand before you today with a resolve to teach the gospel principles like the prophets of old—without the fear of man, speaking clearly with plain talk, and teaching simple gospel truths.
 
@@ -38,7 +38,7 @@ There is a familiar phrase: to be *in* the world, but not *of* the world (see [[
 
 Jesus taught, “My kingdom is not of this world” ([[John 18.36|John 18:36]]). These words led me to ponder more concerning His kingdom. I concluded that when we are baptized by immersion by one with the proper priesthood authority and choose to follow our Savior, we then are *in* His kingdom and *of* His kingdom.
 
-Being of the kingdom of God requires that we heed the Savior’s admonition “Follow thou me” ([[2 Nephi 31.10|2 Ne. 31:10]]). Nephi taught that we follow Jesus by keeping Heavenly Father’s commandments: “Wherefore, my beloved brethren, can we follow Jesus save we shall be willing to keep the commandments of the Father?” ([[2 Nephi 31.10|2 Ne. 31:10]]).
+Being of the kingdom of God requires that we heed the Savior’s admonition “Follow thou me” ([[2 Nephi 31.10|2 Ne. 31:10]]). Nephi taught that we follow Jesus by keeping Heavenly Father’s commandments: “Wherefore, my beloved brethren, can we follow Jesus save we shall be willing to keep the commandments of the Father?” ([[2 Nephi 31.10|2 Ne. 31:10]]).
 
 At baptism we make a covenant with our Heavenly Father that we are willing to come into His kingdom and keep His commandments from that time forward, even though we still live in the world. We are reminded from the Book of Mormon that our baptism is a covenant to “stand as witnesses of God \[and His kingdom\] *at all times and in all things, and in all places* that ye may be in, even until death, that ye may be redeemed of God, and be numbered with those of the first resurrection, that ye may have eternal life” ([[Mosiah 18.9|Mosiah 18:9]]; emphasis added).
 
@@ -46,15 +46,15 @@ When we understand our baptismal covenant and the gift of the Holy Ghost, it wil
 
 President Brigham Young said: “All Latter-day Saints enter the new and everlasting covenant when they enter this Church. They covenant to cease sustaining, upholding and cherishing the kingdom of the Devil and the kingdoms of this world. They enter the new and everlasting covenant to sustain the Kingdom of God and no other kingdom. They take a vow of the most solemn kind, before the heavens and earth, … that they will sustain truth and righteousness instead of wickedness and falsehood, and build up the Kingdom of God, instead of the kingdoms of this world” (*Teachings of Presidents of the Church: Brigham Young* \[1997\], 62–63).
 
-Entering into the kingdom of God is so important that Jesus was baptized to show us “the straitness of the path, and the narrowness of the gate, by which \[we\] should enter” ([[2 Nephi 31.9|2 Ne. 31:9]]). “Notwithstanding he being holy, he showeth unto the children of men that, according to the flesh he humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments” ([[2 Nephi 31.7|2 Ne. 31:7]]).
+Entering into the kingdom of God is so important that Jesus was baptized to show us “the straitness of the path, and the narrowness of the gate, by which \[we\] should enter” ([[2 Nephi 31.9|2 Ne. 31:9]]). “Notwithstanding he being holy, he showeth unto the children of men that, according to the flesh he humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments” ([[2 Nephi 31.7|2 Ne. 31:7]]).
 
-Born of a mortal mother, Jesus was baptized to fulfill His Father’s commandment that sons and daughters of God should be baptized. He set the example for all of us to humble ourselves before our Heavenly Father. We are all welcome to come into the waters of baptism. He was baptized to witness to His Father that He would be obedient in keeping His commandments. He was baptized to show us that we should receive the gift of the Holy Ghost (see [[2 Nephi 31.4|2 Ne. 31:4–9]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]]).
+Born of a mortal mother, Jesus was baptized to fulfill His Father’s commandment that sons and daughters of God should be baptized. He set the example for all of us to humble ourselves before our Heavenly Father. We are all welcome to come into the waters of baptism. He was baptized to witness to His Father that He would be obedient in keeping His commandments. He was baptized to show us that we should receive the gift of the Holy Ghost (see [[2 Nephi 31.4|2 Ne. 31:4–9]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]]).
 
-As we follow the example of Jesus, we, too, demonstrate that we will repent and be obedient in keeping the commandments of our Father in Heaven. We humble ourselves with a broken heart and a contrite spirit as we recognize our sins and seek forgiveness of our trespasses (see [[3 Nephi 9.20|3 Ne. 9:20]]). We covenant that we are willing to take upon ourselves the name of Jesus Christ and always remember Him.
+As we follow the example of Jesus, we, too, demonstrate that we will repent and be obedient in keeping the commandments of our Father in Heaven. We humble ourselves with a broken heart and a contrite spirit as we recognize our sins and seek forgiveness of our trespasses (see [[3 Nephi 9.20|3 Ne. 9:20]]). We covenant that we are willing to take upon ourselves the name of Jesus Christ and always remember Him.
 
 “For the gate by which ye should enter is repentance and baptism by water; and then cometh a remission of your sins by fire and by the Holy Ghost.
 
-“And then are ye in this strait and narrow path which leads to eternal life” ([[2 Nephi 31.17|2 Ne. 31:17–18]][[2 Nephi 31.18|]]).
+“And then are ye in this strait and narrow path which leads to eternal life” ([[2 Nephi 31.17|2 Ne. 31:17–18]][[2 Nephi 31.18|]]).
 
 This is the promise that we were given when we came into the kingdom through baptism and when hands were laid upon our heads, the gift of the Holy Ghost was bestowed upon us, and we were confirmed members of The Church of Jesus Christ of Latter-day Saints—which means we became “fellowcitizens with the saints” in the “household of God” ([[Ephesians 2.19|Eph. 2:19]]) and “should walk in a newness of life” ([[Romans 6.4|Rom. 6:4]]).
 
@@ -76,7 +76,7 @@ The scriptures confirm that the truly converted do more than just forsake the en
 
 By choosing to be in His kingdom, we separate—not isolate—ourselves from the world. Our dress will be modest, our thoughts pure, our language clean. The movies and television we watch, the music we listen to, the books, magazines, and newspapers we read will be uplifting. We will choose friends who encourage our eternal goals, and we will treat others with kindness. We will shun the vices of immorality, gambling, tobacco, liquor, and illicit drugs. Our Sunday activities will reflect the commandment of God to remember the Sabbath day and keep it holy. We will follow the example of Jesus Christ in the way we treat others. We will live to be worthy to enter the house of the Lord.
 
-We will be examples “of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]).
+We will be examples “of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]).
 
 We will receive “a mighty change … in our hearts, that we have no more disposition to do evil, but to do good continually.” We will keep our “covenant with our God to do his will, and to be obedient to his commandments in all things … all the remainder of our days” ([[Mosiah 5.2|Mosiah 5:2, 5]][[Mosiah 5.5|]]).
 
@@ -93,6 +93,4 @@ I testify of the divinity of the gospel, restored in this latter day. I testify 
 
 
 
-
-
-#Adversity #Angels #Atonement #Attitude #Children #Covenants #Endurance #Example #Holy_Ghost #Jesus_Christ #Ordinances #Parenthood #Plan_Of_Salvation #Sacrament #Scripture_Study #Temptation #Word_Of_Wisdom
+#Angels #Adversity #Atonement #Attitude #Children #Covenants #Endurance #Example #HolyGhost #JesusChrist #Ordinances #Parenthood #PlanOfSalvation #Sacrament #ScriptureStudy #Temptation #WordOfWisdom

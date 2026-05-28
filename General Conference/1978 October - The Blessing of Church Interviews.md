@@ -1,6 +1,6 @@
 # The Blessing of Church Interviews
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -12,7 +12,7 @@ We are all gathered to be directed by the President of the Church, a prophet of 
 
 I think of this vast body of priesthood holders, all engaged in the work of the Lord, trying to promote the cause of truth and righteousness and build the kingdom of God; and we each have an individual responsibility to help do this.
 
-We all know that this is the church of Jesus Christ, and that he directs the work of this church through the prophet of God, even Spencer W. Kimball. I hope we do all know that.
+We all know that this is the church of Jesus Christ, and that he directs the work of this church through the prophet of God, even Spencer W. Kimball. I hope we do all know that.
 
 Think what it means to know that this church is the only church which has the priesthood of God—the Aaronic Priesthood, which is so important that John the Baptist himself was sent to bestow this priesthood upon Joseph and Oliver; and the Melchizedek Priesthood, which was conferred upon Joseph and Oliver by Peter, James, and John by the laying on of hands.
 
@@ -138,9 +138,7 @@ We frequently hear accounts of how bishops and stake presidents, motivated by co
 
 Again I say, what a blessing that we have discernment and revelation and inspiration to guide us in our main purpose, which is to save souls, yes, even our own, and to help prepare our members to understand the purpose of their mission here upon the earth, and to prepare themselves to go back into the presence of our Heavenly Father!
 
-Now, brethren, we are about to hear from our beloved president, Spencer W. Kimball, a prophet of God through whom the Lord himself directs this church. May we all listen, believe, and follow him, I humbly pray in the name of Jesus Christ. Amen.
-
-
+Now, brethren, we are about to hear from our beloved president, Spencer W. Kimball, a prophet of God through whom the Lord himself directs this church. May we all listen, believe, and follow him, I humbly pray in the name of Jesus Christ. Amen.
 
 
 

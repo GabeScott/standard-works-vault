@@ -24,7 +24,7 @@ In addition to promising these blessings, President Young declared that the Salt
 
 These were remarkable promises. Many Church members had faith in Brigham Young’s prophecies, while others remained skeptical and left for what they assumed would be a better life. Yet history has shown that every prophecy Brigham Young declared has come to pass. The valley did blossom and produce. The Saints prospered. The winter of 1848 was a great catalyst for the Lord to teach His people a valuable lesson. They learned—as we all must learn—that the only sure and secure road to protection in this life comes through trusting in and obeying the counsel from the prophets of God.
 
-Surely one of the crowning blessings of membership in this Church is the blessing of being led by living prophets of God. The Lord declared, “There is never but one on the earth at a time on whom this power and the keys of this priesthood are conferred.”[^4] The prophet and President of the Church today, Thomas S. Monson, receives God’s word for the entire membership of the Church and for the world. In addition, we sustain as prophets, seers, and revelators the counselors in the First Presidency and the members of the Quorum of the Twelve Apostles.
+Surely one of the crowning blessings of membership in this Church is the blessing of being led by living prophets of God. The Lord declared, “There is never but one on the earth at a time on whom this power and the keys of this priesthood are conferred.”[^4] The prophet and President of the Church today, Thomas S. Monson, receives God’s word for the entire membership of the Church and for the world. In addition, we sustain as prophets, seers, and revelators the counselors in the First Presidency and the members of the Quorum of the Twelve Apostles.
 
 With frozen feet and a barren wasteland, those early Saints surely needed faith to trust their prophet. Their very survival and lives were at stake. Yet the Lord rewarded their obedience and blessed and prospered those who followed His mouthpiece.
 
@@ -69,9 +69,9 @@ Brothers and sisters, like the Saints of 1848, we can choose to follow the proph
 
 [^1]: Brigham Young, as quoted by Wilford Woodruff, in *The Utah Pioneers* (1880), 23.
 
-[^2]: See Bryant S. Hinckley, *The Faith of Our Pioneer Fathers* (1956), 9–15; see also Gordon B. Hinckley, “Remarks at Pioneer Day Commemoration Concert,” *Ensign,* Oct. 2001, 70–72.
+[^2]: See Bryant S. Hinckley, *The Faith of Our Pioneer Fathers* (1956), 9–15; see also Gordon B. Hinckley, “Remarks at Pioneer Day Commemoration Concert,” *Ensign,* Oct. 2001, 70–72.
 
-[^3]: See Bryant S. Hinckley, *The Faith of Our Pioneer Fathers,* 11–12; see also Gordon B. Hinckley, “Remarks,” 71.
+[^3]: See Bryant S. Hinckley, *The Faith of Our Pioneer Fathers,* 11–12; see also Gordon B. Hinckley, “Remarks,” 71.
 
 [^4]: [[D&C 132.7|Doctrine and Covenants 132:7]].
 
@@ -82,7 +82,5 @@ Brothers and sisters, like the Saints of 1848, we can choose to follow the proph
 [^7]: [[D&C 1.38|Doctrine and Covenants 1:38]].
 
 [^8]: Ezra Taft Benson, “Fourteen Fundamentals in Following the Prophet,” in *1980 Devotional Speeches of the Year* (1981), 30.
-
-
 
 #Faith #Obedience #Pioneers #Prophets #Trust

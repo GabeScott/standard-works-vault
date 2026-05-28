@@ -14,15 +14,15 @@ When I measure myself against the enormity of the work before us, an overwhelmin
 
 One of the best-known parables of the Savior is the story we have come to know as the good Samaritan. As related by Luke, a certain lawyer tempted Jesus, saying, “Master, what shall I do to inherit eternal life?” ([[Luke 10.25|Luke 10:25]]).
 
-In New Testament times a lawyer was the “equivalent \[of a\] *scribe,* … who was by profession a student and teacher of the law, including the written law of the Pentateuch, and also ‘the traditions of the elders’” (Bible Dictionary, s.v. *Lawyer*).
+In New Testament times a lawyer was the “equivalent \[of a\] *scribe,* … who was by profession a student and teacher of the law, including the written law of the Pentateuch, and also ‘the traditions of the elders’” (Bible Dictionary, s.v. [[BD Lawyer|Lawyer]]).
 
 This learned man sought either to test the Lord concerning His knowledge of the law or to display his own. The Savior responded with a question: “What is written in the law? how readest thou?” ([[Luke 10.26|Luke 10:26]]).
 
-The scholar responded, “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy strength, and with all thy mind; and thy neighbour as thyself” ([[Luke 10.27|v. 27]]).
+The scholar responded, “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy strength, and with all thy mind; and thy neighbour as thyself” ([[Luke 10.27|v. 27]]).
 
-Jesus said unto him, “Thou hast answered right: this do, and thou shalt live” ([[Luke 10.28|v. 28]]).
+Jesus said unto him, “Thou hast answered right: this do, and thou shalt live” ([[Luke 10.28|v. 28]]).
 
-The answer to the inquiry was solicited from his own mouth through the questioning of the Lord, who then directed him to live in accordance with what he knew. However, the scholar was not satisfied with so simple a response. Luke records that the learned man, “willing to justify himself,” asked a further question of the Lord, “Who is my neighbour?” ([[Luke 10.29|v. 29]]). And Jesus answered by telling a story:
+The answer to the inquiry was solicited from his own mouth through the questioning of the Lord, who then directed him to live in accordance with what he knew. However, the scholar was not satisfied with so simple a response. Luke records that the learned man, “willing to justify himself,” asked a further question of the Lord, “Who is my neighbour?” ([[Luke 10.29|v. 29]]). And Jesus answered by telling a story:
 
 “A certain man went down from Jerusalem to Jericho, and fell among thieves, which stripped him of his raiment, and wounded him, and departed, leaving him half dead.
 
@@ -36,13 +36,13 @@ The answer to the inquiry was solicited from his own mouth through the questioni
 
 “And on the morrow when he departed, he took out two pence, and gave them to the host, and said unto him, Take care of him; and whatsoever thou spendest more, when I come again, I will repay thee” ([[Luke 10.30|Luke 10:30–35]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]]).
 
-Understanding of this parable is improved when we recall that the “work of ministering in the sanctuary was assigned to \[the tribe of Levi\].” The Levite’s duty was to assist the priests in their religious services. Likewise, the essential responsibility of a priest was to serve as a “mediator between his people and God by representing them officially in worship and sacrifice” (see Bible Dictionary, s.vv. *Levites* and *Priests*).
+Understanding of this parable is improved when we recall that the “work of ministering in the sanctuary was assigned to \[the tribe of Levi\].” The Levite’s duty was to assist the priests in their religious services. Likewise, the essential responsibility of a priest was to serve as a “mediator between his people and God by representing them officially in worship and sacrifice” (see Bible Dictionary, s.vv. *[[BD Levites|Levites]]* and *[[BD Priests|Priests]]*).
 
 The people of Samaria consisted of a mixed population of Israelites and Gentiles. The Jews despised them. The priest and the Levite refused aid to the half-dead man who was in obvious need, and even distanced themselves from him by walking on the “other side.” It was the despised Samaritan who had compassion on the wounded fellow. He tenderly bound up his wounds, administered soothing oil, disinfected his wounds, placed him upon his own beast and took him to an inn, and stayed with him overnight. He then paid the cost of his care and assured the host that whatever more was spent would be repaid.
 
 The Savior then asked a further question of the scholar, “Which now of these three, thinkest thou, was neighbour unto him that fell among the thieves?” ([[Luke 10.36|Luke 10:36]]).
 
-The lawyer was caught in his own cunning, but accurately answered, “He that shewed mercy on him. Then said Jesus unto him, Go, and do thou likewise” ([[Luke 10.37|v. 37]]).
+The lawyer was caught in his own cunning, but accurately answered, “He that shewed mercy on him. Then said Jesus unto him, Go, and do thou likewise” ([[Luke 10.37|v. 37]]).
 
 This was the second time in this brief conversation the scholar of religious law was instructed by the Savior to live in accordance with his knowledge of the principles.
 
@@ -65,6 +65,7 @@ I recount a simple parable, as told through an interpreter by a Sunday School pr
 It is not our understanding of the principles of the gospel that brings the blessings of heaven, but the living of them.
 
 I pray that each of us will develop a receptive and understanding heart that will motivate us to seek out a less-active brother or sister and truly become a good latter-day Samaritan. In the name of Jesus Christ, amen.
+
 
 
 

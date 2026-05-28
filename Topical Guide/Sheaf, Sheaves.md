@@ -1,11 +1,10 @@
 # Sheaf, Sheaves
 
-
-binding *sheaves* in the field ... my *sheaf* arose, [[Genesis 37.7|Genesis 37:7]].
+binding *sheaves* in the field … my *sheaf* arose, [[Genesis 37.7|Genesis 37:7]].
 
 hast forgot a *sheaf* in the field, [[Deuteronomy 24.19|Deuteronomy 24:19]].
 
-let me glean ... among the *sheaves*, [[Ruth 2.7|Ruth 2:7]].
+let me glean … among the *sheaves*, [[Ruth 2.7|Ruth 2:7]].
 
 Let her glean even among the *sheaves*, [[Ruth 2.15|Ruth 2:15]].
 

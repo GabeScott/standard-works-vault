@@ -12,7 +12,7 @@ These wonderful women who are the general presidency of the Young Women of the L
 
 These teachings and these teachers are true. I feel challenged by the responsibility of concluding a meeting on this most fundamental subject.
 
-The first principle of the gospel is not “faith.” The first principle of the gospel is “Faith in the Lord Jesus Christ” ([[Articles of Faith 1.4|A of F 1:4]]). I wish to speak to you young women about that supremely important truth.
+The first principle of the gospel is not “faith.” The first principle of the gospel is “Faith in the Lord Jesus Christ” ([[Articles of Faith 1.4|A of F 1:4]]). I wish to speak to you young women about that supremely important truth.
 
 Faith does not exist by itself. Faith requires an object. It must be faith in something or someone.
 
@@ -36,7 +36,7 @@ In fact, God will do more than what is best for us. He will do what is best for 
 
 “‘You asked the Lord for a tail wind to take us rapidly to Foa. If you pray for a tail wind to Foa, what about the people who are trying to come from Foa to Pangai? They are good people, and you are praying against them. Just pray for a good wind, not a tail wind.’
 
-“That taught me something important. Sometimes we pray for things that will benefit us but may hurt others. We may pray for a particular type of weather, or to preserve someone’s life, when that answer to our prayer may hurt someone else. That’s why we must always pray in faith, because we can’t have true, God-given faith in something that is not according to His will. If it’s according to His will, all parties will benefit. I learned to pray for a good wind and the ability to get there safely, not necessarily a tail wind” (Salt Lake City: Bookcraft, 1993, p. 175).
+“That taught me something important. Sometimes we pray for things that will benefit us but may hurt others. We may pray for a particular type of weather, or to preserve someone’s life, when that answer to our prayer may hurt someone else. That’s why we must always pray in faith, because we can’t have true, God-given faith in something that is not according to His will. If it’s according to His will, all parties will benefit. I learned to pray for a good wind and the ability to get there safely, not necessarily a tail wind” (Salt Lake City: Bookcraft, 1993, p. 175).
 
 Faith must include trust. I am glad that each member of the presidency stressed that fact in her talk. When we have faith in the Lord Jesus Christ, we must have trust in him. We must trust him enough that we are content to accept his will, knowing that he knows what is best for us.
 
@@ -46,13 +46,13 @@ The Savior gave us the model for that kind of faith and trust. Remember how he p
 
 Here we see the Savior’s absolute faith and trust in the Father. “Nevertheless,” he said, “not my will, but thine be done.” The Father’s answer was to deny the plea of his Only Begotten Son. The Atonement had to be worked out by that lamb without blemish. But though the Son’s request was denied, his prayer was answered. The scripture records: “And there appeared an angel unto him from heaven, strengthening him” (JST, Luke 22:43 \[The Holy Scriptures: Inspired Version\]).
 
-Strengthened from heaven to do the will of the Father, the Savior fulfilled his mission. “And being in an agony, he prayed more earnestly; and he sweat as it were great drops of blood falling down to the ground” ([[Luke 22.note44b|JST, Luke 22:44]]).
+Strengthened from heaven to do the will of the Father, the Savior fulfilled his mission. “And being in an agony, he prayed more earnestly; and he sweat as it were great drops of blood falling down to the ground” ([JST, Luke 22:44](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22?lang=eng&id=note44b#note44b)).
 
 When we try to develop faith in the Lord Jesus Christ rather than merely cultivating faith as an abstract principle of power, we understand the meaning of the Savior’s words: “If ye will have faith in me ye shall have power to do whatsoever thing is expedient in me” ([[Moroni 7.33|Moro. 7:33]]).
 
-Similarly, the Savior taught the Nephites that they must always pray to the Father in his name, adding: “And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you” ([[3 Nephi 18.20|3 Ne. 18:20]]).
+Similarly, the Savior taught the Nephites that they must always pray to the Father in his name, adding: “And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you” ([[3 Nephi 18.20|3 Ne. 18:20]]).
 
-Here the Savior reminds us that faith, no matter how strong it is, cannot produce a result contrary to the will of him whose power it is. The exercise of faith in the Lord Jesus Christ is always subject to the order of heaven, to the goodness and will and wisdom and timing of the Lord. That is why we cannot have true faith in the Lord without also having complete trust in the Lord’s will and in the Lord’s timing. When we have that kind of faith and trust in the Lord, we have true security in our lives. President Spencer W. Kimball said, “Security is not born of inexhaustible wealth but of unquenchable faith” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, pp. 72–73).
+Here the Savior reminds us that faith, no matter how strong it is, cannot produce a result contrary to the will of him whose power it is. The exercise of faith in the Lord Jesus Christ is always subject to the order of heaven, to the goodness and will and wisdom and timing of the Lord. That is why we cannot have true faith in the Lord without also having complete trust in the Lord’s will and in the Lord’s timing. When we have that kind of faith and trust in the Lord, we have true security in our lives. President Spencer W. Kimball said, “Security is not born of inexhaustible wealth but of unquenchable faith” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, pp. 72–73).
 
 I read of a young woman who exercised that kind of faith and trust. For many months her mother had been seriously ill. Finally, the faithful father called the children to her bedside and told them to say good-bye to their mother because she was dying. The twelve-year-old daughter protested:
 
@@ -60,9 +60,9 @@ I read of a young woman who exercised that kind of faith and trust. For many mon
 
 The father, who was Elder Heber J. Grant, told the children that he felt in his heart that their mother’s time had arrived. The children left, and he knelt by his wife’s bedside. Later he recalled his prayer: “I told the Lord I acknowledged his hand in life \[and\] in death. … But I told the Lord that I lacked the strength to have my wife die and to have it affect the faith of my little children.” He pleaded with the Lord to give his daughter “a knowledge that it was his mind and his will that her mamma should die.”
 
-Within an hour the mother died. When Elder Grant called the children back into her room and told them, his little six-year-old boy began to weep bitterly. The twelve-year-old sister took him in her arms and said: “Do not weep, Heber; since we went out of this room, the voice of the Lord from heaven has said to me, In the death of your mamma the will of the Lord shall be done” (Bryant S. Hinckley, *Heber J. Grant: Highlights in the Life of a Great Leader,* Salt Lake City: Deseret Book Co., 1951, pp. 243–44).
+Within an hour the mother died. When Elder Grant called the children back into her room and told them, his little six-year-old boy began to weep bitterly. The twelve-year-old sister took him in her arms and said: “Do not weep, Heber; since we went out of this room, the voice of the Lord from heaven has said to me, In the death of your mamma the will of the Lord shall be done” (Bryant S. Hinckley, *Heber J. Grant: Highlights in the Life of a Great Leader,* Salt Lake City: Deseret Book Co., 1951, pp. 243–44).
 
-When we have the kind of faith and trust exhibited by that young woman, we have the strength to sustain us in every important event in our lives. President Spencer W. Kimball said that we need what he called “reservoirs of faith” to stand firm and strong against all the temptations and adversities of life (Spencer W. Kimball, *Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, pp. 110–11).
+When we have the kind of faith and trust exhibited by that young woman, we have the strength to sustain us in every important event in our lives. President Spencer W. Kimball said that we need what he called “reservoirs of faith” to stand firm and strong against all the temptations and adversities of life (Spencer W. Kimball, *Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, pp. 110–11).
 
 My beloved young sisters, each of you needs to build a reservoir of faith so you can draw upon it when someone you love or respect betrays you, when some scientific discovery seems to cast doubt on a gospel principle, or when someone makes light of sacred things, such as the name of God or the sacred ceremonies of the temple. You need to draw on your reservoir of faith when you are weak or when someone else calls on you to strengthen them. You also need to draw on your reservoir of faith when some requirement of Church membership or service interferes with your personal preferences.
 
@@ -77,6 +77,4 @@ I testify that these things are true. I invoke the blessings of Almighty God upo
 
 
 
-
-
-#Atonement #Death #Faith #Jesus_Christ #Love #Plan_Of_Salvation #Prayer #Trust #Women
+#Atonement #Death #Faith #JesusChrist #Love #PlanOfSalvation #Prayer #Trust #Women

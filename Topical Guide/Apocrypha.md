@@ -1,4 +1,3 @@
 # Apocrypha
 
-
-*See* [BD Apocrypha](https://www.churchofjesuschrist.org/study/scriptures/bd/apocrypha?lang=eng)
+*See also* [[BD Apocrypha.md|BD Apocrypha]]

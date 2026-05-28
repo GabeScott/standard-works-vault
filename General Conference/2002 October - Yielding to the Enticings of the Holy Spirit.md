@@ -101,7 +101,7 @@ I declare my witness of these truths in the name of Jesus Christ, amen.
 
 [^9]: See Joseph Fielding Smith, *Answers to Gospel Questions,* comp. Joseph Fielding Smith Jr., 5 vols. (1957–66), 2:154; see also [[Acts 2.38|Acts 2:38]]; [[Acts 8.12|8:12–17]][[Acts 8.13|]][[Acts 8.14|]][[Acts 8.15|]][[Acts 8.16|]][[Acts 8.17|]]; [[Acts 19.1|19:1–6]][[Acts 19.2|]][[Acts 19.3|]][[Acts 19.4|]][[Acts 19.5|]][[Acts 19.6|]].
 
-[^10]: [[3 Nephi 19.9|3 Nephi 19:9]].
+[^10]: [[3 Nephi 19.9|3 Nephi 19:9]].
 
 [^11]: See [[Mosiah 3.19|Mosiah 3:19]]; [[Moroni 7.13|Moroni 7:13]].
 
@@ -113,10 +113,8 @@ I declare my witness of these truths in the name of Jesus Christ, amen.
 
 [^15]: [[Psalms 119.105|Psalm 119:105]]; see also *Answers to Gospel Questions,* 2:149–51.
 
-[^16]: [[3 Nephi 19.20|3 Nephi 19:20–21]][[3 Nephi 19.21|]].
+[^16]: [[3 Nephi 19.20|3 Nephi 19:20–21]][[3 Nephi 19.21|]].
 
-[^17]: See [[1 Corinthians 12.3|1 Corinthians 12:3]]; Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 243.
+[^17]: See [[1 Corinthians 12.3|1 Corinthians 12:3]]; Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 243.
 
-
-
-#Conscience #Holy_Ghost #Spirituality
+#Conscience #HolyGhost #Spirituality

@@ -1,15 +1,14 @@
 # Carry, Carried
 
-
-*See also* [[Bear, Bare, Born, Borne [verb].md|Bear [verb]]]
+*See also* [[Bear [verb].md|Bear [verb]]]
 
 he *carried* away all his cattle, [[Genesis 31.18|Genesis 31:18]].
 
-children of Israel ... shall *carry* up my bones from hence, [[Genesis 50.25|Genesis 50:25]] ([[Exodus 13.19|Exodus 13:19]]; [[2 Nephi 4.1|2 Nephi 4:1]]).
+children of Israel … shall *carry* up my bones from hence, [[Genesis 50.25|Genesis 50:25]] ([[Exodus 13.19|Exodus 13:19]]; [[2 Nephi 4.1|2 Nephi 4:1]]).
 
 Spirit of the Lord shall *carry* thee, [[1 Kings 18.12|1 Kings 18:12]].
 
-*carried* them captive to Assyria, [[2 Kings 15.29|2 Kings 15:29]] ([[2 Kings 17.6|2 Kings 17:6]], [[2 Kings 17.23|2 Kings 17:23]]).
+*carried* them captive to Assyria, [[2 Kings 15.29|2 Kings 15:29]] ([[2 Kings 17.6|2 Kings 17:6]]; [[2 Kings 17.23|2 Kings 17:23]]).
 
 shall be *carried* into Babylon, [[2 Kings 20.17|2 Kings 20:17]] ([[Isaiah 39.6|Isaiah 39:6]]).
 
@@ -23,9 +22,9 @@ None ought to *carry* the ark of God but the Levites, [[1 Chronicles 15.2|1 Chro
 
 had been *carried* away from Jerusalem, [[Esther 2.6|Esther 2:6]].
 
-he hath ... *carried* our sorrows, [[Isaiah 53.4|Isaiah 53:4]] ([[Mosiah 14.4|Mosiah 14:4]]).
+he hath … *carried* our sorrows, [[Isaiah 53.4|Isaiah 53:4]] ([[Mosiah 14.4|Mosiah 14:4]]).
 
-hand of the Lord ... *carried* me out in the spirit, [[Ezekiel 37.1|Ezekiel 37:1]].
+hand of the Lord … *carried* me out in the spirit, [[Ezekiel 37.1|Ezekiel 37:1]].
 
 suffer that any man should *carry* any vessel, [[Mark 11.16|Mark 11:16]].
 
@@ -33,7 +32,7 @@ bound Jesus, and *carried* him away, [[Mark 15.1|Mark 15:1]].
 
 *Carry* neither purse, nor scrip, [[Luke 10.4|Luke 10:4]].
 
-he was ... *carried* up into heaven, [[Luke 24.51|Luke 24:51]].
+he was … *carried* up into heaven, [[Luke 24.51|Luke 24:51]].
 
 it is not lawful for thee to *carry* thy bed, [[John 5.10|John 5:10]].
 

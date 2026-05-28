@@ -1,0 +1,7 @@
+# Prophet
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/bd/prophet?lang=eng)
+
+The work of a Hebrew prophet was to act as God’s messenger and make known God’s will. The message was usually prefaced with the words “Thus saith Jehovah.” He taught men about God’s character, showing the full meaning of His dealings with Israel in the past. It was therefore part of the prophetic office to preserve and edit the records of the nation’s history; and such historical books as Joshua, Judges, 1 and 2 Samuel, 1 and 2 Kings were known by the Jews as the former Prophets. It was also the prophet’s duty to denounce sin and foretell its punishment and to redress, so far as he could, both public and private wrongs. He was to be, above all, a preacher of righteousness. When the people had fallen away from a true faith in Jehovah, the prophets had to try to restore that faith and remove false views about the character of God and the nature of the divine requirement. In certain cases prophets predicted future events, such as the very important prophecies announcing the coming of Messiah’s kingdom; but as a rule a prophet was a *forthteller* rather than a *foreteller.* In a general sense a prophet is anyone who has a testimony of Jesus Christ by the Holy Ghost, as in [[Numbers 11.25|Num. 11:25–29]][[Numbers 11.26|]][[Numbers 11.27|]][[Numbers 11.28|]][[Numbers 11.29|]]; [[Revelation 19.10|Rev. 19:10]].
+
+

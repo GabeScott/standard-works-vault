@@ -1,7 +1,6 @@
 # Manna
 
-
-*See also* [BD Manna](https://www.churchofjesuschrist.org/study/scriptures/bd/manna?lang=eng)
+*See also* [[BD Manna.md|BD Manna]]
 
 It is *manna*: for they wist not what it was, [[Exodus 16.15|Exodus 16:15]].
 
@@ -11,7 +10,7 @@ children of Israel did eat *manna* forty years, [[Exodus 16.35|Exodus 16:35]].
 
 suffered thee to hunger, and fed thee with *manna*, [[Deuteronomy 8.3|Deuteronomy 8:3]].
 
-fed thee ... with *manna*, which thy fathers knew not, [[Deuteronomy 8.16|Deuteronomy 8:16]].
+fed thee … with *manna*, which thy fathers knew not, [[Deuteronomy 8.16|Deuteronomy 8:16]].
 
 *manna* ceased on the morrow, [[Joshua 5.12|Joshua 5:12]].
 

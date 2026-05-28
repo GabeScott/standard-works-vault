@@ -21,6 +21,4 @@ We are grateful for the continuing strength and vitality of President Ezra Taft 
 
 
 
-
-
-#General_Conference
+#GeneralConference

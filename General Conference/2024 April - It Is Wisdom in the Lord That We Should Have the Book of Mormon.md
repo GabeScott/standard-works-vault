@@ -1,6 +1,6 @@
 # It Is Wisdom in the Lord That We Should Have the Book of Mormon
 
-By President Mark L. Pace - *Sunday School General President*
+By President Mark L. Pace - *Sunday School General President*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -22,7 +22,7 @@ So, what’s different about this dispensation? What has the Lord provided us to
 
 One answer that comes to my mind is the scriptures—and particularly the Book of Mormon: Another Testament of Jesus Christ.
 
-While God has promised there will never be another *general* apostasy, we need to be mindful and careful to avoid a *personal* apostasy—remembering, as President Russell M. Nelson has taught, “We are each responsible for our individual spiritual growth.”[^8] Studying the Book of Mormon, as we are doing this year, always brings us closer to the Savior—and helps us stay close to Him.
+While God has promised there will never be another *general* apostasy, we need to be mindful and careful to avoid a *personal* apostasy—remembering, as President Russell M. Nelson has taught, “We are each responsible for our individual spiritual growth.”[^8] Studying the Book of Mormon, as we are doing this year, always brings us closer to the Savior—and helps us stay close to Him.
 
 We call it “study,” and that’s good because it implies effort. But we don’t always need to learn some new fact. Sometimes reading the Book of Mormon is just about feeling connected to God today—nourishing the soul, being strengthened spiritually before heading out to face the world, or finding healing *after* a rough day out in the world.
 
@@ -34,7 +34,7 @@ These are good questions for our scripture study at home. They are also excellen
 
 Here are a few verses the Spirit has impressed upon my mind from this week’s Book of Mormon study:
 
-- Nephi instructed Jacob to “preserve these plates and hand them down … from generation to generation. And if there were preaching which was sacred, or revelation … , or prophesying,” Jacob should “engraven … them upon these plates … for the sake of \[their\] people.”[^11]
+- Nephi instructed Jacob to “preserve these plates and hand them down … from generation to generation. And if there were preaching which was sacred, or revelation … , or prophesying,” Jacob should “engraven … them upon these plates … for the sake of \[their\] people.”[^11]
 
 - Jacob later testified, “We search the \[scriptures\], … and having all these witnesses we obtain a hope, and our faith becometh unshaken.”[^12]
 
@@ -52,7 +52,7 @@ In Lehi’s vision of the tree of life, Lehi taught us the importance of persona
 
 “They stood as if they knew not whither they should go.
 
-“… I beckoned unto them,” Lehi said, “and I also did say unto them with a *loud voice* that they should come unto me, and partake of the fruit, which was desirable above all other fruit.
+“… I beckoned unto them,” Lehi said, “and I also did say unto them with a *loud voice* that they should come unto me, and partake of the fruit, which was desirable above all other fruit.
 
 “And … they did come unto me and partake of the fruit.”[^15]
 
@@ -78,34 +78,34 @@ This experience reading the Book of Mormon as a boy started a pattern of scriptu
 
 Nephi said it right. It was wisdom in the Lord that we should carry the scriptures with us throughout our lives. The Book of Mormon is the “keystone” that makes this dispensation different from all previous dispensations. As we study the Book of Mormon and follow the living prophet, there will be no personal apostasy in our lives.[^18]
 
-The invitation to come to the tree of life by holding fast to the word of God is not just an invitation from Lehi to his family, and it is not just an invitation from my mother for me to read and pray about the Book of Mormon. It is also an invitation from our prophet, President Russell M. Nelson, to each one of us.
+The invitation to come to the tree of life by holding fast to the word of God is not just an invitation from Lehi to his family, and it is not just an invitation from my mother for me to read and pray about the Book of Mormon. It is also an invitation from our prophet, President Russell M. Nelson, to each one of us.
 
 “I promise,” he said, “that as you prayerfully study the Book of Mormon *every day*, you will make better decisions—*every day*. I promise that as you ponder what you study, the windows of heaven will open, and you will receive answers to your own questions and direction for your own life.”[^19]
 
 It is my prayer that reading the Book of Mormon this year will be a joy and a blessing for each of us and will draw us ever nearer to the Savior.
 
-Heavenly Father lives. Jesus Christ is our Savior and Redeemer. The Book of Mormon contains His words and conveys His love. President Russell M. Nelson is the Lord’s living prophet on the earth today. I know these things to be true because of the confirming witness of the Holy Ghost, which witness I first received while reading the Book of Mormon as a boy. In the name of Jesus Christ, amen.
+Heavenly Father lives. Jesus Christ is our Savior and Redeemer. The Book of Mormon contains His words and conveys His love. President Russell M. Nelson is the Lord’s living prophet on the earth today. I know these things to be true because of the confirming witness of the Holy Ghost, which witness I first received while reading the Book of Mormon as a boy. In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-[^2]: “The new home-centered, Church-supported integrated curriculum has the potential to unleash the power of families, as each family follows through conscientiously and carefully to transform their home into a sanctuary of faith. I promise that as you diligently work to remodel your home into a center of gospel learning, over time *your* Sabbath days will truly be a delight. *Your* children will be excited to learn and to live the Savior’s teachings, and the influence of the adversary in *your* life and in *your* home will decrease. Changes in your family will be dramatic and sustaining” (Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 113).
+[^2]: “The new home-centered, Church-supported integrated curriculum has the potential to unleash the power of families, as each family follows through conscientiously and carefully to transform their home into a sanctuary of faith. I promise that as you diligently work to remodel your home into a center of gospel learning, over time *your* Sabbath days will truly be a delight. *Your* children will be excited to learn and to live the Savior’s teachings, and the influence of the adversary in *your* life and in *your* home will decrease. Changes in your family will be dramatic and sustaining” (Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 113).
 
 [^3]: “Verily, verily, I say unto you, I will impart unto you of my Spirit, which shall enlighten your mind, which shall fill your soul with joy” ([[D&C 11.13|Doctrine and Covenants 11:13]]).
 
-[^4]: “Dispensations are time periods in which the Lord has at least one authorized servant on the earth who bears the holy priesthood and the keys, and who has a divine commission to dispense the gospel to the inhabitants of the earth” (Topics and Questions, “[Dispensations](https://churchofjesuschrist.org/study/manual/gospel-topics/dispensations?lang=eng&id=intro1#intro1),” Gospel Library).
+[^4]: “Dispensations are time periods in which the Lord has at least one authorized servant on the earth who bears the holy priesthood and the keys, and who has a divine commission to dispense the gospel to the inhabitants of the earth” (Topics and Questions, “[Dispensations](https://www.churchofjesuschrist.org/study/manual/gospel-topics/dispensations?lang=eng&id=intro1#intro1),” Gospel Library).
 
 [^5]: See [[Moses 5.12|Moses 5:12–16]][[Moses 5.13|]][[Moses 5.14|]][[Moses 5.15|]][[Moses 5.16|]].
 
 [^6]: The prophet Daniel saw our day, our dispensation, when he interpreted Nebuchadnezzar’s dream. The Church of Jesus Christ of Latter-day Saints is the stone in that dream, cut out of the mountain without hands, rolling forward to fill the whole earth (see [[Daniel 2.34|Daniel 2:34–35]][[Daniel 2.35|]], [[Daniel 2.44|44–45]][[Daniel 2.45|]]; [[D&C 65.2|Doctrine and Covenants 65:2]]).
 
-[^7]: “God the Father and Jesus Christ called upon the Prophet Joseph Smith to be the prophet of this dispensation. All divine powers of previous dispensations were to be restored through him. This dispensation of the fulness of times would not be limited in time or in location. It would not end in apostasy, and it would fill the world” (Russell M. Nelson, “[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona*, Nov. 2006, 79–80).
+[^7]: “God the Father and Jesus Christ called upon the Prophet Joseph Smith to be the prophet of this dispensation. All divine powers of previous dispensations were to be restored through him. This dispensation of the fulness of times would not be limited in time or in location. It would not end in apostasy, and it would fill the world” (Russell M. Nelson, “[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona*, Nov. 2006, 79–80).
 
-[^8]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 8.
+[^8]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 8.
 
-[^9]: See “[Conversion Is Our Goal](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-book-of-mormon-2024/001-conversion?lang=eng&id=p3#p3),” *Come Follow Me—For Home and Church: Book of Mormon 2024*, v.
+[^9]: See “[Conversion Is Our Goal](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-book-of-mormon-2024/001-conversion?lang=eng&id=p3#p3),” *Come Follow Me—For Home and Church: Book of Mormon 2024*, v.
 
 [^10]: [[D&C 50.22|Doctrine and Covenants 50:22]]; see also [[D&C 50.17|verses 17–21]][[D&C 50.18|]][[D&C 50.19|]][[D&C 50.20|]][[D&C 50.21|]].
 
@@ -113,20 +113,18 @@ Heavenly Father lives. Jesus Christ is our Savior and Redeemer. The Book of Morm
 
 [^12]: [[Jacob 4.6|Jacob 4:6]].
 
-[^13]: [[1 Nephi 5.21|1 Nephi 5:21–22]][[1 Nephi 5.22|]].
+[^13]: [[1 Nephi 5.21|1 Nephi 5:21–22]][[1 Nephi 5.22|]].
 
-[^14]: It was recently announced that 200 million copies of the Book of Mormon have been distributed in this dispensation. That is truly remarkable. The Book of Mormon has now been translated into 113 languages, with 17 new translations in process. What a blessing to have the Book of Mormon in print, digital, audio, video, and other formats. (See Ryan Jensen, “[Church Distributes 200 Millionth Copy of the Book of Mormon](https://www.thechurchnews.com/leaders/2023/12/29/24012842/church-distributes-200-millionth-copy-of-the-book-of-mormon),” *Church News*, Dec. 29, 2023, thechurchnews.com.)
+[^14]: It was recently announced that 200 million copies of the Book of Mormon have been distributed in this dispensation. That is truly remarkable. The Book of Mormon has now been translated into 113 languages, with 17 new translations in process. What a blessing to have the Book of Mormon in print, digital, audio, video, and other formats. (See Ryan Jensen, “[Church Distributes 200 Millionth Copy of the Book of Mormon](https://www.thechurchnews.com/leaders/2023/12/29/24012842/church-distributes-200-millionth-copy-of-the-book-of-mormon),” *Church News*, Dec. 29, 2023, thechurchnews.com.)
 
-[^15]: [[1 Nephi 8.14|1 Nephi 8:14–16]][[1 Nephi 8.15|]][[1 Nephi 8.16|]]; emphasis added.
+[^15]: [[1 Nephi 8.14|1 Nephi 8:14–16]][[1 Nephi 8.15|]][[1 Nephi 8.16|]]; emphasis added.
 
-[^16]: “The most powerful spiritual influence in the life of a child is the righteous example of loving parents and grandparents who faithfully keep their own sacred covenants. Intentional parents teach their children faith in the Lord Jesus Christ so that they too ‘may know to what source they may look for a remission of their sins’ \[[[2 Nephi 25.26|2 Nephi 25:26]]\]. Casual and inconsistent covenant keeping leads to spiritual casualty. The spiritual damage is often greatest on our children and grandchildren” (Kevin W. Pearson, “[[2022 October - Are You Still Willing.md|Are You Still Willing?]],” *Liahona*, Nov. 2022, 69).
+[^16]: “The most powerful spiritual influence in the life of a child is the righteous example of loving parents and grandparents who faithfully keep their own sacred covenants. Intentional parents teach their children faith in the Lord Jesus Christ so that they too ‘may know to what source they may look for a remission of their sins’ \[[[2 Nephi 25.26|2 Nephi 25:26]]\]. Casual and inconsistent covenant keeping leads to spiritual casualty. The spiritual damage is often greatest on our children and grandchildren” (Kevin W. Pearson, “[[2022 October - Are You Still Willing.md|Are You Still Willing?]],” *Liahona*, Nov. 2022, 69).
 
 [^17]: See [[D&C 6.22|Doctrine and Covenants 6:22–24]][[D&C 6.23|]][[D&C 6.24|]].
 
-[^18]: The Prophet Joseph Smith said, “I told the brethren that the Book of Mormon was the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book” (in the [introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)).
+[^18]: The Prophet Joseph Smith said, “I told the brethren that the Book of Mormon was the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book” (in the [introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)).
 
-[^19]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]],” *Ensign* or *Liahona*, Nov. 2017, 62–63.
+[^19]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]],” *Ensign* or *Liahona*, Nov. 2017, 62–63.
 
-
-
-#Apostasy #Book_Of_Mormon #Holy_Ghost #Scripture_Study #Scriptures #Testimony
+#Apostasy #BookOfMormon #HolyGhost #ScriptureStudy #Scriptures #Testimony

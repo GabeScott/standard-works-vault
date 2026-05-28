@@ -18,7 +18,7 @@ The first essential lesson is to develop a sense of respect for things that are 
 
 The Lord taught Moses about sacred things and places. When Moses approached the burning bush that was not consumed by fire, the Lord commanded, “Draw not nigh hither: put off thy shoes from off thy feet, for the place whereon thou standest is holy ground” ([[Exodus 3.5|Ex. 3:5]]). We, too, have the opportunity to stand in holy places. Temples, Church buildings, and your home should command your respect because they are sacred.
 
-You will need to recognize and value all that the Lord has revealed as being sacred. One of the most significant is the sacred nature of your own body. The Apostle Paul spoke of our bodies as temples given to us from God (see [[1 Corinthians 6.19|1 Cor. 6:19]]). What a tragedy if you deprived yourself of life’s opportunities by willfully disfiguring your body or numbing your mind with drugs. Don’t use your body for immoral acts. Clothe it modestly, and leave the sloppy dress craze behind. When you have the courage to dress modestly and avoid fads in clothing, you will find that self-respect is a companion of obedience and that the Lord will help you.
+You will need to recognize and value all that the Lord has revealed as being sacred. One of the most significant is the sacred nature of your own body. The Apostle Paul spoke of our bodies as temples given to us from God (see [[1 Corinthians 6.19|1 Cor. 6:19]]). What a tragedy if you deprived yourself of life’s opportunities by willfully disfiguring your body or numbing your mind with drugs. Don’t use your body for immoral acts. Clothe it modestly, and leave the sloppy dress craze behind. When you have the courage to dress modestly and avoid fads in clothing, you will find that self-respect is a companion of obedience and that the Lord will help you.
 
 How we act and dress reflects how we regard where we are and who we are. Let me demonstrate. One of the natural occurrences in missionary work is the change in new converts, especially little boys, young men, and fathers. When they go to Church meetings, they want to look like the missionaries. Now, that tells us a lot about the importance of looking like a member of The Church of Jesus Christ of Latter-day Saints.
 
@@ -28,7 +28,7 @@ I urge you young people to develop the habit of always showing respect, courtesy
 
 The second essential lesson is to learn the commandments and obey them because you choose to. Before you can obey the commandments, you must know what they are. You *learn* the commandments by being instructed. That is why family home evening, Sunday classes, and seminary are so important. You *know* the commandments by the Spirit through prayer, your own personal study, and your own personal revelation.
 
-You need to keep your minds clean so you can recognize and respond to the quiet whisperings of the Spirit. Select with care the information you allow to enter your mind. Avoid the cluttered clamor of the world. Television, movies, and especially the Internet can provide an open window through which you can peer into the far reaches of the world. They can bring to you information that is uplifting, good, and inspiring. But if used improperly, these media technologies can fill your mind with such unwholesome thoughts that you will be unable to hear the gentle prompting of the Spirit. Live each day so that you are able to be in tune with the Spirit like the boy prophet Samuel and you are able to respond to the Lord and say, “Speak \[Lord\]; for thy servant heareth” ([[1 Samuel 3.10|1 Sam. 3:10]]).
+You need to keep your minds clean so you can recognize and respond to the quiet whisperings of the Spirit. Select with care the information you allow to enter your mind. Avoid the cluttered clamor of the world. Television, movies, and especially the Internet can provide an open window through which you can peer into the far reaches of the world. They can bring to you information that is uplifting, good, and inspiring. But if used improperly, these media technologies can fill your mind with such unwholesome thoughts that you will be unable to hear the gentle prompting of the Spirit. Live each day so that you are able to be in tune with the Spirit like the boy prophet Samuel and you are able to respond to the Lord and say, “Speak \[Lord\]; for thy servant heareth” ([[1 Samuel 3.10|1 Sam. 3:10]]).
 
 A third essential lesson is to develop a love for the Savior. *Knowing about* the Savior is a natural part of our religious education. *Knowing* the Savior requires personal obedience, prayer, a closeness to the Spirit, and revelation.
 
@@ -43,6 +43,4 @@ I pray that you young people will develop a reverence for sacred things, a respe
 
 
 
-
-
-#Children #Commandments #Holy_Ghost #Home #Jesus_Christ #Morality #Prophets #Respect #Responsibility #Reverence #Teaching #Temples #Youth
+#Children #Commandments #HolyGhost #Home #JesusChrist #Morality #Prophets #Respect #Responsibility #Reverence #Teaching #Temples #Youth

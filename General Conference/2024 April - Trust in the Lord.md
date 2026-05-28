@@ -1,6 +1,6 @@
 # Trust in the Lord
 
-By Elder Paul B. Pieper - *Of the Seventy*
+By Elder Paul B. Pieper - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -20,13 +20,13 @@ For His part, Heavenly Father has worked from the beginning to communicate His a
 
 Knowing that we would not always make good choices, He also prepared a way for us to escape from the consequences of bad choices. He provided us a Savior—His Son, Jesus Christ—to atone for our sins and make us clean again on condition of repentance.[^5] He invites us to use the precious gift of repentance regularly.[^6]
 
-Every parent knows how difficult it is to trust a child enough to let them make their own decisions, especially when the parent knows the child is likely to make mistakes and suffer as a result. Yet Heavenly Father allows us to make the choices that will help us reach our divine potential! As Elder Dale G. Renlund taught, “\[His\] goal in parenting is not to have His children *do* what is right; it is to have His children *choose* to do what is right and ultimately become like Him.”[^7]
+Every parent knows how difficult it is to trust a child enough to let them make their own decisions, especially when the parent knows the child is likely to make mistakes and suffer as a result. Yet Heavenly Father allows us to make the choices that will help us reach our divine potential! As Elder Dale G. Renlund taught, “\[His\] goal in parenting is not to have His children *do* what is right; it is to have His children *choose* to do what is right and ultimately become like Him.”[^7]
 
 Notwithstanding God’s trust in us, our relationship with Him will grow only to the degree we are willing to place our trust in Him. The challenge is that we live in a fallen world and have all experienced a betrayal of trust as the result of dishonesty, manipulation, coercion, or other circumstances. Once betrayed, we may struggle to trust again. These negative trust experiences with imperfect mortals may even impact our willingness to trust in a perfect Heavenly Father.
 
 Several years ago, two friends of mine, Leonid and Valentina, expressed interest in becoming members of the Church. As Leonid began to learn the gospel, he found it difficult to pray. Earlier in his life, Leonid had suffered from manipulation and control by superiors and had developed a distrust of authority. These experiences affected his ability to open his heart and express personal feelings to Heavenly Father. With time and study, Leonid gained a better understanding of God’s character and experienced feeling God’s love. Eventually, prayer became a natural way for him to express thanks and the love he was feeling for God. His increasing trust in God eventually led him and Valentina to enter into sacred covenants to strengthen their relationship with God and each other.
 
-If prior loss of trust is keeping you from trusting God, please follow Leonid’s example. Patiently continue to learn more about Heavenly Father, His character, His attributes, and His purposes. Look for and record experiences feeling His love and power in your life. Our living prophet, President Russell M. Nelson, has taught that the more we learn about God, the easier it will be for us to trust Him.[^8]
+If prior loss of trust is keeping you from trusting God, please follow Leonid’s example. Patiently continue to learn more about Heavenly Father, His character, His attributes, and His purposes. Look for and record experiences feeling His love and power in your life. Our living prophet, President Russell M. Nelson, has taught that the more we learn about God, the easier it will be for us to trust Him.[^8]
 
 Sometimes the best way to learn to trust God is simply by trusting Him. Like “The Crazy Trust Exercise,” sometimes we just need to be willing to fall backward and let Him catch us. Our mortal life is a test. Challenges that stretch us beyond our own capacity come frequently. When our own knowledge and understanding are inadequate, we naturally look for resources to help us. In an information-saturated world, there is no shortage of sources promoting their solutions to our challenges. However, the simple, time-tested counsel in Proverbs provides the best advice: “Trust in the Lord with all thine heart.”[^9] We show our trust in God by turning to Him first when confronted with life’s challenges.
 
@@ -47,7 +47,7 @@ The good news is that regardless of the trust we may or may not have chosen to p
 
 
 
-[^1]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
+[^1]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
 
 [^2]: See [[D&C 88.63|Doctrine and Covenants 88:63]].
 
@@ -57,21 +57,22 @@ The good news is that regardless of the trust we may or may not have chosen to p
 
 [^5]: See [[Alma 34.15|Alma 34:15–17]][[Alma 34.16|]][[Alma 34.17|]].
 
-[^6]: “Nothing is more liberating, more ennobling, or more crucial to our individual progression than is a regular, daily focus on repentance. Repentance is not an event; it is a process” (Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67).
+[^6]: “Nothing is more liberating, more ennobling, or more crucial to our individual progression than is a regular, daily focus on repentance. Repentance is not an event; it is a process” (Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67).
 
-[^7]: Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona*, Nov. 2018, 104.
+[^7]: Dale G. Renlund, “[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona*, Nov. 2018, 104.
 
-[^8]: See Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
+[^8]: See Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
 
 [^9]: [[Proverbs 3.5|Proverbs 3:5]].
 
-[^10]: See [[1 Nephi 3.1|1 Nephi 3–4]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]].
+[^10]: See [[1 Nephi 3.1|1 Nephi 3–4]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]].
 
-[^11]: See [[1 Nephi 16.18|1 Nephi 16:18–31]][[1 Nephi 16.19|]][[1 Nephi 16.20|]][[1 Nephi 16.21|]][[1 Nephi 16.22|]][[1 Nephi 16.23|]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]].
+[^11]: See [[1 Nephi 16.18|1 Nephi 16:18–31]][[1 Nephi 16.19|]][[1 Nephi 16.20|]][[1 Nephi 16.21|]][[1 Nephi 16.22|]][[1 Nephi 16.23|]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]].
 
-[^12]: See [[1 Nephi 17.8|1 Nephi 17:8]].
+[^12]: See [[1 Nephi 17.8|1 Nephi 17:8]].
 
 [^13]: God’s personal invitations to each of us come through reading the scriptures, from living prophets, and by the whisperings of the Holy Ghost.
 
+[^14]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
-#Adversity #Agency #God_The_Father #Trust
+#Agency #Adversity #GodTheFather #Trust

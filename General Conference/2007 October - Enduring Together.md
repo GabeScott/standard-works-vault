@@ -14,7 +14,7 @@ He continues: “This kind of cheek-to-jowl living can be intrusive. … It also
 
 The author goes on to say: “At work on Tuesday, I caught the noon news broadcast on television. A van had been obliterated in a traffic crash. A young mother and two small children were being rushed to emergency rooms by helicopter and ambulance. … Hours later I learned that the van belonged to the young couple living across the street from me in Herriman, Eric and Jeana Quigley.
 
-“Not only do I see the Quigleys in church, … we ate dinner with them at a neighborhood party the night before the crash. Our grandkids played with daughters Bianca and Miranda. …
+“Not only do I see the Quigleys in church, … we ate dinner with them at a neighborhood party the night before the crash. Our grandkids played with daughters Bianca and Miranda. …
 
 “Fourteen-month-old Miranda suffered serious head injuries and died three days later at Primary Children’s Hospital.
 
@@ -59,6 +59,7 @@ From bearing one another’s burdens as ward members, we have learned several le
 I rejoice in belonging to such a loving and caring organization. No one knows better how to bear one another’s burdens, mourn with those who mourn, and comfort those who stand in need of comfort. I choose to call it “enduring together.” What happens to one happens to all. We endure together.
 
 May we be an instrument in lightening the burden of others, I pray in the name of Jesus Christ, amen.
+
 
 
 

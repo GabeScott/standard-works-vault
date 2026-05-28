@@ -1,6 +1,6 @@
 # Success Stories
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -83,8 +83,6 @@ Now as a special bonus, I would like to give you a thirty second witness of one 
 “That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” ([[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]].)
 
 And may the Lord bless us with a sufficient amount of his success that we might be lifted up to him in celestial glory. For this I sincerely pray in the name of Jesus Christ. Amen.
-
-
 
 
 

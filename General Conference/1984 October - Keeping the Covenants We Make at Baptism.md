@@ -75,15 +75,13 @@ We can all do what Christ asks us to do. He has a plan that will bring us happin
 >And in my home above.
 >
 
-In this song the ten- and eleven-year-old girls have told us we can be happy now and forever if we follow God’s plan, which begins with baptism. It is the gate to the celestial kingdom. (See [[2 Nephi 31.18|2 Ne. 31:18]].)
+In this song the ten- and eleven-year-old girls have told us we can be happy now and forever if we follow God’s plan, which begins with baptism. It is the gate to the celestial kingdom. (See [[2 Nephi 31.18|2 Ne. 31:18]].)
 
 As followers of Christ, we should “look forward with one eye, having one faith and one baptism, having … hearts knit together in unity and in love one towards another.” ([[Mosiah 18.21|Mosiah 18:21]].)
 
 Each of us who has been baptized has covenanted with the Lord to serve him and keep his commandments. Like Lisa, we must stand as a witness of God. Like Christina, we must comfort those in need. Like Jonathan, we must bear one another’s burdens. Like Ellen, we must repent.
 
 I pray that we will have unity and love as we strive together to keep the covenant we have made at baptism, in the name of Jesus Christ, amen.
-
-
 
 
 

@@ -1,7 +1,6 @@
 # Depart
 
-
-*See also* [[Go, Gone.md|Go]]; [[Leave, Left [verb].md|Leave]]
+*See also* [[Go.md|Go]]; [[Leave.md|Leave]]
 
 if thou *depart* to the right hand, [[Genesis 13.9|Genesis 13:9]].
 
@@ -57,4 +56,4 @@ mountains shall *depart*, [[3 Nephi 22.10|3 Nephi 22:10]].
 
 *Depart* hence, Satan, [[Moses 1.18|Moses 1:18]].
 
-say to the mountains— *Depart* hence, [[Abraham 2.7|Abraham 2:7]].
+say to the mountains—*Depart* hence, [[Abraham 2.7|Abraham 2:7]].

@@ -12,7 +12,7 @@ With Moroni of old, I believe in a God of miracles. Moroni wrote to the people o
 
 Think of the miracles of the Old Testament. Remember Moses and the parting of the Red Sea. For all future generations of Israelites, the great miracles that led to their deliverance from Egypt provided undeniable proof of God’s existence and His love for them.
 
-Many Book of Mormon prophets, including Nephi, pointed to the story of Moses to encourage faith and belief in a God who could deliver His people in their distress (see [[1 Nephi 4.1|1 Ne. 4:1–3]][[1 Nephi 4.2|]][[1 Nephi 4.3|]]). Other Book of Mormon prophets reminded the people that they themselves had witnessed miracles that should convince them of God’s power.
+Many Book of Mormon prophets, including Nephi, pointed to the story of Moses to encourage faith and belief in a God who could deliver His people in their distress (see [[1 Nephi 4.1|1 Ne. 4:1–3]][[1 Nephi 4.2|]][[1 Nephi 4.3|]]). Other Book of Mormon prophets reminded the people that they themselves had witnessed miracles that should convince them of God’s power.
 
 In the New Testament, the Apostle John shared his reason for recording many of the Savior’s miracles—namely, “that \[we\] might believe that Jesus is the Christ” ([[John 20.31|John 20:31]]).
 
@@ -44,13 +44,11 @@ She did make it home for Christmas, and both babies are currently doing just fin
 
 Now, we know, as you do, that all petitions to the Lord and all fasts do not receive this same hoped-for answer. Our extended family also has faced the death of loved ones, serious illness, the trial of divorce, and children who are choosing another path. We do not always understand the reasons behind the tests that come with mortality. But our faith has grown, and perhaps yours has too, as we have watched loved ones, friends, and people we know only by reputation endure with faith in the Lord the most severe trials. They, too, know the God of miracles and witness in their extremity that whatever the future holds for them, the Lord knows them and loves them and is blessing them. They are sealed to Him and to each other forever, and they are willing to submit their wills to His.
 
-How have they come to such a point? How do we access the quiet miracle that the Lord works as He transforms us, His children, into worthy heirs of the kingdom of God? I believe it is made possible because “God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life” ([[John 3.16|John 3:16]]). I believe it comes as we yield to the enticings of the Spirit, put off the natural man, and are filled with the love of God (see [[Mosiah 3.19|Mosiah 3:19]]). “Through the Atonement of \[Jesus\] Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.3|A of F 1:3]]). All mankind—that includes me, that includes you—we can each have part in the Atonement, the greatest of all God’s miracles.
+How have they come to such a point? How do we access the quiet miracle that the Lord works as He transforms us, His children, into worthy heirs of the kingdom of God? I believe it is made possible because “God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life” ([[John 3.16|John 3:16]]). I believe it comes as we yield to the enticings of the Spirit, put off the natural man, and are filled with the love of God (see [[Mosiah 3.19|Mosiah 3:19]]). “Through the Atonement of \[Jesus\] Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.3|A of F 1:3]]). All mankind—that includes me, that includes you—we can each have part in the Atonement, the greatest of all God’s miracles.
 
 God did part the Red Sea, and He did give us the Book of Mormon. He can heal us of our sins, and He can and will bless us, His children, in our daily lives. I know that He lives and loves us and is today a God of miracles, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Adversity #Book_Of_Mormon #God_The_Father #Jesus_Christ #Miracles #Restoration #Scriptures
+#Adversity #BookOfMormon #GodTheFather #JesusChrist #Miracles #Restoration #Scriptures

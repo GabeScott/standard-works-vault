@@ -1,7 +1,6 @@
 # Lucifer
 
-
-*See also* [[Devil.md|Devil]]; [[Satan.md|Satan]]; [BD Lucifer](https://www.churchofjesuschrist.org/study/scriptures/bd/lucifer?lang=eng)
+*See also* [[Devil.md|Devil]]; [[Satan.md|Satan]]; [[BD Lucifer.md|BD Lucifer]]
 
 How art thou fallen from heaven, O *Lucifer*, [[Isaiah 14.12|Isaiah 14:12]] ([[2 Nephi 24.12|2 Nephi 24:12]]).
 

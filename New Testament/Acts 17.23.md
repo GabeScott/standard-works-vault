@@ -5,7 +5,7 @@
 [Acts 17:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.23?lang=eng#p23)
 
 
-[^a]: GR sacred, venerated objects.
-[^b]: [[D&C 93.19|D&C 93:19]]. [[God, Knowledge about|TG God, Knowledge about]].
-[^c]: [[Ignorance, Ignorant|TG Ignorance]].
-[^d]: [[Preaching, Preach|TG Preaching]].
+[^a]: GR sacred, venerated objects.  
+[^b]: [[D&C 93.19|D&C 93:19]]. [[God, Knowledge about|TG God, Knowledge about]].  
+[^c]: [[Ignorance, Ignorant|TG Ignorance]].  
+[^d]: [[Preaching, Preach|TG Preaching]].  

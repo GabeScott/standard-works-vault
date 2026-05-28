@@ -1,7 +1,6 @@
 # Fellowship
 
-
-*See also* [[Fellowshipping.md|Fellowshipping]]; [[Friendship, Friend.md|Friendship]]
+*See also* [[Fellowshipping.md|Fellowshipping]]; [[Friendship.md|Friendship]]
 
 I would not that ye should have *fellowship* with devils, [[1 Corinthians 10.20|1 Corinthians 10:20]].
 
@@ -11,4 +10,4 @@ what *fellowship* hath righteousness with unrighteousness, [[2 Corinthians 6.14|
 
 no *fellowship* with the unfruitful works of darkness, [[Ephesians 5.11|Ephesians 5:11]].
 
-I may know him ... and the *fellowship* of his sufferings, [[Philippians 3.10|Philippians 3:10]].
+I may know him … and the *fellowship* of his sufferings, [[Philippians 3.10|Philippians 3:10]].

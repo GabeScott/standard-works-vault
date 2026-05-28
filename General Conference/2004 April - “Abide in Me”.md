@@ -51,7 +51,8 @@ Jesus said, “Without me ye can do nothing.”[^6] I testify that that is God�
 
 [^4]: Marion D. Hanks quoting Harry Emerson Fosdick, *Living under Tension* (1941), 111.
 
-[^5]: [[2 Nephi 31.18|2 Nephi 31:18–20]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
+[^5]: [[2 Nephi 31.18|2 Nephi 31:18–20]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
 
+[^6]: [[John 15.5|John 15:5]].
 
-#Activation #Conversion #Couple_Missionaries #Endurance #Missionary_Work #Sacrifice
+#Activation #Conversion #CoupleMissionaries #Endurance #MissionaryWork #Sacrifice

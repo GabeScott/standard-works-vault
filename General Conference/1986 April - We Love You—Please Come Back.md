@@ -34,7 +34,7 @@ You will learn that sincere, repeated prayer, study, and meditation bring a full
 
 “Behold, I have come … to bring redemption unto the world, to save the world from sin.
 
-“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. … Therefore repent, and come unto me … and be saved.” ([[3 Nephi 9.21|3 Ne. 9:21–22]][[3 Nephi 9.22|]].)
+“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. … Therefore repent, and come unto me … and be saved.” ([[3 Nephi 9.21|3 Ne. 9:21–22]][[3 Nephi 9.22|]].)
 
 As you ponder such teachings, your own forgiveness will seem more attainable. As you pray from the depth of humility, with total honesty, our Father will hear you and the easing of the burden will begin.
 
@@ -64,7 +64,7 @@ Aaron, his brother, cautioned:
 
 Ammon replied:
 
-“I do not boast in my own strength, nor in my own wisdom; but behold, … my heart is brim with joy, and I will rejoice in my God. …
+“I do not boast in my own strength, nor in my own wisdom; but behold, … my heart is brim with joy, and I will rejoice in my God. …
 
 “Who could have supposed that our God would have been so merciful as to have snatched us from our awful, sinful, and polluted state?
 
@@ -81,6 +81,7 @@ The first friend is the Book of Mormon itself. It will make you feel good and st
 You will also discover the greatest friend of all, Jesus the Christ, our Savior and Redeemer, full of perfect love and boundless compassion, with the power to forgive and forget. It is difficult for me to speak of Him, for I love Him so deeply. May the Spirit bear witness of that love and somehow touch your heart that you may find the courage to take those steps that will bring you peace and tranquility, that will restore your feelings of self-worth and place you on the path to happiness.
 
 We love you; we need you. Please come back. Don’t wait until all is in perfect order. We’ll walk beside you. We love you. Please come back. In the name of Jesus Christ, amen.
+
 
 
 

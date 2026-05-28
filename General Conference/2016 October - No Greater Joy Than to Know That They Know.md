@@ -1,6 +1,6 @@
 # No Greater Joy Than to Know That They Know
 
-By Elder K. Brett Nattress - *Of the Seventy*
+By Elder K. Brett Nattress - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -22,7 +22,7 @@ As further evidence to help you understand the challenge my parents faced in rai
 
 Finally, one morning, I decided to square up with my mother. I exclaimed, “Mom, why are you doing this to us? Why are you reading the Book of Mormon every morning?” I then made a statement that I am embarrassed to admit to. In fact, I can’t believe I actually said it. I told her, “Mom, I am *not* listening!”
 
-Her loving response was a defining moment in my life. She said, “Son, I was at a meeting where President Marion G. Romney taught about the blessings of scripture reading. During this meeting, I received a promise that if I would read the Book of Mormon to my children every day, I would not lose them.” She then looked me straight in the eyes and, with absolute determination, said, *“And I will not lose you!”*
+Her loving response was a defining moment in my life. She said, “Son, I was at a meeting where President Marion G. Romney taught about the blessings of scripture reading. During this meeting, I received a promise that if I would read the Book of Mormon to my children every day, I would not lose them.” She then looked me straight in the eyes and, with absolute determination, said, *“And I will not lose you!”*
 
 Her words pierced my heart. Notwithstanding my imperfections, I was worth saving! She taught me the eternal truth that I am a son of a loving Heavenly Father. I learned that no matter what the circumstance, I was worth it. This was a perfect moment for an imperfect little boy.
 
@@ -34,15 +34,15 @@ I am grateful for angels throughout the Church who boldly and lovingly proclaim 
 
 I am grateful for the gift of the Book of Mormon. I know that it is true! It contains the fulness of the gospel of Jesus Christ. I am unaware of anyone who is diligently reading the Book of Mormon each day with pure intent and with faith in Christ who has lost their testimony and fallen away. Moroni’s prophetic promise carries with it the key to know the truth of all things—including having the ability to discern and avoid the deceptions of the adversary. (See [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].)
 
-I am also grateful for a loving Heavenly Father and for His Son, Jesus Christ. The Savior provided the perfect example of how to live in an imperfect and unfair world. “We love him, because he first loved us” ([[1 John 4.19|1 John 4:19]]). His love for us is immeasurable. He is our truest friend. He sweat “as it were great drops of blood” for you and also for me ([[Luke 22.44|Luke 22:44]]). He forgave the seemingly unforgivable. He loved the unlovable. He did what no mortal could do: He provided an Atonement to overcome the transgressions, pains, and sicknesses of all mankind.
+I am also grateful for a loving Heavenly Father and for His Son, Jesus Christ. The Savior provided the perfect example of how to live in an imperfect and unfair world. “We love him, because he first loved us” ([[1 John 4.19|1 John 4:19]]). His love for us is immeasurable. He is our truest friend. He sweat “as it were great drops of blood” for you and also for me ([[Luke 22.44|Luke 22:44]]). He forgave the seemingly unforgivable. He loved the unlovable. He did what no mortal could do: He provided an Atonement to overcome the transgressions, pains, and sicknesses of all mankind.
 
-Because of the Atonement of Jesus Christ, we can live with the promise that no matter what our struggles may be, we can always have hope in Him, “who is mighty to save” ([[2 Nephi 31.19|2 Nephi 31:19]]). Because of His Atonement, we can have joy, peace, happiness, and eternal life.
+Because of the Atonement of Jesus Christ, we can live with the promise that no matter what our struggles may be, we can always have hope in Him, “who is mighty to save” ([[2 Nephi 31.19|2 Nephi 31:19]]). Because of His Atonement, we can have joy, peace, happiness, and eternal life.
 
-President Boyd K. Packer stated: “Save for the exception of the very few who defect to perdition, there is no habit, no addiction, no rebellion, no transgression, no apostasy, no crime exempted from the promise of complete forgiveness. That is the promise of the atonement of Christ.”[^2]
+President Boyd K. Packer stated: “Save for the exception of the very few who defect to perdition, there is no habit, no addiction, no rebellion, no transgression, no apostasy, no crime exempted from the promise of complete forgiveness. That is the promise of the atonement of Christ.”[^2]
 
-One of the most incredible events in human history is the Savior’s ministering visit to the ancient inhabitants of America. Visualize in your mind what it would be like to have been there. As I have pondered His loving and tender care of that band of Saints gathered at the temple, I have reflected on individual children whom I love more than life itself. I have tried to conceive of how I would feel to behold our little ones, to personally witness the Savior inviting each child to come unto Him, to witness the Savior’s outstretched arms, to stand by as each child, one by one, gently feels the prints in His hands and in His feet, and then to see each of them stand and bear record that He lives! (See [[3 Nephi 11.14|3 Nephi 11:14–17]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]]; see also [[3 Nephi 17.21|17:21]]; [[3 Nephi 18.25|18:25]].) To have our children turn and say, “Mom, Dad, it’s Him!”
+One of the most incredible events in human history is the Savior’s ministering visit to the ancient inhabitants of America. Visualize in your mind what it would be like to have been there. As I have pondered His loving and tender care of that band of Saints gathered at the temple, I have reflected on individual children whom I love more than life itself. I have tried to conceive of how I would feel to behold our little ones, to personally witness the Savior inviting each child to come unto Him, to witness the Savior’s outstretched arms, to stand by as each child, one by one, gently feels the prints in His hands and in His feet, and then to see each of them stand and bear record that He lives! (See [[3 Nephi 11.14|3 Nephi 11:14–17]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]]; see also [[3 Nephi 17.21|17:21]]; [[3 Nephi 18.25|18:25]].) To have our children turn and say, “Mom, Dad, it’s Him!”
 
-I don’t know if anything in this world could bring more happiness and joy than to know that our children know the Savior, to know that they know “to what source they may look for a remission of their sins.” That is why, as members of the Church, “we preach of Christ” and we testify of Christ ([[2 Nephi 25.26|2 Nephi 25:26]]).
+I don’t know if anything in this world could bring more happiness and joy than to know that our children know the Savior, to know that they know “to what source they may look for a remission of their sins.” That is why, as members of the Church, “we preach of Christ” and we testify of Christ ([[2 Nephi 25.26|2 Nephi 25:26]]).
 
 - That is why we pray with our children every day.
 
@@ -65,10 +65,8 @@ It is my prayer that we will devote our hearts and our hands to helping all of H
 
 
 
-[^1]: “Message of the First Presidency,” in Conference Report, Oct. 1942, 12–13; read by President J. Reuben Clark Jr.
+[^1]: “Message of the First Presidency,” in Conference Report, Oct. 1942, 12–13; read by President J. Reuben Clark Jr.
 
 [^2]: Boyd K. Packer, “[[1995 October - The Brilliant Morning of Forgiveness.md|The Brilliant Morning of Forgiveness]],” *Ensign,* Nov. 1995, 20.
 
-
-
-#Atonement #Book_Of_Mormon #Divine_Nature #Family #Jesus_Christ #Motherhood #Parenthood #Scripture_Study
+#Atonement #BookOfMormon #DivineNature #Family #JesusChrist #Motherhood #Parenthood #ScriptureStudy

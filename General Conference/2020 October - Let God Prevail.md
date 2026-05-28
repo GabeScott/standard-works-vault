@@ -1,6 +1,6 @@
 # Let God Prevail
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -83,9 +83,9 @@ My dear brothers and sisters, as you choose to let God prevail in your lives, yo
 
 [^2]: In Hebrew, *Abram* is a noble name meaning “exalted father.” But when God changed that name to *Abraham,* the name took on even greater significance, meaning “father of a multitude.” Indeed, Abraham was to be the “father of many nations.” (See [[Genesis 17.5|Genesis 17:5]]; [[Nehemiah 9.7|Nehemiah 9:7]].)
 
-[^3]: The Lord God Jehovah made a covenant with Abraham that the Savior of the world would be born through Abraham’s seed, certain lands would be inherited, and all nations would be blessed through Abraham’s lineage (see Bible Dictionary, “[Abraham, covenant of](https://churchofjesuschrist.org/study/scriptures/bd/abraham-covenant-of?lang=eng)”).
+[^3]: The Lord God Jehovah made a covenant with Abraham that the Savior of the world would be born through Abraham’s seed, certain lands would be inherited, and all nations would be blessed through Abraham’s lineage (see Bible Dictionary, “[[BD Abraham Covenant Of|Abraham, covenant of]]”).
 
-[^4]: See Bible Dictionary, “[Israel](https://churchofjesuschrist.org/study/scriptures/bd/israel?lang=eng).”
+[^4]: See Bible Dictionary, “[[BD Israel|Israel]].”
 
 [^5]: The word *Israel* appears more than a thousand times in the scriptures. It can apply to Jacob’s (Israel’s) family of 12 sons, plus daughters (see [[Genesis 35.23|Genesis 35:23–26]][[Genesis 35.24|]][[Genesis 35.25|]][[Genesis 35.26|]]; [[Genesis 46.7|46:7]]). Today it can apply geographically as a place on planet Earth. But its doctrinal use applies to people who are willing to let God prevail in their lives.
 
@@ -95,36 +95,34 @@ My dear brothers and sisters, as you choose to let God prevail in your lives, yo
 
 [^8]: See [[Genesis 35.11|Genesis 35:11–12]][[Genesis 35.12|]].
 
-[^9]: For further study, see Topical Guide, “[Israel, Scattering of](https://churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng).”
+[^9]: For further study, see Topical Guide, “[[Israel, Scattering of|Israel, Scattering of]].”
 
 [^10]: [[Isaiah 54.7|Isaiah 54:7]].
 
-[^11]: See [[Isaiah 11.11|Isaiah 11:11–12]][[Isaiah 11.12|]]; [[2 Nephi 21.11|2 Nephi 21:11–12]][[2 Nephi 21.12|]]; [[Mosiah 15.11|Mosiah 15:11]].
+[^11]: See [[Isaiah 11.11|Isaiah 11:11–12]][[Isaiah 11.12|]]; [[2 Nephi 21.11|2 Nephi 21:11–12]][[2 Nephi 21.12|]]; [[Mosiah 15.11|Mosiah 15:11]].
 
 [^12]: See *Encyclopedia of Mormonism* (1992), “Covenant Israel, Latter-Day,” 1:330–31.
 
 [^13]: As we participate in the gathering of Israel, the Lord has a wonderful way of describing those being gathered. He refers to us collectively as His “peculiar treasure” ([[Exodus 19.5|Exodus 19:5]]; [[Psalms 135.4|Psalm 135:4]]), as His “jewels” ([[Malachi 3.17|Malachi 3:17]]; [[D&C 101.3|Doctrine and Covenants 101:3]]), and as a “holy nation” ([[Exodus 19.6|Exodus 19:6]]; see also [[Deuteronomy 14.2|Deuteronomy 14:2]]; [[Deuteronomy 26.18|26:18]]).
 
-[^14]: This phrase refers to the very covenant that God made with Abraham, saying, “In thy seed shall all the kindreds of the earth be blessed” ([[3 Nephi 20.27|3 Nephi 20:27]]). “Born in the covenant” means that before a person was born, that person’s mother and father were sealed in the temple.
+[^14]: This phrase refers to the very covenant that God made with Abraham, saying, “In thy seed shall all the kindreds of the earth be blessed” ([[3 Nephi 20.27|3 Nephi 20:27]]). “Born in the covenant” means that before a person was born, that person’s mother and father were sealed in the temple.
 
 [^15]: Such a promise was taught by God to Abraham: “As many as receive this Gospel shall be called after thy name, and shall be accounted thy seed, and shall rise up and bless thee, as their father” ([[Abraham 2.10|Abraham 2:10]]; see also [[Romans 8.14|Romans 8:14–17]][[Romans 8.15|]][[Romans 8.16|]][[Romans 8.17|]]; [[Galatians 3.26|Galatians 3:26–29]][[Galatians 3.27|]][[Galatians 3.28|]][[Galatians 3.29|]]).
 
 [^16]: Each faithful member may request a patriarchal blessing. Through the inspiration of the Holy Ghost, the patriarch declares that person’s lineage in the house of Israel. That declaration is not necessarily a pronouncement of his or her race, nationality, or genetic makeup. Rather, the declared lineage identifies the tribe of Israel through which that individual will receive his or her blessings.
 
-[^17]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^17]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^18]: See [[Mosiah 15.7|Mosiah 15:7]]. Being of Israel is not for the faint of heart. To receive all the blessings that God has in store for Abraham’s seed, we can each expect to be given our own unique “Abrahamic test.” God will test us, as the Prophet Joseph Smith taught, by wrenching our very heartstrings. (See recollection of John Taylor in *Teachings of Presidents of the Church: Joseph Smith* \[2007\], 231.)
+[^18]: See [[Mosiah 15.7|Mosiah 15:7]]. Being of Israel is not for the faint of heart. To receive all the blessings that God has in store for Abraham’s seed, we can each expect to be given our own unique “Abrahamic test.” God will test us, as the Prophet Joseph Smith taught, by wrenching our very heartstrings. (See recollection of John Taylor in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-19?lang=eng&id=p14#p14)* \[2007\], 231.)
 
 [^19]: See [[Mosiah 3.19|Mosiah 3:19]].
 
-[^20]: See [[2 Timothy 3.1|2 Timothy 3:1–13]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]][[2 Timothy 3.8|]][[2 Timothy 3.9|]][[2 Timothy 3.10|]][[2 Timothy 3.11|]][[2 Timothy 3.12|]][[2 Timothy 3.13|]].
+[^20]: See [[2 Timothy 3.1|2 Timothy 3:1–13]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]][[2 Timothy 3.8|]][[2 Timothy 3.9|]][[2 Timothy 3.10|]][[2 Timothy 3.11|]][[2 Timothy 3.12|]][[2 Timothy 3.13|]].
 
-[^21]: [[1 Nephi 17.40|1 Nephi 17:40]]; emphasis added.
+[^21]: [[1 Nephi 17.40|1 Nephi 17:40]]; emphasis added.
 
 [^22]: [[D&C 98.37|Doctrine and Covenants 98:37]]; see also [[Psalms 31.23|Psalm 31:23]]; [[Isaiah 49.25|Isaiah 49:25]]; [[D&C 105.14|Doctrine and Covenants 105:14]].
 
 [^23]: [[Mormon 9.11|Mormon 9:11]].
 
-
-
-#Agency #House_Of_Israel #Humility #Prejudice
+#Agency #HouseOfIsrael #Humility #Prejudice

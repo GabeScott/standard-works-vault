@@ -40,13 +40,13 @@ This is a clear signal as to what the Lord would have taught by his servants tod
 
 The Lord next gives some specifics as to the conduct he expects of his authorized ministers:
 
-“And they shall observe the covenants and church articles to do them. …” ([[D&C 42.13|D&C 42:13]].)
+“And they shall observe the covenants and church articles to do them. …” ([[D&C 42.13|D&C 42:13]].)
 
 Once again, these are very plain, clear instructions. He did not say it would be “nice” if we keep the commandments. He says “they *shall* observe the covenants and church articles to do them.” Surely obedience is the first law of heaven. We are given to understand that there will be no disobedience in the celestial kingdom. It is therefore vitally important that we keep the commandments with exactness and not just “almost.”
 
 The account of the Lamanite striplings in the Book of Mormon as mentioned by Elder Monson is an excellent illustration of the blessings that flow from precise obedience. Helaman had formed them into an army of 2,060 young men who fought on the side of the Nephites, and when they were fighting for the Nephites, the Nephites could not lose.
 
-At one time 200 of them were so badly wounded that they fainted from the loss of blood. When they were carried from the battlefield, it was thought they were dead, but they weren’t. They came back to life again—it seemed they could not be killed. What was their secret? It is recorded in [[Alma 57.21|Alma 57:21]]: “Yea, and they did obey and observe to perform every word of command with exactness. …”
+At one time 200 of them were so badly wounded that they fainted from the loss of blood. When they were carried from the battlefield, it was thought they were dead, but they weren’t. They came back to life again—it seemed they could not be killed. What was their secret? It is recorded in [[Alma 57.21|Alma 57:21]]: “Yea, and they did obey and observe to perform every word of command with exactness. …”
 
 Yes, they gave their mothers credit for teaching them, but they kept the commandments with exactness. This is the great secret. It is so important that we be in condition to serve the Lord, and condition comes only through obedience. To be a great leader, we must first be a great follower.
 
@@ -60,7 +60,7 @@ Brigham Young’s counsel to missionaries going into the field was to the effect
 
 It is true that the Spirit giveth direction. It is the Spirit that carries conviction to the hearts of those who are honest.
 
-Our living prophet, President Harold B. Lee, made a significant statement on this subject and clearly illustrated the correct philosophy of a servant of the Lord. He did so shortly after he was ordained to the office.
+Our living prophet, President Harold B. Lee, made a significant statement on this subject and clearly illustrated the correct philosophy of a servant of the Lord. He did so shortly after he was ordained to the office.
 
 The new First Presidency held a news conference in the administration building with many members of the press in attendance. One reporter asked President Lee if he would mind explaining what his goals were. He asked:
 
@@ -70,7 +70,7 @@ President Lee answered in his most characteristic way, substantially as follows:
 
 “Well,” he said, “I can only answer that question in the words of a great prophet when he was given an assignment by the Lord to secure an ancient record. He said:
 
-“‘And I was led by the Spirit, not knowing beforehand the things which I should do.’” ([[1 Nephi 4.6|1 Ne. 4:6]].)
+“‘And I was led by the Spirit, not knowing beforehand the things which I should do.’” ([[1 Nephi 4.6|1 Ne. 4:6]].)
 
 Being led by the Spirit is vitally important because this is the Lord’s church and he runs it. Those who are called to serve must *let* the Lord run his church. They must be led by his Spirit because man’s thoughts are not God’s thoughts and man’s ways are not God’s ways; therefore, for man to do God’s work he must have the Spirit of the Lord or he won’t know what to do or how to perform.
 
@@ -113,8 +113,6 @@ The wooden cup from which the beggar drank turned into the Holy Grail for which 
 I long ago learned what all real missionaries must learn: “People do not really care how much you know until they know how much you care.” If you love them, they will listen to you; they will let you serve them.
 
 Because the Lord Jesus Christ loved us, he died for us, and we accept his sacrifice in our behalf as the only way back to our Heavenly Father. May we be qualified to bear his name and may we have his spirit as we *act* in the office in which we are appointed in all diligence, but *with love.* I pray in the name of Jesus Christ, the Redeemer. Amen.
-
-
 
 
 

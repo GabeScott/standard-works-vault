@@ -1,6 +1,5 @@
 # Kinsfolk
 
-
 *See also* [[Kin.md|Kin]]; [[Kindred.md|Kindred]]
 
 sought him among their *kinsfolk* and acquaintance, [[Luke 2.44|Luke 2:44]].

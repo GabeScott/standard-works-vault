@@ -36,7 +36,7 @@ Our prophet today, President Gordon B. Hinckley, likewise shares with us his con
 
 “There are so many young people who wander aimlessly and walk the tragic trail of drugs, gangs, immorality, and the whole brood of ills that accompany these things. There are widows who long for friendly voices and that spirit of anxious concern which speaks of love. There are those who were once warm in the faith, but whose faith has grown cold. Many of them wish to come back but do not know quite how to do it. They need friendly hands reaching out to them. With a little effort, many of them can be brought back to feast again at the table of the Lord.
 
-“My brethren and sisters, I would hope, I would pray, that each of us … would resolve to seek those who need help, who are in desperate and difficult circumstances, and lift them in the spirit of love into the embrace of the Church, where strong hands and loving hearts will warm them, comfort them, sustain them, and put them on the way of happy and productive lives” (in Conference Report, Oct. 1996, 118; or *Ensign,* Nov. 1996, 86).
+“My brethren and sisters, I would hope, I would pray, that each of us … would resolve to seek those who need help, who are in desperate and difficult circumstances, and lift them in the spirit of love into the embrace of the Church, where strong hands and loving hearts will warm them, comfort them, sustain them, and put them on the way of happy and productive lives” (in Conference Report, Oct. 1996, [[1996 October - “Reach with a Rescuing Hand”.md|118]]; or *Ensign,* Nov. 1996, 86).
 
 In light of our prophet’s concern, might we ask ourselves, “Why is it that some who were once warm in the faith have grown cold in the faith?”
 
@@ -131,4 +131,5 @@ The Good Shepherd willingly gave His life for His sheep, for you and me—yes, f
 
 
 
-#Activation #Children #Commitment #Fellowshipping #Individual_Worth #Love #Parenthood #Teaching #Testimony #Youth
+
+#Activation #Children #Commitment #Fellowshipping #IndividualWorth #Love #Parenthood #Teaching #Testimony #Youth

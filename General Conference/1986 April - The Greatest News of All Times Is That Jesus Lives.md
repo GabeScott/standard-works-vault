@@ -22,7 +22,7 @@ We all know the hymn “Come, Listen to a Prophet’s Voice.” (*Hymns,* 1985, 
 
 The Apostle Paul was an inspired teacher, and he gave many spoken directions to the people during his apostolic travels. But often he later had to remind them in writing because many who heard him had apparently neither fully understood nor acted in accordance with the divine principles he taught.
 
-Therefore, in his first epistle to the Corinthians, Paul reminds the Greek people, who composed the Church of God at Corinth, of the gospel truths which he preached to them. He again informed them in writing that Christ died for our sins, that he was buried, that he was raised on the third day, and that he appeared to Simon Peter and then to the Apostles. (See [[1 Corinthians 15.3|1 Cor. 15:3–4]][[1 Corinthians 15.4|]].)
+Therefore, in his first epistle to the Corinthians, Paul reminds the Greek people, who composed the Church of God at Corinth, of the gospel truths which he preached to them. He again informed them in writing that Christ died for our sins, that he was buried, that he was raised on the third day, and that he appeared to Simon Peter and then to the Apostles. (See [[1 Corinthians 15.3|1 Cor. 15:3–4]][[1 Corinthians 15.4|]].)
 
 Since that day, these written words have reminded not just a few hundred Greeks in an outlying area, but hundreds of millions of people in all kinds of places and situations, down through sixty generations, of these important events in the history of mankind.
 
@@ -44,7 +44,7 @@ I have come to the realization that the restored gospel plays a single tune for 
 
 Prior to that great moment, the spreading and accepting of the glorious gospel message will be universal. It is a dire need for all of Heavenly Father’s children everywhere.
 
-President \[Spencer W.\] Kimball, in his *Ensign* article of February 1983, entitled “Are We Doing All We Can?” phrased it so clearly and beautifully: “Our great need, and our great calling, is to bring to the people of this world the candle of understanding to light their way out of obscurity and darkness and into the joy, peace, and truths of the gospel.” (P. 5.) These were the words of a prophet who spoke to all of us.
+President \[Spencer W.\] Kimball, in his *Ensign* article of February 1983, entitled “Are We Doing All We Can?” phrased it so clearly and beautifully: “Our great need, and our great calling, is to bring to the people of this world the candle of understanding to light their way out of obscurity and darkness and into the joy, peace, and truths of the gospel.” (P. 5.) These were the words of a prophet who spoke to all of us.
 
 And yet in the case of being admonished by a prophet to do missionary work, we sometimes become *complacent,* which according to my English-Dutch dictionary means “self-satisfied or calmly content.”
 
@@ -56,13 +56,11 @@ As Latter-day Saints we are committed to do things that will accomplish much goo
 
 May, therefore, those who presently suffer from *logokophosis,* the inability to hear or understand spoken directions, through their own prayerful efforts and under divine inspiration, find the cure for it and be healed and enjoy greater happiness in this life and in the life to come.
 
-And when the Lord calls, with Samuel we can truly say, “Speak Lord; for thy servant heareth.” ([[1 Samuel 3.9|1 Sam. 3:9]].) And then, most important of all, that we will be able and willing to be *doers* of the word also, and not hearers only.
+And when the Lord calls, with Samuel we can truly say, “Speak Lord; for thy servant heareth.” ([[1 Samuel 3.9|1 Sam. 3:9]].) And then, most important of all, that we will be able and willing to be *doers* of the word also, and not hearers only.
 
 For these great blessings I humbly pray, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Missionary_Work #Obedience
+#MissionaryWork #Obedience

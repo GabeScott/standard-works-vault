@@ -30,7 +30,7 @@ A young woman on a university volleyball team tells of the time when she and her
 
 “I remember it being a close game. … Gracie \[on our opponents’ team\] rounded her approach, jumped, and smacked the ball as hard as she could. … The line judges signaled out, and the head official raised his finger to show a point for \[our team\]. We began giving our usual high fives when we noticed that Muki was hand-motioning to the official that she touched the ball on her block. Muki was calling her own touch. The line judges … were … signaling out, \[indicating\] that there was no touch.
 
-“The quiet, withdrawn Muki had showed an act of integrity and honesty like I had never seen before. Gracie Shute was so impressed that she talked with Muki after the match. … Muki later gave Gracie a Book of Mormon. I don’t know if Gracie has read the book … , but I do know that Gracie was touched by Muki’s example, as we all were.”[^3]
+“The quiet, withdrawn Muki had showed an act of integrity and honesty like I had never seen before. Gracie Shute was so impressed that she talked with Muki after the match. … Muki later gave Gracie a Book of Mormon. I don’t know if Gracie has read the book … , but I do know that Gracie was touched by Muki’s example, as we all were.”[^3]
 
 You cannot be honest with others unless you are honest with yourself.
 
@@ -72,7 +72,11 @@ President Hinckley gave some excellent counsel when he said: “Be clean in dres
 
 You precious young ladies will need a lot of courage—courage to stand up to peer pressure, to resist temptation, to withstand ridicule or ostracism, to stand up for the truth. You will also need courage to face the challenges of life. One young woman who was a cross-country runner wrote: “I am often tempted to give up and quit during a race. During my first race this year, when I was just about to be overpowered and stop running, the words to the third verse of ‘How Firm a Foundation’ filled my mind. The words gave me the courage to finish the race.”[^12]
 
-Fear not, I am with thee; oh, be not dismayed,For I am thy God and will still give thee aid.I’ll strengthen thee, help thee, and cause thee to stand, …Upheld by my righteous, omnipotent hand.[^13]
+>Fear not, I am with thee; oh, be not dismayed,
+>For I am thy God and will still give thee aid.
+>I’ll strengthen thee, help thee, and cause thee to stand, …
+>Upheld by my righteous, omnipotent hand.[^13]
+>
 
 ## 10. Grace
 
@@ -91,7 +95,7 @@ I testify that if you practice these virtues, you will be able to “press forwa
 
 
 
-[^1]: See [[2 Nephi 31.20|2 Nephi 31:20]].
+[^1]: See [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^2]: *Lectures on Faith* (1985), 1.
 
@@ -125,8 +129,6 @@ I testify that if you practice these virtues, you will be able to “press forwa
 
 [^17]: [[Esther 4.14|Esth. 4:14]].
 
-[^18]: [[2 Nephi 31.20|2 Nephi 31:20]].
-
-
+[^18]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 #Character #Example #Faith #Grace #Morality #Women

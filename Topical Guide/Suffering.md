@@ -1,7 +1,6 @@
 # Suffering
 
-
-*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Anguish.md|Anguish]]; [[Chastening.md|Chastening]]; [[Despair.md|Despair]]; [[Distress.md|Distress]]; [[Forbear, Forbearance.md|Forbear]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Misery.md|Misery]]; [[Mocking, Mock, Mocker, Mockery.md|Mocking]]; [[Pain.md|Pain]]; [[Persecution, Persecute.md|Persecution]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
+*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Anguish.md|Anguish]]; [[Chastening.md|Chastening]]; [[Despair.md|Despair]]; [[Distress.md|Distress]]; [[Forbear.md|Forbear]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Misery.md|Misery]]; [[Mocking.md|Mocking]]; [[Pain.md|Pain]]; [[Persecution.md|Persecution]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
 
 smote Job with sore *boils*, [[Job 2.7|Job 2:7]].
 
@@ -13,7 +12,7 @@ fountain of *tears*, that I might weep day and night, [[Jeremiah 9.1|Jeremiah 9:
 
 for thy sake I have *suffered* rebuke, [[Jeremiah 15.15|Jeremiah 15:15]].
 
-Suppose ye that these Galilæans were sinners ... because they *suffered*, [[Luke 13.2|Luke 13:2]].
+Suppose ye that these Galilæans were sinners … because they *suffered*, [[Luke 13.2|Luke 13:2]].
 
 it behoved Christ to *suffer*, [[Luke 24.46|Luke 24:46]].
 
@@ -49,19 +48,19 @@ learned he obedience by the things which he *suffered*, [[Hebrews 5.8|Hebrews 5:
 
 Choosing rather to *suffer* affliction with the people of God, [[Hebrews 11.25|Hebrews 11:25]].
 
-Remember ... them which *suffer* adversity, [[Hebrews 13.3|Hebrews 13:3]].
+Remember … them which *suffer* adversity, [[Hebrews 13.3|Hebrews 13:3]].
 
-prophets ... for an example of *suffering*, [[James 5.10|James 5:10]].
+prophets … for an example of *suffering*, [[James 5.10|James 5:10]].
 
 when ye do well, and *suffer* for it, [[1 Peter 2.20|1 Peter 2:20]].
 
-if ye *suffer* for righteousness' sake, [[1 Peter 3.14|1 Peter 3:14]].
+if ye *suffer* for righteousness’ sake, [[1 Peter 3.14|1 Peter 3:14]].
 
 Christ also hath once *suffered*, [[1 Peter 3.18|1 Peter 3:18]] ([[D&C 138.7|D&C 138:7]]).
 
-ye are partakers of Christ's *sufferings*, [[1 Peter 4.13|1 Peter 4:13]].
+ye are partakers of Christ’s *sufferings*, [[1 Peter 4.13|1 Peter 4:13]].
 
-thou shalt *suffer* ... I will give thee a crown of life, [[Revelation 2.10|Revelation 2:10]].
+thou shalt *suffer* … I will give thee a crown of life, [[Revelation 2.10|Revelation 2:10]].
 
 having *suffered* much grief because of their children, [[1 Nephi 18.17|1 Nephi 18:17]].
 
@@ -79,7 +78,7 @@ they should *suffer* no manner of afflictions, [[Alma 31.38|Alma 31:38]].
 
 that they might not *suffer* pain, [[3 Nephi 28.38|3 Nephi 28:38]].
 
-Which *suffering* caused myself, even God ... to tremble because of pain, [[D&C 19.18|D&C 19:18]].
+Which *suffering* caused myself, even God … to tremble because of pain, [[D&C 19.18|D&C 19:18]].
 
 the *sufferings* and death of him who did no sin, [[D&C 45.4|D&C 45:4]].
 
@@ -88,5 +87,3 @@ they who *suffer* persecution for my name, [[D&C 101.35|D&C 101:35]].
 reap eternal joy for all our *sufferings*, [[D&C 109.76|D&C 109:76]].
 
 Remember thy *suffering* saints, [[D&C 121.6|D&C 121:6]].
-
-*See also* [[Zechariah 13.9|Zechariah 13:9]]; [[Malachi 3.2|Malachi 3:2]]; [[D&C 122.8|D&C 122:8]].

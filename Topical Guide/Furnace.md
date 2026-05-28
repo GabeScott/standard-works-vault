@@ -1,11 +1,10 @@
 # Furnace
 
-
-*See also* [[Fire.md|Fire]]; [[Flame, Flaming.md|Flame]]; [[Hell.md|Hell]]
+*See also* [[Fire.md|Fire]]; [[Flame.md|Flame]]; [[Hell.md|Hell]]
 
 brought you forth out of the iron *furnace*, [[Deuteronomy 4.20|Deuteronomy 4:20]].
 
-As the ... *furnace* for gold; so is a man to his praise, [[Proverbs 27.21|Proverbs 27:21]].
+As the … *furnace* for gold; so is a man to his praise, [[Proverbs 27.21|Proverbs 27:21]].
 
 fire is in Zion, and his *furnace* in Jerusalem, [[Isaiah 31.9|Isaiah 31:9]].
 
@@ -23,4 +22,4 @@ life of king Noah shall be valued even as a garment in a hot *furnace*, [[Mosiah
 
 thrice they were cast into a *furnace*, [[3 Nephi 28.21|3 Nephi 28:21]] ([[Mormon 8.24|Mormon 8:24]]).
 
-cast them into *furnaces* ... receiving no harm, [[4 Nephi 1.32|4 Nephi 1:32]].
+cast them into *furnaces* … receiving no harm, [[4 Nephi 1.32|4 Nephi 1:32]].

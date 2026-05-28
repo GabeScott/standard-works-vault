@@ -1,4 +1,3 @@
 # Judea
 
-
-*See* [BD Judea](https://www.churchofjesuschrist.org/study/scriptures/bd/judea?lang=eng)
+*See also* [[BD Judea.md|BD Judea]]

@@ -20,7 +20,7 @@ I have wondered how I heard that voice above all the other noise. I had become a
 
 We need to be acquainted with the promptings of the Holy Ghost, and we need to practice and apply gospel teachings until they become natural and automatic. These promptings become the foundation of our testimonies. Then our testimonies will keep us happy and safe in troubled times.
 
-Elder Dallin H. Oaks defined a testimony this way: “A testimony of the gospel is a personal witness borne to our souls by the Holy Ghost that certain facts of eternal significance are true and that we know them to be true.”[^4] At another time Elder Oaks said, “Testimony is to know and to feel, conversion is to do and to become.”[^5]
+Elder Dallin H. Oaks defined a testimony this way: “A testimony of the gospel is a personal witness borne to our souls by the Holy Ghost that certain facts of eternal significance are true and that we know them to be true.”[^4] At another time Elder Oaks said, “Testimony is to know and to feel, conversion is to do and to become.”[^5]
 
 There are several things we can do to develop a deep conversion and learn how to receive divine inspiration. First, we must have a desire. Alma said, “For I know that he granteth unto men according to their desire, whether it be unto death or unto life … according to their wills.”[^6]
 
@@ -69,9 +69,9 @@ I bear testimony of our Heavenly Father, the Father of our spirits; of Jesus Chr
 
 [^3]: See [[D&C 8.2|D&C 8:2–3]][[D&C 8.3|]].
 
-[^4]: Dallin H. Oaks, in Conference Report, Apr. 2008, 25; or *Ensign,* May 2008, 26.
+[^4]: Dallin H. Oaks, in Conference Report, Apr. 2008, [[2008 April - Testimony.md|25]]; or *Ensign,* May 2008, 26.
 
-[^5]: Dallin H. Oaks, quoted in Kenneth Johnson, “Coming to Know for Ourselves,” *Ensign,* July 2008, 29.
+[^5]: Dallin H. Oaks, quoted in Kenneth Johnson, “Coming to Know for Ourselves,” *Ensign,* July 2008, 29.
 
 [^6]: [[Alma 29.4|Alma 29:4]].
 
@@ -81,21 +81,21 @@ I bear testimony of our Heavenly Father, the Father of our spirits; of Jesus Chr
 
 [^9]: See [[D&C 8.2|D&C 8:2–3]][[D&C 8.3|]].
 
-[^10]: [[1 Kings 19.12|1 Kings 19:12]].
+[^10]: [[1 Kings 19.12|1 Kings 19:12]].
 
 [^11]: [[D&C 9.8|D&C 9:8]].
 
 [^12]: Joseph Smith, in *History of the Church,* 3:381.
 
-[^13]: See Richard G. Scott, “To Learn and to Teach More Effectively,” in *Brigham Young University 2007–2008 Speeches* (2008), 7.
+[^13]: See Richard G. Scott, “To Learn and to Teach More Effectively,” in *Brigham Young University 2007–2008 Speeches* (2008), 7.
 
-[^14]: [[Luke 11.9|Luke 11:9]]; see also [[Matthew 7.7|Matthew 7:7]]; [[3 Nephi 14.7|3 Nephi 14:7]]; [[D&C 88.63|D&C 88:63–65]][[D&C 88.64|]][[D&C 88.65|]].
+[^14]: [[Luke 11.9|Luke 11:9]]; see also [[Matthew 7.7|Matthew 7:7]]; [[3 Nephi 14.7|3 Nephi 14:7]]; [[D&C 88.63|D&C 88:63–65]][[D&C 88.64|]][[D&C 88.65|]].
 
 [^15]: [[John 7.17|John 7:17]].
 
 [^16]: [[Moroni 10.5|Moroni 10:5]].
 
-[^17]: See [[3 Nephi 18.20|3 Nephi 18:20]].
+[^17]: See [[3 Nephi 18.20|3 Nephi 18:20]].
 
 [^18]: See [[D&C 88.64|D&C 88:64]].
 
@@ -103,6 +103,4 @@ I bear testimony of our Heavenly Father, the Father of our spirits; of Jesus Chr
 
 [^20]: “Rise Up, O Men of God,” *Hymns,* no. 323.
 
-
-
-#Holy_Ghost #Spirituality #Testimony
+#HolyGhost #Spirituality #Testimony

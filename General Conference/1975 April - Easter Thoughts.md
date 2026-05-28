@@ -1,6 +1,6 @@
 # Easter Thoughts
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -18,11 +18,11 @@ Paul, by implication, identified it as a central theme of the gospel of Jesus Ch
 
 “For since by man came death, by man came also the resurrection of the dead.
 
-“For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.19|1 Cor. 15:19–22]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].)
+“For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.19|1 Cor. 15:19–22]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].)
 
 Let us begin our consideration of this great exposition with the phrase “since by man came death.”
 
-“Since by man. …” What is man? The question has been repeated through the ages.
+“Since by man. …” What is man? The question has been repeated through the ages.
 
 Job in his torment cried,
 
@@ -46,7 +46,7 @@ The scriptural answer to this question comes through firm and clear. Man is a sp
 
 This accords with modern scripture, which affirms that “the spirit and the body are the soul of man.” ([[D&C 88.15|D&C 88:15]].)
 
-“… Since by man came death.” What is death? It is the separation of the body and the spirit.
+“… Since by man came death.” What is death? It is the separation of the body and the spirit.
 
 Adam and Eve, when created as living souls, were endowed with the faculty to live forever. They were sinless, pure and holy, worthy to enjoy—and they did enjoy—the society of God their Father. As a matter of fact, he visited them in the Garden of Eden and conversed with and instructed them. This instruction they needed because in their transition from spirits to souls the memories of their past experiences were blotted out.
 
@@ -64,7 +64,7 @@ Separated from its body by death, the spirit is in a precarious predicament, whi
 
 “If the flesh should rise no more, our spirits must become subject to that angel who fell from before the presence of the Eternal God, and became the devil, to rise no more.
 
-“And our spirits must have become like unto him, and we become devils, angels to a devil, to be shut out from the presence of our God, and to remain with the father of lies, in misery, like unto himself.” ([[2 Nephi 9.8|2 Ne. 9:8–9]][[2 Nephi 9.9|]].)
+“And our spirits must have become like unto him, and we become devils, angels to a devil, to be shut out from the presence of our God, and to remain with the father of lies, in misery, like unto himself.” ([[2 Nephi 9.8|2 Ne. 9:8–9]][[2 Nephi 9.9|]].)
 
 Redemption from death—that is resurrection—is, therefore, imperative to man’s future happiness.
 
@@ -84,11 +84,11 @@ On this point, he said in a modern revelation: “Now, verily I say unto you, th
 
 Now who is Jesus Christ, and how could he bring about the resurrection when no other man nor all men put together could do so? The scriptures respond to these questions. They make it clear that the spirit person Jesus Christ—as are the spirits of all men—is the Son of God, our Eternal Father. In this respect he is like all other men. He differs from all other men, however, by reason of the fact that men’s bodies are begotten of mortal men and are, therefore, subject to death, being descendants and inheritors from Adam, while Christ’s physical body was begotten of God, our Heavenly Father—an immortal being not subject to death. Christ, therefore, inherited from his Father the faculty to live on indefinitely. He had power over life and death, as witness his own declaration to the Pharisees:
 
-“The good shepherd,” he said, “giveth his life for the sheep. …
+“The good shepherd,” he said, “giveth his life for the sheep. …
 
-“I am the good shepherd, …
+“I am the good shepherd, …
 
-“… and I lay down my life for the sheep. …
+“… and I lay down my life for the sheep. …
 
 “Therefore doth my Father love me, because I lay down my life, that I might take it again.
 
@@ -100,7 +100,7 @@ The first evidence of his victory over the grave was, of course, his own resurre
 
 “And he took it, and did eat before them.” (See [[Luke 24.36|Luke 24:36–43]][[Luke 24.37|]][[Luke 24.38|]][[Luke 24.39|]][[Luke 24.40|]][[Luke 24.41|]][[Luke 24.42|]][[Luke 24.43|]] and [[John 20.26|John 20:26–29]][[John 20.27|]][[John 20.28|]][[John 20.29|]].)
 
-He hosted the seven disciples at the Sea of Tiberias. ([[John 21.1|John 21:1–22]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]][[John 21.18|]][[John 21.19|]][[John 21.20|]][[John 21.21|]][[John 21.22|]].) On one occasion, he was seen by more than 500 people at once. ([[1 Corinthians 15.6|1 Cor. 15:6]].) “He was seen of Cephas” ([[1 Corinthians 15.5|1 Cor. 15:5]]), of James ([[1 Corinthians 15.7|1 Cor. 15:7]]), and of Paul ([[1 Corinthians 15.8|1 Cor. 15:8]]). On the Galilean mountain, he commissioned the “eleven” to “teach all nations.” (See [[Matthew 28.16|Matt. 28:16–20]][[Matthew 28.17|]][[Matthew 28.18|]][[Matthew 28.19|]][[Matthew 28.20|]].)
+He hosted the seven disciples at the Sea of Tiberias. ([[John 21.1|John 21:1–22]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]][[John 21.18|]][[John 21.19|]][[John 21.20|]][[John 21.21|]][[John 21.22|]].) On one occasion, he was seen by more than 500 people at once. ([[1 Corinthians 15.6|1 Cor. 15:6]].) “He was seen of Cephas” ([[1 Corinthians 15.5|1 Cor. 15:5]]), of James ([[1 Corinthians 15.7|1 Cor. 15:7]]), and of Paul ([[1 Corinthians 15.8|1 Cor. 15:8]]). On the Galilean mountain, he commissioned the “eleven” to “teach all nations.” (See [[Matthew 28.16|Matt. 28:16–20]][[Matthew 28.17|]][[Matthew 28.18|]][[Matthew 28.19|]][[Matthew 28.20|]].)
 
 Finally, “he led them out as far as … Bethany, and he lifted up his hands, and … while he blessed them, he was parted from them, and carried up into heaven.” ([[Luke 24.50|Luke 24:50–51]][[Luke 24.51|]].)
 
@@ -120,7 +120,7 @@ Jesus himself, during his mortal ministry, had said:
 
 During his postresurrection ministry in America, he emphasized this vital truth of the universal resurrection by directing his Nephite disciples to insert in their records, which they had failed to do, Samuel’s prophecy concerning the resurrection of others and its fulfillment. The omitted statement to which he referred was that one of the signs to be given to the Nephites of his crucifixion was that “many graves shall be opened, and shall yield up many of their dead; and many saints shall appear unto many.” ([[Helaman 14.25|Hel. 14:25]].)
 
-Now his Nephite disciples said: “Yea, Lord, Samuel did \[so\] prophesy … to thy words, and they were all fulfilled.” ([[3 Nephi 23.10|3 Ne. 23:10]].)
+Now his Nephite disciples said: “Yea, Lord, Samuel did \[so\] prophesy … to thy words, and they were all fulfilled.” ([[3 Nephi 23.10|3 Ne. 23:10]].)
 
 John the Revelator concludes the account of his vision of the resurrection, to occur at the beginning of the Millennium—which is not far ahead now—by saying:
 
@@ -130,7 +130,7 @@ John the Revelator concludes the account of his vision of the resurrection, to o
 
 At which time he added:
 
-“And I saw the dead, small and great, stand before God; …
+“And I saw the dead, small and great, stand before God; …
 
 “And the sea gave up the dead which were in it; and death and hell delivered up the dead which were in them.” ([[Revelation 20.12|Rev. 20:12–13]][[Revelation 20.13|]].)
 
@@ -138,7 +138,7 @@ Amulek, speaking to Zeezrom, said:
 
 “The death of Christ shall loose the bands of this temporal death, that all shall be raised from this temporal death.
 
-“The spirit and the body shall be reunited again in its perfect form; both limb and joint shall be restored to its proper frame, …
+“The spirit and the body shall be reunited again in its perfect form; both limb and joint shall be restored to its proper frame, …
 
 “This \[resurrection\] shall come to all, both old and young, both bond and free, both male and female, both the wicked and the righteous.” ([[Alma 11.42|Alma 11:42–44]][[Alma 11.43|]][[Alma 11.44|]].)
 
@@ -146,7 +146,7 @@ In this manner will be fulfilled Paul’s declaration:
 
 “For as in Adam all die, even so in Christ shall all be made alive.
 
-“But every man in his own order: Christ the firstfruits; afterward they that are Christ’s at his coming.” ([[1 Corinthians 15.21|1 Cor. 15:21–23]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]].)
+“But every man in his own order: Christ the firstfruits; afterward they that are Christ’s at his coming.” ([[1 Corinthians 15.21|1 Cor. 15:21–23]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]].)
 
 Man’s soul is thus assured of immortality. Christ has completed the first part of his “work and … glory \[which he declared to Moses was\]—to bring to pass the immortality and \[the\] eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
@@ -165,8 +165,6 @@ Many of these laws have been presented and discussed at this conference and more
 In conclusion now, I bear my personal witness to the truth of these things which I have uttered. I know by the spirit of the Holy Ghost that they are true. Jesus lives; he is the Son of God. He came to earth as the Only Begotten of the Father. He conquered death, raised his own body from the grave, and implemented the power of resurrection for all men.
 
 I know that through his suffering in Gethsemane and during his crucifixion he brought about the means by which, through repentance and obedience to the laws of his gospel, we may be raised not only to immortality but also to eternal life, which is the greatest of all the gifts of God. To this I bear solemn witness in the sacred name of Jesus Christ, our Redeemer. Amen.
-
-
 
 
 

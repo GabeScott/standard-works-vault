@@ -28,7 +28,7 @@ As Brigham Young organized the first pioneer trek to the valley of the Great Sal
 
 I believe this effort of helping the widows cross the plains is one of the greatest modern examples of how we should care for widows.
 
-Modern revelation reveals the order of the Church: “Women have claim on their husbands for their maintenance, until their husbands are taken. … Children have claim upon their parents for their maintenance. …
+Modern revelation reveals the order of the Church: “Women have claim on their husbands for their maintenance, until their husbands are taken. … Children have claim upon their parents for their maintenance. …
 
 “And after that, they have claim upon the church.”[^6]
 
@@ -54,7 +54,7 @@ As an example of the true spirit of giving, the story of the widow’s mite is f
 
 “The people cast money into the treasury: and many that were rich cast in much.
 
-“And there came a certain poor widow, and she threw in two mites. …
+“And there came a certain poor widow, and she threw in two mites. …
 
 “And he called unto him his disciples, and saith unto them, Verily I say unto you, That this poor widow hath cast more in, than all they which have cast into the treasury:
 
@@ -81,9 +81,9 @@ May we be more caring and considerate to the widows of Zion is my humble prayer.
 
 [^2]: See [[Acts 6.1|Acts 6:1–3]][[Acts 6.2|]][[Acts 6.3|]].
 
-[^3]: See [[1 Timothy 5.3|1 Tim. 5:3]].
+[^3]: See [[1 Timothy 5.3|1 Tim. 5:3]].
 
-[^4]: [[1 Timothy 5.8|1 Tim. 5:8]].
+[^4]: [[1 Timothy 5.8|1 Tim. 5:8]].
 
 [^5]: [[D&C 136.8|D&C 136:8]].
 
@@ -93,7 +93,7 @@ May we be more caring and considerate to the widows of Zion is my humble prayer.
 
 [^8]: [[James 1.27|James 1:27]].
 
-[^9]: See [[1 Kings 17.8|1 Kgs. 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
+[^9]: See [[1 Kings 17.8|1 Kgs. 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
 
 [^10]: See [[Luke 2.36|Luke 2:36–38]][[Luke 2.37|]][[Luke 2.38|]].
 
@@ -101,6 +101,4 @@ May we be more caring and considerate to the widows of Zion is my humble prayer.
 
 [^12]: [[Mark 12.41|Mark 12:41–44]][[Mark 12.42|]][[Mark 12.43|]][[Mark 12.44|]]; see also [[Luke 21.1|Luke 21:1–4]][[Luke 21.2|]][[Luke 21.3|]][[Luke 21.4|]].
 
-
-
-#Faith #Kindness #Loneliness #Prayer #Religion #Responsibility #Service #Single_Members #Trust
+#Faith #Kindness #Loneliness #Prayer #Religion #Responsibility #Service #SingleMembers #Trust

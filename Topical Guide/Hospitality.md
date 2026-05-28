@@ -1,6 +1,5 @@
 # Hospitality
 
-
 *See also* [[Kindness.md|Kindness]]; [[Neighbor.md|Neighbor]]
 
 wash your feet, and *rest* yourselves, [[Genesis 18.4|Genesis 18:4]].
@@ -17,7 +16,7 @@ barbarous people shewed us no little *kindness*, [[Acts 28.2|Acts 28:2]].
 
 to the necessity of saints; given to *hospitality*, [[Romans 12.13|Romans 12:13]].
 
-bishop then must be ... given to *hospitality*, [[1 Timothy 3.2|1 Timothy 3:2]].
+bishop then must be … given to *hospitality*, [[1 Timothy 3.2|1 Timothy 3:2]].
 
 he oft *refreshed* me, [[2 Timothy 1.16|2 Timothy 1:16]].
 

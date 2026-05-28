@@ -44,11 +44,11 @@ The familiar pattern of murmuring is again seen in the family of Lehi.
 
 When the prophet Lehi sent his sons to Jerusalem to obtain the plates of brass, they met much opposition. First, Laman was ejected from the house of Laban for merely asking for the plates. After the sons of Lehi offered to pay for the plates with gold and silver, Laban sought their lives and confiscated their property. The brothers huddled in the cavity of a rock to assess the situation.
 
-Laman and Lemuel murmured. It began, as always, with questioning: “How is it possible that the Lord will deliver Laban into our hands?” they said ([[1 Nephi 3.31|1 Ne. 3:31]]).
+Laman and Lemuel murmured. It began, as always, with questioning: “How is it possible that the Lord will deliver Laban into our hands?” they said ([[1 Nephi 3.31|1 Ne. 3:31]]).
 
-Next, the excuses: “Behold, he is a mighty man, and he can command fifty, yea, even he can slay fifty; then why not us?” ([[1 Nephi 3.31|1 Ne. 3:31]]).
+Next, the excuses: “Behold, he is a mighty man, and he can command fifty, yea, even he can slay fifty; then why not us?” ([[1 Nephi 3.31|1 Ne. 3:31]]).
 
-Finally, they were slothful. Filled with anger, resentment, and excuses, Laman and Lemuel waited by the walls of Jerusalem while the faithful Nephi accomplished the work of the Lord (see [[1 Nephi 4.3|1 Ne. 4:3–5]][[1 Nephi 4.4|]][[1 Nephi 4.5|]]).
+Finally, they were slothful. Filled with anger, resentment, and excuses, Laman and Lemuel waited by the walls of Jerusalem while the faithful Nephi accomplished the work of the Lord (see [[1 Nephi 4.3|1 Ne. 4:3–5]][[1 Nephi 4.4|]][[1 Nephi 4.5|]]).
 
 The Lord has spoken against this attitude in our day: “But he that doeth not anything until he is commanded, and receiveth a commandment with doubtful heart, and keepeth it with slothfulness, the same is damned” ([[D&C 58.29|D&C 58:29]]).
 
@@ -71,8 +71,6 @@ I can understand in some small part how joyful the Lord must be when His servant
 As I sat next to her, she discerned in my eyes that I knew our assignment. She said, “Well, where is it?” I simply said, “Africa.” Her eyes brightened, and she said with cheerful heart, “Isn’t that great!” My joy was full.
 
 So also must our Father in Heaven feel joy when we follow the living prophets with willing hearts. I testify Jesus the Christ lives. He speaks to prophets in our day. May we follow our living prophets without murmuring, I pray in the name of Jesus Christ, amen.
-
-
 
 
 

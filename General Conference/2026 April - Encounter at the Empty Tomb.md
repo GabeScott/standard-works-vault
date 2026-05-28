@@ -1,6 +1,6 @@
 # Encounter at the Empty Tomb
 
-By President Dieter F. Uchtdorf - *Acting President of the Quorum of the Twelve Apostles*
+By President Dieter F. Uchtdorf - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
 
@@ -124,8 +124,6 @@ My dear friends, on this holy Easter morning, I offer my witness: He is risen.
 
 I have stood at the entrance to the empty tomb and seen with spiritual eyes the eternal truth that Jesus Christ is not found among the dead but among the living.
 
-He lives!
-
 That testimony has made all the difference in my life.
 
 That encounter at the tomb will do the same for all who earnestly seek Him. It will make a difference to you.
@@ -139,7 +137,7 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^2]: See [[Luke 24.1|Luke 24:1.]]
 
-[^3]: “Upon the Cross of Calvary,” *Hymns*, no. 184.
+[^3]: “Upon the Cross of Calvary,” *Hymns*, no. 184.
 
 [^4]: John 1:5, NKJV.
 
@@ -147,7 +145,7 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^6]: As the Lord said, “My *works* are without end, and also my *words*, for they never cease” ([[Moses 1.4|Moses 1:4]]; emphasis added).
 
-[^7]: See “I Know That My Redeemer Lives,” *Hymns*, no. 136.
+[^7]: See “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
 [^8]: See [[Matthew 19.26|Matthew 19:26]].
 
@@ -165,7 +163,7 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^15]: [[John 14.6|John 14:6]].
 
-[^16]: [[3 Nephi 5.3|3 Nephi 5:3.]]
+[^16]: [[3 Nephi 5.3|3 Nephi 5:3.]]
 
 [^17]: See [[Matthew 28.5|Matthew 28:5–6.]][[Matthew 28.6|]]
 
@@ -175,3 +173,4 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^20]: As we ponder these questions and act on this invitation, we could consider the many resources available today. We have precious access to the scriptures, including the Book of Mormon. We have the cherished words of latter-day prophets. Our Heavenly Father speaks through the Holy Ghost and has freely offered bountiful resources of inspiration and guidance. He invites us to enter His holy house to participate in sacred ordinances, make everlasting covenants, and walk with Him during our sojourn in this life.
 
+#Discipleship #Easter #JesusChrist #Resurrection #Testimony

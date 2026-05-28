@@ -1,6 +1,6 @@
 # “Put on the Whole Armour of God”
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -37,7 +37,7 @@ The text of my address is from Paul’s Epistle to the Ephesians:
 
 “For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places.
 
-“Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day. …
+“Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day. …
 
 “Stand therefore, having your loins girt about with *truth,* and having on the breastplate of righteousness;
 
@@ -53,7 +53,7 @@ The great unrest in the world today and the wars and rumors of wars are affectin
 
 Paul then warned the Ephesians, which warning is applicable to us today, that we can only withstand the evils which surround us by putting on the *whole* armor of God, which he then described.
 
-I should like to give you from the scriptures some examples which show how those who are clothed in such armor, which means keeping *all* the commandments of God, are able to withstand the adversary, or their enemies. Let me tell you about David (see [[1 Samuel 17.1|1 Sam. 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]]).
+I should like to give you from the scriptures some examples which show how those who are clothed in such armor, which means keeping *all* the commandments of God, are able to withstand the adversary, or their enemies. Let me tell you about David (see [[1 Samuel 17.1|1 Sam. 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]]).
 
 The Philistines were at war with Israel, and Goliath, the Philistine, was challenging Israel to send a man to fight him, with the understanding that the losers would be slaves of the conquerors.
 
@@ -65,7 +65,7 @@ When Goliath saw this young man the Israelites had sent to challenge him, he was
 
 “Then said David to the Philistine, Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied.
 
-“This day will the Lord deliver thee into mine hand; … that all the earth may know that there is a God in Israel.” ([[1 Samuel 17.44|1 Sam. 17:44–46]][[1 Samuel 17.45|]][[1 Samuel 17.46|]].)
+“This day will the Lord deliver thee into mine hand; … that all the earth may know that there is a God in Israel.” ([[1 Samuel 17.44|1 Sam. 17:44–46]][[1 Samuel 17.45|]][[1 Samuel 17.46|]].)
 
 Then David, clothed with the armor of God, took a stone from his bag and, with his sling, shot it into the forehead of Goliath, an unprotected part of his body, and he fell dead.
 
@@ -167,11 +167,9 @@ May I conclude with the oath and covenant of the priesthood, which if observed a
 
 Brethren, we are greatly blessed to know that God lives and we are his spirit children; that his son, Jesus Christ, gave his life so that we might be resurrected and enjoy eternal life.
 
-We belong to the Church of Jesus Christ, which was reestablished through the Prophet Joseph Smith. We hold the priesthood of God, and the progress of the Church depends on us and how fully we magnify our callings and follow the instructions of our present-day prophet, President Spencer W. Kimball.
+We belong to the Church of Jesus Christ, which was reestablished through the Prophet Joseph Smith. We hold the priesthood of God, and the progress of the Church depends on us and how fully we magnify our callings and follow the instructions of our present-day prophet, President Spencer W. Kimball.
 
 I exhort all of you to listen closely to his messages and follow him. In the name of Jesus Christ, amen.
-
-
 
 
 

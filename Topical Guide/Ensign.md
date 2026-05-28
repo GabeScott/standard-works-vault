@@ -1,9 +1,8 @@
 # Ensign
 
-
 *See also* [[Millennium, Preparing a People for.md|Millennium, Preparing a People for]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]
 
-with the *ensign* of their father's house, [[Numbers 2.2|Numbers 2:2]].
+with the *ensign* of their father’s house, [[Numbers 2.2|Numbers 2:2]].
 
 set up their *ensigns* for signs, [[Psalms 74.4|Psalms 74:4]].
 
@@ -15,7 +14,7 @@ Lift ye up a *banner* upon the high mountain, [[Isaiah 13.2|Isaiah 13:2]] ([[2 N
 
 lifteth up an *ensign* on the mountains, [[Isaiah 18.3|Isaiah 18:3]].
 
-I will ... set up my *standard* to the people, [[Isaiah 49.22|Isaiah 49:22]] ([[1 Nephi 21.22|1 Nephi 21:22]]; [[2 Nephi 6.6|2 Nephi 6:6]]; [[D&C 45.9|D&C 45:9]]).
+I will … set up my *standard* to the people, [[Isaiah 49.22|Isaiah 49:22]] ([[1 Nephi 21.22|1 Nephi 21:22]]; [[2 Nephi 6.6|2 Nephi 6:6]]; [[D&C 45.9|D&C 45:9]]).
 
 lift up a *standard* for the people, [[Isaiah 62.10|Isaiah 62:10]].
 
@@ -27,7 +26,7 @@ Set ye up a *standard* in the land, [[Jeremiah 51.27|Jeremiah 51:27]].
 
 lifted up as an *ensign* upon his land, [[Zechariah 9.16|Zechariah 9:16]].
 
-my words shall hiss forth ... for a *standard*, [[2 Nephi 29.2|2 Nephi 29:2]].
+my words shall hiss forth … for a *standard*, [[2 Nephi 29.2|2 Nephi 29:2]].
 
 lift a *standard* of peace unto that people, [[D&C 98.34|D&C 98:34]].
 

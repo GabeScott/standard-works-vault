@@ -1,6 +1,5 @@
 # Quail
 
-
 *quails* came up, and covered the camp, [[Exodus 16.13|Exodus 16:13]].
 
 a wind from the Lord, and brought *quails*, [[Numbers 11.31|Numbers 11:31]].

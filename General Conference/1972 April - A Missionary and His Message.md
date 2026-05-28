@@ -1,6 +1,6 @@
 # A Missionary and His Message
 
-By Elder Hugh B. Brown - *Of the Council of the Twelve*
+By Elder Hugh B. Brown - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -33,6 +33,4 @@ I leave this testimony and this message and this prayer with you, humbly, in the
 
 
 
-
-
-#Missionary_Work #Testimony
+#MissionaryWork #Testimony

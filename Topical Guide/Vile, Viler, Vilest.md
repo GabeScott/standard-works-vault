@@ -1,7 +1,6 @@
 # Vile, Viler, Vilest
 
-
-*See also* [[Abominable.md|Abominable]]; [[Base.md|Base]]; [[Wickedness, Wicked.md|Wickedness]]
+*See also* [[Abominable.md|Abominable]]; [[Base.md|Base]]; [[Wickedness.md|Wickedness]]
 
 thy brother should seem *vile* unto thee, [[Deuteronomy 25.3|Deuteronomy 25:3]].
 

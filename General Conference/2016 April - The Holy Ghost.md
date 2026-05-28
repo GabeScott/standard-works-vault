@@ -1,6 +1,6 @@
 # The Holy Ghost
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -63,7 +63,7 @@ I bear my special witness that the Savior lives. I express my love and gratitude
 
 [^2]: [[D&C 88.6|Doctrine and Covenants 88:6]].
 
-[^3]: See Bible Dictionary, “[Light of Christ](https://churchofjesuschrist.org/study/scriptures/bd/light-of-christ?lang=eng)”; see also [[Moroni 7.12|Moroni 7:12–19]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]].
+[^3]: See Bible Dictionary, “[[BD Light Of Christ|Light of Christ]]”; see also [[Moroni 7.12|Moroni 7:12–19]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]].
 
 [^4]: See [[John 17.1|John 17]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.7|]][[John 17.8|]][[John 17.9|]][[John 17.10|]][[John 17.11|]][[John 17.12|]][[John 17.13|]][[John 17.14|]][[John 17.15|]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.19|]][[John 17.20|]][[John 17.21|]][[John 17.22|]][[John 17.23|]][[John 17.24|]][[John 17.25|]][[John 17.26|]].
 
@@ -83,9 +83,9 @@ I bear my special witness that the Savior lives. I express my love and gratitude
 
 [^12]: [[John 14.26|John 14:26]].
 
-[^13]: [[3 Nephi 27.20|3 Nephi 27:20]].
+[^13]: [[3 Nephi 27.20|3 Nephi 27:20]].
 
-[^14]: [[2 Nephi 31.17|2 Nephi 31:17]].
+[^14]: [[2 Nephi 31.17|2 Nephi 31:17]].
 
 [^15]: [[D&C 88.3|Doctrine and Covenants 88:3]].
 
@@ -99,12 +99,10 @@ I bear my special witness that the Savior lives. I express my love and gratitude
 
 [^20]: See [[D&C 121.41|Doctrine and Covenants 121:41–42]][[D&C 121.42|]].
 
-[^21]: Letter from Frederick E. Hibben.
+[^21]: Letter from Frederick E. Hibben.
 
-[^22]: [[1 Nephi 8.8|1 Nephi 8:8]].
+[^22]: [[1 Nephi 8.8|1 Nephi 8:8]].
 
 [^23]: See [[Moroni 7.29|Moroni 7:29]].
 
-
-
-#Agency #Holy_Ghost #Joseph_Smith #Peace #Prayer #Restoration
+#Agency #HolyGhost #JosephSmith #Peace #Prayer #Restoration

@@ -1,6 +1,6 @@
 # Fathers
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -24,7 +24,7 @@ Perhaps the most essential of a father’s work is to turn the hearts of his chi
 
 We find in the scriptures a repeated emphasis on the parental obligation to teach one’s children:
 
-“And again, inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents. …
+“And again, inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents. …
 
 “And they shall also teach their children to pray, and to walk uprightly before the Lord.”[^11]
 
@@ -52,7 +52,7 @@ Discipline in the divine pattern is not so much about punishing as it is about h
 
 The Lord has said that “all children have claim upon their parents for their maintenance until they are of age.”[^16] Breadwinning is a consecrated activity. Providing for one’s family, although it generally requires time away from the family, is not inconsistent with fatherhood—it is the essence of being a good father. “Work and family are overlapping domains.”[^17] This, of course, does not justify a man who neglects his family for his career or, at the other extreme, one who will not exert himself and is content to shift his responsibility to others. In the words of King Benjamin:
 
-“Ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God, and fight and quarrel one with another. …
+“Ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God, and fight and quarrel one with another. …
 
 “But ye will teach them to walk in the ways of truth and soberness; ye will teach them to love one another, and to serve one another.”[^18]
 
@@ -72,17 +72,17 @@ To all the rising generation, we say, wherever you rank your own father on the s
 
 To my brethren, the fathers in this Church, I say, I know you wish you were a more perfect father. I know I wish I were. Even so, despite our limitations, let us press on. Let us lay aside the exaggerated notions of individualism and autonomy in today’s culture and think first of the happiness and well-being of others. Surely, despite our inadequacies, our Heavenly Father will magnify us and cause our simple efforts to bear fruit. I am encouraged by a story that appeared in the *New Era* some years ago. The author recounted the following:
 
-“When I was young, our little family lived in a one-bedroom apartment on the second floor. I slept on the couch in the living room. …
+“When I was young, our little family lived in a one-bedroom apartment on the second floor. I slept on the couch in the living room. …
 
 “My dad, a steelworker, left home very early for work each day. Every morning he would … tuck the covers around me and stop for a minute. I would be half-dreaming when I could sense my dad standing beside the couch, looking at me. As I slowly awoke, I became embarrassed to have him there. I tried to pretend I was still asleep. … I became aware that as he stood beside my bed he was praying with all his attention, energy, and focus—for me.
 
-“Each morning my dad prayed for me. He prayed that I would have a good day, that I would be safe, that I would learn and prepare for the future. And since he could not be with me until evening, he prayed for the teachers and my friends that I would be with that day. …
+“Each morning my dad prayed for me. He prayed that I would have a good day, that I would be safe, that I would learn and prepare for the future. And since he could not be with me until evening, he prayed for the teachers and my friends that I would be with that day. …
 
 “At first, I didn’t really understand what my dad was doing those mornings when he prayed for me. But as I got older, I came to sense his love and interest in me and everything I was doing. It is one of my favorite memories. It wasn’t until years later, after I was married, had children of my own, and would go into their rooms while they were asleep and pray for them that I understood completely how my father felt about me.”[^22]
 
 Alma testified to his son:
 
-“Behold, I say unto you, that it is \[Christ\] that surely shall come … ; yea he cometh to declare glad tidings of salvation unto his people.
+“Behold, I say unto you, that it is \[Christ\] that surely shall come … ; yea he cometh to declare glad tidings of salvation unto his people.
 
 “And now, my son, this was the ministry unto which ye were called, to declare these glad tidings unto this people, to prepare their minds; or rather … that they may prepare the minds of their children to hear the word at the time of his coming.”[^23]
 
@@ -95,9 +95,9 @@ That is the ministry of fathers today. God bless and make them equal to it, in t
 
 [^2]: Blankenhorn, *Fatherless America,* 5.
 
-[^3]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^3]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^4]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” 129.
+[^4]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” 129.
 
 [^5]: Blankenhorn, *Fatherless America,* 25, 26.
 
@@ -127,16 +127,14 @@ That is the ministry of fathers today. God bless and make them equal to it, in t
 
 [^18]: [[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]].
 
-[^19]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” 129.
+[^19]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” 129.
 
 [^20]: [[Luke 2.52|Luke 2:52]].
 
-[^21]: [[3 John 1.4|3 John 1:4]].
+[^21]: [[3 John 1.4|3 John 1:4]].
 
-[^22]: Julian Dyke, “[Thanks, Dad](https://churchofjesuschrist.org/study/new-era/1993/04/thanks-dad?lang=eng),” *New Era,* Apr. 1993, 38; *Tambuli,* Oct. 1994, 45.
+[^22]: Julian Dyke, “[Thanks, Dad](https://www.churchofjesuschrist.org/study/new-era/1993/04/thanks-dad?lang=eng),” *New Era,* Apr. 1993, 38; *Tambuli,* Oct. 1994, 45.
 
 [^23]: [[Alma 39.15|Alma 39:15–16]][[Alma 39.16|]].
-
-
 
 #Discipline #Education #Example #Fatherhood #Love #Marriage #Teaching

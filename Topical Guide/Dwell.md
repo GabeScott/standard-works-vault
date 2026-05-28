@@ -1,6 +1,5 @@
 # Dwell
 
-
 *See also* [[Abide.md|Abide]]; [[Inhabit.md|Inhabit]]; [[Lodge.md|Lodge]]; [[Sojourn.md|Sojourn]]
 
 now will my husband *dwell* with me, [[Genesis 30.20|Genesis 30:20]].
@@ -23,13 +22,13 @@ Ariel, the city where David *dwelt*, [[Isaiah 29.1|Isaiah 29:1]].
 
 I am the Lord your God *dwelling* in Zion, [[Joel 3.17|Joel 3:17]].
 
-built houses ... but ye shall not *dwell* in them, [[Amos 5.11|Amos 5:11]].
+built houses … but ye shall not *dwell* in them, [[Amos 5.11|Amos 5:11]].
 
 I will *dwell* in the midst of thee, [[Zechariah 2.10|Zechariah 2:10]].
 
-Word ... *dwelt* among us, [[John 1.14|John 1:14]].
+Word … *dwelt* among us, [[John 1.14|John 1:14]].
 
-Rabbi ... where *dwellest* thou, [[John 1.38|John 1:38]].
+Rabbi … where *dwellest* thou, [[John 1.38|John 1:38]].
 
 drinketh my blood, *dwelleth* in me, [[John 6.56|John 6:56]].
 
@@ -39,7 +38,7 @@ most High *dwelleth* not in temples made with hands, [[Acts 7.48|Acts 7:48]] ([[
 
 Paul *dwelt* two whole years in his own hired house, [[Acts 28.30|Acts 28:30]].
 
-in me ... *dwelleth* no good thing, [[Romans 7.18|Romans 7:18]].
+in me … *dwelleth* no good thing, [[Romans 7.18|Romans 7:18]].
 
 Spirit of God *dwell* in you, [[Romans 8.9|Romans 8:9]] ([[1 Corinthians 3.16|1 Corinthians 3:16]]).
 
@@ -71,13 +70,13 @@ he will *dwell* with them, [[Revelation 21.3|Revelation 21:3]].
 
 no unclean thing can *dwell* with God, [[1 Nephi 10.21|1 Nephi 10:21]] ([[Moses 6.57|Moses 6:57]]).
 
-filthy ... cannot *dwell* in the kingdom of God, [[1 Nephi 15.33|1 Nephi 15:33]].
+filthy … cannot *dwell* in the kingdom of God, [[1 Nephi 15.33|1 Nephi 15:33]].
 
 They are raised to *dwell* with God, [[Mosiah 15.23|Mosiah 15:23]].
 
 Spirit of the Lord doth not *dwell* in unholy temples, [[Helaman 4.24|Helaman 4:24]].
 
-guiltless ... *dwell* in the presence of God, [[Mormon 7.7|Mormon 7:7]] ([[D&C 76.62|D&C 76:62]]).
+guiltless … *dwell* in the presence of God, [[Mormon 7.7|Mormon 7:7]] ([[D&C 76.62|D&C 76:62]]).
 
 you shall *dwell* with me in glory, [[D&C 6.30|D&C 6:30]].
 

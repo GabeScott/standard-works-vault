@@ -26,13 +26,13 @@ Tonight it is my prayer that the Spirit will burn within you, that you will have
 
 Who doesn’t enjoy playing with a small child or holding a newborn baby in their arms? As women, we were born with a natural ability to love and nurture others. To nurture means to support each other, to encourage each other, to nourish and love each other. Are we doing this in our families?
 
-The Savior Himself taught us to nurture. Many times He said, “How oft have I gathered you as a hen gathereth her chickens under her wings, and have nourished you” ([[3 Nephi 10.4|3 Ne. 10:4]]).
+The Savior Himself taught us to nurture. Many times He said, “How oft have I gathered you as a hen gathereth her chickens under her wings, and have nourished you” ([[3 Nephi 10.4|3 Ne. 10:4]]).
 
 As you gather together in your family, you can do so much to invite a spirit of unity. When was the last time you put your arms around your mom or dad and thanked them for all they do? Parents do most of the nurturing, but they need to be nurtured too.
 
 As women, we can gather our little chickens under our wings with love and tenderness. Recently I watched a young mother talk to her two-year-old child. When she was crying and the mother couldn’t understand what she wanted, the mother said, “Don’t cry. Use your words. Tell me what’s bothering you.” She had shown such respect for this two-year-old baby that the baby stopped crying and “used her words.” This young mother is learning how to nurture.
 
-When our Father in Heaven introduced the Savior to the world, He demonstrated good nurturing by using a soft voice. The language of the scripture says, “They heard a voice as if it came out of heaven; … and it was not a harsh voice, neither was it a loud voice; … notwithstanding it being a small voice it did pierce them that did hear to the center” ([[3 Nephi 11.3|3 Ne. 11:3]]).
+When our Father in Heaven introduced the Savior to the world, He demonstrated good nurturing by using a soft voice. The language of the scripture says, “They heard a voice as if it came out of heaven; … and it was not a harsh voice, neither was it a loud voice; … notwithstanding it being a small voice it did pierce them that did hear to the center” ([[3 Nephi 11.3|3 Ne. 11:3]]).
 
 In our homes, this can be a model for the way we talk to our family members. Let us not use a loud voice but a soft voice when we talk to those we love. This is the way Heavenly Father speaks to His children.
 
@@ -48,11 +48,19 @@ The second principle is sacrifice. As young women, you are learning to sacrifice
 
 The Savior is so proud of you. He knows what you’re going through. He understands how hard it is for you to make sacrifices. The Savior taught us to sacrifice. He sacrificed His life for all mankind.
 
-After He was resurrected, the first thing He taught the Nephites was how He had sacrificed. He said: “I have drunk out of that bitter cup which the Father hath given me. … I have suffered the will of the Father in all things” ([[3 Nephi 11.11|3 Ne. 11:11]]). He had done what Heavenly Father wanted Him to do.
+After He was resurrected, the first thing He taught the Nephites was how He had sacrificed. He said: “I have drunk out of that bitter cup which the Father hath given me. … I have suffered the will of the Father in all things” ([[3 Nephi 11.11|3 Ne. 11:11]]). He had done what Heavenly Father wanted Him to do.
 
 Heavenly Father wants us to create a righteous family. Becoming a wife and mother may limit your career opportunities, but it can be so rewarding. As a young mother, I remember playing a song for my little girls while they danced around the room. It may sound a little silly, but it says it all:
 
-When I grow up, I want to be a mother and have a family:one little, two little, three little babies of my own.Of all the jobs for me, I’ll choose no other.I’ll have a family. …And I will love them all day longand give them cookies and milk and yellow balloons,And cuddle them when things go wrong,and read them stories and sing them pretty tunes.(Janeen Brady, “I Want to Be a Mother,” in *Beloved Songs* \[1987\], 10–13)
+>When I grow up, I want to be a mother and have a family:
+>one little, two little, three little babies of my own.
+>Of all the jobs for me, I’ll choose no other.
+>I’ll have a family. …
+>And I will love them all day long
+>and give them cookies and milk and yellow balloons,
+>And cuddle them when things go wrong,
+>and read them stories and sing them pretty tunes.
+>
 
 Well, you get the idea. Being a mother is a great blessing, not a sacrifice.
 
@@ -86,15 +94,7 @@ Pray over problems that worry you! Don’t give up. Heavenly Father can and will
 
 Tonight I have talked about three principles to help you strengthen your home and family:
 
-- Nurturing
-
-- Sacrifice
-
-- Prayer
-
 The Savior, our Redeemer and friend, has shown us the way. As you practice His teachings, you may never win the Olympic silver or gold, but earning your Young Womanhood medallion can bring a much greater reward and help keep the fire of the Holy Ghost burning brightly within each one of you. As you study and develop a love for the scriptures, I pray that you will find other meaningful ways to strengthen your home and family. In the name of Jesus Christ, amen.
-
-
 
 
 

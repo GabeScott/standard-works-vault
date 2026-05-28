@@ -1,6 +1,5 @@
 # People
 
-
 *See also* [[Multitude.md|Multitude]]; [[Nations.md|Nations]]; [[Peculiar People.md|Peculiar People]]
 
 Lord said, Behold, the *people* is one, [[Genesis 11.6|Genesis 11:6]].
@@ -9,11 +8,11 @@ gathered unto my *people*, [[Genesis 49.29|Genesis 49:29]].
 
 seen the affliction of my *people*, [[Exodus 3.7|Exodus 3:7]] ([[Acts 7.34|Acts 7:34]]).
 
-Let my *people* go, [[Exodus 5.1|Exodus 5:1]] ([[Exodus 7.16|Exodus 7:16]]; [[Exodus 8.1|Exodus 8:1]], [[Exodus 8.20|Exodus 8:20]]; [[Exodus 9.1|Exodus 9:1]], [[Exodus 9.13|Exodus 9:13]]; [[Exodus 10.3|Exodus 10:3]]).
+Let my *people* go, [[Exodus 5.1|Exodus 5:1]] ([[Exodus 7.16|Exodus 7:16]]; [[Exodus 8.1|Exodus 8:1]]; [[Exodus 8.20|Exodus 8:20]]; [[Exodus 9.1|Exodus 9:1]]; [[Exodus 9.13|Exodus 9:13]]; [[Exodus 10.3|Exodus 10:3]]).
 
 I will take you to me for a *people*, [[Exodus 6.7|Exodus 6:7]] ([[D&C 42.9|D&C 42:9]]).
 
-seen this *people* ... is a stiffnecked *people*, [[Exodus 32.9|Exodus 32:9]] ([[Deuteronomy 9.13|Deuteronomy 9:13]]).
+seen this *people* … is a stiffnecked *people*, [[Exodus 32.9|Exodus 32:9]] ([[Deuteronomy 9.13|Deuteronomy 9:13]]).
 
 I and thy *people* have found grace in thy sight, [[Exodus 33.16|Exodus 33:16]].
 
@@ -21,7 +20,7 @@ ye shall be my *people*, [[Leviticus 26.12|Leviticus 26:12]] ([[2 Corinthians 6.
 
 to be unto him a *people* of inheritance, [[Deuteronomy 4.20|Deuteronomy 4:20]].
 
-thou art an holy *people* ... a special *people* ... above all *people*, [[Deuteronomy 7.6|Deuteronomy 7:6]].
+thou art an holy *people* … a special *people* … above all *people*, [[Deuteronomy 7.6|Deuteronomy 7:6]].
 
 thou art become the *people* of the Lord, [[Deuteronomy 27.9|Deuteronomy 27:9]].
 
@@ -29,13 +28,13 @@ Lord shall judge his *people*, [[Deuteronomy 32.36|Deuteronomy 32:36]] ([[Hebrew
 
 thy *people* shall be my *people*, [[Ruth 1.16|Ruth 1:16]].
 
-ye make the Lord's *people* to transgress, [[1 Samuel 2.24|1 Samuel 2:24]].
+ye make the Lord’s *people* to transgress, [[1 Samuel 2.24|1 Samuel 2:24]].
 
 a *people* which I knew not shall serve me, [[2 Samuel 22.44|2 Samuel 22:44]] ([[Psalms 18.43|Psalms 18:43]]).
 
-that all *people* ... may know thy name, [[1 Kings 8.43|1 Kings 8:43]] ([[2 Chronicles 6.33|2 Chronicles 6:33]]).
+that all *people* … may know thy name, [[1 Kings 8.43|1 Kings 8:43]] ([[2 Chronicles 6.33|2 Chronicles 6:33]]).
 
-If my *people* ... turn from their wicked ways, [[2 Chronicles 7.14|2 Chronicles 7:14]].
+If my *people* … turn from their wicked ways, [[2 Chronicles 7.14|2 Chronicles 7:14]].
 
 these are thy servants and thy *people*, [[Nehemiah 1.10|Nehemiah 1:10]].
 
@@ -91,7 +90,7 @@ at that time thy *people* shall be delivered, [[Daniel 12.1|Daniel 12:1]].
 
 Ye are not my *people*, [[Hosea 1.10|Hosea 1:10]] ([[Romans 9.26|Romans 9:26]]).
 
-I will say ... Thou art my *people*, [[Hosea 2.23|Hosea 2:23]] ([[Zechariah 13.9|Zechariah 13:9]]; [[Romans 9.25|Romans 9:25]]; [[1 Peter 2.10|1 Peter 2:10]]).
+I will say … Thou art my *people*, [[Hosea 2.23|Hosea 2:23]] ([[Zechariah 13.9|Zechariah 13:9]]; [[Romans 9.25|Romans 9:25]]; [[1 Peter 2.10|1 Peter 2:10]]).
 
 My *people* are destroyed for lack of knowledge, [[Hosea 4.6|Hosea 4:6]].
 
@@ -99,15 +98,15 @@ Go, prophesy unto my *people* Israel, [[Amos 7.15|Amos 7:15]].
 
 concerning the prophets that make my *people* err, [[Micah 3.5|Micah 3:5]].
 
-house of the Lord shall be established ... *people* shall flow unto it, [[Micah 4.1|Micah 4:1]].
+house of the Lord shall be established … *people* shall flow unto it, [[Micah 4.1|Micah 4:1]].
 
-many nations ... shall be my *people*, [[Zechariah 2.11|Zechariah 2:11]].
+many nations … shall be my *people*, [[Zechariah 2.11|Zechariah 2:11]].
 
 he shall save his *people* from their sins, [[Matthew 1.21|Matthew 1:21]].
 
 *people* which sat in darkness saw great light, [[Matthew 4.16|Matthew 4:16]].
 
-this *people's* heart is waxed gross, [[Matthew 13.15|Matthew 13:15]].
+this *people’s* heart is waxed gross, [[Matthew 13.15|Matthew 13:15]].
 
 common *people* heard him gladly, [[Mark 12.37|Mark 12:37]].
 
@@ -117,7 +116,7 @@ he hath visited and redeemed his *people*, [[Luke 1.68|Luke 1:68]].
 
 great joy, which shall be to all *people*, [[Luke 2.10|Luke 2:10]].
 
-A light to lighten ... the glory of thy *people* Israel, [[Luke 2.32|Luke 2:32]].
+A light to lighten … the glory of thy *people* Israel, [[Luke 2.32|Luke 2:32]].
 
 God hath visited his *people*, [[Luke 7.16|Luke 7:16]].
 
@@ -145,31 +144,31 @@ Come out of her, my *people*, that ye be not partakers of her sins, [[Revelation
 
 he will dwell with them, and they shall be his *people*, [[Revelation 21.3|Revelation 21:3]].
 
-this *people* ... were ripe in iniquity, [[1 Nephi 17.35|1 Nephi 17:35]].
+this *people* … were ripe in iniquity, [[1 Nephi 17.35|1 Nephi 17:35]].
 
-I will ... set up my standard to the *people*, [[1 Nephi 21.22|1 Nephi 21:22]].
+I will … set up my standard to the *people*, [[1 Nephi 21.22|1 Nephi 21:22]].
 
 pit which they digged to ensnare the *people* of the Lord, [[1 Nephi 22.14|1 Nephi 22:14]].
 
-raise up ... to deliver my *people*, [[2 Nephi 3.9|2 Nephi 3:9]].
+raise up … to deliver my *people*, [[2 Nephi 3.9|2 Nephi 3:9]].
 
 thou art my *people*, [[2 Nephi 8.16|2 Nephi 8:16]].
 
-Lord will ... restore his *people*, [[2 Nephi 25.17|2 Nephi 25:17]].
+Lord will … restore his *people*, [[2 Nephi 25.17|2 Nephi 25:17]].
 
-Bible ... proceed forth from the Jews, mine ancient covenant *people*, [[2 Nephi 29.4|2 Nephi 29:4]].
+Bible … proceed forth from the Jews, mine ancient covenant *people*, [[2 Nephi 29.4|2 Nephi 29:4]].
 
-my *people* ... shall be gathered home, [[2 Nephi 29.14|2 Nephi 29:14]].
+my *people* … shall be gathered home, [[2 Nephi 29.14|2 Nephi 29:14]].
 
 they shall be a pure and a delightsome *people*, [[2 Nephi 30.6|2 Nephi 30:6]].
 
-they became ... a blood-thirsty *people*, [[Enos 1.20|Enos 1:20]] ([[Mosiah 10.12|Mosiah 10:12]]).
+they became … a blood-thirsty *people*, [[Enos 1.20|Enos 1:20]] ([[Mosiah 10.12|Mosiah 10:12]]).
 
 they discovered a *people*, who were called the *people* of Zarahemla, [[Omni 1.14|Omni 1:14]].
 
 I shall give this *people* a name, [[Mosiah 1.11|Mosiah 1:11]].
 
-desirous ... to be called his *people*, [[Mosiah 18.8|Mosiah 18:8]].
+desirous … to be called his *people*, [[Mosiah 18.8|Mosiah 18:8]].
 
 Lord seeth fit to chasten his *people*, [[Mosiah 23.21|Mosiah 23:21]].
 
@@ -183,7 +182,7 @@ a zealous and beloved *people*, [[Alma 27.30|Alma 27:30]].
 
 we thank thee, O God, that we are a chosen and a holy *people*, [[Alma 31.18|Alma 31:18]].
 
-my *people* ... I will make thy horn iron, [[3 Nephi 20.19|3 Nephi 20:19]].
+my *people* … I will make thy horn iron, [[3 Nephi 20.19|3 Nephi 20:19]].
 
 this *people* will I establish in this land, [[3 Nephi 20.22|3 Nephi 20:22]].
 

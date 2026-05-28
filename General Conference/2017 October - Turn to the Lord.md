@@ -1,6 +1,6 @@
 # Turn to the Lord
 
-By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
+By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -16,7 +16,7 @@ My first indication that this was not the trip I had envisioned occurred soon af
 
 There will be times in our lives when we find ourselves on an unexpected path, facing circumstances much more severe than a disrupted vacation. How do we respond when events, often out of our control, alter the life we had planned or hoped for?
 
-On June 6, 1944, Hyrum Shumway, a young second lieutenant in the United States Army, went ashore at Omaha Beach as part of the D-day invasion. He made it safely through the landing, but on July 27, as part of the Allied advance, he was severely injured by an exploding anti-tank mine. In an instant, his life and future medical career had been dramatically impacted. Following multiple surgeries, which helped him recover from most of his serious injuries, Brother Shumway never did regain his sight. How would he respond?
+On June 6, 1944, Hyrum Shumway, a young second lieutenant in the United States Army, went ashore at Omaha Beach as part of the D-day invasion. He made it safely through the landing, but on July 27, as part of the Allied advance, he was severely injured by an exploding anti-tank mine. In an instant, his life and future medical career had been dramatically impacted. Following multiple surgeries, which helped him recover from most of his serious injuries, Brother Shumway never did regain his sight. How would he respond?
 
 Following three years in a rehabilitation hospital, he returned home to Lovell, Wyoming. He knew that his dream of becoming a medical doctor was no longer possible, but he was determined to move ahead, get married, and support a family.
 
@@ -46,11 +46,11 @@ And the list goes on. Although each “change” may be unique to our individual
 
 He knows, in a way that no one else can understand, what it is that we need, individually, in order to move forward in the midst of change. Unlike friends and loved ones, the Savior not only sympathizes with us, but He can empathize perfectly because He has been where we are. In addition to paying the price and suffering for our sins, Jesus Christ also walked every path, dealt with every challenge, faced every hurt—physical, emotional, or spiritual—that we will ever encounter in mortality.
 
-President Boyd K. Packer taught: “The mercy and grace of Jesus Christ are not limited to those who commit sins … , but they encompass the promise of everlasting peace to all who will accept and follow Him. … His mercy is the mighty healer, even to the wounded innocent.”[^3]
+President Boyd K. Packer taught: “The mercy and grace of Jesus Christ are not limited to those who commit sins … , but they encompass the promise of everlasting peace to all who will accept and follow Him. … His mercy is the mighty healer, even to the wounded innocent.”[^3]
 
 In this mortal experience, we cannot *control* all that happens to us, but we have absolute control over how we *respond* to the changes in our lives. This does not imply that the challenges and trials we face are of no consequence and easily handled or dealt with. It does not imply that we will be free from pain or heartache. But it does mean that there is cause for hope and that due to the Atonement of Jesus Christ, we can move forward and find better days—even days full of joy, light, and happiness.
 
-In Mosiah we read the account of Alma, the ex-priest of King Noah, and his people, who, “having been warned of the Lord … \[,\] departed into the wilderness before the armies of king Noah.” After eight days, “they came to … a very beautiful and pleasant land” where “they pitched their tents, and began to till the ground, and began to build buildings.”[^4]
+In Mosiah we read the account of Alma, the ex-priest of King Noah, and his people, who, “having been warned of the Lord … \[,\] departed into the wilderness before the armies of king Noah.” After eight days, “they came to … a very beautiful and pleasant land” where “they pitched their tents, and began to till the ground, and began to build buildings.”[^4]
 
 Their situation looked promising. They had accepted the gospel of Jesus Christ. They had been baptized as a covenant that they would serve the Lord and keep His commandments. And “they did multiply and prosper exceedingly in the land.”[^5]
 
@@ -58,7 +58,7 @@ However, their circumstances would soon change. “An army of the Lamanites was 
 
 Rather than blame God, they turned to Him and “did pour out their hearts to him.” In response to their faith and silent prayers, the Lord responded: “Be of good comfort. … I will … ease the burdens which are put upon your shoulders, that even you cannot feel them upon your backs.” Soon after, “the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord.”[^8] Although not yet delivered from bondage, by turning *to* the Lord, and not *from* the Lord, they were blessed according to their needs and according to the Lord’s wisdom.
 
-Elder Dallin H. Oaks has taught: “Healing blessings come in many ways, each suited to our individual needs, as known to Him who loves us best. Sometimes a ‘healing’ cures our illness or lifts our burden. But sometimes we are ‘healed’ by being given strength or understanding or patience to bear the burdens placed upon us.”[^9]
+Elder Dallin H. Oaks has taught: “Healing blessings come in many ways, each suited to our individual needs, as known to Him who loves us best. Sometimes a ‘healing’ cures our illness or lifts our burden. But sometimes we are ‘healed’ by being given strength or understanding or patience to bear the burdens placed upon us.”[^9]
 
 Ultimately, “so great was their faith and their patience” that Alma and his people were delivered by the Lord, as will we, “and they gave thanks,” “for they were in bondage, and none could deliver them except it were the Lord their God.”[^10]
 
@@ -90,7 +90,7 @@ These resources include, but are not limited to:
 
 Whatever change in life’s circumstance may come our way, and whatever unexpected path we may have to travel, how we respond is a choice. Turning to the Savior and grasping His outstretched arm is always our best option.
 
-Elder Richard G. Scott taught this eternal truth: “True enduring happiness with the accompanying strength, courage, and capacity to overcome the most challenging difficulties comes from a life centered in Jesus Christ. … There is no guarantee of overnight results, but there is absolute assurance that, in the Lord’s time, solutions will come, peace will prevail, and emptiness will be filled.”[^14]
+Elder Richard G. Scott taught this eternal truth: “True enduring happiness with the accompanying strength, courage, and capacity to overcome the most challenging difficulties comes from a life centered in Jesus Christ. … There is no guarantee of overnight results, but there is absolute assurance that, in the Lord’s time, solutions will come, peace will prevail, and emptiness will be filled.”[^14]
 
 To these truths I share my witness. In the name of Jesus Christ, amen.
 
@@ -99,9 +99,9 @@ To these truths I share my witness. In the name of Jesus Christ, amen.
 
 [^1]: History received directly from Joseph Shumway, a descendant of Hyrum Smith Shumway.
 
-[^2]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^2]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^3]: Boyd K. Packer, “[[2014 October - The Reason for Our Hope.md|The Reason for Our Hope]],” *Ensign* or *Liahona,* Nov. 2014, 7.
+[^3]: Boyd K. Packer, “[[2014 October - The Reason for Our Hope.md|The Reason for Our Hope]],” *Ensign* or *Liahona,* Nov. 2014, 7.
 
 [^4]: [[Mosiah 23.1|Mosiah 23:1–5]][[Mosiah 23.2|]][[Mosiah 23.3|]][[Mosiah 23.4|]][[Mosiah 23.5|]].
 
@@ -113,15 +113,16 @@ To these truths I share my witness. In the name of Jesus Christ, amen.
 
 [^8]: [[Mosiah 24.12|Mosiah 24:12–15]][[Mosiah 24.13|]][[Mosiah 24.14|]][[Mosiah 24.15|]].
 
-[^9]: Dallin H. Oaks, “[[2006 October - He Heals the Heavy Laden.md|He Heals the Heavy Laden]],” *Ensign* or *Liahona,* Nov. 2006, 7–8.
+[^9]: Dallin H. Oaks, “[[2006 October - He Heals the Heavy Laden.md|He Heals the Heavy Laden]],” *Ensign* or *Liahona,* Nov. 2006, 7–8.
 
 [^10]: [[Mosiah 24.16|Mosiah 24:16, 21, 22]][[Mosiah 24.21|]][[Mosiah 24.22|]].
 
-[^11]: [[1 Nephi 17.41|1 Nephi 17:41]].
+[^11]: [[1 Nephi 17.41|1 Nephi 17:41]].
 
 [^12]: [[Alma 33.19|Alma 33:19–20]][[Alma 33.20|]].
 
 [^13]: [[Alma 36.3|Alma 36:3]].
 
+[^14]: Richard G. Scott, “[[1995 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign,* Nov. 1995, 17.
 
-#Adversity #Agency #Atonement #Healing #Jesus_Christ #Trust
+#Agency #Adversity #Atonement #Healing #JesusChrist #Trust

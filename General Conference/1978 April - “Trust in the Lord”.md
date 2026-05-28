@@ -1,6 +1,6 @@
 # “Trust in the Lord”
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -60,15 +60,15 @@ Because of the service Joseph rendered, the Pharaoh said unto his servants, “C
 
 When one follows the course marked by the road signs of the gospel of Jesus Christ and places his trust in the Lord, its influence is such that it is manifest not only in action and deed but by a marked and visible change in his very being. There is a special light and a spirit which radiates from his eternal soul. It can be described in words like *brightness, light, joy, happiness, peace, purity, contentment, spirit, enthusiasm,* etc.
 
-Brigham Young has said, “The person who enjoys the experience of the knowledge of the Kingdom of God on the earth, and at the same time has the love of God within him, is the happiest of any individuals on the earth. …
+Brigham Young has said, “The person who enjoys the experience of the knowledge of the Kingdom of God on the earth, and at the same time has the love of God within him, is the happiest of any individuals on the earth. …
 
-“You never saw a true Saint in the world that had sorrow, neither can you find one. If persons are destitute of the fountain of living water, or the principles of eternal life, then they are sorrowful. If the words of life dwell within us, and we have the hope of eternal life and glory, and let that spark within us kindle to a flame, to the consuming of the least and last remains of selfishness, we never can walk in darkness and are strangers to doubt and fear. …
+“You never saw a true Saint in the world that had sorrow, neither can you find one. If persons are destitute of the fountain of living water, or the principles of eternal life, then they are sorrowful. If the words of life dwell within us, and we have the hope of eternal life and glory, and let that spark within us kindle to a flame, to the consuming of the least and last remains of selfishness, we never can walk in darkness and are strangers to doubt and fear. …
 
-“It does make the devil mad. That is true, it makes him mad that he cannot afflict this people so as to make them have a sad countenance. …
+“It does make the devil mad. That is true, it makes him mad that he cannot afflict this people so as to make them have a sad countenance. …
 
 “Where is happiness, real happiness? Nowhere but in God. By possessing the spirit of our holy religion, we are happy in the morning, we are happy at noon, we are happy in the evening; for the spirit of love and union is with us, and we rejoice in the spirit because it is of God, and we rejoice in God, for he is the giver of every good thing. Every Latter-day Saint, who has experienced the love of God in his heart, after having received the remission of his sins, through baptism, and the laying on of hands, realizes that he is filled with joy, and happiness, and consolation. He may be in pain, in error, in poverty, or in prison, if necessity demands, still, he is joyful. This is our experience, and each and every Latter-day Saint can bear witness to it.
 
-“Truly happy is that man or woman, or that people, who enjoys the privileges of the Gospel of the Son of God, and who know how to appreciate his blessings.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, pp. 235–36.)
+“Truly happy is that man or woman, or that people, who enjoys the privileges of the Gospel of the Son of God, and who know how to appreciate his blessings.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, pp. 235–36.)
 
 If this really works, it is the greatest source of happiness to be found on earth. Let me cite one more example as it was written in a recent *Ensign* magazine.
 
@@ -95,6 +95,4 @@ God lives. Jesus is the Christ. This is his church. This is my humble witness to
 
 
 
-
-
-#Example #House_Of_Israel #Joy
+#Example #HouseOfIsrael #Joy

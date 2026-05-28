@@ -34,11 +34,11 @@ Out of the darkness and the horror of Calvary came the voice of the Lamb, saying
 
 Saul, on the road to Damascus, had a vision of the risen, exalted Christ. Later, as Paul, defender of truth and fearless missionary in the service of the Master, he bore witness of the risen Lord as he declared to the Saints at Corinth: “Christ died for our sins according to the scriptures;
 
-“… He was buried, and … he rose again the third day according to the scriptures:
+“… He was buried, and … he rose again the third day according to the scriptures:
 
-“… He was seen of Cephas, then of the twelve:
+“… He was seen of Cephas, then of the twelve:
 
-“After that, he was seen of above five hundred brethren at once. …
+“After that, he was seen of above five hundred brethren at once. …
 
 “After that, he was seen of James; then of all the apostles.
 
@@ -86,7 +86,7 @@ There are many ways in which we can misuse our opportunities. Some time ago I re
 
 “The Battle of the High School was a draw. The principal got a better job and left before Mrs. Wilcox succeeded in having him ousted, or Grandma in having him given life tenure of office.
 
-“… When, as children, we visited my grandmother, part of the fun was making faces at Mrs. Wilcox’s … grandchildren. … One banner day, we put a snake into the Wilcox rain barrel. My grandmother made token protests, but we sensed tacit sympathy. …
+“… When, as children, we visited my grandmother, part of the fun was making faces at Mrs. Wilcox’s … grandchildren. … One banner day, we put a snake into the Wilcox rain barrel. My grandmother made token protests, but we sensed tacit sympathy. …
 
 “Don’t think for a minute that this was a one-sided campaign. Mrs. Wilcox had grandchildren, too. … Grandma didn’t get off scot free. … Never a windy washday went by \[that the clothesline didn’t mysteriously break, with the clothes falling in the dirt\].
 
@@ -113,7 +113,7 @@ My brothers and sisters, may we resolve from this day forward to fill our hearts
 
 [^5]: Minnie Louise Haskins, “The Gate of the Year,” in James Dalton Morrison, ed. *Masterpieces of Religious Verse* (1948), 92.
 
-[^6]: [[1 Corinthians 15.3|1 Cor. 15:3–8]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]].
+[^6]: [[1 Corinthians 15.3|1 Cor. 15:3–8]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]].
 
 [^7]: [[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]].
 
@@ -129,8 +129,6 @@ My brothers and sisters, may we resolve from this day forward to fill our hearts
 
 [^13]: *Hymns,* no. 223.
 
-[^14]: [[2 Timothy 4.7|2 Tim. 4:7]].
+[^14]: [[2 Timothy 4.7|2 Tim. 4:7]].
 
-
-
-#Death #Joy #Love #Peace #Plan_Of_Salvation #Service #Testimony #Time_Management #Truth
+#Death #Joy #Love #Peace #PlanOfSalvation #Service #TimeManagement #Testimony #Truth

@@ -1,6 +1,6 @@
 # Spiritual Eclipse
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -8,7 +8,7 @@ By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/10/spiritual-eclipse?lang=eng)
 
-On August 21 of this year, two rare events occurred that captured the attention of people around the world. The first was the 90th birthday celebration of our beloved prophet, President Thomas S. Monson. At the time, I was on assignment in the Pacific Area and was thrilled that the Saints of Australia, Vanuatu, New Zealand, and French Polynesia were not only aware of his personal milestone, but they also rejoiced in celebrating it. I felt fortunate to share in their warm expressions of faith and love for this great man. What an inspiration it is to see the connection Latter-day Saints share with their prophet.
+On August 21 of this year, two rare events occurred that captured the attention of people around the world. The first was the 90th birthday celebration of our beloved prophet, President Thomas S. Monson. At the time, I was on assignment in the Pacific Area and was thrilled that the Saints of Australia, Vanuatu, New Zealand, and French Polynesia were not only aware of his personal milestone, but they also rejoiced in celebrating it. I felt fortunate to share in their warm expressions of faith and love for this great man. What an inspiration it is to see the connection Latter-day Saints share with their prophet.
 
 Of course, President Monson, mindful of those desiring to wish him happy birthday, described an ideal birthday gift: “Find someone who is having a hard time or is ill or lonely and do something for them. That’s all I would ask.”[^1] We love and sustain you, President Monson.
 
@@ -28,7 +28,7 @@ They described a sense of awe, astonishment, and even anxiety, knowing an eclips
 
 In the same manner that the very small moon can block the magnificent sun, extinguishing its light and warmth, a *spiritual* eclipse can occur when we allow minor and troublesome obstructions—those we face in our daily lives—to get so close that they block out the magnitude, brightness, and warmth of the light of Jesus Christ and His gospel.
 
-Elder Neal A. Maxwell took this analogy even further when he stated: “Even something as small as a man’s thumb, when held very near the eye, can blind him to the very large sun. Yet the sun is still there. Blindness is brought upon the man by himself. When we draw other things too close, placing them first, we obscure our vision of heaven.”[^6]
+Elder Neal A. Maxwell took this analogy even further when he stated: “Even something as small as a man’s thumb, when held very near the eye, can blind him to the very large sun. Yet the sun is still there. Blindness is brought upon the man by himself. When we draw other things too close, placing them first, we obscure our vision of heaven.”[^6]
 
 Clearly, none of us wants to purposefully obscure our vision of heaven or allow a spiritual eclipse to occur in our lives. Let me share some thoughts that may assist us in preventing spiritual eclipse from causing us permanent spiritual damage.
 
@@ -40,19 +40,19 @@ Let’s consider some examples. With the words of the prophets in our hearts and
 
 So how do we put on gospel glasses? Here are some examples: Our gospel glasses inform us that the Lord desires that we partake of the sacrament each week and that He desires that we study the scriptures and have daily prayer. They also inform us that Satan will tempt us not to. We know that his agenda seeks to take away our agency through distractions and worldly temptations. Even in Job’s day, perhaps there were some experiencing a spiritual eclipse, described as: “They meet with darkness in the daytime, and grope in the noonday as in the night.”[^7]
 
-Brothers and sisters, when I speak of seeing through gospel glasses, please know that I am not suggesting that we do not acknowledge or discuss the challenges we face or that we walk blissfully ignorant of the traps and evils the enemy has placed before us. I am not speaking of wearing blinders—but just the opposite. I am suggesting that we look at challenges through the lens of the gospel. Elder Dallin H. Oaks observed that “perspective is the ability to see all relevant information in a meaningful relationship.”[^8] A gospel perspective expands our sight to an eternal view.
+Brothers and sisters, when I speak of seeing through gospel glasses, please know that I am not suggesting that we do not acknowledge or discuss the challenges we face or that we walk blissfully ignorant of the traps and evils the enemy has placed before us. I am not speaking of wearing blinders—but just the opposite. I am suggesting that we look at challenges through the lens of the gospel. Elder Dallin H. Oaks observed that “perspective is the ability to see all relevant information in a meaningful relationship.”[^8] A gospel perspective expands our sight to an eternal view.
 
 When you put on gospel glasses, you find enhanced perspective, focus, and vision in the way you think about your priorities, your problems, your temptations, and even your mistakes. You will see brighter light that you could not see without them.
 
 Ironically, it is not only the negative that can cause spiritual eclipse in our lives. Often, admirable or positive endeavors to which we dedicate ourselves can be drawn so close that they blot out gospel light and bring darkness. These dangers or distractions could include education and prosperity, power and influence, ambition, even talents and gifts.
 
-President Dieter F. Uchtdorf has taught that “any virtue when taken to an extreme can become a vice. … There comes a point where milestones can become millstones and ambitions, albatrosses around our necks.”[^9]
+President Dieter F. Uchtdorf has taught that “any virtue when taken to an extreme can become a vice. … There comes a point where milestones can become millstones and ambitions, albatrosses around our necks.”[^9]
 
 Let me share in greater detail examples that could become catalysts for avoiding our own spiritual eclipses.
 
 ## Social Media
 
-A few months ago I spoke at BYU Women’s Conference.[^10] I described how technology, including social media, facilitates spreading “the knowledge of a Savior … throughout every nation, kindred, tongue, and people.”[^11] These technologies include Church websites like  and ; mobile apps such as Gospel Library, Mormon Channel, LDS Tools, and Family Tree; and social media platforms, including Facebook, Instagram, Twitter, and Pinterest. These modalities have generated hundreds of millions of likes, shares, views, retweets, and pins and have become very effective and efficient in sharing the gospel with family, friends, and associates.
+A few months ago I spoke at BYU Women’s Conference.[^10] I described how technology, including social media, facilitates spreading “the knowledge of a Savior … throughout every nation, kindred, tongue, and people.”[^11] These technologies include Church websites like [LDS.org](https://lds.org) and [Mormon.org](https://mormon.org); mobile apps such as Gospel Library, Mormon Channel, LDS Tools, and Family Tree; and social media platforms, including Facebook, Instagram, Twitter, and Pinterest. These modalities have generated hundreds of millions of likes, shares, views, retweets, and pins and have become very effective and efficient in sharing the gospel with family, friends, and associates.
 
 All of the virtues and appropriate use of these technologies notwithstanding, there are risks associated with them that, when drawn too close, can put us in a spiritual eclipse and potentially block the brightness and warmth of the gospel.
 
@@ -68,7 +68,7 @@ Comparing our own seemingly average existence with others’ well-edited, perfec
 
 One person who has shared numerous posts of her own said, perhaps only partly in jest, “What’s the point of being happy if you’re not going to post it?”[^12]
 
-As Sister Bonnie L. Oscarson reminded us this morning, success in life doesn’t come down to how many likes we get or how many social media friends or followers we have. It does, however, have something to do with meaningfully connecting with others and adding light to their lives.
+As Sister Bonnie L. Oscarson reminded us this morning, success in life doesn’t come down to how many likes we get or how many social media friends or followers we have. It does, however, have something to do with meaningfully connecting with others and adding light to their lives.
 
 Hopefully, we can learn to be more real, find more humor, and experience less discouragement when confronted with images that may portray idealized reality and that too often lead to debilitating comparisons.
 
@@ -109,7 +109,7 @@ I bear testimony that no matter the obstruction that may block our vision of gos
 
 
 
-[^1]: Thomas S. Monson, in Sarah Jane Weaver, “What Gift Does President Monson Want for His 90th Birthday?” *Deseret News,* Aug. 17, 2017, deseretnews.com.
+[^1]: Thomas S. Monson, in Sarah Jane Weaver, “What Gift Does President Monson Want for His 90th Birthday?” *Deseret News,* Aug. 17, 2017, deseretnews.com.
 
 [^2]: See Christina Zdanowicz and Judson Jones, “An Eclipse Will Cross the US for the First Time in 99 Years,” July 24, 2017, cnn.com.
 
@@ -119,27 +119,28 @@ I bear testimony that no matter the obstruction that may block our vision of gos
 
 [^5]: See Brian Lada, “5 Surprising Effects the Total Solar Eclipse Will Have besides Darkness,” accuweather.com.
 
-[^6]: Neal A. Maxwell, *Of One Heart: The Glory of the City of Enoch* (1975), 19.
+[^6]: Neal A. Maxwell, *Of One Heart: The Glory of the City of Enoch* (1975), 19.
 
 [^7]: [[Job 5.14|Job 5:14]].
 
-[^8]: Dallin H. Oaks, address given at Salt Lake Bonneville Young Single Adult Stake fireside, Salt Lake City, Utah, Feb. 8, 2015.
+[^8]: Dallin H. Oaks, address given at Salt Lake Bonneville Young Single Adult Stake fireside, Salt Lake City, Utah, Feb. 8, 2015.
 
-[^9]: Dieter F. Uchtdorf, “[[2010 October - Of Things That Matter Most.md|Of Things That Matter Most]],” *Ensign* or *Liahona,* Nov. 2010, 20.
+[^9]: Dieter F. Uchtdorf, “[[2010 October - Of Things That Matter Most.md|Of Things That Matter Most]],” *Ensign* or *Liahona,* Nov. 2010, 20.
 
-[^10]: See Gary E. Stevenson, “[The Knowledge of a Savior](http://www.mormonnewsroom.org/article/elder-stevenson-byu-womens-conference-2017)” (Brigham Young University Women’s Conference, May 5, 2017).
+[^10]: See Gary E. Stevenson, “[The Knowledge of a Savior](https://www.mormonnewsroom.org/article/elder-stevenson-byu-womens-conference-2017)” (Brigham Young University Women’s Conference, May 5, 2017).
 
 [^11]: [[Mosiah 3.20|Mosiah 3:20]].
 
 [^12]: Jade, “The Obsession of Creating a Picture-Perfect Life on Social Media.”
 
-[^13]: [[2 Corinthians 10.12|2 Corinthians 10:12]].
+[^13]: [[2 Corinthians 10.12|2 Corinthians 10:12]].
 
-[^14]: See *Preach My Gospel: A Guide to Missionary Service* (2004), 120–21.
+[^14]: See *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng)* (2004), 120–21.
 
-[^15]: [[Matthew 5.5|Matthew 5:5]]; [[3 Nephi 12.5|3 Nephi 12:5]].
+[^15]: [[Matthew 5.5|Matthew 5:5]]; [[3 Nephi 12.5|3 Nephi 12:5]].
 
 [^16]: [[Moroni 7.44|Moroni 7:44]].
 
+[^17]: See “Solar Eclipse and Your Eyes,” preventblindness.org.
 
 #Adversity #Humility #Media #Perspective #Pride #Safety

@@ -1,6 +1,6 @@
 # The Worth of Souls Is Great!
 
-By President Paul H. Dunn - *Of the First Council of the Seventy*
+By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -51,6 +51,4 @@ God grant us the vision as leaders, teachers, and parents to put people first. R
 
 
 
-
-
-#Individual_Worth #Teaching
+#IndividualWorth #Teaching

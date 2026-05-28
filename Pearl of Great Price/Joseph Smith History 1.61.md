@@ -5,5 +5,5 @@
 [Joseph Smith History 1:61](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.61?lang=eng#p61)
 
 
-[^a]: TG [[Injustice]].
-[^b]: [[D&C 5.1|D&C 5:1 (1-32).]]
+[^a]: [[Injustice|TG Injustice]].  
+[^b]: [[D&C 5.1|D&C 5:1 (1–32)]][[D&C 5.2|]][[D&C 5.3|]][[D&C 5.4|]][[D&C 5.5|]][[D&C 5.6|]][[D&C 5.7|]][[D&C 5.8|]][[D&C 5.9|]][[D&C 5.10|]][[D&C 5.11|]][[D&C 5.12|]][[D&C 5.13|]][[D&C 5.14|]][[D&C 5.15|]][[D&C 5.16|]][[D&C 5.17|]][[D&C 5.18|]][[D&C 5.19|]][[D&C 5.20|]][[D&C 5.21|]][[D&C 5.22|]][[D&C 5.23|]][[D&C 5.24|]][[D&C 5.25|]][[D&C 5.26|]][[D&C 5.27|]][[D&C 5.28|]][[D&C 5.29|]][[D&C 5.30|]][[D&C 5.31|]][[D&C 5.32|]].  

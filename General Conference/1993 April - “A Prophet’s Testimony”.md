@@ -26,9 +26,9 @@ He also would have me repeat his testimony of our Divine Redeemer, who stands as
 
 “‘Come unto him, and offer your whole souls as an offering unto him’ ([[Omni 1.26|Omni 1:26]]).
 
-“As Moroni closed the record of the Jaredite civilization, he wrote, ‘I would commend you to seek this Jesus of whom the prophets and apostles have written’ ([[Ether 12.41|Ether 12:41]])” (*The Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], p. 10).
+“As Moroni closed the record of the Jaredite civilization, he wrote, ‘I would commend you to seek this Jesus of whom the prophets and apostles have written’ ([[Ether 12.41|Ether 12:41]])” (*The Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], p. 10).
 
-“The question is sometimes asked, ‘Are Mormons Christians?’ We declare,” says President Benson, “the divinity of Jesus Christ. We look to Him as the only source of our salvation. We strive to live His teachings, and we look forward to the time that He shall come again on this earth to rule and reign as King of Kings and Lord of Lords. In the words of a Book of Mormon prophet, we say to men today, ‘There \[is\] no other name given nor any other way nor means whereby salvation can come unto the children of men, only in and through the name of Christ, the Lord Omnipotent’ ([[Mosiah 3.17|Mosiah 3:17]])” (*The Teachings of Ezra Taft Benson,* p. 10).
+“The question is sometimes asked, ‘Are Mormons Christians?’ We declare,” says President Benson, “the divinity of Jesus Christ. We look to Him as the only source of our salvation. We strive to live His teachings, and we look forward to the time that He shall come again on this earth to rule and reign as King of Kings and Lord of Lords. In the words of a Book of Mormon prophet, we say to men today, ‘There \[is\] no other name given nor any other way nor means whereby salvation can come unto the children of men, only in and through the name of Christ, the Lord Omnipotent’ ([[Mosiah 3.17|Mosiah 3:17]])” (*The Teachings of Ezra Taft Benson,* p. 10).
 
 I urge you to accept and ponder that testimony from him whom we sustain as prophet, seer, and revelator.
 
@@ -49,6 +49,4 @@ Beloved friends and associates, we wish for each of you a safe return to your ho
 
 
 
-
-
-#Ezra_Taft_Benson #Jesus_Christ #Testimony
+#EzraTaftBenson #JesusChrist #Testimony

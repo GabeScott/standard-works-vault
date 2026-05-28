@@ -4,7 +4,7 @@ By Elder Harold G. Hillam - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
 
->*When we see the effect one person can have … , it perhaps is no wonder that the Lord reminded us, “Remember the worth of souls.”*
+>*When we see the effect one person can have … , it perhaps is no wonder that the Lord reminded us, “Remember the worth of souls.”*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/04/the-worth-of-souls?lang=eng)
 
@@ -44,4 +44,5 @@ I pray we all might consider what we can do individually to assist those who wil
 
 
 
-#Activation #Forgiveness #Individual_Worth #Obedience
+
+#Activation #Forgiveness #IndividualWorth #Obedience

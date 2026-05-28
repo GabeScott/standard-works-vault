@@ -1,6 +1,6 @@
 # Prayer to Our Heavenly Father
 
-By Elder Bernard P. Brockbank - *Of the First Quorum of the Seventy*
+By Elder Bernard P. Brockbank - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -20,7 +20,7 @@ The Lord commands, “Pray always, and I will pour out my Spirit upon you, and g
 
 In the Bible we are commanded to “pray without ceasing.
 
-“In everything give thanks: for this is the will of God in Christ Jesus concerning you” ([[1 Thessalonians 5.17|1 Thes. 5:17–18]][[1 Thessalonians 5.18|]]).
+“In everything give thanks: for this is the will of God in Christ Jesus concerning you” ([[1 Thessalonians 5.17|1 Thes. 5:17–18]][[1 Thessalonians 5.18|]]).
 
 Prayer to God will give you power to conquer and overcome the evil powers and influences of Satan and this world. The Lord said, “Pray always, that you may come off conqueror; yea, that you may conquer Satan, and that you may escape the hands of the servants of Satan that do uphold his work” ([[D&C 10.5|D&C 10:5]]).
 
@@ -40,7 +40,7 @@ We should thank God for our “daily bread” and ask him to help us provide the
 
 We should ask our Father to help us meet the temptations of this life and to deliver us from evil. When we pray from our hearts and say “For thine is the kingdom, and the power, and the glory, for ever,” we commit ourselves. Remember, the kingdom of God, the power of God, the glory of God should be man’s most cherished and important blessings and goals in this life.
 
-So important is the need to pray that the prophet Nephi taught “that ye should not perform any thing unto the Lord save in the first place ye shall pray unto the Father in the name of Christ, that he will consecrate thy performance unto thee, that thy performance may be for the welfare of thy soul” ([[2 Nephi 32.9|2 Ne. 32:9]]).
+So important is the need to pray that the prophet Nephi taught “that ye should not perform any thing unto the Lord save in the first place ye shall pray unto the Father in the name of Christ, that he will consecrate thy performance unto thee, that thy performance may be for the welfare of thy soul” ([[2 Nephi 32.9|2 Ne. 32:9]]).
 
 To pray meaningfully requires that one, insofar as possible, know the true character of God. As mentioned, we have been commanded to know God. Prayer leads to salvation, and ignorance is a deterrent to that goal.
 
@@ -58,7 +58,7 @@ We should live and work, watch and wait, and continually pursue life prayerfully
 
 A prophet of God counsels man to pray always with these words: “And now, my beloved brethren, I perceive that ye ponder still in your hearts, and it grieveth me that I must speak concerning this thing. For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray, but teacheth him he must not pray.
 
-“But behold, I say unto you that ye must pray always, and not faint; that ye must not perform any thing unto the Lord save in the first place ye shall pray unto the Father in the name of Christ, that he will consecrate thy performance unto thee, that thy performance may be for the welfare of thy soul” ([[2 Nephi 32.8|2 Ne. 32:8–9]][[2 Nephi 32.9|]]).
+“But behold, I say unto you that ye must pray always, and not faint; that ye must not perform any thing unto the Lord save in the first place ye shall pray unto the Father in the name of Christ, that he will consecrate thy performance unto thee, that thy performance may be for the welfare of thy soul” ([[2 Nephi 32.8|2 Ne. 32:8–9]][[2 Nephi 32.9|]]).
 
 Enos, a servant of the Lord—and this has been quoted a time or two in this conference, so apparently the Lord wanted emphasis on this—Enos speaks on the power of sincere prayer: “I will tell you of the wrestle which I had before God, before I received a remission of my sins.
 
@@ -84,15 +84,15 @@ King Benjamin, when speaking to his people about prayer and repentance, gives va
 
 The scriptures give us many promises regarding the power and the need of personal prayer. Jesus commanded men: “Ye must watch and pray always, lest ye be tempted by the devil, and ye be led away captive by him.
 
-“And as I have prayed among you even so shall ye pray in my church, among my people who do repent and are baptized in my name. Behold I am the light; I have set an example for you” ([[3 Nephi 18.15|3 Ne. 18:15–16]][[3 Nephi 18.16|]]).
+“And as I have prayed among you even so shall ye pray in my church, among my people who do repent and are baptized in my name. Behold I am the light; I have set an example for you” ([[3 Nephi 18.15|3 Ne. 18:15–16]][[3 Nephi 18.16|]]).
 
 “Behold, verily, verily, I say unto you,” the Lord continued, “ye must watch and pray always lest ye enter into temptation; for Satan desireth to have you, that he may sift you as wheat.
 
 “Therefore ye must always pray unto the Father in my name;
 
-“And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you” ([[3 Nephi 18.18|3 Ne. 18:18–20]][[3 Nephi 18.19|]][[3 Nephi 18.20|]]).
+“And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you” ([[3 Nephi 18.18|3 Ne. 18:18–20]][[3 Nephi 18.19|]][[3 Nephi 18.20|]]).
 
-Jesus Christ counsels man to have family prayer. He said, “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed” ([[3 Nephi 18.21|3 Ne. 18:21]]).
+Jesus Christ counsels man to have family prayer. He said, “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed” ([[3 Nephi 18.21|3 Ne. 18:21]]).
 
 Very few pray too much. It is not one of our weaknesses.
 
@@ -101,8 +101,6 @@ Parents have the sacred responsibility to teach their children the importance an
 Another blessing available through prayer is feeling the love of God in your heart and soul. We have in the scriptures this sacred promise: “Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; that ye may become the sons of God; that when he shall appear we shall be like him, for we shall see him as he is; that we may have this hope; that we may be purified even as he is pure” ([[Moroni 7.48|Moro. 7:48]]).
 
 As the sons and daughters of a living God, a living Heavenly Father, we should stay close to him by humble prayer. We should stay close to him with a clean life, that our hearts may find peace in all of life’s sacred opportunities and blessings. I so pray in the name of Jesus Christ, amen.
-
-
 
 
 

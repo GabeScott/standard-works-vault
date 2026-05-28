@@ -1,6 +1,6 @@
 # “Prepare Every Needful Thing”
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -63,8 +63,6 @@ We have been taught that we should build our reserves over a period of time, tha
 My brothers and sisters, I feel our anxieties are justified. It is the opinion of many that more difficult times lie ahead. We are deeply concerned about the welfare of our people and recognize the potential privation and suffering that will exist if each person and family does not accept the word of the Lord when he says, “Prepare every needful thing” ([[D&C 88.119|D&C 88:119]]), and “It must needs be done in mine own way” ([[D&C 104.16|D&C 104:16]]).
 
 May I again implore you priesthood and Relief Society leaders to see that all members of the Church everywhere understand the responsibility they have for their own welfare, that our people will be blessed to live provident and righteous lives. In the name of Jesus Christ, amen.
-
-
 
 
 

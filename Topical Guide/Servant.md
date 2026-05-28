@@ -1,15 +1,14 @@
 # Servant
 
-
-*See also* [[Minister.md|Minister]]; [[Serve.md|Serve]]; [[Service.md|Service]]; [[Slavery, Slave.md|Slavery]]; [[Stewardship, Steward.md|Stewardship]]
+*See also* [[Minister.md|Minister]]; [[Serve.md|Serve]]; [[Service.md|Service]]; [[Slavery.md|Slavery]]; [[Stewardship.md|Stewardship]]
 
 Cursed be Canaan; a *servant of servants* shall he be, [[Genesis 9.25|Genesis 9:25]].
 
-Israel ... believed the Lord, and his *servant* Moses, [[Exodus 14.31|Exodus 14:31]].
+Israel … believed the Lord, and his *servant* Moses, [[Exodus 14.31|Exodus 14:31]].
 
 children of Israel are *servants*; they are my *servants*, [[Leviticus 25.55|Leviticus 25:55]].
 
-remember that thou wast a *servant* in ... Egypt, [[Deuteronomy 5.15|Deuteronomy 5:15]].
+remember that thou wast a *servant* in … Egypt, [[Deuteronomy 5.15|Deuteronomy 5:15]].
 
 Speak; for thy *servant* heareth, [[1 Samuel 3.10|1 Samuel 3:10]].
 
@@ -59,7 +58,7 @@ Blessed is that *servant*, whom his lord when he cometh shall find so doing, [[M
 
 Well done, thou good and faithful *servant*, [[Matthew 25.21|Matthew 25:21]].
 
-first ... shall be last of all, and *servant* of all, [[Mark 9.35|Mark 9:35]].
+first … shall be last of all, and *servant* of all, [[Mark 9.35|Mark 9:35]].
 
 We are unprofitable *servants*, [[Luke 17.10|Luke 17:10]].
 
@@ -81,19 +80,19 @@ made myself *servant* unto all, [[1 Corinthians 9.19|1 Corinthians 9:19]].
 
 thou art no more a *servant*, but a son, [[Galatians 4.7|Galatians 4:7]].
 
-*Servants*, be obedient to ... your masters, [[Ephesians 6.5|Ephesians 6:5]] ([[Colossians 3.22|Colossians 3:22]]; [[Titus 2.9|Titus 2:9-10]][[Titus 2.10|]]; [[1 Peter 2.18|1 Peter 2:18]]).
+*Servants*, be obedient to … your masters, [[Ephesians 6.5|Ephesians 6:5]] ([[Colossians 3.22|Colossians 3:22]]; [[1 Peter 2.18|1 Peter 2:18]]).
 
-*servants* ... count their own masters worthy, [[1 Timothy 6.1|1 Timothy 6:1]].
+*servants* … count their own masters worthy, [[1 Timothy 6.1|1 Timothy 6:1]].
 
 *servant* of the Lord must not strive, [[2 Timothy 2.24|2 Timothy 2:24]].
 
 faithful in all his house, as a *servant*, [[Hebrews 3.5|Hebrews 3:5]].
 
-James, a *servant* of God and ... Jesus Christ, [[James 1.1|James 1:1]].
+James, a *servant* of God and … Jesus Christ, [[James 1.1|James 1:1]].
 
 not using your liberty for a cloak of maliciousness, but as the *servants* of God, [[1 Peter 2.16|1 Peter 2:16]].
 
-Simon Peter, a *servant* ... of Jesus Christ, [[2 Peter 1.1|2 Peter 1:1]].
+Simon Peter, a *servant* … of Jesus Christ, [[2 Peter 1.1|2 Peter 1:1]].
 
 they themselves are the *servants* of corruption, [[2 Peter 2.19|2 Peter 2:19]].
 
@@ -101,9 +100,9 @@ Jude, the *servant* of Jesus Christ, [[Jude 1.1|Jude 1:1]].
 
 shew unto his *servants* things which must shortly come to pass, [[Revelation 1.1|Revelation 1:1]].
 
-Hurt not the earth ... till we have sealed the *servants* of our God, [[Revelation 7.3|Revelation 7:3]].
+Hurt not the earth … till we have sealed the *servants* of our God, [[Revelation 7.3|Revelation 7:3]].
 
-keeper of the gate is the Holy One ... he employeth no *servant* there, [[2 Nephi 9.41|2 Nephi 9:41]].
+keeper of the gate is the Holy One … he employeth no *servant* there, [[2 Nephi 9.41|2 Nephi 9:41]].
 
 said unto his *servant*: It grieveth me, [[Jacob 5.7|Jacob 5:7]].
 
@@ -121,8 +120,6 @@ called upon my *servant* Joseph Smith, [[D&C 1.17|D&C 1:17]].
 
 whether by mine own voice or by the voice of my *servants*, it is the same, [[D&C 1.38|D&C 1:38]].
 
-Upon you my fellow *servants* ... I confer the Priesthood, ([[Joseph Smith History 1.69|Joseph Smith History 1:69]]).
-
 he is the least and the *servant* of all, [[D&C 50.26|D&C 50:26]].
 
 same is a slothful and not a wise *servant*, [[D&C 58.26|D&C 58:26]].
@@ -131,9 +128,9 @@ shall be *servants* of the Most High, [[D&C 76.112|D&C 76:112]].
 
 he that receiveth my *servants* receiveth me, [[D&C 84.36|D&C 84:36]].
 
-called you *servants* for the world's sake, [[D&C 93.46|D&C 93:46]].
+called you *servants* for the world’s sake, [[D&C 93.46|D&C 93:46]].
 
-lord ... called upon his *servants*, [[D&C 101.52|D&C 101:52]].
+lord … called upon his *servants*, [[D&C 101.52|D&C 101:52]].
 
 *servants* whom I have appointed to lead my people, [[D&C 124.45|D&C 124:45]].
 

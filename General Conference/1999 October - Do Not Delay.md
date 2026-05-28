@@ -32,7 +32,7 @@ Not all of us fall into that trap of inaction. But enough people do that we each
 
 That temptation to delay comes from our enemy, Lucifer. He knows that we can never be truly happy unless we have hope in this life and then realization, in the next, of eternal life. It is the greatest of all the gifts of God. It is to live in families forever with our Heavenly Father and with Jesus Christ and to have eternal increase. Satan wants us to be miserable as he is. And he knows that we can only have that true happiness if we are washed clean through faith in the Lord Jesus Christ, by deep and continuing repentance, and the making and keeping of sacred covenants offered only through God’s authorized servants. The scriptures confirm the hazard:
 
-“Wherefore, if ye have sought to do wickedly in the days of your probation, then ye are found unclean before the judgment-seat of God; and no unclean thing can dwell with God; wherefore, ye must be cast off forever” ([[1 Nephi 10.21|1 Ne. 10:21]]).
+“Wherefore, if ye have sought to do wickedly in the days of your probation, then ye are found unclean before the judgment-seat of God; and no unclean thing can dwell with God; wherefore, ye must be cast off forever” ([[1 Nephi 10.21|1 Ne. 10:21]]).
 
 And so Satan tempts with procrastination throughout our days of probation. Any choice to delay repentance gives him the chance to steal happiness from one of the spirit children of our Heavenly Father.
 
@@ -85,6 +85,4 @@ I testify that God the Father lives. I know that. And He loves us. His Only Bego
 
 
 
-
-
-#Family #Forgiveness #Joy #Parenthood #Plan_Of_Salvation #Preparation #Repentance #Sin #Time_Management
+#Family #Forgiveness #Joy #Parenthood #PlanOfSalvation #Preparation #Repentance #Sin #TimeManagement

@@ -1,6 +1,6 @@
 # If You Will Be Responsible
 
-By Elder Jorge F. Zeballos - *Of the Seventy*
+By Elder Jorge F. Zeballos - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -24,7 +24,7 @@ What responsibility do we have as members of the Church of Jesus Christ? Preside
 
 These, then, are the main responsibilities that our Father has assigned to us: seeking our own salvation and that of others, with the understanding that in this statement, *salvation* means reaching the highest degree of glory that our Father has provided for His obedient children.[^3] These responsibilities that have been entrusted to us—and which we have freely accepted—must define our priorities, our desires, our decisions, and our daily conduct.
 
-For someone who has come to understand that, because of the Atonement of Jesus Christ, exaltation is truly within reach, failing to obtain it constitutes damnation. Thus, the opposite of salvation is damnation, just like the opposite of success is failure. President Thomas S. Monson has taught us that “men cannot really long rest content with mediocrity once they see excellence is within their reach.”[^4] How, then, could we be content with anything short of exaltation if we know that exaltation is possible?
+For someone who has come to understand that, because of the Atonement of Jesus Christ, exaltation is truly within reach, failing to obtain it constitutes damnation. Thus, the opposite of salvation is damnation, just like the opposite of success is failure. President Thomas S. Monson has taught us that “men cannot really long rest content with mediocrity once they see excellence is within their reach.”[^4] How, then, could we be content with anything short of exaltation if we know that exaltation is possible?
 
 Allow me to share four key principles that will help us fulfill our desire to be responsible to our Father in Heaven as well as respond to His expectation that we become as He is.
 
@@ -77,19 +77,19 @@ How grateful and happy I am for the decision that my father let me make 47 years
 
 [^3]: See [[D&C 132.21|Doctrine and Covenants 132:21–23]][[D&C 132.22|]][[D&C 132.23|]].
 
-[^4]: Thomas S. Monson, “To the Rescue,” *Ensign,* May 2001, 49; *Liahona,* July 2001, 58.
+[^4]: Thomas S. Monson, “To the Rescue,” *Ensign,* May 2001, 49; *Liahona,* July 2001, 58.
 
 [^5]: [[D&C 107.99|Doctrine and Covenants 107:99]].
 
 [^6]: Lewis Carroll, *Alice’s Adventures in Wonderland* (1920), 89.
 
-[^7]: [[1 Nephi 8.10|1 Nephi 8:10]].
+[^7]: [[1 Nephi 8.10|1 Nephi 8:10]].
 
 [^8]: [[Matthew 7.14|Matthew 7:14]].
 
-[^9]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^9]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^10]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^10]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^11]: [[Leviticus 19.12|Leviticus 19:12]].
 
@@ -98,7 +98,5 @@ How grateful and happy I am for the decision that my father let me make 47 years
 [^13]: [[Mark 2.5|Mark 2:5]].
 
 [^14]: [[Mark 1.40|Mark 1:40]].
-
-
 
 #Conversion #Discipleship #Responsibility

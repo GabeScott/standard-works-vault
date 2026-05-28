@@ -1,6 +1,6 @@
 # Ministering to the Needs of Members
 
-By President Spencer W. Kimball - *President of the Church*
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -29,8 +29,6 @@ One more very important thing, my brethren—especially you stake presidents, bi
 We are rightly known as a chapel-building people. I hope we will become even better known as a family-building people. Do not neglect your own families, brethren. The new consolidated schedule permits you, if you plan well, to hold all the meetings in the consolidated schedule along with the necessary administrative meetings and *still have several hours with your family every Sunday.* Please see to it that this is done, so that you priesthood brethren do not neglect your own families and so that our wonderful stake presidents, bishops, branch and quorum presidents, and others can do likewise.
 
 I love you, my brethren, my beloved brethren, and I am grateful for your faith, your devotion, and your love for the cause of truth, the cause of the Master. Brethren, I express my affection for you and all your people in the scattered portions of the world. May the Lord bless you, brethren, and know that you are much loved here at Church headquarters. God bless you; peace be with you, in the name of Jesus Christ, amen.
-
-
 
 
 

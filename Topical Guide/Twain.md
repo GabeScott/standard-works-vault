@@ -1,6 +1,5 @@
 # Twain
 
-
 *See also* [[Two.md|Two]]
 
 they *twain* shall be one flesh, [[Matthew 19.5|Matthew 19:5]] ([[Mark 10.8|Mark 10:8]]; [[D&C 49.16|D&C 49:16]]).
@@ -15,4 +14,4 @@ walls of the prison were rent in *twain*, [[Alma 14.27|Alma 14:27]] ([[Helaman 1
 
 rocks were rent in *twain*, [[3 Nephi 8.18|3 Nephi 8:18]].
 
-mount ... shall cleave in *twain*, [[D&C 45.48|D&C 45:48]].
+mount … shall cleave in *twain*, [[D&C 45.48|D&C 45:48]].
