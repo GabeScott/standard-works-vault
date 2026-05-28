@@ -23,5 +23,4 @@ What a wonderful promise! If I would put my faith in the Lord, he would help me.
 No matter where you live or what kind of family you come from, Heavenly Father loves you and will be there to help and strengthen you whenever you need him. I know this because he has been there for me. I love my family, who understand the challenges I have. I’m grateful for leaders who have worked with me. I know the Church is true. I know the scriptures are there for each of us to learn from. I know that Christ lives. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Disabilities #Scripture_Study

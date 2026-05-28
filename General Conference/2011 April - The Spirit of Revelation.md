@@ -65,5 +65,4 @@ As you appropriately seek for and apply unto the spirit of revelation, I promise
 I declare my apostolic witness that the Father and the Son live. The spirit of revelation is real—and can and does function in our individual lives and in The Church of Jesus Christ of Latter-day Saints. I testify of these truths in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Church_History #Faith #Holy_Ghost #Obedience #Revelation

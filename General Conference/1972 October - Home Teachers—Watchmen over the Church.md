@@ -81,5 +81,4 @@ The First Presidency many years ago stated, “The home \[is\] the basis of a ri
 May we better fulfill our assignment as home teachers by becoming guardians and watchmen over the families of the Church and thus strengthen them, I pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Home_Teaching

@@ -41,5 +41,4 @@ Christ’s promise is simple and sublime: “Peace I leave with you, my peace I 
 The Samaritan woman looked into the face of Christ, listened to His voice, and recognized Him at a time when most others rejected all He taught. We know Him too, or we can, if we allow His healing power, His nourishing strength, His peace and joy, to flow through us like “a well of water springing up into everlasting life” ([[John 4.14|John 4:14]]). That we may do so is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Healing #Holy_Ghost #Jesus_Christ #Joy #Peace

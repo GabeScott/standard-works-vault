@@ -69,5 +69,4 @@ Please do not wait for anyone but the Lord to help you. He will help you. Our in
 May God bless all of us that we will have the courage to commit ourselves to a specific date for having someone ready to hear the gospel message. Then may we proceed to call upon the Lord to guide our efforts so that thousands of our Heavenly Father’s children will receive the gospel of Jesus Christ. May we all look upon this not as a duty but rather as a great privilege. This I pray humbly in the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Missionary_Work #Ordinances #Plan_Of_Salvation

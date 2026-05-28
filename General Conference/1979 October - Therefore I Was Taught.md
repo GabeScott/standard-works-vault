@@ -57,5 +57,4 @@ His life of service pivoted on this great spiritual experience. This experience 
 Some few of us may receive public acclaim for our deeds. Most of us will live out our lives in comparative anonymity. This need not matter. Serve your fellowman. Love and teach your children. Then one day we will merit a tribute from them, which in the eternal plan will mean more than fame or wealth: “I … \[was\] born of goodly parents, therefore I was taught.” In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Teaching

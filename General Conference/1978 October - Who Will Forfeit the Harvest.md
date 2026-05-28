@@ -39,5 +39,4 @@ Let us not forfeit the harvest. If we forfeit the harvest, what do we lose? We l
 Most of all, we forfeit the gift of eternal growth and progress. May we avoid the stony places of (1) unwillingness to accept human qualities, (2) unwillingness to accept change, (3) unwillingness to follow instructions, and (4) unwillingness to be totally committed. By so doing we can establish deep, strong roots and thus reap the harvest our Father in Heaven wants for all his children. For this I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Endurance #Obedience #Scriptures

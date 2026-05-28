@@ -65,5 +65,4 @@ There is an old Relief Society story about a child who came in as his mother was
 There are so many ways that our families can bring joy to others through service by extending ourselves. I am very thankful for the strengthened testimonies we have received through service, and I say this in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Family

@@ -131,3 +131,5 @@ I’m grateful for the teachers in my life, from goodly parents and local leader
 
 [^36]: See [[Ether 12.41|Ether 12:41]].
 
+
+#Holy_Ghost #Jesus_Christ #Learning #Scripture_Study #Teaching

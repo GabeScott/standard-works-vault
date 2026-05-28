@@ -148,5 +148,4 @@ It is through Him that we gain forgiveness. It is through Him that there comes t
 May God help us to be a little kinder, showing forth greater forbearance, to be more forgiving, more willing to walk the second mile, to reach down and lift up those who may have sinned but have brought forth the fruits of repentance, to lay aside old grudges and nurture them no more. For this I humbly pray, in the sacred name of our Redeemer, even the Lord Jesus Christ, amen.
 
 
-
-
+#Atonement #Forgiveness #Jesus_Christ #Love #Repentance

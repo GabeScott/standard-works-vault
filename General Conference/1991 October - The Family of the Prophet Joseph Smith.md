@@ -77,5 +77,4 @@ These inspired statements from Hyrum and Joseph to Church members in their day a
 I bear humble witness that Joseph Smith is one of the great, noble ones to come to the earth. He and his brother Hyrum deserve our honor, respect, and gratitude as do other members of their family who assisted with the restoration of the fulness of the gospel. I testify that President Ezra Taft Benson is the prophet of God at this time, and the Apostles and other General Authorities, who are seated on this stand, are ordained of God to preside over the Church. Jesus, our Lord and Savior, stands at the head of the Church. Our Heavenly Father lives and watches over each of His children. To this I humbly testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Joseph_Smith #Prophets #Testimony

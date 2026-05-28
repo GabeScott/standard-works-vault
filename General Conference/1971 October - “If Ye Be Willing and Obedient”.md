@@ -78,5 +78,4 @@ I give you my testimony that the happiness of the Latter-day Saints, the peace o
 Help us, O God, to be willing and obedient, that we may eat the good of the land. Help us, Father, to place our trust in thee, to go forth with willing, subdued hearts, that we may be worthy of thy blessings, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Obedience

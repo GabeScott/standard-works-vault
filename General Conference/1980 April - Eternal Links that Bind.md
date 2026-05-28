@@ -49,5 +49,4 @@ It was this supernal work—redemption of the living and the dead—of which the
 O God, please grant that the spirit of Elijah may fall upon the vast body of priesthood in thy Church, to cause thy great work to move forward. In the name of Jesus Christ, amen.
 
 
-
-
+#Family_History #Temple_Work

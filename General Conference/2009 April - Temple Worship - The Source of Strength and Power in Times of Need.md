@@ -87,3 +87,5 @@ This is the work of the Lord. Jesus Christ lives. This is His Church. I am a wit
 
 [^2]: Sarah DeArmon Pea Rich, “Autobiography, 1885–93,” Church History Library, Salt Lake City, Utah, 66; spelling, punctuation, and capitalization standardized.
 
+
+#Family #Preparation #Temples

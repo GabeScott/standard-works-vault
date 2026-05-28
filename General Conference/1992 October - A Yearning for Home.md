@@ -73,5 +73,4 @@ Might our Heavenly Father have given us much the same counsel as we departed his
 May our yearning for home be the motivation we need to so live that we can return to our heavenly home with God our Father on a forever basis, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Endurance #Home #Safety

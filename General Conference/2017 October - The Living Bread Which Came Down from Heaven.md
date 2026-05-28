@@ -165,3 +165,5 @@ I bear testimony of Jesus Christ, “the living bread which came down from heave
 
 [^38]: [[John 6.54|John 6:54]].
 
+
+#Holiness #Jesus_Christ #Repentance #Sacrament #Service

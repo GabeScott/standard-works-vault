@@ -25,5 +25,4 @@ In my native language, I would like to bear my testimony. \[Sister Lavatai then 
 I know this gospel is true. It has helped me a lot throughout my life. I know our leaders are here to help us. I love you all. In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Seminary

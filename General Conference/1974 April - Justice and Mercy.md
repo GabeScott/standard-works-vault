@@ -93,5 +93,4 @@ The prophet Alma said, in recounting the words of Amulek, “… If ye will repe
 May we so enjoy the blessings of the gospel. I leave you my testimony of the divinity of this great work in the name of Jesus Christ. Amen.
 
 
-
-
+#Justice #Mercy #Repentance

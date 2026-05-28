@@ -79,5 +79,4 @@ And, if you sense that one day every knee shall bow and every tongue shall confe
 Meanwhile, may we be different in order to make a difference in the world. And may God hasten that time for all our sakes, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Repentance #Time_Management

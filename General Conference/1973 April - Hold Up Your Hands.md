@@ -75,5 +75,4 @@ And I would remind everyone of that thrilling occasion when Moses was leading th
 If we all hold up clean, honest, industrious hands to God, then his work will prevail. And then it will not be long before the prayer of the Master is fulfilled wherein he said to his Father, “Thy kingdom come. Thy will be done in earth, as it is in heaven.” ([[Matthew 6.10|Matt. 6:10]].) And may God bless you, my brothers and sisters, that all of us together may effectively hold up our hands to God and that our covenants may be acceptable to him. For this I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Covenants #Service

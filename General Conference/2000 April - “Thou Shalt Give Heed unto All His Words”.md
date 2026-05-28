@@ -79,5 +79,4 @@ It is wonderful to be in this beautiful new facility and to have new technology 
 This is my humble testimony to you, and I do it in the name of our Savior, even Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Commandments #General_Conference #Joy #Media #Scriptures #Spirituality #Teaching #Testimony

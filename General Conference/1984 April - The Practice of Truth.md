@@ -85,5 +85,4 @@ The answer: “He that walketh uprightly, and worketh righteousness, and speaket
 In the name of Jesus Christ, amen.
 
 
-
-
+#Honesty #Truth

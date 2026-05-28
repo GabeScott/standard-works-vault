@@ -95,3 +95,5 @@ For this blessing I fervently pray, in the name of Jesus Christ, amen.
 
 [^11]: [[Matthew 25.21|Matt. 25:21]].
 
+
+#Commandments #Example #Friendship #Leadership #Missionary_Work #Obedience #Prayer #Priesthood #Service #Temples #Youth

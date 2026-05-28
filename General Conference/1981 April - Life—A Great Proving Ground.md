@@ -119,5 +119,4 @@ I also bear witness that President Spencer W. Kimball is a prophet of God, actin
 I sincerely pray that we will understand the purpose of life, conform our life-style to eternal gospel principles, enjoy peace, happiness, and growth, and receive eternal life, the greatest gift of God, in the name of Jesus Christ, amen.
 
 
-
-
+#Plan_Of_Salvation #Work

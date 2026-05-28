@@ -91,5 +91,4 @@ Let us worship Him in spirit and in truth and celebrate His triumph over sin and
 For this I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Covenants #Goals #Jesus_Christ #Joy #Morality #Plan_Of_Salvation #Prophets #Repentance #Spirituality

@@ -87,5 +87,4 @@ The Lord instructed his young prophet Joseph in October of 1831:
 I testify we are witnessing the fulfillment of this promise, and that this work, given by Almighty God to His Son to proclaim, to teach, and finally to judge, will be done with eternal love, in the name of our Lord and Savior, Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Freedom #Missionary_Work #Obedience #Plan_Of_Salvation #Service

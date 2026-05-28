@@ -70,5 +70,4 @@ Although we can never repay the Redeemer what He paid on our behalf, the plan of
 I bear my testimony of the power of Christ’s Atonement. When we repent and come to Him, we can receive all of the blessings of eternal life. That we may do so, receiving our own story of redemption, is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Forgiveness #Jesus_Christ #Plan_Of_Salvation #Repentance

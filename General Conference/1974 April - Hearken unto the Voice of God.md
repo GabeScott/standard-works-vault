@@ -93,5 +93,4 @@ It is a glorifying experience to mingle with the Saints. President Kimball is tr
 In the name of Jesus Christ. Amen.
 
 
-
-
+#Obedience #Satan #Spirituality

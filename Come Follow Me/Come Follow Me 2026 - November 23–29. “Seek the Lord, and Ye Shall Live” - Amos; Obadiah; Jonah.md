@@ -23,7 +23,7 @@ What would you say to someone who feels prophets are not needed today?
 
 See also Topics and Questions, “[Prophets,](https://churchofjesuschrist.org/study/manual/gospel-topics/prophets-study-guide?lang=eng)” Gospel Library.
 
-[[Amos 4.1|Amos 4–5]][[Amos 4.2|]][[Amos 4.3|]][[Amos 4.4|]][[Amos 4.5|]][[Amos 4.6|]][[Amos 4.7|]][[Amos 4.8|]][[Amos 4.9|]][[Amos 4.10|]][[Amos 4.11|]][[Amos 4.12|]][[Amos 4.13|]]
+[[Amos 4.1|Amos 4–5]]
 ### “Seek the Lord, and ye shall live.”
 
 According to [[Amos 4.6|Amos 4:6–13]][[Amos 4.7|]][[Amos 4.8|]][[Amos 4.9|]][[Amos 4.10|]][[Amos 4.11|]][[Amos 4.12|]][[Amos 4.13|]], what had the Lord hoped would happen after the Israelites experienced trials? (see also [[Helaman 12.3|Helaman 12:3]]). While your trials may not have been sent by God, how have they given you opportunities to turn to Him?
@@ -46,12 +46,12 @@ Referring to [[Obadiah 1.21|Obadiah 1:21]], President Gordon B. Hinckley explain
 
 See also “[Holy Temples on Mount Zion](https://churchofjesuschrist.org/study/manual/hymns/holy-temples-on-mount-zion?lang=eng),” *Hymns*, no. 289.
 
-[[Jonah 1.1|Jonah 1–4]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]
+[[Jonah 1.1|Jonah 1–4]]
 ### The Lord is merciful to all who turn to Him.
 
-Nineveh was an enemy of Israel known for its violence and cruelty. To Jonah, it seemed unrealistic that they were ready to repent. It might be interesting to compare Jonah’s attitude (see [[Jonah 1.1|Jonah 1]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]; [[Jonah 3.1|3–4]][[Jonah 3.2|]][[Jonah 3.3|]][[Jonah 3.4|]][[Jonah 3.5|]][[Jonah 3.6|]][[Jonah 3.7|]][[Jonah 3.8|]][[Jonah 3.9|]][[Jonah 3.10|]]) to the feelings of Alma and the sons of Mosiah (see [[Mosiah 28.1|Mosiah 28:1–5]][[Mosiah 28.2|]][[Mosiah 28.3|]][[Mosiah 28.4|]][[Mosiah 28.5|]]; [[Alma 17.23|Alma 17:23–25]][[Alma 17.24|]][[Alma 17.25|]]). What do you learn from [[Jonah 3.1|Jonah 3]][[Jonah 3.2|]][[Jonah 3.3|]][[Jonah 3.4|]][[Jonah 3.5|]][[Jonah 3.6|]][[Jonah 3.7|]][[Jonah 3.8|]][[Jonah 3.9|]][[Jonah 3.10|]] that inspires you to share the gospel even with people who may not seem ready to change?
+Nineveh was an enemy of Israel known for its violence and cruelty. To Jonah, it seemed unrealistic that they were ready to repent. It might be interesting to compare Jonah’s attitude (see [[Jonah 1.1|Jonah 1]]; [[Jonah 3.1|3–4]]) to the feelings of Alma and the sons of Mosiah (see [[Mosiah 28.1|Mosiah 28:1–5]][[Mosiah 28.2|]][[Mosiah 28.3|]][[Mosiah 28.4|]][[Mosiah 28.5|]]; [[Alma 17.23|Alma 17:23–25]][[Alma 17.24|]][[Alma 17.25|]]). What do you learn from [[Jonah 3.1|Jonah 3]] that inspires you to share the gospel even with people who may not seem ready to change?
 
-As you read Jonah, look for examples of the Lord’s mercy. Why do you feel Jonah was “displeased” and “very angry” ([[Jonah 4.1|Jonah 4:1]]) when the Lord extended mercy to the people of Nineveh? What do you feel the Lord was trying to teach him in [[Jonah 4.1|chapter 4]][[Jonah 4.2|]][[Jonah 4.3|]][[Jonah 4.4|]][[Jonah 4.5|]][[Jonah 4.6|]][[Jonah 4.7|]][[Jonah 4.8|]][[Jonah 4.9|]][[Jonah 4.10|]][[Jonah 4.11|]]? Ponder how you have experienced His mercy in your life. What do you learn from Jonah that can help you be more merciful?
+As you read Jonah, look for examples of the Lord’s mercy. Why do you feel Jonah was “displeased” and “very angry” ([[Jonah 4.1|Jonah 4:1]]) when the Lord extended mercy to the people of Nineveh? What do you feel the Lord was trying to teach him in [[Jonah 4.1|chapter 4]]? Ponder how you have experienced His mercy in your life. What do you learn from Jonah that can help you be more merciful?
 
 ### Scripture Helps
 
@@ -85,7 +85,7 @@ Because this Sunday is the fifth Sunday of the month, Primary teachers are encou
 - You could use Guide to the Scriptures, “[Apostasy](https://churchofjesuschrist.org/study/scriptures/gs/apostasy?lang=eng)” (Gospel Library), or “[After the New Testament](https://churchofjesuschrist.org/study/manual/new-testament-stories/after-the-new-testament?lang=eng)” (in *New Testament Stories*, 167–70) to help your children understand the “famine” that came from the Great Apostasy and how it ended with the Restoration. Share with each other reasons you are grateful that the Lord restored His gospel in our day.> 2:52
 
 
-[[Jonah 1.1|Jonah 1–3]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]
+[[Jonah 1.1|Jonah 1–3]]
 ### The Lord will help me obey Him, even when it’s hard.
 
 - To help your children learn the story of Jonah, you could review “[Jonah the Prophet](https://churchofjesuschrist.org/study/manual/old-testament-stories-2022/jonah-the-prophet?lang=eng)” in *Old Testament Stories*; see also this week’s activity page). You could then ask:> 2:30
@@ -93,7 +93,7 @@ Because this Sunday is the fifth Sunday of the month, Primary teachers are encou
 
 - Your children might enjoy retelling the story of Jonah or acting it out. Share with each other some experiences when the Lord wanted you to do something that was hard for you. How did He help you obey Him?
 
-[[Jonah 1.1|Jonah 1–4]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]
+[[Jonah 1.1|Jonah 1–4]]
 ### The Lord is merciful to all who turn to Him.
 
 - Maybe your children could pretend they are interviewing Jonah about his experience. What questions would they ask him? Encourage them to ask questions to find out what Jonah learned about the Lord. What might Jonah say, for example, about the Lord’s mercy? (see, for example, [[Jonah 2.7|Jonah 2:7–10]][[Jonah 2.8|]][[Jonah 2.9|]][[Jonah 2.10|]]; [[Jonah 3.10|3:10]]; [[Jonah 4.2|4:2]]).

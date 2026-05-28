@@ -56,5 +56,4 @@ I bear witness that the kingdom of God has been restored to the earth, never to 
 In the name of Jesus Christ, amen.
 
 
-
-
+#Children #Church_Growth #Faith #Family #Holy_Ghost #Home #Humility #Kingdom_Of_God #Teaching

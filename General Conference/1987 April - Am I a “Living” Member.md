@@ -63,5 +63,4 @@ We have a firm belief in the statement that this is the true and living church o
 May we stand firm and be true and living members of the Church and receive the promised reward to be among those spoken of in the Doctrine and Covenants “who are come unto Mount Zion, and unto the city of the living God, the heavenly place, the holiest of all” ([[D&C 76.66|D&C 76:66]]). This is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Testimony

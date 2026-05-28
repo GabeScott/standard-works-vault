@@ -69,5 +69,4 @@ The spiritual understanding you and I have been blessed to receive, and which ha
 I bear witness that parents who consistently read and talk about the Book of Mormon with their children, who share testimony spontaneously with their children, and who invite children as gospel learners to act and not merely be acted upon will be blessed with eyes that can see afar off (see [[Moses 6.27|Moses 6:27]]) and with ears that can hear the sound of the trumpet (see [[Ezekiel 33.2|Ezekiel 33:2–16]][[Ezekiel 33.3|]][[Ezekiel 33.4|]][[Ezekiel 33.5|]][[Ezekiel 33.6|]][[Ezekiel 33.7|]][[Ezekiel 33.8|]][[Ezekiel 33.9|]][[Ezekiel 33.10|]][[Ezekiel 33.11|]][[Ezekiel 33.12|]][[Ezekiel 33.13|]][[Ezekiel 33.14|]][[Ezekiel 33.15|]][[Ezekiel 33.16|]]). The spiritual discernment and inspiration you will receive from the combination of these three holy habits will enable you to stand as watchmen on the tower for your families—“watching … with all perseverance” ([[Ephesians 6.18|Ephesians 6:18]])—to the blessing of your immediate family and your future posterity. I so promise and testify in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Children #Education #Family #Parenthood #Safety #Testimony

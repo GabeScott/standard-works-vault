@@ -155,3 +155,5 @@ God bless you, noble men of the Aaronic Priesthood, in the name of Jesus Christ,
 
 [^18]: Poem by Keith B. McMullin.
 
+
+#Activation #Atonement #Priesthood #Youth

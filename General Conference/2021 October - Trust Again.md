@@ -153,3 +153,5 @@ Our life journeys are individual, but we can come again to God our Father and Hi
 
 [^29]: See “[Joseph Smith’s First Prayer](https://www.churchofjesuschrist.org/study/manual/hymns/joseph-smiths-first-prayer?lang=eng),” *Hymns*, no. 26.
 
+
+#Faith #Jesus_Christ #Love #Trust

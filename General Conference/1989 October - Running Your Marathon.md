@@ -87,5 +87,4 @@ An obvious parallel between life and a marathon is the necessity to run diligent
 My dear young friends, I pray that the Lord will guide and strengthen each of you in running your personal marathon. Then you can say, as Paul wrote to Timothy, “I have fought a good fight, I have finished my course, I have kept the faith.” ([[2 Timothy 4.7|2 Tim. 4:7]].) I know that you *can* live righteous lives and, with the help of the Lord, *do* all that you should do. I bear testimony that our Heavenly Father and Jesus Christ love each of you and want you to be happy. Joseph Smith is the prophet of the restoration of the gospel in these latter days, and President Ezra Taft Benson is the prophet today. This is the Church of our Lord and Savior; I am one of His witnesses. I bear this humble testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Endurance #Jesus_Christ #Leadership #Service #Spirituality #Youth

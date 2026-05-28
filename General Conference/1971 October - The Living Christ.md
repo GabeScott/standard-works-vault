@@ -95,5 +95,4 @@ Our message to the world, which we have been proclaiming for more than 140 years
 May the peace that passeth understanding come into the hearts of men and women everywhere through a knowledge of these things, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ #Joseph_Smith #Resurrection

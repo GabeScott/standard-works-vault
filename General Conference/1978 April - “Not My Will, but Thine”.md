@@ -51,5 +51,4 @@ Our greatest challenge as missionaries will be to lift people up, to literally r
 May it be so, I pray, for in this great priesthood assemblage tonight are those foreordained to be the hope of the world; and I so declare it as my personal testimony, and I do it in the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work

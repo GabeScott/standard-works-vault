@@ -55,5 +55,4 @@ And I find great joy and satisfaction in walking that journey with a beloved com
 May you have this experience, I pray humbly, in the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Testimony

@@ -79,5 +79,4 @@ Why? Listen to the words of our beloved First Presidency, given to each one of y
 I know these words are true, and I pray that each of us will have that same witness. And I say these things in the sacred name of Him whose priesthood we hold, Jesus Christ, amen.
 
 
-
-
+#Aaronic_Priesthood #Duty #Leadership #Priesthood

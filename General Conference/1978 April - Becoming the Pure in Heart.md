@@ -113,5 +113,4 @@ My brothers and sisters, if we can do this, then we will find ourselves clothed 
 Let us unite and pray with all the energy of heart, that we may be sealed by this bond of charity; that we may build up this latter-day Zion, that the kingdom of God may go forth, so that the kingdom of heaven may come. This is my prayer and testimony in the name of Jesus Christ. Amen.
 
 
-
-
+#Sacrifice #Welfare #Zion

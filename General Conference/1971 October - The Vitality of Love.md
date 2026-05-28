@@ -81,5 +81,4 @@ The goal of families who are actuated deeply by love will be to keep the command
 I bear my testimony that the true gospel of our Lord has been restored to earth again, and that the Master’s church is The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ. Amen.
 
 
-
-
+#Love

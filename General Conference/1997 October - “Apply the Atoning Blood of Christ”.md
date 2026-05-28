@@ -57,5 +57,4 @@ Brothers and sisters, Christ paid such an enormous, enabling price for us! Will 
 During this special process, how can you and I better insure that the precious blessings given by God are fully received by us? For my part, I desire that my blessings, including the recent “delay en route,” bring about my needed and greater spiritual refinement in addition to my grateful acknowledgment. Yes, you and I should count our blessings, but we should also make them count! Furthermore, since the focus in extremity falls on the things of eternity, such should be our focus in whatever remains of mortal brevity. This is my earnest prayer for me and for you in the holy name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Character #Death #Jesus_Christ #Joy #Obedience #Plan_Of_Salvation

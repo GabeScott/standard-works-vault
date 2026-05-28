@@ -77,5 +77,4 @@ Thus, within the discipleship allotted to us, we are to overcome the world (see 
 In the holy name of Jesus Christ, amen!
 
 
-
-
+#Adversity #Atonement #Discipleship #Faith #Family #Hope #Jesus_Christ #Media #Patience #Peace #Perspective #Satan #Scripture_Study #Understanding

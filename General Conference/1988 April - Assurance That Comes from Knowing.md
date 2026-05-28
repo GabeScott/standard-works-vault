@@ -91,5 +91,4 @@ It is from this principle that Latter-day Saints receive the strength of their t
 To all those faithful Latter-day Saints who share their testimonies concerning the truthfulness of this work in the four corners of the earth, I wish to add mine, with the assurance that I know that God knows I know that The Church of Jesus Christ of Latter-day Saints has the power to administer the saving ordinances that crown the efforts of all those who, through an obedient and faithful life, come unto Christ. In the name of Jesus Christ, amen.
 
 
-
-
+#Example #Holy_Ghost #Testimony

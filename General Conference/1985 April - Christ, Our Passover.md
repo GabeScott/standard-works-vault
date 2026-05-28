@@ -69,5 +69,4 @@ This is the majesty of the Atonement and Resurrection, not just a passover from 
 At this Easter season, I bear testimony of the Firstborn of God, who made that sacrifice, who has “borne our griefs, and carried our sorrows,” who “was wounded for our transgressions” and “was bruised for our iniquities.” ([[Isaiah 53.4|Isa. 53:4–5]][[Isaiah 53.5|]].) Of the divine nature of this Redeemer and Savior of all mankind I testify, in his name, Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Sacrifice

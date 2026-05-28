@@ -71,5 +71,4 @@ Like the brother of Jared, like our family with Amy, it is only with the Lord’
 I pray that each of us will seek this gift of hope so that we will be filled with joy and with peace, in the name of Jesus Christ, amen.
 
 
-
-
+#Hope #Jesus_Christ

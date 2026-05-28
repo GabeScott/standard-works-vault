@@ -73,5 +73,4 @@ President Woodruff sought the privilege to go on a mission when he was a teacher
 I just wish to say this in conclusion: It is wonderful to meet this large body of brethren who hold the priesthood and I sincerely feel that the men who have come here tonight—the men and boys—reverence and appreciate their priesthood and the privileges that are given to them. We will close this meeting with our love and appreciation to all men and boys and their wives and mothers in all the lands of this world. We ask them to be devout and faithful and true to all of the testimonies they have. I bear this testimony to you that this work is divine. We have a special work to do and we must do it, and I pray this all in the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood #Wilford_Woodruff

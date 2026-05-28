@@ -69,5 +69,4 @@ It is not our understanding of the principles of the gospel that brings the bles
 I pray that each of us will develop a receptive and understanding heart that will motivate us to seek out a less-active brother or sister and truly become a good latter-day Samaritan. In the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Fellowshipping #Love #Service

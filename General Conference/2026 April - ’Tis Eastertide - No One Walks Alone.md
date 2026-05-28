@@ -32,11 +32,11 @@ Jesus Christ walking with His disciples on the road to Emmaus reveals a covenant
 
 Each Sabbath we invite all to come worship Jesus Christ in the community of His restored Church. In the sacramental ordinance, we covenant that we are willing to take upon us the name of Jesus Christ, always remember Him, and keep His commandments. He promises we can always have His Spirit to be with us.[^17] As we witness and remember Jesus each week, we abide and walk with Him.
 
-Just as the disciples on the road to Emmaus ask Jesus to abide with them,[^18] Jesus Christ promises to abide with us. In the Gospel of John, [[John 14.1|chapters 14 and 15]][[John 14.2|]][[John 14.3|]][[John 14.4|]][[John 14.5|]][[John 14.6|]][[John 14.7|]][[John 14.8|]][[John 14.9|]][[John 14.10|]][[John 14.11|]][[John 14.12|]][[John 14.13|]][[John 14.14|]][[John 14.15|]][[John 14.16|]][[John 14.17|]][[John 14.18|]][[John 14.19|]][[John 14.20|]][[John 14.21|]][[John 14.22|]][[John 14.23|]][[John 14.24|]][[John 14.25|]][[John 14.26|]][[John 14.27|]][[John 14.28|]][[John 14.29|]][[John 14.30|]][[John 14.31|]], Jesus teaches His disciples and us how He can remain, belong, walk with us. His faithfulness is stronger than the cords of death.[^19]
+Just as the disciples on the road to Emmaus ask Jesus to abide with them,[^18] Jesus Christ promises to abide with us. In the Gospel of John, [[John 14.1|chapters 14 and 15]], Jesus teaches His disciples and us how He can remain, belong, walk with us. His faithfulness is stronger than the cords of death.[^19]
 
 When we have a question, problem, or joy, Jesus Christ says, “I am your answer—your way, your truth, your life.”[^20]
 
-To abide with us, in [[John 14.1|John 14]][[John 14.2|]][[John 14.3|]][[John 14.4|]][[John 14.5|]][[John 14.6|]][[John 14.7|]][[John 14.8|]][[John 14.9|]][[John 14.10|]][[John 14.11|]][[John 14.12|]][[John 14.13|]][[John 14.14|]][[John 14.15|]][[John 14.16|]][[John 14.17|]][[John 14.18|]][[John 14.19|]][[John 14.20|]][[John 14.21|]][[John 14.22|]][[John 14.23|]][[John 14.24|]][[John 14.25|]][[John 14.26|]][[John 14.27|]][[John 14.28|]][[John 14.29|]][[John 14.30|]][[John 14.31|]] Jesus promises us the First and Second Comforters.[^21] The First Comforter Jesus speaks of is the Holy Ghost.
+To abide with us, in [[John 14.1|John 14]] Jesus promises us the First and Second Comforters.[^21] The First Comforter Jesus speaks of is the Holy Ghost.
 
 “And I will pray \[unto\] the Father, and he shall give you another Comforter, that he may abide with you for ever.”[^22]
 
@@ -48,7 +48,7 @@ For “he that loveth me shall be loved of my Father, and I will love him, and w
 
 Indeed, “if a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.”[^26]
 
-*Abide* and *abode*. In [[John 15.1|John 15]][[John 15.2|]][[John 15.3|]][[John 15.4|]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.8|]][[John 15.9|]][[John 15.10|]][[John 15.11|]][[John 15.12|]][[John 15.13|]][[John 15.14|]][[John 15.15|]][[John 15.16|]][[John 15.17|]][[John 15.18|]][[John 15.19|]][[John 15.20|]][[John 15.21|]][[John 15.22|]][[John 15.23|]][[John 15.24|]][[John 15.25|]][[John 15.26|]][[John 15.27|]], Jesus Christ also teaches He is the vine and God our Father is the husbandman.[^27] A branch “cannot bear fruit of itself.”[^28] We without the Lord can do nothing.[^29] But “he that abideth in me, and I in him, the same bringeth forth much fruit,”[^30] and “your fruit should remain.”[^31] Jesus says, “These things have I spoken unto you, that my joy might remain \[or abide\] in you, and that your joy might be full.”[^32]
+*Abide* and *abode*. In [[John 15.1|John 15]], Jesus Christ also teaches He is the vine and God our Father is the husbandman.[^27] A branch “cannot bear fruit of itself.”[^28] We without the Lord can do nothing.[^29] But “he that abideth in me, and I in him, the same bringeth forth much fruit,”[^30] and “your fruit should remain.”[^31] Jesus says, “These things have I spoken unto you, that my joy might remain \[or abide\] in you, and that your joy might be full.”[^32]
 
 We began this general conference with solemn assembly. Solemn assemblies mark significant Church milestones or events, such as the sustaining of a new Church President. Whether a solemn assembly occurs earlier or later, by sacred pattern and precedent, we symbolically demonstrate united commitment and support.
 
@@ -117,7 +117,7 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^20]: See [[John 14.6|John 14:6]].
 
-[^21]: See [[John 14.1|John 14]][[John 14.2|]][[John 14.3|]][[John 14.4|]][[John 14.5|]][[John 14.6|]][[John 14.7|]][[John 14.8|]][[John 14.9|]][[John 14.10|]][[John 14.11|]][[John 14.12|]][[John 14.13|]][[John 14.14|]][[John 14.15|]][[John 14.16|]][[John 14.17|]][[John 14.18|]][[John 14.19|]][[John 14.20|]][[John 14.21|]][[John 14.22|]][[John 14.23|]][[John 14.24|]][[John 14.25|]][[John 14.26|]][[John 14.27|]][[John 14.28|]][[John 14.29|]][[John 14.30|]][[John 14.31|]], chapter heading.
+[^21]: See [[John 14.1|John 14]], chapter heading.
 
 [^22]: [[John 14.16|John 14:16]].
 
@@ -153,3 +153,5 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^38]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
+
+#Covenants #Easter #Jesus_Christ

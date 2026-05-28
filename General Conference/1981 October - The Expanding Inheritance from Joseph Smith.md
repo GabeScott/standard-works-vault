@@ -61,5 +61,4 @@ In addition to this heritage, I have my own inner witness which confirms to my s
 What has been taught at this pulpit for the last two days is an extension of the expanding inheritance of truth left to all of us by the Prophet Joseph Smith. It was given to save and exalt mankind as directed by the Lord Jesus Christ. I so testify with profound gratitude, in the name of the risen Christ, amen.
 
 
-
-
+#Joseph_Smith #Restoration

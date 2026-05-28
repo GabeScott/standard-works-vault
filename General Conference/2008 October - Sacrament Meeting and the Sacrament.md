@@ -79,5 +79,4 @@ Finally, the sacrament is administered only when authorized by the one holding t
 How can we have the Spirit of the Lord to guide our choices so that we will remain “unspotted from the world” ([[D&C 59.9|D&C 59:9]]) and on the safe path through mortality? We need to qualify for the cleansing power of the Atonement of Jesus Christ. We do this by keeping His commandment to come to Him with a broken heart and a contrite spirit and in that wonderful weekly meeting partake of the emblems of the sacrament and make the covenants that qualify us for the precious promise that we will always have His Spirit to be with us (see [[D&C 20.77|D&C 20:77]]). That we may always do so is my humble prayer, which I offer in the name of Him whose Atonement makes it all possible, even Jesus Christ, amen.
 
 
-
-
+#Church_Meetings #Reverence #Sacrament

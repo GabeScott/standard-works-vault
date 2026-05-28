@@ -53,5 +53,4 @@ As women in this Church family, we have been instructed to “stretch out our ha
 I testify to you that we will rejoice in the opportunity to serve in this great capacity with all of our hearts, minds, might, and strength. In the name of Jesus Christ. Amen.
 
 
-
-
+#Relief_Society #Welfare

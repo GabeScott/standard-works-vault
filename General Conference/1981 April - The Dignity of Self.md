@@ -82,5 +82,4 @@ May we all have a feeling of personal worth and dignity born of the knowledge th
 I have a conviction of these matters from sacred inner whisperings. I know that Jesus lives and is the head of this church, which testimony I leave, in the name of the Savior, Jesus Christ, amen.
 
 
-
-
+#Morality #Self-Esteem

@@ -47,5 +47,4 @@ Jesus Christ established the perfect behavior pattern by which we can build upon
 My prayer, brothers and sisters, as we think about our covenants, is that we may keep ourselves strong against “the fiery darts of the adversary” ([[1 Nephi 15.24|1 Nephi 15:24]]), following the Savior’s example so that we may sow in the Spirit and abide in the Lord’s territory. Let us remember President Monson’s formula: “You can’t be right by doing wrong; you can’t be wrong by doing right.” I say these things in the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Covenants #Obedience

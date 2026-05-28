@@ -57,5 +57,4 @@ I know that Jesus Christ is His Only Begotten Son, the Redeemer of the world, wh
 Of these things I testify in solemnity as I leave with you, my beloved associates, my love and blessing, in the sacred name of Jesus Christ, amen. “God be with you till we meet again” (*Hymns,* no. 152).
 
 
-
-
+#Faith #Jesus_Christ #Testimony

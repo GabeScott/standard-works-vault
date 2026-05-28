@@ -61,5 +61,4 @@ From the beginning of time there have been those with pride and others who have 
 May the Lord bless us as we strive to understand and follow his teachings is my prayer, in his holy name, amen.
 
 
-
-
+#Humility

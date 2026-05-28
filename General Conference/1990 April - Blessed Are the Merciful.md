@@ -133,5 +133,4 @@ I am confident that a time will come for each of us when, whether because of sic
 Of these things I bear witness as I testify that God our Eternal Father lives, that He is a God of mercy, that His Son gave His life in a great merciful atonement for each of us, and that we shall be the beneficiaries of that mercy as we extend it to others, in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Kindness #Love #Tolerance

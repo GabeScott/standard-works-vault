@@ -41,5 +41,4 @@ I must not close without expressing my love and appreciation for my dear compani
 Such is the message of my dear wife, with whom I am in total agreement. And now in closing, I bear you my own witness that missionary work truly is the lifeblood of the Church and that we have a divine commission to share the gospel with others both at home and abroad. I know, nothing doubting, that this is the work of the Lord and that President Benson is his prophet on earth today. This testimony I bear in the name of Jesus Christ, amen.
 
 
-
-
+#Joy #Missionary_Work

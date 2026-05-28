@@ -92,5 +92,4 @@ So it is with us. There have been makers of threats, naysayers, and criers of do
 I invite every one of you, wherever you may be as members of this church, to stand on your feet and with a song in your heart move forward, living the gospel, loving the Lord, and building the kingdom. Together we shall stay the course and keep the faith, the Almighty being our strength. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Attitude #Church_Growth #Commitment #Faith #Jesus_Christ #Joseph_Smith #Missionary_Work #Service #Standards

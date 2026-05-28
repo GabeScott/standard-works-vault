@@ -21,5 +21,4 @@ My wife and I had a very unique experience this last week or two. Something we h
 I’m grateful for the intervention of the Lord in my life. I pray that I will be worthy of the great many blessings he gives to me, that I might be a great service to the upbuilding of his kingdom, in the name of Jesus Christ. Amen.
 
 
-
-
+#Testimony

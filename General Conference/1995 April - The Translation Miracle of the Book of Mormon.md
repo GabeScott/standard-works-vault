@@ -53,5 +53,4 @@ With deep appreciation for the miracle that transpired through the translation o
 I testify that the translation miracle of the Book of Mormon clearly evidences that Joseph is a prophet of God, called to “lay the foundation of \[Christ’s\] church, and to bring it forth out of obscurity and out of darkness, the only true and living church upon the face of the whole earth” ([[D&C 1.30|D&C 1:30]]). The Book of Mormon is the “keystone of our religion” and will bring us “nearer to God by abiding by its precepts, than by any other book” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 194). May we appreciate this miraculous translation, and may it be our desire to come to know and follow the Savior through his teachings in the Book of Mormon, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Joseph_Smith

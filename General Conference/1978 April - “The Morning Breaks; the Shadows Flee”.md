@@ -75,5 +75,4 @@ This is thy day, O Zion! “Arise, shine; for thy light is come, and the glory o
 In the name of Jesus Christ, amen.
 
 
-
-
+#Apostasy #Restoration

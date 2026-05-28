@@ -51,5 +51,4 @@ The call to come unto him has continued throughout time and is being renewed in 
 May we do so in appreciation for the loving gift of eternal joy he offers us I pray—as I leave with you my personal witness that God our Heavenly Father lives and that Jesus is the Christ, having suffered and given his life that we may have life everlasting—in his holy name, amen.
 
 
-
-
+#Adversity #Faith #Humility #Jesus_Christ #Pride

@@ -51,5 +51,4 @@ I long to have the Spirit of the Lord poured out upon me because of my “easine
 May we always find it easy to believe His word. May you with easiness declare, as do I, that Jesus is the Son of God. He is our Shepherd, and those with an easiness and willingness to believe will know His voice. In the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Faith #Humility #Obedience

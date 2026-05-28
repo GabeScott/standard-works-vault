@@ -79,5 +79,4 @@ To those of you who presently are not obeying the law of tithing, I invite you t
 I testify spiritual and temporal blessings come into our lives as we live the law of tithing. I bear witness that such blessings often are significant but subtle. I also declare that the simplicity of the Lord’s way that is so evident in the temporal affairs of His Church provides patterns that can guide us as individuals and as families. I pray each of us may learn and benefit from these important lessons, in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Blessings #Tithing

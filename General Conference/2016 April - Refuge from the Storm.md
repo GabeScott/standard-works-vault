@@ -87,3 +87,5 @@ Being a refugee may be a defining moment in the lives of those who are refugees,
 
 [^13]: [[Matthew 25.40|Matthew 25:40]].
 
+
+#Charity #Compassion #Love #Service

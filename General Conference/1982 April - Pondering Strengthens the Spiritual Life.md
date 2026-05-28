@@ -79,5 +79,4 @@ In our quest for pure hearts, may we ponder on righteous acts and thoughts, and 
 I bear earnest and sincere testimony to the mighty transforming power of these noble ideals in the name of Jesus Christ, amen.
 
 
-
-
+#Character #Education #Spirituality

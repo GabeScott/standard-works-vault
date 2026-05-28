@@ -107,5 +107,4 @@ Freedom thus obtained—that is, by obedience to the law of Christ—is freedom 
 That God may attend and prosper each of us on our way to perfect liberty, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Freedom #Obedience

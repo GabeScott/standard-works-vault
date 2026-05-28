@@ -91,5 +91,4 @@ Speaking in Logan in 1984, President Ezra Taft Benson taught that Adam and his p
 That the Saints will accept this priesthood, receive its ordinances, and keep the covenants, I pray through Jesus Christ, amen.
 
 
-
-
+#Church_Membership #Covenants

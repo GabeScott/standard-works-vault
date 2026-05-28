@@ -69,5 +69,4 @@ In a quiet moment write down your responses. Analyze them. Make any necessary ad
 Put first things first. Do the best you can while on earth to have an *ideal family.* To help you do that, ponder and apply the principles in the proclamation on the family. I testify that the Lord lives. He loves you. As you live worthily and honestly seek His help, He will guide and strengthen you to know His will and to be able to do it. In the name of Jesus Christ, amen.
 
 
-
-
+#Adam_And_Eve #Children #Evil #Family #Holy_Ghost #Joy #Missionary_Work #Obedience #Ordinances #Parents #Plan_Of_Salvation #Priorities #Satan #Time_Management

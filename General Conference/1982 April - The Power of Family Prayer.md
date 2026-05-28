@@ -107,5 +107,4 @@ I testify that God is our Father, that he lives and loves us, that he is the giv
 May we all gather our families around us and consistently and fervently pray for one another and thus, in righteousness, feel the needs of others and then fill the needs of others, thereby fulfilling much of our mission in life, I do humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Prayer

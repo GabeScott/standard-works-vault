@@ -41,5 +41,4 @@ May I read to you in conclusion these great, reassuring words given by the Lord 
 In closing I give to you the love and blessing of President Spencer W. Kimball, of his Counselor President Marion G. Romney, and of all of my Brethren of the General Authorities. To this I add my own expression to you of gratitude for your sustaining influence, for your devoted service, and for your expressions of faith. May the Lord bless you generously, as he will if you will walk in faith. For this I humbly pray as I leave with you my testimony and witness that I know that God our Eternal Father lives, that Jesus is the Christ, the living resurrected Savior of mankind, and that this Church in which we have the honor to serve is their church restored to the earth for the blessing of all of our Father’s children who will give heed to its message. God bless you. May he be with you in all things, at all times, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Brotherhood #Obedience

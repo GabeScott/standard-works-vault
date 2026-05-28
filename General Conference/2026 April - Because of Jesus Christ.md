@@ -131,3 +131,5 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^41]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
+
+#Atonement_Of_Jesus_Christ #Easter #Forgiveness #Jesus_Christ #Joy #Repentance

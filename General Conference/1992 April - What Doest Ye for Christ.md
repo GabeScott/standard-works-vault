@@ -37,5 +37,4 @@ The greatest of all achievements that we can attain in our long and challenging 
 That we may all achieve this through dedicated effort and steadfast faith in Him who is our Exemplar of truth and righteousness is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Obedience #Service

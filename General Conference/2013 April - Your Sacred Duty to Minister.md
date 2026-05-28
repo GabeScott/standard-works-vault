@@ -111,3 +111,5 @@ May you experience the joy of fulfilling your sacred duty to minister, I pray in
 
 [^11]: See *Handbook 2,* 3.2.3.
 
+
+#Family #Priesthood #Service

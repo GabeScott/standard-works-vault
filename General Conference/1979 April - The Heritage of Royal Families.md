@@ -81,5 +81,4 @@ A personal history becomes a family treasure that enables children to emulate th
 A royal family is not necessarily confined to the political kingdoms ruling the nations of the world. You too can belong to a royal family. If you have not already done those things that will make it so, start today, so that coming generations in your family will be faithful to those principles which characterize royalty in the kingdom of God. The self-discipline you exercise will enrich your life and the lives of your family members. That you may build this enrichment into your family to be perpetuated for generations to come, that we, indeed, may be a chosen people, a royal priesthood—yes, a royal family in the kingdom of God—so that the world will not be wasted at his coming, I pray. In the name of Jesus Christ, amen.
 
 
-
-
+#Family_History

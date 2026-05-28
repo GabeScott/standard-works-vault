@@ -99,3 +99,5 @@ I know that Heavenly Father lives. Therefore, He will bless you. Jesus Christ is
 
 [^11]: [[D&C 64.23|D&C 64:23]].
 
+
+#Faith #Obedience #Tithing

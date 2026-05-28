@@ -65,5 +65,4 @@ My brothers and sisters, we are engaged in building the kingdom of God. I bear y
 Let us increase our effectiveness in missionary work in order that the kingdom of God may go forth at an accelerated rate, so that the kingdom of heaven may come. In the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

@@ -45,3 +45,5 @@ May we go forward together to fulfill our divine mandate—that of preparing our
 
 [^6]: See [[Philippians 4.7|Philippians 4:7]].
 
+
+#Peace #Preparation #Spirituality #Temples

@@ -77,5 +77,4 @@ I see you when I think of that monument of courageous explorers. I see you on a 
 I pray that we may all understand the magnificent Aaronic Priesthood and trust, as God does, those who bear it. In the name of Jesus Christ, amen.
 
 
-
-
+#Duty #Priesthood

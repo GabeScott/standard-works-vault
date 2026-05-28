@@ -79,5 +79,4 @@ So please consider my experiences, and (1) take the missionaries very seriously,
 I testify to you that if you pay the price of revelation, humble yourself, read, pray, and repent, the heavens will open and you will know, as I know, that Jesus is the Christ, He is my Savior, and He is yours. In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Church_Meetings #Conversion #Missionary_Work #Repentance

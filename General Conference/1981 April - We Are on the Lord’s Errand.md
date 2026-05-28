@@ -37,5 +37,4 @@ We ask our Heavenly Father to give you power to extend your knowledge to the peo
 My brethren and sisters, I testify to you that this is the Lord’s work and that it is true. We are on the Lord’s errand. This is His church and He is its head and the chief cornerstone. God lives, and Jesus is the Christ. He is the Only Begotten Son, the Savior and Redeemer of this world. I leave you with this testimony and with my blessings and my love and affection, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth

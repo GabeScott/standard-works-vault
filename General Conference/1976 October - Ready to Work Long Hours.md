@@ -91,5 +91,4 @@ I appeal to every man and to every boy within the sound of my voice this night t
 May we meet there when we have finished our work here I humbly pray in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Priesthood #Temptation #Work

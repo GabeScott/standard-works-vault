@@ -157,5 +157,4 @@ O youth of the Church, go and do likewise—be prepared to serve!
 In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Missionary_Work #Spirituality #Testimony

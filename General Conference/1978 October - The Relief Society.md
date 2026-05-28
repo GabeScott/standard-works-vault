@@ -127,5 +127,4 @@ The bewilderment of the uninspired and the misled will be replaced with assuranc
 After months of prayerful concern over this matter, having inquired myself of Him whose organization it is, without reservation, without hesitancy, I endorse and applaud the Relief Society of The Church of Jesus Christ of Latter-day Saints and pray God to bless these, our sisters, to strengthen them, for this is His church and we are led by a prophet. In the name of Jesus Christ, amen.
 
 
-
-
+#Relief_Society

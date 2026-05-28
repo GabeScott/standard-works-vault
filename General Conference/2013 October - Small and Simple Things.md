@@ -53,5 +53,4 @@ Let us reach out to others with faith and with love. Let us remember the promise
 I bear witness of the love of the Lord toward all His children. I know He lives and that He is our Redeemer. In the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Missionary_Work

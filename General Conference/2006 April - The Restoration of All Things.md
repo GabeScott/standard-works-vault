@@ -105,3 +105,5 @@ I have a personal witness of the truth of the covenants, teachings, and authorit
 
 [^25]: First Presidency statement, Feb. 15, 1978.
 
+
+#Apostasy #Covenants #Restoration

@@ -95,5 +95,4 @@ May this truth guide our lives. May we look upward as we press forward in the se
 Loving service anonymously given may be unknown to man—but the gift and the giver are known to God. Of this truth I testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Generosity #Service

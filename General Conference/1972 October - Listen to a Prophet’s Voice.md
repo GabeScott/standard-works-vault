@@ -89,5 +89,4 @@ May I invite you to further investigate The Church of Jesus Christ of Latter-day
 And now, may I leave you my witness that I know that God lives—he is not dead; that God loves his children; that we are all brothers and sisters, children of the same Father in the spirit; that he blesses us and wants to further bless us, and to that end he has established his church and sent his prophets. Today that church is The Church of Jesus Christ of Latter-day Saints, and his prophet and mouthpiece is President Harold B. Lee. I know this as I know that I live, and I bear this testimony humbly and gratefully in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Commandments #Joseph_Smith #Prophets #Restoration

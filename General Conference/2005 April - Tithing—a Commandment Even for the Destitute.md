@@ -81,3 +81,5 @@ I am so grateful for the Savior, who was the perfect example of obedience throug
 
 [^1]: *The Annotated Christmas Carol,* ed. Michael Patrick Hearn (1976), 69; emphasis added.
 
+
+#Blessings #Faith #Sacrifice #Tithing

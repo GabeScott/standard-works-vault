@@ -67,5 +67,4 @@ Mary Murray Murdoch exemplifies the hope and faith of so many of the early pione
 It is my prayer that our hopes will lead to the fulfillment of our righteous dreams. I particularly pray our hope in the Atonement will strengthen our faith and charity and give us an eternal perspective of our future. May we all have this perfect brightness of hope, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Charity #Faith #Hope #Pioneers

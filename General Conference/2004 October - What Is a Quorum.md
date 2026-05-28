@@ -61,5 +61,4 @@ Now this word of warning from the scriptures:
 And so I say to you two Brethren who have joined us in our quorum, and to all of you brethren who belong to the priesthood of God, may God bless each of us in our calls to serve. May our faith strengthen as we serve in righteousness, faithfully keeping the commandments. May our testimonies ever grow stronger as we seek to find the fountain of eternal truth. May the brotherhood that exists in our quorums be of comfort and strength and security as we pass through this mortal part of our existence. May the joy of gospel service ever abide in our hearts as we go forward to fulfill our duties and responsibilities as servants in our Father in Heaven’s kingdom is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood #Quorum_Of_The_Twelve_Apostles #Service

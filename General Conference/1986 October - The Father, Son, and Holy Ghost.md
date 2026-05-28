@@ -149,5 +149,4 @@ Miracle of miracles and wonder of wonders, they are interested in us, and we are
 I bear witness of these great, transcendent truths. I do so by the gift and power of the Holy Ghost, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#God_The_Father #Godhead #Holy_Ghost #Jesus_Christ

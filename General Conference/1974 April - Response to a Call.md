@@ -41,5 +41,4 @@ I know the celestial criteria measure service, not status; the use of our talent
 Finally I testify that what a wise man wrote is true: “If you have not chosen the kingdom of God first, it will in the end make no difference what you have chosen instead.” Having so chosen, may God bless us all to move the kingdom along, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Gratitude #Testimony

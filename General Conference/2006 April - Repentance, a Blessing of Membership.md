@@ -41,3 +41,5 @@ What does my membership in The Church of Jesus Christ of Latter-day Saints mean 
 
 [^3]: See [[Alma 34.16|Alma 34:16]].
 
+
+#Atonement #Jesus_Christ #Repentance

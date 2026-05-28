@@ -23,5 +23,4 @@ I pledge all that I am to this sacred calling. I promise to be teachable, and I 
 I know that our Heavenly Father lives and that he loves each one of us. I know that Jesus is the Christ and that he lovingly offers the way to our forgiveness. I know that through the Prophet Joseph Smith the Church of Jesus Christ was restored to the earth and that the true priesthood authority of God is in The Church of Jesus Christ of Latter-day Saints. I pray that I may always be valiant in that testimony and to these eternal truths, in the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Gratitude #Testimony

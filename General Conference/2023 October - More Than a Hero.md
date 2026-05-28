@@ -95,3 +95,5 @@ In a world of heroes, with monuments and museums devoted to the exploits of mort
 
 [^15]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98.
 
+
+#Heroes #Idol_Worship #Jesus_Christ #Pioneers

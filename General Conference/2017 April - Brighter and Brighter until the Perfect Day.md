@@ -101,3 +101,5 @@ I again echo the words of Paul: “Let us put on the armour of light.”[^16] I 
 
 [^17]: [[James 1.17|James 1:17]]; [[D&C 67.9|Doctrine and Covenants 67:9]].
 
+
+#Church_Activity #Family #Holy_Ghost #Jesus_Christ #Light_Of_Christ #Temple_Work

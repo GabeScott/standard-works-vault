@@ -121,3 +121,5 @@ God lives! Jesus is the Christ! This is His Church, restored to help you fulfill
 
 [^18]: Elder John A. Widtsoe wrote: “To the man or woman who goes through the temple, with open eyes, heeding the symbols and the covenants, and making a steady, continuous effort to understand the full meaning, God speaks his word, and revelations come. The endowment is so richly symbolic that only a fool would attempt to describe it; it is so packed full of revelations to those who exercise their strength to seek and see, that no human words can explain or make clear the possibilities that reside in temple service. The endowment which was given by revelation can best be understood by revelation” (in Archibald F. Bennett, *Saviors on Mount Zion* \[Sunday School manual, 1950\], 168).
 
+
+#Covenants #Jesus_Christ #Ordinances #Revelation #Temples

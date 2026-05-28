@@ -141,5 +141,4 @@ As I contemplate the foregoing admonition and testimony of Peter, I can readily 
 By way of conclusion and in the words of Paul to Timothy, “I put thee in remembrance that thou stir up the gift of God, which is in thee by the \[laying\] on of … hands” ([[2 Timothy 1.6|2 Tim. 1:6]]), and may God grant that we may all so believe that we are what we profess to be as priesthood holders, that neither storm nor calm can drive us from our duty. I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Spirituality

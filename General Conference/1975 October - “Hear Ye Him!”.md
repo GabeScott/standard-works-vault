@@ -117,5 +117,4 @@ In this day of darkness, sin, and confusion, would you not welcome a new revelat
 We testify that God does live. He is the Creator of the world. We testify that Jesus Christ lives and that he is the Redeemer of this world. And we unitedly give voice to God’s command with respect to the Christ: *“Hear ye him!”* There is salvation in and through him alone. And to this we testify in his holy name. Amen.
 
 
-
-
+#Church_Growth #Restoration

@@ -67,5 +67,4 @@ I know Spencer W. Kimball is a prophet of the Lord. He is a living prophet. He i
 Brothers and sisters, why don’t we pay more humble attention to this servant of the Lord so that we can lengthen our own stride and share this beautiful gospel of the Lord Jesus Christ with another Bishop Choi and another Sister Anan. I humbly pray in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Testimony

@@ -79,3 +79,5 @@ I testify that the principle of tithing is of God, taught to us in such scriptur
 
 [^13]: [[2 Samuel 24.24|2 Sam. 24:24]].
 
+
+#Blessings #Children #Education #Financial_Management #Gratitude #Restoration #Tithing

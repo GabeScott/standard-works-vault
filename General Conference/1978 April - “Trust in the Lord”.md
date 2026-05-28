@@ -95,5 +95,4 @@ I humbly pray that we will place our “trust in the Lord and do good” so that
 God lives. Jesus is the Christ. This is his church. This is my humble witness to you today, in the name of Jesus Christ. Amen.
 
 
-
-
+#Example #House_Of_Israel #Joy

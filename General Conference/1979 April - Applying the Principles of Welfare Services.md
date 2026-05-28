@@ -125,5 +125,4 @@ Again we express to all of you here our deep gratitude for all that is being don
 I know that God lives, I know this is his work, and I ask him to continue to bless us with inspiration and judgment. In the name of Jesus Christ, amen.
 
 
-
-
+#Welfare

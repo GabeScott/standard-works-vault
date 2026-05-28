@@ -53,5 +53,4 @@ We have, in original form, everything that has ever been brought to earth that i
 I pray that we each will see how great the importance is to gain an understanding, through diligent and prayerful study, of the divine Sonship of Jesus Christ—the Savior of the world; that Joseph Smith’s divine mission was to bring about the restoration of the principles and ordinances of the gospel of Jesus Christ, and also the Book of Mormon, which is indeed another witness that Jesus Christ is the Son of the living God; and that this church—The Church of Jesus Christ of Latter-day Saints—is “the Lord’s kingdom once again established on the earth, preparatory to the second coming of the Messiah” ([introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)). I so declare in all humility and testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Apostasy #Atonement #Book_Of_Mormon #Jesus_Christ #Joseph_Smith #Plan_Of_Salvation #Restoration

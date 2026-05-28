@@ -89,5 +89,4 @@ We see exemplified in this experience the blessings associated with giving and r
 It is my prayer, my brothers and sisters, that each of us as leaders and parents will constantly strive to lift, ennoble, and bless the one through the teachings of the gospel of Jesus Christ. In the name of Jesus Christ, amen.
 
 
-
-
+#Native_Americans #Social_Services #Welfare

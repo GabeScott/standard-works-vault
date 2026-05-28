@@ -89,3 +89,5 @@ In the name of Jesus Christ, amen.
 
 [^13]: [[D&C 50.41|Doctrine and Covenants 50:41–42]][[D&C 50.42|]].
 
+
+#Covenants #Humility #Sacrifice

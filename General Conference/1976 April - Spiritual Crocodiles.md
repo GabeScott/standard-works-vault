@@ -107,5 +107,4 @@ Fortunately, there is spiritual first aid for those who have been bitten. The bi
 That experience in Africa was another reminder for me to follow the Guide. I follow Him because I want to. Through the other experience I came to know the Guide. I bear witness that He lives, that Jesus is the Christ. I know that He has a body of flesh and bones, that He directs this Church, and His purpose is to see all of us guided safely back into His presence. In the name of Jesus Christ. Amen.
 
 
-
-
+#Agency #Church_Leaders #Obedience

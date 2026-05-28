@@ -81,5 +81,4 @@ The gospel of Jesus Christ teaches men to live righteously, to make the family s
 May the true gospel of the Master reach into the lives of all of us, I pray. In the name of Jesus Christ. Amen.
 
 
-
-
+#Children #Parents #Plan_Of_Salvation

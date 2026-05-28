@@ -59,5 +59,4 @@ I bear testimony, obtained through the power of the Holy Ghost, that Jesus Chris
 Finally, I testify that through an unbroken chain, the prophetic keys and authority received by the Prophet Joseph Smith have been transmitted through intervening generations and are held intact by today’s prophet, Ezra Taft Benson, who stands as the earthly head of The Church of Jesus Christ of Latter-day Saints, possessing all the keys and authority necessary to help bring about the exaltation of God’s children. In the name of Jesus Christ, amen.
 
 
-
-
+#Authority #Jesus_Christ #Joseph_Smith #Prayer #Restoration

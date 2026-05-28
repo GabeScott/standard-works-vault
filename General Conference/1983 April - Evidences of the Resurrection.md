@@ -79,5 +79,4 @@ In the glorious dawn of Easter morning, when the thoughts of the Christian world
 That we may be found worthy at his coming is my prayer in his name, amen.
 
 
-
-
+#Atonement #Jesus_Christ #Resurrection

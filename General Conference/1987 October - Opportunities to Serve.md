@@ -47,5 +47,4 @@ I’m grateful that I was reserved to be born at this particular time in the his
 May the Lord bless him. And may the choice blessings of our Father in Heaven go with you as you leave this conference, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Missionary_Work #Service

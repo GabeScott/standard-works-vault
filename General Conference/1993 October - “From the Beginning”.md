@@ -106,5 +106,4 @@ We can best express our gratitude for this glorious fulness by developing a more
 I so testify in the holy name of Jesus Christ, amen!
 
 
-
-
+#Apostasy #Faith #Restoration

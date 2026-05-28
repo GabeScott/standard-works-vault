@@ -135,5 +135,4 @@ Isaiah said, “For the nation and kingdom that will not serve thee shall perish
 As we enter into these sessions of this conference, may we invoke the blessings of the Lord upon all the Brethren who will be speaking and upon all you who will be listening, that your hearts may be touched and your testimony may ring in your hearts. Blessed is the nation whose God is the Lord. I invoke the blessings of heaven upon you in the name of Jesus Christ. Amen.
 
 
-
-
+#Abortion #Family #Loyalty #Missionary_Work #Morality #Work

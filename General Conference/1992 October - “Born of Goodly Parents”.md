@@ -51,5 +51,4 @@ Oh, goodly parent, hear the words and respond accordingly:
 In the holy name of Jesus Christ, amen.
 
 
-
-
+#Parenthood #Self-Esteem #Teaching

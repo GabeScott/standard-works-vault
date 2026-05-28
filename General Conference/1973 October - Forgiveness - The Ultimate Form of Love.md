@@ -87,5 +87,4 @@ God help us to rid ourselves of resentment and pettiness and foolish pride; to l
 In the name of Jesus Christ. Amen.
 
 
-
-
+#Charity #Forgiveness

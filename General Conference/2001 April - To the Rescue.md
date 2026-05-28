@@ -117,3 +117,5 @@ In the name of Jesus Christ, amen.
 
 [^12]: [[Matthew 25.40|Matt. 25:40]].
 
+
+#Duty #Friendship #Hope #Jesus_Christ #Love #Neighbors #Peace #Priesthood #Service #Work

@@ -73,5 +73,4 @@ I know that the responsibility and opportunity of missionary service is the most
 I conclude with the Prophet Joseph Smith’s question: “Brethren, shall we not go on in so great a cause?” ([[D&C 128.22|D&C 128:22]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

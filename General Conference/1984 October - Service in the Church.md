@@ -41,5 +41,4 @@ My present yoke chafes a bit right now, but I’ll keep sanding away until I can
 I know that God lives and responds to our petition. I know that Jesus Christ is my Master, our Savior and Redeemer. I pledge to my Heavenly Father and to my Brethren my full devotion to this present yoke of service, in the name of Jesus Christ, amen.
 
 
-
-
+#Duty #Humility #Service

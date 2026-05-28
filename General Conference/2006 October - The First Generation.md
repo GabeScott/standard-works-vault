@@ -45,3 +45,5 @@ Their legacy can be yours as fellow members of the first generation. Be faithful
 
 [^4]: *History of Heinrich Friedrich Christian Pieper and Emma Frieda Alber and Their Family* (1987), 29.
 
+
+#Example #Obedience #Ordinances

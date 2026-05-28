@@ -81,5 +81,4 @@ Your bishop or branch president is the spiritual physician’s assistant who is 
 The doctrine I have described will seem to be archaic and outdated to many people in a world that increasingly mocks the sanctity of procreation and minimizes the worth of human life. But the Lord’s truth is not altered by fads, popularity, or public opinion polls. I promise that obedience to the law of chastity will increase our happiness in mortality and make possible our progress in eternity. Chastity and virtue are now, always have been, and always will be “most dear and precious above all things” ([[Moroni 9.9|Moroni 9:9]]). I so testify in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Morality #Plan_Of_Salvation #Repentance

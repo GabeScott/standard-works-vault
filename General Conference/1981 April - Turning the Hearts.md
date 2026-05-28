@@ -63,5 +63,4 @@ To become a savior on Mount Zion, then, goes far beyond the performance of the t
 Of course, none of this would mean very much if we did not have a holy house in which to perform this work. In this sense, temple building then becomes the most important work of this dispensation. How glorious to live upon the earth at this time and have part in the grand work of rearing the Lord’s house in nations around the world so the saving ordinances of the gospel and the ties that bind eternal families may be made available to all the children of the earth! Surely we are the most blessed people who have ever lived, to which I bear witness in the name of the Lord, Jesus Christ, amen.
 
 
-
-
+#Family_History

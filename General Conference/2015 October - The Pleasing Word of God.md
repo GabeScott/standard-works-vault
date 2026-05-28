@@ -85,5 +85,4 @@ We will feel grateful to see how others progress, and we will seek the good in o
 It is my prayer that we may experience the joy that comes from striving to live in righteousness and that we may keep the companionship of the Holy Ghost in our lives through sincere and continuous repentance. We will become better people, and our families will be blessed. Of these principles I testify in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Holy_Ghost #Prophets #Repentance #Sabbath

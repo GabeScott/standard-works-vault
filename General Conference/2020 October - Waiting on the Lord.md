@@ -77,3 +77,5 @@ As we now hear our beloved prophet close this conference, may we remember, as Ru
 
 [^18]: [[Isaiah 40.31|Isaiah 40:31]]; emphasis added; see also [[Isaiah 40.28|Isaiah 40:28–30]][[Isaiah 40.29|]][[Isaiah 40.30|]].
 
+
+#Adversity #Faith #Patience

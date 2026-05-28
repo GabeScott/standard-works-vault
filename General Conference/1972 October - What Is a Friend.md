@@ -111,5 +111,4 @@ Peter was a friend. He told the beggar, “Rise and walk; I’m going to help yo
 I pray God to help us to be friends. We need God’s friendship. He pleads for ours. God lives. He is near. He is available. I leave you my testimony today that Jesus Christ is our Redeemer and Savior, that this is his church, and that he too is our friend. I bear this witness humbly, in the name of Jesus Christ. Amen.
 
 
-
-
+#Friendship

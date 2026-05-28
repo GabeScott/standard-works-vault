@@ -53,5 +53,4 @@ As we ponder the great charge given to us by the Lord to proclaim the gospel to 
 May our Heavenly Father bless us with the commitment to prepare our young men to serve. May the young men of the Church today become like the sons of Helaman, following every word of the Lord with exactness. May they become a light on a hill that shines brightly and says to all the world that they, like Joshua of old, have chosen to serve the Lord! I pray that it will be so, in the name of Jesus Christ, amen.
 
 
-
-
+#Bishops #Jesus_Christ #Missionary_Work #Parenthood #Priesthood #Truth #Youth

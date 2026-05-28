@@ -63,5 +63,4 @@ We need not worry if we can’t simultaneously do all of the things that the Lor
 I bear testimony that living an obedient life, firmly rooted in the gospel of Jesus Christ, provides the greatest assurance for peace and refuge in our homes. There will still be plenty of challenges or heartaches, but even in the midst of turmoil, we can enjoy inner peace and profound happiness. I testify that the Atonement of Jesus Christ is the source of that abundant peace, in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Home #Jesus_Christ #Peace

@@ -89,5 +89,4 @@ Your descendants will teach doctrine to each other because you taught it. Doctri
 I am grateful to live in a time when we and our families have the fulness of the gospel restored. I am grateful for the Savior’s mission of love for us and for the words of life which He has given us. I pray that we may share those words with those we love. I testify that God our Father lives and loves all His children. Jesus Christ is His Only Begotten Son in the flesh and our Savior. He is risen. We can be washed clean through obedience to the laws and ordinances of the gospel of Jesus Christ. The keys of the priesthood are restored. President Gordon B. Hinckley holds those keys. I know that is true. In the name of Jesus Christ, amen.
 
 
-
-
+#Church_Doctrine #Faith #God_The_Father #Jesus_Christ #Parenthood #Priesthood #Resurrection #Satan #Teaching

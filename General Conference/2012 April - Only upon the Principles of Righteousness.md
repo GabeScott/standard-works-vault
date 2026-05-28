@@ -79,3 +79,5 @@ Brothers and sisters, this is the Lord’s way. Even if you’ve been mistreated
 
 [^12]: See [[Matthew 11.28|Matthew 11:28]].
 
+
+#Leadership #Obedience #Parenthood #Priesthood

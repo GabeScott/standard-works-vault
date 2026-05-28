@@ -53,5 +53,4 @@ Not only the young people of the Church have trials and temptations, but each of
 All the effort and struggle and sorrow will be well worth it, for we will earn the greatest of all gifts, the gift of eternal life. May this be our happy lot, I humbly pray in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Adversity #Joseph_Smith

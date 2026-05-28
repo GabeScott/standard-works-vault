@@ -87,5 +87,4 @@ The prayer of a mother, the faith of a father, the service of a son brought fort
 God bless us, my brethren, with missionary memories of stalwart service in the cause of Christ, I pray in His holy name, amen.
 
 
-
-
+#Faith #Missionary_Work

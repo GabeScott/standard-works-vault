@@ -77,5 +77,4 @@ I know there are some who desire to grasp this banner but feel unworthy to do so
 Is there a cause? Most assuredly there is. I challenge each young person in this church to grasp the banner and march shoulder to shoulder with his parents, his bishop, and other adult and youth leaders to a glorious victory in the kingdom of our Heavenly Father, in the name of Jesus Christ. Amen.
 
 
-
-
+#Honesty #Spirituality #Youth

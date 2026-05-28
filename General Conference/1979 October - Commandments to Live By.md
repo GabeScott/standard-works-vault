@@ -97,5 +97,4 @@ In closing, I would like to bear testimony that the Father and the Son did appea
 I pray that these brethren may be blessed with inspiration at all times. Further, that our Heavenly Father will grant them health and strength sufficient to carry out their heavy responsibilities. In the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #Obedience

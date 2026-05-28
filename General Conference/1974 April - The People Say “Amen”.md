@@ -125,5 +125,4 @@ In the words of President Wilford Woodruff, “Let me exhort all elders of Israe
 I know that my Redeemer lives. He has made known to me personally that what I have said here today is true. God our Heavenly Father lives. This Church is his church. Jesus our Savior directs the work. And President Kimball is his prophet! This I solemnly testify by all that I hold sacred and in the holy name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Church_Leaders #Prophets

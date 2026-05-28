@@ -49,5 +49,4 @@ One evening I was feeling a bit discouraged and said, “Oh, Dad, the blessings 
 May we *hold on* to the eternal truths of the gospel of Jesus Christ because they are literally everything is my sincere prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Safety #Scriptures

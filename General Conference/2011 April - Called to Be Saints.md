@@ -47,5 +47,4 @@ My dear brothers and sisters, how blessed we are to have been brought into this 
 I testify that our Lord, the Holy One of Israel, lives and that He directs His Church, The Church of Jesus Christ of Latter-day Saints, through our beloved prophet, Thomas S. Monson. In the name of our Lord, Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Church_Membership #Faith

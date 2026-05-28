@@ -67,5 +67,4 @@ The willingness to see through each other’s eyes will transform “corrupt com
 I bear humble witness that we can “minister grace” through compassionate language when the cultivated gift of the Holy Ghost pierces our hearts with empathy for the feelings and context of others. It enables us to transform hazardous situations into holy places. I testify of a loving Savior who “looketh on \[our\] heart” and cares what we are thinking. In the name of Jesus Christ, amen.
 
 
-
-
+#Communication #Love #Marriage

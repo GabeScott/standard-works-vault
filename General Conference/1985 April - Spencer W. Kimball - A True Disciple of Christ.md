@@ -115,5 +115,4 @@ Now a great counselor is sitting at the side of this wonderful prophet. To him P
 I leave you my witness that President Spencer W. Kimball is a prophet, preserved in this day for purposes and occasions such as this. We can reflect, ponder, and be grateful the Lord has given us an extended period in which to enjoy his influence. His life motivates us to set our goals and make our plans to become disciples of Christ such as he. May God help us as priesthood bearers to follow his example, heed his priceless counsel, and share his wisdom and love in our homes, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Spencer_W._Kimball

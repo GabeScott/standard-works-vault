@@ -83,5 +83,4 @@ Not long ago, one of my children said, “Dad, sometimes I wonder if I will ever
 Live every day with joy in your heart, brothers and sisters. I humbly testify that life can be wonderful, in the name of Jesus Christ, amen.
 
 
-
-
+#Attitude #Goals #Priorities

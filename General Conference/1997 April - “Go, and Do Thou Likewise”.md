@@ -73,5 +73,4 @@ To help relieve suffering is to cultivate a Christlike character. We are charged
 May we be generous with our time and liberal in our contributions for the care of those who suffer. May we commit to the principles of Good Samaritanism and be ever mindful of the need to *“go, and do thou likewise,”* I pray in the holy name of Jesus Christ, amen.
 
 
-
-
+#Bishops #Fasting #Good_Samaritan #Jesus_Christ #Joy #Neighbors #Service #Welfare

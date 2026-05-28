@@ -111,5 +111,4 @@ What a voice of gladness was shared when our Savior, Jesus Christ, following tor
 May I share my witness and testimony that I know God is pleased when we declare glad tidings of truth, righteousness, and His reality. My voice of gladness today is God lives. Jesus is the Christ. Let no one or any situation take this reality from you. I declare this message with a voice of gladness in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Attitude #Faith #Gratitude #Hope

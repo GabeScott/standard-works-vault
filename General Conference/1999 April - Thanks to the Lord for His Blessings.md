@@ -39,5 +39,4 @@ In closing now, I feel impressed to announce that among all of the temples we ar
 I repeat what I have said before. I love you. I leave my blessing and my testimony of this great and wonderful latter-day work. God be with you till we meet six months from now, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Family #General_Conference #Restoration #Temples

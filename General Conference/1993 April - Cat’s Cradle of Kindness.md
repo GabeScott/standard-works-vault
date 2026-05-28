@@ -43,5 +43,4 @@ Brothers and sisters, we never know how far the effects of our service will reac
 May we all deal kindly with one another, seeking in our lives the blessing of the Apostle Paul, that our “hearts might be comforted, being knit together in love” ([[Colossians 2.2|Col. 2:2]]), I pray humbly and sincerely in the name of Jesus Christ, amen.
 
 
-
-
+#Kindness #Love #Service

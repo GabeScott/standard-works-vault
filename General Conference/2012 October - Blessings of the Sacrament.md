@@ -93,3 +93,5 @@ We will be blessed as we feel gratitude for the Atonement of Jesus Christ, renew
 
 [^13]: Melvin J. Ballard, in Bryant S. Hinckley, *Sermons and Missionary Services of Melvin Joseph Ballard* (1949), 149.
 
+
+#Atonement #Sacrament

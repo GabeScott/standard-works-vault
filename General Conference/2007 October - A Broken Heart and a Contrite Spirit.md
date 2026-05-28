@@ -49,5 +49,4 @@ There is yet another dimension of a broken heart—namely, our deep gratitude fo
 As we make the sacrifice to Him of all that we have and all that we are, the Lord will fill our hearts with peace. He will “bind up the brokenhearted” ([[Isaiah 61.1|Isaiah 61:1]]) and grace our lives with the love of God, “sweet above all that is sweet, … and pure above all that is pure” ([[Alma 32.42|Alma 32:42]]). Of this I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Gratitude #Repentance #Sacrifice

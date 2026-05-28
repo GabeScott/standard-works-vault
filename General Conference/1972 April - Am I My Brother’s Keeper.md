@@ -61,5 +61,4 @@ Or will we follow the example of the Good Samaritan and thoughtfully and sympath
 The choice is ours to make. May the Lord bless us that our decisions will be correct and righteous ones, for which I humbly pray, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Brotherhood #Service

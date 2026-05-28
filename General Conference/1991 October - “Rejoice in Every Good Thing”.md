@@ -64,5 +64,4 @@ Sisters, we are mighty together. There is consolation in our caring. There is st
 Let us come unto Christ. Let us rejoice in him, the giver of all good things, and rejoice in those good things he has given, including the diversity and the unity of our sisterhood, and in our chance to be his hands in doing his compassionate work upon the earth, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Joy #Love #Unity

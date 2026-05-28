@@ -53,5 +53,4 @@ And when the day comes to enter the classroom door of the temple, you will be at
 Young brothers and sisters, it will ultimately be your love of the Lord which will help you commit and then stay true to your celestial daily plan. I know the Lord lives and His desire and hope for us all is a celestial future. In the name of Jesus Christ, amen.
 
 
-
-
+#Goals #Jesus_Christ #Youth

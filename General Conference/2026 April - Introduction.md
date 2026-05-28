@@ -23,5 +23,4 @@ In advance, I express our gratitude as leaders of the Church for our members’ 
 At this Easter season, I reaffirm our testimony of the resurrected Lord and recognize that He is the head of this Church. We pray for His blessings upon this conference and upon all of you in the name of Jesus Christ, amen.
 
 
-
-
+#Sustaining

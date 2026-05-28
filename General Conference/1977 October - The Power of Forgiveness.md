@@ -125,5 +125,4 @@ Now we come to a realization that the kingdom of God and the church of Jesus Chr
 We shall love all our neighbors as ourselves and God will bless all of us. Jesus Christ, also our Lord and Savior, is the Lord of this world. God bless us that we may follow closely his dictates, in the name of Jesus Christ. Amen.
 
 
-
-
+#Activation #Forgiveness

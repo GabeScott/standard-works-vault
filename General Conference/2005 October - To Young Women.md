@@ -73,3 +73,5 @@ To my granddaughter and to every other young person in this Church I bear my per
 
 [^14]: [[John 20.27|John 20:27]].
 
+
+#Divine_Nature #Morality #Plan_Of_Salvation #Self-Esteem #Testimony #Womanhood #Young_Women

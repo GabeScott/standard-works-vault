@@ -109,5 +109,4 @@ I bear witness that Jesus Christ, the Son of God, the Savior of the world, is th
 I would this day, with all my soul, pray that the hearts of men everywhere will be touched by that divine spark which will cause them to understand, accept, and live the teachings of Jesus Christ, which will prepare them for eternal life with God, our Heavenly Father. In the name of Jesus Christ, amen.
 
 
-
-
+#Honesty

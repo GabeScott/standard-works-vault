@@ -27,5 +27,4 @@ In the world today are some 87,000 diplomas certifying to degrees, which many of
 This gospel contains the saving principles which will help solve the ills of the world; and I testify that they are restored for this purpose by the Prophet Joseph Smith, whom I honor, and that the keys for the remission of sins and the salvation of mankind continue in the Church today under the leadership of a true and living prophet. This I humbly witness to you and pledge my best efforts in fulfilling this call and being trustworthy in it, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Testimony

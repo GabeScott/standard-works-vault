@@ -85,5 +85,4 @@ We commend to all a careful, thoughtful, and prayerful reading of this proclamat
 May the Lord bless you, my beloved sisters. You are the guardians of the hearth. You are the bearers of the children. You are they who nurture them and establish within them the habits of their lives. No other work reaches so close to divinity as does the nurturing of the sons and daughters of God. May you be strengthened for the challenges of the day. May you be endowed with wisdom beyond your own in dealing with the problems you constantly face. May your prayers and your pleadings be answered with blessings upon your heads and upon the heads of your loved ones. We leave with you our love and our blessing, that your lives may be filled with peace and gladness. It can be so. Many of you can testify that it has been so. The Lord bless you now and through the years to come, I humbly pray in the name of our Savior, the Lord Jesus Christ, amen.
 
 
-
-
+#Children #Commitment #Family #Homosexuality #Jesus_Christ #Morality #Motherhood #Prophets #Responsibility #Single_Members #Women

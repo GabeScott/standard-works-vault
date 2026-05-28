@@ -101,3 +101,5 @@ Sometimes the journey will seem long—after all, it is the journey toward etern
 
 [^16]: [[Matthew 25.21|Matthew 25:21]].
 
+
+#Atonement #Jesus_Christ #Repentance

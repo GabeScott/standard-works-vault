@@ -115,5 +115,4 @@ May God bless you, my dear brethren of the priesthood, young and old. Fathers, s
 How great are the promises of the Lord to those who walk in faith. I leave with you my blessing, my love, and my testimony. What a great and marvelous force for good is in this priesthood if we are united and move forward as one. May the Lord bless us to do so, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Abuse #Education #Family_Home_Evening #Financial_Management #Missionary_Work #Morality #Self-Reliance #Temple_Work

@@ -149,3 +149,5 @@ I witness and testify that Jesus Christ is in reality our Savior and Redeemer. H
 
 [^25]: [[John 14.6|John 14:6]].
 
+
+#Atonement #Faith #Grace #Humility #Jesus_Christ #Repentance

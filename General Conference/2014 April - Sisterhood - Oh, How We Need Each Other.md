@@ -71,3 +71,5 @@ I extend to you an invitation that was issued once before by a Relief Society ge
 
 [^7]: Bonnie D. Parkin, “Choosing Charity: That Good Part,” *Ensign* or *Liahona,* Nov. 2003, 106.
 
+
+#Love #Service #Sisterhood

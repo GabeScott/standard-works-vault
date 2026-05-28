@@ -87,3 +87,5 @@ Brethren, I testify of the power in the Book of Mormon. Whether reading it in En
 
 [^16]: See [[3 Nephi 11.1|3 Nephi 11–28]].
 
+
+#Adversity #Book_Of_Mormon #Holy_Ghost #Scripture_Study #Testimony

@@ -65,5 +65,4 @@ I desire to leave my witness of the divinity of this great and ever-advancing ca
 I know that God lives. I know that this is his work. I know that he inspires his great prophet President Spencer W. Kimball. I know his path is the only way to peace and happiness here and hereafter, in the name of Jesus Christ. Amen.
 
 
-
-
+#Example #Morality #Youth

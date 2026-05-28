@@ -75,3 +75,5 @@ I bear solemn witness that as you pray with all the fervor of your soul with hum
 
 [^4]: See [[D&C 8.2|D&C 8:2]].
 
+
+#Holy_Ghost #Pornography #Spirituality

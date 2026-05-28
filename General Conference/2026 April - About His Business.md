@@ -101,3 +101,5 @@ When 12-year-old Jesus was found by His parents teaching in the temple, He told 
 
 [^22]: [[Luke 2.49|Luke 2:49]].
 
+
+#Callings #Service #Sustaining

@@ -75,5 +75,4 @@ It is truly the foundation of our commitment to serve and to make the right choi
 I testify of the power of personal revelation and of the scriptures in my life. I know that God lives and that President Ezra Taft Benson is a living prophet. In the name of Jesus Christ, amen.
 
 
-
-
+#Safety

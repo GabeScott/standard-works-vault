@@ -189,3 +189,5 @@ I earnestly pray that your own search for truth will impress upon your heart the
 
 [^12]: See [[Matthew 16.24|Matthew 16:24]].
 
+
+#Activation #Belonging #Faith

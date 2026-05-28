@@ -93,3 +93,5 @@ I know that my Redeemer lives, and pray his peace and blessings upon all men eve
 
 [^5]: Marcus Aurelius, *Meditations,* Book xii, sec. 17, line 68.
 
+
+#Goals

@@ -69,5 +69,4 @@ The Lord hasn’t sent us to the world to fail. We have been invested with all o
 I know that the Lord has made this possible and that he blesses us and will continue to bless us as we progress to our glorious destination. In the name of Jesus Christ, amen.
 
 
-
-
+#Obedience

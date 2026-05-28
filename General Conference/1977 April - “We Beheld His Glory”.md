@@ -71,5 +71,4 @@ The divine keys, power, and authority were committed by heavenly messengers to J
 I testify in all sincerity to the truth of these things, in the name of Him whom we honor, worship, and love as our Savior and Redeemer, Jesus the Christ. In His holy name, amen.
 
 
-
-
+#Jesus_Christ

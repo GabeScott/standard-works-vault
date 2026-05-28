@@ -101,5 +101,4 @@ Now, in closing, I humbly declare, “Glory be to the Father”—first, for rea
 Glory be to the Father, in the name of Him who can succor us amid all our ironies and adversities (see [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]), even Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Jesus_Christ

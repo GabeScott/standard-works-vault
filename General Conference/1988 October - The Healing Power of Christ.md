@@ -101,5 +101,4 @@ Jesus of Nazareth healed the sick among whom He moved. His regenerating power is
 As members of the Church of Jesus Christ, ours is a ministry of healing, with a duty to bind the wounds and ease the pain of those who suffer. Upon a world afflicted with greed and contention, upon families distressed by argument and selfishness, upon individuals burdened with sin and troubles and sorrows, I invoke the healing power of Christ, giving my witness of its efficacy and wonder. I testify of Him who is the great source of healing. He is the Son of God, the Redeemer of the world, “The Sun of Righteousness,” who came “with healing in his wings.” Of this I humbly testify in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Healing #Jesus_Christ #Sin

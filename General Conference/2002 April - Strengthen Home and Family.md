@@ -99,5 +99,4 @@ Tonight I have talked about three principles to help you strengthen your home an
 The Savior, our Redeemer and friend, has shown us the way. As you practice His teachings, you may never win the Olympic silver or gold, but earning your Young Womanhood medallion can bring a much greater reward and help keep the fire of the Holy Ghost burning brightly within each one of you. As you study and develop a love for the scriptures, I pray that you will find other meaningful ways to strengthen your home and family. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Home #Prayer #Sacrifice

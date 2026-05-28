@@ -167,5 +167,4 @@ He lives today as our Lord, our Master, our Savior, our Redeemer, and our God.
 God bless us all to believe Him, to accept Him, to worship Him, and to fully trust in Him, and to follow Him is my humble prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Jesus_Christ

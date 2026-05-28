@@ -71,5 +71,4 @@ May God bless you so that all the previous blessings promised to you will become
 I know that God lives, that Jesus is his Only Begotten Son, the Redeemer of the world, and that this is the Church of Jesus Christ, with him as its head. I leave this testimony with you with my love and my blessings. In the name of Jesus Christ, amen.
 
 
-
-
+#Women

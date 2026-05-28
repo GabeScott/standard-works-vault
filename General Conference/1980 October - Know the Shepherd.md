@@ -65,5 +65,4 @@ The Prophet Joseph Smith met a martyr’s death. He died for his testimony, seal
 We should each ask, “Am I loving enough, am I studying enough, am I serving enough to *know* the Shepherd?” May we all come to know the Savior, through obeying his commandments, that when we meet him face to face, we each can say, “I know thee; thou art my Shepherd.” This I testify in the name of Jesus Christ, our loving Shepherd, amen.
 
 
-
-
+#Jesus_Christ #Testimony

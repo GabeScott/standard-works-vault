@@ -107,5 +107,4 @@ Now we have a special treat. I would like to ask Brother David B. Haight to come
 ***President Hinckley:*** We will excuse him now. He will be watching on television. What a great soldier he has been in the army of the Lord. Thank you so much, Brother Haight.
 
 
-
-
+#Church_Growth #Missionary_Work #Service

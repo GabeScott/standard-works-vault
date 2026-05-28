@@ -69,5 +69,4 @@ With His perfect, spiritual symmetry, Jesus really is “the way, the truth, and
 So it is that real, personal sacrifice never was placing an animal on the altar. Instead, it is a willingness to put the animal in us upon the altar and letting it be consumed! Such is the “sacrifice unto the Lord … of a broken heart and a contrite spirit,” ([[D&C 59.8|D&C 59:8]]), a prerequisite to taking up the cross, while giving “away all \[our\] sins” in order to know God ([[Alma 22.18|Alma 22:18]]); for the denial of self precedes the full acceptance of Him. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Commandments #Family #Fatherhood #Financial_Management #Gordon_B._Hinckley #Jesus_Christ #Morality #Parents #Perspective #Sacrifice #Sin

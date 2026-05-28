@@ -127,5 +127,4 @@ It is my faith that all who join in such choruses of praise and petition, of ado
 And such is my prayer for myself and my family and for all Israel. In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Prayer

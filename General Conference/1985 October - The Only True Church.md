@@ -159,5 +159,4 @@ I bear testimony that The Church of Jesus Christ of Latter-day Saints is, as the
 If we can stand without shame, without hesitancy, without embarrassment, without reservation to bear witness that the gospel has been restored, that there are prophets and Apostles upon the earth, that the truth is available for all mankind, the Lord’s Spirit will be with us. And that assurance can be affirmed to others. Of this I bear witness in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Organization #Jesus_Christ #Testimony

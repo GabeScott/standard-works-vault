@@ -101,5 +101,4 @@ This has been a great conference and as each one of these wonderful sermons has 
 Now brethren and sisters, it has been glorious to be with you. May peace be with you. May you return home in safety and find your families well. We bring to you this great conference with our love and affection and our hope that it will have been a great monument of success in your lives. And now I should like to say once more: God lives; Jesus is the Christ. And all the testimonies we have borne, and that the prayers have borne, and the singers have borne, we communicate to you in the name of Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ

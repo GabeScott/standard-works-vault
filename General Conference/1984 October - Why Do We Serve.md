@@ -119,5 +119,4 @@ I know that God expects us to work to purify our hearts and our thoughts so that
 Most of all, I know that God lives, and I know that his Only Begotten Son, Jesus Christ, died for our sins and is our Savior. And I know that God has restored the fulness of the gospel through the Prophet Joseph Smith in these latter days. In the name of Jesus Christ, amen.
 
 
-
-
+#Duty #Love #Plan_Of_Salvation #Service

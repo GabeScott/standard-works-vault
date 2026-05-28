@@ -85,5 +85,4 @@ One day he told me that in a dream the night before, the sight in his blind eye 
 I testify that God the Father lives. I know that. And He loves us. His Only Begotten Son lives. Because He was resurrected, we too will live again. We will see then those we have loved and who have loved us. We can through faith and obedience have family associations forever. Those in our families who love us, on both sides of the veil, would say as we consider whether to humble our hearts and repent, “Please, do not delay.” That is the Savior’s invitation and His plea. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Forgiveness #Joy #Parenthood #Plan_Of_Salvation #Preparation #Repentance #Sin #Time_Management

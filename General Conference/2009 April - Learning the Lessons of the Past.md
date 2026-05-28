@@ -55,5 +55,4 @@ And how do you get such a testimony? Well, there’s no new technology for that,
 That you may find joy and happiness and peace in the future by learning the great and eternal lessons of the past is my prayer for each of you—for my grandchildren and all of the youth of the Church, wherever you may be—which I offer in the name of Jesus Christ, amen.
 
 
-
-
+#Education #Testimony #Wisdom

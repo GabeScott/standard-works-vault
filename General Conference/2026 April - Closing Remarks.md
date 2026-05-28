@@ -31,3 +31,5 @@ I promise this to each of us as we follow the directions of the servants of the 
 
 [^4]: [[Alma 37.47|Alma 37:47]].
 
+
+#General_Conference #Jesus_Christ

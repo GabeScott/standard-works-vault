@@ -141,3 +141,5 @@ I leave with you my blessing as an Apostle of Jesus Christ that you will diligen
 
 [^36]: [[Revelation 7.9|Revelation 7:9]].
 
+
+#Atonement #Discipleship #Holy_Ghost #Jesus_Christ #Prophecy

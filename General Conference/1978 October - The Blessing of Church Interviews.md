@@ -143,5 +143,4 @@ Again I say, what a blessing that we have discernment and revelation and inspira
 Now, brethren, we are about to hear from our beloved president, Spencer W. Kimball, a prophet of God through whom the Lord himself directs this church. May we all listen, believe, and follow him, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Church_Leaders #Morality #Worthiness

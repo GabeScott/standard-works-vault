@@ -81,3 +81,5 @@ Let us now end where we started—in the Sacred Grove. Because of what took plac
 
 [^10]: Marion G. Romney, in Boyd K. Packer, *Teach Ye Diligently* (1975), 304.
 
+
+#Holy_Ghost #Teaching

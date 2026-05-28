@@ -65,5 +65,4 @@ God himself has said that he cannot look upon sin with the least degree of allow
 Because of our birthright, our intelligence, our covenants, and our assignments, we are all special witnesses for God and have some very important things that we *should* do. God is our eternal Heavenly Father. We are all his representatives in that greatest of all family enterprises which Jesus referred to as “my Father’s business.” That is the business of building integrity, character, and eternal life into the lives of his children. And one of the things that we should very frequently do is to go in the strength of the Spirit and again stand before Mount Sinai while we take stock of those things that God himself has placed out of bounds. And the emphasis of a little table pounding will help us to more securely make up our minds to eliminate those things that must *not* be done under any circumstances. And may God help us so to do, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Commandments

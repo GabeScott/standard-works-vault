@@ -77,5 +77,4 @@ My brothers and sisters, I bear to you my witness as to the reality of the gospe
 May the Lord so bless us now that we may sustain those whom he has called and do that which is expected of us, in the name of Jesus Christ. Amen.
 
 
-
-
+#Authority #Church_Callings #Church_Leaders

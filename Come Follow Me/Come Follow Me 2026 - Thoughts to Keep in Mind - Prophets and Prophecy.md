@@ -35,7 +35,7 @@ You will also find references to an Anointed One, a Redeemer, and a future King 
 
 [^2]: We don’t know how the prophetic books were compiled. In some cases, a prophet might have overseen the collection of his writings and prophecies. In other cases, his teachings might have been recorded and compiled after his death.
 
-[^3]: See [[Exodus 15.20|Exodus 15:20]]; [[Judges 4.1|Judges 4]][[Judges 4.2|]][[Judges 4.3|]][[Judges 4.4|]][[Judges 4.5|]][[Judges 4.6|]][[Judges 4.7|]][[Judges 4.8|]][[Judges 4.9|]][[Judges 4.10|]][[Judges 4.11|]][[Judges 4.12|]][[Judges 4.13|]][[Judges 4.14|]][[Judges 4.15|]][[Judges 4.16|]][[Judges 4.17|]][[Judges 4.18|]][[Judges 4.19|]][[Judges 4.20|]][[Judges 4.21|]][[Judges 4.22|]][[Judges 4.23|]][[Judges 4.24|]].
+[^3]: See [[Exodus 15.20|Exodus 15:20]]; [[Judges 4.1|Judges 4]].
 
 [^4]: See [[Genesis 25.21|Genesis 25:21–23]][[Genesis 25.22|]][[Genesis 25.23|]]; [[1 Samuel 1.20|1 Samuel 1:20–28]][[1 Samuel 1.21|]][[1 Samuel 1.22|]][[1 Samuel 1.23|]][[1 Samuel 1.24|]][[1 Samuel 1.25|]][[1 Samuel 1.26|]][[1 Samuel 1.27|]][[1 Samuel 1.28|]]; [[1 Samuel 2.1|2:1–10]][[1 Samuel 2.2|]][[1 Samuel 2.3|]][[1 Samuel 2.4|]][[1 Samuel 2.5|]][[1 Samuel 2.6|]][[1 Samuel 2.7|]][[1 Samuel 2.8|]][[1 Samuel 2.9|]][[1 Samuel 2.10|]].
 

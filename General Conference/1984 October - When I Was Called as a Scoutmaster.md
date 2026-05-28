@@ -87,5 +87,4 @@ The most important thing in this life is a testimony of the truth, and there is 
 God bless this great gathering of the priesthood, in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Scouting

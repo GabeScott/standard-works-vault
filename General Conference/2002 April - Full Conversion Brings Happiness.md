@@ -87,3 +87,5 @@ I bear testimony that as you pray for guidance, the Holy Ghost will help identif
 
 [^12]: [[3 Nephi 9.13|3 Ne. 9:13–14]][[3 Nephi 9.14|]].
 
+
+#Conversion #Faith #Joy #Repentance

@@ -97,5 +97,4 @@ I pray the divine spark will develop into a firm knowledge and conviction in all
 Bless us with heavenly inspiration to know and to be prepared for His coming—for he will come as King of kings, to reign forever and ever. I so testify to you, as I pray in his holy name. Amen.
 
 
-
-
+#Jesus_Christ #Quorum_Of_The_Twelve_Apostles

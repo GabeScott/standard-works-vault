@@ -65,5 +65,4 @@ This is an exciting program, one that will give teachers the much-needed helps t
 I testify to you that the meetinghouse library program is divinely inspired. It is guided by the hand of our Heavenly Father to make teaching in the Church more effective. It has the immediate promise to increase the activity of the entire membership of the Church through making the messages of the gospel more vital in our lives. I pray we may be successful in this effort to “prepare every needful thing,” in the name of Jesus Christ. Amen.
 
 
-
-
+#Preparation #Teaching

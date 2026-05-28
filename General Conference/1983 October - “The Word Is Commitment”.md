@@ -95,5 +95,4 @@ To reap the full benefits of life, we must fill our days with commitment to wort
 The word is *commitment.* To be something, we must be committed. God is our Father. Jesus is our Savior, and this is His Church. May we commit ourselves to living Christlike lives regardless of the environment or opposition I pray, in the worthy name of Jesus Christ, our Redeemer, amen.
 
 
-
-
+#Commitment

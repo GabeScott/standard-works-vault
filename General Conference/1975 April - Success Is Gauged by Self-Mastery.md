@@ -117,5 +117,4 @@ I wish to bear my witness to you and to the world at this Easter season that Jes
 May we apply the principles of self-mastery and discipline, so as to prove worthy of the many blessings we receive as priesthood holders, and walk uprightly before the Lord at all times, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Self-Control

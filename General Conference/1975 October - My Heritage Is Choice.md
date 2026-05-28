@@ -45,5 +45,4 @@ You might as well realize that we are all going to the same place. As an Indian 
 God lives. Jesus Christ lives, brothers and sisters. In the name of Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ #Native_Americans

@@ -51,5 +51,4 @@ Contrary to the views of many modernists, I know that God our Eternal Father liv
 May the Lord bless us in our righteous endeavors to shun the influences that lead into the ways of the world, that we may take our place, in faith and believing, in the kingdom of God, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Kingdom_Of_God #Worldliness

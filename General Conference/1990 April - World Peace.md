@@ -137,5 +137,4 @@ Jesus Christ is our Savior. He has taught us the way to live. If we follow him a
 May God bless all of us in that great effort, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Peace #Spirituality

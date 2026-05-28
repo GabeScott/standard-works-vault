@@ -127,3 +127,5 @@ My dear brothers and sisters, as you choose to let God prevail in your lives, yo
 
 [^23]: [[Mormon 9.11|Mormon 9:11]].
 
+
+#Agency #House_Of_Israel #Humility #Prejudice

@@ -123,5 +123,4 @@ And now, as I leave with you my testimony of this sacred house, of the faith of 
 I hope that as we do so, there will be stirred within each of us a flaming testimony of the divinity of this work and a spirit of gratitude to the Almighty, whose kingdom this is. In the name of our Divine Redeemer, Jesus Christ, amen.
 
 
-
-
+#Faith #Temples

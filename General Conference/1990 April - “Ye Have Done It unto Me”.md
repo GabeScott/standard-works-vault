@@ -57,5 +57,4 @@ In these challenging times, dear brothers and sisters, the need to “minister u
 I pray that day by day we will strive more diligently to be about our Father’s business (see [[Luke 2.49|Luke 2:49]]); to love and to serve our fellowmen by feeding the hungry, clothing the naked, and comforting those that mourn (see [[Matthew 25.37|Matt. 25:37–39]][[Matthew 25.38|]][[Matthew 25.39|]]); to hold up the hands that hang down and strengthen the feeble knees (see [[D&C 81.5|D&C 81:5]]); to believe and live the Savior’s doctrine; and to follow after Him and put first in our lives the things of His kingdom. And for this I humbly pray, in the holy name of Jesus Christ, amen.
 
 
-
-
+#Kindness #Love #Service

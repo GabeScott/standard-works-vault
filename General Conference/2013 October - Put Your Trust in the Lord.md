@@ -87,5 +87,4 @@ God bless you, brothers and sisters, to find the great joy that comes from exper
 From my own experience I can testify to you that the Lord will hear your prayers and you will have many opportunities now and for years to come to introduce the gospel of Jesus Christ to Heavenly Father’s precious children. President Monson, we have listened. We will all seek to find the one. I pray that all of us may experience the great joy that comes from missionary service, in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Faith #Love #Miracles #Missionary_Work

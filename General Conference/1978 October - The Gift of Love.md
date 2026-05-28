@@ -43,5 +43,4 @@ How grateful I am for this example of Christlike love and for the many other gif
 Now, may we as members of The Church of Jesus Christ of Latter-day Saints remember and live these first great commandments. May we love the Lord with all our heart, all our soul, all our mind and strength, and may we love our neighbors as ourselves. May we show that love by living all the commandments of God and by sharing with our neighbors our greatest gift of love, the gospel of Jesus Christ, which I testify is the truth and the best on the face of the earth. In the name of Jesus Christ, amen.
 
 
-
-
+#Love #Spirituality

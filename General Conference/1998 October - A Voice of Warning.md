@@ -75,5 +75,4 @@ And then from Jacob this encouragement to meet your obligation to testify, as yo
 I testify that only accepting and living the restored gospel of Jesus Christ brings the peace the Lord promised in this life and the hope of eternal life in the world to come. I testify that we have been given the privilege and the obligation to offer the truth and the choices which lead to those blessings to our Heavenly Father’s children, who are our brothers and our sisters. Jesus is the Christ, He lives, and this is His work. In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Example #Family #Jesus_Christ #Love #Missionary_Work #Morality #Neighbors #Ordinances #Temples #Testimony

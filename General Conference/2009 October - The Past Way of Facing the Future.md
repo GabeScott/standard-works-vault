@@ -67,3 +67,5 @@ The gospel of Jesus Christ is true. It has been restored to bless our lives in t
 
 [^4]: Gordon B. Hinckley, “Find the Lambs, Feed the Sheep,” *Liahona,* July 1999, 119; *Ensign,* May 1999, 105.
 
+
+#Missionary_Work #Pioneers #Temples

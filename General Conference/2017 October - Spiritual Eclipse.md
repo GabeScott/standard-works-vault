@@ -145,3 +145,5 @@ I bear testimony that no matter the obstruction that may block our vision of gos
 
 [^17]: See “Solar Eclipse and Your Eyes,” preventblindness.org.
 
+
+#Adversity #Humility #Media #Perspective #Pride #Safety

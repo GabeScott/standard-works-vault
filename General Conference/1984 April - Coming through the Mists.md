@@ -116,5 +116,4 @@ In one of the hymns, we sing of Nephi, a seer of olden time. Nephi, of course, a
 In the name of Jesus Christ, amen.
 
 
-
-
+#Spirituality

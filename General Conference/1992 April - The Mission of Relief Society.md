@@ -23,5 +23,4 @@ The aim of this society to build testimonies, bless individuals, exercise charit
 In the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Relief_Society #Women

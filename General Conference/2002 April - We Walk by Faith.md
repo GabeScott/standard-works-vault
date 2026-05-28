@@ -87,5 +87,4 @@ And so goes, my brothers and sisters, this great work of faith, lifting people a
 May God, our Eternal Father, continue to smile upon this, His Kingdom, and cause it to prosper as we, His children, walk in faith is my humble prayer in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Faith #Prayer #Tithing

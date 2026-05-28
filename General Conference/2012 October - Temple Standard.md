@@ -69,3 +69,5 @@ We are each made of the finest materials, and we are the miraculous result of di
 
 [^5]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]; see also [[1 Corinthians 3.19|verse 19]].
 
+
+#Standards #Temples

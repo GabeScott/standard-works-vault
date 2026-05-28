@@ -75,3 +75,5 @@ I share with you my certain witness that our loving Father in Heaven lives. It i
 
 [^5]: [[D&C 109.22|Doctrine and Covenants 109:22]].
 
+
+#Baptism #Covenants #Marriage #Temples

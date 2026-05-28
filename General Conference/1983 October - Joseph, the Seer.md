@@ -129,5 +129,4 @@ Therefore, brothers and sisters, I have no hesitancy—only gladness—in declar
 Humbly, I give apostolic “praise to the man who communed with Jehovah,” in the name of Jesus Christ, amen!
 
 
-
-
+#Joseph_Smith

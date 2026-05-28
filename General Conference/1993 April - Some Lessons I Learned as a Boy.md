@@ -121,5 +121,4 @@ Young men, “Do what is right; let the consequence follow” (*Hymns,* 1985, no
 Fathers, be good men, that your wives will speak of you with love and appreciation and your children will remember you with gratitude everlasting, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Peer_Pressure #Preparation #Standards #Work

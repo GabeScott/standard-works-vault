@@ -55,5 +55,4 @@ The 121st section of the Doctrine and Covenants is one of our best sources to le
 May each child’s dream of having a family here on earth that is good to them come true. This is my prayer and my testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Abuse #Accountability #Agency #Anger #Family #Jesus_Christ #Satan

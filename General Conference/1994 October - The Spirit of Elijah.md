@@ -199,3 +199,5 @@ No mortal mind could have conceived this divine work. It is evidence of the rest
 
 [^41]: [[D&C 128.24|D&C 128:24]].
 
+
+#Agency #Family_History #Ordinances #Temple_Work

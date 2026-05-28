@@ -121,5 +121,4 @@ May the Lord bless us and help us protect ourselves, our families, and the spiri
 I leave you my testimony that we have only one sure way to secure our homes and our families, and that is through learning and living the principles of the gospel of Jesus Christ. May the Lord bless you and help you prevent anything of an evil nature from entering your homes, I pray humbly, in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Media #Violence

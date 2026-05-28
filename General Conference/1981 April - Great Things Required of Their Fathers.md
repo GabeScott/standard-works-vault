@@ -112,5 +112,4 @@ I know of one family who has as its goal that each member of the family and post
 God bless all the fathers in Israel to do well the work within the walls of our own homes. With the Lord’s help we shall succeed in this, our most important responsibility. In the name of Jesus Christ, amen.
 
 
-
-
+#Family

@@ -49,5 +49,4 @@ But there is one thing that we must remember and keep clearly in mind. This doct
 The person that we look to today for revelation is President Spencer W. Kimball. I testify that he does receive revelation from the Lord for the guidance of this Church. May we hearken unto his counsel and have the wisdom and good judgment to follow that counsel, for which I pray in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Spirituality

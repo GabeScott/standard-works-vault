@@ -87,5 +87,4 @@ Now, you will still be startled, as President Benson said you would be, to reali
 I pray that we will. In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Obedience #Prayer #Prophets #Scripture_Study #Spirituality

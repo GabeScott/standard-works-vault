@@ -103,3 +103,5 @@ That is my prayer for all of us today. May we each find approval in His sight. M
 
 [^21]: See [[Genesis 1.26|Genesis 1:26–28]][[Genesis 1.27|]][[Genesis 1.28|]]; [[Genesis 2.7|2:7, 18, 21–24]][[Genesis 2.18|]][[Genesis 2.21|]][[Genesis 2.22|]][[Genesis 2.23|]][[Genesis 2.24|]]; [[Genesis 3.20|3:20]]; [[Moses 2.26|Moses 2:26–28]][[Moses 2.27|]][[Moses 2.28|]]; [[Moses 3.7|3:7–8, 18, 20–24]][[Moses 3.8|]][[Moses 3.18|]][[Moses 3.20|]][[Moses 3.21|]][[Moses 3.22|]][[Moses 3.23|]][[Moses 3.24|]]; [[Moses 4.26|4:26]].
 
+
+#Atonement #Creation #Fall #Family #Marriage #Plan_Of_Salvation

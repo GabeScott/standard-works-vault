@@ -112,5 +112,4 @@ Of course there will be some problems along the way. There will be difficulties 
 Look to the positive. Know that He is watching over you, that He hears your prayers and will answer them, that He loves you and will make that love manifest. Let the Holy Spirit guide you in all that you do as you look to become the kind of woman of whom you dream. You can do it. You will have friends and loved ones to help. And God will bless you as you pursue your course. This, girls, is my humble promise and prayer in your behalf, in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Education #Forgiveness #Friendship #Goals #Morality #Peace #Prayer #Respect #Service #Sin #Success #Talents #Temptation #Work #Young_Women

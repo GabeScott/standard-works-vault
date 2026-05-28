@@ -17,5 +17,4 @@ I’m really happy to be here and to serve. I don’t know at the moment all the
 I am very thankful for my priesthood leaders, my parents, my sisters, my brethren, my teachers in Sunday School—all who have given me the strength to fulfill the assignments I get in my life. Hopefully, I can serve so that our Lord will be pleased. I am very thankful to the First Presidency for this privilege—for calling me to be a General Authority. I leave you my testimony that I know that our Lord lives, that Jesus is the Christ, and that Joseph Smith is a true prophet. This I say in the name of Jesus Christ, amen.
 
 
-
-
+#Service

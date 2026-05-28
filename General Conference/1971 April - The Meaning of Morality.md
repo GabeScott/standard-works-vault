@@ -67,5 +67,4 @@ President Joseph F. Smith, in writings to the membership of the Church, summariz
 Brethren, as sons of God holding his holy priesthood, we have an obligation to bring honor to his name. We are his emissaries in the world. He has shown unbounded love for us through the blessing of the priesthood and through having given his life that we might have eternal life. In return for all of these blessings, he has said, “If ye love me, keep my commandments.” ([[John 14.15|John 14:15]].) That we may do this more perfectly each day I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Character #Morality

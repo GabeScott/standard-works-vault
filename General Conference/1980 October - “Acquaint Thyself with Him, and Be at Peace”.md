@@ -59,5 +59,4 @@ The Lord is still saying to us as he did in his time when he declared: “Behold
 My prayer, my brothers and sisters, is that we will make the worst of times the very best of times by making room for the Redeemer of the world in our personal lives. I testify that he is the living bread which came down from heaven. He is the promised Messiah and Savior of the human race. He is the eternal judge of the souls of men and conqueror of death and sin. He is our deliverer. He is our all because he gave his all for us. He is our salvation from sorrow and sin. He is Jesus the Christ! He lives! In his name, amen.
 
 
-
-
+#Government #Jesus_Christ

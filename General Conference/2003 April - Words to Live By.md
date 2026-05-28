@@ -59,5 +59,4 @@ May we remember:
 In the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Plan_Of_Salvation

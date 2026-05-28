@@ -23,5 +23,4 @@ Now, our beloved associates, we leave with you our love and our blessing. May th
 For this we pray as we bid you good-bye for another six months, in the sacred and holy name of our Redeemer, and leave our love and blessing with you, in His name, even the Lord Jesus Christ, amen.
 
 
-
-
+#General_Conference #Peace

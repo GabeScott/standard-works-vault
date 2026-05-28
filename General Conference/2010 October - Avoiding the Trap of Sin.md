@@ -91,5 +91,4 @@ What are we willing to give to be clean and receive that joy?
 Of these truths I bear my testimony in the holy name of Jesus Christ, amen.
 
 
-
-
+#Repentance #Sin

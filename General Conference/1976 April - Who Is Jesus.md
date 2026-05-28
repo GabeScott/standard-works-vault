@@ -115,5 +115,4 @@ And after a marvelous revelation given to Joseph Smith and Sidney Rigdon, they t
 I testify that God lives and that Jesus is the Christ, the Son of God, and that it was under his direction that the gospel of Jesus Christ has been restored in this dispensation for the last time. I so testify to these truths in the name of Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ

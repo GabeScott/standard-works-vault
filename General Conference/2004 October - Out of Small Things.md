@@ -37,5 +37,4 @@ Sisters, don’t become weary in doing good. If we are patient, we can experienc
 I bear witness to you of the reality of the promises of the Father to us, His beloved daughters. I testify that as we attune our lives to emulate the life shown us by the Savior, we will know that the light of Zion *is* arising, that we *are* becoming a people prepared for His return. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Prayer #Preparation #Scripture_Study #Service

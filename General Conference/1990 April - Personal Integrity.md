@@ -101,5 +101,4 @@ My brothers and sisters, let us live true to the trust the Lord has placed in us
 I bear my witness that Jesus is the Christ, the Son of God, and is our Lord and Savior. This is his church. Joseph Smith is a true prophet of God, as is President Ezra Taft Benson. I bear this testimony humbly, in the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Honesty #Joseph_Smith #Love #Service

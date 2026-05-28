@@ -111,3 +111,5 @@ My dear friends and brethren, no matter how many times you have slipped or falle
 
 [^9]: [[Colossians 3.23|Colossians 3:23]].
 
+
+#Adversity #Goals #Repentance

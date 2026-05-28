@@ -71,3 +71,5 @@ The things we talk of, the things we preach and teach determine the things that 
 
 [^9]: [[Deuteronomy 6.7|Deuteronomy 6:7]].
 
+
+#Faith #Parenthood #Teaching #Traditions

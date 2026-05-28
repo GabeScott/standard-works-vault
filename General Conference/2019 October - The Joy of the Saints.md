@@ -153,3 +153,5 @@ I believe that the ultimate “joy of the saints” comes in knowing that the Sa
 
 [^31]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 84.
 
+
+#Adversity #Commandments #Jesus_Christ #Joy #Service

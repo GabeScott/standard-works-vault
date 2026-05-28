@@ -63,5 +63,4 @@ My young brothers and sisters, I invite you to “experiment upon my words” ([
 The wonderful thing about knowing it is true is that you know simultaneously that God the Father and Jesus Christ live and stand at the head of this Church today. I gained that knowledge when I was 11, and now I stand before you as an ordained especial witness of Jesus Christ and testify it is true. I also testify that the Lord wants you to know it is true, and He “will \[reveal\] the truth of it unto you, by the power of the Holy Ghost” ([[Moroni 10.4|Moroni 10:4]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Courage #Faith #Holy_Ghost #Joseph_Smith #Testimony

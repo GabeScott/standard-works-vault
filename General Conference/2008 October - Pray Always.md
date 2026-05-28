@@ -93,5 +93,4 @@ We are commanded to “pray always” ([[2 Nephi 32.9|2 Nephi 32:9]]; [[D&C 10.5
 I witness Heavenly Father lives and that He hears and answers every earnest prayer. Jesus is the Christ, our Savior and Mediator. Revelation is real. The fulness of the gospel has been restored to the earth in this dispensation. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Faith #Gratitude #Prayer

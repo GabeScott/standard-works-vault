@@ -133,5 +133,4 @@ May that be done in the attitude of prayer.
 I bear witness to the truth, that revelation and prayer are indispensable in attaining eternal life, and this I do in the name of Jesus Christ. Amen.
 
 
-
-
+#Spirituality #Truth

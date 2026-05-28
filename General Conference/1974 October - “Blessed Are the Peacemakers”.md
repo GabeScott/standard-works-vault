@@ -79,5 +79,4 @@ Thus, from the beginning of creation, God planned to have leaders available in t
 May God bless us to follow the instructions and examples of the holy prophet he has sent to live among us, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Humility #Peace

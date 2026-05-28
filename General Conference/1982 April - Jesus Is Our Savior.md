@@ -207,5 +207,4 @@ I testify by the power of the Holy Ghost that this same Jesus is the Christ, the
 He is our Redeemer, our Lord, our King. His kingdom is again established on the earth, which is The Church of Jesus Christ of Latter-day Saints. This church, by divine direction, is preparing the world for His second coming—for He will come again—I humbly declare in His holy name, amen.
 
 
-
-
+#Jesus_Christ

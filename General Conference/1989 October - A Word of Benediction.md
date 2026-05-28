@@ -41,5 +41,4 @@ As we conclude, may I leave with you, in the form of a word of benediction, some
 Our prayers go with you. May there come into your minds remembrances of the wonderful things we have heard as we have sat together as the Saints of God and partaken of his everlasting truths, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Prophecy

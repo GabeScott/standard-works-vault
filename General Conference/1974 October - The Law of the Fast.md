@@ -55,5 +55,4 @@ I am confident that each of us has a continual need for additional blessings. A 
 I firmly believe that the paying of fast offerings does result in rich blessings. And to this I testify in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Fasting #Welfare

@@ -95,3 +95,5 @@ I bear witness of the resurrected, living Christ. I know that He lives. My great
 
 [^13]: [[1 Nephi 15.24|1 Nephi 15:24–25]][[1 Nephi 15.25|]].
 
+
+#Book_Of_Mormon #Conversion #Covenants #Discipleship #Endurance #Jesus_Christ

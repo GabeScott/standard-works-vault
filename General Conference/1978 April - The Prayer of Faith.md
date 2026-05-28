@@ -106,5 +106,4 @@ May we ever remember …
 He has taught us how to pray. That each of us will learn and live this lesson is my earnest plea and sincere prayer, in the name of Jesus Christ. Amen.
 
 
-
-
+#Prayer

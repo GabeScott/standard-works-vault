@@ -77,5 +77,4 @@ I conclude with this promise of King Benjamin:
 In the name of Jesus Christ. Amen.
 
 
-
-
+#Adversity #Agency #Sin #Temptation

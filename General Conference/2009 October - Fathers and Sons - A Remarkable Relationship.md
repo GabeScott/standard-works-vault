@@ -59,5 +59,4 @@ And fathers, the three suggestions I made to you moments ago absolutely apply to
 I’m grateful for my sons and my sons-in-law, who have taught me so much, and I pray now that our Heavenly Father will bless all of us as fathers and sons that we will honor our priesthood and that we will love one another by making relationships with each other one of the great, eternal priorities of our lives. I so pray in the name of Jesus Christ, amen.
 
 
-
-
+#Communication #Fatherhood #Priesthood #Trust #Youth

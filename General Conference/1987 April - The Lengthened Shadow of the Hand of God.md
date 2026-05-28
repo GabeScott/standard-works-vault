@@ -115,5 +115,4 @@ Is it any wonder that this work moves on from nation to nation, from people to p
 As I said at the outset, I marvel at what is happening in the growth and expansion of this work. And yet I know that what we see today is but the scratching of the surface of far greater things yet to come. I testify of this by the power of the Holy Spirit. I testify of the living reality of God the Eternal Father and of the Lord Jesus Christ. I testify of the divine calling of the Prophet Joseph Smith and of every other man who has succeeded in that prophetic calling. I testify of the truth and vitality of this church, in the name of Him whose name it bears and whose work it is, even Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Joseph_Smith #Missionary_Work #Restoration

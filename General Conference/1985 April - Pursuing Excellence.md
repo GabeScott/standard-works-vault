@@ -81,5 +81,4 @@ I have a testimony of the gospel of Jesus Christ. I know that Christ lives. I kn
 I know I have a long way to go, but I pray that I may always improve and someday be found worthy of all the blessings that Heavenly Father has in store for those that truly serve him, in the name of our Lord and Savior, Jesus Christ, amen.
 
 
-
-
+#Excellence

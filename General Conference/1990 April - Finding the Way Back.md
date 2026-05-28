@@ -81,5 +81,4 @@ As you make progress on the way back, you will discover feelings that you haven�
 I wish I could replace your doubt with my certainty, but I can’t give it to you. I can provide an invitation: Please, decide now to repent and change your life. I promise you, in the name of the Lord, that He will help you. He will be there in every time of need. He gave His life so that you can change your life. I promise you that you’ll feel His love, strength, and support. Trust Him completely. He is not going to make any mistakes. He knows what He is doing. Please, decide now to change your life. Be obedient to His teachings, and He will bless you. I promise you He will bless you, in the name of Jesus Christ, amen.
 
 
-
-
+#Plan_Of_Salvation #Repentance

@@ -97,5 +97,4 @@ I bear witness of Him. I witness that He lived, He died, He came forth from the 
 In the name of Jesus Christ, amen.
 
 
-
-
+#Evil #Jesus_Christ #Media #Peace #Prayer #Resurrection #Scripture_Study #Testimony #Violence

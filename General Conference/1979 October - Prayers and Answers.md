@@ -196,5 +196,4 @@ Begin now, and as the years unfold before you, you who are very young, you will 
 I know that Jesus is the Christ, that He directs this Church, that He is close to it, that He directs His Prophets and His leaders and His people and His children, in the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Prayer #Spirituality #Youth

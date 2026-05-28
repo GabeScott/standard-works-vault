@@ -119,5 +119,4 @@ May we have the courage, strength, understanding, desire, and determination to d
 This I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Courage #Obedience #Worldliness

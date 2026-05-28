@@ -65,5 +65,4 @@ I conclude with an example from the life of the Apostle Paul. During his ministr
 Let us follow the commandments of God and the examples of his servants. Let us focus our teachings on those great and powerful ideas that have eternal significance in promoting righteousness, building up the children of God, and helping each of us toward our destiny of eternal life. That we may do so is my fervent prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Children #Education #God_The_Father #Jesus_Christ #Love #Plan_Of_Salvation #Prayer #Teaching #Work

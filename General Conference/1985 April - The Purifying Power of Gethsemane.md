@@ -125,5 +125,4 @@ God grant that all of us may walk in the light as God our Father is in the light
 In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Atonement #Jesus_Christ #Resurrection

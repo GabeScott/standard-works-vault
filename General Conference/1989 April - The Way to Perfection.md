@@ -69,5 +69,4 @@ My friend from the Himalayas will have his trials and tribulations as he returns
 I testify that this restored gospel which we espouse is indeed the real truth and the *right* way to a glorious and eternal reward. In the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Plan_Of_Salvation #Resurrection

@@ -137,3 +137,5 @@ I bear my testimony that this—all of this—is going to turn out so much bette
 
 [^19]: [[Revelation 22.16|Revelation 22:16]].
 
+
+#Faith #Family #Hope #Love #Perspective

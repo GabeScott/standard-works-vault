@@ -23,5 +23,4 @@ We mark with sadness the passing of our beloved friend and associate Elder Delbe
 I express appreciation for the support and love of President Kimball, President Tanner, President Romney, President Benson, and all of the Twelve. To President Franklin D. Richards and all of our Brethren of the First Quorum of the Seventy and other General Authorities, I express my continuing love and appreciation. I pledge to God and his prophet, President Kimball, my life and whatever energy and little ability I may have, fully and completely and without reservation, for I know that Jesus is the Christ, the Son of God. I know that the Savior knows that I know that he lives. So I willingly accept the call, the keys, and the charge, and promise to do the best I know how, in the sacred name of Jesus Christ. Amen.
 
 
-
-
+#Testimony

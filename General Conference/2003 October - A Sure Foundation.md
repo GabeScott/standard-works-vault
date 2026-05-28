@@ -83,3 +83,5 @@ Brothers and sisters, the scriptures, the living prophets, and the Holy Ghost al
 
 [^10]: [[Helaman 5.12|Helaman 5:12]].
 
+
+#Adversity #Holy_Ghost #Prophets #Scripture_Study #Testimony

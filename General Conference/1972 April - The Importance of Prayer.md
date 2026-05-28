@@ -103,5 +103,4 @@ May we this day commit ourselves to so live that we may go before the Lord with 
 May the choice blessings of our Father in heaven attend you, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Prayer

@@ -105,5 +105,4 @@ These, with prayers, will accomplish wonders. You cannot expect to do it alone. 
 O God, our Eternal Father, bless the parents to teach with love and patience and encouragement those who are most precious, the children who have come from Thee, that together they might be safeguarded and directed for good and, in the process of growth, bring blessings to the world of which they will be a part, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Courage #Family #Morality #Motherhood #Parenthood #Priesthood

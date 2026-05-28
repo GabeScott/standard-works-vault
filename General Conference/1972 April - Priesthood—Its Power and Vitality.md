@@ -109,5 +109,4 @@ I want to testify that Jesus is the Christ. I testify that he is the great High 
 I testify that these men hold the keys of the holy priesthood, that there is power and inspiration in what these Brethren say. There is no other group of men in all the world like these men. They have not come to position through a political party, nor have they won a popularity contest. They have been called by prophecy and by the laying on of hands. Things will be well with us and ours to the extent that we listen to and follow their inspired counsel. In the name of Jesus Christ. Amen.
 
 
-
-
+#Priesthood

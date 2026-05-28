@@ -95,5 +95,4 @@ At a fireside talk at Brigham Young University, President Kimball said, “Almos
 May our Heavenly Father bless you abundantly in your efforts to make your marriage successful for both time and all eternity, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Marriage

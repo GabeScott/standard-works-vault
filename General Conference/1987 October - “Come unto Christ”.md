@@ -141,5 +141,4 @@ Then that great soul Mormon closes his letter to his beloved son, Moroni, with t
 My prayer for each of us is that we too will follow that inspired counsel: “Be faithful in Christ.” Then He will lift us up and His grace will be and abide with us forever. That this may be so, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Jesus_Christ #Testimony

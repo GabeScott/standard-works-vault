@@ -101,5 +101,4 @@ Whether young or old, we need not “look upon death with any degree of terror, 
 I bear solemn testimony that *we shall live again!* Such testimony is founded upon the words of eyewitnesses, including modern prophets who have seen and heard the living God and the living Christ (see [[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]]; [[Joseph Smith History 1.17|JS—H 1:17]]), and upon personal and sacred experiences of the Spirit gained in attempting to walk with God. In the name of Jesus Christ, amen.
 
 
-
-
+#Death #Jesus_Christ #Resurrection

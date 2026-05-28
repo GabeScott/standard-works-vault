@@ -37,5 +37,4 @@ And now, my beloved brothers and sisters, through the power and authority of the
 I again testify that the restored gospel of Jesus Christ is true. I feel very deeply my dependence on the Lord for the guidance and direction of his kingdom. I thank you again for your sustaining vote and your faith and prayers in behalf of myself and my Brethren, and I do so in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Leaders #Couple_Missionaries #Jesus_Christ #Missionary_Work #Ordinances #Temple_Work #Temples

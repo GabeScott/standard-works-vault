@@ -77,5 +77,4 @@ King Benjamin taught his people this important truth: “And see that all these 
 May we live our lives with order and seek to follow the sequence the Lord has outlined for us. We will be blessed as we look for and follow the patterns and the sequence in which the Lord teaches what’s most important to Him. In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Faith #Learning #Ordinances #Spirituality

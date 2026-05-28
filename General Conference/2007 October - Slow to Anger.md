@@ -88,5 +88,4 @@ Now, my dear brethren, in closing I plead with you to control your tempers, to p
 May the Lord bless you and inspire you to walk without anger, without bitterness of any kind, but to reach out to others with expressions of friendship, appreciation, and love. This is my humble prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Anger #Divorce #Marriage

@@ -103,5 +103,4 @@ Tolstoy continued, “There have been great movements started in the past but th
 It is not only destined to *become* but *is* the greatest power in the world. I thank God for his revelations to his prophets, past and present, and for not leaving us alone. I declare to you, my friends everywhere, my witness that God does live, that he made us in his own image, that he sent his divine Son, our Savior, to show us the way. I know that my Redeemer lives and pray that his blessings and peace may come to all men everywhere, in the name of Jesus Christ, our Lord and Savior, amen.
 
 
-
-
+#Jesus_Christ

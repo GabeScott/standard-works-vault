@@ -89,5 +89,4 @@ May I share four principles which have brought the deepest feelings of peace and
 If you have determined to live righteously, don’t become discouraged. Life may seem difficult now, but hold on tightly to that iron rod of truth. You are making better progress than you realize. Your struggles are defining character, discipline, and confidence in the promises of your Father in Heaven and the Savior as you consistently obey Their commandments. May the Holy Ghost prompt you to always make decisions that fortify your character and yield much joy and happiness. In the name of Jesus Christ, amen.
 
 
-
-
+#Character #Dedication #Faith #Holy_Ghost #Mortality #Obedience

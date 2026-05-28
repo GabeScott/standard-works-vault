@@ -25,5 +25,4 @@ If you would turn in your scriptures to Proverbs, chapter 3, verses 5 to 6, we c
 I have a testimony of the scriptures. I know that if we “trust in the Lord” and read the scriptures prayerfully, we will receive direction and guidance as to what we should do in any troubling circumstance. I know that as we follow this direction, we will feel of the Savior’s love for us. In the name of Jesus Christ, amen.
 
 
-
-
+#Scripture_Study #Trust #Young_Women

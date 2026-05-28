@@ -61,5 +61,4 @@ I appreciate being taught by the example of my mother and father. Mother, for fi
 May the Lord’s blessings be with each and every one of us. It is my testimony that God lives, that Jesus is the Christ. Of this I have no doubt. I give you my testimony with those who have prophesied this day. As I look into their eyes and feel the love I have for them, I ask that we might be able to work together in harmony. I say this in the name of Jesus Christ, amen.
 
 
-
-
+#Bishops

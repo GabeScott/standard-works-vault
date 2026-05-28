@@ -83,5 +83,4 @@ Oh, that we could become as a people like those referred to in the Book of Mormo
 “And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God” ([[4 Nephi 1.15|4 Ne. 1:15–16]][[4 Nephi 1.16|]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Joy #Obedience

@@ -79,5 +79,4 @@ I testify to you, brethren and sisters, that I know that God lives and that he h
 My brothers and sisters, we are a covenant-making people. Let us also be a covenant-keeping people, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Commandments #Covenants

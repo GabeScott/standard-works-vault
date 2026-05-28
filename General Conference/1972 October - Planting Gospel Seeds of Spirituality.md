@@ -83,5 +83,4 @@ God bless our missionary homes. May he also bless our missionaries, as promised 
 May your sons respond to the great call that shall be theirs, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work

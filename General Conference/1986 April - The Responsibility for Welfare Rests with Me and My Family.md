@@ -63,5 +63,4 @@ You may ask, “How can I discern which of the prophetic utterances of this conf
 The parable of the ten virgins, five wise and five foolish, has both a spiritual and a temporal application. Each of us has a lamp to light the way, but it requires that every one of us put the oil in our own lamps to produce that light. It is not enough to sit idly by and say, “The Lord will provide.” He has promised that they who are wise and “have taken the Holy Spirit for their guide” will have the earth given unto them. ([[D&C 45.57|D&C 45:57–58]][[D&C 45.58|]].) It is further promised that “the Lord shall be in their midst, and his glory shall be upon them, and he will be their king and their lawgiver.” ([[D&C 45.59|D&C 45:59]].) May it ever be so I pray humbly in the name of Jesus Christ, amen.
 
 
-
-
+#Self-Reliance #Welfare

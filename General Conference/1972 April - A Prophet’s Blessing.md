@@ -29,5 +29,4 @@ What a glorious thing it is to have the saving truths of the everlasting gospel,
 O God our Heavenly and Eternal Father, look down in love and in mercy upon this thy church and upon the members of the church who keep thy commandments. Let thy Spirit dwell in our hearts forever; and when the trials and woes of this life are over, may we return to thy presence, with our loved ones, and dwell in thy house forever, I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Gratitude

@@ -37,5 +37,4 @@ My prayer for each of us is that we will remember when the Lord has spoken His p
 “Peace I give unto you,” the Lord promises, “not as the world giveth, give I unto you” ([[John 14.27|John 14:27]]). Peace. Strength. It is what we long for and what is possible. We only need to turn toward His reaching arms. In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Jesus_Christ #Peace #Scriptures

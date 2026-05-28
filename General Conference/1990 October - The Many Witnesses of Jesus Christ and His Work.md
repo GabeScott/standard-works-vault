@@ -65,5 +65,4 @@ My friend, many years ago, about the turn of the century, a writer for a newspap
 Ken, no, God has not forgotten His children, even though they leave His presence for a season and come to earth. We are all on a journey to come to earth and prove ourselves, to find the Savior and the witnesses we have talked about today, and to embrace them with all of our heart. This will bring us peace and safety in a world of ever more frightening challenges and will ultimately make us witnesses ourselves of Him and His work and take us home one day to our Father in Heaven crowned with glory and eternal lives. Ken, won’t you take that journey? I bear to you my solemn testimony that it is true. There are witnesses—the New and Old Testaments. There are Apostles and prophets upon this earth today. His church is upon this earth today, and I do so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Scriptures #Testimony

@@ -61,5 +61,4 @@ I have a testimony of the Book of Mormon, the history of my forefathers. America
 I know that Joseph Smith really was a true prophet of God, that God the Father and Jesus the Christ actually and really came down and visited with him. It’s no myth, no legend, no fairy tale, no make-believe. It really happened. And with us today is a living prophet, President Kimball. I love him; I sustain him; I respect him. In the name of Jesus Christ. Amen.
 
 
-
-
+#Love #Unity

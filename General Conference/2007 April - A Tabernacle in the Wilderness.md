@@ -51,5 +51,4 @@ Dear Father, please continue to prosper Thy work. Cause it to increase and grow.
 Accordingly, we dedicate, rededicate, and consecrate this sacred structure, and all of this we do and ask in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Church_History #Temple_Square

@@ -77,5 +77,4 @@ Each of us can envision our ward or branch as a Zion community and then work to 
 I bear witness that ward and branch families are a great and miraculous part of Heavenly Father’s plan. May we use them more fully to help us grow and ultimately return to his presence, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Organization #Family #Fellowshipping #Service

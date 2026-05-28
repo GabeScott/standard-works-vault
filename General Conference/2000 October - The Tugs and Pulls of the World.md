@@ -99,5 +99,4 @@ Isn’t it marvelous, brothers and sisters, that God, *who knows everything,* st
 May God bless us to see things as they really are and as they really will be (see [[Jacob 4.13|Jacob 4:13]]; [[D&C 93.24|D&C 93:24]]), and may we give the glory and honor and praise unto God, which I now do. In the holy name of Jesus Christ, amen!
 
 
-
-
+#Atonement #Discipleship #Family #Friendship #Greed #Humility #Jesus_Christ #Love #Marriage #Morality #Prayer #Self-Control #Spirituality #Temptation #Tolerance #Worldliness

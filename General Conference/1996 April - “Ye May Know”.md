@@ -87,5 +87,4 @@ If you find this or any other declaration of this conference unsettling, take up
 This is my witness—all of this is true! In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Jesus_Christ #Restoration #Testimony

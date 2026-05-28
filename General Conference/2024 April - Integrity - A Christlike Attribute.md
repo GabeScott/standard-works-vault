@@ -121,3 +121,5 @@ As Job said, “Let me be weighed in an even balance, that God may know mine int
 
 [^27]: [[Job 31.6|Job 31:6]].
 
+
+#Adversity #Divine_Nature #Honesty #Jesus_Christ #Love

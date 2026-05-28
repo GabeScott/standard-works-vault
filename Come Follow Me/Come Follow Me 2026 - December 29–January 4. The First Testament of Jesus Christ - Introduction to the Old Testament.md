@@ -41,7 +41,7 @@ In a vision, the Lord showed Nephi the coming forth of the Bible, explaining tha
 
 As you study the Old Testament this year, you will also study some of the “other books” Nephi foresaw. These include:
 
-- **The book of Moses**, part of Joseph Smith’s translation of the Bible. It restores truths and accounts not found in the current text of [[Genesis 1.1|Genesis 1–6]][[Genesis 1.2|]][[Genesis 1.3|]][[Genesis 1.4|]][[Genesis 1.5|]][[Genesis 1.6|]][[Genesis 1.7|]][[Genesis 1.8|]][[Genesis 1.9|]][[Genesis 1.10|]][[Genesis 1.11|]][[Genesis 1.12|]][[Genesis 1.13|]][[Genesis 1.14|]][[Genesis 1.15|]][[Genesis 1.16|]][[Genesis 1.17|]][[Genesis 1.18|]][[Genesis 1.19|]][[Genesis 1.20|]][[Genesis 1.21|]][[Genesis 1.22|]][[Genesis 1.23|]][[Genesis 1.24|]][[Genesis 1.25|]][[Genesis 1.26|]][[Genesis 1.27|]][[Genesis 1.28|]][[Genesis 1.29|]][[Genesis 1.30|]][[Genesis 1.31|]].
+- **The book of Moses**, part of Joseph Smith’s translation of the Bible. It restores truths and accounts not found in the current text of [[Genesis 1.1|Genesis 1–6]].
 
 - **The book of Abraham**, which was revealed to Joseph Smith as he examined ancient Egyptian papyri (see Topics and Questions, “[Book of Abraham](https://churchofjesuschrist.org/study/manual/gospel-topics/abraham-book-of?lang=eng),” Gospel Library).
 
@@ -67,7 +67,7 @@ See also [[Jeremiah 31.31|Jeremiah 31:31–34]][[Jeremiah 31.32|]][[Jeremiah 31.
 - The words and culture of the Old Testament may be difficult for children to understand, but you can help them see Jesus Christ in symbols and stories. Perhaps you and your children could look at the image below, *The Prophet Isaiah Foretells Christ’s Birth*. Let your children point out details they see. Draw their attention, in particular, to the baby Jesus. Then you could read with them what Isaiah wrote about the Savior’s birth in [[Isaiah 7.14|Isaiah 7:14]]; [[Isaiah 9.6|9:6]]. Share with your children how you feel about looking for the Savior in the Old Testament this year.> 
 
 
-- You and your children could also read [[Psalms 23.1|Psalm 23]][[Psalms 23.2|]][[Psalms 23.3|]][[Psalms 23.4|]][[Psalms 23.5|]][[Psalms 23.6|]] or [[Isaiah 53.3|Isaiah 53:3–9]][[Isaiah 53.4|]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]] and find words that remind you of Jesus Christ. What do these words teach us about His life and Atonement?
+- You and your children could also read [[Psalms 23.1|Psalm 23]] or [[Isaiah 53.3|Isaiah 53:3–9]][[Isaiah 53.4|]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]] and find words that remind you of Jesus Christ. What do these words teach us about His life and Atonement?
 
 ### Heavenly Father wants to make covenants with me.
 

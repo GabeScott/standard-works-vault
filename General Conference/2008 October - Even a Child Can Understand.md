@@ -67,5 +67,4 @@ These principles find concrete application in the teaching which is given in our
 I pray that we will know how to open our hearts like a little child and take pleasure in hearing and practicing the word of God in all the power of its simplicity. I bear testimony that if we do this, we will gain the knowledge of the “mysteries \[of God\] and \[the\] peaceable things—that which bringeth joy, that which bringeth life eternal” ([[D&C 42.61|D&C 42:61]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Children #Education #Priorities #Scriptures

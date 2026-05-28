@@ -25,5 +25,4 @@ I know we can all have the faith to do what is right. Like the pioneers, we can 
 In closing, I’d like to tell you all how humbled and grateful I am to share some of my feelings today. The fact that I have thousands of valiant sisters all over the world participating in this conference with me reassures me that what I am doing is right. It also reminds me how we are not alone in this great work. If you happen to be the only Latter-day Saint young woman in your ward or high school, just know that you have thousands of other young women standing right beside you. We can all grow together and stay strong through these perilous last days. That is my testimony and prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Friendship #Pioneers #Young_Women

@@ -89,5 +89,4 @@ A strong, shared conviction that there is something eternally precious about a m
 Latter-day Saints need not divorce—there are solutions to marriage problems. If, as husband and wife, you are having serious misunderstandings or if you feel some strain or tension building up in your marriage, you should humbly get on your knees together and ask God our Father, with a sincere heart and real intent, to lift the darkness that is over your relationship, that you may receive the needed light, see your errors, repent of your wrongs, forgive each other, and receive each unto yourselves as you did in the beginning. I solemnly assure you that God lives and will answer your humble pleas, for he has said, “Ye shall ask whatsoever you will in the name of Jesus and it shall be done.” ([[D&C 50.29|D&C 50:29]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Divorce #Marriage

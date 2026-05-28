@@ -109,5 +109,4 @@ With the abundance of testimony, both ancient and modern, sealed by the witness 
 To all we say, “May Christ lift thee up, and may … the hope of his glory and of eternal life, rest in your mind forever.” ([[Moroni 9.25|Moro. 9:25]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Discipleship #Jesus_Christ #Resurrection

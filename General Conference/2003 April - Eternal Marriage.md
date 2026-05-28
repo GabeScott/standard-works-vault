@@ -53,5 +53,4 @@ For years I thought she was just a little bit eccentric, and then one day I real
 Eternal marriage is just like that. We need to treat it just that way. I pray that we may see it for the priceless gift that it is, in the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Love #Marriage #Temples

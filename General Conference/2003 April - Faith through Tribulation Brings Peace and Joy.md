@@ -141,3 +141,5 @@ I so testify, in the name of Jesus Christ, amen.
 
 [^27]: [[Mark 4.39|Mark 4:39]].
 
+
+#Adversity #Faith #Jesus_Christ #Peace

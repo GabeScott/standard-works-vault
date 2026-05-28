@@ -109,3 +109,5 @@ The Lord Jesus Christ lives today. He can be an active, daily presence in our li
 
 [^22]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 98.
 
+
+#Adversity #Covenants #Family #Jesus_Christ #Scripture_Study

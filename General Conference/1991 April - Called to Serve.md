@@ -95,5 +95,4 @@ So tonight we encourage you great young priesthood bearers to start both your te
 God lives! Jesus is the Christ. We are engaged in His work is my witness to you. May God bless each one of us with the spirit of missionary service is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Morality #Priesthood #Spirituality #Word_Of_Wisdom

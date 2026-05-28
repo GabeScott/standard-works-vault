@@ -115,5 +115,4 @@ Most important of all, brothers and sisters, with all our storing, let us store 
 Such a people will be known as the “household of faith” ([[D&C 121.45|D&C 121:45]]). That we may be found in their midst is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Preparation #Welfare

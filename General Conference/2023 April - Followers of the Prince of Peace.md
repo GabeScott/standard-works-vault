@@ -103,3 +103,5 @@ I testify that Jesus Christ lives and that His perfect love, expressed through H
 
 [^27]: [[Matthew 21.9|Matthew 21:9]].
 
+
+#Charity #Discipleship #Jesus_Christ #Love #Peace

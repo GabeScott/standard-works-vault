@@ -101,3 +101,5 @@ Brothers and sisters, it is my hope and prayer that we will continue to bear nob
 
 [^10]: “We Are All Enlisted,” *Hymns,* no. 250.
 
+
+#Adversity #Disabilities #Service

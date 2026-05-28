@@ -88,5 +88,4 @@ Loyalty to the prophets and prayerful obedience to the word of God will bring th
 May the Lord help us to reach beyond the words of life and to capture this great spirit, I pray. In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Spirituality

@@ -118,5 +118,4 @@ To the Snederflers, the Winders, and to all who willingly respond to the sacred 
 May we ever be found serving faithfully, I pray humbly in the name of Jesus Christ, amen.
 
 
-
-
+#Example #Leadership #Missionary_Work #Priesthood #Service

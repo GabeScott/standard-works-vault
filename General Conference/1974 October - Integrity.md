@@ -91,5 +91,4 @@ How glorious, men of the priesthood, it would be if all of us possessed the inte
 God help us that we may think about this great quality of integrity and live lives of integrity, I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Honesty

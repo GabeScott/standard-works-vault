@@ -119,5 +119,4 @@ Once again “morning stars \[will\] sing together, and … all the sons \[and d
 Then, “there’ll be peace and contentment evermore, ev’ry heart, ev’ry voice on that day will rejoice. … There’ll be joy in the morning on that day” (Natalie Sleeth, “Joy in the Morning,” Carol Stream, Illinois: Hope Publishing Co., 1977, pp. 4–5, 9–10). It shall be ours—through our faithfulness—I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Joy #Self-Esteem #Word_Of_Wisdom

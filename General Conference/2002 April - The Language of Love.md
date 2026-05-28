@@ -93,5 +93,4 @@ This should be the language of gospel instruction to our children. Whatever your
 I give thanks for the great blessing to “behold \[our\] little ones.” I like to remember that children come too, in the name of Jesus Christ, amen.
 
 
-
-
+#Children #God_The_Father #Joy #Love #Music #Prayer

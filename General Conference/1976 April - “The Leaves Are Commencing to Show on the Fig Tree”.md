@@ -109,5 +109,4 @@ It seems reasonable and possible that one percent of the Lord’s children now l
 One percent would be approximately 36,000,000 and that is a multitude of potential Saints. Yes, there are multitudes, multitudes in the valley of decision waiting to see the saintly light that leads to divine perfection. Every possible missionary that is in harmony with the Holy Spirit is urgently needed. We have many that could still be called. May we that are privileged to live in the last days be valiant and let our light shine and may we be one with Jesus Christ in helping bring salvation to all mankind. In the name of Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ #Last_Days

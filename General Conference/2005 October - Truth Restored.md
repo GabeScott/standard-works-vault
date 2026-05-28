@@ -65,3 +65,5 @@ As an Apostle of the Lord Jesus Christ, I solemnly testify that God our Father a
 
 [^5]: See First Presidency letter, July 25, 2005.
 
+
+#Agency #Apostasy #Atonement #Divine_Nature #Holy_Ghost #Jesus_Christ #Morality #Obedience #Plan_Of_Salvation

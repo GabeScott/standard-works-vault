@@ -75,5 +75,4 @@ And these revelations will be made available as appropriate, as we have seen dem
 This work is true. It will move forward to carry out all the divine plans of our Heavenly Father. I bear you this witness on this sacred day in the name of our Lord, Jesus Christ, amen.
 
 
-
-
+#Church_Leaders #Gordon_B._Hinckley #Howard_W._Hunter

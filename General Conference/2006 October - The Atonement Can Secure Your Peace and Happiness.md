@@ -57,3 +57,5 @@ I testify that with unimaginable suffering and agony at an incalculable price, t
 
 [^4]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
+
+#Atonement #Joy #Obedience #Peace #Repentance

@@ -135,3 +135,5 @@ May we make the decision today to increase our level of worship and commitment t
 
 [^21]: See “Lord, I Would Follow Thee,” *Hymns,* no. 220.
 
+
+#Conversion #Jesus_Christ #Missionary_Work #Obedience

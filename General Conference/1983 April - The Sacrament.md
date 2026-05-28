@@ -106,5 +106,4 @@ Our personal reward for compliance with the covenants and obligations in the ord
 I bear you my humble testimony and witness that this is true, in the name of our Lord Jesus Christ, amen.
 
 
-
-
+#Priesthood #Sacrament

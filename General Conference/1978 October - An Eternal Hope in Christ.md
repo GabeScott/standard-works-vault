@@ -137,5 +137,4 @@ In return, I extend to you my love and grateful thanks. As you return to your wa
 In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Plan_Of_Salvation

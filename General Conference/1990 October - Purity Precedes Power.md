@@ -73,5 +73,4 @@ Tonight, I echo the prayer offered by President Hugh B. Brown in a setting such 
 Brethren, we need not fear the future if we will keep the Lord’s commandments and live to be his worthy servants. You can stay morally clean and prepare now for a happy future. May the Lord bless every one of you to so live I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Morality #Priesthood #Repentance #Youth

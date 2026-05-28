@@ -95,5 +95,4 @@ Jesus said, “This is life eternal, that they might know thee the only true God
 I love and sustain President Spencer W. Kimball. He’s truly a prophet of God. I bear witness that God lives, in the name of Jesus Christ. Amen.
 
 
-
-
+#Last_Days #Missionary_Work

@@ -45,5 +45,4 @@ Finally, I delight in, more than I can express, the eternal love and constant he
 “My soul delighteth in the things of the Lord” ([[2 Nephi 4.16|2 Nephi 4:16]])—His law, His life, His love. To delight in Him is to acknowledge His hand in our lives. Our gospel duty is to do what is right and to love and delight in what is right. When we delight to serve Him, our Father in Heaven delights to bless us. “I, the Lord, … delight to honor those who serve me in righteousness and in truth unto the end” ([[D&C 76.5|D&C 76:5]]). I want to be worthy always of His delight. “I love the Lord. In Him my soul delights” (John Tanner, “I Love the Lord” \[Jackman Music Corp., 2000\], 2). In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Joy #Morality

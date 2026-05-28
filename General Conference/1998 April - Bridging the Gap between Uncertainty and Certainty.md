@@ -55,5 +55,4 @@ While the nations of the earth spend billions every year trying to discover more
 The Spirit will help us in our quest to bridge the gap between uncertainty and certainty. Jesus Christ is our light (see [[3 Nephi 18.24|3 Ne. 18:24]]). Let us follow this radiant light and invite others to do likewise, in the name of Jesus Christ, amen.
 
 
-
-
+#Creation #Family #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Restoration

@@ -69,5 +69,4 @@ The works of God are manifest in so many ways in the challenges of parents and c
 I bear witness that Jesus is the Christ, the Savior of the world and the Redeemer of mankind. I testify that through obedience to His commandments we may enjoy the strength to triumph over every challenge of this life. May God grant this peaceful sustaining influence to all and especially to those in greatest need. I so pray in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Disabilities #Family #Tolerance

@@ -97,3 +97,5 @@ I testify that through the redeeming Atonement and glorious Resurrection of Jesu
 
 [^18]: [[John 11.25|John 11:25]].
 
+
+#Atonement #Death #Hope #Jesus_Christ #Resurrection

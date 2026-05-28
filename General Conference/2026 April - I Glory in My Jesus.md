@@ -173,3 +173,5 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^51]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” Gospel Library.
 
+
+#Atonement_Of_Jesus_Christ #Jesus_Christ #Joy #Love #Mercy

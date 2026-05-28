@@ -119,3 +119,5 @@ The Lord’s hand is guiding you. By “divine design,” He is in the small det
 
 [^21]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
+
+#Divine_Nature #Spirituality

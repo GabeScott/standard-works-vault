@@ -29,5 +29,4 @@ Here we can reflect on the great goodness of the Lord to us. Here we can reflect
 Now, my brothers and sisters, I express to you again my love. May heaven smile upon you. This work is true. Never doubt it. God, our Eternal Father, lives. Jesus is our Redeemer, our Lord, the Son of the living God. Joseph was a prophet, the Book of Mormon is of divine origin, and this is God’s holy work in the earth. I leave you my witness, my love, my blessing as we separate to go to our homes. May God be with you till we meet again is my humble prayer, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Courage #Faith #Repentance #Temples

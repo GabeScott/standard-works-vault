@@ -92,5 +92,4 @@ I have previously suggested eight blessings that may come as we strive to overco
 From the refiner’s fire of economic difficulty may come eternal blessings which can help save families and exalt their members by their being united and strengthened—to which I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Work

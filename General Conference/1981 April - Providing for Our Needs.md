@@ -81,5 +81,4 @@ Remember—a positive attitude, a well-thought-out plan, and consistent self-dis
 May the Lord bless all of us to this end, I pray humbly, in the name of Jesus Christ, amen.
 
 
-
-
+#Financial_Management #Preparation #Self-Reliance

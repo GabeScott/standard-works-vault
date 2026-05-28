@@ -137,3 +137,5 @@ I testify that this promise is true. In the name of Jesus Christ, amen.
 
 [^31]: [[Jeremiah 29.13|Jeremiah 29:13]]; see also [[Lamentations 3.25|Lamentations 3:25]].
 
+
+#Listening #Prayer #Worship

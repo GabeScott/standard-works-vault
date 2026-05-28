@@ -197,5 +197,4 @@ The Lord who suffered for us says:
 May the voices of the Lord’s servants prevail, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Marriage #Morality

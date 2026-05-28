@@ -61,5 +61,4 @@ Brothers and sisters, I have reviewed briefly these principles. They are true. Y
 This work is divine. It will yet save and exalt us. That exaltation will come by living this law. May we in unity rise to this challenge and do it, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Welfare

@@ -37,5 +37,4 @@ May each of you go safely to your homes. May you live together in love and appre
 Our love reaches out to you. We love you very much. We leave our blessing with you. We do so as servants of the living God and in the name of our divine Redeemer. God be with you till we meet again, as we conclude this great and wonderful conference, is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Church_Organization #Criticism #Fellowshipping #General_Conference #Government #Jesus_Christ #Neighbors

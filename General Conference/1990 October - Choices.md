@@ -129,5 +129,4 @@ As you continue to face many challenging choices in life, remember, there is gre
 May each of us choose wisely and with faith in Him who created us, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Faith #Plan_Of_Salvation

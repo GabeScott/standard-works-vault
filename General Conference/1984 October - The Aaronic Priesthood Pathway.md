@@ -59,5 +59,4 @@ John Barrie, the Scottish poet, declared: “God gave us memories, that we might
 I invite each of you men to walk with me, shoulder to shoulder, together with all of the Aaronic Priesthood bearers of the Church, along this priesthood pathway which leads upward and onward toward perfection. In the name of Jesus Christ, amen.
 
 
-
-
+#Marriage #Missionary_Work #Priesthood

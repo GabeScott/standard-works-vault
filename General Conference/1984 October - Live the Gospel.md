@@ -47,5 +47,4 @@ Joseph Smith was and is a prophet. We have a prophet among us at this time. This
 I leave with you my love and blessing and that of each of my Brethren in the name of Jesus Christ, amen.
 
 
-
-
+#Leadership

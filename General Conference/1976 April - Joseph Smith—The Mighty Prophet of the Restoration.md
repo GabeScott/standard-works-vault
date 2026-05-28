@@ -125,5 +125,4 @@ But we are also witnesses of Joseph Smith, by whom we know of Christ, and who is
 We link the names of Jesus Christ and Joseph Smith in our testimonies. And we now testify, as God is our witness, that Joseph Smith is his prophet, and we do it in the blessed name of Him who is Lord of all and of whom we and all the prophets testify, who is Jesus Christ. Even so. Amen.
 
 
-
-
+#Joseph_Smith

@@ -73,5 +73,4 @@ As to their spiritual significance, Laman and Lemuel were sad ciphers. True, we 
 Mercifully, brothers and sisters, the rich Restoration gives us added ways to understand the dealings of God with His children, including with each of us personally. We can partake of His love by applying Jesus’ glorious Atonement in order to become more like Him. By likening precious scriptures to ourselves we will hasten that precious process! May we so do, in the name of Jesus Christ, amen!
 
 
-
-
+#Adversity #Book_Of_Mormon #Character #Gratitude #Holy_Ghost #Love #Prophets #Scriptures

@@ -105,5 +105,4 @@ My testimony is that the gospel is true and that it works.
 Such is the gospel of Jesus Christ, to which I bear solemn testimony in the name of Jesus Christ. Amen.
 
 
-
-
+#Teaching

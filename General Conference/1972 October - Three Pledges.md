@@ -19,5 +19,4 @@ And finally, to President Lee, his great counselors, the Council of the Twelve, 
 This is the Church of Jesus Christ as it has been established in the latter days. I am grateful for that testimony, for the strength it gives me. I say this humbly, in the name of Jesus Christ. Amen.
 
 
-
-
+#Obedience

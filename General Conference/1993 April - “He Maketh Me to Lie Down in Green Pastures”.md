@@ -45,5 +45,4 @@ I express my gratitude for all the opportunities that have come to me in serving
 The twenty-third Psalm says in part: “The Lord is my shepherd. … He maketh me to lie down in green pastures: he leadeth me beside the still waters” ([[Psalms 23.1|Ps. 23:1–2]][[Psalms 23.2|]]). I know God lives. The Lord is my Shepherd. He has, indeed, made me lie down in green pastures and has led me beside the still waters. Jesus is the Christ, our Savior and Redeemer. I so testify in His holy name, amen.
 
 
-
-
+#Peace #Safety #Spirituality

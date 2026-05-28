@@ -71,5 +71,4 @@ I witness today this truth from a verse of one of our favorite hymns:
 May God bless us to endure well the purpose for which we were sent, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Endurance

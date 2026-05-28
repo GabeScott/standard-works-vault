@@ -99,3 +99,5 @@ I witness to you that through the staggering goodness of Jesus Christ and His in
 
 [^26]: See [[Isaiah 61.3|Isaiah 61:3]]; [[Joseph Smith History 1.31|Joseph Smith—History 1:31]].
 
+
+#Adversity #Atonement #Jesus_Christ #Repentance

@@ -167,5 +167,4 @@ We love Thee and Thy divine Son. We seek to do Thy will. We praise Thy holy name
 Wilt Thou smile with favor upon us, we pray in the sacred name of our Lord Jesus Christ, amen.
 
 
-
-
+#Commandments #Education #Jesus_Christ #Missionary_Work #Prayer #Temple_Square

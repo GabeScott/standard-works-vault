@@ -99,3 +99,5 @@ That is our charge. We must feel and see for ourselves and then help all of Heav
 
 [^15]: [[3 Nephi 18.25|3 Nephi 18:25]]; emphasis added.
 
+
+#Jesus_Christ #Love

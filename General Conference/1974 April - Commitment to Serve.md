@@ -35,5 +35,4 @@ As food moves from their home to ours and from our home to theirs, my eternal co
 President Kimball and your inspired counselors, President Benson and the special witnesses who form your quorum, as we assist you we place on the altar before you our hearts, our might, our minds, and our strength. In unity, my companion and I commit whatever we are to His service. In the name of Jesus Christ. Amen.
 
 
-
-
+#Scriptures #Testimony

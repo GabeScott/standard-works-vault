@@ -43,5 +43,4 @@ In view of the fact that we do not build a temple until there are sufficient peo
 May we enjoy the blessings of the Lord as we go forward in this great work, which affects not only the living but the great multitude of the dead of all generations. For this I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Family_History #Obedience #Temples #Worship

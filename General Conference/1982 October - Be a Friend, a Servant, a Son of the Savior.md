@@ -67,5 +67,4 @@ I pray that the entire membership of this church, The Church of Jesus Christ of 
 To this I testify humbly and with love, in the name of Jesus Christ, our Master and Redeemer, amen.
 
 
-
-
+#Jesus_Christ #Service

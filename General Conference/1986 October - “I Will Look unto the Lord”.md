@@ -85,5 +85,4 @@ Mormon’s last words to his son are my prayer for my children and grandchildren
 In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Agency #Morality #Repentance

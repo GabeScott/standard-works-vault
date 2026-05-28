@@ -114,5 +114,4 @@ What a glorious promise—eternal life. And it *will* be ours if we keep the com
 May we all live to bring this promise of eternal life to ourselves and our family. Such wonderful blessings are within our grasp, if we live righteous lives. I so testify in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Example #Parenthood

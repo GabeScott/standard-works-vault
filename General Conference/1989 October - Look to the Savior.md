@@ -33,5 +33,4 @@ Again I express my love to you, President Benson, to your dedicated and devoted 
 I bear witness that the Church has been restored, that Joseph Smith is a prophet of God, as is a living prophet today, President Ezra Taft Benson, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Family #Missionary_Work #Prophecy #Testimony

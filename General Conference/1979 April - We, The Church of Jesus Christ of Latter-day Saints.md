@@ -139,5 +139,4 @@ Because of the universal importance of the content of this revelation, I shall c
 To the truth of these great revelations, I bear my personal witness. In the name of Jesus Christ, our Lord, amen.
 
 
-
-
+#Name_Of_Church

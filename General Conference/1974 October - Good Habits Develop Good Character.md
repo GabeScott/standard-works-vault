@@ -96,5 +96,4 @@ May we forsake all evil and take that first step to shape our lives for eternity
 I bear solemn witness to the value of good habits and praiseworthy character in the lives of people. The counsel quoted earlier given by our beloved prophet-leader, President Spencer W. Kimball, is very wise, timely, and needful for us to follow. This I testify to in the name of Jesus Christ our Lord. Amen.
 
 
-
-
+#Character #Habits

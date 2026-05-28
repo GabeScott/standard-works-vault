@@ -67,5 +67,4 @@ When the stories and recollections were complete, we all realized that our physi
 Yes, today is indeed a season of many opportunities. It is a season to reach out to touch the life of someone, a season to commit to keeping the Sabbath day holy, and a season to help keep the lights of our temples burning brightly, to name just a very few. I testify of a living Father in Heaven and of His Son, our Savior and our Redeemer, both who love us unconditionally and are anxious for us to seize the many opportunities They have provided. I acknowledge and express my love to our dear prophet, who, with great devotion, carries our banner with courage and majesty. In the name of Jesus Christ, amen.
 
 
-
-
+#Fellowshipping #Love #Sabbath #Temples #Tithing

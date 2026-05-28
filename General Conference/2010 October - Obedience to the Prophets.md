@@ -91,5 +91,4 @@ We are privileged to have the words of our living prophets, seers, and revelator
 Jesus is the Christ, our Savior and Redeemer. Thomas S. Monson is the living prophet of God, and the First Presidency and Quorum of the Twelve Apostles are prophets, seers, and revelators. In the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Prophets #Revelation

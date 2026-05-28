@@ -61,5 +61,4 @@ I bear you my witness that God the Father and his Son Jesus Christ live, and tha
 May each of us in our daily lives assume the role of a peacemaker and enjoy the peace that surpasseth all understanding, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Peace

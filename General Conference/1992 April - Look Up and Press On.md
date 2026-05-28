@@ -53,5 +53,4 @@ Today, arm in arm and hand in hand, we stand together on sand or rock or the ste
 In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Perspective #Spirituality

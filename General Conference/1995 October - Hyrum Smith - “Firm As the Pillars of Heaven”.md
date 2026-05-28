@@ -97,3 +97,5 @@ Surely Joseph was inspired when he wrote of his brother Hyrum, “Thy name shall
 
 [^15]: [[D&C 124.96|D&C 124:96]].
 
+
+#Blessings #Church_History #Faith #Holy_Ghost #Joseph_Smith

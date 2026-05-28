@@ -59,5 +59,4 @@ We shall continue the great work that goes on in our temples, an unmatched work 
 God bless all of us to open our eyes and to unstop our ears, to look, to listen, to learn, and to come to an understanding and appreciation of the great, eternal truths of which we bear witness, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Love

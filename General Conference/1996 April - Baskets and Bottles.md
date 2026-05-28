@@ -47,5 +47,4 @@ I do not speak Korean or Spanish or Tongan. But when I received my assignment to
 Brothers and sisters, whether your fruits are peaches or papaya, and whether you bring them in bottles or in baskets, we thank you for offering them in love. Father in Heaven, may we be one and may we be thine (see [[D&C 38.27|D&C 38:27]]), I pray in the sacred name of our Savior Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Education #Holy_Ghost #Love #Unity #Women

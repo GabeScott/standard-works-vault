@@ -41,5 +41,4 @@ I have recently been called to serve. I am deeply humbled by this calling and re
 I love the Lord Jesus Christ and bear solemn testimony to you that he lives. He is the resurrected Son of God. He is our Savior. This is his only true church, and it is good, of which I bear testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Obedience #Service

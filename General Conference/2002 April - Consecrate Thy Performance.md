@@ -79,5 +79,4 @@ The greatest happiness in God’s generous plan is finally reserved for those wh
 In the name of the Lord of the outstretched arm (see [[D&C 103.17|D&C 103:17]]; [[D&C 136.22|136:22]]), even Jesus Christ, amen.
 
 
-
-
+#Commitment #Consecration #Humility

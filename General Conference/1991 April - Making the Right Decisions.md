@@ -75,5 +75,4 @@ There is one more blessing that will come from your decision to obey. Of all, it
 I know they love you. They know each one of you personally. They know every detail of your life, every thought, every desire to strengthen yourself and to change. Be obedient to them, and they will bless you with the power to be obedient to their teachings. I so testify in love for you, in the name of Jesus Christ, amen.
 
 
-
-
+#Example #Morality #Obedience #Prayer #Spirituality #Youth

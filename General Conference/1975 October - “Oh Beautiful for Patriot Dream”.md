@@ -74,5 +74,4 @@ In two ways it seems to me: First, by striving to make our citizenry the righteo
 May that be the song of our heart and our prayer for fulfillment, I humbly pray as I bear witness to these truths and add my testimony that God lives, that Jesus is the Christ, and that here sits his prophet, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Patriotism #Restoration

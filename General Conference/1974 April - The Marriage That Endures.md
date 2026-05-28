@@ -91,5 +91,4 @@ God bless you, my dear young friends, that as you look forward to marriage, you 
 I bear witness of the living reality of the Lord Jesus Christ through whom this authority has come. I bear witness that his power, his priesthood, is among us and is exercised in his holy houses. Do not spurn that which he has offered. Live worthy of it and partake of it, and let the sanctifying power of his holy priesthood seal your companionship. For these blessings I humbly pray in your behalf, as I bear testimony and witness of these truths in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Love #Marriage

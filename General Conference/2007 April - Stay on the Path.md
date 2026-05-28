@@ -41,5 +41,4 @@ The Savior is the perfect example of virtue. When Jesus walked the roads of the 
 I testify that this is true. He has not only marked the way, but He has even led me by the hand at times. “His way is the path that leads to happiness in this life and eternal life in the world to come” (“The Living Christ,” *Liahona* and *Ensign,* Apr. 2000, 3). I bear you my testimony that He lives! He will hear your prayers and guide your steps. Jesus Christ is our Exemplar and our Guide. Stay on the path! Be modest. Cleave to your covenants, and be worthy of the companionship of the Holy Ghost. The Lord promises: “Be of good cheer, for I will lead you along. The kingdom is yours and the blessings thereof are yours, and the riches of eternity are yours” ([[D&C 78.18|D&C 78:18]]). Truly, I stand all amazed at “His matchless life and the *infinite virtue* of His great atoning sacrifice” (“The Living Christ,” *Liahona* and *Ensign,* Apr. 2000, 2; emphasis added). In the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Morality #Standards

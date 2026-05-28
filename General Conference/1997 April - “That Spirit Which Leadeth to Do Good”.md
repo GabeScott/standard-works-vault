@@ -87,5 +87,4 @@ Parley P. Pratt gave us a vision of what the gift of the Holy Ghost could mean t
 I bear witness of the power and comfort the gift of the Holy Ghost is to those who live worthy of it. What a reassurance it is for us to know that we are not left alone to find the course that we must follow to merit the eternal blessings of our Father in Heaven. We do not need man-made rating systems to determine what we should read, what we should watch, what we should listen to, or how we should conduct our lives. What we do need to do is live worthy of the continued companionship of the Holy Ghost and have the courage to follow the promptings that come into our lives. May the Lord bless us that we may ever be mindful of this great and precious gift, even the gift of the Holy Ghost, I humbly pray in the name of our Lord and Savior, Jesus Christ, amen.
 
 
-
-
+#Apostasy #Commandments #Holy_Ghost #Jesus_Christ #Priesthood #Spirituality #Temptation

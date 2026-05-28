@@ -45,5 +45,4 @@ I pray for those who can still be saved and for those who have now accepted the 
 I earnestly desire that we will accept the wisdom of this word of warning, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Faith #Obedience #Word_Of_Wisdom

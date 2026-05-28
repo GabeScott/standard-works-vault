@@ -47,5 +47,4 @@ With this fulfillment of love in our hearts, we will never be happy anymore just
 Let us therefore listen, my dear brothers and sisters, to the voice of warning. And let us embrace the Spirit of truth that we may stand blameless through the atonement of our Lord. I say this in the name of Jesus Christ, amen.
 
 
-
-
+#Plan_Of_Salvation #Repentance #Truth

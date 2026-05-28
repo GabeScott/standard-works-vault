@@ -43,5 +43,4 @@ As the Bible is the tangible evidence of divine revelation to the prophets of an
 Of this I testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Prophets #Restoration

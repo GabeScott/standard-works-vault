@@ -73,5 +73,4 @@ The knowledge and understanding of the doctrine that God lives and Jesus is the 
 God lives. Jesus is the Christ. Through His Atonement we will all have the opportunity of being resurrected. This is not just an individual blessing; it is much more than that. It is a blessing to each one of us and to our families. That we may be eternally grateful, that we can live in the presence of God the Eternal Father and His Son Jesus Christ, that we may be together in the eternities to come, that we might understand the joy, and that we not only teach this doctrine but live true to it in our lives and in our families, is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Covenants #Family #Fatherhood #God_The_Father #Hope #Motherhood #Obedience #Parenthood #Plan_Of_Salvation #Temples

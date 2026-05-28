@@ -33,5 +33,4 @@ May we determine, here and now, ever to be prepared for our time of need, our ti
 As we now conclude this general priesthood session, I say to you that you “are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Peter 2:9]]). May we ever be worthy of these divine accolades, I pray with all my heart in the name of Jesus Christ, our Savior, amen.
 
 
-
-
+#Divine_Nature #Priesthood #Worthiness

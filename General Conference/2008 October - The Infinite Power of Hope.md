@@ -193,3 +193,5 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 [^42]: See [[Mormon 6.17|Mormon 6:17]].
 
+
+#Charity #Faith #Hope

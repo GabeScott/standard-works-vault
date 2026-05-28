@@ -33,5 +33,4 @@ Jesus Christ is our Savior, our brother, our friend. He is as near as we allow h
 To these truths I bear solemn witness, for I know this is God’s church. I know God lives, as does his Beloved Son, our Savior Jesus Christ; and the Lord’s word will go forth this night through his chosen mouthpiece, President Spencer W. Kimball. May we listen to a prophet’s voice, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ #Prophets #Women

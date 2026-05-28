@@ -117,3 +117,5 @@ This is a work of salvation, and the strengthening and enabling power of the Ato
 
 [^15]: Thomas S. Monson, “The Holy Temple—a Beacon to the World,” *Liahona* and *Ensign,* May 2011, 92.
 
+
+#Duty #Endurance #Responsibility #Service

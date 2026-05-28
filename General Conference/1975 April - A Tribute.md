@@ -55,5 +55,4 @@ In tribute to her today, I recommend to you her way of life. I watched service c
 May God grant that her memory will bring satisfaction and fulfillment to your life, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Compassion #Service

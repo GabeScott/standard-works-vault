@@ -113,5 +113,4 @@ And to all of you, young or old, who are not involved, I congratulate you and le
 May heaven’s blessings attend you, my dear brethren. May all of us reach out to any who need help, I pray, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Media #Morality #Repentance #Temptation

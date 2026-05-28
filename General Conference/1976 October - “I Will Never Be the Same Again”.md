@@ -29,5 +29,4 @@ And may I express my love and appreciation to the Prophet Joseph Smith and all t
 Now I pray for the Lord’s blessings upon all of us, that we may fulfill the righteous desires of our hearts and do His work as He would have it, in the name of Jesus Christ. Amen.
 
 
-
-
+#Testimony

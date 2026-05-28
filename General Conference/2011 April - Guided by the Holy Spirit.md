@@ -159,3 +159,5 @@ If you are carrying some burden, forget it, let it alone. Do a lot of forgiving 
 
 [^23]: [[Alma 42.8|Alma 42:8]].
 
+
+#Church_Organization #Holy_Ghost #Priesthood #Scriptures #Standards

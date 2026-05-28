@@ -133,3 +133,5 @@ As we do so, the infinite power of the Atonement will purify, cleanse, and refin
 
 [^7]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
+
+#Church_Callings #Leadership #Priesthood #Service

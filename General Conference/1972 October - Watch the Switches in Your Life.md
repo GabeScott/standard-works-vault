@@ -87,5 +87,4 @@ Be prayerful, and you will know that God hears and answers. Not always as we mig
 And so, watch the switches in your life, the small but important day-to-day decisions. Be smart, my dear young friends. Be clean. Be obedient. Be prayerful. To do so will require a measure of discipline, the exercise of which will bring strength and capacity for great and demanding tasks that lie ahead of you in building the kingdom of God and in filling places of useful service in the work of the world. Your lives will be satisfying and your joy will be eternal. I so promise you as a servant of the Lord, and invoke upon you that sweet peace which comes from him alone, in the name of Jesus Christ. Amen.
 
 
-
-
+#Morality #Obedience #Prayer #Priesthood #Youth

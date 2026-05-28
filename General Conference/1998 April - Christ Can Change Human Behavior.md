@@ -47,5 +47,4 @@ Wilford Woodruff put it clearly when he said: “There never was a set of men si
 I pray we’ll make missionary work our business and not let other less important business get in the way. We receive blessings from keeping all of God’s commandments. There are, however, few blessings like missionary blessings! How sweet is the work. In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Blessings #Conversion #Jesus_Christ #Missionary_Work #Obedience

@@ -79,5 +79,4 @@ In February of 1847 the Prophet Joseph Smith appeared to Brigham Young in a drea
 My beloved brothers and sisters, I testify of the living reality of God the Eternal Father and of His Son, Jesus Christ, and of the Holy Ghost. May each of us so live *that we may always have His Spirit to be with us* and thereby qualify for the blessings of direction, instruction, and protection that are essential in these latter days. In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Holy_Ghost #Ordinances #Sacrament

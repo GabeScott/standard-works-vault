@@ -117,5 +117,4 @@ I long ago learned what all real missionaries must learn: “People do not reall
 Because the Lord Jesus Christ loved us, he died for us, and we accept his sacrifice in our behalf as the only way back to our Heavenly Father. May we be qualified to bear his name and may we have his spirit as we *act* in the office in which we are appointed in all diligence, but *with love.* I pray in the name of Jesus Christ, the Redeemer. Amen.
 
 
-
-
+#Authority #Love #Obedience #Spirituality

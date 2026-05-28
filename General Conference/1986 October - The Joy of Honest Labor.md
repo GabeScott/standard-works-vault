@@ -83,5 +83,4 @@ As I drove along the highway, my heart was filled with overwhelming gratitude fo
 Should not *all* children receive such a blessing early in their lives? This is the Lord’s work in which we are engaged. He has charted the course and revealed the fundamental principles that will lead us back to His presence. May we have the strength and the courage to follow Him is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Parenthood #Teaching #Work

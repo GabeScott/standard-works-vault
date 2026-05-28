@@ -111,5 +111,4 @@ Identify those temporal challenges blocking the spiritual prosperity of your mem
 May the Lord bless us all as we seek to establish his church. May we learn how to sing the Lord’s song in strange lands and help the less fortunate “open their eyes to a vision of eternity and show them how to reach up to the stars” (Spencer W. Kimball, Dec. 1974), I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Welfare

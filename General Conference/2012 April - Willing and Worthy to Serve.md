@@ -111,3 +111,5 @@ Let us learn and contemplate our duty. Let us be willing and worthy to serve. Le
 
 [^16]: [[Moses 4.2|Moses 4:2]].
 
+
+#Duty #Priesthood #Service

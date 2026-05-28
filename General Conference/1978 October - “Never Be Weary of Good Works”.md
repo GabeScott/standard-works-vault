@@ -21,5 +21,4 @@ May I extend a special love and greeting to my son who is in the Language Traini
 I bear to you today, my brothers and sisters, my testimony—for which I am grateful—that the Lord Jesus Christ lives, that this is his work, that President Spencer Woolley Kimball is indeed the Lord’s prophet upon the earth, and I love him. I pledge to him, to my Brethren of the General Authorities, and to you, my brothers and sisters, that I will serve with all of my heart, might, mind, and strength. In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Testimony

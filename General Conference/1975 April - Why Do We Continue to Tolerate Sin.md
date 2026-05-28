@@ -93,5 +93,4 @@ I want to close with my testimony. I know that God lives. I know that Jesus Chri
 And I bear this witness to you in the name of Jesus Christ, our Master. Amen.
 
 
-
-
+#Morality #Repentance

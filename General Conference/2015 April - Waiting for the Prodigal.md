@@ -55,5 +55,4 @@ The Savior’s words in the parable as He describes the father greeting his prod
 May you and I receive the revelation to know how to best approach those in our lives who are lost and, when necessary, to have the patience and love of our Father in Heaven and His Son, Jesus Christ, as we love, watch, and wait for the prodigal. In the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Family #Jesus_Christ #Love #Patience

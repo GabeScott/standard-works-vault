@@ -47,3 +47,5 @@ Brethren, let us examine our lives and determine to follow the Savior’s exampl
 
 [^3]: [[D&C 121.41|Doctrine and Covenants 121:41–42]][[D&C 121.42|]].
 
+
+#Charity #Jesus_Christ #Kindness #Love

@@ -89,5 +89,4 @@ God bless you, my brethren—you who bear the priesthood. You “are a chosen ge
 May we respond affirmatively to the Prophet Joseph, who urged: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory!” ([[D&C 128.22|D&C 128:22]]). This is my earnest and humble prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Missionary_Work

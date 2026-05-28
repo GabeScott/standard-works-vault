@@ -87,5 +87,4 @@ The Church of Jesus Christ of Latter-day Saints offers all of the children of Go
 We invite all to hear this message, and we invite all who receive the confirming witness of the Spirit to heed it. These things are true, I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Death #Endurance #Jesus_Christ #Missionary_Work #Ordinances #Plan_Of_Salvation #Priesthood #Resurrection #Sacrament #Sin

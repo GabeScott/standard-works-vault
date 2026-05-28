@@ -89,5 +89,4 @@ He will come to earth again, as foretold by the prophets, this time in power and
 I testify to the truth of these things. I know that our Redeemer lives, and I bear this testimony in faith and in all sincerity, in the name of our Savior and Redeemer, Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ #Testimony

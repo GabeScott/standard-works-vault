@@ -23,5 +23,4 @@ I am so grateful for the opportunity we have been given to choose between right 
 I know we can overcome the challenges that come our way because we are daughters of a Heavenly Father who loves us, and He will not let us be tempted more than we can resist. I know that Joseph Smith was a true prophet, just like President Hinckley is a prophet. I say these things in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Scriptures #Young_Women

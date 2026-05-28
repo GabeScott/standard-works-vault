@@ -95,5 +95,4 @@ It is my firm conviction that there has never been a period in my many years of 
 It is the gospel of Jesus Christ that provides this foundation upon which we can find lasting peace and build eternal family units. Of this I testify in the name of our Lord and Savior, even Jesus Christ, amen.
 
 
-
-
+#Family #Fatherhood #Jesus_Christ #Motherhood

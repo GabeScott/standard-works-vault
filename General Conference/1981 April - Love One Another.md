@@ -65,5 +65,4 @@ Now all of this is really what the Lord had in mind, isnâ€™t it, when he said, â
 In the name of Jesus Christ, amen.
 
 
-
-
+#Love

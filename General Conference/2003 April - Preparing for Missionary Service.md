@@ -43,5 +43,4 @@ It is my prayer that you young men will be diligent in your righteous desires, t
 I testify, as President Hinckley recently said of missionary service, that “there is no greater work. There is no more important work” (*First Worldwide Leadership Training Meeting,* Jan. 2003, 21). In the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Preparation #Worthiness

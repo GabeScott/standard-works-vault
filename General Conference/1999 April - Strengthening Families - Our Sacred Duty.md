@@ -123,5 +123,4 @@ The prophets of our day have given a similar admonition and warning to parents t
 May we be able to welcome and maintain the Spirit of the Lord in our homes to strengthen our families. That each of our family members can stay on the “strait and narrow path which leads to eternal life” ([[2 Nephi 31.18|2 Ne. 31:18]]), I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Anger #Children #Councils #Family #Family_History #Family_Home_Evening #Home #Parenthood #Prophets #Scripture_Study #Teaching #Testimony

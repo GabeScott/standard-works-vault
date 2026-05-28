@@ -115,3 +115,5 @@ I testify of Heavenly Father, who in great and wonderful love reaches out to eac
 
 [^31]: [[Alma 33.23|Alma 33:23]].
 
+
+#Divine_Nature #Forgiveness #Hope #Individual_Worth #Jesus_Christ

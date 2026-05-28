@@ -119,5 +119,4 @@ Husbands, live the gospel. Be kind to your wives. You cannot serve acceptably in
 May each of you be blessed in your vocational pursuits whatever they may be, so long as they are honorable. May you look upon the Church as your great and good friend, your refuge when the world appears to be closing around you, your hope when things are dark, your pillar of fire by night and your cloud by day as you thread the pathways of your lives. May the Lord be mindful of you and merciful and kind to you. May you find great joy in that which you do in His service is my humble prayer, with an expression of love and affection for each of you, in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Blessings #Church_Growth #Dating #Education #Fellowshipping #Leadership #Missionary_Work #Priesthood #Temples #Young_Women

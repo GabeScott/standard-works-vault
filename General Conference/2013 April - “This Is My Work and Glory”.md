@@ -93,5 +93,4 @@ God has freely given His power to those who accept and honor His priesthood, whi
 I testify that the work of Jesus Christ is accomplished through the priesthood. It is the power by which our Heavenly Father and His Beloved Son created this earth and set in motion the great plan of happiness for our sakes. May we be wise and seek to strengthen our own lives, the lives of our families, and The Church of Jesus Christ of Latter-day Saints through the power of the priesthood of God is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Divine_Nature #Family #Priesthood

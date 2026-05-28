@@ -79,5 +79,4 @@ Earlier in my remarks I referred to the prayer Alma offered as he and his compan
 In conclusion, our commitment as members of Christ’s true Church stems from the fact that the Lord suffered for every single one of us—the nonmember, the less-active member, even the sinner, and every member in our own family. I believe we can bring thousands to the joy, peace, and sweetness of the gospel, and hundreds of thousands, even millions, in their following generations. I believe we can succeed because this is the Lord’s Church, and by virtue of our priesthood and our membership, we are called to succeed. I bear that witness to you in the name of Jesus Christ, amen.
 
 
-
-
+#Activation

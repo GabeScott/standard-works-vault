@@ -31,5 +31,4 @@ This is a joyous gospel!
 My counselors and I look forward eagerly to serving. And we want to serve in a way that will help women everywhere contribute to the great forward movement of the Church. I know that in the strength of the Lord we can do all things required of us. In the name of Jesus Christ, amen.
 
 
-
-
+#Fellowshipping #Women #Youth

@@ -85,3 +85,5 @@ In that glorious day when we stand before our beloved Savior to report what we h
 
 [^11]: [[2 Timothy 4.7|2 Timothy 4:7]].
 
+
+#Commandments #Jesus_Christ #Obedience

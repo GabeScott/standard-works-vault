@@ -38,13 +38,13 @@ Nephi said, “My soul delighteth in the scriptures” ([[2 Nephi 4.15|2 Nephi 4
 
 [^1]: See [[1 Nephi 4.2|1 Nephi 4:2–3]][[1 Nephi 4.3|]]; [[1 Nephi 17.23|17:23–43]][[1 Nephi 17.24|]][[1 Nephi 17.25|]][[1 Nephi 17.26|]][[1 Nephi 17.27|]][[1 Nephi 17.28|]][[1 Nephi 17.29|]][[1 Nephi 17.30|]][[1 Nephi 17.31|]][[1 Nephi 17.32|]][[1 Nephi 17.33|]][[1 Nephi 17.34|]][[1 Nephi 17.35|]][[1 Nephi 17.36|]][[1 Nephi 17.37|]][[1 Nephi 17.38|]][[1 Nephi 17.39|]][[1 Nephi 17.40|]][[1 Nephi 17.41|]][[1 Nephi 17.42|]][[1 Nephi 17.43|]]; [[1 Nephi 19.22|19:22–23]][[1 Nephi 19.23|]].
 
-[^2]: See [[Hebrews 11.1|Hebrews 11]][[Hebrews 11.2|]][[Hebrews 11.3|]][[Hebrews 11.4|]][[Hebrews 11.5|]][[Hebrews 11.6|]][[Hebrews 11.7|]][[Hebrews 11.8|]][[Hebrews 11.9|]][[Hebrews 11.10|]][[Hebrews 11.11|]][[Hebrews 11.12|]][[Hebrews 11.13|]][[Hebrews 11.14|]][[Hebrews 11.15|]][[Hebrews 11.16|]][[Hebrews 11.17|]][[Hebrews 11.18|]][[Hebrews 11.19|]][[Hebrews 11.20|]][[Hebrews 11.21|]][[Hebrews 11.22|]][[Hebrews 11.23|]][[Hebrews 11.24|]][[Hebrews 11.25|]][[Hebrews 11.26|]][[Hebrews 11.27|]][[Hebrews 11.28|]][[Hebrews 11.29|]][[Hebrews 11.30|]][[Hebrews 11.31|]][[Hebrews 11.32|]][[Hebrews 11.33|]][[Hebrews 11.34|]][[Hebrews 11.35|]][[Hebrews 11.36|]][[Hebrews 11.37|]][[Hebrews 11.38|]][[Hebrews 11.39|]][[Hebrews 11.40|]].
+[^2]: See [[Hebrews 11.1|Hebrews 11]].
 
 [^3]: See Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127–28.
 
 [^4]: See [[Leviticus 1.3|Leviticus 1:3–4]][[Leviticus 1.4|]].
 
-[^5]: See [[Genesis 45.1|Genesis 45–46]][[Genesis 45.2|]][[Genesis 45.3|]][[Genesis 45.4|]][[Genesis 45.5|]][[Genesis 45.6|]][[Genesis 45.7|]][[Genesis 45.8|]][[Genesis 45.9|]][[Genesis 45.10|]][[Genesis 45.11|]][[Genesis 45.12|]][[Genesis 45.13|]][[Genesis 45.14|]][[Genesis 45.15|]][[Genesis 45.16|]][[Genesis 45.17|]][[Genesis 45.18|]][[Genesis 45.19|]][[Genesis 45.20|]][[Genesis 45.21|]][[Genesis 45.22|]][[Genesis 45.23|]][[Genesis 45.24|]][[Genesis 45.25|]][[Genesis 45.26|]][[Genesis 45.27|]][[Genesis 45.28|]].
+[^5]: See [[Genesis 45.1|Genesis 45–46]].
 
 [^6]: President M. Russell Ballard said: “It is not by chance or coincidence that we have the Bible today. Righteous individuals were prompted by the Spirit to record both the sacred things they saw and the inspired words they heard and spoke. Other devoted people were prompted to protect and preserve these records” (“[[2007 April - The Miracle of the Holy Bible.md|The Miracle of the Holy Bible]],” *Ensign* or *Liahona*, May 2007, 80).
 

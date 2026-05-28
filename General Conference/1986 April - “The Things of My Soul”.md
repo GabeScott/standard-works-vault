@@ -183,5 +183,4 @@ No missionary, no member can fulfill that promise—neither Apostle nor Presiden
 I bear witness that the Book of Mormon is true—that it is another testament of Jesus Christ. I have read the Book of Mormon with a sincere heart, with intent, as a humble serviceman, and thereafter pled with the Lord. I received that revelation. Accompanying that revelation is the revelation that Jesus is the Christ, the Son of God, our Redeemer, and of Him I bear witness, in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon

@@ -83,5 +83,4 @@ We did on several other occasions. But you know what else was interesting? Befor
 I learned on that occasion that people are really seeking and want what you and I have. God bless you, my wonderful brethren, to have the wisdom and strength to call time-out and visit with your Heavenly Father. He really lives, as does his Son, to which I testify in the holy name of Jesus Christ, amen.
 
 
-
-
+#Prayer #Priesthood

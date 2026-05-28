@@ -131,5 +131,4 @@ May we reintroduce the attitude of reverence each time we gather to memorialize 
 No consolation in parting compares with that “peace … which passeth all understanding.” That is fostered by reverence. Reverence, please, brothers and sisters, reverence, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Meetings #Death

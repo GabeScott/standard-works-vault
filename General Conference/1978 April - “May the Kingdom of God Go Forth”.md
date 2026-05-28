@@ -97,5 +97,4 @@ Yes, “Call upon the Lord, that his kingdom may go forth upon the earth, that t
 I bear humble witness that The Church of Jesus Christ of Latter-day Saints is the restored kingdom of God on earth today. Its message and blessings are for all of our Father’s children. It is the truth, to which I bear grateful testimony in the sacred name of Jesus Christ. Amen.
 
 
-
-
+#Kingdom_Of_God

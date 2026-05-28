@@ -51,5 +51,4 @@ My prayer is that as children of our Heavenly Father we can glorify him and his 
 Our Heavenly Father lives; his Son is Jesus Christ, our Savior and Redeemer; his prophet on earth today is Spencer W. Kimball; he is the mouthpiece of the Lord. May His holy name be sanctified by our words forever and ever, in the name of Jesus Christ, amen.
 
 
-
-
+#Communication

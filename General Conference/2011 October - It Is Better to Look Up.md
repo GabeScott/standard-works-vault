@@ -88,3 +88,5 @@ I testify that Jesus is our Savior and Redeemer in the name of Jesus Christ, ame
 
 [^13]: [[2 Nephi 10.20|2 Nephi 10:20]].
 
+
+#Atonement #Attitude #Faith #Obedience #Trust

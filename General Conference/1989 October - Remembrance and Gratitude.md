@@ -93,5 +93,4 @@ I pray that we may make the simple choices which will lead us there to dwell wit
 In the name of Jesus Christ, amen.
 
 
-
-
+#Blessings #Church_History #Consecration #Gratitude #Prayer #Sacrifice

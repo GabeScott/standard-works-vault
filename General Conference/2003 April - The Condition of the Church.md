@@ -49,5 +49,4 @@ The gospel of Jesus Christ is the way of peace. To the extent we follow it and i
 May heaven’s richest blessings rest upon you, my beloved associates. May faith grow in your hearts. May there be love and peace in your homes. May there be food upon your tables and clothing on your backs. May the smiles of heaven warm your hearts and bring comfort in times of trial. This is my prayer this morning as we open this great conference, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Activation #Service #Tithing #Youth

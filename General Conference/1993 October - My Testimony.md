@@ -111,5 +111,4 @@ You too are of the substance of my testimony, as are the many faithful and able 
 To my Eternal Father I give thanks for that essence of divinity which is within each of us and for the gift of life which comes from Him. I thank my Redeemer for His supreme gift to all, the gift of eternal life. These are they whom I worship and reverence and love. These are they to whom and through whom I pray. They are my Father and my God, my Redeemer and my Lord. And of them I testify in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Restoration #Testimony #Tithing

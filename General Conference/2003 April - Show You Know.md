@@ -59,3 +59,5 @@ Make a decision today to show you know by following Jesus Christ in faith. The p
 
 [^7]: See Chelsea M. Bryant, “Creating Kindness,” *Friend,* Mar. 2000, 35.
 
+
+#Children #Faith #Kindness #Love #Obedience #Primary #Sabbath #Word_Of_Wisdom

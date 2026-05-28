@@ -141,3 +141,5 @@ Dear youth, Jesus Christ will help you to be faithful to the end. Of these truth
 
 [^21]: See [[3 Nephi 22.13|3 Nephi 22:13]].
 
+
+#Covenants #Divine_Nature #Faith #Love #Preparation #Repentance #Testimony #Youth

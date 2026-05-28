@@ -88,5 +88,4 @@ I have a very simple testimony. I know that God lives. I know that Jesus is the 
 If only we could live our lives as our prophet, Spencer W. Kimball, does—in the guileless, loving way in which he shows concern for, gives to, and serves all those around him—we would truly understand that we need the help of others and that they need our help. That we might understand this basic principle of the gospel, having love for and allowing ourselves to be loved by our fellowmen, is my prayer in the name of Jesus Christ. Amen.
 
 
-
-
+#Love #Service

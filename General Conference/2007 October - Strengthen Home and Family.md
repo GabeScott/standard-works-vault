@@ -67,5 +67,4 @@ Remember, “the family is central to the Creator’s plan for the eternal desti
 I know that Jesus Christ lives. He knows you and loves you. He has blessed me and my family, and I know He will bless you and yours. Of this I humbly testify in the name of Jesus Christ, amen.
 
 
-
-
+#Example #Family #Temples #Youth

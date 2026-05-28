@@ -8,7 +8,7 @@ For more information about the book of Malachi, see “[[BD Malachi|Malachi]]”
 
 ## Ideas for Learning at Home and at Church
 
-[[Malachi 1.1|Malachi 1–4]][[Malachi 1.2|]][[Malachi 1.3|]][[Malachi 1.4|]][[Malachi 1.5|]][[Malachi 1.6|]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]]
+[[Malachi 1.1|Malachi 1–4]]
 ### “Return unto me, and I will return unto you.”
 
 In Malachi’s day, the Israelites had already rebuilt the temple in Jerusalem, but as a people they still needed to rebuild their relationship with the Lord. As you study Malachi, look for questions that the Lord asked the Israelites or that they asked Him. Consider asking yourself similar questions (some examples are suggested below) to help you evaluate your relationship with the Lord and draw closer to Him.
@@ -26,7 +26,7 @@ In Malachi’s day, the Israelites had already rebuilt the temple in Jerusalem, 
 [[Malachi 1.6|Malachi 1:6–14]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]]
 ### The Lord asks for “a pure offering.”
 
-As you read about the offerings described in [[Malachi 1.1|Malachi 1]][[Malachi 1.2|]][[Malachi 1.3|]][[Malachi 1.4|]][[Malachi 1.5|]][[Malachi 1.6|]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]], what do you notice about the sacrifices the priests were offering? What do these sacrifices suggest about the priests’ feelings toward the Lord? (see [[Malachi 1.13|Malachi 1:13]]). Consider making a list of offerings, or sacrifices, that you make to the Lord. For each item on the list, ponder what might make it a “polluted” offering or a “pure” offering ([[Malachi 1.7|Malachi 1:7, 11]][[Malachi 1.11|]]).
+As you read about the offerings described in [[Malachi 1.1|Malachi 1]], what do you notice about the sacrifices the priests were offering? What do these sacrifices suggest about the priests’ feelings toward the Lord? (see [[Malachi 1.13|Malachi 1:13]]). Consider making a list of offerings, or sacrifices, that you make to the Lord. For each item on the list, ponder what might make it a “polluted” offering or a “pure” offering ([[Malachi 1.7|Malachi 1:7, 11]][[Malachi 1.11|]]).
 
 [[Malachi 3.8|Malachi 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]
 ### The Lord opens the windows of heaven as I show my faith by paying tithing.

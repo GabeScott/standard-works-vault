@@ -77,5 +77,4 @@ I know with all my heart that this is true. I testify that the purpose of the re
 That we all may come to a perfect understanding of this divine purpose is my humble prayer in the name of our Lord and Savior, Jesus Christ. Amen.
 
 
-
-
+#Conversion #Teaching

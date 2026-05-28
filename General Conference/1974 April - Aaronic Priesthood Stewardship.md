@@ -55,5 +55,4 @@ There is another responsibility you bishops have that transcends all others that
 The bishops’ responsibilities are heavy. However, with proper delegation and careful organization of your time, it is possible to successfully discharge your responsibilities to your family, as well as to the Lord. May your wives and your children and all of the youth over whom you preside be blessed with your wise and sound stewardship, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Leadership #Priesthood

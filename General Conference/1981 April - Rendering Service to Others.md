@@ -45,5 +45,4 @@ Let us as individuals, as families, and as wards and stakes learn to live within
 I love you, my brethren, young and old, and I am grateful for your faith and your devotion to the cause of the Master. I express my affection for you and leave my blessing with you. And I pray our Heavenly Father to bless you and your families, your homes, and your work. God bless you, peace be with you, in the name of Jesus Christ, amen.
 
 
-
-
+#Family

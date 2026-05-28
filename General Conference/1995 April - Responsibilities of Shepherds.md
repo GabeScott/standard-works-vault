@@ -129,3 +129,5 @@ That we may do so, I pray humbly in the name of Jesus Christ, amen.
 
 [^19]: [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].
 
+
+#Quorums_Of_Seventy

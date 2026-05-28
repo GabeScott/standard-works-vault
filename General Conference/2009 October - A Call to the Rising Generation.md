@@ -55,5 +55,4 @@ I solemnly proclaim and testify that the heavens are open, that not only has God
 I pray that you of this rising generation will stand up for truth and righteousness and understand your sacred call to go and teach all nations, in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Prophecy #Worthiness #Youth

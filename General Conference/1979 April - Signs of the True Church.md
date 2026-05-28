@@ -145,5 +145,4 @@ May we have the good sense to listen to these inspired men. May we be humble eno
 May we accept the invitation of the Savior to learn of him and to do so through the righteous men he has raised up today for the perfecting of the Saints, for the work of the ministry, and for the edifying of the body of Christ. For this I humbly pray, in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Apostasy #Restoration

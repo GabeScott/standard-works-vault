@@ -115,3 +115,5 @@ I know that the Savior paid the price of all of our sins and that the Holy Ghost
 
 [^7]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
+
+#Baptism #Covenants #Sisterhood

@@ -67,5 +67,4 @@ It is to declare His generation: “Jesus Christ \[is\] the Son of God, the Fath
 Yes, these and many other characteristics and actions model a testimony. And this is my testimony to you in the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #Education #Faith #Holy_Ghost #Humility #Joseph_Smith #Spirituality #Testimony #Truth

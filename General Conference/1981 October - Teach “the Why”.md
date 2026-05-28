@@ -99,5 +99,4 @@ Remember, a physical relationship is simply too beautiful to squander, too wonde
 Let us remember that understanding “the why” in learning is what develops proper attitudes or changes behavior. God grant us the wisdom to teach wisely and with understanding, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Charity

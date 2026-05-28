@@ -39,5 +39,4 @@ As he examined The Church of Jesus Christ of Latter-day Saints, he was able to r
 I humbly declare that Jesus is the Christ, the literal Son of God, and that His gospel has been restored to the earth in our day for the benefit and blessing of all mankind, in the name of Jesus Christ, amen.
 
 
-
-
+#Apostasy #Book_Of_Mormon #Church_Doctrine #Church_Organization #Family #Holy_Ghost #Joseph_Smith #Plan_Of_Salvation #Premortal_Existence #Prophets #Restoration #Spirituality #Temple_Work

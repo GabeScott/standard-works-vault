@@ -43,5 +43,4 @@ And what a glorious blessing it is to be a woman, regardless of our assignment, 
 Regardless of our age or own assignment in life, our charge as women today is to set an example and lead the way for our precious “little women” girls, committed, as never before, to joyously accepting our role and our responsibility as women. May we move forward and upward as daughters of God toward the great fulfillment of our lives, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Children

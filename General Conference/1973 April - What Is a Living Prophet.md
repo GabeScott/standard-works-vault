@@ -63,5 +63,4 @@ There will be other General Authorities and prophets and apostles who will couns
 In the name of Jesus Christ. Amen.
 
 
-
-
+#Prophets

@@ -93,5 +93,4 @@ The Lord herein points the way for the sons and daughters of God. If we who beli
 Brethren, the Relief Society presidents of the Church are anxious to share of their abundance and even all their “living” as you place them in a situation where they can act with you in the priesthood councils of the Church to successfully accomplish this great work of love. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Welfare #Women

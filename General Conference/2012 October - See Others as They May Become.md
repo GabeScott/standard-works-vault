@@ -133,3 +133,5 @@ I pray that we will have the courage to extend the hand of fellowship, the tenac
 
 [^10]: [[D&C 18.15|Doctrine and Covenants 18:15–16]][[D&C 18.16|]].
 
+
+#Activation #Courage #Missionary_Work #Priesthood #Testimony

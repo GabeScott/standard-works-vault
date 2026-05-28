@@ -99,5 +99,4 @@ We also challenge you to make the full Welfare Services program available in you
 In all that we have said regarding family and individual preparedness, we must never lose sight of the fact that this entire responsibility comes to us from the Lord. He is our Father. It is through his love for us that he so teaches us. All that we have said must be undergirded by a spirit that is in harmony with his teachings. He is our source of inspiration as a Church, as families, and as individuals. He has promised us that if we are prepared, we need not fear. May we be blessed as leaders and as members to follow his counsel to be prepared, I pray humbly in the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Self-Reliance #Welfare

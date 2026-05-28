@@ -31,5 +31,4 @@ I wonder sometimes if we appreciate what the few dollars we give to the Church f
 God bless you, my dear brothers and sisters, as you go forth in this great work, that you will remember who you are and give freely and cheerfully of that which our Heavenly Father has given to you, that your testimony by your faith will bear witness to all the world that this work is true, in the name of Jesus Christ, amen.
 
 
-
-
+#Tithing

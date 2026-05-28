@@ -87,5 +87,4 @@ The Spirit of the Holy Ghost is the teacher in the temple. He teaches principles
 May we enhance our temple experience with a spirit of reverence, treating it as a place of purity and a place of holiness. May we enhance our temple experience with a spirit of worship by leaving the world behind and seeking to obtain added light and knowledge. If we do these things, the Lord will bless us and we will become prepared to live in His holy presence. To this I testify in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Morality #Ordinances #Preparation #Reverence #Spirituality #Temple_Work #Temples #Worldliness #Worship

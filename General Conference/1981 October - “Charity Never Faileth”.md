@@ -61,5 +61,4 @@ I commend her example to you. I invoke the blessings of the Lord upon her and he
 God bless you each one, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Charity

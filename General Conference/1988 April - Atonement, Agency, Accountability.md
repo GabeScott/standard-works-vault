@@ -135,5 +135,4 @@ Humbly I lay claim upon the atonement of Christ. I find no shame in kneeling dow
 In the name of Jesus Christ, amen.
 
 
-
-
+#Accountability #Agency #Atonement #Repentance

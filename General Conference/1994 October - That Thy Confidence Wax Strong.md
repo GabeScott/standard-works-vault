@@ -45,5 +45,4 @@ I am acutely aware that each of us sees our own basket as a different size. Some
 Brethren of the priesthood, let us hit our foul shots, *let us do our duty*—every single time we step to the line—that our confidence might wax strong in the presence of God, that the doctrine of the priesthood may distill upon our souls as the dews from heaven—for we are the priesthood of God. Of this I humbly testify in the name of Jesus Christ, amen.
 
 
-
-
+#Duty #Faith #Joseph_Smith #Priesthood #Repentance #Satan #Sin

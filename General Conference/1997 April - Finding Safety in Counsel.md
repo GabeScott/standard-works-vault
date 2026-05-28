@@ -57,5 +57,4 @@ Sometimes we will receive counsel that we cannot understand or that seems not to
 We are blessed to live in a time when the priesthood keys are on the earth. We are blessed to know where to look and how to listen for the voice that will fulfill the promise of the Lord that He will gather us to safety. I pray for you and for me that we will have humble hearts, that we will listen, that we will pray, that we will wait for the deliverance of the Lord, which is sure to come as we are faithful. I testify that God, our Heavenly Father, lives and loves us. This is the Church of Jesus Christ. He lives and loves us. He is the head of the Church, and He is our Savior. I testify that Gordon B. Hinckley holds all the keys of the priesthood of God. In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Faith #General_Conference #God_The_Father #Holy_Ghost #Humility #Jesus_Christ #Priesthood #Prophets #Safety #Temptation

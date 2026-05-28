@@ -95,5 +95,4 @@ Someday you will be released. It will be a time of sadness for you. But there wi
 I bear testimony of the divine nature of your calling and of the magnificent way in which you fulfill it. May you, your counselors, your wives, and your children be blessed as you serve the children of the Lord, I humbly pray, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Bishops #Example #Honesty #Responsibility #Service #Worthiness

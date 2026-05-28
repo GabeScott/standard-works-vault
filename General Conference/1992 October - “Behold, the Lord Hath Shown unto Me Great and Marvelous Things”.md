@@ -87,5 +87,4 @@ Let the words of Moroni and the voices of all the prophets fill our hearts and o
 It is my witness to you that God lives, that Jesus is the Christ, the Son of the Eternal God, and I so declare it in the name of our Lord and Savior, Jesus Christ, amen.
 
 
-
-
+#Pride #Prophecy #Scriptures

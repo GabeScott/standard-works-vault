@@ -85,5 +85,4 @@ Each will then have completed his journey, not to a nebulous “ANYWHERE,” but
 May such be our goal and our reward is my prayer, in the name of Jesus Christ. Amen.
 
 
-
-
+#Dedication #Goals

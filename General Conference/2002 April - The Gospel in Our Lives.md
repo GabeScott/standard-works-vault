@@ -67,3 +67,5 @@ What has our Savior done for us? He has given us His Atonement, His gospel, and 
 
 [^2]: Letter to the editor of the *Religio-Philosophical Journal,* 7 Jan. 1869, quoted in Jed Woodworth, “Brigham Young and the Mission of Mormonism,” *Brigham Young University Studies,* volue 40, number 2 (2001), 11.
 
+
+#Church_Attendance #Jesus_Christ #Obedience #Service

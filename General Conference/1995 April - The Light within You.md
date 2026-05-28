@@ -35,5 +35,4 @@ In summary, try a little harder to measure up to the divine within each of you. 
 I thank you for the goodness of your lives, for the desire within your hearts to do the right thing, for the fact that you are prayerful and kind and good. We have every confidence in you. We love you. We pray for you. We leave our blessing with you in the name of Jesus Christ, amen.
 
 
-
-
+#God_The_Father #Individual_Worth #Love #Scripture_Study #Self-Esteem #Talents

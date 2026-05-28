@@ -147,3 +147,5 @@ As I have reflected on gifts from our Heavenly Father and from Jesus Christ, I h
 
 [^38]: See [[2 Nephi 26.33|2 Nephi 26:33]].
 
+
+#Gratitude #Spirituality

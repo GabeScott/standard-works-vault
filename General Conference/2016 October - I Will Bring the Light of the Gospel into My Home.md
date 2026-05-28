@@ -107,3 +107,5 @@ I bear my witness that as we follow His perfect example, we can receive the gift
 
 [^14]: “As Sisters in Zion,” *Hymns,* no. 309; emphasis added.
 
+
+#Charity #Jesus_Christ #Judging

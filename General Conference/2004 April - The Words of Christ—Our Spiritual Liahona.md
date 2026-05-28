@@ -57,5 +57,4 @@ After Lehi and his family were commanded to leave Jerusalem, they were given a s
 So we see, brethren and sisters, that the words of Christ can be a personal Liahona for each of us, showing us the way. Let us not be slothful because of the easiness of the way. Let us in faith take the words of Christ into our minds and into our hearts as they are recorded in sacred scripture and as they are uttered by living prophets, seers, and revelators. Let us with faith and diligence feast upon the words of Christ, for the words of Christ will be our spiritual Liahona telling us all things what we should do. Of this I bear solemn testimony, in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Jesus_Christ #Prophets #Scripture_Study

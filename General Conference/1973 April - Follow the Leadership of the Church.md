@@ -89,5 +89,4 @@ I bear you my solemn witness, my beloved brethren, that these things that have b
 So I bear you that witness and leave you my blessing this night, and pray God’s blessings upon you, the priesthood of the Church, the strength of Zion, the backbone of the kingdom of God on earth. So I pray and leave you my blessing, in the name of Jesus Christ. Amen.
 
 
-
-
+#Priesthood #Youth

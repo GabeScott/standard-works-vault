@@ -165,3 +165,5 @@ Of this I testify as an Apostle called to the Lord’s divine service—to decla
 
 [^36]: [[John 1.1|John 1:1]].
 
+
+#Communication #Love #Prophets

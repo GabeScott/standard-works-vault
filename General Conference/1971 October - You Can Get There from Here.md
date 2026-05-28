@@ -85,5 +85,4 @@ I bear witness to you this day that God lives and this is his work, and that Jes
 And I say this in the name of Jesus Christ. Amen.
 
 
-
-
+#Love #Social_Services

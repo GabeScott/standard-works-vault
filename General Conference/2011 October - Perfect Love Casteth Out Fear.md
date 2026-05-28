@@ -71,5 +71,4 @@ I promise you that if you will respond to the invitation to share your beliefs a
 This is the time of expanding opportunities to share the gospel of Jesus Christ with others. May we prepare ourselves to take advantage of the opportunities given to us to share our beliefs, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Example #Jesus_Christ #Missionary_Work #Temples

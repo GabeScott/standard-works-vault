@@ -25,5 +25,4 @@ Brethren and sisters, may the Lord give us a clear understanding of where we sho
 I’m very happy to have been here this afternoon. I’m glad to see how the conference proceeded. It’s a very great conference, and to have our President here at two of the sessions is a great blessing indeed. May the Lord bless us that we may do his will and keep his commandments, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Self-Control

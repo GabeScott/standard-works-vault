@@ -27,5 +27,4 @@ We pray for the success of the missionaries and are so grateful to be involved i
 We’re so grateful to love and support these wonderful brethren here. And we feel of their sustaining strength and are so grateful for it. My cup runneth over as I rededicate myself and my family to serve the Lord all the days of our lives and to follow his prophet, in the sacred name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Testimony

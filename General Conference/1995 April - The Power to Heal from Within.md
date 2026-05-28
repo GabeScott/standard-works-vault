@@ -39,5 +39,4 @@ As I listened, the Spirit bore witness of the great miracles of the Atonement an
 The Savior’s atonement in the garden and on the cross is intimate as well as infinite—infinite in that it spans the eternities, intimate in that the Savior felt each person’s pains, sufferings, and sicknesses. Consequently he knows how to carry our sorrows and relieve our burdens that we might be healed from within, be made whole persons, and receive everlasting joy in his kingdom. May our faith in the Father and the Son help each of us to become whole. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Death #Family #Healing #Jesus_Christ #Prophets

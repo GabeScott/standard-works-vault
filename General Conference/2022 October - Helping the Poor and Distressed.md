@@ -93,3 +93,5 @@ I testify of Jesus Christ, whose light and Spirit guide all of the children of G
 
 [^11]: [[Alma 1.30|Alma 1:30]].
 
+
+#Humanitarian_Aid #Poverty #Service

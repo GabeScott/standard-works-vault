@@ -99,5 +99,4 @@ And the inspiration for all of this is the sweet assurance—deeply rooted in th
 We sat in a room the other night with our five children and their eternal partners, and with their sixteen children. Twenty-eight of us joined in a circle of affection and appreciation. That circle, established with the two of us in a holy house of the Lord only a few short years ago, has expanded miraculously. Our last child was born twenty-four years ago, but the circle continues to expand and grow. God being willing, we may live to see another generation of wonderful children entering the world. We are grateful to know that our family will relate with us eternally, even as we will with those who gave us mortal life, and all of us together will find a loving place ultimately and a continuing relationship under the holy influence of Him whose spirit children we are and of Him whose holy sacrifice brought us the blessings of eternal life. Of this I testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Marriage

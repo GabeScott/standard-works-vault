@@ -115,5 +115,4 @@ Savor these words quoted by a magnanimous and forgiving Prophet Joseph Smith to 
 Such is my counsel, brethren. Such is my prayer. It is given in the name of Him who said, “Blessed is he, whosoever shall not be offended” ([[Luke 7.23|Luke 7:23]]). Jesus’ redemptiveness and his love cause Him to stand at the very gate, and we are told he waits there for us with open arms. I so certify in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Offense

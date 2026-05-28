@@ -55,5 +55,4 @@ I testify to you that a fulness of joy can only come through the atonement of Je
 To all these things I humbly testify and bear my solemn witness that they are true, and I do so in the name of Him who is the head of this church, even Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Plan_Of_Salvation

@@ -33,5 +33,4 @@ Their words, “Yes, Grandpa, I will,” have caused me to reflect. My greatest 
 I bear you my witness that Jesus is the Christ, the Son of the living God. Joseph Smith was a prophet of God. Ezra Taft Benson is a prophet of God. I leave that testimony with you in the name of Jesus Christ, amen.
 
 
-
-
+#Blessings #Faith #Testimony

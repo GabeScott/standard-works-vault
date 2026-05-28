@@ -99,5 +99,4 @@ Jesus commanded us to love one another, and we show that love by the way we serv
 I testify that this is what our Lord and Savior would have us do so that we may become what His gospel intends us to be, in the name of Jesus Christ, amen.
 
 
-
-
+#Couple_Missionaries #Covenants #Honesty #Morality #Repentance #Worship

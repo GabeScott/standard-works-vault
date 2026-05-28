@@ -115,5 +115,4 @@ I promise you that you will receive everlasting happiness if you consistently ch
 God lives! Jesus is the Christ! Obedience to His laws will lead us to life eternal is my solemn witness to you in the name of our Lord and Savior Jesus Christ, amen.
 
 
-
-
+#Agency #Joy #Obedience

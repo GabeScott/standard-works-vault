@@ -57,5 +57,4 @@ One of the other abundant species under the redwood canopy is a little-known har
 I am thankful for the web of friendship that has nurtured me throughout my life, for having been born of goodly parents, for my brothers, sisters, and extended family. I am especially grateful for the love and support of my wonderful wife, Karen, and also our equally wonderful and loving children. I would like also to say that I feel very fortunate to have had many good friends through the years, both in and out of the Church. I am grateful to have recently been associated with outstanding missionaries in Spain and for the wonderful members of that country. Brothers and sisters, I know we have a kind and wise Heavenly Father and bear testimony of His Son, Jesus Christ, and of His atoning sacrifice, which touches each one of us. I also bear testimony that the Church is led by a great prophet today, even Gordon B. Hinckley. I ask the Lord to bless us all that we might feel more connected and caring of one another, especially as we move into this new era of growth in the Church and into this exciting new millennium, and I say this in the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Creation #Fellowshipping #Friendship #Love #Service

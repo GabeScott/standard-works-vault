@@ -49,5 +49,4 @@ Preparing for gospel living really is very much like learning the piano after al
 Now is the time for each of us to prepare—to gain the strength necessary to meet our individual challenges. I know the Lord is anxious to respond to us if we will only turn to him. I pray that we will all have the faith necessary to be receptive to his promptings, in the name of Jesus Christ, amen.
 
 
-
-
+#Primary

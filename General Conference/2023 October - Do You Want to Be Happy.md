@@ -87,3 +87,5 @@ My dear brothers and sisters, do you want to be happy? Stay on the covenant path
 
 [^12]: [[Matthew 11.28|Matthew 11:28]].
 
+
+#Church_Callings #Covenants #Joy #Obedience #Service

@@ -79,5 +79,4 @@ I pray that we will keep this commitment, all of us. I hope you will repeat it t
 Now, let us go forth as sisters, determined that no force will turn us from our Heavenly Father’s way. In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Children #Commitment #Plan_Of_Salvation

@@ -117,5 +117,4 @@ Yes, Jesus Christ gave his life for us and gave us the plan by which we can enjo
 I sincerely pray that we will have the courage and strength to humble ourselves, accept our Savior, Jesus Christ, and serve him and thereby enjoy the blessings which he has promised. In the name of Jesus Christ. Amen.
 
 
-
-
+#Agency #Obedience #Plan_Of_Salvation #Repentance

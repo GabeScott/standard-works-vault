@@ -123,5 +123,4 @@ In this day when so many have turned away their hearts and their ears from the w
 That we may all be engaged in works of righteousness, and with love in our hearts and a testimony of the truth on our lips, heed the warning voice of our prophet, and in turn warn our neighbors, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Church_Leaders #Church_Meetings

@@ -113,3 +113,5 @@ I bear you my testimony that God the Father lives. He set a course for each of u
 
 [^7]: [[2 Timothy 4.5|2 Timothy 4:5–8]][[2 Timothy 4.6|]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].
 
+
+#Adversity #Humility #Service

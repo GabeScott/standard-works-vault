@@ -100,5 +100,4 @@ As priesthood bearers, let us resolve, brethren, all of us, both young and old, 
 God bless us to that end, I pray in the name of Jesus. Amen.
 
 
-
-
+#Courage

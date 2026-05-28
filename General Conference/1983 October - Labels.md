@@ -87,5 +87,4 @@ The word of the Lord to the prophet Samuel at the time David was designated to b
 Like a golden thread woven through the tapestry of life is the message on the label of a humble heart. It was true of the boy Samuel, it was the experience of Jesus, it was the testimony of Gustav Wacker, it marked the calling of James Womack. May it ever be the label which identifies each of us: “Lord, here am I.” In the name of Jesus Christ, amen.
 
 
-
-
+#Attitude #Disabilities #Faith #Humility #Jesus_Christ #Judging #Service #Spirituality

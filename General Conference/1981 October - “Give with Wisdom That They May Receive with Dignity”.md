@@ -107,5 +107,4 @@ May I, in conclusion, suggest some basic goals as we participate in welfare serv
 May God help us to give of ourselves with wisdom that they may receive with dignity. Truly, “God makes no junk.” We are His children. He loves us and wants us to love ourselves, our families, and our neighbors in a meaningful way. I am pleased with this great arm of the Church. It is an inspired way of life. It is the implementation of eternal principles for the welfare and benefit of all mankind. It is welfare services. To this I leave my witness, testimony, and love in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Self-Esteem

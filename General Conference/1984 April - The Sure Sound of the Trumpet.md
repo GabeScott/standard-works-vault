@@ -85,5 +85,4 @@ We know the goal; we have the example; now let us put forth the effort and make 
 In the name of the Redeemer, Jesus Christ, amen.
 
 
-
-
+#Example #Obedience

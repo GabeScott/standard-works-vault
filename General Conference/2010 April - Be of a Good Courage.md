@@ -63,5 +63,4 @@ This young woman showed remarkable courage on her own battlefield, which on this
 I want to leave you with my testimony that Heavenly Father knows and loves each of you. If you turn to Him, He will not fail you! He will bless you with the strength and the courage you will need to complete your journey back to Him. I am grateful for the scriptures and for powerful examples like the prophet Joshua. I am grateful for President Monson, who strives to lead us safely back to our Heavenly Father. I pray that, like the children of Israel, we will all enter our “land of promise” and find rest in the blessings of the Lord. I say these things in the name of Jesus Christ, amen.
 
 
-
-
+#Courage #Faith #Obedience #Prayer #Prophets #Scriptures

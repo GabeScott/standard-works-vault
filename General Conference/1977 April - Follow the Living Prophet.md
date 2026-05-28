@@ -83,5 +83,4 @@ President Romney tells an interesting experience he had with regard to following
 What a great blessing it is to live in this world and have ears with which to hear the direction from a living prophet of God—direction that can bring inner peace in a time of great confusion and difficulty. I pray that each of us will listen to and follow President Kimball, who, I testify, is the mouthpiece of the Lord to mankind today. In the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Prophets

@@ -43,5 +43,4 @@ To follow His commandments will bring freedom, independence, strength, and true 
 I testify to you that Joseph Smith saw the Father and the Son. They are real. Jesus is risen. He is our Christ and Savior. He is the Son of the living God. This knowledge is my faith, my testimony, and my life. I pray that we all may come to the knowledge of Jesus Christ and act accordingly with a pure heart, with hope, and with charity. In the name of Jesus Christ, amen.
 
 
-
-
+#Authority #Commandments #God_The_Father #Jesus_Christ #Joy #Peace

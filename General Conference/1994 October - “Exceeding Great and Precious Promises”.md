@@ -77,5 +77,4 @@ I invoke his blessings upon you in your homes, in your work, in your service in 
 I pledge my life, my strength, and the full measure of my soul to serving him. May we have ears to hear and hearts to feel and the courage to follow, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Leaders #Family #Family_History #Jesus_Christ #Prophets #Temples

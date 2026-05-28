@@ -85,5 +85,4 @@ In those cases when it is necessary to provide temporary assistance to those who
 God bless us all with a keen understanding of the foundation upon which all these activities are built. We are anxious to make our people independent, industrious, and self-sufficient. We want to accomplish this in a way which will be sanctifying to the giver as well as the receiver. When we can understand this principle, our current welfare activities will take on more meaning, and any changes or additional programs required for today’s society can be revealed.
 
 
-
-
+#Welfare #Work

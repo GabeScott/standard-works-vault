@@ -169,3 +169,5 @@ Ours is His supernal cause. Ours is the cause of eternal glory for all humankind
 
 [^40]: [[Isaiah 41.10|Isaiah 41:10]].
 
+
+#Forgiveness #Love #Peace

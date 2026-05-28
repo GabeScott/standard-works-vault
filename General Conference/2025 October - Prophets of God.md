@@ -147,3 +147,5 @@ I am grateful for the guidance and consecrated efforts of the living prophets. I
 
 [^33]: See [[Articles of Faith 1.5|Articles of Faith 1:5]].
 
+
+#Prophets #Revelation #Teaching #Testimony #Youth

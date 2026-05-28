@@ -127,5 +127,4 @@ My faith is both a beacon and a foundation stone. It is born of the Spirit and e
 May the Lord bless us with faith as we go forward in our lives, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith

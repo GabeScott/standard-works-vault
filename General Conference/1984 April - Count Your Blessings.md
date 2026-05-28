@@ -118,5 +118,4 @@ I bear you my testimony that Jesus is the Christ, the Son of the Living God. He 
 I know that he lives; I know that he loves us; and I bear you my witness in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Adversity #Blessings

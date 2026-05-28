@@ -169,5 +169,4 @@ In conclusion now, I bear my personal witness to the truth of these things which
 I know that through his suffering in Gethsemane and during his crucifixion he brought about the means by which, through repentance and obedience to the laws of his gospel, we may be raised not only to immortality but also to eternal life, which is the greatest of all the gifts of God. To this I bear solemn witness in the sacred name of Jesus Christ, our Redeemer. Amen.
 
 
-
-
+#Atonement #Resurrection

@@ -135,5 +135,4 @@ Man is that he might have joy. Have a good time. Enjoy life by doing those thing
 May we all express our appreciation every night and every morning to the Lord for the privilege we have of being members of his church and of holding his priesthood, and pray for courage and strength to live as we should and thereby prepare ourselves and help others to prepare themselves for eternal life, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Church_Leaders #Priesthood

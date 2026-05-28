@@ -126,5 +126,4 @@ The road signs of life enticingly invite every traveler: This way to fame; this 
 May each of us follow Him along that Jericho Road, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Compassion #Service

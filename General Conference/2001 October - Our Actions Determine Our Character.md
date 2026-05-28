@@ -65,5 +65,4 @@ May we evidence our discipleship by strengthening our homes in kind and loving w
 Jesus Christ is the perfect example. He is our Savior and our Redeemer. I testify of Him! We are led by a living prophet today. In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Contention #Fear #Home #Jesus_Christ #Love

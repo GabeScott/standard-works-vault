@@ -23,5 +23,4 @@ I readily attest to the reality and greatness of our God, to his goodness and gr
 I am particularly gratified, and it is of great significance to me, that I may at any moment and in any circumstance approach through prayer the throne of grace, that my Heavenly Father will hear my petition, and that my Advocate, he who did no sin, whose blood was shed, will plead my cause (see [[D&C 45.3|D&C 45:3–5]][[D&C 45.4|]][[D&C 45.5|]]). I rely heavily on that access to God, which he gives to all his children, for he is indeed no respecter of persons, and he that asks shall receive. I so witness in the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Service #Testimony

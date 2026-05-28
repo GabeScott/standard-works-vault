@@ -151,3 +151,5 @@ You know this work is true, as do I. You know that God our Eternal Father lives 
 
 [^1]: I am aware of Abigail Adams’s correspondence with John Adams on this point. However, it does not follow that all of the fifty-six signers of the Declaration were of the same view. Subsequent generations have regarded *men* in its generic sense. I might have used various other examples on which there could be no question.
 
+
+#Prayer #Women

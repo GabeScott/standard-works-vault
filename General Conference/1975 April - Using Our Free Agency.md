@@ -85,5 +85,4 @@ Think carefully about the promises and benefits available to us by using our fre
 May God bless us all that we will have the desire and courage to exercise our free agency in righteousness and in truth, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Agency

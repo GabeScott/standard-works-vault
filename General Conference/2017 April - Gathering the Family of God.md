@@ -75,5 +75,4 @@ This is the work of our generation, what the Apostle Paul called “the dispensa
 I testify that God the Father wants His children home again, in families and in glory. The Savior lives. He directs and blesses this work, and He watches over and guides us. He thanks you for your faithful service in gathering His Father’s family, and I promise you the inspired help that you seek and need. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Family_History #Holy_Ghost #Jesus_Christ #Ordinances #Plan_Of_Salvation #Temple_Work #Youth

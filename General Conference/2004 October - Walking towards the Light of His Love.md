@@ -49,5 +49,4 @@ I still walk in the mornings every chance I get. I still pause to study the beau
 I bear testimony of our Savior, who said of Himself: “Behold, I am Jesus Christ, the Son of God. I am the life and the light of the world” ([[D&C 11.28|D&C 11:28]]). Sisters, I know that by daily preparing ourselves a step at a time, each of us, like Jan, can move forward without fear, finding our way to Him as we personally feel the blessings of His infinite Atonement. I know that one of the supernal blessings of Relief Society is our connection to women who also bear testimony of our Lord. My prayer is that we will ever walk side by side towards the light of His redeeming love. In the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Peace #Preparation #Relief_Society #Testimony

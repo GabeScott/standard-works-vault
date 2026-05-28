@@ -112,5 +112,4 @@ Yes, beloved youth, you will have your trials and temptations through which you 
 I pray that you—the young and rising generation—will keep your bodies and minds clean, free from the contaminations of the world, that you will be fit and pure vessels to bear off the kingdom of God triumphant in preparation for the second coming of our Savior. In the name of Jesus Christ, amen.
 
 
-
-
+#Character #Morality #Parents #Prayer #Standards #Youth

@@ -37,5 +37,4 @@ Only you and the Holy Ghost can answer these questions. If you do not now have a
 Will you do it? Will you listen to his words now and find a message for your life? I hope and pray that you will. I bear testimony to you that I know we have a living prophet guiding us. May each of us go our way this night seeking or reaffirming our own divine testimony that God leads his Church through prophets and that Gordon B. Hinckley is his prophet now is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Holy_Ghost #Prophets #Testimony

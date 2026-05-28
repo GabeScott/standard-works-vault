@@ -113,3 +113,5 @@ I sincerely pray that we will use the stepping-stones of prayer, faith, and our 
 
 [^10]: *Teachings of Gordon B. Hinckley,* 205.
 
+
+#Faith #Family #Prayer

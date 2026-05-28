@@ -55,5 +55,4 @@ God our Eternal Father lives. His Son, our Redeemer, the resurrected Savior of t
 And we are partakers of these precious gifts. And so, as we might say to an old friend, good-bye. May the blessings of God rest upon this sacred and wonderful hall. And may we, as those who have come here frequently to partake of the Spirit felt here, live worthy of the title Latter-day Saints is my humble prayer in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Brigham_Young #General_Conference #Pioneers #Temple_Square

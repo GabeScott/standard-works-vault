@@ -77,3 +77,5 @@ I bear my witness that God, our Heavenly Father, and His Son, Jesus Christ, love
 
 [^16]: “[Holding Hands Around the World](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/holding-hands-around-the-world?lang=eng),” *Hymns for Home and Church*, Gospel Library.
 
+
+#Children #Example #Jesus_Christ #Joy #Plan_Of_Salvation

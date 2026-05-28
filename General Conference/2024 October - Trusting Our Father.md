@@ -135,3 +135,5 @@ I bear witness of God, our Eternal Father, who loves us; of His Son, Jesus Chris
 
 [^20]: See [[Acts 5.32|Acts 5:32]]; [[Galatians 3.2|Galatians 3:2]]; [[Jarom 1.4|Jarom 1:4]]; [[Alma 32.28|Alma 32:28]]; [[Mormon 9.25|Mormon 9:25]]; [[Ether 4.11|Ether 4:11]].
 
+
+#Agency #Discipleship #Faith #God_The_Father #Trust

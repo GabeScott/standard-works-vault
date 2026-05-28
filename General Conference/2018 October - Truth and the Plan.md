@@ -111,3 +111,5 @@ I solemnly testify that the things I have said are true, and they are made possi
 
 [^8]: Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
+
+#Children #Family #God_The_Father #Plan_Of_Salvation #Truth

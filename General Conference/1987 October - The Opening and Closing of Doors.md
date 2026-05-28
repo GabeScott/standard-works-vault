@@ -83,5 +83,4 @@ If you have troubles at home with children who stray, if you suffer financial re
 May God bless us in the ups and downs of life, in the opening and closing of doors, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Faith

@@ -67,5 +67,4 @@ Be prudent, wise, and conservative in your investment programs. It is by consist
 The principle of self-reliance is spiritual as well as temporal. It is not a doomsday program; it is something to be practiced each and every day of our lives. May we continue to hold fast to the eternal truths of self-reliance is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Preparation #Scriptures #Self-Reliance #Welfare #Work

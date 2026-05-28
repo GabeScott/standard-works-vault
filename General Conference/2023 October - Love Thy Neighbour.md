@@ -61,5 +61,4 @@ All those months ago, we found the hungry and the afflicted on a dry and dusty p
 May we be forever looking to the well-being of others and show in word and deed that we “are willing to bear one another’s burdens” ([[Mosiah 18.8|Mosiah 18:8]]), to “bind up the broken-hearted” ([[D&C 138.42|Doctrine and Covenants 138:42]]), and to keep Christ’s second great commandment to “love thy neighbour” ([[Mark 12.31|Mark 12:31]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Compassion #Humanitarian_Aid #Love #Neighbors #Poverty

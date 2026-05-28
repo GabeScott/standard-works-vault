@@ -71,5 +71,4 @@ Consecration thus constitutes the only unconditional surrender which is also a t
 May we deeply desire that victory, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Consecration #Jesus_Christ #Joy #Obedience #Opposition #Sin

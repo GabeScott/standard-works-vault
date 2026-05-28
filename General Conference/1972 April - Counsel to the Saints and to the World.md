@@ -57,5 +57,4 @@ I know and testify that the Lord’s purposes on earth shall prevail. The Church
 I feel to thank the Lord for his goodness and grace, for all the blessings he has showered upon us so abundantly; and I pray that we may all be worthy to receive the eternal fullness which he offers his saints through the gospel of his Son, and I do this in the name of Jesus Christ. Amen.
 
 
-
-
+#Brotherhood #Family

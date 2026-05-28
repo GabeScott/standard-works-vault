@@ -87,5 +87,4 @@ We seek Zion because it is the habitation of our Lord, who is Jesus Christ, our 
 In the name of Jesus Christ, amen.
 
 
-
-
+#Standards #Zion

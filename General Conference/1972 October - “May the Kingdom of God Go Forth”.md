@@ -93,5 +93,4 @@ I know, with a testimony more powerful than sight, that as the Lord declared, â€
 I bear that testimony with all the conviction of my soul and leave my blessing upon the membership of the Church and the pure in heart everywhere, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Church_Leaders #Leadership

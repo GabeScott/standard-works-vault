@@ -76,5 +76,4 @@ May this be our goal, and may we be willing to pay the price to obtain it and no
 May we follow him, and may we keep his commandments, and may we be successful, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Children #Joy

@@ -145,5 +145,4 @@ To which I add my own witness that He is “the way, the truth, and the life” 
 Gratefully, and with love undiminished, I bear witness of these things in His Holy name, even the name of Jesus the Christ, amen.
 
 
-
-
+#Example #Friendship #Gratitude #Jesus_Christ #Missionary_Work #Satan #Temptation #Testimony #Youth

@@ -81,5 +81,4 @@ At home last evening after our meetings yesterday, we opened a note from a lovel
 I thank God for his love and the love of his Son. Those who have taken upon themselves the name of his Son as we have done must carry the burden of the legacy he left us—of love and mercy and service, accepting our heritage of hope and helpfulness, and joining our believing and our doing in working for the relief of the ills and the sufferings of humanity. God help us in honoring that commission, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Love #Patience #Truth

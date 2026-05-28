@@ -103,3 +103,5 @@ I speak of the Master Teacher, even Jesus Christ, the Son of God, the Savior and
 
 [^12]: [[Acts 10.38|Acts 10:38]].
 
+
+#Home_Teaching

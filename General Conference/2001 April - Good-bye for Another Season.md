@@ -35,5 +35,4 @@ Our individual testimonies of these truths are the basis of our faith. We must n
 As we return to our homes, may we experience a strengthening of our faith in these eternal and unchanging truths. May there be peace and love in our homes and an abundance of the good things of heaven and earth, I humbly pray as I bid you good-bye for another season, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Faith #General_Conference #Home #Jesus_Christ #Joseph_Smith #Loyalty #Obedience #Prayer #Spirituality #Testimony

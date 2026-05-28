@@ -59,3 +59,5 @@ May I bear my testimony that I know that Heavenly Father lives and loves us. I k
 
 [^2]: “A Testimony Vibrant and True,” *Liahona* and *Ensign,* Aug. 2005, 6.
 
+
+#Book_Of_Mormon #Children #Obedience #Scripture_Study

@@ -63,5 +63,4 @@ In the process of doing, he started to get a small glimmer of interest in someth
 May the Lord bless these wonderful, special people, and may we be blessed as their leaders, that we, through the work of the Welfare Services program, may bless their lives, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Welfare

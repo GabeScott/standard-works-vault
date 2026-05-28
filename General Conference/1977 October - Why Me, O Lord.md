@@ -19,5 +19,4 @@ Yet another voice is saying, “I will go and do the things which the Lord hath 
 My dear brothers and sisters, I love—I love our Heavenly Father. I know—I know within my whole heart that God lives. I know that there is a living prophet of God today, even Spencer W. Kimball. I love him. I will support him with all my heart. The Book of Mormon is true, the true word of God. Brothers and sisters, I leave you my testimony. I humbly do this in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Testimony

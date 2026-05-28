@@ -122,5 +122,4 @@ I hope, my brethren, that perhaps this tremendous building in which we meet, now
 Brethren, *be strong in your testimony of Jesus Christ,* the Son of God. He is the chief cornerstone of this great work. Of His divinity and reality I bear solemn witness. He is the Lamb without blemish, who was offered for the sins of the world. Through His pain and because of His suffering I find reconciliation and eternal life. He is my Teacher, my Exemplar, my Friend, and my Savior, whom I love and worship as the Redeemer of the world. In His holy name, amen.
 
 
-
-
+#Faith #Priesthood

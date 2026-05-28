@@ -89,5 +89,4 @@ I recall an experience that shows the effect of her teachings. Just before Chris
 I anticipate that glorious future day when the separated will be reunited and all of us will be made complete as the Lord has promised. I testify of Jesus Christ, the Only Begotten Son of the Eternal Father, whose priesthood authority and whose Atonement and Resurrection make it all possible, in the name of Jesus Christ, amen.
 
 
-
-
+#Abuse #Authority #Family #Leadership #Marriage #Priesthood #Single_Members #Womanhood

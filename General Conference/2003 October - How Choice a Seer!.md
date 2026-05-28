@@ -75,5 +75,4 @@ Meanwhile, let us expect that many will regard us indifferently. Others will see
 Brothers and sisters, given all of the foregoing, “what can I say more” except “Praise to the man who communed with Jehovah!” ([[Jacob 6.12|Jacob 6:12]]; “Praise to the Man,” *Hymns,* no. 27). In the name of Jesus Christ, amen!
 
 
-
-
+#Atonement #Book_Of_Mormon #Jesus_Christ #Joseph_Smith #Restoration

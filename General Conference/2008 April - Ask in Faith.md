@@ -93,5 +93,4 @@ Prayer is a privilege and the soul’s sincere desire. We can move beyond routin
 I witness the reality and divinity of our Eternal Father, of His Only Begotten Son, the Lord Jesus Christ, and of the Holy Ghost. I testify that our Father hears and answers our prayers. May each of us strive with greater resolve to ask in faith and thereby make our prayers truly meaningful. I so pray in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Faith #Obedience #Prayer

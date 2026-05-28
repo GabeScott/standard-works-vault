@@ -75,5 +75,4 @@ This good brother later contracted that same disease and died even before his wi
 I know that God lives! This is his church. I know that the Savior lives! I know that Joseph Smith was a prophet of God, who restored this church. I know that our beloved prophet, even President Ezra Taft Benson, is the living oracle of God and an example to us. The Book of Mormon is true. In the name of Jesus Christ, amen.
 
 
-
-
+#Love #Marriage #Women

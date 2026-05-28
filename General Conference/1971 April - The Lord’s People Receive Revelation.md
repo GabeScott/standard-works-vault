@@ -81,5 +81,4 @@ Religion comes from God by revelation and deals with spiritual things; and unles
 I bear testimony of these things because I have received revelation—revelation which tells me (among other things) that Jesus Christ is the Son of God; that Joseph Smith is a prophet, through whom the knowledge of Christ and of salvation has been restored for this day; and that The Church of Jesus Christ of Latter-day Saints is in literal reality the kingdom of God on earth. And of these things I do testify, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Holy_Ghost #Religion #Spirituality

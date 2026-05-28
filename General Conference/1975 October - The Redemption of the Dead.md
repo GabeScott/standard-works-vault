@@ -121,5 +121,4 @@ But we have the revelations. We have those sacred ordinances. The revelation tha
 I bear witness that this work is true, that God lives, that Jesus is the Christ, that there is on this earth today a prophet of God to lead modern Israel in this great obligation. I know that the Lord lives and that He broods anxiously over the work for the redemption of the dead, in the name of Jesus Christ. Amen.
 
 
-
-
+#Ordinances #Temple_Work

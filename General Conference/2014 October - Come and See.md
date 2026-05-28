@@ -97,5 +97,4 @@ The invitations we extend to you to learn about and test our message grow out of
 As one of the Lord’s Apostles, and with all of the energy of my soul, I bear witness of His divinity and reality. And I invite you to “come and see” ([[John 1.39|John 1:39]]), in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Atonement #Children #Missionary_Work #Truth

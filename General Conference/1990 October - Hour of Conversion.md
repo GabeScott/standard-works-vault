@@ -51,5 +51,4 @@ The Book of Mormon is our testimonial Liahona (see [[Alma 37.45|Alma 37:45]]). T
 If you have even a small desire for a greater witness, please do the works of righteousness, trust in the Lord, pray and anxiously explore the Book of Mormon. I testify that it is the word of God. This iron rod marks the path that will guide your soul to your hour of conversion. I rejoice with you in that glorious event. In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Prayer #Testimony

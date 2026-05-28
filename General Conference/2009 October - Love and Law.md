@@ -135,3 +135,5 @@ I testify of the truth of these things, which are part of the plan of salvation 
 
 [^14]: Russell M. Nelson, in Conference Report, Apr. 1994, [[1994 April - “Teach Us Tolerance and Love”.md|93]]; or *Ensign,* May 1994, 71.
 
+
+#Commandments #Family #God_The_Father #Laws #Love

@@ -111,3 +111,5 @@ Because your Father in Heaven loves you profoundly, the Atonement of Jesus Chris
 
 [^23]: See [[Matthew 16.25|Matthew 16:25]]; [[D&C 88.125|Doctrine and Covenants 88:125]].
 
+
+#Atonement #Book_Of_Mormon #Covenants #Jesus_Christ #Repentance

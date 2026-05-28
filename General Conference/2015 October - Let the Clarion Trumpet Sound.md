@@ -69,3 +69,5 @@ It is time for us, as Latter-day Saints, to stand up and testify. It is time for
 
 [^8]: See [[1 Nephi 8.1|1 Nephi 8]].
 
+
+#Courage #Discipleship

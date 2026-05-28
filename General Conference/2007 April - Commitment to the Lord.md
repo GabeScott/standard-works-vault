@@ -41,5 +41,4 @@ President Hinckley loves the youth and has constantly encouraged you to follow t
 As you commit now to do the will of the Lord, He will help and strengthen you. Your faith, trust, and desire to follow Him will be your greatest key to success. I know our Heavenly Father loves each of you and that He truly sent His Only Begotten Son to help you and that you can gloriously succeed as you sincerely commit to follow Him. In the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Obedience #Standards #Word_Of_Wisdom #Youth

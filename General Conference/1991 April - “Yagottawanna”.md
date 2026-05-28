@@ -51,5 +51,4 @@ I ask you men of Christ to cultivate, to cherish, and to maintain righteous desi
 I promise you that the Lord will bless you with right attitudes and desires as you pray to him, attend to your duties, keep the commandments, and serve him. Then you young men will truly be men of Christ. In the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Spirituality #Worship

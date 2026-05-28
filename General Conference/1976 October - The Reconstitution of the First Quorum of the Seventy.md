@@ -23,5 +23,4 @@ With this move, the three governing quorums of the Church defined by the revelat
 President N. Eldon Tanner, first counselor in the First Presidency of the Church, will now present the General Authorities, general officers, and general auxiliary officers of the Church for the sustaining vote of the conference.
 
 
-
-
+#Quorums_Of_Seventy

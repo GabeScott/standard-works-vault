@@ -39,5 +39,4 @@ I know from my own experience and the witnesses by the thousands that I have rec
 The Lord bless you, brothers and sisters, that you may listen and that you may implement the things that have been taught us here this morning, and live under the guidance of the Spirit day by day. That is possible when we get the connection made between us and the Spirit, and then walk under its guidance. I bless you that we may do so, in the name of Jesus Christ, our Redeemer. Amen.
 
 
-
-
+#Welfare

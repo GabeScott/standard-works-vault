@@ -45,5 +45,4 @@ Voice cannot tell nor tongue proclaim the fulness of Christ’s ineffable exampl
 I finish where I began, with Christ’s majestic words to Pilate: “For this cause came I into the world.” How grateful we all should be that He came, two millennia ago, to atone for our sins and set the example for our lives. We proclaim that truth of truths in boldness to all the world. I testify to you that He will return again as King of Kings and Lord of Lords, with healing in His wings, to set His people free (see “Come, O Thou King of Kings,” *Hymns,* no. 59). In the name of Jesus Christ, amen.
 
 
-
-
+#Children #Death #Divine_Nature #Generosity #Jesus_Christ #Languages #Plan_Of_Salvation #Resurrection #Sacrifice #Service #Standards

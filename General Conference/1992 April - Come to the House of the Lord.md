@@ -95,5 +95,4 @@ I close, as I began, with Elder Whitney’s inspired verse:
 I pray that we will take full advantage of every opportunity to regularly come to our Lord’s temple and there freely partake of the feast and blessings He provides, in the name of Jesus Christ, amen.
 
 
-
-
+#Marriage #Temple_Work #Worthiness

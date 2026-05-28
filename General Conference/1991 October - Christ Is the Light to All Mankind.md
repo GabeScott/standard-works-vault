@@ -21,5 +21,4 @@ I testify that Christ is the light to all mankind. He has “pointed, marked out
 Thank you, our prophet dear, and please be assured of our prayers. May our Heavenly Father continue to bless you.
 
 
-
-
+#Jesus_Christ #Prophets #Testimony

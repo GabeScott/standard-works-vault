@@ -101,5 +101,4 @@ I have unbounded confidence and faith in you, our young brethren. You are the wa
 We have the fullness of the everlasting gospel. We have the obligation to share it with those who do not have it. God grant that we will honor that commission from the Lord and prepare ourselves and answer the call, I humbly pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

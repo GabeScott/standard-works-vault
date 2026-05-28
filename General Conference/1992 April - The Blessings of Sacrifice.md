@@ -53,5 +53,4 @@ Today we are not called to pull handcarts through the snow-swept plains of Wyomi
 God bless you, brothers and sisters, to know as I know that God lives, that Jesus is the Christ, and that being a member of His Church, the only true and living Church, is never a burden but always a great blessing. That we may be grateful for this blessing I pray humbly in the name of Jesus Christ, amen.
 
 
-
-
+#Humility #Obedience #Sacrifice

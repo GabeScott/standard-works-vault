@@ -53,5 +53,4 @@ Then to walk guiltless before God, we must love and serve others. His statement 
 I am persuaded that only this charity, this pure love of Christ, this love plus sacrifice, which is exemplified in the work that goes on in our temples, can save this nation and the world, for that matter when the Lord comes. The Lord was willing to spare Sodom and Gomorrah if Abraham could find just ten good men, which he could not do. I presume I could not have a more important hope for you and me than that we may be filled with this charity, this pure love of Christ, to serve our fellowman. I express this hope to you in the holy name of Jesus Christ, amen.
 
 
-
-
+#Charity #Conversion #Endurance #Obedience #Repentance #Service

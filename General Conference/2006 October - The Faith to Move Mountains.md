@@ -73,5 +73,4 @@ May the Lord bless us with faith in the great cause of which we are a part. May 
 For this I humbly pray, in the sacred and holy name of Him who is the strength of our faith, even the Lord Jesus Christ, amen.
 
 
-
-
+#Faith #Pioneers #Prayer #Sacrifice

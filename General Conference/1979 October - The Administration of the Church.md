@@ -193,5 +193,4 @@ Some people have the erroneous idea that the Church pays no taxes. I would like 
 We hope and pray always—every day—that the Church is being properly administered by those who are placed in these responsible positions—the First Presidency, the Quorum of the Twelve, the First Quorum of the Seventy, and the Presiding Bishopric—and that the local officers may also be so blessed and directed. I bear testimony that the Church is directed by the Lord himself through a prophet of God, and pray humbly that we may all appreciate that, appreciate our membership in the Church, and strive diligently to prepare ourselves for eternal life. In the name of Jesus Christ, amen.
 
 
-
-
+#Church_Organization #Leadership #Priesthood

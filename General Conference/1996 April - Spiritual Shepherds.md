@@ -69,5 +69,4 @@ I pray you will make the decisions that will result in true happiness.
 This is the true Church of Jesus Christ. This is His work. Of that I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Leaders #Evil #Friendship #Parents #Peer_Pressure #Priesthood #Prophets #Youth

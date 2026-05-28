@@ -67,5 +67,4 @@ Finally, brothers and sisters, in certain times and circumstances, discipleship 
 As we take our stand, the faithful will not be alone—not that alone, however. Of necessity, the angel who stood by Christ in Gethsemane to strengthen Him left Him (see [[Luke 22.43|Luke 22:43]]). If we hold aloft the shield of faith in God and faith in His commandments, His angels will be “round about \[us\], to bear \[us\] up” and “have charge over \[us\]” ([[D&C 84.88|D&C 84:88]]; [[D&C 109.22|109:22]]). Of this promise, I testify. And now, therefore, in terms of the weather in our souls, brothers and sisters, I testify that we set the dial. We so determine the degree of our happiness in this and the next world. I likewise testify that our compliance with God’s commandments, including the seventh, invites God to place His hand on ours as we set the dial. It is the hand of Him who desires to give us all that He hath (see [[D&C 84.38|D&C 84:38]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Commandments #Conscience #Discipleship #Duty #Evil #Faith #Family #Love #Morality #Satan

@@ -49,5 +49,4 @@ And yet another beautiful morning dawned nearly 2,000 years ago just outside the
 Of the triumph of Jesus Christ over sin and death, I bear witness. Of the merciful plan of our Eternal Father and His everlasting love, I testify. As we rise up each morning, may we look to heaven in faith and say, “Oh, what a beautiful morning,” I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Hope #Jesus_Christ

@@ -72,5 +72,4 @@ I conclude with the loving counsel of the Savior, who said, “Therefore, fear n
 There is no foundation more secure than the temple. The work accomplished there transcends all other human effort. May we remove all obstacles to realize temple blessings; for I testify, He waits there for each of us, His children. In the name of Jesus Christ, amen.
 
 
-
-
+#Temples

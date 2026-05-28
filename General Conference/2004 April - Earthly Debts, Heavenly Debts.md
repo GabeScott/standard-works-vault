@@ -137,3 +137,5 @@ Know within your hearts that Jesus the Christ lives. Be at peace, for as you dra
 
 [^11]: [[Matthew 6.19|Matthew 6:19–20]][[Matthew 6.20|]].
 
+
+#Financial_Management #Honesty #Tithing

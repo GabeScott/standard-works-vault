@@ -145,3 +145,5 @@ We can all expect to face trials. But great eternal promises are extended to tho
 
 [^36]: [[D&C 84.80|D&C 84:80]].
 
+
+#Covenants #Priesthood #Service #Worthiness

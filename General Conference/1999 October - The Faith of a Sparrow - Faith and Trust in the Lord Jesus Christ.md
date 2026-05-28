@@ -69,5 +69,4 @@ I pray we will all show an equal amount of faith and trust in the Lord that the 
 I pray that we will indeed all do it together, in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Character #Faith #Jesus_Christ #Missionary_Work #Priesthood #Repentance #Trust

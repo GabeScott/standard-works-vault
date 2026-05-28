@@ -115,5 +115,4 @@ Brothers and sisters, may we leave this conference with a renewed determination,
 “We love you; we miss you; we need you. Please come back.” Come back to go to the temple, enter into the covenants, and receive the ordinances of eternal salvation. In the name of our Savior and Redeemer, Jesus Christ, amen.
 
 
-
-
+#Fellowshipping #Missionary_Work #Temptation

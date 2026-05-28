@@ -67,5 +67,4 @@ Upon further interview it became apparent that there were a number of commandmen
 May I bear witness to you, my brethren and sisters, that what you have heard from this place in this conference is the mind of the Lord, the will of the Lord, and the word of the Lord for the salvation of his saints at this particular juncture in time, for he lives and speaks to his servants today. We must give heed to the word of the Lord; therefore, it is tremendously important that we give heed to these words, and work out our salvation with fear and trembling before him, as we precisely keep these commandments. May we do so, and may it be said of us when we depart that “he took with him a clean, free, enlightened and happy spirit, and a conscience void of offense to his fellowmen.” That this may be our happy state, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Education

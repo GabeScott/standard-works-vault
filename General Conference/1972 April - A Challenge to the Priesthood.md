@@ -45,5 +45,4 @@ There is a great host of Aaronic Priesthood bearers who would give away all thei
 During those twenty years I have watched our beloved prophet and the Council of the Twelve come in, I know these are inspired men, these are holy men; they are prophets. I so testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Priesthood #Prophets #Youth

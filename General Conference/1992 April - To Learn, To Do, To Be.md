@@ -82,3 +82,5 @@ I leave with you my testimony that this work in which we are engaged is true. Th
 
 [^4]: In *Journal of Discourses,* 20:23.
 
+
+#Priesthood #Service #Spirituality

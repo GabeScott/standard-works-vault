@@ -99,5 +99,4 @@ The voice of the Lord to this generation is:
 To this I testify, in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Self-Control #Work

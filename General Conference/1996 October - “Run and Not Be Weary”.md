@@ -81,5 +81,4 @@ Today the curse of drink and drugs is becoming a national nightmare. It is the c
 God bless you that you will have the courage to live the way you should and be an example of one living the great gospel principles we hold so dear is my humble prayer in the name of our Lord and Savior, even Jesus Christ, amen.
 
 
-
-
+#Priesthood #Word_Of_Wisdom

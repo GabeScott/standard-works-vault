@@ -57,5 +57,4 @@ So, brothers and sisters, “how is it with us?” Are we ready to do something?
 I testify that the Savior lives and He will bless each one of us if we will do all that we can to move this great work of His Church forward. May each one of us resolve to do something more as we begin this new millennium is my prayer, which I offer humbly in the name of Jesus Christ, amen.
 
 
-
-
+#Apostasy #Book_Of_Mormon #Church_Growth #Church_Organization #Commitment #Discipleship #Example #Faith #Family #General_Conference #Holy_Ghost #Hope #Love #Missionary_Work #Plan_Of_Salvation #Premortal_Existence #Preparation #Responsibility #Service #Spirituality #Temples #Testimony

@@ -139,5 +139,4 @@ President Clark concluded this particular discussion with this reminder:
 That the Lord will give us the wisdom and the courage to understand and live by this principle, I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Self-Reliance #Service #Welfare

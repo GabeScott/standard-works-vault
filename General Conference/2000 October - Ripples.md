@@ -71,5 +71,4 @@ Thank heaven for faithful visiting teachers. Yes, sisters, the actions of righte
 God lives. His Son, Jesus Christ, provides the way for us to return and live with Him. The true gospel has been restored again to the earth. We have a living prophet today, President Gordon B. Hinckley, through whom Heavenly Father directs His people. May we, by the ripples from our righteous actions, help all to know these truths, in the name of Jesus Christ, amen.
 
 
-
-
+#Dedication #Faith #Family #Home #Humility #Joy #Missionary_Work #Obedience #Satan #Visiting_Teaching #Women #Work

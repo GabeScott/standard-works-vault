@@ -47,5 +47,4 @@ May I close with the powerful words of our beloved prophet, Gordon B. Hinckley, 
 God bless you, parents. We love you. We know it is not easy to do what you are doing. We know that every new day brings challenges and trials that often seem insurmountable. May you find through increased faith and reliance upon the Lord renewed strength, vigor, and resilience in teaching and blessing the lives of those in your parental stewardship. May you find in the counsel given us by President Howard W. Hunter, President Gordon B. Hinckley, and all who have stood to bear unfailing testimony of Jesus Christ that only through love and devotion to the teachings of Him of whom we testify, and through the blessings of His atonement in our behalf, may we teach with the power to bless and save our families in the kingdom of God. Of this I testify in the holy name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Holy_Ghost #Jesus_Christ #Obedience #Parenthood #Peace #Spirituality #Teaching #Temples #Testimony #Truth

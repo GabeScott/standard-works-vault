@@ -99,5 +99,4 @@ For me and mine, and for you, I pray to be worthy to carry the same banner as ou
 In the name of Jesus Christ, amen.
 
 
-
-
+#Mercy

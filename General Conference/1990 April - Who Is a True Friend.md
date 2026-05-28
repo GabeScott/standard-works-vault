@@ -103,5 +103,4 @@ Above all, be a friend of the Savior. You, my young men, are the honored holders
 That we may all qualify to be his disciples, his friends, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Example #Family #Fellowshipping #Jesus_Christ #Love #Obedience #Word_Of_Wisdom

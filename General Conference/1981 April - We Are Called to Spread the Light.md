@@ -99,5 +99,4 @@ I testify, as a convert to the Church, that no greater joy can come to men than 
 I humbly pray that the missionary spirit will be with us all in the time ahead and that we may be an instrument in the hand of the Lord to build his kingdom here on earth prior to his glorious return, and do so in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

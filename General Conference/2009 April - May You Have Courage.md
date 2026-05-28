@@ -175,3 +175,5 @@ My earnest prayer is that you will have the courage required to refrain from jud
 
 [^21]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
+
+#Courage #Judging #Standards #Virtue

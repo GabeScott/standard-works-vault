@@ -77,5 +77,4 @@ There are many times as our youth grow when they will need to seek the Spirit to
 By this means the Prophet Joseph Smith received revelation, as have those who succeeded him as presidents of the Church. And by this means the Church keeps in harmony with the Lord’s will through President Spencer W. Kimball. By this means we may eventually find our way into eternal life, and I pray we may understand. I bear witness of its truth and of the fact that President Spencer W. Kimball is a prophet, in the name of Jesus Christ. Amen.
 
 
-
-
+#Commandments #Holy_Ghost #Spirituality

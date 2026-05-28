@@ -51,5 +51,4 @@ One of our great missionaries said: “I bear them my testimony. Then I bear the
 That’s the process. Alma did the same thing when he had explained to the people of the city of Gideon about the coming of Christ and the redemption that would be provided for those who would accept Him and be baptized, he said: “And now my beloved brethren, do you believe these things? Behold, I say unto you, yea, I know that ye believe them; and the way that I know ye believe them is by the manifestation of the Spirit which is in me” ([[Alma 7.17|Alma 7:17]]). To this I bear testimony, after many wonderful experiences of the influence of the Holy Ghost, in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Holy_Ghost

@@ -148,5 +148,4 @@ I testify He is a teacher of truth—but He is more than a teacher. He is the ex
 As his witness I testify to you that He lives, in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Plan_Of_Salvation

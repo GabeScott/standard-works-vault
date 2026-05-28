@@ -93,5 +93,4 @@ What a beautiful promise! Blessed is the family that can look to you brethren as
 I testify to you that I know that He lives, that Jesus is the Christ, in the name of Jesus Christ. Amen.
 
 
-
-
+#Authority #Family #Priesthood #Women

@@ -77,5 +77,4 @@ In a word, we dedicate our all to the work of the Lord—the establishment and g
 This great work is divine—directed by the Lord Jesus Christ through his church, The Church of Jesus Christ of Latter-day Saints. To this I bear humble and grateful testimony in the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work

@@ -143,5 +143,4 @@ And for the second powerful defense, the Doctrine and Covenants; and a third, th
 And I join the millions of others who have that testimony, and bear it to you in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Faith #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Prayer #Scripture_Study

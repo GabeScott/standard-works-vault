@@ -39,5 +39,4 @@ When we are true to the sacred principles of honesty and integrity, we are true 
 My prayer is that as Latter-day Saints we will be known as among the most honest people in the world. And it might be said of us, as it was of the people of Anti-Nephi-Lehi, that we are “perfectly honest and upright in all things; and … firm in the faith of Christ, even unto the end” ([[Alma 27.27|Alma 27:27]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Honesty

@@ -83,3 +83,5 @@ I so testify, in the sacred name of Jesus Christ, amen.
 
 [^8]: [[Matthew 4.19|Matthew 4:19]].
 
+
+#Priesthood #Service #Unity

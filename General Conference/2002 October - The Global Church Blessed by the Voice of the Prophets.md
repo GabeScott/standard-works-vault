@@ -55,5 +55,4 @@ One example of great importance for humanity is strengthening our own families. 
 Let us in humility and faith refresh our dedication and our commitment to follow the prophets, seers, and revelators in all diligence. Let us listen and be instructed and edified by those who hold all the keys of the kingdom. And as we attend this conference, may our hearts be changed, that there will be a great desire to do good (see [[Alma 19.33|Alma 19:33]]), and that we will be pioneers in building a spiritual foundation that will establish the Church in our part of the world. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Church_Growth #Peace #Pioneers #Prophets

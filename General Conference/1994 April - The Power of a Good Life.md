@@ -63,5 +63,4 @@ It is through the lives of good people that we at least in part become better ac
 I thank God for the blessing of good people in all of our lives and pray that we may all in some small way serve that same purpose in the lives of others, in the name of Jesus Christ, amen.
 
 
-
-
+#Courage #Example #Joseph_Smith

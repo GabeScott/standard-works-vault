@@ -81,5 +81,4 @@ May we all find the “peace of God, which passeth all understanding” ([[Phili
 May I leave you my testimony that I know that the Lord Jesus Christ lives. He has restored His Church to the earth through the Prophet Joseph Smith. Our assurance of eternal life rests in our love of God and the keeping of His commandments. This knowledge gives me hope and faith. May it be so with each of you, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Faith #Hope #Jesus_Christ

@@ -81,5 +81,4 @@ May each father this day resolve to fill that high destiny spoken of by Peter, f
 In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Welfare

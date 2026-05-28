@@ -89,5 +89,4 @@ In those brilliant generations that followed the appearance of the resurrected C
 May God bless us to live the Golden Rule in our earning activities. As we seek to be our brother’s keeper, we will be attempting to follow in the footsteps of the Master. I testify of Jesus Christ, our Savior, whose blood has atoned for repented sins and whose resurrection has broken the bands of death for all. The fulness of the gospel was restored through the Prophet Joseph Smith. His successor, President Ezra Taft Benson, holds the keys of the everlasting gospel in our day. In the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #Honesty #Word_Of_Wisdom

@@ -129,3 +129,5 @@ I pray, as did King Benjamin, that we shall “be steadfast and immovable, alway
 
 [^24]: [[Mosiah 5.15|Mosiah 5:15]].
 
+
+#Adversity #Atonement #Evil #Jesus_Christ #Peace #Repentance #Service #Women

@@ -81,5 +81,4 @@ Great blessings will come to our families as we teach our children and grandchil
 And I know it now. I bear witness that this is the work of the Lord Jesus Christ and that we are led by His apostles and prophets. I bear witness that the senior Apostle, President Thomas S. Monson, has been called of God and that with his two noble counselors at his side, they will lead us in accordance with the mind and will of the Lord, whose Church this is. In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Church_Leaders #First_Presidency

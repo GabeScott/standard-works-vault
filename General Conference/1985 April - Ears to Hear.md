@@ -39,5 +39,4 @@ John Bennion went on another mission to Wales and back again to this valley. Hen
 God lives, Jesus is the Christ, Joseph Smith in fact saw God and His Son and received all the keys of the priesthood. And President Kimball holds them today. I testify that God loves his children and can tell us what is true. I pray that we all may have ears to hear, that he may guide us. I pray that I may serve you and him, in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Listening #Service

@@ -99,5 +99,4 @@ Indeed, the gospel brings glorious illumination as to our possibilities. Scales 
 In the name of Jesus Christ, amen!
 
 
-
-
+#Greed #Sin #Spirituality

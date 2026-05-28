@@ -39,5 +39,4 @@ We must act so as to receive this promise. It does not come by removing ourselve
 I testify that this is true, that we are bound together in his church by his priesthood power to be able to build his kingdom on earth and to rejoice in our knowledge of him. And this I say in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Charity #Holy_Ghost #Jesus_Christ #Relief_Society #Scriptures #Truth

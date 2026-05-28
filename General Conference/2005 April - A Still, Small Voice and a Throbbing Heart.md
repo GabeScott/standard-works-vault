@@ -49,5 +49,4 @@ In speaking of this sacred knowledge, the Book of Mormon prophet Alma testifies:
 Like Alma of old, each of us, members and sincere investigators alike, can know with surety that these things are true. It is our great privilege to know. It is more than a privilege; it is our responsibility to know. It is our enormous loss to not know when such a privilege is given. The Lord has said, “Knock, and it shall be opened unto you” ([[Matthew 7.7|Matthew 7:7]]). The Book of Mormon prophet Jacob says, “Come with full purpose of heart” ([[Jacob 6.5|Jacob 6:5]]). We do not need to rely upon intellect or our physical senses. We study, we pray, and, like Alma of old, we may even fast, and then comes a still, small voice and a throbbing heart. Imagine a personal revelation from God that these things are true. The very thought of it makes my heart throb. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Book_Of_Mormon #Holy_Ghost #Jesus_Christ #Restoration #Testimony

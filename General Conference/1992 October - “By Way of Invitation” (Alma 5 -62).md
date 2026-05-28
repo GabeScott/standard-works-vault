@@ -57,5 +57,4 @@ I believe that each of us can recreate that familiar scene in Bethlehem in our o
 I pray that Heavenly Father will help us be wise men and wise women—wise enough to accept His invitation, nourish His word, and follow a “straight course to eternal bliss” ([[Alma 37.44|Alma 37:44]]). May we all cheerfully answer, “I’m coming.” For I testify that “if a man bringeth forth good works he hearkeneth unto the voice of that good shepherd, and he doth follow him” ([[Alma 5.41|Alma 5:41]]). This I do in the name of the “shepherd \[who\] hath called after you and is still calling after you” ([[Alma 5.37|Alma 5:37]]), Jesus Christ, amen.
 
 
-
-
+#Christmas #Prayer #Scripture_Study #Service

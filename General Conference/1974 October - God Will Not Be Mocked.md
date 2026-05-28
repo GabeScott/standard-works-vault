@@ -175,5 +175,4 @@ Remember, God is in his heavens. He knew what he was doing when he organized the
 Our counsel then to you is to live strictly the laws of your Heavenly Father. In the name of Jesus Christ. Amen.
 
 
-
-
+#Commandments #Obedience #Plan_Of_Salvation

@@ -89,3 +89,5 @@ May it always be so, I earnestly pray—for the children—in the name of Jesus 
 
 [^15]: [[3 Nephi 17.23|3 Nephi 17:23–24]][[3 Nephi 17.24|]].
 
+
+#Children #Example #Faith #Parenthood #Testimony

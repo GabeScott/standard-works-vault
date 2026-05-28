@@ -111,5 +111,4 @@ May God give us the faith and the courage exhibited by those patriots who pledge
 May we be equally as valiant and as free, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#U.S._Constitution

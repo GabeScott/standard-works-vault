@@ -51,5 +51,4 @@ Therefore, let us all walk in these clearly defined paths to increase our happin
 In closing, I bear solemn witness that God, our Eternal Father, lives; that Jesus is the Christ, the Only Begotten Son of the Father born in the flesh, the Savior and Redeemer of all mankind; that Joseph Smith was a prophet of the living God; and that every man who has succeeded him as President of the Church has been a living prophet, including President Ezra Taft Benson in our day and time. This is my personal, eternal testimony, in the name of Jesus Christ, amen.
 
 
-
-
+#Attitude #Joy

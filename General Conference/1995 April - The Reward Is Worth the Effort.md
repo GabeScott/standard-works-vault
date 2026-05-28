@@ -21,5 +21,4 @@ As long as I endure to the end and make scripture reading a lifelong habit, I wi
 I testify to you that it has been well worth the struggle. I love the Book of Mormon and the truths it holds. It has taken a few years, and it will take many more, to learn how to apply the scriptures to my daily life, but the guidance I get from scripture study is a calming influence on me and brings peace into my daily activities. In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Endurance #Holy_Ghost #Scripture_Study #Young_Women

@@ -84,5 +84,4 @@ Never forget, my dear young friends, that you really are a child of God who has 
 Never forget that you are a member of The Church of Jesus Christ of Latter-day Saints. I pray that the Lord will bless you, and I give you my love, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Children #Church_History #Family #God_The_Father #Music #Obedience #Prayer #Primary

@@ -99,5 +99,4 @@ May our personal supplication in response to the prophet’s entreaty be:
 That we may follow our prophet’s plea, become converted, and then strengthen our brothers and sisters is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #Conversion #Example #Faith #Jesus_Christ #Obedience #Priesthood #Repentance #Scriptures #Temples #Testimony

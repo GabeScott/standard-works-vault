@@ -117,5 +117,4 @@ There is nothing else to compare with it in all this world. Safeguard it, cheris
 “Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven” ([[Matthew 5.16|Matt. 5:16]]), is my humble prayer as I leave my blessing upon you and extend my love, in the name of Jesus Christ, amen.
 
 
-
-
+#Abuse #Kindness #Priesthood #Worthiness

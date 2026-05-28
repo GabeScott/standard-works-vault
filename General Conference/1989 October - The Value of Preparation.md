@@ -67,5 +67,4 @@ O youth of noble birthright, I bear witness to you this night that if you will c
 Stay on the Lord’s side and you will find eternal joy and fulfillment. I bear my witness to you that Jesus is the Christ, the Son of God. This is His church. President Ezra Taft Benson is our living prophet, in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Obedience #Preparation

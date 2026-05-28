@@ -145,3 +145,5 @@ Jesus Christ is your personal Messiah, your loving Redeemer and Savior, who know
 
 [^25]: See [[Jacob 6.5|Jacob 6:5]].
 
+
+#Forgiveness #Healing #Jesus_Christ

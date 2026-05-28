@@ -59,5 +59,4 @@ Second is the process of laboring together to use the power of a child of God to
 I want to add my testimony to this historic conference. God lives. Jesus is the Christ. The greatest joy we can find on this earth is conforming our lives to His principles. This I humbly pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Pioneers #Service

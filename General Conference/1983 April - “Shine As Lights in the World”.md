@@ -111,5 +111,4 @@ God bless you faithful brothers and sisters for shining “as lights in the worl
 In the holy name of Jesus Christ, amen.
 
 
-
-
+#Endurance #Hope

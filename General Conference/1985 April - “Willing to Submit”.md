@@ -115,5 +115,4 @@ The wondrous and glorious Atonement was the central act in all of human history.
 May we now, in our time and turn, be “willing to submit” ([[Mosiah 3.19|Mosiah 3:19]]), I pray in the name of Jesus Christ, amen!
 
 
-
-
+#Obedience

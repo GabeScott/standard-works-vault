@@ -79,5 +79,4 @@ I love being a mother, a wife, a daughter, a sister, a woman in these latter day
 I bear you my witness that the Lord lives, and I pray that we may eagerly fulfill our sacred responsibility to strengthen families both here and hereafter. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Motherhood #Teaching #Women

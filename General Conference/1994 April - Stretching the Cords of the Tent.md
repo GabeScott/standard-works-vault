@@ -25,5 +25,4 @@ She returned later. He had the glasses ready for her. He handed them to her, and
 I pledge my all to the service of the Master. I have a deep testimony of Him and of His work on this earth. He is the one who guides and directs the affairs of this church. In the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Jesus_Christ #Kingdom_Of_God

@@ -119,3 +119,5 @@ As an Apostle of the Lord Jesus Christ, I testify of the truth of what is in the
 
 [^22]: [[3 Nephi 18.20|3 Nephi 18:20]].
 
+
+#Godhead #Jesus_Christ #Testimony

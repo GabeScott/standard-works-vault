@@ -43,3 +43,5 @@ I testify to you that Christ will come again a second time as He did the first t
 
 [^2]: “The Wise Man and the Foolish Man,” *Children’s Songbook*, 281.
 
+
+#Gospel #Hope #Jesus_Christ

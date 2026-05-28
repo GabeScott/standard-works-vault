@@ -129,3 +129,5 @@ Take heart, brothers and sisters. Yes, we live in perilous times, but as we stay
 
 [^23]: Spencer W. Kimball, in Conference Report, Oct. 1943, 16–17.
 
+
+#Faith #Jesus_Christ

@@ -113,3 +113,5 @@ Brothers and sisters, stay in the boat, use your life jackets, and hold on with 
 
 [^13]: [[Galatians 6.2|Galatians 6:2]].
 
+
+#Adversity #Apostasy #Prophets

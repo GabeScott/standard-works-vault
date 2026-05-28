@@ -31,5 +31,4 @@ I am so grateful for the gospel of Jesus Christ. I have received a thousand witn
 I want you to know that my life has been and will be dedicated to the things of God, for I know He lives, and I love His work, and I love and know the principles of the gospel are true. I pledge my support to the prophet and to the Council of the Twelve Apostles, and to Brother Richards and the other presidents. I pray that it might be said of me as the apostle Paul said at the end of his days: “This one thing I do.” ([[Philippians 3.13|Philip. 3:13]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Testimony

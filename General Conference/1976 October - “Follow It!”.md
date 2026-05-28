@@ -83,5 +83,4 @@ I thought of the apostle Paul and Joseph Smith and particularly of a prophet tod
 God grant us to have that courage and determination as we go forth, edified and fortified by the influences of great men in our lives, to be an example unto the world. I testify that I know that God lives, that Jesus is the Christ, and that here sits his prophet. In the name of Jesus Christ. Amen.
 
 
-
-
+#Commitment #Courage #Obedience

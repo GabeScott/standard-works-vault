@@ -97,5 +97,4 @@ What, then, are we to say of the Book of Mormon? I bear witness that it is veril
 May we know and use the keystone and get nearer to God, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Book_Of_Mormon #Repentance

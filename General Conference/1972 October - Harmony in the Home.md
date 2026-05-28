@@ -67,5 +67,4 @@ Remember again the scripture, “But ye will teach them to walk in ways of truth
 Fathers and mothers and children, wherever you are, I want you to know that I know we have a Father in heaven, and I want you to know that his Son Jesus is the Christ; and I want you to know that I know he established his kingdom on the earth for our blessing and for our benefit. I testify that there is a prophet on the earth, and I testify that we will be happy if we follow his teachings, in the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Parenthood

@@ -27,5 +27,4 @@ When I was called to serve as a General Authority, I had an interview with Presi
 I know that Jesus Christ lives and that He is the head of this Church. I know He is our Savior and Redeemer. I know that Joseph Smith was the Prophet of the Restoration and that President Gordon B. Hinckley is the prophet called by the Lord to preside over the Church today. Of this I bear witness in the name of Jesus Christ, amen.
 
 
-
-
+#Blessings #Example #Jesus_Christ #Obedience #Service

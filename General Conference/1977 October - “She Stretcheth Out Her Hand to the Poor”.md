@@ -75,5 +75,4 @@ Only when a woman understands the importance and the enrichment of service and e
 It is my prayer that women may, with discernment, minister to the poor and needy—even to the poor in spirit—and serve them well, in the name of Jesus Christ. Amen.
 
 
-
-
+#Service #Women

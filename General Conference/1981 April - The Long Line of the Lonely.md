@@ -95,5 +95,4 @@ If we truly listen, we may hear that voice from far away say to us, as it spoke 
 May we see that special star, may we hear that same salutation, is my humble prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Single_Members

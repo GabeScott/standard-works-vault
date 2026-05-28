@@ -47,5 +47,4 @@ It took me a long time, many years of preparation, to make it into orbit. I lear
 Brethren, it’s an honor to be with you this evening. I bear you my testimony that we are engaged in the work of the Lord. He lives; He guides His Church; these Brethren on this stand are His chosen servants. I bear you that testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Preparation

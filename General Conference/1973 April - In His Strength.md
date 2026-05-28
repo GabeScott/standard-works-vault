@@ -117,5 +117,4 @@ Do not allow yourself to be self-condemning. Avoid discouragement. Teach yoursel
 God lives. He too is someone—real and eternal—and he wants us to be someone with him. I bear witness that in his strength we can become like him. I leave you this my witness and my testimony humbly and in the name of Jesus Christ. Amen.
 
 
-
-
+#Individual_Worth #Teaching

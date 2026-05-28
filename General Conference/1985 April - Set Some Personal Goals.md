@@ -65,5 +65,4 @@ By President Spencer W. Kimball - *President of the Church*
 “And this, my dear beloved brethren, I pray in the name of Jesus Christ. Amen.” (In Conference Report, Apr. 1976, [[1976 April - Boys Need Heroes Close By.md|p. 71]]; or *Ensign,* May 1976, p. 47.)
 
 
-
-
+#Goals

@@ -97,5 +97,4 @@ My brothers and sisters, if we will pursue a steady course in carrying out this 
 I bear witness to you this morning that he, watching over Israel, slumbers not nor sleeps. God help us to be faithful to the great trust he has placed in us, I humbly pray as I invoke the blessings of the Lord upon you, in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Mission_Of_The_Church

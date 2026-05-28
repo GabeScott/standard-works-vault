@@ -109,5 +109,4 @@ God be thanked for His marvelous bestowal of testimony, authority, and doctrine 
 This must be our great and singular message to the world. We do not offer it with boasting. We testify in humility but with gravity and absolute sincerity. We invite all, the whole earth, to listen to this account and take measure of its truth. God bless us as those who believe in His divine manifestations and help us to extend knowledge of these great and marvelous occurrences to all who will listen. To these we say in a spirit of love, bring with you all that you have of good and truth which you have received from whatever source, and come and let us see if we may add to it. This invitation I extend to men and women everywhere with my solemn testimony that this work is true, for I know the truth of it by the power of the Holy Ghost. In the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Faith #Jesus_Christ #Joseph_Smith #Restoration

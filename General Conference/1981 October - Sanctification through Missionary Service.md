@@ -121,5 +121,4 @@ Thus the decree: Send forth the elders and preach my gospel to every kindred, to
 In the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

@@ -43,5 +43,4 @@ This individual is not a robot enslaved by adversity, nor need we be as we wisel
 With all the love of my heart, I extend an invitation to all to obtain a fulness of an understanding of the plan of happiness and exaltation provided by the Savior. I testify that this fulness is found in The Church of Jesus Christ of Latter-day Saints. I love you and ask you to seek that fulness, in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Joy

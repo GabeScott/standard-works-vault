@@ -67,5 +67,4 @@ We want to be your fellow travelers while you are en route back. Anxiously engag
 We love you. We know you, and we care for you. We are all God’s children, and for members in The Church of Jesus Christ of Latter-day Saints and their treasured associates, there need be no waiting period. Instead we will work together for self-worth and ultimate victory in righteous achievement. To these truths I leave my witness in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Compassion #Disciplinary_Councils #Fellowshipping #Love #Repentance #Responsibility

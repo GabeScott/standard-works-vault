@@ -41,5 +41,4 @@ We are proud to be one with you in moving forward this mighty work. We are all i
 “God be with you till we meet again” (*Hymns,* no. 152), my beloved associates. I have sung those simple words in a thousand places across the world since I began my ministry 39 years ago. I sing them again today with love and affection. God bless you, my dear friends, I ask in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #General_Conference #Spirituality #Testimony #Tithing

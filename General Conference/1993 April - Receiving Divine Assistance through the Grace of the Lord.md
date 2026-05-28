@@ -119,5 +119,4 @@ Let no trial or affliction, my brothers and sisters, ever separate us from the l
 May we “seek this Jesus of whom the prophets and apostles have written, that the grace of God the Father, and also the Lord Jesus Christ, and the Holy Ghost, which beareth record of them, may be and abide in \[us\] forever” ([[Ether 12.41|Ether 12:41]]). May the grace of God always be with you (see [[Romans 16.20|Rom. 16:20]]), I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Faith #Grace #Humility #Obedience #Repentance

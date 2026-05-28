@@ -147,5 +147,4 @@ The Lord has said to the members of his church regarding his prophet:
 May we give heed to the Prophet and follow him, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Joseph_Smith #Prophets #Restoration #Spirituality

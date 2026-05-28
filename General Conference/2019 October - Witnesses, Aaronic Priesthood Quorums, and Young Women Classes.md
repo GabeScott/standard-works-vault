@@ -39,3 +39,5 @@ The First Presidency and the Twelve are united in endorsing these efforts to str
 
 [^2]: “Hope of Israel,” *Hymns,* no. 259.
 
+
+#Baptism #Temples #Youth

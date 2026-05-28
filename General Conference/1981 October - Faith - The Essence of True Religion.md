@@ -109,5 +109,4 @@ To those who vacillate, who equivocate, who qualify their assertions with uncert
 My brethren and sisters, as we begin this great conference, I not only invoke the blessings of the Lord upon you but with certitude give you my witness of the truth. I know that God our Eternal Father lives. I know that. I know that Jesus is the Christ, the Savior and Redeemer of mankind, the author of our salvation. I know that this work of which we are a part is the work of God; that this is the Church of Jesus Christ. Great is our opportunity for service therein and strong and certain is our faith concerning it. In the name of Jesus Christ, amen.
 
 
-
-
+#Testimony

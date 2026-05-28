@@ -149,5 +149,4 @@ Jesus is a God of light and life, not a symbol of death and doubt. He lives, and
 Yes, today is Easter, and to us Easter means Christ—the resurrected Christ, the Son of God, our Creator and our Redeemer. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Jesus_Christ #Resurrection

@@ -97,3 +97,5 @@ I testify that the Savior lives! He will be with you. He will enable you. And in
 
 [^22]: [[D&C 84.88|Doctrine and Covenants 84:88]].
 
+
+#Atonement #Morality #Temples

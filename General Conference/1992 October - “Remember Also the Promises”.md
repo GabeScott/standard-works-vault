@@ -75,5 +75,4 @@ President Howard W. Hunter has said: “When we … read and study the scripture
 May we “remember also the promises.” I testify that the scriptures are the word of God. I love them. I testify that God lives. He is our Father. Jesus Christ is the Son of God. They appeared to the Prophet Joseph Smith just as he said they did. President Ezra Taft Benson is God’s prophet today. In the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Scriptures

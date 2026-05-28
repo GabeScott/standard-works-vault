@@ -75,5 +75,4 @@ If you truly have faith in God sufficient to impel you to keep his commandments,
 May we grow in faith through the love and blessing of our Lord and Savior. May we keep the commandments that he has given us, that we may ultimately find salvation and exaltation in his celestial kingdom, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Faith #Plan_Of_Salvation #Prayer

@@ -41,5 +41,4 @@ Demonstration of these principles of truth as taught in the scriptures and appli
 It is my witness that our kind and loving Heavenly Father has made special allowances for little children, consistent with their innocence and the eternal principle of agency. It is also my witness that he gave parents, and all adults, the responsibility of properly teaching and protecting them. Offenders of these little ones face a divine wrath. The Savior’s injunction to become as a little child is an invitation to purify our lives that we also may stand blameless before him. In the name of Jesus Christ, amen.
 
 
-
-
+#Children #Example #Family_Home_Evening #Parenthood #Primary #Satan

@@ -141,5 +141,4 @@ Jesus said, “If a man love me, he will keep my words: and my Father will love 
 This is the peace that can give each of us an inner tranquility when all about us is confusion. It is a peace that transcends all material things. That we might meet today’s challenges, thereby moving forward with confidence into tomorrow, is my humble prayer, in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Preparation #Welfare

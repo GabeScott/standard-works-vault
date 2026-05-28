@@ -17,5 +17,4 @@ Now, as we return to our homes and our vocational labors, may we remember and co
 God bless you, my beloved brothers and sisters. I leave my love and my testimony and my blessing with you and pray that the Lord will be with us each and every one until again we meet. May heaven’s blessings rest upon you, I humbly pray in the sacred and holy name of Jesus Christ, amen.
 
 
-
-
+#Faith #Family #Testimony

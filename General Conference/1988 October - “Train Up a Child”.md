@@ -77,5 +77,4 @@ Missions, Church universities, seminaries, and institutes do a tremendous job in
 May the Lord bless us with the desire to instill in the lives of our children a standard that will always be acceptable to the gospel of our Lord and Savior. I give you my witness that this is his work in which we are engaged, and I pray that we will be earnestly involved in bringing about an understanding in the hearts and souls of our children. This is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Parenthood #Responsibility

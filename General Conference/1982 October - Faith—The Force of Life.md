@@ -89,5 +89,4 @@ From my own experience with life’s hardships I have learned that faith in God 
 May each of us develop faith in God sufficient to fight the battles of life victoriously “with the strength of God; yea, … with \[His\] miraculous strength; and … mighty power.” ([[Alma 56.56|Alma 56:56]].) We will then find the happiness we so much desire in our lives. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Faith

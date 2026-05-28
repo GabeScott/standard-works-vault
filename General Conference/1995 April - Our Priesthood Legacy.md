@@ -67,5 +67,4 @@ Physically, Tom Yates was a slight man—under five feet eight inches in height 
 To such fathers of our families and fathers of our faith, to those who have lived lives of integrity whatever the cost, to generations in this and every dispensation who’ve faced fear and trials and, yes, death unflinchingly, I express gratitude from the bottom of my heart. I commend you young men for what must be your determination to live the gospel of Jesus Christ. I shoulder with you the responsibility placed on each one of us who bears the priesthood of God. I plead for each of us to remember that in the work of the Lord we must often turn our cheek but we must never turn our coat. I pledge with you my own determination to be true and faithful to the Lord Jesus Christ, whose church this is, even as I praise with you that legacy of loyalty given to us by those who have gone before, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Church_History #Gordon_B._Hinckley #Honesty #Howard_W._Hunter #Priesthood #Tithing

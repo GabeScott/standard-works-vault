@@ -33,5 +33,4 @@ I leave this testimony with you, and my blessing. I pray God to bless all who ar
 I leave this testimony and this message and this prayer with you, humbly, in the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work #Testimony

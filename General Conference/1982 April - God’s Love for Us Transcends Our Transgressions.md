@@ -73,5 +73,4 @@ God is our father; he loves us; his love is infinite and unconditional. His sorr
 I know of no greater inducement to repentance and reconciliation with our Father in Heaven than an awareness of his love for us personally and individually. That such awareness may increase within each of us is my prayer, to which I add my personal witness to you individually that Jesus of Nazareth is the Son of God, the Savior of all mankind, and the Redeemer of each of us individually, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Forgiveness

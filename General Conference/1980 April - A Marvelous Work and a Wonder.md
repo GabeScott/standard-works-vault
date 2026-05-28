@@ -78,5 +78,4 @@ My brothers and sisters, this work is true. Humbly I bear this witness to all th
 May God bless us all to be faithful and valiant, giving our first allegiance to God and His kingdom. In the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Spirituality

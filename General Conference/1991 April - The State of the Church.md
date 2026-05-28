@@ -143,5 +143,4 @@ We pray for all of you constantly. We are grateful for your prayers and confiden
 May the Lord smile with favor upon each of you. May each of us ever be grateful for His blessings and constantly strive to walk worthily before Him is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Tithing

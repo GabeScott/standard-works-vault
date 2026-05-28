@@ -47,5 +47,4 @@ As we seek Him and His Spirit to help us, we will see a miracle. We will recogni
 I love the Savior and testify of His redeeming power for me and you and for our children, in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Love #Safety

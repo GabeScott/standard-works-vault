@@ -137,5 +137,4 @@ This is the cane given to me. It serves as a silent witness of our Heavenly Fath
 Brethren of the priesthood, like the Charles Dickens character Philip Pirrip, we have great expectations. The goal of eternal life awaits. May we strive unflinchingly for its attainment. In the language of the young men assembled tonight, “Let’s go for it!” In the name of Jesus Christ, amen.
 
 
-
-
+#Dedication #Faith #Self-Esteem

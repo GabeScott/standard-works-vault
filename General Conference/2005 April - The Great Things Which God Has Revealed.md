@@ -123,5 +123,4 @@ He was truly a seer. He was a revelator. He was a prophet of the living God who 
 To this I add my solemn witness of the divinity of his calling, of the virtue of his life, and of the sealing of his testimony with his death, in the sacred name of our Redeemer, even the Lord Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Church_History #God_The_Father #Joseph_Smith #Priesthood

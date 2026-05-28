@@ -67,5 +67,4 @@ Relief Society sisters have always been known to *do* that which they have been 
 I pray that we may all become provident homemakers and help each other to perform his or her role in family preparedness effectively. I know that this is the desire of our Heavenly Father for us, his children, whom he loves. In the name of Jesus Christ. Amen.
 
 
-
-
+#Relief_Society #Self-Reliance #Women

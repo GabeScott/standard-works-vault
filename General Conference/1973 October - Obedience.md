@@ -139,5 +139,4 @@ Brethren, let us be obedient to the commandments of God. Let us prove faithful, 
 May we do this, as members of the Church of Jesus Christ, which we are, and follow the prophet of God who has been chosen and through whom the Lord speaks, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Commitment #Obedience #Priesthood

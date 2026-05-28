@@ -133,3 +133,5 @@ It is my prayer that patience will be a defining characteristic of we who hold t
 
 [^14]: See [[Psalms 40.1|Psalm 40:1–3]][[Psalms 40.2|]][[Psalms 40.3|]].
 
+
+#Faith #Patience #Priesthood

@@ -89,3 +89,5 @@ Of this solemn truth I testify. I declare that our Lord and Savior does live and
 
 [^1]: M. Louise Haskins, “The Gate of the Year.”
 
+
+#Family #Jesus_Christ #Service

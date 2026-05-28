@@ -49,5 +49,4 @@ I know the principles that we have discussed are true. They have been tested in 
 I testify that you have a Heavenly Father who loves you. I witness that the Savior gave His life for your happiness. I know Him. He understands your every need. I positively know that as you accept Their will without complaint, They will bless and sustain you. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Agency #Example #Jesus_Christ #Joy #Peace #Prayer #Repentance #Sin #Trust

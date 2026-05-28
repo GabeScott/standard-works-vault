@@ -99,5 +99,4 @@ Concerning the obligation of Church members to assist our bishops and branch pre
 That we may move forward to this consummation, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Bishops #Welfare

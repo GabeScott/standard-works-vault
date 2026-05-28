@@ -123,5 +123,4 @@ Thank you for what you have done. Many contributed far more than the value of tw
 You responded in a magnificent way in sharing of your plenty with those who are destitute. We can similarly respond to a score of other challenges we face as Latter-day Saints to move forward the work of God. On this Easter morning, when we remember Him who gave His life for each of us, let us resolve, individually, to walk in obedience to the teachings and commandments of our Savior and to deal with mercy, I humbly pray as I leave with you my testimony of the divinity of this work, in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Resurrection

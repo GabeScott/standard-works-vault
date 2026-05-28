@@ -41,5 +41,4 @@ And let thy preserving care be with all those who seek thy face and who walk bef
 And may thy Spirit be with us now and forever, I pray, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Gratitude #Testimony

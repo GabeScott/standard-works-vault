@@ -123,3 +123,5 @@ My dear brethren, may we diligently seek to learn the doctrine of the holy pries
 
 [^19]: [[Philippians 4.13|Philippians 4:13]].
 
+
+#Holy_Ghost #Priesthood #Service

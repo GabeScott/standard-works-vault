@@ -63,5 +63,4 @@ The inspiration of the First Presidency in bringing together in one organization
 I sustain the First Presidency and the Council of the Twelve with all my heart—and bear witness that they are in very deed prophets, seers, and revelators, in the name of Jesus Christ. Amen.
 
 
-
-
+#Communication #Languages

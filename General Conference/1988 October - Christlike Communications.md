@@ -43,5 +43,4 @@ The real challenge that we face in our communications with others is to conditio
 Christlike communications will help us to develop righteous relationships and ultimately to return to our heavenly home safely. May we treasure the divine gift of communication, and may we use it wisely to build and to assist others on this marvelous journey through mortality. May Heavenly Father bless us to this end, in the name of Jesus Christ, amen.
 
 
-
-
+#Accountability #Communication #Honesty

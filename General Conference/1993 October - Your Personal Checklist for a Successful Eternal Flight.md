@@ -53,5 +53,4 @@ The prophet has asked you young men to serve, the world desperately needs you to
 So there you have it: a checklist that can keep you flying in the right direction. A pilot must have the support of a skilled ground crew to succeed, and your parents, bishops, quorum leaders, and solid friends all will help support your flight through these key years of your life. A wonderful future is yours if you stick to your personal checklist. We pray for you, care about you, and stand by to help you. To these truths I testify in the name of our Savior, Jesus Christ, amen.
 
 
-
-
+#Preparation #Priesthood #Responsibility

@@ -135,3 +135,5 @@ May the Atonement of Jesus Christ cause a “mighty change” to be wrought in o
 
 [^23]: [[Jeremiah 31.33|Jeremiah 31:33]]; emphasis added.
 
+
+#Atonement #Faith #Jesus_Christ

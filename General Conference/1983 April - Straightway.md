@@ -111,5 +111,4 @@ A man must rise by his own efforts and walk by faith. One of our greatest resour
 The gospel of Jesus Christ is true. Jesus Christ is our Redeemer and Savior. Happiness and eternal life are available to those who will follow Him straightway. To these truths I leave my witness and testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Repentance #Self-Control #Time_Management

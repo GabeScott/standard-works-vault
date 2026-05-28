@@ -61,5 +61,4 @@ Enduring to the end is definitely not a do-it-yourself project. First, it requir
 I love the gospel of Jesus Christ, for it defines the way we can partake of the fruits of the gospel, experience the “exceedingly great joy” ([[1 Nephi 8.12|1 Nephi 8:12]]) that only it can bring, and endure to the end through all of the challenges of mortal life. The gospel teaches us all we need to know to return to live with our Father in Heaven as resurrected and glorified beings. May all of us maintain in our minds the vision of eternal life. May we be diligent in following the recipe for eternal life that is the gospel of Jesus Christ. May we endure to the end. In the name of Jesus Christ, amen.
 
 
-
-
+#Endurance #Ordinances #Plan_Of_Salvation #Repentance

@@ -87,5 +87,4 @@ Jesus Christ heads this Church. President Gordon B. Hinckley is His chosen proph
 May we have the courage and the conviction to follow the prophet’s counsel. As we do so, our personal testimonies will be secure. That this may be so I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Prayer #Scripture_Study #Testimony

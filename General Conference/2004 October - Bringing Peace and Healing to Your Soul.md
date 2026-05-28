@@ -67,5 +67,4 @@ Their testimonies serve to strengthen our faith. Please listen to their words an
 It is my personal witness that the Spirit of the Lord is real and unmistakable. I testify that the Father and the Son are knowable and love you. I feel that love through the power of the Spirit. Of these truths I testify in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Conversion #Healing #Peace

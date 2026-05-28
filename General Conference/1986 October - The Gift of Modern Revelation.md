@@ -67,5 +67,4 @@ Do we, as Saints of the Most High God, treasure the word He has preserved for us
 My beloved brothers and sisters, I bear my solemn witness that these books contain the mind and the will of the Lord for us in these days of trial and tribulation. They stand with the Bible to give witness of the Lord and His work. These books contain the voice of the Lord to us in these latter days. May we turn to them with full purpose of heart and use them in the way the Lord wishes them to be used, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Scriptures #Spirituality

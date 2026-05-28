@@ -41,5 +41,4 @@ My desire is to be worthy to have this everlasting life with Jesus Christ and ou
 I bear witness that Jesus Christ is the Only Begotten Son of God, our Lord and Savior. At this special time, as we remember His Resurrection, I express my deep gratitude for Him and for His Atonement, and I do so in His name, even Jesus Christ, amen.
 
 
-
-
+#Atonement #Gratitude #Jesus_Christ #Kingdom_Of_God #Repentance #Resurrection #Service

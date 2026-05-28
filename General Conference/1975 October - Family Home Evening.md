@@ -75,5 +75,4 @@ President Kimball stated, “These recognitions from government, state, and city
 I bear you my solemn witness, my brothers and sisters, that this is the work of the Lord, that these Brethren who instituted the family home evening program were greatly inspired. I see as well the great inspiration given to those who prepare the Family Home Evening Manual. I leave this testimony with you in the name of Jesus Christ. Amen.
 
 
-
-
+#Family_Home_Evening

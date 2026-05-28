@@ -95,5 +95,4 @@ There will be times, as there were in the days of Kirtland, when we will need th
 I bear you my solemn and yet joyful witness that the Lord Jesus Christ is at the helm. He leads His Church and His servants. I bear witness that Thomas S. Monson is the only man who holds and exercises all the keys of the holy priesthood on earth at this time. And I pray blessings on all the humble servants who serve so willingly and well in the restored Church of Jesus Christ, which He leads personally. I testify that Joseph Smith saw God the Father and Jesus Christ. They spoke to him. The keys of the priesthood were restored for the blessing of all of Heavenly Father’s children. It is our mission and our trust to serve in our place in the Lord’s cause. In the name of Jesus Christ, amen.
 
 
-
-
+#Bishops #Church_Callings #Church_Leadership #Faith #Jesus_Christ #Revelation

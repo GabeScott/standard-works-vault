@@ -39,5 +39,4 @@ For many years, we knew and admired a couple who on the face of it seemed happy 
 How much better it is to follow the admonitions of the Savior, to speak with kindness and love and to create in our homes havens from the turmoil of the world, which is constantly stirred up by the intrigue of our common enemy. And how much better it is to emphasize and to focus on positive rather than negative things so as to build up and to protect each other and to minimize the opportunity for the intrusion of satanic influences in our lives, which I pray we may all do in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Love #Prayer #Spirituality

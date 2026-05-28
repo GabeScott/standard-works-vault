@@ -93,5 +93,4 @@ This morning we have given you what the Lord has said. We may use our agency as 
 I testify of the truth of these teachings and of the reality of the one who is the author, in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Family

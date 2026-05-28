@@ -31,5 +31,4 @@ It has been my privilege to know of the power and strength of the Brethren who s
 To this solemn and sacred trust, I commit all of my energies and my efforts. I rejoice in the opportunity to be a part of this great work, and bear my testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Youth

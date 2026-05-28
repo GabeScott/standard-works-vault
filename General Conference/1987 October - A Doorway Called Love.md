@@ -158,5 +158,4 @@ From Bethlehem there seemed to echo the words:
 The wondrous gift was given, the heavenly blessing was received, the dear Christ had entered in—all through the doorway called love. I declare this solemn truth in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Love

@@ -69,5 +69,4 @@ Parents have the sacred duty to teach their children regarding *things pertainin
 This can be achieved more effectively if revelation is facilitated during the teaching process, thus creating in the people the desire to be enlightened by the Spirit of God. Then as they exercise faith, the Spirit can make known to them the *things pertaining unto righteousness.* Of these things I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Parents #Scriptures #Teaching

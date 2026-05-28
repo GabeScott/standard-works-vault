@@ -79,5 +79,4 @@ Please, don’t suffer more. Ask now for the Lord to help you (see [[Mormon 9.27
 In the name of Jesus Christ, amen.
 
 
-
-
+#Abuse #Forgiveness #Healing

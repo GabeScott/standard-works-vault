@@ -79,5 +79,4 @@ It is well, then, for you to think of your families and how you can have your in
 May God bless you to choose well, for I testify to you that God lives and that his priesthood power is on this earth, by means of which you can obtain your exaltation in his kingdom as his covenant sons and daughters through full obedience to his law. This I testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Plan_Of_Salvation

@@ -169,3 +169,5 @@ That pronouncement is a contemporary confirmation of the Prophet Joseph’s earl
 
 [^25]: “Church Exhorts Ethnic, Religious Tolerance,” *Church News,* 24 Oct. 1992, p. 4.
 
+
+#Children #Commandments #God_The_Father #Love #Missionary_Work #Neighbors #Temples #Tolerance #Truth

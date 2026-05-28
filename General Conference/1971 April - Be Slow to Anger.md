@@ -81,5 +81,4 @@ I agree that this is not naturally easy to do, but, my brothers and sisters, we 
 If we will do this, we will be more greatly blessed as individuals and our homes will reflect the sweet spirit of love and harmony and peace. To this I testify, and pray for the help of the Lord in bringing this about, in the name of the Lord, Jesus Christ. Amen.
 
 
-
-
+#Anger #Forgiveness

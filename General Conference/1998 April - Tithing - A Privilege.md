@@ -73,5 +73,4 @@ As one of those Church members, I add my own testimony. The blessings from livin
 Finally, and most importantly, I testify that I know that God lives, is our Father, and loves us. Jesus of Nazareth is the Son of God and our Savior and Redeemer. Today we are led by a living prophet, Gordon B. Hinckley. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Blessings #Obedience #Sacrifice #Temples #Tithing

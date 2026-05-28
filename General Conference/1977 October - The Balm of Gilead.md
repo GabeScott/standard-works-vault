@@ -183,5 +183,4 @@ Consider this:
 I bear witness of Him who is the Great Comforter and as one authorized to bear that witness testify that He lives. In the name of Jesus Christ, amen.
 
 
-
-
+#Evil #Forgiveness #Healing

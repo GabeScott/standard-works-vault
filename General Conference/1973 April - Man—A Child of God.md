@@ -167,5 +167,4 @@ And finally, with Nephi he resolves:
 I add my personal testimony that I know that I am a son of God, and that you, my beloved listeners, are individually a son or a daughter of God, and that this knowledge implemented in our lives will lift us back into his presence through the atoning sacrifice of our Savior, Jesus Christ; and in his name I leave you this witness, even so. Amen.
 
 
-
-
+#Plan_Of_Salvation

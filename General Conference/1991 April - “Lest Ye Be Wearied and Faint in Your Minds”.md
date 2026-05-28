@@ -89,5 +89,4 @@ No part of walking by faith is more difficult than walking the road of repentanc
 Growing out of our faith in the Lord is our sustaining of His anointed leaders, as we have done at this April conference. Faithful Church members have what Peter called an “unfeigned love of the brethren” ([[1 Peter 1.22|1 Pet. 1:22]]). Collectively but not perfectly, those sustained do the work to which God has called them. As with Joseph Smith, so it is for his succeeding Brethren. The operative promise persists: namely, the people of the Church will never be turned away “by the testimony of traitors” ([[D&C 122.3|D&C 122:3]]). But the faithful know something about divine determination. They know that the Lord’s purposes will finally triumph, for “there is nothing that the Lord thy God shall take in his heart to do but what he will do it” ([[Abraham 3.17|Abr. 3:17]]). Of that divine determination and divine love I gladly and publicly testify in the holy name of Jesus Christ, amen.
 
 
-
-
+#Endurance #Faith #Jesus_Christ #Service

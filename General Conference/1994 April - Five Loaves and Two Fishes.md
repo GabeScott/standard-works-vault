@@ -63,5 +63,4 @@ I mention the good coming from this tragic event with Jeralee’s parents’ ful
 I testify that the gospel we teach is the “power of God unto salvation” for all who listen and obey ([[Romans 1.16|Rom. 1:16]]), regardless of their talents and abilities, in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Church_Organization #Education #God_The_Father #Love #Plan_Of_Salvation #Pride #Service #Talents

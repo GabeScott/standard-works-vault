@@ -99,5 +99,4 @@ I testify that He does live! He is our Father! He loves His children! I also tes
 In the name of Jesus Christ, amen.
 
 
-
-
+#Love #Priorities

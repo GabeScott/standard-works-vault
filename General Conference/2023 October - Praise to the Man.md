@@ -57,5 +57,4 @@ May our Heavenly Father watch over us now and bless all the proceedings of the c
 I leave you my witness and testimony that I know that Jesus is the Christ. He is our Savior, our Redeemer. He is our best friend. In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #First_Vision #Jesus_Christ #Joseph_Smith #Restoration

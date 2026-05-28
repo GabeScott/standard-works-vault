@@ -85,5 +85,4 @@ Said one of the leaders of our nation as he left the Washington Temple the other
 There can be many more such symbols than the temple in Washington and even more impressive ones. Beginning with you and me, there can be an entire people who by the virtue of our lives in our homes, in our vocations, even in our amusements, can become as a city upon a hill to which men may look and learn, and an ensign to the nations from which the people of the earth may gather strength. I bear witness of him who is our living God. I bear testimony of him who is our Savior and Redeemer. I bear witness of the truth of this, their work, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Example #Standards

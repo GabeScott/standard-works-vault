@@ -105,3 +105,5 @@ I testify our Father will always answer your prayers in the way and in the time 
 
 [^13]: [[D&C 59.21|D&C 59:21]].
 
+
+#Faith #God_The_Father #Peace #Prayer

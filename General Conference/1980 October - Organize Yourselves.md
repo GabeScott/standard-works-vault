@@ -45,5 +45,4 @@ In well-ordered homes we must keep bright the spark of testimony and build faith
 May we make our homes havens of peace and happiness where all enjoy being together—and like Nephi’s people live after a manner of happiness—is my prayer, and I ask it in the name of Jesus Christ, amen.
 
 
-
-
+#Home #Relief_Society

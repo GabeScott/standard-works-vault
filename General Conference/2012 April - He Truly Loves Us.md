@@ -51,5 +51,4 @@ Both modern and ancient scripture are full of reminders of Heavenly Father’s e
 Because of the heaven-designed pattern of the family, we more fully understand how our Heavenly Father truly loves each of us equally and fully. I testify that it is true. God does know and love us. He has given us a vision of His holy place and called prophets and apostles to teach the principles and the patterns that will bring us back to Him. As we strive to awaken the desire to know in ourselves and in others and as we live the patterns we discover, we will be drawn toward Him. I testify that Jesus is the very Son of God, our Exemplar, our beloved Redeemer, which I express in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Love #Missionary_Work

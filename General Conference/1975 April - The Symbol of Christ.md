@@ -117,5 +117,4 @@ It is that simple, my brethren and sisters, and that profound and we’d better 
 In the name of Jesus Christ. Amen.
 
 
-
-
+#Atonement #Jesus_Christ #Resurrection #Spirituality

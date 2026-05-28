@@ -71,5 +71,4 @@ I do see great wisdom in the practices and performances which we encourage paren
 I thank God for my wife and my children; they make life so very meaningful. I thank God for the restored Church and living prophets who have provided me inspired programs for the benefit of those around me. And I’m grateful for the gospel which comes from the fountain of living waters—even Jesus Christ. But I pray humbly that I will be blessed not to confuse means and ends or become confused with performances at the expense of the spirit underlying all commandments. May our interviews, our prayers, our communications with our children be sanctifying and free of dryness and “dead men’s bones,” I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Parenthood

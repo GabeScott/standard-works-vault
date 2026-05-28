@@ -63,5 +63,4 @@ Dear brethren of the priesthood, those who are entrusted as keepers of the Lordâ
 I leave my witness that this is Godâ€™s work. It is the most important work in all the world in which we can be engaged. That we will be instruments in His hands in saving the precious lambs for which He gave His life, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Media #Priesthood #Service

@@ -25,5 +25,4 @@ I am so humbled and so grateful for the calling that has come to me and for the 
 May we all have the desire to accomplish this so there will be no one that will be able to say, as is recorded in Psalms, “I looked on my right hand, and beheld, but there was no man that would know me: refuge failed me; no man cared for my soul.” ([[Psalms 142.4|142:4]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

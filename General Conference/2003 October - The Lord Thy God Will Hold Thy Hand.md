@@ -89,5 +89,4 @@ I testify of Jesus Christ, our Redeemer and living Savior.
 I testify that He lives and extends His loving hand to each of us. In the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Jesus_Christ #Plan_Of_Salvation #Prayer #Trust

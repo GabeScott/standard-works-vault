@@ -129,3 +129,5 @@ God is our Father. We are His children. He loves us. He desires our happiness he
 
 [^19]: [[Ether 12.4|Ether 12:4]].
 
+
+#Adversity #Attitude #Faith #Hope #Love #Peace #Repentance

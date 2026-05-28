@@ -69,5 +69,4 @@ The other night I was flying home from a distant conference. I had been away onl
 You remember what President Kimball said: “Prevention is far better than redemption.” God grant us the wisdom to know that life is a great journey, and may we have the sense to enjoy it. I bear witness to these truths in the holy name of Jesus Christ. Amen.
 
 
-
-
+#Family #Love

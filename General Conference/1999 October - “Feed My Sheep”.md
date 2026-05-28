@@ -132,5 +132,4 @@ In conclusion, a final word to those who shepherd the flock. The Savior Himself 
 The Good Shepherd willingly gave His life for His sheep, for you and me—yes, for all of us, that we might live eternally with our Father in Heaven. I pray that we will all follow the admonition our Savior Jesus Christ gave to Peter three times: “Feed my lambs. … Feed my sheep. … Feed my sheep” ([[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Children #Commitment #Fellowshipping #Individual_Worth #Love #Parenthood #Teaching #Testimony #Youth

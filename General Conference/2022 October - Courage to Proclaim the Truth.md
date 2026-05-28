@@ -61,5 +61,4 @@ Hold on to the truth, learning from the sources of truth:
 I bear my testimony of Jesus Christ and that this is His Church. We have a living prophet, and we will always feel free when we proclaim the truth with courage. In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Courage #Discipleship #Missionary_Work #Truth

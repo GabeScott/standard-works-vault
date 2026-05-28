@@ -77,5 +77,4 @@ I want to thank my sweetheart and companion for her love. I was once told by the
 I bear you my testimony that God lives and that Jesus is the Christ. Of this I have no doubt. Of this I have never had a doubt since I was a young boy. I testify that the men who are seated here upon this stand—The First Presidency, the Quorum of the Twelve—are prophets, seers, and revelators. I testify that a prophet of God is among us, even President Spencer W. Kimball, who in his enduring to the end is an example for all of us. That we may watch and be guided by his actions and his love is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Endurance

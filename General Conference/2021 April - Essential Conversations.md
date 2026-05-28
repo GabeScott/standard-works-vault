@@ -137,3 +137,5 @@ I testify that He is always the answer. In the sacred name of Jesus Christ, amen
 
 [^20]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
+
+#Children #Faith #Gospel #Teaching

@@ -79,5 +79,4 @@ President Kimball said: “Suffering can make saints of people as they learn pat
 May we endure our trials and sufferings well. May we look to the Lord with faith in his righteous judgment is my prayer, and I ask it humbly in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Blessings

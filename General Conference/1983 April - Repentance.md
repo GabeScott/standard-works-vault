@@ -127,5 +127,4 @@ Most important of all, he learned that repentance is an indispensable counterpar
 By repenting, my young friend became a new person. He was born again of the Spirit. He came to understand for himself, and that is the important thing, the meaning of the Savior’s words: “Come unto me, all ye that labour and are heavy laden, and I will give you rest.” ([[Matthew 11.28|Matt. 11:28]].) I so testify, in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Forgiveness #Repentance

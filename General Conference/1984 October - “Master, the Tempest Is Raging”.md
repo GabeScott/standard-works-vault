@@ -108,5 +108,4 @@ One of the wisest of the ancient Romans once spoke a great gospel truth and prob
 “Whether the wrath of the storm-tossed sea or demons or men or whatever it be, no waters can swallow the ship where lies the Master of ocean and earth and skies. They all shall sweetly obey \[his\] will. Peace, be still!” In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Faith #Opposition

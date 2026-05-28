@@ -123,5 +123,4 @@ In the study of the Atonement, most of us have probably asked the question, “W
 It is my prayer that our sorrow and suffering will strengthen our faith in the Lord Jesus Christ, that our sorrow shall be turned to joy, in the name of Jesus Christ, amen.
 
 
-
-
+#Forgiveness

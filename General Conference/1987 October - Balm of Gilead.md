@@ -159,5 +159,4 @@ The Lord said, “Peace I leave with you, my peace I give unto you: not as the w
 I bear witness of Him who is that comfort, in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Forgiveness #Repentance

@@ -69,5 +69,4 @@ You will be interested to know that June Conference is not an auxiliary conferen
 Never has the Lord blessed the earth with a finer generation of youth, nor has there ever been a time when Satan has been more active in influencing the lives of our people. I pray the stake presidencies, bishoprics, and all leaders of youth will sense the urgency of the needs and the lateness of the hour, that we may be magnified and made equal to our responsibilities, that through our love of youth and dedicated leadership, all young men and women in our stakes, wards, and branches may taste the sweetness of the gospel of Jesus Christ and draw close to him in this life so they will be worthy to be with him in the life to come. In the name of Jesus Christ. Amen.
 
 
-
-
+#Priesthood #Youth

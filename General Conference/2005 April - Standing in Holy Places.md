@@ -75,3 +75,5 @@ As President Brigham Young taught, “Every moment of \[our lives\] must be holi
 
 [^12]: [[Helaman 10.5|Helaman 10:5]].
 
+
+#Home #Obedience #Peace #Temple_Work

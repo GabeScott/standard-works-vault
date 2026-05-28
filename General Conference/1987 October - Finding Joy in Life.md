@@ -111,5 +111,4 @@ Near the end of his life, having experienced years of trial, almost beyond our a
 May we take joy in our faith, even our knowledge, that Jesus is the Christ, the Son of the living God, I say in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Joy

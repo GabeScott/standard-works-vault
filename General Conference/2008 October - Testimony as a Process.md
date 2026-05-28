@@ -47,5 +47,4 @@ I testify that the Church of Jesus Christ was restored in these latter days by t
 The Book of Mormon is the word of God, as well as the Bible, and it is another testimony of the Savior. I know that the power of the priesthood was restored and has been blessing many Saints throughout the world. And I testify of this in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Testimony

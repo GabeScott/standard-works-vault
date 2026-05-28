@@ -45,5 +45,4 @@ It remains only for you and me to both *seek* and *tender* that forgiveness—to
 My pilgrimage back in time completed, I looked around upon those peaceful fields of Today and saw in their fertility the promise of Tomorrow. I thought of my friend Sergeant Arthur Cyrus Morris. I thought of that fateful Palm Sunday of Yesterday. And I was profoundly grateful for the Redeemer of Easter morning, who grants us life, whose descent below all things makes possible our rising above all things—Tomorrow, if we but seize Today. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Mercy #Repentance

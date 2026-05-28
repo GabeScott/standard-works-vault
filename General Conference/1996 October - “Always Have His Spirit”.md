@@ -67,5 +67,4 @@ To those brothers and sisters who may have allowed themselves to become lax in t
 Any who may have thought it a small thing to partake of the sacrament should remember the Lord’s declaration that the foundation of a great work is laid by small things, for “out of small things proceedeth that which is great” ([[D&C 64.33|D&C 64:33]]). Out of the seemingly small act of consciously and reverently renewing our baptismal covenants comes a renewal of the blessings of baptism by water and by the Spirit, that we may always have His Spirit to be with us. In this way all of us will be guided, and in this way all of us can be cleansed. That we may qualify for these precious blessings is my humble prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #Holy_Ghost #Prayer #Repentance #Sacrament

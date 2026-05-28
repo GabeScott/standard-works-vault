@@ -75,5 +75,4 @@ A few weeks ago my father also passed away, and now more than ever I feel thankf
 Because family life can continue beyond the thresholds of death. Because the royal priesthood has been restored upon the earth. And because the Spirit has spoken to my spirit, giving me a testimony that my Savior Jesus Christ lives and that through His intercession I shall be able, in accordance to my faithfulness, to live with Him. For these reasons and others still, I am a member of the only true Church upon the face of the earth, and I shall be eternally grateful for this. In the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood #Temples #Testimony

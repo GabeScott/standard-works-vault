@@ -97,5 +97,4 @@ We have spoken about loving desire, heavenly guidance, and ways we can proceed w
 I testify of Jesus Christ, our Savior, and of His desire that we join wholeheartedly in this, His work, in the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Love #Missionary_Work #Prayer #Preparation #Prophets #Teaching

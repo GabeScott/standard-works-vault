@@ -100,5 +100,4 @@ My sisters of Relief Society, we are the bearers of the balm of Gilead. May your
 I leave you with my testimony that God lives, that Jesus Christ is his Son, and that his gospel has been restored in these latter days. In the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Family #Home #Individual_Worth #Peace #Relief_Society #Women

@@ -125,3 +125,5 @@ Even if you are unsure, I witness that we can withstand the heat of the latter d
 
 [^29]: See [[1 Nephi 22.20|1 Nephi 22:20–21]][[1 Nephi 22.21|]]; see also [[3 Nephi 20.23|3 Nephi 20:23]].
 
+
+#Last_Days #Obedience #Prophets #Russell_M._Nelson

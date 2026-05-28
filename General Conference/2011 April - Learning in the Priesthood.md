@@ -117,3 +117,5 @@ I testify that the keys of the priesthood have been restored. President Thomas S
 
 [^5]: [[D&C 138.56|Doctrine and Covenants 138:56]].
 
+
+#Duty #Leadership #Priesthood #Service

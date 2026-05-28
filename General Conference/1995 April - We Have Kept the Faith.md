@@ -61,5 +61,4 @@ Someday our journey here on the earth will end, and we will return to the presen
 May the Lord bless us to continue being valiant, humble, and faithful. In the name of Jesus Christ, amen.
 
 
-
-
+#Endurance #Faith #Humility #Prayer #Priesthood #Scripture_Study #Trust

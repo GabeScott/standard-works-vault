@@ -45,5 +45,4 @@ The words of Christ will profoundly touch hearts and open the eyes of those who 
 In conclusion, I bear testimony that feasting upon the words of Christ can happen at any time and on any occasion if we prepare our hearts to receive them. Feasting upon the words of Christ will bring life-sustaining revelation, reaffirm our true identity and worth before God as His child, and lead our friends unto Christ and everlasting life. Let me end by echoing the invitation of Nephi when he said: “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Scriptures

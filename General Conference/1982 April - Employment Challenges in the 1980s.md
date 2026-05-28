@@ -59,5 +59,4 @@ This program is one which can be applied in most countries. Obviously, nothing s
 May we be committed and involved in this modern-day response to the Savior’s command, “Love one another; as I have loved you” ([[John 13.34|John 13:34]]), I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Employment #Welfare

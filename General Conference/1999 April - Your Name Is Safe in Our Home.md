@@ -67,5 +67,4 @@ I pray that the Lord will bless each of us that we may never cross over the line
 On this special Easter Day, I close with my solemn declaration, born of the Spirit, that Jesus Christ is indeed our Savior and our Redeemer and that salvation comes by and through His atoning sacrifice and in no other way. In the name of Jesus Christ, amen.
 
 
-
-
+#Communication #Criticism #Evil #Love

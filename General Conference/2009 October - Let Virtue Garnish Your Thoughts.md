@@ -45,5 +45,4 @@ Now is the time for us to join in rescuing and preserving that which is “virtu
 I testify and declare that our Heavenly Father expects His children to exercise integrity, civility, fidelity, charity, generosity, morality, and all the “ity” virtues. May we have the *humility* to take the *opportunity* to act upon our *responsibility* to demonstrate our *ability* to do so, I pray in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Character #Example #Honesty #Virtue

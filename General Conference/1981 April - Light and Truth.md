@@ -79,5 +79,4 @@ To summarize then, light and truth is, simply, pure intelligence.
 Now, there are those who believe that this is just another church. There are even some members within the Church who regard the restored gospel as just another religious philosophy. As one of the especial witnesses, I testify to you in all earnestness that this Church was divinely founded. It is not just another church. It is *the* Church of Jesus Christ. The gospel doctrine it teaches is the divine word of God. It is light. It is truth. To ignore it or treat it as just another religious philosophy is one of the greatest mistakes a person can make. This doctrine I bear to you is the light and truth I have received to strengthen my own witness, in the name of Jesus Christ, amen.
 
 
-
-
+#Truth

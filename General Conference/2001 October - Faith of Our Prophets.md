@@ -53,5 +53,4 @@ So what we need is the faith of Brigham Young and the faith of Gordon B. Hinckle
 God lives. I know He’s real, that He is our Father, and I know that He loves us. I know that. And I know that Jesus is the Christ, the Son of God. I have felt of that influence. I’m a witness to it. I know that the Prophet Joseph Smith and all of the historical accounts we have of what he did as the instrument of the Restoration are true and that the prophets down through the years and including President Hinckley are called of God. The work is true. I leave you my love, my witness, and my testimony that burns in my heart. All the days of my life I hope to be able to tell somebody and help somebody understand that this work is true, in the name of Jesus Christ, amen.
 
 
-
-
+#Brigham_Young #Church_History #Faith #Leadership

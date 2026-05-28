@@ -55,5 +55,4 @@ Anytime we lift someone else we are in essence creating places of security for t
 I want you to know of my knowledge that our Father in Heaven is real. He lives and He loves us beyond our ability to understand. He sent His Son, Jesus Christ, to atone for our sins. Through Joseph Smith, He restored the true gospel to the earth. He guides and directs our prophet today. Let us be like Captain Moroni in using all available resources to protect that which is precious to us and to our Heavenly Father. That we might do so with wisdom, devotion, and renewed commitment is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Children #Commandments #Example #Motherhood #Ordinances #Parenthood #Peace #Prayer #Safety #Women

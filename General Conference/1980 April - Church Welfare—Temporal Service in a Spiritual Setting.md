@@ -87,5 +87,4 @@ While we have made great strides in the program since that day, the principle st
 It is my prayer that each and every one of us will learn and apply these fundamental principles of welfare services and gain thereby the promised reward, in the name of Jesus Christ, amen.
 
 
-
-
+#Welfare

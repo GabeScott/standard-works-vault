@@ -81,5 +81,4 @@ When Jesus prayed to his father in humility, faith, and obedience for others, hi
 He is your Father; pray to him. If your life is in disarray and you feel uncomfortable and unworthy to pray because you are not clean, don’t worry. He already knows about all of that. He is waiting for you to kneel in humility and take the first few steps. Pray for strength. Pray for others to be led to support you and guide you and lift you. Pray that the love of the Savior will pour into your heart. Pray that the miracle of the Atonement will bring forgiveness because you are willing to change. I know that those prayers will be answered, for God loves you. His Son gave his life for you. I know they will help you. In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Jesus_Christ

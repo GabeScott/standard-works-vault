@@ -87,3 +87,5 @@ God bless you goodly mothers and fathers in Zion. He has entrusted to your care 
 
 [^3]: “The Family: A Proclamation to the World,” *Liahona* and *Ensign,* Nov. 2010, 129.
 
+
+#Family #Marriage #Parenthood

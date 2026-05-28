@@ -69,5 +69,4 @@ Back in 1948 at the October general conference, President George Albert Smith sa
 Brothers and sisters, may we also remember this as we leave conference today. Let our testimonies of Him be heard and our love for Him always be in our hearts, I humbly pray in His name, the Lord Jesus Christ, amen.
 
 
-
-
+#Christianity #Church_Membership #Jesus_Christ #Missionary_Work

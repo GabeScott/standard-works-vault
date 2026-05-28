@@ -75,5 +75,4 @@ Another “home front” soldier for the Lord is a taxi driver. In his cab hangs
 Yes, “the same spirit animates the whole” today among the members of the Church as they go forth in the greater cause of the Lord. What a thrilling time to be here in the earth! As we see the work rolling forth, may each of us become a part of its progress. May we answer the call as valiantly as did those who are responsible for the rich heritage we enjoy. Through courageous, faithful service may we bring forth a fruitful harvest from the seeds planted in the vineyard of the Lord. I testify that this is the kingdom of God on earth and that his chief steward and our prophet is Spencer W. Kimball. In the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work #Sacrifice

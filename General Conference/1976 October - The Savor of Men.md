@@ -123,5 +123,4 @@ And again Lincoln said: “Remember to call upon and confide in our great and go
 May we have sufficient common sense to trust and obey the Lord our God! It is the only way to security, both for nations and for individuals. To this I testify, in the sacred name of Jesus Christ. Amen.
 
 
-
-
+#Government #Heroes #Obedience

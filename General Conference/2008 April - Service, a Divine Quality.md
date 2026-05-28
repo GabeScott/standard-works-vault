@@ -89,5 +89,4 @@ In the Church there are tens of thousands of members who selflessly serve in mor
 Because of His doctrine and His service, the restored Church of Jesus Christ is constantly blessing the lives of its members. We thank God for all of you faithful Saints who have felt the joy of service, who feel it now, and who will feel this joy as you serve others. We pray that God always will bless you for it. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Jesus_Christ #Service

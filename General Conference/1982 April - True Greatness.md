@@ -53,5 +53,4 @@ As President Joseph F. Smith has said, “Let us not be trying to substitute an 
 That we may never be discouraged in doing those daily tasks which God has ordained to the common lot of man is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Endurance #Heroes #Success

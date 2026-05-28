@@ -151,3 +151,5 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^40]: [[Mosiah 2.41|Mosiah 2:41]].
 
+
+#Covenants #House_Of_Israel #Obedience #Priesthood

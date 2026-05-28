@@ -69,5 +69,4 @@ We must not judge the people. We do not know who God has prepared, but we do kno
 God bless that *all*—all—who may be able to serve will make themselves available for a mission call. The blessings are sure, I know, in the name of Jesus Christ. Amen.
 
 
-
-
+#Activation #Conversion #Missionary_Work

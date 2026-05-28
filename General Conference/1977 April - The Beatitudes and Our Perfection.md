@@ -77,5 +77,4 @@ The prophet Nephi, referring to the Savior, said, “He inviteth them all to com
 To all men everywhere we reiterate that invitation to come unto the Savior the way he has outlined, partake of his goodness, “and enjoy the words of eternal life in this world, and eternal life in the world to come, even immortal glory” ([[Moses 6.59|Moses 6:59]]), “which gift is the greatest of all the gifts of God” ([[D&C 14.7|D&C 14:7]]). In the name of Jesus Christ, amen.
 
 
-
-
+#New_Testament #Plan_Of_Salvation

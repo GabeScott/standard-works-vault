@@ -77,5 +77,4 @@ Brethren, life is not intended to be easy, but I promise those that labor faithf
 I leave you with my testimony of the truthfulness of the gospel of the Lord Jesus Christ and my testimony of the blessings which accompany unselfish service and hard work that is done in his holy name, and I say it in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Missionary_Work #Service

@@ -43,5 +43,4 @@ As the supernal nature of our life begins to be understood and experienced, we d
 Humbled by the responsibility but joyous in the opportunity to preach the gospel and bear witness in all the world, I affirm my knowledge of eternal truths and everlasting culture. I testify of 15 men with prophetic calling and apostolic authority and one among them, even President Gordon B. Hinckley, who presides with dignity, vision, and a clear sense of righteous tradition. Of most significance, I testify of the Savior and Redeemer of mankind, of His Church, and of His atoning love, in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Covenants #Home #Love #Marriage #Obedience #Ordinances #Standards #Truth #Unity #Youth

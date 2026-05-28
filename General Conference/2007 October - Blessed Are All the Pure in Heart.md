@@ -45,5 +45,4 @@ If you are already caught in the pornography trap, now is the time to free yours
 May God bless our genuine efforts to be pure of heart and mind, that “virtue \[may\] garnish \[our\] thoughts unceasingly” ([[D&C 121.45|D&C 121:45]]). I testify of the redeeming love of the Savior and of the purifying power of His Atonement in the name of Jesus Christ, amen.
 
 
-
-
+#Media #Morality #Temptation

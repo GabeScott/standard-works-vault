@@ -137,3 +137,5 @@ Brethren, to all mankind we proclaim these everlasting truths: “The Melchizede
 
 [^10]: *History of the Church,* 2:177.
 
+
+#Leadership #Priesthood #Respect

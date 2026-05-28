@@ -53,5 +53,4 @@ These are essential truths which our leaders are reinforcing for us today. These
 At the same time, our obedience to them preserves for us the elements of life which make individual progress possible. They make life purposeful and full of promise. They lead to eternal progress. Humanity cannot fulfill its destiny when these truths are disregarded and abused. I cherish them with all my soul and am unreservedly committed to their promulgation among all the peoples of the earth. In the name of Jesus Christ, amen.
 
 
-
-
+#Accountability #Agency

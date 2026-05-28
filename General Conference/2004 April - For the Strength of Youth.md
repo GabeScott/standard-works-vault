@@ -111,3 +111,5 @@ May you be blessed as you keep the standards of the Church. In the name of Jesus
 
 [^9]: [[D&C 45.32|D&C 45:32]].
 
+
+#Endurance #Standards #Youth

@@ -132,5 +132,4 @@ From long experience, His sheep know His voice and His doctrine. Meanwhile, the 
 May we so believe, so trust, so submit, and so behave, I pray in the name of Him who is the “Lord of the narrow gate and the needle’s eye” (C. S. Lewis, *At the Breakfast Table,* p. xxv), even Jesus Christ, amen.
 
 
-
-
+#Foreordination #Premortal_Existence

@@ -91,3 +91,7 @@ I gladly bear my personal witness that these revelatory changes are inspired of 
 
 [^12]: [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
 
+
+
+
+#Ministering

@@ -83,5 +83,4 @@ Paul ends one of his letters: “All that are with me salute thee. Greet them th
 All that are with me salute you. We love you and are aware of your fears and your faith. I bear you my witness that Jesus Christ is our Savior, that he loves me, that he loves each of you, and that he will help us to replace our fears with faith. I say these things in his name, amen.
 
 
-
-
+#Courage #Faith #Fear

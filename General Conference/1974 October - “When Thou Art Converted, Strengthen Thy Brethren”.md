@@ -105,5 +105,4 @@ All of the abundance, fullness, and plenty of this earth was given to us by God 
 May I add my witness to this conference that God lives, that Jesus is the Savior of this world, that Spencer W. Kimball, who conducts this conference session here today, is a prophet. Think of it—a prophet of the Lord on the earth today! May I give this witness as I know it, in the name of Jesus Christ. Amen.
 
 
-
-
+#Commitment #Conversion

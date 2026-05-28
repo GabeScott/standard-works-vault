@@ -71,3 +71,5 @@ My brethren of the holy priesthood, when we speak of home teaching or watchcare 
 
 [^8]: Personal conversation and email exchange, Apr. 2016.
 
+
+#Home_Teaching #Priesthood #Service

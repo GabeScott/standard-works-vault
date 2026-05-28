@@ -45,5 +45,4 @@ God bless you, my beloved sisters. Please know that you are deeply appreciated. 
 Count your wonderful blessings. Do not worry away your lives with concerns over “rights,” so-called, but move forward, concerned with responsibilities and opportunities. Your potential is limitless. You are daughters of God, endowed by inheritance with marvelous gifts and immeasurable potential. Accept the challenge. Go forward with confidence in the knowledge that the differences you face are not those which come of discrimination so much as those which come of designation. That you may be happy, and that your lives may be rich with that satisfaction which comes from the development of your spiritual gifts, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Blessings

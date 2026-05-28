@@ -99,5 +99,4 @@ The prophet Mormon declared that Jesus waits “with open arms to receive \[us\]
 May God help each of us to so live now in order to merit that marvelous moment then is my prayer for myself—for all of us—in the holy name of the Great Redeemer, even Jesus Christ, amen!
 
 
-
-
+#Faith #Repentance

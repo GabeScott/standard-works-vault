@@ -71,5 +71,4 @@ My brother Chad’s passing came just a few months after our release from presid
 I witness of the redeeming, sanctifying, humbling, and joyous power of the Savior Jesus Christ. I witness that when we pray to our Heavenly Father in the name of Jesus, He will answer us. I witness that as we hear, hearken, and heed the voice of the Lord and His living prophet, President Russell M. Nelson, we can “let patience have her perfect work” and “count it all joy.” In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Faith #Patience

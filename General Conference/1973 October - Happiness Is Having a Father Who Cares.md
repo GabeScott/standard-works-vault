@@ -55,5 +55,4 @@ God bless you fathers to be equal to your overwhelming responsibilities and to h
 That this may be so, I pray, in the name of the Lord, Jesus Christ. Amen.
 
 
-
-
+#Family #Fatherhood #Priesthood

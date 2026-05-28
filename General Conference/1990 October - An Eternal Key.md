@@ -47,5 +47,4 @@ Well, that’s it, Dad. You must become the family hero, worthy of not only thei
 May God bless all fathers to righteously obtain and maintain this patriarchal key to the blessing of families throughout the Church. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Obedience #Priesthood

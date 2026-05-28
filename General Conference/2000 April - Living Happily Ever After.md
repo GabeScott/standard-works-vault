@@ -61,5 +61,4 @@ Through the Savior we can find our way back to God. We can find peace and happin
 As we come to understand the great plan of happiness, we will radiate, for all the world to see, a glad heart and a cheerful countenance. We will show that we know the gospel of Jesus Christ is a simple, ever-present source of true happiness today and ever after in eternity. It is living the gospel of Jesus Christ that is our guarantee of living “happily ever after.” Of this I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Children #Environment #Jesus_Christ #Joy #Obedience #Peace #Plan_Of_Salvation #Trust

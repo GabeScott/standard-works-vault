@@ -103,5 +103,4 @@ Now, in closing, I wish to reemphasize my deep gratitude, my profound appreciati
 I leave my blessing, my testimony, and my love with you in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Children #Evil #Family #Fatherhood #Love #Marriage #Motherhood #Relief_Society #Satan #Women

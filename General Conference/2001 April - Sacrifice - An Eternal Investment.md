@@ -57,5 +57,4 @@ President Hinckley taught a grand truth when he said: “It is not a sacrifice t
 How comforting to know that we are not expected to make this investment alone. Like Abraham of old, we have a divinity within us to receive inspiration through the powers of heaven. Brothers and sisters, I pray that by doing these things we will come to love the principle of sacrifice, that this great principle will bring us closer to our Savior, in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Couple_Missionaries #Family #Generosity #Jesus_Christ #Joy #Love #Missionary_Work #Obedience #Sacrifice #Worship

@@ -103,5 +103,4 @@ Our brethren of Judah knew Him in ancient times, our brethren of Ephraim also. H
 He lives. He is our Savior, our Redeemer, our Lord. Of Him I bear an apostolic witness, in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Scriptures

@@ -81,5 +81,4 @@ My brothers and sisters, I am a witness before God that He lives and hears and a
 If I have done anything or said anything that has offended anyone within hearing today, I am truly sorry and I humbly beg your forgiveness, for surely the central truth of the gospel is “none but the truly penitent are saved” ([[Alma 42.24|Alma 42:24]]), to which I bear witness and express to you my love, in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Morality #Repentance #Resurrection

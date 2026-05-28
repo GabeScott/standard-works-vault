@@ -105,3 +105,5 @@ I testify that God lives. “Man of Holiness is his name.”[^17] Jesus Christ i
 
 [^19]: See [[D&C 97.8|Doctrine and Covenants 97:8]].
 
+
+#Consecration #Holiness #Humanitarian_Aid #Sacrifice

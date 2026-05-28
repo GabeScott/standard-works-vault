@@ -2,7 +2,7 @@
 
 [Link](https://www.churchofjesuschrist.org/study/scriptures/bd/apocrypha?lang=eng)
 
-*Secret* or *hidden.* By this word is generally meant those sacred books of the Jewish people that were not included in the Hebrew Bible (see *[[BD Canon|Canon]]*). They are valuable as forming a link connecting the Old and New Testaments and are regarded in the Church as useful reading, although not all the books are of equal value. They are the subject of a revelation recorded in [[D&C 91.1|D&C 91]][[D&C 91.2|]][[D&C 91.3|]][[D&C 91.4|]][[D&C 91.5|]][[D&C 91.6|]], in which it is stated that the contents are mostly correct but with many interpolations by man. Among these books the following are of special value:
+*Secret* or *hidden.* By this word is generally meant those sacred books of the Jewish people that were not included in the Hebrew Bible (see *[[BD Canon|Canon]]*). They are valuable as forming a link connecting the Old and New Testaments and are regarded in the Church as useful reading, although not all the books are of equal value. They are the subject of a revelation recorded in [[D&C 91.1|D&C 91]], in which it is stated that the contents are mostly correct but with many interpolations by man. Among these books the following are of special value:
 
 *The First Book of Esdras.* Contains an account of Josiah’s religious reforms and the subsequent history down to the destruction of the Temple 588  It then describes the return under Zerubbabel and the events that followed, of which we have another account in the books of Ezra and Nehemiah. Esdras is another form of the name Ezra.
 

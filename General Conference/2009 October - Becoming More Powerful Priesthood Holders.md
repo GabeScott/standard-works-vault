@@ -73,3 +73,5 @@ You and I, as part of those future generations spoken about, can be more powerfu
 
 [^15]: See [[Enos 1.3|Enos 1:3–8]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].
 
+
+#Book_Of_Mormon #Missionary_Work #Priesthood

@@ -85,5 +85,4 @@ If you will take the time to become involved with these young people and see tha
 We want you to know of our love and support for you. We are grateful to the Lord for each of you and pray our Heavenly Father’s blessings upon us all that, through our united and devoted leadership, we may help every young man in this church honor his priesthood so that not one of these precious children of God will be lost. I pray this humbly in the name of Jesus Christ. Amen.
 
 
-
-
+#Leadership #Priesthood

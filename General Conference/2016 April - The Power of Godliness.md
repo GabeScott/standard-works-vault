@@ -141,3 +141,5 @@ Come to the temple. Come often. Come with and for your family. Come, and help ot
 
 [^25]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 92.
 
+
+#Covenants #Ordinances #Service #Temple_Work

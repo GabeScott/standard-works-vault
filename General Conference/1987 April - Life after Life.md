@@ -121,5 +121,4 @@ His sacrifice and his glory assure that “the spirit and the body shall be reun
 Gratefully and positively, I affirm that there is life after life, first in the spirit world and then in the Resurrection, for each and every one of us. I know that God lives and that Jesus the Christ is his Son. He is “the resurrection, and the life” ([[John 11.25|John 11:25]]). He lives. He is my Master. I am his servant. With all my heart, I love him, and I testify of him, in his holy name—the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Plan_Of_Salvation #Resurrection

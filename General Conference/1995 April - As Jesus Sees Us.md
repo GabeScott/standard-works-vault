@@ -27,5 +27,4 @@ He who under the direction of the Father had created the world and literally cou
 As we strive to better understand how Jesus sees us and contemplate our own attempts to live as the Redeemer would have us live, let us remember his instructing observations and their universal applications in literally all that we do: “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]) and “Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.40|Matt. 25:40]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Covenants #Jesus_Christ #Standards

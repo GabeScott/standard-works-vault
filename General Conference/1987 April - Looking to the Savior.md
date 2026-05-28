@@ -79,5 +79,4 @@ The Lord, who suffered much for the sins of all mankind and was crucified and re
 “This is my commandment, That ye love one another, as I have loved you” ([[John 15.10|John 15:10–12]][[John 15.11|]][[John 15.12|]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Jesus_Christ #Obedience

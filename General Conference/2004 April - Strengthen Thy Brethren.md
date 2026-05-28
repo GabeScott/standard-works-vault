@@ -63,5 +63,4 @@ I am grateful for the example of the Good Shepherd, who did not give up until He
 May each quorum and each one of us individually, working in conjunction with the councils of the Church, follow the example of our Lord and Savior to “take … him that is weak, … that he may become strong also” ([[D&C 84.106|D&C 84:106]]). I bear humble witness that Joseph Smith was a prophet of God, that the Book of Mormon is scripture, that President Gordon B. Hinckley is indeed a prophet of God, that Jesus Christ is the Redeemer and the Good Shepherd, and that He lives. In the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Love #Priesthood #Responsibility #Service

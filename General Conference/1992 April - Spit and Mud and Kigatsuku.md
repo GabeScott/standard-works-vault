@@ -43,5 +43,4 @@ Our desire to serve is divine. Charity is our motto. As women, we beseech with t
 “That \[we\] may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; that \[we\] may become the \[daughters\] of God; that when he shall appear we shall be like him.” ([[Moroni 7.48|Moro. 7:48]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Service

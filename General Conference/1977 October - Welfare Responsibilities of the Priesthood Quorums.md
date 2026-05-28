@@ -59,5 +59,4 @@ It will be a marvelous day, my brethren—it will be a day of fulfillment of the
 God help us to increase our efforts toward that day of realization, I humbly pray, as I leave with you my testimony of the divinity of this work in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Priesthood #Welfare

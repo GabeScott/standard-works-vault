@@ -65,3 +65,5 @@ Brothers and sisters, we have not been left alone to be influenced by every whim
 
 [^7]: Neil L. Andersen, “A Compensatory Spiritual Power for the Righteous” (Brigham Young University Campus Education Week devotional, Aug. 18, 2015), [speeches.byu.edu.](https://speeches.byu.edu/talks/neil-l-andersen/a-compensatory-spiritual-power-for-the-righteous)
 
+
+#Faith #Jesus_Christ #Light_Of_Christ #Spirituality

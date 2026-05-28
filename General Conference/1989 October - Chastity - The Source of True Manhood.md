@@ -87,5 +87,4 @@ You know the steps! Don’t delay. Forget the past—except to use it to build a
 My precious young brothers, may you understand that chastity is the source of virile manhood, the crown of beautiful womanhood, the foundation of a happy home, and the ultimate and perfect standard underlying all spiritual progression. May we who have been called be worthy to be chosen, I pray in the name of Jesus Christ, our Savior, amen.
 
 
-
-
+#Forgiveness #Marriage #Missionary_Work #Morality

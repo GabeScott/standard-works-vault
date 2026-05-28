@@ -47,5 +47,4 @@ I marveled all that night at what I had seen. Then, the next morning at the temp
 The Lord sent an angel to Joseph Smith to tell him that he had a work to do. That work continues today in us and is directed by President Gordon B. Hinckley, a living prophet, who said: “Glorious is this work. It will bless the life of every man, woman, boy, and girl who embraces it” (“Missionary Service,” *Worldwide Leadership Training Meeting,* Jan. 11, 2003, 21). “God be thanked for His marvelous bestowal of testimony, authority, and doctrine associated with this, the restored Church of Jesus Christ” (“The Marvelous Foundation of Our Faith,” *Liahona* and *Ensign,* Nov. 2002, 81). In the name of Jesus Christ, amen.
 
 
-
-
+#Joseph_Smith #Missionary_Work #Service #Testimony

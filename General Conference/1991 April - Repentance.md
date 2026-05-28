@@ -67,5 +67,4 @@ And to those who say, “I may have done a little wrong, but my purpose was good
 May the Lord bless us to see ourselves as we really are and to repent as needs be, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Forgiveness #Pride #Repentance #Responsibility

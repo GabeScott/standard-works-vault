@@ -145,5 +145,4 @@ Know well those you are to home teach. Know well your message, and deliver it wi
 As you do this, I promise you the blessings of heaven and the indescribable joy that comes from helping to touch hearts, change lives, and save souls. In the name of Jesus Christ, amen.
 
 
-
-
+#Home_Teaching

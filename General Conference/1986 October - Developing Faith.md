@@ -95,5 +95,4 @@ I bear you my humble witness that I know that God lives. I know that he lives, t
 I understand better what that means now. I am grateful for his atonement in our behalf and for knowing something about our relationship to him and to our Heavenly Father and about the meaning and purpose of the gospel of Jesus Christ. I am grateful for Joseph Smith. I know he was a prophet, and I know that President Ezra Taft Benson is a living prophet today. I bear that witness in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Family

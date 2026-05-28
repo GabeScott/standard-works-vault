@@ -105,3 +105,5 @@ I know that our Savior lives and loves each of us. He has given His life for all
 
 [^14]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
+
+#Kindness #Service

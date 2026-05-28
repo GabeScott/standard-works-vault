@@ -111,3 +111,5 @@ In addition to obeying the laws and ordinances of the gospel yourself, I invite 
 
 [^24]: [[Mosiah 4.2|Mosiah 4:2]].
 
+
+#Aaronic_Priesthood #Atonement #Covenants #Jesus_Christ #Melchizedek_Priesthood #Priesthood

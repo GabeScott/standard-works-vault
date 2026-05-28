@@ -81,3 +81,5 @@ Brethren, it is my prayer this evening that we might all first place our trust i
 
 [^7]: [[D&C 124.15|Doctrine and Covenants 124:15]].
 
+
+#Family #Fatherhood #Honesty #Integrity #Marriage #Peace #Trust

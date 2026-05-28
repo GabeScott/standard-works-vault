@@ -102,5 +102,4 @@ King David instructed his son Solomon, “Be thou strong … and shew thyself *a
 “And keep the charge of the Lord thy God, to walk in his ways, to keep his statutes, and his commandments, … that thou mayest prosper in all that thou doest” ([[1 Kings 2.2|1 Kgs. 2:2–3]][[1 Kings 2.3|]]; italics added). I echo this charge: Be men! Be men of Christ! Be men of God! For this I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Character #Example #Priesthood

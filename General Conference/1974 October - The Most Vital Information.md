@@ -67,5 +67,4 @@ Why not use the same formula suggested by the Savior to test the truth of his ch
 I declare in all kindness and sincerity that your eternal life and the salvation of your family depend upon what happened in the life of Joseph Smith, a prophet of God. May you find out soon is my humble prayer in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Example

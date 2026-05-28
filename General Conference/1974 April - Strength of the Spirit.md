@@ -77,5 +77,4 @@ And what is that life-giving purpose, that goal toward which we should all be st
 Again may I say it is of the utmost importance that people everywhere reflect upon their spiritual assets and spiritual strength, thus preparing themselves for eternal life in the kingdom of our Heavenly Father. That we may do this I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Holy_Ghost #Spirituality

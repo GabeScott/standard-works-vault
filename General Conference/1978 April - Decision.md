@@ -69,5 +69,4 @@ Choose to keep the commandments of the Lord. Be a part of His kingdom in prepari
 Seek the guidance of the Lord in making decisions, but use that God-given right of free agency. Then you, too, will know, as I know, that this is His church, the church of Jesus Christ, and I so testify to you in the name of Jesus Christ. Amen.
 
 
-
-
+#Agency #Youth

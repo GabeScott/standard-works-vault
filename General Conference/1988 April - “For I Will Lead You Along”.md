@@ -85,5 +85,4 @@ Only He could have carried it all.
 I thank the Savior personally for bearing all which I added to his hemorrhaging at every pore for all of humanity in Gethsemane. I thank Him for bearing what I added to the decibels of His piercing soul-cry atop Calvary, in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Prophecy

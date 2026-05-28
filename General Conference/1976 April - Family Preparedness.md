@@ -93,5 +93,4 @@ Perhaps we need the compelling urgency of our forefathers. They had to work hard
 Brethren and sisters, I’m sure it is time that I should close. But I want to commend the words of Sister Smith and the Presiding Bishopric and President Romney to you and say that this is a gospel of action and whatever we learn we should put into action. God bless us that we may have the determination to carry forward all of these commandments of the Lord which have been conveyed to us. I say this in the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Self-Reliance #Work

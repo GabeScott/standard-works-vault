@@ -83,5 +83,4 @@ Truly he lives and has again established his kingdom upon the earth to prepare f
 May God give us knowledge and understanding to know his will and give us the desire and strength to abide by his teachings, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Resurrection

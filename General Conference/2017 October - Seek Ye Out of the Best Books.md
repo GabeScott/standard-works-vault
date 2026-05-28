@@ -51,5 +51,4 @@ We see around us the joy of so many who are standing strong by continually nouri
 Let each of us live so that the menacing jaws of camouflaged caterpillars find no place, not now or ever, in our lives so that we will remain “firm in the faith of Christ, even unto the end” ([[Alma 27.27|Alma 27:27]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Conversion #Faith #Patience #Sabbath #Scripture_Study

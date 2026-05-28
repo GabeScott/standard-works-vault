@@ -81,5 +81,4 @@ Our challenge is to choose the right, to declare that we are friends of our Heav
 Abraham “was called the Friend of God.” ([[James 2.23|James 2:23]].) Prophets and Apostles down through the dispensations have been friends of God. If you have not done so previously, now is the time to become friends of God. We have the knowledge of the scriptures, the testimonies of the prophets. I know that my Redeemer lives. I want to call him my friend; I want to be called his friend. May we all qualify to be his disciples, his friends, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ

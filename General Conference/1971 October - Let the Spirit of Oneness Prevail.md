@@ -39,5 +39,4 @@ I am sure that we all love the Lord. I know that he lives, and I look forward to
 And I pray that this may be the happy lot of all of us, in our own due time, and I say this in the name of Jesus Christ. Amen.
 
 
-
-
+#Faith #Service #Unity

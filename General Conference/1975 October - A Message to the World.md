@@ -103,5 +103,4 @@ I know that Joseph Smith, although slain as a martyr to the truth, still lives a
 Humbly and prayerfully I leave this testimony, knowing full well I must eventually meet my Maker and stand with all men before the judgment bar of God. More than anything else in all the world, I am grateful for this testimony of the divinity of this great latter-day work and exhort all men everywhere to give heed thereto, in the name of Jesus Christ. Amen.
 
 
-
-
+#Commandments #Repentance #Restoration

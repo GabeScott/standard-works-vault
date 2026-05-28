@@ -55,5 +55,4 @@ Life’s flight pattern can be changed. The instruments we use in saving souls a
 God bless us to keep this commitment, my brethren, to bring into full fellowship one precious son of God, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Commitment

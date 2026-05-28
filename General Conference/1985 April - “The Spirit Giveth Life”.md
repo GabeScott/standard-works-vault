@@ -80,5 +80,4 @@ Frequently Stan speaks in Church meetings and tells of the goodness of the Lord 
 As we pursue the journey of life, let us learn the language of the Spirit. May we remember and respond to the Master’s gentle invitation: “Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him.” ([[Revelation 3.20|Rev. 3:20]].) This is the language of the Spirit. He spoke it. He taught it. He lived it. May each of us do likewise, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost

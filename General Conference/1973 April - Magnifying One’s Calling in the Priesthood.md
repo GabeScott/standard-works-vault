@@ -139,5 +139,4 @@ In conclusion, I ask you to listen to Nephi’s exhortation. I hope it moves you
 That the Lord will help each of us bearers of the holy priesthood to acquire such a powerful motivating desire that we will, through searching and pondering upon the words of eternal life and praying about them, be led to magnify our callings in the priesthood, and that we may thereby qualify ourselves to receive the promised blessings of the “covenant which belongeth to the priesthood,” I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Priesthood

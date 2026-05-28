@@ -83,5 +83,4 @@ I join with Alma in saying, “May the peace of God rest upon you, … from this
 With this testimony of peace through prayer, I bear witness of the reality of Jesus Christ and of His Father and of the Holy Ghost, who will lead our lives in the same *miraculous* way through answers to our prayers of faith. In the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Peace #Prayer

@@ -99,5 +99,4 @@ When heartaches, tragedies, disappointments, injury, unusual attention, fame, or
 God does live. Jesus is the Christ. One of His marks of greatness, His endurance, stands as a constant beacon for us to emulate. During His earthly sojourn He endured well as He suffered agony and rejection in their deepest forms. I bear my witness that God will help us to endure as we put forth the effort to live His teachings, seek His guidance, and keep His commandments. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Opposition

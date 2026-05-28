@@ -153,5 +153,4 @@ I conclude with this glorious promise of the Lord:
 I testify that these things are true, in the name of Jesus Christ. Amen.
 
 
-
-
+#Laws #Obedience

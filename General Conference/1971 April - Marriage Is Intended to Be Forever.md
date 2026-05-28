@@ -73,5 +73,4 @@ Neither should courtship end at the altar. How important it is to constantly be 
 May we keep sacred our marriage vows and live so that we might enjoy its eternal blessings, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Marriage

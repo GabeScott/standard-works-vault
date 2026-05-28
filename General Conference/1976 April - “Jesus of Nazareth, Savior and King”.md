@@ -57,5 +57,4 @@ Thus, I add my small voice to the anthem of appreciation that has proceeded from
 Last of all, I witness that he lives—with all that those simple words imply. I know I will be held accountable for this testimony; but, as hearers or readers, you are now accountable for my witness—which I give in the very name of Jesus Christ. Amen.
 
 
-
-
+#Atonement #Example #Jesus_Christ #Resurrection #Testimony

@@ -67,3 +67,5 @@ I know that the Book of Mormon is true! I cannot explain the power of this great
 
 [^5]: See David A. Bednar, “[The Hearts of the Children Shall Turn](https://www.churchofjesuschrist.org/study/ensign/2011/11/saturday-afternoon-session/the-hearts-of-the-children-shall-turn?lang=eng),” *Ensign* or *Liahona,* Nov. 2011, 24–27; Richard G. Scott, “[The Joy of Redeeming the Dead](https://www.churchofjesuschrist.org/study/ensign/2012/11/sunday-afternoon-session/the-joy-of-redeeming-the-dead?lang=eng),” *Ensign* or *Liahona,* Nov. 2012, 93–95; Neil L. Andersen, “Find Our Cousins!” (address given at RootsTech 2014 Family History Conference, Feb. 8, 2014); lds.org/prophets-and-apostles/unto-all-the-world/find-our-cousins.
 
+
+#Addiction #Pornography #Prayer #Scripture_Study

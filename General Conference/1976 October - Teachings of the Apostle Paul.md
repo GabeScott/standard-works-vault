@@ -223,5 +223,4 @@ How beautifully and completely Paul encompassed all that would enable us to gain
 I bear solemn witness to the sacredness of the apostle Paul’s teachings. To accept and live them will bring peace and happiness to all who are sincerely searching for light and truth. This I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#New_Testament

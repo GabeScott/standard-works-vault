@@ -55,5 +55,4 @@ Every member is entitled to a personal testimony that these things of which I ha
 We have tasted of the living water, for we know the source. Like those on the rescue ship, we signal to you, “Let down your buckets where you are.” Like the passengers on the ill-fated ship, it may seem strange to you to learn that salvation has been so near to you all the time. Listen to the message. Try to understand it. Honestly test the truth of our message. You may drink freely of the waters of life found in the living Church. We invite all men to come and share our joy and truth and peace. I bear my solemn testimony that it is found in the Church, in the name of Jesus Christ. Amen.
 
 
-
-
+#Activation #Blessings

@@ -74,5 +74,4 @@ As in all things, the Savior set the perfect example in the love He showed for H
 Today I stand before you to bear my witness that Jesus Christ is the very Savior and Redeemer of the world. This is His Church, The Church of Jesus Christ of Latter-day Saints. Our Heavenly Father wants all of His children to return to Him. I know this without contradiction because of the witness of the Holy Ghost to my heart. I didn’t always know—when I was younger I had to rely on my parents’ testimony. My mother assured me that if I stayed on the road of truth, even when it seemed hot and dusty, even when there were distractions, the end would be better than the beginning. I will be eternally grateful that Mother told me. In the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Love #Motherhood #Teaching

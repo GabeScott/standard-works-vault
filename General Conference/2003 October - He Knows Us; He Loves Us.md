@@ -59,3 +59,5 @@ The Savior gave His life for each one of us. He knows our joys and our sorrows. 
 
 [^7]: [[Mosiah 3.17|Mosiah 3:17]].
 
+
+#God_The_Father #Holy_Ghost #Individual_Worth #Tithing

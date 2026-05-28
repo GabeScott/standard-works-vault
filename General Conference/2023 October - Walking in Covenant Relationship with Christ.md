@@ -145,3 +145,5 @@ Thankfully, we walk this path together, calling out encouragement along the way.
 
 [^37]: “The kingdom of God … is like a besieged city surrounded on all sides by death. Each man has his place on the wall to defend and no one can stand where another stands, but ‘nothing prevents us from calling encouragement to one another’” (Martin Luther, in Lewis William Spitz, *The Renaissance and Reformation Movements* \[1987\], 335). 
 
+
+#Adversity #Covenants #Jesus_Christ

@@ -117,5 +117,4 @@ Future missionaries, may our Heavenly Father bless you with a desire to serve, t
 This is my earnest and sincere prayer. I ask it humbly and in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Priesthood

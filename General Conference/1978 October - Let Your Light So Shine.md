@@ -64,5 +64,4 @@ In closing I bear deep and solemn testimony of my absolute conviction of the Sav
 I testify to you that President Kimball is indeed a mighty prophet of the Lord. His divinely inspired words and example convey the certainty of an unwavering testimony. Upon us he pronounces rich blessings and unbounded love and encouragement. May we follow his great leadership, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Healing #Jesus_Christ

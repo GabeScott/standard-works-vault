@@ -81,5 +81,4 @@ Sister Clyde has spoken eloquently of being steadfast and courageous in our conv
 I bear you my testimony of the truths spoken here tonight and the significance of each of your lives. Jesus Christ is the head of this Church, and we are led by a prophet of God. I am grateful for that blessing and for priesthood leaders who work diligently and effectively in our behalf. They, too, bless lives with hearts full of charity. I leave you with the joy I feel in my heart for this glorious gospel and with my love for all of you. In the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Jesus_Christ #Love #Relief_Society #Service #Women

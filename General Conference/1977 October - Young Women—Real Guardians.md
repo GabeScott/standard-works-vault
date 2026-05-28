@@ -73,5 +73,4 @@ Let there radiate from you young women a spirit and influence that will have the
 God’s work cannot fail. His work and purpose will succeed. In the end righteousness must and will prevail. I challenge you, the young women of the Church, to fulfill your duty to assist in presenting to President Kimball and the Lord young men who are worthy to testify of Christ and the restoration of His gospel. To this truth I testify in the holy name of Jesus Christ. Amen.
 
 
-
-
+#Character #Missionary_Work #Morality #Women

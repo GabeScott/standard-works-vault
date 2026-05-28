@@ -49,5 +49,4 @@ In summary, then, the validity, the power, of our faith is not bound by history,
 Ours is a perennial religion based on eternal, saving truth. Its message of love and brotherhood is lodged in scripture and in the revelations of the Lord to his living prophet. It embraces all truth. It circumscribes all wisdom—all that God has revealed to man and all that he will yet reveal. Of that eternal revelation I bear testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Love #Missionary_Work #Unity

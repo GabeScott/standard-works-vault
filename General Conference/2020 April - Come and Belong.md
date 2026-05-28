@@ -179,3 +179,5 @@ Of this I testify and leave you my blessing in deep gratitude and love for each 
 
 [^16]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
+
+#Belonging #Discipleship #Jesus_Christ #Restoration

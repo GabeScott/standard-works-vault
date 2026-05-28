@@ -51,5 +51,4 @@ Nephi recorded that “the Lord esteemeth all flesh in one; he that is righteous
 The gleaning and gathering of the children of God in Africa is just beginning. In the words of the Prophet Joseph, it will go forward “boldly, nobly, and independent, till … \[the truth of God has\] swept every country, and sounded in every ear, till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done” (*History of the Church,* 4:540). Of that I humbly testify in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Missionary_Work #Service

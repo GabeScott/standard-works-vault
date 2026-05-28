@@ -63,5 +63,4 @@ We know it works, for listen to the words which record what happened to the Sain
 Yes, “by the power of his word did they cause prisons to tumble” ([[Mormon 8.24|Morm. 8:24]]). May we live our lives so we will all be free with no prisons for ourselves or others, only a magnificent obsession filled with freedoms and blessings ahead, in the name of Jesus Christ, amen.
 
 
-
-
+#Freedom #Honesty #Repentance

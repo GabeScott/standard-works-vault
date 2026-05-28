@@ -59,5 +59,4 @@ Your prayer can take many forms. It can be sung in a hymn, or whispered, or even
 The important thing to remember is to pray often, talk to Heavenly Father, seek his counsel so that he can guide you. When you draw near to Heavenly Father in prayer, he will draw near to you. You need never feel alone again. I testify to this in the name of Jesus Christ, amen.
 
 
-
-
+#Prayer

@@ -41,5 +41,4 @@ The Lord loves you for being His partner in His plan. Be of good cheer as you pe
 As we go to our homes, sisters, may we ponder what has been said. How can we as daughters of God help bring souls unto Christ? How can we know and remember our Savior? How will the children know unless we teach them so? In the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Scripture_Study #Women

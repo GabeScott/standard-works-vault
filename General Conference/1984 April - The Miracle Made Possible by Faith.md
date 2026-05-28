@@ -75,5 +75,4 @@ We are familiar with stories that the work would fail. When the Book of Mormon c
 But the work has gone forward. The Church has never taken a backward step since it was organized in 1830—and it never will. It is the cause of the Master. It is the church of God. It is his work established in this latter day. It is the little stone which was cut out of the mountain without hands, which should roll forth to fill the whole earth. (See [[Daniel 2.44|Dan. 2:44–45]][[Daniel 2.45|]].) God bless it as it moves forward on its great advancing course. And may each of us be found faithful and true and doing our part in advancing it, I humbly pray as I leave you my witness and testimony of its truth and divinity in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth

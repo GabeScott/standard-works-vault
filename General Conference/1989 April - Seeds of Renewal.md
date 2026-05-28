@@ -65,5 +65,4 @@ My brothers and sisters, I bear my testimony that we can plant in our hearts and
 I testify further that I know our Heavenly Father loves each of his children, that Jesus Christ is our Lord and Savior and Redeemer, that Joseph Smith is the Prophet of the Restoration, and that President Ezra Taft Benson is the prophet today. In the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Faith #Family #Testimony #Work

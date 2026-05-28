@@ -95,5 +95,4 @@ I testify that God the Father lives and answers our prayers. I am a witness that
 In the name of Jesus Christ, amen.
 
 
-
-
+#Example #Faith #Holy_Ghost #Jesus_Christ #Leadership #Love #Prayer #Priesthood #Service #Sin #Spirituality

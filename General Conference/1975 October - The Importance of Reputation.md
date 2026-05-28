@@ -71,5 +71,4 @@ I testify that in order to obtain real joy and happiness in this life and be eff
 May we all do this, I humbly pray, in the name of our Lord and Savior, Jesus Christ. Amen.
 
 
-
-
+#Character

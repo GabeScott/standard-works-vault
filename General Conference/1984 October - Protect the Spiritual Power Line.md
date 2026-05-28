@@ -89,5 +89,4 @@ As we carefully and prayerfully protect the spiritual power line that links us t
 Of his sacred name and mission I solemnly bear special witness. Of his divine sonship I proclaim sacred testimony. That this is his church I fervently declare, in the name of Jesus Christ, amen.
 
 
-
-
+#Love #Obedience #Prayer #Work

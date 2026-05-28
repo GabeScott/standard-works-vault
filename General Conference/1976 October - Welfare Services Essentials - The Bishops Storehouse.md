@@ -77,5 +77,4 @@ If the bishops and stake presidents are to move the Church forward to maturity, 
 That this may be our goal, and that we may accomplish it, is my prayer in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Bishops #Welfare

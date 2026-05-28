@@ -135,5 +135,4 @@ We do appreciate all you have done in the past. The leaders of the Church have g
 May the Lord bless us all with increased faith to move his work forward, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Love #Missionary_Work

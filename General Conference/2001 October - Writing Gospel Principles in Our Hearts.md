@@ -27,5 +27,4 @@ Each of us can evaluate ourselves, determine which things are preventing us from
 Making time in our lives to learn, to ponder, and especially to practice gospel principles will bring us the joy and peace which come from the Spirit. The Church will continue to blossom in South America and other parts of the world because more and more members will continue to write gospel principles not with ink, but with the Holy Ghost; not in tablets of stone, but in the fleshy tablets of their hearts. I testify that scriptural truths can develop from intellectual appreciation to our becoming Christlike as we take time to incorporate those truths into our lives. I know the Savior is the Living Christ. Of these things I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Discipleship #Education #Gratitude #Joy #Missionary_Work #Peace #Prayer #Priorities

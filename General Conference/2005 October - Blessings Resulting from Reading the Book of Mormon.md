@@ -83,5 +83,4 @@ This is the year we celebrate the 200th anniversary of the birth of the Prophet 
 I pray that each of us will read the Book of Mormon by the end of the year in response to the challenge of our current prophet, Gordon B. Hinckley, to honor the prophet of the Restoration, Joseph Smith. May we have a plan that we will follow in faith to taste and be filled with that which is of infinite and eternal value, even the word of God found in the Book of Mormon, is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Blessings #Book_Of_Mormon #Prophets #Scripture_Study

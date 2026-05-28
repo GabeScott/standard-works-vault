@@ -81,5 +81,4 @@ I bear testimony that our risen Lord and Redeemer will return to earth a second 
 I testify that he is the creator of “all things bright and beautiful, All creatures great and small” (Cecil Frances Alexander, in *Masterpieces of Religious Verse,* ed. James Dalton Morrison, New York: Harper and Brothers Publishers, 1948, p. 17). He is the master over ocean, earth, and skies. He is the promised Messiah. He is the victor over death and the grave. He is the Prince of Peace. (See [[Isaiah 9.6|Isa. 9:6]].) He is the same yesterday, today, and forever. (See [[Hebrews 13.8|Heb. 13:8]].) Everlasting is his name. Eternal is his name. He is Jesus the Christ. I so testify, in his holy name, amen.
 
 
-
-
+#Jesus_Christ

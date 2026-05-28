@@ -53,5 +53,4 @@ Train your mind to obey gospel principles and covenants. Stay on the highway of 
 My brothers and sisters, I know this work is true. I know prophets travel the earth today. I know that Jesus is the Christ and that God does live in the heavens. As we draw near to our Heavenly Father in obedience and righteousness, He will draw near to us. He will bless us, perfect us, and protect us. In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Evil #Holy_Ghost #Jesus_Christ #Obedience #Temptation #Testimony

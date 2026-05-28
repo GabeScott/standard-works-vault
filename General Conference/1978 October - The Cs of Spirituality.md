@@ -47,5 +47,4 @@ I read from [[D&C 124.20|Doctrine and Covenants 124:20]]: “My servant … may 
 I solemnly testify as a witness that God lives and loves us; that Jesus Christ, his divine Son, stands glorified and exalted at the head of this church which bears his holy name; that the legal and authorized mouthpiece of the Lord here on earth is our living prophet who guides this great and divine church which was restored by the Prophet Joseph Smith, in the name of Jesus Christ. Amen.
 
 
-
-
+#Character #Trust

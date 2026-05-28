@@ -165,5 +165,4 @@ As Moroni quoted to Joseph Smith from the Prophet Joel, so I quote to you:
 May the Lord bless you and your loved ones this day and always, I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Agency #Family #Marriage #Scriptures #Women

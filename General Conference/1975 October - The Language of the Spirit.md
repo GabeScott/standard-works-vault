@@ -55,5 +55,4 @@ I should like to conclude with a declaration of my great-grandfather as my deepe
 May I add to his words these of my own: I know that God lives, that Jesus is the Christ and that the Father and Son appeared to the Prophet Joseph Smith. Through him the true and everlasting gospel was restored among us, that we might attain the heights of a glorious exaltation as the beloved children of our Heavenly Father. To this I testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work #Spirituality

@@ -101,5 +101,4 @@ President Lorenzo Snow taught that “the law of tithing is one of the most impo
 I pray that each member of this church will qualify for the blessings promised and bestowed on those who bring all their tithes into the storehouse. In the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Tithing

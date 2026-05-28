@@ -39,5 +39,4 @@ Finally, my humble praise today flows not only to God the Father for His loving 
 In the holy name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Blessings #Death #Faith #Holy_Ghost #Jesus_Christ #Prayer

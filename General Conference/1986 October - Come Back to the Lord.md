@@ -89,5 +89,4 @@ Some years ago it was fashionable in certain circles to use the phrase, “You c
 And when they do, they will know, as I know, that the Lord is more concerned with what a man is than with what he was, and with where he is than with where he has been. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Forgiveness #Repentance

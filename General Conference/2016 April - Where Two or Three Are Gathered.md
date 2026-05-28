@@ -101,5 +101,4 @@ I leave you my sure witness that our Heavenly Father, the great Elohim, loves an
 This is the only true Church, and He is its chief cornerstone. Thomas S. Monson is His prophet to all the world. The prophets and apostles you will hear in this conference speak for the Lord. They are His servants, authorized to act for Him. He goes before His servants in the world. This I know. And I so witness in His name, even the sacred name of Jesus Christ, amen.
 
 
-
-
+#Faith #General_Conference #Holy_Ghost #Prayer #Testimony

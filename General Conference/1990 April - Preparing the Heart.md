@@ -67,5 +67,4 @@ And King Benjamin said unto them:
 To this, brothers and sisters, I add my testimony of the divinity of the Lord Jesus Christ. He is our Savior, and he is our Redeemer, and he lives. In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Communication #Listening #Love #Spirituality

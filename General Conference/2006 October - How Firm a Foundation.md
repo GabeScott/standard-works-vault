@@ -87,5 +87,4 @@ As we establish a firm foundation for our lives, let us each one remember His pr
 May each of us qualify for this blessing, I humbly pray, in the name of Jesus Christ, our Savior, amen.
 
 
-
-
+#Faith #Prayer #Scriptures #Service #Testimony

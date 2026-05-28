@@ -51,5 +51,4 @@ There were those in that clattering room who were going forth, as Alma did, to t
 I testify that we belong to God as He is our creator. His Son’s Atonement vouchsafes our eternal life at great cost because of great love. I know these things are true. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Covenants #Faith #Jesus_Christ #Love #Relief_Society #Women

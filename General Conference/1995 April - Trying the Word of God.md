@@ -39,5 +39,4 @@ Every song, every scripture read, every story told, and all counsel given tonigh
 “And because of your diligence and your faith and your patience with the word in nourishing it, that it may take root in you, behold, by and by ye shall pluck the fruit thereof, which is most precious, which is sweet above all that is sweet, … and pure above all that is pure; and ye shall feast upon this fruit even until ye are filled, that ye hunger not, neither shall ye thirst.” In the name of Jesus Christ, amen.
 
 
-
-
+#Scripture_Study #Scriptures #Young_Women

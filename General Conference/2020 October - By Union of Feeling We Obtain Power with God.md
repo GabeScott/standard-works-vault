@@ -105,3 +105,5 @@ May we draw on this prophetic blessing and use our individual and collective eff
 
 [^11]: [[John 17.21|John 17:21]].
 
+
+#Diversity #Mercy #Prejudice #Unity

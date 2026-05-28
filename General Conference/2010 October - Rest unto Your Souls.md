@@ -41,5 +41,4 @@ Now, the hollow tree that I told you about no longer stands. Some youths put fir
 Let us instead focus on those things that will sustain a lasting peace of mind and heart. Then our “confidence \[will\] wax strong in the presence of God” ([[D&C 121.45|D&C 121:45]]). The promise to enter into the rest of the Lord, to receive the gift of peace, is far from a temporary, worldly satisfaction. It is indeed a heavenly gift: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid” ([[John 14.27|John 14:27]]). He has the power to heal and to strengthen the soul. He is Jesus Christ, of whom I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Peace

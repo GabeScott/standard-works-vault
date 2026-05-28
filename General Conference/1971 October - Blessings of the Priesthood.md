@@ -43,5 +43,4 @@ We are under the responsibility not only of receiving this priesthood for our ow
 I wish to express my appreciation and my willingness to join with you, my good brethren, and do all that is possible to bring salvation to every soul throughout the world who is willing to repent, and I say this in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Plan_Of_Salvation #Priesthood

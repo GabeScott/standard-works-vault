@@ -65,5 +65,4 @@ How little do they realize that Elijah has been here and if they could only comp
 God bless you. I believe the words of the prophets, and I know that this Church is the preparation that all of the holy prophets have decreed to prepare for the coming of our Savior; and may He hasten that day, I pray in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Family_History #Prophecy #Restoration

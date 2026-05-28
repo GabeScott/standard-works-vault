@@ -65,5 +65,4 @@ Like Nephi and Mormon of old, “I do not know the meaning of all things” ([[1
 I know God our Heavenly Father lives and loves us. I know His uniquely special Son, Jesus Christ, is our Savior and Redeemer and the head of the Church, which bears His name. I know Joseph Smith experienced all that he has reported and taught with respect to the Restoration of the gospel in our day. I know we are led by apostles and prophets today and President Thomas S. Monson holds all of the keys of the priesthood necessary to bless our lives and advance the work of the Lord. I know we are all entitled to this knowledge, and if you are struggling, you can rely on the truthfulness of the testimonies you hear from this pulpit at this conference. These things I know and bear testimony of in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Obedience #Repentance #Testimony #Trust #Youth

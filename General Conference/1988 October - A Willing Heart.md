@@ -33,5 +33,4 @@ I have no memory of my father. I was not raised in a home where the priesthood w
 In reference to Elder Marvin J. Ashton’s talk, I have work to do on my heart—but one thing I do have is a willing heart. I am willing to do anything and everything that I can to help in this great cause. I bear witness that I know this is God’s work. In the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Parenthood

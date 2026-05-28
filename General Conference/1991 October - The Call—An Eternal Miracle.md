@@ -49,5 +49,4 @@ At present, less than half our faithful young men from the United States and Can
 Our Heavenly Father might not call us by name, but his called and ordained servants will call us to serve for a period—by name, and in *his* name and by *his* inspiration and revelation. May we all have a deeper insight into the divine nature and meaning of the call, this great eternal miracle, is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Family #Missionary_Work #Service #Testimony

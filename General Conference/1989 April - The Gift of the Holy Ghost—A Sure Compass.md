@@ -85,5 +85,4 @@ I testify that as we mature spiritually under the guidance of the Holy Ghost, ou
 I pray that the promise of the Lord will be fulfilled for each of us, that “the Holy Ghost shall be \[our\] constant companion, and \[our\] scepter an unchanging scepter of righteousness and truth; and \[our\] dominion shall be an everlasting dominion, and without compulsory means it shall flow unto \[us\] forever and ever.” ([[D&C 121.46|D&C 121:46]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Jesus_Christ

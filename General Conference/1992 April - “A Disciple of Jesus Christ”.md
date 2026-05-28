@@ -77,5 +77,4 @@ My beloved young men, will you consider what it would mean to you if you could j
 I am a witness that the Lord Jesus Christ is the Son of God and the Savior of the world. It is my deep conviction that He has called us to teach and testify in His name before the world. And to you young brethren, my sincere prayer is that you will respond to His call with a willing mind and worthy heart, in the name of Jesus Christ, amen.
 
 
-
-
+#Repentance #Worthiness

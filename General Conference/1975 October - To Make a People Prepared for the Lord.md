@@ -115,5 +115,4 @@ The Savior gives this further knowledge of the last days:
 Let us all, my brothers and sisters, discern prophecy’s fulfillment, set in order our homes, and be prepared for this important day. And finally, let us meet the challenge to “make ready a people” for the Lord’s second coming, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ #Last_Days #Prophecy

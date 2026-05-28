@@ -47,5 +47,4 @@ And then greater blessings will be poured out on us. It will be just like our su
 As President Spencer W. Kimball said, “As we give, we find that ‘sacrifice brings forth the blessings of heaven!’ \[“Praise to the Man,” *Hymns,* no. 27.\] And in the end, we learn it was no sacrifice at all” (“Becoming the Pure in Heart,” *Ensign,* Mar. 1985, 5). I pray that we will all become Saints willing to sacrifice and become eligible for the Lord’s special blessings. The Lord will watch over us so that it will not be too difficult to endure any sacrifice. In the name of Jesus Christ, amen.
 
 
-
-
+#Blessings #Joy #Sacrifice #Scripture_Study

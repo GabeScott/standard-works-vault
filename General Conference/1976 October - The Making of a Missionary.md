@@ -69,5 +69,4 @@ My dear friends, no people on this earth are striving harder to prepare themselv
 I testify to you that we are the only true church of Jesus Christ on the earth today, and one of our great missions in this life as members of the Church is to share the gospel truths with all of our Heavenly Father’s children. May the Lord bless each one of us that our ears may hear and our eyes might be opened, that together we may learn to live the gospel and find the joy that only the gospel can give to us, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Preparation

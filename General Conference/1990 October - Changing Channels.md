@@ -95,5 +95,4 @@ The scriptures teach us:
 That we may, faithfully, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Priesthood #Youth

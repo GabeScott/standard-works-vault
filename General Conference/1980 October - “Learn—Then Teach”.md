@@ -21,5 +21,4 @@ The Lord is at the helm! He will steer us through. This is his work, of which th
 My beloved sisters, I know that God lives, that Jesus is his Only Begotten Son, the Redeemer of the world, and that this is in very deed the church of Jesus Christ, with him at its head. I leave this testimony with you and my love and blessings upon you in the name of Jesus Christ, amen.
 
 
-
-
+#Education #Teaching

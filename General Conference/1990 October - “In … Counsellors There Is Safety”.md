@@ -81,5 +81,4 @@ We serve by His sufferance, knowing that at any time He chooses to do so, He can
 I serve as a counselor, just as so many of you present tonight do, you in your responsibility and I in mine. I pray, my beloved brethren, that we may be faithful and true in these holy callings, in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Church_Leaders #Priesthood

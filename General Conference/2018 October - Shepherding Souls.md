@@ -115,3 +115,5 @@ May we raise our sights to this prophetic vision so we can shepherd souls to the
 
 [^19]: [[1 Peter 5.4|1 Peter 5:4]].
 
+
+#Activation #Jesus_Christ #Ministering

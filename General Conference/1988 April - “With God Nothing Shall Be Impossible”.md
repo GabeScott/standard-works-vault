@@ -95,5 +95,4 @@ Foster your faith. Fuse your focus with an eye single to the glory of God. “Be
 The great latter-day work of which we are a part shall be accomplished. Prophecies of the ages shall be fulfilled. “For with God all things are possible” ([[Mark 10.27|Mark 10:27]]), I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Faith

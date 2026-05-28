@@ -84,5 +84,4 @@ John Gillespie Magee said:
 And that is the purpose of our lives, that by keeping His commandments the offspring of God may become even as their eternal parents. The greatest good fortune of our lives, my brothers and sisters, is that we have been created in his image and have been endowed with a set of his attributes and potentialities. And if we live as we should, then on some future Easter morning, we may be born again into his presence to live with him in the celestial kingdom throughout eternity. And that it may be so with each one of us, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Plan_Of_Salvation

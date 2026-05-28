@@ -23,5 +23,4 @@ I testify that the gospel was restored by Joseph Smith in these the latter days,
 I offer that witness, this testimony, in the name of Jesus Christ. Amen.
 
 
-
-
+#Testimony

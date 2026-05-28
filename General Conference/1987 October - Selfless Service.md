@@ -81,5 +81,4 @@ With the constant exhortation to come unto Christ is the promise that we can be 
 In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Sacrifice #Service #Worldliness

@@ -89,5 +89,4 @@ I express deep, sincere appreciation, not only for the support of my Brethren of
 May God bless each of you wherever you may be. May your faith strengthen as you serve in righteousness. May your testimonies grow ever stronger as you drink of the fountain of eternal truth. May you be blessed in your basket and in your store as you walk honestly with the Lord in the support of his great kingdom. May the peace of Christ abide in your hearts and in your homes, I humbly pray in his holy name, even the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood #Quorum_Of_The_Twelve_Apostles

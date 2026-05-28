@@ -63,5 +63,4 @@ Think of the potential if all who bear the priesthood were deeply involved in th
 In missionary work some stakes have raised their sights so much that each ward is going to bring in as many new members as the entire stake used to. In temple work I have seen stakes, who worked through priesthood power, make yearly increases that were greater than the total performance of average stakes nearby. In every activity in which the priesthood is involved, I become excited when I see how far we can go if we have faith enough to mobilize the great army of men of the priesthood. Not a testimony like Laman and Lemuel. And I know some say, “He doesn’t understand how tough it is in our quorum.” Well, Nephi didn’t either; but Nephi had a testimony. In the name of Jesus Christ. Amen.
 
 
-
-
+#Fellowshipping #Priesthood

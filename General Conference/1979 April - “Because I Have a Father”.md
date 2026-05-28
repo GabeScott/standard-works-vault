@@ -119,5 +119,4 @@ Well, our frustrations and disappointments may be just pinpricks in the eternal 
 You see, my bright-eyed, three-year-old friend was right all along. Why will you make it in today’s world? Why will you be able to cope? Cory’s answer was right: *“Because you have a Father,”* to which I testify, in the holy name of Jesus Christ, amen.
 
 
-
-
+#Courage #Faith

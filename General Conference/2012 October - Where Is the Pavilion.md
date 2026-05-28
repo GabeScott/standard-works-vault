@@ -93,3 +93,5 @@ If we serve with faith, humility, and a desire to do God’s will, I testify tha
 
 [^9]: [[Moroni 10.34|Moroni 10:34]].
 
+
+#Faith #Humility #Service

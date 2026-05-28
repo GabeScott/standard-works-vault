@@ -27,5 +27,4 @@ We are grateful that broadcast technology now gives Church leaders the capacity 
 This is the work of the Lord Jesus Christ. We are His servants, directed by His Holy Spirit. We invoke the blessings of our Lord upon the leaders of these organizations and upon the faithful women and girls who serve the Lord in these organizations and in their individual lives. In the name of Jesus Christ, amen.
 
 
-
-
+#Church_Doctrine #General_Conference #Women

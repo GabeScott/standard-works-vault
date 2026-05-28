@@ -101,5 +101,4 @@ We must strengthen one another, help one another, play the game together if we a
 Thank you, my brethren, for the goodness and consistency of your lives. This work is becoming as a city set upon a hill whose light cannot be hid because so many of you are true and faithful. May the Lord bless you. May he grant unto you peace in your lives, that peace which comes with honesty and integrity and prayer. May he bless you with the love of your families, your wives, and your children. May he bless all of us with strength to live with consistency without stumbling as we walk the way of immortality and eternal life, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Athletics #Character #Plan_Of_Salvation #Self-Control #Temptation

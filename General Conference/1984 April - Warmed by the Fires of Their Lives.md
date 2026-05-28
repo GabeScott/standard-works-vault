@@ -51,5 +51,4 @@ I know this is true. I feel it with every fiber of my being, just as I know that
 May we all make the most of every moment of our lives, that somewhere beyond the hills of time we will be with them again, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Relief_Society #Women

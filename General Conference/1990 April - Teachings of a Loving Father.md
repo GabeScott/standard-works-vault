@@ -61,5 +61,4 @@ So many blessings, so many teachings! We changed and grew during that time. How 
 A few days after David left us, my daughter learned that she was pregnant again. So much love from our Father! Additional teachings. I testify that our teacher, our Shepherd, is Christ, our best friend, who clears up all our doubts. He heals our wounds and turns our pain into sweet experiences. I say this in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Faith #Jesus_Christ #Plan_Of_Salvation #Prayer

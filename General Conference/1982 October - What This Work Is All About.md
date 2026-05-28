@@ -93,5 +93,4 @@ I do not know whether the two men who served as Jack’s bishops know what has b
 This work of ours is a great work of redemption. All of us must do more because the consequences can be so remarkable and everlasting. This is our Father’s work, and he has laid upon us a divine injunction to seek out and strengthen those in need and those who are weak. As we do so, the homes of our people will be filled with an increased measure of love; the nation, whatever nation it be, will be strengthened by reason of the virtue of such people; and the Church and kingdom of God will roll forward in majesty and power on its divinely appointed mission. Of this I testify and for this I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Leadership #Miracles #Obedience #Service

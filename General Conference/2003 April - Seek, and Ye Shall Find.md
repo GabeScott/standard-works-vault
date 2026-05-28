@@ -87,3 +87,5 @@ As we seek Him, we find that He is “the light and the life of the world.”[^1
 
 [^18]: [[Mosiah 16.9|Mosiah 16:9]].
 
+
+#Jesus_Christ #Prayer #Spirituality

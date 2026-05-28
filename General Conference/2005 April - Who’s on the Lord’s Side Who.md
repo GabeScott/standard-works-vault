@@ -81,5 +81,4 @@ Now is indeed the time to show we are on the Lord’s side.
 Brethren, this is His work. The gospel of Jesus Christ has been restored in its fulness in these last days through the Prophet Joseph Smith. Christ stands at the head of this Church, leading it forward through His living prophet, Gordon B. Hinckley. Christ will return to the earth to rule and reign, and we will each, one day, stand before Him to be judged on our thoughts, our deeds, and the desires of our hearts. He is our Savior and our Redeemer, and I so testify in His holy name, amen.
 
 
-
-
+#Covenants #Morality #Obedience #Priesthood

@@ -55,5 +55,4 @@ This work in these latter days is bringing to pass the prophecy of the prophet E
 My dear brothers and sisters, I bear you my testimony that this is the day of the establishment of the kingdom of Christ on this earth—that nobody will be able to escape the decision to accept God as he really is and not as he has been made to appear according to man-made philosophies. I know that this is the work of the living God, working through a living prophet, Spencer W. Kimball. I say this in humility in the name of our Savior, Jesus Christ, amen.
 
 
-
-
+#Godhead #Plan_Of_Salvation

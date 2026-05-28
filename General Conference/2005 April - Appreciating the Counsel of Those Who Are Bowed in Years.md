@@ -71,5 +71,4 @@ Summarizing the testimonies of all the ancient and modern-day apostles and proph
 I wish to add my own humble affirmation of the truthfulness of the aforementioned testimonies. I know that our Heavenly Father is literally the Father of our spirits and that Jesus Christ is our Savior, our Redeemer, our Lord, and, as we obey His commandments, our friend (see [[John 15.14|John 15:14]]). As we study the scriptures, may we have added insights into and greater appreciation for the power of testimony, especially as it is borne by those of great wisdom and advanced age, is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Elderly #Prophets #Testimony #Wisdom

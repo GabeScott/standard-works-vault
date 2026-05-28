@@ -102,5 +102,4 @@ Brethren, let us hearken to the hymn, “Improve the Shining Moments”:
 As we leave this general priesthood meeting, let us all determine to shed any barnacles of sin, to prepare for our time of opportunity, and to honor the priesthood we bear through the service we render, the lives we bless, and the souls we are privileged to help save. You are “a chosen generation, a royal priesthood, an holy nation” ([[1 Peter 2.9|1 Pet. 2:9]]), and you can make a difference. To these truths I testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood #Repentance #Worthiness

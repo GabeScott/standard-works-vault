@@ -101,5 +101,4 @@ Search your histories of the world. You can’t find anywhere else where people 
 Now, that is my testimony to you, and I pray God to keep you and your families with the harness on, using your gifts and talents for the building of our Father’s kingdom, and I leave you my love and blessing in the name of the Lord, Jesus Christ, amen.
 
 
-
-
+#Activation

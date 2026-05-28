@@ -23,5 +23,4 @@ So much has been done and is to be done, and it will be done best when we follow
 I humbly pray, my brothers and sisters, that we will do this as we represent the Lord in this great welfare work. And I leave my testimony with you that it is the work of the Lord. It is our responsibility and we will be blessed according to the way we perform our duties. May we do it well, I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Accountability #Fasting

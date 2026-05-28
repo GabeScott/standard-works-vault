@@ -108,5 +108,4 @@ As we faithfully render our stewardships in the Church, as we remember that our 
 My dear brothers and sisters, I bear humble testimony that I know that Jesus is the Christ, the Savior of the world, and if we heed his beckoning to come unto him, surely we will be blessed with all the blessings he has in store for the faithful and the righteous. In the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Faith

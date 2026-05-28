@@ -25,5 +25,4 @@ And finally, thank you, Father, for my testimony, for knowing without the slight
 For this testimony, which is my surety, my rock, my sustenance, which I have received by the mediation of the Holy Ghost, I give infinite thanks, and I place all my talents, time, efforts, and all that I possess to the work to which I have been called. That would be my way to express in part my thanks. *Gracias.* I say these things in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Gratitude

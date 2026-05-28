@@ -103,5 +103,4 @@ All of this of which I have spoken comes of the revealed word of the Almighty to
 God be thanked for this glorious work, for this day of restored truth and light, for the gospel of Jesus Christ. I bear witness of its divinity as I express unto you, my brethren and sisters, my love for each of you, in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Education #Prophets

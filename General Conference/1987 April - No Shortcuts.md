@@ -71,5 +71,4 @@ And then be available to the gifts of the Spirit through your personal worthines
 O youth of the noble birthright, you young men of a royal priesthood, become a modern-day Nephi in your faith. Yes, we all agree, it’s hard at times, but the rewards are overwhelming. And never forget this: anyone who has been foreordained as you have been, anyone who has been given the gift of the Holy Ghost as you have, and anyone who has had priesthood authority conferred upon him as you have, will surely find within his grasp the ability to acquire a strong testimony—a testimony that should never stop growing. As with Joshua of old, “Choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]). And just as surely as you do that, the “doctrine of the priesthood shall distil upon thy soul as the dews from heaven” ([[D&C 121.45|D&C 121:45]]). May it be so, I pray humbly, in the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood

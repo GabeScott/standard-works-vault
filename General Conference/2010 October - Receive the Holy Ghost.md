@@ -89,5 +89,4 @@ I pray we will sincerely desire and appropriately invite the Holy Ghost into our
 I bear witness of the living reality of the Father and the Son. I testify the Holy Ghost is a revelator, a comforter, and the ultimate teacher from whom we should learn. And I witness that the blessings and gifts of the Spirit operate in the restored, in the true, and in the living Church of Jesus Christ in these latter days. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Baptism #Holy_Ghost #Obedience #Restoration #Revelation

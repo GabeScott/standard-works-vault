@@ -23,5 +23,4 @@ Since all of us who have been assigned to speak in general conference would like
 My own brief tribute—suitable to this conference and to the tributes we have already paid—is this: I loved Russell M. Nelson and have learned more about the gospel and gospel leadership from my long friendship and association with him than from any other leader I have personally known. He is our model as a servant and follower of the Lord Jesus Christ. Of these things I testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Leaders #General_Conference

@@ -21,5 +21,4 @@ I want to keep those same feelings for the rest of my life. I want to keep on ge
 Young women all over the world, I *challenge* each of you to listen to the prophet and find something you can improve on, so you can receive the blessings when you follow his advice. I know it works. It is definitely worth it, because you receive so much more than you give. We will always be in debt to Heavenly Father. I know you will draw closer to our Father in Heaven and his Son, Jesus Christ, as you listen to the words of the prophet. In the name of Jesus Christ, amen.
 
 
-
-
+#Prophets #Scripture_Study

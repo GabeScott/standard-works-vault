@@ -115,3 +115,5 @@ I hope as you have listened this morning that the Spirit has impressed on your m
 
 [^21]: See [[Alma 32.27|Alma 32:27–28]][[Alma 32.28|]].
 
+
+#Adversity #Conversion #Faith #Fasting #Obedience #Prayer #Revelation #Scriptures

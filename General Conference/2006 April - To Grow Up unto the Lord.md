@@ -69,3 +69,5 @@ As that faithful bishop, those dedicated sisters, and I might attest, in this on
 
 [^10]: [[1 Nephi 18.3|1 Nephi 18:3]].
 
+
+#Faith #Service #Spirituality

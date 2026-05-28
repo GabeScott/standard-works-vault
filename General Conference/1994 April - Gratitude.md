@@ -73,5 +73,4 @@ This great principle of gratitude, made a daily part of our lives and our prayer
 This testimony, and with a love unfeigned to all the special children of our Heavenly Father, I bear humbly and in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Godhead #Gratitude #Prayer

@@ -109,3 +109,5 @@ With the Lord’s living prophets and apostles, we too can join a virtuous circl
 
 [^14]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
+
+#Discipleship #Humility #Jesus_Christ #Love #Service

@@ -65,3 +65,5 @@ I testify that we are children of a loving God. I witness that He wants us to be
 
 [^8]: See [[Matthew 28.6|Matthew 28:6]]; [[Mark 16.6|Mark 16:6]].
 
+
+#Commandments #Conversion #Jesus_Christ #Obedience #Safety

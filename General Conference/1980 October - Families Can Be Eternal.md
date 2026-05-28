@@ -59,5 +59,4 @@ Oh, brothers and sisters, *families can be forever!* Do not let the lures of the
 I bear you my solemn witness that God lives, that Jesus Christ lives, and that he is our Savior and Redeemer. I leave you my love and my blessings, in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Morality

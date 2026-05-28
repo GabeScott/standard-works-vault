@@ -187,5 +187,4 @@ Let us never forget that the Lord has promised that if we seek first the kingdom
 And this is my testimony to you, in the sacred name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Agency #Commandments #Obedience

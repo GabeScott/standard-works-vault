@@ -103,5 +103,4 @@ To those within the sound of my voice who are living this principle, the Lord bl
 I leave you my testimony of the truth of the cause in which we labor, of the living reality of our Father who is our God, to whom someday each of us must make an accounting, and of his beloved Son, who is our Savior and Redeemer, the Author of Truth. In the name of Jesus Christ. Amen.
 
 
-
-
+#Honesty #Truth

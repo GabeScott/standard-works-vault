@@ -69,5 +69,4 @@ Key statements made by latter-day prophets are not trite clichés. They are vita
 I bear my witness that Jesus is the Christ, the Son of God. This is his church; he directs it through his prophets. Joseph Smith is the prophet of the Restoration. President Ezra Taft Benson is the present prophet of God. In the name of Jesus Christ, amen.
 
 
-
-
+#Mission_Of_The_Church #Priesthood #Responsibility

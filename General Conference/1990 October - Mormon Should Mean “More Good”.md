@@ -131,5 +131,4 @@ May God grant us the strength and the discipline so to conduct our lives as to f
 I testify of His living reality. I testify of the reality of God, our Eternal Father. I testify of the restoration of the gospel of Jesus Christ in this the dispensation of the fulness of times. I testify that the Book of Mormon is the word of God and that when people speak of us by the name of this book, they will compliment us, if we will live worthy of the name, remembering that in a very real sense *Mormonism* must mean that greater *good* which the Lord Jesus Christ exemplified. I so pray in His holy name, even the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Compassion #Example #Name_Of_Church

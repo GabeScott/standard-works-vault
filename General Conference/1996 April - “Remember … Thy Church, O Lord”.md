@@ -41,5 +41,4 @@ Everywhere we go, we see great vitality in this work. There is enthusiasm wherev
 Brothers and sisters, let us now return to our homes with increased resolution in our hearts to live the gospel more fully, to serve with greater diligence, and to stand for truth with enthusiasm and without fear. As a servant of the Lord, I leave my blessing upon you. May you be happy as you walk with faith, I humbly pray, in the name of Him whom we all love and serve, even the Lord Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Criticism #General_Conference #Jesus_Christ #Tabernacle_Choir #Truth

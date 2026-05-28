@@ -47,5 +47,4 @@ Brethren, after all the missionary service I have had, I wouldn’t want to rais
 God bless you all, and may we not disappoint our great leader in sending all of our boys on missions, I pray, and I leave you my blessing, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Activation #Conversion #Love #Missionary_Work

@@ -59,5 +59,4 @@ The enduring strength of the kingdom is not to be found in the number of its mem
 It is a time for us to assess our own spiritual vital signs in those essential areas that take us beyond the information on the charts. “For, behold, the kingdom of God is within you.” In the name of Jesus Christ, amen.
 
 
-
-
+#Spirituality

@@ -39,5 +39,4 @@ As we become “steadfast and immovable” in keeping the commandments of the Lo
 I pray that we will feel this deep in our hearts and in our lives, in the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Family #Home

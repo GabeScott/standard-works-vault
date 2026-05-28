@@ -120,5 +120,4 @@ Silently, wondrously, His gift had been given. Lives were blessed, needs were me
 I testify that God lives, that Jesus is the Christ, that we are led by a prophet, that sacrifice does indeed bring forth the blessings of heaven. In the name of Jesus Christ, amen.
 
 
-
-
+#Love #Welfare

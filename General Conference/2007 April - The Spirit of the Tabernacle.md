@@ -137,5 +137,4 @@ Deeply moved, Parley P. Pratt turned his thoughts to a hymn which is actually a 
 I add my testimony that Jesus is the Christ, that this is His house, on this sacred day of dedication, in the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Music #Spirituality #Temple_Square

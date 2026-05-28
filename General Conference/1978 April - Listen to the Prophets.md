@@ -67,5 +67,4 @@ Far from freeing those involved, sin is an admission of surrender to the herd. I
 Before closing I should like to just add—the four testimonies of these young, new leaders of the Church were very, very inspiring. When I heard each one of them say, “I have put everything I own or ever have owned upon the altar; it’s there for the Lord or his servants to identify and to call upon,” that pleased me because we know there is still faith in the Church, in Zion, among the youth, and among the young people who are growing up in this church. I would not wish to talk longer but just say, the Lord bless you, my brethren and sisters, as you return to your homes. Peace be with you. May you find every home to which you return a real Latter-day Saint home with all the gospel in it. I bear testimony to the divinity also of this great work which is the greatest thing in the world, as was said by one of the Brethren. In the name of Jesus Christ, amen.
 
 
-
-
+#Morality #Primary #Prophets

@@ -55,5 +55,4 @@ Let’s fold our arms, bow our heads, close our eyes, and pray.
 Our dear Father in Heaven, we thank thee for thy many blessings—for the restoration of the gospel, which makes possible that we have the Book of Mormon, thy holy priesthood, and living prophets to guide us. We are grateful for the atonement of Jesus Christ, for immortality and the possibility of eternal life. Help us to make it a real probability as we come unto Christ through sacred covenants and ordinances. Please forgive our sins. And help us always recognize thy hand all around us and always, always keep thy commandments, in the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Faith #Obedience #Ordinances #Priesthood

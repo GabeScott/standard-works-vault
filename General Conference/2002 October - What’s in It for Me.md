@@ -129,3 +129,5 @@ I wish to testify that the greatest fulfilling service to be rendered by any of 
 
 [^22]: [[Matthew 10.39|Matthew 10:39]].
 
+
+#Generosity #Greed #Sacrifice #Service

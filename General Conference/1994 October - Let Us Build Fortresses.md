@@ -47,5 +47,4 @@ I can picture an interview with my Heavenly Father before coming to this earthâ€
 I know we have a loving Father who is waiting for us. I know that he instructs us through his Only Begotten, our Savior and Redeemer. I know that his church and his gospel are real fortresses which will give peace and security to our most precious treasure on this earth, our family. Of this I testify in the name of our Lord Jesus Christ, amen.
 
 
-
-
+#Adversity #Councils #Example #Family #Family_Home_Evening #Home #Media #Parenthood #Prayer #Satan #Youth

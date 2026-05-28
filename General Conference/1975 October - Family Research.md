@@ -59,5 +59,4 @@ Many good members of the Church have many records lying on the shelf. They have 
 May His blessings be upon all those who are diligent in this work, that we may prepare the way for his coming, for I testify to you that this is His work, in the name of Jesus Christ. Amen.
 
 
-
-
+#Family_History #Temple_Work

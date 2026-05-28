@@ -53,5 +53,4 @@ I know this gospel is true. I have no doubt about that at all. I never remember 
 If we do so, we shall be able to meet the trying days ahead, which are coming faster than we think. The peoples of the earth will be in such trouble and distress that they will be unable to solve their problems in any other way than to turn to the Lord’s program. I bear you this testimony in the name of Jesus Christ. Amen.
 
 
-
-
+#Love

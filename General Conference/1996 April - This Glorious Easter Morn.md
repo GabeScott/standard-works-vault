@@ -106,5 +106,4 @@ Towering above all mankind stands Jesus the Christ, the King of glory, the unble
 He is our King, our Lord, our Master, the living Christ, who stands on the right hand of His Father. He lives! He lives, resplendent and wonderful, the living Son of the living God. Of this we bear solemn testimony this day of rejoicing, this Easter morning, when we commemorate the miracle of the empty tomb, in the name of Him who rose from the dead, even the Lord Jesus Christ, amen.
 
 
-
-
+#Atonement #Church_Growth #Covenants #Death #Evil #Family #Jesus_Christ #Resurrection #Scriptures #Service #Testimony #Youth

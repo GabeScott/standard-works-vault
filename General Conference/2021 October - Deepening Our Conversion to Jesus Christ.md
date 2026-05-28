@@ -63,5 +63,4 @@ We should seek the companionship of the Holy Ghost. This goal should govern our 
 I testify that Jesus Christ is the beloved Son of our Heavenly Father. I love my Savior. I am grateful for His scriptures and for His living prophets. President Nelson is His prophet. In the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Discipleship #Holy_Ghost #Jesus_Christ #Scripture_Study #Scriptures

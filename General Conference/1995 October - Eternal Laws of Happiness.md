@@ -119,3 +119,5 @@ May we teach and live the commandments so that together with our families we may
 
 [^34]: See [[D&C 88.19|D&C 88:19]]; John Taylor, *The Government of God* (Liverpool: S. W. Richards, 1852), pp. 32–46.
 
+
+#Atonement #Children #Commandments #God_The_Father #Honesty #Jesus_Christ #Joy #Morality #Ordinances #Parenthood #Repentance #Sabbath #Truth #Worship

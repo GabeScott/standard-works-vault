@@ -89,3 +89,5 @@ It is impossible for me to find the words to adequately express the sacred feeli
 
 [^6]: [[Luke 6.38|Luke 6:38]].
 
+
+#Charity #Service

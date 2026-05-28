@@ -117,3 +117,5 @@ May the Lord bless each of you special young men with strength and courage to ob
 
 [^21]: [[Alma 41.10|Alma 41:10]].
 
+
+#Commandments #Healing #Missionary_Work #Morality #Obedience #Priesthood #Service #Sin #Temptation #Youth

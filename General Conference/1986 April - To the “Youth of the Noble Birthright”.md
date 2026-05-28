@@ -133,5 +133,4 @@ Live up to your godly potential. Remember who you are and the priesthood that yo
 “O youth of the noble birthright,” with all my heart I say, “Carry on, carry on, carry on!” In the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Morality #Priesthood

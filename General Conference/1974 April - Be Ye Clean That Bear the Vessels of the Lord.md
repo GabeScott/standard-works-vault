@@ -119,5 +119,4 @@ Certainly we priesthood bearers who would so magnify our callings in the priesth
 May it be so, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Morality #Obedience #Priesthood

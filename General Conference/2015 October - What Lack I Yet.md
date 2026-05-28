@@ -99,3 +99,5 @@ It is my prayer that this ultimate experience can be ours someday as we allow th
 
 [^10]: Spencer W. Kimball, “Give the Lord Your Loyalty,” *Ensign,* Mar. 1980, 4; *Tambuli,* Feb. 1981, 47.
 
+
+#Atonement #Discipleship #Holy_Ghost

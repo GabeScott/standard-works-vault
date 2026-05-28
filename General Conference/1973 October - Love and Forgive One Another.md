@@ -95,5 +95,4 @@ This means if we are to gain salvation, exaltation, and eternal life we must liv
 I leave my testimony with you today that I know the true gospel of Jesus Christ has been restored in this dispensation, that Joseph Smith was an instrument in the hands of the Lord in bringing this about. He was and is a prophet of God. I testify that we are led today by a prophet, President Harold B. Lee. May we all give him and his associates our love and support, and pray continually that they may be blessed with health, strength, and inspiration to carry their tremendous responsibilities. May we have courage and determination to keep the commandments and live in accordance with the principles of the gospel, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Love #Obedience

@@ -111,5 +111,4 @@ The Lord declares that to qualify to enter his presence we must live by every wo
 May we have the courage and the good sense to keep it, I humbly pray in the sacred name of Jesus Christ. Amen.
 
 
-
-
+#Obedience #Sabbath

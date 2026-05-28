@@ -23,5 +23,4 @@ If you do not have a firm testimony of these things, do that which is necessary 
 My dear associates in the work of the Lord, I implore each of us to prayerfully study and ponder the Book of Mormon each day. As we do so, we will be in a position to hear the voice of the Spirit, to resist temptation, to overcome doubt and fear, and to receive heaven’s help in our lives. I so testify with all my heart in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Testimony

@@ -107,5 +107,4 @@ You may not have seen that mighty change in yourself yet. But it will come as yo
 I testify that God the Father lives and that He loves you. I testify that Jesus is the Christ, that He called you, and that He atoned for your sins and those of all you will ever serve. I testify that President Gordon B. Hinckley holds the keys that allow us to offer to our Father’s children the covenants and ordinances that can qualify them for eternal life. And I pray with all my heart that we may touch lives with faith enough to repent and to make and keep those sacred covenants. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Agency #Commandments #Death #Faith #Jesus_Christ #Missionary_Work #Obedience #Plan_Of_Salvation #Service #Teaching #Work

@@ -55,5 +55,4 @@ I once attended a funeral service with Elder M. Russell Ballard. A statement he 
 May we do so is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Endurance

@@ -77,5 +77,4 @@ We have read in the papers in time past where children have been kidnapped, and 
 Brethren and sisters, I thank God for this great truth that has come to us in the restoration of his gospel. That is only just a beginning. And to this great audience here today, and all that are listening in over the radio and those who will listen in tonight, and those in whose hearts God has planted a witness and a testimony of the divinity of this work, I bear you my witness. I know that it is the marvelous work and a wonder that our Father promised through his great prophet that he would send to us, and I leave you my love and blessing and witness, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Family #Marriage

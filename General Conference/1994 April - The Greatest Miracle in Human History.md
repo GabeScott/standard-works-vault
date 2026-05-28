@@ -107,5 +107,4 @@ Joseph Smith lived as an instrument in the hands of the Lord for the establishme
 And so, on this Easter Sabbath, we bear testimony of the Redeemer of the world, He who was born the Only Begotten of the Father, He who went about doing good in the exercise of His divine power, He who died on Calvary’s hill, and He who rose to become the firstfruits of the Resurrection. We testify to the truth of the words of the Apostles and other witnesses of old. We further confirm the truth of the testimony of the great seer and revelator of this dispensation, the Prophet Joseph Smith, who 150 years ago gave his life as a witness of the Risen Redeemer. And by the power of the Holy Ghost, we give our personal testimony that He who was slain on Calvary’s hill rose from the dead, our Savior, whose sacrifice made possible the gift of eternal life to all who will keep His commandments. In the name of Jesus Christ, our Redeemer, amen.
 
 
-
-
+#Book_Of_Mormon #Death #Jesus_Christ #Joseph_Smith #Resurrection

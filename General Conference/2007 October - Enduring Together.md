@@ -63,5 +63,4 @@ I rejoice in belonging to such a loving and caring organization. No one knows be
 May we be an instrument in lightening the burden of others, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Endurance #Love #Service

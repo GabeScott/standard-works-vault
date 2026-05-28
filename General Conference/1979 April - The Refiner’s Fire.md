@@ -83,5 +83,4 @@ Out of the refiner’s fire can come a glorious deliverance. It can be a noble a
 I now wish to conclude by testifying concerning Jesus as the Christ and the Divine Redeemer. He lives! His are the sweet words of eternal life. He is the Son of the Living God. This is his holy work and glory. This is his church. It is true. I am most grateful for this sacred knowledge. It is my cherished privilege and duty to so testify, which I humbly do. In the hallowed name of the Lord Jesus Christ, amen.
 
 
-
-
+#Adversity #Endurance #Faith #Jesus_Christ #Pioneers #Spirituality

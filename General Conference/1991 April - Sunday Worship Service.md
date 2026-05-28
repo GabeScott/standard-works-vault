@@ -57,5 +57,4 @@ That we may make sacrament meeting a joyful time for worshipping our Savior, I p
 I believe with all my soul in Jesus Christ, our elder brother. May we understand his teachings and follow him, via a spiritual sacrament meeting, prayer, and reading of the scriptures. This is his divine church. Through the Prophet Joseph Smith the Lord ushered in the fulness of the gospel in this last dispensation of time. President Ezra Taft Benson is our true and living prophet, and I say this in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Sabbath #Sacrament #Worship

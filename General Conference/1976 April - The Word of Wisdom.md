@@ -57,5 +57,4 @@ I do know that if we keep the Word of Wisdom, the destroying angel will spare us
 The Lord has spoken. Of this I bear my witness in the name of Jesus Christ. Amen.
 
 
-
-
+#Word_Of_Wisdom

@@ -123,3 +123,5 @@ I raise my voice in testimony and promise, along with the great Apostles who hav
 
 [^18]: [[D&C 81.5|D&C 81:5]].
 
+
+#Compassion #Family #Fasting #Forgiveness #Generosity #Love #Peace #Poverty #Prayer #Priesthood #Service #Spirituality #Welfare

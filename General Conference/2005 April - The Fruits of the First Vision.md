@@ -65,5 +65,4 @@ As one of the least among you, but in my calling as one of the Apostles of Jesus
 I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Church_History #Holy_Ghost #Joseph_Smith #Testimony

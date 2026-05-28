@@ -61,5 +61,4 @@ In verse 41 it tells us how to nourish the word with faith, diligence, and with 
 This is our Heavenly Father’s promise to us if we respond to the invitation to experiment upon the word. I bear my testimony of that promise in the name of Jesus Christ, amen.
 
 
-
-
+#Scripture_Study #Young_Women

@@ -95,5 +95,4 @@ Unitedly, working hand in hand, we shall move forward as servants of the living 
 I repeat, this, my brethren and sisters, is the work of the Almighty. He lives, our Father and our friend. It is the work of our Redeemer, who out of a love beyond comprehension gave His life for each of us. It is a divine work restored through a chosen prophet. It is a work to which we dedicate our lives as we invoke choice blessings upon you, our beloved associates, in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Elderly #Howard_W._Hunter #Jesus_Christ #Parenthood #Respect #Tolerance #Unity #Youth

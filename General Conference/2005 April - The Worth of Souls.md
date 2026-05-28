@@ -45,5 +45,4 @@ When we see the effect one person can have on the lives of so many, it perhaps i
 I pray we all might consider what we can do individually to assist those who will be the future great-grandparents, whether a little child, a teenager, or an adult, so that each will leave a righteous legacy of those who know and love the Lord. In the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Forgiveness #Individual_Worth #Obedience

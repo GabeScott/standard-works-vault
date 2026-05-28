@@ -124,5 +124,4 @@ As we do, and direct our footsteps along the paths which Jesus walked, let us re
 To his testimony I add my witness: He lives. His prophet this day has been sustained—even President Spencer W. Kimball. I so testify, in the name of Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ

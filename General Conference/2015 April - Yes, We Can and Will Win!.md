@@ -95,3 +95,5 @@ I bear testimony of these truths in the sacred name of Jesus Christ, amen.
 
 [^16]: [[John 16.33|John 16:33]].
 
+
+#Agency #Atonement #Pornography #Temptation #Testimony

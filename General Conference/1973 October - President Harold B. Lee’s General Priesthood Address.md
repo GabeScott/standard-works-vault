@@ -95,5 +95,4 @@ I bear you my witness, brethren, and want you to know of our love for you brethr
 I plead with you, my brethren, and leave with you my blessing, and bear you my witness this night, in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Family #Marriage #Obedience #Priesthood #Repentance #Responsibility #Spirituality #Youth

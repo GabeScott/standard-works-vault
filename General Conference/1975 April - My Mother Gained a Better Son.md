@@ -39,5 +39,4 @@ All the presidents of the Church that followed Joseph Smith—they were all call
 I bear you this witness humbly in the name of Jesus Christ. Amen.
 
 
-
-
+#Testimony

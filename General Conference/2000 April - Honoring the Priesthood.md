@@ -47,5 +47,4 @@ A time-out usually concludes with a little pep talk. Brethren, we can prevail an
 I testify we are on the Lord’s errand. He is our Savior. He is our Redeemer. He has atoned for our sins. He is our Advocate with the Father. He lives. He loves us unconditionally. We are bearers of His priesthood. I love President Hinckley, his counselors, the Twelve, and my fellow General Authorities, and I testify of their goodness, their greatness, and their authority. I love you, my fellow holders of the priesthood, and pray for our success. In the holy name of Jesus Christ, amen.
 
 
-
-
+#Communication #Covenants #Example #Family #General_Conference #Media #Missionary_Work #Priesthood #Profanity #Responsibility #Standards #Teaching #Word_Of_Wisdom

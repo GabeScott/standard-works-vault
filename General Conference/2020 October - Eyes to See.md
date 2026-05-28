@@ -83,3 +83,5 @@ And then, in that great day “when he shall appear we shall be like him, for *w
 
 [^9]: [[Moroni 7.48|Moroni 7:48]]; emphasis added.
 
+
+#Love #Service

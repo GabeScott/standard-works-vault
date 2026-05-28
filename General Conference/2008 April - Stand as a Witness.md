@@ -87,3 +87,5 @@ May we press forward with steadfast faith in Christ, standing as witnesses of Hi
 
 [^12]: “How Firm a Foundation,” *Hymns,* no. 85.
 
+
+#Example #Holy_Ghost #Jesus_Christ #Testimony

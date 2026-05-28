@@ -161,5 +161,4 @@ And now in conclusion, you remember the words of Paul. He said: “And now abide
 And I pray that the charity of Jesus Christ will be with and abide with each one of us, that we will understand the total dimension of welfare services in the Church, in the name of Jesus Christ, our Master. Amen.
 
 
-
-
+#Charity #Welfare

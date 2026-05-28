@@ -157,5 +157,4 @@ Now, in closing, my dear young sisters, how I love and respect you! How I pray f
 Live up to your divine potential. Remember who you are and the divine heritage that is yours—you are literally the royal daughters of our Father in Heaven. O “youth of the noble birthright,” with all my heart I say, “Carry on, carry on, carry on!” (*Hymns,* 1985, no. 255), in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Meetings #Family #Marriage #Missionary_Work #Morality #Patriarchal_Blessings #Scripture_Study #Women #Young_Women #Youth

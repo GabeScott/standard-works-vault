@@ -49,5 +49,4 @@ Now for a brief moment the pen is in our hand to mark the pages of history. Let 
 As we start a new century, may it be a new beginning of governing with righteousness based on the eternal laws of God, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Patriotism

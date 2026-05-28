@@ -71,5 +71,4 @@ It is important for each of us to ponder how it feels to be lost and what it mea
 As the scripture also teaches, such shepherds experience inexpressible joy. I bear witness to this fact in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Responsibility

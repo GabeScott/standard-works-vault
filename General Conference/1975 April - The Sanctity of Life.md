@@ -57,5 +57,4 @@ I urge all who may have dipped into the fountains of life to respect the divinit
 I leave my testimony that the most precious of all of God’s creations is eternal life itself, in the sacred name of Jesus Christ. Amen.
 
 
-
-
+#Abortion

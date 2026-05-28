@@ -41,5 +41,4 @@ Tonight, as President Gordon B. Hinckley has a message for each one of us, we as
 It is my prayer that we will show by our behavior that we are a covenant people, that we sustain the living prophets. In the name of Jesus Christ, amen.
 
 
-
-
+#Church_Leaders #Prophets #Testimony

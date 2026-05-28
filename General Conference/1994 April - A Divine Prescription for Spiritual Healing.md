@@ -67,5 +67,4 @@ I urge any who are in need of such spiritual healing to follow this divine presc
 I testify that while there are physical ailments that are not healed, all spiritual illness can be healed because of the atonement of Jesus Christ. If we will but use the God-given ingredients to cause such healing, it will happen. I testify of His healing power and promise that His prescription is the only cure for peace, happiness, and rest to one’s soul. In the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #Death #Forgiveness #Healing #Jesus_Christ #Mercy #Ordinances #Repentance #Sin

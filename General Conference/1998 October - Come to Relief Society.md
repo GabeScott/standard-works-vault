@@ -77,3 +77,5 @@ I testify to you that Relief Society is an organization of divine origin. We inv
 
 [^12]: *Ensign,* May 1998, 74.
 
+
+#Covenants #Divine_Nature #Family #Jesus_Christ #Love #Motherhood #Relief_Society #Service #Temples #Testimony #Women

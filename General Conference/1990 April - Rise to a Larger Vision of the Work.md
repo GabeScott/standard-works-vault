@@ -91,5 +91,4 @@ You have entrusted some of us with a heavy responsibility. God, our Eternal Fath
 This is the work of the Almighty. Let us never forget that. It is the work of His Son, our Savior. Of this I testify as I invoke these blessings upon you in the name of Jesus Christ, amen.
 
 
-
-
+#Financial_Management #Jesus_Christ #Prophets #Tithing

@@ -176,5 +176,4 @@ And as we repent of our sins and seek to keep his commandments and our covenants
 In all of this, we remember and rely on the Lord’s sure word: “Keep my commandments in all things. And, if you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God.” ([[D&C 14.6|D&C 14:6–7]][[D&C 14.7|]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Christianity #Jesus_Christ

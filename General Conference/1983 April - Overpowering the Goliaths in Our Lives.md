@@ -89,5 +89,4 @@ Brethren, keep your affections within your homes. Regard as your most precious p
 God bless you, my brethren, young and old, that the watch-care of the Lord may be over you, that you may stay close to Him and be deserving of His preserving hand, I humbly ask, in the name of Jesus Christ, amen.
 
 
-
-
+#Marriage #Temptation

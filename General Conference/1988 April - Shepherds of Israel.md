@@ -43,5 +43,4 @@ There can be no greater example of the very personal nature of a true shepherdâ€
 I testify, with all the fervency of my soul, regarding the need we have to be true shepherds and to come to know the personal nature of the true shepherdâ€™s call. As one of His shepherds, I bear witness of the sacred responsibility that has been placed on our shoulders to be true shepherds unto the flocks of Israel and to know the personal nature of that calling. In the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Leadership

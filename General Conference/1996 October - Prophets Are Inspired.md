@@ -31,5 +31,4 @@ Those words have been ringing through my ears ever since that happened: “Of co
 I thank the Lord every day for the health and determination I have to make the best use of every hour I have upon the earth to help in the spreading of this work. I leave you my love, my witness, and my own deep knowledge and conviction that it is true. In the name of Jesus Christ, amen.
 
 
-
-
+#Gordon_B._Hinckley #Prophets

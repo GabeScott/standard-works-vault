@@ -81,5 +81,4 @@ Over the many, many years as I have had the privilege of attending sacrament mee
 I encourage each of you to be faithful in your attendance at sacrament meeting. The Lord has promised that if you will partake of the sacrament worthily, He will bless you with the peace of mind that can only come from knowing that you are participating in His divine plan. I also promise each of you that you will receive the special blessings He has promised you here on earth and in the eternities to come, according to your faithfulness. This is my witness to you in the name of our Lord and Savior, Jesus Christ, amen.
 
 
-
-
+#Atonement #Church_Organization #Covenants #Jesus_Christ #Plan_Of_Salvation #Sacrament #Sacrifice

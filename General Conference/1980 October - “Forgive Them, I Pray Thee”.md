@@ -103,5 +103,4 @@ Beloved, the Lord has provided every soul with a Christlike ecclesiastical leade
 I know that he, our Savior, loves us and that he is our Redeemer, our Atoner, and our Savior. In the name of Jesus Christ, amen.
 
 
-
-
+#Forgiveness #Repentance

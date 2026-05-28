@@ -121,5 +121,4 @@ Joseph Smith saw the Father and the Son.
 These things I know and of them I testify. In the name of the Lord Jesus Christ, who is the Son, and whose witnesses we are. Amen.
 
 
-
-
+#Apostasy #Joseph_Smith #Restoration

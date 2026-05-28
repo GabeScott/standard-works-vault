@@ -119,5 +119,4 @@ No stone must be left unturned to find work for the unemployed to do in exchange
 God bless you, I pray in Jesus’ name. Amen.
 
 
-
-
+#Welfare

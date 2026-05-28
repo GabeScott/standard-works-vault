@@ -129,3 +129,5 @@ I bear solemn testimony that Jesus is the living Christ, our Savior and Redeemer
 
 [^20]: [[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]].
 
+
+#Adversity #Commandments #God_The_Father #Jesus_Christ #Peace #Plan_Of_Salvation #Responsibility #Service #Spirituality

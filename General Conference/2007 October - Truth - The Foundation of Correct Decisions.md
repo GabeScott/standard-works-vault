@@ -85,3 +85,5 @@ I love our Father in Heaven beyond my capacity to express. In all humility, I so
 
 [^6]: See [[Alma 42.31|Alma 42:31]].
 
+
+#Character #Spirituality #Truth

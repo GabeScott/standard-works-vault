@@ -29,5 +29,4 @@ President Hinckley’s address offered the counsel I needed to put things into p
 I am grateful for a living prophet who taught me to let go of feeling sorry for myself. He quoted [[Alma 26.35|Alma 26:35]], which teaches us there never was a people “that had so great reason to rejoice as we, since the world began.” I realize now that I have so much to be grateful for, so many reasons to rejoice. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Attitude #Church_Leaders #Prophets

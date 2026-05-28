@@ -69,5 +69,4 @@ Having attended sacrament meeting and partaken of the sacrament made the day mor
 I know that Jesus is the Christ and that He lives, having been put to death as the atoning sacrifice and resurrected that all men may live again and have eternal life. I pray that we may faithfully follow Him, in the name of Jesus Christ. Amen.
 
 
-
-
+#Sacrament

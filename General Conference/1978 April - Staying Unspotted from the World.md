@@ -41,5 +41,4 @@ Someone said, “No man goes to hell in a single jump.” My young friends, I pr
 God loves you. I love you. I thank God every day for young people like you. And I pray that he will always watch over you forever in the name of Jesus Christ. Amen.
 
 
-
-
+#Youth

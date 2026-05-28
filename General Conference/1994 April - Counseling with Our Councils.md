@@ -71,5 +71,4 @@ Let us remember that the basic council of the Church is the family council. Fath
 Brothers and sisters, let us work together as never before in our stewardships to find ways to make more effective use of the wondrous power of councils. I ask you to consider all that I said on this subject last October with what I have said today. I testify that we can bring the full force of God’s revealed plan for gospel governance into our ministries as we counsel together. May God bless us to stand united as we strengthen the Church and our members, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Bishops #Church_Meetings #Councils #Family #Fellowshipping #Priesthood #Reverence #Welfare #Work

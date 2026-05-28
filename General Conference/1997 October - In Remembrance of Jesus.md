@@ -93,5 +93,4 @@ I testify that our Lord Jesus Christ lives and guides and directs His Church by 
 May all who profess to be Christians, all who know and testify of Jesus, come unto Him and follow His teachings and example, being one as Heavenly Father and Jesus are one in purpose, to unite ourselves, to lift and strengthen each other, and take upon us one another’s burdens as our Savior has taken our burdens upon Him, in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Commandments #Covenants #Fellowshipping #Friendship #Holy_Ghost #Jesus_Christ #Joy #Ordinances #Plan_Of_Salvation #Priesthood #Resurrection #Sacrament #Testimony

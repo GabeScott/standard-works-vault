@@ -90,5 +90,4 @@ I like the verse of one of our hymns:
 May I leave with you my witness, my brothers and sisters, of the truth of this great work, which I have received in this same manner, through the Holy Ghost as it has witnessed unto me. In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Spirituality

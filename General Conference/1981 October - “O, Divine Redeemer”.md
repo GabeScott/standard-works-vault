@@ -115,5 +115,4 @@ Humbly, therefore, I promise to go whithersoever I am sent, striving to speak th
 In the holy name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ

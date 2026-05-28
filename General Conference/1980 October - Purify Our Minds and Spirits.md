@@ -65,5 +65,4 @@ A short time ago in a temple meeting, President Romney closed his testimony with
 My brethren, as your friend and brother, I plead with you to prepare as you have never prepared before, in the name of Jesus Christ, amen.
 
 
-
-
+#Morality

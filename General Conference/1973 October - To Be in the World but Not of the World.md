@@ -95,5 +95,4 @@ The Prophet Joseph wrote an editorial in the *Times and Seasons* in May 1842 reg
 May we appreciate the privilege that is ours in living in this time, in the beautiful, wonderful world in which we live. May we let the gospel light guide us that we may be in the world and yet not partake of the evil of the world. I so ask in the name of Jesus Christ. Amen.
 
 
-
-
+#Loyalty #Standards

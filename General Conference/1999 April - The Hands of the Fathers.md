@@ -122,3 +122,5 @@ Fathers, this Easter weekend may we be renewed in our task as parents, bolstered
 
 [^22]: [[Mark 14.36|Mark 14:36]].
 
+
+#Children #Fatherhood #God_The_Father #Jesus_Christ

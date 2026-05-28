@@ -47,5 +47,4 @@ The scripture explains: “There was exceedingly great prosperity in the church,
 Brothers and sisters, I humbly testify to you that God lives. Jesus is the Christ. He loves us. As we emulate his love, we can bring wonderful brothers and sisters back into this fold. This is his Church. President Benson is his prophet. In the name of Jesus Christ, amen.
 
 
-
-
+#Love #Missionary_Work #Service

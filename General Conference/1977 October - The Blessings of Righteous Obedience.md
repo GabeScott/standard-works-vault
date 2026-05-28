@@ -143,5 +143,4 @@ May we keep before us this wisdom which flowed from the pen of the Prophet Josep
 “When the Lord commands, do it,” was a rule in the life of the first prophet of this dispensation. May that be the motto and practice of each one of us, I humbly pray, as I bear witness to the truth in the name of Jesus Christ. Amen.
 
 
-
-
+#Obedience

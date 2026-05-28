@@ -73,3 +73,5 @@ In this sacred Easter season, I solemnly testify that Jesus Christ is the True V
 
 [^18]: See [[1 John 2.5|1 John 2:5]].
 
+
+#Discipleship #Jesus_Christ #Truth

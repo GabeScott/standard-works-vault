@@ -93,5 +93,4 @@ I bear my witness that God the Father lives and wants you to come home to Him. T
 I so testify and leave you my blessing and my love. In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Book_Of_Mormon #Courage #Faith #Fear #Jesus_Christ #Love #Service #Testimony

@@ -79,5 +79,4 @@ Temple presidents are faced with a serious problem. We don’t want to hinder in
 So, my brethren of the priesthood, the time has come for all of us to become more knowledgeable of our personal responsibilities to be saviors on Mount Zion. I repeat the statement Jesus made to Peter when he said: “When thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].) I testify that the work for the salvation of our kindred dead is a personal responsibility for everyone who holds the priesthood. Salvation for the dead is a divine activity, of which I bear my witness in the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Family_History #Priesthood #Temple_Work

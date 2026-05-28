@@ -157,3 +157,5 @@ Although none of us can achieve perfection in this life, we can become increasin
 
 [^33]: [[Mormon 9.6|Mormon 9:6]].
 
+
+#Atonement #Baptism #Confirmation #Holy_Ghost #Jesus_Christ #Ordinances #Sacrament

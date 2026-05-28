@@ -147,5 +147,4 @@ If we all so labor, then it will eventually be written of us that “surely ther
 It is wonderful to be associated with this work and to be given the inspiration of it. I bear my witness of it in the name of Jesus Christ. Amen.
 
 
-
-
+#Welfare

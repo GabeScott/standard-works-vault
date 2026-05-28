@@ -83,5 +83,4 @@ Surely we live in troubled times, but we can seek and obtain the good despite Sa
 I bear humble witness that our Heavenly Father knows and loves each of his children and that his Beloved Son, Jesus Christ, is our Savior and Redeemer. Joseph Smith is the prophet of the restoration of the gospel of Jesus Christ. His successors, from Brigham Young to our present prophet, President Ezra Taft Benson, are also modern-day prophets of God. They teach us to seek that which is good. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Joy #Obedience #Service #Temple_Work

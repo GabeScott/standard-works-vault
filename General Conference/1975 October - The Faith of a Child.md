@@ -85,5 +85,4 @@ I know these are the words he spoke to an apostle on assignment in Shreveport, L
 To these truths I bear record, in the name of Jesus Christ. Amen.
 
 
-
-
+#Children #Faith

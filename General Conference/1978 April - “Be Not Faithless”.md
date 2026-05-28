@@ -101,5 +101,4 @@ And there is yet another testifier, for as certainly as the voice of God declare
 With so many evidences, and with the conviction borne in our hearts by the power of the Holy Ghost, we add in words of soberness and sincerity and love our testimony of the Lord Jesus Christ; wherefore, O man, “be not faithless, but believing” in Him who is the living Son of God, our Savior and our Redeemer, I humbly pray and testify in His holy name, even the name of Jesus Christ. Amen.
 
 
-
-
+#Faith

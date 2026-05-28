@@ -79,5 +79,4 @@ Every blessing I have in my life, everything I hold dear and precious in my hear
 My beloved Brethren, my dear wife and I are still prepared to go wherever you want to send us and to do whatever you ask of us, and pray only that we might be instruments in the hands of the Lord to assist you in your awesome assignment to build the kingdom of God, to sanctify his people, and to prepare the way for Christ to come in his glory, when every knee will bow and every tongue confess that he is the Savior of the world, which I testify in the name of Jesus Christ, amen. (See Conference Report, Apr. 1978, p. 109; or *Ensign,* May 1978, p. 72).
 
 
-
-
+#Elderly #Missionary_Work #Service

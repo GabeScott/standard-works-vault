@@ -123,3 +123,5 @@ President Thomas S. Monson has stated, “The future is as bright as your faith.
 
 [^39]: [[Hebrews 11.6|Hebrews 11:6]]; see also [[Ether 12.41|Ether 12:41]].
 
+
+#Faith #Holy_Ghost #Jesus_Christ

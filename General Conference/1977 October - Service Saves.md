@@ -55,5 +55,4 @@ Our Savior taught that service saves: “For behold the field is white already t
 I know that we are in the service of the Master. I know that Jesus is the Christ, that he lives and directs his work through his living prophet, President Spencer W. Kimball. To this I testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work

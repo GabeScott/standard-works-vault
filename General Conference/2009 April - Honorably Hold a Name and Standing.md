@@ -93,5 +93,4 @@ Within the sound of my voice are many individuals who hold current temple recomm
 I bear solemn witness that the fire of the covenant will burn in the heart of every faithful member of this Church who shall worship and honorably hold a name and standing in the Lord’s holy house. Jesus the Christ is our Redeemer and Savior. He lives, and He directs the affairs of His Church through revelation to His anointed servants. Of these things I bear witness in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Covenants #Safety #Temples

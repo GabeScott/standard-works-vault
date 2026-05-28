@@ -105,5 +105,4 @@ The foolish virgins expected that they could borrow oil from others. To their so
 “For the Lord shall be in their midst, and his glory shall be upon them, and he will be their king and their lawgiver.” ([[D&C 45.56|D&C 45:56–59]][[D&C 45.57|]][[D&C 45.58|]][[D&C 45.59|]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Obedience #Responsibility

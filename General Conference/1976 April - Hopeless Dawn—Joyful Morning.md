@@ -105,5 +105,4 @@ With all the strength of my soul, I testify that God lives, that his Beloved Son
 In the name of Jesus Christ. Amen.
 
 
-
-
+#Death #Hope #Resurrection

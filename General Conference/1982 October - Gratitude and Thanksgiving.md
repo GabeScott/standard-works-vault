@@ -99,5 +99,4 @@ Elder Richard L. Evans once said, “Gratefully we acknowledge the infinite mind
 Now, brethren and sisters, I bear my testimony to you that the Lord wants us to be grateful and thankful unto him. And if we do these things which he has advised us to do, we will be the happiest people who dwell upon the earth, for this is the way to the presence and society of our Father in heaven. I so testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Gratitude

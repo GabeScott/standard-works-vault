@@ -79,5 +79,4 @@ You young men—I encourage you to use your bright minds to study and learn the 
 I add my testimony to the truthfulness of the thirteen Articles of Faith in the name of our Lord and Savior, even Jesus Christ, amen.
 
 
-
-
+#Articles_Of_Faith #Priesthood #Scripture_Study

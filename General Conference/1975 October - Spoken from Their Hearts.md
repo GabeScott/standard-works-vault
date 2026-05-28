@@ -59,5 +59,4 @@ This is the gospel of Christ. He is our Lord. This is a Christian church. We fol
 And God bless all you who are here. May he go with you to your homes as you return to your families, that peace may be with you, that your own lives may be wonderful, that your family lives may be great. And I ask these blessings, and bear testimony to you of the divinity of the work, that God lives, that Jesus is the Christ, our Savior, our Redeemer. And that the way he has planned, the way of life, is right and true in every particular. And I bear this testimony to you with our great affection for you, our love, and appreciation. In the name of Jesus Christ. Amen.
 
 
-
-
+#General_Conference

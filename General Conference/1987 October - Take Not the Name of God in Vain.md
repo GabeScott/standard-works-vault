@@ -115,5 +115,4 @@ I say this to the boys. I say it also to any of you older men who have a similar
 Don’t swear. Don’t profane. Avoid so-called dirty jokes. Stay away from conversation that is sprinkled with foul and filthy words. You will be happier if you do so, and your example will give strength to others. May you be blessed so to do, I humbly pray, my beloved brethren, in the name of Jesus Christ, amen.
 
 
-
-
+#God_The_Father #Jesus_Christ #Profanity #Youth

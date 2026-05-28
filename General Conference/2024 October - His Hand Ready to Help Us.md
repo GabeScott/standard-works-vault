@@ -73,3 +73,5 @@ If I think celestial, I know that we are not left alone in this life. While we m
 
 [^9]: See [[Isaiah 49.16|Isaiah 49:16]].
 
+
+#Adversity #Faith #Jesus_Christ #Ministering

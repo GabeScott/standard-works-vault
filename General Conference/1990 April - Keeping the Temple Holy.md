@@ -109,5 +109,4 @@ In closing, I repeat that this recommend which I have and which so many of you h
 To young men who are here who have not yet been to the temple, may I suggest that you take advantage of the opportunity of being baptized in behalf of the dead. And then let that sacred experience become an anchor to your lives, that you so conduct yourselves at all times and in all circumstances that, at the proper time, you may secure a special and restricted credit card with the Lord, even a recommend to His holy house, there to enjoy all of its blessings and privileges. I so pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Honesty #Temples #Worthiness

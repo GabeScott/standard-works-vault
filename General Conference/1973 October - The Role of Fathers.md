@@ -69,5 +69,4 @@ I am grateful indeed to see the emphasis given by the Church leaders today on th
 I know that God lives. I know that Jesus is the Christ. I know that he guides this Church through a living prophet on the earth today, in the name of Jesus Christ. Amen.
 
 
-
-
+#Discipline #Fatherhood #Priesthood

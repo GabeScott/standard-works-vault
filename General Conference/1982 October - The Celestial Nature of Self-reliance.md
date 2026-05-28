@@ -107,5 +107,4 @@ We are all self-reliant in some areas and dependent in others. Therefore, each o
 Again, I say the principle of self-reliance is spiritual, as are all the principles of the welfare program. This is not a doomsday program, but a program for today. One of the three areas of emphasis recently outlined in the statement on the mission of the Church is to perfect the Saints, and this is the purpose of the welfare program. Today is the time for us to perfect our lives. May we continue to hold fast to these truths, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Spirituality #Welfare

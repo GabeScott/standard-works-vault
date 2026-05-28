@@ -57,5 +57,4 @@ As we contemplate the full meaning of the phrase “Come, follow me,” it is ap
 Of the Savior, who is our exemplar, I bear personal witness that He lives. In the name of Jesus Christ, amen.
 
 
-
-
+#Example #Jesus_Christ #Love #Mercy #Prayer

@@ -79,5 +79,4 @@ One husband and father, who had been a dean of a college in his professional car
 Relief is only temporary, but welfare is eternal. Mortal life may be limited in both duration and scope, but principles are everlasting. May we fully employ the basic welfare principles of love, work, consecration, service, stewardship or accountability, and self-reliance, to strengthen our marriages and our families in the safe and holy places of heart, temple, and home, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Marriage

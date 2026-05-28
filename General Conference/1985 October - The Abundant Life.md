@@ -67,5 +67,4 @@ The leadership of the Church will continue to pray for its critics, its enemies,
 I believe that few things in life deserve one’s complete confidence. I testify that the Church is worthy of our full trust. There is no inconsistency between truth and faith. I know that everyone who sincerely and righteously seeks to know this can have it spiritually confirmed. May we open up our minds, hearts, and spirits to the divine source of truth. May we reach above ourselves and beyond our mundane concerns and become heirs to the knowledge of all truth and to the abundant life promised by our Lord and Savior, Jesus Christ. I pray that this may be so, in His holy name, amen.
 
 
-
-
+#Criticism

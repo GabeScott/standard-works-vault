@@ -57,5 +57,4 @@ President Monson said: “\[The Lord\] commands. And to those who obey Him, whet
 In these days of worldly intrusions into our lives, when trials and difficulties may seem to engulf us, let us remember our own special spiritual experiences. These building blocks of faith will bring us conviction and reassurance of a caring, loving Father in Heaven, of our Lord and Savior, Jesus Christ, and of Their restored true and living Church. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Testimony

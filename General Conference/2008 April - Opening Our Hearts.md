@@ -109,3 +109,5 @@ May we ever ask Christ to strengthen our hearts and fill them with His love is m
 
 [^22]: [[Philippians 4.13|Philippians 4:13]].
 
+
+#Holy_Ghost #Morality #Spirituality

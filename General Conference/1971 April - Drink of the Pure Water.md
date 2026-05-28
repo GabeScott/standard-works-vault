@@ -101,5 +101,4 @@ And so to those who have tasted the water at many wells only to find that the un
 And to this invitation I bear you my witness that I know God lives. I know he lives and that Jesus Christ is our Redeemer and his Son. Joseph Smith saw what he said he saw, and we have a prophet of God sitting with us, presiding today. I bear you that witness in the name of Jesus Christ. Amen.
 
 
-
-
+#Testimony

@@ -55,5 +55,4 @@ Finally, remember: When we return to our real home, it will be with the “mutua
 Meanwhile, there are no separate paths back to that heavenly home. Just one straight and narrow way, at the end of which, though we arrive trailing tears, we shall at once be “drenched in joy.” I so testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Women

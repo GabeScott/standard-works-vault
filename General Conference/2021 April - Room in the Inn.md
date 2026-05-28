@@ -127,3 +127,5 @@ As we create room in His Inn, welcoming all, our Good Samaritan can heal us on o
 
 [^21]: [[D&C 132.23|Doctrine and Covenants 132:23]].
 
+
+#Belonging #Discipleship #Diversity #Fellowshipping #Good_Samaritan #Jesus_Christ #Single_Adults

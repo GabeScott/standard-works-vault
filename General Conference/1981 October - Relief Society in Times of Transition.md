@@ -115,5 +115,4 @@ This passage beautifully portrays the role we should assume as women in the Chur
 May we be wise enough to let our light shine out and our love reach out until we find ourselves illuminated and warmed by a charity that never faileth, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Relief_Society

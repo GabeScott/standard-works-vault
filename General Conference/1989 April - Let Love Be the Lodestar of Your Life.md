@@ -97,5 +97,4 @@ Few of us see the Polar Star anymore. We live in urban centers, and the city lig
 I leave with you my love and extend my blessing and pray that there may be peace in your hearts and in your homes, in the name of Him whose life was the supreme offering of love, even the Lord Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Love

@@ -81,5 +81,4 @@ We have been blessed with the light of the gospel to lead us and to guide and di
 May the light of the gospel help us to see the great potential the Lord has blessed us with. There is power in righteous living. May we again commit ourselves to be doers of the word—quality builders in our Father in heaven’s kingdom. May our lives be filled with the joy of accomplishment. May our knowledge of the gospel help us to be the best of whatever the Lord has called us to be, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Agency #Faith #Morality #Work

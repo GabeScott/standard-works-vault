@@ -99,5 +99,4 @@ Does that sound like a loser to you? I tell you it doesn’t. And those who are 
 May the Lord bless us to hold fast and remain faithful as we follow the Lord’s anointed servants, and may we feel good about it. I pray that we will, in Jesus’ name. Amen.
 
 
-
-
+#Conversion #Endurance #Obedience #Spirituality #Testimony

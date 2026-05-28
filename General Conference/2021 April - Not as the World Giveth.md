@@ -95,3 +95,5 @@ In spite of betrayal and pain, mistreatment and cruelty, and bearing all the acc
 
 [^24]: [[John 14.27|John 14:27]].
 
+
+#Abuse #Contention #Easter #Jesus_Christ #Peace

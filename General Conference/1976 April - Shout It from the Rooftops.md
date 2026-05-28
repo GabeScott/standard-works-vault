@@ -39,5 +39,4 @@ In closing I bear you my testimony that these brethren with whom I am privileged
 This conference will touch our hearts and change our lives, and I bear witness to you that your life will not be the same when you return to your respective wards and branches. We will return edified, wiser, more sensitive to the needs of others, and better equipped with the knowledge we need in our homes and therefore will be happier and closer to our Heavenly Father. May peace and happiness be with you this day and always, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work #Preparation

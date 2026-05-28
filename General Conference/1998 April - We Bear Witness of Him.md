@@ -55,5 +55,4 @@ How grateful I am for the testimony with which God has blessed me of the divine 
 And so, my beloved brothers and sisters, let us rejoice together now as we celebrate with appreciation the wondrous doctrines and practices which have come as a gift from the Lord in this most glorious time of His work. This is the Easter season, when we remember His glorious Resurrection, of which we bear witness. Let us ever be grateful for these most precious gifts and privileges and act well our part as those who love the Lord. I invite you to listen to the words which will go forth from this pulpit, to be delivered by those who have been called as your servants. May we be blessed I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Church_History #Faith #General_Conference #Jesus_Christ #Joseph_Smith #Love #Religion

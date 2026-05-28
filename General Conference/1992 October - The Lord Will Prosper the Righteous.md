@@ -103,5 +103,4 @@ These indicators may seem to carry a direful tone, but as Enos declared in the B
 As the world continues to ripen in iniquity, our lives of necessity must become increasingly different from the world and its standard. It will be a great challenge for us. We must be better than we have ever been before. As we succeed, we have the sure promise of the Lord that he will prosper us in every way necessary for our well-being. That is my faith and my testimony. But it is a conditional promise. May we qualify for its fulfillment in our lives and in our time is my earnest prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Blessings #Obedience #Pride

@@ -115,3 +115,5 @@ I invite you to *pray to know* Heavenly Father is there, *pray to grow* to becom
 
 [^15]: See [[D&C 19.38|Doctrine and Covenants 19:38]].
 
+
+#God_The_Father #Jesus_Christ #Love #Prayer #Revelation #Spiritual_Growth

@@ -31,5 +31,4 @@ No matter where we are, no matter our circumstances, we all can be faithful Latt
 Now, brothers and sisters, I invite all of you to listen to those whom you have sustained as General Authorities and general officers of the Church, as with prayer and faith and in humility, testimony is borne to you. May we all be inspired together. May our hearts be lifted in praise to our Redeemer, I humbly pray in His holy name, even the name of Jesus Christ, amen.
 
 
-
-
+#Family #General_Conference #Jesus_Christ #Scripture_Study

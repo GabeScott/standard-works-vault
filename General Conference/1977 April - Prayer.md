@@ -95,5 +95,4 @@ As a boy in the Aaronic Priesthood, I learned this little poem about prayer. It 
 I bear witness to you, my beloved brethren and sisters, that God lives. He is not dead. I bear testimony that God our Father and His Beloved Son, our Savior and Redeemer, did in very deed appear to Joseph Smith. I know this as I know that I live. I testify there is a God in heaven who hears and answers prayer. I know this to be true. I would humbly urge all within the sound of my voice—member and nonmember alike—to keep in close touch with our Father in heaven through prayer. Never before in this gospel dispensation has there been a greater need for prayer. That we will constantly depend upon our Heavenly Father and conscientiously strive to improve our communication with Him is my earnest plea, in the name of Jesus Christ. Amen.
 
 
-
-
+#Prayer #Welfare

@@ -59,5 +59,4 @@ That is the choice the Lord puts before us as we face our own promised lands and
 Let us be conscious of the fact that our future is being fashioned by the decisions we make. May we exercise our faith and our agency in choosing the blessings God has set before us in the great gospel plan of our Savior, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Faith #Obedience

@@ -127,5 +127,4 @@ I bear you my personal witness to the truth of these teachings and to the furthe
 In all humility, kindness, love, and sincerity, we invite you to carefully listen to and prayerfully investigate our message. If you will do so, you shall receive a like witness and be on your way to salvation, to being saved in the kingdom of God. That it may be so with all of us, I humbly pray in the name of Jesus Christ, our Lord. Amen.
 
 
-
-
+#Atonement #Plan_Of_Salvation

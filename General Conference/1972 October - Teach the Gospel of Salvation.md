@@ -165,5 +165,4 @@ From my own personal experience, I know this, which I declare in all soberness t
 Amen.
 
 
-
-
+#Family #Government #Obedience #Welfare

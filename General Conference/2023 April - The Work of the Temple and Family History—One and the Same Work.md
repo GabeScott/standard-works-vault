@@ -61,5 +61,4 @@ Certainly, the work of the temple and family history are one and the same work i
 I testify to these truths. I know this is the Church of the Lord Jesus Christ, our Savior and Redeemer, whom we remember and venerate at this Easter time. I know He loves us, and when we keep our covenants and put our confidence in Him, He endows us with His healing and strengthening power. In the name of Jesus Christ, amen.
 
 
-
-
+#Family_History #Ordinances #Temple_Work #Temples

@@ -95,5 +95,4 @@ Empathy is sincere love for self and our fellowmen. Henry David Thoreau said, â€
 May God help us to learn and live the principles of pure religion. The business of lifting each other is a full-time occupation. Pure religion can never be taught or lived by those who are petty, prejudiced, contentious, or unresponsive to the needs of their fellowmen. Pure religion is following the teachings of our Savior. Jesus Christ does live. This is his Church. To this I bear witness in the name of Jesus Christ, amen.
 
 
-
-
+#Criticism #Religion

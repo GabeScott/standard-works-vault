@@ -75,5 +75,4 @@ In our desire to be broad-minded, to be accepted, to be liked and admired, let u
 May the Spirit of the Lord be with us to help us magnify this great priesthood authority, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Apostasy #Loyalty #Priesthood

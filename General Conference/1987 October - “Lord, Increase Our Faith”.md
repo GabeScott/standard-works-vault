@@ -109,5 +109,4 @@ There was no argument. There was no discussion. There was no rationalizing on th
 Father, increase our faith. Of all our needs, I think the greatest is an increase in faith. And so, dear Father, increase our faith in Thee, and in Thy Beloved Son, in Thy great eternal work, in ourselves as Thy children, and in our capacity to go and do according to Thy will, and Thy precepts, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Faith #Missionary_Work #Testimony

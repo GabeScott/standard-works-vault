@@ -63,5 +63,4 @@ For the entire worldwide Church, for the great body of Saints to the east and to
 This has been a glorious conference. There has been a good spirit, and because we have been united under the direction of a prophet of God, upholding and sustaining him, the Lord has blessed us. I bear witness that God lives and will continue to bless us if we remain as one and follow his commandments. That we may do so is my humble prayer, in the name of our Savior and Master, Jesus Christ. Amen.
 
 
-
-
+#Church_Leaders #Unity

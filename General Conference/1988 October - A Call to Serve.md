@@ -119,5 +119,4 @@ Eternal justice requires that all of God’s children have adequate opportunity 
 Now, my dear friends, as we near the closing moments of this historic conference and receive counsel from our prophet, I add my witness of his divine calling to lead this church as God’s holy prophet upon the earth today. We sustain and love him dearly. Our philosophy of life is in accord with divine purposes and, if followed in our actions, will lead us unerringly to eternal life. I leave you this witness and my blessings as you move forward to fulfill your commitments and to live the Lord’s commandments. This work is true, in the name of Jesus Christ, amen.
 
 
-
-
+#Mission_Of_The_Church #Missionary_Work #Sacrifice

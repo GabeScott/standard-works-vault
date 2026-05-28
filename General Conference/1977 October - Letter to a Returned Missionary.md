@@ -51,5 +51,4 @@ You have opened the gate to many. Why, why do you close it for yourself? May I p
 Now the time has come to leave, but you should know that what you once were you can be again. May my testimony help you as yours did me some years ago. I know by the power of the Holy Ghost, the spirit of revelation. I know in my mind and in my heart that God lives, that Jesus is the Christ, our Redeemer, and that we have a living prophet today, Spencer W. Kimball, and that by following his directions and advice we can come closer to our Heavenly Father and repent of our sins. My prayer is that you may realize this again in your own life and make a new decision to be one of His disciples, in the name of Jesus Christ. Amen.
 
 
-
-
+#Activation #Missionary_Work

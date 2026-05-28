@@ -103,3 +103,5 @@ Exaltation in the Father’s kingdom includes kingdoms, thrones, dominions, prin
 
 [^17]: See *Teachings of Presidents of the Church: Brigham Young* (1997), 72.
 
+
+#Covenants #Home_Teaching #Honesty #Media #Obedience #Priesthood #Repentance #Satan #Self-Control #Temptation #Word_Of_Wisdom

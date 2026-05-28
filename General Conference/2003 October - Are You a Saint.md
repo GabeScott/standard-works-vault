@@ -85,3 +85,5 @@ I testify that avoiding evil and destructive pursuits and sacrificing in order t
 
 [^13]: [[D&C 59.23|D&C 59:23]].
 
+
+#Honesty #Obedience #Sacrifice #Worldliness #Worthiness

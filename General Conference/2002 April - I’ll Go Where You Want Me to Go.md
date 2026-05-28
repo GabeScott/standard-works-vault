@@ -17,5 +17,4 @@ I’m grateful for the sustaining vote of yesterday, and with you I sustain Pres
 I love the Lord. I love this Church. I love the wonderful, faithful Saints throughout the world who do all that they can to honor their commitments and to live their religion. I bear witness that God lives and that Jesus Christ, His Son, is our Savior and our Redeemer. I love Him. I want to do all that I can to serve as He would have me serve, and I say these words and bear my witness to the truthfulness of these things in the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Testimony

@@ -119,5 +119,4 @@ As we remember all of this, we should also remember the divine caution: “For o
 May we always remember, as we covenant to do, is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Compassion #Fellowshipping #Forgiveness #Jesus_Christ

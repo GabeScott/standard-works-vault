@@ -21,5 +21,4 @@ I would just share this one thought with you this afternoon, my brothers and sis
 My brothers and sisters, I bear witness to you that this is the church of Jesus Christ, that he is at the head, that he is the rock of our salvation, that our affections must be totally placed, all of them, upon the Lord. And I bear witness that if they are placed elsewhere, we will not receive that promise to be lifted up at the last day. I bear my witness with a surety that goes beyond words of those promptings that come that this is the true church of Jesus Christ, the only one upon the face of the whole earth, because the Lord has so declared it. I bear witness that President Kimball is a prophet of God and want to express to these good Brethren in front of me that I pledge all of my efforts, my time, and talents, and resources, and all that I have, for as long as they’re desired by the Lord or by these Brethren, to do whatever they would have me do. And I bear this witness in the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work

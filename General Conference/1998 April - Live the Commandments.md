@@ -45,5 +45,4 @@ The gospel of our Lord and Savior has been restored to the earth. God lives. He 
 Brothers and sisters, live the commandments. Do what is right. Take advantage of this great opportunity in your life to live it well, to be good, to have good works, and to influence other people for good. The gospel is true. I hope that every day of my life I might be able to do some good and to encourage somebody to live a better life and to understand what has been restored to the earth, in the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #Family_History #God_The_Father #Jesus_Christ #Media #Restoration

@@ -119,5 +119,4 @@ Nothing! No power can stop the progress of the Lord’s work.
 Of this I bear an apostolic witness, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Priesthood #Worthiness #Youth

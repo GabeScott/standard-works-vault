@@ -99,3 +99,5 @@ As a witness of Jesus Christ, I know that He lives and He leads His Church. You 
 
 [^10]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
+
+#Holy_Ghost #Inspiration #Ministering #Prayer #Repentance

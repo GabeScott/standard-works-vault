@@ -53,5 +53,4 @@ Find a member of The Church of Jesus Christ of Latter-day Saints, a Mormon, and 
 With all the sincerity of my soul, in deep humility, I solemnly testify that God the Father through his Son Jesus Christ has restored to earth the fulness of his truth. He has restored his priesthood, the authority to perform the necessary saving ordinances in his name. President Spencer W. Kimball is his prophet. I love him and sustain him with all my heart. I testify that this, The Church of Jesus Christ of Latter-day Saints, is the only place on earth where that fulness of truth and priesthood authority can be found. In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost

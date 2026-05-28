@@ -77,5 +77,4 @@ As one to whom the spirit has borne witness, I testify of his prophetic calling,
 God lives and is a revealer of eternal truth. Jesus Christ is our Savior and stands at the head of this Church. We have a prophet upon the earth, a seer and a revelator to teach us. God give us the faith and the discipline within ourselves to follow that teaching, I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Compassion #Missionary_Work

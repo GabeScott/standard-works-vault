@@ -63,5 +63,4 @@ Now there are many more wonderful things that the holy prophets were permitted t
 I pray God to bless you all, and bear you my witness of the divinity of this work, in the name of the Lord, Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Restoration

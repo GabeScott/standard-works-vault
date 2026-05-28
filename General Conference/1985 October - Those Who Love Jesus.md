@@ -107,5 +107,4 @@ For those who love Jesus, these prophetic words have sublime meaning:
 Such is the blessing reserved for those who love Jesus. May each of us qualify for this great reward, this eternal glory, I pray in the name of Jesus Christ, whom I love and of whom I testify, amen.
 
 
-
-
+#Discipleship #Teaching

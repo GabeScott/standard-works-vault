@@ -37,5 +37,4 @@ Now, my brothers and sisters, we have come here to be instructed and inspired. S
 Our Heavenly Father is mindful of each one of us and our needs. May we be filled with His Spirit as we partake of the proceedings of this, the 178th Semiannual General Conference of the Church. This is my sincere prayer, and I offer it in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Temples

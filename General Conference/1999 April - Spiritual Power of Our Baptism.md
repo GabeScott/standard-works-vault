@@ -61,5 +61,4 @@ We have talked about the spiritual power of our baptism. We can renew that power
 I pray that you will tend and take care of your baptismal covenants. As you say your prayers, especially each Saturday night, ask Heavenly Father to prepare you to take the sacrament so the spiritual power of your baptism will be present in your life. In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Morality #Ordinances #Sacrament #Young_Women

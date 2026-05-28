@@ -71,5 +71,4 @@ Joseph Smith bestowed all the keys upon the Quorum of Apostles before his death.
 We invite all to hear, accept, and embrace this gospel. This invitation is to all the nations and families the world over, that all may receive the blessings of eternal life and be recorded in the Lamb’s book of remembrance and share the blessings of the royal seed of the righteous, even the blessings of eternal life. I testify that this is his kingdom, in the name of Jesus Christ. Amen.
 
 
-
-
+#Last_Days #Patriarchal_Blessings

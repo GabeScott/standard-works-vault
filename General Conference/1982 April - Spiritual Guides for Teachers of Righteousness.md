@@ -61,5 +61,4 @@ He will not be deceived.
 May the Lord bless all of us not to be fooled by illusions created by the devil. May we maintain our spiritual fine-tuning by yielding our hearts to God, becoming firmer and firmer in the faith (see [[Helaman 3.35|Hel. 3:35]]), is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Honesty #Teaching

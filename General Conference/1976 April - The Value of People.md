@@ -55,5 +55,4 @@ May we remember together to “make a joyful noise unto the Lord, all ye lands.
 “Serve the Lord with gladness: … know ye that the Lord he is God: It is he that hath made us, and not we ourselves; we are his people, and the sheep of his pasture.” ([[Psalms 100.1|Ps. 100:1–3]][[Psalms 100.2|]][[Psalms 100.3|]].) The future of the world is in the hands of the people, and following a living prophet today will determine our salvation. It is my prayer that, thanks to a great conference, we will make new resolutions so that we will be remembered forever and ever as one people who wanted to serve the Lord. In the name of Jesus Christ. Amen.
 
 
-
-
+#Agency #Commandments #Individual_Worth #Sacrifice

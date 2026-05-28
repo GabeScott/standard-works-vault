@@ -111,3 +111,5 @@ May each one leave here tonight with the determination and the courage to say, w
 
 [^16]: [[Job 27.3|Job 27:3, 5]][[Job 27.5|]].
 
+
+#Courage #Spirituality

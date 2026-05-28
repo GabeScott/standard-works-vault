@@ -121,3 +121,5 @@ As one who also stands as a special witness, I join my testimony with those beli
 
 [^29]: [[John 4.34|John 4:34]].
 
+
+#Gordon_B._Hinckley #Howard_W._Hunter #Jesus_Christ

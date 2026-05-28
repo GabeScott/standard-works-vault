@@ -99,5 +99,4 @@ May we all feel more dedicated to this great, unselfish service of love that we 
 I bear you my testimony that this work is true. God lives, and his Son Jesus Christ is indeed our Savior, the Redeemer of mankind. The Church of Jesus Christ of Latter-day Saints is the true church, and I bear you this testimony in the name of Jesus Christ. Amen.
 
 
-
-
+#Example #Missionary_Work

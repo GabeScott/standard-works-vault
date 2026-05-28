@@ -65,5 +65,4 @@ The great promise to all of God’s children who truly minister, serve, love, an
 May we truly minister and teach *all* of our people, but especially reach out to those who plead in their hearts and through the long, lonely nights for help—our widows, our divorced, our nonmembers, our aged, our less active—to let them know of our concern, our love, and the love of God, until a happier people cannot be found upon the whole land, for “they taught and did minister one to another.” In the name of Jesus Christ, amen.
 
 
-
-
+#Home_Teaching #Service

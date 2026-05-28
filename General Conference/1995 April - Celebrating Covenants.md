@@ -49,5 +49,4 @@ If you have slipped in your covenants, take heart! The Savior so wants us to ful
 If you remember only one thing I say today, remember to *hold on to your covenants and celebrate them.* My covenants are an expression of my faith; they are why I stand before you today. Covenants help me focus on the big picture and not just the immediate. As my sons have served missions, I have seen covenants further the work of the Lord. Covenants help me make a difference in the lives of others. My covenants are not negotiable. They make the choice of righteousness easier. I humbly pray that our covenants might become a greater source of celebration and strength in our lives; that we may walk uprightly and steadfastly, that when we most need the Lord’s hand, it will be there waiting warmly. I treasure the covenants He has made with me and with all my heart hope to live faithful to them. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Covenants #Ordinances #Repentance #Sacrament #Scripture_Study #Young_Women

@@ -85,5 +85,4 @@ I testify that the Savior will heal you as you choose to obey truth and use your
 May the Lord soften your heart that you may know the things we have discussed are true. May he give you the courage and strength to begin to be healed *now.* In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Healing #Truth

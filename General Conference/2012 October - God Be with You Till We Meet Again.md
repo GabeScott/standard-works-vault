@@ -41,3 +41,5 @@ Now, my beloved brothers and sisters, we adjourn for six months. May God be with
 
 [^1]: [[John 16.33|John 16:33]].
 
+
+#Adversity #Gratitude #Service

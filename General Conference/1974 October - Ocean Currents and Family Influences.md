@@ -81,5 +81,4 @@ I know that the Lord lives—that God who was with Adam, that God who came to th
 I know that Jesus is the Christ, the Son of the living God. I know that. I know that the gospel which we teach is the gospel of Jesus Christ and the church to which we belong is the church of Jesus Christ; it teaches his doctrines and his policies and his programs. I know that if all of us will live the program as he has given it and will continue to give it, that all the blessings promised will be ours. Now God bless you, and we leave his blessings with you with our affection, our appreciation for you, in the name of his Son, Jesus Christ. Amen.
 
 
-
-
+#Commitment #Family

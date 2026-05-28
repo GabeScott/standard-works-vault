@@ -79,5 +79,4 @@ Peter said the heavens were to receive the Christ “until the times of restitut
 We have that restitution of all things and no one can believe that Peter was a prophet and look for the coming of the Savior until there is such a restitution. That is my witness to you, and I pray God to bless you that this work may spread abroad and fill the earth, and I do it in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Apostasy #Missionary_Work #Restoration

@@ -71,5 +71,4 @@ May all our children be immersed in gospel teachings and have opportunities to p
 In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Children #Family_Home_Evening #Honesty #Prayer #Primary #Satan #Truth

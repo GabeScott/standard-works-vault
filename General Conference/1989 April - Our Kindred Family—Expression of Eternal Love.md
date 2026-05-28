@@ -65,5 +65,4 @@ In the councils of heaven before the world began, we made a solemn agreement wit
 I bear witness that this work is true. I testify that we may anticipate a glorious reunion with our kindred family through the covenant blessings of the priesthood. I pray that we will heed the prophets and inherit the supreme joy which comes from performing this marvelous work of salvation, in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Temple_Work

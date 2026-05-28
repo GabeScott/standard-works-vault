@@ -129,5 +129,4 @@ He gave the same warning to the Prophet Joseph Smith:
 May we so live that we may always have the companionship of the Holy Spirit and be blessed by these beautiful spiritual gifts that are a part of the gospel, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Healing #Spirituality

@@ -89,3 +89,5 @@ In the sacred name of Jesus Christ, amen.
 
 [^20]: “Come, Thou Fount of Every Blessing,” *Hymns* (1948), no. 70. The text was written by Robert Robinson.
 
+
+#Discipleship #Jesus_Christ #Love #Repentance

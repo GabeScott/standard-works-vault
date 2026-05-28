@@ -87,3 +87,5 @@ I testify that Jesus Christ is our Savior and Redeemer. I testify that the coven
 
 [^13]: See [[D&C 6.12|Doctrine and Covenants 6:12]].
 
+
+#Agency #Conversion #Example #Testimony

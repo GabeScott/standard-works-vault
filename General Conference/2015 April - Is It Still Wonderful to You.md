@@ -81,3 +81,5 @@ That we may always have eyes that see, ears that hear, and hearts that perceive 
 
 [^10]: “I Stand All Amazed,” *Hymns,* no. 193.
 
+
+#Faith #Holy_Ghost #Miracles

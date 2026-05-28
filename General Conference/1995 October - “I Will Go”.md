@@ -45,5 +45,4 @@ If giving your family quantity time means focusing less on providing the “want
 Brethren, I pray we may often recall, and perhaps even hum and sing, that simple but infectious Primary song: “I will go; I will do the thing the Lord commands. I know the Lord provides a way; he wants me to obey.” May we focus and align our “I wills” with His will. I testify that the Lord wants us to obey the living prophets. I further testify that our Lord and Savior Jesus Christ lives. He is our Savior and our Redeemer. He has, upon the principles of our repentance, atoned for our sins. I testify that this is so, in the holy name of Jesus Christ, amen.
 
 
-
-
+#Attitude #Commandments #Family #Obedience #Parenthood #Priesthood #Prophets #Sabbath #Teaching

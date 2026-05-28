@@ -45,5 +45,4 @@ I should like to offer what I have chosen to call “Four Bs for Boys.” They a
 And so, there are my “Four Bs for Boys”: Be Smart, Be Fair, Be Clean, Be True. God has given you his holy priesthood. May you walk as young men so endowed, I humbly pray, in the name Jesus Christ, amen.
 
 
-
-
+#Youth

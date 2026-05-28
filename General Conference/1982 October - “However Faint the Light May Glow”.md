@@ -97,5 +97,4 @@ We are the keepers of the light. We invite all who are here to reach out and ble
 And we invite all those who are not here to come home. We gaze steadily down the road, anxious for your return. We will run with open arms, and hearts filled with compassion. There are shoes for your feet, a robe, a ring for your hand, and a fatted calf. Come home and we will rejoice together, in the name of Jesus Christ, amen.
 
 
-
-
+#Forgiveness #Repentance

@@ -47,5 +47,4 @@ I am also grateful for loving parents and dedicated Primary leaders, including t
 On this beautiful Easter Sunday I bear witness that Jesus Christ lived and died for us, and that he lives again. He is my Savior, my example, my friend, and I love him. I pledge my continued devotion and service to him, in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Spirituality #Teaching

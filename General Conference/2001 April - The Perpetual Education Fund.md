@@ -73,5 +73,4 @@ It is our solemn obligation, it is our certain responsibility, my brethren, to â
 I believe the Lord does not wish to see His people condemned to live in poverty. I believe He would have the faithful enjoy the good things of the earth. He would have us do these things to help them. And He will bless us as we do so. For the success of this undertaking I humbly pray, while soliciting your interest, your faith, your prayers, your concerns in its behalf. I do so in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Church_History #Education #Family #Generosity #Institute #Leadership #Poverty #Self-Reliance #Welfare

@@ -131,3 +131,5 @@ As a final thought, Brother Vaccarono writes: “I’m sorry for my English. I h
 
 [^21]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
+
+#Dedication #Financial_Management #Obedience #Preparation #Self-Reliance

@@ -57,3 +57,5 @@ I bear my solemn testimony that the Book of Mormon was translated by the gift an
 
 [^3]: See “The Testimony of Three Witnesses” and “The Testimony of Eight Witnesses,” Book of Mormon.
 
+
+#Book_Of_Mormon #Joseph_Smith #Testimony

@@ -51,5 +51,4 @@ I have lived for more than half the 150 years the restored Church has been upon 
 Let us, then, press on confidently in the work of the Lord as we look forward to the glorious years of promise ahead. Through our faithfulness, all that God has promised will be fulfilled. This is the work of the Lord. The gospel is true. Jesus is the Christ and our Redeemer. May the Lord bless us all as we begin this great sesquicentennial conference of his church, I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Missionary_Work

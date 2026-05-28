@@ -45,5 +45,4 @@ A few years ago, I was with my noble 97-year-old grandmother. As she sat curled 
 Like Katie, my mother, and five-year-old Hope, you can wake up every day looking forward to new adventures with hope smiling brightly before you because you have a Savior. You are baptized in His Church, The Church of Jesus Christ of Latter-day Saints. You just need to stay in, pressing forward with a brightness of hope to your heavenly home. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Endurance #Hope #Resurrection

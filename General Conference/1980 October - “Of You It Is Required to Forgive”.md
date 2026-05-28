@@ -75,5 +75,4 @@ My brothers and sisters, as we conclude this great season of jubilee, let us bin
 “To err is human, to forgive divine.” (Alexander Pope, *An Essay on Criticism,* 2:1711). There is no peace in harboring old grudges. There is no peace in reflecting on the pain of old wounds. There is peace only in repentance and forgiveness. This is the sweet peace of the Christ, who said, “Blessed are the peacemakers; for they shall be called the children of God” ([[Matthew 5.9|Matt. 5:9]]). Of that I testify in the holy name of Jesus Christ, amen.
 
 
-
-
+#Forgiveness

@@ -175,3 +175,5 @@ I pray that our hearts may be filled with that love and that we may reach out to
 
 [^25]: [[John 13.34|John 13:34]].
 
+
+#Charity #Compassion #Love

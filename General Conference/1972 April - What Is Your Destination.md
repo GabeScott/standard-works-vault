@@ -83,5 +83,4 @@ As we pursue our journeys, let us ever bear in mind that in train travel and in 
 What is your destination? I humbly pray our Heavenly Father to help each one of us realize it is eternal life, exaltation in our Father’s kingdom. I bear you my witness that the gift of salvation is possible through this, the gospel of Jesus Christ, as we continue faithful, and I say it in the name of Jesus Christ. Amen.
 
 
-
-
+#Goals #Missionary_Work

@@ -45,5 +45,4 @@ When we serve righteously with all our heart, whatever the responsibility apport
 I bear solemn testimony of the Savior’s divinity and atoning sacrifice and of the restoration of His priesthood which we are privileged to bear—and pray that every son and father participating in this meeting will determine this night to serve the Lord by faithfully honoring the priesthood and firmly connecting his personal link to the priesthood chain which will bind him, his forefathers, and his posterity together throughout eternity. In the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood #Service #Spirituality

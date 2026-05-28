@@ -93,5 +93,4 @@ The unique burdens in each of our lives help us to rely upon the merits, mercy, 
 May each of us do and become better through the Savior’s Atonement. Today is April 6. We know by revelation that today is the actual and accurate date of the Savior’s birth. April 6 also is the day on which The Church of Jesus Christ of Latter-day Saints was organized. (See [[D&C 20.1|D&C 20:1]]; Harold B. Lee, “Strengthen the Stakes of Zion,” *Ensign,* July 1973, 2; Spencer W. Kimball, “Why Call Me Lord, Lord, and Do Not the Things Which I Say?” *Ensign,* May 1975, 4; Spencer W. Kimball, “Remarks and Dedication of the Fayette, New York, Buildings,” *Ensign,* May 1980, 54; *Discourses of President Gordon B. Hinckley, Volume 1: 1995–1999* \[2005\], 409.) On this special and sacred Sabbath day, I declare my witness that Jesus the Christ is our Redeemer. He lives and will cleanse, heal, guide, protect, and strengthen us. Of these things I joyfully testify in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Jesus_Christ

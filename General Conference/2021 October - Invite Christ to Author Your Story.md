@@ -91,3 +91,5 @@ Let your narrative be one of faith, following your Exemplar, the Savior Jesus Ch
 
 [^7]: See [[Revelation 20.12|Revelation 20:12]].
 
+
+#Adversity #Agency #Discipleship #Faith #Holy_Ghost #Jesus_Christ

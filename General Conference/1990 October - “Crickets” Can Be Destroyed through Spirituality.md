@@ -61,5 +61,4 @@ When you go home this evening and in the days to come, will you think seriously 
 I encourage you to participate in experiences that are outlined in your *Personal Progress* book. They are not just to keep you busy, but to build you spiritually. They are not tasks to try your patience or your obedience; they are experiences that will help build your spirituality and your testimony. In your meetings, pray for each other and with each other. There is great power in prayer. Young women, we call upon you to increase your spirituality by living righteously. Raise your standards high, that others might follow. You are the promise of tomorrow, the hope of Israel. “Rise in might / With the sword of truth and right; / Sound the war-cry, ‘Watch and pray!’ / Vanquish ev’ry foe today.” (*Hymns,* 1985, no. 259.) God bless you. In the name of Jesus Christ, amen.
 
 
-
-
+#Example #Faith #Family #Individual_Worth #Obedience #Pioneers #Temptation #Women #Youth

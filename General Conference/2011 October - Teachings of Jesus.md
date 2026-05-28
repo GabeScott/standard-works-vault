@@ -129,3 +129,5 @@ Jesus Christ *is* the Only Begotten and Beloved Son of God. He *is* our Creator.
 
 [^1]: See Neal A. Maxwell, *A Wonderful Flood of Light* (1990), 47.
 
+
+#Atonement #Jesus_Christ #Obedience

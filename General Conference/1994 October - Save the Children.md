@@ -121,5 +121,4 @@ The old forest burns and dies. But there is a new one at its roots—one filled 
 Save the children. Too many suffer and weep. God bless us to be mindful of them, to lift them and guide them as they walk in dangerous paths, to pray for them, to bless them, to love them, to keep them secure until they can run with strength of their own, I pray in the name of him who loves them so very much, even the Lord Jesus Christ, amen.
 
 
-
-
+#Abuse #Children #Faith #Home #Morality

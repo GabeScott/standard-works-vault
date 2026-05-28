@@ -49,5 +49,4 @@ Thank you for all you do, you wonderful Latter-day Saints. Thank you for the tre
 I pray, my brethren and sisters, that the choicest blessings of heaven may rest upon you, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Obedience #Temples

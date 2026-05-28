@@ -116,5 +116,4 @@ With humility but with firm conviction, we declare to all the world that we know
 We invite all men and women everywhere to know of the restoration of the gospel, for in so doing they will develop a deep reverence and love for God, his beloved Son, Jesus Christ, and their creations. I bear testimony that true reverence will bring peace, joy, and happiness to us all. In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Creation #God_The_Father #Jesus_Christ #Resurrection

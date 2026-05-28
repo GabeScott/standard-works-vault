@@ -47,5 +47,4 @@ The words of testimony spoken by President Benson are particularly appropriate o
 I heartily endorse this plea of our prophet and President, in the name of Jesus Christ, amen.
 
 
-
-
+#Peace #Prayer #Worship

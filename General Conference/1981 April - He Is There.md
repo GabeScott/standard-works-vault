@@ -27,5 +27,4 @@ God the Father and his Son, Jesus Christ, appeared to Joseph—actually appeared
 I love you people out there and humbly pray we may always realize that when we pray to God we are talking to him, and that he is interested in our welfare. The prayer that I pray at this time is that we will all realize who we are and act accordingly and be an example to people in the world. This is the Church of Jesus Christ; and he will hear all who ask, to help them understand who they are and why they are here. This is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Prayer

@@ -89,3 +89,5 @@ I pray that we will choose to obey the Lord quickly, always, in quiet times and 
 
 [^6]: [[D&C 38.30|D&C 38:30]].
 
+
+#Faith #Jesus_Christ #Obedience #Plan_Of_Salvation #Prayer #Preparation #Repentance #Scripture_Study

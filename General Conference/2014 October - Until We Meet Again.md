@@ -37,3 +37,5 @@ Until we meet again in six months’ time, I ask the Lord’s blessings to be up
 
 [^2]: [[Philippians 2.15|Philippians 2:15]].
 
+
+#Prayer #Service

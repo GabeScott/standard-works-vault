@@ -165,3 +165,5 @@ It is my prayer that we will be righteous and united and completely focused on s
 
 [^36]: See [[Moses 7.18|Moses 7:18]].
 
+
+#Diversity #Obedience #Unity

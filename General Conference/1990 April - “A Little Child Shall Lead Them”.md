@@ -127,5 +127,4 @@ When Elder Wilson’s mother and his father visit that rural cemetery and place 
 Peace will then be their blessing. It will be our blessing, also, as we remember and follow the Prince of Peace. That we may do so is my sincere prayer. In the name of Jesus Christ, amen.
 
 
-
-
+#Abuse #Example #Love #Missionary_Work #Service

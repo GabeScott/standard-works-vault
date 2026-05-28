@@ -17,5 +17,4 @@ After the meeting, the congregation stood and sang “We Thank Thee, O God, for 
 I would just like to tell you how important a latter-day prophet is to me. He is the voice of our Heavenly Father. We not only get answers to our prayers from the scriptures, but also from what President Hinckley teaches at general conference, devotionals, and nights like tonight. Heavenly Father loves me and wants the best for me. He has given me a prophet who helps me know what to do to return to him someday. In the name of Jesus Christ, amen.
 
 
-
-
+#Prayer #Prophets

@@ -147,3 +147,5 @@ May we each have the courage to do so, I pray, in the name of Jesus Christ, amen
 
 [^12]: [[D&C 107.99|D&C 107:99]].
 
+
+#Adversity #Courage #Duty

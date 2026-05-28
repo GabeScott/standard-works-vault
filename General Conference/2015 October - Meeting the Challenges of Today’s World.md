@@ -103,3 +103,5 @@ I bear my testimony that God lives. I bear my special witness that the Savior lo
 
 [^20]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
+
+#Dating #Education #Financial_Management #Marriage #Worthiness #Young_Adults

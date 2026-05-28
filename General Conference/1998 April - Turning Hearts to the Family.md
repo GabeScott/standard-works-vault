@@ -55,5 +55,4 @@ Because we were sent here to earth to be tested and to prove ourselves, there ma
 As I began talking to you tonight, I was remembering the family I grew up in. In closing, let me tell you something else I remember about that family. When I was only nine years old, our one-day-old baby brother died. We were so sad and disappointed and crying so hard. And do you know what our father did? He gathered us together, and we knelt in family prayer. He thanked Heavenly Father for this little baby that we’d had such a short time, and then he asked the Lord to bless this little baby, David, who was now in heaven. Daddy asked Heavenly Father to bless our mom, who was very sick. Mother regained her health, and we’ve all tried to live so that we can be reunited as a family with David one day. I always pray for David. He will always be my brother. We are an eternal family because our parents were married in the temple. You can give your children that same gift, the blessing of belonging to an eternal family. It is the most priceless gift you could ever provide for them. Plan to do it. Prepare to do it. Live worthy of it. May He bless you to do so, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Education #Family #Women #Youth

@@ -43,5 +43,4 @@ Oh, brethren, I challenge you to prepare for missionary calls, not only to go ou
 I pray that we might have the vision of this great program, that we might prepare ourselves, that many might receive such a calling and go forth to provide a great service. This is my prayer as I bear testimony to the divinity of this great latter-day work in the name of our Savior, Jesus Christ. Amen.
 
 
-
-
+#Health #Missionary_Work

@@ -41,5 +41,4 @@ The Lord loves His children and wants to bless them and wants all of them to ret
 It is my sincere prayer that all who desire a blessing at the Lord’s hand may live worthy so as to obtain it, and that we who have received a patriarchal blessing may so live as to always be worthy of the blessings that have been revealed to us through the Lord’s servant, the patriarch, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Joseph_Smith #Patriarchal_Blessings #Priesthood

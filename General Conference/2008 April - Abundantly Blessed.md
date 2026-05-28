@@ -65,5 +65,4 @@ Let us be kind to one another, be aware of each other’s needs, and try to help
 My dear brothers and sisters, I love you, and I pray for you. Please pray for me. And together we will reap the blessings our Heavenly Father has in store for each one of us. This is my prayer, my plea as I add my testimony. This work is true. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Family #Love

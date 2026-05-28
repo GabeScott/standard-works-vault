@@ -69,5 +69,4 @@ I know that we have a living prophet upon the earth today, and you can see the m
 May your links be strong. May you personally find the great joy and the happiness that can be ours through living the principles of the gospel. I leave you my love and this witness that the Church is true, in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Family_History #Jesus_Christ #Temples

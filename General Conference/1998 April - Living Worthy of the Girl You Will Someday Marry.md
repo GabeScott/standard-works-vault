@@ -97,5 +97,4 @@ You will know no greater happiness than that found in your home. You will have n
 God bless you, my dear young men. I could wish for you nothing more wonderful than the love, the absolute total love, of a companion of whom you are proud and worthy in every respect. This choice will be the most important of all the choices you make in your life. I pray that heaven may smile upon you in the choice you make, that you may be guided, that you may live without regret, in the name of Jesus Christ, amen.
 
 
-
-
+#Anger #Education #Family #Financial_Management #Joy #Love #Loyalty #Marriage #Media #Missionary_Work #Priesthood #Profanity #Temples #Word_Of_Wisdom #Youth

@@ -95,5 +95,4 @@ In the words of President David O. McKay, “A beautiful, modest, gracious woman
 God bless and sustain you always. I leave my blessings upon you wonderful sisters with love in my heart for you, and do so in the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Marriage #Service #Single_Members

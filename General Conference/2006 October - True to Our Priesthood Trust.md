@@ -95,5 +95,4 @@ Time marches on. Duty keeps cadence with that march. Duty does not dim nor dimin
 Brethren, let us learn our duties. Let us ever be worthy to perform those duties and, in so doing, follow in the footsteps of the Master. When to Him came the call of duty, He answered, “Father, thy will be done, and the glory be thine forever” ([[Moses 4.2|Moses 4:2]]). May we do likewise, I pray humbly, in the name of Jesus Christ the Lord, amen.
 
 
-
-
+#Duty #Priesthood #Service #Trust #Worthiness

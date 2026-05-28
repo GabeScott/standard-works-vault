@@ -43,5 +43,4 @@ The Savior said: “I give unto you a commandment, that every man, both elder, p
 I know that He lives and guides His Church through His prophet, President Gordon B. Hinckley. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Fellowshipping #Holy_Ghost #Jesus_Christ #Missionary_Work

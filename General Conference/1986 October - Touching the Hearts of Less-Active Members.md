@@ -51,5 +51,4 @@ May we assure our sometimes missing friends in the Church of our Lord’s love f
 I bear my humble witness that our leaders are inspired and receive revelation for us, that the Book of Mormon nurtures the true fountain of Christ’s Spirit, and that this is the true, restored church of Jesus Christ on the earth. And I do this in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Forgiveness #Love #Missionary_Work #Repentance

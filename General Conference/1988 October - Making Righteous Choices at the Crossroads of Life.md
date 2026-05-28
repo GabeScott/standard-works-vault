@@ -115,5 +115,4 @@ When we stand at the crossroads of life and must make a decision whether to go t
 May the Lord bless us as we make our decisions in life to constantly keep our goal of eternal life in view. That we may study and pray each day to *know* and *understand* what is right but, more importantly, to *do* what is right; that we may have those who stand by us say, “Thee lift me, and I’ll lift thee, and we’ll ascend together,” is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Agency

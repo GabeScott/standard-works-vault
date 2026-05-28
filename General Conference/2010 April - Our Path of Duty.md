@@ -131,3 +131,5 @@ I bear my witness that our path of duty is clearly marked by an undivided faith 
 
 [^26]: [[Ecclesiastes 12.13|Ecclesiastes 12:13]]; emphasis added.
 
+
+#Commandments #Duty #Obedience #Prayer

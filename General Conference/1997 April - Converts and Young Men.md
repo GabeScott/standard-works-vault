@@ -135,5 +135,4 @@ You have come into the world in a great season in this the work of the Lord. No 
 May the Lord bless you, my dear young friends. May His watch care be over you to preserve and protect and guide you. He has a great work for you. Do not fail Him. I leave my love and my blessing with you in the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Fear #Fellowshipping #Greed #Jesus_Christ #Joy #Love #Priesthood #Satan

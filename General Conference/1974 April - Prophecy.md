@@ -115,5 +115,4 @@ Through Jeremiah the Lord said:
 God bless you, brothers and sisters. I don’t know why we should hesitate to raise our voices in testimony. To me it is the marvelous work and a wonder spoken of, it is the greatest movement in all this world. When everything else passes away like the dream of a night’s vision, this church, this kingdom, will go on to its decreed destiny, and that is my witness and testimony to you in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Prophecy #Scriptures

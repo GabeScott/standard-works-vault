@@ -127,3 +127,5 @@ With us at the beginning, He is with us, in all our covenant belonging, to the e
 
 [^28]: [[D&C 19.1|Doctrine and Covenants 19:1]].
 
+
+#Covenants #Ordinances

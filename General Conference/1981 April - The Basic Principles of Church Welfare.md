@@ -67,5 +67,4 @@ May I close by quoting from King Benjamin (you’ve heard him quoted already tod
 That we may have the wisdom and the discipline and live to implement these great principles is my prayer, in the name of Jesus Christ, our Redeemer, amen.
 
 
-
-
+#Family #Self-Reliance

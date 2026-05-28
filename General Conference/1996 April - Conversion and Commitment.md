@@ -57,5 +57,4 @@ May we go from this conference with a renewed desire to be more fully converted 
 I believe in Jesus Christ with all my soul. May we understand and follow His teachings as found in the holy scriptures. This is His divine Church. Through the Prophet Joseph Smith, the Lord ushered in the fulness of the gospel in this last dispensation of time. President Gordon B. Hinckley is our true and living prophet. This is my testimony to you in the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Conversion #Covenants #Discipleship #General_Conference

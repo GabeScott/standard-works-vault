@@ -17,5 +17,4 @@ I would like also to bear witness that in my particular case the veil between he
 Now, my brothers and sisters, I would ask for an interest in your faith and prayers. I express my affection to my wife and my children, who sustain me in whatever the Lord might ask me to do. I am grateful for this abundant blessing and pray humbly that I might serve you, the membership of this Church, in a way that would be pleasing and acceptable unto our Heavenly Father, and ask this prayer humbly, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Callings

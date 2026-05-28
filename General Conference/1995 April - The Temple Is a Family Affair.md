@@ -65,3 +65,5 @@ I am grateful for temples where we can go to be sealed together as families for 
 
 [^3]: In Conference Report, Oct. 1994, [[1994 October - Follow the Son of God.md|p. 118]]; or *Ensign,* Nov. 1994, p. 88; emphasis added.
 
+
+#Covenants #Family #Holy_Ghost #Home #Temples

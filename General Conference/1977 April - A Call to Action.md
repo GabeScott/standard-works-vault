@@ -85,5 +85,4 @@ I pray that every Relief Society worker and leader will recognize our great oppo
 In the name of Jesus Christ, amen.
 
 
-
-
+#Relief_Society #Welfare

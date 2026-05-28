@@ -55,5 +55,4 @@ As we struggle forward each day intent upon accepting the Lord’s invitation to
 May our Heavenly Father strengthen and guide us as we accept his invitation to grow. In the name of Jesus Christ, amen.
 
 
-
-
+#Education #Individual_Worth

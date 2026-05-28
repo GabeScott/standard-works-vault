@@ -51,5 +51,4 @@ Within our family circle, we can help our children identify feelings of the Spir
 Brothers and sisters, we can touch the hearts of our children and bring them to the Savior. They will see Him first through our eyes, and they will learn how to know and love Him as their most trusted friend. They will understand what it means to have His Spirit to be with them—and that will be their strength. It is my prayer, my brothers and sisters, that we may all keep that vision before us, and I ask it in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Example #Faith #Family #Home #Jesus_Christ #Love #Parenthood #Prayer #Scriptures #Spirituality #Teaching #Testimony

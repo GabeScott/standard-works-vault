@@ -79,3 +79,5 @@ I testify of the healing, refining, and perfecting power of Jesus Christ. I know
 
 [^15]: See [[Moroni 6.4|Moroni 6:4]].
 
+
+#Conversion #Discipleship #Jesus_Christ #Testimony

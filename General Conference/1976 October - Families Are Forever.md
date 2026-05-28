@@ -91,5 +91,4 @@ If you will involve your whole family—pray as a family for success; select a f
 The lives you touch may forget what you said, but they will never forget how you made them feel. Families are forever, I testify to you in all humility, in the name of our Lord and Savior Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work

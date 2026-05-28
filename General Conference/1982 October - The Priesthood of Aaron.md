@@ -93,5 +93,4 @@ I plead with you who are responsible for these meetings that you strive a little
 It is not easy to keep oneself unspotted from the world. Each of us needs all the help he can get. The Lord has given us direction in how to achieve this. That direction is clear and unequivocal. I pray that we shall follow it, as I leave with you, my brethren of the holy priesthood, my testimony and witness of the divinity of this work, and invoke the blessings of the Lord upon you. In the name of him whom we serve, even the Lord Jesus Christ, amen.
 
 
-
-
+#Church_Meetings #Priesthood

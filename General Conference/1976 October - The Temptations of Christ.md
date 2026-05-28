@@ -59,5 +59,4 @@ With faith, and prayer, and humility, and sources of strength from an eternal wo
 May this be our destiny, I pray in the name of our Lord and Master, Jesus Christ. Amen.
 
 
-
-
+#Temptation

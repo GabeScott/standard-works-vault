@@ -69,5 +69,4 @@ To all of you within the sound of my voice who are not following the pattern of 
 I testify that Jesus Christ directs the righteous affairs of this earth, that Spencer W. Kimball is a living prophet and receives and follows the instruction of the Master for the salvation of all men who will follow him. That we may do so is my constant prayer, in the name of Jesus Christ. Amen.
 
 
-
-
+#Example #Jesus_Christ

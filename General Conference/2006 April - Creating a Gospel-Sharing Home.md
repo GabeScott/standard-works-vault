@@ -73,5 +73,4 @@ I bear testimony that if we will just do some of these simple things, the Lord w
 May the Lord bless you, my brothers and sisters, with greater faith and trust in Him as you reach out now to introduce the Restoration of the gospel of Jesus Christ to the people of the world, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Example #Friendship #Missionary_Work

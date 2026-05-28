@@ -73,5 +73,4 @@ May we always have in our minds and hearts the words of Nephi:
 It is my humble prayer that the Lord may bless us to do “all we can do” in this “out of the ordinary” path that we have chosen, which I testify to be true, in the name of Jesus Christ, amen.
 
 
-
-
+#Endurance #Freedom #Repentance #Testimony

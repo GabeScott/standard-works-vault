@@ -89,5 +89,4 @@ The Lord really cares about the feelings of love in our hearts and souls, about 
 We can be good women, elect women, and even holy women. Though we are women of great diversity, we can be women of God bound together in a great sisterhood of faith and testimony. And like Heidi, we can pray for strength and faith and the ability to make our homes places of refuge where the light of heaven—like the golden sunlight of that gray November day—will stream into our lives no matter where we are. That we, being many, will be one in Christ, having hearts so similar, is my humble prayer in the holy name of Jesus Christ, our Exemplar and Redeemer, amen.
 
 
-
-
+#Church_Growth #Relief_Society

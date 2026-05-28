@@ -93,5 +93,4 @@ God grant unto us the desire to seek Him reverently and humbly in prayer, and th
 God lives! Jesus is the Christ, the Savior of the world. This is my solemn witness to you in the name of our Lord and Savior, Jesus Christ, amen.
 
 
-
-
+#Prayer #Scripture_Study

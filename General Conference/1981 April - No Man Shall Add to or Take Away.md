@@ -59,5 +59,4 @@ The Savior is reigning in the midst of the Saints today through continuous revel
 May our vision not be so narrow that we would relegate revelation to only the ancients. God is merciful and loves his children in all ages and has revealed himself to this time in history. Of this I solemnly testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Scriptures #Spirituality

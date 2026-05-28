@@ -91,5 +91,4 @@ I wish I could engrave on every heart what I so keenly know and feel. I bear unw
 May the Lord bless us in this important work, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Women

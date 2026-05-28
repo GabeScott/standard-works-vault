@@ -137,3 +137,5 @@ By so doing we can become like Him. Of this truth I solemnly bear witness in the
 
 [^7]: [[D&C 110.4|D&C 110:4]].
 
+
+#Agency #Missionary_Work #Priesthood

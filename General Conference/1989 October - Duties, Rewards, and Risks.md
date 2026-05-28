@@ -59,5 +59,4 @@ The work of sharing the gospel of Jesus Christ in all the world will require kno
 Brothers and sisters, the missionaries need our faith and prayers. Pray fervently every day for their safety and protection, for this is one very important way we all can support them in accomplishing their essential assignment of proclaiming the gospel to all the world. I bear testimony that Jesus Christ is the Son of God. We are engaged in his work. I testify that through the faith and prayers of all members of the Church, we will continue moving this great work forward to the final victory. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Missionary_Work

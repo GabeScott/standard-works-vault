@@ -99,3 +99,5 @@ Be strong, brethren. Keep the commandments of God. The Lord Jesus Christ promise
 
 [^5]: See [[Mosiah 3.5|Mosiah 3:5–13]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]][[Mosiah 3.12|]][[Mosiah 3.13|]].
 
+
+#Dating #Discipleship #Institute #Jesus_Christ #Marriage #Seminary #Young_Single_Adults

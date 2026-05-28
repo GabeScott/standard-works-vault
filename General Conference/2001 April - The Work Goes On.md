@@ -49,5 +49,4 @@ We shall now be pleased to go forward with the proceedings of this great gatheri
 God bless you, my beloved associates, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Education #Faith #Gratitude #Missionary_Work #Obedience #Temples #Tolerance #Welfare

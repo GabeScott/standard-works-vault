@@ -67,3 +67,5 @@ I rejoice that for the balance of my life I shall be able continually to offer C
 
 [^2]: See Ezra Taft Benson, “A Mighty Change of Heart,” *Tambuli,* Mar. 1990, 2–7; *Ensign,* Oct. 1989, 2–5.
 
+
+#Conversion #Jesus_Christ #Plan_Of_Salvation #Repentance

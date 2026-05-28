@@ -75,5 +75,4 @@ May the Lord bless us with the understanding and dedication not to offend his li
 In the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Scriptures

@@ -83,5 +83,4 @@ Finally, to those of you who have already served, please remember that you were 
 My brethren, I have spoken plainly tonight. I hope you can feel the love and the concern that emanates from the First Presidency and the Quorum of the Twelve Apostles and other Church leaders as we ask you to prepare now to join us in taking the blessings of the restored gospel to all the people on the earth. Each one of you is precious, and we want you to be successful and secure in the battle for the souls of our Heavenly Father’s children. May God bless you with the courage to be “true at all times” ([[Alma 53.20|Alma 53:20]]) and with the vision to realize who you are and what the Lord has for you to do, I pray in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Fatherhood #Missionary_Work #Preparation #Worthiness

@@ -65,5 +65,4 @@ That promise—of answer to our prayers—is directed even to a small child. Thi
 That personal and prophetic revelation is the foundation upon which our Church service is firmly based is my witness, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Callings #Jesus_Christ #Missionary_Work #Testimony

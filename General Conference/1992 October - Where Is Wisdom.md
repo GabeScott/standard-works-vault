@@ -159,3 +159,5 @@ Where is wisdom? It pulses and surges with the Lord’s light of truth! With tha
 
 [^11]: T. S. Eliot, “Choruses from ‘The Rock,’” *The Complete Poems and Plays* (New York: Harcourt, Brace and World, 1971), p. 96.
 
+
+#Education #Faith #Wisdom

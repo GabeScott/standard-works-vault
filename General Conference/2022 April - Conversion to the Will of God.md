@@ -129,3 +129,5 @@ The blessings of sharing the gospel include increasing our conversion to the wil
 
 [^31]: See [[Alma 26.22|Alma 26:22]]; [[D&C 18.13|Doctrine and Covenants 18:13–16]][[D&C 18.14|]][[D&C 18.15|]][[D&C 18.16|]]; see also Bible Dictionary, “[[BD Conversion|Conversion]].”
 
+
+#Book_Of_Mormon #Conversion #Jesus_Christ #Joseph_Smith #Missionary_Work #Repentance

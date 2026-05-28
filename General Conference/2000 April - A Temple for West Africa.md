@@ -53,5 +53,4 @@ It is my hope and prayer that we will never take temple blessings for granted. I
 I testify to the divinity of this work. Jesus is the Christ. He stands at the head of this Church, and He is orchestrating the building of His kingdom here on earth. We are witnessing miracles, and therefore I can testify they have not ceased. In the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Faith #Miracles #Ordinances #Peace #Preparation #Satan #Temple_Work #Temples

@@ -135,5 +135,4 @@ We stress the teaching of personal and family preparedness as the first principl
 May the Lord bless us to be wise and sound stewards in blessing the people with our teachings and our leadership, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Fasting

@@ -41,5 +41,4 @@ What is expected of a holder of the priesthood of God? What changes are required
 The only complete response to the question posed by Jesus Christ “What manner of men ought ye to be?” is the one He succinctly and profoundly gave: “Even as I am” ([[3 Nephi 27.27|3 Nephi 27:27]]). The invitation to “come unto Christ, and be perfected in him” ([[Moroni 10.32|Moroni 10:32]]) both requires and expects change. Mercifully, He has not left us alone. “And if men come unto me I will show unto them their weakness. … Then will I make weak things become strong” ([[Ether 12.27|Ether 12:27]]). Relying upon the Savior’s Atonement, we can change. Of this I am certain. In the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Priesthood #Service #Worthiness

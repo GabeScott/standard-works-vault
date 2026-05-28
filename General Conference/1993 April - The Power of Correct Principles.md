@@ -87,5 +87,4 @@ Now, the most important principle I can share: Anchor your life in Jesus Christ,
 I solemnly testify that your Heavenly Father and His Beloved Son live, that they know you, that they love you, that they want to help you. In the name of Jesus Christ, amen.
 
 
-
-
+#Children #Missionary_Work #Obedience #Parenthood

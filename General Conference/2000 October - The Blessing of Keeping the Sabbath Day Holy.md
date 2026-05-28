@@ -109,3 +109,5 @@ I love our Lord and Savior. I know He lives and that this is His Church and king
 
 [^24]: [[D&C 59.8|D&C 59:8]].
 
+
+#Faith #General_Conference #Joy #Peace #Repentance #Sabbath #Success #Worldliness

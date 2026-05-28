@@ -27,5 +27,4 @@ To every young woman of the Church, in your growing up years you are not alone. 
 Now, to every adult member of the Church, may I suggest that you learn the names of the young people in your ward or branch and call them by name. Encourage them in their work efforts. Recognize them for the good things they do. They need our support, and we need theirs. Probably the hardest thing about growing up is that you have to keep doing it. But we are not alone. I bear testimony and express gratitude for this knowledge, in the name of Jesus Christ, amen.
 
 
-
-
+#Service #Youth

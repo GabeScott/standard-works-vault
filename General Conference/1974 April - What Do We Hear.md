@@ -115,5 +115,4 @@ We shall serve you, our people, and love you and do our utmost to guide you to y
 *With our hands to the plow, looking forward; with our eyes to the light, looking upward; we enter into our “Father’s business” with fear and trembling and love.* We *know* our Heavenly Father lives. We *know* his glorified Son Jesus Christ lives. And we *know* his work is divine. And we bear this solemn testimony to you in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Church_Leaders #Prophets

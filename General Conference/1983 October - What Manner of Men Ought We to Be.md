@@ -145,5 +145,4 @@ He is our Savior, our Redeemer, and our Great Exemplar.
 This is my fervent witness as I invoke the blessings of God upon each one of you in the name of Jesus Christ, amen.
 
 
-
-
+#Repentance

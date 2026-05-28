@@ -153,3 +153,5 @@ God knows *you* and invites *you* to know *Him.* Pray to the Father, study the s
 
 [^19]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
+
+#Example #Jesus_Christ #Joseph_Smith #Obedience #Prayer #Scripture_Study #Worthiness

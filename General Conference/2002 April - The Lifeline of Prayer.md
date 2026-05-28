@@ -125,3 +125,5 @@ I sincerely hope that as we say our daily prayers we remember to ask the Lord’
 
 [^24]: [[1 John 5.14|1 Jn. 5:14]].
 
+
+#Faith #Family #Jesus_Christ #Prayer

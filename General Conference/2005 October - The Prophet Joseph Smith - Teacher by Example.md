@@ -99,3 +99,5 @@ I testify of this solemn truth, in the name of Jesus Christ, amen.
 
 [^10]: “Praise to the Man,” *Hymns,* no. 27.
 
+
+#Courage #Dedication #Example #Faith #Honesty #Joseph_Smith #Love #Missionary_Work #Patience #Teaching

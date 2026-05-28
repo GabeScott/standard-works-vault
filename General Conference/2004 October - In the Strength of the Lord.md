@@ -57,5 +57,4 @@ I will go where the Lord and the leaders of His Church want me to go, I will do 
 As one of the weakest of the weak, I testify that God lives. I testify and witness that Jesus is the Christ. He is our Redeemer and our Savior, and He lives. And I testify that the fulness of the gospel of Jesus Christ and His true Church have been restored to the earth in these latter days through the Prophet Joseph Smith. Priesthood keys and authority and saving ordinances are again found on the earth. By the power of that priesthood, families truly can be together forever. The Book of Mormon is the word of God and the keystone of our religion. And, brothers and sisters, the heavens are not closed. God speaks—to us individually and to the leaders of His latter-day kingdom on earth. President Gordon B. Hinckley is the Lord’s prophet on the earth today. Of these things I testify and declare my witness in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Grace #Humility #Quorum_Of_The_Twelve_Apostles #Testimony

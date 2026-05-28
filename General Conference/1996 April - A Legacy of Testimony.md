@@ -69,5 +69,4 @@ We have all seen evidence of that in families we have known. I saw it in South A
 I testify that I know that God, our Heavenly Father, lives and that He loves us and that He knows us. I know that Jesus Christ lives and that we will be resurrected and can be sanctified because of His sacrifice. I testify that we can know the truth by the power of the Holy Ghost. I know that we can live together in families in eternal life, the greatest of all the gifts of God. I pray that we may, with all our hearts for all our lives, offer testimony of the truth to our families. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Children #Covenants #Family #Family_Home_Evening #Fasting #Holy_Ghost #Hope #Jesus_Christ #Parents #Prayer #Scripture_Study #Testimony

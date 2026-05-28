@@ -103,5 +103,4 @@ God grant that we may ever keep alive the rich heritage which is ours, especiall
 This is the Lord’s work in which we are engaged. I bear witness of that. He lives. Jesus is the Christ, the Savior of the world. That we may be engaged in His work is my humble prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Holidays #Home

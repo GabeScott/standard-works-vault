@@ -71,5 +71,4 @@ Some business leaders have also looked at the family home evening program and re
 May the Lord bless us as parents to realize our right to help formulate the lives of our children, to teach the dignity of work, and to establish moral and religious principles in our homes, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Family_Home_Evening #Responsibility

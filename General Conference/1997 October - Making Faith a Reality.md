@@ -53,5 +53,4 @@ I am so thankful for leaders who encourage us to commit to experiences that help
 May I, in concluding my service, express my love and appreciation to the many who have counseled and supported me—the First Presidency, priesthood leaders, and the other auxiliary leaders. My counselors, past and present, the Young Women general board, and the Young Women office staff are magnificent women, women of faith. Wherever they serve, their names will be known for good. I express gratitude to my Heavenly Father for my experience here, in the name of His Son, Jesus Christ, amen.
 
 
-
-
+#Atonement #Evil #Faith #Family #Holy_Ghost #Home #Repentance #Scriptures #Young_Women

@@ -81,5 +81,4 @@ Of these things I give solemn testimony, bearing witness to all within the sound
 Of such was the faith of our fathers. Of such is our faith. “Faith of our fathers, holy faith. We will be true to thee till death!” (“Faith of Our Fathers,” in *Hymns,* 1985 ed.) In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Faith #Jesus_Christ #Joseph_Smith #Priesthood

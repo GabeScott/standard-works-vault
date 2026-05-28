@@ -105,5 +105,4 @@ The strength of the nations lies in the homes of the people. God is the designer
 God bless the homes of our people. May He bless those homes that there may be loyal and true fathers, and good and wonderful mothers, and obedient and ambitious children reared in “the nurture and admonition of the Lord” ([[Enos 1.1|Enos 1:1]]), I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Divorce #Marriage

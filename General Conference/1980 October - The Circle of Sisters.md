@@ -107,5 +107,4 @@ God bless you sisters of the Relief Society who bring so much. God bless that li
 I bear witness that God lives, that He directs this work, that His benevolent power is upon this great circle of sisters, in the name of Jesus Christ, amen.
 
 
-
-
+#Relief_Society #Sisterhood

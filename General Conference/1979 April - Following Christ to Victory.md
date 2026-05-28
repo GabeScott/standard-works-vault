@@ -43,5 +43,4 @@ And fifth, *receive the miracle with great humility.* “Then answered Jesus and
 I bear witness that this formula is effective in the Lord’s work, and I am persuaded it works everywhere else too. In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Miracles #Missionary_Work #Self-Esteem

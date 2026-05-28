@@ -29,5 +29,4 @@ I wish to thank the Lord that we can participate in this kind of service, and go
 May the Lord bless us to this end, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Prayer

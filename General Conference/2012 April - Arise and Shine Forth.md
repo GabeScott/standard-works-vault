@@ -81,3 +81,5 @@ Dear young women, each of you has been born with great potential. You are belove
 
 [^15]: Personal correspondence to author, 2012.
 
+
+#Courage #Example #Obedience #Standards

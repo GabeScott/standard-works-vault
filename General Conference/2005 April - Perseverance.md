@@ -95,3 +95,5 @@ Those who desire to be baptized into the Church are required by the Lord to have
 
 [^12]: See [[John 8.31|John 8:31]].
 
+
+#Dedication #Service #Teaching

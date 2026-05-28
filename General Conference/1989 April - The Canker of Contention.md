@@ -143,5 +143,4 @@ Through love of God, the pain caused by the fiery canker of contention will be e
 Shun contention. Seek godliness. Be enlightened by eternal truth. Be like-minded with the Lord in love and united with Him in faith. Then shall “the peace of God, which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]), be yours, to bless you and your posterity through generations yet to come. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Contention #Family #Humility #Love #Peace

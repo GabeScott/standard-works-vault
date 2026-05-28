@@ -61,5 +61,4 @@ In today’s complicated world with its diversity of demands and sometimes distr
 May God help us to do so and to keep from looking beyond that mark, I pray earnestly in the name of Jesus Christ, amen.
 
 
-
-
+#Spirituality #Truth

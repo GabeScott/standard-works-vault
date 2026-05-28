@@ -60,5 +60,4 @@ Not wanting to go into detail about her concerns, but feeling that she needed to
 May God bless us as parents to teach our children to walk uprightly before the Lord is my prayer in the name of our Savior, Jesus Christ, amen.
 
 
-
-
+#Agency #Children #Example #Home #Parenthood #Prayer #Scripture_Study

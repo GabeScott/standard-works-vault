@@ -61,5 +61,4 @@ We are advised to study the scriptures, the older scriptures and the modern scri
 As I stand here as an apostle of the Lord Jesus Christ, I bear you my witness that the prophecies of Malachi that I have referred to have been fulfilled in the restoration of the gospel at the hands of the Prophet Joseph Smith and the holy prophets who have succeeded him at the head of this church, even to our present prophet, President Spencer W. Kimball, whom I honor with all my heart, as I do all my brethren of the General Authorities. So I leave with you that witness, and pray God to give us the strength and the faith to do our part in the preparation of his kingdom. In the name of the Lord, Jesus Christ, amen.
 
 
-
-
+#Last_Days #Prophets

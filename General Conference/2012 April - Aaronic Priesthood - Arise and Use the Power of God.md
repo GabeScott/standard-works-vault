@@ -49,5 +49,4 @@ I quote the words of President Thomas S. Monson: “Never underestimate the far-
 I testify to you that the power of the priesthood is real. I gained my witness exercising the priesthood myself. I have seen miracle after miracle performed by those who have the power of the Aaronic Priesthood. I have witnessed the power of the ministering of angels as faithful Aaronic Priesthood holders speak Spirit-filled words of hope, opening the heart of someone in need of light and love. In the name of Jesus Christ, our Lord, our leader, and our Savior, amen.
 
 
-
-
+#Aaronic_Priesthood #Example #Worthiness

@@ -157,3 +157,5 @@ I plead for heaven’s help as we strive to be Christlike teachers in our homes.
 
 [^24]: L. Tom Perry, “[[2010 April - Mothers Teaching Children in the Home.md|Mothers Teaching Children in the Home]],” 30.
 
+
+#Example #Family #Family_Home_Evening #Home #Prayer #Scripture_Study #Teaching

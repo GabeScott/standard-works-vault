@@ -61,5 +61,4 @@ Why not color your thoughts with eternal, prophetic utterances and truths this v
 Come, catch the glow of the warmth of the gospel. There is a living prophet in the land today who represents the Savior upon the earth. His prophetic utterances are scripture; they have a sense of urgency. And I bear you this witness humbly in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Scriptures #Truth

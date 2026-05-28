@@ -77,5 +77,4 @@ The church of Jesus Christ, founded upon the foundation of apostles and prophets
 May God help us to hear and to obey, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Commandments #Obedience

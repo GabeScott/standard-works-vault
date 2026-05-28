@@ -21,5 +21,4 @@ I have committed myself—recommitted myself—to the Lord, to give everything t
 Now I leave you my witness that God lives and commit to you that I will do everything that I can as long as I have breath and beyond that. In the name of Jesus Christ, the Lord, amen.
 
 
-
-
+#Testimony

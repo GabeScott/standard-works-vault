@@ -85,5 +85,4 @@ To you who are not now involved in Church activity, we extend to you our love an
 May all of us seek to perfect our lives in the pattern of the Savior, and may we help each other in the perfection process, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Activation #Fellowshipping

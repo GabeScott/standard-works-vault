@@ -177,3 +177,5 @@ Of this I testify in the name of Jesus Christ, amen.
 
 [^23]: Two other resources worth mentioning: The digital version of this year’s *Come, Follow Me* resource includes a new section titled “[Preparing Your Children for a Lifetime on God’s Covenant Path](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2023/54-appendix?lang=eng).” It suggests simple, home-centered ideas for helping children prepare for baptism and other covenants and ordinances. And the newly revised *Teaching in the Savior’s Way* has a section titled “[Home and Family](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title2#title2)” that describes how the principles of Christlike teaching apply to the home (see pages 30–31).
 
+
+#Children #Faith #Family #Jesus_Christ #Love #Parents #Revelation #Teaching

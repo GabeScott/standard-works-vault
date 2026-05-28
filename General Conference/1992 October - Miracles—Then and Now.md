@@ -141,5 +141,4 @@ Through the years the Latter-day Saints have taken comfort from the favorite hym
 To any who from anguish of heart and sadness of soul have silently asked, “Heavenly Father, are you really there? … Do you hear and answer every … prayer?” (*Children’s Songbook,* p. 12), I bear to you my witness that He is there. He does hear and answer every prayer. His Son, the Christ, burst the bands of our earthly prisons. Heaven’s blessings await you. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Courage #Endurance #Love

@@ -149,5 +149,4 @@ Though I speak with the tongues of men and of angels and have not grace, mercy, 
 Humble obedience is the thing. It alone can save us. To this I testify, in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Honesty #Obedience

@@ -113,5 +113,4 @@ I testify to you that God’s pay is the best pay that this world or any other w
 May God bless us to put the first commandment first and, as a result, reap peace in this life and eternal life with a fulness of joy in the life to come, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #God_The_Father #Love #Priorities

@@ -89,5 +89,4 @@ In closing, may I quote from Solomon Bennett Freehof:
 May we all strive more diligently to show our love of the Lord by the way we emulate Christlike love in our relationships with others, that we may lay claim to the “crown of life” referred to by James, “which the Lord hath promised to them that love him” ([[James 1.12|James 1:12]]), I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Service

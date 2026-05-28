@@ -75,3 +75,5 @@ I’m grateful for this extraordinary building. It stands as a sacred monument t
 
 [^7]: “Stand Strong against the Wiles of the World,” *Ensign,* Nov. 1995, 100–101.
 
+
+#Church_History #Prophets #Temple_Square #Testimony

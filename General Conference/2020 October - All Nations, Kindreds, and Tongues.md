@@ -179,3 +179,5 @@ May we joyfully accept God’s invitation to receive and help fulfill His promis
 
 [^34]: “While of These Emblems We Partake,” *Hymns,* no. 173, verse 3.
 
+
+#Book_Of_Mormon #Humanitarian_Aid #Restoration

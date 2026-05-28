@@ -129,5 +129,4 @@ I cannot frame this picture. I would not if I could, for it has no bounds. Your 
 I pray God’s blessings upon you, our youth. May our Heavenly Father watch over you and sustain you, that in the expression of this sacred gift you may draw close to him. He lives. He is our Father. Of this I bear witness in the name of Jesus Christ. Amen.
 
 
-
-
+#Love #Morality

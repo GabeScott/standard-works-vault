@@ -91,5 +91,4 @@ One request Christ made of His disciples on that night of deep anguish and grief
 “Oh, it is wonderful, wonderful to me!” (“I Stand All Amazed,” *Hymns,* 1985, no. 193). I bear witness of Him who is the Wonder of it all, and I do so in His own name, even Jesus Christ, amen.
 
 
-
-
+#Atonement #Church_Meetings #Covenants #Jesus_Christ #Music #Passover #Prayer #Priesthood #Sacrament

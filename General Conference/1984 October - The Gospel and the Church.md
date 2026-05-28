@@ -65,5 +65,4 @@ May each of us continue to learn and apply the eternal principles of the gospel,
 In the words of the Nephite leader Pahoran “May \[we\] rejoice in the great privilege of our church, and in the cause of our Redeemer and our God.” ([[Alma 61.14|Alma 61:14]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Church_Organization #Truth

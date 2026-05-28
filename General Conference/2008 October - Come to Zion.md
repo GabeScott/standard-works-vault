@@ -100,5 +100,4 @@ The Prophet Joseph Smith said, “We ought to have the building up of Zion as ou
 I bear witness of Jesus Christ, the King of Zion, in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Unity #Worthiness #Zion

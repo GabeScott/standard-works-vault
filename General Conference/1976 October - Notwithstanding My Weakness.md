@@ -71,5 +71,4 @@ True, there are no *instant* Christians, but there are *constant* Christians!
 If we so live, we too can say in personal prospectus, “And I soon go to the place of my rest, which is with my Redeemer; for … *then shall I see his face* with pleasure” ([[Enos 1.27|Enos 1:27]]; italics added) for then will our confidence *“wax strong in the presence of God,”* ([[D&C 121.45|D&C 121:45]]; italics added), and He who cannot lie will attest to our adequacy with the warm words “Well done.” I so testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Patience #Self-Esteem

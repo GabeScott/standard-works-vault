@@ -181,3 +181,5 @@ Just as the ring was recovered from that shipwreck, when we give our hearts to G
 
 [^23]: [[Mosiah 5.7|Mosiah 5:7]].
 
+
+#Conversion #Covenants #Sabbath

@@ -97,5 +97,4 @@ In the pioneering days of this church when men grubbed the sagebrush and broke t
 Yes, there are adversities to be overcome, not a few of them. There are trials to be endured. There is much of evil in the world and too much of harshness, even in the home. Do what you can to rise above all of this. Stand up. Speak out against evil and brutality. Safeguard against abuse. Keep out of your homes the filthiness of the world, which can lead to such abuse. Rise up in the stature of your divine inheritance. God bless you, you wonderful girls, you strong and able young women, you older women of faith and integrity, you mothers in Zion, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Marriage #Women

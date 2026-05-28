@@ -37,5 +37,4 @@ Our foremost decision must be to seek a testimony of the gospel and to build our
 I am grateful for the privilege to serve the Lord and for the spirit which has touched my heart and soul and for my wonderful companion and my faithful family. And I leave my witness with you and with them of the divinity of this work and of our Lord Jesus Christ, who leads and directs and presides over it. In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Blessings #Death #Family_History #Freedom #Jesus_Christ #Obedience #Ordinances #Temples

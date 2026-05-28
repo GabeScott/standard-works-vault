@@ -149,3 +149,5 @@ I witness that Jesus is the Christ, the Son of God. In the name of Jesus Christ,
 
 [^21]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
+
+#Jesus_Christ #Name_Of_Church #Revelation

@@ -115,5 +115,4 @@ May I suggest a formula for bringing forth good fruit and helping one to gain et
 Let us diligently strive to understand the wonderful things of God. The jewels of the gospel of Jesus Christ are within our reach. But we must seek—ask and strive for—and live the principles of truth. When we do so, we will become better men and better women and contribute to a better community, a better nation, and a better world, for which I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Honesty #Truth

@@ -131,3 +131,5 @@ I bear my testimony that this is the true Church of Jesus Christ. I have seen it
 
 [^16]: [[James 1.5|James 1:5]].
 
+
+#Faith #Joseph_Smith #Technology #Testimony #Truth

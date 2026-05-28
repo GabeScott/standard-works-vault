@@ -59,5 +59,4 @@ Listen to King Benjamin’s significant counsel: “I cannot tell you all the th
 My brothers and sisters, may God bless every one of us that the fire of our covenants may burn in our hearts like a flame unquenchable. May we be prepared spiritually to renew our sacred covenants each week as we partake of the sacrament. That we will honor the Lord and we will be anxious to do our part in these most exciting and great days, to build up His Church by strengthening our families is my humble prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Bishops #Children #Commandments #Communication #Covenants #Evil #Example #Family #God_The_Father #Jesus_Christ #Marriage #Media #Morality #Parenthood #Prayer #Satan #Scripture_Study

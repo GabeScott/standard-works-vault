@@ -93,5 +93,4 @@ And wilt thou enfold us everlastingly in the arms of thy love; and finally, wilt
 In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Self-Reliance

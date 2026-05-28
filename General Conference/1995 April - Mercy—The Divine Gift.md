@@ -150,3 +150,5 @@ My sincere and humble prayer this Sabbath day is that each of us may be the prov
 
 [^15]: [[Matthew 5.1|Matt. 5:1–2, 7]][[Matthew 5.2|]][[Matthew 5.7|]].
 
+
+#Bishops #Brotherhood #Forgiveness #Mercy #Priesthood

@@ -65,5 +65,4 @@ And so it goes, my brothers and sisters. As this great work moves across the ear
 May the Lord bless you, and each of us, as we rejoice in our opportunity to be a part of this great cause in this wonderful season of the Lord’s work is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Church_History #Education #Generosity #Media

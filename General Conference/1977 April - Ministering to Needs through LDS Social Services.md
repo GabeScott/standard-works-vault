@@ -83,5 +83,4 @@ As priesthood and Relief Society leaders, we are charged to reach out to these p
 As we contemplate how we can use this resource, think of the young boy staring out of his darkened bedroom at his father. How many more are there like him? How can we walk down the hallway and open the door? I pray that we priesthood leaders may magnify our callings and let the Spirit guide us in using this resource of LDS Social Services, in the name of Jesus Christ. Amen.
 
 
-
-
+#Social_Services

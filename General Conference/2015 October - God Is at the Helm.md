@@ -97,3 +97,5 @@ Hold tight, brothers and sisters, and sail on within the glorious ship, The Chur
 
 [^7]: See [[Isaiah 58.13|Isaiah 58:13–14]][[Isaiah 58.14|]].
 
+
+#Atonement #Church_Leaders #Death #Divine_Nature #Family #Jesus_Christ #Plan_Of_Salvation #Prophets #Sabbath #Testimony #Truth

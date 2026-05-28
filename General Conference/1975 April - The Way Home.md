@@ -89,5 +89,4 @@ Like the peal of a remembered bell will be the truth of the gospel of Jesus Chri
 May such be the blessing of all, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Apostasy #Truth

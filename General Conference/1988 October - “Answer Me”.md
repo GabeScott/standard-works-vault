@@ -91,5 +91,4 @@ There will be no end to the ripples of the Resurrection resulting from the infin
 These observations describe only in small part Him who said, “Answer me,” reminding us from Whom that invitation has come. May we, brothers and sisters, answer Him with the entirety of our lives, sincerely singing, “We feel it a pleasure to serve thee, And love to obey thy command.” (*Hymns,* 1985, no. 19.) May we be thankful for all God’s prophets in every dispensation, including President Benson, I so pray in the name of the Lord of all the prophets, even Jesus Christ, amen.
 
 
-
-
+#Atonement #Discipleship #Jesus_Christ

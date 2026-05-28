@@ -69,5 +69,4 @@ As I expressed my confidence in him, he broke into tears, confessing his unworth
 Brothers and sisters, I know that God lives, that this is his church, that these are the days of preparation and warning; and I testify that when we are not fully exercising the love of God as a power as he has commanded us to do, our marriages will not be strong, our families will be weak, and our own salvation will be in jeopardy. I bear you this testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Love #Marriage

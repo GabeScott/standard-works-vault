@@ -43,5 +43,4 @@ We can rejoice in being among those whom the Lord has sent to the kingdom to acc
 May we all rise to the challenge of being holy women in these latter days, that this “chosen generation … an holy nation … \[might\] shew forth the praises of him who hath called \[us\] out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]). For he lives and loves us, I so testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Women

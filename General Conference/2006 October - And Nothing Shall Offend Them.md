@@ -97,5 +97,4 @@ As we respond to this invitation with faith in the Savior, I testify and promise
 As His servant, I echo the words of the Master when He declared, “These things have I spoken unto you, that ye should not be offended” ([[John 16.1|John 16:1]]). I witness the reality and divinity of a living Savior and of His power to help us avoid and overcome offense. In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Agency #Attitude #Forgiveness #Patience

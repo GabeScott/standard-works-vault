@@ -63,5 +63,4 @@ President Clark reminded us, at the end of his suggestions, that there is, and a
 I bear my testimony that God lives, Jesus is the Christ, and in this dispensation, through prophets from Joseph Smith to Ezra Taft Benson, He has given the power to offer again the full blessings of the gospel of Jesus Christ. I pray that we may never cease to offer the opportunity to choose those blessings to those in whom the spark of faith may yet be fanned to flame. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Faith #Jesus_Christ #Repentance

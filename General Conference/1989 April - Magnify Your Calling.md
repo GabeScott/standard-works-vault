@@ -108,5 +108,4 @@ To each of us the Lord has said, “Magnify your calling.” It is not always ea
 My brethren, I bear witness and testimony of these things. I bear testimony of this divine power which you and I hold. It comes from God our Eternal Father and is exercised in the name of His Beloved Son. In the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Priesthood

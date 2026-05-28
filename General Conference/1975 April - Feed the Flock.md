@@ -47,5 +47,4 @@ Members of your family can be part of a real “lost battalion” *in urgent nee
 I pray that as you close the drapes on each day, you will rest peacefully knowing, “The wind still whips the leaves, but the roots are down.” In the name of Jesus Christ. Amen.
 
 
-
-
+#Military #Service

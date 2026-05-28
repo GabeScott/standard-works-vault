@@ -96,5 +96,4 @@ Now, my brothers and sisters, let not Jesus’ redemption for us stop at the imm
 In this unsettled world, may we settle in our hearts on this determination, I pray in the holy name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Atonement #Commitment

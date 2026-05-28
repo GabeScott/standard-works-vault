@@ -103,5 +103,4 @@ When we awake and are born of God, a new day will break and Zion will be redeeme
 May we be convinced that Jesus is the Christ, choose to follow Him, be changed for Him, captained by Him, consumed in Him, and born again I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Repentance

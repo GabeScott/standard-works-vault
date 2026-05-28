@@ -193,5 +193,4 @@ God bless you, my brethren of the priesthood, watchful shepherds all, to know yo
 In the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Leadership

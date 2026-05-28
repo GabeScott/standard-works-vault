@@ -147,5 +147,4 @@ I testify that Jesus is the Christ, this is his program; he is the God of this w
 And may he help us to strive to live his laws and to achieve happiness on earth, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Character #Commandments #Homosexuality #Honesty #Morality

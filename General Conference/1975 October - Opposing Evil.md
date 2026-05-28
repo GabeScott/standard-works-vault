@@ -87,5 +87,4 @@ Brethren and sisters, the tide of evil flows. It has become a veritable flood. M
 God lives. He is our strength and our helper. As we strive, we shall discover that legions of good men and women will join with us. For this I humbly pray, in the name of him of whom I testify, even the Lord Jesus Christ. Amen.
 
 
-
-
+#Evil #Repentance #Standards #Youth

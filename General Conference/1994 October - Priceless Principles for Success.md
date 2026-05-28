@@ -39,5 +39,4 @@ The General Authorities of the Church, for whom I am most grateful, are true her
 I shall always remember the counsel given by our beloved President Spencer W. Kimball about not only spiritual matters but also how to manage our temporal lives. I have followed his counsel, and I am happy and grateful for the protection that comes from hearkening to the words of the prophets, apostles, my Brethren of the Quorum, and my local leaders. Only when we keep the commandments of the Lord and do His will can we feel totally safe. I know that God lives. Jesus is the Christ, our Savior and Redeemer. Joseph Smith was a prophet of God. I know that we are guided by a prophet today. I testify to you that President Howard W. Hunter is a prophet of God. My testimony is renewed every time I hear and follow his counsel. My life has been very blessed through the gospel. For this I am most grateful, in the name of Jesus Christ, amen.
 
 
-
-
+#Spirituality #Success

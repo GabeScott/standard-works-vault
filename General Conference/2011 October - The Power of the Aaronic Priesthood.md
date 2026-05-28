@@ -145,3 +145,5 @@ I bear witness, God is our Eternal Father and dwells in yonder heavens. Jesus th
 
 [^26]: Thomas S. Monson, General Authority training meeting, Apr. 2010.
 
+
+#Holy_Ghost #Priesthood #Service #Spirituality #Youth

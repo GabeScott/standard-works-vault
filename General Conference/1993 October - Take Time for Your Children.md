@@ -49,5 +49,4 @@ Yes, “the best thing to spend on children is your time” (Arnold Glasow, in *
 That all who are parents might be successful in convincing their children that true joy and happiness come from living the gospel of Jesus Christ, and that parents might find joy and fulfillment in their efforts and sacred role, is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Family #Parenthood #Teaching

@@ -35,5 +35,4 @@ Elder Marvin J. Ashton said, “Home should be an anchor, a port in a storm, a r
 I want to bear my testimony of the responsibility we, the priesthood brethren of this Church, have to spiritually teach and edify our families. I would also like to publicly thank my dad for the great example he has been in my life, for the way in which he has always honored his priesthood. I love him very much. I can honestly say we are the best of friends, and it is my fervent hope and prayer that everyone can have such a father-son relationship. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Parents

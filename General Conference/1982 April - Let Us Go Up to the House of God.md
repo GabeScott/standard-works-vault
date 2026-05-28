@@ -77,5 +77,4 @@ I give you my witness that God is our eternal Father, that we are his children, 
 May God bless us that we may find the joy and satisfaction that come from learning gospel principles that will lead us to life eternal, is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Blessings #Covenants #Plan_Of_Salvation #Temples

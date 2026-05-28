@@ -89,5 +89,4 @@ It is good to remember what Joseph Smith wrote a long time ago to the Saints sca
 My child at first did not understand that my invitation was meant for her. She thought it was for someone else. “He didn’t mean me.” If any within the sound of my voice today need assurance that God’s call to repentance and his invitation to mercy and forgiveness and love is for them, I bear you that solemn witness, in the name of Jesus Christ, amen.
 
 
-
-
+#Forgiveness #Love #Repentance

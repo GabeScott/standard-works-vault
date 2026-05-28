@@ -87,3 +87,5 @@ I testify of the truth and eternal importance of the family proclamation, reveal
 
 [^11]: *[Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-12-obedience-simply-live-the-gospel?lang=eng)* (2016), 186; see also Gordon B. Hinckley, “[[1997 October - Look to the Future.md|Look to the Future]],” *Ensign,* Nov. 1997, 69.
 
+
+#Family #Plan_Of_Salvation

@@ -57,5 +57,4 @@ As one called as a witness of Jesus Christ and to declare His gospel, I plead th
 Jesus Christ is at the head of this work. He is a God of righteousness. In His gracious mercy, He has provided us with a righteous prophet, whom if we follow, we will be doing what is right. To the truth of this fact and the words which I have spoken, I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Fear #Holy_Ghost #Jesus_Christ #Joy #Morality #Obedience #Opposition #Repentance #Safety #Understanding

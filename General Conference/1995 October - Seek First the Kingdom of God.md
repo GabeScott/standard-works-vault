@@ -47,5 +47,4 @@ George’s mother had died while he was a teenager. She didn’t get to see what
 I leave you my love, my witness, and my testimony that this work is true. You young people who are wondering about going out into the world and making your way, bear in mind that other people too, who have used the gospel as a compass to guide them, have done pretty well. The gospel is true. We have a living prophet upon the earth. May you live it fully, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Kingdom_Of_God #Music #Obedience #Temples

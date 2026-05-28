@@ -57,5 +57,4 @@ Yes, when children are taught of the Lord, we bestow on them a gift, a legacy of
 May all our children have the blessing to be taught of the Lord that they might be, indeed, children at peace, I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Parenthood #Teaching

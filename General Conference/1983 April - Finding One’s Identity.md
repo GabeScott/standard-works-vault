@@ -107,5 +107,4 @@ My brothers and sisters, I hope that we might always accept the Savior’s chall
 I bear you my testimony that we can only find individual identity and happiness as children of light, possessing the light of life as found through following the teachings of Jesus of Nazareth, for it was he who said, “I am the light of the world: he that followeth me shall not walk in darkness.” ([[John 8.12|John 8:12]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Self-Esteem

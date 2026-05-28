@@ -69,5 +69,4 @@ I ask the Lord’s blessings upon all those who have made this day possible for 
 I ask the Lord’s blessings, that I might be one in purpose with the Twelve and with all the General Authorities, and with you, my brothers and sisters; and I say to the priesthood holders that any one of you could be here this day. One cannot ask the question “Why me?” and dwell on it. But I will do as the prophet has said, to put behind me my past life and dedicate and consecrate all my time, talents, and efforts to His work. And I say this in the name of Jesus Christ. Amen.
 
 
-
-
+#Testimony

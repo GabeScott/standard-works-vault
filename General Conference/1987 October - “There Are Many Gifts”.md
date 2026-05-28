@@ -123,5 +123,4 @@ Then the presenter asked all those whom Sister Keefer had ever taught and cared 
 God does live. He does bless us with gifts. As we develop and share our God-given gifts and benefit from the gifts of those around us, the world can be a better place and God’s work will move forward at a more rapid pace. To these truths I bear my testimony and leave my personal witness in the name of Jesus Christ, amen.
 
 
-
-
+#Love #Prayer #Spirituality

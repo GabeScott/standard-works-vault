@@ -99,3 +99,5 @@ For the Savior’s promise is sure: those who “believe on the name of Jesus Ch
 
 [^23]: [[D&C 20.29|Doctrine and Covenants 20:29]].
 
+
+#Baptism #Covenants #Discipleship #Holy_Ghost #Jesus_Christ #Sacrament

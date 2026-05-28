@@ -49,5 +49,4 @@ But we are up to the challenge. Tonight may each one of us resolve that *nothing
 I know that God is our Father, that Jesus Christ is our Redeemer, and that They have provided a way so that we need never be alone. As my friends supported me in a time of great need, so may we have the Holy Ghost to strengthen and to guide us. May we seek with all of the energy of our souls to hear and heed the voice of the Lord so that we may do what we have been sent here to do. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Church_Membership #Faith #Holy_Ghost #Honesty #Jesus_Christ #Priesthood #Relief_Society #Satan #Scriptures #Women

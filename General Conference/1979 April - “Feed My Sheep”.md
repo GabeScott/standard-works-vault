@@ -88,5 +88,4 @@ To us of his church, isn’t the duty clear: forever to “feed my sheep,” his
 May many of us who are fully prepared and needing the blessings put aside the things of the world and become shepherds to the flock and lose ourselves in his service. In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

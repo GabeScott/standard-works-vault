@@ -207,5 +207,4 @@ We shall persevere by helping people to help themselves until “the curse of id
 This is my witness, which I bear to you in the name of Jesus Christ. Amen.
 
 
-
-
+#Love #Welfare #Work

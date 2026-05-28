@@ -109,5 +109,4 @@ From the heavens we hear anew the Lord’s declaration:
 May this be our universal blessing, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Missionary_Work

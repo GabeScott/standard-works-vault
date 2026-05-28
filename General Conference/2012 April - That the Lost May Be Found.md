@@ -67,5 +67,4 @@ Now, if for any reason you individually or as a family have lost your way, then 
 As you seek to live the gospel and doctrine of Christ, the Holy Ghost will guide you and your family. You will have a spiritual GPS to tell you always where you are and where you are going. I bear witness that the resurrected Redeemer of mankind loves all of us, and He has promised if we will follow Him, He will lead us safely back into the presence of our Heavenly Father, of which I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Marriage #Priorities

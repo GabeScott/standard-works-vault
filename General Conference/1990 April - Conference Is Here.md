@@ -45,5 +45,4 @@ He may come to us as one unknown, without a name—as of old, by the lakeside, H
 I bear to you my witness that God does live, that Jesus is the Christ, our Redeemer, and that we are led today by God’s prophet, even President Ezra Taft Benson. In the name of Jesus Christ, amen.
 
 
-
-
+#Example #Gratitude #Jesus_Christ #Prayer #Prophets #Service #Temples #Youth

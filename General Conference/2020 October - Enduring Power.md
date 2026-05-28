@@ -93,3 +93,5 @@ I testify that because Heavenly Father loves you and me, He sent His Beloved Son
 
 [^19]: See [[Matthew 28.18|Matthew 28:18]].
 
+
+#Covenants #Faith #Spirituality

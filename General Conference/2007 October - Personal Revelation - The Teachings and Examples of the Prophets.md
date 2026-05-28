@@ -115,3 +115,5 @@ That each of us may receive that Spirit, obtain the blessings of personal revela
 
 [^25]: [[Alma 5.46|Alma 5:46]].
 
+
+#Prayer #Preparation #Prophets #Spirituality

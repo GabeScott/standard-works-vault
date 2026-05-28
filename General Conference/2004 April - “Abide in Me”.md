@@ -57,3 +57,5 @@ Jesus said, “Without me ye can do nothing.”[^6] I testify that that is God�
 
 [^6]: [[John 15.5|John 15:5]].
 
+
+#Activation #Conversion #Couple_Missionaries #Endurance #Missionary_Work #Sacrifice

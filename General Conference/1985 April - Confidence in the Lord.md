@@ -37,5 +37,4 @@ I thank God I was born of goodly parents. I begged my mother not to stand and ta
 Finally, I share the prayer of my heart with you at this time. May I display in my service the courage of my convictions in a manner like unto that displayed by Bishop Victor L. Brown. May I acquire the inspired, objective judgment of Bishop H. Burke Peterson. And may I acquire the open, warm, Christlike personality of Bishop J. Richard Clarke. May I exhibit the love and loyalty to Bishop Hales taught to us so beautifully by Joseph’s beloved brother, Hyrum. And lastly, may we as a Bishopric acquire the same love, respect, and unity I felt in the bishopric of the Bountiful Thirteenth Ward with Bishop Lee J. Lalli and D. Ray Alexander, in the name of Jesus Christ, amen.
 
 
-
-
+#Sacrifice #Service

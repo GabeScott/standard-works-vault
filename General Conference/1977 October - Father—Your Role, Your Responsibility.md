@@ -109,5 +109,4 @@ I am aware how concerned we each are with the leadership we find in the world to
 God bless you to understand your duties and responsibilities to be righteous husbands and fathers, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Fatherhood

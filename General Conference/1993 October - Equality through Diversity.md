@@ -49,5 +49,4 @@ Sisters, you belong to Relief Society. It is organized under priesthood directio
 May God bless you, my dear sisters, in your personal lives, in your homes and families, and in your Church callings. May He bless you for your faithful service. May you feel the comforting assurance that your Heavenly Father loves each one of you, His daughters, and that the way He marks for you is the way to perfect fairness and freedom in this life and in eternity. To this I testify and humbly pray for the Lord’s blessings to be with you, in the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Family #Relief_Society #Women

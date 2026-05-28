@@ -159,3 +159,5 @@ Dear brothers and sisters everywhere, as we meet and learn together, your faith 
 
 [^47]: [[D&C 45.71|Doctrine and Covenants 45:71]].
 
+
+#Jesus_Christ #Restoration #Resurrection

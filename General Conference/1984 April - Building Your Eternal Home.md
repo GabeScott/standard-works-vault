@@ -123,5 +123,4 @@ Then the Lord, even our building inspector, may say to us, as He said when He ap
 May we follow this divinely provided blueprint. May we be successful builders of our eternal homes, is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Spirituality

@@ -63,5 +63,4 @@ I testify to you that when I remember my covenants each day, I do feel hope and 
 “What does the Father ask of us? What do the scriptures say? Have faith, have hope, live like his Son, help others on their way” (“He Sent His Son,” *Children’s Songbook,* 35; *Liahona,* Apr. 1992, F11). I pray that each of us will come unto Him for hope and follow His example of love, in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Covenants #Endurance #Hope

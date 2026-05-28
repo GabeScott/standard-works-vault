@@ -85,5 +85,4 @@ In other words, brothers and sisters, all beings who abide not in those conditio
 God bless us to accept eternal law and understand that there can be no other way is my humble prayer, and I ask it for each and every one in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Bishops #Disciplinary_Councils #Repentance

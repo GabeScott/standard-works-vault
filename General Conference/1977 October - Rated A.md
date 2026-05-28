@@ -73,5 +73,4 @@ So now, in the midst of this battle, let us sound our trumpets for that which is
 For this I humbly pray in the worthy name of Jesus Christ, our Savior and Redeemer. Amen.
 
 
-
-
+#Character #Evil

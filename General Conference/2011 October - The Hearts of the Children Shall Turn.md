@@ -89,5 +89,4 @@ My beloved young brothers and sisters, family history is not simply an interesti
 I testify Elijah returned to the earth and restored the sacred sealing authority. I witness that what is bound on earth can be bound in heaven. And I know the youth of the rising generation have a key role to play in this great endeavor. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Family_History #Priesthood #Technology #Temple_Work #Youth

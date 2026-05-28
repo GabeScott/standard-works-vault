@@ -69,5 +69,4 @@ There are some great spiritual promises which may help faithful parents in this 
 God bless the struggling, sacrificing, honorable parents of this world. May He especially honor the covenants kept by faithful parents among our people and watch over these children of the covenant. I pray that this may be so in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Family #Obedience #Prayer #Word_Of_Wisdom

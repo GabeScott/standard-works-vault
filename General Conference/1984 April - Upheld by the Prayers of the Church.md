@@ -44,5 +44,4 @@ In those early morning hours, there came to my mind the theme from Ralph Rodgers
 On behalf of these brethren who have joined me, we pledge our energy, our love, our prayers, our faith, in humble obedience to a call we did not seek, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_History #Prayer

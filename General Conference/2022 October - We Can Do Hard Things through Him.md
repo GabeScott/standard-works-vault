@@ -87,3 +87,5 @@ I testify that we grow in our discipleship when we exercise faith in the Lord du
 
 [^13]: [[Hebrews 5.8|Hebrews 5:8]].
 
+
+#Adversity #Discipleship #Endurance #Faith

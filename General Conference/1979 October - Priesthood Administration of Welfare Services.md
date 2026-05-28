@@ -77,5 +77,4 @@ May we capture the vision of our individual responsibilities in this great work.
 I bear my witness of the divinity of this, and I do so in the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood #Welfare

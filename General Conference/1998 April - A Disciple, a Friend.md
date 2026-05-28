@@ -79,5 +79,4 @@ To those who wonder how Christ fits into our theology and our personal lives, we
 It is my testimony that He lived, He died, and He lives. He atoned for our sins. It is my prayer that we will each live our lives and make our devotions in such a way as to be clearly recognizable, by member and nonmember alike, as true disciples of the living Christ. But more important, I pray that we may be so recognized by the true and righteous Judge of us all, even the Lord Jesus Christ. What greater reward can any of us receive than to be acknowledged by Him as a true and faithful servant—a disciple, a friend. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Book_Of_Mormon #Commandments #Conversion #Covenants #Discipleship #Jesus_Christ #Ordinances #Prayer #Sacrament

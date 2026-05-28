@@ -61,5 +61,4 @@ President Hinckley was right. “There is no substitute for personal integrity. 
 As servants of the Lord Jesus Christ, we can do it! Our honest effort to improve our integrity allows God to increase our power to do it. Let me repeat that: Our honest effort to improve our integrity allows God to increase our power to do it. I promise you, as you read your scriptures and say your prayers—that’s the magic formula—the Holy Ghost will help you in your noble quest to strengthen and develop your integrity. Of this I testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Commitment #Courage #God_The_Father #Honesty #Jesus_Christ #Joseph_Smith #Priesthood #Scripture_Study #Scriptures #Self-Esteem

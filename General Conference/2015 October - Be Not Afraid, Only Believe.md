@@ -161,3 +161,5 @@ I pray that each one of us—young and old—will find renewed strength, courage
 
 [^15]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
+
+#Courage #Faith #Humility #Patience #Truth

@@ -59,5 +59,4 @@ President Hinckley made that statement nearly 30 years ago at a general conferen
 Technology will surely advance and methods will certainly change, but the personal touch by a dedicated, loving teacher who radiates the Spirit is the key to filling the desire of the writers of this 1899 document, which was to teach the children and others the “principles of the Gospel of Jesus Christ; to make Latter Day Saints of them.” In the name of the greatest teacher of all, even Jesus Christ, amen.
 
 
-
-
+#Children #Media #Parenthood #Teaching

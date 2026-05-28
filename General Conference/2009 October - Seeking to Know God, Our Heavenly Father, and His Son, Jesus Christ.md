@@ -147,3 +147,5 @@ As a special witness of the Only Begotten Son of our loving Heavenly Father, eve
 
 [^26]: [[John 5.39|John 5:39]].
 
+
+#God_The_Father #Holy_Ghost #Jesus_Christ #Prophets #Testimony

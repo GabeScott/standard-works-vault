@@ -65,5 +65,4 @@ To love and care for others is a decision. It is the answer to the Lord’s exho
 I testify to you that we can only be in the service of our God if we are in the service of our fellowmen (see [[Mosiah 2.17|Mosiah 2:17]]). I hope that we all have the wisdom and determination to decide today whom we want to serve. And I pray that we will decide together with the prophet Joshua, “As for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Example #Jesus_Christ #Love #Service

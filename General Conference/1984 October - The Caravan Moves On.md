@@ -157,5 +157,4 @@ Ahead is the celestial city, the eternal Zion of our God, where all who maintain
 In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Faith #Opposition #Plan_Of_Salvation #Truth

@@ -67,3 +67,5 @@ I testify of the holy Resurrection, that unspeakable cornerstone gift in the Ato
 
 [^13]: [[1 Peter 3.8|1 Peter 3:8]].
 
+
+#Adversity #Compassion #Disabilities

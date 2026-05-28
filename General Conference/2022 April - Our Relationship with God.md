@@ -153,3 +153,5 @@ In the name of Jesus Christ, amen.
 
 [^35]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
+
+#Adversity #Faith #God_The_Father #Jesus_Christ #Trust

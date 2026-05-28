@@ -141,3 +141,5 @@ I testify you do belong, in the name of Jesus Christ, amen.
 
 [^19]: See [[John 17.20|John 17:20–23]][[John 17.21|]][[John 17.22|]][[John 17.23|]]. “And now, I would commend you to seek this Jesus of whom the prophets and apostles have written, that the grace of God the Father, and also the Lord Jesus Christ, and the Holy Ghost, which beareth record of them, may be and abide in you forever” ([[Ether 12.41|Ether 12:41]]).
 
+
+#Belonging #Covenants #Diversity #Gathering #Jesus_Christ #Sacrifice #Service #Unity #Zion

@@ -184,5 +184,4 @@ Jesus is as he said, “the life and light of the world” ([[D&C 10.70|D&C 10:7
 I further testify that The Church of Jesus Christ of Latter-day Saints—presently presided over by the Lord’s prophet, President Harold B. Lee—is Christ’s church, established at his direction, endowed with his authority, and charged by him to teach his gospel and administer its saving ordinances, all to the end that men may qualify for the blessings, joy and glory placed within their reach by Jesus Christ, their Lord and their Redeemer. I bear witness to all these things in the holy name of Jesus Christ, our Redeemer. Amen.
 
 
-
-
+#Blessings #Jesus_Christ

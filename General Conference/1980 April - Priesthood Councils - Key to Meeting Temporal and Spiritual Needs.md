@@ -91,5 +91,4 @@ The abstract becomes concrete when we identify welfare services principles with 
 Through priesthood councils we may, in wisdom and order, most effectively use welfare services to administer to the spiritual and temporal needs of the poor, thus experiencing the gospel in action and learning to live the Christian life, to which I testify in the sacred name of our Savior, Jesus Christ, amen.
 
 
-
-
+#Priesthood #Welfare

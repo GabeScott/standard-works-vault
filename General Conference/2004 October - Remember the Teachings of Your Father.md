@@ -67,5 +67,4 @@ The reason Satan has fought and continues to fight against the Book of Mormon is
 “Remember the teachings of your father.” I will ever be grateful for my father. Though he has been gone for nearly 30 years, his teachings continue to live in my heart. I am grateful that for a season of my life I have the privilege of being an especial witness of Christ. Because of the Book of Mormon, its message, and the divine witness I have received, I can leave you my witness that Jesus is the Christ, the Only Begotten Son of God the Father in the flesh. He finished the work of the infinite and eternal Atonement. Christ will come again and rule over us as Lord of lords and King of kings. Of Him and of this work, I leave you my solemn witness, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Faith #Parenthood #Scripture_Study #Testimony

@@ -141,5 +141,4 @@ To which we add our solemn testimony this Easter Sabbath. We too know, by the po
 He is our Savior, our Redeemer, the Prince of Peace, the Prince of Life, the Son of the Everlasting Father, the Hope of all mankind, of which I bear witness in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Death #Jesus_Christ #Resurrection

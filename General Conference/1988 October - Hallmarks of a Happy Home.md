@@ -123,5 +123,4 @@ How welcome He will feel, how joyful will be our lives, when the “Hallmarks of
 That our loving Heavenly Father may bless all of us in our quest for such happy homes is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Home #Love #Parenthood

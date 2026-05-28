@@ -73,5 +73,4 @@ And then Isaiah in that very same twenty-ninth chapter starts out like this: He 
 Now he said in that chapter that the wisdom of their wise men shall perish and the understanding of their prudent men shall be hid. There are so many things that have transpired in this day that the wise men of this world cannot understand. I haven’t time here today to enumerate any more to you, but my heart is full of gratitude to my Heavenly Father and full of testimony by the Holy Spirit of the divinity of this work, and I bear that testimony to you in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Prophecy #Restoration #Testimony

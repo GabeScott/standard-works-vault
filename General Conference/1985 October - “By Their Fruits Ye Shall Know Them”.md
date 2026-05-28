@@ -93,5 +93,4 @@ I humbly acknowledge the responsibility I share with you to make manifest in my 
 In the name of Jesus Christ, amen.
 
 
-
-
+#Criticism #Example #Jesus_Christ

@@ -95,3 +95,5 @@ Brothers and sisters, join with us and begin now to prepare for a spiritual jour
 
 [^18]: In Conference Report, Oct. 1919, 7.
 
+
+#Faith #Pioneers #Prophecy

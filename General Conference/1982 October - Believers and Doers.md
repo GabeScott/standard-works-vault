@@ -167,5 +167,4 @@ Isn’t it time for each of us to learn the lesson of Gethsemane and say with Hi
 In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Plan_Of_Salvation

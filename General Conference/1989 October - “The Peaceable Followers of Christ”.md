@@ -73,5 +73,4 @@ Finally, display one of the great scriptures from the Book of Mormon, [[Moroni 7
 I love the gospel of our Lord and Savior. It has brought into my life the greatest peace of mind, joy, and happiness I could ever hope to find on this earth. I pray that each of us might be willing and able to share this pearl of great price—a pearl of lasting and singular beauty—with all of our Heavenly Father’s children, that we may go forward armed with the gospel of our Lord and Savior. This is His work in which we’re engaged. God lives. Jesus is the Christ, the Savior of the world. This is my solemn witness to you, in His holy name, amen.
 
 
-
-
+#Adversity #Love #Missionary_Work #Peace #Service

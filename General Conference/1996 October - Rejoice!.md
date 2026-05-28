@@ -61,5 +61,4 @@ Some of the most beautiful words in this section, or that any of us could ever h
 Brothers and sisters, let us avoid the Saturday morning cartoons of life, particularly those that would keep us from the temple. Let us rejoice in the promise that is ours through the Atonement of the Savior and through Christlike living adhere to the counsel of the Psalmist: “This is the day which the Lord hath made; we will rejoice and be glad in it” ([[Psalms 118.24|Ps. 118:24]]). That each of us may do this is my prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Gratitude #Jesus_Christ #Joy #Responsibility #Temples

@@ -43,5 +43,4 @@ I invite those yet to be members of the Church to come off the back rows as spec
 Through the years my heart has been changed and softened through service. As the least of the Brethren, I invite all to lengthen and strengthen their service in God’s kingdom. I bear witness to the divinity of this work. I also bear witness that this Church is led by inspired leaders, whom I sustain with all of my soul, in the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Service

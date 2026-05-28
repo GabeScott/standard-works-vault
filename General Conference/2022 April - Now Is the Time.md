@@ -53,3 +53,5 @@ For this I pray in the sacred name of Jesus Christ, amen.
 
 [^4]: [[Jeremiah 30.22|Jeremiah 30:22]].
 
+
+#Adversity #Preparation #Spirituality #Temples

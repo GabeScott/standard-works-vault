@@ -55,3 +55,5 @@ At that moment, standing on the same hill from which the Willie Company first sa
 
 [^2]: As quoted in LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion: The Story of a Unique Western Migration, 1856–1860* (1960), 106–7.
 
+
+#Atonement #Faith #God_The_Father #Gratitude #Hope #Jesus_Christ #Joy #Love #Pioneers #Plan_Of_Salvation #Sin

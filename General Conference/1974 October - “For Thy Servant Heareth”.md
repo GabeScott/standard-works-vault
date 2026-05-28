@@ -61,5 +61,4 @@ We invite all people in the earth to put this witness to the test. Obtain a copy
 The power and the authority of this kingdom on earth rest upon President Spencer W. Kimball. I bear you this, my solemn witness—Joseph Smith was a prophet. President Kimball is a prophet—in the name of Jesus Christ. Amen.
 
 
-
-
+#Restoration #Youth

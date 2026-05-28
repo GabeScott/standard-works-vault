@@ -117,3 +117,5 @@ Let us avoid the despair and sorrow of those who fall into captivity and can no 
 
 [^22]: [[D&C 45.71|Doctrine and Covenants 45:71]].
 
+
+#Freedom #House_Of_Israel #Religious_Freedom #Temptation

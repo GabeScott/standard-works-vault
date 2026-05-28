@@ -75,5 +75,4 @@ As Jesus sent forth the Twelve to go on their missions, He commanded them, sayin
 That you may experience the blessings of missionary service for you and your families is my prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Couple_Missionaries #Example #Family #Fear #Joy #Marriage #Sacrifice #Service #Teaching #Testimony

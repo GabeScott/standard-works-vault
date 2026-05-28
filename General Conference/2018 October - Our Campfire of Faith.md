@@ -147,3 +147,5 @@ May His blessings and enduring joy be ours as we warm our hearts and hopes and c
 
 [^25]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
+
+#Creativity #Faith #Grace #Jesus_Christ #Joy #Love #Ministering #Service

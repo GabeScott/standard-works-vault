@@ -73,5 +73,4 @@ Brethren, in some things there remains a considerable distance between what we a
 That we may understand and fulfill our roles as the governing ones, in lockstep with our living prophet, who is the mouthpiece of God, I plead, in the name of Jesus Christ, the Master, amen.
 
 
-
-
+#Family #Leadership #Priesthood #Teaching

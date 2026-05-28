@@ -115,5 +115,4 @@ I testify that we are the children of God the Eternal Father. Through the atonin
 May we strive to attain that level of spirituality where we sanctify ourselves that our minds become single to God. (See [[D&C 88.68|D&C 88:68]].) As we do so, we will enjoy his promised blessings, including the blessing of eternal life, “the greatest of all the gifts of God.” ([[D&C 14.7|D&C 14:7]].) Of this I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Spirituality

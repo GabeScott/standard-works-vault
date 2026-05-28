@@ -65,5 +65,4 @@ Jesus Christ was filled with unfathomable love as He endured incomprehensible pa
 I know He lives. I know He loves us. I know we can feel His love here and now. I know His voice is one of perfect mildness which penetrates to our very center. I know He smiles and is filled with compassion and love. I know He is full of gentleness, kindness, mercy, and desire to help. I love Him with all my heart. I testify that when we are ready, His pure love instantly moves across time and space, reaches down, and pulls us up from the depths of any tumultuous sea of darkness, sin, sorrow, death, or despair we may find ourselves in and brings us into the light and life and love of eternity. In the name of Jesus Christ, amen.
 
 
-
-
+#Charity #God_The_Father #Jesus_Christ #Love #Sacrament

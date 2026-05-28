@@ -93,5 +93,4 @@ It is my witness that Jesus is the Christ. If the world would follow the princip
 May this peace come to us by living the commandments of the Savior and by following the counsel of his prophet here upon the earth, I humbly pray, in the name of the Lord and Master, Jesus Christ. Amen.
 
 
-
-
+#Jesus_Christ #Plan_Of_Salvation

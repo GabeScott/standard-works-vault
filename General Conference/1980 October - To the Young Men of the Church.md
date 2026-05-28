@@ -77,5 +77,4 @@ How I pray that our Father in Heaven will bless you choice young men to understa
 And may you realize that this is your world, a beautiful world with unlimited opportunities to grow, to learn, and to serve. Will you make it a better world through the preparations you make now and the noble service you render throughout your life as a token of the love you have for your Father in Heaven and his Son, bearing witness of the truth of the gospel through your powerful example and the precepts you teach your fellowmen. “Hope of Israel, rise in might,” and be that army that God can use to further his great purpose, I pray, in the sacred name of Jesus Christ, our Savior, amen.
 
 
-
-
+#Missionary_Work #Worthiness

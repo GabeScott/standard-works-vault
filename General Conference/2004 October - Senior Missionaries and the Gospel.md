@@ -113,3 +113,5 @@ As one among the “special witnesses of the name of Christ in all the world,”
 
 [^21]: [[D&C 107.23|D&C 107:23]].
 
+
+#Couple_Missionaries #Jesus_Christ #Missionary_Work

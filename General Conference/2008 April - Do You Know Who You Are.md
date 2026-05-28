@@ -69,5 +69,4 @@ I testify that knowing who you are and keeping your promises and covenants with 
 May we all be able to know and understand who we really are. May the Spirit we feel tonight bear “witness with our spirit\[s\], that we are the children of God” ([[Romans 8.16|Romans 8:16]]). In the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Divine_Nature #Priesthood

@@ -81,3 +81,5 @@ It is my prayer that each of you will not only state, “I believe in being hone
 
 [^8]: Charlotte Brontë, *Jane Eyre* (2003), 356.
 
+
+#Example #Honesty

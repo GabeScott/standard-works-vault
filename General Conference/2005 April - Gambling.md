@@ -117,5 +117,4 @@ The priesthood which you hold as young men carries with it the privilege of the 
 May heaven’s blessings rest upon you, I humbly pray, as I leave you my testimony of this work and my love for all who are engaged in it, in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Gambling #Morality #Sacrifice #Temptation #Tithing

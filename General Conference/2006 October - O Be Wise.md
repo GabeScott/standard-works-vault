@@ -63,5 +63,4 @@ Today is in many ways like Jacob’s day. My counsel is like unto his: “Repent
 May God bless us with wisdom to love His Son, Jesus Christ, and wisely help accomplish His work. I bear my witness and testimony that He lives. This is His Church. We are about His work. May the peace of the Lord be with us. And may we wisely carry on our responsibilities, I humbly pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Callings #Service #Wisdom

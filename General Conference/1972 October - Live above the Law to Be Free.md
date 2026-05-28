@@ -97,5 +97,4 @@ Again, he has said, “If ye love me, keep my commandments.” ([[John 14.15|Joh
 I pray that we may walk in righteousness because we love the Lord, for surely this *is* the right reason. In the name of Jesus Christ. Amen.
 
 
-
-
+#Commandments #Obedience #Temptation

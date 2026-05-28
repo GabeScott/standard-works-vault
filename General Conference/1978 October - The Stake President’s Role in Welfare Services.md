@@ -67,5 +67,4 @@ Presidents of stakes, you must not be misled into believing that the Church can 
 Stake presidents, you have the mantle of responsibility for teaching welfare service principles to your stakes, which means people helping people. Go home! Make it happen! Bless *all* the lives in your stake. I testify that the welfare services plan of the Church is divinely designed and revealed in these latter days, to preserve the self-respect and dignity of man. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Preparation

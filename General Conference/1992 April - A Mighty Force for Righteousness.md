@@ -51,5 +51,4 @@ I have heard young women around the world repeat in many languages their commitm
 It is through the ordinances and covenants available in the temple that our Father in Heaven has provided the way for us to return to Him rejoicing. To these eternal truths I bear my testimony in the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Faith #Temple_Work

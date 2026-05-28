@@ -54,5 +54,4 @@ In our lives we should desire what occurred after the Lord came to the people of
 The Lord wants the members of His Church to be fully converted to His gospel. This is the only sure way to have spiritual safety now and happiness forever. In the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Spirituality #Worship

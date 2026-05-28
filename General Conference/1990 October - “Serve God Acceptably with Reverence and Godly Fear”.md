@@ -63,5 +63,4 @@ Diana’s message to her father was perfectly clear. She was telling him to turn
 Let us never depreciate the value of our own personal example of being a living witness of the love and respect we have for Him whom we call “Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace” ([[2 Nephi 19.6|2 Ne. 19:6]]), is my humble prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Example #Prophets #Reverence

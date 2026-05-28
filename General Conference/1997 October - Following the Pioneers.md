@@ -107,3 +107,5 @@ The faith, commitment, and courage of these young men is an example to all of us
 
 [^9]: In Conference Report, Apr. 1997, [[1997 April - “True to the Faith”.md|91]]; or *Ensign,* May 1997, 67.
 
+
+#Adversity #Commitment #Faith #Fellowshipping #Honesty #Jesus_Christ #Missionary_Work #Obedience #Pioneers #Sacrifice #Service

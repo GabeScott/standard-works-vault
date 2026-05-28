@@ -79,5 +79,4 @@ These lofty goals still remain as the motivating force of all who are involved i
 I bear my humble witness that this is the gospel of Jesus Christ, that he reigns at the head of this church and speaks through a living prophet, Harold B. Lee. In the name of Jesus Christ. Amen.
 
 
-
-
+#Health #Missionary_Work #Social_Services #Welfare

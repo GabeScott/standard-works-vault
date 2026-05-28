@@ -57,5 +57,4 @@ To those faithful Latter-day Saints whose view of their own importance in God’
 Of these truths I testify, adding my own humble witness of the reality and goodness of God and His Son. In the name of Jesus Christ, amen.
 
 
-
-
+#Humility #Sacrifice

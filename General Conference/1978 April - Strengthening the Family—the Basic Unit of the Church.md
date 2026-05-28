@@ -184,5 +184,4 @@ Salvation could not come to this world without the mediation of Jesus Christ. Ho
 “I know that God lives. I know that Jesus Christ lives,” said John Taylor, my predecessor, “for I have seen him.” I bear this testimony to you brethren in the name of Jesus Christ. Amen.
 
 
-
-
+#Children #Family #Scripture_Study

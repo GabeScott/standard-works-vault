@@ -33,5 +33,4 @@ I bear witness that there is a God in heaven, the framer of heaven and earth and
 May we ever listen to those whose calling it is to watch and warn, to see and save. May we walk in the ways of the Lord and be preserved in paths of peace, in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Peace #Plan_Of_Salvation #Prophets #Sin

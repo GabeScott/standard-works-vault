@@ -109,5 +109,4 @@ We invite all to listen to the message of the restored gospel of Jesus Christ fr
 My witness to you is that this is the Church of Jesus Christ, established in the latter days. In the name of our Lord and Savior, even Jesus Christ, amen.
 
 
-
-
+#Activation #Priesthood #Restoration #Service

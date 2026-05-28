@@ -67,3 +67,5 @@ It is not so much about what we are going through in life but what we are becomi
 
 [^12]: [[Hebrews 12.1|Hebrews 12:1–2]][[Hebrews 12.2|]].
 
+
+#Adversity #Endurance #Faith #Jesus_Christ

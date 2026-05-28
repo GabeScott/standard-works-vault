@@ -21,5 +21,4 @@ May there be peace and harmony in your homes. Husbands, love and treasure your w
 Now, as we separate for a season, God bless you, my beloved associates. I so pray, as I say good-bye, in the name of Jesus Christ, amen.
 
 
-
-
+#Family_Home_Evening #General_Conference #Kindness #Marriage

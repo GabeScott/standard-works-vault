@@ -67,5 +67,4 @@ If you will do these four things, I promise you that your lives will be fruitful
 May the Lord bless you, my dear young sisters; may His blessings attend you at all times and in all conditions. We love you. We pray for you. May heaven smile upon you, I humbly ask in the sacred name of Jesus Christ, amen.
 
 
-
-
+#Faith #Prayer #Scriptures #Tithing

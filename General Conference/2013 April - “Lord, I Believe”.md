@@ -79,3 +79,5 @@ These things I declare to you with the conviction Peter called the “more sure 
 
 [^16]: [[2 Peter 1.19|2 Peter 1:19]].
 
+
+#Faith #Testimony

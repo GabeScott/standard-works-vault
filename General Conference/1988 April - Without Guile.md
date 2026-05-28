@@ -123,5 +123,4 @@ In closing, I add my testimony at this Easter season to the testimonies of my br
 I testify to you that our Heavenly Father lives and that he is the father of our spirits. Jesus is the Christ, the Son of God. He stands at the head of this Church. Joseph Smith was the prophet of God through whom the gospel of Jesus Christ was restored in these, the latter days. President Ezra Taft Benson is the Lord’s prophet today. He directs this Church by revelation. I bear this testimony humbly in the name of our Lord and Savior, Jesus Christ, amen.
 
 
-
-
+#Honesty

@@ -41,5 +41,4 @@ I understand now why Jesus always spoke out so strongly against disputations and
 I testify that God lives, that Jesus is the risen Christ, and that God speaks to us today in the only way he can, through divinely called prophets who know the truth of these things. Please listen! In the name of Jesus Christ, amen.
 
 
-
-
+#Love

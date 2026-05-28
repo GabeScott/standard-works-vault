@@ -27,5 +27,4 @@ I pray as we leave this conference that each one of us who has had a feeling tha
 My appeal to you today, brothers and sisters, is that all of us who desire to be better will go home with that determination and do it the rest of our lives, that we might be an example of good, an influence for good, and a great strength to the Church. That is my prayer for us, in the name of Jesus Christ, amen.
 
 
-
-
+#Example

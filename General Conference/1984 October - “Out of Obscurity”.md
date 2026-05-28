@@ -143,5 +143,4 @@ Besides, whatever the present, do we not rightly sing of our God “We’ve prov
 This is the Lord’s work! It will roll on until all His purposes are fulfilled (see [[Mormon 8.22|Morm. 8:22]]), of which I gladly testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Joseph_Smith #Opposition

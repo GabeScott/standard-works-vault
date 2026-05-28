@@ -59,5 +59,4 @@ Yes, brothers and sisters, Satan lives. He is real. He is cunning. But you may b
 And every man receiveth wages of him whom he listeth to obey. (See [[D&C 29.45|D&C 29:45]].) To this I testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Morality #Satan #Sin

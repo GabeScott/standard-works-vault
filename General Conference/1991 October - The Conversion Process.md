@@ -45,5 +45,4 @@ I know the meaning of repentance and forgiveness as part of the process of conve
 Brothers and sisters, I testify to you that God lives and loves us; that he sent to the world his Son, Jesus Christ, our Redeemer; that Joseph Smith is a prophet of God who was foreordained and raised up for the restoration of all things in this dispensation; that President Ezra Taft Benson is our living prophet, appointed by the Lord to guide us in the true Church, even The Church of Jesus Christ of Latter-day Saints; and that the Book of Mormon and the Bible are testaments of Christ, the Messiah. That we may see, hear, and understand these things and practice them, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Missionary_Work #Repentance #Testimony

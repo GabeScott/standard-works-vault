@@ -73,5 +73,4 @@ I bear testimony that this work will continue to roll forth in strength and powe
 May the Lord bless all the Saints of God throughout the world. May He bless all the house of Israel, all of the dispersed of every tribe, all the righteous, the pure, the holy and good in every nation, is my humble prayer, in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Jesus_Christ

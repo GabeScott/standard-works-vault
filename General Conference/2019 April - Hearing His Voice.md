@@ -113,3 +113,5 @@ Brothers and sisters, in a world with so many competing voices, I testify that o
 
 [^23]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
+
+#Holy_Ghost #Spirituality

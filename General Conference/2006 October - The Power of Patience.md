@@ -69,5 +69,4 @@ This sounds like a great deal of work, but to achieve any worthwhile goal requir
 I testify that Jesus is the Christ and that He stands at the head of this Church, guiding us through a living prophet and blessing our every effort to become more Christlike. And I so testify in the holy name of Jesus Christ, amen.
 
 
-
-
+#Charity #Jesus_Christ #Patience

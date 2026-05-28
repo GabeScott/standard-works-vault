@@ -115,3 +115,5 @@ The elements of the framework for personal revelation are overlapping and mutual
 
 [^31]: See [[2 Nephi 32.5|2 Nephi 32:5]].
 
+
+#Holy_Ghost #Prophets #Revelation #Scriptures

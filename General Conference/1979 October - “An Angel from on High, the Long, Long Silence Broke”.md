@@ -64,5 +64,4 @@ There are 183 days between now and next April 6 in which to read 239 chapters. I
 My brothers and sisters, without reservation I promise you that if each of you will observe this simple program, regardless of how many times you previously may have read the Book of Mormon, there will come into your lives and into your homes an added measure of the Spirit of the Lord, a strengthened resolution to walk in obedience to his commandments, and a stronger testimony of the living reality of the Son of God, which promise I solemnly make in his holy name, even the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon

@@ -137,5 +137,4 @@ We are his people. God expects us to find, teach, and recover those whose string
 God lives. Jesus is the Christ. This is His work, to which I testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Activation #Fellowshipping

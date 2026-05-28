@@ -71,5 +71,4 @@ With this fulfillment of prophecy, all former priesthood powers were restored ag
 Through this priesthood power which has been again restored to prophets of God, we can be sealed as families on earth and have that sealing be effective in heaven. As authorized disciples of Jesus Christ, we can become in turn saviors not only for our own living families, but also for our deceased progenitors. All it requires is the exercise of that simple faith to carry out this promise as the widow did for Elijah. She gave the last food she had as a token of her faith in God. Surely, out of the great abundance God has given us, we can share some of our time and our means to do this spiritual work for the living and for the dead under the direction of modern prophets who hold the same fullness of priesthood power as did Elijah the Tishbite. President Kimball holds the keys of this sealing power to bind on earth and to have it bound in heaven. He is a true prophet of God, of which I testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Priesthood #Temple_Work

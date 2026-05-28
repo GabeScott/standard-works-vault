@@ -109,5 +109,4 @@ When I prepared to leave Toronto following the concluding dedicatory session, I 
 That all of us may travel safely to our eternal home is my humble prayer. In the name of Jesus Christ, amen.
 
 
-
-
+#Faith #Temple_Work #Temples

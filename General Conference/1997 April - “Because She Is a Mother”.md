@@ -81,3 +81,5 @@ In the sacred and holy name of the Lord Jesus Christ, amen.
 
 [^12]: [[Matthew 9.22|Matt. 9:22]].
 
+
+#Atonement #Children #Family #Fatherhood #Holy_Ghost #Jesus_Christ #Motherhood #Pioneers #Prayer

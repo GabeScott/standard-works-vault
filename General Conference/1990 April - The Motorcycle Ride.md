@@ -37,5 +37,4 @@ Like Jacob of old, having received my errand from the Lord, I will magnify my of
 I know that Jesus lives, that he is the Christ, and that he leads this church. I have come to know these things because so many good people have extended to me the invitation through my life to come unto him, and this I have tried to do. I express these feelings in the sacred and holy name of the Lord Jesus Christ, amen.
 
 
-
-
+#Agency #Jesus_Christ #Youth

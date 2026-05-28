@@ -45,5 +45,4 @@ We rejoice that the future belongs to our Master, who created this world, provid
 No other institution has the divine character as does The Church of Jesus Christ of Latter-day Saints. That is because it has true authority, revealed purpose, a divine work, committed disciples, a vision of our stewardship, and impelling principles of eternal progress. To these things I humbly and gratefully testify, in the name of our Lord and Savior, Jesus Christ, amen.
 
 
-
-
+#Authority #Jesus_Christ #Joseph_Smith #Priesthood

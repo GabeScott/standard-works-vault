@@ -17,5 +17,4 @@ This is the way I feel about my calling in this position. The Lord chose to put 
 I know that the Lord lives. I know that President Kimball is a prophet—oh, I know that! I could tell you some stories, but the time is not enough now. I know that I am a child of God, and that this gospel is the plan for the happiness of all the children of God in this world, and this I say in the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ

@@ -85,5 +85,4 @@ God help us, parent and child, to accept the opportunity, while there is time, i
 I know the gospel is true, and I know the gospel includes that which he has taught us of relationship to each other in our homes and families. In the name of Jesus Christ. Amen.
 
 
-
-
+#Example #Family #Parents

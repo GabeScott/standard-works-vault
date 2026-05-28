@@ -102,5 +102,4 @@ My brethren, God bless you as we carry forward our lives toward perfection so th
 I ask the Lord to bless us as we go to our homes, as we train our children, as we teach them the truths of the everlasting gospel; that they too may arrange their lives early so that they may point them toward that perfection which the Lord will recognize in the eternities. I ask these blessings, leaving our blessings upon you, with the testimony that this is the truth, that God lives, and that Jesus is the Christ. You know it and I know it, and our lives should show it in all of our activities. I bear this testimony to you in the name of Jesus Christ. Amen.
 
 
-
-
+#Ordinances #Priesthood #Resurrection

@@ -69,5 +69,4 @@ Now before closing, I should like to express my deep love to Ila, who is my swee
 In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Adversity #Jesus_Christ #Obedience #Plan_Of_Salvation

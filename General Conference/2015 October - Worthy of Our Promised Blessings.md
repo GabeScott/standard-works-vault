@@ -89,3 +89,5 @@ si.lds.org
 
 [^11]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
+
+#Adversity #Children #Covenants #Morality #Plan_Of_Salvation #Repentance #Standards

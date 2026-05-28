@@ -81,5 +81,4 @@ Brethren, we are the sons of God. We have been commissioned of Jesus Christ to b
 In his last tender letter to Moroni, Mormon concluded: “My son, be faithful in Christ” ([[Moroni 9.25|Moro. 9:25]]). I believe that would be the loving counsel of every father or mother to a son: Be faithful in Christ. So may we be, and honor His priesthood. In the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Authority #Faith #Priesthood #Repentance #Service #Spirituality

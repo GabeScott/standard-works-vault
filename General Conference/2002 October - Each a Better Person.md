@@ -41,5 +41,4 @@ If we fail in our homes, we fail in our lives. No man is truly successful who ha
 God bless you, my beloved associates. May a spirit of peace and love attend you wherever you may be. May there be harmony in your lives. As I’ve said to our youth in many areas, be smart, be clean, be true, be grateful, be humble, be prayerful. May you kneel in prayer before the Almighty with thanksgiving unto Him for His bounteous blessings. May you then stand on your feet and go forward as sons and daughters of God to bring to pass His eternal purposes, each in your own way, is my humble prayer as I leave my love and blessing with you, in the sacred name of the Lord Jesus Christ, amen.
 
 
-
-
+#Family #Home #Joy #Kindness

@@ -67,5 +67,4 @@ In the spirit of that legacy from those who have given so much—prophets and ap
 I testify of him, the Redeemer of the world and Master of us all. He is the Only Begotten Son of the living God, who has exalted that son’s name over every other, and has given him principality, power, might, and dominion at his right hand in the heavenly place. We esteem this Messiah to be holy, harmless, undefiled—the bearer of unchangeable priesthood (see [[Hebrews 7.24|Heb. 7:24, 26]][[Hebrews 7.26|]]). He is the anchor to our souls and our high priest of promise. He is our God of good things to come. In time and in eternity—and surely in striving to fulfill this new responsibility which has come to me—I shall forever be grateful for his promise: “I will never leave thee, nor forsake thee” ([[Hebrews 13.5|Heb. 13:5]]). I thank him for that blessing upon us all, in his name, the Lord Jesus Christ, amen.
 
 
-
-
+#Adam_And_Eve #Courage #Restoration #Women

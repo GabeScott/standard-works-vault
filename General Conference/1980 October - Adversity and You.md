@@ -87,5 +87,4 @@ Individually, we should thank God for the examples of those about us who battle 
 Satan wants us to feel unequal to our worldly tasks. If we turn to God, He will take us by the hand and lead us through our darkest hours. To these truths I bear my testimony and leave my special witness in the name of Jesus Christ, our Redeemer, amen.
 
 
-
-
+#Adversity

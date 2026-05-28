@@ -63,5 +63,4 @@ We can help by serving our brothers and sisters in the Church. We can go to thos
 May each of us accept the challenge to seek the kingdom of God first, before and above all else, and by so doing draw closer together as a people, until we are all of one heart and one mind, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Faith #Testimony

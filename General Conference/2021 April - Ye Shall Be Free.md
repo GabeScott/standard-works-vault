@@ -57,5 +57,4 @@ Jesus Christ is the light that we should hold up even during the dark times of o
 I testify of Him who died, was buried, and rose again the third day and ascended into heaven so that you and I receive the blessings of immortality and exaltation. He is “the light, … the life, and the truth” ([[Ether 4.12|Ether 4:12]]). He is the antidote and remedy to the confusion of the world. He is the standard of excellence for exaltation, even Jesus Christ. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Conversion #Gospel #Jesus_Christ #Joseph_Smith #Truth

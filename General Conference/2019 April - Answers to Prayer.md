@@ -113,3 +113,5 @@ I know that God hears our prayers.[^15] I know that as an all-knowing, loving Fa
 
 [^15]: See “[Power of Prayer](https://www.mormon.org/site/god/power-of-prayer),” mormon.org/beliefs/power-of-prayer.
 
+
+#Prayer

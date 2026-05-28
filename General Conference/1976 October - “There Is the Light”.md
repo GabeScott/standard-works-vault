@@ -51,5 +51,4 @@ I bear testimony that I know that God lives. I know that our Father in heaven lo
 I know that Joseph Smith is a prophet of God. I testify that in our day Spencer W. Kimball is the man whose eyes see the light that can and will save us and the world. When all about us are sinking in darkness and fear and despair, when destruction seems close and the raging fury of men and demons ensnares us in seemingly insoluble problems, listen as he calmly says, “There is the light. This is the way.” I testify that he will so guide us safely home if we will but listen and obey. In the name of Jesus Christ. Amen.
 
 
-
-
+#Faith #Leadership

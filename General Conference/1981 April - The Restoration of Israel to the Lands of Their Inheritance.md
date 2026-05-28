@@ -93,5 +93,4 @@ Concluding the record which Moroni would deposit in the Hill Cumorah, which Jose
 These predictions by the Book of Mormon prophets make it perfectly clear that the restoration of the house of Israel to the lands of their inheritance will signal their acceptance of Jesus Christ as their Redeemer, to which I testify, in the name of Jesus Christ, amen.
 
 
-
-
+#House_Of_Israel

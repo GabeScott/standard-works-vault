@@ -23,5 +23,4 @@ As I said before I have enjoyed this meeting tonight and I’m happy that you’
 I leave my blessings with you and pray that you will be given an understanding that priesthood power is the power of God. Never do anything to disappoint yourselves or your loved ones or the Lord, or that would diminish your right to blessings that will come to you through obedience to the priesthood as long as you live. I leave my blessings with you and my testimony, in the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood

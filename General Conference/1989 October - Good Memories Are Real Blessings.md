@@ -69,5 +69,4 @@ Young brethren, we respect you. We have confidence that you will rise to the bes
 Our Heavenly Father lives. He also loves you and even knows you by name. Jesus is the Christ, and this is His church, led by the living prophets who are presiding at this general priesthood session. I share this testimony in the holy name of Jesus Christ, amen.
 
 
-
-
+#Example #Missionary_Work #Obedience #Service

@@ -87,5 +87,4 @@ Let us as women in the Church today make happy, provident living a life-style in
 Then as we attend area and multiregion council meetings and as we serve in this vital welfare work, may we be great teachers of welfare services principles. Led by chosen priesthood leaders, may we all work together, as Joseph of old proclaimed, “to preserve … a posterity in the earth, and to save … lives by a great deliverance” ([[Genesis 45.7|Gen. 45:7]]), I humbly pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Home #Relief_Society

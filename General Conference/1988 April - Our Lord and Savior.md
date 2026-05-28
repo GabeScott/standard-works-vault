@@ -116,5 +116,4 @@ This would mean keeping God’s commandments and setting our lives in order, sea
 It is my hope that we will all come to know and love our Lord through obedience to his Word sufficiently to qualify for inclusion in the blessed circle of those who have heard of and believed his precious words uttered in the Garden of Gethsemane, his last night in mortality: “And this is life eternal,” he said, “that they might know thee the only true God, and Jesus Christ, whom thou hast sent” ([[John 17.3|John 17:3]]), to which I add my witness in his holy name, amen.
 
 
-
-
+#Atonement #Jesus_Christ #Resurrection

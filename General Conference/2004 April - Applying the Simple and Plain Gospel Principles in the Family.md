@@ -59,5 +59,4 @@ It is our duty to continue teaching them to a world that needs them more all the
 I share with you my testimony that these principles are true. I testify that the Atonement of Jesus Christ makes it possible to incorporate them into our lives. I know this because I am striving together with my family to live in accordance with them. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Faith #Family #Home #Prayer #Repentance

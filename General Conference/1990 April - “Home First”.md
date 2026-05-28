@@ -93,5 +93,4 @@ The right kind of treasures are our families and those divine attributes and qua
 May we make the necessary individual and family course corrections which will put the Lord and our families first and fill our homes with these eternal treasures, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Family

@@ -55,5 +55,4 @@ When we use these sacred words, “in the name of Jesus Christ,” they are much
 I testify to you in that holy name, even the name of Jesus Christ, that God is our Father. We are His children. Jesus Christ is His Only Begotten Son in the flesh. He is our beloved Savior and Redeemer. In the name of Jesus Christ, amen.
 
 
-
-
+#Children #Communication #God_The_Father #Holy_Ghost #Jesus_Christ #Prayer

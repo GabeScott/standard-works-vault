@@ -75,3 +75,5 @@ I testify of Him, that He has overcome the world, that He will never forget or a
 
 [^9]: See [[Philippians 4.7|Philippians 4:7]].
 
+
+#Adversity #Faith #Hope #Jesus_Christ

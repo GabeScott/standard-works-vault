@@ -138,5 +138,4 @@ You sang these words, just a few minutes ago:
 My little brothers and sisters, my little children, I know that God lives. I know something of how it feels to have his hand put upon you, to call you to his service. I bear witness and share with you the witness that has been given me, that special witness. He is the Christ! He loves us! I pray for you, our little ones, and plead with him to behold our little ones and to bless them, in the name of Jesus Christ. Amen.
 
 
-
-
+#Children #Death #Plan_Of_Salvation

@@ -81,5 +81,4 @@ I know we each must develop and carry out our own personal game plan to serve wi
 I add my testimony to that of the Prophet Joseph Smith: “And now, after the many testimonies which have been given of him, this is the testimony, last of all, which we give of him: That he lives!” ([[D&C 76.22|D&C 76:22]]). In the sacred name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

@@ -79,3 +79,5 @@ I say this in the name of our Savior Jesus Christ, amen.
 
 [^3]: Tim B. Heaton, “Vital Statistics,” *Encyclopedia of Mormonism* (New York: Macmillan, 1992), 4:1532.
 
+
+#Faith #Family #Holy_Ghost #Jesus_Christ

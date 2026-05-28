@@ -39,5 +39,4 @@ But more important is the humble nature of the people and their dependence on th
 That the Lord will continue to bless our people with joy and peace of mind as they obey His commandments and the counsels of our leaders in the midst of adversity is my humble prayer in Jesus’ name, amen.
 
 
-
-
+#Church_Growth #Faith #Missionary_Work

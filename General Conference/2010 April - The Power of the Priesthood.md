@@ -197,3 +197,5 @@ I bear witness of the power of the priesthood given to the Church to protect us 
 
 [^30]: [[Moses 1.39|Moses 1:39]].
 
+
+#Family #Fatherhood #Priesthood

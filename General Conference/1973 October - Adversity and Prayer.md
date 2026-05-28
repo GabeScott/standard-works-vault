@@ -61,5 +61,4 @@ Just for a moment, think with me. Forget the trials you now have. Remember back 
 I testify he is ready and waiting to help us. For our own good we must take the first step and this step is prayer. I know he lives, brothers and sisters, I know Jesus is the Christ. I know he established his church here for our blessing. I know his mouthpiece is before us this morning, in the name of Jesus Christ. Amen.
 
 
-
-
+#Adversity #Prayer

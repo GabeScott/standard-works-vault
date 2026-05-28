@@ -113,3 +113,5 @@ To our sisters all over the world, I bear testimony of the truthfulness of the g
 
 [^5]: From the minutes of the original organization of the Relief Society.
 
+
+#Church_Callings #Faith #Holy_Ghost #Joy #Prophets #Relief_Society #Scripture_Study #Talents

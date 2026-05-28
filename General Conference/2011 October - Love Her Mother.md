@@ -75,3 +75,5 @@ So how do you raise a girl? Love her mother. Lead your family to the temple, be 
 
 [^13]: In Harold B. Lee, “Be Loyal to the Royal within You,” in *Speeches of the Year: BYU Devotional and Ten-Stake Fireside Addresses 1973* (1974), 100.
 
+
+#Example #Family #Fatherhood #Morality #Motherhood #Priesthood #Standards #Young_Women

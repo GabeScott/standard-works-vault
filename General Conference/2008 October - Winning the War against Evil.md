@@ -133,3 +133,5 @@ My dear brethren of the Aaronic Priesthood, these are your days! Do not squander
 
 [^34]: [[Exodus 14.13|Exodus 14:13]].
 
+
+#Dedication #Holy_Ghost #Last_Days #Obedience #Prayer

@@ -69,5 +69,4 @@ I am glad the time and conditions were right for President Kimball to visit his 
 It is my hope and prayer that we will have the courage in our lives, homes, and quorums to lift, lead, and love in the way I saw demonstrated by a prophet in prison. This I humbly ask in the name of Jesus Christ, amen.
 
 
-
-
+#Joseph_Smith #Kindness #Service

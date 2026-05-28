@@ -95,3 +95,5 @@ I bear solemn testimony that we are children of a loving Heavenly Father. He cho
 
 [^4]: “I Love to See the Temple,” *Children’s Songbook*, 95.
 
+
+#Family #Ordinances #Temple_Work #Temples #Worthiness

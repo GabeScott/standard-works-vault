@@ -33,3 +33,5 @@ My brothers and sisters, I leave with you my love and my blessing as I close, an
 
 [^1]: [[Moses 1.39|Moses 1:39]].
 
+
+#Jesus_Christ #Plan_Of_Salvation

@@ -129,5 +129,4 @@ Let us listen to the word of the Lord in more recent times:
 I bear witness that God does live, that he stands ready to hear and answer our prayers through Jesus Christ, our Savior. We can glorify his name and help to build his kingdom which is established upon the earth only as we live his teachings and keep his commandments. May we do this, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Prayer

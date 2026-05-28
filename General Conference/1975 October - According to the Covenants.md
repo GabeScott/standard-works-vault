@@ -125,5 +125,4 @@ The Lord has said it is, and I repeat, “the duty of the president over the off
 God help us to live the covenants ourselves and to teach those the Lord has put under our charge and commanded us to teach, I pray, in the name of Jesus Christ, our Redeemer. Amen.
 
 
-
-
+#Conversion #Covenants #Priesthood

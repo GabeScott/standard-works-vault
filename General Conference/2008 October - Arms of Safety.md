@@ -63,5 +63,4 @@ I have experienced and have a witness of a truth that President Packer taught: â
 I love my Heavenly Father and His Son, Jesus Christ. I place my faith, my love, my loyalty, and my devotion in Them. I testify that God is our Heavenly Father and that we are His children. I bear witness that the Atonement is real and has power in our lives. I testify that the restored gospel is true. These truths are found in the holy scriptures, especially in the Book of Mormon. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Church_Meetings #Sacrament #Safety

@@ -87,3 +87,5 @@ We too may wonder, “Is Heavenly Father really there?” only to rejoice—as m
 
 [^11]: “A Child’s Prayer,” *Children’s Songbook,* 12.
 
+
+#Activation #Conversion #Faith #Fellowshipping #Testimony

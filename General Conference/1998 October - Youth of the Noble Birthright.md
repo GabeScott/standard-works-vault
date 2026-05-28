@@ -87,5 +87,4 @@ I read an article the other day which stated that if an employer did not hire yo
 My final entry in the binder I presented to my grandchildren was my personal testimony as to the truthfulness of the gospel of our Lord and Savior. I leave my testimony with each of you great young people that I know that God lives and that He directs His work among His children here on earth. I know that He sent His Son to the world to be an atoning sacrifice for all mankind, and those who embrace His gospel and follow Him shall enjoy eternal life, the greatest gift God has given to His children. I know that He directed the restoration of the gospel again here upon the earth through the ministry of the Prophet Joseph Smith. I know that the only lasting joy and happiness you will ever find during your mortal experience will come by following the Savior, obeying His law, and keeping His commandments. This is my witness to you, you great young people, in the name of our Lord and Savior, even Jesus Christ, amen.
 
 
-
-
+#Accountability #Education #Family #Hope #Joy #Laws #Love #Self-Esteem #Self-Reliance #Service #Youth

@@ -83,5 +83,4 @@ The emphasis is on the words *teach* and *baptize.* Following this scriptural ad
 The nations of the world will be blessed by the message of the gospel they carry, and every person who has an honest desire for the truth will learn to know the true and living God and that Jesus is the Christ, the Redeemer of all mankind by his atoning sacrifice, if he will give heed to the message. May the faith of each of us be strengthened by conscientious effort, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Faith

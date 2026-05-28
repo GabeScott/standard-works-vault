@@ -39,5 +39,4 @@ From the Prophet Joseph Smith to President Howard W. Hunter, we are receiving up
 Jesus Christ, the Son of God, made the miracle of forgiveness and redemption possible. This is truly the Church of Jesus Christ; it proclaims a gospel of joy, hope, courage, truth, love, and miracles. This I bear humble witness of in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Conversion #Holy_Ghost #Obedience #Spirituality

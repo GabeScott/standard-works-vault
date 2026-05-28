@@ -59,5 +59,4 @@ We appeal:
 It is my witness that you and all of us can change, and it can be now. It may not be easy, but our afflictions can be “swallowed up in the joy of Christ” ([[Alma 31.38|Alma 31:38]]). I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Preparation #Priorities #Repentance #Time_Management

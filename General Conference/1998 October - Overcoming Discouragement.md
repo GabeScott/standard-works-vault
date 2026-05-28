@@ -49,5 +49,4 @@ In the Doctrine and Covenants we read this: “If thou art sorrowful, call on th
 I pray all of us may appreciate the challenges we have and try to improve our attitudes, even though our problems remain the same. Ask help from friends and family. I also testify that Jesus Christ lives and that He will help us through our discouragements if we will humbly ask for His love. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Attitude #Trust

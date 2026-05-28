@@ -139,3 +139,5 @@ I witness that Jesus Christ is the Savior of the world. He suffered and died for
 
 [^33]: See [[Romans 14.11|Romans 14:11]].
 
+
+#Discipleship #Faith #Jesus_Christ

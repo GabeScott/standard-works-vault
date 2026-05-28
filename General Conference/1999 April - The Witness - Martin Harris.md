@@ -99,5 +99,4 @@ The Lord’s invitation is warm and loving: “Come back and feast at the table 
 6. Tuckett, Madge Harris, and Belle Harris Wilson. *The Martin Harris Story.* 1983.
 
 
-
-
+#Book_Of_Mormon #Church_Leaders #God_The_Father #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Testimony

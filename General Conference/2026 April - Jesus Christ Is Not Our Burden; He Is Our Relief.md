@@ -109,3 +109,5 @@ Jesus Christ is not the weight; He is our relief;[^18] He is our strength;[^19] 
 
 [^20]: See [[John 14.6|John 14:6]].
 
+
+#Adversity #Discipleship #Jesus_Christ #Youth

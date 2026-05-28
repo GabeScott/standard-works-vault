@@ -71,5 +71,4 @@ We follow and obey the code of conduct which makes it certain.
 This dual obedience, faithfully kept, is our surest way of bearing testimony that we honor the Lord God, keep his commandments, and sustain President Kimball as his prophet. These are my desires as I bear witness of the truth that the Lord Jesus Christ is our Savior. In his holy name, amen.
 
 
-
-
+#Commandments #Obedience

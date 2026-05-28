@@ -139,5 +139,4 @@ And I bear witness again and again and again of the divinity of that personage, 
 I bear testimony to this, the divinity of this cause, the truth of this church, the divinity of its ordinances, the importance of the celestial life in everyone’s life, and I bear this testimony in the name of Jesus Christ our Lord. Amen.
 
 
-
-
+#Abuse #Family #Family_History #Jesus_Christ #Self-Reliance #Women

@@ -69,5 +69,4 @@ To discipline ourselves through fasting brings us in tune with God, and fast day
 May the Lord bless us as we live his commandments and share with our brothers and sisters, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Fasting

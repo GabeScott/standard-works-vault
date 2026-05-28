@@ -71,5 +71,4 @@ The Book of Mormon prophet Amulek, testifying that the words of Christ will brin
 Let us be no more tossed to and fro by every worldly wind and doctrine of man (see [[Ephesians 4.14|Ephesians 4:14]]). We declare to the world that the heavens are open and the truth of God’s eternal plan has again been made known to mankind. We live in the dispensation of the fulness of times. We live in a day when we have the witness through the scriptures of the great plan the Lord has given to His children from the beginning of time down to this present and last dispensation. The evidence is well documented; we are not left alone to wander through mortality without knowing of the master plan which the Lord has designed for His children. He has bound Himself by solemn covenant to give us the blessings of heaven according to our obedience to His law. Oh, remember, remember that these things are true, for the Lord God has revealed these eternal truths unto us. In the name of Jesus Christ, amen.
 
 
-
-
+#Jesus_Christ #Missionary_Work #Plan_Of_Salvation

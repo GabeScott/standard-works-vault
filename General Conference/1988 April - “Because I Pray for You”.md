@@ -33,5 +33,4 @@ Jesus said, “Except ye be converted, and become as little children, ye shall n
 May the Lord bless us and help us all to serve Him with simple, childlike faith, simple forgiveness and repentance, and especially with simple prayer, that we may enjoy the strength, power, and beauty that come from the plain and simple things of the gospel, I pray in the name of Jesus Christ, amen.
 
 
-
-
+#Prayer #Priesthood

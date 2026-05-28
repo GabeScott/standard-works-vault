@@ -97,5 +97,4 @@ Brethren, let us learn our duty. Let us, in the performance of our duty, follow 
 We will discover He is more than the Babe in Bethlehem, more than the carpenter’s son, more than the greatest teacher ever to live. We will come to know Him as the Son of God, our Savior and our Redeemer. When to Him came the call of duty, He answered, “Father, thy will be done, and the glory be thine forever.” ([[Moses 4.2|Moses 4:2]].) May we do likewise I pray, in the name of Jesus Christ, amen.
 
 
-
-
+#Duty

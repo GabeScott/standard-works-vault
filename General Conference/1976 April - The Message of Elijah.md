@@ -127,5 +127,4 @@ If we believe in the restoration of the gospel at all, we must believe also in t
 But each of us must do our part for our own deceased relatives. It is so essential that it must be given a high priority in our daily lives. And that we may give it this great priority is my humble prayer in the sacred name of Jesus Christ. Amen.
 
 
-
-
+#Family_History #Temple_Work

@@ -163,5 +163,4 @@ Spirituality, brothers and sisters, will come to all who will follow this patter
 Such is the pattern, my beloved brothers and sisters, for maintaining spirituality. May we all succeed in attaining it and pleasing the Lord and find him, I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Spirituality

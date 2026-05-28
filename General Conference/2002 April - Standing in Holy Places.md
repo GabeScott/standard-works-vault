@@ -63,5 +63,4 @@ I close with a hymn echoing my prayer for you and for me:
 In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Reverence #Spirituality

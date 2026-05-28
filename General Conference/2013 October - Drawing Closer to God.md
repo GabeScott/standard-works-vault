@@ -63,5 +63,4 @@ May we all feel as confident as Enos, as reflected in the last verse of his shor
 Because of the multiplicity of experiences and the power with which the Spirit has witnessed to me, I testify with absolute surety that God lives. I feel His love. It is the sweetest feeling. May we do what is needed to align our will with His and truly love Him. In the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Faith #Love

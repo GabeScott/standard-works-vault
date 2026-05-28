@@ -203,3 +203,5 @@ This expression describes Bethesda’s blessing. Of this divine truth I testify.
 
 [^18]: *Ye Are the Light of the World* (1974), 292; emphasis added.
 
+
+#Blessings #Jesus_Christ #Service

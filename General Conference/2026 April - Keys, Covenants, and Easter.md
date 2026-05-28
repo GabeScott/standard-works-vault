@@ -95,7 +95,7 @@ As an Apostle, I bear my sure and certain witness of Jesus Christ, the Savior of
 
 [^10]: [[D&C 2.1|Doctrine and Covenants 2:1–3]][[D&C 2.2|]][[D&C 2.3|]]; see also [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]]; [[D&C 27.9|Doctrine and Covenants 27:9]]; [[D&C 110.13|110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-[^11]: The ministry of Elijah is covered in the Bible, beginning in [[1 Kings 17.1|1 Kings 17:1]] and continuing through part of [[2 Kings 2.1|2 Kings 2]][[2 Kings 2.2|]][[2 Kings 2.3|]][[2 Kings 2.4|]][[2 Kings 2.5|]][[2 Kings 2.6|]][[2 Kings 2.7|]][[2 Kings 2.8|]][[2 Kings 2.9|]][[2 Kings 2.10|]][[2 Kings 2.11|]][[2 Kings 2.12|]][[2 Kings 2.13|]][[2 Kings 2.14|]][[2 Kings 2.15|]][[2 Kings 2.16|]][[2 Kings 2.17|]][[2 Kings 2.18|]][[2 Kings 2.19|]][[2 Kings 2.20|]][[2 Kings 2.21|]][[2 Kings 2.22|]][[2 Kings 2.23|]][[2 Kings 2.24|]][[2 Kings 2.25|]]. President Henry B. Eyring described the power Elijah held as “the greatest power God gives to His children” (“[[2005 April - Hearts Bound Together.md|Hearts Bound Together]],” *Liahona*, May 2005, 78). See also David A. Bednar, “[[2011 October - The Hearts of the Children Shall Turn.md|The Hearts of the Children Shall Turn]],” *Liahona*, Nov. 2011, 24–25.
+[^11]: The ministry of Elijah is covered in the Bible, beginning in [[1 Kings 17.1|1 Kings 17:1]] and continuing through part of [[2 Kings 2.1|2 Kings 2]]. President Henry B. Eyring described the power Elijah held as “the greatest power God gives to His children” (“[[2005 April - Hearts Bound Together.md|Hearts Bound Together]],” *Liahona*, May 2005, 78). See also David A. Bednar, “[[2011 October - The Hearts of the Children Shall Turn.md|The Hearts of the Children Shall Turn]],” *Liahona*, Nov. 2011, 24–25.
 
 [^12]: This is especially true for those of the Islamic faith.
 
@@ -123,3 +123,5 @@ As an Apostle, I bear my sure and certain witness of Jesus Christ, the Savior of
 
 [^24]: The Jewish delegation was led by former US Senator Joseph Lieberman; former New York Attorney General Robert Abrams; Rabbi Joseph Potasnik, executive vice president of the New York Board of Rabbis; Rabbi Meir Soloveichik of Congregation Shearith Israel in New York City; and other exceptional leaders (see “[Latter-day Saint and Jewish Delegation Gathers at Historic Jerusalem Site](https://newsroom.churchofjesuschrist.org/article/mormon-jewish-delegation-jerusalem),” Oct. 28, 2016, newsroom.ChurchofJesusChrist.org).
 
+
+#Covenants #Easter #Ordinances #Priesthood_Keys #Restoration #Temples

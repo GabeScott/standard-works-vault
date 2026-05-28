@@ -93,3 +93,5 @@ All of this I know to be true and bear my witness in the name of Jesus Christ, a
 
 [^19]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]]” *Ensign* or *Liahona,* Nov. 2017, 63.
 
+
+#Book_Of_Mormon #Covenants #Faith #Patience #Testimony #Truth

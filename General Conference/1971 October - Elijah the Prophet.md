@@ -83,5 +83,4 @@ Let me go back to the statements made by the speaker regarding modern youth tren
 May the spirit of Elijah burn deep into our hearts and turn us toward the temples, I humbly pray, in the name of Jesus Christ. Amen.
 
 
-
-
+#Family_History #Temple_Work

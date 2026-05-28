@@ -112,3 +112,5 @@ Let us be “true to the faith that our parents have cherished, true to truth fo
 
 [^12]: *Hymns*, no. 254.
 
+
+#Endurance #Faith #Family #Missionary_Service #Parents #Sacrifice #Testimony

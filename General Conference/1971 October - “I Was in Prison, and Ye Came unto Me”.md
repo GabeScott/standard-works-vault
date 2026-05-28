@@ -47,5 +47,4 @@ There are many who find themselves in circumstances similar to those of Jim and 
 This freedom can only be found by accepting the divine plan and keeping the commandments of him who gave his life for each of us that we might find eternal life—even Jesus Christ. For did he not say: “And ye shall know the truth, and the truth shall make you free”? ([[John 8.32|John 8:32]].) In the name of Jesus Christ. Amen.
 
 
-
-
+#Freedom #Repentance #Social_Services

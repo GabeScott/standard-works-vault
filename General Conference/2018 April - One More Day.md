@@ -65,5 +65,4 @@ May we fill our days with that impulse and the strength that personal sacrifice 
 It is my prayer that we follow Him, that we believe Him, that we love Him, and that we feel the love demonstrated by His sacrifice every time we have the opportunity to live one more day. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Jesus_Christ #Plan_Of_Salvation #Sacrifice

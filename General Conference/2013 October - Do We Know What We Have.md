@@ -95,3 +95,5 @@ Of these things I testify in the name of Jesus Christ, amen.
 
 [^13]: D. Todd Christofferson, “The Power of Covenants,” *Ensign* or *Liahona,* May 2009, 22.
 
+
+#Covenants #Ordinances #Priesthood #Temples

@@ -67,5 +67,4 @@ With these properly functioning and operating resources, the bishops of the Chur
 May we be blessed as the psalmist said: “Blessed is he that considereth the poor.” ([[Psalms 41.1|Ps. 41:1]].) In the name of Jesus Christ, amen.
 
 
-
-
+#Social_Services #Welfare

@@ -131,3 +131,5 @@ The prophet of the Lord here before you loves you, as do all these, my Brethren.
 
 [^35]: [[Alma 33.23|Alma 33:23]].
 
+
+#Charity #Gratitude #Love

@@ -122,3 +122,5 @@ The Savior is a God we can trust. He is the Christ, the Anointed One, the Messia
 
 [^16]: [[Colossians 1.20|Colossians 1:20]]; see also [[2 Corinthians 5.18|2 Corinthians 5:18–20]][[2 Corinthians 5.19|]][[2 Corinthians 5.20|]].
 
+
+#Atonement #Faith #Humility #Jesus_Christ

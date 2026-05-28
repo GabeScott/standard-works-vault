@@ -57,5 +57,4 @@ So a moment of prayer is a very, very sacred moment. He is not one to say, “No
 That we all may pray as Jesus has taught us to pray is my hope and my prayer in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Jesus_Christ #Prayer

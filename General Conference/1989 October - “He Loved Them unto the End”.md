@@ -59,5 +59,4 @@ I testify that having loved us who are in the world, Christ loves us to the end.
 Of that divine sustaining vote for all of us I testify in this, his true and living Church, in the name of Jesus Christ, amen.
 
 
-
-
+#Charity #Endurance #Jesus_Christ #Leadership #Love #Sacrifice

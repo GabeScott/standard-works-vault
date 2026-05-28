@@ -85,3 +85,5 @@ May our individual covenants that bind us to our loving Heavenly Father guide us
 
 [^10]: Tullidge, *Women of Mormondom,* 288.
 
+
+#Covenants #Home #Kindness #Love #Obedience

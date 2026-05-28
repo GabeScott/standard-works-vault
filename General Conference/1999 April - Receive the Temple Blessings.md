@@ -47,5 +47,4 @@ Come to the temple now. It will greatly bless your life and provide essential or
 I testify that with unimaginable suffering and agony at an incalculable price, the Savior earned His right to be our Intermediary, our Redeemer, our Final Judge. Through faith in Him and receipt of the requisite ordinances and covenants, you will earn your right to the blessings of eternal marriage, made possible through His infinite Atonement. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Dating #God_The_Father #Jesus_Christ #Marriage #Ordinances #Single_Members #Temple_Work #Temples #Worthiness

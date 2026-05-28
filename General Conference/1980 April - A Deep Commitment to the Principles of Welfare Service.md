@@ -21,5 +21,4 @@ Nearly every family in the Church is feeling the effects of worldwide inflation 
 Brothers and sisters, I know the gospel is true. It contains the answers to all of life’s questions and to all of life’s problems. May the Lord bless us all in this great welfare program, I humbly pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Welfare

@@ -115,3 +115,5 @@ Knowing that the organization of Relief Society was divinely created, President 
 
 [^22]: Joseph F. Smith, in *Daughters in My Kingdom,* 66.
 
+
+#Discipleship #Priesthood #Relief_Society #Temples #Visiting_Teaching

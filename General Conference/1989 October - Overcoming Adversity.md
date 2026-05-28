@@ -45,5 +45,4 @@ Later, Joseph, with more understanding of the will and purposes of his Savior, a
 Basically, we limit our vision to the events that happen in this life with the greatest emphasis placed on the present. Only when we fix our gaze on the heavenly things do we begin to understand the eternities. Only with the help of Christ can we fully overcome tragedy. It is necessary to develop our faith in Him as the Redeemer of the world. He taught us: “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.” ([[John 16.33|John 16:33]].) It is my prayer that when we have afflictions we will follow the pattern that He taught during His bitter experience in Gethsemane. He said: “If thou be willing, remove this cup from me: nevertheless not my will, but thine, be done.” ([[Luke 22.42|Luke 22:42]].) This I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Faith #Humility #Obedience

@@ -69,5 +69,4 @@ The only hope I can find in this troubled world is to have the standards by whic
 May each of us be prepared and have the courage to share this greatest of all gifts the Lord has given to His children. I testify of the truthfulness of His message in the name of Jesus Christ, our Lord and Savior, amen.
 
 
-
-
+#Book_Of_Mormon #Missionary_Work #Plan_Of_Salvation

@@ -65,5 +65,4 @@ My dear brothers and sisters, we should not and must not hide our light. Our Sav
 I testify that Jesus Christ is the light that we must reflect, in the name of Jesus Christ, amen.
 
 
-
-
+#Family_History #General_Conference #Jesus_Christ #Sabbath #Teaching #Temple_Work

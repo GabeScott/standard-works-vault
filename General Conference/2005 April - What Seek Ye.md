@@ -97,5 +97,4 @@ So we declare to the world that the priesthood has been restored, God’s govern
 Just as a building is constructed one brick at a time, the Savior’s true Church is built one conversion, one testimony, one baptism at a time. May we all seek, find, and build His Church wherever we may be is my humble prayer, in the name of Him whom we seek, even Jesus Christ, amen.
 
 
-
-
+#Conversion #Missionary_Work #Restoration

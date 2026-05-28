@@ -77,5 +77,4 @@ It is the responsibility and joy of all men and women everywhere to “seek this
 As one called and ordained to bear witness of the name of Jesus Christ to all the world, I testify at this Easter season that he lives. He has a glorified, immortal body of flesh and bones. He is the Only Begotten Son of the Father in the flesh. He is the Savior, the Light and Life of the world. Following his crucifixion and death, he appeared as a resurrected being to Mary, to Peter, to Paul, and to many others. He showed himself to the Nephites. He has shown himself to Joseph Smith, the boy prophet, and to many others in our dispensation. This is his church; he leads it today through his prophet, Ezra Taft Benson. Of this I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Jesus_Christ #Resurrection

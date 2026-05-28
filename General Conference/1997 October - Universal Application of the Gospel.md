@@ -53,5 +53,4 @@ I bear solemn witness to you that the gospel brings peace in a troubled world. A
 I also bear witness that Jesus Christ is the author and proponent of the gospel. He stands at the head of this Church, which is for everyone; none are excluded from it. President Gordon B. Hinckley stands today as the Lord’s prophet to lead us. There is no doubt in my mind about the truthfulness of these things. In the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Jesus_Christ #Joy #Peace

@@ -157,3 +157,5 @@ This is my witness. Jesus is the Christ. This is His holy work. He will come aga
 
 [^28]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95.
 
+
+#Faith #Humanitarian_Aid #Tithing

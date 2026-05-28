@@ -95,5 +95,4 @@ That angel which John saw “fly in the midst of heaven, having the everlasting 
 His kingdom is already here on earth and is growing rapidly to prepare for his coming. Yes, he shall surely come and bring peace to the earth, but only as we are willing to follow his teachings. This is his work, and his kingdom, which is the only way to world peace and eternal peace. I so testify in the name of Jesus Christ. Amen.
 
 
-
-
+#Peace #Service

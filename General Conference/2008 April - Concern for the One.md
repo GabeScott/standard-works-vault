@@ -119,3 +119,5 @@ To all who inhabit this beautiful earth, I raise my voice and bear solemn witnes
 
 [^13]: [[John 7.17|John 7:17]].
 
+
+#Individual_Worth #Kindness #Repentance

@@ -85,5 +85,4 @@ I am grateful for this example and for this principle, especially when I anticip
 In time to come, each of us will be judged by the Lord God of Israel, who commanded us to honor our fathers and our mothers. I pray that each of us will conduct ourselves toward our parents in such a way that we will be guiltless before God at that day. In the name of Jesus Christ, amen.
 
 
-
-
+#Elderly #Example #Family

@@ -87,5 +87,4 @@ But Christ will lift us up and help us to become as he is as we do as he did; as
 God bless us to look up and to look around and to kneel down, and to be worthy, and to become the manner of person he is, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Charity #Compassion #Love

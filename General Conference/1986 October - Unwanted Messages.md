@@ -69,5 +69,4 @@ One single unwanted message may be a call to change our lives; it may lead to th
 I wish to testify that the prophetic messages of this conference will lead any who will listen—and follow the counsel given—to the promise of the Savior, which is peace in this life and eternal life in the world hereafter. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Commandments #Conscience #Forgiveness #Honesty #Justice #Parenthood

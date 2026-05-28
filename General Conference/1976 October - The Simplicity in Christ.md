@@ -73,5 +73,4 @@ I bear witness to that end—that it is the word of God. This is His church—it
 God bless you all, I pray, and leave you my blessing and witness in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Testimony

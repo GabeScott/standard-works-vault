@@ -127,5 +127,4 @@ We are surrounded by challenges on all sides (see [[2 Corinthians 4.8|2 Corinthi
 I testify of Jesus Christ. I testify that He shall come, as He has promised. And I pray that we will be prepared to meet Him, in the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Preparation #Repentance

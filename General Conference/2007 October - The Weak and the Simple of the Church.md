@@ -107,5 +107,4 @@ And so the Church moves on. It is carried upon the shoulders of worthy members l
 I bear witness that the gospel is true and that the worth of souls is great in the sight of God—every soul—and that we are blessed to be members of the Church. I have the witness that would qualify me for the calling I have. I’ve had it since I met the First Presidency those many years ago. I bear it to you in the name of Jesus Christ, amen.
 
 
-
-
+#Individual_Worth #Leadership #Service

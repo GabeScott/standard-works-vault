@@ -141,5 +141,4 @@ I know that Joseph Smith opened this last dispensation. It is thrilling to me to
 I shall not know these things better in the not-too-distant future when I shall stand before the Lord to give an account of my work in mortality. As I bear you this testimony I pray that we shall all *fully* live the gospel and thereby qualify as true disciples of Christ, to obtain the promised peace in this world and eternal life in the world to come. This I do in the name of Jesus Christ. Amen.
 
 
-
-
+#Discipleship #Priesthood

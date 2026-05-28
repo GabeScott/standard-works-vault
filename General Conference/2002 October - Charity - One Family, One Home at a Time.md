@@ -61,3 +61,5 @@ I leave my witness that the greatest act of charity in time and all eternity was
 
 [^8]: [[Alma 37.6|Alma 37:6]].
 
+
+#Charity #Family #Home #Love #Service #Women

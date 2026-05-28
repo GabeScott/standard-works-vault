@@ -123,5 +123,4 @@ May God bless us all with the Spirit and the desire to bring souls unto Him. It 
 God bless, my brothers, that we may respond to this great need. It *is* the Lord’s will that we do more in the great work of missionary proselyting. This I know and bear humble witness of, in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work

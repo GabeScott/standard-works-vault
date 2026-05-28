@@ -77,3 +77,5 @@ I testify that we are led today by a living prophet, President Dallin H. Oaks. H
 
 [^9]: [[Mosiah 8.17|Mosiah 8:17]].
 
+
+#Atonement_Of_Jesus_Christ #Jesus_Christ #Prophets #Traditions

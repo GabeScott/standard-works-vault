@@ -35,5 +35,4 @@ If by any chance there are doubts in any hearts within the sound of my voice, or
 As each challenge comes to us in life, and as our timetable varies a little from what we thought it was going to be, may we be wise enough to find ourselves on the Lord’s side, getting on and going up with the prophet, I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Obedience #Prophets #Women

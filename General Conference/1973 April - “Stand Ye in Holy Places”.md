@@ -83,5 +83,4 @@ And so as it is my privilege to do, I give you faithful members of the Church ev
 May the Lord help us so to understand and do, and fill our stations, and not be found wanting in the day of judgment that we have not done all we know how to do to advance his work in righteousness, I humbly pray in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Compassion #Forgiveness #Repentance

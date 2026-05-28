@@ -41,5 +41,4 @@ The Spirit of God has been distilled and has rested mightily upon the countries 
 I testify that it is by these same keys and these same powers that this marvelous work goes forward throughout all of the earth, in the sacred name of Jesus Christ. Amen.
 
 
-
-
+#Church_Growth #Temples

@@ -31,5 +31,4 @@ To his words I add my own words of testimony as one who has known and worked clo
 Now, my beloved brethren and sisters, as we return to our homes, may we carry with us a remembrance of that which we have heard. May God bless you, may His Holy Spirit abide with you, in your homes and in your hearts, and may you have reason to kneel before Him with thanksgiving in your prayers as those blessed with the light of His glorious gospel. I’m sure that President Benson would invoke that prayer upon you, and I do so in his behalf and by way of personal testimony and blessing, in the name of Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Gratitude #Jesus_Christ #Obedience #Prophets #Restoration

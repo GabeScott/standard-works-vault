@@ -73,5 +73,4 @@ As a Church with lay leadership, the blessings of change come often. Very few of
 The change from this life to a life with Him who is our Eternal Father is the ultimate goal to which meaningful change can bring us. I pray we will all seek and accept wholesome, orderly changes for the betterment of our personal lives. This I humbly ask in the name of Jesus Christ, amen.
 
 
-
-
+#Plan_Of_Salvation #Repentance

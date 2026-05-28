@@ -83,5 +83,4 @@ To you, this day, I affirm my witness of the calling of the Prophet Joseph, of h
 I leave with you my testimony of the truth of these things, and I invoke the blessings of heaven upon you. May the windows of heaven be opened and blessings showered upon you as the Lord has promised. Never forget that this was His promise and that He has the power and the capacity to see that it is fulfilled. I so pray as I leave my blessing and love with you in the sacred name of our Redeemer, even the Lord Jesus Christ, amen.
 
 
-
-
+#Church_Growth #Restoration #Testimony

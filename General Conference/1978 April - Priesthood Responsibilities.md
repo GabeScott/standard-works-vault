@@ -133,5 +133,4 @@ Courage and reliability he demonstrated in his reaction to the abuse which follo
 These great virtues, you young Aaronic Priesthood brothers, are worth following if we would be successful as the great men who have preceded us. I bear my testimony to you that if we will do what these boys did, we will be great men. And I bear that testimony to you in the name of Jesus Christ, our Redeemer. Amen.
 
 
-
-
+#Character #Parenthood #Priesthood

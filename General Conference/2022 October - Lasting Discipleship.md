@@ -57,5 +57,4 @@ I wanted to put my hands on his shoulders and say, “Here’s what you do. You 
 I know that through trusting in the Lord Jesus Christ and His covenant path, we can find spiritual confidence and peace as we nurture holy habits and righteous routines that can sustain and fuel the fires of our faith. May we each move ever closer to those warming fires and, come what may, remain. In the name of Jesus Christ, amen.
 
 
-
-
+#Conversion #Discipleship #Endurance #Faith #Youth

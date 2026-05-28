@@ -99,5 +99,4 @@ These temples are there to be used, and those who use them will reap a blessing 
 There are those few who mock our temple work. They may mock the language, but they cannot mock the Spirit, nor can they mock the truth. I bear testimony of the universality of our Father’s love, of the universality of the salvation from death which came through the sacrifice of the Savior, of the universality of the opportunity for all generations of men and women to the great blessings of our Father, who said, “This is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) I so testify in the name of the Lord Jesus Christ, amen.
 
 
-
-
+#Temples

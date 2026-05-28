@@ -61,5 +61,4 @@ We may come from humble circumstances, have limited education, and even have wha
 Because of His priesthood, we are empowered. We are royalty. And we have the power to discern between Satan’s snipes and God’s true principles of happiness. Because we know who we are and because we are endowed with the Holy Spirit and empowered with His priesthood, we have the power to just say no. “No, Satan, I will not be a victim of your deceitful, vicious, and often deadly snipe hunt.” I testify that “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]) and wickedness never will be happiness. I further testify that happiness and self-worth will come only from living the principles of Him who created the plan of happiness. This I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Joy #Media #Morality #Priesthood #Prophets #Satan #Spirituality #Temptation #Truth #Word_Of_Wisdom

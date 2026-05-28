@@ -41,5 +41,4 @@ Many families struggle with wayward children. We can take comfort in “the eter
 So to my daughter, and to all young people in the Church, as you make the transition to this new phase in your life, I tell you these things. I testify that in the eternal scheme of things, the most crucial and fulfilling thing you will do is to build a holy home and rear a strong family in love. This family unit will bless society and endure through eternity. I so testify, in the name of Jesus Christ, amen.
 
 
-
-
+#Children #Family #Home #Love #Parenthood

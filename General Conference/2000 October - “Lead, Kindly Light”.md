@@ -45,5 +45,4 @@ Remember little Josh Dennis? He is now Elder Dennis, serving a mission far away 
 I know from my own experience, just as surely as Josh knows from his, of the reality of that marvelous being of light—our Savior. May we embrace His light and live so that it will illuminate our path and lead us to our heavenly home, in the name of Jesus Christ, amen.
 
 
-
-
+#Agency #Commandments #Covenants #Faith #Jesus_Christ #Loneliness #Sin #Truth

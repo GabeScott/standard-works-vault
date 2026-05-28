@@ -91,5 +91,4 @@ President Hunter has said, “Frequently it is the commonplace tasks that have t
 I pray that we will heed the counsel of our prophet and have the faith to follow the Savior by doing the simple things His gospel requires. For if the Lord’s prophet had bid us do some great thing to receive the Lord’s great blessings, who among us would not do it? In the name of Jesus Christ, amen.
 
 
-
-
+#Book_Of_Mormon #Children #Duty #Family #Family_Home_Evening #Home_Teaching #Obedience #Prayer

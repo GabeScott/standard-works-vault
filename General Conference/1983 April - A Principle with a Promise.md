@@ -105,5 +105,4 @@ I testify that this is the Lord’s Church restored in this modern day. Jesus Ch
 I further testify that obedience to all of God’s laws brings the precious promise of peace in this life and eternal life in the world to come, in the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Word_Of_Wisdom

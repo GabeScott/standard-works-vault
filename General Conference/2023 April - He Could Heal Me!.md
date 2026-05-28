@@ -81,3 +81,5 @@ I testify that He lives. He is our Savior and Redeemer. He loves us. He has comp
 
 [^14]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 100.
 
+
+#Book_Of_Mormon #Forgiveness #Healing #Jesus_Christ #Redemption

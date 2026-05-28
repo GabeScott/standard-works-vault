@@ -96,3 +96,5 @@ In today’s world, no matter where we live and no matter what our circumstances
 
 [^11]: [[Mosiah 5.15|Mosiah 5:15]].
 
+
+#Adversity #Divine_Nature #Music #Opposition

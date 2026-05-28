@@ -41,5 +41,4 @@ Then we’ll be able to express our gratitude as did Sister Linda Cruzado in Ica
 Today is our time to be valiant and decide to give our souls a serious, profound exposure to our Savior’s teachings. I know that He lives, and after we do all we can, He will make up the difference. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Adversity #Obedience #Preparation #Service

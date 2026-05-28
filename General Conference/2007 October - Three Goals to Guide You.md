@@ -131,3 +131,5 @@ My dear sisters, may our Heavenly Father bless each of you, married or single, i
 
 [^11]: [[Matthew 25.21|Matthew 25:21]].
 
+
+#Education #Prayer #Scriptures #Service

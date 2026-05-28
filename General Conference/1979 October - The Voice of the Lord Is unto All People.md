@@ -41,5 +41,4 @@ We can ask some special questions of leaders of the Church. It would be a disgra
 To all of you of whom I have made mention—unbelievers; nonmembers; members of the Church, both faithful and those not so devoted; and to the leaders; and all who bear the holy priesthood—I declare as one who knows and has authority, that Spencer W. Kimball, President of The Church of Jesus Christ of Latter-day Saints, is the prophet of God to all the inhabitants of the earth. He is the direct successor to Isaiah; Malachi; Peter, James, and John; and to Joseph Smith and others in between. He is the chief Apostle of Jesus Christ on the earth and is authorized to announce that the gospel has been restored to the earth in these, the last days, in preparation for the Second Coming and that these are the days to prepare. His is a voice of gladness in the glorious news he bears and a solemn warning to us all. I so testify in the name of Jesus Christ, amen.
 
 
-
-
+#Obedience #Prophets

@@ -129,5 +129,4 @@ That we shall in full faith, relying upon these assurances, so keep the commandm
 Now, my brothers and sisters, I bear you my witness that I know these things are true; that we are the children of God our Father; that He sent us here; that our actions determine what will occur according to His statements to us in the plain and simple words that He has spoken. I know that we can have peace in the world if we will repent and follow the commandments of the Lord. I know that calamity will follow if we do not. And I plead for God to be with us that we may merit peace and security, in the name of Jesus Christ, our Redeemer. Amen.
 
 
-
-
+#Adversity #Prophecy

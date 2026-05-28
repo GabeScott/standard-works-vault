@@ -85,5 +85,4 @@ Let us all come unto Christ and be perfected in Him, I humbly pray in the name o
 *To which I add my testimony that these are the words of the Lord’s anointed, the prophet of the living God, the President of The Church of Jesus Christ of Latter-day Saints, President Ezra Taft Benson.*
 
 
-
-
+#Jesus_Christ #Missionary_Work #Scripture_Study #Temple_Work

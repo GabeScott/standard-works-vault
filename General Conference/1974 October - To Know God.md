@@ -57,5 +57,4 @@ Thus we have the formula for the search for God and the tools to accomplish the 
 I have a positive conviction that God is a reality—that he lives. He is our Heavenly Father, and we are his spiritual children. He created the heaven and the earth and all things upon the earth and is the author of the eternal laws by which the universe is governed. These laws are discovered bit by bit as man continues his search, but they have existed always and will remain unchanged forever. I bear this witness that Jesus is the Christ, the Son of the living God, our Savior and Redeemer by reason of his atoning sacrifice to give life everlasting to all men. May the Lord bless us with the desire for an upward reach to the spiritual—to know God, to find him, and to have the determination to serve him and keep his commandments. This is my humble prayer in the name of Jesus Christ. Amen.
 
 
-
-
+#Faith

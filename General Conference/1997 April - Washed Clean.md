@@ -164,3 +164,5 @@ In the name of Jesus Christ, amen.
 
 [^11]: Boyd K. Packer, “Washed Clean.”
 
+
+#Atonement #Church_Doctrine #Covenants #Faith #Jesus_Christ #Joy #Plan_Of_Salvation #Repentance #Sacrament #Scriptures #Sin

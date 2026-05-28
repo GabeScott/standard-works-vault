@@ -95,5 +95,4 @@ Again let me translate that marvelous scripture, using a little more modern phra
 I didn’t say that, young people. The Lord did. And our purpose here is to teach you the doctrines of the kingdom. Know of our love, faith, and trust in you, for the future looms bright in terms of your gospel commitment. May you and I together walk down the Lord’s road in peace and harmony is my humble prayer, as I bear witness to these things, in the name of Jesus Christ. Amen.
 
 
-
-
+#Obedience #Youth

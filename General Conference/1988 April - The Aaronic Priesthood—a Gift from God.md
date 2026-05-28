@@ -89,5 +89,4 @@ I would not wish to leave the impression that these abhorrent practices are comm
 I bear my witness and testimony of these things as I invoke the blessings of the Lord upon you, His servants, who have been endowed with His power. In the name of Jesus Christ, amen.
 
 
-
-
+#Priesthood #Youth

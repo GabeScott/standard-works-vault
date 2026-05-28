@@ -103,3 +103,5 @@ I bear my solemn witness of the Lord Jesus Christ. He lives; I know He lives and
 
 [^9]: [[Alma 5.26|Alma 5:26]].
 
+
+#Faith #Testimony

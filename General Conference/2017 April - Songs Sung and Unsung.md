@@ -82,3 +82,5 @@ I testify that hour will come, that God our Eternal Father will again send to ea
 
 [^16]: *Hymns,* no. 227.
 
+
+#Adversity #Faith #Love #Mental_Illness #Music #Poverty #Unity

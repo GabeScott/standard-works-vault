@@ -101,3 +101,5 @@ Brothers and sisters, as members of The Church of Jesus Christ of Latter-day Sai
 
 [^7]: [[D&C 68.25|Doctrine and Covenants 68:25]]; emphasis added.
 
+
+#Children #Family #Home #Marriage #Parenthood

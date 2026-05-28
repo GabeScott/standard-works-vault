@@ -96,5 +96,4 @@ What is that inheritance? It is all that he has, even eternal life. This blessed
 I pray that we will do so, in the name of Jesus Christ, amen.
 
 
-
-
+#Covenants #Priesthood

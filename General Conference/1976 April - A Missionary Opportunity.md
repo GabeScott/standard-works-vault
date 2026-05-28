@@ -29,5 +29,4 @@ Perhaps I can conclude by making reference to something that Nephi said. He said
 I pray the Lord will bless me and make me capable and equal to the task ahead, that he will be patient with me and forgiving of all my sins and shortcomings. I sustain the prophet; I sustain the Brethren. I am humbled with the prospects of working with them. In the name of Jesus Christ. Amen.
 
 
-
-
+#Missionary_Work

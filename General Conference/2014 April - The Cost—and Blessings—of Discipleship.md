@@ -111,3 +111,5 @@ Be strong. Live the gospel faithfully even if others around you don’t live it 
 
 [^20]: See [[Helaman 5.12|Helaman 5:12]].
 
+
+#Adversity #Discipleship #Jesus_Christ #Spirituality

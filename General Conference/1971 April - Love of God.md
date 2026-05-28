@@ -89,5 +89,4 @@ I know that God lives and that my Redeemer lives. I know that I am a child of Go
 I express love for my Heavenly Father and for my Savior, Jesus Christ, and for the Holy Ghost, and for all mankind, and do so in the name of Jesus Christ. Amen.
 
 
-
-
+#Charity #Tithing

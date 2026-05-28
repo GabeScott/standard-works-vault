@@ -133,5 +133,4 @@ By his paying the debt of sin for each of us, Jesus brings us, if we desire, to 
 May each of us adequately play our role in the final accomplishment of God’s declared work and glory, “to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]), by striving for perfection and by being obedient to all the laws and ordinances of the gospel—all of us strengthened by our compliance with the great commandments to love God and our neighbors, I pray as I bear witness that this is His work, that He loves us all. In the name of Jesus Christ, amen.
 
 
-
-
+#Love

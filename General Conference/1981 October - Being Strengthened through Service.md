@@ -43,5 +43,4 @@ As we attempted as a family to be of service to another, we found that we receiv
 I know that Jesus Christ lives, that this Church contains his complete gospel plan, that welfare principles are the gospel in action. In the name of Jesus Christ, amen.
 
 
-
-
+#Family #Social_Services

@@ -101,5 +101,4 @@ Great things are wrought through simple and small things. Like the small flecks 
 As we approach the Easter season, may we show our love and appreciation for the Savior’s atoning sacrifice through our simple, compassionate acts of service to our brothers and sisters at home, at church, and in our communities. For this I humbly pray in the name of Jesus Christ, amen.
 
 
-
-
+#Family #Love #Missionary_Work #Service

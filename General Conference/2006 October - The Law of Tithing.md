@@ -67,3 +67,5 @@ I bear you my own personal witness of the law of tithing and of the reality of t
 
 [^11]: [[3 Nephi 24.10|3 Nephi 24:10]]; see also [[Malachi 3.10|Malachi 3:10]].
 
+
+#Blessings #Faith #Tithing

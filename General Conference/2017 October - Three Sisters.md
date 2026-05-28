@@ -205,3 +205,5 @@ I leave you my blessing as an Apostle of the Lord that you will find the strengt
 
 [^10]: See [[Alma 5.26|Alma 5:26]].
 
+
+#Discipleship #Divine_Nature #Jesus_Christ #Joy

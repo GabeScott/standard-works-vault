@@ -115,5 +115,4 @@ Brothers and sisters, I know that this is the work of God the Eternal Father. It
 That is my witness and testimony to you, and I leave it in the name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Church_Organization #Restoration

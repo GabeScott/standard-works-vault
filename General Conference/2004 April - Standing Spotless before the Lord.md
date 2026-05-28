@@ -69,5 +69,4 @@ The road of life is strewn with spiritual mud slides. Whatever our sins and impe
 I bear witness that He lives and He loves us. He is our Savior and our Redeemer. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Jesus_Christ #Love #Repentance

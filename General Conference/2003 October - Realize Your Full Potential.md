@@ -53,5 +53,4 @@ If you have made bad choices, repent now. Remove any such barrier to your progre
 You are a precious young man or woman. Realize your full potential. Be the leader and example the Lord expects you to be. Young man, be a part of the greatest generation of missionaries. Worthy youth, prepare to receive the temple ordinances and to raise your eternal family. God loves you. I testify that as you seek His help, He will guide you to fulfill your worthy dreams, in the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Patience #Scripture_Study #Service #Testimony

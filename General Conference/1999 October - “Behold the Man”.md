@@ -49,5 +49,4 @@ A true man does not need Satan to lead him down the easy path with his everlasti
 Moses, in a moment of both motivation and rebuke, charged the Israelites, “Who is on the Lord’s side?” ([[Exodus 32.26|Ex. 32:26]]). What he was really asking was, “Whose man are you, anyway?” Our Father in Heaven is called “Man of Holiness” ([[Moses 6.57|Moses 6:57]]; [[Moses 7.35|7:35]]). That is a title we reserve with reverence for the Supreme Being. It is not a title we take upon ourselves, Ben. But every priesthood bearer should seek to be known simply as a man of God. That, my dear friend, is manhood. In the name of Jesus Christ, amen.
 
 
-
-
+#Atonement #Character #Example #Humility #Jesus_Christ #Priesthood #Repentance #Satan #Sin #Word_Of_Wisdom

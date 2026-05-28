@@ -79,5 +79,4 @@ We all have need of the progress that comes from the purifying power of repentan
 Every day in our prayers we should thank God for the divine principle of repentance, in the name of Jesus Christ. Amen.
 
 
-
-
+#Repentance

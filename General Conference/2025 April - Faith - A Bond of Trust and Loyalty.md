@@ -155,3 +155,5 @@ I testify to you of the joy that comes from singing “the song of redeeming lov
 
 [^38]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
+
+#Adversity #Faith #Hope #Jesus_Christ #Loyalty #Prayer #Trust

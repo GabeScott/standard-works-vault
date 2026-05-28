@@ -145,3 +145,5 @@ We fulfill our divine role as children of a loving Heavenly Father as we strive 
 
 [^16]: [[Mosiah 4.13|Mosiah 4:13]].
 
+
+#Contention #Forgiveness #Kindness #Love #Peace #Peacemaking

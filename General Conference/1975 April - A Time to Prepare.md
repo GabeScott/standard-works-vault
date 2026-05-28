@@ -71,5 +71,4 @@ As I have visited the stakes and toured some of the missions, I have noted some 
 I testify to you that the things we have heard in this conference, including the things that I have said, are true. The gospel of Jesus Christ is true. It is to be lived. It is my humble prayer that all of us will rededicate ourselves to doing the kind of job we are capable of doing in attaining the joy and happiness in eternity that are there for us if we will just do our part. And this I do in the name of Jesus Christ. Amen.
 
 
-
-
+#Plan_Of_Salvation #Preparation #Scouting

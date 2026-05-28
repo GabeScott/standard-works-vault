@@ -57,3 +57,5 @@ Until we meet again in six months’ time, I ask the Lord’s blessings to be up
 
 [^3]: [[Mosiah 2.10|Mosiah 2:10–11]][[Mosiah 2.11|]].
 
+
+#Adversity #Unity

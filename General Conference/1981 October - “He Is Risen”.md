@@ -103,5 +103,4 @@ This is the clarion call of Christendom. The reality of the resurrection provide
 As the least of His disciples, I declare my personal witness that death has been conquered, victory over the tomb has been won. May the words made sacred by Him who fulfilled them become actual knowledge to all. Remember them. Cherish them. Honor them. *He is risen.* Such is my fervent prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Death #Peace #Resurrection #Sacrifice

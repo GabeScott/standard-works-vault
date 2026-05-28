@@ -50,5 +50,4 @@ A wonderful chorus of missionaries sang to us yesterday these words:
 May God bless all of you young men to desire to serve him is my humble prayer. In the name of Jesus Christ, amen.
 
 
-
-
+#Service

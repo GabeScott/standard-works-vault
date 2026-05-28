@@ -49,3 +49,5 @@ Tonight, my dear sisters, I invite you to recommit yourselves as covenant women 
 
 [^6]: [[D&C 82.3|D&C 82:3]].
 
+
+#Covenants #Love #Relief_Society #Sisterhood

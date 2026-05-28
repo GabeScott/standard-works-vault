@@ -21,5 +21,4 @@ I thank my wife, my seven children, my mother and father, for making this callin
 I have a great testimony of the gospel, for I know that it is true. I bring the greetings of the Saints in eastern Canada and all the missionaries there to all brethren of the priesthood around the world. I leave this testimony humbly, and in the worthy name of the Lord Jesus Christ. Amen.
 
 
-
-
+#Church_Callings

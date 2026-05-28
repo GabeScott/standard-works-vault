@@ -107,3 +107,5 @@ Don’t allow the poison to touch your souls, brethren. Remember, “He that is 
 
 [^26]: [[1 Nephi 17.35|1 Ne. 17:35]].
 
+
+#Forgiveness #Media #Morality #Prayer #Preparation #Repentance #Sin #Standards #Temptation

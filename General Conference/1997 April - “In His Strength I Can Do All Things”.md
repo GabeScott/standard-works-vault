@@ -71,5 +71,4 @@ It is my prayer, brethren, that each of us will make the Lord—and His revealed
 May Heavenly Father bless you to know that you are one of His chosen sons in a blessed and royal generation, and that He has mighty miracles for *you* to perform. With His strength and the guidance of the Spirit, you too can do all things! To which I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Holy_Ghost #Jesus_Christ #Pioneers #Priesthood

@@ -61,5 +61,4 @@ The Book of Mormon is a second witness of Jesus Christ and a manifestation of th
 These things I know in my heart and in my mind. And of these things I testify in the name of Jesus Christ, amen.
 
 
-
-
+#Humility #Quorum_Of_The_Twelve_Apostles #Service #Testimony

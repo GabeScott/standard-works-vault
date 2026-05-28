@@ -63,5 +63,4 @@ The Master knew men’s lives would be changed more quickly and more surely by l
 I testify to the importance of this principle of salvation, the principle of forgiving and forgetting, in the name of Jesus Christ, amen.
 
 
-
-
+#Forgiveness

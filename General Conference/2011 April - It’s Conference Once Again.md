@@ -31,5 +31,4 @@ As of the end of the year 2010, there were 52,225 missionaries serving in 340 mi
 Now, brothers and sisters, we are anxious to listen to the messages which will be presented to us today and tomorrow. Those who will address us have sought heaven’s help and direction as they have prepared their messages. That we may be filled with the Spirit of the Lord and be uplifted and inspired as we listen and learn is my prayer. In the name of Jesus Christ, amen.
 
 
-
-
+#Missionary_Work #Temples

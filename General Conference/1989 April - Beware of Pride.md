@@ -143,5 +143,4 @@ We must yield “to the enticings of the Holy Spirit,” put off the prideful �
 That we may do so and go on to fulfill our divine destiny is my fervent prayer in the name of Jesus Christ, amen.
 
 
-
-
+#Humility #Pride

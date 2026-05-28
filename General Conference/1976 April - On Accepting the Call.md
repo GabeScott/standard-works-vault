@@ -33,5 +33,4 @@ Lastly, I would like to bear my testimony that I know that our Father in heaven 
 I know that Joseph Smith is a prophet of God, that President Kimball is a prophet of God. I bear this testimony in the name of Jesus Christ. Amen.
 
 
-
-
+#Gratitude

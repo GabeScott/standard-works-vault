@@ -77,5 +77,4 @@ Certainly we are witnessing this kind of folly today. The programs devised by me
 All that is needed is to hearken unto the voice of him whom the Lord has chosen to give a clear sound of the trumpet so that all might prepare for the battle. May the world have eyes that see, and ears that hear, and hearts that understand that they may be converted (see [[Matthew 13.15|Matt. 13:15]]), for which I pray in the name of Jesus Christ. Amen.
 
 
-
-
+#Family #Government #Prophets #Word_Of_Wisdom #Work
