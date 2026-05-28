@@ -47,4 +47,6 @@ I close with the words spoken by Amaleki, another Book of Mormon prophet: “And
 As we come unto our Savior, Jesus Christ, and purify our hearts, we will all be instruments in fulfilling the mighty promises of the Book of Mormon. Of this I testify in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #House_Of_Israel #Native_Americans

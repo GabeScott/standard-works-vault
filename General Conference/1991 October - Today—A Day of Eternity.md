@@ -99,4 +99,6 @@ To all the members and missionaries with whom I have been privileged to serve in
 Above all, I express my gratitude and love to my Savior, Jesus Christ. He is the life, light, and truth of the world. I leave my witness that He is our Savior and Redeemer. In the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Honesty #Joy #Repentance #Self-Esteem

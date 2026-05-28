@@ -117,4 +117,6 @@ I leave you my testimony of the joy of living—of the joys of *full* gospel liv
 I leave my blessing upon you. The Savior lives. This is His church. The work is true, and in the words of our Lord and Savior, “Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life” ([[3 Nephi 15.9|3 Ne. 15:9]]), to which I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Elderly #Endurance #Family #Love #Service

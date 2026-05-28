@@ -67,4 +67,6 @@ May the Lord bless mothers everywhere. You who stay home to tend and care for th
 To you mothers who haven’t yet caught the vision of your eternal call, may you especially be enlightened by the spirit of truth as you weigh carefully in the balance the things of real value in this life. In the name of Jesus Christ. Amen.
 
 
+
+
 #Home #Motherhood

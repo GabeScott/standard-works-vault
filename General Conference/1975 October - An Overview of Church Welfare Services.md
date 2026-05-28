@@ -121,4 +121,6 @@ Brothers and sisters, may I suggest that the oil which the wise virgins carried 
 I bear my witness that this is the gospel of Jesus Christ; that we have a stewardship; that the Lord expects us to honor that stewardship and to bless the people of this earth with his program and in his own way. I bear this witness in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Self-Reliance #Welfare

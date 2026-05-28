@@ -43,4 +43,6 @@ Each of our husbands gave us priesthood blessings, and peace and calm started to
 What did we learn from this task? The same lesson Henry Clegg Jr. and Jimmy learned and the same thing all faithful modern-day pioneers are learning. With the Lord, nothing is impossible (see [[Luke 1.37|Luke 1:37]]), but we each have to finish our own story. He sends His Spirit, we call out encouragement to each other, but we have to keep writing, keep walking, keep serving and accepting new challenges to the end of our own story. “Still walking” is the fundamental requirement in the journey of life. He wants us to finish well. He wants us to come back to Him. I pray that each of our stories will end in the presence of our Heavenly Father and His Son, our Savior Jesus Christ, the authors and finishers of our faith. In the name of Jesus Christ, amen.
 
 
+
+
 #Dedication #Endurance

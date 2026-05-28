@@ -136,4 +136,6 @@ I thank God and His Son, Jesus Christ, for the Restoration and its power to prop
 [^34]: [[Revelation 14.6|Revelation 14:6]]; see also [[1 Nephi 19.17|1 Nephi 19:17]]; [[D&C 133.37|Doctrine and Covenants 133:37]].
 
 
+
+
 #Book_Of_Mormon #Missionary_Work #Restoration

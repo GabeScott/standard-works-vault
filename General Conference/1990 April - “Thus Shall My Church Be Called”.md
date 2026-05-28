@@ -127,4 +127,6 @@ He issued this solemn warning: “Let all men beware how they take my name in th
 As members of His church, we are privileged to participate in its divine destiny. May we so honor Him who declared, “Thus shall my church be *called* … The Church of Jesus Christ of Latter-day Saints,” I pray in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Name_Of_Church #Obedience

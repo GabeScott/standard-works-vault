@@ -148,4 +148,6 @@ The Savior lives and loves each of us. This I know with all my heart. We are chi
 [^29]: [[John 7.17|John 7:17]]; see also [[John 7.14|vv. 14–16]][[John 7.15|]][[John 7.16|]].
 
 
+
+
 #Agency #Atonement #Conversion #Death #Faith #Fellowshipping #Jesus_Christ #Plan_Of_Salvation #Preparation #Repentance

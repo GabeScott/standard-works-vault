@@ -55,4 +55,6 @@ I testify God lives, that His Son is the Redeemer of this earth, and that this g
 Remember the Lord said, “For them that honour me I will honour” ([[1 Samuel 2.30|1 Sam. 2:30]]). May this be our journey, in the name of Jesus Christ, amen.
 
 
+
+
 #Commandments #God_The_Father #Jesus_Christ #Missionary_Work #Priesthood

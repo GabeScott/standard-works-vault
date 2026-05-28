@@ -105,4 +105,6 @@ Now, young men, I speak as your friend, not as your judge. Practice these five p
 You priesthood leaders and fathers, you are the home-field coaches. Review these points with these, your sons. Discuss them in depth. Help these young men work on them. Making these points will help lead them to joy and happiness and exaltation. Of this I testify, in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Morality #Service #Spirituality #Word_Of_Wisdom

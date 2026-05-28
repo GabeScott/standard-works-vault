@@ -67,4 +67,6 @@ You’ve made the team, the Lord’s team, because of your superior, dedicated p
 And as you too retire at night, your hearts and thoughts and prayers will automatically turn, once again, with great desire to the perfecting of your performance on the Lord’s great priesthood team. In the name of Jesus Christ, amen.
 
 
+
+
 #Priesthood #Scripture_Study

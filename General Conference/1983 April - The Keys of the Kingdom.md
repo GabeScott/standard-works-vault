@@ -93,4 +93,6 @@ And as the Lord lives, and as Christ is true, and as truth will prevail, I testi
 Now, this testimony I bear for myself and for all the faithful elders of the kingdom, and for all the sainted sisters who stand so valiantly at their sides, and above all I do it in the sacred and holy name of the Lord Jesus Christ. Even so, amen.
 
 
+
+
 #Authority #Church_Leaders #Priesthood

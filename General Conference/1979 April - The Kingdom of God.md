@@ -75,4 +75,6 @@ God lives. Jesus is the Christ, the Savior of the world. His kingdom will prevai
 This is my witness to you, in the name of Jesus Christ, amen.
 
 
+
+
 #Repentance

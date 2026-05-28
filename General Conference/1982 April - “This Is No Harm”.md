@@ -87,4 +87,6 @@ May we constantly remind ourselves to “seek not for riches but for wisdom; and
 God grant to all of us the power and strength to be people of integrity, and the insight and wisdom to avoid being led into the snares of the dishonest, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Honesty

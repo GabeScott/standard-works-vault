@@ -89,4 +89,6 @@ It is important to remember that all larger units of society depend on the small
 Brothers and sisters, as we hold up like a banner the proclamation to the world on the family and as we live and teach the gospel of Jesus Christ, we will fulfill the measure of our creation here on earth. We will find peace and happiness here and in the world to come. We should not need a hurricane or other crisis to remind us of what matters most. The gospel and the Lord’s plan of happiness and salvation should remind us. What matters most is what lasts longest, and our families are for eternity. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Family #Joy #Marriage #Morality #Scripture_Study

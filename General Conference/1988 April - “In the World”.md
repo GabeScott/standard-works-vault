@@ -77,4 +77,6 @@ As we live “in the world,” may we contribute by making it a better place bec
 This is the Lord’s work in which we are engaged, I witness to you in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Faith #Priorities

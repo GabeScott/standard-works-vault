@@ -37,4 +37,6 @@ I have great confidence in the young women of the Church. Through your habit of 
 If reading the scriptures is not already a habit with you, today is a great day to start. It did not really take 25 years to learn to make good dinner rolls. I just needed the encouragement to get started. Homemade rolls have brought much enjoyment to my family. But the greater joy has come from the habit of daily scripture reading which I started so many years ago. Some days I have a lot of time to contemplate the scriptures. Other days I reflect on a few verses. Just as eating and breathing sustain my physical body, the scriptures feed and give life to my spirit. I can now echo Nephi and say: “My soul delighteth in the scriptures, and my heart pondereth them. … Behold, my soul delighteth in the things of the Lord; and my heart pondereth continually upon the things which I have seen and heard” ([[2 Nephi 4.15|2 Nephi 4:15–16]][[2 Nephi 4.16|]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Education #Scripture_Study

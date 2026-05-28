@@ -95,4 +95,6 @@ There are many who will hear this message for the first time today. Ponder it ca
 During this Easter season, this is my personal witness and testimony. Oh, if I had the voice and trump of an angel that I could say to all mankind that He is risen and that he lives; that he is the Son of God, the Only Begotten of the Father, the promised Messiah, our Redeemer and Savior; that he came into this world to teach the gospel by example. His divine mission is directed to you and me to come unto him and he will lead us into life eternal. Salvation is by and through his name ([[Acts 4.12|Acts 4:12]]; [[D&C 132.12|D&C 132:12]]; [[John 14.6|John 14:6]]), and this I say in the holy name of our Savior and Redeemer, Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ

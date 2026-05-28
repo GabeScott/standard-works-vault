@@ -71,4 +71,6 @@ The Reverend continues, “As the program began, a member of the Seventies made 
 Surely the gospel does make “good men better and women and children better than they have ever been before.” In the name of Jesus Christ. Amen.
 
 
+
+
 #Conversion #Spirituality

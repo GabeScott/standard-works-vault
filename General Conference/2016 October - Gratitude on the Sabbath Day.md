@@ -123,4 +123,6 @@ I testify that God the Father knows and loves you. The Savior, the Lord Jesus Ch
 [^8]: [[Mosiah 24.13|Mosiah 24:13–15]][[Mosiah 24.14|]][[Mosiah 24.15|]].
 
 
+
+
 #Adversity #Church_Callings #Gratitude #Love #Sabbath #Sacrament #Service

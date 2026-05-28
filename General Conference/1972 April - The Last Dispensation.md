@@ -79,4 +79,6 @@ A dispensation of the gospel of Jesus Christ is now established with prophets, s
 Of these things I bear my personal witness as conveyed to me by the power of the Spirit, in the name of Jesus Christ. Amen.
 
 
+
+
 #Dispensations

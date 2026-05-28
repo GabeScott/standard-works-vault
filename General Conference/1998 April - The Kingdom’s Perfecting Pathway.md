@@ -57,4 +57,6 @@ Brothers and sisters, this kingdom is like no other organization on earth. To bo
 Gratefully and joyfully, I am a witness that this is the great kingdom of God on earth as prophesied throughout the ages. It is the only true pathway leading us in our journey back to a loving Heavenly Father, having been redeemed through the Atonement of His Only Begotten. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Organization #Consecration #Family #Home #Jesus_Christ #Obedience #Parenthood #Plan_Of_Salvation #Pride #Priorities #Sin #Unity #Zion

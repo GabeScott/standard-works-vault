@@ -71,4 +71,6 @@ Now, it may be that the old man in New Hampshire carried personal and family pre
 God grant us to see what must be done in our own wards and stakes, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Preparation #Self-Reliance

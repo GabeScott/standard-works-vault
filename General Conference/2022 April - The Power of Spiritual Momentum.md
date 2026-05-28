@@ -140,4 +140,6 @@ God lives! Jesus is the Christ! He lives! He loves us and will help us. Of this 
 [^25]: [[Matthew 6.14|Matthew 6:14]].
 
 
+
+
 #Adversity #Covenants #Forgiveness #Jesus_Christ #Miracles #Peace #Repentance #Satan #Spirituality

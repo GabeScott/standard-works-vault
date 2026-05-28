@@ -71,4 +71,6 @@ I felt his spirit; I believed him; my spirit soared to a new height.
 If it comes from the heart, it will work, brothers and sisters. It will bring peace and happiness to a troubled soul. Please try again … and again … and again. I know he who set this pattern lives. I know Jesus is the Christ. Of this I testify in the name of Jesus Christ. Amen.
 
 
+
+
 #Love

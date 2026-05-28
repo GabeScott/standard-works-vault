@@ -91,4 +91,6 @@ I pray that the Lord will help us to go on, still fulfilling his promises of all
 With all my heart and soul, I bear you my witness of the divinity of this work, that God the Eternal Father has decreed its destiny. It is built on the foundation of apostles and prophets, with Christ our Lord as the chief cornerstone. And he is guiding his church today, and will continue to do so until he comes in the clouds of heaven as the holy prophets have declared, and I leave you that witness in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #House_Of_Israel

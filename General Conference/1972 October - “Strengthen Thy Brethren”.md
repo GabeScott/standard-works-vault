@@ -55,4 +55,6 @@ Thousands of people are coming into this church every month. I pray that we have
 I testify to the divinity of this church. It is true. I sustain President Lee as a prophet, seer, and revelator. I know he is called and ordained of God. I know God lives and that Jesus is the Christ, to which I add my testimony, in the name of Jesus Christ. Amen.
 
 
+
+
 #Fellowshipping #Teaching

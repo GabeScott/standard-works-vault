@@ -141,4 +141,6 @@ To look to God through a living prophet, for he teaches us of that God whom Pres
 I testify that we can hear the voice of Deity through the scriptures; I testify that there is a living prophet among us; and I testify that Christ is the name whereby salvation is extended to all of us. In the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Prophets #Scriptures #Spirituality

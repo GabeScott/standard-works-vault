@@ -77,4 +77,6 @@ And I pray for those who deal in the highest form of larceny—that of stripping
 God help us all in our war against sin. Though our numbers may be few and our dominions small, may we go forward “armed with righteousness and with the power of God in great glory” ([[1 Nephi 14.14|1 Ne. 14:14]]), is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Apostasy

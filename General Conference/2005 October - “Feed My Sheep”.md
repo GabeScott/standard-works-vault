@@ -96,4 +96,6 @@ Of this I bear you my testimony in the name of Jesus Christ, amen.
 [^6]: [[1 Corinthians 13.3|1 Corinthians 13:3–7, 13]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.13|]].
 
 
+
+
 #Activation #Faith #Love #Patience

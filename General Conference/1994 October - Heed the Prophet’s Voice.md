@@ -73,4 +73,6 @@ How typical of President Hunter. His life’s story is filled with accounts of d
 May God bless us that we may follow him who has been called to be our prophet, seer, and revelator. I give witness that divine intervention has preserved and prepared President Hunter for this great and important responsibility. He is the Lord’s servant. Of this I testify in the name of Him whose church this is, even our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Church_Leaders #Church_Organization #Howard_W._Hunter #Prophets

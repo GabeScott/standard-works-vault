@@ -49,10 +49,10 @@ Imagine you were introducing Melchizedek to someone who didn’t know him. What 
 
 What do you learn about Abraham’s attitude toward wealth from [[Genesis 14.18|Genesis 14:18–24]][[Genesis 14.19|]][[Genesis 14.20|]][[Genesis 14.21|]][[Genesis 14.22|]][[Genesis 14.23|]][[Genesis 14.24|]] and [[JST Genesis 14.36|Joseph Smith Translation, Genesis 14:36–40]][[JST Genesis 14.37|]][[JST Genesis 14.38|]][[JST Genesis 14.39|]][[JST Genesis 14.40|]] (in the Bible appendix)? For example, note his response to the king of Sodom in [[Genesis 14.23|Genesis 14:23]]. How has obeying the law of tithing affected your view of money?
 
-[[Genesis 16.1|Genesis 16]]
+[[Genesis 16.1|Genesis 16]][[Genesis 16.2|]][[Genesis 16.3|]][[Genesis 16.4|]][[Genesis 16.5|]][[Genesis 16.6|]][[Genesis 16.7|]][[Genesis 16.8|]][[Genesis 16.9|]][[Genesis 16.10|]][[Genesis 16.11|]][[Genesis 16.12|]][[Genesis 16.13|]][[Genesis 16.14|]][[Genesis 16.15|]][[Genesis 16.16|]]
 ### God hears me.
 
-As you read [[Genesis 16.1|Genesis 16]], you might think about a time when you felt you were being treated unfairly, as Hagar did. Note that “Ishmael” means “God hears.” How has God shown you that He has heard you?
+As you read [[Genesis 16.1|Genesis 16]][[Genesis 16.2|]][[Genesis 16.3|]][[Genesis 16.4|]][[Genesis 16.5|]][[Genesis 16.6|]][[Genesis 16.7|]][[Genesis 16.8|]][[Genesis 16.9|]][[Genesis 16.10|]][[Genesis 16.11|]][[Genesis 16.12|]][[Genesis 16.13|]][[Genesis 16.14|]][[Genesis 16.15|]][[Genesis 16.16|]], you might think about a time when you felt you were being treated unfairly, as Hagar did. Note that “Ishmael” means “God hears.” How has God shown you that He has heard you?
 
 See also “[Secret Prayer](https://churchofjesuschrist.org/study/manual/hymns/secret-prayer?lang=eng),” *Hymns*, no. 144.
 

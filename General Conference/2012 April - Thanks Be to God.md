@@ -154,4 +154,6 @@ I testify that He lives, that Jesus is the Christ, and that this is His Church, 
 [^33]: “Eternal life … is the greatest of all the gifts of God” ([[D&C 14.7|Doctrine and Covenants 14:7]]).
 
 
+
+
 #Blessings #Death #Gratitude #Jesus_Christ #Mortality

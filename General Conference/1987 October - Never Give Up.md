@@ -57,4 +57,6 @@ Probably few of us will face opposition and obstacles like those encountered by 
 I bear testimony that perseverance is essential to us in learning and living the principles of the gospel and that it will determine our progress as we strive to reach exaltation. Jesus is the Christ, the Son of God. He directs this Church. I am grateful to labor in his service and to be a special witness of his divinity. The gospel has been restored in these latter days through the Prophet Joseph Smith. President Ezra Taft Benson is our prophet, seer, and revelator. May we follow his stirring address this morning. I bear this testimony humbly in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Dedication

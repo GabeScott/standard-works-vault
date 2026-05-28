@@ -56,4 +56,6 @@ I testify that Jesus Christ is the Savior of the world, that He lives, that He l
 [^6]: See [[Alma 56.47|Alma 56:47]]; [[Alma 57.26|57:26]].
 
 
+
+
 #Discipleship #Love #Ministering

@@ -157,4 +157,6 @@ To all those who serve the Lord by serving their fellowmen, and to those who are
 That each of us may qualify for this blessing from our Lord is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Missionary_Work #Self-Esteem #Service

@@ -45,4 +45,6 @@ God bless you, my brethren and sisters, and all of us, as we devote ourselves to
 Let us, then, at this closing session, renew that plea and rededicate ourselves to the unfinished task of bringing to pass the immortality and eternal life of men. I bear this witness to you, and bring you this report on my activities, in the name of Jesus Christ. Amen.
 
 
+
+
 #Holy_Land #Jesus_Christ

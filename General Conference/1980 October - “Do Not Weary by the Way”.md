@@ -39,4 +39,6 @@ The Lord bless you, my dear brethren and sisters. I hope that you will go forwar
 We pray that the Lord may continue to bless you, and we would be glad if you take back to your homes and to your people our sincere and deep love. God bless you, in the name of Jesus Christ, amen.
 
 
+
+
 #Obedience

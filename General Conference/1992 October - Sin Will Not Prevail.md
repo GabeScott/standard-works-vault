@@ -25,4 +25,6 @@ I quote: “This is the last and great dispensation in which the great consummat
 Such have been the declarations of this man who stands today as the Lord’s prophet and our President. We bring you his love, his greeting, and his blessing. And to him we return our love and our loyalty, with a prayer in our hearts that the God of heaven will bless him, comfort him, sustain him, and bring him joy and gladness. I so pray as I give you my testimony that he is the prophet whom the Lord has trained and sustained through all of these years to speak as a prophet unto the nations and as our leader, in the name of Jesus Christ, amen.
 
 
+
+
 #Ezra_Taft_Benson #Obedience #Prophets

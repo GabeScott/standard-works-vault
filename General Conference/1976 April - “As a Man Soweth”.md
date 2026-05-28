@@ -69,4 +69,6 @@ The Lord has clearly charted a course for us to obtain his blessings. He is boun
 May God bless us that we may sow to the Spirit in order that our harvest will be life everlasting, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Commandments #Laws #Obedience

@@ -44,4 +44,6 @@ And I began to weep as I contemplated the perfect life and glorious sacrifice of
 I bear testimony that the Lord Jesus Christ has paid the price of our sins upon condition of repentance. He is the Firstborn of the Father. He is the Holy One of Israel. He is the firstfruits of the Resurrection. I testify that He lives. I testify that He is in very deed, “our only delight, … our King, our Deliv’rer, our all!” (*Hymns,* 1985, no. 6). In the name of Jesus Christ, amen.
 
 
+
+
 #God_The_Father #Jesus_Christ #Pride #Sin

@@ -77,4 +77,6 @@ In the final days of the Nephite civilization, the prophet Mormon wrote a letter
 “And may the grace of God the Father … and our Lord Jesus Christ … be, and abide with you forever” ([[Moroni 9.25|Moro. 9:25–26]][[Moroni 9.26|]]), which is also my prayer for each of us, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Plan_Of_Salvation

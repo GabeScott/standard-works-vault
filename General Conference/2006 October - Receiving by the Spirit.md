@@ -63,4 +63,6 @@ I pray that this day and always we will learn to better receive, that we may tru
 In the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Listening #Scriptures

@@ -44,4 +44,6 @@ It is a somber time for me. We’ve been married for 67 years this month. She is
 Every man, woman, and child, boy and girl, should leave this conference a better individual than he or she was when it began two days ago. I leave my blessing and my love with each of you, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Home #Prayer #Repentance

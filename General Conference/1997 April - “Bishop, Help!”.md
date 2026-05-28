@@ -59,4 +59,6 @@ Brothers and sisters, the offices of bishop and branch president and counselors 
 I testify of the Lord Jesus Christ, whose Church this is and whose servants they are. I ask the blessings of the Lord on the members and leaders of this Church, general and local. In the name of Jesus Christ, amen.
 
 
+
+
 #Bishops #Church_Leaders #Home_Teaching #Jesus_Christ #Self-Reliance #Visiting_Teaching

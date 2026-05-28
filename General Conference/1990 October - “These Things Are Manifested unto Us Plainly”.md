@@ -101,4 +101,6 @@ These things are real—testimony, individuality, charity, families, sisterhood.
 I pray for the blessings of our Father in Heaven, who loves us, to continue to be with you, in every part of the world, in the name of Jesus Christ, amen.
 
 
+
+
 #Compassion #Family #Individual_Worth #Jesus_Christ #Testimony #Women

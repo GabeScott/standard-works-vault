@@ -117,4 +117,6 @@ Great joy and fulfillment will come to you as you humbly serve in your newly exp
 This work is divinely directed. God lives. Jesus is the Son of God. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Brotherhood #Missionary_Work #Service #Testimony

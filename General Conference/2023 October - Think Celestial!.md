@@ -154,4 +154,6 @@ The Lord is directing us to build these temples to help us think celestial. God 
 [^20]: This is not to imply a cause-and-effect relationship. Some who never pay tithing attain professional opportunities, while some who pay tithing do not. The promise is that the windows of heaven *will be* opened to the tithe payer. The nature of the blessings will vary.
 
 
+
+
 #Adversity #Agency #Atonement #Faith #Jesus_Christ #Obedience #Plan_Of_Salvation #Sexual_Purity #Temples #Tithing

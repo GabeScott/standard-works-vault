@@ -146,4 +146,6 @@ Young men, God has a work for you to do.[^30] Your Aaronic Priesthood ordination
 [^30]: See [[Moses 1.6|Moses 1:6]].
 
 
+
+
 #Aaronic_Priesthood #Angels #Atonement #Duty #Faith #Ordinances #Repentance #Teaching

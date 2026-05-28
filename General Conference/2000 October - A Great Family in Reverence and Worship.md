@@ -19,4 +19,6 @@ Workmen have labored long and hard in preparing for this great occasion. We than
 Welcome to each of you, wherever you may be. May we all be touched by the Holy Spirit as we meet together in solemn worship is my humble prayer. In the name of Jesus Christ, amen.
 
 
+
+
 #General_Conference #Reverence #Testimony #Worship

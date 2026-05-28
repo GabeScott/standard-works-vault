@@ -85,4 +85,6 @@ I pray that we will not be discouraged and not be led away, not be deceived—bu
 I know our Father lives and that Jesus is the Christ. We are engaged in his work. I say these things in the name of Jesus Christ, amen.
 
 
+
+
 #Preparation #Service #Spirituality

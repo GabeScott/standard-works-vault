@@ -106,4 +106,6 @@ I bear my witness that Jesus Christ lives and that through Him, we may triumph o
 [^21]: See [[1 Samuel 13.14|1 Samuel 13:14]].
 
 
+
+
 #Spirituality #Temptation

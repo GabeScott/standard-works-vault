@@ -37,4 +37,6 @@ I wish that all of the General Authorities could speak to us. Unfortunately, tha
 May the blessings of the Lord attend us I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Jesus_Christ #Joy #Pioneers

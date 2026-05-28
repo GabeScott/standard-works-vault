@@ -59,4 +59,6 @@ And so we come back to the place where we began and hear again those great words
 And that we may be fully successful in this greatest of all enterprises, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Priorities #Standards

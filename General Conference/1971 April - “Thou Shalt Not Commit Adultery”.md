@@ -97,4 +97,6 @@ May we think clean thoughts and refrain from all impure actions, living by every
 In the name of Jesus Christ. Amen.
 
 
+
+
 #Marriage #Morality

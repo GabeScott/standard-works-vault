@@ -57,4 +57,6 @@ Fourth, we must be certain as we hurry through life that we tend to your needs a
 In closing, I say to you—our elder mentors, our examples, some of our dearest friends—thank you, and may we be one, as the Father and the Son are one, I pray in the blessed name of Jesus Christ, amen.
 
 
+
+
 #Elderly

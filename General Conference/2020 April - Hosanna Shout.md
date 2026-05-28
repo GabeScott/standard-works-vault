@@ -30,4 +30,6 @@ Upon a signal from the conductor, please join in singing â€œThe Spirit of God.â€
 [^1]: *Hymns,* no. 2.
 
 
+
+
 #First_Vision #Restoration

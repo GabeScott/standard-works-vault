@@ -151,4 +151,6 @@ Response: “That is one person’s opinion. I don’t think there is any substa
 Well, brethren, that’s enough for this occasion. Needless to say, we were blessed of the Lord. Now in conclusion I wish to say that none of us ever need hesitate to speak up for this Church, for its doctrine, for its people, for its divine organization and divinely given responsibility. It is true. It is the work of God. The only things that can ever embarrass this work are acts of disobedience to its doctrine and standards by those of its membership. That places upon each of us a tremendous responsibility. This work will be judged by what the world sees of our behavior. God give us the will to walk with faith, the discipline to do what is right at all times and in all circumstances, the resolution to make of our lives a declaration of this cause before all who see us, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Abuse #Agency #Example #Family #Home #Media #Missionary_Work #Morality #Parenthood #Prophets #Tithing #Welfare #Word_Of_Wisdom

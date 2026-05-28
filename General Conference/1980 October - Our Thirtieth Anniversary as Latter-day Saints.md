@@ -55,4 +55,6 @@ How grateful I am that my ten most fervent needs have been fulfilled through lis
 May all within the sound of my voice, and all God’s children everywhere, have the same fulfillment, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Missionary_Work

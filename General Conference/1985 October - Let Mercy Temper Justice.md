@@ -59,4 +59,6 @@ Thus, as one of the General Authorities, and in fulfilling part of my present du
 That we may do so I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Repentance

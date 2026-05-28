@@ -25,4 +25,6 @@ When you leave the Tabernacle in a few minutes, I invite you to look at the spir
 In behalf of President Benson and all of my Brethren, I invoke upon you, wherever you may be, the blessings of heaven. May the Lord smile with favor upon you that there may be peace in your lives and peace in your homes. May you return safely to those you love, and may the remembrances of this great occasion be sweet and fruitful, I humbly pray. God be with you till we meet again, my beloved brethren and sisters, my friends and associates in this great work, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Testimony

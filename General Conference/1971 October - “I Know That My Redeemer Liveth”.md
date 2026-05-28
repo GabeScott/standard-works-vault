@@ -65,4 +65,6 @@ I pray that we may all be guided by the power of the Holy Spirit, that we may wa
 This is my prayer in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Plan_Of_Salvation #Worship

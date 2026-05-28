@@ -96,4 +96,6 @@ May we all seek to first observe, then serve. As we do so, we are keeping covena
 [^16]: [[Matthew 20.32|Matthew 20:32]].
 
 
+
+
 #Discipleship #Love #Service

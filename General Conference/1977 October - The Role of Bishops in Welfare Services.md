@@ -115,4 +115,6 @@ These things cannot be achieved by dollars and cents; therefore all cannot be br
 It is my prayer that all bishops and stake presidents will thoroughly inform themselves of their duty and carry this great work to its ultimate achievement in the redemption of Zion in preparation for the second advent of the Lord. This is my prayer, in the name of Jesus Christ. Amen.
 
 
+
+
 #Bishops #Welfare

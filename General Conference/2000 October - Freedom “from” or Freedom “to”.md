@@ -51,4 +51,6 @@ Jesus Christ wants to empower our lives, according to our own righteous choices,
 In this freedom that we have received in our time, through our understanding of His divine plan for us, we stand in our full responsibility. Let us always stay close to the loving, caring hand of our Redeemer and our Savior to find safety and joy. I say this in deep humility. And I bear you my testimony as your brother and servant that I know that Jesus lives and that He is the head of this work. I say this in Jesus’ name, amen.
 
 
+
+
 #Agency #Covenants #Faith #Freedom #Humility #Jesus_Christ #Plan_Of_Salvation #Priesthood #Responsibility #Restoration

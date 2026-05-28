@@ -140,4 +140,6 @@ May we recognize and receive His glorious light and then choose Him over the dar
 [^26]: [[Alma 32.41|Alma 32:41]].
 
 
+
+
 #First_Vision #Light_Of_Christ #Restoration #Revelation #Testimony

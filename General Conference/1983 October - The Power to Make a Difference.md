@@ -59,4 +59,6 @@ Respect and love must be earned, and there is no better way to earn them than to
 Begin now with your best effort. Reach out to another. You will feel the power of the Lord flow through you. Your own self-respect will return, and you can love yourself again. Your life will be enriched and given purpose, and you will be given the power to make a difference in everything around you. Of this I testify, in the name of Jesus Christ, amen.
 
 
+
+
 #Service

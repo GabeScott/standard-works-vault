@@ -109,4 +109,6 @@ By loving the Lord, keeping his commandments, and serving our fellow beings, we 
 I bear you this witness in the name of Jesus Christ. Amen.
 
 
+
+
 #Joy #Obedience

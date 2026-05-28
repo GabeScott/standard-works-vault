@@ -63,4 +63,6 @@ The First Presidency of this church has said, “Motherhood is near to divinity.
 In conclusion, I wish to repeat that I do not believe that God’s purposes on earth will ever be achieved without the influence, strength, love, support, and special gifts of the elect women of God. They are entitled to our deepest veneration, our fullest appreciation, and our most profound respect. I believe angels attend them in their motherly ministry. That we may so honor them I pray humbly in the name of Jesus Christ, amen.
 
 
+
+
 #Marriage #Priesthood #Women

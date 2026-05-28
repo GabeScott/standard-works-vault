@@ -129,4 +129,6 @@ Now, brethren, I would like to read to you a statement recently approved by the 
 “At this time, we commend all who have served both past and present as members of stake seventies quorums of the Church and who have so ably given of their time, talents, and resources in spreading forth the gospel of Jesus Christ.”
 
 
+
+
 #Jesus_Christ #Priesthood

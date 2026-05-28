@@ -67,4 +67,6 @@ Every individual can realize this promise if he is willing to humble himself and
 In closing, I join with the first prophet of this latter-day dispensation in declaring, “And now, after the many testimonies which have been given of him, this is the testimony, last of all, which we give of him: That he lives!” ([[D&C 76.22|D&C 76:22]].) I present to you these evidences of fact and truth humbly and in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #God_The_Father #Holy_Ghost #Jesus_Christ

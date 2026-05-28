@@ -91,4 +91,6 @@ This rock of revelation is the source of knowledge concerning the things of God.
 Of these sacred things I offer my solemn testimony and invoke the blessings of this knowledge upon all earnest seekers after truth, in the name of the author of truth, even the Lord Jesus Christ. Amen.
 
 
+
+
 #Self-Control #Testimony

@@ -61,4 +61,6 @@ Let us follow the admonition of the Prophet Joseph Smith: “After all that has 
 We can and we must do better, brothers and sisters. I pray that the Lord will grant to each one of us the faith and courage to increase our participation in supporting our full-time missionaries in sharing the restored gospel with all of God’s children throughout the world. In the name of Jesus Christ, amen.
 
 
+
+
 #Love #Missionary_Work #Prayer #Worthiness

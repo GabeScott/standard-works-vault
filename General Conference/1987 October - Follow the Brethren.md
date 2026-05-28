@@ -75,4 +75,6 @@ We have in this conference heard what the Lord would have us know. What has been
 You will find that you will “enjoy the words of eternal life in this world, and eternal life in the world to come” ([[Moses 6.59|Moses 6:59]]). I am a witness that this is the work of God. There is a prophet in our midst, even President Ezra Taft Benson, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Leaders #Obedience #Prophets

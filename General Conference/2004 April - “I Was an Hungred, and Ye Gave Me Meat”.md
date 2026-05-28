@@ -103,4 +103,6 @@ The Spirit of the Lord guides this work. This welfare activity is secular activi
 May heaven prosper this great program, and may heaven’s blessing rest upon all who serve therein, I humbly pray, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Couple_Missionaries #Education #Welfare

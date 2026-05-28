@@ -159,4 +159,6 @@ Brethren, it is really something to hold the priesthood—to hold this advancing
 Now this comes from the doctrines we possess. The Lord has said, “I am the Almighty.” “I am Jesus Christ.” “I am Jehovah.” He is the one we worship. We sing about him in nearly every song. We pray about him in all our prayers. We talk about him in all our meetings. We love him, and we adore him. And we promise and rededicate ourselves over and over and over that we will from this moment forth live nearer to him and to his promises and to the blessings which he has given us. I say this to you with all of our affection and love in the name of Jesus Christ. Amen.
 
 
+
+
 #Articles_Of_Faith #Priesthood

@@ -74,4 +74,6 @@ With the rudder of faith guiding our passage, brethren, we too will find our way
 [^8]: [[Jacob 7.5|Jacob 7:5]].
 
 
+
+
 #Example #Priesthood #Worthiness

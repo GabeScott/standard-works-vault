@@ -187,4 +187,6 @@ I am a witness to the truth that Jesus is the Christ, the Son of God, the Only B
 I know that He directs this Church now, as He established it then, through a prophet of God. In the name of Jesus Christ, amen.
 
 
+
+
 #Spirituality #Testimony

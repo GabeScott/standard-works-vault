@@ -71,4 +71,6 @@ It is my humble prayer that by our choices we may preserve our individual agency
 In the name of Jesus Christ, amen.
 
 
+
+
 #Priorities #Spirituality #Time_Management

@@ -47,4 +47,6 @@ I could have wished that every careless father in the Church could have heard th
 Please, we ask you priesthood holders, wake up these fathers now, while it is yet day and while there is time for them to receive their blessings before the darkness comes. May the Lord help us so to do now and to catch the vision and the message that President Tanner and these men who have spoken to you tonight have given you—a glimpse of what we can do if we will only exercise the priesthood, which is the power of God by which he works through men to the salvation of his children. That the Lord might help us so to do, to catch that vision, and to carry out the purposes of what we are trying to do in these years ahead, I pray humbly in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Priesthood

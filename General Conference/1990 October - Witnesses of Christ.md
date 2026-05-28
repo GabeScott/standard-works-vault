@@ -95,4 +95,6 @@ And, we can say, like the prophet Nephi, “We talk of Christ, we rejoice in Chr
 I testify of Jesus Christ, the Lord God of Israel, the light and life of the world, as I affirm the truth of his gospel, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Testimony

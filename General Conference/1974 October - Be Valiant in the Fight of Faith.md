@@ -109,4 +109,6 @@ I bear witness of the truth of the doctrines that have been proclaimed and testi
 God grant us the wisdom and vision and determination, the valiance and courage, to fight manfully in his army and to be, as President George Albert Smith so graphically expressed it, “on the Lord’s side of the line.” In the name of Jesus Christ. Amen.
 
 
+
+
 #Commitment #Testimony

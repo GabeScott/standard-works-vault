@@ -93,4 +93,6 @@ We do not have to prove the Book of Mormon is true. The book is its own proof. A
 I testify that the Book of Mormon is the word of God; and therefore Jesus is the Christ, Joseph Smith is a prophet, The Church of Jesus Christ of Latter-day Saints is true, with its authorized servants to perform the ordinances of salvation today, in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon

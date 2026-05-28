@@ -85,4 +85,6 @@ The world is our responsibility. We cannot evade it. I think of the words of Jac
 God bless you, my beloved brethren, young and old, to be faithful to the great responsibility placed upon us to share with others this most precious of all things, I humbly ask, in the name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Missionary_Work

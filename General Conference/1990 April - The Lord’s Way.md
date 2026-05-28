@@ -107,4 +107,6 @@ My brothers and sisters, these are momentous times in the history of the Church.
 That we may, as a people, merit the blessings of God, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Financial_Management #Tithing #Youth

@@ -157,4 +157,6 @@ We have cause to rejoice and we do rejoice, even celebrate.
 God bless us that we and all who will hear His message can celebrate the Light! Of him I bear witness, in the name of Jesus Christ, amen.
 
 
+
+
 #Premortal_Existence

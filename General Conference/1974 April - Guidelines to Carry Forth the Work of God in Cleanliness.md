@@ -203,4 +203,6 @@ Eternal life is our goal. It can be reached only by following the path our Lord 
 I know this is true and right. I love our Heavenly Father and I love his Son, and I am proud to be even a weak vessel to push forward their great eternal work. I testify to all this humbly, sincerely, in the name of Jesus Christ. Amen.
 
 
+
+
 #Abortion #Loyalty #Marriage #Morality

@@ -75,4 +75,6 @@ Then the Prophet Wilford Woodruff said: “When the Savior comes, a thousand yea
 I close my remarks today with my faith that the Lord knows what he is doing and he has prepared a plan so that those who have gone before will not suffer. I therefore conclude with the words of the apostle Paul, who was caught up into the third heaven and paradise of God, and he saw things he was not permitted to write. But he did say: “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].) That is my faith in my God, and I leave you my blessing in the name of the Lord, Jesus Christ. Amen.
 
 
+
+
 #Death #Jesus_Christ

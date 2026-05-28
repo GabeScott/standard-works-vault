@@ -45,4 +45,6 @@ Brethren, this has been a glorious evening for us here to all meet together. We 
 Brethren, we’ve heard some wonderful messages here tonight. May the Lord bless us that we will ponder them and think them through and receive them into our souls, that we may carry on this great work that the Lord has given to us. The Lord also lives. The Savior of the world does live. He has a program for us. He has made it known to us that our Liahonas won’t work if we live so that they cannot be depended upon. We may not understand fully all the things the Lord tells us to do, but my faith and prayer is that we *will,* and that we will give serious consideration to all the things that we are hearing in this conference from the brethren who lead us. May the Lord bless us, brethren. May peace be with us and joy and comfort, and I offer this in the name of Jesus Christ. Amen.
 
 
+
+
 #Holy_Ghost #Spirituality

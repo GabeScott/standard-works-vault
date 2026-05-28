@@ -91,4 +91,6 @@ I leave you my witness, my testimony, that the gospel is true, that God lives, t
 May we live the principles of the gospel. May we use our time effectively, all of the time that we have, I humbly pray as I leave you my love and my witness of the truthfulness of this work in the name of our Lord and Savior Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Love #Missionary_Work #Obedience #Service

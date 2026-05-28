@@ -49,4 +49,6 @@ According to “The Family: A Proclamation to the World,” the principles I hav
 God bless you wonderful mothers and fathers in Zion. He has entrusted to your care His eternal children. As parents we partner, even join, with God in bringing to pass His work and glory among His children. It is our sacred duty to do our very best. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Home #Motherhood #Teaching

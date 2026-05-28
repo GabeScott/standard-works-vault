@@ -59,4 +59,6 @@ There are many, many examples of those who have received blessings through conti
 May the Lord bless each of us with the strength, courage, and faith to continue what we commence in righteousness. I testify to you that God lives. May we each follow the counsel of the Lord to continue in righteousness ourselves, in the name of Jesus Christ. Amen.
 
 
+
+
 #Commitment #Endurance

@@ -73,4 +73,6 @@ When I saw in my mind my grandmother rushing to my mother, I felt joy for them a
 I testify that our Heavenly Father answers the pleadings of faithful parents to know how to teach their children to pray. I testify that because of the Atonement of Jesus Christ, we can have eternal life in families if we honor the covenants offered in this, His true Church. I so testify as His servant in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Children #Conscience #Faith #Forgiveness #Gratitude #Holy_Ghost #Jesus_Christ #Parenthood #Prayer #Service #Sin

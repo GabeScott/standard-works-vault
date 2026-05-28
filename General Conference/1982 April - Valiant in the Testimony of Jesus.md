@@ -81,4 +81,6 @@ My appeal to all members of the Church is to be valiant—true and loyal, “Tru
 I bear testimony that this is the Church of Jesus Christ. He presides over it and is close to His servants. God bless us all to be valiant in our testimony of Him, I pray. In the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Obedience

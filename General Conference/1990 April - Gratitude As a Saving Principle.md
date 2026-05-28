@@ -75,4 +75,6 @@ The descendants of these pioneers can partially settle the account by being true
 As with all commandments, gratitude is a description of a successful mode of living. The thankful heart opens our eyes to a multitude of blessings that continually surround us. President J. Reuben Clark said, “Hold fast to the blessings which God has provided for you. Yours is not the task to gain them, they are here; yours is the part of cherishing them” (*Church News,* 14 June 1969, p. 2). As we come to the close of this great conference, I hope that we may cultivate grateful hearts so that we may cherish the multitude of blessings that God has so graciously bestowed. May we openly express such gratitude to our Heavenly Father and our fellowmen, I pray in the sacred name of the Lord Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Gratitude #Pioneers #Service

@@ -97,4 +97,6 @@ The Lord’s work needs the very best you are capable of providing. Now is the t
 God bless you, my brethren of the priesthood, with faith and testimony and a love for him and his great and sacred work. You know it is true, and I know it is true, and together we so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Leadership #Missionary_Work #Tithing

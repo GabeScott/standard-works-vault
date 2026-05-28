@@ -65,4 +65,6 @@ I have a firm conviction, my brethren and sisters, to the truths of the gospel o
 I bear witness to you of these things. I know that we must be Christlike in all of our relationships with our fellowmen. If so, we will be exemplary and will be fit servants of the Lord and Savior, Jesus Christ. This I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Honesty

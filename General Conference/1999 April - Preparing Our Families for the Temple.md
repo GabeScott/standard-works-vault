@@ -69,4 +69,6 @@ We plead with you mothers and fathers to teach your sons and daughters the meani
 Brothers and sisters, as servants of the living God, we shall press forward in this sacred temple work. May we teach our children that as they spiritually prepare themselves for the temple, they may stand in the presence of the Lord, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Covenants #Parenthood #Preparation #Satan #Spirituality #Teaching #Temple_Work #Temples

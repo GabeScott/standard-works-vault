@@ -66,4 +66,6 @@ In conclusion, I share the conviction that has come to me from many letters and 
 [^1]: “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” in Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 91–92.
 
 
+
+
 #Atonement #Death #Family #Marriage #Plan_Of_Salvation #Premortal_Existence #Resurrection

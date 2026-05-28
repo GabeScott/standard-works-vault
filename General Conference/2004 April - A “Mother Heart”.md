@@ -31,4 +31,6 @@ Covenant-keeping women with mother hearts know that whether motherhood comes ear
 Every girl and woman who makes and keeps sacred covenants can have a mother heart. There is no limit to what a woman with a mother heart can accomplish. Righteous women have changed the course of history and will continue to do so, and their influence will spread and grow exponentially throughout the eternities. How grateful I am to the Lord for trusting women with the divine mission of motherhood. Like Mother Eve, I am “glad” (see [[Moses 5.11|Moses 5:11]]) to know these things. In the name of Jesus Christ, amen.
 
 
+
+
 #Children #Covenants #Motherhood #Testimony #Women

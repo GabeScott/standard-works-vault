@@ -75,4 +75,6 @@ As I sat next to her, she discerned in my eyes that I knew our assignment. She s
 So also must our Father in Heaven feel joy when we follow the living prophets with willing hearts. I testify Jesus the Christ lives. He speaks to prophets in our day. May we follow our living prophets without murmuring, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Attitude #Contention #Obedience #Prophets #Satan

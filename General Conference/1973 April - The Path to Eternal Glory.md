@@ -101,4 +101,6 @@ Now, brothers, sisters, and friends, I know that God lives. I know that Jesus is
 May God bless and guide us aright; may we be blessed with the spiritual strength to close the door to all temptations of evil and walk uprightly before the Lord, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Obedience #Spirituality

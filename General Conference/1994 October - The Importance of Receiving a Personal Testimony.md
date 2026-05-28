@@ -89,4 +89,6 @@ We also know, beloved brothers and sisters, that if we do not continue faithful 
 To the other testimonies borne this day, I wish to add my own testimony in the strongest and most direct manner possible. I know that God lives. I bear witness to the reality and divinity of his Son, Jesus Christ, who leads this church, and who reveals the word of the Father to our generation. I bear my testimony to the gift and power of the Holy Ghost, the eternal nature of the priesthood, the calling of the Prophet Joseph Smith, the Book of Mormon, and the assurance that God has again spoken through a living prophet in President Howard W. Hunter, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Joseph_Smith #Obedience #Prayer #Prophets #Service #Testimony

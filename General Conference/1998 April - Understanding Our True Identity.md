@@ -35,4 +35,6 @@ Martha Milanes, a Young Women leader from Colombia, wrote: “Our temple will so
 Thank you, young women, for all you offer. As you continue to enjoy this worldwide celebration, you will feel strengthened by the power of the Spirit. As you pray and read your scriptures and keep the commandments, the Holy Ghost will whisper to you that you belong to Heavenly Father’s royal family and that He loves you very much. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Family #Family_History #Jesus_Christ #Temples #Women #Youth

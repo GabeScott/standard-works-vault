@@ -97,4 +97,6 @@ I bear you my solemn witness as an ambassador of the Lord Jesus Christ that we h
 May God help us to share the marvelous truths that have come to us in this dispensation through the restoration of the gospel and our knowledge of the holy scriptures, I pray, and leave you my love and blessing, in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Prophecy #Restoration #Scriptures

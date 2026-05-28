@@ -101,4 +101,6 @@ We, too, can experience this same miracle when we, with hand and heart, as did t
 May we succor the weak, lift up the hands which hang down, and strengthen the feeble knees, thereby inheriting that eternal life promised by the Redeemer, I pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Love

@@ -132,4 +132,6 @@ That each of us may hear the call of the Master and straightway leave our entang
 [^9]: [[John 14.6|John 14:6]].
 
 
+
+
 #Discipleship #Jesus_Christ #Obedience #Sacrifice #Temptation

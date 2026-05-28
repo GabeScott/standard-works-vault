@@ -43,4 +43,6 @@ My brothers and sisters, there will yet be perilous and challenging times ahead.
 I leave you my special witness of the reality of our Father in Heaven, that Jesus is the Christ, the Savior of all who will come unto him, and that his chosen prophets do walk the earth today. In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Home #Leadership #Priesthood #Prophecy #Prophets #Unity

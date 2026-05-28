@@ -139,4 +139,6 @@ In some measure I begin to understand the import of the declaration of Moses, wh
 But through the lights and shadows of my life, I also have the assurance that aided by God’s holy power, doubts can be resolved into certainties, burdens can be lightened, and a literal rebirth can be realized as the nearness to my Lord and Master becomes more certain—to all of which I bear humble witness in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Agency #Conscience #Standards

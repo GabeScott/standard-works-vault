@@ -77,4 +77,6 @@ Wise undershepherds, in helping others to partake of the bread of life and the l
 May we all love, care for, and serve each other that all may receive the bread of life and the living water and be perfected in Christ is my prayer in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Spirituality

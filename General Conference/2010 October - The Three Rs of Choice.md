@@ -114,4 +114,6 @@ My beloved brethren, may we be filled with gratitude for the *right* of choice, 
 [^14]: [[Isaiah 52.11|Isaiah 52:11]].
 
 
+
+
 #Accountability #Agency

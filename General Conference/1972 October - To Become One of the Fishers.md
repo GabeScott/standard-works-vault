@@ -29,4 +29,6 @@ I express appreciation to all the host of people who have blessed my life, those
 Now as a humble follower of the divine Master, I bear witness to the divinity of him as the Savior of the world, and of his church as established in these days, now headed by President Harold B. Lee, in the name of Jesus Christ. Amen.
 
 
+
+
 #Gratitude #Humility #Obedience

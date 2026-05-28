@@ -53,4 +53,6 @@ When we begin to really sense that this hope is real and is actually centered in
 How grateful I am, in these perilous times, for the protection and guidance given to us by the sacred assurance that Jesus Christ lives today, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Prophets #Testimony

@@ -48,4 +48,6 @@ As we faithfully pay our tithes, the Lord will indeed open the windows of heaven
 [^5]: John A. Widtsoe, in “Tithing Testimonies of Our Leaders,” *Deseret News,* May 16, 1936, Church Section, 5.
 
 
+
+
 #Blessings #Obedience #Tithing

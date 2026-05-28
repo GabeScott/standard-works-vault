@@ -43,4 +43,6 @@ I say again: Come and join with us. Come and be clean. Come and be happy. Come a
 This is the work of the Lord. Our Father in Heaven lives, and His Son, Jesus Christ, leads and directs this work today. Of this I testify, in the name of Jesus Christ, amen.
 
 
+
+
 #Joy #Missionary_Work #Service

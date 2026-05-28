@@ -84,4 +84,6 @@ Thousands of young women writing messages of love and hope sharing the gospel of
 With daily prayer, scripture study, and our feet firmly planted on the road to the celestial kingdom, we have a “perfect brightness of hope” ([[2 Nephi 31.20|2 Ne. 31:20]]). There will be some steep climbs ahead, but our Lord and Savior Jesus Christ has covenanted and promised to climb with each of us every step of the way. Think of it! Young women, covenant this day, this very day, if you haven’t already, to plant your feet firmly on the path to the celestial kingdom. Lift up your heart, lift up your heart, and let your soul rejoice, and never, never, never give up. In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Hope

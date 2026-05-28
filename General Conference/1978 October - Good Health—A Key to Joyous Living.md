@@ -61,4 +61,6 @@ In summary, our physical health goals should be—
 May the application of these principles help each of us live joyously, I pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Health

@@ -61,4 +61,6 @@ Believe in the Savior. He loves you, and I testify that He will not leave you al
 I believe that each one of you has the power to change the world. Believe in yourselves. Believe that you are never alone. Believe that you will be guided. In the name of Jesus Christ, amen.
 
 
+
+
 #Endurance #Prayer #Scripture_Study #Trust

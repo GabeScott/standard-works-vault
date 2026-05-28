@@ -93,4 +93,6 @@ The Prophet Joseph Smith, in answer to a query about this remarkable organizatio
 I am a living witness of our Eternal Heavenly Father’s love and mercy. He lives as does His Son, our Savior. This is His holy work, I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Honesty #Morality #Preparation #Priesthood #Temptation

@@ -84,4 +84,6 @@ May God bless each of you, my dear sisters, for all you are and all you do. May 
 [^8]: As told by Erma Adams Kunzler, former missionary in Portugal.
 
 
+
+
 #Adversity #Councils #Jesus_Christ #Prayer #Relief_Society #Service #Spirituality #Women

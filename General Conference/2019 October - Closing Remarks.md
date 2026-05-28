@@ -94,4 +94,6 @@ I so bless you, reaffirming my love for you, with my testimony that God lives! J
 [^3]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng&id=p23#p23) (2007), 142.
 
 
+
+
 #First_Vision #Restoration #Temples

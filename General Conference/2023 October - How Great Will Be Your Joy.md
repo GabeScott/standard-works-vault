@@ -134,4 +134,6 @@ I also promise that as you serve, you will feel the love of the Lord in your lif
 [^30]: [[Jude 1.2|Jude 1:2]].
 
 
+
+
 #Gathering #Joy #Missionary_Work #Senior_Missionaries #Service

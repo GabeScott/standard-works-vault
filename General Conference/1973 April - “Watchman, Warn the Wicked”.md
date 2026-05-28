@@ -141,4 +141,6 @@ Yes, it is in our own enlightened self-interest to engage in this simple practic
 God help us, as free men, to recognize the source of our blessings, the threat to our freedom and our moral and spiritual standards, and the need for humble, yet courageous, action to preserve these priceless, time-tested blessings, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Freedom #Patriotism #Prayer #Standards #Youth

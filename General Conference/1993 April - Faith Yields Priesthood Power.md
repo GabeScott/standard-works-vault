@@ -91,4 +91,6 @@ Perhaps it is time that we humble ourselves and overcome the obstacles to faith,
 So, brethren, let’s plead fervently with the Lord as the Apostles of old did: “Lord, Increase our faith” ([[Luke 17.5|Luke 17:5]]). Then let’s use our increased faith as the primary power source in all our callings. In the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Priesthood

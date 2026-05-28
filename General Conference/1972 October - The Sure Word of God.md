@@ -131,4 +131,6 @@ I want you to know I was there. I wouldn’t know any more surely if I had been 
 I want you to know that I have had burned into my soul like nothing else in my life the knowledge that President Harold B. Lee is a prophet. I so testify and admonish you to read the scriptures, to go back to the sure word of God. In the name of Jesus Christ. Amen.
 
 
+
+
 #Faith #Scriptures #Testimony #Youth

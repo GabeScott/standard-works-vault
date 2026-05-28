@@ -83,4 +83,6 @@ Again James reminds us, “The fruit of righteousness is sown in peace of them t
 May God help us individually and collectively to know and teach that bashing should be replaced with charity today and always, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Criticism #Forgiveness

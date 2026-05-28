@@ -69,4 +69,6 @@ Brethren, I have spoken plainly to you regarding your responsibility as holders 
 I testify that this is what the Lord would have the brethren of the priesthood receive at this time. May you be blessed in your efforts to be righteous husbands and fathers, I pray as I bear solemn witness of the truthfulness of that which has been spoken this evening and do so in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Abuse #Family #Fatherhood #Marriage #Morality #Motherhood #Priesthood

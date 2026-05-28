@@ -87,4 +87,6 @@ We must learn, before it is too late, the truth spoken by Elder Richard L. Evans
 I was reared in a home of wise, loving, and responsible parents. I was reared in a home where a sweet mother was always awake when I came home, like Brother Dunn’s parents. There was always an opportunity to report and to talk. These sessions are some of my choicest memories. In that home was nurtured the testimony that I bear you today. I know that God lives; that Jesus is the Christ, our Savior and our Redeemer. I know that Joseph Smith was a prophet of God. I know that President Joseph Fielding Smith is a living prophet today, with the keys of the kingdom. I know that if we will follow the counsel we have been given in this conference, our homes will be better, our service more effective, and our joy more full. In the name of Jesus Christ. Amen.
 
 
+
+
 #Home #Parenthood

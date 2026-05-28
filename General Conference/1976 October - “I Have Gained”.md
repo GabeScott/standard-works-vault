@@ -65,4 +65,6 @@ This is the church of Jesus Christ. I mean by that that it belongs to him. He re
 I pray that we all may satisfy them with our work from now on, in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Quorums_Of_Seventy #Service #Testimony

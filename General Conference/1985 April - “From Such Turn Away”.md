@@ -145,4 +145,6 @@ I bear witness, brethren and sisters, that the leaders of the Church were called
 I sustain President Spencer W. Kimball as the prophet of God. I know that he is the prophet of God. I know that Jesus is the Christ, the Son of God, and by His order, and in His order, is the Church moved forward in our generation. In the name of Jesus Christ, amen.
 
 
+
+
 #Authority #Priesthood

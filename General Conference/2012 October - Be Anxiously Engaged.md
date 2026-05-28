@@ -83,4 +83,6 @@ It is my humble prayer, brothers and sisters, that we will ask in our daily pray
 This is God’s work. May we be about it as faithfully as the dedicated little honeybees go about theirs, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Discipleship #Service #Work

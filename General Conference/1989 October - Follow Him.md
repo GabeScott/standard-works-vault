@@ -79,4 +79,6 @@ The final words of the song we are about to hear from this magnificent choir tel
 Just as food satisfies our physical hunger, we can partake with satisfaction and delight in all the Father has for us as we, living like his Son, feast at the table of the Lord. Of these things I testify, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Obedience #Plan_Of_Salvation #Spirituality #Women #Youth

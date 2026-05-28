@@ -94,4 +94,6 @@ If you and your loved ones keep and live the commandments of God, following the 
 May this be your lot with you and your families, I humbly pray in the name of Jesus Christ, our Savior. Amen.
 
 
+
+
 #Commandments #Home #Satan

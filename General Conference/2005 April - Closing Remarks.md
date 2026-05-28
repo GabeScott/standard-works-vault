@@ -43,4 +43,6 @@ Now, as we leave for our homes, I invoke the blessings of heaven upon you. Be fa
 God bless you, my beloved brothers and sisters. Peace be with you now and always is my humble prayer in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Faith #Service #Temple_Work #Truth

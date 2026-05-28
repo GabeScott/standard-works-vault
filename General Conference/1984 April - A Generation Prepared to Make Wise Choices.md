@@ -41,4 +41,6 @@ Those of you who are gathered here in this historic Tabernacle or tuned into the
 I love the gospel. I love the Lord. I am grateful that there is not a doubt in my mind that these men here are his special servants. I am happy to have served in whatever way I have. And I am grateful that there are people like you who will take up the concerns that we have had, who will prepare these young ones, who are so precious. In the name of Jesus Christ, amen.
 
 
+
+
 #Youth

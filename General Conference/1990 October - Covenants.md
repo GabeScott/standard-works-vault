@@ -120,4 +120,6 @@ God bless you who are struggling to resist or to free yourself from these terrib
 [^*]: See [[Genesis 13.13|Gen. 13:13]] (footnote 13*b*); [[Genesis 18.20|18:20–22]][[Genesis 18.21|]][[Genesis 18.22|]] (footnote 20*b*); [[Genesis 19.4|19:4–9]][[Genesis 19.5|]][[Genesis 19.6|]][[Genesis 19.7|]][[Genesis 19.8|]][[Genesis 19.9|]] (footnote 5*a*); [[JST Genesis 19.9|JST, Gen. 19:9–15]][[JST Genesis 19.10|]][[JST Genesis 19.11|]][[JST Genesis 19.12|]][[JST Genesis 19.13|]][[JST Genesis 19.14|]][[JST Genesis 19.15|]]; [[Leviticus 18.22|Lev. 18:22, 29]][[Leviticus 18.29|]]; [[Leviticus 20.13|20:13]] (footnote 13*a*); [[Deuteronomy 23.17|Deut. 23:17]] (footnote 17*b*); [[Romans 1.24|Rom. 1:24–27]][[Romans 1.25|]][[Romans 1.26|]][[Romans 1.27|]]; [[1 Corinthians 6.9|1 Cor. 6:9]] (footnotes 9*e*, *f*); [[1 Timothy 1.9|1 Tim. 1:9–10]][[1 Timothy 1.10|]] (footnote 10*b*, *c*).
 
 
+
+
 #Abortion #Agency #Covenants #Morality #Temptation #Word_Of_Wisdom

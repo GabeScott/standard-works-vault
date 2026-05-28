@@ -78,4 +78,6 @@ I now repeat what I said 10 years ago: let us “stand a little taller, … lift
 This, my brothers and sisters, is my invitation to you this morning. I extend my love, my blessing, and my gratitude as we open this great conference. May the Spirit of the Lord direct all that occurs is my humble prayer, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Education #Faith #Gratitude

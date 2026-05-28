@@ -45,4 +45,6 @@ Brethren, as you submit your wills to God, you are giving Him the *only* thing y
 I testify to you that God has known you individually, brethren, for a long, long time (see [[D&C 93.23|D&C 93:23]]). He has loved you for a long, long time. He not only knows the names of all the stars (see [[Psalms 147.4|Psalm 147:4]]; [[Isaiah 40.26|Isaiah 40:26]]), He knows your names and all your heartaches and your joys! By the way, you have never seen an immortal star; they finally expire. But seated by you tonight are immortal individuals—imperfect but who are, nevertheless, “trying to be like Jesus”! In His name, even Jesus Christ, amen.
 
 
+
+
 #Dedication #Fatherhood #Humility #Mercy #Patience #Service

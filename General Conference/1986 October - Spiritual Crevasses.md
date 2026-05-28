@@ -99,4 +99,6 @@ Think of it—one book has been delivered by an angel, and it teaches of your et
 May the Lord bless each of you with your life’s opportunities. Put your trust in Him to avoid the crevasses of sin and evil. Hold on to the lifeline of the gospel. You can make correct choices—the ones you know in your heart will be for your best good. We love you and testify of the truthfulness of the gospel of Christ. In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Priesthood #Satan #Word_Of_Wisdom #Youth

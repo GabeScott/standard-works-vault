@@ -81,4 +81,6 @@ Brethren, young and old, do not be hesitant to ask for a priesthood blessing whe
 This is the true church of our Savior. I testify of the saving mission of Jesus Christ. We are bearers of his priesthood. God bless us to exercise that priesthood under his direction, for the blessing of his children. In the name of Jesus Christ, amen.
 
 
+
+
 #Priesthood

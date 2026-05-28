@@ -83,4 +83,6 @@ I bear my personal witness to you, my brethren and sisters, that President Ezra 
 May God bless each of us with listening ears, to heed the counsel of our new First Presidency, whom we love and sustain with all of our hearts, to the end that our lives will be blessed and the cause of Zion will prosper and expand throughout the world, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Prophets #Spirituality

@@ -79,4 +79,6 @@ Brothers and sisters, a committed person makes goodness look attractive. He buil
 We, too, can resolve this day to declare ourselves, give ourselves, devote ourselves; to commit ourselves to do what *everyone can do.* In the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Commitment

@@ -71,4 +71,6 @@ Perhaps we would consider a man or woman foolish if he or she did not claim a ri
 May each of us attend our meetings regularly, study and ponder the words of God and our prophets diligently, and practice constantly what we have learned. These words I leave with you in the name of our King, Redeemer, and Master Teacher, Jesus Christ, amen.
 
 
+
+
 #Church_Meetings #Scriptures

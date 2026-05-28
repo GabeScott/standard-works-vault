@@ -91,4 +91,6 @@ We see an increased velocity in temple building in the Church and an increased a
 You can feel the urgency of this work in the air. You can see the hastening hand of the Lord at work. You can sense the necessity to get on with this work. I feel I must teach it wherever I go so that member and nonmember alike may search for that knowledge, which is neither cryptic nor hidden to those who know and love the Lord. This is my testimony in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Missionary_Work #Plan_Of_Salvation

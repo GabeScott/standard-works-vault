@@ -29,4 +29,6 @@ There are in every ward and branch many families without the priesthood. In thes
 There is a way for each ward through councils to reach out to all these men and women and their families and to open the roads to the temple for them. How else will we or they receive exaltation or cope with the challenges that lie ahead? May I make an appeal to the bishops and branch presidents, to Melchizedek Priesthood quorums, to the ward and branch councils to establish a high priority to reach out to these families in a prayerful, thoughtful way. Christ’s Church will rise to its full stature when these families are brought safely under the mantle of the priesthood. Of Him and of His great work I testify in the holy name of Jesus Christ, amen.
 
 
+
+
 #Councils #Family #Home #Morality #Priesthood

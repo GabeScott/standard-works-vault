@@ -140,4 +140,6 @@ I testify and provide my personal apostolic witness that Jesus Christ, the Savio
 [^32]: Russell M. Nelson, “[[2020 April - Opening Message.md|Opening Message]],” 6.
 
 
+
+
 #Adversity #Agency #Contention #Family #Jesus_Christ #Love #Peace #Righteousness

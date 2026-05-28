@@ -85,4 +85,6 @@ More than ever before in my life, I know that Jesus is the Christ. This is his C
 I pray that the world will be a better place because you have lived in it. That is our task, in the name of Jesus Christ, amen.
 
 
+
+
 #Evil #Jesus_Christ #Love #Media #Missionary_Work #Priesthood #Satan #Temples #Temptation #Youth

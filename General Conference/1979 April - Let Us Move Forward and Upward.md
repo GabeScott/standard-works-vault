@@ -121,4 +121,6 @@ Now I should close. I wish to say to you, my brothers and sisters, we love you d
 We ask our Heavenly Father to give you power to extend your blessings to the people in your neighborhood who need them and to take the gospel to areas in the world that need those blessings now. We ask our Heavenly Father to be with you between now and our next conference and from then on. And we say again, Jesus is our light; he is our stay; he is our Savior and he lives; and we bear this testimony in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

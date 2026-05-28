@@ -99,4 +99,6 @@ Their words are my words.
 I bear my witness that the Savior lives. I *know* the Lord. I am His witness. I know of His great sacrifice and eternal love for all of Heavenly Father’s children. I bear my special witness in all humility but with absolute certainty, in the name of Jesus Christ, amen.
 
 
+
+
 #God_The_Father #Holy_Ghost #Jesus_Christ #Parenthood #Testimony #Truth

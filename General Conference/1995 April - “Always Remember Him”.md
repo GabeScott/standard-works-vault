@@ -41,4 +41,6 @@ And if they accept that invitation, they will know what I know: God, our Father,
 And if those who hear will take the Savior’s name upon them and always remember him and keep his commandments, they will finally come to him and he will take them home to his Father and our Father, where we may live forever in families. I testify that is true, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Humility #Jesus_Christ

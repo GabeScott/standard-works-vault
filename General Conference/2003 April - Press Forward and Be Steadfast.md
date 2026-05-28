@@ -45,4 +45,6 @@ There may be some steep hills ahead, but our Lord and Savior, Jesus Christ, has 
 And so I say with Nephi: “Wherefore, ye *must* press forward with a steadfastness in Christ, having a perfect brightness of hope. … Wherefore, if ye shall press forward, … and endure to the end, … thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added). In the name of Jesus Christ, amen.
 
 
+
+
 #Endurance #Holy_Ghost #Hope

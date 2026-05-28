@@ -98,4 +98,6 @@ I testify of the refining, spiritual, comforting, strengthening, and restraining
 [^15]: [[Lamentations 4.12|Lamentations 4:12]].
 
 
+
+
 #Priesthood #Responsibility #Testimony

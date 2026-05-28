@@ -51,4 +51,6 @@ My dear brothers and sisters, many of us have or will soon have nineteen-year-ol
 My beloved brothers and sisters, I pray that the Lord may inspire us to be valiant. That means that we also have the personal courage to go on a rescue mission by sharing the gospel with others, bringing the Holy Ghost into their lives. And I do so humbly in the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work #Service

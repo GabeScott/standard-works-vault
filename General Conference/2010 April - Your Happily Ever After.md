@@ -128,4 +128,6 @@ As an Apostle of the Lord Jesus Christ, I leave you my blessing and give you a p
 [^10]: *Young Women Personal Progress,* 3.
 
 
+
+
 #Adversity #Joy #Obedience #Plan_Of_Salvation

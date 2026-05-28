@@ -115,4 +115,6 @@ As the Presidency of the Young Men of the Church, we challenge you stake preside
 As I was called to be the President of the Young Men of the Church, I was given the “challenge to provide a program which will prepare this generation of youth to meet the Savior when He comes.” I pass that challenge on to all of you, adult leaders and young men, bearing my witness that this generation of youth is a royal generation with very special things to do. May God help all of us to give the time, attention, and tender, loving care we need to give, to prepare these noble young men for the rich adventures and the singular missions that lie ahead of them, I pray in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Priesthood

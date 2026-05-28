@@ -49,4 +49,6 @@ That is the miracle that is taking place.
 Beloved friends and associates, we wish for each of you a safe return to your homes. We invoke the blessings of heaven upon you that there may be peace and love in your homes and in your hearts. Please accept our love. We pray for you. We want you to know that. We know that you pray for us, and we thank you. Accept our testimony, which is the same testimony that each of you can bear, that God our Eternal Father lives, our Father, the ruler and the governor of the universe, to whom we may look and with whom we may speak in prayer. Jesus is the Christ, the Only Begotten of the Father in the flesh, the Son of the living God, who gave his life to atone for the sins of all mankind. These two visited the earth to usher in this, the dispensation of the fulness of times, and conferred upon him who became Prophet great and grand keys which are the bedrock of this work. Such is our faith, such is our witness, such is our testimony, in the name of Jesus Christ, amen.
 
 
+
+
 #Ezra_Taft_Benson #Jesus_Christ #Testimony

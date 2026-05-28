@@ -119,4 +119,6 @@ Great has been our past, wonderful is our present, glorious can be our future.
 We have glimpsed the future, we know the way, we have the truth. God help us to move forward to become a great and mighty people spread over the earth, counted in the millions, but all of one faith and of one testimony and of one conviction, I humbly pray in the name of our great Redeemer and Savior, even Jesus Christ, amen.
 
 
+
+
 #Abuse #Church_Growth #Commandments #Family #Fellowshipping #Home #Jesus_Christ #Love #Missionary_Work #Obedience #Peace #Pioneers #Sabbath #Temples #Tithing #Welfare #Word_Of_Wisdom

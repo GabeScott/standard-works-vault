@@ -59,4 +59,6 @@ And I pray that the Lord’s purposes on earth, both in and out of the Church, m
 I say this in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Atonement #Church_Doctrine #Plan_Of_Salvation #Restoration

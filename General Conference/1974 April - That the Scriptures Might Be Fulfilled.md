@@ -76,4 +76,6 @@ I desire to include a prayer for President Spencer W. Kimball as I close these r
 In the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Prophecy

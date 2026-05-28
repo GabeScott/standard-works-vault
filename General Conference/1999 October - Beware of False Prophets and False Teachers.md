@@ -87,4 +87,6 @@ Let us remember that it is our duty to be faithful to the restored truths of the
 I know that God lives. Jesus is the Christ. The restored gospel is true, and there is great joy in being anxiously engaged in this true and holy work. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #False_Doctrines #Friendship #Jesus_Christ #Joy #Morality #Pride #Priesthood #Prophets #Satan #Truth

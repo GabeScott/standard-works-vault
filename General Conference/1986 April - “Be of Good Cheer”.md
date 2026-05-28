@@ -81,4 +81,6 @@ He promises to stand by us. He invites us to bear record and witness of him. Wha
 To all mankind everywhere I cheerfully testify that our Lord and Savior Jesus Christ is our Redeemer. He will sustain us now and forever if we will walk in his paths, be of good cheer, and not fear. In the name of Jesus Christ, amen.
 
 
+
+
 #Joy

@@ -95,4 +95,6 @@ I reverence the Constitution of the United States as a sacred document. To me it
 May God bless us to protect this sacred instrument. In the words of the Prophet Joseph Smith, “May those principles, which were so honorably and nobly defended, namely, the Constitution of our land, by our fathers, be established forever.” ([[D&C 109.54|D&C 109:54]].) For this I pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #U.S._Constitution

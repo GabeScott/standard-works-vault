@@ -57,4 +57,6 @@ It is my hope that each of us will experience a spiritual revival as we become m
 While the world is in commotion, the kingdom is intact. We are living in the greatest and most exciting part of our dispensation since the Restoration itself. We plead with everyone to become active participants in building the kingdom. This is the hour of our opportunity, to which I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Commitment #Obedience #Testimony

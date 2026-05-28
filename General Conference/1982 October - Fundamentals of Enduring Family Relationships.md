@@ -123,4 +123,6 @@ Thank God for the joys of family life. I have often said there can be no genuine
 God bless us to strengthen our homes with love and unity and by following his precepts, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Marriage

@@ -73,4 +73,6 @@ Truly, “the kingdom of heaven is like unto a merchant man, seeking goodly pear
 I testify that Jesus is the Christ and that he is the author of the restored gospel, the plan of life and salvation, in the name of Jesus Christ. Amen.
 
 
+
+
 #Plan_Of_Salvation

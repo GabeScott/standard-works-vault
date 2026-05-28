@@ -168,4 +168,6 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 [^47]: [[Matthew 26.42|Matthew 26:42]].
 
 
+
+
 #Adversity #Endurance #Faith #Hope #Opposition #Patience #Trust

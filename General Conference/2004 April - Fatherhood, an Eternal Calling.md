@@ -120,4 +120,6 @@ May we heed the voice of the prophets, who, from the beginning of time, have war
 [^15]: Joseph F. Smith, “The Rights of Fatherhood,” *Juvenile Instructor,* Mar. 1, 1902, 146.
 
 
+
+
 #Family #Fatherhood #Leadership #Marriage #Teaching

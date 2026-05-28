@@ -113,4 +113,6 @@ Let us go forth with our personal testimonies, to which I wish to add mine, that
 God be with you and bless you as we go forth to carry out our assignments, whatever they are, I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Peace

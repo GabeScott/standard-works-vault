@@ -98,4 +98,6 @@ Of these truths and that God is in the heavens, that Jesus is the Christ, and of
 [^13]: [[Amos 3.7|Amos 3:7]].
 
 
+
+
 #Obedience #Prophets

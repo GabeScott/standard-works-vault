@@ -93,4 +93,6 @@ I bear my witness to you that as one accepts the restored gospel of Jesus Christ
 Yes, one of the great differences between The Church of Jesus Christ of Latter-day Saints and any other church is that the worthy members may enjoy the continuing power and gifts of the Holy Ghost. May we all seek these gifts and be worthy of them, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Holy_Ghost

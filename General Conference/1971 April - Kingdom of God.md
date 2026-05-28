@@ -59,4 +59,6 @@ I urge every Latter-day Saint to remember these two great prophecies. They have 
 To those not yet members of the Church, I ask you to examine your own hearts. You will recognize that what I have said about these two great prophecies does have a familiar ring! These prophecies are going into complete fulfillment even now. Before your very eyes the plans of the Lord are being revealed to you, if you will only open your eyes and observe what is happening about you. Waste no more time in speculation and questioning, but investigate these principles more closely and you will know for yourselves the truth of what I have spoken. Come join with us in serving the only true and living God, and qualify yourselves to receive those great blessings which God has reserved for you in these last days. You too can become a savior on Mount Zion for your family and friends, as that stone cut out of the mountain without hands rolls forth to fill the whole earth. That the kingdom of God is now in process of expanding under the leadership of true prophets of God, I testify in the name of Jesus Christ. Amen.
 
 
+
+
 #Plan_Of_Salvation #Restoration #Temple_Work

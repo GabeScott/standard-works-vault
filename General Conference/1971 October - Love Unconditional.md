@@ -59,4 +59,6 @@ I went to the funeral of my cousin a few weeks ago, and I pass on to you somethi
 God bless us to love them, to accept them, to give to them what they need in order that they may be what they want to be and give what they want to give, I pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Love #Parenthood #Youth

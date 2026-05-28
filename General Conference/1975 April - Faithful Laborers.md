@@ -77,4 +77,6 @@ As members of the Church, I wonder how convincing we would be in telling someone
 Is it not time that we listen to a prophet’s voice? Is it not time that we lengthen our stride? Is it not time that we teach the gospel of the kingdom to the world, to our neighbor? In the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work

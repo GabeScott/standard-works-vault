@@ -181,4 +181,6 @@ And then, with that grace or enabling power of God, we might thereby obtain char
 May that gift, even charity, be ours. May we give of ourselves to the spiritually needy the spiritual gifts Christ gave. I know of no greater joy that can come to man than “the soul that repenteth.” (See [[D&C 18.13|D&C 18:13–16]][[D&C 18.14|]][[D&C 18.15|]][[D&C 18.16|]].) May the Lord bless us to learn how to bring men to Christ, and, in the process, *find Him ourselves,* I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Home_Teaching #Responsibility #Teaching

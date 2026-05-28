@@ -119,4 +119,6 @@ If we are to win, we cannot have soldiers AWOL. We must not have deserters. We n
 Let us remember also that every disloyal person weakens our army, and pray that we will not be that person. This is the work of the Lord in which we are engaged. This is his church and kingdom here upon the earth. We are being led by the Lord through our president and prophet, Spencer W. Kimball. May we follow our leader, honor the priesthood, magnify the callings which we have been given, and prove ourselves worthy in every way, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Covenants #Priesthood #Standards

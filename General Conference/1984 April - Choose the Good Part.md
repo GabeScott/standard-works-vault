@@ -83,4 +83,6 @@ God bless our valiant women members. You are choice in His and our eyes. We pray
 May God help us to so do, I pray in the worthy name of Jesus Christ, our Redeemer and Friend, amen.
 
 
+
+
 #Single_Members #Women

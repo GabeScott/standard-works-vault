@@ -59,4 +59,6 @@ May each of us engaged in the work of the Lord perform *His* work in *His* way, 
 I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Humility #Leadership #Obedience #Service

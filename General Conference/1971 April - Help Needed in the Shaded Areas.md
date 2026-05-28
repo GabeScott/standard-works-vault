@@ -71,4 +71,6 @@ I have felt the power of the Holy Ghost in my life—in the classroom—in milit
 I testify to you that God lives, that the gospel is true, that this is the true church of Jesus Christ, and that we have a true prophet of God leading us today. In the name of Jesus Christ. Amen.
 
 
+
+
 #Holy_Ghost #Spirituality #Youth

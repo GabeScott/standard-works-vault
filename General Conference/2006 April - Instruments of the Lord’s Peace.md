@@ -90,4 +90,6 @@ In the name of Jesus Christ, amen.
 [^23]: [[2 Peter 1.8|2 Peter 1:8–9]][[2 Peter 1.9|]].
 
 
+
+
 #Peace #Tolerance #Unity

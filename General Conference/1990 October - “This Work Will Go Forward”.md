@@ -23,4 +23,6 @@ Said he: “I love this great work, the greatest work in all the world. I love m
 Such are the words of our beloved leader Ezra Taft Benson. I am confident that I speak for every member of the Church within the sound of my voice when I say to him, “Our dear friend and leader, our President and prophet, we love you. May the blessings of the Lord rest upon you to give you strength according to your need.”
 
 
+
+
 #Faith #Obedience #Prophets #Testimony

@@ -75,4 +75,6 @@ We remind you that where much is given, much is required. We issue the call agai
 May God bless you that this will be your desire as you leave this priesthood session of general conference and start now to prepare yourself for the glorious service which is ahead of you as a missionary of the Lord Jesus Christ. In the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Preparation #Standards #Worthiness

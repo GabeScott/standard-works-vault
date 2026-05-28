@@ -83,4 +83,6 @@ Here, in my opinion, was a successful man. No doubt he had many vicissitudes in 
 And I ask you, brethren, sisters, where would we be, where would you be, where would I be, if it were not for the power of the gospel of Christ? I bear witness to its power and I do so humbly in the name of Jesus Christ. Amen.
 
 
+
+
 #Faith #Ordinances #Repentance #Time_Management

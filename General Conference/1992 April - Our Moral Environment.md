@@ -139,4 +139,6 @@ God grant that we will come to our senses and protect our moral environment from
 And may we have the protection of Him who is our Father and our God, and may we merit the love and blessings of His Son, our Redeemer, in whose name, even the name of Jesus Christ, I bear witness, amen.
 
 
+
+
 #Abuse #Marriage #Morality #Repentance

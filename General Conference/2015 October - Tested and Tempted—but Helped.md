@@ -62,4 +62,6 @@ I bear my testimony of the Savior. Jesus is the Christ, the Son of the living Go
 [^8]: [[Matthew 11.28|Matthew 11:28]].
 
 
+
+
 #Adversity #Atonement #Compassion #Missionary_Work #Service #Temptation

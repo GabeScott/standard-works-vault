@@ -89,4 +89,6 @@ May the Lord bless each one of us to follow the counsel of our prophets. We need
 I know that Jesus Christ lives and that this is his Church. I testify that his gospel will continue to fill the world as it continues to fill the hearts of the individual members of the Church. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Faith #Prophets #Service #Spirituality

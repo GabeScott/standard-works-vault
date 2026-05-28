@@ -91,4 +91,6 @@ Both of these divine statements of instruction—principles of which are so effe
 The only sure way to protect ourselves and our families from the onslaught of the teachings of the world is to commit to live the commandments of God; to attend our Church meetings, where we can learn and be strengthened in our testimonies and partake of the sacrament to renew our covenants; to prepare ourselves to worthily enter the temple, where we may find a refuge from the world and a place of renewal of our capacity to cope with the evils of the world. I so declare to you as I leave you my witness and testimony, in the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Obedience

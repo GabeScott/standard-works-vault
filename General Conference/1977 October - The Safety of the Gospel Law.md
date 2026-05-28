@@ -96,4 +96,6 @@ The great overriding theme contained in the Book of Mormon, which holds the law 
 May God bless you in your thoughts and actions, that they may ever be in tune with this holy law, I pray in the name of him who sitteth upon the throne and governeth and executeth all things, even Jesus Christ. Amen.
 
 
+
+
 #Laws #Obedience

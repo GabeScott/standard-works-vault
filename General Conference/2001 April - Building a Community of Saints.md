@@ -93,4 +93,6 @@ May God grant unto us the desire to live closer to Him so we may enjoy the bless
 Historical information is from *Church History in the Fulness of Times,* 2nd ed. (Church Educational System manual, 2000), 193–223.
 
 
+
+
 #Children #Church_History #Church_Membership #Education #Faith #Family #Fasting #Generosity #Home #Kindness #Love #Missionary_Work #Parents #Self-Reliance #Teaching #Temple_Work #Unity #Welfare #Work

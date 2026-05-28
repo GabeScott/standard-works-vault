@@ -93,4 +93,6 @@ We can be like a mirror and direct light even into dark places. We are not the s
 I must return and report my stewardship and *my words* in the heavens when I leave this mortal life. Therefore, I testify with no hesitancy that God lives. Jesus is his holy Son, the One through whom we gain salvation. This is his Church and kingdom, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Hope #Jesus_Christ #Obedience #Testimony

@@ -75,4 +75,6 @@ I do not know how our Savior actually performs the sanctifying miracle of the At
 I bear my solemn witness that full acceptance of the Atonement, with the saving ordinances of the gospel, changes lives. Through Jesus Christ, the Lord of Life, we can be raised from a death of error and sin to a spiritual rebirth of hope and eternal joy. He lives. He loves us. He pleads with us to come unto Him and find peace. That we may do so is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Conversion #Jesus_Christ #Repentance

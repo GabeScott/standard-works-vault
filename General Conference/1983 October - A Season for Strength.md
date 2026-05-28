@@ -41,4 +41,6 @@ Whatever your circumstances, this can be your season of strength, because one of
 May the Lord be our light and our salvation, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Women

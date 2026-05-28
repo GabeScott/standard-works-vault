@@ -207,4 +207,6 @@ We began with this question: “What is man that thou art mindful of him?” Chr
 I bear solemn witness that Jesus is the Christ, the Only Begotten of the Father in the flesh; that He is our Redeemer, our Savior; that God is our Father. This we know through the gift of the Holy Ghost. And I humbly but resolutely affirm that we will not, we cannot, stray from this doctrine. On this fundamental truth we will *never* yield! In the name of Jesus Christ, amen.
 
 
+
+
 #Divine_Nature #Family #God_The_Father #Opposition #Scriptures #Truth

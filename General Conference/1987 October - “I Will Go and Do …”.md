@@ -37,4 +37,6 @@ Sister Sorensen and I recently had the opportunity to tour the new Fortaleza Mis
 If I am to be remembered at all by the membership of the Church, I hope it will be in this manner, for I do have a great love for the gospel and for all the members of the Church everywhere. I do not feel at ease sitting in these red, upholstered chairs, but I have a sincere, burning testimony of this work. May the Lord bless me that I may touch the lives of those he loves throughout the Church. May I be guided and directed by him always, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Testimony

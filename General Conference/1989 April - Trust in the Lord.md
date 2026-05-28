@@ -95,4 +95,6 @@ Live to have trust in the Lord. Live to be trusted and helped by Him.
 I testify that the Lord lives. He loves you and will help you. In the name of Jesus Christ, amen.
 
 
+
+
 #Character #Faith #Spirituality

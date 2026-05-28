@@ -83,4 +83,6 @@ May we so live that we may be worthy of these blessings.
 I bear you my witness that I know that God lives and that Jesus is the Christ. And I know that the Prophet Joseph Smith was the instrument in the hands of the Lord in restoring the gospel of Jesus Christ in its fulness as well as the power to act in the name of God. I also bear witness that President Spencer W. Kimball is a prophet of God. May the Lord sustain and magnify him, and may we also sustain him in every way, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Activation #Family #Wealth #Wisdom

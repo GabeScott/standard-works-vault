@@ -45,4 +45,6 @@ We will work together with patience, never losing sight of the great mission giv
 Now I invite you to listen to the Brethren and sisters. All who speak feel the responsibility in so doing. Much of prayer and effort have gone into that which will be said. May our faith be increased in the great, salient underpinnings of our doctrine and our practice as members of this great Church of Jesus Christ of Latter-day Saints, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Church_Growth #Family #Family_History #General_Conference #Media #Temples #Tolerance

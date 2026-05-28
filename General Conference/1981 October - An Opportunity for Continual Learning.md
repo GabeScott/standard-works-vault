@@ -45,4 +45,6 @@ The board member asked us each to describe how we prepared our lessons. I had be
 As we continue to learn, with the Spirit of the Lord as our guide, we prepare for his coming. The Lord declared that when he comes again there will be no need for each one to tell his neighbor that he is the Christ, for all shall know. That we may increase in knowledge and intelligence and be prepared for that glorious event, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Relief_Society

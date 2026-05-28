@@ -65,4 +65,6 @@ I pray that our normality may allow us to experience that state of “never-endi
 My brothers and sisters, I testify of the 15 men whom we sustain as prophets, seers, and revelators, including our beloved prophet, President Russell M. Nelson. I testify that The Church of Jesus Christ of Latter-day Saints is true. I especially testify of Jesus Christ, our Savior and Redeemer, in the name of Jesus Christ, amen.
 
 
+
+
 #Discipleship #Family_History #Prayer #Sacrament #Scripture_Study #Temple_Work #Traditions

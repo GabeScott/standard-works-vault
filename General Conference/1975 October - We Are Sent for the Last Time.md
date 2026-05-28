@@ -37,4 +37,6 @@ I am drawn to the Lord’s words to Joseph Smith and Oliver Cowdery when he said
 I bear solemn witness that this church is true, in the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work

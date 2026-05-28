@@ -53,4 +53,6 @@ Last year when I was called to be the Young Women general president, as I was le
 May this be your goal and heart’s desire. May you be blessed as you strive to remain virtuous is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Morality #Preparation #Virtue

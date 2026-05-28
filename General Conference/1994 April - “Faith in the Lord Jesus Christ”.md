@@ -77,4 +77,6 @@ Most importantly, faith in the Lord Jesus Christ opens the door of salvation and
 I testify that these things are true. I invoke the blessings of Almighty God upon you, my faithful young sisters, as you seek to develop and exercise your faith and trust in the Lord Jesus Christ and as you seek to serve him and keep his commandments, in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Death #Faith #Jesus_Christ #Love #Plan_Of_Salvation #Prayer #Trust #Women

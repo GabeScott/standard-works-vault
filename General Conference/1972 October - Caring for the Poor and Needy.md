@@ -133,4 +133,6 @@ Personally, I sincerely want to understand this law and comply with it, because 
 In the light of these scriptural teachings, it seems to me, brethren, that we should be thankful for our knowledge of the law and that we should faithfully obey it. God help us to do so, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Welfare

@@ -65,4 +65,6 @@ How grateful I am to live in this great and marvelous day when the gospel has be
 I know this is the Church of Jesus Christ. May each of us let the gospel sink deep into our souls so that we love and serve God with full purpose of heart, in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Individual_Worth #Joseph_Smith #Prophets

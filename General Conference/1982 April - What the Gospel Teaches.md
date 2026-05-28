@@ -105,4 +105,6 @@ I said, “My friend, I’d rather let the Apostle Paul answer that question. He
 I think my time is up. God bless you all. I love the Lord. I love his church. I love the Saints. I love them all. God bless you, I pray, and leave you my blessing in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

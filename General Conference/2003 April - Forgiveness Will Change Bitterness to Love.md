@@ -68,4 +68,6 @@ May the seeds of unforgivingness that haunted my neighbors never be allowed to t
 [^6]: [[Colossians 3.13|Colossians 3:13]].
 
 
+
+
 #Anger #Criticism #Family #Forgiveness #Love

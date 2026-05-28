@@ -69,4 +69,6 @@ President Hinckley paid this compliment to you as the Quorum of the Twelve Apost
 Sister Hinckley, you are a wonderful example to all of us. May the Lord continue to bless you with good health and a long, long life. May each of us catch the enthusiastic spirit you have for the gospel of our Lord and Savior, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Family #Home #Marriage #Motherhood #Music #Women

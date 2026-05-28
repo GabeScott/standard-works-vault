@@ -109,4 +109,6 @@ It is so important that all of us understand that we live in the last dispensati
 I testify to the truthfulness of this work and the restoration of the priesthood in these latter days. I promise you that you will be blessed for your faithfulness and declare with the prophet Alma, “I have said these things unto you that I might awaken you to a sense of your duty to God, that ye may walk blameless before him, that ye may walk after the holy order of God” ([[Alma 7.22|Alma 7:22]]). That each Aaronic Priesthood holder will fulfill his duty to God and return with honor to his Heavenly Father is my prayer. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Discipleship #Family #Goals #Holy_Ghost #Jesus_Christ #Priesthood #Responsibility #Satan #Scouting #Scriptures #Service #Temples #Testimony #Young_Women #Youth

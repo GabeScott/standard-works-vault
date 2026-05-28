@@ -122,4 +122,6 @@ May such be the blessing of all, I pray in the name of Jesus Christ, amen.
 [^13]: [[Isaiah 30.21|Isa. 30:21]].
 
 
+
+
 #Children #Education #Family #God_The_Father #Gratitude #Holy_Ghost #Home #Jesus_Christ #Love #Prayer #Sabbath #Scriptures

@@ -65,4 +65,6 @@ I think it truly remarkable that the world still remembers that little baby boy 
 When we think of the magnificence of His gift to us, what small thing could we do for Him and for our Heavenly Father who sent Him? We could stand as witnesses of Their love and teachings at all times, in all things, and in all places. It is my prayer that we will, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Evil #Morality #Temptation

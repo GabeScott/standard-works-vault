@@ -81,4 +81,6 @@ President Smith continued: “Search your hearts, and you will find deep down th
 I pray we may serve our fellowmen and remain unspotted from worldly influences, so that we may be worthy to be considered truly religious and receive the approbation of the Lord, in the name of Jesus Christ. Amen.
 
 
+
+
 #Spirituality

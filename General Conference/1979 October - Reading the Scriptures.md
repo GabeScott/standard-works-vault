@@ -59,4 +59,6 @@ I am grateful for the library of scripture through which a greater knowledge of 
 May the Lord bless us in our study and righteous quest to seek him, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Scripture_Study

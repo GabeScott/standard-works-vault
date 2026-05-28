@@ -81,4 +81,6 @@ As you face your daily challenges, remember this reassurance offered by Elder Je
 On this beautiful Easter weekend, may I extend an invitation that we all pray to recognize and embrace our individual roles as we prepare for the glorious day when the Savior comes again. The Lord loves us more than we can comprehend, and He will answer our prayers! Whether we are on a football field, in a hospital room, or in any other place, we can be an important part of these remarkable events—because this is our time! In the name of Jesus Christ, amen.
 
 
+
+
 #Choices #Individual_Worth #Love #Priesthood_Blessings #Service

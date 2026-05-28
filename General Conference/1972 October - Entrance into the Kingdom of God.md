@@ -117,4 +117,6 @@ I pray that we may do so, and close with this divine commandment: “… let vir
 In the name of Jesus Christ. Amen.
 
 
+
+
 #Obedience #Plan_Of_Salvation #Repentance

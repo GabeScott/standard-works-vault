@@ -39,4 +39,6 @@ My invitation to each of you tonight is to live the gospel to be truly happy, av
 As you accept this invitation, you will reap lasting happiness and build the foundation of your life upon “the rock of our Redeemer,” such that when the shafts of the evil one and the storms of the world assail you, they will, as Helaman taught, have “no power over you to drag you down to the gulf of misery and endless wo, because of the rock upon which ye are built, which is a sure foundation, *a foundation whereon if men build they cannot fall*” ([[Helaman 5.12|Helaman 5:12]]; emphasis added). Of the Lord Jesus Christ I bear my ardent witness: He is the Rock, the one sure foundation for happiness and healing. He lives, has all power in heaven and earth, knows your name, and He loves you. In the sacred name of the Lord Jesus Christ, amen.
 
 
+
+
 #Joy #Plan_Of_Salvation #Repentance #Temptation

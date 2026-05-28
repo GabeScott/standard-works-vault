@@ -101,4 +101,6 @@ Dimitrious reached into his pocket and produced that same belt buckle. The emble
 It has been said, “The greatest gift a man can give a boy is his willingness to share a part of his life with him.” To leaders who build bridges to the hearts of boys, to parents of Scouts, and to Scouts everywhere, on this our 75th anniversary, I salute you and pray our Heavenly Father’s blessings upon you. In the name of Jesus Christ, amen.
 
 
+
+
 #Duty #Scouting

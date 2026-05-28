@@ -121,4 +121,6 @@ In that revelation which is known as the “Olive Leaf,” the Lord stated:
 In conclusion I return to where I started with the dream of a poor boy who was sleeping alone on a mountain and saw a mansion toward which he hurried. Before entering, he stopped to cleanse himself and dress himself in clean garments. He was reproved for being late. He replied, “Yes, but I am clean!” The Prophet Joseph smiled, and Joseph F. Smith, that young missionary, eventually succeeded to the office of prophet and President himself. What a testimony. God bless us to walk with clean hands and pure hearts and be worthy of His smile of approbation, I humbly ask in the name of Jesus Christ, amen.
 
 
+
+
 #Honesty #Joseph_Smith #Morality #Priesthood #Repentance #Temptation #Word_Of_Wisdom #Youth

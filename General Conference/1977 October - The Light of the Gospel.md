@@ -156,4 +156,6 @@ We have the gospel in its fulness. We are continually being warned to walk by th
 May each of us so live that through our works of righteousness, and with the light of Christ in our lives, we may contribute to and see the dawning of a brighter day in a dark and troubled world, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Example #Restoration #Spirituality

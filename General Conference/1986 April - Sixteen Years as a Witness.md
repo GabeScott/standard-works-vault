@@ -27,4 +27,6 @@ As a young man in the mission field over forty years ago, I received a witness o
 As one final word I would say that I came to the position of secretary to the First Presidency sixteen years ago with a full knowledge of the significance of the Church and of the status of its leaders. I have seen nothing in those intervening years that would cause me to question in any respect the doctrines of the Church, the practices of the Church, or most assuredly the integrity of those who head it. I am their witness. I testify that they are honorable, upright, dedicated men of integrity committed to teaching the principles of the gospel, who strive with all of their might to prepare a people ready for the return of the head of the Church, Jesus Christ, at his second coming. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Callings #Prophets

@@ -123,4 +123,6 @@ The Savior declared, “Whether by mine own voice or by the voice of my servants
 With all the energy of my soul, I witness the resurrected and living Christ directs the affairs of His restored and living Church through His servants who have been chosen to bear testimony of His name. I so testify in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Church_Leaders #Church_Organization #Prophets

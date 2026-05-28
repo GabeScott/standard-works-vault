@@ -85,4 +85,6 @@ To carnal men, and even to those among us whose souls are not attuned to the Inf
 Now may I bear a solemn witness, one borne of the Spirit, that these doctrines are true, that the Lord God is raining down righteousness upon his people, and that he will continue to do so until that perfect day when they know all things and become as he is. In the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Spirituality

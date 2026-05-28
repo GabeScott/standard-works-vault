@@ -105,4 +105,6 @@ Please know that we love you. We appreciate you. We have confidence in you, know
 God bless you, I humbly pray, as I bear witness and testimony of these things in the name of Jesus Christ, amen.
 
 
+
+
 #Accountability #Commandments #Joy #Morality #Obedience #Spirituality #Word_Of_Wisdom #Youth

@@ -99,4 +99,6 @@ Yes, I was taught in the ways of my father the gospel of Jesus Christ, taught to
 Brothers and sisters, God lives! Jesus is the Christ, the Son of God, the sure foundation upon which all else is built, for He is the cornerstone. Of this I bear solemn witness to you in the name of Jesus Christ, amen.
 
 
+
+
 #Family

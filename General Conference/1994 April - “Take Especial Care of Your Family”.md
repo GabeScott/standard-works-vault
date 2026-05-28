@@ -116,4 +116,6 @@ Praise be to Jesus for bearing the sins and pains of all â€œthe family of Adamâ€
 [^13]: In Neal A. Maxwell, *That My Family Should Partake* (Salt Lake City: Deseret Book Co., 1974), p. 56.
 
 
+
+
 #Accountability #Authority #Children #Family #Love #Parenthood #Perspective #Priorities #Violence

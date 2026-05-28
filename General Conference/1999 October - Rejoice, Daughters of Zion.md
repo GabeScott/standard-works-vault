@@ -115,4 +115,6 @@ We testify that each of us has a vital role, even a sacred mission to perform as
 It is my humble prayer that each of us will leave this meeting determined to devote our lives to Christ. I promise you that as you do so, you will have every reason to rejoice, for the Lord “will dwell in the midst of thee” ([[Zechariah 2.11|Zech. 2:11]]). This I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Family_Home_Evening #Home #Joy #Literacy #Love #Marriage #Plan_Of_Salvation #Priesthood #Relief_Society #Temptation #Testimony #Women

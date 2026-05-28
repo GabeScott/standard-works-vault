@@ -80,4 +80,6 @@ Just as surely as the sisters knew—who walked along that sandy jungle trail—
 [^14]: [[D&C 123.17|D&C 123:17]].
 
 
+
+
 #Dedication #Faith #Hope #Temple_Work

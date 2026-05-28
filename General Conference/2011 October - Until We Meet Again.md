@@ -45,4 +45,6 @@ May He bless you. May His promised peace be with you now and always.
 I say farewell to you until we meet again in six months’ time, and I do so in the name of Jesus Christ, our Savior and Redeemer, amen.
 
 
+
+
 #General_Conference #God_The_Father #Gratitude

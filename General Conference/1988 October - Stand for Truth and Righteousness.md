@@ -63,4 +63,6 @@ Young women, mothers, leaders, let us all be filled—filled with the light, the
 God is our Father, and we are His daughters. Just think of that! He knows us and loves each one of us. To this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Peer_Pressure #Young_Women

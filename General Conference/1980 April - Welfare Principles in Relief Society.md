@@ -41,4 +41,6 @@ The desire to support the priesthood in this great latter-day work, first seen i
 That we may each fulfill our stewardship and earn this great reward I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Welfare

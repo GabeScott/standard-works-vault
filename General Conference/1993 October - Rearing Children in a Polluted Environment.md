@@ -93,4 +93,6 @@ Jesus is the Christ, and this is his church, which is led by living prophets.
 Of this I sincerely testify in the name of Jesus the Christ, amen.
 
 
+
+
 #Family #Morality #Spirituality

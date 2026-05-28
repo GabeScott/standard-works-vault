@@ -57,4 +57,6 @@ Now to those in your mature years. “Press forward with a steadfastness in Chri
 I bear my testimony that God lives, that Jesus is the Savior, and that the gospel is for every nation, kindred, tongue, and people. In the name of Jesus Christ, amen.
 
 
+
+
 #Elderly #Joy #Parenthood #Youth

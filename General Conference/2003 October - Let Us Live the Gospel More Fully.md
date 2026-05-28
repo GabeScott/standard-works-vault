@@ -44,4 +44,6 @@ As we return to our homes, I pray that in our hearts there will be a resolution 
 [^1]: See Gordon B. Hinckley, *Faith: The Essence of True Religion* (1989), 93.
 
 
+
+
 #Kindness #Love #Respect #Testimony

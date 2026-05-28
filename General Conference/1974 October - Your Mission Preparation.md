@@ -57,4 +57,6 @@ You may make the winning touchdown, cross the finish line first, swish down the 
 I know that God lives. I know that Jesus is the Christ. I know that Joseph Smith was a prophet. I know that President Spencer W. Kimball is the living prophet on the earth today, in the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work #Preparation

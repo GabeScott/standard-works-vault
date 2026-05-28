@@ -86,4 +86,6 @@ I testify that we are sons and daughters of a Heavenly Father, who loves us and 
 I bear my testimony of the love of our Father and Savior. He loved us first and gave His Son so that, through Him, we could be able to come back home. I express my love for Him, my Savior, my Lord, my Master, and my Redeemer, in the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Home #Missionary_Work #Service

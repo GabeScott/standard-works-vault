@@ -89,4 +89,6 @@ Observing the gospel covenants we make with the Lord qualifies us to enter the t
 That the Lord will help all of us to magnify our callings in the priesthood by proving faithful to every covenant and commandment and obligation which rests upon us, the holders of the holy priesthood, I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants

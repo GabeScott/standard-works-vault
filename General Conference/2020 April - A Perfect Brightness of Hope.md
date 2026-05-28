@@ -86,4 +86,6 @@ I give thanks, my brothers and sisters, for all we have been given in this last 
 [^21]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 
+
+
 #Hope #Restoration

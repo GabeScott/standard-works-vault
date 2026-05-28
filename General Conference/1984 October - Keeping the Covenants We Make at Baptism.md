@@ -86,4 +86,6 @@ Each of us who has been baptized has covenanted with the Lord to serve him and k
 I pray that we will have unity and love as we strive together to keep the covenant we have made at baptism, in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Ordinances

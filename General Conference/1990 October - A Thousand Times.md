@@ -85,4 +85,6 @@ When we get emotionally and spiritually involved in helping a person who is in p
 As the last days unfold, we will see all the prophecies fulfilled. We will see today’s problems compounded, and we will see new challenges scarcely imaginable at this time. We must reach out to those who are suffering from these events. We must not become fatalistic or judgmental—even if we warn the people in the world of something a thousand times and they heed us not. In the name of Jesus Christ, amen.
 
 
+
+
 #Compassion #Missionary_Work #Prophets #Service

@@ -10,6 +10,6 @@
 
 (4) [[1 Chronicles 18.16|1 Chr. 18:16]], see *[[BD Abiathar|Abiathar]].*
 
-(5) In title of [[Psalms 34.1|Ps. 34]] same as Achish ([[1 Samuel 21.11|1 Sam. 21:11]]).
+(5) In title of [[Psalms 34.1|Ps. 34]][[Psalms 34.2|]][[Psalms 34.3|]][[Psalms 34.4|]][[Psalms 34.5|]][[Psalms 34.6|]][[Psalms 34.7|]][[Psalms 34.8|]][[Psalms 34.9|]][[Psalms 34.10|]][[Psalms 34.11|]][[Psalms 34.12|]][[Psalms 34.13|]][[Psalms 34.14|]][[Psalms 34.15|]][[Psalms 34.16|]][[Psalms 34.17|]][[Psalms 34.18|]][[Psalms 34.19|]][[Psalms 34.20|]][[Psalms 34.21|]][[Psalms 34.22|]] same as Achish ([[1 Samuel 21.11|1 Sam. 21:11]]).
 
 

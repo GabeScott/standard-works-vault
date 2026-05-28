@@ -105,4 +105,6 @@ Another blessing available through prayer is feeling the love of God in your hea
 As the sons and daughters of a living God, a living Heavenly Father, we should stay close to him by humble prayer. We should stay close to him with a clean life, that our hearts may find peace in all of life’s sacred opportunities and blessings. I so pray in the name of Jesus Christ, amen.
 
 
+
+
 #Prayer

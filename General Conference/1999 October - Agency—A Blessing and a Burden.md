@@ -59,4 +59,6 @@ Acknowledging our tendency to wander in strange roads (see [[1 Nephi 8.32|1 Ne. 
 I close with the prayer of Nephi speaking for you and for me: “O Lord, wilt thou not shut the gates of thy righteousness before me, that I may walk in the path of the low valley, that I may be strict in the plain road” ([[2 Nephi 4.32|2 Ne. 4:32]]), in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Atonement #Commitment #Faith #Holy_Ghost #Opposition #Satan

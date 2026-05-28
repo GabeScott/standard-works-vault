@@ -194,4 +194,6 @@ I offer my testimony and witness to you—God is our Heavenly Father, Jesus Chri
 [^18]: [[D&C 42.17|Doctrine and Covenants 42:17]].
 
 
+
+
 #Faith #Fear #Jesus_Christ #Joseph_Smith #Testimony

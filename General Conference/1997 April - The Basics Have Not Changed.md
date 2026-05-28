@@ -45,4 +45,6 @@ The gospel is true. As I think of the missionary force we have out in the world,
 I leave you my love, my witness, my testimony that this work is true; that President Hinckley, who leads the Church today, is our prophet, seer, and revelator; that he is called by the Lord to preside over the Church. I have watched him closely now for more than 20 years, seeing his ability, his talent, his dedication, and the spiritual impact that he brings to the world as he leads this work. This work is true. It will move forward to fill every corner of the earth. People will have an opportunity to hear with their own ears—to hear someone declare that Jesus is the Christ, the Son of God, which I declare to you. I leave you my love, my witness that this work is true, in the name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Obedience #Pioneers #Priesthood

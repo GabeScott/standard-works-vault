@@ -72,4 +72,6 @@ Dear sisters, may the Lord bless each of you in your personal quest to know *His
 [^9]: *Ensign,* Nov. 1995, 24; emphasis added.
 
 
+
+
 #Agency #Covenants #Faith #Humility #Missionary_Work #Obedience #Scripture_Study

@@ -27,4 +27,6 @@ We are moving into the time spoken of by the Savior that will try men’s souls.
 I love you and want to serve you all I can as long as I live. I want to be worthy to stand with my brethren of the General Authorities and my brethren, laymen in the Church. I don’t think all the good people in the Church are General Authorities. I think your struggles, your service, and your daily lives are a witness which the Lord will accept and bless you for. I bear you this witness and pray that the Lord will bless every man and boy who holds the priesthood, that we will magnify our callings and receive the rewards of faithful servants. And I ask this blessing upon all of you in the name of Jesus Christ, our Redeemer, amen.
 
 
+
+
 #Spirituality

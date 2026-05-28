@@ -80,4 +80,6 @@ Each of us is a runner in the race of life. Comforting is the fact that there ar
 Let us shed any thought of failure. Let us discard any habit that may hinder. Let us seek; let us obtain the prize prepared for all, even exaltation in the celestial kingdom of God. This is my earnest prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Dedication #Fellowshipping

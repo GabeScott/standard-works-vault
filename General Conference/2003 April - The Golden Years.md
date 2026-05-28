@@ -129,4 +129,6 @@ In the hymn “How Firm a Foundation,” which was published in 1835 in the firs
 Keep the fire of your testimony of the restored gospel and your witness of our Redeemer burning so brightly that our children can warm their hands by the fire of your faith. That is what grandfathers and grandmothers are to do! In the name of Jesus Christ, amen.
 
 
+
+
 #Elderly #Example #Family #Wisdom

@@ -111,4 +111,6 @@ It is a *must* that we develop a love for Christ and give full allegiance and se
 May the Lord bless us all in our homes and families as we strive to draw nearer to him and keep his commandments, I humbly pray, my beloved brothers and sisters, in the name of Jesus Christ, amen.
 
 
+
+
 #Home #Obedience #Teaching

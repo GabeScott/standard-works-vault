@@ -67,4 +67,6 @@ Standing at the crest of a century and a half since the organization of the Chur
 I give you my testimony of him. He was the ordained servant of God, this Joseph raised up to become the mighty prophet of this dispensation—“a seer, a translator, a prophet, an apostle of Jesus Christ” ([[D&C 21.1|D&C 21:1]]). To that witness I add another word of testimony, that President Spencer W. Kimball, with us today, is Joseph Smith’s rightful successor, the prophet of our time, the President of the church which was organized here 150 years ago today. Its history has been heroic. It stands today a tower of strength, an anchor of certainty in an unsettled world. Its future is secure as the church and kingdom of God, of which I bear solemn witness in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Joseph_Smith #Restoration

@@ -97,4 +97,6 @@ Now, as this lovely Primary chorus will sing, our task is “trying to be like J
 For the eloquence and for the exquisiteness and the elegance of Christ’s everlasting example of enduring, I express again my public gratitude, my undying gratitude to the Father for the gift of His Son, and I so express it in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Endurance #Faith

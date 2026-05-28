@@ -103,4 +103,6 @@ Thanks be to God for a prophet, for this inspired program, and for Saints who so
 Let us live the gospel fully, and may we recognize the infallibility of God’s inspired word—whether by his “… own voice …” or the “voice of \[his\] my servants, it is the same.” ([[D&C 1.38|D&C 1:38]].) The days ahead are sobering and challenging. Oh, may we be prepared spiritually and temporally, I pray humbly in the name of Jesus Christ. Amen.
 
 
+
+
 #Obedience #Prophecy #Welfare

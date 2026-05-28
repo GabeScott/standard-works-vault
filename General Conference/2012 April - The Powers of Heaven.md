@@ -83,4 +83,6 @@ Tonight I reiterate the teachings of President Thomas S. Monson, who has invited
 I testify the holy priesthood indeed has been restored to the earth in these latter days and is found in The Church of Jesus Christ of Latter-day Saints. I also witness that President Thomas S. Monson is the presiding high priest over the high priesthood of the Church (see [[D&C 107.9|D&C 107:9, 22, 65–66, 91–92]][[D&C 107.22|]][[D&C 107.65|]][[D&C 107.66|]][[D&C 107.91|]][[D&C 107.92|]]) and the only person upon the earth who both holds and is authorized to exercise all priesthood keys. Of these truths I solemnly testify in the sacred name of the Lord Jesus Christ, amen.
 
 
+
+
 #Authority #Fatherhood #Priesthood

@@ -71,4 +71,6 @@ This is not to suggest that our challenges today are more severe than the challe
 This is a great time to live, brothers and sisters, and it is up to us to carry on the rich tradition of devoted commitment that has been the hallmark of previous generations of Latter-day Saints. This is not a time for the spiritually faint of heart. We cannot afford to be superficially righteous. Our testimonies must run deep, with spiritual roots firmly embedded in the rock of revelation. And we must continue to move the work forward as a covenanted, consecrated people, with faith in every footstep, “till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done.” That it may be so for us is my humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Church_History #Missionary_Work

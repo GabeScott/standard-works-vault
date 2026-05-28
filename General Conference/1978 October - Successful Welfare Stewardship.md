@@ -59,4 +59,6 @@ To all who diligently labor, the Lord gives this promise: “And whoso is found 
 My brothers and sisters, the Lord loves you for your devotion and untiring efforts. May he bless you as you continue to meet the great challenges before us today and tomorrow, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Accountability #Welfare

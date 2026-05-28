@@ -97,4 +97,6 @@ In establishing goals and charting our future course, let us remember the teachi
 May his blessings be with all of us, according to our needs, is my prayer in the name of Jesus Christ. Amen.
 
 
+
+
 #Teaching

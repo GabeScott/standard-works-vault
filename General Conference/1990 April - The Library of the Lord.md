@@ -159,4 +159,6 @@ These things are the true measure of our progress. Far more important than count
 I reverently give thanks to the Lord for the revelations, the scriptures, the standard works which He has given to us in our generation. These are the handbook for the priesthood. For you young men of the Aaronic Priesthood and you brethren of the Melchizedek Priesthood, I bear witness that He lives and that they do testify of Him. And I testify of Him, in the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Book_Of_Mormon #Scriptures #Teaching

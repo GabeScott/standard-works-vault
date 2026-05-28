@@ -98,4 +98,6 @@ I invite you to commit to a lifelong process of discipleship. Make and keep cove
 [^19]: See [[3 Nephi 18.12|3 Nephi 18:12]].
 
 
+
+
 #Commitment #Conversion #Covenants #Faith #Jesus_Christ

@@ -67,4 +67,6 @@ Brethren, I bear solemn witness that the lines and precepts that I have shared w
 I know that God lives and that Jesus Christ is our Savior and Redeemer. I also testify that President Ezra Taft Benson is the Lord’s prophet on the earth today. That we all may go out into the world to testify of these simple truths, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Obedience #Repentance #Spirituality

@@ -25,4 +25,6 @@ And so we gather each six months to renew our faith, to enlarge our understandin
 I invoke the blessings of the Lord upon all who will speak, upon all who will sing, upon all who will offer prayers, and in a very particular way, with great love and appreciation in my heart, upon all who will listen by the voice of the Spirit, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #General_Conference #Testimony

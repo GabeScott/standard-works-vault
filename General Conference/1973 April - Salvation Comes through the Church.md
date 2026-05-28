@@ -167,4 +167,6 @@ And so in his goodness and mercy, he calls out and says:
 But let us remember that his yoke cannot be separated from his church, and his burden requires that each one of us live by every word that proceedeth from the mouth of God. And to this I testify humbly in the sacred name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Apostasy #Plan_Of_Salvation

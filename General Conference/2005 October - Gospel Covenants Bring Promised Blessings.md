@@ -63,4 +63,6 @@ Having read this vision of President Smith’s and knowing of the missionaries a
 I feel humbled at the opportunity to serve in this trusted calling and pray that I may act upon my covenants with the Lord and be submissive to the direction of the Spirit. I declare my solemn witness of the Lord Jesus Christ and the Restoration of His gospel through the Prophet Joseph Smith. I express my love for the covenants and ordinances of the temple and commit to redouble my effort to participate in these holy houses of God. I know, as we make and keep sacred covenants, the Lord will bring us to His sacred presence. I testify of this in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Faith #Obedience #Sacrifice #Temple_Work

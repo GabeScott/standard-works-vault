@@ -35,4 +35,6 @@ We have a lot of our family scattered in at least 20 locations in the United Sta
 God lives. He is our Father. I testify to you that Jesus is the Christ, the Son of the living God, and the Prophet Joseph Smith was the prophet of the Restoration. President Hinckley is our inspired leader over this Church throughout the world today. Bless his heart for all that he does and for the inspiration and revelation and vision that is his as he leads the work forward. I leave this witness with you in the name of Jesus Christ, amen.
 
 
+
+
 #Blessings #Gratitude #Jesus_Christ #Testimony

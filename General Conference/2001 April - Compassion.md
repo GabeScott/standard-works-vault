@@ -172,4 +172,6 @@ Let us listen for His knock. Let us open the door of our hearts, that He—the l
 [^14]: [[Revelation 3.20|Rev. 3:20]].
 
 
+
+
 #Compassion #Death #God_The_Father #Jesus_Christ #Loneliness #Peace #Service #Temples #Violence

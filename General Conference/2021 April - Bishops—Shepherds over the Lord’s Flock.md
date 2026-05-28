@@ -142,4 +142,6 @@ Bishops, we sustain you! Bishops, we love you! You are truly the Lord’s shephe
 [^30]: I was called as the bishop of the Burlingame Ward in California in 1974 by President David B. Barlow and set apart on September 15, 1974, by Elder Neal A. Maxwell, who had recently been called as an Assistant to the Quorum of the Twelve Apostles.
 
 
+
+
 #Bishops #Children #Ministering #Young_Adults #Youth

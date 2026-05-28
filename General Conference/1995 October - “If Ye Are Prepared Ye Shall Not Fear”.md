@@ -69,4 +69,6 @@ Unfortunately there are too many of us that are like the scoffers in Lehi’s vi
 May God bless us with the wisdom to follow the counsel we have received as we prepare spiritually and temporally for the strength and security of our family units, is my humble prayer, in the name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Education #Employment #Financial_Management #Goals #Preparation #Self-Reliance #Worldliness

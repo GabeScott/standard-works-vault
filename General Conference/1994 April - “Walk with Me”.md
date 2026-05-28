@@ -63,4 +63,6 @@ We know why we are here. When we are on the path, we can feel it. The fruits of 
 We know the path; in fact, we know it well. The prophet Nephi promised, “If ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Ne. 31:20]]). May it be so. In the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Charity #Example #Plan_Of_Salvation #Pride #Service #Spirituality #Women

@@ -89,4 +89,6 @@ As we struggle with the challenges of mortality, I pray for each of us, as the p
 I testify of Jesus Christ, our Savior, who invites us all to come unto Him and be perfected in Him. He will bind up our wounds and He will heal the heavy laden. In the name of Jesus Christ, amen.
 
 
+
+
 #Addiction #Adversity #Atonement #Healing #Homosexuality #Jesus_Christ #Media

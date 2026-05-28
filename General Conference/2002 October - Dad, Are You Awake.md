@@ -57,4 +57,6 @@ And we will respond, “Yes, my son, I am awake.”
 In the name of Jesus Christ, amen.
 
 
+
+
 #Discipline #Family #Fatherhood #Leadership #Love #Marriage

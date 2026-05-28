@@ -113,4 +113,6 @@ And I bear testimony that The Church of Jesus Christ of Latter-day Saints *is* t
 Only as we accept and live the teachings of the gospel can the destiny which God planned for America be realized and the world united in peace and brotherhood. That this may speedily come to pass I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Commandments #Prophecy #U.S._Constitution

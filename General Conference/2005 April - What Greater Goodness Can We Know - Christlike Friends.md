@@ -59,4 +59,6 @@ As I think back to the day I was greeted in the temple by so many I loved, I lik
 I bear you my testimony today that Christ lives. I give thanks for Him. I pray that I may always be His friend and that in doing so, I will be your friend as well. In the name of Jesus Christ, amen.
 
 
+
+
 #Friendship #Kindness #Service

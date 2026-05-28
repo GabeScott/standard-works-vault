@@ -51,4 +51,6 @@ My plea to the teachers of the Church is to study, ponder, and pray for guidance
 To the master teacher, the Lord Jesus Christ, whose resurrection we celebrate at this Easter time, I say: I thank thee, oh Lord, for teaching us that there is no greater call than to be an effective teacher. In the name of Jesus Christ, amen.
 
 
+
+
 #Curriculum #Scriptures #Teaching

@@ -116,4 +116,6 @@ Brothers and sisters, I share with you my love and declare unto you my witness t
 [^20]: See [[Moroni 4.2|Moroni 4:2–3]][[Moroni 4.3|]]; [[Moroni 5.1|5:1–2]][[Moroni 5.2|]]; [[D&C 20.76|Doctrine and Covenants 20:76–79]][[D&C 20.77|]][[D&C 20.78|]][[D&C 20.79|]]. Please note that we are living in a time when we desperately need His Spirit to be with us always.
 
 
+
+
 #Book_Of_Mormon #Prayer #Sacrament #Satan #Spirituality

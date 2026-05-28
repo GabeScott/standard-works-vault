@@ -115,4 +115,6 @@ Such heavenly enlightenment and blessings are available to each of us.
 God our Father lives, as does His Son, Jesus the Christ, our Savior and Redeemer. I am a grateful recipient of His healing power and love. This is His work. I so testify in His holy name, amen.
 
 
+
+
 #Family_History #Plan_Of_Salvation #Premortal_Existence #Spirituality #Temple_Work #Temples

@@ -121,4 +121,6 @@ Father in Heaven has brought you here at this particular time for a special work
 I know that Heavenly Father is concerned about each of us individually and has a personal plan for us to achieve our eternal destiny. He has sent His Only Begotten Son, Jesus Christ, to help us overcome our imperfections through the Atonement. He has blessed us with the Holy Ghost to be a witness, companion, and guide *to our eternal destination* if we will rely on Him. May we each enjoy the fulness of Father’s blessings in this life and the fulfillment of *His work* and *His glory* by becoming fathers to our families for eternity (see [[Moses 1.39|Moses 1:39]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Fatherhood #Priesthood #Teaching

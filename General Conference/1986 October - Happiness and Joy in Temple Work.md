@@ -67,4 +67,6 @@ I encourage members of the Church to participate in temple work in every way pos
 May we leave this conference strengthened and motivated with a greater desire to lengthen our stride. May the kingdom of God go forth, that the kingdom of heaven may come, and may the choice blessings of our Father in Heaven be with you, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Plan_Of_Salvation #Temples

@@ -113,4 +113,6 @@ So many men become chronic critics. Rather, if they would look for the virtues i
 God bless you, dear fathers. May He bless you with wisdom and judgment, with understanding, with self-discipline and self-control, with faith and kindness and love. And may He bless the sons and daughters who have come into your homes, that yours may be a fortifying, strengthening, guiding hand as they walk the treacherous path of life. As the years pass—and they will pass ever so quickly—may you know that “peace … which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]) as you look upon your sons and daughters, who likewise have known that sacred and wonderful peace. Such is my humble prayer, in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Adversity #Children #Conscience #Divorce #Education #Family #Fatherhood #Friendship #Home #Honesty #Marriage #Media #Morality #Parenthood #Peace #Prayer #Standards #Temptation #Word_Of_Wisdom #Youth

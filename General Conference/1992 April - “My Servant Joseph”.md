@@ -73,4 +73,6 @@ Or will we be like those who were decent but who lacked the courage to declare o
 Now, my brethren, “these are \[your\] days” ([[Helaman 7.9|Hel. 7:9]]) in the history of the Church. Mark well what kind of days they will be, days when, with special visibility, the Lord will “make bare his holy arm in the eyes of all the nations” ([[D&C 133.3|D&C 133:3]]). God will also “hasten” His work ([[D&C 88.73|D&C 88:73]]). He will also “shorten” the last days “for the elect’s sake” ([[Matthew 24.22|Matt. 24:22]]); hence, there will be a compression of events (see [[Joseph Smith Matthew 1.20|JS—M 1:20]]). Furthermore, “all things shall be in commotion” ([[D&C 88.91|D&C 88:91]]). Only those in the process of becoming the men and women of Christ will be able to keep their spiritual balance. Brethren, may we “walk by faith” and, if necessary, even on our knees! In the name of the Lord of the universe, even Jesus Christ, amen.
 
 
+
+
 #Adversity #Joseph_Smith #Prophets #Restoration

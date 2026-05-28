@@ -73,4 +73,6 @@ There is a miracle appearing in the Church. I see it as I travel back to nations
 I know that God the Father lives. He hears and answers our prayers. I testify that His beloved Son, Jesus Christ, has called Gordon B. Hinckley as His prophet and president. I testify that through His authorized servants the Master calls us and that He sustains and transforms us in His service, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Church_Callings #Faith #Holy_Ghost #Miracles #Morality #Prayer #Responsibility #Service #Sin #Spirituality #Trust

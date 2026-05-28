@@ -185,4 +185,6 @@ I thank God that I too can say, with the same spirit as did Martha, who bore her
 In the name of our Lord and Master, Jesus, the Christ, the Savior of the world, even so. Amen.
 
 
+
+
 #Agency #Morality #Self-Esteem #Spirituality #Standards #Truth

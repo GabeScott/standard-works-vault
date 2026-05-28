@@ -85,4 +85,6 @@ Like those who participated in the Zion’s Camp and Liberty Jail episodes, I ca
 Let us never forget the great lessons to be learned from Zion’s Camp and Liberty Jail, and remember that when trials, tribulations, and hardships come to us, as they will, these are the tests that we must meet in order to enjoy eternal life. May we meet them successfully, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Adversity #Church_History

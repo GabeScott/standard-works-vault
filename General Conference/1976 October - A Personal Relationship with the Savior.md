@@ -61,4 +61,6 @@ As I come to a new calling, I recognize that I am a very ordinary man. Yet I gra
 I know and I testify with an absolute awareness in every fiber and innermost recess of my being that Jesus is the Christ, the Messiah, the Divine Redeemer, and the Son of God. May we be obedient to His wish, “Come unto me thy Savior” ([[D&C 19.41|D&C 19:41]]), I pray humbly in His holy and sacred name. Amen.
 
 
+
+
 #Jesus_Christ #Testimony

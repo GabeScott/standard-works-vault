@@ -117,4 +117,6 @@ Death and adversity come to us all, but so does life everlasting!
 I bear you my testimony that the gospel is true, that we are led today by a prophet and by the priesthood of God. May we heed their counsel as we meet our personal challenges and help others to do so, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Morality #Repentance #Women

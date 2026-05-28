@@ -71,4 +71,6 @@ The Savior promises to give us kindness eternally and unconditionally. “For th
 The Merrie Miss motto is I Will Follow God’s Plan for Me. God’s plan for us includes our being kind. My challenge to you is to search for opportunities to be kind. The promise is: you will be happy. I pray that each of us will develop a desire to be kind to ourselves and to others and to continually act upon it, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Kindness #Women #Youth

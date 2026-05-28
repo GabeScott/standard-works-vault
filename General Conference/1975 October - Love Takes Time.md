@@ -57,4 +57,6 @@ I pray our Heavenly Father will help us to learn the truth that meaningful love 
 I pray our Heavenly Father to help us to remember that true love does take time. God help us to take the time to enjoy the blessings of *feeding, keeping,* and *caring.* I leave you my witness that this Church to which you and I have membership is true. It has been restored and preserved through the eternal love of a living Heavenly Father and our Savior Jesus. This I say in the worthy name of Jesus Christ. Amen.
 
 
+
+
 #Love #Time_Management

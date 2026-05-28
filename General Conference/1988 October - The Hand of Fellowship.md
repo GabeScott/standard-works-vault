@@ -73,4 +73,6 @@ Despite some well-publicized criticism to the contrary, I believe Church members
 I bear my testimony that “God is no respecter of persons”; we should follow his example in all of our associations with our fellowmen. I testify that Jesus Christ is the Son of God, the Savior of all mankind. He loves all men and looks to each one of us to do the same. May we so do I pray humbly, in the name of Jesus Christ, amen.
 
 
+
+
 #Fellowshipping #Love #Mission_Of_The_Church #Missionary_Work

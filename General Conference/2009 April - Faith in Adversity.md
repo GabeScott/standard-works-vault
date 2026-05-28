@@ -71,4 +71,6 @@ It is interesting to notice that the rain descended, the floods came, and the wi
 I bear solemn witness that Jesus is the Christ, our Savior and Redeemer. He directs His Church through a living prophet, President Thomas S. Monson. If we live our lives in accordance with teachings of the Savior, we will surely find the peace and consolation that only God can give (see [[Philippians 4.7|Philippians 4:7]]). I bear witness of these things in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Holy_Ghost

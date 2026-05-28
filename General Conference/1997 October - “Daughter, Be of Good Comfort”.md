@@ -35,4 +35,6 @@ There are many sweet, faithful daughters of our Heavenly Father who bless our li
 Of Him and His invitation to love one another as He loves us, I do testify in His name, even Jesus Christ, amen.
 
 
+
+
 #Blessings #Children #Jesus_Christ #Testimony #Women

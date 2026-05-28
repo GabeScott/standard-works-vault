@@ -57,4 +57,6 @@ As I understand this scripture, it means that Jesus Christ is kind and merciful 
 As the coming of the Lord approaches, Satan’s pressure on us will increase. We will thus have to live closer to the Lord than we have ever done before. I resolve to do this for I know that God lives. I know that Jesus Christ is his Only Begotten Son, and that these brethren who we sustain as our leaders are true apostles and prophets. They have been called and ordained of God to lead us back into his very presence. I invite all of you who hear my voice or who read this message to take heed as the scriptures have indicated, and that you rededicate yourselves in a total commitment to serve the Lord with all your heart, might, mind, and strength. I so pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Attitude #Commitment

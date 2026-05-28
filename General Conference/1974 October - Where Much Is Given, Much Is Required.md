@@ -157,4 +157,6 @@ We are not offended at all of these things. All of these things may be set aside
 This is His church. I have that witness. Jesus is the Christ; he lives. It’s commonly taught that he is but an influence in the world. I know him to be Jesus Christ, the Son of God, the Only Begotten of the Father. I testify that he has a body of flesh and bones. This is his church. Of that I bear witness, in the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work #Tithing

@@ -51,4 +51,6 @@ In summary:
 I testify that Jesus is the Christ. The tomb was empty on that third day, and “as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]). Thus with gratitude for the sealing power within the restored gospel of Jesus Christ, we can confidently say with the poet, “I shall but love thee better after death” (Elizabeth Barrett Browning, *Sonnets from the Portuguese,* no. 43, line 14). In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Financial_Management #Joy #Listening #Marriage #Plan_Of_Salvation #Prayer #Repentance #Tithing

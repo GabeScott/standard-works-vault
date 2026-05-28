@@ -54,4 +54,6 @@ The work is true. Jesus is the Christ. Ezra Taft Benson is a prophet of God. I s
 [^6]: *Hymns,* 1985, no. 156.
 
 
+
+
 #Ezra_Taft_Benson #Obedience #Prophets

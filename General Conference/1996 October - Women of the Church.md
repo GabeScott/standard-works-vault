@@ -101,4 +101,6 @@ It is becoming physically harder to stand tall and straight as we did in our you
 And so, my beloved sisters, please know how much we appreciate you. You bring a measure of wholeness to us. You have great strength. With dignity and tremendous ability, you carry forward the remarkable programs of the Relief Society, the Young Women, and the Primary. You teach Sunday School. We walk at your side as your companions and your brethren with respect and love, with honor and great admiration. It was the Lord who designated that men in His Church should hold the priesthood. It was He who has given you your capabilities to round out this great and marvelous organization, which is the Church and kingdom of God. I bear testimony before the entire world of your worth, of your grace and goodness, of your remarkable abilities and tremendous contributions, and I invoke the blessings of heaven upon you, in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Abuse #Home_Teaching #Leadership #Loneliness #Motherhood #Plan_Of_Salvation #Single_Members #Women #Work

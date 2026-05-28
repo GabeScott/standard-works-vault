@@ -81,4 +81,6 @@ With the *Come, Follow Me* resource, the Lord is preparing us “for the perilou
 May our daily efforts in studying the scriptures fortify us and prove us worthy of these promised blessings. I so pray in the name of Jesus Christ, amen.
 
 
+
+
 #Spirituality #Teaching

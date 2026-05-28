@@ -47,4 +47,6 @@ Yes, in spite of challenges, the work of the Lord moves forward steadily in Afri
 Brothers and sisters, I know that my Redeemer lives and is the Savior of the world, that this is the only true and living church upon the earth, and that President Howard W. Hunter is a prophet of God. And to this I bear solemn witness, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Couple_Missionaries #Missionary_Work

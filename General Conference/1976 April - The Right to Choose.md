@@ -75,4 +75,6 @@ Joshua, an ancient prophet, determined that he would try to live righteously, an
 May we be inspired to make wise decisions that will meet with the approval of the Lord and be for our best good and the blessing of our fellowmen. For this I pray, in the name of our Lord and Savior, Jesus Christ. Amen.
 
 
+
+
 #Agency

@@ -65,4 +65,6 @@ Taking up one’s cross and following the Savior is always a commitment to servi
 I conclude with the words of Ezekiel, “And thou, son of man, … though briers and thorns be with thee, and thou dost dwell among scorpions: be not afraid” ([[Ezekiel 2.6|Ezek. 2:6]]). In our constantly changing world, may we continually cling to those things that do not change: to prayer, to faith, to saving covenants, to love of families, and to brotherhood. By removing the slivers of sin and the thorns of worldly temptation in our lives, and by denying ourselves and taking up our own cross and following the Savior, we can change a crown of thorns to a crown of glory. I testify, as one of his humble servants called to be His special witness, that He lives. I witness from the depths of my soul that we are engaged in His holy work, to which, if we are faithful, we can be crowned with honor, glory, and eternal life (see [[D&C 75.5|D&C 75:5]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Atonement #Conscience #Holy_Ghost #Jesus_Christ #Repentance #Responsibility

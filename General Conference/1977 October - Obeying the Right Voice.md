@@ -119,4 +119,6 @@ May that be sufficient reason for us to keep the commandments. May we increase i
 Let us always remember, and never forget, that we hold the priesthood of God. We are his spirit children; we have the true and everlasting gospel and a prophet of God—even President Spencer W. Kimball—to guide us in these latter days. *Listen to him and hearken to his words and follow him.* I promise you that as we do this we will be blessed. In the name of Jesus Christ, amen.
 
 
+
+
 #Character #Obedience

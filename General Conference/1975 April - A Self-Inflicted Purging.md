@@ -81,4 +81,6 @@ Now, my beloved brethren, whether it is patriotism or purity or whatever it is, 
 Now, the Lord bless you. This is the greatest group of men collected on the face of the earth in its entire history, and I am grateful to be part of it and to be associated with those men who are most pure in heart. They are truly pure. I bear that solemn witness, and I bear witness that our beloved prophet is probably the most pure in heart of any and all I have ever known, in the name of Jesus Christ. Amen.
 
 
+
+
 #Morality

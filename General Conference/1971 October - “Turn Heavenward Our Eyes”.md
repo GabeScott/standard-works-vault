@@ -149,4 +149,6 @@ You’ve heard that statement that each of us is either a part of the problem or
 May we guide our lives and those of our children in this direction, I pray humbly in the name of Jesus Christ. Amen.
 
 
+
+
 #Creation #Faith #Joy #Plan_Of_Salvation

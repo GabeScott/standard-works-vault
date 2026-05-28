@@ -98,4 +98,6 @@ I testify that Jesus Christ lives. This is His Church and kingdom on earth. Jose
 [^7]: [[Enos 1.4|Enos 1:4–8]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].
 
 
+
+
 #Faith #Prayer #Restoration

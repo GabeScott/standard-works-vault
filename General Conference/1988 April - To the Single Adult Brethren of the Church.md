@@ -97,4 +97,6 @@ God bless you single adult brethren of the Church. May your priorities be right.
 Know, my good brethren, that I have spoken from my heart and by His Spirit because of my love and concern for you. It is what the Lord would have you hear today. With all my heart I echo the words of the prophet Lehi from the Book of Mormon, “Arise from the dust, my sons, and be men” ([[2 Nephi 1.21|2 Ne. 1:21]]), in the name of Jesus Christ, amen.
 
 
+
+
 #Marriage #Priorities #Single_Members

@@ -91,4 +91,6 @@ I testify that we *are* led by a prophet of God. The Lord restored His Church in
 It is the desire of my heart that, along with my children and grandchildren, we will honor the legacy of our righteous forefathers—those faithful Mormon pioneers who were willing to put everything on the altar to sacrifice for and defend their God and their faith. I pray that each of us will live true to the faith that our parents have cherished. In the holy and sacred name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Faith #Family_History #Pioneers #Prophets #Temples

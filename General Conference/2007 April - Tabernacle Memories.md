@@ -47,4 +47,6 @@ I have been honored and pleased during my lifetime to raise my arm to the square
 As this building is rededicated today, may we pledge to rededicate our lives to the work of our Lord and Savior Jesus Christ, who so willingly died that we might live. May we follow in His footsteps each day, I pray humbly in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #General_Conference #Ordinances #Temple_Square

@@ -41,4 +41,6 @@ Brothers and sisters, my counsel to this sister missionary is my counsel to you:
 Yours is the privilege, if you want it, to come to know for yourself, today or soon, that you are pleasing God in spite of your shortcomings. I testify of a loving Savior who expects us to live the commandments. I testify of a loving Savior who is so very anxious to bestow His grace and mercy. I testify of a loving Savior who rejoices when we apply His Atonement daily with the calm and happy assurance that we are facing in the right direction. I testify of a loving Savior who is anxious for your “confidence \[to\] wax strong in the presence of God” ([[D&C 121.45|D&C 121:45]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Confidence #Forgiveness #God_The_Father #Obedience #Repentance

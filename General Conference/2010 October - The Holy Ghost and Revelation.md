@@ -79,4 +79,6 @@ However, I witness that the Holy Ghost is real and He is the testator, revelator
 Humbly I bear witness that this true and living Church, this religion, rests on these four cornerstones. I testify that Jesus Christ is in very deed the chief cornerstone (see [[Ephesians 2.19|Ephesians 2:19–21]][[Ephesians 2.20|]][[Ephesians 2.21|]]). President Thomas S. Monson is the Lord’s prophet, and these 15 men seated behind me are prophets, seers, apostles, and revelators. They hold the holy priesthood and keys of the kingdom. I love, honor, and sustain them. In the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Holy_Ghost #Jesus_Christ #Prayer #Revelation #Testimony

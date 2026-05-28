@@ -51,4 +51,6 @@ I bear you my witness of the Savior and His desire for us to return to Him. To d
 Just as the Savior saw great potential in His early disciples, He also sees the same in us. Let us see ourselves as the Savior sees us. I pray that we will have that vision with the faith and courage to do, in the name of Jesus Christ, amen.
 
 
+
+
 #Discipleship #Fasting #Missionary_Work #Perspective #Prayer

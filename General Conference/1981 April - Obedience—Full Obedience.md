@@ -81,4 +81,6 @@ Let this be our decision: “Speak thou unto us all that the Lord our God shall 
 My true feelings about the Church are that I know in a definite, decisive, indelible manner that Jesus is our Redeemer. He lives, as does the Father, and President Kimball is the living servant of the living God. Let us watch the prophet, listen to him, follow him, and we will never go astray. This is the only true church of Jesus Christ upon the face of the earth, to which I testify in the name of our Redeemer, amen.
 
 
+
+
 #Obedience

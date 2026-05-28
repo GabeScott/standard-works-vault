@@ -124,4 +124,6 @@ Sisters and brothers, our current challenging circumstances are not our final, e
 [^27]: [[Mark 4.39|Mark 4:39]].
 
 
+
+
 #Adversity #Faith #Obedience #Peace

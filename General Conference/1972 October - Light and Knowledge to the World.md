@@ -91,4 +91,6 @@ Temples are being built and ordinances performed therein in accordance with the 
 I testify to these truths in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Education #Joseph_Smith #Restoration #Spirituality

@@ -94,4 +94,6 @@ Joseph Smith was and is a prophet, the great Prophet of this dispensation. This 
 I leave you my testimony, my witness, and my love for each of you, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Gratitude #Testimony

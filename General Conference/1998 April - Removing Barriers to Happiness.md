@@ -61,4 +61,6 @@ If in an awkward attempt to express a truth I have stirred feelings of offense, 
 I testify that you will remove barriers to happiness and find greater peace as you make your first allegiance your membership in the Church of Jesus Christ, and His teachings the foundation of your life. Where family or national traditions or customs conflict with the teachings of God, set them aside. Where traditions and customs are in harmony with His teachings, they should be cherished and followed to preserve your culture and heritage. There is one heritage that you need never change. It is that heritage that comes from your being a daughter or son of Father in Heaven. For happiness, control your life by that heritage. In the name of Jesus Christ, amen.
 
 
+
+
 #Church_Membership #Family #Home #Jesus_Christ #Joy #Obedience #Ordinances #Plan_Of_Salvation #Satan #Unity

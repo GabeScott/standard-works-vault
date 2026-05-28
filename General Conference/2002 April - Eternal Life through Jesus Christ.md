@@ -63,4 +63,6 @@ Said the risen Lord: “What manner of men ought ye to be? Verily I say unto you
 It is my prayer that the time may soon come “when the knowledge of a Savior shall spread throughout every nation, kindred, tongue, and people” ([[Mosiah 3.20|Mosiah 3:20]]; see also [[Moses 7.62|Moses 7:62]]; [[Isaiah 11.9|Isa. 11:9]]), that all who will may receive Him, even the Lord Jesus Christ, and know Him, that they may come unto our Heavenly Father, and know Him, and thus obtain eternal life, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Plan_Of_Salvation #Testimony

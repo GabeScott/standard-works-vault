@@ -106,4 +106,6 @@ This I humbly pray in the name of the Lord Jesus Christ, amen.
 [^12]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 356.
 
 
+
+
 #Covenants #Death #Family #Jesus_Christ #Joseph_Smith #Parenthood #Pioneers #Plan_Of_Salvation #Resurrection #Spirituality #Temples

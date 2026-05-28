@@ -63,4 +63,6 @@ We must follow the lead of our beloved prophet, President Hinckley, who recently
 As my grandfather so eloquently stated 74 years ago: “I rejoice to bear my testimony to the truthfulness of this work of the Lord to the world, for I know it is true; I know it is for the uplift and the advancement of the children of God, and I pray that the Lord will help … us that we may remain faithful and true, that we may be found valiant workers in the cause of righteousness and help to build up his kingdom upon the earth” (Lars Oveson, in Conference Report, Apr. 1925, 127). To these truths I add my own witness in the name of Jesus Christ, amen.
 
 
+
+
 #Anger #Faith #Friendship #Honesty #Jesus_Christ #Prayer #Priesthood #Prophets #Sacrifice #Scripture_Study #Sunday_School #Tithing

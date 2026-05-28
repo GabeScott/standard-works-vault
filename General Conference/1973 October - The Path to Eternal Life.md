@@ -83,4 +83,6 @@ I bear witness there is a future life that holds much in promise for the faithfu
 I hope, brothers and sisters, we will all be worthy of this wonderful gift and blessing. I know God lives. I know this is his church. I know it is directed by divine inspiration. We are most blessed in having a living prophet in our beloved Harold B. Lee. He is a great individual and one whom we can admire, respect, and look up to for teaching, counsel, and guidance. May God bless us to be faithful and true to all the covenants and obligations we have entered into with him, I ask in the name of Jesus Christ. Amen.
 
 
+
+
 #Faith #Plan_Of_Salvation #Standards

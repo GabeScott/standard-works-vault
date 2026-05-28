@@ -85,4 +85,6 @@ Let us accept the challenge issued by our prophet two years ago:
 Let us decide today that we will reach out in love to our families, our less active or nonmember neighbors, our departed kindred, or anyone who has need of love. I testify that great blessings will come to us as individuals, as a Church, and as a brotherhood of mankind when we learn to live outside ourselves in love, in the name of Jesus Christ, amen.
 
 
+
+
 #Love

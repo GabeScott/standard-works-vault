@@ -85,4 +85,6 @@ May every spouse, every child, and every parent be blessed to communicate and re
 In these important pursuits we will never be left alone. Our Heavenly Father and His Beloved Son live. They love us and know our circumstances, and They will help us to become more diligent and concerned at home. Of these truths I testify in the sacred name of the Lord Jesus Christ, amen.
 
 
+
+
 #Family #Home #Love #Testimony

@@ -49,4 +49,6 @@ Now, my beloved brethren and sisters, as we return to our homes, may we go in sa
 At the opening of this session, the choir sang a wonderful hymn. “Faith of our fathers, holy faith, we will be true to thee till death!” (“Faith of Our Fathers,” *Hymns,* 1985, no. 84). I would like to leave that thought with you: “Faith of our fathers, holy faith, we will be true to thee till death!” God bless you, my beloved associates, in this glorious work, I humbly pray in the name of Him whom we all serve, even the Lord Jesus Christ, amen.
 
 
+
+
 #Church_Organization #Commitment #Faith #Family #General_Conference #Honesty #Love #Media #Respect #Temples #Time_Management #Work #Youth

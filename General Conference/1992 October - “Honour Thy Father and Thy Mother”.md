@@ -45,4 +45,6 @@ I testify that the Savior is our example and model of life. We must strive every
 I testify that Joseph Smith was a prophet of God and that through him the fulness of the gospel has been restored to bless the families of the earth. I also testify that Ezra Taft Benson is the prophet of God for our day and that The Church of Jesus Christ of Latter-day Saints is the only true and living Church upon the face of the earth. I testify of these things in the name of Jesus Christ, amen.
 
 
+
+
 #Commandments #Obedience #Parenthood

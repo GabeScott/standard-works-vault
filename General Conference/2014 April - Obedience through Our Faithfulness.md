@@ -59,4 +59,6 @@ Those who rely solely on themselves and follow only their own desires and self-i
 May we become heirs to the covenant and the seed of Abraham through our faithfulness and by receiving the ordinances of the restored gospel. I promise you that the blessings of eternal life are available to everyone who is faithful and obedient. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Faith #Holy_Ghost #Obedience

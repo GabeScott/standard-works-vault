@@ -61,4 +61,6 @@ If this work is true, we may shortly expect the day when we do things for the de
 Putting the Lord’s family together on eternal terms constitutes the purpose for which the gospel was restored. This will even save nations and the world. We do it by uniting our homes and obtaining our blessings in the temple. We do it by inviting others to accept the restored gospel. We do it by extending our hands across the spiritual spaces to those many relatives who died without the gospel. Those who destroy homes commit a crime against eternity. If we do not put our family together, Moroni says the whole earth will be utterly wasted at Christ’s coming. ([[D&C 2.3|D&C 2:3]].) May God bless us to be saviors in the Lord’s family, rather than destroyers, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Family_History

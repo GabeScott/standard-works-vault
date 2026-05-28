@@ -59,4 +59,6 @@ A few years ago, the First Presidency of the Church issued the invitation to all
 At the close of this great conference, and on behalf of my Brethren, I sincerely and humbly reiterate that request. And we open our arms to you. I so declare in the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Endurance #Pioneers #Sacrifice

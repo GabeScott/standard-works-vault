@@ -37,4 +37,6 @@ We speak not by way of alarm but by way of gentle counsel. Let us go back to the
 I am grateful for the welfare instructions we receive in this session of our conference. They are timely and worthy of both our attention and our action. May the Lord bless us to heed them and then to lead our people in the path that has been marked for us by our leaders and by the Lord, I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Fasting #Sacrifice

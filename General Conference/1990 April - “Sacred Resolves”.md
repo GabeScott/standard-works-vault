@@ -49,4 +49,6 @@ Every man there was deeply touched as he felt of the spirit of our great leader.
 To these words of his I add my own testimony that God our Eternal Father lives; that Jesus is the Christ, the Only Begotten of the Father born in the flesh, the Savior and Redeemer of mankind, who offered His life on Calvary’s cross in atonement for the sins of all mankind; that Joseph Smith was a prophet of the living God; and that every man who has succeeded him in the office of the Presidency of this Church has been a living prophet—including Ezra Taft Benson, whom we love and for whom we pray as the Lord’s anointed in our day and time. Of these things I testify and leave my blessings. May God be with you and bless you as you travel to your homes, and may His guiding light be the lodestar of your lives, I humbly ask, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ

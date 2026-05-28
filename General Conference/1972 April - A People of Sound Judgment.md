@@ -135,4 +135,6 @@ We testify that God lives, that we are his servants duly appointed by divine pow
 We appeal to you: Do not let prejudice blind you to the truth; open your hearts to this new revelation from God; study it and learn to live by its principles. We testify to you that it is indeed the way of life and salvation brought back to earth by God himself and by repeated angelic ministrations. And we bear you this testimony in the sacred name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Prophets #Restoration

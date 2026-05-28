@@ -147,4 +147,6 @@ Come unto me, all ye that labour and are heavy laden \[pleaded Jesus\], and I wi
 That we may all, through repentance and by enduring to the end, obtain that rest, I humbly plead and pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Repentance

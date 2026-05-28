@@ -116,4 +116,6 @@ As we strive to place Him at the center of our lives, revelations unfold to us, 
 [^30]: See [[Deuteronomy 31.6|Deuteronomy 31:6]]; [[Philippians 4.13|Philippians 4:13]]; [[Moroni 10.32|Moroni 10:32]].
 
 
+
+
 #Adversity #Atonement #Discipleship #Hope #Jesus_Christ

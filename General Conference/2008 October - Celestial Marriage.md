@@ -156,4 +156,6 @@ Celestial marriage is a pivotal part of preparation for eternal life. It require
 [^43]: See Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (1966), 118.
 
 
+
+
 #Family #Joy #Marriage #Plan_Of_Salvation #Temples

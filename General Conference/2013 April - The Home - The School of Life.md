@@ -138,4 +138,6 @@ These and many other lessons are learned in a home—the place that can become a
 [^10]: See *Teachings of Presidents of the Church: David O. McKay* (2003), 43, 150.
 
 
+
+
 #Children #Family #Home #Marriage #Scriptures

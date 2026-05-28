@@ -123,4 +123,6 @@ I feel certain that if, in our homes, parents will read from the Book of Mormon 
 That we will seek these blessings through reading the Book of Mormon, I humbly pray and leave my blessings with you, in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Scripture_Study

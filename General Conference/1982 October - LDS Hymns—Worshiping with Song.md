@@ -114,4 +114,6 @@ My gratitude for our beloved prophet Spencer W. Kimball is intensified as I sing
 As we sing our hymns, let us be conscious of the beauty and import of each hymn, and as we do, our singing will deeply move our souls, bring us in closer harmony with the Holy Spirit, and strengthen our testimonies. In the name of Jesus Christ, amen.
 
 
+
+
 #Music

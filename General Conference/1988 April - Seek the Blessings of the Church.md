@@ -75,4 +75,6 @@ Let us all seize every opportunity to serve in His church, with full intent and 
 Beloved brothers and sisters, this is the Lord’s church, to which we are highly privileged to belong. We are part of it. It blesses our lives. May we capture the true spirit intended by the Lord and be anxiously engaged with others in seeking the blessings of the Church. I know with all the strength of my soul that it is true, that it is God’s instrument to help us to become like His Son, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Organization

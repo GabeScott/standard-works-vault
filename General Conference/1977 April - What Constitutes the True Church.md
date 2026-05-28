@@ -107,4 +107,6 @@ We cannot secure the blessings God has promised without keeping His laws and His
 I bear my solemn witness to you that there is one true shepherd—our Lord Jesus Christ—one faith, one baptism, and only one church of Christ. I urge all who listen to the voice of the Good Shepherd to investigate the message of His church today and gain a personal witness of its truthfulness. I humbly bear my testimony to the truthfulness of these things and beseech all of you to gain that personal witness, and do so in the name of Jesus Christ. Amen.
 
 
+
+
 #Church_Organization #Restoration

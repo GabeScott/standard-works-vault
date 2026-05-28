@@ -72,4 +72,6 @@ I testify of the sacrifice and service of the Lord Jesus Christ, who gave everyt
 [^8]: [[Mosiah 14.4|Mosiah 14:4]]; see also [[Isaiah 53.4|Isaiah 53:4]].
 
 
+
+
 #Church_Callings #Family #Sacrifice #Service

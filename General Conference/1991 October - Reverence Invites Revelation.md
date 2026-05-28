@@ -97,4 +97,6 @@ It was Nephi who taught: “Angels speak by the power of the Holy Ghost; wherefo
 And in the spirit of reverence, I bear testimony that God lives, that Jesus is the Christ, that the Holy Ghost—our comforter, our teacher—will come to us if we will maintain a spirit of reverence, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Meetings #Holy_Ghost #Music #Prayer #Reverence #Spirituality #Testimony

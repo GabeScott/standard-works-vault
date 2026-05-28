@@ -115,4 +115,6 @@ I have thought of a pharaoh humble enough to heed the counsel of a prophet and o
 I could not express to you, my brethren and sisters, the depths of my feeling about what has been announced. It is a course correction; it is an inspired move. It will have influence upon the Church across the world, not just in our generation, but in the generations to come. I have the certain conviction that it is pleasing to him who is our Lord and our Redeemer, even Jesus Christ, our Savior. In the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Financial_Management #Tithing

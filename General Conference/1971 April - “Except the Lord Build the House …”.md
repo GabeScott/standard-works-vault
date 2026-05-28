@@ -85,4 +85,6 @@ Your children will know the security of a home where dwells the Spirit of the Lo
 The destroying angel of domestic bitterness will pass you by and you will know peace and love throughout your lives which may be extended into all eternity. I could wish for you no greater blessing, and for this I humbly pray in your behalf, in the name of Jesus Christ. Amen.
 
 
+
+
 #Family #Home #Marriage #Respect

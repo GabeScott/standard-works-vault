@@ -71,4 +71,6 @@ If we will be true and faithful to our principles, committed to a life of honest
 In the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Family #Honesty

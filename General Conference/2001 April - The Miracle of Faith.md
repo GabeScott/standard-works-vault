@@ -83,4 +83,6 @@ In the spirit of faith of which I have spoken, I testify that this is the work o
 O Father, help us to be faithful unto Thee and unto our glorious Redeemer, to serve Thee in truth, to make that service an expression of our love, is my humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Church_History #Conversion #Faith #Family #Loyalty #Missionary_Work #Restoration #Sacrifice #Temples #Testimony #Tithing

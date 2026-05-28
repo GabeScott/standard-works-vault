@@ -45,4 +45,6 @@ Yes, there are signs of storms forming all around us. Let us look up and prepare
 I know we can live together as families for eternity, that our loving Heavenly Father is waiting for us, His children, with His arms extended. I know that Jesus Christ, our Rescuer, lives. As with Peter, no flesh and blood has revealed it to me, but my Father who is in heaven (see [[Matthew 16.15|Matthew 16:15–19]][[Matthew 16.16|]][[Matthew 16.17|]][[Matthew 16.18|]][[Matthew 16.19|]]). In the sacred name of Jesus Christ, amen.
 
 
+
+
 #Media #Testimony

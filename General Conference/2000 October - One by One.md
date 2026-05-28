@@ -51,4 +51,6 @@ I have a testimony in my heart, brothers and sisters, that God, our Heavenly Fat
 I share this witness and hope, in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Friendship #Holy_Ghost #Individual_Worth #Jesus_Christ #Love #Prayer

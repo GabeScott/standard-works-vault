@@ -105,4 +105,6 @@ With the exception of the few years when the Savior graced the earth, this, Mike
 Let me express my true feelings to you about the Church. I know, Michael, in a decisive, indelible manner—due to the Spirit—that Jesus is our Redeemer. He lives, as does his Father. He is the living Son of a living God. President Benson and the First Presidency are his living servants through whom His will is given to all the world. Watch them, Mike, listen to them, follow them. This is the only church of Jesus Christ on the earth, Michael, and you are just as important as any human being in all history. You are of infinite worth. I love you, pal. In the name of Jesus Christ, amen.
 
 
+
+
 #Love #Parenthood

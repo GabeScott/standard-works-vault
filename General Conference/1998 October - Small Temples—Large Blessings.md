@@ -59,4 +59,6 @@ At the dedication of the Manti Temple, Elder Lorenzo Snow prayed, “May this ho
 Brothers and sisters, the gates of heaven are open to us, and the Lord Jesus Christ is inviting us to come unto Him, I humbly testify in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Godhead #Holy_Ghost #Jesus_Christ #Priesthood #Temples

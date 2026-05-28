@@ -72,4 +72,6 @@ Through the gift and power of the Holy Ghost, testimony has come into the hearts
 After an association of more than fifty years with the leaders of the Church here upon the earth—prophets, seers, and revelators of this dispensation—during which period of time I have witnessed the inspiration and revelation of the Lord to his servants, I add my testimony that the Spirit of the Lord has borne witness to my soul that these things are true. I testify that if we can bring our eternal spirits into attune with the promptings of God’s Holy Spirit, the hand of God may be made visible; and the listening ear so attuned may be responsive to the celestial whisperings of the voice of God, in the name of Jesus Christ. Amen.
 
 
+
+
 #Spirituality #Testimony

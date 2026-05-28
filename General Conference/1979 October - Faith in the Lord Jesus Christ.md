@@ -139,4 +139,6 @@ Without the services of Jesus Christ, which he proffered in the great heavenly c
 These are some of the reasons why “Faith in the Lord Jesus Christ” is the first principle of the gospel. To the truth of these teachings I bear solemn witness, and in the words of King Benjamin, I add my own witness that I know “there shall be no other name \[than Jesus Christ\] given nor any other … means whereby salvation can come unto the children of men, only in and through the name of Christ, the Lord Omnipotent” ([[Mosiah 3.17|Mosiah 3:17]]). This is my testimony to you, my brethren, and I bear it in the name of Jesus Christ, our Redeemer, amen.
 
 
+
+
 #Faith #Jesus_Christ #Plan_Of_Salvation

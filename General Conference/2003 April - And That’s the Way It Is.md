@@ -60,4 +60,6 @@ May our Father in Heaven bless each one of you. I testify to one and all that Je
 [^4]: *History of the Church,* 2:170.
 
 
+
+
 #Commandments #Obedience #Worthiness

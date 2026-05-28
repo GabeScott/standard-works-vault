@@ -105,4 +105,6 @@ I testify that this work is true and that the results of all our efforts today w
 God bless us all as members of His Church to share the gospel with others, in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

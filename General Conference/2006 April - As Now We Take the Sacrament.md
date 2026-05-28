@@ -99,4 +99,6 @@ After we returned to the resort, there was an obvious difference in the Sabbath-
 May there be instilled in each of us an increased reverence for the Sabbath. May we more fully realize the special blessing of being able to partake of the sacrament and its significance in our lives. May we always remember Him and keep His commandments, which He has given us to fulfill the purpose of life and the hope of the eternities that are to come. This is the Lord’s work in which we are engaged. God lives. Jesus is the Christ, the Savior of the world. We’re permitted to be part of this great gospel plan, of which the sacrament is such a vital part. In the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Priesthood #Sacrament

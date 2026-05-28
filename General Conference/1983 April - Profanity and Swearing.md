@@ -143,4 +143,6 @@ Shouldn’t we all have mastery over our tongues and words *all* of the time, an
 We are in the presence of and being directed by living prophets. This is an absolute truth. The Lord himself directs this, his only true and living church, and I testify to this in the name of Jesus Christ, the Master, amen.
 
 
+
+
 #Attitude #Profanity

@@ -63,4 +63,6 @@ President Benson, our living prophet, stated: “A testimony is one of the few p
 A living prophet has spoken. It is now time for us to stand and be true to our testimonies. May I add my testimony to yours and bear my solemn witness, searched in all humility and acquired by the power of the Holy Ghost, that I know personally that God lives; that Jesus is the Christ, our Savior and Redeemer; that this Church is true and is led by a living prophet, President Ezra Taft Benson. This I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Education #Prayer #Spirituality #Testimony

@@ -43,4 +43,6 @@ I bear my witness that God lives, that the gospel of Jesus Christ is true, that 
 I bear witness he has planted those seeds, and I pledge all that I have for the building of the kingdom of God in this work in these latter days, and I confirm this witness and this pledge in the name of Jesus Christ, amen.
 
 
+
+
 #Leadership #Prayer #Spirituality

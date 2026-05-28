@@ -105,4 +105,6 @@ I pray that we may all enjoy the fruits of the gospel. Let us be faithful and tr
 I bear solemn testimony that Jesus is the Holy One of Israel, our Savior, and our Redeemer. This is his Church. He is the Son of God, our Heavenly Father. Joseph Smith is the Prophet of the Restoration in these latter days, and President Ezra Taft Benson is a living prophet today. I bear this testimony in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Morality #Obedience #Prayer #Pride #Prophets #Scriptures #Service #Temptation #Worldliness

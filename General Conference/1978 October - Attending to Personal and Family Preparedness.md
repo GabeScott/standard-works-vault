@@ -23,4 +23,6 @@ We find, as family conditions change and maturity develops, there is still a con
 My message, then, is this: We cannot progress without attending to our own personal and family preparedness on a regular basis. Preparedness is not something that is static; it is ever changing. I know of no situation in life where it is not necessary. May we all become involved in it for the blessing of our families. There is precious little time to waste in preparing for the eternities. Of this I testify, in the name of Jesus Christ. Amen.
 
 
+
+
 #Self-Reliance

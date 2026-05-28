@@ -49,4 +49,6 @@ May I remind you all once again what the Lord said to that great Prophet Joseph 
 I bear my testimony that the gospel will be sounded in every ear. This is the only true and living church upon the face of the whole earth. Because the Lord has so declared it, I bear witness that there is a living prophet upon the earth today, and that there is a real urgency, a real urgency, my brothers and sisters, for us as members of the Church to lift our warning voice to all the inhabitants of the earth. May the Lord give us the power to accomplish this purpose as we, with full purpose of heart, obey him. I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work

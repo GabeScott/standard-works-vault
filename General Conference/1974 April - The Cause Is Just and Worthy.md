@@ -75,4 +75,6 @@ Brethren and sisters, I want to add to these testimonies of these prophets my te
 And so I leave this testimony with you. In the name of our Lord Jesus Christ. Amen.
 
 
+
+
 #Goals #Jesus_Christ #Scriptures

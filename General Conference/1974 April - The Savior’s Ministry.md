@@ -104,4 +104,6 @@ Now is the time for us to prepare and be worthy for the fulfillment of this grea
 As one who has the responsibility of witnessing the reality of Christ in God’s great plan of life and salvation, I bear solemn witness to these truths; also that the spirit of man never dies and that life continues beyond this mortal existence. I humbly testify that God lives; Jesus, his Son, lives; and the gospel as we teach it is true. I also bear witness to the divine calling of our beloved President Spencer W. Kimball. I have a great love, respect, and admiration for him. I will sustain him; I will uphold him; I will follow him, for I know that he is the Lord’s anointed to His people today. God bless us all to be faithful and true to the covenants we have made with our Lord, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ

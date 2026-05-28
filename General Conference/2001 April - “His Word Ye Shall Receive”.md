@@ -59,4 +59,6 @@ Now, my dear brothers and sisters, please pay attention to those things that the
 My brothers and sisters, I testify to you that the fulness of the everlasting gospel of Jesus Christ has been restored to the earth through the Prophet Joseph Smith. Today we are blessed to be led by God’s prophet, President Gordon B. Hinckley. May we *listen* and *then do* those things that he teaches us is my humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Commandments #Family #Fatherhood #Joy #Leadership #Morality #Obedience #Parents #Peace #Prophets #Quorum_Of_The_Twelve_Apostles #Safety #Youth

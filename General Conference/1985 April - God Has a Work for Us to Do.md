@@ -29,4 +29,6 @@ When I was a boy, we frequently sang in Sunday School: “Put your shoulder to t
 God bless you, my beloved associates, that his Holy Spirit may abide in your hearts, that his Holy Spirit may dwell in your homes, that faith will grow at your hearthsides among those you love most, and that your influence for good may be felt among all with whom you associate, I humbly pray as I leave with you my witness and testimony of the divinity of the work, and in the authority of the holy priesthood in me vested, invoke the blessings of heaven upon you. In the name of Jesus Christ, amen.
 
 
+
+
 #Service

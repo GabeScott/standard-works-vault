@@ -79,4 +79,6 @@ I conclude with this admonition of the Prophet Joseph Smith, given in 1832:
 To this I add my witness. The holy scriptures are the word of God. If we are to know God, we must read His words, for therein He stands revealed to the honest in heart. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Scriptures

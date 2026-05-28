@@ -148,4 +148,6 @@ May we “live in thanksgiving daily”[^18]—especially during the seemingly u
 [^18]: [[Alma 34.38|Alma 34:38]].
 
 
+
+
 #Adversity #Gratitude

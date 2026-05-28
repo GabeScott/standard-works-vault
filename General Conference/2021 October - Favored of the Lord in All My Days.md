@@ -70,4 +70,6 @@ In this, the Church of Jesus Christ, I have had many opportunities to minister a
 [^9]: *[Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-14-losing-ourselves-in-the-service-of-others?lang=eng)* (2016), 205.
 
 
+
+
 #Adversity #Jesus_Christ #Ministering #Service

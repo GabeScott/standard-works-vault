@@ -73,4 +73,6 @@ Finally, we recognize that it may not be wise for some of our young men and youn
 Brothers and sisters, I add my testimony of the divine mission of the Lord Jesus Christ and pray that He will bless all of us in our efforts to inspire and motivate more of our youth and couples to serve a full-time mission. In the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Preparation #Teaching #Testimony

@@ -27,4 +27,6 @@ Conference is now over. As we return to our homes, may we do so safely. May the 
 My brothers and sisters, may God bless you. May His promised peace be with you now and always. I bid you farewell until we meet again in six months’ time. In the name of our Savior, even Jesus Christ the Lord, amen.
 
 
+
+
 #General_Conference

@@ -118,4 +118,6 @@ That each of us will prepare ourselves to greet Him is my humble prayer. In His 
 [^19]: [[D&C 135.3|D&C 135:3]].
 
 
+
+
 #Apostasy #Book_Of_Mormon #Jesus_Christ #Joseph_Smith #Restoration #Scripture_Study

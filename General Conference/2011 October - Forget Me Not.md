@@ -146,4 +146,6 @@ Sisters, we love you. It is my prayer and blessing that you will never forget th
 [^5]: [[Psalms 8.3|Psalm 8:3–5]][[Psalms 8.4|]][[Psalms 8.5|]].
 
 
+
+
 #Gratitude #Individual_Worth #Joy #Love #Patience #Perspective #Sacrifice #Self-Esteem

@@ -69,4 +69,6 @@ I bear solemn witness that we are true and full believers in the Lord Jesus Chri
 My brothers and sisters, we must help all people, including our own members, understand the power and importance of the Holy Bible. The Bible is scripture that leads us and all mankind to accept Jesus Christ as our Savior. May God grant us the desire and capacity to accept and live His teachings is my humble prayer in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Bible #Jesus_Christ #Joseph_Smith #Sacrifice #Scriptures

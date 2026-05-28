@@ -53,4 +53,6 @@ My beloved brothers and sisters, the Lord does keep his promises. He truly opens
 And to this I testify in the name of our Lord and Savior, Jesus Christ. Amen.
 
 
+
+
 #Tithing

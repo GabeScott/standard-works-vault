@@ -67,4 +67,6 @@ My brothers and sisters, I feel our anxieties are justified. It is the opinion o
 May I again implore you priesthood and Relief Society leaders to see that all members of the Church everywhere understand the responsibility they have for their own welfare, that our people will be blessed to live provident and righteous lives. In the name of Jesus Christ, amen.
 
 
+
+
 #Preparation #Welfare

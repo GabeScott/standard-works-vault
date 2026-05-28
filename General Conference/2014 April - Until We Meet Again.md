@@ -31,4 +31,6 @@ My brothers and sisters, may God bless you. May His promised peace be with you n
 I bid you farewell until we meet again in six months’ time, and I do so in the name of Jesus Christ, our Lord and Savior, amen.
 
 
+
+
 #General_Conference #Love

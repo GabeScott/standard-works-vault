@@ -53,4 +53,6 @@ To those of you who are struggling and losing ground, you who have been lured in
 At your earthly home, you will find your father’s arms have always been open for you and that during your absence your mother never stopped setting your place at the table in front of your empty chair. You will see clearly the difference between telestial happiness and celestial happiness, and you will experience and savor celestial joy through this life and throughout all eternity. I so testify and promise, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Standards #Temptation #Worldliness #Youth

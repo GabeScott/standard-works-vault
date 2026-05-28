@@ -121,4 +121,6 @@ Grandpa may not have been by your bedside, R. J., but you were in his prayers an
 My dear brothers and sisters, may the laughter of children gladden our hearts. May the faith of children soothe our souls. May the love of children prompt our deeds. “Children are an heritage of the Lord” ([[Psalms 127.3|Ps. 127:3]]). May our Heavenly Father ever bless these sweet souls, these special friends of the Master, is my humble and earnest prayer. In the name of Jesus Christ, amen.
 
 
+
+
 #Abuse #Family #Teaching

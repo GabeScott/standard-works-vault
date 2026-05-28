@@ -91,4 +91,6 @@ Now there are many other differences, but there isn’t time to discuss them. Bu
 Now there are many other differences, as we know, and as we study, so that we understand what Paul meant when he said that the things of God are understood by the Spirit of God, and the things of man are understood by the spirit of man, and “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him.” ([[1 Corinthians 2.11|1 Cor. 2:11–14]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]].) May the Lord help us all to understand his truths and to follow the leadership of our living prophet, I humbly pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Prophecy #Spirituality

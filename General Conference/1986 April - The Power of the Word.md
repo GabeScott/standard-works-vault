@@ -81,4 +81,6 @@ Oh, my brethren, let us not treat lightly the great things we have received from
 Like Alma, I say unto you, “It \[is\] expedient that \[you\] should try the virtues of the word of God” ([[Alma 31.5|Alma 31:5]]), in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon

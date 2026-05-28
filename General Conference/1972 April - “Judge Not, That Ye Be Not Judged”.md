@@ -137,4 +137,6 @@ These things I know, and I humbly bear my testimony that they are true; and I in
 This promise, and my testimony, I leave with you in the name of Jesus Christ. Amen.
 
 
+
+
 #Charity #Criticism #Forgiveness #Judging #Love

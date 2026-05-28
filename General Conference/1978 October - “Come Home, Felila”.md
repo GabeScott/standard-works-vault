@@ -71,4 +71,6 @@ Caring is all-important—the intensity, the duration, the amount, the quality, 
 Oh, may we all have a little Felila in our lives—and there are so many: the retarded, the infirm, those needing special help, both spiritually and physically, the aged, the infants,—all these to soften our hearts in love, to stretch our souls in tenderness, to confirm our worth in caring for others, and above all to strengthen our faith in him who knows all, even him who in caring totally gave his all, and in giving his all, lives forever, and in living forever, rules eternally, and in ruling eternally, cares omnipotently, whose coming and going is one eternal round I pray in his name, even the sacred name of Jesus Christ, amen.
 
 
+
+
 #Disabilities #Faith

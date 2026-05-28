@@ -75,4 +75,6 @@ However, there is a state of human misery below which no Latter-day Saint should
 In 1936 we had a depression in the United States. Based on principles, a program was designed to fit the circumstances. Today we are an international church, and in many countries, the Saints face problems far more serious than those. Using welfare principles, solutions can be found to the challenges of today and tomorrow. May the Lord bless President Marion G. Romney and those with whom he labored for bringing to us an understanding of welfare principles. May we be as successful in meeting the challenges of our generation as our predecessors were in meeting theirs, is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Financial_Management #Welfare

@@ -103,4 +103,6 @@ Oh, my beloved brethren, believe in and live for the promises of the Lord by kee
 That it may be so with all of you and all of us, I humbly pray. In the name of Jesus Christ, amen.
 
 
+
+
 #Tithing

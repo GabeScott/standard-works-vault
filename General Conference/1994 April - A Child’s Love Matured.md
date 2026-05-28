@@ -57,4 +57,6 @@ I love my wife, Marilyn, so very much and am so grateful for her, for the years 
 I bear my witness that God and Jesus Christ live and that if we will love them and keep their commandments and love each other—particularly our companions and our children—we will be happier here and more secure eternally. I’m grateful for these great Brethren who lead us, and I testify of their sacred callings. I’m grateful for and humbled by the opportunity and blessing of serving with them. I pray for them and for each of you, in the name of Jesus Christ, amen.
 
 
+
+
 #Authority #Children #Fatherhood #Home #Love #Marriage #Parenthood #Priesthood

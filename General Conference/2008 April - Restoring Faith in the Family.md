@@ -134,4 +134,6 @@ It is my prayer that we can stand together, with courage and conviction, as guar
 [^21]: From Helen Steiner Rice, *Expressions of Comfort* (Uhrichsville, Ohio: Barbour Publishing, 2007), 187–88. Used by permission.
 
 
+
+
 #Example #Faith #Family #Obedience

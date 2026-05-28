@@ -81,4 +81,6 @@ With all the power of which I am capable, I bear witness to the truthfulness of 
 In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Agency #Jesus_Christ #Justice #Mercy #Plan_Of_Salvation #Repentance #Sin

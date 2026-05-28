@@ -133,4 +133,6 @@ We are those other prophets! We hold the divine authority of Jesus Christ! We sp
 This we solemnly affirm with all the power of our being, in the name of Jesus Christ. Amen.
 
 
+
+
 #Book_Of_Mormon #Prophets #Restoration

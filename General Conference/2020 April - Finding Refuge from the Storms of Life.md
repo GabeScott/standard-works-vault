@@ -81,4 +81,6 @@ The hymn “Be Still, My Soul,” which has touched my heart on many occasions, 
 As we face the storms of life, I know that if we make our best effort and rely upon Jesus Christ and His Atonement as our refuge, we will be blessed with the relief, comfort, strength, temperance, and peace that we are seeking, with certainty in our hearts that at the end of our time here on earth, we will hear the words of the Master: “Well done, thou good and faithful servant: … enter thou into the joy of thy lord” ([[Matthew 25.21|Matthew 25:21]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Jesus_Christ

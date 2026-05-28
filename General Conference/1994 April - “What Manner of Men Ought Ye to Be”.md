@@ -33,4 +33,6 @@ We must know Christ better than we know him; we must remember him more often tha
 What manner of men and women ought we to be? Even as he is. In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Example #Jesus_Christ

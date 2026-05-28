@@ -69,4 +69,6 @@ The Apostle Paul asked, “Who shall separate us from the love of Christ? shall 
 I testify that my Christ is my hope. He is my hope on rainy Monday mornings, my hope on dark nights, and my hope in the face of death and despair. And I bear this living testimony in His holy name, even the name of my Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Agency #Atonement #Death #Hope #Jesus_Christ #Women

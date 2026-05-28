@@ -141,4 +141,6 @@ The Savior’s promise is great if we do, for he said:
 And that this may be our happy privilege, I earnestly pray in the sacred name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Marriage #Plan_Of_Salvation

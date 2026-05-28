@@ -81,4 +81,6 @@ The Lord declared that “whatsoever they shall speak when moved upon by the Hol
 May we do this, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Obedience #Prayer #Prophets #Scripture_Study

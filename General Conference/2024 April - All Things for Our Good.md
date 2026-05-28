@@ -152,4 +152,6 @@ When life is cluttered and purpose isn’t clear, when you want to live better b
 [^24]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 94.
 
 
+
+
 #Adversity #Atonement #God_The_Father #Jesus_Christ #Plan_Of_Salvation #Temple_Work #Temples

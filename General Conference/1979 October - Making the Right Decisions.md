@@ -73,4 +73,6 @@ If we would all follow his example to make our decisions based on our faith in t
 O, youth of the noble birthright, make your decision here tonight: “I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]). There is power in His way. There is no greater joy in this life than to be found in His service. I bear you my solemn testimony that a decision to live according to His law will bring you life eternal. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Youth

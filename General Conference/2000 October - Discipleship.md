@@ -87,4 +87,6 @@ As true disciples of Christ, may our lives reflect His example. May we take upon
 Moreover, may God bless us that we will earnestly desire to do our spiritual housecleaning, getting into all the corners, cleaning out all those things that would diminish us as disciples of the Lord, so that we can move forward in our service to Him who is our King and Savior, I humbly pray, in the name of our Lord, Jesus Christ, amen.
 
 
+
+
 #Discipleship #Education #Example #Home #Jesus_Christ #Obedience #Repentance #Worldliness

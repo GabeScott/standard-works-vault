@@ -41,4 +41,6 @@ He has promised us glory, eternal life, exaltation, even all He has, if we faith
 I bear my solemn witness that it may be so, “relying wholly upon the merits of him who is mighty to save” ([[2 Nephi 31.19|2 Ne. 31:19]]), even our Lord and Savior, Jesus Christ. In His sacred name, Jesus Christ, amen.
 
 
+
+
 #Commandments #Jesus_Christ #Priesthood

@@ -51,4 +51,6 @@ My beloved sisters, I know that God lives, that Jesus is his Only Begotten Son, 
 May the Lord bless you as you stand firm in the faith, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Membership #Holy_Ghost #Jesus_Christ #Scriptures #Service #Women

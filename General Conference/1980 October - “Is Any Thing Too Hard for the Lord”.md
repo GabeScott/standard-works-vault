@@ -39,4 +39,6 @@ Most of the blessings of the Lord seem to come in the second mile. The first mil
 Finally, I bear my solemn witness that there is nothing too hard for the Lord. In the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Miracles #Welfare

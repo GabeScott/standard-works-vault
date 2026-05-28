@@ -71,4 +71,6 @@ I testify through the sure conviction that springs from the witness of the Spiri
 I can now see more clearly through the eyes of my own understanding what my mother could see in her precious old worn-out copy of the Book of Mormon. I pray that we may live in such a way as to merit and gain a testimony of and abide by the great truths of the Book of Mormon. I testify that the keystone of our religion is solidly in place, bearing the weight of truth as it moves through all the earth, in the name of Jesus Christ, amen.
 
 
+
+
 #Scriptures

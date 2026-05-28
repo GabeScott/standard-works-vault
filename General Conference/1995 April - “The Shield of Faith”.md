@@ -89,4 +89,6 @@ The great plan of happiness (see [[Alma 42.8|Alma 42:8, 16]][[Alma 42.16|]]) rev
 And so now with an unbroken line of priesthood authority, an unbroken line of priesthood power, we move confidently forward in unity and faith, led by Christ the Redeemer, whose church this is, and His earthly prophet, through whom He will speak. In the name of Jesus Christ, amen.
 
 
+
+
 #Authority #Ezra_Taft_Benson #Faith #Joy #Priesthood #Quorum_Of_The_Twelve_Apostles #Teaching #Unity

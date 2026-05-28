@@ -119,4 +119,6 @@ All Latter-day Saints are urgently needed today to live and teach the gospel of 
 I bear witness that God lives, that Jesus Christ is our Savior, mediator, and our divine example to follow, in the name of Jesus Christ. Amen.
 
 
+
+
 #Commandments #Obedience

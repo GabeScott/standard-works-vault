@@ -118,4 +118,6 @@ It is my hope and prayer that we will learn individually and collectively the im
 I leave my love, blessings, and testimony of these truths in the worthy name of Jesus Christ, amen.
 
 
+
+
 #Worthiness

@@ -66,4 +66,6 @@ I leave you my love, my witness, my knowledge, and my own testimony that God liv
 It’s as simple, it’s as pure and as clean as that little, simple song. It teaches us what we need to know. I’m happy on this day and honored to have raised my hand in sustaining President Gordon Bitner Hinckley as President of the Church, and his counselors, Thomas S. Monson and James E. Faust, as the Presidency—with the Quorum of the Twelve and all of the other General Authorities. The gospel is true; it is the hope of the world; it will move onward to accomplish all that it must do. I so leave you my love and witness, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Agency #Blessings #Jesus_Christ #Joseph_Smith #Prophets

@@ -67,4 +67,6 @@ None of us would ever boast in our own strength nor in our own wisdom, but as Am
 My brothers and sisters, we must do all that we have been counseled to do here in this conference. Let us not forget the simple truths—those godly traits, the weightier matters of the law, that have been described (see [[Matthew 23.23|Matt. 23:23]]). They are the very basics, the essence of the gospel, and possession of them in great abundance by Latter-day Saints will be in the end the greatest miracle of all. Yes, miracles have not ceased. Today is a day of miracles. We believe in miracles. The Latter-day Saints may expect miracles according to their faith in Jesus Christ, the only being under heaven whereby we and all mankind may be saved (see [[D&C 18.23|D&C 18:23]]), in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Native_Americans

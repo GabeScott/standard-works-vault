@@ -133,4 +133,6 @@ I am grateful that the Lord gave me the vision and strength to refrain from trus
 These and all promises to the faithful children of God are made by the voice and power of the Lord God of Israel. I testify of that God, our Savior Jesus Christ, whose resurrection and atonement have assured immortality and provided the opportunity and direction toward eternal life. In the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Obedience #Safety #Scripture_Study

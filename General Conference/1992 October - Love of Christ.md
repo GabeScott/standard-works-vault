@@ -63,4 +63,6 @@ It may be of some significance to note that the word *charity* does not appear i
 Individually and collectively, we can experience the peace and happiness enjoyed for nearly two hundred years anciently when “there was no contention in the land, because of the love of God which did dwell in the hearts of the people” ([[4 Nephi 1.15|4 Ne. 1:15]]). This I know, as I know the Savior lives, in the holy name of Jesus Christ, amen.
 
 
+
+
 #Charity #Jesus_Christ #Love #Service

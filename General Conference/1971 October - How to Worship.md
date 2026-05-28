@@ -95,4 +95,6 @@ True and perfect worship is in fact the supreme labor and purpose of man. God gr
 In the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Worship

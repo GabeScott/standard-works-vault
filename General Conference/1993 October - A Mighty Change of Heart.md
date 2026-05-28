@@ -77,4 +77,6 @@ Suddenly a loaded bus headed toward Murray, ignoring his waving arms. In despera
 I am grateful for these Brethren whom we sustain as prophets, seers, and revelators who forewarn us of bridges not to be crossed. These great men whom we sustain as prophets, seers, and revelators preach “not with enticing words of man’s wisdom, but in demonstration of the Spirit and of power” ([[1 Corinthians 2.4|1 Cor. 2:4]]). Their motives are pure as they strive to build the kingdom of God and to uplift and edify the Saints of God. In the words of the Apostle Paul, they have become “prisoners of Christ” (see [[Ephesians 3.1|Eph. 3:1]]; [[Ephesians 4.1|4:1]]; [[Philemon 1.1|Philem. 1:1, 9]][[Philemon 1.9|]]; [[2 Timothy 1.8|2 Tim. 1:8]]), whose only desire is to do the Lord’s will. Nothing more. Nothing less. And nothing else. *These are men of God!* May we heed their warning voices, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Habits #Holy_Ghost #Pride

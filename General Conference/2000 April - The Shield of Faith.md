@@ -122,4 +122,6 @@ This is the work of God. I believe and testify that, as Paul said, if we can “
 [^15]: [[Ephesians 4.13|Eph. 4:13]].
 
 
+
+
 #Adversity #Compassion #Education #Evil #Faith #General_Conference #Humility #Media #Spirituality #Success #Temple_Square

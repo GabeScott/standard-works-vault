@@ -112,4 +112,6 @@ I believe we all desire to follow President Russell M. Nelson’s challenge to p
 [^10]: Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
 
+
+
 #Covenants #Jesus_Christ #Obedience #Resurrection

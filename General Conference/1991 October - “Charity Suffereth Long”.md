@@ -49,4 +49,6 @@ At last October’s conference, Bishop Glenn L. Pace admonished all of us to loo
 I pray in all humility that our faith in God may move us to such action and that we may thus know by the Holy Spirit the meaning of charity so that we can exercise it in our lives, in the name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Hope #Love #Scriptures #Service #Unity

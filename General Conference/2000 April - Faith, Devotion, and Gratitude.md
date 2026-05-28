@@ -53,4 +53,6 @@ May we have that testimony, that desire in our hearts, to teach others, to expla
 I know that God lives, that He is our Father—He loves us all—and that Jesus is the Christ, the Son of a *living* God, and that They’re real and They live today. I so bear witness, leaving you my love and testimony, in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Joseph_Smith #Testimony

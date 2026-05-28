@@ -65,4 +65,6 @@ My dear fellow servants of the priesthood, I promise you today that when you fol
 Of this I testify as an Apostle of the Lord, our Savior, and in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Perspective #Standards #Worthiness

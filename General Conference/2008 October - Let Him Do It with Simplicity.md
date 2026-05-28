@@ -65,4 +65,6 @@ Just before Thoreau died, he was asked if he had made peace with God. He replied
 In our search to obtain relief from the stresses of life, may we earnestly seek ways to simplify our lives. May we comply with the inspired counsel and direction the Lord has given us in the great plan of happiness. May we be worthy to have the companionship of the Holy Ghost and follow the guidance of the Spirit as we navigate this mortal journey. May we prepare ourselves to accomplish the ultimate purpose of this mortal test—to return and live with our Heavenly Father—is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Financial_Management #Morality #Preparation #Priorities #Word_Of_Wisdom

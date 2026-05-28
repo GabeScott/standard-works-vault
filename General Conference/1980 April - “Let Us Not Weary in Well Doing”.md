@@ -27,4 +27,6 @@ Let us hold fast to the iron rod. The Savior urged us to put our hand to the plo
 I know with all my soul that Jesus Christ is the Son of God, that he died on the cross and was resurrected from the dead. He is the risen Lord, the Great Presiding High Priest, and he stands at the head of the Church. Of this I testify this beautiful Easter Sunday, on this great anniversary of the restoration and organization of the Church on this very spot 150 years ago. In the name of Jesus Christ. Amen.
 
 
+
+
 #Dedication #Obedience

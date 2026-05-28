@@ -21,4 +21,6 @@ On another occasion he asked the scribes and Pharisees who had been questioning 
 As I have read the scriptures, I have watched all of the prophets who have affected my life, and I have seen that they have fulfilled the role that the Master described. I have been privileged to have President Benson in my home as one of us. I have knelt with him as we have called, by prophecy, a stake president. I have felt his divine call as he leads and directs this church through the spirit of revelation. And I bear that testimony in the name of Jesus Christ, amen.
 
 
+
+
 #Commitment

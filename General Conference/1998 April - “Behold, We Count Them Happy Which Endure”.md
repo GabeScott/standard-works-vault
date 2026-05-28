@@ -83,4 +83,6 @@ May we be able to say as Paul said to Timothy, “I have fought a good fight, I 
 There is nothing that we are enduring that Jesus does not understand, and He waits for us to go to our Heavenly Father in prayer. I testify that if we will be obedient and if we are diligent, our prayers will be answered, our problems will diminish, our fears will dissipate, light will come upon us, the darkness of despair will be dispersed, and we will be close to the Lord and feel of His love and of the comfort of the Holy Ghost. It is my prayer that we can find the faith, courage, and strength to endure to the end so that we may feel the joy of faithfully returning to the arms of our Heavenly Father, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Commandments #Endurance #Faith #Family #Jesus_Christ #Joseph_Smith #Missionary_Work #Obedience #Opposition #Pioneers

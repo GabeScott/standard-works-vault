@@ -51,4 +51,6 @@ The Pearl of Great Price teaches that Moses was shown all the inhabitants of the
 I testify that the restored gospel of Jesus Christ is a pattern for all. It is not the location of events that matters; it is the good news—the timeless doctrine and atoning powers of the Lord Jesus Christ. I bear witness that He lives, that He is the Christ. I testify that the gospel restored through the Prophet Joseph Smith is Peter’s “restitution of all things.” I bear witness that President Gordon B. Hinckley is the Lord’s prophet today. In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Book_Of_Mormon #Jesus_Christ #Plan_Of_Salvation #Restoration

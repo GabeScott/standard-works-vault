@@ -99,4 +99,6 @@ I long for the day prophesied by Isaiah when “the earth shall be full of the k
 I testify of these things in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Contention #Education #False_Doctrines #Obedience

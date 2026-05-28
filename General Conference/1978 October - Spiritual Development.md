@@ -53,4 +53,6 @@ It is beautiful to know that if we can build upon a solid spiritual foundationâ€
 I know God lives and that all men are his children. I testify that Jesus is the Christ and if all men will seek to know the truth and follow his example we will be able to live up to the spiritual expectations of our Heavenly Father. May we be blessed so to do, I pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Spirituality

@@ -99,4 +99,6 @@ Now one final word about this great land. Emma Lazarus in these appropriate line
 The United States of America is the golden door. I bear my solemn and sacred witness that the United States of America is the greatest nation on the face of the earth. We ought to love it and we ought to talk about it. We need to be true, we need to have faith. If we do this, God will give us strength to brace against the winds. He will make this country like a giant pillar of granite. He will make us a mighty people, a pure people, a Christlike people, a worthy people, a free people. The Latter-day Saints bear witness and we know the witness is true that we have a modern prophet, that the Book of Mormon is a record of God’s dealings with people who had problems similar to the problems we have in this day. And they were a great people who loved this land and thus we find the course we must take in following in their footsteps. These things are true, in the name of Jesus Christ. Amen.
 
 
+
+
 #Freedom #Patriotism

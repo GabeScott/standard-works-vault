@@ -146,4 +146,6 @@ It is my sincere prayer and blessing that we will constantly nourish the roots o
 [^22]: [[Alma 32.37|Alma 32:37, 41–43]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
 
+
+
 #Faith #Jesus_Christ #Testimony #Truth

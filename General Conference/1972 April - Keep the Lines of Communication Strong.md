@@ -115,4 +115,6 @@ We are living in a sagging world. There has been sin since Cain yielded to Satan
 May we always repair our sagging lines and fulfill our total obligations and thus keep close to our Lord and Savior, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Communication #Obedience #Resurrection

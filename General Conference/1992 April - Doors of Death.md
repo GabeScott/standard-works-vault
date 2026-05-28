@@ -118,4 +118,6 @@ As a special witness of Jesus Christ, I testify that He lives! I also testify th
 With that assurance, brothers and sisters, love life! Cherish each moment as a blessing from God (see [[Mosiah 2.21|Mosiah 2:21]]). Live it well—even to your loftiest potential. Then the anticipation of death shall not hold you hostage. With the help of the Lord, your deeds and desires will qualify you to receive everlasting joy, glory, immortality, and eternal lives. For this I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Death #Plan_Of_Salvation #Resurrection

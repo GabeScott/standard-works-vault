@@ -103,4 +103,6 @@ The Lord has said that it is his “work and … glory—to bring to pass the im
 With the understanding of the gospel which we have, may we all work for eternal life, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ

@@ -53,4 +53,6 @@ Yes, every young man should fill a mission. That should be his aim, his goal, hi
 It is my prayer that every young man may prepare himself to accept a mission call, for which I pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work #Spirituality

@@ -120,4 +120,6 @@ May each of us avail ourselves of the wealth of blessings that result from scrip
 [^1]: See Gordon B. Hinckley, “A Testimony Vibrant and True,” *Liahona* and *Ensign,* Aug. 2005, 6.
 
 
+
+
 #Book_Of_Mormon #Holy_Ghost #Prophets #Scripture_Study #Scriptures

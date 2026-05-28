@@ -47,4 +47,6 @@ Ever since Samuel Smith set out to preach the gospel with a few first-edition co
 I express my solemn witness that the Book of Mormon is true. It is a book that has brought about a mighty change in my life. I know that God lives. Jesus is the Christ. His gospel has been restored to the earth. President Thomas S. Monson is His prophet and living oracle at this time. The spirit I feel as I daily read, ponder, and pray about the Book of Mormon strengthens my understanding and testimony of these things and reaffirms to me that they are true. I humbly share this testimony and my personal witness with you in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Joseph_Smith #Missionary_Work

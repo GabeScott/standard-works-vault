@@ -51,4 +51,6 @@ Ponder in your hearts the feelings of the Savior as He expresses His love for ea
 I pray that our faith may be sufficient for each of us to feel encircled in the arms of our Savior’s love. I know that our Savior lives and that He intimately knows each of us. In the name of Jesus Christ, amen.
 
 
+
+
 #Disabilities #Jesus_Christ #Love #Responsibility

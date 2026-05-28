@@ -93,4 +93,6 @@ Just as Jesus’ anxious Apostles were given peace by “another Comforter,” s
 Jesus’ invitation is extended to all: “Come unto me, all ye that labour and are heavy laden, and I will give you rest” ([[Matthew 11.28|Matt. 11:28]]). I so testify, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Holy_Ghost #Jesus_Christ #Love #Peace

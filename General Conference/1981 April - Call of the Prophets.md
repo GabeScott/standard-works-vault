@@ -89,4 +89,6 @@ I could tell you many more stories like that!
 God bless you! Thank God for the restoration of the gospel through the Prophet Joseph Smith. I leave you my testimony, in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Prophets #Restoration

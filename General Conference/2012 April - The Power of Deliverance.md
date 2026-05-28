@@ -89,4 +89,6 @@ I declare that Jesus is the Christ and that we can draw close to Him by reading 
 Again, let’s remember my friend Scott’s description of the Book of Mormon: “It’s a great book.” I testify to you that much of the Book of Mormon’s greatness stems from its harmony with the Holy Bible, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Book_Of_Mormon #Scriptures

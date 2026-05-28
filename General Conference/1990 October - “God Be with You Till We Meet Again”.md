@@ -44,4 +44,6 @@ President Benson is a man of love, and this love he would have me extend to you 
 To the membership of the Church and to God’s children everywhere, our prophet, President Ezra Taft Benson, conveys to you the tender feelings of his heart, his gratitude for your prayers, and his abiding love. God be with you, brothers and sisters, till we meet again, in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Prophets

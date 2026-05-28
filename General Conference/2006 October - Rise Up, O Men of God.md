@@ -95,4 +95,6 @@ All of us would do well to study the life of the Master and try to emulate His w
 My brethren, I testify of the truth of these eternal qualities. I testify that if we will make an effort to improve our lives, the result will become evident. God bless you, each of you, my dear brethren. Of these things I testify, humbly and gratefully, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Addiction #Education #Media #Priesthood #Worthiness

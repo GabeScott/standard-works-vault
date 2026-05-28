@@ -61,4 +61,6 @@ In summary, the Book of Mormon, which is the most correct book on earth, demonst
 May we fathers teach our sons as the exemplary Book of Mormon fathers taught their sons. And may our sons, like Nephi, listen and obey, knowing that because of those teachings they too were born of goodly parents, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Parenthood #Teaching

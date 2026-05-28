@@ -141,4 +141,6 @@ And I say unto thee, That thou art Peter, James, or John, or Bill, or Sam, and u
 And that is my testimony to you, my brothers and sisters, as we conclude this marvelous conference when we have all rejoiced so much together. My testimony is that whatsoever can be bound on earth can be bound in heaven by the authority and the power that has been given to the servants of the Lord. The Twelve Apostles were given it in those early days. It is given to them again today. Whatsoever ye shall bind on earth shall be bound in heaven. The keys of the kingdom are upon the earth. We know that the Lord wishes us to use them to open the doors to move forward and to carry forward the work of our Savior as we make our special efforts. And I bear this testimony to you and ask the blessings of the Lord to be upon you in your home going, that you may be protected and safe, and that the message of this conference may sink deep into your hearts and last forever, in the name of Jesus Christ. Amen.
 
 
+
+
 #Family #Prophets #Truth

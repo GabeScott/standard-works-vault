@@ -67,4 +67,6 @@ Later they also gave their personal witness, as the Lord’s Apostles, to the mi
 At their very core, the doctrines of The Church of Jesus Christ of Latter-day Saints are intended to convey to the soul of every sincere person who will ask of God in faith a personal testimony of our Lord and Savior and of the role of the prophets from the dawn of time to this very moment. I testify that the succession of prophets has continued from Joseph Smith, the first prophet of this dispensation, to Gordon B. Hinckley, the Lord’s prophet today. Of that I bear my witness and testimony, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Prophets #Teaching #Testimony

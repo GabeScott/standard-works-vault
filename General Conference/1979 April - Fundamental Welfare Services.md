@@ -131,4 +131,6 @@ Stake presidents and bishops have long had the major responsibility in teaching 
 That we may all vigorously pursue our duties in living and in implementing the Church Welfare Services program, I humbly pray. In the name of Jesus Christ, our Redeemer, amen.
 
 
+
+
 #Charity #Welfare

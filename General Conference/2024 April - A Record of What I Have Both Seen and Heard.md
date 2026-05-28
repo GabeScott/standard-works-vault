@@ -88,4 +88,6 @@ I join all of you, my friends, as we unitedly testify that these things are true
 [^12]: [[Matthew 13.16|Matthew 13:16]].
 
 
+
+
 #Church_Growth #Gathering #Missionary_Service #Testimony

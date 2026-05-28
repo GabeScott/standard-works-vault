@@ -41,4 +41,6 @@ We continue to need many more senior couples. As your circumstances allow, as yo
 Now, my brothers and sisters, may we listen attentively to the messages which will be presented during the next two days, that we may feel the Spirit of the Lord and gain the knowledge He would desire for us. That this may be our experience I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Couple_Missionaries #Missionary_Work #Temples

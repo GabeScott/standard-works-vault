@@ -49,4 +49,6 @@ But when we add music to the dance steps, the sometimes complicated rhythms of m
 May it be so in each of our lives and in each of our homes is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Holy_Ghost #Home #Parenthood #Patience

@@ -158,4 +158,6 @@ I joyfully declare my witness of the divinity and living reality of God, our Ete
 [^32]: [[D&C 82.14|Doctrine and Covenants 82:14]].
 
 
+
+
 #Agency #Covenants #Discipleship #Obedience #Parables #Priorities #Worldliness

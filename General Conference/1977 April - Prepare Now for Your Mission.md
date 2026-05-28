@@ -75,4 +75,6 @@ Now, young man, get up from that reclining position by the fence and move! What 
 As you make your decision, will you remember this? The Lord lives. Jesus is the Christ. This is His work in which we are engaged. In the final analysis, you must stand on your own decision. This decision will be a test of your character and obedience. May you be blessed to decide affirmatively and then prepare courageously and serve magnificently, I pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work #Preparation

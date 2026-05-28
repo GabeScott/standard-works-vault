@@ -63,4 +63,6 @@ And when the Lord calls, with Samuel we can truly say, “Speak Lord; for thy se
 For these great blessings I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Obedience

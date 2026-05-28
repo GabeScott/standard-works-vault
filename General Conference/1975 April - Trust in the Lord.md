@@ -85,4 +85,6 @@ Habakkuk declared:
 Our religion is “not weight, it is wings.” It can carry us through the dark times, the bitter cup. It will be with us in the fiery furnace and the deep pit. It will accompany us to the hospital room and to the place of bereavement. It can guarantee us the presence of a Captain on the rough voyage. It is, in short, not the path to easy disposition of problems, but the comforting assurance of the eternal light, by which we may see, and the eternal warmth, which we may feel. “The Lord is good: Blessed is the man that trusteth in him.” ([[Psalms 34.8|Ps. 34:8]].) In the name of Jesus Christ. Amen.
 
 
+
+
 #Adversity #Faith

@@ -53,4 +53,6 @@ In a recent stake conference, our prophet counseled parents:
 My prayer, my brothers and sisters, is that all of us will rejoice in the opportunities we have in caring for the souls of children. In the name of Jesus Christ, amen.
 
 
+
+
 #Children #Commandments #Councils #Covenants #Family #God_The_Father #Holy_Ghost #Home #Jesus_Christ #Joy #Love #Parenthood #Satan #Temples

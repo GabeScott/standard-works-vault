@@ -87,4 +87,6 @@ There is no other name under heaven whereby man can be saved (see [[Acts 4.12|Ac
 May we all recognize and give thanks for the incomparable gift of life we each enjoy and for the breath that He lends us daily. May we choose to have conviction at the crossroads of life and exercise faith in Jesus Christ. My prayer is that we will live by faith and not by fear. I bear my witness of God, who is our Heavenly Father, and His Son, Jesus Christ, who atoned for our sins, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Love #Missionary_Work

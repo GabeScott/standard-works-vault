@@ -91,4 +91,6 @@ If Anna Jo, who has difficult days ahead, stays steady within what has been allo
 How blessed we are that Alma’s words have been preserved for all of us. May we liken Alma’s words to ourselves (see [[1 Nephi 19.23|1 Ne. 19:23]]). I pray for this in the name of Him who counts all sparrows and all fingers and yet is the Lord of the universe, even Jesus Christ, amen!
 
 
+
+
 #Adversity #Atonement #Attitude #Conversion #Disabilities #Holy_Ghost #Poverty #Repentance #Sin

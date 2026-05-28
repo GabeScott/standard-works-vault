@@ -72,4 +72,6 @@ I testify that when we face difficult decisions and follow these guidelines, we 
 [^5]: [[1 Nephi 2.20|1 Nephi 2:20]].
 
 
+
+
 #Holy_Ghost #Judging #Obedience

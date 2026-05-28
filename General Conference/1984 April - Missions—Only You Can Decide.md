@@ -71,4 +71,6 @@ I’m grateful for the honor that I had of being Elder Durrant while in Spain. I
 I testify of these things in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

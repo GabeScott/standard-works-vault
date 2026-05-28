@@ -47,4 +47,6 @@ Young men and women, you can be a great influence for good in your homes as you 
 Although the adversary seeks to destroy the key elements necessary for a happy marriage and a righteous family, let me assure you that the gospel of Jesus Christ provides the tools and teachings necessary to combat and conquer the assailant in this war. If we will but honor our marriages by imparting more love and selflessness to our spouses; nurture our children through gentle persuasion and the expert teacher we call example; and fortify the spirituality of our families through consistent family home evening, prayer, and scripture study, I testify to you that the living Savior, Jesus Christ, will guide us and grant us victory in our efforts to achieve an eternal family unit. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Family_Home_Evening #Love #Marriage #Parenthood

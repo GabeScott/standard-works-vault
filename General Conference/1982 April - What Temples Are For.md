@@ -77,4 +77,6 @@ Now may I give some counsel to teachers, bishops, and stake presidents. No one, 
 May God bless this people to embrace the blessings and perform the sacred service provided in the temples, is my sincere prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Temple_Work

@@ -79,4 +79,6 @@ I wish to testify that there are forces which will save us from the ever-increas
 I pray that, through the spreading of righteousness, the evil hands of the destroyer might be stayed and that he may not be permitted to curse the whole world. I also pray that God will overlook our weaknesses, our frailties, and our many shortcomings and generously forgive us of our misdeeds. I further pray that He will bring solace to the suffering, comfort to those who grieve, and peace to the brokenhearted, in the holy name of Jesus Christ, amen.
 
 
+
+
 #Satan #Temptation

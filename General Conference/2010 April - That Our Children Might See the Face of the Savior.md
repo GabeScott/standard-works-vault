@@ -53,4 +53,6 @@ Brothers and sisters, we are the angels that Heavenly Father has sent today to b
 Brothers and sisters, I know that God lives. Jesus Christ is His Son, our Savior and Redeemer. He has invited us to come unto Him and has commanded us to bring our children, that we, together, might see His face and live eternally with Him and with our Father in Heaven. It is my prayer that we might all work to receive this great blessing, in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Family #Jesus_Christ #Teaching

@@ -102,4 +102,6 @@ I bear my witness that Jesus Christ is our Savior. I testify to you that, thanks
 [^16]: [[Luke 23.34|Luke 23:34]].
 
 
+
+
 #Humility #Meekness #Self-Control

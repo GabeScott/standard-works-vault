@@ -45,4 +45,6 @@ The blessings we shall receive, if we keep the commandments, exceed anything we 
 I testify that the work is true and pray that all of us may be true and faithful to our covenants, and having received peace and joy in this life, may go on to an inheritance of eternal joy and glory in the world to come. I say this soberly, humbly, and in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Priesthood

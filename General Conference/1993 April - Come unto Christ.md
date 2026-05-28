@@ -65,4 +65,6 @@ If you previously began the process of coming unto Christ but lost your way or t
 I testify that he lives, that he is the light and life of the world, that he is our Savior and our Redeemer, and I do it in the name of Jesus Christ, amen.
 
 
+
+
 #Humility #Jesus_Christ #Ordinances

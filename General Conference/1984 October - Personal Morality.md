@@ -93,4 +93,6 @@ And fifth, let us exercise our faith and prayerfully seek help from God our Fath
 May we strive to purify our personal lives, strengthen our homes—and not just talk about it, but strengthen our homes—and recognize the evil forces that are working through insidious ways to thwart our eternal progress, I humbly pray, as I declare the reality of our eternal Father in Heaven and His beloved Son Jesus Christ, our Savior and Redeemer. In His holy name, amen.
 
 
+
+
 #Media #Morality

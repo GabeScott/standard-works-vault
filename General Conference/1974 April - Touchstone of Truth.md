@@ -75,4 +75,6 @@ Yes, we talk of Mormon; we respect him as a man of God. We accept his recorded d
 May we ponder the privilege of being members of the Church of Jesus Christ and live according to its precepts, I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Book_Of_Mormon #Godhead #Joseph_Smith #Truth

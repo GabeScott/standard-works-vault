@@ -115,4 +115,6 @@ God be thanked for the Latter-day Saints—you my brethren, your wives, your chi
 I leave you my testimony. This is the work of the Almighty. This is the work of His Beloved Son. This is the work of salvation, of eternal blessings for all who will accept. May our Father help us to be true and faithful, I humbly ask in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Abuse #Church_Growth #Church_Leaders #Church_Organization #Gambling #Parenthood #Peace #Spirituality

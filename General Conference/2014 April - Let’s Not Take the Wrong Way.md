@@ -73,4 +73,6 @@ The day will come in which we shall again meet up with our Redeemer and Savior, 
 I testify to the four ends of the earth that Jesus Christ lives. He exhorts us, “Hearken, O ye nations of the earth, and hear the words of that God who made you” ([[D&C 43.23|D&C 43:23]]). May we have the capacity to grasp, give heed to, comprehend, and correctly interpret the message of “that God who made \[us\]” so as not to stray from His way, I plead in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Repentance

@@ -133,4 +133,6 @@ This summer, as we attended the dedication of the second temple to be built in I
 Of this I testify, in the name of Jesus Christ, the Lord, amen.
 
 
+
+
 #Joseph_Smith #Restoration

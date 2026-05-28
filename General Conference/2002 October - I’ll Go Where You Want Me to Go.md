@@ -134,4 +134,6 @@ Such is the miracle of service. As the poetess wrote:
 I testify of Jesus Christ, who beckons us to His path and His service, and pray that we will have the faith and commitment to follow and the power to be what He wants us to be, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Callings #Couple_Missionaries #Missionary_Work #Obedience #Service

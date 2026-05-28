@@ -39,4 +39,6 @@ From that one stalwart woman has sprung a progeny of faithful Latter-day Saints 
 It is this testimony I leave with you, praying that we will treat each one of our Heavenly Father’s children lovingly, tenderly, and individually, as He would have us treat them, and praying also that we will always be mindful of the power each one of us has to make a difference and to influence the world in which we live. In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Book_Of_Mormon #Children #Holy_Ghost #Individual_Worth #Jesus_Christ

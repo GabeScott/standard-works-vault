@@ -84,4 +84,6 @@ As one of His Apostles authorized to bear witness of Him, I solemnly testify tha
 [^11]: See [[D&C 43.16|D&C 43:16]].
 
 
+
+
 #Courage #Death #Faith #Fasting #God_The_Father #Holy_Ghost #Love #Obedience #Peace #Prayer #Satan #Spirituality #Testimony #Truth

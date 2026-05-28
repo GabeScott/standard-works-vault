@@ -35,4 +35,6 @@ The day of the San Diego California Temple dedication attended by our stake, I c
 Pat’s eyes met mine. For a brief moment I was transported back across the years, past the challenges and the heartaches to that wonderful day when together we had entered the house of the Lord. I drew my children close. In that instant a wonderful, celestial feeling swelled my breast. I *knew* I was in a holy place. I felt a peace as I had on that dark night so many years ago—and again I rejoiced. In the name of Jesus Christ, amen.
 
 
+
+
 #Marriage #Temples #Zion

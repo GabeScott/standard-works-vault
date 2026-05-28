@@ -35,4 +35,6 @@ When we speak and act, we should ask whether our words and expressions are calcu
 I bear witness that God is indeed holy. He is our Father, we His children. We are His heirs and co-heirs with Jesus Christ of His glory. Christ has borne our sins and conquered death. He has invited us to be as He is and to edify in word and in deed. With John I believe that it is our destiny that “when he shall appear, we shall be like him; for we shall see him as he is” ([[1 John 3.2|1 Jn. 3:2]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Communication #Holy_Ghost #Profanity #Reverence

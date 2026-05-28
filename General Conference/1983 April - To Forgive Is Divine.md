@@ -45,4 +45,6 @@ Many people bring troubles and difficulties upon themselves by an unforgiving at
 As we struggle toward that perfection which Jesus Christ holds out for us, let us give emphasis to forgiveness. Let us cultivate that aspect of our character and rejoice in the spirit of forgiveness, which is the comforting message of the Atonement. I pray that we may all cultivate that spirit, in the name of Jesus Christ, amen.
 
 
+
+
 #Disciplinary_Councils #Forgiveness

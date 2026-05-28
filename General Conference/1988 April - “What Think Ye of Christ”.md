@@ -39,4 +39,6 @@ Again, I ask the question, “What think ye of Christ?” I bear you my solemn t
 I certify to you that we are led by living prophets today who receive inspiration and revelation from the Lord. I further clasp hands with Joshua, who said, “Choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]). In the sacred name of Jesus Christ, our Savior, amen.
 
 
+
+
 #Atonement #Jesus_Christ

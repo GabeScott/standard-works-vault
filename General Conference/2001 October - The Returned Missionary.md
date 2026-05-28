@@ -69,4 +69,6 @@ My visit with my first missionary companion was the last opportunity I had to be
 I wish all of you could have an experience similar to the one I had with my first missionary companion, that you could pause and reflect on a time of service when you gave diligently of your time and your talents in building our Father in Heaven’s kingdom. If you try to make it happen, I promise you that it will be one of the thrilling experiences of your life. You are a great army of returned missionaries. Go forward with new zeal and determination, and through your example shine the light of the gospel in this troubled world. This is the Lord’s work in which we are engaged. God lives. Jesus is the Christ. We belong to His Church. This is my witness to you in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Marriage #Missionary_Work #Morality #Prayer #Scripture_Study #Scriptures #Teaching

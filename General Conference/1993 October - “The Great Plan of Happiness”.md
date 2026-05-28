@@ -91,4 +91,6 @@ In all of this, we should remember King Benjamin’s caution to “see that all 
 When we have done all that we are able, we can rely on God’s promised mercy. We have a *Savior,* who has taken upon him not just the sins, but also “the pains and the sicknesses of his people … that he may know according to the flesh how to succor his people according to their infirmities” ([[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]). He is our Savior, and when we have done all that we can, he will make up the difference, in his own way and in his own time. Of that I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Marriage #Morality #Plan_Of_Salvation

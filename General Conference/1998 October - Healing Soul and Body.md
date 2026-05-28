@@ -87,4 +87,6 @@ My dear brothers and sisters, when pain, tests, and trials come in life, draw ne
 Our Savior waits for us to come to Him through our scripture study, pondering, and prayer to our Heavenly Father. Great blessings and lessons come from overcoming adversity. As we are strengthened and healed, we can then lift and strengthen others with our faith. May we be instruments in the Lord’s hands in blessing the lives of those in pain. I give you my testimony that God lives and that Jesus is the Christ and that He waits for us to come to Him to give us counsel and compassionate caring. May the Lord’s blessings be upon each of us as we deal with the trials of life for us personally and for our loved ones, I so pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Death #Faith #Healing #Jesus_Christ #Love #Prayer #Repentance #Resurrection #Spirituality

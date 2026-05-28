@@ -54,4 +54,6 @@ I stand today as a witness that our Father’s promises will all be fulfilled; t
 [^7]: [[Alma 37.46|Alma 37:46–47]][[Alma 37.47|]].
 
 
+
+
 #Dedication #Faith #General_Conference #Obedience

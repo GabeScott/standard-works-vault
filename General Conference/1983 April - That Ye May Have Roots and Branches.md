@@ -57,4 +57,6 @@ Tithing, then, is one of the bedrock foundation principles of exaltation. And, a
 Who, then, can afford not to give the Lord his tenth? Surely neither you nor I; which witness I bear. For surely the Lord God has spoken it. And in the words of King Benjamin, “He never doth vary from that which he hath said.” ([[Mosiah 2.22|Mosiah 2:22]].) In the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Tithing

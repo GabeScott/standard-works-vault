@@ -75,4 +75,6 @@ You can have memories like that to sustain your faith when life puts you in diff
 I testify that I know that you and I hold the priesthood of God and that He will answer our prayers with sweet assurance and with the help to serve Him better. I so promise you and testify in the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Leadership #Prayer #Priesthood #Testimony #Work

@@ -110,4 +110,6 @@ I invite you to faithfully activate heavenly power to receive specific blessings
 [^29]: [[Proverbs 28.20|Proverbs 28:20]].
 
 
+
+
 #Blessings #Faith #Obedience #Prayer #Spirituality

@@ -184,4 +184,6 @@ In the name of Jesus Christ, amen.
 [^23]: Thomas S. Monson, “[[2010 April - A Word at Closing.md|A Word at Closing]],” *Ensign* or *Liahona,* May 2010, 113.
 
 
+
+
 #General_Conference #Prophets

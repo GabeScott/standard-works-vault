@@ -55,4 +55,6 @@ May I add my own feelings. Our family work has become a big factor in bringing a
 I bear testimony that family work, when combined with family prayer and family scripture study, will do much to secure the blessings of heaven for families on earth. In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Work

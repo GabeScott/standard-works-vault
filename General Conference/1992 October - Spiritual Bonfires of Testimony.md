@@ -69,4 +69,6 @@ I bear testimony that in order for us to enjoy a happy, rewarding, and spiritual
 I know that our Heavenly Father lives and loves each of His children. His Son, Jesus Christ, is our Savior and Redeemer. Christ’s atonement provides for all of us immortality and the possibility of eternal life, the kind of life that God lives, if we will repent of our sins and will be true and faithful in keeping the commandments. Joseph Smith is a prophet of God. Through him, the Lord restored the gospel of Jesus Christ in these the latter days. President Ezra Taft Benson is our prophet today. I testify of these divine truths in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Jesus_Christ #Repentance #Testimony

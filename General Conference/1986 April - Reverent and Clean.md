@@ -129,4 +129,6 @@ Our thirteenth article of faith commits us to seek after things that are “virt
 I testify of God the Father and his Son, Jesus Christ, and pray that we may be more faithful in honoring their holy names. In the name of Jesus Christ, amen.
 
 
+
+
 #Profanity

@@ -79,4 +79,6 @@ I testify of God’s goodness and Christ’s power, and of the privilege Apostle
 I say of our Father as the Psalmist said, “Thou art the God that doest wonders: thou hast declared thy strength among the people.” ([[Psalms 77.14|Ps. 77:14]].) In the sacred name of Jesus Christ, amen.
 
 
+
+
 #Faith #Miracles

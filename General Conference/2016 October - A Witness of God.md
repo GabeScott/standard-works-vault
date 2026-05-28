@@ -132,4 +132,6 @@ I close with words from the Doctrine and Covenants: “Call upon the Lord, that 
 [^16]: [[D&C 65.5|Doctrine and Covenants 65:5]].
 
 
+
+
 #Conversion #House_Of_Israel #Missionary_Work

@@ -107,4 +107,6 @@ Like Nephi, we may not always know the meaning of things happening to us or arou
 Yes, “the enemy is combined,” but when we are combined with the Lord’s “chariots of fire,” then “they that be with us are more than they that be with them”! ([[2 Kings 6.16|2 Kgs. 6:16–17]][[2 Kings 6.17|]]). Furthermore, the divine promise is that no weapon formed against the Lord’s work shall finally prosper; “this is the heritage of the servants of the Lord” ([[Isaiah 54.17|Isa. 54:17]]; see also [[D&C 71.9|D&C 71:9]]). I so assure; I so testify in the name of Jesus Christ, amen!
 
 
+
+
 #Commitment #Faith #Holy_Ghost #Last_Days

@@ -25,4 +25,6 @@ I’ve come to know that Jesus is our Christ, that His and the Father’s mercie
 Again, we rejoice in this opportunity to serve. We are deeply humbled and greatly honored, and I leave that testimony with you in the name of Jesus Christ, amen.
 
 
+
+
 #Humility #Prophets #Service

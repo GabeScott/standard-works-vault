@@ -39,4 +39,6 @@ I have mentioned in previous conferences the progress we are making in placing t
 Now, brothers and sisters, it is my prayer that we may be filled with the Spirit of the Lord as we listen to the messages today and tomorrow and learn those things the Lord would have us know. This I pray for in the name of Jesus Christ, amen.
 
 
+
+
 #General_Conference #Temple_Work #Temples

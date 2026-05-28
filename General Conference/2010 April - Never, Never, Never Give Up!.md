@@ -61,4 +61,6 @@ The next day she had some difficulties with her friends who were unkind and betr
 My dear young women, I have met many of you who, just like Julie, have not given up when faced with difficult circumstances but have chosen to follow the plan. I pray that step by step you will continue to strengthen your testimony. Seek the help of our Heavenly Father, Jesus Christ, prophets, and others who will support you in your decision to follow the plan. Live a virtuous life so that you may have the companionship of the Holy Ghost to safely guide you. I testify that if you will do these things, the Lord will be with you and you will be able to stay on the path that leads to the temple and to eternal life. “Be strong and of a good courage” ([[Joshua 1.9|Joshua 1:9]]) and never, never, never give up! In the name of Jesus Christ, amen.
 
 
+
+
 #Courage #Dedication #Goals #Holy_Ghost #Scriptures #Testimony

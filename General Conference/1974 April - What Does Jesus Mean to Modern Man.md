@@ -57,4 +57,6 @@ All can be placed on the pathway to eternal progression. Everyone who accepts hi
 To the question “What does Jesus mean to modern man?” I testify that he means everything. To this statement I bear solemn witness in his name. Amen.
 
 
+
+
 #Jesus_Christ #Testimony

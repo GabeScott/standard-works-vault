@@ -114,4 +114,6 @@ I pray that as we leave this conference, each one of us will take from the messa
 I testify that we have been taught the truth during this conference, that God lives, that Jesus Christ is his Son, and that the gospel has been restored in these latter days. All of which I do in his sacred name, even the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Obedience #Sacrifice #Self-Reliance

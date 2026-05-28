@@ -206,4 +206,6 @@ May we all seek and find the higher joy that comes from devoting our lives to ou
 [^29]: [[Philippians 4.7|Philippians 4:7]].
 
 
+
+
 #Adversity #Discipleship #Hope #Joy #Peace #Service

@@ -97,4 +97,6 @@ Yes, I testify that sacrifice brings forth the blessings of heaven. This is “a
 I testify to you that this is a day of sacrifice, that it is part of the Lord’s plan to bless us, His children. I pray we will do as the Psalmist exhorted—“offer the sacrifices of righteousness, and put \[our\] trust in the Lord” ([[Psalms 4.5|Ps. 4:5]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Marriage #Missionary_Work #Sacrifice #Self-Esteem

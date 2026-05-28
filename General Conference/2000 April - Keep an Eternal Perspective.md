@@ -63,4 +63,6 @@ I conclude with the words from this beautiful hymn:
 I testify that the great plan of the Eternal God is true. God lives. Jesus is His Divine Son. Joseph Smith is a true prophet, and this work is directed by the Lord through 15 prophets, seers, and revelators. In the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Adversity #Anger #Commandments #Conversion #Faith #Missionary_Work #Music #Perspective #Plan_Of_Salvation #Repentance #Seminary #Standards #Teaching #Testimony

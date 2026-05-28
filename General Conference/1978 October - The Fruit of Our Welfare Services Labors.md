@@ -131,4 +131,6 @@ We ask you also to support the Brethren, and we ask them to support you and to w
 May the Lord bless us in this great and divinely inspired welfare work, I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Preparation #Relief_Society #Welfare

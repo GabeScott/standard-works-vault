@@ -206,4 +206,6 @@ And that, I assure you, is exactly what we do. In the name of Jesus Christ, amen
 [^20]: The Book of Mormon (1830), 105; see also [[2 Nephi 25.26|2 Ne. 25:26]].
 
 
+
+
 #Book_Of_Mormon #Death #Jesus_Christ #Prayer

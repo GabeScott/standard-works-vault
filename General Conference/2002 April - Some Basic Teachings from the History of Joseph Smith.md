@@ -99,4 +99,6 @@ It is our responsibility to strengthen, day by day, the impressions that we feel
 It is my prayer that we may do this, constantly, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Attendance #Joseph_Smith #Prayer #Scriptures #Spirituality #Truth

@@ -69,4 +69,6 @@ I am so grateful for the many angels that the Lord has put in my path throughout
 This is a gospel of love, a gospel of ministering. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Angels #Friendship #Kindness #Service

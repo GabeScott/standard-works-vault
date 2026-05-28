@@ -57,4 +57,6 @@ That young man worked with enthusiasm and energy in some of the areas of our mis
 Above all the benefits and blessings of missionary service that come into the life of a missionary—and that which brings unparalleled peace and comfort to the soul—is the testimony which comes to him, perhaps not all at once, perhaps line upon line. (See [[Isaiah 28.13|Isa. 28:13]].) That testimony I wish to bear to you now as a returned missionary. I know God lives. I know that Jesus is the Christ, God’s Son, the leader of all humanity, and the measure of mankind. He is the King, our Counselor, and our Friend. He is worthy of our most pure and profound adoration and deserving of our very best efforts. As missionaries, we long to serve him with all our heart, might, mind, and strength. (See [[D&C 4.2|D&C 4:2]].) In the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

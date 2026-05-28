@@ -99,4 +99,6 @@ God help us to humbly accept his blessings of strength and guidance. The wise an
 I leave you my special witness of the truthfulness of this great work. All of us can more effectively share our knowledge and testimonies if we boast not. This I say in the name of Jesus Christ, amen.
 
 
+
+
 #Gratitude #Humility

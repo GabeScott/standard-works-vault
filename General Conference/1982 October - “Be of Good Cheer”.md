@@ -93,4 +93,6 @@ Meanwhile, He who knows the path perfectly has promised, “Be of good cheer, fo
 In the name of Him who waits “with open arms to receive” us—Jesus Christ, amen. ([[Mormon 6.17|Morm. 6:17]].)
 
 
+
+
 #Faith #Hope #Last_Days

@@ -114,4 +114,6 @@ I sorrow that a single drop of His blood was shed for me. I pray that someday I 
 [^19]: “Come, Thou Fount of Every Blessing,” *Hymns* (1948), no. 70.
 
 
+
+
 #Atonement #Blessings #Jesus_Christ #Joseph_Smith #Sacrifice

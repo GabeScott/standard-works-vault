@@ -41,4 +41,6 @@ In holy places and in sacred space we find spiritual refuge, renewal, hope, and 
 I express my testimony of the Lord and Savior Jesus Christ, the very Prince of Peace and Hope, in the name of Jesus Christ, amen.
 
 
+
+
 #Home #Sacrifice #Temples

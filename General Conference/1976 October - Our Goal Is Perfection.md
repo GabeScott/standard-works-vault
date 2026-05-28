@@ -63,4 +63,6 @@ The Church is engaged in the greatest work in all the world—saving the souls o
 May we be successful in this, our greatest responsibility, is my humble prayer, in the name of the Lord, Jesus Christ. Amen.
 
 
+
+
 #Dedication #Plan_Of_Salvation #Self-Control

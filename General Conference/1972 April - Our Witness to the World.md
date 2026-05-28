@@ -63,4 +63,6 @@ We have the fullness of the gospel of Jesus Christ. He is so generous and kind t
 And we bear this witness to you in all soberness, leaving you our love and our blessings, and our most fond affection. We love you, we want you, and we do it in the name of our Lord and Savior, Jesus Christ, who is our Redeemer. Amen.
 
 
+
+
 #Christianity #Restoration #Testimony

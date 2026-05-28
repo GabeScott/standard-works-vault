@@ -104,4 +104,6 @@ In the parable of talents, the one who had increased his talents was told, “We
 [^18]: [[Matthew 25.23|Matt. 25:23]].
 
 
+
+
 #Church_History #Endurance #Faith #Jesus_Christ #Kindness #Love #Obedience #Sacrifice #Work

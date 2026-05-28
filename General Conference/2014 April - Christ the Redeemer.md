@@ -69,4 +69,6 @@ Christ was the first to be resurrected and never die again, to possess forever a
 I testify that Christ will return in a way very different from His first coming. He will come in power and glory with all the just and faithful Saints. He will come as King of kings and Lord of lords, as the Prince of Peace, the promised Messiah, the Savior and Redeemer, to judge the living and the dead. I love and serve Him with all my heart, and I plead that we may serve with joy and dedication and that we may remain faithful to Him until the end. In His name, Jesus Christ, amen.
 
 
+
+
 #Atonement #Death #Jesus_Christ #Resurrection

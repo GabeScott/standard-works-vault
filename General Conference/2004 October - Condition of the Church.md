@@ -47,4 +47,6 @@ The Book of Mormon was recently included as one of the 20 most influential books
 And so, brothers and sisters, I might continue. Suffice it to say that I believe the Church is in better condition than it has been at any time in its entire history. I have been around now for nearly 95 years of that history, and I have seen much of it firsthand. I am satisfied that there is greater faith, there is a broader measure of service, and there is a more general measure of integrity among our youth. There is greater vitality in all aspects of the work than we have ever seen before. Let us glory in this wonderful season of the work of the Lord. Let us not be proud or arrogant. Let us be humbly grateful. And let us, each one, resolve within himself or herself that we will add to the luster of this magnificent work of the Almighty, that it may shine across the earth as a beacon of strength and goodness for all the world to look upon, is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Education #Temples

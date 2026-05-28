@@ -191,4 +191,6 @@ Brethren of the priesthood, if the gospel of Jesus Christ is true—and it is tr
 I bear you my solemn witness that it is true, that the Lord is in his heavens; he is closer to us than you have any idea. You ask when the Lord gave the last revelation to this church. The Lord is giving revelations day by day, and you will witness and look back on this period and see some of the mighty revelations the Lord has given in your day and time. To that I bear you my witness, and leave with you my testimony this night, in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Church_Leaders #Commandments #Faith #Morality #Obedience #Welfare

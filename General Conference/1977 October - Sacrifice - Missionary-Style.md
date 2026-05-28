@@ -87,4 +87,6 @@ I know if we practice the principles of sacrifice daily and deny our personal de
 I bear you my humble testimony that I know God lives and that Jesus is the Christ, the Savior of mankind. I know that Joseph Smith was called and ordained to restore the gospel of Jesus Christ in these last days. And President Spencer W. Kimball today is indeed the prophet of the Lord and is administering to the needs of the Church all over the world. In the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

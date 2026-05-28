@@ -77,4 +77,6 @@ Just as the Salt Lake Temple took 40 years to build, stone by stone, you are bui
 I bear testimony that we *are* daughters of our Heavenly Father. He loves us and is mindful of each of us, whatever our circumstances. Whether we are 16 or 86, His greatest desire is for our eternal happiness. Of this I humbly testify in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Example #Virtue

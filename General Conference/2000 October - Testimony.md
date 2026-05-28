@@ -27,4 +27,6 @@ I think of the words of the Prophet Joseph: “And now, after the many testimoni
 For all who have borne witness of this work and all who will yet bear witness of this work, in my day and my time, I bear that witness and testimony to you this day at this time. I know that there is a God in heaven, and I know He lives. I know God lives. I *know* He lives. I know He lives, and I know that He is the Father of all of us. I know that God our Father is in this work in great congregations such as this, and in the smallest branch and the smallest congregation God is in this work. I know that Jesus Christ is our Savior and our Redeemer and that He has purchased us by the shedding of His blood and by the anguish which He suffered in Gethsemane. I know that apostles and prophets are at the foundation of this work, beginning with the Prophet Joseph and coming to President Gordon B. Hinckley this day. This, my brothers and sisters, is the gospel of Jesus Christ. This work is true. May the Lord bless us to live by it. In the name of Jesus Christ, amen.
 
 
+
+
 #Obedience #Ordinances #Temples #Testimony

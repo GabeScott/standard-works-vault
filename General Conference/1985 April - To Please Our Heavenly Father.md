@@ -65,4 +65,6 @@ The remarkable and wonderful thing is that although they give up much to go, as 
 I want to suggest them to every boy and man within the sound of my voice—“I will try to do that which will please my Heavenly Father.” I do not hesitate to promise that if we will do so our lives will be the richer, the more purposeful, the more satisfying. Our homes will be happier, and one day in the life to come we shall hear from Him whom we have served, “Well done, thou good and faithful servant. Enter thou into the joy of thy Lord.” ([[Matthew 25.21|Matt. 25:21]].) For this I humbly pray in behalf of each of us, in the name of Jesus Christ, Amen.
 
 
+
+
 #Love

@@ -156,4 +156,6 @@ I so testify in the name of Jesus Christ, amen.
 [^32]: “Though Deepening Trials,” *Hymns,* no. 122.
 
 
+
+
 #Peace #Temples

@@ -71,4 +71,6 @@ To men and women worldwide we declare in sobriety and plainness that God the Fat
 We invite mankind everywhere to prayerfully study the truths revealed following this greatest heavenly manifestation. Even though it caused great ridicule and abuse to the Prophet Joseph in the days that followed and ultimately contributed to his martyrdom, I humbly thank God that he had the courage to declare in unmistakable plainness, “However, it was nevertheless a fact that I had beheld a vision.” ([[Joseph Smith History 1.24|JS—H 1:24]].) To the truthfulness of these glorious but plain words, I leave you my humble witness in the name of Jesus Christ. Amen.
 
 
+
+
 #Communication #Testimony #Truth

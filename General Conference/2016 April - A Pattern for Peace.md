@@ -138,4 +138,6 @@ I testify that Jesus Christ is “the way, the truth, and the life”[^18] and t
 [^18]: [[John 14.6|John 14:6]].
 
 
+
+
 #Adversity #Atonement #Covenants #Jesus_Christ #Peace #Prophets #Repentance #Temples

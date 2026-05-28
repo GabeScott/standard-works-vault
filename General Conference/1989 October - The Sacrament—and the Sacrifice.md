@@ -109,4 +109,6 @@ Immortality comes to us all as a free gift by the grace of God alone, without wo
 I testify to all of you that our Heavenly Father does answer our righteous pleadings. The added knowledge which has come to me has made a great impact upon my life. The gift of the Holy Ghost is a priceless possession and opens the door to our ongoing knowledge of God and eternal joy. Of this I bear witness, in the holy name of Jesus Christ, amen.
 
 
+
+
 #Gratitude #Obedience #Sacrament #Sacrifice #Spirituality

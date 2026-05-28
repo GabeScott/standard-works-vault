@@ -93,4 +93,6 @@ My brothers and sisters, the work of this Church is moving forward as perhaps ne
 I leave with you my testimony of the truthfulness of this most important work. It is the work of the Lord. In the name of Jesus Christ, amen.
 
 
+
+
 #Good_Samaritan #Welfare

@@ -35,4 +35,6 @@ Beloved sisters, I invite you to experiment upon the word, to feast. As Jesus sa
 I know that he lives, and that he loves us, and that his hand is outstretched still. May I serve you and him, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Scripture_Study #Scriptures #Women #Young_Women

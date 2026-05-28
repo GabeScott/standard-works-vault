@@ -164,4 +164,6 @@ I bear witness to you, my brethren, you of the prospective elders and you in lik
 God grant that you who are fathers, who are without that inspiration in your home and in your family, can return and speak once again, after your sojourn in the wilderness, with the language of inspiration. You likewise can bear witness that you know, as I know, that He lives. In the name of Jesus Christ. Amen.
 
 
+
+
 #Activation #Conversion #Priesthood

@@ -138,4 +138,6 @@ As did my friend, you may wonder if your Heavenly Father loves you. The answer i
 [^11]: On our temples, the standard inscription is “Holiness to the Lord, the House of the Lord.” A few temples include more than this inscription, such as adding the name of the Church. A few temples have the inscription reversed: “The House of the Lord, Holiness to the Lord” (in Atlanta, Los Angeles, and San Diego in the United States). The Logan Utah Temple inscription simply states, “Holiness to the Lord.”
 
 
+
+
 #Discipleship #Holiness #Missionary_Service #Temples

@@ -90,4 +90,6 @@ What great promises! My brothers and sisters, let me just end by emphasizing the
 I leave you my testimony, my brothers and sisters, that the gospel of Jesus Christ is the way to shore, and to safety, and to happiness here and to joy eternally. I bear testimony that God does live, his Son Jesus Christ lives. The gospel of Jesus Christ is true, and we have a true and living prophet guiding us today, pointing the way under guidance and direction from on high in the troubled conditions under which we live. I leave you that testimony, my brothers and sisters, in all humility, and in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Compassion #Plan_Of_Salvation

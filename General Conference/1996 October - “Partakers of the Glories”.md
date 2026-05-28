@@ -75,4 +75,6 @@ The Saints in Mistolar knew God. They had a testimony of His gospel. They were p
 That we may all be “partakers of the glories” in our Father’s kingdom is my prayer. And I say it in the name of Jesus Christ, my Savior, amen.
 
 
+
+
 #Covenants #Gratitude #Holy_Ghost #Ordinances #Patriarchal_Blessings #Plan_Of_Salvation #Priesthood #Relief_Society #Temples

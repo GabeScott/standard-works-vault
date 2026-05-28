@@ -107,4 +107,6 @@ You people here today have come one of a city and two of a family to learn of th
 God bless you all, and I hope you realize that the Lord is speaking through his living prophets, that this Church is built upon the foundation of living prophets, and that we speak to the world to bear witness of what He has done because we know of a surety that this is his work. This is my testimony, and I bear it in great humility, and in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Prophecy #Prophets

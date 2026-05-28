@@ -27,4 +27,6 @@ I finish where I began: Jesus’ statement “Come and see” provides both an i
 Of that I testify, as one of His servants, in the name of Jesus Christ, amen.
 
 
+
+
 #Greed #Healing #Jesus_Christ #Love #Service

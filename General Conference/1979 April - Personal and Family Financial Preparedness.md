@@ -107,4 +107,6 @@ May each of us this night commit ourselves to incorporate these great principles
 Brethren, how glorious it is to know that God lives and that Jesus is the Christ, our Savior and Redeemer, and also to know that the gospel in its fulness has been restored, together with the power to act in the name of God, through the instrumentality of the Prophet Joseph Smith, and that there is a living prophet at the head of the Church today, our beloved President Spencer W. Kimball. I pray that we may have the good judgment to follow his counsel. In the name of Jesus Christ, amen.
 
 
+
+
 #Self-Reliance

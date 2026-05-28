@@ -94,4 +94,6 @@ My dear friends, the Savior heals the broken heart and binds up your wounds (see
 Of this I bear witness with all my heart and mind in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Church_Membership #Endurance #Gratitude #Joy

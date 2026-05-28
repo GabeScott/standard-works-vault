@@ -95,4 +95,6 @@ Now is the time for all of us to reach out and tell others who we are. Prepare s
 Brothers and sisters, never hesitate to bear your testimony with sincerity and love. The power of personal testimony cannot be denied and often ignites in others the interest to know more. I know this to be true and leave you my absolute witness that I know The Church of Jesus Christ of Latter-day Saints is true, and I bear that testimony to you in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Faith #Family #Truth

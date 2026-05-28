@@ -27,4 +27,6 @@ There is a scripture that goes this way: “He that receiveth a prophet in the n
 May I end where I began. God does live. Jesus is the Christ. Joseph Smith is a true prophet, and we are led by a prophet of God today. The prophet has my loyalty and he has my love, because how can I uphold the Lord unless I uphold him? In the name of Jesus Christ, amen.
 
 
+
+
 #Prophets #Unity

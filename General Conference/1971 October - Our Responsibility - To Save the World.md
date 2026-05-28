@@ -73,4 +73,6 @@ It is my earnest prayer that all of us will be firm, steadfast, and immovable in
 As we address our efforts in this direction, we will be worthy examples of the things we teach. We will earnestly be engaged in sharing a knowledge of the gospel with our friends and associates and in bearing testimony and witness to the divinity of the work in which we are engaged. May God so bless us, I pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Commandments #Obedience #Satan

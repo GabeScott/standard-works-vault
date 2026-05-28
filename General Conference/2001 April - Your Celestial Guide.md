@@ -67,4 +67,6 @@ If Heavenly Father knew me growing up in a town so small it was rarely on any ma
 If He knows one young woman in a faraway branch in British Columbia, He knows you—wherever you are. I have learned that truth for myself and bear that witness to you, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Holy_Ghost #Obedience #Patriarchal_Blessings #Prayer #Sacrament #Spirituality #Temptation #Young_Women

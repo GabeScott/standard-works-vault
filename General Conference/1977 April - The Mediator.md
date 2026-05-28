@@ -173,4 +173,6 @@ Eliza R. Snow, with deep spiritual inspiration, wrote these words, with which I 
 In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Jesus_Christ #Justice #Mercy

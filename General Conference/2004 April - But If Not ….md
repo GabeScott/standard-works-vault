@@ -126,4 +126,6 @@ Our God will see that we receive justice and fairness, *but if not.* … He will
 [^20]: See [[D&C 84.35|D&C 84:35–38]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]].
 
 
+
+
 #Agency #Faith #Trust

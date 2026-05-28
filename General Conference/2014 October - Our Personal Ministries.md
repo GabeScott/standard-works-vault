@@ -90,4 +90,6 @@ That we may do so is my prayer in the name of Jesus Christ, amen.
 [^9]: [[Matthew 25.32|Matthew 25:32–40]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].
 
 
+
+
 #Discipleship #Jesus_Christ #Love #Service

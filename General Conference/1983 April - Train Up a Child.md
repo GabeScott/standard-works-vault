@@ -95,4 +95,6 @@ Dr. Nick Stinnett of the University of Nebraska gave a most interesting talk at 
 We who have embraced the gospel of Jesus Christ ought to have the devotion and the determination necessary to build strong family units. May God bless us that we may “organize \[ourselves\]; prepare every needful thing; and establish a house” ([[D&C 109.8|D&C 109:8]]) for those we love that is worthy of an eternal family unit is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Parenthood

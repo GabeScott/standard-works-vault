@@ -59,4 +59,6 @@ Aside from participating in the ordinances of the gospel, there is no other time
 I testify that God lives, that Jesus is the Christ, that Joseph Smith was the Prophet of the Restoration. Ezra Taft Benson is our prophet. The Book of Mormon’s gold plates are a reality, as were the appearances of Moroni and many other angels who instructed the Prophet Joseph Smith in response to his prayers. The restoration of the priesthood is real and eternal. It is the binding force for such divine ordinances as baptisms and sealings as administered by the Church today. The First Presidency and the Twelve Apostles are prophets, seers, and revelators. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Communication #Faith #Prayer

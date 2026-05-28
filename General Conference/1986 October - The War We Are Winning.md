@@ -107,4 +107,6 @@ God bless us, my beloved brethren of the priesthood, in the work that is so clea
 In the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Courage #Faith #Priesthood #Satan #Word_Of_Wisdom

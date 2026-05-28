@@ -143,4 +143,6 @@ We shall have taken a long stride forward in the Lord’s perfect economic progr
 God bless us in performing this great service, I pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Charity #Consecration #Jesus_Christ #Welfare #Work

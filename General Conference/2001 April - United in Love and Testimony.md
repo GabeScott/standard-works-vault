@@ -76,4 +76,6 @@ President Hinckley is His prophet on the earth. This is His Church. May our unit
 [^13]: [[D&C 5.10|D&C 5:10]].
 
 
+
+
 #Atonement #Book_Of_Mormon #Church_Growth #Jesus_Christ #Love #Prophets #Testimony #Unity

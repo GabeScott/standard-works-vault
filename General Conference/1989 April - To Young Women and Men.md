@@ -109,4 +109,6 @@ He calls to you: “Wherefore, lift up your hearts and rejoice, and gird up your
 God bless you young women and young men who struggle through the worrisome teenage years. Some of you may not yet have found yourselves, but you are *not* lost, for Jesus is the Christ, the Son of God, our Savior and Redeemer. The gospel has been revealed and restored. Of Him I bear witness as I pray His blessings upon you, our youth, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Courage #Forgiveness #Jesus_Christ #Obedience #Temptation #Youth

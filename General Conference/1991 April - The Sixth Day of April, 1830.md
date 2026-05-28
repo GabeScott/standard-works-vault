@@ -53,4 +53,6 @@ I testify that Jesus Christ is his Only Begotten Son, the Savior of the world, a
 I testify that the boy prophet, who in so many ways remains the central miracle in the 161 years of this church’s experience, is living proof that, within God’s hands and under the direction of the Savior of the world, weak and simple things should come forth and break down the mighty and strong ones. In this anniversary season of the organization of the Church, I bear testimony of its truthfulness in the name of Jesus Christ, amen.
 
 
+
+
 #Joseph_Smith #Restoration

@@ -101,4 +101,6 @@ If we are to build that Zion of which the prophets have spoken and of which the 
 Let us never forget that we have a marvelous heritage received from great and courageous people who endured unimaginable suffering and demonstrated unbelievable courage for the cause they loved. You and I know what we should do. God help us to do it when it needs to be done, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Pioneers

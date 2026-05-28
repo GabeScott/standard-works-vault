@@ -91,4 +91,6 @@ In the scriptures is a magnificent sermon in a single line, in which I interpola
 God bless us, young men and men, to be what God permits us and expects us to be. In the name of Jesus Christ, amen.
 
 
+
+
 #Character #Fatherhood #Youth

@@ -102,4 +102,6 @@ Most of all, because Joseph was a prophet, we have witness upon witness, testimo
 [^18]: [[John 17.3|John 17:3]].
 
 
+
+
 #Book_Of_Mormon #Faith #Holy_Ghost #Joseph_Smith #Prophecy #Prophets #Testimony

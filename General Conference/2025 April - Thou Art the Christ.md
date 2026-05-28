@@ -178,4 +178,6 @@ This Jesus should not be a fictional Jesus,[^37] or a simplistic Jesus,[^38] or 
 [^50]: [[Romans 3.25|Romans 3:25]]; see also [[1 John 2.2|1 John 2:2]]; [[1 John 4.10|4:10]].
 
 
+
+
 #Children #Covenants #Discipleship #Faith #Jesus_Christ

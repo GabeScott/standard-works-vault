@@ -63,4 +63,6 @@ Could we be as diligent today? Can we as women be accountable and help meet the 
 May we look for the stars and find satisfaction, even joy, in living according to the directions of these prophets and Apostles, whom the Lord has chosen to lead us in our day, is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Financial_Management #Preparation #Self-Reliance

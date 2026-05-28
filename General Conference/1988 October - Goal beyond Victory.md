@@ -127,4 +127,6 @@ We will qualify as His disciples when we hear and heed the counsel from Isaiah d
 May this be our blessing is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Athletics #Bishops #Self-Reliance #Welfare

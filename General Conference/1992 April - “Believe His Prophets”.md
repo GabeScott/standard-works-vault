@@ -105,4 +105,6 @@ The Lord is watching over this work. This is His kingdom. We are not as sheep wi
 I go back to those three words so frequently spoken by President Joseph Fielding Smith: “true and faithful.” God help us to be true and faithful, to hear with listening ears that counsel which has come from Him who is our Father and our God, and from Him who is our Savior and our Redeemer as they have spoken to us through those whom we sustain as prophets. I bear witness and testimony of these things and, my brethren, leave my blessing and love with you in the name of Jesus Christ, amen.
 
 
+
+
 #Prophets #Testimony

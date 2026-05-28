@@ -43,4 +43,6 @@ And now to you, my young friend with the tie—yes, it *is* you. You and the mil
 I pray that you young people will develop a reverence for sacred things, a respect for your elders, and a willingness to keep the commandments. I pray that you will learn to know of the Savior and have an ever-growing understanding of His Atonement. I ask the Lord to help you throughout your life to join your testimony with those of today’s living prophets and apostles, who have declared: “We bear testimony, as His duly ordained Apostles—that Jesus is the Living Christ, the immortal Son of God. He is the great King Immanuel, who stands today on the right hand of His Father. He is the light, the life, and the hope of the world. His way is the path that leads to happiness in this life and eternal life in the world to come. God be thanked for the matchless gift of His divine Son” (“The Living Christ: The Testimony of the Apostles,” *Ensign,* Apr. 2000, 3). To this I also testify and witness in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Commandments #Holy_Ghost #Home #Jesus_Christ #Morality #Prophets #Respect #Responsibility #Reverence #Teaching #Temples #Youth

@@ -74,4 +74,6 @@ Patrick Henry, a great American patriot, said:
 May we all share our wealth of testimony with others that we and they may become rich toward God, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Charity #Testimony #Wealth

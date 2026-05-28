@@ -55,4 +55,6 @@ There can be no greater joy than to know that our children love the Lord, no gre
 It is my testimony that this will be our blessing as we follow the counsel of our prophet, in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Family #Joseph_Smith #Peace #Primary #Scripture_Study #Scriptures

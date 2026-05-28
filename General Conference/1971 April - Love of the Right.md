@@ -71,4 +71,6 @@ I bear witness to you this day that a love for that which is right will bring us
 As we unitedly work to help our youth in combatting and avoiding all of the temptations of the day, may we be reminded, “… let every man be swift to hear, slow to speak, slow to wrath: For the wrath of man worketh not the righteousness of God.” ([[James 1.19|James 1:19–20]][[James 1.20|]].) I pray for our Heavenly Father to help us teach and love that which is right, in the name of Jesus Christ. Amen.
 
 
+
+
 #Family #Word_Of_Wisdom

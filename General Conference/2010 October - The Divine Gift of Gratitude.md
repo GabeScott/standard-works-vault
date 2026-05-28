@@ -178,4 +178,6 @@ My sincere, heartfelt prayer is that we may in our individual lives reflect that
 [^19]: [[John 14.15|John 14:15]].
 
 
+
+
 #Gratitude

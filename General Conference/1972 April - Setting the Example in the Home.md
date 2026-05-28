@@ -39,4 +39,6 @@ This humble man and his wife, who didn’t have much of the world’s goods, by 
 I know these things are true, and I testify of them in the name of Jesus Christ. Amen.
 
 
+
+
 #Example #Home #Parents #Service

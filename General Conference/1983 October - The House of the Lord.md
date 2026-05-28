@@ -67,4 +67,6 @@ There are many people in the world who travel great distances at great personal 
 I have a firm and abiding testimony of the importance of this work and the blessings it can bring into our lives. I express gratitude for this testimony and for the small part I now enjoy in teaching genealogy and temple work. May we all be blessed to receive the fulness of the blessings of the House of the Lord, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Temples

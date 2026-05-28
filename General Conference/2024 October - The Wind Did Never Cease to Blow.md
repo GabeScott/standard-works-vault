@@ -130,4 +130,6 @@ I testify that Jesus Christ is our Advocate with the Father. He is a living God 
 [^27]: President Dallin H. Oaks mentioned a painting by Maynard Dixon titled *Forgotten Man*, which hangs in his office in the Church Administration Building in Salt Lake City: “You see the sun shining on his head. His Heavenly Father knows he’s there. He is forgotten by the passing crowd, but in his struggles, his Heavenly Father knows he’s there. … I have been with that painting for close to 40 years, and it speaks to me and reminds me of things that I need to remember” (in Sarah Jane Weaver, “What I Learned from President Oaks about the ‘Forgotten Man,’” *Church News*, Sept. 18, 2022, thechurchnews.com).
 
 
+
+
 #Adversity #Missionary_Service #Service #Spiritual_Growth #Youth

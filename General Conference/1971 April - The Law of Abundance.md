@@ -87,4 +87,6 @@ However, a testimony alone will not save us. It is the keeping of the commandmen
 Therefore, let us dispense the means which the Lord has given us to enrich the lives of others who are less fortunate than we are and to build the kingdom of God, that we may make of our life a good gift to God, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Tithing #Wealth

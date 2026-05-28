@@ -111,4 +111,6 @@ Today we not only honor Aurelia Rogers but all the Primary leaders and teachers 
 May we as parents and spiritual leaders be blessed to understand what the Master meant when he said, “Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven.” ([[Matthew 18.3|Matt. 18:3]].) In the name of Jesus Christ, amen.
 
 
+
+
 #Primary

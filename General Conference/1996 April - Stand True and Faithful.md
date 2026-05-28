@@ -118,4 +118,6 @@ And finally, in all of living have much of fun and laughter. Life is to be enjoy
 I leave my blessing upon you. Please know that we do love you. Please know that we have confidence in you. Live the gospel, be true to the faith, cling to the Church, honor your parents, love the Lord, and walk as a child of God. That you may do so, and taste much of happiness, is my prayer in your behalf, with love in my heart, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Education #Family #Friendship #Holy_Ghost #Honesty #Jesus_Christ #Joy #Loyalty #Morality #Parents #Pioneers #Prayer #Repentance #Self-Esteem #Seminary #Service #Temple_Work #Temptation #Word_Of_Wisdom #Youth

@@ -149,4 +149,6 @@ I know, and you know, that as the heavens are above the earth, so are these trut
 God grant that we may keep the commandments and be inheritors of all that a gracious Lord promises his people. In the name of Jesus Christ, amen.
 
 
+
+
 #Blessings #Priesthood

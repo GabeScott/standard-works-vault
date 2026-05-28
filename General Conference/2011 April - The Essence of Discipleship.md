@@ -82,4 +82,6 @@ May the Lord bless each one of us as we walk in obedience to His commandments, H
 [^10]: [[John 13.35|John 13:35]].
 
 
+
+
 #Discipleship #Love #Self-Reliance #Service #Welfare #Work

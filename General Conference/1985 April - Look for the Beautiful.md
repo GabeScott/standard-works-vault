@@ -47,4 +47,6 @@ As we live righteous and unselfish lives, the Spirit of the Lord enters our soul
 I leave you my testimony that I know this is the restored Church of Jesus Christ, with a message for all mankind. Jesus is the Christ. We are led by a prophet of the Lord, President Spencer W. Kimball. Our church provides the way for each of us to construct that which is truly beautiful—a Christlike life, which brings joy and happiness now and into the eternities. In the name of Jesus Christ, amen.
 
 
+
+
 #Attitude

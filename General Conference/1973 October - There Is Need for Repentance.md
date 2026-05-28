@@ -79,4 +79,6 @@ I like that word *carefully* because that is the way he operates. He never jerks
 May we all repent and place our lives and our homes in order and in perfect harmony with the gospel of Jesus Christ, I pray, testifying to the truthfulness of the restored gospel and in the name of Jesus Christ. Amen.
 
 
+
+
 #Repentance #Temptation

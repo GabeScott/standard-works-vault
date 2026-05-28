@@ -125,4 +125,6 @@ The dear Christ had indeed entered inâ€”entered a humble home, entered a widowâ€
 That this same spirit, even the Christ spirit, may ever be ours is my humble prayer. In the name of Jesus Christ, amen.
 
 
+
+
 #Morality #Obedience #Repentance #Sabbath #Temptation #Women #Word_Of_Wisdom #Youth

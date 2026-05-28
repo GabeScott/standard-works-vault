@@ -111,4 +111,6 @@ Godly fear is loving and trusting in Him. As we fear God more completely, we lov
 I love and revere the Lord. His power and peace are real. He is our Redeemer, and I witness He lives. And because of Him, our hearts need not be troubled or afraid (see [[John 14.27|John 14:27]]), and we will be blessed to hush our fears. I so testify in the sacred and holy name of the Lord Jesus Christ, amen.
 
 
+
+
 #Covenants #Faith #Fear #Jesus_Christ #Judging #Ordinances

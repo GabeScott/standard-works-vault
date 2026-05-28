@@ -45,4 +45,6 @@ But just a few hours after the announcement was made to the press, I was assigne
 God lives. He is our Father. We are His children. He loves us. Jesus is the Christ, the Only Begotten of the Father in the flesh. He is our Savior, our Redeemer. He is our advocate with the Father. He is the one who died and suffered great agony, great humiliation, and great pain for us. The Restoration of the gospel is true. Someday we’ll know of the greatness of the Prophet Joseph Smith. All this work is true. I leave you my love and my witness, and I pray that you will live and raise your own families in such a way that you will be part of the great army needed to carry the message of hope and salvation to all the world. I leave my love and witness with you in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Jesus_Christ

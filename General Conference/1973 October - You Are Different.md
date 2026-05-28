@@ -77,4 +77,6 @@ President Lee once remarked that President Heber J. Grant counseled: “Brethren
 President Lee recently said in a most moving address to the Brigham Young University student body: “The measure of your true conviction is whether or not you see the power of God resting on the leaders of this Church and that testimony goes down into your heart like fire.” May these words of his have a deep impact on all, but especially on you—our youth. The world may not comprehend what he said, but you can. You are different. You are a chosen generation. May you see the power of God resting on him as His prophet, as I testify to you it does, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Covenants #Obedience #Standards #Temptation #Youth

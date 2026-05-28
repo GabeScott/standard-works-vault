@@ -142,4 +142,6 @@ I leave you my love and my testimony. You are daughters of a loving and living F
 [^12]: [[D&C 50.24|Doctrine and Covenants 50:24]].
 
 
+
+
 #Eternal_Life #Faith #Obedience #Prayer #Testimony #Young_Women

@@ -93,4 +93,6 @@ Keep before you the big picture, for this cause is as large as all mankind and a
 In reaching a membership of five million, we have reached a milestone. It must not be a summit. A far, far greater future lies ahead. Let us go forward. If we will hold fast to the doctrine, if we will live with integrity, if we will cultivate love and charity in our homes, if we will build and sustain one another and move forward with faith, the Almighty, whose church this is, will bless us and his glorious work. There is so much to do. Great sacrifice was made in the past to bring us to this level of growth. Lives were forfeited, and those not a few. We are not asked to give up our lives, and actually very little of our comfort. But we are expected to give of our loyalty, our devotion, our hearts, minds, might, and strength to the on-rolling of this, the Lord’s work. (See [[D&C 59.5|D&C 59:5]].) God help us to be faithful, as those before us have been faithful, as we walk toward the light of an even brighter and more significant day, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Endurance #Love #Obedience

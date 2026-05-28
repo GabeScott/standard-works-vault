@@ -153,4 +153,6 @@ Now my beloved brethren and sisters everywhere, both members of the Church and n
 That we will repent and obey and thereby qualify to receive the blessings promised to the righteous in this land, I humbly pray in the name of Jesus Christ, our Redeemer. Amen.
 
 
+
+
 #Last_Days #Prophecy

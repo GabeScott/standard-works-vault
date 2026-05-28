@@ -45,4 +45,6 @@ There echo again and again the words of the Master: “Render … unto Caesar th
 I bear my testimony, brothers and sisters, and witness to the divinity of this important law of the Lord and pray our Heavenly Father to bless you and all the Saints with that same testimony and leave my blessings with you, in the name of Jesus Christ, amen.
 
 
+
+
 #Tithing

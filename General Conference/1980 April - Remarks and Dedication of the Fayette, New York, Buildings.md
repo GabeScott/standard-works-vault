@@ -41,4 +41,6 @@ Father in Heaven, on this day of dedication we pray for thy servants and thy peo
 We love thee, our Father. We love thy holy Son. We give our witness to the world concerning him and thee, and ask that thou wilt accept of our thanks, our labors, and our love, in the name of Jesus Christ. Amen.
 
 
+
+
 #Restoration

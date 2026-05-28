@@ -92,4 +92,6 @@ I bear you my witness that God the Father lives and that Jesus Christ lives and 
 [^4]: [[D&C 121.46|D&C 121:46]].
 
 
+
+
 #Faith #Preparation #Priesthood

@@ -126,4 +126,6 @@ I hope you boys in this audience will keep that in mind. You have the best dad i
 Brethren, it is wonderful to be with you here tonight. And may peace be with you, and as has been said so many times in these days, only righteousness pays dividends. God bless you, and I bear my testimony to you boys, to you men, that God lives and that Jesus is the Christ. It is a great program of salvation and exaltation, and it is the only way, and there never was found happiness in unrighteousness. I bear my testimony to you in the name of Jesus Christ, our Lord. Amen.
 
 
+
+
 #Commitment #Covenants #Obedience #Spirituality

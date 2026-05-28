@@ -69,4 +69,6 @@ I am ever so grateful for my opportunities as well as my share of challenges. I 
 I know that he lives. I know that he cares! This is my testimony and my hope for each of us. I say these things in the sacred name of our Savior, Jesus Christ, amen.
 
 
+
+
 #Adversity #Hope #Jesus_Christ

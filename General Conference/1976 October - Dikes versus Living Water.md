@@ -41,4 +41,6 @@ Now let me make a suggestion that will enable us to maintain our spiritual stren
 How could one’s strength ebb or falter when it may be so dependably and continuously nourished and restored? Here it is made clear that life, at its best and most vigorous, is spiritual and, as such, is the sincere expression of the soul to God. The spiritual self of each of us is that part of us that will never grow old, or ill, or die, but it must be nurtured and invigorated! Drinking of the living water is the unique recipe, the only way! My testimony is that God lives, that Jesus is the Christ, who stands at the head of our church, and that President Spencer W. Kimball is our prophet, seer, and revelator, who is guiding the destiny of the true church of our Savior. To this, I testify with all the strength I possess, in the name of Jesus Christ. Amen.
 
 
+
+
 #Dedication #Safety #Success

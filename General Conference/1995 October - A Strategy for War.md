@@ -57,4 +57,6 @@ We must be involved in a good and a righteous cause. We must see through the gla
 I testify that God lives, that His Son, Jesus Christ, has brought to pass the reality of the plan of redemption. Because of Him and His loving atonement, those who desire will win the war and be together with Him eternally. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Abortion #Family #Homosexuality #Jesus_Christ #Media #Morality #Spirituality #Worldliness

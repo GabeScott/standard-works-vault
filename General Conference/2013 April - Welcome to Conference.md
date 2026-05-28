@@ -35,4 +35,6 @@ Now, brothers and sisters, we will hear inspired messages today and tomorrow. Th
 I urge you to be attentive and receptive to the messages which we will hear. That we may do so is my prayer in the name of Jesus Christ, the Lord, amen.
 
 
+
+
 #Missionary_Work #Temples

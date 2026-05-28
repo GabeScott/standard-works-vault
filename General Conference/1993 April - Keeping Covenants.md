@@ -73,4 +73,6 @@ You will be grateful, when the day comes for you to attend the temple, that you 
 I know this Church is true. I know God lives and Jesus is the Christ. I know that if you, the youth of the Church, will have the courage to keep your covenants and follow the counsel of your parents and Church leaders, you will have the desire and the strength to live worthy lives. You then will be prepared for your responsibilities in your homes, in the Church, and in your communities and will be prepared to return to your Heavenly Father. May God bless every one of our precious youth, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Morality #Repentance

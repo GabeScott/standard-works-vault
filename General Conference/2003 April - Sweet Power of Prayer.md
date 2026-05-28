@@ -188,4 +188,6 @@ In the name of Jesus Christ, amen.
 [^35]: *Hymns,* no. 337; music composed by Joseph Parry; tune: Swansea.
 
 
+
+
 #Faith #Music #Obedience #Prayer

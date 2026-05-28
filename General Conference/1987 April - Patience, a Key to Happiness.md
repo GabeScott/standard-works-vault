@@ -93,4 +93,6 @@ I pray that we might be patient, especially in adversity, as we meet our challen
 I close with my testimony to you that patience is a divine attribute. I testify that our Heavenly Father lives and loves each of us and that Jesus is the Christ, our Lord and Savior. Joseph Smith is the prophet through whom the Lord restored the gospel in these latter days. President Ezra Taft Benson is the Lord’s prophet who directs this work today. I bear this testimony in the name of Jesus Christ, amen.
 
 
+
+
 #Patience

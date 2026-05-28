@@ -69,4 +69,6 @@ The touchstone of compassion is a measure of our discipleship; it is a measure o
 May the Lord bless us in our quest to be true disciples and good neighbors. I pray that each of us may be good Samaritans, in the name of Jesus Christ, amen.
 
 
+
+
 #Discipleship #Love

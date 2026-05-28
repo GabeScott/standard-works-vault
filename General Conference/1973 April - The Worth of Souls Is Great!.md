@@ -51,4 +51,6 @@ The time came for legal counsel to arrive, and we went to court. I don’t know 
 God grant us the vision as leaders, teachers, and parents to put people first. Remember the worth of souls is great in the sight of God. I add my personal witness. God lives. Jesus is the Christ. This is his church. This is his prophet. I so testify in the name of Jesus Christ. Amen.
 
 
+
+
 #Individual_Worth #Teaching

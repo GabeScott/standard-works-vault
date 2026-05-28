@@ -77,4 +77,6 @@ None of us will avoid the storms of life. The winds and the waves will periodica
 To this I bear my special witness in the name of Jesus Christ, amen.
 
 
+
+
 #Peace

@@ -83,4 +83,6 @@ No young man guilty of serious transgression should apply for a temple recommend
 May the Lord help us to appreciate who we are and to live accordingly, realizing that we do hold the priesthood of God in the church of Jesus Christ, the only men in the world who hold the authority to speak in God’s name. Assembled here tonight in these different buildings, every priesthood office of the Church is represented, and the success and progress of this church depend on you as individuals who hold the priesthood. May we prove worthy, I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Priesthood

@@ -183,4 +183,6 @@ In making decisions, revelation from the Lord is available to everyone who will 
 To the truthfulness of these divine teachings concerning prayer and revelation, I bear witness to you in the name of Jesus Christ, our Redeemer. Amen.
 
 
+
+
 #Family #Prayer #Spirituality

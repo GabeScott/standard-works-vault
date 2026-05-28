@@ -97,4 +97,6 @@ The Lord has said, “There is no eye that shall not see, neither ear that shall
 I raise my voice in solemn testimony that these earth-and-heaven encompassing events actually occurred, that the Savior literally lives, and that his power is vested in The Church of Jesus Christ of Latter-day Saints. May the Lord bless you, my friends, that you will see and hear and understand. Why not begin that trek today? I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Restoration

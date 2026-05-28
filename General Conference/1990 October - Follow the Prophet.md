@@ -57,4 +57,6 @@ In closing, may I read the words of a song that were sung this afternoon by the 
 May God bless and sustain his prophet, and may we follow him, is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Prophets #Youth

@@ -114,4 +114,6 @@ I obviously don’t know what it feels like to be a woman, but I do know what it
 [^27]: Jeanene W. Scott, BYU Women’s Conference, 6 Apr. 1989, 1.
 
 
+
+
 #Blessings #Example #Holy_Ghost #Home #Joy #Marriage #Motherhood #Parenthood #Pioneers #Plan_Of_Salvation #Sacrifice

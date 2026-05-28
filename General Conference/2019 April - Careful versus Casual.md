@@ -66,4 +66,6 @@ Can happiness be bought with $15? No, it can’t. Deep and lasting happiness com
 [^5]: [[Mosiah 2.41|Mosiah 2:41]].
 
 
+
+
 #Covenants #Happiness

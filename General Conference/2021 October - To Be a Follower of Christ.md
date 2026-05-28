@@ -71,4 +71,6 @@ My prayer is that by following Jesus Christ and drawing upon the blessings of Hi
 I testify that our Heavenly Father lives and that He knows each of us individually, that Jesus is the Christ, that President Russell M. Nelson is God’s prophet today. I testify that The Church of Jesus Christ of Latter-day Saints is the kingdom of God on earth and the Book of Mormon is true. In the name of Jesus Christ, our Redeemer, amen.
 
 
+
+
 #Courage #Discipleship #Forgiveness #Humility #Jesus_Christ #Sacrifice

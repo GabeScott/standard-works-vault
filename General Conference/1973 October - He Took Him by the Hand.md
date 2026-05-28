@@ -97,4 +97,6 @@ I pray our Heavenly Father to help us so live that we may have that inner streng
 I leave you my witness that God lives. This is the Church of Jesus Christ, restored in these latter days for the benefit of all mankind. President Harold B. Lee is a prophet of God. He, as witnessed by that beautiful young woman in Munich and thousands of others, has the God-given capacity to take us all by the hand and lift us to new heights if we will keep the commandments and follow his counsel. To this I declare and testify in the name of Jesus Christ. Amen.
 
 
+
+
 #Compassion #Service

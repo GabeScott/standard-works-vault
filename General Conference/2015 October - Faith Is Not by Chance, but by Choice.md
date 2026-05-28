@@ -138,4 +138,6 @@ My dear friends, your faith did not begin at birth, and it will not end at death
 [^25]: Comments by Zane Openshaw at the funeral for his family members, June 22, 2015.
 
 
+
+
 #Book_Of_Mormon #Faith #Holy_Ghost #Joseph_Smith #Missionary_Work #Obedience #Priesthood #Prophets

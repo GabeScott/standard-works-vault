@@ -57,4 +57,6 @@ I testify that the gospel of Jesus Christ as restored through the Prophet Joseph
 We must prepare now to “abide the day of his coming.” The future history of the Church can then be marked by successful passage through times of trial and adversity. That we may each do our part, loving the Lord and our fellowmen in doing so, is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Church_History #Obedience

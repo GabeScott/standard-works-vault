@@ -123,4 +123,6 @@ This is a work of great magnitude and importance. There is no work like it in al
 By the revelations of the Holy Spirit to my soul, I know this work in which we are engaged is true. I know the Lord’s hand is in it. I know that success will attend our labors. The day will come when the knowledge of God covers the earth as the waters cover the sea. We are the most blessed and favored people on earth. God grant us the wisdom, God grant us the fervor and devotion, God grant us the zeal and good sense to go forth on his errand living the gospel ourselves and saving our own souls, and offering these glorious principles of salvation to his other children. This is the Lord’s work. It is true, and I so testify in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #House_Of_Israel #Restoration #Zion

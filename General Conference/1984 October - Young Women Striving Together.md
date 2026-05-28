@@ -74,4 +74,6 @@ We can do this. I know we can.
 The evils of our day will increase, even as the wicked armies of Pharaoh threatened the children of Israel in the time of Moses. But with faith in God, striving together in righteousness, we of all people have reason to take heart and rejoice. With our eyes fixed on heaven, we’ll watch the Red Sea part. In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Love #Repentance

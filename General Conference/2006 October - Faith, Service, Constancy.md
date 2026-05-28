@@ -90,4 +90,6 @@ Of this I testify in the name of Jesus Christ, amen.
 [^7]: [[2 Corinthians 4.6|2 Corinthians 4:6]].
 
 
+
+
 #Adversity #Endurance #Faith #Service

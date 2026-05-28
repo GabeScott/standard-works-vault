@@ -79,4 +79,6 @@ May we put our lives and homes in order. We must stay true to the great absolute
 If we are united and go forward under the leadership of those who have the keys to the kingdom of God on earth, our homes will be enriched, our lives purified, and the gates of hell will not prevail against us. May we follow the counsel of Alma, and “stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death.” ([[Mosiah 18.9|Mosiah 18:9]].) In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Parenthood

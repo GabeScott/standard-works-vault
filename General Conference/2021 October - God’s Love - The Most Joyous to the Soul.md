@@ -90,4 +90,6 @@ May we open our hearts to receive the pure love that God has for us and then she
 [^14]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
 
+
+
 #Individual_Worth #Jesus_Christ #Joy #Love

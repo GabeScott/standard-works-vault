@@ -82,4 +82,6 @@ A consecrated life is a beautiful thing. Its strength and serenity are “as a v
 [^5]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
 
+
+
 #Consecration #Integrity #Morality #Service #Work

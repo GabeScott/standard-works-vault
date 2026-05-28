@@ -59,4 +59,6 @@ All of this was accomplished at the same time Hurricane Jeanne was coming ashore
 In discussing our various longings for more, I’m not suggesting we adopt Scrooge as a role model for good parenting. I am suggesting that it is important for families and individuals to aggressively seek more of the virtues which go beyond this mortal life. A prayerful, conservative approach is the key to successfully living in an affluent society and building the qualities that come from waiting, sharing, saving, working hard, and making do with what we have. May we be blessed with the desire and the ability to understand when more is really less and when more is better. In the holy name of Jesus Christ, amen.
 
 
+
+
 #Charity #Gratitude #Humility #Parenthood #Service #Worldliness

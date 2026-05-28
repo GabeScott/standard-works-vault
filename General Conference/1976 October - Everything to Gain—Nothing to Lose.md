@@ -117,4 +117,6 @@ And so to you, my friends, who, like him, long to return but are reluctant to ta
 I bear you my witness that this is the work of the Lord. It is the kingdom of God in the earth. It bears the name of the Only Begotten of the Father. Here you will find happiness, and strength, and a reassuring peace you have not known for a long while, the peace that passeth all understanding. God bless you to try, I pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Activation #Repentance

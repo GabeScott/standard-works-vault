@@ -69,4 +69,6 @@ There is good reason to make our decision *now* to serve the Lord. On this Sunda
 I pray that we will have the strength to decide now to do what we ought to do. I pray that we will decide now to serve the Lord. In the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Obedience

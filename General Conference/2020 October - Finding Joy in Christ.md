@@ -90,4 +90,6 @@ May you help prepare the world for the Savior’s return by inviting all to come
 [^5]: I personally express appreciation to the dedicated parents and leaders throughout our history who have so valiantly helped young people experience growth. I acknowledge that the new Children and Youth effort owes much to each activity and achievement program that preceded it.
 
 
+
+
 #Jesus_Christ #Joy #Sacrament #Service

@@ -57,4 +57,6 @@ Well I am sure that there are ways and means. I want to mention a story I have t
 As I close I would only like to commend these brethren on the wonderful work they do. We meet with the Bishopric every Friday morning and consider matters that are of importance. We are grateful that they have the insight that they do, that they are carrying forward so valiantly. It is a great program. We have seen it working in many fields in many ways. I pray the Lord will bless us all that we may be wise as we administer this program to the people of this Church. And I ask His blessings upon us, in the name of Jesus Christ. Amen.
 
 
+
+
 #Welfare

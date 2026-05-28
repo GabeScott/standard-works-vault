@@ -75,4 +75,6 @@ I bear you my testimony, brothers and sisters, that I know that the gospel is tr
 And I bear you this humble testimony that I know that President Spencer W. Kimball today is a prophet of God on this earth, guiding and directing the Lord’s work here upon this earth. I bear you this testimony humbly, in the name of Jesus Christ. Amen.
 
 
+
+
 #Church_Growth

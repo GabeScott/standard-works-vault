@@ -71,4 +71,6 @@ I have a strong feeling that when this life is over, our personal and family his
 Brethren, this is the work of the Lord. I testify that he lives and that he has great influence in our lives. May we have this understanding of eternity and see and feel and record his influence in our lives, I do humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Family_History

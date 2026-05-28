@@ -138,4 +138,6 @@ I know that President Lee is a prophet and a seer and a revelator. I have seen w
 God our Father, through his Son, Jesus Christ, directs the work of this the true and living church established by the Lord Jesus Christ on the earth. I know it, and bear witness of it, in the name of Jesus Christ. Amen.
 
 
+
+
 #Family_History #Harold_B._Lee

@@ -113,4 +113,6 @@ The vision of this kingdom is not a superficial dream in the night that fades wi
 While grubbing the sagebrush of these western valleys to lay the foundations for a commonwealth, while doing all of the many mundane things they were required to do to stay alive and grow, our forebears ever kept before them the grandeur of the great cause in which they were engaged. It is a work which we must do with the same vision they held. It is a work which will go on after we have left this scene. God help us to do our very best as servants, called under His divine will, to carry forward and build the kingdom with imperfect hands, united together to execute a perfect pattern. I so pray, as I bear witness of these things, in the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Example #Missionary_Work #Plan_Of_Salvation #Responsibility

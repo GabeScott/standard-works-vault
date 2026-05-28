@@ -121,4 +121,6 @@ When I concluded, the man in charge said, “Mr. Richards, this has been one of 
 I bear you my witness that there isn’t a man or a woman in this world who really loves the Lord with all their heart who wouldn’t join this church if they would just take time to find out what it is, for I know that it is God’s eternal truth. He has sent his messenger to prepare the way for his coming. I pray God to bless us and help us all to be missionaries. I leave you my blessing in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work #Restoration

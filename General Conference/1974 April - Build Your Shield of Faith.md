@@ -51,4 +51,6 @@ And to my two great colleagues whom I have worked so closely with, Elder Hanks a
 And to all who hear my voice today, I declare my witness that God lives, that Jesus is the Christ, and that Spencer W. Kimball is truly a prophet of the Lord. Come and join with us. Let us help you build your shield of faith that you may live with the peaceful assurance that you have a strong line of defense between you and the powers of the wicked one, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Home #Spirituality

@@ -152,4 +152,6 @@ And within our hearts we will recognize His unspoken plea: *Bring him home.* In 
 [^10]: [[Matthew 25.21|Matthew 25:21]].
 
 
+
+
 #Activation #Family #Home #Priesthood #Sacrament #Service

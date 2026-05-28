@@ -98,4 +98,6 @@ God bless us all to walk humbly with Him and with all men. I testify that Presid
 [^16]: See [[Mosiah 27.31|Mosiah 27:31]]; [[D&C 88.104|D&C 88:104]].
 
 
+
+
 #Atonement #Courage #Humility #Jesus_Christ #Love #Pride #Repentance #Spirituality #Tolerance

@@ -71,4 +71,6 @@ I remember at his passing seeing Father reading a letter addressed to “My frie
 To all the Bishop Perrys there are in this world, I ask that the Lord’s choicest blessings will always guide and attend you. May these special moments of sweet reward for service rendered in our Father in heaven’s kingdom sustain you and support you in your great and noble callings, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Councils #Welfare

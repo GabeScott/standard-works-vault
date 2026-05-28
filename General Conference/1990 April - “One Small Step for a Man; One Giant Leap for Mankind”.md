@@ -73,4 +73,6 @@ Yes, “praise to the man who communed with Jehovah” (*Hymns,* 1985, no. 27) a
 I know that Joseph Smith was a prophet, for the fruits of his labors are sweet and abiding, and the Holy Spirit has borne witness to my soul. I feel honored to blend my voice with the chorus of millions who testify of his greatness and divine calling. I also know that “the Lord God doth work by means to bring about his great and eternal purposes; and by very small means the Lord doth confound the wise and bringeth about the salvation of many souls” ([[Alma 37.7|Alma 37:7]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Joseph_Smith #Prophets

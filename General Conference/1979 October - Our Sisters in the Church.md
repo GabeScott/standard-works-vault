@@ -45,4 +45,6 @@ We love you brethren, and we love the sisters. We have complete confidence in yo
 I know that God lives, my brethren (it is a great joy to say that many, many times), that Christ, the Redeemer of the world, is our Lord, and that this is his Church, The Church of Jesus Christ of Latter-day Saints, with Christ at its head. I leave this testimony with you, with my affection and my blessings and my best wishes, in the name of Jesus Christ, our Lord, amen.
 
 
+
+
 #Women

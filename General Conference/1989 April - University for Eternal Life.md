@@ -57,4 +57,6 @@ I know that the Lord Jesus Christ lives. I know that this is His church. I know 
 I leave you this testimony as your brother and your servant, and I do this in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Honesty #Repentance #Temple_Work

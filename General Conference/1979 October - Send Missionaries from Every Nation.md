@@ -49,4 +49,6 @@ I bear you my testimony of the divinity of this gospel. I know that God lives an
 I know that Joseph Smith was a prophet of God and that the Book of Mormon contains the true word of God. This Church is true. I know that President Spencer W. Kimball—a modern Job—is a living prophet of God today. I love him with all my heart and sustain him with all my soul. In the name of our Savior, Jesus Christ, amen.
 
 
+
+
 #Miracles #Missionary_Work

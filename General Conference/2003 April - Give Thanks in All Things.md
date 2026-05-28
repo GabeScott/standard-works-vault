@@ -83,4 +83,6 @@ When we understand this principle, that God offers us opportunities for blessing
 I pray that we will be blessed to understand the truth and purpose of the doctrines and commandments I have described and that we will be faithful enough and strong enough to give thanks in all things. I testify of Jesus Christ, our Savior and Redeemer and Creator, for whom we give thanks, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Gratitude #Jesus_Christ #Plan_Of_Salvation #Teaching

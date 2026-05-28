@@ -31,4 +31,6 @@ Now before I sit down, I want to pay a moment’s tribute to this great choir to
 Let us go on rearing our children in righteousness and truth. Let us be good neighbors and good friends, loving and reaching out to those not of our faith as well as those who are of our faith. May the smiles of heaven rest upon you, my beloved associates, as I leave with you my witness and my testimony and my love for each of you wherever you may be across this broad world is my humble prayer and word of benediction in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Children #Church_Organization #Family #General_Conference #Jesus_Christ #Preparation #Service #Temples

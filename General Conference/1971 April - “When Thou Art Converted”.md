@@ -53,4 +53,6 @@ I look at the First Presidency and the Twelve, who direct us. I see in their act
 I know, too, that Jesus Christ the Lord leads this latter-day work and that he lives. This is his restored gospel; I testify to it in the name of Jesus Christ. Amen.
 
 
+
+
 #Conversion #Missionary_Work #Quorums_Of_Seventy

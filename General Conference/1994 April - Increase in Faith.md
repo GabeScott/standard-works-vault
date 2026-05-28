@@ -79,4 +79,6 @@ A penny in my husband’s shoe reminded him that he truly was Heavenly Father’
 I sense the tender feelings in your hearts. I feel that too. I believe we want to follow Him, to trust Him, to please Him, to live righteously, to increase our faith in Him. I believe we can do that as we choose to believe, ask and listen, and practice, and practice, and practice. My testimony is that He loves us so much, that He understands, and that His light will comfort us and guide us as we come unto Him. I love you, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Jesus_Christ #Prayer

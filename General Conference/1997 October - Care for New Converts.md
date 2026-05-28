@@ -35,4 +35,6 @@ In building the kingdom of God, every positive act, every friendly greeting, eve
 I testify that this is the Church of our Lord Jesus Christ, that He lives, that He directs this great work, in the name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Fellowshipping #Love #Sacrifice

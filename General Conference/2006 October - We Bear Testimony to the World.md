@@ -33,4 +33,6 @@ Altogether, I can only report that the Lord is richly blessing His Church, and o
 Now, brothers and sisters, after the singing of the choir, we shall hear the remarks of our brethren and sisters. And as we proceed with this great conference, may the Spirit of the Lord dictate all that is done and said, and may our hearts and minds be filled to overflowing is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Missionary_Work #Temples

@@ -114,4 +114,6 @@ As we pray we can feel the embrace of our Heavenly Father, who sent His Only Beg
 [^9]: “Did You Think to Pray?,” *Hymns*, no. 140.
 
 
+
+
 #Adversity #Faith #Prayer #Revelation

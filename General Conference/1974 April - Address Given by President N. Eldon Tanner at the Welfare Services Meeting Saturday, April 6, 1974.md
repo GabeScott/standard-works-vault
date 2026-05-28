@@ -33,4 +33,6 @@ I have hesitated to speak as emphatically as I have, but it was necessary. If yo
 Now this is The Church of Jesus Christ of Latter-day Saints. He is at the head. May we all learn our duty and act in all diligence in the office in which we have been called and appointed and may His blessings attend us, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Welfare

@@ -73,4 +73,6 @@ I am so grateful for the blessings of the Lord Jesus Christ, for the power of pr
 I bear witness that God lives, that Jesus is the Christ, that the Atonement is not a general thing that is for the whole Church. The Atonement is individual, and if you have something that is bothering you—sometimes so long ago you can hardly remember it—put the Atonement to work. It will clean it up, and you, as does He, will remember your sins no more. In the name of Jesus Christ, amen.
 
 
+
+
 #Children #Family #Love #Morality #Plan_Of_Salvation #Temples

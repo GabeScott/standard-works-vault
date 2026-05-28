@@ -45,4 +45,6 @@ Remember, last of all, we do not desire blind obedience in the Church. We desire
 I pray that each of us might be more humble and desirous of receiving and obeying counsel. May each of us seek not to counsel the Lord, but seek counsel from his hand and from his inspired priesthood leaders, *as it is the same.* In the name of Jesus Christ, Amen.
 
 
+
+
 #Leadership #Obedience

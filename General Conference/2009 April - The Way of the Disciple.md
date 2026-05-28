@@ -124,4 +124,6 @@ I bear my solemn witness that Jesus the Christ lives. He is the Savior and Redee
 [^12]: Joseph B. Wirthlin, in Conference Report, Oct. 2007, [[2007 October - The Great Commandment.md|29]]; or *Ensign,* Nov. 2007, 29–30.
 
 
+
+
 #Discipleship #Hope #Jesus_Christ #Patience

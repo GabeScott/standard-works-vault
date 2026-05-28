@@ -63,4 +63,6 @@ And may I add that the family setting is an ideal place to read the Book of Morm
 What greater inheritance can parents give their children than the spiritual heritage which the children have a right to receive! To all men, both member and nonmember, comes the invitation from the God of this earth to learn for themselves the truth. May all who have not received the knowledge accept the invitation of the Savior is my prayer in the name of Jesus Christ. Amen.
 
 
+
+
 #Testimony

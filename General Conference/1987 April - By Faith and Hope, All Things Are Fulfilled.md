@@ -89,4 +89,6 @@ Remember, my brothers and sisters, particularly you young people, Christ came to
 In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Attitude #Love #Parenthood

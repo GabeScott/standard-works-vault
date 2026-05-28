@@ -164,4 +164,6 @@ As an Apostle of the Lord, I invite and bless you to “cheerfully do all things
 [^11]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
 
+
+
 #Adversity #Faith #Missionary_Work #Prophets

@@ -111,4 +111,6 @@ Like Moses, Nephi was atop “exceedingly high mountains” and “beheld great 
 Gladly and firmly, I add my small voice of witness to these wonderful declarations of adoration, in the name of Jesus Christ, amen!
 
 
+
+
 #Conscience #Holy_Ghost #Jesus_Christ #Love

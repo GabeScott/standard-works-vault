@@ -71,4 +71,6 @@ Moroni’s benedictory testimony charts our course: “Awake, and arise from the
 May we this very hour arise by strengthening our resolve to follow our Savior and to be the women that He needs us to be. Of His mercy and strength, of His omnipotence and glory, and with the assurance that He lives, I bear witness in the sacred and holy name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Prayer #Satan #Scriptures #Sin #Temples #Testimony #Women

@@ -65,4 +65,6 @@ The prophets are right. You young women “are part of the greatest generation w
 Now that you have learned how the Spirit works and how you as young women can use it to bless your families, it is our prayer that you will let spirituality become you. Heavenly Father is eager to unleash this great power. May the Spirit bless you as you develop your talent for spirituality, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Family #Holy_Ghost #Peace #Prayer #Spirituality #Talents #Testimony #Young_Women

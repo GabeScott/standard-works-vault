@@ -140,4 +140,6 @@ As you prepare to embrace the future with faith, these promises *will* be yours!
 [^22]: [[Alma 58.11|Alma 58:11]].
 
 
+
+
 #Faith #Preparation

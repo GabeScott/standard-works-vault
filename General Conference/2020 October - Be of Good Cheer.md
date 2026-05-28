@@ -84,4 +84,6 @@ It is all part of the plan of God the Father and His Son, Jesus Christ, of which
 [^8]: Richard G. Scott, *Finding Peace, Happiness, and Joy* (2007), 248–49.
 
 
+
+
 #Adversity #Faith

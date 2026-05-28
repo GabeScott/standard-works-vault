@@ -53,4 +53,6 @@ One last word from the Lord to us in this day: “And remember in all things the
 I know that Jesus Christ lives, and that his Holy Father lives also. I sustain President Joseph Fielding Smith as the living prophet with all my heart. I know too of the blessings that come to both the giver and the receiver when one obeys the injunction that the way to love the Lord is to love and serve his neighbors. In the name of Jesus Christ. Amen.
 
 
+
+
 #Love #Service

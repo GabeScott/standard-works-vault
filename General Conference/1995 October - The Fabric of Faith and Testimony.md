@@ -21,4 +21,6 @@ Now, as we say good-bye to you at the conclusion of this conference, please know
 God bless you. I leave my blessing upon you, that as you walk in faith there may be peace in your hearts and goodness and gladness in your lives, and that the Spirit of the Lord may dwell with you in your homes, to bring nurture to you and those you love most dearly, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #General_Conference #Holy_Ghost #Plan_Of_Salvation #Prayer #Sin

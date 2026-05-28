@@ -41,4 +41,6 @@ Please note now, brothers and sisters, the whole body is compacted by that which
 May the Lord richly bless you in carrying forth this great work of establishing Zion and preparing us for the Lord’s eventual rule on earth. In the name of Jesus Christ, amen.
 
 
+
+
 #Councils

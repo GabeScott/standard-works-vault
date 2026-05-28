@@ -49,4 +49,6 @@ Brothers and Sisters, we need to do everything necessary to adequately prepare o
 I am grateful for my membership in a church that has this concern for its members, and for my association with brethren who have a concern for each other’s welfare. This is the Lord’s church. This is his work led by his prophet. May we follow the counsel given for preparedness, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Employment

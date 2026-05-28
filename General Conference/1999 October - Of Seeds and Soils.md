@@ -116,4 +116,6 @@ Alma said that when we feel the seed of faith growing, it will enlarge our souls
 [^12]: See [[D&C 105.19|D&C 105:19]].
 
 
+
+
 #Conversion #Education #Faith #Media #Missionary_Work #Prayer #Pride #Priesthood #Satan #Testimony #Tithing

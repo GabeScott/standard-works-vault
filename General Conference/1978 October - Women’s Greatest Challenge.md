@@ -57,4 +57,6 @@ We are the people raised up to do this work; we, the women of the Church, hand-i
 May the Lord bless us as women with that eternal perspective. May our decisions be those that will allow us to work in love and unity and faithfulness I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Prayer #Prophets #Scripture_Study #Women

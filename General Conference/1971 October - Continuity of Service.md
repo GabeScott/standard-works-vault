@@ -55,4 +55,6 @@ Brethren, you who are returning from these armed services and school and mission
 May the Lord bless us that we might realize the importance of a soul; that right in our midst we have people needing attention and help, and it is our responsibility to keep them active, to encourage them, and to reach them if they are having problems. May we realize that the priesthood of God is the power of God given us to act in his name. May we do it wisely, humbly, effectively, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Military #Missionary_Work #Service

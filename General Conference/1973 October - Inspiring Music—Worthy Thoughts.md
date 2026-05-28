@@ -159,4 +159,6 @@ There are many references in the scriptures, both ancient and modern, that attes
 I bear witness that God is our Father, that we are His children, that He loves us and has provided great and glorious things in this life. I know this, and I thank Him for the uplifting influence of good music in my life and in the lives of my children. There are many things we can do together as a family; inspired music we can feel together. In the name of Jesus Christ. Amen.
 
 
+
+
 #Music #Spirituality #Temptation

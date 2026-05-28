@@ -134,4 +134,6 @@ We will do so as we fulfill the charge of the Apostle Paul to “\[lay\] up in s
 [^14]: [[1 Timothy 6.19|1 Timothy 6:19]]; emphasis added.
 
 
+
+
 #Spirituality #Testimony

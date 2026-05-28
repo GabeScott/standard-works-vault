@@ -71,4 +71,6 @@ This spring I thought once more of the courage demonstrated by Randall Ellsworth
 My brethren, let us be active participants—not mere spectators—on the stage of priesthood power. May we muster courage at the crossroads, courage for the conflicts, courage to say *no,* courage to say *yes,* for *courage counts.* Of this truth I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Courage #Endurance #Faith #Prayer

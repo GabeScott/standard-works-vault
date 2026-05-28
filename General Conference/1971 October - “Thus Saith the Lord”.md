@@ -67,4 +67,6 @@ I bear you my sacred witness that God lives, that Jesus Christ is his living Son
 I bear you this personal witness in the name of Jesus Christ. Amen.
 
 
+
+
 #Joseph_Smith #Restoration

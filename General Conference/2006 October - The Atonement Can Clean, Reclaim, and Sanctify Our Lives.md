@@ -51,4 +51,6 @@ When we gratefully accept and use this precious gift, we can enjoy the beauty an
 I testify that Jesus is the Christ, the Son of the living God, that His Atonement is real, and that through the miracle of forgiveness, He can make each of us clean again, even you. In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Forgiveness #Repentance

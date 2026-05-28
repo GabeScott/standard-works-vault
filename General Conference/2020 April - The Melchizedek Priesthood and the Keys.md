@@ -64,4 +64,6 @@ I testify of the truth of these things and join you in praying for our prophet, 
 [^5]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 68–75; Dallin H. Oaks, “[[2018 April - The Powers of the Priesthood.md|The Powers of the Priesthood]],” 65–68.
 
 
+
+
 #Family #Priesthood

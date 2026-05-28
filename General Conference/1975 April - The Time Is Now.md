@@ -93,4 +93,6 @@ Brothers and sisters, listen again with me to his timeless invitation, yes, to h
 God help us to forsake our procrastinating ways and straightway follow him. Now is the time to serve the Lord. I bear witness to you that I know these truths better today than I did yesterday, and I leave you my testimony now in the name of Jesus Christ. Amen.
 
 
+
+
 #Time_Management

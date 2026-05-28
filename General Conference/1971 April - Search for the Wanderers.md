@@ -87,4 +87,6 @@ And to you young men, there is no fun in being lost, and you can keep from being
 I bear you my testimony, my brethren, that we hold the priesthood of God. This is his church and kingdom. He has given us the responsibility of teaching and helping to save our fellowmen. May we do it in a way that will be acceptable to him, which will bring joy to us and help to prepare us for eternal life, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Fellowshipping #Plan_Of_Salvation #Word_Of_Wisdom #Youth

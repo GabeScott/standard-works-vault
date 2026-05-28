@@ -119,4 +119,6 @@ We began with “Upon Judea’s Plains.” Let us close with “In an Upper Room
 And of this I testify, in solemnity and sobriety, with full knowledge of what I speak. In the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Plan_Of_Salvation #Teaching

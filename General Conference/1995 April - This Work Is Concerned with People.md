@@ -69,4 +69,6 @@ God, our Eternal Father, lives. This is His work, designed to assist Him in “b
 Jesus is the Christ, the promised Messiah, who came to earth in the most humble of circumstances, who walked the dusty roads of Palestine teaching and healing, who died upon Golgotha’s cruel cross and was resurrected the third day. This is His church. It carries His name. We are His servants, each of us. The priesthood which we bear is His priesthood, and we exercise it in His name. It was bestowed upon Joseph Smith and Oliver Cowdery by those who held it anciently, having received it from the Lord Himself. The gospel is the way of peace, of progress, of safety, of salvation, of exaltation. This, the last and final dispensation, was ushered in by the glorious appearance of the Father and the Son to the boy Joseph Smith. You and I, my brethren, have received this holy priesthood through the laying on of hands by those in authority. We must live worthy of it. We must safeguard it. We must honor it. We must use it in righteousness for the blessing of others. God help us to be true to the great and sacred trust which has been given to each of us, I humbly pray, as I leave my blessing with you, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Church_Leaders #Church_Organization #Individual_Worth #Jesus_Christ #Priesthood

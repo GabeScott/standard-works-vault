@@ -101,4 +101,6 @@ There should be no doubt what our task is today. If we truly cherish the heritag
 As one with you, charged with the responsibility of protecting and perpetuating this noble heritage, I stand today with bowed head and heart overflowing with gratitude. May we begin to repay this debt by preserving and strengthening this heritage in our own lives, in the lives of our children, their children, and generations yet unborn. In the name of Jesus Christ. Amen.
 
 
+
+
 #Faith #Family #Freedom #Work

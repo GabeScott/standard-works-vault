@@ -69,4 +69,6 @@ I will always be grateful for the blessing of my own children. The example of ea
 I bear my humble but certain testimony that Jesus is the Christ. He is the one perfect Son—submissive, meek, humble, patient, and so full of love. May each of us have a heart to follow His example, to become as a little child, and thereby return to our heavenly home, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Family #Humility #Meekness #Obedience

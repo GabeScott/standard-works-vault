@@ -99,4 +99,6 @@ Our appointed task may appear insignificant, unnecessary, unnoticed. We may be t
 My prayer today is that we indeed will follow the Man of Galilee. May we praise his name, and so order our lives as to reflect our love. May we ever remember that to us God our Father gave his Son, and that for us Jesus Christ gave his life. I testify that he lives and pray we may be worthy of such a divine gift, in the name of Jesus Christ the Lord. Amen.
 
 
+
+
 #Individual_Worth #Sin

@@ -67,4 +67,6 @@ In a world of conflict and trouble there will be the giants among men. There wil
 Remember, the brightest light and the clearest signal come from the cleanest instrument. May the Lord guide us and strengthen us as we purify and cleanse our lives. I bear testimony to you, my brethren, that I know God lives. I know he’s in the heavens. And I pray that he’ll bless us to honor the priesthood he’s given us, in the name of Jesus Christ. Amen.
 
 
+
+
 #Leadership #Priesthood #Responsibility #Service

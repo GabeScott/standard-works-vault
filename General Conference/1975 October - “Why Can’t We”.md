@@ -63,4 +63,6 @@ Our prophet has spoken. Quorums are accepting this challenge, “Why can’t we?
 I testify that Jesus the Christ is the source of priesthood power. No power can stay the progress of his church. In the name of Jesus Christ. Amen.
 
 
+
+
 #Activation #Priesthood

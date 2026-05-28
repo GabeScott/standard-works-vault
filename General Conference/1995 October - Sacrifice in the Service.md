@@ -59,4 +59,6 @@ Why have these great missionaries and others like them been willing to sacrifice
 I testify there is no more majestic call than to be in the full-time service of our Redeemer, to help to bring our Heavenly Father’s children to the knowledge of Him who has made eternal life possible. I pray that every able young man, and every able couple, will join those who have paid the price to serve a full-time mission. And this I pray in the name of the Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Plan_Of_Salvation #Sacrifice

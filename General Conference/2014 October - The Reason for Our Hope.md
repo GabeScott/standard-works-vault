@@ -73,4 +73,6 @@ Certainly Joseph Smith felt very alone at times. He rose to greatness, but he st
 As one of the Twelve Apostles, I bear witness of the Lord Jesus Christ. He lives. He is our Redeemer and our Savior. “Through the Atonement of Christ, all mankind may be saved” ([[Articles of Faith 1.3|Articles of Faith 1:3]]). He presides over this Church. He is no stranger to His servants. As we move into the future with quiet confidence, His Spirit will be with us. There is no end to His power to bless and direct the lives of those who seek truth and righteousness. I bear witness of Him in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Forgiveness #Hope #Jesus_Christ #Repentance #Testimony

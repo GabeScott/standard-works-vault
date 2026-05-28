@@ -120,4 +120,6 @@ I bear witness that God the Father lives, that His Son, Jesus Christ, is our Red
 [^25]: [[Moroni 10.31|Moroni 10:31]].
 
 
+
+
 #Accountability #Agency #Jesus_Christ #Justice #Mercy #Plan_Of_Salvation #Repentance #Responsibility #Truth

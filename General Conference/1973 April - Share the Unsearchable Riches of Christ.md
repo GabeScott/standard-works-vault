@@ -85,4 +85,6 @@ We invite all men everywhere to join with us that we might receive the blessing 
 I solemnly declare my witness to you that Jesus is the Christ, that this is his church, and that President Harold B. Lee is his anointed prophet and seer today, in the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work

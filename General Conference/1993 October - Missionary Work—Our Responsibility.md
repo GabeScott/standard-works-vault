@@ -75,4 +75,6 @@ I conclude with these inspired words from the Council of the Twelve epistle of e
 When that glorious day comes, may each of us have some part in it, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Preparation #Testimony

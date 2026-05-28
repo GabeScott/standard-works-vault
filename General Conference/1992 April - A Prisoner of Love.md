@@ -119,4 +119,6 @@ That sounds like our generation. Who knows but what God will grant for us and ou
 Ponder and pray together. Begin to prepare. Our generation can do something great for those who follow. Have we been “steeled” for the very purpose about which I have been speaking? Let the ranks of missionaries swell with couples from every broad reach of this earth that the fruit will remain, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Missionary_Work #Service

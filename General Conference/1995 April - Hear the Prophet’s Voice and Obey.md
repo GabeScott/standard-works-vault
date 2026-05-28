@@ -114,4 +114,6 @@ He is our prophet today. He was prepared and foreordained before the foundation 
 I humbly add my testimony to the testimonies of all who have sustained the prophet this day in this solemn assembly, in the name of Jesus Christ, amen.
 
 
+
+
 #Ezra_Taft_Benson #Howard_W._Hunter #Prophets #Restoration

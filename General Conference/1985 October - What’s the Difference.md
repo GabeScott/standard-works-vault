@@ -71,4 +71,6 @@ Yes. After I had come up out of the water, hands were laid upon my head by one h
 Yes, my dear inquiring friend, we will add to the truth you have, for God speaks again through prophets. He has revealed himself to man in modern times. It is possible for families to be forever, for God has restored the sacred temple ordinances for the living and the dead. Furthermore, he has given us a health law, a welfare program, and a missionary system. He has revealed the purpose of life and has given us the Holy Ghost that we might testify to others and know for ourselves that this is the living Church of the living Christ, and that he speaks through a living prophet, even our beloved President Spencer W. Kimball. I so testify, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Organization #Missionary_Work #Restoration

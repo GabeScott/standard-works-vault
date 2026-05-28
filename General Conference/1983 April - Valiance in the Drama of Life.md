@@ -71,4 +71,6 @@ What can I do for my progenitors to help them qualify for eternal life? I can he
 The final scene of this great drama is near at hand. The kingdom of God is going forth preparatory to the second coming of Christ when the curtain will fall and the Savior will say to each of the valiant, “Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord.” ([[Matthew 25.21|Matt. 25:21]].) And thus the kingdom of God will continue forever through the eternities to come. As the prophet Daniel said, “And it shall stand for ever” ([[Daniel 2.44|Dan. 2:44]]), with you and I having received judgment and reward according to the role to which we have been faithful in this life—to which I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Restoration #Spirituality

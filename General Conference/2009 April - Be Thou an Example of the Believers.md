@@ -85,4 +85,6 @@ As a young girl, Sister Andersen strove to do the small and simple things that w
 May each of us strive to be “an example of the believers.” May we live the gospel of Jesus Christ and do all that is asked of us, and may we do these things in faith, nothing wavering, with a pure and virtuous heart is my sincere and humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Goals #Young_Women

@@ -112,4 +112,6 @@ I testify that God lives! Jesus is the Christ. His Church and the fulness of His
 [^10]: [[John 14.2|John 14:2]].
 
 
+
+
 #Covenants #Family #Plan_Of_Salvation

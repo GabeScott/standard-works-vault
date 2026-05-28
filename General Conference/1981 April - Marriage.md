@@ -165,4 +165,6 @@ Eternal love, eternal marriage, eternal increase! This ideal, which is new to ma
 I thank God for marriage. I thank God for temples. I thank God for the glorious sealing power, that power which transcends all that we have been given, through which our marriages may become eternal. May we be worthy of this sacred gift, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Marriage

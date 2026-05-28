@@ -67,4 +67,6 @@ There are many who don’t have what we have, who don’t know what we know. So 
 It is, after all, the only cause grand enough for woman’s precious energies. In the name of Jesus Christ, amen.
 
 
+
+
 #Women

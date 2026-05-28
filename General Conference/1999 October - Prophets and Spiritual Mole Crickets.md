@@ -65,4 +65,6 @@ This is the kingdom of God upon the earth. You and I are disciples of the Lord J
 That these words may be written in our hearts is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Discipleship #Family_Home_Evening #Prayer #Prophets #Temple_Work

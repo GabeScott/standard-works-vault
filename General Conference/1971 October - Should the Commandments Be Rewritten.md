@@ -119,4 +119,6 @@ I remember the words of a beloved stake president, and I thank him for the thoug
 There are many things, my beloved brethren and sisters, that I know and you know are there, because our Father said so. And I know that he lives, that he made us in his image, that he sent his divine Son, our Savior, to show us the way of life and redeem us from death. I know that he will enter into our lives as fully as we let him, and that his church and gospel and way of life are on earth and here with us, and that we will realize our highest possibilities if we accept the counsels God has given, and that we will fall somewhat, somewhere short of what we might have been, or might have had, if we run contrary to his commandments. God bless you and be with you always, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Commandments #Morality

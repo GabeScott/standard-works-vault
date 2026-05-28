@@ -126,4 +126,6 @@ I testify that the plan of happiness works. It was created by your Heavenly Fath
 [^13]: [[Alma 34.31|Alma 34:31]].
 
 
+
+
 #Adversity #Faith #Humility #Jesus_Christ #Plan_Of_Salvation #Repentance

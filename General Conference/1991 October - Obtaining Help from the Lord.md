@@ -91,4 +91,6 @@ To gain unshakable faith in Jesus Christ is to flood your life with brilliant li
 If you are despondent, racked by transgression, are ill, alone, or desperately in need of comfort and support, I solemnly testify that the Lord will help you when you carefully obey the spiritual law upon which that help is predicated. He is your Father. You are His child. He loves you. He will never let you down. I know He will bless you. In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Obedience #Prayer #Spirituality

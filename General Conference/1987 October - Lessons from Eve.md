@@ -99,4 +99,6 @@ Beloved sisters, let your lives be committed to your Father in Heaven, to his On
 I invoke the blessings of Almighty God upon you that you may be successful in fulfilling your divine destiny, in the name of Jesus Christ, amen.
 
 
+
+
 #Adam_And_Eve #Family #Marriage #Motherhood #Obedience #Prayer #Priesthood #Teaching #Women

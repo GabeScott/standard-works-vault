@@ -116,4 +116,6 @@ Doing so will surely bring joy and peace. Of this I promise and testify—and of
 [^7]: See [[Matthew 11.30|Matthew 11:30]].
 
 
+
+
 #Discipleship #Missionary_Work #Responsibility #Service #Temple_Work

@@ -83,4 +83,6 @@ In contrast to the haste and busy affairs of our day, his life was one of simpli
 History bears well the burden of providing ample evidence of his death. As surely as I know he died, I have the quiet yet positive assurance that he lives today—the Savior of every person who has been born or will be born upon this earth. As we now enter the Passover week of old, may we think on the resurrected Christ, the living Son of the living God. May we, in his name, unite our hearts, love one another, and keep his commandments is my prayer in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Passover

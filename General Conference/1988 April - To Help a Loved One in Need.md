@@ -67,4 +67,6 @@ Sometimes, we foolishly recite facts about the Father and the Son, mechanically,
 I know they live. I know that Jesus is the Christ, our Savior and Redeemer. I love him with all my soul. He gave his life that we might overcome errors to live eternally. I don’t understand how he did it. In my own imperfect way, I try to imagine the incomprehensible burden he felt as he entered into the closing hours of his ministry on earth, knowing that his life had to be completely sinless, without error. He had to provide the perfect atonement for all mankind, each individual, without exception, or not one soul could ever return to the presence of God. He did it. He did it perfectly. Neither he nor his Father will ever fail us—never in all eternity. I bear that witness, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Atonement #Forgiveness #Love

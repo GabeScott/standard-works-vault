@@ -57,4 +57,6 @@ A successful parent is one who has loved, one who has sacrificed, and one who ha
 My concern today is that there are parents who may be pronouncing harsh judgments upon themselves and may be allowing these feelings to destroy their lives, when in fact they have done their best and should continue in faith. That all who are parents might find joy in their efforts with their children is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Parenthood

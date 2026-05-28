@@ -71,4 +71,6 @@ As we strive together to give righteous, selfless service in His name, supportin
 I bear witness of these things in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Service

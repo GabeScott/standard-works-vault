@@ -23,4 +23,6 @@ There’s one thing that hasn’t been emphasized but has been mentioned here th
 Now that we have had this meeting, my advice to you is to go and do what you’ve been instructed to do. You’re responsible. The work of the Lord in this area, and in all areas in fact, is upon your shoulders. May the Lord give you strength and courage and understanding and the realization that you’re members of The Church of Jesus Christ of Latter-day Saints with a proper program for those who need help, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Self-Esteem #Welfare

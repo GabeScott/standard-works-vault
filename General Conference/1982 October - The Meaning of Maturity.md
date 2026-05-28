@@ -71,4 +71,6 @@ This has been particularly so with regard to the tenth quality, that of *self-ma
 May we, like him, be innocent and humble, simple, and full of faith and love. May we become wise and dependable, leading others by first mastering ourselves. May we become mature enough to give an acceptable accounting before the Lord when he comes. He is the living Christ. This is his living Church. He speaks through a living prophet, of which I bear joyful testimony, in the name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Character

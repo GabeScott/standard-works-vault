@@ -81,4 +81,6 @@ I have a final suggestion. With the single exception of those priests occupied b
 The Aaronic Priesthood holds the keys of “the gospel of repentance and of baptism, and the remission of sins” ([[D&C 84.27|D&C 84:27]]). The cleansing power of our Savior’s Atonement is renewed for us as we partake of the sacrament. The promise that we “may always have his Spirit to be with \[us\]” ([[D&C 20.77|D&C 20:77]]) is essential to our spirituality. The ordinances of the Aaronic Priesthood are vital to all of this. I testify that this is true, and I pray that our brethren of the Aaronic Priesthood will understand the importance of their sacred responsibilities and act worthily in them, in the name of Jesus Christ, amen.
 
 
+
+
 #Angels #Atonement #Covenants #Holy_Ghost #Jesus_Christ #Music #Ordinances #Priesthood #Repentance #Sacrament #Service

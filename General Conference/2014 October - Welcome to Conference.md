@@ -29,4 +29,6 @@ The Church continues to grow. We are now more than 15 million strong and increas
 Now I invite you to give your attention to the brethren and sisters who will participate today and tomorrow in our conference sessions. All who have been asked to speak feel a great responsibility in doing so. As we listen, may our hearts be touched and our faith increased, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Missionary_Work #Temples

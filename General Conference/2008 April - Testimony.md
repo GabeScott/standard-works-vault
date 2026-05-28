@@ -94,4 +94,6 @@ I close with my testimony. I know that we have a Heavenly Father, whose plan bri
 [^2]: For example, see Jeanne Newman, “With the Sound of a Trump,” *Tambuli,* Aug.–Sept. 1985, 21–23; *New Era,* Aug. 1985, 9–11.
 
 
+
+
 #Holy_Ghost #Testimony

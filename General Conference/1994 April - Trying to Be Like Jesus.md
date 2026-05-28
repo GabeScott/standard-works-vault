@@ -75,4 +75,6 @@ Third, do we love Christ sufficiently that we will be true to our mates, casting
 Can we do too much for the Lord? Certainly we all love Him. Therefore, I implore us, keep His commandments and become more like Him. Come unto Christ, eat the bread of life, drink the living water, and feast on His limitless love. He is our Savior, our Master, of whom I bear my humble witness in the name of Jesus Christ, amen.
 
 
+
+
 #Apostasy #Jesus_Christ #Love #Plan_Of_Salvation #Restoration

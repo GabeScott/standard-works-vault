@@ -93,4 +93,6 @@ From the scriptures, let us remember, “The sabbath was made for man, and not m
 I give you my witness that the greatest joy you can experience here in mortality is being obedient to the will of the Lord. May we always strive to keep His commandments, and may we keep His sacred day holy is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Commandments #Obedience #Sabbath #Sacrament

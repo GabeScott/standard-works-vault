@@ -79,4 +79,6 @@ I testify—as one who twenty-three years ago was baptized into the kingdom of G
 The same is true for all of us! How do I know this? Because I know with all my heart that God lives and that Jesus is the Christ. He is the Savior of mankind, the great mediator for the salvation and exaltation of all of our Heavenly Father’s children, if they are willing to follow his outlined flight plan. Of which I testify this day, gratefully and happily, and in the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Spirituality

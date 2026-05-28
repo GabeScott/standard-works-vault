@@ -121,4 +121,6 @@ As a father, I put my arms around each of my boys as they left to serve their mi
 That we will remember who we are and be obedient to the commandments of the Lord and return with honor into the presence of our Heavenly Father with our families is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Faith #Honesty #Obedience #Priesthood #Youth

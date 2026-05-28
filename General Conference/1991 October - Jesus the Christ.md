@@ -129,4 +129,6 @@ As a disciple of Jesus Christ, the Son of God, I express my willingness to so su
 In the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Missionary_Work #Resurrection

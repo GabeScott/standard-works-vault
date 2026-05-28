@@ -65,4 +65,6 @@ As we minister to children with the same devotion and commitment demonstrated by
 Sisters, by ministering to children we too can help the gospel live for many generations, for in our hands are our most valuable and our most vulnerable resource—our children. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Jesus_Christ #Teaching

@@ -43,4 +43,6 @@ I contrasted that with a branch council meeting in Lahore, Pakistan, that I had 
 In the Church of Jesus Christ, we have been instructed by prophets past and prophets present—and by the pattern set by our Savior—how to minister. We take names, we remember, and we counsel over the welfare of souls. Leaders who do this will never run out of agenda items in their council meetings! The principle of counting and accounting works. It is the Lord’s way. We can do better. To God, who created the universe and rules over all, this work—*His* work and glory—is very personal. And so it should be for each of us, as instruments in His hands in His amazing work of salvation and exaltation. Miracles in the lives of real people will result. In the name of Jesus Christ, amen.
 
 
+
+
 #Church_Callings #Individual_Worth #Ministering #Service

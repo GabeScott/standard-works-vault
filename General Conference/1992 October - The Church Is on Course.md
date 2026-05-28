@@ -115,4 +115,6 @@ May the Almighty bless you, my beloved brethren and sisters. This is the work of
 I make a promise to all who uphold and sustain it, and who strive with faith and prayer to live its principles, that they will be blessed with happiness and accomplishment in this life and joy and eternal life in the world to come. In the name of Jesus Christ, amen.
 
 
+
+
 #Church_Leaders #Church_Organization #Prophets

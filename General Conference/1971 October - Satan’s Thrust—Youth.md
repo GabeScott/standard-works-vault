@@ -131,4 +131,6 @@ Yes, “There comes a time when the general defilement of a society becomes so g
 God grant that we as parents and leaders of youth may have the power and the good common sense to give them “a fair choice,” I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Music #Satan #Youth

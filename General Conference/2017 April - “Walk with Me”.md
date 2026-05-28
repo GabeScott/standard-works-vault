@@ -73,4 +73,6 @@ I testify that when we walk the path of priesthood service, the Savior Jesus Chr
 I give you my solemn witness that Jesus is the Christ, our resurrected Lord. I bear you my testimony that the priesthood He has trusted us with is the power to speak and to act in His name. We are children of a loving Heavenly Father who answers our prayers and sends the Holy Ghost to strengthen us in every priesthood responsibility we are blessed to receive. Joseph Smith saw the Father and the Son. He received the keys of the priesthood, which have been passed on to President Thomas S. Monson, who exercises them today. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Priesthood #Service

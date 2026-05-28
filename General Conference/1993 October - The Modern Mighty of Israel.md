@@ -79,4 +79,6 @@ Brothers and sisters, during this conference please listen to the voices of the 
 In the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Courage #Loyalty

@@ -92,4 +92,6 @@ I know that God lives and that His Son, Jesus Christ, lives. I also know that th
 [^20]: [[Romans 8.35|Romans 8:35, 37]][[Romans 8.37|]].
 
 
+
+
 #Adversity #Faith #Jesus_Christ #Patience

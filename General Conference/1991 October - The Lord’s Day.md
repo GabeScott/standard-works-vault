@@ -85,4 +85,6 @@ Where is the line as to what is acceptable and unacceptable on the Sabbath? With
 What is worthy or unworthy on the Sabbath day will have to be judged by each of us by trying to be honest with the Lord. On the Sabbath day we should do what we have to do and what we ought to do in an attitude of worshipfulness and then limit our other activities. I wish to testify unequivocally concerning the blessings of Sabbath day worship in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Sabbath

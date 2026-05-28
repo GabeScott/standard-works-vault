@@ -77,4 +77,6 @@ Our challenge for the future is to be prepared and to perfect ourselves through 
 May we be blessed to provide the leadership throughout the Church that will cause the membership to be prepared to be received by the Lord when he comes, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Welfare

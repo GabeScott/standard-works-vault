@@ -177,4 +177,6 @@ One home teacher reports: “Of the five families whom I visit, all have home ga
 Brothers and sisters, this is the work of the Lord. We deal with many things which are thought to be not so spiritual; but all things are spiritual with the Lord, and he expects us to listen, and to obey, and to follow the commandments. And I beg of you—all of us—that we live the commandments of the Lord which are brought forth in these conferences from time to time by the various Brethren. And I bear testimony to the divinity of it all, in the name of Jesus Christ. Amen.
 
 
+
+
 #Obedience #Sabbath

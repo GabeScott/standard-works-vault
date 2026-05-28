@@ -102,4 +102,6 @@ Let us always be mindful of our Heavenly Father’s wonderful plan for us. He lo
 [^15]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–20.
 
 
+
+
 #Adversity #Agency #Joy #Opposition #Plan_Of_Salvation

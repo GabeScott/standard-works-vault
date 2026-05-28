@@ -106,4 +106,6 @@ I witness that you will feel joy more and more as you enter the holy temples of 
 [^16]: [[D&C 128.19|Doctrine and Covenants 128:19]].
 
 
+
+
 #Jesus_Christ #Joy #Restoration #Temple_Work #Temples

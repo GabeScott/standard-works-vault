@@ -115,4 +115,6 @@ Brethren, thank you for your faith. Thank you for your devotion. We are aware of
 It is true. It is our Father’s work. It is the church of our Redeemer. The priesthood which we hold is a very real and a very precious thing. I leave you my testimony, my love and my blessing, and my gratitude, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Financial_Management #Jesus_Christ #Missionary_Work #Prayer #Temple_Work #Temples #Tithing #Worship

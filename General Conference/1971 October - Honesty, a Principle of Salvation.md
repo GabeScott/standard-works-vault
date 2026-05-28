@@ -148,4 +148,6 @@ The Spirit of God is the spirit of truth. The Savior is the personification of t
 Except through the truth there is no salvation in the kingdom of God, and that truth is Christ. And this is my testimony to you in the sacred name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Honesty

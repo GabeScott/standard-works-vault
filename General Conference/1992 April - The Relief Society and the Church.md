@@ -83,4 +83,6 @@ One of the great functions of Relief Society is to provide sisterhood for women,
 We give thanks for the Savior, who made this great goal attainable, for His priesthood authority that administers the essential ordinances, and for the great men and women whose lives are an inspiring legacy of godly service. In the name of Jesus Christ, amen.
 
 
+
+
 #Church_Organization #Priesthood #Relief_Society #Women

@@ -111,4 +111,6 @@ At the very heart of this great work of teaching and establishing the gospel of 
 Since no one was with Joseph when this great vision took place in the wooded grove near Palmyra, a testimony concerning its reality can come only by believing the truthfulness of Joseph Smith’s own account or by the witness of the Holy Ghost, or both. I have such a conviction. It is a sure conviction that lies deep in my soul. As a special witness of the same Christ who appeared with the Father and instructed the boy Joseph Smith, I bear witness of the truthfulness of the magnificent First Vision near Palmyra. I declare this in all soberness and in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Church_History #Joseph_Smith

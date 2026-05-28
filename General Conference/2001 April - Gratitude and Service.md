@@ -87,4 +87,6 @@ I leave you my love, my witness, my testimony that God lives, that this work is 
 May you be so blessed. May you have a burning feeling in your heart. May you feel as I do on this day that this work is true and that it is meant for us to help bring about the eternal plan of salvation and exaltation. In the name of Jesus Christ, amen.
 
 
+
+
 #Couple_Missionaries #Gratitude #Jesus_Christ #Miracles #Parents #Pioneers

@@ -172,4 +172,6 @@ I urge and bless every member of the Church, and all who desire to be part of it
 [^16]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
 
+
+
 #Discipleship #Divine_Nature #Gifts_Of_The_Spirit #Talents

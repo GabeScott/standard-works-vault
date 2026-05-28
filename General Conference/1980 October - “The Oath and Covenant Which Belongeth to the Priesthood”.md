@@ -95,4 +95,6 @@ The nature of this service is spelled out in detail in the revelations and by th
 Such men are magnifying their callings, and they shall obtain the rewards promised by the Lord in the “oath and covenant which belongeth to the priesthood.” That each of us may be found in this choice group, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Priesthood #Service

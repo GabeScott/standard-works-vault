@@ -45,4 +45,6 @@ And to all of us—those of us who are members of the Church, could I just couns
 And may we also, as members of the Church, truly do our part to make His church a welcome refuge for all of our Father in Heaven’s children, I pray humbly in the name of the Lord and Savior Jesus Christ, amen.
 
 
+
+
 #Fellowshipping #Missionary_Work

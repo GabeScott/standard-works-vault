@@ -105,4 +105,6 @@ Do not be deceived by the doctrines of men or of devils. Cleave unto the truth a
 Oh, God our Father, wilt thou look upon thy children everywhere in love and mercy, grant them repentance, and lead them in thy holy way so they may gain peace in this life and eternal life in the world to come. In the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Idol_Worship #Restoration

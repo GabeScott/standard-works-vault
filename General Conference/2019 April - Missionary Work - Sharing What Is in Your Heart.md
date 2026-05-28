@@ -168,4 +168,6 @@ I so testify in the name of Jesus Christ, amen.
 [^20]: [[D&C 45.44|Doctrine and Covenants 45:44]].
 
 
+
+
 #Missionary_Work

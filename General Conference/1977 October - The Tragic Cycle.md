@@ -175,4 +175,6 @@ That it will be so I do not say. I do know, and I say, that as there was a Zion 
 To all of these things which the Lord has spoken, I bear my solemn witness in the name of Jesus Christ. Amen.
 
 
+
+
 #Prophecy #Repentance

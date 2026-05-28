@@ -73,4 +73,6 @@ There is reason for hope. More people seem to recognize that public solutions ar
 Someone must love the children enough to do this. Then, if it is done everywhere, to the boys and girls who ask “Will I be happy?” we can answer: “Of course! You are going to be happy, and even more. If you keep the covenants and commandments of God, you will have the joy promised by the Savior when he walked upon the earth. You will have ‘peace in this world, and eternal life in the world to come’ ([[D&C 59.23|D&C 59:23]]),” which is the ultimate message of this church to the world. In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Joy #Morality #Parenthood

@@ -106,4 +106,6 @@ It is my prayer that for us, going to the temple will be much more than a onetim
 [^14]: [[D&C 109.13|Doctrine and Covenants 109:13, 15]][[D&C 109.15|]].
 
 
+
+
 #Education #Home #Obedience #Preparation #Temples

@@ -35,4 +35,6 @@ Now in closing, I wish to thank all of those who have done so very, very much to
 God bless all of us, I humbly pray. May we strive to walk in righteousness before Him, I humbly ask, and leave my benediction with you in the sacred and holy name of our Redeemer, even the Lord Jesus Christ, amen.
 
 
+
+
 #Joseph_Smith #Restoration

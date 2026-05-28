@@ -105,4 +105,6 @@ Our resurrected Lord was seen in a vision by Joseph Smith and Sidney Rigdon in 1
 Now, these fragmentary events which I have briefly portrayed bear record and witness that resurrection and eternal life come to us because of what Christ our Lord did for each of us. He declared, “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live: And whosoever liveth and believeth in me shall never die.” ([[John 11.25|John 11:25–26]][[John 11.26|]].) To this declaration of truth I bear my solemn witness, in the holy name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Resurrection

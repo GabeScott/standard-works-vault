@@ -94,4 +94,6 @@ I bear testimony that Jesus Christ is the Savior of the world, that through His 
 [^15]: [[John 17.3|John 17:3]].
 
 
+
+
 #Adversity #Atonement #Endurance

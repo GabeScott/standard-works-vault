@@ -73,4 +73,6 @@ He then pleaded: “Now, if you have stepped off the path, may I invite you with
 I bear witness of Him, even Jesus Christ, the Master Minister and Savior of us all. I invite each of us to seek out the “*pobrecitos*,” the “poor little ones” among us who are in need. This is my hope and prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Membership #Compassion #Covenants #Ministering

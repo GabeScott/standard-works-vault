@@ -98,4 +98,6 @@ I pray that wherever we are and whatever duties we have in the priesthood of God
 [^2]: David O. McKay, in Conference Report, Apr. 1959, 122.
 
 
+
+
 #Missionary_Work #Priesthood #Unity

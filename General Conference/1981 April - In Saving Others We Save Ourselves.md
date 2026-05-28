@@ -41,4 +41,6 @@ What directions has He given to help us arrive at our destination? Once again, H
 My brothers and sisters, may we better understand the duties associated with our discipleship, I pray humbly in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

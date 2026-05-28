@@ -97,4 +97,6 @@ We are witnesses that President Kimball is God’s prophet, and that he is leadi
 God, our Eternal Father, lives, as does his Only Begotten Son, the Savior of us all, in whose holy name I testify, amen.
 
 
+
+
 #Authority #Restoration

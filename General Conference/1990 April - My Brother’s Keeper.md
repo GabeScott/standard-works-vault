@@ -103,4 +103,6 @@ Were the Lord to say to Gil Warner today, as He said to Adam’s son long years 
 May all of us who hold the priesthood of God demonstrate by our lives that we are our brothers’ keepers, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Service

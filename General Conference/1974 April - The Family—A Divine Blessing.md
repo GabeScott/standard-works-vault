@@ -77,4 +77,6 @@ President Kimball, whom we have sustained as president and prophet today and of 
 The Lord has blessed us with families that we might maintain our eternal relationship with him. May we recognize the importance of this divine blessing and do all in our power to fulfill this sacred responsibility. May the Spirit of the Lord be with us in our homes, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Family

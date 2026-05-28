@@ -115,4 +115,6 @@ If our home teaching assignments are to be given their proper priority, then our
 God grant us the vision to see the potential of our home teaching assignments, and the desire to do his will to watch over and strengthen those whom we have been called to serve with a special spirit of interest, concern, and love, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Home_Teaching

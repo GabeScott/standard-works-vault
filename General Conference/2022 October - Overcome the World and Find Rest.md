@@ -110,4 +110,6 @@ With the power of the holy apostleship vested in me, I bless you in your quest t
 [^14]: President David O. McKay said that in the temple we take a “step-by-step ascent into the Eternal Presence” (in Truman G. Madsen, *The Temple: Where Heaven Meets Earth* \[2008\], 11).
 
 
+
+
 #Adversity #Covenants #Jesus_Christ #Peace #Power #Worldliness

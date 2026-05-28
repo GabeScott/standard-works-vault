@@ -97,4 +97,6 @@ Like the captain, if we fail to modify our course and purge ourselves of pride, 
 May we all “get hold of \[ourselves\],” as Edgar Guest so beautifully suggests, and say, “I can be courageous in hearkening to the invitation of the Lord.” “Live in such a way that people who know you but don’t know Christ will want to know Christ because they know you” (author unknown). In the holy name of him for whose glorious resurrection and atoning sacrifice I express my deepest appreciation this Easter Sunday—even Jesus Christ—amen.
 
 
+
+
 #Adversity #Courage #Joseph_Smith #Media #Music #Pride #Satan

@@ -116,4 +116,6 @@ The Lord has revealed His sacred standard to guide people in a troubled world. Y
 [^11]: Ezra Taft Benson, in Conference Report, Apr. 1983, [[1983 April - A Principle with a Promise.md|pp. 69–72]]; or *Ensign,* May 1983, pp. 54–55. Spencer W. Kimball, in Conference Report, Apr. 1974, [[1974 April - Guidelines to Carry Forth the Work of God in Cleanliness.md|p. 8]]; or *Ensign,* May 1974, p. 7. Joseph Fielding Smith, in Conference Report, Apr. 1971, [[1971 April - Our Responsibilities as Priesthood Holders.md|p. 47]]; or *Ensign,* June 1971, p. 49. Heber J. Grant, J. Reuben Clark, Jr., David O. McKay, “Message of the First Presidency,” in Conference Report, Oct. 1942, pp. 8–10.
 
 
+
+
 #Agency #Word_Of_Wisdom

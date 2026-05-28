@@ -45,4 +45,6 @@ I pray that each of us can think about our families and our friends and acquaint
 May we be anxiously engaged in gathering in His sheep who have gone astray, so they can be safe in the fold. He “who is mighty to save” ([[2 Nephi 31.19|2 Nephi 31:19]]) is the Good Shepherd, and He loves His sheep. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Fellowshipping #Forgiveness #Jesus_Christ

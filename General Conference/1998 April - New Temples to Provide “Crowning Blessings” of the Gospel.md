@@ -39,4 +39,6 @@ May there be peace and harmony and love in our homes and in our families. May th
 This is my humble prayer, my beloved brethren and sisters, as we come to the close of this great and significant and historic conference. God help us to be Latter-day Saints in the finest expression of that word is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Family_History #Temple_Work #Temples #Testimony

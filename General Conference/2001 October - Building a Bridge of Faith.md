@@ -45,4 +45,6 @@ In our day, it is so easy to isolate ourselves by erecting temporal, spiritual, 
 I testify that Jesus is the Christ; I put my trust in Him and in His gospel of salvation to be reunited someday. In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Faith #Fear #Holy_Ghost #Love #Plan_Of_Salvation #Sin #Testimony #Unity

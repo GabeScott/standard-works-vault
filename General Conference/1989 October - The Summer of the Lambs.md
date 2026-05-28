@@ -49,4 +49,6 @@ Of our little flock, we saved only one-third. And what of the Savior’s flock? 
 This I know: He needs our help. With more people to help, more lambs will be saved. A simple fact, but true. Of this I can bear testimony in the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Jesus_Christ #Leadership #Youth

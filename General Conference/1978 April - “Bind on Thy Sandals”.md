@@ -47,4 +47,6 @@ May I say once more to the youth of the Church—prepare, believe, be ready, hav
 What a glorious thing it is to have the privilege of bearing the priesthood. God does live and Jesus Christ is his Son—our Lord and Savior. I bear witness that there is a prophet of God on the earth, and tonight we have the privilege of sitting at his feet in this great gathering. In the name of Jesus Christ. Amen.
 
 
+
+
 #Preparation

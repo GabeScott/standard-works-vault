@@ -57,4 +57,6 @@ When we understand the great plan of the Eternal God, the proclamation on the fa
 The message of the proclamation will comfort parents who may be questioning their roles in the home. It will bring security to children as they are raised by parents who love them and understand their divine destiny. And it will bring lasting happiness to the young woman who spoke to me as she understands and fulfills the role designed for her by an all-wise and loving Father in Heaven. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Children #Commandments #Death #Faith #Family #Plan_Of_Salvation #Repentance #Sin

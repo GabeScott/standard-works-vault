@@ -87,4 +87,6 @@ I testify that God our Father lives. I testify that Jesus is the Christ. I know 
 Yes, I know he gives life—in all of its depth of meaning. As the emblems of his love are regularly presented before us, please let us hear, “Father, forgive them,” and respond, “Father, forgive me.” This leads to life—eternal life—in the name of Jesus Christ, amen.
 
 
+
+
 #Sacrament #Worthiness

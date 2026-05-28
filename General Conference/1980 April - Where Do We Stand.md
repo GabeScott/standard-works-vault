@@ -137,4 +137,6 @@ As Paul further said, let us not be “men-pleasers,” but be true servants of 
 For this I humbly pray in the sacred name of the Lord, Jesus Christ, amen.
 
 
+
+
 #Obedience #Spirituality

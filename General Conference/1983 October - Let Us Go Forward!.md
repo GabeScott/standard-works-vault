@@ -83,4 +83,6 @@ As we all sang together in this meeting that stirring hymn, the chorus of which 
 I leave you my testimony and invoke the blessings of heaven upon you. I know that God our Eternal Father lives. I know that Jesus is the Christ, the Savior and the Redeemer of mankind. I know that this is the work of the Lord, that this Church is established upon a foundation of Apostles and prophets, Jesus Christ being the chief cornerstone. (See [[Ephesians 2.20|Eph. 2:20]].) I know these things, and I know that you know them; and with that knowledge may we go forward with our lives, walking with integrity and gladness and faith, I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity

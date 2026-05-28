@@ -95,4 +95,6 @@ Brothers and sisters and friends who might be listening in, we are doing all we 
 Since all of you Latter-day Saints have been asked to be missionaries, and the Lord said, “… it becometh every man who hath been warned to warn his neighbor” ([[D&C 88.81|D&C 88:81]]), you need to bear that witness too wherever opportunity presents itself. It is the greatest message in all this world today; and that is my testimony to you, and I bear it in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Authority #Jesus_Christ #Plan_Of_Salvation

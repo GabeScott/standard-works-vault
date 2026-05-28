@@ -147,4 +147,6 @@ And I bear further witness that every such person who, having come this far, wil
 That the Lord will bless all of us priesthood bearers that we will so understand these great truths, that in the end we shall, by making our calling and election sure, enjoy the full light of Christ, I humbly pray, in the name of Jesus Christ, our Redeemer. Amen.
 
 
+
+
 #Jesus_Christ #Spirituality

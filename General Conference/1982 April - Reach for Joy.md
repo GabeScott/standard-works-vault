@@ -57,4 +57,6 @@ This I firmly believe, and I earnestly pray that in time of trial we may stand f
 We love you. We pray for you. We find comfort in your example. And I pray this day that we may help each other make it through our times of trial—and while we reach for our joy—in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Joy

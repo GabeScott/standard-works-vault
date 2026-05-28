@@ -94,4 +94,6 @@ I testify that He lives and leads His Church. I am His witness. President Russel
 [^5]: See [[1 Corinthians 13.1|1 Corinthians 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]]; [[Moroni 7.1|Moroni 7]].
 
 
+
+
 #Adversity #Charity #Endurance #Faith #Hope #Jesus_Christ #Meekness

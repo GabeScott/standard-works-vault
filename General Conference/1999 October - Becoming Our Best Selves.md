@@ -122,4 +122,6 @@ May each of us qualify to receive them, I pray, in the name of Jesus Christ, ame
 [^9]: [[Proverbs 3.5|Prov. 3:5–6]][[Proverbs 3.6|]].
 
 
+
+
 #Faith #Family #Fatherhood #Home #Jesus_Christ #Obedience #Prayer #Sabbath #Service

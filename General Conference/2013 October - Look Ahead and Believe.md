@@ -55,4 +55,6 @@ Our guiding principles were taught to us by the Prophet Joseph Smith: “The fun
 I testify that as we follow the example of our Savior, Jesus Christ, and raise our hands to the square with action in sustaining our beloved prophet, President Thomas S. Monson, we will find peace, comfort, and joy, and we “shall eat the good of the land … in these last days” ([[D&C 64.34|D&C 64:34]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Church_Callings #Faith #Unity

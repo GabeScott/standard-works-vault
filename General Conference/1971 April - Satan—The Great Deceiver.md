@@ -129,4 +129,6 @@ I bear further witness to the truth of the Savior’s prediction that at the tim
 That we may take the Holy Spirit for our guide, recognize Satan, his representatives and their works, and not be deceived by them, to the end that we may be partakers of the promised blessings, I humbly pray, in the name of Jesus Christ, our Lord. Amen.
 
 
+
+
 #Evil #Satan #Temptation

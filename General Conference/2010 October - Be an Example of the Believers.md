@@ -112,4 +112,6 @@ I am grateful for the plan of happiness, and I testify it is the only way that R
 [^19]: Thomas S. Monson, in Conference Report, Apr. 2008, [[2008 April - Examples of Righteousness.md|67]]; or *Ensign,* May 2008, 66.
 
 
+
+
 #Example #Faith #Morality #Standards #Youth

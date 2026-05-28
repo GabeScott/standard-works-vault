@@ -117,4 +117,6 @@ As I have said before from this pulpit, my brothers and sisters, we love you. We
 Knowing this work to be true, we go forward, each of us. May we make a renewed effort to put on the whole armor of God and look to Him is my humble prayer in the name of our Redeemer, the Lord Jesus Christ, amen.
 
 
+
+
 #Abortion #Abuse #Children #Church_Doctrine #Church_Organization #Family #Godhead #Homosexuality #Honesty #Jesus_Christ #Joseph_Smith #Joy #Marriage #Media #Prophets #Sin #Tithing

@@ -61,4 +61,6 @@ Well, I have not proven to be the perfect father I vowed to be that night and a 
 Brethren, we all know fatherhood is not an easy assignment, but it ranks among the most imperative ever given, in time or eternity. We must not pull away from our children. We must keep trying, keep reaching, keep praying, keep listening. We must keep them “within the clasp of our arms.” That is what friends are for. Of this I bear witness in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Parenthood

@@ -31,4 +31,6 @@ Brothers and sisters, from the bottom of my heart, I testify that the prophets s
 On this Easter day I solemnly testify that Jesus Christ is risen, He lives, and He directs His Church on earth through His prophets, seers, and revelators. I testify that He is the Savior and Redeemer of the world and that through Him we can be saved and exalted in the presence of our dear God. I love Him; I adore Him. I want to follow Him and do His will and become more like Him. I humbly say these things in the sacred name of our Lord Jesus Christ, amen.
 
 
+
+
 #Prophets

@@ -47,4 +47,6 @@ That day I experienced more than a marathon. I learned some important lessons. F
 I testify that as you stand as a witness, obey the commandments, and press forward with “a steadfastness in Christ,” you will never be alone. You can rely on the enabling power of the Savior’s Atonement. And I testify that building on this firm foundation will help you to become like Him—steadfast and immovable at all times, in all things, and in all places. In the name of Jesus Christ, amen.
 
 
+
+
 #Courage #Faith #Jesus_Christ #Obedience

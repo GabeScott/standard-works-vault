@@ -96,4 +96,6 @@ I bear humble witness of the sanctity of the Sabbath day and of our need to reso
 [^15]: In Conference Report, Apr. 1975, [[1975 April - The Sabbath Day.md|72]]; or *Ensign,* May 1975, 49.
 
 
+
+
 #Atonement #Commandments #Covenants #Jesus_Christ #Sabbath

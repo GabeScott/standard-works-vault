@@ -37,4 +37,6 @@ His most exemplary act, the Atonement, required Jesus to descend “below all th
 As we commemorate this Easter morning, let us turn to the Lord, our “bright and morning star” ([[Revelation 22.16|Revelation 22:16]]). I testify He will forever light our way, our truth, and our life (see [[John 14.6|John 14:6]]), in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Forgiveness #Jesus_Christ #Peace

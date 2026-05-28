@@ -41,4 +41,6 @@ May heaven smile upon you. May there be love and harmony, peace and goodness in 
 It will now be our pleasure to hear from our beloved associate Elder David B. Haight of the Quorum of the Twelve, who is now 97 years of age. Elder Haight, come up here and speak to your multitudinous friends.
 
 
+
+
 #Church_Growth #Education #Morality #Service #Youth

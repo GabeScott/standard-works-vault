@@ -115,4 +115,6 @@ Now, pay attention to your feelings as I define faith one last time:
 Did you notice how you felt? Even talking about faith brings feelings of peace and steadiness, doesn’t it? Faith is the answer. I need more faith. You need more faith. Heavenly Father, increase our faith, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #God_The_Father #Patriarchal_Blessings #Young_Women

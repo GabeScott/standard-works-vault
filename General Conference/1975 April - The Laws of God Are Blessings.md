@@ -63,4 +63,6 @@ We should be grateful for Spencer W. Kimball (and his associates), a great livin
 May the world take heed while the day yet lasts, for when the night cometh, no man can work, and the opportunity will be gone. This I pray in the name of Jesus Christ, the Lord. Amen.
 
 
+
+
 #Commandments #Laws #Obedience

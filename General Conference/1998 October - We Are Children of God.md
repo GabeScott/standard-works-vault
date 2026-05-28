@@ -154,4 +154,6 @@ Who are we? We are children of God.[^32] Our potential is unlimited. Our inherit
 [^32]: Looking up scriptural references that refer to *create* or *form* (or their derivatives), with either *man, men, male,* or *female* in the same verse, I found 55 instances that attest to our divine creation. One may represent the many that convey the same message: “The Gods took counsel among themselves and said: Let us go down and form man in our image, after our likeness. … So the Gods went down to organize man in their own image, in the image of the Gods to form they him, male and female to form they them” ([[Abraham 4.26|Abr. 4:26–27]][[Abraham 4.27|]]).
 
 
+
+
 #Death #God_The_Father #Jesus_Christ #Love #Prayer #Resurrection #Spirituality

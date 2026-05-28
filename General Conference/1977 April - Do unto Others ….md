@@ -125,4 +125,6 @@ But nevertheless the Lord invites all to come unto him on conditions of repentan
 So what are we to do? We are to “seek … first the kingdom of God and his righteousness.” ([[3 Nephi 13.33|3 Ne. 13:33]].) We are to give our religion first priority in our lives, and then serve God with all our hearts and do unto others as we would be done by as we travel down the road to Jericho. And that we may do so is my humble and earnest prayer in the sacred name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Brotherhood #Kindness

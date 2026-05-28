@@ -103,4 +103,6 @@ As modern pioneers press forward, they suffer hardships and make sacrifices. But
 This is His work. We are His children. He loves us—one and all. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Courage #Faith #Forgiveness #Pioneers #Service

@@ -148,4 +148,6 @@ May we, as the ancient Nephites and Lamanites, “fall down at the feet of Jesus
 [^29]: [[D&C 18.40|Doctrine and Covenants 18:40]].
 
 
+
+
 #God_The_Father #Gratitude #Jesus_Christ #Sabbath #Worship

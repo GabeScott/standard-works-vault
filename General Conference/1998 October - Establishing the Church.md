@@ -56,4 +56,6 @@ Now is the time to establish the Lord’s Church by securing a confirmation of t
 [^7]: In Conference Report, Oct. 1954, 28.
 
 
+
+
 #Blessings #Church_Organization #Jesus_Christ #Plan_Of_Salvation #Scripture_Study

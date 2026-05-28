@@ -21,4 +21,6 @@ Standing here today we review in our minds the mighty faith and works of those w
 Now, my brothers and sisters, with the future before us, and sensing deeply the responsibilities and divine mission of the restored Church on this sacred occasion, the First Presidency and the Quorum of the Twelve Apostles declare to the world a proclamation. We have felt it appropriate to issue this statement from here, where the Church began. Accordingly, I shall ask Elder Gordon B. Hinckley of the Quorum of the Twelve Apostles, to speak in my behalf and in behalf of my brethren, to read this proclamation to you and to the world.
 
 
+
+
 #Restoration

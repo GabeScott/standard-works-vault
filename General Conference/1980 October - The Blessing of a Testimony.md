@@ -19,4 +19,6 @@ Jesus Christ was chosen to be the Savior of the world. He gave the plan of life 
 We are very fortunate in having a testimony of the teachings of the gospel of Jesus Christ. I hope and pray that all of us will do our best in the duties that are given to us. May our example and influence be felt for good wherever we are. In the name of Jesus Christ, amen.
 
 
+
+
 #Testimony

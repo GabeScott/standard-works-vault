@@ -111,4 +111,6 @@ He has said, “Learn of me, and listen to my words; walk in the meekness of my 
 And there, my brothers and sisters, we rest our faith. Regardless of the circumstances, we have the comfort and peace of Christ our Savior, our Redeemer, the living Son of the living God. I so testify in His holy name, even the name of Jesus Christ, amen.
 
 
+
+
 #Contention #Faith #Military #Peace

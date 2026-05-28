@@ -71,4 +71,6 @@ Through prayer and study you can know the scriptures are true. I am so anxious f
 After this conference, will you join with me in making a renewed commitment to increase your scripture study on a regular basis? Will you make a plan to have a set of your own scriptures to keep close and carry with you? Will every one of you within the sound of my voice accept the invitation, the challenge, to make a commitment to read the scriptures this year regularly? If you will do this, I promise you, and bear my witness, that our Father in Heaven will draw near to you because you will be drawing near to Him. (See [[D&C 88.63|D&C 88:63]].) We live and will one day die. And when we do, we will know our Savior, for we will have searched the holy scriptures and felt His nearness as He walks with us on our journey home. To this I bear my testimony, in the name of Jesus Christ, amen.
 
 
+
+
 #Scriptures

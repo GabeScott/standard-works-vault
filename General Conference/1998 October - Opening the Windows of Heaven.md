@@ -98,4 +98,6 @@ The ultimate offering was that offered by the Savior Himself in giving His very 
 [^15]: [[2 Samuel 24.24|2 Sam. 24:24]]; see [[2 Samuel 24.15|vv. 15–25]][[2 Samuel 24.16|]][[2 Samuel 24.17|]][[2 Samuel 24.18|]][[2 Samuel 24.19|]][[2 Samuel 24.20|]][[2 Samuel 24.21|]][[2 Samuel 24.22|]][[2 Samuel 24.23|]][[2 Samuel 24.24|]][[2 Samuel 24.25|]].
 
 
+
+
 #Book_Of_Mormon #Church_Membership #Commandments #Covenants #Fasting #Honesty #Jesus_Christ #Love #Sacrifice #Temples #Tithing

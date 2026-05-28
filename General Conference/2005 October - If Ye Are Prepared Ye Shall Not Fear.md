@@ -119,4 +119,6 @@ Let us never lose sight of the dream of Pharaoh concerning the fat cattle and th
 I have faith, my dear brethren, that the Lord will bless us and watch over us and assist us if we walk in obedience to His light, His gospel, and His commandments. He is our Father and our God, and we are His children, and we must be in every way deserving of His love and concern. That we may do so is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Obedience #Preparation #Priesthood #Safety #Self-Reliance #Service

@@ -49,4 +49,6 @@ In conclusion let me suggest that each of us conduct a personal interview with o
 My brothers and sisters, I pay tribute today to President Kimball as a great man and prophet of God, and I pledge my loyalty and full support to him, his counselors, the members of the Quorum of the Twelve, and all the other General Authorities. I know that God lives, and that his Son lives, and I am so grateful to be associated with the other Brethren in helping to build the kingdom here on earth. There is much important work to be done, and every one of us is needed. May we be diligent in keeping the commandments and being faithful Latter-day Saints, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Time_Management

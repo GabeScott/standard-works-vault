@@ -67,4 +67,6 @@ If we will so conduct ourselves as Latter-day Saints, this work will never fail 
 For these great blessings I humbly pray as I express unto you my appreciation, my love, and my gratitude, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith

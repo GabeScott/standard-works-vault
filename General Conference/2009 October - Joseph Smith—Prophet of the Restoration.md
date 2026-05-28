@@ -51,4 +51,6 @@ Through Joseph Smith have been restored all the powers, keys, teachings, and ord
 I bear my witness that Joseph Smith was the prophet of the Restoration, just as he claimed to be. I echo the strains of that stirring hymn: “Praise to the man who communed with Jehovah!” (“Praise to the Man,” *Hymns,* no. 27). In the name of Jesus Christ, amen.
 
 
+
+
 #Godhead #Joseph_Smith #Restoration

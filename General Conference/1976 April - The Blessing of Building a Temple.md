@@ -47,4 +47,6 @@ Today many young men and women are completing their family group sheets and are 
 I bear you my witness that the gospel of Jesus Christ is the way of salvation for the living and the dead and that God hears and answers our prayers. He will inspire and assist us to gather up the records of our progenitors, and he will open the way that we may bring joy and salvation into the lives of those who blessed us with this life. I bear you my humble testimony that I know that Joseph Smith was an instrument in the hands of the Lord to restore the gospel in these last days and we have a living prophet in President Spencer W. Kimball, who is guiding and directing The Church of Jesus Christ of Latter-day Saints. To this I testify, in the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work #Temples

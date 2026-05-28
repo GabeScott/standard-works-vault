@@ -59,4 +59,6 @@ I will forever treasure this time in the Relief Society, filled with rich associ
 May we all feel his strength as we seek to serve him. In the name of Jesus Christ, amen.
 
 
+
+
 #Fellowshipping #Service

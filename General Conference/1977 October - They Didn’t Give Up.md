@@ -21,4 +21,6 @@ Our oldest son is now another young man serving as a missionary in Manchester, E
 And now this call. It is beyond understanding for a human being. I need all your prayers. I promised the Lord when I went into the baptismal font and later in the temple that he could count on me. And I want to tell President Kimball that he can count on me. I have no other desire than to be a servant of the Lord. In his name, amen.
 
 
+
+
 #Testimony

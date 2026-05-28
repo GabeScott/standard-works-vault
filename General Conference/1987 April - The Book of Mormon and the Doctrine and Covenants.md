@@ -125,4 +125,6 @@ I promise you that, with increased attendance in the temples of our God, you sha
 I testify that the Book of Mormon is the word of God. Jesus is the Christ. Joseph Smith is His prophet. The Church of Jesus Christ of Latter-day Saints is true, in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Doctrine_And_Covenants #Scripture_Study

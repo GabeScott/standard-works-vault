@@ -57,4 +57,6 @@ This priesthood makes eternal families possible. It allows me, a son, to turn my
 I love temple work. I know that God lives, that Jesus Christ is my Savior, and that President Gordon B. Hinckley is a true prophet. In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Holy_Ghost #Temples

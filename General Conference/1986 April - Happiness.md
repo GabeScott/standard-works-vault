@@ -69,4 +69,6 @@ The commandments are guides to happiness. I implore you to follow them.
 “Are we having fun yet, experiencing true happiness?” I certainly am. I find great joy in life in obeying and serving. I pray that you may also discover the elusive treasure of true happiness through the means that were ordained by our Father, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Joy #Sin

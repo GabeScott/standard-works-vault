@@ -41,4 +41,6 @@ Brothers and sisters, I invite you to bring this miracle into your life. Come un
 I testify of the reality of Jesus Christ and that He lives and loves each one of us. I know that His gospel can bring us hope, peace, and joy, not only now, but it will also bless countless others in future generations. That is the reason for the beautiful and warm smiles of the Filipino Saints. It is the miracle of the gospel and the doctrine of Christ. I testify of this in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Conversion #Covenants #Faith #Jesus_Christ #Miracles #Repentance

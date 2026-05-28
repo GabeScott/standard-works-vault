@@ -115,4 +115,6 @@ Why has this Church grown so dramatically over these 150 years? Why does it cont
 I pray that we may so live as to enjoy the companionship of the Holy Ghost, for the Holy Ghost, under the direction of Almighty God, has led this people and its leaders for 150 years since its restoration from its humble beginnings to the great spiritual force it is today. This is my prayer and testimony which I leave in the sacred and holy name of the Lord Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Prophets #Spirituality

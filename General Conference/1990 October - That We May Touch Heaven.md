@@ -161,4 +161,6 @@ Clean hands, a pure heart, and a willing mind had touched heaven. A blessing, he
 Brethren, it is my prayer that we may so live that we, too, may touch heaven and be similarly blessed. In the name of Jesus Christ, amen.
 
 
+
+
 #Morality #Repentance #Sabbath #Temptation #Word_Of_Wisdom #Youth

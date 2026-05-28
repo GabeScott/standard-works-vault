@@ -63,4 +63,6 @@ But with the passage of time, we encounter four of the most beautiful words in h
 When heaven’s promises sometimes seem afar off, I pray that each of us will embrace these exceeding great and precious promises and never let go. And just as God remembered Rachel, God will remember you. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Faith #Obedience

@@ -47,4 +47,6 @@ Let us search our hearts as we ask the question “What shall we do?” and foll
 In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Commandments #Faith #God_The_Father #Honesty #Idol_Worship #Joy #Plan_Of_Salvation #Prophets #Service #Temptation

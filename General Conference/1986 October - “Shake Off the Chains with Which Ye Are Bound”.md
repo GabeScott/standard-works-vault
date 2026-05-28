@@ -77,4 +77,6 @@ Those who are committed to improvement break chains by having the courage to try
 God help us to shake off and break the chains with which we are bound. With God’s help they can be shaken off by faith, works, prayer, constant commitment, and self-discipline. May we have the will and strength to shake off the chains that would control and destroy our progress, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Repentance #Word_Of_Wisdom

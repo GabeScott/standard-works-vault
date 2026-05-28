@@ -96,4 +96,6 @@ Our Heavenly Father and our Savior, Jesus Christ, love us and have graciously of
 [^24]: See [[Moses 1.39|Moses 1:39]].
 
 
+
+
 #Atonement #Faith #Grace #Healing #Jesus_Christ

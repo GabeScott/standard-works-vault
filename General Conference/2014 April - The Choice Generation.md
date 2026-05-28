@@ -61,4 +61,6 @@ The divine purpose of technology is to hasten the work of salvation. As members 
 I testify that this is the Lord’s Church. You were chosen to participate in His work at this time because He trusts you to make the right choices. You are the choice generation. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Prayer #Scriptures #Technology

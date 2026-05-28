@@ -78,4 +78,6 @@ The good news is that regardless of the trust we may or may not have chosen to p
 [^14]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
 
+
+
 #Adversity #Agency #God_The_Father #Trust

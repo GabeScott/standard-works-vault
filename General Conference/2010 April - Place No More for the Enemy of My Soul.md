@@ -70,4 +70,6 @@ When we face such temptations in our time, we must declare, as young Nephi did i
 [^12]: [[2 Nephi 4.28|2 Nephi 4:28]].
 
 
+
+
 #Loyalty #Morality #Pornography

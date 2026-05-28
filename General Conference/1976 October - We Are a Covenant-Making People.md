@@ -111,4 +111,6 @@ The Prophet Joseph Smith, the first prophet of this dispensation, said, “Happi
 God lives, Jesus is the Christ, Spencer W. Kimball is His living prophet. The everlasting gospel of our Lord and Master, which is the new and everlasting covenant, has been restored to earth. It is the plan of life and salvation. To these things I testify in the name of Jesus Christ. Amen.
 
 
+
+
 #Covenants #Priesthood

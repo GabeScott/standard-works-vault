@@ -123,4 +123,6 @@ When in prayer we say, “Thy will be done,” we are really expressing faith an
 That we may feel true gratitude for the goodness of God for all the blessings that have been given to us and express those feelings of thankfulness in prayer to our Heavenly Father, is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Gratitude #Jesus_Christ #Prayer #Repentance

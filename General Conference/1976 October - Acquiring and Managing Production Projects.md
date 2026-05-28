@@ -102,4 +102,6 @@ Let us go forth now with power to meet the challenge. Brethren, see that all war
 May the Lord bless us to do this. In the name of Jesus Christ. Amen.
 
 
+
+
 #Welfare

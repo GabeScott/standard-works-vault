@@ -70,4 +70,6 @@ I bear my witness to you of the Balm of Gilead, the Savior Jesus Christ, our Red
 [^10]: [[Malachi 4.2|Malachi 4:2]].
 
 
+
+
 #Adversity #Atonement #Faith #Healing #Jesus_Christ

@@ -65,4 +65,6 @@ Hear the words of President Ardeth G. Kapp.
 We honor you, we pray for you, we love you. May God bless you. I say this in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Obedience #Self-Esteem #Testimony

@@ -45,4 +45,6 @@ The doctors and nurses had tried every medical and scientific device available t
 Young women, your life is the banner that can help to protect your families from wicked intruders. We call upon you to take a stand for kindness and goodness and service to those you love most—your families. I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Love #Service #Young_Women

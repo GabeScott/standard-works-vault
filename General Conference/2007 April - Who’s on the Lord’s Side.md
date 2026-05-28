@@ -56,4 +56,6 @@ The Mutual theme for 2007 provides a promise for those who heed this wise counse
 I testify to you that God lives. I know that we are His children, that He knows us by name, and that we are not alone as we make these important decisions. Each day of your life you will make choices, the result of which will land you either on one side of that line or on the other. And so I issue the challenge to all youth within the sound of my voice, to the youth of the noble birthright throughout the world: live your life in such a way that when you are faced with a choice between good and evil and when deep inside you can hear the question “Who’s on the Lord’s side?”—you will be prepared to answer with all your strength, *“I am!”* In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Agency #Divine_Nature #Music #Obedience #Parenthood #Prayer #Sacrifice

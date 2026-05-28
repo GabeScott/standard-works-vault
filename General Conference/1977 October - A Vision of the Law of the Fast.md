@@ -87,4 +87,6 @@ I believe all of the evidence we have would tell us that more of our people are 
 May we, the Priesthood and Relief Society officers of the Church throughout the world, show our people the way, that all may be prepared to live the higher law when the Lord so indicates, I pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Fasting

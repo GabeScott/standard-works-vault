@@ -114,4 +114,6 @@ For this I humbly pray, as I both look back to the past and forward to the futur
 [^7]: [[1 Peter 2.9|1 Pet. 2:9]].
 
 
+
+
 #Brigham_Young #Church_Growth #Gratitude #Jesus_Christ #Joseph_Smith #Missionary_Work #Pioneers #Temples

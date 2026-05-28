@@ -159,4 +159,6 @@ We now move into an uncertain future. But we are not uncertain. Children, bear t
 I know that God lives, that Jesus is the Christ, and that in the gospel is true success, in the name of Jesus Christ, amen.
 
 
+
+
 #Joy #Success

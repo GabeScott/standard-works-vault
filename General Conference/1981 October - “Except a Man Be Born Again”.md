@@ -73,4 +73,6 @@ You who have been baptized have the right to it. Desire it. Pray for it. Work fo
 That you may each receive that knowledge of God the Eternal Father and Jesus Christ whom he has sent, to know which is eternal life, I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Spirituality #Testimony

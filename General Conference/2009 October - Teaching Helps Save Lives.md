@@ -71,4 +71,6 @@ Learning and teaching are not optional activities in the kingdom of God. They ar
 I know that God lives. I testify that Jesus is the Christ. I bear witness that the Prophet Joseph opened this dispensation by learning truth and then teaching it. Joseph asked one question after another, received divine answers, and then taught what he had learned to God’s children. I know that President Monson is the Lord’s mouthpiece on the earth today and that he continues to learn and to teach us as Joseph did because teaching helps save lives. In the name of Jesus Christ, amen.
 
 
+
+
 #Education #Spirituality #Teaching

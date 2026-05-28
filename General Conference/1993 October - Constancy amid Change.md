@@ -230,4 +230,6 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 [^47]: See also [[D&C 126.3|D&C 126:3]].
 
 
+
+
 #Atonement #Plan_Of_Salvation #Priesthood

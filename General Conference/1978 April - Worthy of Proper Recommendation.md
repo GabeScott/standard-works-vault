@@ -95,4 +95,6 @@ As holders of the priesthood we should know that God is our Father; that his Son
 May we strive every day to live worthy in every way of this great privilege and blessing, I humbly pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Character #Worthiness #Youth

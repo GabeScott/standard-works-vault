@@ -59,4 +59,6 @@ Knowing them as we do, we are not surprised that they would be such an important
 I testify that our Heavenly Father loves all of His children, that Jesus is the Christ, and that the gospel is available to all, both the living and the dead. In the sacred name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Missionary_Work

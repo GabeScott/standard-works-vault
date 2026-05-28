@@ -85,4 +85,6 @@ The Lord holds forth a glorious promise to those who love him and demonstrate th
 May the Lord bless us, each one, to hold fast to the iron rod, I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Family_History #Sabbath #Self-Reliance #Spirituality

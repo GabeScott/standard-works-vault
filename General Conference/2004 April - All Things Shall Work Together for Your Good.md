@@ -67,4 +67,6 @@ In every ward or branch, in every home or family, there is an Alexis with a spec
 I testify that Heavenly Father is a tender, loving parent who desires to bless us with all that He has. As we search, pray, and believe, we will recognize miracles in our lives and become miracle workers in the lives of others. We will be persuaded of His promise that all things shall work together for our good. In the name of Jesus Christ, amen.
 
 
+
+
 #Courage #Endurance #Faith #Love #Service #Trust

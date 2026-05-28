@@ -145,4 +145,6 @@ I extend my blessings to you wonderful Saints. Go back to your homes now. Take t
 Peace be with you, not the peace that comes from the legislation in the halls of congress, but the peace that comes in the way that the Master said, by overcoming all the things of the world. That God may help us so to understand and may you know that I know with a certainty that defies all doubt that this is his work, that he is guiding us and directing us today, as he has done in every dispensation of the gospel, and I say that with all the humility of my soul, in the name of the Lord, Jesus Christ. Amen.
 
 
+
+
 #Commandments #Obedience #Prophecy #Prophets #Repentance

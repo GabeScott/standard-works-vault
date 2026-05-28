@@ -41,4 +41,6 @@ We all have some glimpse of what it is like to “come home” and of the joy an
 My prayer is that each one of us can have and extend faith, hope, and charity by bearing one another’s burdens and sharing one another’s joys that we may arrive home with Jesus Christ. In his name, amen.
 
 
+
+
 #Relief_Society #Single_Members

@@ -61,4 +61,6 @@ As we begin this conference this morning, I bring you love and greetings from th
 I know that God lives and that His Son, Jesus Christ, lives. He is our Savior and our Redeemer and our Mediator with the Father. May He bless us all during this great conference, I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth

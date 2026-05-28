@@ -142,4 +142,6 @@ I bear certain witness of the scriptures as a key to our spiritual protection. I
 [^12]: [[D&C 76.42|Doctrine and Covenants 76:42]].
 
 
+
+
 #Last_Days #Peace #Repentance #Scripture_Study

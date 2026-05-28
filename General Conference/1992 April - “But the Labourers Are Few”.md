@@ -85,4 +85,6 @@ To you who will accept the call to go forth and serve, I can promise you that yo
 That this is His work in which we are engaged is my solemn witness to you in the name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Service

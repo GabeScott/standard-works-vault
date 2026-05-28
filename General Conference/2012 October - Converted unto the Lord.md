@@ -113,4 +113,6 @@ As the wise virgins emphasized properly, each of us must â€œbuy for ourselves.â€
 I promise that as we come to a knowledge of the truth and are converted unto the Lord, we will remain firm and steadfast and never fall away. Eagerly we will set aside our weapons of rebellion. We will be blessed with bright light from our lamps of testimony and an ample supply of the oil of conversion. And as each of us becomes more fully converted, we will strengthen our families, our friends, and our associates. Of these truths I testify in the sacred name of the Lord Jesus Christ, amen.
 
 
+
+
 #Conversion #Testimony

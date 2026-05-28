@@ -105,4 +105,6 @@ He instituted the sacrament among them, administering it to his disciples, and h
 All these teachings did Christ give to those Nephite people as he came to them as a resurrected Being. We have these same teachings in his church today, and it is my prayer that we will accept and live them; that we will accept God as our Father and his Son Jesus Christ as the Savior of the world; that we will accept and follow President Spencer W. Kimball as a prophet of God; and that we might enjoy the promised blessings for so doing. In the name of Jesus Christ. Amen.
 
 
+
+
 #Book_Of_Mormon #Jesus_Christ #Repentance

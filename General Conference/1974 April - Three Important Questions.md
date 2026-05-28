@@ -57,4 +57,6 @@ I urge you to carefully consider these things as you make preparations for the f
 You who stand on the threshold of marriage, you who have been taught the eternity of life should strive with all your might to be worthy of entering a temple of the Lord there to be sealed to your companion for endless time in the right way, in the right place, by the right authority. I testify to the truths and the reality that these powers to seal on earth and to have them binding in heaven are with us. They have been restored by heavenly messengers and we have the power amongst us. Let us not pass it by. I testify to my knowledge that God lives, that he is our Father, that Jesus is the Savior of the world, and that the gospel has been restored in the fulfillment of prophecy, both of the Old and the New Testament prophets. And I do it in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Marriage

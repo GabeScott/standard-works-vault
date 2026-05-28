@@ -67,4 +67,6 @@ I bear witness that this missionary guide is inspired of God. We must study it m
 As members of His Church, we are expected to be a part of this glorious gathering process. Of this truth I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Missionary_Work

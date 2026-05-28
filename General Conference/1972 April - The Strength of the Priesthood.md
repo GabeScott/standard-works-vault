@@ -57,4 +57,6 @@ So I bear you my witness that I know with all my soul, as I knew on that occasio
 I have lived long enough now in these thirty-one years as a member of the General Authorities to know that is true; and I bear witness that the Lord is guiding this church, and we see daily and constantly in the councils of this church that there is divine guidance. I bear that humble witness in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Agency #Family #Fatherhood #Morality #Priesthood #Testimony

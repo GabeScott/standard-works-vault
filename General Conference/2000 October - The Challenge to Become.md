@@ -81,4 +81,6 @@ The Apostle Paul said that persons who have received the Spirit of God “have t
 I testify of Jesus Christ, our Savior and our Redeemer, whose Church this is. I testify with gratitude of the plan of the Father, under which, through the Resurrection and Atonement of our Savior, we have the assurance of immortality and the opportunity to become what is necessary for eternal life. In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Charity #Conversion #Family #Goals #Holy_Ghost #Ordinances #Spirituality

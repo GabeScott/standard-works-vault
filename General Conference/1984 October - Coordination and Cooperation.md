@@ -35,4 +35,6 @@ The sound of breaking attracted the attention of everyone in the shop. Instincti
 I can think of no better illustration to reflect the marvelous qualities that you as sisters, as daughters of God, bring to bear, not only in making our own lives better, but in contributing, in a most essential way, to the successful operation of the plan of life and salvation that God has provided for all of his children. I honor you and express my deep love and appreciation to all of you for these wonderful gifts you have. May you be blessed to enlarge them, to expand them, and to use them, striving together in effective ways to bless all of God’s children and to assist in the great onward movement of his work in this vital time in which we all live, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Organization #Unity

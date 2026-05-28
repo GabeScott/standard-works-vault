@@ -117,4 +117,6 @@ And in the end, what is given comes because the Lord has spoken it, “whether b
 Revelation continues with us today. The promptings of the Spirit, the dreams, and the visions and the visitations, and the ministering of angels all are with us now. And the still, small voice of the Holy Ghost “is a lamp unto \[our\] feet, and a light unto \[our\] path.” ([[Psalms 119.105|Ps. 119:105]].) Of that I bear witness, in the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Leadership #Spirituality #Word_Of_Wisdom

@@ -41,4 +41,6 @@ Before 1830, April 6 was also just an ordinary day. Since the coming of the Book
 My beloved brothers and sisters, I testify that the Book of Mormon is true, that Jesus is the Christ and that Spencer W. Kimball is a prophet of God, and I invite you to follow them and enjoy the Spirit of the Lord, in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

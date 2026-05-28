@@ -69,4 +69,6 @@ I leave you my witness that I know that God lives. I know that his Son is direct
 “Consider your ways.” If that witness has not been given to you, isn’t now the time to seek it? Come and join with us, and let us continue to build the kingdom of God here and now, I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Family #Holy_Ghost #Home #Repentance

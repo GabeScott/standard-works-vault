@@ -117,4 +117,6 @@ Our beloved, precious youth, stay in the Lord’s way. If you stumble, rise up; 
 God be praised for the cleansing, purifying, forgiving power of the Atonement brought by the Lord Jesus Christ, of whom I bear witness. In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Disabilities #Forgiveness #Freedom #Homosexuality #Marriage #Media #Morality #Parenthood #Temples #Temptation #Testimony #Word_Of_Wisdom #Worldliness #Youth

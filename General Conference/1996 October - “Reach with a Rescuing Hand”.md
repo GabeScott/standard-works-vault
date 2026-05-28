@@ -61,4 +61,6 @@ My brethren and sisters, I would hope, I would pray, that each of us, having par
 I leave with you my beloved friends, my coworkers in this wonderful cause, my testimony of the truth of this work, the work of the Almighty, the work of the Redeemer of mankind. I leave with you my love and my blessing, in the name of Jesus Christ, amen.
 
 
+
+
 #Activation #General_Conference #Pioneers #Youth

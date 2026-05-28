@@ -122,4 +122,6 @@ Life comes from life. It is a gift from our Heavenly Father. It is eternal, as h
 [^13]: *General Handbook of Instructions, 1983,* p. 78.
 
 
+
+
 #Abortion

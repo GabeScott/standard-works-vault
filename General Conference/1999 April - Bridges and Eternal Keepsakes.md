@@ -54,4 +54,6 @@ Brethren and sisters, family history and temple work are the eternal family keep
 [^7]: Quoted in *Church News,* 20 June 1998, 2.
 
 
+
+
 #Conversion #Family_History #Temple_Work

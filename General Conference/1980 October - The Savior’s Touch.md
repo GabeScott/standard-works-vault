@@ -65,4 +65,6 @@ I realize that many of you are very conscious of the needs of others. I also kno
 I bear testimony that Jesus is the Christ, the Son of the living God, that he touched the life of the Prophet Joseph Smith, and that through him the fulness of the gospel has been restored to the earth to bless and guide all mankind. This witness and testimony I bear in the sacred and beloved name of Jesus Christ, amen.
 
 
+
+
 #Healing #Jesus_Christ #Service

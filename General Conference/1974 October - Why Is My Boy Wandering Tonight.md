@@ -136,4 +136,6 @@ To all wanderers who are seeking to find their way out of the trackless wilderne
 I also bear my solemn witness that Jesus Christ has reestablished his church with the gospel in its fullness here upon the earth today with a prophet of God as its president. It offers us a sure way out of the wilderness and into the light. We invite all men everywhere to investigate and join with others in his church, which offers eternal life. I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Sin #Temptation

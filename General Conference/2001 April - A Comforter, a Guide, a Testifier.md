@@ -55,4 +55,6 @@ Think of how many lives would be blessed, how many young women could be comforte
 I began with a song reminding us of the days when the Savior lived on earth among men. I now conclude with the words of a hymn reminding us that though He has gone from our view, our Redeemer, the Lord Jesus Christ, still lives to bless us with His love: “He lives to silence all my fears. He lives to wipe away my tears. He lives to calm my troubled heart. He lives all blessings to impart” (“I Know That My Redeemer Lives,” *Hymns,* no. 136). I testify that He does so through the gift and power of the Holy Ghost. I pray that we will receive and use this sacred gift from God, in the holy name of our beloved Savior, Jesus Christ, amen.
 
 
+
+
 #Activation #Atonement #Holy_Ghost #Humility #Jesus_Christ #Peace #Prayer #Spirituality #Testimony #Young_Women

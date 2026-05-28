@@ -202,4 +202,6 @@ May we each try a little harder in our efforts to overcome the world, not excusi
 [^30]: Bruce D. Porter, *The King of Kings,* 18.
 
 
+
+
 #Covenants #Discipleship #Jesus_Christ #Sabbath #Worldliness

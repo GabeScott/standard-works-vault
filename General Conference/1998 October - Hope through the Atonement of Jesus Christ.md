@@ -95,4 +95,6 @@ As in Charles Wesley’s words in the hymn “Come, Let Us Anew,” our lives an
 May this glorious moment one day be ours to claim, through the gospel of hope—in the name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Agency #Atonement #Charity #Faith #Holy_Ghost #Hope #Jesus_Christ #Love #Resurrection #Sin #Spirituality

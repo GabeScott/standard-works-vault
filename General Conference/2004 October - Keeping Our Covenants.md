@@ -89,4 +89,6 @@ All members of The Church of Jesus Christ of Latter-day Saints have made promise
 It is my prayer today that we might all recommit ourselves to do everything in our power to earn the trust of the Lord by doing His will, by living His gospel, and by keeping our covenants, in the name of Jesus Christ, amen.
 
 
+
+
 #Commandments #Covenants #Obedience #Reverence

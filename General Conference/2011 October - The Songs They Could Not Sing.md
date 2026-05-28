@@ -144,4 +144,6 @@ The Savior said: “Therefore, let your hearts be comforted. … Be still and kn
 [^33]: [[D&C 101.18|Doctrine and Covenants 101:18]]; see also [[D&C 45.71|Doctrine and Covenants 45:71]].
 
 
+
+
 #Adversity #Faith #Plan_Of_Salvation

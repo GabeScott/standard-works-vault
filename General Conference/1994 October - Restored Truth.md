@@ -103,4 +103,6 @@ Brothers and sisters, we know the truth. Because we do, we are expected to share
 If you will do so, I believe you will come to know as I know that The Church of Jesus Christ of Latter-day Saints is God’s true church upon the earth. May God bless you, my dear friends, with the peace and joy the gospel gives, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Apostasy #Book_Of_Mormon #Joseph_Smith #Restoration #Truth

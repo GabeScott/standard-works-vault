@@ -147,4 +147,6 @@ The Lord said:
 God grant that as a church and as families and as individuals we can bring up our children, our youth, in light and truth and that they may receive the testimony of Him of whom we bear witness—our Redeemer, our Savior, even Jesus Christ—for which I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Education #Institute #Seminary

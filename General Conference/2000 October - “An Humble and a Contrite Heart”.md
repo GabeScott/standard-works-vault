@@ -47,4 +47,6 @@ The great “Hosanna” salutation in which we participated this morning should 
 I bear witness of the truth of this work and of the living reality of God our Eternal Father and of His Only Begotten Son, whose Church this is. I extend my love to every one of you. God be with you, my dear, dear friends. I invoke the blessings of heaven upon you as we bid you good-bye for a season, in the name of Him who is our Master, our Redeemer, and our King, even the Lord Jesus Christ, amen.
 
 
+
+
 #Family_Home_Evening #General_Conference #Home #Love #Prayer #Spirituality

@@ -57,4 +57,6 @@ I don’t think any of us will ever forget the sight of hundreds of young athlet
 It is my firm prayer that each of you bishops and quorum advisers of these young men will aid in their understanding what it means to hold the holy priesthood and to put on the whole armor of God, in the name of Jesus Christ, amen.
 
 
+
+
 #Priesthood #Service

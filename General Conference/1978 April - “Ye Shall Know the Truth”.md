@@ -141,4 +141,6 @@ May we all yearn for wisdom and for truth that we may inherit the kingdom of God
 May we all accept God as our Father, and his Son Jesus Christ as our Savior, and keep his commandments and continue in our quest for truth, which will make us free and lead us to eternal life, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Freedom #Jesus_Christ #Obedience #Truth

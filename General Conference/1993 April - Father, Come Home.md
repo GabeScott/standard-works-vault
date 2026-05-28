@@ -53,4 +53,6 @@ Perhaps we regard the power bestowed by Elijah as something associated only with
 I so testify that the blessings of the priesthood, honored by fathers and husbands and revered by wives and children, can indeed cure the cancer that plagues our society. I plead with you, Fathers, come home. Magnify your priesthood calling; bless your families through this sacred influence, and experience the rewards promised by our Father and God. I say this in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Fatherhood #Priesthood

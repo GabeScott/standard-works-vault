@@ -76,4 +76,6 @@ I know the gospel truths will save and exalt mankind if men will accept the trut
 I know this is true, and I bear this testimony to you, my beloved brothers and sisters and friends in all the world, and I urge all men to seriously accept and conform their lives totally to the gospel. I bear this witness in the name of Jesus Christ. Amen.
 
 
+
+
 #Faith #Obedience

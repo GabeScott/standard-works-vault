@@ -110,4 +110,6 @@ I testify that “the trek continues,” and I invite you to stay on the gospel 
 [^12]: *Handbook 2,* 21.3.6.
 
 
+
+
 #Dedication #Faith #Pioneers #Wisdom

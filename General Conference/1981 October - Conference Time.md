@@ -59,4 +59,6 @@ It is an honor to be in the service of the Lord, to be commissioned by him to de
 Of these things I testify, in the name of Jesus Christ, amen.
 
 
+
+
 #Spirituality #Testimony

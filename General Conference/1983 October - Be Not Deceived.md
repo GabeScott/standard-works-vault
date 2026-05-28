@@ -89,4 +89,6 @@ Brethren, the Church is true. Those who lead it have only one desire, and that i
 Brethren, if we live worthy of his inspiration, there will never be doubt in our minds concerning the truth of this work and the great mission of this kingdom. God bless you as men and boys holding the priesthood. May your example evoke the respect and the admiration of all with whom you associate, I humbly pray as I leave you my witness and testimony of the divinity of this work, in the name of Jesus Christ, amen.
 
 
+
+
 #Media

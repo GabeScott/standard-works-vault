@@ -75,4 +75,6 @@ I see it is time for me to close!
 God bless you all. I thank him with all my heart and soul for the restoration of the gospel, for the restoration of the holy priesthood, for all the gifts and blessings that we enjoy by virtue thereof, including the gift of the Holy Ghost. When I was appointed a member of the Twelve, I said from this pulpit that I would rather have my children enjoy the companionship of the Holy Ghost than any other person or individual in this world; and I feel the same today, for them and for me, and for all of you, and I leave you my love and blessing in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Missionary_Work

@@ -53,4 +53,6 @@ In our day the Lord has warned us sternly, “And again, I command thee that tho
 My brethren, we have been too casual about these matters in the past. There is work to do. We need your help to do it. The word is *urgency* and the time is *now.* Many of you have the power to open doors of opportunity for the service of others. May you see this opportunity as a means to wisely use the property with which the Lord has blessed you to help His work and to save your souls. I know many of you already contribute. I know He will keep His promises to you if you will keep your promises to serve. I testify that God lives. Jesus is the Christ. This is His church. This is His earth—and all things in it. We are but stewards over His goods. May we delight to share them, and may we realize the promise that “he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.” ([[D&C 59.23|D&C 59:23]].) In the name of Jesus Christ. Amen.
 
 
+
+
 #Missionary_Work

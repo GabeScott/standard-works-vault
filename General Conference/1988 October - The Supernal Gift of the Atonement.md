@@ -65,4 +65,6 @@ In conclusion, I wish to make a humble declaration and affirmation that Jesus is
 I pray that our Savior will heal our souls, dry our tears, and create in each of us a pure heart. I also pray that we may find shelter in the shadows of His outstretched arms and that He will be merciful and forgiving concerning our weaknesses. That He will be a father to the fatherless, and deliver to the needy according to their needs, and incline His ear to our cries, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Jesus_Christ #Plan_Of_Salvation

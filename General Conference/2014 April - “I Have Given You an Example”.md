@@ -70,4 +70,6 @@ I know that His gospel is the path to peace and happiness in this life. May we r
 [^5]: See [[Matthew 22.35|Matthew 22:35–40]][[Matthew 22.36|]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; [[Mosiah 2.17|Mosiah 2:17]].
 
 
+
+
 #Example #Jesus_Christ #Love #Missionary_Work #Service

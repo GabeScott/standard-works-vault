@@ -134,4 +134,6 @@ I pray that we can come to the Savior, like the woman at the well, and drink of 
 [^19]: [[John 4.42|John 4:42]].
 
 
+
+
 #Adversity #Divine_Nature #Jesus_Christ #Power

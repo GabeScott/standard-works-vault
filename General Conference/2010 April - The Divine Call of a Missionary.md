@@ -88,4 +88,6 @@ At this time in your life, a mission call from the Lord, my young friends, is th
 [^7]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
 
+
+
 #Missionary_Work #Preparation #Priesthood #Spirituality

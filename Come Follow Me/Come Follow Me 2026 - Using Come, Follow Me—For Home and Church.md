@@ -22,7 +22,7 @@ Keep in mind that learning the gospel, at its best, is home centered and Church 
 
 One main reason we gather in Sunday School classes is to support and encourage one another as we strive to follow Jesus Christ. A simple way to do this is to ask a question like “What has the Holy Ghost taught you this week as you studied the scriptures?” Answers to this question could lead to meaningful discussions that build faith in Jesus Christ and His gospel.
 
-Then you could invite discussion based on the study suggestions in *Come, Follow Me*. For instance, a study idea might suggest searching [[Isaiah 53.1|Isaiah 53]], looking for words that describe the Savior’s mission. You might ask class members to share any thoughts or feelings that these words inspired for them. Or you could spend some time looking for these words as a class.
+Then you could invite discussion based on the study suggestions in *Come, Follow Me*. For instance, a study idea might suggest searching [[Isaiah 53.1|Isaiah 53]][[Isaiah 53.2|]][[Isaiah 53.3|]][[Isaiah 53.4|]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]][[Isaiah 53.10|]][[Isaiah 53.11|]][[Isaiah 53.12|]], looking for words that describe the Savior’s mission. You might ask class members to share any thoughts or feelings that these words inspired for them. Or you could spend some time looking for these words as a class.
 
 ## Aaronic Priesthood Quorums and Young Women Classes
 

@@ -145,4 +145,6 @@ Eliza R. Snow, who loved this work—as do I—wrote these precious lines:
 The prophet Alma taught that the plan of mercy required an atonement to be made by God himself “to appease the demands of justice,” that God might be a perfect, just, and merciful God ([[Alma 42.15|Alma 42:15]]). I bear witness that He lives, that He is our Savior. His is the pathway to true happiness, I declare in His holy name, Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Love #Resurrection #Sacrament

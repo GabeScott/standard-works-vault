@@ -45,4 +45,6 @@ Every position I have held has brought invaluable experiences and growth to my l
 Now brethren, in my career I have had many wonderful things happen to me, many more than I ever dreamed would ever happen. But I would like for you young brethren especially to know that all that has happened to me in my chosen profession is a mere drop in the bucket compared to the truly important things in my life. The testimony of the gospel of Jesus Christ that I have, along with my wife and my family, are my most important possessions. And this testimony I bear to you in Jesus’ name, amen.
 
 
+
+
 #Adversity #Leadership #Missionary_Work #Success

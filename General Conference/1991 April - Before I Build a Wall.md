@@ -67,4 +67,6 @@ Was it not the Savior, speaking of the first and great commandment, who said tha
 May the Lord bless us that we may look upon one another in that spirit. In the name of Jesus Christ, amen.
 
 
+
+
 #Forgiveness #Love #Tolerance

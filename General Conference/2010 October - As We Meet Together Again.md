@@ -37,4 +37,6 @@ To those of you who are not yet to the season of life when you might serve a cou
 Now, my brothers and sisters, may you be attuned to the Spirit of the Lord as we hear from His servants during the next two days. That this may be the blessing of each, I pray humbly in the name of Jesus Christ, amen.
 
 
+
+
 #General_Conference #Missionary_Work #Temples

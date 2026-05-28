@@ -131,4 +131,6 @@ Yes, “the Spirit enlighteneth every man that hearkeneth to the voice of the Sp
 I bear testimony that by the witness of the Spirit one can come to know of the divinity of this great work, that God lives, that Jesus is the Christ, that Joseph Smith was divinely called, that President Joseph Fielding Smith is a prophet of God, and that this gospel is the great plan of life and salvation as instituted of the Lord. This is my personal testimony to you, my brethren and sisters, and I leave it in the name of Jesus Christ. Amen.
 
 
+
+
 #Holy_Ghost #Testimony

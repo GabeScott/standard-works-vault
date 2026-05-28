@@ -144,4 +144,6 @@ My grandfather’s watch reminds me that our grandparents watch—and wait—for
 [^31]: Including smaller temples more readily available to many members.
 
 
+
+
 #Family #Family_History #Priesthood #Temple_Work

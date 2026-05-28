@@ -59,4 +59,6 @@ The sacred cannot be selectively surrendered. Those who choose to abandon even o
 May the Lord bless us to ever and always recognize, remember, and hold sacred that which we have received from above. I testify that as we do, we will have power to endure the trials and overcome the challenges of our day. In the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Sacredness #Worldliness

@@ -53,4 +53,6 @@ The whole message of the gospel is found in one short scripture which speaks to 
 I bear witness that He lives, that He loves each one of His children—and that means every human being—every man, every woman, every girl, every boy, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Service #Youth

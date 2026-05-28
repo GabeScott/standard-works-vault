@@ -87,4 +87,6 @@ May God bless you, brothers and sisters, to find inspired consensus and unity as
 I know God lives and Jesus is the Christ. I know we can accomplish their work better through unity and love as we sit in council one with another. May we be blessed to so do is my humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Councils #Leadership #Priesthood

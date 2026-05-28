@@ -79,4 +79,6 @@ Listening to and hearkening to living prophets will have profound, even life-cha
 I love and sustain President Russell M. Nelson and the others who have been called as prophets, seers, and revelators. I testify that he has the gifts the Lord has bestowed upon his head, and I witness that as we solidify in our lives the practice of listening to and heeding the voice of the living prophets, our lives will be built according to the Lord’s divine pattern for us, and we will reap eternal blessings. The invitation is extended to all. Come, listen to a prophet’s voice; yea, come unto Christ and live. In the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Prophets #Revelation #Testimony

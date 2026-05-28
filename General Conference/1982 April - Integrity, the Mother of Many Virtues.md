@@ -123,4 +123,6 @@ God help us to be honest and true. May we always be thoroughly dependable, stand
 I leave my testimony that dealing justly with oneself and others, and observing the law of the harvest, is a part of the inner peace of the sweet gospel of the Lord Jesus, of whose divinity as the risen Christ I testify in his holy name, amen.
 
 
+
+
 #Honesty

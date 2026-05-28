@@ -69,4 +69,6 @@ I know that we can. I know we can do it. We have brought warmth to tens of thous
 When you return home this night, will you take a moment to write down impressions that come to your heart this evening? Will you think of specific ways you can be an instrument in the hands of God? Will you contemplate the blessings that await your obedience in this life and throughout eternity? And will you insert your name in the verse of this scripture and know with all of your soul that God loves you? “Continue in preaching for Zion, in the spirit of meekness, confessing me before the world; and I will bear \[you\] up as on eagles’ wings; and \[you\] shall beget glory and honor to \[yourself\] and unto my name” ([[D&C 124.18|D&C 124:18]]). I know that the gospel is true. I know that this work is of the Lord. I know that Jesus is the Christ and we have a true prophet on the earth today. Sweet is the work. Of this I humbly bear witness, in the name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Education #Family_Home_Evening #Love #Obedience #Prayer #Relief_Society #Reverence #Scripture_Study #Service #Testimony #Truth #Women #Work

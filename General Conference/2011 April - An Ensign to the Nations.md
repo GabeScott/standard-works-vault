@@ -86,4 +86,6 @@ President, for this entire congregation, seen and unseen, I say we love and hono
 [^16]: [[D&C 88.89|Doctrine and Covenants 88:89–90, 92]][[D&C 88.90|]][[D&C 88.92|]].
 
 
+
+
 #General_Conference #Holy_Ghost #Prophets #Quorum_Of_The_Twelve_Apostles #Revelation

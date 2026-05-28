@@ -33,4 +33,6 @@ We are rightly known as a chapel-building people. I hope we will become even bet
 I love you, my brethren, my beloved brethren, and I am grateful for your faith, your devotion, and your love for the cause of truth, the cause of the Master. Brethren, I express my affection for you and all your people in the scattered portions of the world. May the Lord bless you, brethren, and know that you are much loved here at Church headquarters. God bless you; peace be with you, in the name of Jesus Christ, amen.
 
 
+
+
 #Leadership

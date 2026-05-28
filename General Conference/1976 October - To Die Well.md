@@ -61,4 +61,6 @@ And I would like to repeat the prayer of a very thoughtful man who said,
 And may God bless us, everyone, that we may magnify our callings and our opportunities. For this I sincerely pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Death #Plan_Of_Salvation

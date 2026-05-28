@@ -135,4 +135,6 @@ The Mormon Tabernacle Choir’s songs helped to convey their uncommon spirit of 
 Such are lessons taught by those who “serve unto the example and shadow of heavenly things” ([[Hebrews 8.5|Heb. 8:5]]). Unitedly members of the Mormon Tabernacle Choir testify of the living Lord and of His Church restored in these latter days, as do I. May God bless us to lift our lives by their example I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Dedication #Education #Example #Faith #Humility #Kindness #Love #Obedience #Patience #Preparation #Spirituality #Tabernacle_Choir #Word_Of_Wisdom

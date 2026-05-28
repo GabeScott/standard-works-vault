@@ -49,4 +49,6 @@ I am grateful to be a mother. I bear testimony that mothering is, in the words o
 I bear testimony of his love and interest in helping us, of the accessibility of his guidance through prophets and prayer, and of his kindness and forgiveness for the errors we may make. As mothers in Zion and as sisters in the gospel of Jesus Christ, we are on the Lord’s errand. We may “be of good cheer,” for he will be with us and stand by us. In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Motherhood #Prayer

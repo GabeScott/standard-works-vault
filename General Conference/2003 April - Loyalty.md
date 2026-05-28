@@ -100,4 +100,6 @@ Pray to your Heavenly Father in the name of the Lord Jesus Christ, and always, u
 May the blessings of heaven rest upon you and your families, my dear brethren. May each of us always be found to be true and faithful, men and boys of integrity and absolute loyalty, I pray in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Loyalty #Marriage #Media #Morality #Priesthood

@@ -76,4 +76,6 @@ I too have read every page of the Book of Mormon, again and again, and I bear my
 [^2]: C. S. Lewis, *Mere Christianity* (1952), 40–41.
 
 
+
+
 #Bible #Book_Of_Mormon #Testimony

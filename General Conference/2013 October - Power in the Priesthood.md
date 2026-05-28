@@ -168,4 +168,6 @@ As men and women, sisters and brothers, sons and daughters of God, we move forwa
 [^25]: M. Russell Ballard, “Strength in Counsel,” *Ensign,* Nov. 1993, 76.
 
 
+
+
 #Priesthood

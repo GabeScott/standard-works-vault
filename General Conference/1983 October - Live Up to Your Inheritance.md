@@ -91,4 +91,6 @@ Put on thy beautiful garments, O daughters of Zion. Live up to the great and mag
 God be thanked for the wonderful women of this Church. May he plant in your hearts a sense of pride in your capacities and a conviction of truth which shall be as a rudder to keep you safe through every storm, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Marriage #Women

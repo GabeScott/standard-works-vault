@@ -21,4 +21,6 @@ The gospel of Jesus Christ is true. It is the greatest joy, the only pure joy, w
 I conclude with a testimony I heard this past week from three recent converts who bore their testimonies with tears in their eyes for the knowledge they have gained in just a few short months. They testified that Heavenly Father does live, that he cares, that Jesus is the Christ and that, yes, they have a road map and a pattern to follow, and it is contained in the Book of Mormon—that blueprint given to bring them safely home. They testified that Joseph Smith is the Prophet of this dispensation and that today, standing as the mouthpiece of the Lord, is President Ezra Taft Benson. I join with them in this testimony, for I know it all to be true with all my heart because of the life and the blessings that I have been granted. I bear you this testimony in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #God_The_Father #Love #Prophets #Service

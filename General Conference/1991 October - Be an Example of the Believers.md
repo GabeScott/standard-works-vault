@@ -83,4 +83,6 @@ May God bless you dear sisters that each one of you can be an example, a light t
 I testify to you that Jesus Christ lives and that He presides over this Church. President Benson is the prophet of the Lord. Heavenly Father and His Beloved Son love the precious women of the Church, as do all of your leaders. May God bless you now and always is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Example #Faith #Family #Women

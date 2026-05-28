@@ -109,4 +109,6 @@ Well, brethren, I have tried to help us all to further understand our duty, that
 May we strive with all our hearts, minds, and strength to do what the Lord would have us do in preparation for his second coming. I fully believe that when he comes he will call on the faithful brethren who hold his priesthood in preference to any others to assist him in the consummation of his glorious work. I know he lives, that he will come again; and it is my earnest prayer that we will be worthy to meet him and assist him. In the name of Jesus Christ, amen.
 
 
+
+
 #Brotherhood #Unity

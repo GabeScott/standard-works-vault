@@ -118,4 +118,6 @@ We must live as true followers of the Christ, with charity toward all, returning
 May we live worthy of the glorious endowment of light and understanding and eternal truth which has come to us through all the perils of the past. Somehow, among all who have walked the earth, we have been brought forth in this unique and remarkable season. Be grateful, and above all be faithful. This is my humble prayer, as I bear witness of the truth of this work, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Hope #Kindness #Responsibility #Restoration

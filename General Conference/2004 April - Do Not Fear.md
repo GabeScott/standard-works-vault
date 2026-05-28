@@ -137,4 +137,6 @@ Isaiah promised, “In righteousness shalt thou be established: thou shalt be fa
 The Lord Himself encouraged, “Wherefore, be of good cheer, and do not fear, for I the Lord am with you, and will stand by you; and ye shall bear record of me, even Jesus Christ, that I am the Son of the living God, that I was, that I am, and that I am to come” ([[D&C 68.6|D&C 68:6]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Children #Faith #Family #Holy_Ghost

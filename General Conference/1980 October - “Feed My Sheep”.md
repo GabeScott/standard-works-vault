@@ -101,4 +101,6 @@ I witness to you that Jesus is the Christ, the Son of God, our Savior and Redeem
 I pray God to bless us that we might have the missionary spirit come into our hearts, that we might reach out and give to those who do not have the great blessings that we have. Remember now that Christ has no hands but our hands and no voice but our voice to do his work today. And I witness to you, it pays the greatest dividends, and I say this to you in the name of Jesus Christ, the Lord, amen.
 
 
+
+
 #Missionary_Work

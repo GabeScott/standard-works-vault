@@ -84,4 +84,6 @@ We must fortify ourselves. That sure spiritual fortification is found in two wor
 [^10]: [[D&C 6.34|D&C 6:34, 36]][[D&C 6.36|]].
 
 
+
+
 #Courage #Standards #Temptation

@@ -69,4 +69,6 @@ Brothers and sisters, in conclusion, many years ago humble listeners asked Peter
 I bear humble testimony that this work of the redemption is true. Jesus Christ presides over and directs this work by revealing His will to President Ezra Taft Benson, our living prophet. I pray that we will do this work. In the name of Jesus Christ, amen.
 
 
+
+
 #Family_History #Temple_Work

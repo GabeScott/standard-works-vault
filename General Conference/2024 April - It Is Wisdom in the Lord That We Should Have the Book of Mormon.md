@@ -130,4 +130,6 @@ Heavenly Father lives. Jesus Christ is our Savior and Redeemer. The Book of Morm
 [^19]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]],” *Ensign* or *Liahona*, Nov. 2017, 62–63.
 
 
+
+
 #Apostasy #Book_Of_Mormon #Holy_Ghost #Scripture_Study #Scriptures #Testimony

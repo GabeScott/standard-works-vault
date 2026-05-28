@@ -87,4 +87,6 @@ I bless you with increased discernment to judge between Christ and anti-Christ. 
 I testify that the Book of Mormon is the word of God. Jesus is the Christ. Joseph Smith is His prophet. The Church of Jesus Christ of Latter-day Saints is true. In the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Mission_Of_The_Church

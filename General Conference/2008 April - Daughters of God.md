@@ -73,4 +73,6 @@ I hope all of you dear sisters, married or single, never wonder if you have wort
 Now, in closing, I want to add my witness of President Monson’s prophetic call. I have known him since he was 22 and I was 21. That’s 58 years. I have watched the hand of the Lord prepare him for this day to preside over the Church as the prophet and President. And I add my testimony, along with all of the other testimonies that have been borne through this conference, of his special calling as President of the Church, and add my testimony, along with all of the others, that Jesus is the Christ and this is His Church. We are doing His work, to which I testify in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Family #Motherhood #Women

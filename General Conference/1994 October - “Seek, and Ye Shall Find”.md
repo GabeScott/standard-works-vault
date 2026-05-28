@@ -87,4 +87,6 @@ We often hear the statement “Times have changed,” and in some ways they have
 I bear testimony that these truths are given to us by a loving Heavenly Father. They will give us the knowledge and strength to live our lives with hope, courage, and faith. May the shared sisterhood of Relief Society, established by the Lord through a prophet, bless and sustain the women of this church, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Education #Holy_Ghost #Jesus_Christ #Literacy #Relief_Society #Truth

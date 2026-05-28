@@ -65,4 +65,6 @@ I conclude my counsel with this prophetic summary from President Joseph F. Smith
 May God bless us to teach, nurture, and prepare one another within the walls of our homes for the great work that must be done by all of us now and in the future is my prayer in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Example #Family #Morality #Motherhood

@@ -77,4 +77,6 @@ My purpose this morning has been, in these few words, to honor that commandment 
 That we may do so, I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Compassion #Love #Service

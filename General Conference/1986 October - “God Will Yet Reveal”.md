@@ -97,4 +97,6 @@ And it will all occur at the direction of the “Redeemer of Israel, our only de
 In the name of Jesus Christ, amen.
 
 
+
+
 #Plan_Of_Salvation #Prophets #Scriptures #Spirituality

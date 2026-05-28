@@ -95,4 +95,6 @@ Perilous times await us. Judgments will be poured out upon the wicked. Saints mu
 The Storehouse Resource System enables us to apply the principles of preparation, love, service, sacrifice, and consecration. It is only upon these principles and these works that Zion is ever established. I bear witness that while we now face and will always face difficult challenges, this is God’s kingdom; this is his work; we are his people; and our ultimate triumph through the Lord is assured, to which I testify in the name of Jesus Christ. Amen.
 
 
+
+
 #Welfare

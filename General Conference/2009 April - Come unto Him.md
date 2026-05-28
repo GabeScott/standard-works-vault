@@ -69,4 +69,6 @@ His words echo through the centuries:
 Brothers and sisters, He lives. He is resurrected. He guides His holy work upon the earth. His prophet is President Thomas S. Monson. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Pioneers #Testimony

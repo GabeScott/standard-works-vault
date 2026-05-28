@@ -79,4 +79,6 @@ I am sure we all subscribe wholeheartedly to the testimony President Spencer W. 
 Now, in conclusion, brothers and sisters, I would like to bear my testimony: I know that the gospel of Jesus Christ has been restored in its fulness, that President Spencer W. Kimball is a prophet of God, that he receives revelation from God which makes it possible for him to guide our efforts in establishing the kingdom throughout the world. I love and support all the members of the First Presidency and of the Council of the Twelve and all the other General Authorities. It is an honor and a privilege to be associated with such men. I hope to be found worthy in carrying out my assignments and responsibilities. I pray that all of us will be successful in building strong testimonies of the restored gospel, and then by prayer, faith, study, work, and by righteous living keep such testimonies aglow and vibrant every day of our lives. In the name of Jesus Christ. Amen.
 
 
+
+
 #Testimony

@@ -59,4 +59,6 @@ As a Presiding Bishopric, we work closely with our current prophets, seers, and 
 In the Lord’s wisdom, he has not left any of us dependent on another’s testimony. May the Lord bless each of us to obtain and retain our personal witness and then follow the Brethren. In the name of Jesus Christ, amen.
 
 
+
+
 #Criticism #Obedience

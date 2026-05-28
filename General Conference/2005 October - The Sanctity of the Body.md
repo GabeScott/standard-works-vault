@@ -53,4 +53,6 @@ These sacred bodies, for which we are so grateful, suffer from natural limitatio
 Our bodies are our temples. We are not less but *more* like Heavenly Father because we are embodied. I testify that we are His children, made in His image, with the potential to become like Him. Let us treat this divine gift of the body with great care. Someday, if we are worthy, we shall receive a perfected, glorious body—pure and clean like my new little granddaughter, only inseparably bound to the spirit. And we shall shout for joy (see [[Job 38.7|Job 38:7]]) to receive this gift again for which we have longed (see [[D&C 138.50|D&C 138:50]]). May we respect the sanctity of the body during mortality so that the Lord may sanctify and exalt it for eternity. In the name of Jesus Christ, amen.
 
 
+
+
 #Morality #Plan_Of_Salvation #Self-Esteem #Temples #Word_Of_Wisdom

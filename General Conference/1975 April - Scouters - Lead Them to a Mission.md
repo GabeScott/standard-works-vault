@@ -72,4 +72,6 @@ Can I make him understand what happened to Moroni in those last desperate moment
 Boys like adventure—a mission is the highest type of adventure. Boys want to be led to the Holy Grail. A mission will lead them far beyond that to the exalted Christ. Do not fail in this most important calling. You must plant in the minds of the boys as they hike and camp, the importance of becoming a missionary and, in addition, what you know to be true—the gospel of Christ restored, the true calling of President Kimball—as the prophet of the Lord—and his prophet-associates, all this in the name of and to the glory of Jesus Christ. In his holy name I ask it. Amen.
 
 
+
+
 #Missionary_Work #Preparation #Scouting

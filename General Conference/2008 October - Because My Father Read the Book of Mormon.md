@@ -55,4 +55,6 @@ I invite all who hear me today to read the Book of Mormon and to apply the promi
 I bear my testimony that the Book of Mormon is the word of God. Because of this, I know that Joseph Smith is a prophet of God. I know that he did not write the Book of Mormon but translated it by the power of God. I know that Thomas S. Monson is a prophet of God on the earth today, the only man on the earth who holds all the keys of the priesthood and has the right to exercise them. I know that Jesus Christ is our Savior and that He lives. I know that God lives and loves us. In the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Conversion #Testimony

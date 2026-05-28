@@ -89,4 +89,6 @@ Not long ago a young American woman living in Taiwan felt that her taxi driver w
 Nephi, in foretelling the ministry of the Apostle John, described his teachings as “plain and pure, and most precious and easy to the understanding of all men.” ([[1 Nephi 14.23|1 Ne. 14:23]].) That our understanding and interpretation of truth may always be beautifully simple and simply beautiful is my sincere prayer for each of us, in the name of Jesus Christ, our Savior and Redeemer, amen.
 
 
+
+
 #Truth

@@ -118,4 +118,6 @@ God the Father lives. Jesus is the Christ. This is His Church and kingdom. This 
 [^9]: [[D&C 84.106|Doctrine and Covenants 84:106–8]][[D&C 84.107|]][[D&C 84.108|]].
 
 
+
+
 #Gratitude #Priesthood #Service

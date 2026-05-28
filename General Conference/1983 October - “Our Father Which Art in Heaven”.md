@@ -107,4 +107,6 @@ May we, this day, commit ourselves to so live that we will go before the Lord wi
 May the power of prayer bless our homes, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Prayer

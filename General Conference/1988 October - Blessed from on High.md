@@ -88,4 +88,6 @@ In the gospel of Jesus Christ, we have help from on high. “Be of good cheer,�
 I testify of the divinity of Jesus Christ. God does live and imparts to us his Spirit. In facing life’s problems and meeting life’s tasks, may we all claim that gift from God, our Father, and find spiritual joy, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Prayer #Scripture_Study #Spirituality

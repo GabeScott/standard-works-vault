@@ -61,4 +61,6 @@ If we fast properly, the Lord promises:
 It is my prayer that we can improve our fasts so that we can enjoy these beautiful promised blessings. It is my testimony that as we “draw near” to the Lord through our fasting and prayer, He will “draw near” to us (see [[D&C 88.63|D&C 88:63]]). I testify that He lives, that He loves us, and that He wants to draw near to us. In the name of Jesus Christ, amen.
 
 
+
+
 #Fasting #Prayer #Testimony

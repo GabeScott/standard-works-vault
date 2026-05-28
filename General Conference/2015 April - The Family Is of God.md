@@ -94,4 +94,6 @@ Sisters, we belong. We are loved. We are needed. We have a divine purpose, work,
 [^16]: M. Russell Ballard, “Let Us Think Straight” (Brigham Young University devotional, Aug. 20, 2013), 3; [speeches.byu.edu](https://speeches.byu.edu/talks/m-russell-ballard/let-us-think-straight-2).
 
 
+
+
 #Adversity #Covenants #Family #Plan_Of_Salvation #Unity

@@ -110,4 +110,6 @@ In The Church of Jesus Christ of Latter-day Saints we have the answer to that qu
 Our testimony to the world is that Jesus is the Christ, our Savior and our Redeemer, that Joseph Smith is the Prophet who restored truth upon the earth, and that this church is a divine church, of which I also testify in the name of Jesus Christ, amen.
 
 
+
+
 #Duty #Endurance

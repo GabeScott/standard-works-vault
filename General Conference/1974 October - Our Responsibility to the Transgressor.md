@@ -91,4 +91,6 @@ In a few minutes we will be instructed by the president of the Church, a prophet
 May we magnify our priesthood and enjoy the blessings of the Lord, and as President Romney said, “Prove our integrity,” I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Sin #Worthiness

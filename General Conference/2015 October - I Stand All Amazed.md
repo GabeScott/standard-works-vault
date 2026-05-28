@@ -57,4 +57,6 @@ As we follow our prophet, I pray that we may have charity in our hearts toward o
 [^3]: See [[Alma 29.1|Alma 29:1]].
 
 
+
+
 #Church_Callings #Family #Jesus_Christ #Love #Testimony

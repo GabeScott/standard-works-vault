@@ -97,4 +97,6 @@ If you seek His help, be sure your life is clean, your motives are worthy, and y
 In the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Gratitude #Prayer #Spirituality

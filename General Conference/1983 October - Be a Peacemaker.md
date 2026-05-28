@@ -101,4 +101,6 @@ I rejoice in my knowledge that God the Father and his Son, Jesus Christ, live an
 May each of us in our daily lives assume the role of peacemaker that we may enjoy the peace that surpasseth all understanding, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Peace

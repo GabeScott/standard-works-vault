@@ -55,4 +55,6 @@ And in return we should pledge, as did the poet George Herbert:
 My brothers and sisters, I bear you my witness that Jesus is the Christ, that He indeed overcame the world through His atonement, and that He will always be there to comfort us if we will follow His example and do the will of the Father. And I do so in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Jesus_Christ #Preparation

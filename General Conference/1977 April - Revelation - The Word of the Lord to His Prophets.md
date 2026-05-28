@@ -161,4 +161,6 @@ God bless you, brothers and sisters. It has been a wonderful conference and a jo
 We ask this all, with our affection for you, in the name of Jesus Christ. Amen.
 
 
+
+
 #Prophets #Spirituality

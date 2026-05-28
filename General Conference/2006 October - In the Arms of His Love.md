@@ -103,4 +103,6 @@ What a glorious organization Relief Society is. There is nothing to compare with
 May the Lord bless each of you with these marvelous qualities that come of activity in the great Relief Society organization. For this I humbly pray, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Education #Faith #Jesus_Christ #Love #Relief_Society #Self-Reliance #Tithing

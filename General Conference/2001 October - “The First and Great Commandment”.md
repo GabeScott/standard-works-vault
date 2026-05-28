@@ -55,4 +55,6 @@ I conclude that, given the purpose of our existence, if we do not love God and n
 I testify of the divinity of Christ and the reality of His mission to bring to pass the immortality and eternal life of man. That we might love as He loved and continues to love, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Commandments #Contention #Faith #Fatherhood #Jesus_Christ #Love #Motherhood #Neighbors #Prayer #Service

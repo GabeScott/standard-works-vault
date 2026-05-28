@@ -99,4 +99,6 @@ The final verse of the hymn that we mentioned in the beginning goes like this:
 By way of testimony, I wish to express my love for my Father in Heaven, for his son Jesus Christ, for each one of you wherever you are, and for these my brethren and associates of the General Authorities. In the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Love

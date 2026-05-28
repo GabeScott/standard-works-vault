@@ -71,4 +71,6 @@ Something happened within me as I heard those men of faith sing. There came into
 That testimony I reaffirm to you this day, as I also affirm that he who presides at this conference is the legal successor to him of whom I have spoken. I know that, and I leave my testimony in the name of him of whom Joseph Smith was a witness and of whom I also am a witness, even the Lord, Jesus Christ. Amen.
 
 
+
+
 #Joseph_Smith #Restoration

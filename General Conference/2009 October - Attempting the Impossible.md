@@ -58,4 +58,6 @@ The author of the perfect plan that contains these glorious promises is our Fath
 [^8]: [[2 Timothy 4.7|2 Timothy 4:7]].
 
 
+
+
 #Atonement #Plan_Of_Salvation

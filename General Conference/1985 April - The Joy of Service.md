@@ -51,4 +51,6 @@ It is in these holy edifices we become Saviors on Mount Zion. (See [[Obadiah 1.2
 In closing, I wish to express my eternal gratitude to the sweetheart of my youth, my eternal companion, for her long and loyal and faithful service and devotion to that cause which we both espouse. I express my love and devotion to our five daughters, their husbands, our grandchildren, and to my sisters and their families, all of whom extend to me their confidence and their love. I bear this sacred witness in the name of Jesus Christ, amen.
 
 
+
+
 #Service #Testimony

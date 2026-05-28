@@ -41,4 +41,6 @@ Considering again the admonition of the Apostle Paul, “In every thing give tha
 May human pride and pretensions never arise in us to cause us to imagine in those moments of personal victory or accomplishment that it is by our own merit that we have achieved, but rather may we recognize the hand of God in all things because, as we read in modern scriptures, “In nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things, and obey not his commandments” ([[D&C 59.21|D&C 59:21]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Gratitude #Joseph_Smith #Scriptures

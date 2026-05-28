@@ -79,4 +79,6 @@ Thank you, brothers and sisters, for your continued faith and prayers on behalf 
 Elzimar Gouvêa de Albuquerque, Roland J. Bäck, Raúl Barrón, Bruno V. Barros, Eric Baxter, Oscar Bedregal, Joep Boom, Michael P. Brady, Randall A. Brown, Kennedy F. Canuto, Stephen K. Christensen, Nathan A. Craig, Mark Anthony Dundon, Favio M. Durán, Amândio A. Feijó, Claude R. Gamiette, Scott L. Hymas, Jason C. Jensen, Roberto G. F. Leite, John W. Lewis, Paulo Renato Marinho, Blaine R. Maxfield, Eduardo R. Mora, David Ngabizele, João Luis Oppe, Justice N. Otuonye, Emanuel Petrignani, Daniel Piros, Craig W. J. Raeside, Nelson Ramírez, Alexey V. Samaykin, Jose Antonio San Gabriel, Jose Estuardo Sazo, Steven D. Shumway, Oswaldo J. Soto, Mark G. Stewart, Scott N. Taylor, Roseveltt de Pina Teixeira, Gordon L. Treadway, Harold Truque, Nikolai Ustyuzhaninov, Carlos Ernesto Velasco, Kyle A. Vest, Sergio Villa, and Min Zu Wang.
 
 
+
+
 #Church_Callings #Sustaining

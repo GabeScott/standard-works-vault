@@ -102,4 +102,6 @@ I have served under the keys and directions of *six* prophets and Church Preside
 [^13]: *[Handbook 2: Administering the Church](https://www.churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/leadership-in-the-church-of-jesus-christ?lang=eng&id=title_number19#title_number19)* (2010), 3.4.
 
 
+
+
 #Joy #Ministering #Peace #Sabbath

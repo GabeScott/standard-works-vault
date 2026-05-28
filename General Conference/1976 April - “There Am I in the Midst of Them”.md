@@ -45,4 +45,6 @@ It is my privilege to testify to the truth of the gospel of Jesus Christ and to 
 Wherever two or three of us are gathered together, I pray that the Savior may be in the midst of us because of our righteousness, the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Obedience

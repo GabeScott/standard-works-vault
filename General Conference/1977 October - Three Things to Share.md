@@ -19,4 +19,6 @@ Speaking for Anne, my wife; Larry, Annette, Marcus, Jonathan, Nathan, and Andrea
 Henry Van Dyke said a number of years ago: “There is only one way to get ready for immortality, and that is to love this life and live it as bravely and faithfully and cheerfully, as we can.” (In Emerson Roy West, *Vital Quotations,* Bookcraft, 1968, p. 201.) This I pray we may all do in the name of Jesus Christ, our Master. Amen.
 
 
+
+
 #Testimony

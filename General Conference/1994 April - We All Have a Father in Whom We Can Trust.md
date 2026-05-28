@@ -49,4 +49,6 @@ Each day I enjoy an increasing appreciation for the words of the Savior expresse
 I know that he lives; I know that he loves us, for we are his children. His son Jesus Christ is our Advocate with the Father and leads his church today through living prophets. I testify that their words will guide us safely home. In the name of Jesus Christ, amen.
 
 
+
+
 #Church_Organization #Family #Fatherhood #God_The_Father #Motherhood #Service

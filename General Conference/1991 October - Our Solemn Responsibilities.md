@@ -99,4 +99,6 @@ Brethren, this is the way our Father in Heaven would have it. This is the Lordâ€
 It takes effort. It takes self-control. It takes unselfishness. It requires the true essence of love, which is an anxious concern for the well-being and happiness of oneâ€™s companion. I could wish nothing better for all of you than this, and I pray that this may be your individual blessing, in the name of Jesus Christ, amen.
 
 
+
+
 #Abuse #Church_Growth #Example #Love #Marriage #Repentance

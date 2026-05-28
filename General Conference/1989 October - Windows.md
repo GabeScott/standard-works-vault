@@ -133,4 +133,6 @@ He beckons to each of us and extends the warm invitation not only to gaze at the
 That each may experience this privilege is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Example #Loneliness #Love #Service

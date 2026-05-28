@@ -74,4 +74,6 @@ Jesus is the Christ. He is resurrected. He is our Savior and Redeemer. All will 
 [^6]: [[Matthew 18.3|Matthew 18:3]].
 
 
+
+
 #Adversity #Faith #Testimony

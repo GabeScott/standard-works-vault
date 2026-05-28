@@ -94,4 +94,6 @@ I am proud that we have a President, even Ezra Taft Benson, who loves and encour
 Jesus is the Christ. He is our Redeemer, our Lord and Savior and friend. We constantly give thanks through deeds and prayer for his unmatched example of carrying on under circumstances that caused him to bleed from every pore and anguish in the misunderstanding and misconduct of his associates. Joy and happiness come through determination and the practice of carrying on under all conditions. May God help us to so do and reap the rewards in this present day I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Courage #Endurance #Faith #Obedience

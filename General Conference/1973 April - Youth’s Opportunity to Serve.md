@@ -51,4 +51,6 @@ You royal generation, you special people that God has reserved to come forth in 
 I bear my witness to you that God is our Father, that he loves you. He has given you the opportunity to come to this life to gain a body and to experience the joys and the sorrows of life that you can return to him and be prepared for even greater service. May God bless all of us who render service to him. May we honor our priesthood and truly represent his cause, I pray humbly in the name of Jesus Christ. Amen.
 
 
+
+
 #Leadership #Priesthood #Youth

@@ -185,4 +185,6 @@ I pray most earnestly that God’s favor and blessing will be on you, your famil
 To this I testify and leave my blessing, in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Spirituality

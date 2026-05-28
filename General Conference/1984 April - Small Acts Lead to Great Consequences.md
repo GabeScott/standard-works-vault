@@ -81,4 +81,6 @@ Let us rather remember always that we are sons and daughters of God, children bo
 May the blessings of the Lord attend you, beloved associates. May the peace of the Lord be in your homes and love for him reside in your hearts. God be with you, till we meet again, I humbly pray as I give you my testimony of the truth and divinity of this work, in the name of Jesus Christ, amen.
 
 
+
+
 #Humility #Obedience

@@ -76,4 +76,6 @@ As the glorious Resurrection followed the agonizing Crucifixion, so blessings of
 [^15]: See [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
 
 
+
+
 #Adversity #Atonement #Discipleship #Jesus_Christ #Sacrifice

@@ -96,4 +96,6 @@ I give you my testimony that I know God lives and that Jesus is the Christ, our 
 May our Heavenly Father bless us to dedicate our lives today. There is no better time to start than today. That we may remain valiant all the days of our lives and endure to the end is my prayer, in the name of Jesus Christ. Amen.
 
 
+
+
 #Repentance

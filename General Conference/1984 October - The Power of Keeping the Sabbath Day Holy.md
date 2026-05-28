@@ -89,4 +89,6 @@ Oh, my dear brothers and sisters, there is power in keeping the Sabbath day holy
 May we all live that someday, someway, somewhere, somehow, as we face that which is very serious, we may be able to say, “Hold, hold, hold”; and, when challenged as to why (even by ourselves), be able—through obedience and the confidence of the Spirit—to say in our own way, “For I have been through Cache Valley on a Sunday afternoon,” I do humbly pray in the name of our Savior, who lives. I know he lives, even Jesus Christ, amen.
 
 
+
+
 #Commandments #Obedience #Sabbath

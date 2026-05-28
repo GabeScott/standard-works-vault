@@ -49,4 +49,6 @@ Women of God, that includes us. Tonight I invite each of us to identify at least
 We have such cause to rejoice, for the gospel of Jesus Christ *is* the voice of gladness! It is because the Savior overcame the world that we may overcome. It is because He rose on the third day that we may arise as women of God. May we lay aside the things of this world and seek for the things of a better. May we commit this very hour to come out of the world and to never look back. In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Family #Jesus_Christ #Plan_Of_Salvation #Relief_Society #Satan #Women #Worldliness

@@ -23,4 +23,6 @@ Four years ago I began service in the Mesa Arizona Temple as a sealer. During th
 I bear you my witness that I know that God lives and that Jesus is the Christ, that this is the Church of Jesus Christ. My current wife, my bride of fifteen months, has promised that with Rosemary, my first wife, pulling for me on the other side of the veil, and with her pulling for me on this side, I will succeed. I know that with the help of the Lord I will succeed. To him I promise to give my all, in the holy name of Jesus Christ, amen.
 
 
+
+
 #Commitment

@@ -65,4 +65,6 @@ Just as we followed the light of a truck one stormy winter night, so did Shelly 
 I testify that the Lord is always there to help you. The example of His life and His teachings is a steady, sure guide. We can follow Him with confidence and perfect trust, for He is our Savior. I love Him. I love you and bear testimony of His love for you in the name of Jesus Christ, amen.
 
 
+
+
 #Goals #Jesus_Christ #Prayer #Preparation #Scripture_Study #Service #Young_Women

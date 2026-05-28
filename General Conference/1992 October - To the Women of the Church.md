@@ -68,4 +68,6 @@ My beloved sisters, I know that God lives, that Jesus is his Only Begotten Son, 
 May the Lord bless you as you continue to serve him by serving others and as you strive to become all that you have the potential to become. In the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Service #Women

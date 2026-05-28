@@ -53,4 +53,6 @@ This Church has been built and will continue to grow through the steady efforts 
 My heart is full of gratitude and great joy. Rejoice with me in bearing testimony of the Savior: “Hosanna, hosanna to God and the Lamb.” In the name of Jesus Christ, amen.
 
 
+
+
 #Church_Callings #Consecration #Jesus_Christ #Priesthood #Relief_Society #Sacrifice #Temples #Visiting_Teaching

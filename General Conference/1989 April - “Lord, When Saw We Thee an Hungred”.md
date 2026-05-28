@@ -93,4 +93,6 @@ We must recognize that life is a precious gift (Florence Nightingale called it a
 That we may do so, brothers and sisters, each of us, as we have the opportunity, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Charity #Relief_Society #Service

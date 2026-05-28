@@ -65,4 +65,6 @@ All who participated in this moving drama of real life had discovered a new and 
 To all within the sound of my voice I declare that the welfare plan of The Church of Jesus Christ of Latter-day Saints is inspired of Almighty God. Indeed, the Lord Jesus Christ is its Architect. To you I extend a heartfelt and sincere invitation: Come to Salt Lake City and visit Welfare Square. Your eyes will glow a little brighter, your heart will beat a little faster, and life itself will acquire a new depth of meaning. May such be your experience, I pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Service #Welfare

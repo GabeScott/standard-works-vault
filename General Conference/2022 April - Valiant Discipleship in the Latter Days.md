@@ -164,4 +164,6 @@ Brothers and sisters, it’s a good day to be good! In the sacred name of Jesus 
 [^49]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 40–41.
 
 
+
+
 #Adversity #Commandments #Discipleship #Jesus_Christ #Prophets

@@ -61,4 +61,6 @@ He records, *“I looked and spit, took off my hat and scratched \[my head\] and
 Robert Gardner knew what it meant to deal with change in his life. He followed the counsel of the Brethren, accepting calls to serve when it was not convenient. He had a great love for the Lord and demonstrated strong, unbending faith with amazing good humor and grace. Robert Gardner Jr. went on to become a leading pioneer in the colonization effort of southern Utah. It is he and countless pioneers like him who give us inspiration to carry on and confront fearlessly the many changes and challenges which come into our lives. As we move forward and “get on with our lives,” may we be obedient, faithful, and cheerful is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Hope #Perspective #Prophets

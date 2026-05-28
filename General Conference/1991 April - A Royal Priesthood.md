@@ -105,4 +105,6 @@ Our Lord and Savior said, “Come, follow me” ([[Luke 18.22|Luke 18:22]]). Whe
 May we hear His voice. May we follow His example. May we live His teachings. Then we will be as the Apostle Peter declared, even a “royal priesthood.” May each of us earn the tribute spoken of our Lord: He “went about doing good, … for God was with him” ([[Acts 10.38|Acts 10:38]]). This is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Fasting #Love #Service #Welfare

@@ -105,4 +105,6 @@ Jesus prayed,
 Jesus was able to complete his mission of the Atonement on earth because of the knowledge, example, and love of His Father. Likewise, may each of us, as parents and especially as brethren in the priesthood, through our example, love, and care, be remembered by our children to have the qualities that our Heavenly Father and our Savior have, that we may endure to the end and someday return with our families to their celestial presence, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Parenthood #Priesthood

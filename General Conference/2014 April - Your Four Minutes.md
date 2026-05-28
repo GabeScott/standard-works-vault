@@ -102,4 +102,6 @@ I conclude with my testimony of the blessing we have in a living prophet, Presid
 [^13]: Vidya Rao, “Snowboarder Kelly Clark: Hug from Competitor Helped Me Win Bronze,” today.com/sochi/snowboarder-kelly-clark-hug-competitor-helped-me-win-bronze-2D12108132.
 
 
+
+
 #Ordinances

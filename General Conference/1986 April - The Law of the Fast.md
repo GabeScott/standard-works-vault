@@ -97,4 +97,6 @@ When he arrived home, I was always enlisted to help him put the commodities in t
 May the Lord continue to bless us with the faith to follow the inspired leadership He has provided for us here on earth that we may fulfill our obligations and responsibilities and be blessed by His hand, both spiritually and temporally, as we follow His plan, is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Fasting #Welfare

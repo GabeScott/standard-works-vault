@@ -17,4 +17,6 @@ I am reminded as I approach you today of a scripture that was written to me in a
 That we may all remember that arm is my prayer in the name of Jesus Christ. Amen.
 
 
+
+
 #Service

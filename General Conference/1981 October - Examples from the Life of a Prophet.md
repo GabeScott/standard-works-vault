@@ -69,4 +69,6 @@ In testimony, I ask the Lord’s blessing upon us that we might feel the urgency
 I bear you my testimony that a prophet leads this Church today by revelation. One time, in closing a general conference, President Kimball said, “My people say ‘Lord, Lord,’ and do not what I say.” It is my prayer that we will say, “Lord, Lord,” and do as our prophet and those who lead this Church today say, and follow their example, in the name of Jesus Christ, amen.
 
 
+
+
 #Spencer_W._Kimball

@@ -93,4 +93,6 @@ May they and each of us so live as to merit the heavenly pronouncement:
 Our place in an everlasting and eternal Hall of Fame will thereby be assured. This is my earnest plea as I leave with you my witness that Jesus of Nazareth is our Savior and Redeemer, even our Advocate with the Father. In the name of Jesus Christ, the Lord. Amen.
 
 
+
+
 #Excellence #Leadership

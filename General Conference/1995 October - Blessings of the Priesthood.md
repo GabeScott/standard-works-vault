@@ -102,4 +102,6 @@ Since those early-morning hours in Santiago, I have reflected and pondered much 
 I promise that the bounteous blessings of the priesthood can be ours through our obedience and that all of the magnificent, eternal blessings that God makes available to men and women and families upon this earth can be ours through the power of the priesthood. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Apostasy #Atonement #Blessings #Family #Jesus_Christ #Missionary_Work #Patriarchal_Blessings #Prayer #Priesthood #Restoration #Sacrament

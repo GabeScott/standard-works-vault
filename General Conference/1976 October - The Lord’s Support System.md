@@ -47,4 +47,6 @@ To every “spear carrier” in the Church, we express a sincere *thank you* fro
 That we may all go forth willingly, effectively, full of faith, with an eye single to His glory is my prayer in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Church_Callings #Service

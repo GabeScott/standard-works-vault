@@ -34,4 +34,6 @@ We chose to come here. And so we’re here, assembled in this vast auditorium, w
 The gospel is true. I know it; I’m a witness of it. In the name of our Lord and Savior Jesus Christ, amen.
 
 
+
+
 #Faith #Jesus_Christ #Prayer #Testimony

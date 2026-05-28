@@ -113,4 +113,6 @@ What a thrill of joy must have moved Andrew as he said to Peter, “We have foun
 May we lift our souls this beautiful Easter morning with the assurance that through the mystic call of the restored gospel we have come to the threshold of Zion and the gateway to eternal life. In the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

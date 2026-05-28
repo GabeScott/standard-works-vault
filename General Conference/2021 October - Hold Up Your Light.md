@@ -124,4 +124,6 @@ I testify that Jesus Christ is the author and the finisher of our faith.[^28] He
 [^29]: See [[Mormon 9.18|Mormon 9:18–21]][[Mormon 9.19|]][[Mormon 9.20|]][[Mormon 9.21|]].
 
 
+
+
 #Joy #Love #Missionary_Work

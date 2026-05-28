@@ -132,4 +132,6 @@ I testify to you that in the deliberations of the Council of the First Presidenc
 [^16]: See Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” 7.
 
 
+
+
 #Conversion #Curriculum #Family #Home #Sabbath

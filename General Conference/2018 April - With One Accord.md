@@ -106,4 +106,6 @@ May we be one in the Father and in His Begotten Son, as we are guided by the Hol
 [^22]: [[1 Timothy 6.15|1 Timothy 6:15]].
 
 
+
+
 #Jesus_Christ #Love #Ministering #Service #Unity

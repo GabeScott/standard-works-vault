@@ -134,4 +134,6 @@ I witness that fidelity to the covenants and ordinances of the Savior’s restor
 [^28]: *Hymns*, no. 243.
 
 
+
+
 #Covenants #Discipleship #Jesus_Christ #Ordinances

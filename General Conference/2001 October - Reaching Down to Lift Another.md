@@ -121,4 +121,6 @@ God bless you, my dear brethren, young and old. Keep the faith. Minister with lo
 I so pray in the name of Jesus Christ, amen.
 
 
+
+
 #Anger #Commandments #Education #Home #Love #Priesthood #Worthiness

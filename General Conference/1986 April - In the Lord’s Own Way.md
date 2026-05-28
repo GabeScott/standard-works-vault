@@ -115,4 +115,6 @@ Working with a will, Saints gain a new appreciation of who they are and of their
 The Church of Jesus Christ has been restored to the earth. The power of God is among men. Angelic ministrants communicate to legal administrators once again. A living prophet, the everlasting priesthood, covenant people, and the Lord’s “own way” are upon the earth to bless mankind, all races, in every clime—yes, all people, young and old, wealthy and poor, now and forevermore. This I testify, in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Welfare

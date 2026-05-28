@@ -159,4 +159,6 @@ Brethren, I wonder if any of you have ever sung in a male chorus as beautiful as
 This is the work of the Lord. I want you boys and you men to know. This is the work of the Lord, and I know it, and I want you to know that I know it. And I think *you* know it, and together we will go forward to meet our great destiny. God bless you in the name of Jesus Christ. Amen.
 
 
+
+
 #Judging #Repentance #Youth

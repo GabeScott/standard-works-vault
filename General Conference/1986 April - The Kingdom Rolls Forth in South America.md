@@ -85,4 +85,6 @@ I testify to you that Jesus Christ is the Only Begotten Son of our Eternal Heave
 May the Lord bless us, my brothers and sisters, in doing his work, is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Quorum_Of_The_Twelve_Apostles

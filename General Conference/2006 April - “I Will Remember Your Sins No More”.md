@@ -133,4 +133,6 @@ Each of us has a loving Father in Heaven. Through the Father’s redeeming plan,
 Could there be any more sweeter or more consoling words, more filled with hope, than those words from the scriptures? “I, the Lord, remember \[their sins\] no more” ([[D&C 58.42|D&C 58:42]]). That is the testimony of the Book of Mormon, and that is my testimony to you, in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Forgiveness #Repentance

@@ -151,4 +151,6 @@ In the mission presidents’ seminar last June, Elder Thomas S. Monson told of t
 Brethren, you young men particularly, I bear to you my testimony that I know that the Lord rewards those who put their trust in Him. May we learn that when we’re young, and practice it through our lives so that we can testify as these experiences testify, in the name of Jesus Christ. Amen.
 
 
+
+
 #Faith #Trust #Youth

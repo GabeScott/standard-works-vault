@@ -41,4 +41,6 @@ The Savior, while teaching at the temple, was questioned by the Jewish teachers 
 The Lord’s answer was direct and applies to us today, just as it did to the people to whom he was speaking. If we will do our Father’s will and keep his commandments, the Holy Ghost will manifest the truth unto us—it’s as simple as that. May this be our lot, I pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Testimony

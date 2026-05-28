@@ -106,4 +106,6 @@ I bear testimony of Jesus Christ and His atoning sacrifice. I know He is our Sav
 [^10]: [[1 Nephi 2.16|1 Nephi 2:16]].
 
 
+
+
 #Adversity #Children #Faith #Holy_Ghost #Parenthood #Teaching

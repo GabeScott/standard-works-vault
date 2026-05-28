@@ -55,4 +55,6 @@ The Lord gave to Moses a code of laws often referred to as the Holiness Code of 
 May the Lord bless us to be reverent, prayerful, full of worship and devotion, until we re-enter the holy presence of him who is our Father, I pray in the name of his son, the Lord Jesus Christ. Amen.
 
 
+
+
 #Prayer #Reverence

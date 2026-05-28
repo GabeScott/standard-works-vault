@@ -73,4 +73,6 @@ This is the dispensation of the fulness of times, when the keys of all former di
 The history of this world is in fulfillment of the plan prepared in the heavens before this earth was created. That which the world calls Mormonism is based upon the rock of revelation. It is the gospel of Jesus Christ, the eternal truth, the plan of life and salvation. I testify to these things in the name of Jesus Christ. Amen.
 
 
+
+
 #Spirituality

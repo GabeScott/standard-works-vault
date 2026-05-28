@@ -105,4 +105,6 @@ In short, Latter-day Saints invite each other and all men and women everywhere t
 May God bless all of us to come unto Christ. I testify that he is our Savior and our Redeemer, the light and the life of the world, in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Jesus_Christ

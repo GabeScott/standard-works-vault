@@ -184,4 +184,6 @@ We are convinced that a prayerful consideration of the membership of each stake 
 Now, brothers and sisters, I have a witness and a testimony of this great work. We love you and appreciate the great work you are doing in it, and the greater work you are going to do. May the Lord bless us. In the name of Jesus Christ. Amen.
 
 
+
+
 #Welfare

@@ -45,4 +45,6 @@ His message *is* the restored gospel of Jesus Christ; and it is administered by 
 The testimony that I bear is but an echo of the resounding testimonies of the eighty-four who previously have received this call to the Twelve since the spring of 1820. I know that God the Father and the Son appeared to usher in this last great dispensation of eternal truth. I testify that we are of the house of Israel, specifically of the lineage of Joseph, bearing the birthright and charged with the irrevocable responsibility to prepare the world for the second coming of the Savior. Then, numberless multitudes among every nation, kindred, tongue, and people will eventually join in proclaiming that Jesus is the Christ, the Son of the living God. So I solemnly testify in the name of Jesus Christ, amen.
 
 
+
+
 #Quorum_Of_The_Twelve_Apostles

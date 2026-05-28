@@ -87,4 +87,6 @@ There is no other office in the Church quite like this office. The president of 
 I pray that the rich and wondrous blessings of the Lord may be poured out upon these devoted brethren that they may be men of faith, men of inspired judgment, men of patience, men who love the Lord and who love His people. May they be happy, and may they find their reward in the satisfaction of having served well is my humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Commandments #Disciplinary_Councils #Education #Humility #Leadership #Missionary_Work #Priesthood #Prophecy #Respect #Responsibility #Restoration #Teaching #Unity #Worthiness

@@ -31,4 +31,6 @@ I know the reality of the promptings of the Holy Ghost. In times of urgent need,
 Yes, I know that Spencer W. Kimball is a prophet of God. I know that Jesus Christ lives and loves each one of us. I know that God our Eternal Father answers prayer, unmistakably, when we live worthy of such answers. I publicly commit my life, my energy, all that I am to the service of the Master and to the building of His kingdom, in Jesus’ name. Amen.
 
 
+
+
 #Testimony

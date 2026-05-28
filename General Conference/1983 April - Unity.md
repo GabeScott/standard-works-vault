@@ -67,4 +67,6 @@ Only a united people, keeping God’s commands, can expect the protection which 
 It is my conviction that, since we are engaged in the Lord’s work, we can accomplish everything he requires us to do if we will but be united. That we may so be, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Brotherhood #Obedience #Unity

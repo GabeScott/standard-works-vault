@@ -51,4 +51,6 @@ How have they come to such a point? How do we access the quiet miracle that the 
 God did part the Red Sea, and He did give us the Book of Mormon. He can heal us of our sins, and He can and will bless us, His children, in our daily lives. I know that He lives and loves us and is today a God of miracles, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Book_Of_Mormon #God_The_Father #Jesus_Christ #Miracles #Restoration #Scriptures

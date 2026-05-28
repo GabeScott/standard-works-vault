@@ -117,4 +117,6 @@ All will be well now, as anciently, because the Lord’s covenant keepers have H
 I so testify and assure in apostolic authority and in the holy name of Jesus Christ, amen.
 
 
+
+
 #Plan_Of_Salvation

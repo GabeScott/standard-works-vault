@@ -51,4 +51,6 @@ A few years ago I sat in the Los Angeles Temple in a little sealing room with my
 I leave you my love, my witness, that this work is true. As Latter-day Saints we need to be true to the faith that we profess—true to it, true to the stirring testimonies that we have been given, true to Him whose name we have taken—and to so live and to declare and to help in the spreading of this work, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Obedience #Pioneers #Testimony

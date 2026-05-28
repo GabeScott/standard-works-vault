@@ -64,4 +64,6 @@ I bear you my testimony that we live in a dispensation of time when there have b
 That you and I might realize that we have the power and responsibility to help those in need, as ministering angels for the Lord Jesus Christ, that we will be loved because we love, be consoled because we are compassionate, be forgiven because we have demonstrated the capacity to forgive, is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Service #Welfare

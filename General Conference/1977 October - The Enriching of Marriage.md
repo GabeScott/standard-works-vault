@@ -77,4 +77,6 @@ The Savior has said, “Behold, I stand at the door, and knock: if any man hear 
 May the presence of God be found enriching and blessing all marriages and homes, especially those of His Saints, as part of His eternal plan, I pray humbly in the sacred name of Jesus Christ. Amen.
 
 
+
+
 #Divorce #Marriage

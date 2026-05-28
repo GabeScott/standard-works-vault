@@ -101,4 +101,6 @@ He is our triumphant Lord. He is our Redeemer, who atoned for our sins. Through 
 As an Apostle of the Lord Jesus Christ, I bear witness and testimony of these things this Easter day. I speak in solemnity and reverence and gratitude, in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Adversity #Atonement #Death #Jesus_Christ #Resurrection

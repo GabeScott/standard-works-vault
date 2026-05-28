@@ -57,4 +57,6 @@ What a blessing it is for us that the Prophet Joseph Smith asked the right quest
 Yes, for me it is as clear as the night from the day. Their witness of the Savior is true. I have heard His voice as I have read His word in the sacred writings of the prophets of the Book of Mormon and rejoiced with the further light and knowledge granted to our latter-day prophets. I add my witness to theirs: He lives; I know He lives. This is His church. May we all look in the right places and ask the right questions and thus be taught by His Spirit to know the truth, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Education #Testimony #Truth

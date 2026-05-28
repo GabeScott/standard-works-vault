@@ -57,4 +57,6 @@ Reaching the one will involve reaching out in many ways. Recent research indicat
 I bear solemn witness to the divinity of this great and marvelous work and to the continuing inspiration that has come from the Lord through his chosen prophet, who has been far ahead of all of the thinking and the planning that has been done. Somehow, some way, we must reach the one, every single one, for they are “chosen vessels” unto the Lord. President Lee’s message to the single members is sublime: “To you, the words of the Master have a special meaning: ‘He that findeth his life shall lose it: and he that loseth his life for my sake shall find it.’” ([[Matthew 10.39|Matt. 10:39]].) That this may be so, I pray humbly in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Priesthood #Youth

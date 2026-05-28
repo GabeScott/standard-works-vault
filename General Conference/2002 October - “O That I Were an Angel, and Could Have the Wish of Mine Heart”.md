@@ -65,4 +65,6 @@ And there may we extend these same blessings to those of previous generations, e
 May the blessings of heaven rest upon you, my beloved brethren and sisters. May the Spirit of Elijah touch your hearts and prompt you to do that work for others who cannot move forward unless you do so. May we rejoice in the glorious privilege that is ours, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Church_History #Sacrifice #Temple_Work #Temples

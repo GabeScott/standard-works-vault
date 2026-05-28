@@ -100,4 +100,6 @@ It is in this spirit that I add my own witness. Our Eternal Father lives. He sta
 Jesus is the Christ, His immortal Son, who under His Father’s direction was the Creator of the earth. He was the great Jehovah of the Old Testament, who condescended to come into the world as the Messiah, who gave His life on Calvary’s cross in His wondrous Atonement because He loved us. The work in which we are engaged is their work, and we are their servants, who are answerable to them, of which I testify in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Jesus_Christ #Resurrection #Testimony

@@ -80,4 +80,6 @@ You, the noble youth of the Church, are my heroes. I love you. I feel Heavenly F
 [^11]: Spencer W. Kimball, “The Abundant Life,” *Ensign,* July 1978, 4; *Tambuli,* June 1979, 3.
 
 
+
+
 #Holy_Ghost #Sacredness

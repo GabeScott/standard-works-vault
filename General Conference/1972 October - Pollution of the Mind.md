@@ -71,4 +71,6 @@ To whom shall we turn for our direction in these vital matters? A prophet of God
 May we accept this timely counsel. Your personal welfare and the eternal future of your entire family unit may depend upon it, and I say it in the name of Jesus Christ. Amen.
 
 
+
+
 #Media

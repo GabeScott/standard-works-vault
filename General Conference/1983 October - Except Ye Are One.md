@@ -37,4 +37,6 @@ This great unity is the hallmark of the true church of Christ. It is felt among 
 And so, as we open this great conference, from which there will be radiated across the world a feeling of love, we pray that we shall be blessed of the Lord. We pray for our prophet dear, whom we love and honor. We pray for one another that we may go on in unity and strength. If we do so, no power beneath the heavens can stop the onward progress of this great kingdom. I pray that we shall never be wanting in our faith, in our devotion, in our love for the Lord and his work, and in our desire to serve unitedly for the advancement of The Church of Jesus Christ of Latter-day Saints, in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Unity

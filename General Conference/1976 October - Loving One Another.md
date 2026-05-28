@@ -35,4 +35,6 @@ One other matter. I remember some years ago, a young man and his wife and little
 This has been a wonderful meeting. We’re deeply grateful for the splendid service as directed by Bishop Victor L. Brown and his counselors, Sister Barbara B. Smith and her counselors. We’re grateful for their wonderful service. And we’re grateful for your service as bishoprics and stake presidencies as you give leadership to this marvelous program. We pray that the Lord will bless us as we go forward and follow the program as it is outlined for us. We say this in the name of Jesus Christ. Amen.
 
 
+
+
 #Parenthood #Self-Reliance #Service #Welfare

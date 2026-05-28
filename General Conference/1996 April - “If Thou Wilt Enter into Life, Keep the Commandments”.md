@@ -93,4 +93,6 @@ Dear brethren of the priesthood, we must never forget for a moment that the cove
 I testify that God lives. Jesus is the Christ. May we remember who we are and act accordingly, that we may gain the riches of eternity for ourselves, our families, and our friends, in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Commandments #Covenants #Education #Example #Family #Friendship #Holy_Ghost #Jesus_Christ #Missionary_Work #Priesthood #Prophets #Sacrament #Spirituality #Youth

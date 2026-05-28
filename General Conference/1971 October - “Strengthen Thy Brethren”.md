@@ -83,4 +83,6 @@ Are you your brother’s keeper? Most certainly! If not you, who? Who else would
 Are you converted? You most certainly are, whether you recognize it or not, and “when thou art converted, strengthen thy brethren”—for the Church has need of every member. That it might start with more than 100,000 faithful priesthood holders attending priesthood meeting tonight is my humble prayer, and I ask it in the name of Jesus Christ. Amen.
 
 
+
+
 #Love #Priesthood

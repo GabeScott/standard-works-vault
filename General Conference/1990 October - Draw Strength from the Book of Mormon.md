@@ -69,4 +69,6 @@ When I read this passage, I am filled to overflowing with the love Jesus Christ 
 My dear brothers and sisters, I testify that by prayerfully reading and pondering the Book of Mormon, each of us can gain strength to meet our daily challenges. I know the Book of Mormon is the word of God. Every time I read from its pages I receive a confirmation of its truth. In the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Scriptures

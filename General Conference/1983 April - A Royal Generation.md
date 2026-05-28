@@ -75,4 +75,6 @@ Remember these words of Edward W. Bok: “Once we are convinced … that we are 
 Young men, let us prove by the way we live and serve that we are everything the Lord expects us to be, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Last_Days #Obedience #Priesthood #Repentance

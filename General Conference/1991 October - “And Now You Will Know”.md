@@ -43,4 +43,6 @@ I bear testimony, paraphrasing the words of Peter in his second epistle, that we
 Heavenly Father and Jesus Christ did return to the earth in 1820. They did restore the priesthood of God and His plan of salvation to a modern-day prophet, Joseph Smith. I know that! I cannot deny what I have felt and what I have seen. I bear this witness to you in the name of Jesus Christ, amen.
 
 
+
+
 #Education #Missionary_Work #Testimony

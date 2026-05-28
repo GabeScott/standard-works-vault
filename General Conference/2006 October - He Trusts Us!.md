@@ -65,4 +65,6 @@ My dear brethren of the priesthood, the Lord Jesus Christ, our Savior and Redeem
 As we hear from President Hinckley, President Monson, and President Faust, I bear my personal witness that each is a prophet, seer, and revelator. I am anxious to hear their counsel. In the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Healing #Priesthood #Worthiness

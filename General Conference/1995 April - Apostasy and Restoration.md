@@ -59,4 +59,6 @@ The purpose of The Church of Jesus Christ of Latter-day Saints is to help all of
 It is the reality of these glorious possibilities that causes us to proclaim our message of restored Christianity to all people, even to good practicing Christians with other beliefs. This is why we build temples. This is the faith that gives us strength and joy to confront the challenges of mortal life. We offer these truths and opportunities to all people and testify to their truthfulness in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Christianity #False_Doctrines #Family #God_The_Father #Godhead #Jesus_Christ #Joseph_Smith #Parents #Plan_Of_Salvation #Restoration

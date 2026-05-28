@@ -109,4 +109,6 @@ Immortality or the resurrection will happen to us all. It is an unearned benefit
 I have known of Jesus Christ since before I can remember. I was taught to pray to God in his name since infancy. I don’t believe there has been a single day of my life when I have not openly sought for his blessings, his spirit, and his protection. I want his type of eternal life. It has come to mean everything to me. I know that the gospel is true, since I have heard the voice of God through his Spirit confirm and witness it to me. In the name of Jesus Christ, the Lord, amen.
 
 
+
+
 #Plan_Of_Salvation

@@ -63,4 +63,6 @@ It is an emotional thing for me. I have planted another black walnut or two. I w
 And so to all who have made this sacred edifice possible, and to all of you who are here assembled on this historic occasion, I express gratitude and appreciation, my love and my thanks for this day and this sacred and beautiful house of worship, in the name of Jesus Christ, amen.
 
 
+
+
 #General_Conference #Spirituality #Temple_Square

@@ -85,4 +85,6 @@ Now, my dear brethren, may the Lord bless you. To you boys I say, get on with yo
 God bless you, my beloved brethren. Speak with the Lord in prayer. Cultivate kinship with Him. He is the Almighty, who has power to lift and help. I pray that it may be so in the name of Jesus Christ, amen.
 
 
+
+
 #Honesty #Morality #Obedience

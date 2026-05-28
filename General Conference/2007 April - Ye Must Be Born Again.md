@@ -101,4 +101,6 @@ My beloved brothers and sisters, I pray this parable of the pickle may help us t
 I witness the reality and divinity of a living Savior who invites us to come unto Him and be transformed. I testify His Church and priesthood authority have been restored through the Prophet Joseph Smith. Through faith in Christ, we can be spiritually prepared and cleansed from sin, immersed in and saturated with His gospel, and purified and sealed by the Holy Spirit of Promise—even born again. In the sacred name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Covenants #Spirituality

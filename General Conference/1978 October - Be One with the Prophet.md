@@ -15,4 +15,6 @@ At the risk of being unduly personal, I would like to tell you how I feel about 
 I want to stand firm and fearless, not weakening—for weakness implies pressure from without—but radiating strength and charity truly from within; offensively—not defensively—enthusiastically, sweetly, faithfully, everlasting in harmony with the Lord. May we all become one with him and his prophet and bring harmony into the work that we are in charge of, wherever that may be, in whatever land, I pray for each of us, and most especially for me, as I acknowledge my weaknesses and stand before you to accept this great calling. In the name of Jesus Christ, amen.
 
 
+
+
 #Testimony

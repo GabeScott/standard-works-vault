@@ -90,4 +90,6 @@ We do rejoice that through keeping our covenants, we may feel the love of our He
 [^8]: [[D&C 25.13|Doctrine and Covenants 25:13]].
 
 
+
+
 #Baptism #Covenants #Temples

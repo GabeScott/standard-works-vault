@@ -99,4 +99,6 @@ May we be one in this great work, brothers and sisters. May we in loving and sen
 With gratitude in my heart, brothers and sisters, for you and for that which we are doing together, I pray that we may each resolve, in this era of social problems and economic difficulty, to follow as one our prophet-leader and others who have been called to direct us. May we avoid the pain and problems that come to families, neighborhoods, and institutions when they are not one, in the name of Jesus Christ, our Redeemer, amen.
 
 
+
+
 #Missionary_Work #Testimony #Unity

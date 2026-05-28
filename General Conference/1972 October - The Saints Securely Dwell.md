@@ -135,4 +135,6 @@ It is because of you, the priesthood home teacher, that a verse of the hymn stan
 I bear witness that Jesus is the Christ. This is his church and kingdom. We hold the priesthood and authority delegated of him. There presides over us a prophet, who as a man cannot extend himself to the far reaches of the earth, to every branch, to every mission, or to every stake. Yet by delegation of the authority and the keys held by him, he can reach, not just to the stakes and the wards and the branches, but he can reach into the homes, to the individuals, and bless and sustain them, that the saints might securely dwell. In the name of Jesus Christ. Amen.
 
 
+
+
 #Home_Teaching

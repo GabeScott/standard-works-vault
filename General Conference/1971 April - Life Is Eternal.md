@@ -129,4 +129,6 @@ Today twenty thousand missionary-messengers of truth and the three million membe
 Today I testify to the truth of the message which they bear and add my solemn witness, in the name of Jesus Christ. Amen.
 
 
+
+
 #Plan_Of_Salvation #Resurrection

@@ -93,4 +93,6 @@ I love my Heavenly Father and Jesus Christ. I love these prophets, Apostles, see
 I love my family; and I love you, my brothers and sisters; and I pray that we will follow the prophets and Apostles and keep the commandments of God. In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Obedience #Prophets

@@ -109,4 +109,6 @@ With this kind of declaration from a prophet of God, whose knees need to remain 
 May God help us to strengthen the feeble knees of ourselves and those about us by daily improvement in our attitudes and examples, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Love #Sabbath

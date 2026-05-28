@@ -50,4 +50,6 @@ I so bless you and bear my testimony that God lives! Jesus is the Christ! This i
 [^1]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng&id=p24#p24) (2007), 142.
 
 
+
+
 #Discipleship #General_Conference #Temples

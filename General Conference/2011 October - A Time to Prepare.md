@@ -40,4 +40,6 @@ Time marches swiftly forward to the tick of the clock. Today would be a good day
 [^1]: See Provo Utah Central Stake general minutes, Apr. 6, 1856, vol. 10 (1855–60), Church History Library, Salt Lake City, 273 (spelling, punctuation, and capitalization modernized): “Father \[Emer\] Harris said the Apostle said we have to fight against principalities and powers in high places. Bro. Hiram Page dug out of the earth a black stone \[and\] put it in his pocket. When he got home, he looked at it. It contained a sentence on paper to befit it. As soon as he wrote one sentence, another sentence came on the stone, until he wrote 16 pages. Bro. Joseph was told of the fact. One person asked Joseph if it is right. He said he did not know, but he prayed and got revelation that the stone was of the devil. Then it was broke to powder and the writings burnt. It was a work of the power of darkness. Amen.”
 
 
+
+
 #Priorities #Technology #Time_Management

@@ -110,4 +110,6 @@ God has given us the priesthood, and that priesthood cannot be exercised, “onl
 How thankful I am, how thankful we all must be, for the women in our lives. God bless them. May His great love distill upon them and crown them with luster and beauty, grace and faith. And may His Spirit distill upon us as men and lead us ever to hold them in respect, in gratitude, giving encouragement, strength, nurture, and love, which is the very essence of the gospel of our Redeemer and Lord. For this I humbly pray, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Divorce #Love #Marriage #Service #Women

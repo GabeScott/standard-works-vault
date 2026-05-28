@@ -90,4 +90,6 @@ Dear brothers and sisters, on this Easter Sunday, I bear testimony that Jesus Ch
 [^6]: See [[John 3.16|John 3:16]].
 
 
+
+
 #Divine_Nature #Jesus_Christ #Prayer #Service

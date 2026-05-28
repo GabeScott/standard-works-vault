@@ -73,4 +73,6 @@ We plead with you to take time for your children and your grandchildren while th
 I know that we are all spirit children of a loving Heavenly Father, brothers and sisters, every one of us with a glorious destiny if we will humble ourselves as little children and keep the commandments of God. May we be blessed with the Spirit of Christ in our own lives, and may we have his Spirit with us in teaching little children is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Teaching

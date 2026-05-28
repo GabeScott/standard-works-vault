@@ -71,4 +71,6 @@ We are, then, because of his great love and because of our desire to be guided b
 I testify of the great blessing it is to know these things. I am humbly grateful for scriptural testaments and for my knowledge that Christ is alive and heads his church. I know he can be alive in each of us as we keep his commandments, and I say this humbly in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Conversion #Covenants #Humility

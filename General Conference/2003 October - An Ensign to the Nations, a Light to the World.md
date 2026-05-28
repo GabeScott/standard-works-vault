@@ -117,4 +117,6 @@ The Lord has said to us:
 “Look unto me in every thought; doubt not, fear not” ([[D&C 6.34|D&C 6:34, 36]][[D&C 6.36|]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Example #Media #Morality #Priesthood #Women #Youth

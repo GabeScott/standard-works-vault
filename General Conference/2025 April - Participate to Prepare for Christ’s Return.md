@@ -150,4 +150,6 @@ In earnestly seeking to represent the Savior, we become more like Him.[^34] That
 [^35]: [[D&C 1.11|Doctrine and Covenants 1:11–12]][[D&C 1.12|]].
 
 
+
+
 #Church_Callings #Preparation #Second_Coming #Service

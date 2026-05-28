@@ -59,4 +59,6 @@ May we serve with an eye single to the glory of God and do what the Lord wants u
 I am a witness that God lives. I know he lives and that he hears and answers prayers, for he has heard and answered mine. I bear you my testimony that I know that Jesus is the Christ and that he lives. I know he lives, that he has reestablished his church upon the earth in our own day and time through the great prophet Joseph Smith, wonderful man that he was; that we have a prophet of God on earth today, President Joseph Fielding Smith, whom you heard this morning; that this is the church and kingdom of God, that the decisions are made by revelation in this church under the direction of our Lord and Savior, Jesus Christ, whose church it really is. I bear this witness to you in all soberness in the name of Jesus Christ. Amen.
 
 
+
+
 #Family_Home_Evening #Sacrifice

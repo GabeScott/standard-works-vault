@@ -27,4 +27,6 @@ Now, brothers and sisters, we are anxious to listen to the messages which will b
 May we—all of us, here and elsewhere—be filled with the Spirit of the Lord and be uplifted and inspired as we listen and learn. In the name of Jesus Christ, our Savior, amen.
 
 
+
+
 #General_Conference #Temples

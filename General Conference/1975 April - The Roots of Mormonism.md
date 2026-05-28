@@ -63,4 +63,6 @@ Yes, Spencer W. Kimball is a prophet of the living God, and he makes the decisio
 I bear witness that if we follow the prophet, we will have blessings unnumbered and that the programs of the Church will work, for they will bring people to an understanding of their responsibility to their Heavenly Father as well as to their fellowman, and they will love to carry out these assignments. This is the church of Jesus Christ and he runs this church. I bear this record in the name of Jesus Christ. Amen.
 
 
+
+
 #Church_Doctrine

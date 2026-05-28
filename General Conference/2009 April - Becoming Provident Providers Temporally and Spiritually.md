@@ -63,4 +63,6 @@ I testify that the appetite to possess worldly things can only be overcome by tu
 I bear my special witness that through the Atonement He has overcome all things. May each of us also overcome worldly temptation by coming unto Him and by becoming provident providers both temporally and spiritually for ourselves and others is my humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Addiction #Financial_Management #Self-Reliance

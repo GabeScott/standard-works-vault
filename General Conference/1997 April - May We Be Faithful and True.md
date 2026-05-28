@@ -55,4 +55,6 @@ May I, in closing, repeat the words of Jacob: “But behold, I, Jacob, would spe
 May we be faithful and true, doing our duty to move forward the eternal work of the Lord, blessing our Father’s children wherever we can touch their lives, is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Growth #Church_Leaders #Faith #Jesus_Christ #Kingdom_Of_God #Pioneers #Quorums_Of_Seventy #Relief_Society #Temples

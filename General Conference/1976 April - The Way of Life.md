@@ -117,4 +117,6 @@ The prophet Lehi bore like witness when he said to his son, Jacob, “men are in
 That we may all know by the witness of the Holy Spirit where we came from, why we are here, and where we go after we leave this life; and that by living righteously we “shall have glory added upon \[our\] heads for ever and ever,” I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Commandments #Plan_Of_Salvation

@@ -116,4 +116,6 @@ I testify that you were called of God and you are sent to serve His children. He
 [^9]: See [[Abraham 3.27|Abraham 3:27]].
 
 
+
+
 #Activation #Brotherhood #Priesthood #Service

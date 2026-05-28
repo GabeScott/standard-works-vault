@@ -105,4 +105,6 @@ I think the song written by William Clayton is as important for our encouragemen
 May the Lord bless each one of you to accomplish your goal in life, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Plan_Of_Salvation #Temptation

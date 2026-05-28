@@ -39,4 +39,6 @@ Temples are a vital part of the Restoration of the gospel of Jesus Christ in its
 As we close this conference, we again express our love for you. We pray that God will shower His blessings and watchcare upon each of you. Together we are engaged in His sacred service. With courage, let us all press on in the glorious work of the Lord! For this I pray in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Blessings #Covenants #Temple_Work #Temples

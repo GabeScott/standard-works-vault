@@ -56,4 +56,6 @@ As you share your light, others will find greater light too. Is there anyone who
 Jesus Christ is the light that we must hold up. “He is the light, the life, and the hope of the world. His way is the path that leads to happiness in this life and eternal life in the world to come” (“The Living Christ: The Testimony of the Apostles,” *Liahona* and *Ensign,* Apr. 2000, 2–3). May we each shine on with His light, in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Love #Service #Spirituality

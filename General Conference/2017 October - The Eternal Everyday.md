@@ -168,4 +168,6 @@ I bear a sure witness of the Savior and His Atonement and the overwhelming impor
 [^40]: Edmund Vance Cooke, “The Eternal Everyday,” *Impertinent Poems* (1907), 21.
 
 
+
+
 #Forgiveness #Humility #Jesus_Christ #Missionary_Work #Modesty #Pride

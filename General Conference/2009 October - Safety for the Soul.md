@@ -90,4 +90,6 @@ Brothers and sisters, God always provides safety for the soul, and with the Book
 [^15]: [[Joseph Smith Matthew 1.37|Joseph Smith—Matthew 1:37]].
 
 
+
+
 #Book_Of_Mormon #Endurance #Hope #Testimony

@@ -136,4 +136,6 @@ I know Jesus Christ lives. He is our Redeemer. And He loves you and me with all 
 [^30]: See [[D&C 4.5|Doctrine and Covenants 4:5]]; [[D&C 25.10|25:10]].
 
 
+
+
 #Commandments #Discipleship #Jesus_Christ #Obedience #Scripture_Study #Service

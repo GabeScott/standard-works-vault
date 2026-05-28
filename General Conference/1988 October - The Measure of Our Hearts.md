@@ -115,4 +115,6 @@ I bear my testimony and witness that the gospel of Jesus Christ has the power to
 We are led by a living prophet today. President Ezra Taft Benson has a pure, gentle, honest, kind, and loving heart. This I know. In the name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Honesty #Judging #Love

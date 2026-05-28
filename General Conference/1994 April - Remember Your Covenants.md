@@ -55,4 +55,6 @@ One of my simple answers tonight is to constantly remember your covenants, to ac
 I testify that Jesus lives, that this is the only true church, that the priesthood of the Son of God is vested herein, and that prophets, seers, and revelators who preside over this church are appointed to preserve the pure doctrine of Jesus Christ and the authority of his priesthood for the salvation of his people. In the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Marriage #Priesthood #Sacrament #Temples

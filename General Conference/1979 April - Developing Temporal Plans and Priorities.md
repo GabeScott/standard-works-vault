@@ -101,4 +101,6 @@ Now may I turn to an example here in the United States where conditions are cons
 As we witness what takes place when priesthood and temporal leaders first catch the vision of what the Lord expects, then, working in the proper councils, plan well, and then execute the plan, we see the fulfillment of the teachings of modern prophets as well as those of ancient times. May we go forth from this conference with a desire to “learn \[our\] duty, and … act in the office in which \[we are\] appointed, in all diligence” ([[D&C 107.99|D&C 107:99]]). I pray. In the name of Jesus Christ, amen.
 
 
+
+
 #Councils #Welfare

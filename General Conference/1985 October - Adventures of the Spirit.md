@@ -93,4 +93,6 @@ Jesus lives and loves us. Resurrected, glorified, exalted, He stands physically 
 As a witness, I testify of it in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work

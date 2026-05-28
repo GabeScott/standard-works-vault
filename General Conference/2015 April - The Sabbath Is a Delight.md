@@ -138,4 +138,6 @@ With love in my heart, I leave this with you as my prayer, testimony, and blessi
 [^24]: [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
 
+
+
 #Family_History #Parenthood #Sabbath #Teaching

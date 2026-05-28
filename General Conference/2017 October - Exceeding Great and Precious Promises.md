@@ -164,4 +164,6 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 [^31]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
 
+
+
 #Covenants #Divine_Nature #Home #Ordinances #Sabbath #Temples

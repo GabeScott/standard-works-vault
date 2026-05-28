@@ -31,4 +31,6 @@ I am grateful for many opportunities I’ve had to bear my testimony of the trut
 Let us all be diligent and obedient in keeping the commandments of the Lord, that we may be worthy to receive the blessings he has in store for the faithful, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Gratitude

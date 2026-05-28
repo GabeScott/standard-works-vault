@@ -47,4 +47,6 @@ This strong woman, though physically helpless, had the *power* to love, to motiv
 My plea for each of us is to recognize that God has given each of us power—the power to act, to choose, to serve, to love, and to accomplish *much good.* Perhaps it is time to take control of ourselves. Our prophet, Gordon B. Hinckley, has said, “Be faithful. … Do good.” He has told us: “We have nothing to fear. God is at the helm. … He will shower down blessings upon those who walk in obedience to His commandments” (in Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|p. 95]]; or *Ensign,* May 1995, p. 71). It is my prayer that we will seek the power of righteousness in our lives by following the counsel of the living prophet and by living the teachings of our Savior, Jesus Christ, in His name, amen.
 
 
+
+
 #Disabilities #Government #Priesthood #Spirituality

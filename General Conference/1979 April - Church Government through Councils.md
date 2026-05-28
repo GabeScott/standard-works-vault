@@ -147,4 +147,6 @@ This seems to me to be the pattern by which the Lord would have us operate throu
 Brethren and sisters, we want you to know that our whole interest has been to do what is best for the kingdom. Today we are taking a step which *is* for the good of the kingdom. May the Lord bless us in our efforts as we implement this system of priesthood councils so that we, under the operation of the Spirit, may have greater unity, accord, and effectiveness in building the Lord’s kingdom, which I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Councils

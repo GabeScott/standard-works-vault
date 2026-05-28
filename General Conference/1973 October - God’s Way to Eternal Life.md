@@ -137,4 +137,6 @@ May we radiate from our countenance the light of life and walk as Jesus walked.
 In the name of Jesus Christ. Amen.
 
 
+
+
 #Plan_Of_Salvation #Spirituality #Truth

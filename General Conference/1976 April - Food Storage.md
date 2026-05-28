@@ -81,4 +81,6 @@ In his October 1973 conference address, President Ezra Taft Benson gave some exc
 I bear my humble witness to you that the great God of heaven will open doors and means in a way we never would have supposed to help all those who truly want to get their year’s supply. I know we will have time and money if we will commit and keep the commitment. In the name of Jesus Christ. Amen.
 
 
+
+
 #Self-Reliance

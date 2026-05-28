@@ -62,4 +62,6 @@ Brothers and sisters, seeing your example, I pledge anew *my* determination to b
 [^5]: [[3 Nephi 17.20|3 Nephi 17:20–21]][[3 Nephi 17.21|]].
 
 
+
+
 #Gratitude #Individual_Worth #Sacrifice #Service

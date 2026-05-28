@@ -91,4 +91,6 @@ I encourage all to realize the importance, and the great asset that is ours, of 
 I pray for the blessings of the Lord upon all who seek to do his will, in the name of Jesus Christ. Amen.
 
 
+
+
 #Agency #Satan

@@ -109,4 +109,6 @@ Those are but a few of the scriptural instructions clearly indicating that Godâ€
 I am grateful that I can witness to you that Jesus is the Christ, and He is the Son of God. By following Him in faith and trust, all may find the sweet inner peace the gospel offers to us as it has been taught to us so beautifully during this conference. To this I humbly testify in the name of Jesus Christ, amen.
 
 
+
+
 #Conscience #Forgiveness #Jesus_Christ #Peace

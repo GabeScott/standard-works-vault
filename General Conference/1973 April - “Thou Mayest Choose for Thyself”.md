@@ -113,4 +113,6 @@ We cannot go astray if we listen to the prophet’s voice and follow him, and as
 May we choose wisely, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Agency #Media #Morality #Obedience

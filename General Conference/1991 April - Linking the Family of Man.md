@@ -91,4 +91,6 @@ James E. Talmage wrote: “Compliance with the ordinance \[of baptism\] has been
 This I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Family_History #Temple_Work

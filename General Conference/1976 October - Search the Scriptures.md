@@ -47,4 +47,6 @@ We should search the scriptures and ponder over the truths contained in them, fo
 I bear solemn testimony that inspired men are leading the Church today. Let us hearken to their voices and obey their teachings, for which I pray, in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Scriptures

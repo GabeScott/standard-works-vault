@@ -97,4 +97,6 @@ And now in line with these remarks, for three things I pray:
 3. That through faithful observance of the principles of tithing, the fast, and the welfare program, we will prepare ourselves to redeem Zion and ultimately live the united order is my prayer, in the name of Jesus Christ, our Lord. Amen.
 
 
+
+
 #Consecration #Welfare

@@ -61,4 +61,6 @@ My hope and prayer today is that we will look to ourselves with new responsibili
 I leave you these thoughts and my testimony in the name of Him, the perfect example, even Jesus Christ. Amen.
 
 
+
+
 #Self-Esteem

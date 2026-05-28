@@ -113,4 +113,6 @@ I do not invite anyone to become a seeker after a sign, but to prepare a mind an
 I bear witness that the revelations are true. I have tested them. There sit before us in this conference the General Authorities of the Church, fifteen men among them called and ordained as apostles, as special witnesses of the Lord Jesus Christ. I bear witness that he lives. I have that witness, and testify that the gospel of Jesus Christ is the power unto salvation, and that each of us through seeking can know that these diamonds are genuine, in the name of Jesus Christ. Amen.
 
 
+
+
 #Scriptures

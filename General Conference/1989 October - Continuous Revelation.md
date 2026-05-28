@@ -73,4 +73,6 @@ We make no claim of infallibility or perfection in the prophets, seers, and reve
 I witness humbly that I know the Lord still guides his church through his servants, regardless of any individual imperfections. I pray that we may be responsive to his Spirit and be found listening to the oracles he has appointed. I so pray because I know that we mortals, without the aid of revelation, cannot know the purposes of God. In the name of Jesus Christ, amen.
 
 
+
+
 #Leadership #Prophecy #Spirituality

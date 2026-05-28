@@ -38,4 +38,6 @@ It is my prayer that we may be filled with the Spirit of the Lord as we listen a
 [^4]: David O. McKay, in Conference Report, Apr. 1959, 122.
 
 
+
+
 #Missionary_Work

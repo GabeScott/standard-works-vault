@@ -41,4 +41,6 @@ Feeling the intense pressure from peers and the need to be accepted, some may as
 May we all stand tall on the side of righteousness, I pray in the sacred name of our Lord and Master, Jesus Christ, amen.
 
 
+
+
 #Courage #Family #Jesus_Christ #Joy #Motherhood #Neighbors #Profanity #Satan #Sin #Spirituality #Worldliness #Youth

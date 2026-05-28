@@ -39,4 +39,6 @@ I pray our Heavenly Father will help us to communicate more effectively in the h
 May our gracious and kind Heavenly Father help us in our needs and desires for more effective family communication. Communication can help build family unity if we will work at it and sacrifice for it. For this goal, I pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Communication #Family #Love

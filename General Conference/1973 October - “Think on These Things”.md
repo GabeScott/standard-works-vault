@@ -85,4 +85,6 @@ When I think that the Lord has a living oracle guiding his earthly kingdom, and 
 And we have the promise that if we seek him with full purpose of heart, keeping his commandments and walking uprightly before him, we shall indeed see his face and eventually be inheritors with him of eternal life in his Father’s kingdom. Of this I testify, and for this I pray for all of us, in the name of Jesus Christ. Amen.
 
 
+
+
 #Obedience #Spirituality

@@ -93,4 +93,6 @@ Yes, it all starts right here with you and me and the commitment or vow that we 
 And this is my hope and prayer for all of us, in the name of Jesus Christ. Amen.
 
 
+
+
 #Family_History #Jesus_Christ #Missionary_Work #Service

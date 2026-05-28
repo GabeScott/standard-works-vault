@@ -118,4 +118,6 @@ If you are caught on a plateau of spiritual healing and don’t seem to be makin
 [^27]: [[Mosiah 24.15|Mosiah 24:15]].
 
 
+
+
 #Adversity #Atonement #Charity #Faith #Forgiveness #Healing #Jesus_Christ #Love #Miracles #Patience #Satan

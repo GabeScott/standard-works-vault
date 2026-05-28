@@ -120,4 +120,6 @@ I declare my witness of these truths in the name of Jesus Christ, amen.
 [^17]: See [[1 Corinthians 12.3|1 Corinthians 12:3]]; Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 243.
 
 
+
+
 #Conscience #Holy_Ghost #Spirituality

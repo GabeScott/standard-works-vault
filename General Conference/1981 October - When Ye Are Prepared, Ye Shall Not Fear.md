@@ -81,4 +81,6 @@ Let us return to our wards and stakes and evaluate again how well we are prepare
 May we be quickened in our hearts this night with a firm resolve that high on the priority list during the months ahead will be the strengthening of our priesthood quorums, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Priesthood

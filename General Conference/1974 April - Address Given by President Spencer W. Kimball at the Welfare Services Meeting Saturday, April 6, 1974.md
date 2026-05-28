@@ -37,4 +37,6 @@ Now may the Lord bless you. It is wonderful to be with you here this morning and
 God bless you. We pray for you and we ask his blessing upon you always, in the name of Jesus Christ. Amen.
 
 
+
+
 #Welfare

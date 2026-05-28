@@ -146,4 +146,6 @@ I promise that as you do so, you will discover your best self—your *real* self
 [^8]: [[Alma 32.42|Alma 32:42]].
 
 
+
+
 #Commandments #Divine_Nature #God_The_Father #Love #Service

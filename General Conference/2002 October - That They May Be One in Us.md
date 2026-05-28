@@ -77,4 +77,6 @@ Surely we will not be one with God and Christ until we make Their will and inter
 May God hear the Savior’s prayer and lead us all to be one with Them is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Holy_Ghost #Humility #Unity

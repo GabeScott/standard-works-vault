@@ -83,4 +83,6 @@ My dear brethren, we have been given much, and much is required of us. May you y
 I declare my witness that Jesus is the Christ, our Savior and Redeemer. I know that He lives! And I witness that we, as holders of the priesthood, are His representatives in the glorious work of proclaiming His gospel, today and always. In the sacred name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Missionary_Work #Obedience #Preparation #Priesthood

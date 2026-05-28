@@ -77,4 +77,6 @@ It is not enough to know that God lives, that Jesus Christ is our Savior, and th
 I testify that these things are true, and I pray that we will do all that is necessary to avoid the deceptions of the devil, in the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Repentance #Temptation

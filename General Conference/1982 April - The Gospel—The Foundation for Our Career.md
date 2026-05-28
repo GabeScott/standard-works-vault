@@ -149,4 +149,6 @@ The gospel of Jesus Christ is the formula for success. Every principle of the go
 God bless the members of this Church, that you can be happy with who you are and where you are, that you can improve yourselves. We pray that God will bless those who are struggling now with unemployment, with the loss of their employment, with the fear of that loss. May he bless us that we can build into our lives those principles of reliance and integrity that have been part of the gospel from the very beginning, for the gospel is true. Of this I bear witness, in the name of Jesus Christ, amen.
 
 
+
+
 #Employment #Work

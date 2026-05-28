@@ -101,4 +101,6 @@ Nephi’s testimony gave him the courage to stand up and be counted as one who o
 Just as the Lord knew Nephi, God knows us and loves us. This is our time; these are our days. We are where the action is. Our firm personal testimony will motivate us to change ourselves and then bless the world. Of this I testify and leave you my blessing as an Apostle of the Lord, in the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Testimony

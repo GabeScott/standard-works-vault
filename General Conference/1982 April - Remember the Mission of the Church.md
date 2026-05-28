@@ -55,4 +55,6 @@ Let us, then, press on confidently in the work of the Lord as we look forward to
 Again, I express my love for the Lord, for my wife and family, for my Brethren, and for each of you. I feel your love, and I hope that you feel mine in return. I leave my blessings with you. God, our Heavenly Father, lives. Jesus is the Christ, the Only Begotten of the Father in the flesh. He lives. He is our Elder Brother, our Savior, and our Redeemer. This is my solemn testimony to you, my beloved brothers and sisters, and I share it with you in love and in gratitude and in humility, in the name of Jesus Christ, amen.
 
 
+
+
 #Mission_Of_The_Church

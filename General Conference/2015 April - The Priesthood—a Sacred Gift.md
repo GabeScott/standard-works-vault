@@ -70,4 +70,6 @@ As bearers of the priesthood of God, we are engaged in the work of the Lord Jesu
 [^2]: [[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]].
 
 
+
+
 #Aaronic_Priesthood #Blessings #Church_Callings #Duty #Priesthood

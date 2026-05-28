@@ -75,4 +75,6 @@ With John of old, we bear especial witness and testify that “the Father sent t
 I thank God for the Holy Savior, for the compassionate Christ, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Love #Service

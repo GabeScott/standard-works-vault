@@ -146,4 +146,6 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 [^14]: [[D&C 1.28|Doctrine and Covenants 1:28]].
 
 
+
+
 #Conversion #Discipleship #Perspective #Pride #Priorities

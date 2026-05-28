@@ -93,4 +93,6 @@ The gift of the Atonement of Jesus Christ provides us at all times and at all pl
 For this I give thanks to our Heavenly Father, and of this I bear testimony with all my heart and soul in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Forgiveness #Repentance

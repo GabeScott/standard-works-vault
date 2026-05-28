@@ -233,4 +233,6 @@ All this—what more could be desired or asked for? All these blessings and nume
 I bear witness that God has given us conditionally all these and thousands of other good things. He has organized his true church upon the earth. This is his church. He has given us the total program which will carry us forward toward perfection; and he has given us prophets to lead and guide us. And President Harold B. Lee today is the leader of this kingdom and this people, and he is a prophet of God. This I know. To this I bear solemn witness in the name of Jesus Christ. Amen.
 
 
+
+
 #Covenants

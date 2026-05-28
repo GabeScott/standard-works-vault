@@ -79,4 +79,6 @@ Therefore, in the words of Joseph Smith, “Stand fast, ye Saints of God, hold o
 These things I say in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Faith #Patience

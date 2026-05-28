@@ -43,4 +43,6 @@ So we have the thousands, even millions, of throbbing hearts—heroes, I suspect
 May a humble and submissive heart be our empowerment from God, with all of its attendant blessings, is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Couple_Missionaries #Gratitude #Humility

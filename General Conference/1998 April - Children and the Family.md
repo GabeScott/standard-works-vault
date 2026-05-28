@@ -87,4 +87,6 @@ I leave you my witness that the proclamation on the family, which I referred to 
 God lives; Jesus is the Christ; this is His Church, led by a living prophet, in the name of Jesus Christ, amen.
 
 
+
+
 #Children #Example #Family #Joy #Parenthood #Prayer #Prophets

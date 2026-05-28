@@ -103,4 +103,6 @@ And every member of his church has this promise: That if he remains true and fai
 In the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Consecration #Obedience #Sacrifice

@@ -101,4 +101,6 @@ And so four great civic standards for the faithful Saints are, first, the Consti
 God bless us all that we may use these standards and by so doing bless ourselves, our families, our community, our nation, and the world, I humbly pray, as I bear my witness to the truth of this great latter-day work, in the name of Jesus Christ. Amen.
 
 
+
+
 #Book_Of_Mormon #Standards #U.S._Constitution

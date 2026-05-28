@@ -206,4 +206,6 @@ On a future day, “every knee shall bow, and every tongue confess”[^39] that 
 [^39]: [[Mosiah 27.31|Mosiah 27:31]].
 
 
+
+
 #Discipleship #Faith #Jesus_Christ #Service

@@ -93,4 +93,6 @@ I feel great gratitude for my baptism and confirmation into The Church of Jesus 
 I testify of the divinity of the gospel, restored in this latter day. I testify of the Atonement of Jesus Christ and the efficacy and power of the priesthood and its gospel ordinances. I pray that each of us as members of His kingdom will understand that our baptism and confirmation is the gateway *into* His kingdom. When we enter, we covenant to be *of* His kingdom—forever! In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Angels #Atonement #Attitude #Children #Covenants #Endurance #Example #Holy_Ghost #Jesus_Christ #Ordinances #Parenthood #Plan_Of_Salvation #Sacrament #Scripture_Study #Temptation #Word_Of_Wisdom

@@ -67,4 +67,6 @@ Harry Emerson Fosdick once wrote: “Some Christians carry their religion on the
 I hope it is clearly evident when the world looks at us that we are known for our buoyancy—that we live, believe, and practice real Christian ideas and doctrine. May God bless us that we may look forward to a new century with faith, testimony, confidence, and determination to better prepare ourselves for the eternal life we are all seeking. May the new year begin with the sound of trumpets and joyful shouts as we make the most of this coming year of jubilee is my humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Christianity #Family #Habits #Sin

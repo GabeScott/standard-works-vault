@@ -79,4 +79,6 @@ The very conference in which we are participating this weekend is yet another ex
 I am thankful for the Restoration of the gospel of Jesus Christ through the Prophet Joseph Smith and for the knowledge we have today about the Lord’s tender mercies. Our desires, faithfulness, and obedience invite and help us to discern His mercies in our lives. As one of His servants, I declare my witness that Jesus is the Christ, our Redeemer and our Savior. I know that He lives and that His tender mercies are available to all of us. Each of us can have eyes to see clearly and ears to hear distinctly the tender mercies of the Lord as they strengthen and assist us in these latter days. May our hearts always be filled with gratitude for His abundant and tender mercies. In the sacred name of Jesus Christ, amen.
 
 
+
+
 #Attitude #Blessings #Faith #Holy_Ghost #Mercy #Obedience #Peace #Spirituality

@@ -65,4 +65,6 @@ I have a witness to the truth of what President Smith said tonight about the lea
 God help us to understand this, and the great honor he has placed upon us by giving us the priesthood, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Covenants #Priesthood

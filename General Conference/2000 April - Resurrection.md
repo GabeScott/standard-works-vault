@@ -105,4 +105,6 @@ We believe in the literal, universal resurrection of all mankind because of “t
 I testify of that reality and of the reality of His Resurrection and ours, in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Commandments #Courage #Death #Disabilities #Faith #Family_History #Forgiveness #Jesus_Christ #Joy #Morality #Perspective #Plan_Of_Salvation #Repentance #Resurrection #Temples

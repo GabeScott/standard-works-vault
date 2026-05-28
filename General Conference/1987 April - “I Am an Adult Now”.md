@@ -81,4 +81,6 @@ Mothers, fathers, and family members, maturity does not necessarily come with ag
 God is our Father. Jesus is the Christ. May our knowledge of them on a continuing basis give us Christ-centered adult conduct, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Obedience #Responsibility

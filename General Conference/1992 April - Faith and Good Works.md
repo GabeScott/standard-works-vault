@@ -45,4 +45,6 @@ One day each of us will cross the finish line. Will it likewise be to the cheers
 I add my witness to the many that have been borne from this pulpit: I know God lives. Jesus Christ is his Son—our Savior and our Redeemer. He has the power to lift us up if we will come unto him in faith, with good works, and with all of our hearts. I so testify in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Example #Faith #Service

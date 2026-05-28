@@ -123,4 +123,6 @@ May each of us treasure this truth; one cannot forget mother and remember God. O
 May we, by our thoughts and our actions, honor God and mother, I pray humbly yet earnestly, in the name of Jesus Christ. Amen.
 
 
+
+
 #Love #Motherhood #Respect

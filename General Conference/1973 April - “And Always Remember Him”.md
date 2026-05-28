@@ -75,4 +75,6 @@ One of the surest ways to obtain and retain the Spirit of the Lord is to so live
 That we may do this and thus obtain the blessings predicated upon this law, is my humble prayer, which I ask in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Sacrament

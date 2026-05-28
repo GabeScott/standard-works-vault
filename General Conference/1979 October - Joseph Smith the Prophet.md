@@ -83,4 +83,6 @@ The Lord himself testified of the Prophet Joseph Smith as He gave a revelation t
 Joseph was the prophet of the Restoration. I testify to you of his divinity and of his greatness, in the name of Jesus Christ, amen.
 
 
+
+
 #Joseph_Smith #Restoration

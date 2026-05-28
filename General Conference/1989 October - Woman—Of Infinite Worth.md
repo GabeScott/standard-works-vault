@@ -99,4 +99,6 @@ A woman’s richest rewards will come as she rises to fulfill her destiny as a d
 God bless us to honor each woman in her divine mission as a woman of infinite worth, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Women

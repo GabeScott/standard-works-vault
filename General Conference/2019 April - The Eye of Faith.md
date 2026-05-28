@@ -166,4 +166,6 @@ I know the Savior lives. I witness that He is the source of all truth that reall
 [^23]: See [[Alma 7.12|Alma 7:12]]; Jesus Christ suffered not only for our sins but for our infirmities as well: “He will take upon him death, that he may loose the bands of death which bind his people; and he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people according to their infirmities.” (Synonyms for *infirmities* would be *sickness, weakness, affliction, deficiency.*) See [[D&C 88.6|Doctrine and Covenants 88:6]]: “He descended below all things, in that he comprehended all things, that he might be in all and through all things, the light of truth.”
 
 
+
+
 #Faith #Family #Holy_Ghost #Marriage #Truth

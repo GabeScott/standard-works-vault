@@ -114,4 +114,6 @@ Let us simplify our lives a little. Let us make the changes necessary to refocus
 [^12]: David O. McKay quoting J. E. McCulloch, *Home: The Savior of Civilization* (1924), 42; in Conference Report, Apr. 1935, 116.
 
 
+
+
 #Family #Stress

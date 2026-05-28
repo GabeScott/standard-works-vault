@@ -39,4 +39,6 @@ But it is that which we may not recognize for what it is that we must be concern
 I bear solemn witness that God lives, that He cares enough to direct His prophets for our blessing and edification. I bear witness that as we seek direction from our Father, as we follow the prophets, our faith will be sustained and enlarged. And so, my brothers and sisters, my farewell words to you today, not given casually and not given without meaning and contemplation, but given with the soberness and the sincerity of my heart, are simply “Keep the faith.” In the name of Jesus Christ, amen.
 
 
+
+
 #Endurance #Faith #Humility #Pride

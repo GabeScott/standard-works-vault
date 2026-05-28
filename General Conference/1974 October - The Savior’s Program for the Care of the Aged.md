@@ -127,4 +127,6 @@ Life can be so full and rich for our beloved senior Saints with snowy crowns. We
 *“To visit the fatherless and widows in their affliction.”* It is my prayer that we may be filled with pure love of Christ toward our beloved senior Saints. This is his church. I believe if he were here he would spend much time with them. May we follow in his footsteps. In the name of Jesus Christ. Amen.
 
 
+
+
 #Elderly #Welfare

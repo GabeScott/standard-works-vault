@@ -49,4 +49,6 @@ The need for leaders who understand the principles of the gospel and who can car
 Let me close by expressing my love and gratitude for goodly parents, to my choice wife and companion, and to our children and grandchildren, who sustain us so well with their prayers and the lives they lead. To them and to you I testify that the gospel of Jesus Christ is true, that Jesus lives and loves each of us with an unbounded love, and that Ezra Taft Benson is His chosen prophet today, in the name of Jesus Christ, amen.
 
 
+
+
 #Leadership #Scripture_Study

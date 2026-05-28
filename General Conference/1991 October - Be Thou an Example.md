@@ -105,4 +105,6 @@ The tenderness of this experience was that Robbie went from challenging the idea
 Each of us can feel our Savior’s love through the righteous example of others. We, too, can strive to live in such a way that we can be examples of the believers. I testify that Jesus, our Savior, is the Christ, our perfect example, in his name, amen.
 
 
+
+
 #Example #Love #Testimony

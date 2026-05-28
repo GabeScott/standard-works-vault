@@ -59,4 +59,6 @@ To the testimonies of these mighty men I add my testimony. I know that Jesus Chr
 As we begin this conference let us wait upon the Lord for His blessing and His divine approbation. I pray the Lord to bless you; and as His servant, I bless you. In the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Missionary_Work

@@ -61,4 +61,6 @@ Should you have been disobedient to His commandments and feel unworthy, recogniz
 The Savior loves each of us and will make it possible for our every need to be satisfied as we qualify by obedience for all of the blessings He wants us to have on this earth. I love and adore Him. As His authorized servant I solemnly testify with every capacity of my being that He lives, in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Jesus_Christ #Teaching

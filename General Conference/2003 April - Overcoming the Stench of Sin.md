@@ -53,4 +53,6 @@ If the Spirit is pricking your heart to correct something in your life, know thi
 I lovingly plead, “Do not procrastinate the day of your repentance” ([[Alma 34.33|Alma 34:33]]). Start the process now. Remove the stench of sin with the remedy of repentance. Then, through the Atonement, the Savior can wash you clean. I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Conscience #Repentance #Sin

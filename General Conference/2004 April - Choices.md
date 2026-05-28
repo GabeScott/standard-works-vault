@@ -90,4 +90,6 @@ Brethren, it is my belief and testimony that collectively we have the responsibi
 [^10]: [[2 Nephi 15.20|2 Nephi 15:20]].
 
 
+
+
 #Agency #Prayer #Repentance #Responsibility

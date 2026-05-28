@@ -103,4 +103,6 @@ The Prophet Joseph Smith said, “It is a great thing to inquire at the hands of
 I testify that this is the Church of Jesus Christ, which our Savior has restored in these latter days with the authority and duty to preach his gospel and his commandments to every nation, kindred, tongue, and people. In the name of Jesus Christ, amen.
 
 
+
+
 #Prayer #Respect

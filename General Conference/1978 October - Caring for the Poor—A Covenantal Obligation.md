@@ -155,4 +155,6 @@ In conclusion, brothers and sisters, it seems to me that the scriptures clearly 
 That each of us will fully discharge our obligation under that covenant, I humbly pray, and leave my blessing with you, in the name of Jesus Christ. Amen.
 
 
+
+
 #Covenants #Welfare

@@ -43,4 +43,6 @@ These Brethren to whom I have referred know God and Jesus Christ, whom He has se
 I know that God lives, that Jesus is the Christ, that these Brethren whom I have mentioned were and are true prophets of the living God and have served and do serve under the direction of the Lord, who is the true head of the Church. I say this in the name of our Lord, Jesus Christ, amen.
 
 
+
+
 #Church_Leaders #Prophets #Testimony

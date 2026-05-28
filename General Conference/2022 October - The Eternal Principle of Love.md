@@ -110,4 +110,6 @@ Jesus is the Christ, the Son of the living God. He lives, and because He lives, 
 [^12]: [[Matthew 26.39|Matthew 26:39]].
 
 
+
+
 #Adversity #Jesus_Christ #Love

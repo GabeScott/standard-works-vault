@@ -163,4 +163,6 @@ The bishop, through his counselor responsible for personal welfare matters, has 
 God bless you, our beloved leaders, to have charity for the unfortunate, which charity is the true love of Christ. “For now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.13|1 Cor. 13:13]].) In the name of Jesus Christ. Amen.
 
 
+
+
 #Employment #Welfare

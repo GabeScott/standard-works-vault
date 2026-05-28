@@ -83,4 +83,6 @@ In those discouraging hours before immature, disinterested, and sometimes impude
 The Lord was a teacher. I bear testimony of Him, and pray that He will bless all those who follow in His footsteps to teach the gospel of Jesus Christ. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Scriptures #Self-Control

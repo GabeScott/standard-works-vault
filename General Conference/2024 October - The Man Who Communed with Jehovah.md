@@ -140,4 +140,6 @@ Joseph Smith is now part of that heavenly priesthood of which he spoke. As he pr
 [^29]: *Hymns*, no. 27.
 
 
+
+
 #First_Vision #Joseph_Smith #Repentance #Restoration

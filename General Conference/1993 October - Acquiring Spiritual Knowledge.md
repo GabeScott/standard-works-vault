@@ -121,4 +121,6 @@ The privilege of learning absolute truth is sacred to me. I stand in awe that ou
 I solemnly testify that Jesus Christ guides this, His church. He knows and loves you personally. As you walk in faithful obedience, He will bless you, inspire you, and lead you to greater knowledge and capacity. I certify that He lives, in the name of Jesus Christ, amen.
 
 
+
+
 #Education #Faith #Obedience #Testimony

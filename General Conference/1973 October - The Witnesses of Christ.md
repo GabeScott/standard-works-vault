@@ -77,4 +77,6 @@ This prophet sealed his record and deposited it in a stone box in a hill. In 182
 Anyone who will do these things will also know that President Harold B. Lee is a prophet of God. I add my witness to that of the others, that I know he is as I know the others have been, and I know that God will see that this work goes on to its end as he plans it, in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Plan_Of_Salvation #Truth

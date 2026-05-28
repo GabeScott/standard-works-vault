@@ -61,4 +61,6 @@ Many years ago when I was attending a Young Women camp, I met with the young wom
 Listen again to the words of the Apostle Paul: “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]). As the pioneers of this generation, may our faith keep us on the path of eternal life, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Commandments #Faith #Jesus_Christ #Pioneers #Plan_Of_Salvation #Prophets #Temples #Young_Women

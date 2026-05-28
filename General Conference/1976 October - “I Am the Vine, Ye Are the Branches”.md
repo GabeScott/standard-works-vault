@@ -39,4 +39,6 @@ Since receiving a phone call several days ago from President Kimball, in an atte
 I bear witness today, brothers and sisters, that the Lord Jesus Christ lives, that this is his work, that President Kimball is indeed the Lord’s prophet upon the earth. The Lord will come again to reign as King of kings and as Lord of lords. May we be worthy to be with those who serve and live with him when that time comes, I pray, and solemnly invoke his blessings upon us all this day, in the name of Jesus Christ. Amen.
 
 
+
+
 #Testimony

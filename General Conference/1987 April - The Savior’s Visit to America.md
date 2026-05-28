@@ -141,4 +141,6 @@ I testify that He will come again in power and great glory and that He will leav
 May we daily be the manner of men He is and thus be prepared to meet and dwell with Him, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Jesus_Christ #Resurrection

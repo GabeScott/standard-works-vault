@@ -119,4 +119,6 @@ Of him who delivered each of us from endless death, I testify he is a teacher of
 As his witness I testify to you that he lives. In the name of Jesus Christ. Amen.
 
 
+
+
 #Disabilities #Elderly #Service

@@ -116,4 +116,6 @@ Brothers and sisters, I testify of Christ, who has the power to perfect even our
 [^12]: [[Moroni 10.32|Moroni 10:32]].
 
 
+
+
 #Grace #Individual_Worth #Jesus_Christ

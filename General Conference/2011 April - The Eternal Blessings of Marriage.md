@@ -75,4 +75,6 @@ Please pardon me for speaking of my precious wife, Jeanene, but we are an eterna
 I know what it is to love a daughter of Father in Heaven who with grace and devotion lived the full feminine splendor of her righteous womanhood. I am confident that when, in our future, I see her again beyond the veil, we will recognize that we have become even more deeply in love. We will appreciate each other even more, having spent this time separated by the veil. In the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Family #Love #Marriage #Parenthood

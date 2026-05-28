@@ -69,4 +69,6 @@ O God, our Eternal Father, Thou great Judge of the Nations, Thou who art the gov
 O Father, look with mercy upon this, our own nation, and its friends in this time of need. Spare us and help us to walk with faith ever in Thee and ever in Thy Beloved Son, on whose mercy we count and to whom we look as our Savior and our Lord. Bless the cause of peace and bring it quickly to us again, we humbly plead with Thee, asking that Thou wilt forgive our arrogance, pass by our sins, be kind and gracious to us, and cause our hearts to turn with love toward Thee. We humbly pray in the name of Him who loves us all, even the Lord Jesus Christ, our Redeemer and our Savior, amen.
 
 
+
+
 #Faith #Fatherhood #God_The_Father #Gratitude #Home #Kindness #Motherhood #Prayer #Respect #Safety #Spirituality #Women

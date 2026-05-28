@@ -85,4 +85,6 @@ Indeed, fellow priesthood holders, these statements are not the idle words of me
 I testify with all the sobriety of my heart and soul that we are committed, that we are depended upon. All things are possible in the Lord; President Lee made this crystal clear this morning in his masterful discourse at the welfare services meeting. As we unite in our faith and determination, His work will be accomplished. May this obligation burn within us. May it never be dimmed. May we be excited about the opportunity that is ours as we move forward deliberately, in humility, and with constant preparation, and do what we have to do. And I pray it in the name of Jesus Christ, the Master. Amen.
 
 
+
+
 #Joseph_Smith #Priesthood #Responsibility

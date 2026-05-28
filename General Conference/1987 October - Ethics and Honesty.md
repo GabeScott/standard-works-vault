@@ -87,4 +87,6 @@ Do we really believe in being honest, true, chaste, benevolent, and virtuous? On
 I so declare, in the name of Jesus Christ, amen.
 
 
+
+
 #Honesty #Morality

@@ -43,4 +43,6 @@ Now, brethren, these things are true. The Lord is with his people. The cause of 
 I testify that if we shall look to the First Presidency and follow their counsel and direction, no power on earth can stay or change our course as a church, and as individuals we shall gain peace in this life and be inheritors of eternal glory in the world to come. And I say this to you, my good brethren, in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #First_Presidency #Priesthood

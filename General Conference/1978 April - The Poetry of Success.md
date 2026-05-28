@@ -176,4 +176,6 @@ And I would like to extend to each of you my own blessing and appreciation in th
 And that it may always be so I sincerely pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Healing #Success

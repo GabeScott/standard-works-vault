@@ -49,4 +49,6 @@ Since the Lord has been gracious enough to open the heavens in the last days, sp
 I pray the Church will listen to President Kimball. I think it does. There is great growth and improvement. There must be more—much, much more. The great history of the gospel is still in the future. We thank thee, O God, for a prophet. In the name of Jesus Christ, amen.
 
 
+
+
 #Prophets #Spencer_W._Kimball

@@ -69,4 +69,6 @@ May you, my young Latter-day Saint friends, choose that sequence that will bring
 And so it is that I feel about the youth of this great country and particularly of this Church, and I think you know I do. You and I are friends. Wherever you are in this world, young man, and wherever you are in this universal church, young lady, my prayers and those of all those who sit here are that you may choose that sequence in life which will lead you on to great achievement, each orderly step along the way. You have heard wise counsel from this pulpit. I add my concern for you and my witness that I too know that God lives, and I think you know I know he lives. God bless us to put into action the counsel you have heard, I pray as I leave my blessing and witness here this day, in the name of Jesus Christ. Amen.
 
 
+
+
 #Marriage #Missionary_Work #Preparation #Youth

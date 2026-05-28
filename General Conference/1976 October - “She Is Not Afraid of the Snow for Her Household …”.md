@@ -63,4 +63,6 @@ As each sister participates in welfare, we feel added blessings can come into he
 It is my prayer that the preparations of the women of the Church in the area of home production and storage will enable us to be generous with our substance if needed and bring a greater security to individuals and families, so that we might be as the virtuous woman of old who was “not afraid of the snow \[of adversity\] for her household. …” ([[Proverbs 31.21|Prov. 31:21]].) In the name of Jesus Christ. Amen.
 
 
+
+
 #Preparation #Self-Reliance

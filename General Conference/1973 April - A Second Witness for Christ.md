@@ -75,4 +75,6 @@ We believe that the Savior literally leads his church through direct and continu
 To this I bear my humble witness that I know God lives and that Jesus the Christ is his Son, and that this work is true, for the Lord God has revealed it to me. And if we are the children of God, then all men can and should have this experience, in the name of Jesus Christ. Amen.
 
 
+
+
 #Book_Of_Mormon #Restoration #Resurrection

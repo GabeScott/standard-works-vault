@@ -53,4 +53,6 @@ This is God’s work. It is his kingdom we are building. Anciently the prophet D
 We call upon all men and women to forsake evil and turn to God; to work together to build that brotherhood which must be recognized when we truly come to know that God is our Father and we are his children; and to worship him and his Son, the Lord Jesus Christ, the Savior of mankind. In the authority of the Holy Priesthood in us vested, we bless the seekers of truth wherever they may be and invoke the favor of the Almighty upon all men and nations whose God is the Lord, in the name of Jesus Christ, amen.
 
 
+
+
 #Restoration

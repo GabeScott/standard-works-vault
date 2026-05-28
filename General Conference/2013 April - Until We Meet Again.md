@@ -40,4 +40,6 @@ Until we meet again in six months, I pray that the Lord will bless and keep you,
 [^2]: [[Revelation 3.20|Revelation 3:20]].
 
 
+
+
 #Gratitude #Prayer

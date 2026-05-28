@@ -81,4 +81,6 @@ We can by simple obedience help the Lord to take the lambs, His lambs, into His 
 I know that Jesus is the Christ. I know that He lives. And I know that He leads His missionaries and that He leads us in this work—His work—to bring to pass the eternal life of His Father’s children. In the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Children #Commandments #Covenants #Faith #Fellowshipping #Holy_Ghost #Humility #Jesus_Christ #Plan_Of_Salvation #Prayer

@@ -57,4 +57,6 @@ From *Elbert Hubbard’s Scrapbook* we have a classic:
 Brethren, I testify to you that the priesthood is divine. We have been given it to bless the lives of others, as well as our own. May we remember the importance of preparing hearts as we teach sacred truths. May we renew the purification process in each of us so that we might be a strength and not a hindrance to those we love most, in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Fatherhood

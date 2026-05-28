@@ -85,4 +85,6 @@ Ye shall not fear, for as the Lord said upon another occasion, the gathering and
 I know, my brethren and sisters, that God lives. I know that Jesus is the Christ. I know that the message of the restoration is true, and if we are faithful, we need not fear that which must come about. I say this in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Last_Days

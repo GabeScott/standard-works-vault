@@ -79,4 +79,6 @@ Now brothers and sisters, we have our free agency; but none of us have the free 
 I leave you my testimony, my brothers and sisters, that this Church is led by a prophet of God, and other prophets of God, who are sustained as prophets, seers, and revelators, are at his side. Let us listen to our prophet’s voice. Let us be faithful and true to the covenants we enter into, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Blessings #Covenants

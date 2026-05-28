@@ -17,4 +17,6 @@ I am grateful for President Kimball. I was watching some young people sitting in
 I know that this is the work of the Lord. I know that he lives. I know this. I know that these men, the First Presidency and the Quorum of the Twelve, are prophets and Apostles, seers and revelators, and if we will follow them, we will have eternal life. I say this in the name of Jesus Christ, amen.
 
 
+
+
 #Gratitude #Love

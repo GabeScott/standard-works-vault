@@ -59,4 +59,6 @@ In closing today, may I express my gratitude. First of all, gratitude for the ho
 I bear testimony that as we accept the invitation to come unto Christ, we will find that He can heal all wounds. He can lift our burdens and carry them for us, and we can feel “encircled about eternally in the arms of his love” ([[2 Nephi 1.15|2 Ne. 1:15]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Youth

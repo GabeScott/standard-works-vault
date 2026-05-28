@@ -65,4 +65,6 @@ I pray that as the holders of the priesthood of God we may each of us do all thi
 I testify that this is the Lord’s true Church, directed by Him through our dear prophet, even Gordon B. Hinckley, whom I love and sustain. In the name of Jesus Christ, amen.
 
 
+
+
 #Example #Family #Youth

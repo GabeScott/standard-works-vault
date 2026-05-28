@@ -53,4 +53,6 @@ Therefore we repeat our plea that members and others return to the messages of o
 It is my witness that President Ezra Taft Benson, his Counselors, and the members of the Council of the Twelve are apostles and prophets of the Lamb of God and that this Church, and its work of bringing souls to Christ, rests solidly upon the foundation of the goodness, faith, and unity of our living apostles and prophets. Jesus Christ lives and is the very cornerstone of this work of salvation. In the name of Jesus Christ, amen.
 
 
+
+
 #General_Conference #Prophets #Scriptures

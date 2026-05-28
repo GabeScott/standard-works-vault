@@ -119,4 +119,6 @@ We believe that God still speaks to his people on the earth today, and that the 
 May this testimony come to everyone who is seeking for the truth is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Joseph_Smith #Restoration

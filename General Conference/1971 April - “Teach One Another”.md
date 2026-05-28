@@ -59,4 +59,6 @@ It has been said that teaching is one of the noblest professions. The Savior giv
 We must understand these instructions and our responsibility to “teach one another the doctrine of the kingdom” ([[D&C 88.77|D&C 88:77]]), but to teach it effectively so that all of us, our children, our children’s children, and generations yet unborn will be able to perceive and comprehend the true meaning of life as proclaimed by the Master, and then have a desire to live it and eventually gain exaltation in the kingdom of our Heavenly Father, in the name of Jesus Christ. Amen.
 
 
+
+
 #Teaching

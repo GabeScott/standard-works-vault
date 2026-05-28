@@ -79,4 +79,6 @@ Using this scripture as a base and pursuing a course which the Savior referred t
 May God bless us and help us to understand this I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Holy_Ghost #Individual_Worth #Plan_Of_Salvation

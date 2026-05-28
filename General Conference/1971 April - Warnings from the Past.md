@@ -137,4 +137,6 @@ Jesus Christ does live. He is the God of this land. It is his gospel, and only h
 God grant that we may awaken to our plight and change our course while there is yet time, is my humble prayer, in the name of Jesus Christ. Amen.
 
 
+
+
 #Morality #Prophecy

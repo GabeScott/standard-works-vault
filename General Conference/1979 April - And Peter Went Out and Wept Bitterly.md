@@ -77,4 +77,6 @@ My beloved brethren and sisters who may also have drifted, the Church needs you,
 May the Lord touch you by the power of his Spirit to increase your desire. May he strengthen your resolution. May your joy be full and your peace sweet and satisfying as you return to that which you know in your heart is true, I humbly pray as I leave you my witness and testimony of him in whose name we serve, even the name of Jesus Christ, amen.
 
 
+
+
 #Loyalty

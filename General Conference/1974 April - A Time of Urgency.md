@@ -79,4 +79,6 @@ Finally, I leave with you my witness: your lamp too can runneth over with spirit
 God lives. Jesus is the Christ. He is our Redeemer, and this is His kingdom here on the earth. To this I bear humble testimony in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Preparation

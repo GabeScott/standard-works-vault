@@ -155,4 +155,6 @@ That we may ever walk in the footsteps of Jesus Christ is my humble prayer, in H
 [^17]: From “The Gate of the Year,” in James Dalton Morrison, ed., *Masterpieces of Religious Verse* (1948), 92.
 
 
+
+
 #Conversion #Jesus_Christ #Service #Temples

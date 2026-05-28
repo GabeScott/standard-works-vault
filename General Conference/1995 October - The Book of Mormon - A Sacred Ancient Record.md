@@ -79,4 +79,6 @@ The Book of Mormon is a witness.
 I am one of the witnesses that He *is* risen, and He *is* coming. In the name of Jesus Christ, amen.
 
 
+
+
 #Bible #Book_Of_Mormon #Holy_Ghost #House_Of_Israel

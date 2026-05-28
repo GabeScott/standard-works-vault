@@ -85,4 +85,6 @@ Just hours before He began the painful physical and spiritual processes of the A
 That is what Jesus taught His disciples, including “a certain lawyer,” through the parable of the good Samaritan. And that is what He is teaching us today through living prophets and apostles. Love one another. Be kind to one another despite our deepest differences. Treat one another with respect and civility. I know and testify that Jesus is the Christ, our Savior and Redeemer, and I know that He expects all of us to follow His admonition to be better neighbors, to which I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Church_History #Friendship #God_The_Father #Kindness #Love #Neighbors #Nonmembers #Religious_Freedom #Respect #Service #Tolerance #Unity

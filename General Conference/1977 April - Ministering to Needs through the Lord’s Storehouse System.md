@@ -75,4 +75,6 @@ That’s the Lord’s system! Voluntary donations motivated by brotherly love an
 May we through the proper use and expansion of modern storehouses wisely provide for the care of our needy brothers and sisters according to the Lord’s plan, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Welfare

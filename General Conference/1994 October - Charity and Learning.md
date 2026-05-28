@@ -57,4 +57,6 @@ In trying to fully comprehend the meaning of her testimony, I found help in [[Al
 I testify to you that God lives and is good and his spiritual gifts are available to us all. May we know him and Christ our Savior in ways that qualify us to offer pure love to one another by the Holy Spirit, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Charity #Education #Literacy #Media #Success

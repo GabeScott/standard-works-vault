@@ -45,4 +45,6 @@ Like us, all these missionary couples are finding new purpose and fulfillment in
 I pray that couples whose families are grown may indeed listen to and obey the Spirit that prompts the call to prepare and serve the Lord in the mission field. I know that this is the Lord’s church, that Joseph Smith was a prophet of God, and that President Benson is God’s prophet on earth today. I am grateful to be a member of the Church and for all the blessings it has brought into my life and the lives of my family. In the sacred name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Service

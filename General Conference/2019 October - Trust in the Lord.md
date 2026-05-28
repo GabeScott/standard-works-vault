@@ -82,4 +82,6 @@ I testify of the truth of what I have said here and of the truths taught and to 
 [^9]: See *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-19?lang=eng),* 231–33.
 
 
+
+
 #Plan_Of_Salvation #Spirit_World #Trust

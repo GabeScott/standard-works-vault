@@ -75,4 +75,6 @@ The First Presidency continues by saying:
 May I invite all to come unto Christ. Come back and partake of His joy. In the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Fellowshipping #Forgiveness

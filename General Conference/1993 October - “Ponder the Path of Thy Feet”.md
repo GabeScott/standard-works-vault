@@ -89,4 +89,6 @@ Ponder the direct message from an Apostle of Jesus Christ. Elder M. Russell Ball
 I ask that each of you take to heart these messages and know that they come from the Lord through his servants. To their testimonies I add my own. I know that we, daughters of the Most High God, are here to do the Lord’s will in an era most difficult, yet at a time that the angels of God rejoice in our efforts. I know that the Lord reigns supreme and that he has prepared a place for us in his kingdom on high. I know that as women of covenant we will choose that path to life eternal. In the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Covenants #Spirituality

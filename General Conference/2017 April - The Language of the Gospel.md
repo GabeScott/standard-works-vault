@@ -122,4 +122,6 @@ No achievement in this life, important as it may be, will be relevant if we lose
 [^18]: See [[Matthew 16.24|Matthew 16:24–26]][[Matthew 16.25|]][[Matthew 16.26|]].
 
 
+
+
 #Example #Family #Parenthood #Sabbath #Scripture_Study #Tithing

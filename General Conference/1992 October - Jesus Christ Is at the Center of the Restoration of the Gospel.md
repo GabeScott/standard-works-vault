@@ -49,4 +49,6 @@ Part of our mortal training is to walk by faith, repent of our sins, and call up
 I am so grateful for my eternal companion and for the second generation of Latter-day Saints in our family who have also taken up the cause of Christ. May God help all of us to partake of the fulness of the restoration of this sacred gospel, I pray humbly in the name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Jesus_Christ #Prophets #Testimony

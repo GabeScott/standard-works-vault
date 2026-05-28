@@ -61,4 +61,6 @@ The missionaries are now preparing to teach the lessons not as memorized dialogu
 May the Lord bless you as you continue to nurture your testimonies through your prayers, your personal gospel study, and your acts of service. With great joy I humbly testify our Heavenly Father loves us, Jesus is the Christ, Joseph Smith restored the fulness of the everlasting gospel, and the Book of Mormon testifies of these truths. We are led by a living prophet today. And I pray that the Lord may bless you, my dear brothers and sisters, as you teach and testify, which I ask in the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Jesus_Christ #Missionary_Work #Restoration #Testimony

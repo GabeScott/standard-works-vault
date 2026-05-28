@@ -192,4 +192,6 @@ May we in the Church and in this world come to know the Lord’s ways and follow
 I add my solemn witness that President Harold B. Lee is the Lord’s divinely called prophet to this world. In the name of Jesus Christ. Amen.
 
 
+
+
 #Prayer

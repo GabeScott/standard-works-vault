@@ -116,4 +116,6 @@ May our Heavenly Father ever bless our bishops in their sacred welfare responsib
 In the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Welfare

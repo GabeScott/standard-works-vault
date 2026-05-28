@@ -67,4 +67,6 @@ And when your children do these things, they shall be lifted up at the last day,
 When we as parents have a genuine *desire* to teach the gospel to our children, the Lord will give us entrance into their hearts. Then may we know that as we enter there we stand on holy ground. In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Parenthood #Teaching

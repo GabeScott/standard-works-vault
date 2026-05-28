@@ -80,4 +80,6 @@ Let us arm ourselves with faith and stand firm in our convictions. Let us never 
 May the Lord bless you in your efforts to stand firm in defense of home and family is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Contention #Covenants #Evil #Example #Faith #Family #Fasting #Home #Jesus_Christ #Ordinances #Peace #Plan_Of_Salvation #Prayer #Spirituality #Truth #Women

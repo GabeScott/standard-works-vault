@@ -89,4 +89,6 @@ President Spencer W. Kimball said, “The more clearly we see eternity, the more
 God bless us to love our ancestors and to be worthy of temple participation. I declare this work is true. In the name of Jesus Christ, amen.
 
 
+
+
 #Family_History #Temple_Work #Temples

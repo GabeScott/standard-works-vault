@@ -83,4 +83,6 @@ We encourage each of you to follow the counsel of our prophet. In all the family
 May God bless us that we may revitalize and strengthen this tremendously important program as we counsel together as family members is my prayer in the name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Children #Duty #Education #Family #Family_Home_Evening #Goals #Parents #Scripture_Study

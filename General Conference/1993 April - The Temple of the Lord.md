@@ -42,4 +42,6 @@ I echo the feelings of one and all, President Benson, in saying we love you and 
 [^2]: “Temple Memories” (address given at the Denver Colorado Temple dedication, 25 Oct. 1986).
 
 
+
+
 #Peace #Temple_Work #Temples

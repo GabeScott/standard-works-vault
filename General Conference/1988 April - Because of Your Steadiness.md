@@ -67,4 +67,6 @@ I pray that the Lord may say of us, as Alma said of his son Shiblon: “And now,
 I bear testimony that in time and in eternity God will bless our steadiness as we invite his children to come unto Christ. In the name of Jesus Christ, amen.
 
 
+
+
 #Dedication #Home_Teaching

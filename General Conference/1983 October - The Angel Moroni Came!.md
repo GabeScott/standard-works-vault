@@ -119,4 +119,6 @@ We testify that Joseph Smith indeed was a modern prophet of God, raised up speci
 And most solemnly we testify that Jesus Christ of Nazareth is the Son of God, our Savior, our Redeemer, our Creator. We testify further that we are His ordained servants, and we speak by the power that he restored to us and has given to us in this day. And we testify, in all solemnity, that this work in which we are engaged is verily true, in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Angels

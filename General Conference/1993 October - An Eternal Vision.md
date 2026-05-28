@@ -47,4 +47,6 @@ As his strength declined, he placed his complete trust in the Lord. On one occas
 My beloved youth, I promise you that as you serve with faith as did Elder Coy, and as you look through the eyes of your parents and leaders, who love you also, your testimony will be strengthened, your vision will expand, which will illuminate all who are spiritually blind and will help them to return to Christ. Arise and shine; be like the over forty-nine thousand missionaries who today are taking the light, hope, and knowledge to those who need it. I add my own testimony of the divinity of this work in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Missionary_Work #Spirituality #Testimony

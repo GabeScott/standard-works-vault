@@ -111,4 +111,6 @@ May the blessings of heaven rest upon you, my dear sisters. May you not trade a 
 May the virtue of your children’s lives sanctify and hallow your old age. May you be led to exclaim with gratitude as did John, “I have no greater joy than to hear that my children walk in truth” ([[3 John 1.4|3 Jn. 1:4]]). For this I pray, and pray most earnestly, in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Children #Education #Family #Friendship #Home #Honesty #Loneliness #Motherhood #Prayer #Respect #Single_Members #Standards #Teaching #Tolerance #Women #Word_Of_Wisdom

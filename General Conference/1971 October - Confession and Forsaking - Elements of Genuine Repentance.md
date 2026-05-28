@@ -85,4 +85,6 @@ Now one final bit of assurance that the repentant one may be forgiven: “Verily
 It may not be easy—the road may be long, but I leave you my witness it is the way the Lord has provided in his mercy to us. In the name of Jesus Christ. Amen.
 
 
+
+
 #Bishops #Repentance

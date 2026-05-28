@@ -134,4 +134,6 @@ I testify that God speaks today through His chosen servants in The Church of Jes
 [^12]: [[D&C 1.38|Doctrine and Covenants 1:38]].
 
 
+
+
 #Blessings #Obedience #Prophets #Trust

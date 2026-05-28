@@ -87,4 +87,6 @@ I testify to you that God’s hand has been in our destiny. I testify that freed
 May God bless us that, with His help, we will not fail to bring to pass His purposes on earth. In the name of Jesus Christ, amen.
 
 
+
+
 #Freedom #Testimony

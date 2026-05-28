@@ -71,4 +71,6 @@ May I say then to those who are now or will be facing deep trials: May the Lord 
 And finally this promise from the Master: “And again, be patient in tribulation until I come; and, behold, I come quickly, and my reward is with me, and they who have sought me early shall find rest to their souls. …” ([[D&C 54.10|D&C 54:10]].) In the name of Jesus Christ. Amen.
 
 
+
+
 #Adversity #Dedication

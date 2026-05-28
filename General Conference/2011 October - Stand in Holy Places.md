@@ -126,4 +126,6 @@ What a promise! May such be our blessing, I sincerely pray in the sacred name of
 [^9]: [[Isaiah 41.10|Isaiah 41:10]].
 
 
+
+
 #Commandments #Prayer #Spirituality

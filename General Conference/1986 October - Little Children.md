@@ -181,4 +181,6 @@ With that, the little boy was soon safely asleep in his arms.
 God grant that all little children will be safe with every one of us because their Father and their God and our Father and our God said we could be here. In the name of Jesus Christ, amen.
 
 
+
+
 #Abuse #Children #Marriage #Parenthood #Repentance

@@ -89,4 +89,6 @@ I testify to you of the lasting happiness and ultimate joy of those who exercise
 I testify to the truth of God’s promise that the faithful “shall enter into the joy of \[the\] Lord, and shall inherit eternal life” ([[D&C 51.19|D&C 51:19]]). I testify of God the Eternal Father and his Son Jesus Christ, the authors of the great plan of happiness and mercy. I pray that we may do those things that are required for happiness and peace in this life and for joy and eternal life in the world to come, in the name of Jesus Christ, amen.
 
 
+
+
 #Joy #Mercy #Repentance #Resurrection

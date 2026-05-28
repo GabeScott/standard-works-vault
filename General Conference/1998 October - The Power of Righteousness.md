@@ -55,4 +55,6 @@ The world needs light. Be that light. Your righteousness gives others a confirma
 I bear witness that the Savior lives. He loves you. He will guide you through the Holy Ghost, as you steadfastly choose to do what is right, to a future glorious beyond your dreams. I know He will. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Dedication #Example #Holy_Ghost #Honesty #Love #Media #Morality #Obedience #Repentance #Satan #Youth

@@ -85,4 +85,6 @@ I promise you, my brothers and sisters, if we will sustain and support our bisho
 May God bless us that this may be the beginning of a new and improved relationship with our bishops, is my humble prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Bishops

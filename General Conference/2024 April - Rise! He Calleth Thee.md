@@ -126,4 +126,6 @@ May we cry our testimony of Him louder than the voices around us in a world that
 [^5]: [[Mark 10.52|Mark 10:52]].
 
 
+
+
 #Adversity #Agency #Faith #Jesus_Christ #Perspective #Repentance

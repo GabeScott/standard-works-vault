@@ -81,4 +81,6 @@ President David O. McKay gave us this instruction on the importance of teaching:
 May God bless us that we will be more determined to study and prepare and improve our abilities to be effective teachers. Let us all remember that it is through inspired teaching that the gospel message is carried to the world. It is my humble prayer that we will all accept the challenge to teach our brothers and sisters the word of God in all diligence. In the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Children #Church_Callings #Holy_Ghost #Jesus_Christ #Parenthood #Prayer #Scripture_Study #Sunday_School #Teaching

@@ -47,4 +47,6 @@ The Prophet Joseph had to learn many of these valuable lessons, as we will likew
 It is my sincere and humble prayer that we may all live in such a way that we will have happy and serene homes where love abounds and the Spirit of the Lord is ever present, for which I pray in the name of Jesus Christ, our Lord and Savior. Amen.
 
 
+
+
 #Love #Marriage

@@ -69,4 +69,6 @@ I leave you my sure witness that the Father knows you—knows your needs and you
 Because of the Atonement of Jesus Christ, the constant companionship of the Holy Ghost will have a sanctifying and purifying effect on your spirit. You will then feel the peace the Savior promised to leave with His disciples. With that peace will come a bright hope and a feeling of light and love from the Father and His Beloved Son, who leads His kingdom on earth through revelation to His living prophet. I so testify in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Activation #Charity #Holy_Ghost #Humility #Peace #Service #Unity

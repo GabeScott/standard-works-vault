@@ -91,4 +91,6 @@ Build your life on a foundation of truth and righteousness. It is the only found
 We love you and ask the Lord’s blessings to continually be with you. I bear witness of His work, in the name of Jesus Christ, amen.
 
 
+
+
 #Obedience

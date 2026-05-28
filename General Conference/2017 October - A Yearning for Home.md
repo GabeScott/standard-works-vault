@@ -180,4 +180,6 @@ As we embrace the gospel in faith and deed, each day and every hour, we will dra
 [^14]: [[Hebrews 11.13|Hebrews 11:13]]; [[1 Peter 2.11|1 Peter 2:11]].
 
 
+
+
 #Adversity #Discipleship #Home #Jesus_Christ #Joy #Light_Of_Christ #Service

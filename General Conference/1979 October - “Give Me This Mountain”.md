@@ -61,4 +61,6 @@ Earnestly and fervently I urge that each of you make this same pledge and effort
 My brethren and sisters, I testify to you that this is the Lord’s work and that it is true. We are on the Lord’s errand. This is his church and he is its head and the chief cornerstone. I leave you this testimony, in all sincerity, with my love and blessing, in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Commitment

@@ -129,4 +129,6 @@ I bear witness that we have standing at the head of the Church today a prophet o
 As God lives, I know these things are true and bear this witness to you, in the name of Jesus Christ, amen.
 
 
+
+
 #Joseph_Smith #Restoration

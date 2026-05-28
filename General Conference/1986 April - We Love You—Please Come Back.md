@@ -85,4 +85,6 @@ You will also discover the greatest friend of all, Jesus the Christ, our Savior 
 We love you; we need you. Please come back. Don’t wait until all is in perfect order. We’ll walk beside you. We love you. Please come back. In the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Repentance

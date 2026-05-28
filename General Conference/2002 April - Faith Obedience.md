@@ -49,4 +49,6 @@ I am grateful that we had on our life jackets that summer day on the ocean. I am
 I witness to you that our Father in Heaven lives, that He loves us, and that by being unquestioningly obedient to His commandments, we can once again dwell with Him and His Son, Jesus Christ, our Savior and Redeemer, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Obedience #Pride #Trust

@@ -91,4 +91,6 @@ May He bless us to regard every marriage as an act ordained of God; for, as Pres
 And these thoughts I leave with you in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Divorce #Marriage

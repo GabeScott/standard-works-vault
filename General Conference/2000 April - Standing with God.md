@@ -63,4 +63,6 @@ You don’t have the power to make rainbows or waterfalls, sunsets or roses, but
 I know with all my being that there is no one in all time or eternity to take your place in the heart of your Father in Heaven. You can trust Him and depend on Him. There is nothing you have done or can do to separate you from His love (see [[Romans 8.35|Rom. 8:35, 38–39]][[Romans 8.38|]][[Romans 8.39|]]). He will never fail you or leave you alone. And in gratitude for His power and peace and joy, you resist the temptations and enticements of the world and humbly say, “With my Father in Heaven’s help, I will stand as a witness of Him at all times and in all things and in all places.” In the name of Jesus Christ, amen.
 
 
+
+
 #Commitment #Courage #Family #Love #Prayer #Sacrament #Scripture_Study #Standards #Testimony

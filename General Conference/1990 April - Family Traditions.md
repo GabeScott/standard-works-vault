@@ -81,4 +81,6 @@ Our family activities and traditions can be a beacon to the rest of the world as
 This is the Lord’s work in which we are engaged. God lives! Jesus is the Christ, the Savior of the world, is my solemn witness to you in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Freedom #House_Of_Israel #Temples

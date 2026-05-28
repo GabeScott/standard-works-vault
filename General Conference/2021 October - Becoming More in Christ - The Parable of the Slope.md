@@ -66,4 +66,6 @@ Brothers and sisters, one of the miracles of this, the Lord’s Church, is that 
 [^14]: D. Todd Christofferson, “[[2011 April - “As Many as I Love, I Rebuke and Chasten”.md|As Many as I Love, I Rebuke and Chasten]],” *Ensign* or *Liahona*, May 2011, 97.
 
 
+
+
 #Adversity #Divine_Nature #Education #Humility #Jesus_Christ

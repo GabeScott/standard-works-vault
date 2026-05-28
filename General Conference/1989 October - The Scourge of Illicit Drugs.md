@@ -87,4 +87,6 @@ Let no member of this church, be he man or boy, girl or woman, fall prey to this
 God bless you to this end I humbly pray, as one who loves you, in the name of Jesus Christ, amen.
 
 
+
+
 #Leadership #Priesthood #Service #Word_Of_Wisdom

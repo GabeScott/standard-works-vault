@@ -19,4 +19,6 @@ All of the proceedings of this conference will appear in a subsequent issue of t
 Now the conference is adjourned for six months. We look forward to seeing you again next April. I’m 97, but I hope I’m going to make it. May the blessings of heaven attend you in the meantime is our humble and sincere prayer in the name of our Redeemer, even the Lord Jesus Christ, amen.
 
 
+
+
 #Family_Home_Evening #General_Conference

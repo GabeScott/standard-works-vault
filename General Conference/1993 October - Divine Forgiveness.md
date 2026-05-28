@@ -135,4 +135,6 @@ In conclusion, these verses from a favorite hymn:
 To these truths which I have sought to teach I bear solemn, personal witness, in the sacred name of our Lord and Savior, Jesus Christ, amen.
 
 
+
+
 #Atonement #Forgiveness #Repentance

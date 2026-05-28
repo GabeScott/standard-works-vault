@@ -103,4 +103,6 @@ I thank the Lord for each of you. I love you for what you do. I pray for you, ev
 May the blessings of heaven come down upon your wives and your children. Someday you will be released. That will be a day of sadness. The memories of your people will remain throughout your life. They will sanctify your days and bring peace and rest and gladness. God bless you my beloved brethren, I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Bishops #Evil #Example #Honesty #Priesthood #Worldliness

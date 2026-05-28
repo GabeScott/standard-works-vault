@@ -105,4 +105,6 @@ I bear witness of the restoration which will come. Each body and mind will be re
 I am a witness of the condition of those who have gone beyond the veil, and we all have reason to glorify him who is our Father and him who is our Redeemer, of whom I bear witness in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Disabilities #Resurrection #Spirituality

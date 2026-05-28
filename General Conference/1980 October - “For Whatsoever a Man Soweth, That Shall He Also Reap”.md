@@ -47,4 +47,6 @@ I declare unto you my witness that the Lord is strong and mighty and is the King
 May we be blessed with the faith to follow His way, which will lead us to life eternal, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Family_Home_Evening

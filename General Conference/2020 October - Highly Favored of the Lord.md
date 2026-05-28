@@ -114,4 +114,6 @@ I close with my testimony of Jesus Christ, who Himself was no stranger to afflic
 [^16]: See [[D&C 122.8|Doctrine and Covenants 122:8]].
 
 
+
+
 #Adversity

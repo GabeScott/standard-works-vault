@@ -77,4 +77,6 @@ We find solace in Christ through the agency of the Comforter, and Christ extends
 In the celestial glory, we are told, “God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain” ([[Revelation 21.4|Rev. 21:4]]). Then faith and hope will replace heartache, disappointment, torment, anguish, and despair, and the Lord will give us strength, as Alma says, that we “should suffer no manner of afflictions, save it were swallowed up in the joy of Christ” ([[Alma 31.38|Alma 31:38]]). Of this I have a testimony, and I so declare it in the name of Jesus Christ, amen.
 
 
+
+
 #Healing #Holy_Ghost #Sacrament

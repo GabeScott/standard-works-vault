@@ -92,4 +92,6 @@ To reemphasize: the constant nursing of personal hurts is a crutch for those who
 May we strive for that day and knowledge, I humbly pray. God does live. He does hear and answer our prayers. To these truths I leave my testimony and witness. In the name of Jesus Christ, amen.
 
 
+
+
 #Attitude #Repentance

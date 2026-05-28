@@ -105,4 +105,6 @@ I know that the Lord has a plan for us in this life. He knows us. He knows what 
 God lives. He is our Father. The Savior Jesus Christ lives, and I know that through His atoning sacrifice we can find the strength to overcome our daily challenges. In the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Perspective

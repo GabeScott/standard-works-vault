@@ -43,4 +43,6 @@ President Lee amplified this by telling of his response to a man who was disturb
 In summary, the Church is founded on continuing revelation to a current, living prophet. “Many great and important things pertaining to the Kingdom of God” have been revealed, and more are yet to be revealed through the living prophet. Beginning with Joseph Smith and continuing on to his successors as President of the Church, the ongoing stream of revelation has perfected our understanding of the gospel. The understanding of doctrines is more complete as taught by the Church today than at any prior time in this dispensation. Of this I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Church_Doctrine #Joseph_Smith #Prophets

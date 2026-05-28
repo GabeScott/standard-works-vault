@@ -77,4 +77,6 @@ The requirement to put off the natural man and become a saint, to avoid and over
 May you and I repent with sincerity of heart and truly come unto Christ. I pray that we will seek through the Savior’s Atonement to have both clean hands and a pure heart, that we may become holy, without spot. I witness that Jesus Christ is the Son of the Eternal Father and our Savior. He who is without spot redeems us from sin and strengthens us to do good and to become better. I so testify in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Morality #Repentance

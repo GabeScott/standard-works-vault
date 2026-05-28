@@ -161,4 +161,6 @@ We are appalled at the conscious effort of many of the people in this world to t
 Brethren and sisters, God bless you as you move forward to meet all your commitments and live the commandments. We bless you in your efforts to become like our Lord that you will become more like him. May God richly bless you in your homes, your families, and your personal lives, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Abortion #Honesty #Marriage #Resurrection #Word_Of_Wisdom

@@ -67,4 +67,6 @@ Let us look to our own lives. We serve that which we love. If we sacrifice and g
 May God help us to love the right, love the truth, and love areas of service that are rewarding and eternal, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Family #Love

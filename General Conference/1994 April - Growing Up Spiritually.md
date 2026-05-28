@@ -53,4 +53,6 @@ Three years ago I had another little granddaughter, named after me—Emily Janet
 I have a testimony of our Savior’s love for us. He understands our challenges. He will help us. We were intended to have experiences that will help us know good from evil. Most of us make mistakes. We can’t be perfect alone. The atoning gift of Jesus Christ allows us to let go of our weaknesses and be strengthened by His perfection. I bear my testimony of His atoning gift to us in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Spirituality #Women #Young_Women

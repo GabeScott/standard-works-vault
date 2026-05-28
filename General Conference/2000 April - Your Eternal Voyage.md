@@ -102,4 +102,6 @@ May we be wise mariners as we go forth on such a voyage. Let us be pure vessels 
 [^9]: [[Ether 12.27|Ether 12:27]].
 
 
+
+
 #Blessings #Commitment #Faith #Fear #Jesus_Christ #Miracles #Priesthood #Responsibility #Service #Sin #Spirituality #Worthiness

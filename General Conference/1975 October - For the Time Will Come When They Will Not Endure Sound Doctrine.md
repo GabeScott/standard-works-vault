@@ -97,4 +97,6 @@ Let us catch the spirit of the Psalmist who wrote, “The earth is the Lord’s,
 May God grant that we may have the courage to stand up and be counted for that which we know to be right, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #False_Doctrines #Government #Marriage

@@ -93,4 +93,6 @@ Altar, tent, and well: these things are essential. Placed in proper perspective 
 Our Heavenly Father, wilt thou help us thy children to see eternity in these things and act accordingly. In the name of Jesus Christ. Amen.
 
 
+
+
 #Home #Work #Worship

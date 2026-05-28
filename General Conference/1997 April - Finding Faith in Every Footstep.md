@@ -37,4 +37,6 @@ Do these stories sound so different from what we write in our journals today? Ho
 Our prayer tonight is that every one of us will gain strength from the pioneering spirit. Look in the mirror tonight. You’ll see someone unique, strong, and courageous. A pioneer. Hold on to that thought. Like Anna and thousands of others, you are going before, bravely showing loved ones the way to follow. That we will always find faith in every footstep is my prayer, in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Faith #Gratitude #Jesus_Christ #Pioneers

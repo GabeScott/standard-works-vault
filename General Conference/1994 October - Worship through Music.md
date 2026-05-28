@@ -108,4 +108,6 @@ We need to make more use of our hymns to put us in tune with the Spirit of the L
 We who have “felt to sing the song of redeeming love” ([[Alma 5.26|Alma 5:26]]) need to keep singing that we may draw ever closer to him who has inspired sacred music and commanded that it be used to worship him. May we be diligent in doing so is my humble prayer, which I offer with a testimony of the truthfulness of the gospel of Jesus Christ and of the divine calling of those we have sustained today. In the name of Jesus Christ, amen.
 
 
+
+
 #Children #Disabilities #Music #Reverence #Scriptures #Temples #Worship

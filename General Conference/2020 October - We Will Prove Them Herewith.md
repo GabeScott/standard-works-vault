@@ -148,4 +148,6 @@ I witness that God the Eternal Father is our Father. Jesus Christ is His Only Be
 [^18]: [[Matthew 25.21|Matthew 25:21]].
 
 
+
+
 #Adversity #Faith #Preparation

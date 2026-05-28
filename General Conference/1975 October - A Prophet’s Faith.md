@@ -85,4 +85,6 @@ Our salvation and the salvation of all of our Father’s children will be determ
 I bear witness that this work is true and that President Kimball is a living prophet. In the name of Jesus Christ. Amen.
 
 
+
+
 #Faith #Missionary_Work

@@ -161,4 +161,6 @@ As quorum officers we accounted for all of our members and would see that they w
 We were part of the Church and the Church was part of us. We knew it; we felt it! We held the priesthood of God! Understanding teachers guided us and helped us broaden our vision and our ever-expanding role as young men; but more important, they helped prepare us to be called in our youth to be servants of our Savior. He needs every one of you young men who hold the priesthood. I testify that this work is true. I do it humbly, in the holy name of Jesus Christ, amen.
 
 
+
+
 #Example #Priesthood

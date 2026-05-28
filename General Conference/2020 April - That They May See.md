@@ -98,4 +98,6 @@ I invite all of us to follow the example of Jesus Christ and be compassionately 
 [^12]: [[John 8.12|John 8:12]].
 
 
+
+
 #Example #Jesus_Christ

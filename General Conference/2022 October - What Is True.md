@@ -46,4 +46,6 @@ I love you, my dear brothers and sisters. I pray that this conference will provi
 [^5]: [[D&C 123.12|Doctrine and Covenants 123:12]].
 
 
+
+
 #Abuse #Truth

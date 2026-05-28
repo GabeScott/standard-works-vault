@@ -81,4 +81,6 @@ Finally, our willingness to take upon us the name of Jesus Christ affirms our co
 That is what we should ponder as we partake of the sacred emblems of the sacrament. As we do so, we glory in the mission of the risen Lord, who lived and taught and suffered and died and rose again that all mankind might have immortality *and eternal life.* Of this I testify in the sacred name of the Lord Jesus Christ, whose witness I am, amen.
 
 
+
+
 #Ordinances #Sacrament

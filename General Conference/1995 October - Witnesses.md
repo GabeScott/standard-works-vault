@@ -51,4 +51,6 @@ That same witness is echoed by the members and missionaries of this church to ev
 And to that witness I would add my own witness as to the truthfulness of this work. I know that we have a God in heaven who looks after us and is watching over us. I know God lives. I know He lives. I know God lives. I know this. I know this. I know that Jesus Christ is our Savior and our Redeemer. I know that Joseph Smith was a true prophet of God. I know that Gordon B. Hinckley is a prophet of God today and that this is the gospel of Jesus Christ. May the Lord so bless us that we may listen to the witnesses and bear witness ourselves, in the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Jesus_Christ #Missionary_Work #Ordinances #Restoration #Sacrament #Testimony

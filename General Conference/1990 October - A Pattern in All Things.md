@@ -79,4 +79,6 @@ Be not deceived. God is not mocked. He knows what is best for his children and t
 Instead of our being commanded in all things, we are given a pattern in all things. The choice to use these safe paths is ours. God help us to follow his patterns and reap the rewards he has in store for the obedient, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Faith #Temptation

@@ -95,4 +95,6 @@ Remember what Alma said: “Counsel with the Lord in all thy doings, and he will
 May I testify to all parents in Zion everywhere to the efficacy of these great principles in rearing our children righteously: the power of precept, the power of example, the power of love, and the power of prayer. I add my personal witness that Jesus Christ really lives, that his kingdom is here upon the earth, and that this morning we heard from his appointed prophet and servant, Spencer W. Kimball. May we abide by the counsel and teachings given to us by the Lord through his servants, I humbly pray as I testify to these things in the name of Jesus Christ. Amen.
 
 
+
+
 #Children #Example #Family #Love #Parents #Prayer

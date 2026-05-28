@@ -102,4 +102,6 @@ I know that Heavenly Father lives and answers our prayers. I know that Jesus is 
 [^10]: [[Matthew 25.21|Matthew 25:21]]; see also [[Matthew 25.23|v. 23]].
 
 
+
+
 #Attitude #Service #Time_Management

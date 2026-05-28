@@ -73,4 +73,6 @@ God lives, as does his Son, Jesus Christ, our Savior and Redeemer. The Lord spea
 I bear this testimony in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Ezra_Taft_Benson #Home_Teaching #Priesthood

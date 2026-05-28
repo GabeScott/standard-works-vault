@@ -67,4 +67,6 @@ Fifth and finally, *diligent, intelligent industry* must be taught as the key to
 I pray that fathers will magnify their callings as true priesthood leaders and by example teach love for these principles in their families. Mothers, cherish, love, encourage, teach respect, and inspire your children as only mothers can do. Joseph Smith was and remains a prophet. The Lord Jesus Christ lives as the Son of the Eternal Father and is the head of this, his restored church. President Spencer W. Kimball presides today as the Lord’s living prophet. I so testify in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Home #Teaching

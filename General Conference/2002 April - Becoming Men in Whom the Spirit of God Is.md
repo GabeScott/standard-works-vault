@@ -83,4 +83,6 @@ I promise you, if you will heed the voice of warning of the Holy Ghost and will 
 What a blessing it is to bear the Lord’s holy priesthood and have that power and strength within us. May the Lord inspire and direct us to study the stories of great prophets who have walked the earth. May we glean from their lives that which will draw us closer to our Maker and help us enjoy the blessings and fruits that come from the gospel of our Lord and Savior. May we be so inspired to follow His path is my humble prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Holy_Ghost #Priesthood #Prophets

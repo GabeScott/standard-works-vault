@@ -69,4 +69,6 @@ To the testimony of President Romney and the witnesses of my Brethren, I add my 
 In teaching his Apostles, Christ made known to them “that the Son of Man must suffer many things, and be rejected of the elders, and of the chief priests, and scribes, and be killed, and after three days rise again.” ([[Mark 8.31|Mark 8:31]].) So it was. He was crucified and placed in the tomb. On the third day, he did arise to live again—the Savior of all mankind and the firstfruits of the Resurrection. Through this atoning sacrifice, all men shall be saved from the grave and shall live again. This always has been the testimony of the Apostles, to which I add my witness, in the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Quorum_Of_The_Twelve_Apostles #Resurrection

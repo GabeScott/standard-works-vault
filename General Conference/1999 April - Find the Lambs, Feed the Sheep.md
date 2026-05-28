@@ -181,4 +181,6 @@ Before the Church was organized, there was missionary work. It has continued eve
 This is God’s holy work. This is His Church and kingdom. The vision that occurred in the Sacred Grove was just as Joseph said it was. We are building a new temple overlooking this hallowed ground to further testify to the reality of this most sacred event. As I recently stood in the snow to determine where this new temple will stand, there came into my heart a true understanding of the importance of what happened in the Sacred Grove. The Book of Mormon is true. It testifies of the Lord Jesus Christ. His priesthood has been restored and is among us. The keys of that priesthood, which have come from heavenly beings, are exercised for our eternal blessing. Such is our testimony—yours and mine—a testimony which we must share with others. I leave this testimony and my blessing and my love with each of you, in the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Fellowshipping #Missionary_Work

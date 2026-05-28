@@ -171,4 +171,6 @@ John the Baptist restored the Aaronic Priesthood with these words:
 You—our deacons, teachers, and priests—have been given sacred authority. May the angels minister unto you. May the power of the priesthood be upon you, our beloved young brethren, and upon your sons throughout the generations ahead. I bear witness that the gospel is true, that the priesthood holds great power, a guiding, protecting power for those who hold the Aaronic Priesthood. In the name of Jesus Christ, amen.
 
 
+
+
 #Priesthood

@@ -64,4 +64,6 @@ I am so grateful that a 14-year-old boy, Joseph Smith, entered a grove of trees 
 [^9]: *Church Handbook of Instructions, Book 2: Priesthood and Auxiliary Leaders* (1998), 161.
 
 
+
+
 #Atonement #Blessings #Priesthood #Restoration

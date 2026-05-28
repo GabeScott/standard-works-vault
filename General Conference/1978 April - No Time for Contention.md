@@ -73,4 +73,6 @@ Let me share with you some suggestions for alleviating contention:
 There is no time for contention. We must have the will and discipline in our daily lives to fight contention. I promise the valiant God’s help in their efforts to conquer this horrendous foe. Let us “Cease to contend one with another; cease to speak evil one of another.” ([[D&C 136.23|D&C 136:23]].) We only have time to be about our Father’s business. To these truths I leave my testimony, in the name of Jesus Christ. Amen.
 
 
+
+
 #Contention

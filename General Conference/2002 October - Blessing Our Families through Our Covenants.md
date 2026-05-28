@@ -60,4 +60,6 @@ May our Heavenly Father bless us to keep our covenants that our families may be 
 [^5]: [[Psalms 55.22|Psalm 55:22]].
 
 
+
+
 #Blessings #Covenants #Family #Morality

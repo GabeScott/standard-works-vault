@@ -133,4 +133,6 @@ I humbly pray that we may have the wisdom, knowledge, desire, courage, and stren
 I appeal to each member of the Church to ask himself: Where am I? Am I ashamed so that I want to hide, or am I where I should be, doing what I should be doing, and preparing to meet God? Let each of us determine to humble ourselves and repent, and prove ourselves worthy of the great promise that those who keep their second estate shall have glory added upon their heads forever and ever. May this be our happy lot I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Blessings #Commandments #Obedience #Temptation

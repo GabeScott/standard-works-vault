@@ -55,4 +55,6 @@ The boy was too young to perpetrate a fraud. The sacred words are from the lips 
 We look forward to his return to reign a thousand years. Let us worship him in spirit and in truth. Let us give loyal support to his presently anointed prophet and mouthpiece and those who assist him. President Harold B. Lee is that prophet. He holds the same keys that were given to Joseph Smith by the heavenly messengers in 1829. His word, inspired of the Holy Ghost, is the modern revelation of our day. This is my witness to you and to the world, in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ

@@ -271,4 +271,6 @@ We give these truths to you, not in arrogance or worldly pride, but with a deep 
 I know it is true. I know it is divine. I know it is the little stone that was cut out of a mountain without hands. I know it will fill the earth as prophesied and commanded by the Savior Jesus Christ when, in his last moments on earth, he said to his eleven apostles, “Go ye into all the world and preach the gospel to every creature”—to every nation, kindred, tongue, and people. (See [[Mark 16.15|Mark 16:15]].) I know it is true from the birth of Adam to the days of Daniel to the days of Joseph Smith and to this day. I know it is true and divine. We offer it to you without price. We promise to you life eternal if you will follow its precepts strictly. And I bear this witness to you in the name of Jesus Christ. Amen.
 
 
+
+
 #Church_Growth #Financial_Management #Restoration #Work

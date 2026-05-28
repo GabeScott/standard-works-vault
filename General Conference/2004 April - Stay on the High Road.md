@@ -91,4 +91,6 @@ I wish to emphasize that if you make a mistake, it can be forgiven, it can be ov
 For this I pray in the sacred name of Him who gave His life to make it possible for us to live eternally, even the Lord Jesus Christ, amen.
 
 
+
+
 #Education #Faith #Forgiveness #Friendship #God_The_Father #Morality #Prayer #Repentance #Temptation

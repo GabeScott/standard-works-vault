@@ -77,4 +77,6 @@ And so, even though the tasks of life become heavy, and although sorrow thrusts 
 In closing, brothers and sisters, I want to say that this is the way we tried to represent the Church in Europe. I testify that God lives, that Jesus is the Christ, that President Ezra Taft Benson is our prophet, seer, and revelator, and that he bears the keys of the kingdom. I love this church with all my heart and will do my best to serve, in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Missionary_Work #Temples #Testimony

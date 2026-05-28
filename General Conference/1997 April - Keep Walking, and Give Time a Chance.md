@@ -74,4 +74,6 @@ We care so much about one another as we walk together on our journey. I know Hea
 [^5]: From a 1993 videotaped interview of Carly Nielson, Kaysville 18th Ward, Kaysville Utah Crestwood Stake.
 
 
+
+
 #Attitude #God_The_Father #Gratitude #Pioneers #Success #Work #Zion

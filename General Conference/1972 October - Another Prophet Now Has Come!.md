@@ -204,4 +204,6 @@ In this manner God is speaking to you today. Listen to him. Acknowledge him. Pra
 Amen.
 
 
+
+
 #Prophets #Restoration #Spirituality

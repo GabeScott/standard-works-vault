@@ -98,4 +98,6 @@ I leave you my blessing that you will enjoy unity in your homes and in the Churc
 [^5]: [[Ephesians 2.18|Ephesians 2:18–19]][[Ephesians 2.19|]].
 
 
+
+
 #Humility #Joy #Kindness #Prayer #Spirituality #Unity

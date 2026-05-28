@@ -39,4 +39,6 @@ Elder George Q. Cannon stood at this pulpit after the building was completed but
 Times may have changed and conditions under which we now live may be different, but the purposes and objectives of the restored gospel do not vary and truth remains constant. The sacrifices and efforts made by those who are now gone have brought blessings to us of today and are reminders of our obligation to those who will come after us. This building stands as a memorial to that reminder. It has stood as a great missionary, introducing the gospel of Jesus Christ to people around the world—those who have entered its portals and those who have heard the message that has gone forth from here in music and the spoken word. Down through the years our missionaries have carried a message that has blessed hundreds of thousands of people in the earth, and they are carrying that same message today to bless, for all eternity, those who will hear and believe. This message is true, and I bear witness of it in the name of Jesus Christ. Amen.
 
 
+
+
 #Temple_Square

@@ -61,4 +61,6 @@ There is hope—God does live—and there is a believable voice to those who hav
 It is my witness that God lives and Jesus is the Christ, the Savior of the world. These few words I have spoken are a portrayal of my humble testimony that the gospel in its fullness has been restored in these latter days and that there is a prophet on the earth today who speaks the mind and will of the Lord to those who will hear and have the faith to follow. That we may do so, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Church_Organization #Religion #Restoration #Spirituality

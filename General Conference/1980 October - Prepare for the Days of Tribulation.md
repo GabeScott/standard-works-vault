@@ -75,4 +75,6 @@ Be faithful, my brothers and sisters, to this counsel and you will be blessed—
 May God bless us to be prepared for the days which lie ahead, which may be the most severe yet. In the name of Jesus Christ, amen.
 
 
+
+
 #Self-Reliance

@@ -143,4 +143,6 @@ It is all within our reach as a great physical reality. The price is far less th
 O Jerusalem! O America! O England, and all other countries! The Lord says to all, “Come unto me, … and I will give you rest” ([[Matthew 11.28|Matt. 11:28]]). In the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Honesty #Obedience #Repentance

@@ -95,4 +95,6 @@ I commend to each of you the words of this great revelation given 154 years ago.
 God bless you my beloved sisters—you little girls whom we so much appreciate; you beautiful young women who dream wonderful dreams of the future; you who are not married and sometimes feel lonely, but who, I assure you, the Lord has not forgotten; those of you who carry the burdens of rearing families; those of you who are widowed or divorced; and you beautiful older women whom we so love and honor and respect. God bless you with every righteous desire, with peace in your hearts and joy in your days, as daughters of God blessed with the light of his everlasting gospel, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Relief_Society #Women

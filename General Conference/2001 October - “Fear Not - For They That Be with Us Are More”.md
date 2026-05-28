@@ -57,4 +57,6 @@ We catch a glimpse of heaven when we are in the temple with our child who is kne
 I close with my testimony that we are not alone in this sacred trust of parenting, loving, and leading. There is no greater joy. It is worth every sacrifice, every inconvenient minute, every ounce of patience, personal discipline, and endurance. “If God be for us, who can be against us?” ([[Romans 8.31|Rom. 8:31]]). In the name of Jesus Christ, amen.
 
 
+
+
 #Evil #Example #Family #Leadership #Listening #Love #Parents #Spirituality #Temples #Young_Women #Youth

@@ -78,4 +78,6 @@ I testify that we have a loving, just, and merciful Heavenly Father, who has pre
 [^9]: See [[Isaiah 55.8|Isaiah 55:8–9]][[Isaiah 55.9|]].
 
 
+
+
 #Adversity #Commandments #Eternal_Life #Hope #Perspective #Plan_Of_Salvation

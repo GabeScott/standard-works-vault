@@ -81,4 +81,6 @@ Alma continues: “And those who did belong to the church were faithful; yea, al
 I pray that we, who have taken upon us His name and His marvelous priesthood authority and power, may also gladly take upon us the commitment to rank Jesus Christ first in our thoughts and also in our deeds, that we will find “the Spirit of the Lord … has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually” ([[Mosiah 5.2|Mosiah 5:2]]). This will enable us to rank ourselves as true followers of Jesus—as true Christians. Such actions will provide us and those we serve with spiritual strength to endure. That we may do this, and find the happiness and peace that lightens burdens and makes following Him easier, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Faith #Jesus_Christ #Love #Obedience #Priesthood #Temptation

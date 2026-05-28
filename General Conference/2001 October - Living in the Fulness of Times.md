@@ -65,4 +65,6 @@ How I love you, my brothers and sisters of this great cause. I love you for what
 I invoke the blessings of heaven upon you as I express my love for you and commend to you the great messages you will hear from this pulpit during the next two days, and do so in the sacred name of our Lord, Jesus Christ, amen.
 
 
+
+
 #Contention #Evil #Faith #Love #Neighbors

@@ -63,4 +63,6 @@ Brothers and sisters, no wonder the divine direction is for each of us to become
 I gladly testify to the truth of this work, and I witness to the wonder of it all, as we are led so ably by President Hinckley. In the name of Jesus Christ, amen!
 
 
+
+
 #Children #Commitment #Criticism #Example #Faith #Jesus_Christ #Love #Restoration

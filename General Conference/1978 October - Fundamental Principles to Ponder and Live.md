@@ -148,4 +148,6 @@ So I’m hoping that, beginning now, the prayers of the Saints will be greatly i
 And now in closing, I wish to express appreciation for all that has been said by these beloved brethren who have spoken. I bear my testimony to the truth of the gospel and to the greatness of it, in the name of Jesus Christ. Amen.
 
 
+
+
 #Animals #Profanity #Women

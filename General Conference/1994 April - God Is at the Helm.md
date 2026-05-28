@@ -109,4 +109,6 @@ God is our Father. His is “the kingdom, and the power, and the glory, for ever
 I leave you my blessing and love and my testimony of these things in the name of Jesus Christ, amen.
 
 
+
+
 #Authority #Church_Leaders #Church_Organization #Covenants #First_Presidency #Jesus_Christ #Priesthood #Unity

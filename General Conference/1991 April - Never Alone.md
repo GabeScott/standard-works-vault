@@ -150,4 +150,6 @@ His love, His promise, His presence is as a yellow ribbon, tied with care and ma
 To these words I add my witness: God lives, and His Son, Jesus Christ, is our Savior and Redeemer. Tonight my wife and I shall join millions of you as we kneel in solemn prayer and supplication. We shall acknowledge His holy hand in our lives. And from our hearts will come our expression of gratitude, “Thanks be to God.” In the name of Jesus Christ, amen.
 
 
+
+
 #Forgiveness #Gratitude #Jesus_Christ #Love #Peace #Service

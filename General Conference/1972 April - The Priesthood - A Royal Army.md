@@ -73,4 +73,6 @@ I would like to bear my testimony to you this night that I know the gospel is tr
 May we honor our priesthood and enjoy the blessings that it affords and do our part to help in bringing to pass the immortality and eternal life of man, I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Example #Priesthood

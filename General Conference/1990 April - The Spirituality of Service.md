@@ -59,4 +59,6 @@ Yes, as we give Christlike service, it helps us grow spiritually, “\[put\] off
 May this be our happy lot, I humbly pray, bearing my personal witness of the risen Lord Jesus Christ, His restored Church, and His living prophet, in the name of Jesus Christ, amen.
 
 
+
+
 #Love #Service #Spirituality

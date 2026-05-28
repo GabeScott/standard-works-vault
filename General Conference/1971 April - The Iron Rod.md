@@ -147,4 +147,6 @@ I thank the Lord that I can answer, as did Martha and as did Peter of old: “Th
 To this I do bear my solemn witness, in the sacred name of our Lord and Master, Jesus Christ, even so. Amen.
 
 
+
+
 #Conversion #Education #Evil #Faith #Obedience #Plan_Of_Salvation #Testimony

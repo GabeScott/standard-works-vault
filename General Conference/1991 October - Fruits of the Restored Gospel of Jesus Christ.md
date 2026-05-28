@@ -109,4 +109,6 @@ In addition, if you will sustain the Lord’s anointed, your confidence in them 
 My brothers and sisters, your leaders of the Church love you and labor to bring you the fruits of the gospel that you may taste as we have tasted. May you feel that marvelous joy of God’s love and his blessings in your life, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Family #Godhead #Holy_Ghost #Jesus_Christ #Missionary_Work #Morality #Obedience #Resurrection #Self-Reliance #Welfare #Word_Of_Wisdom

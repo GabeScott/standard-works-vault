@@ -108,4 +108,6 @@ Said the Lord to ancient Israel: “… if ye will obey my voice indeed, and kee
 I know that God lives. I know that Jesus is the Christ. I pray for all of us that we may have the joy that comes in that knowledge, in the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Spirituality

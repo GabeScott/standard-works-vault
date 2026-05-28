@@ -125,4 +125,6 @@ Prove your strength, show your independence, by saying no when enticement from p
 God bless you, my beloved brethren—you of the noble birthright, you of the great promise. “Look to God and live” ([[Alma 37.47|Alma 37:47]]). May you do so, I humbly pray as I leave my love and blessing with you, in the name of Jesus Christ, amen.
 
 
+
+
 #Accountability #Health #Morality #Reverence

@@ -61,4 +61,6 @@ I witness there is a prophet of the Lord in the land, not unlike those of olden 
 The Lord is our light, and that light comes through the prophets. Of this I testify, in the name of Jesus Christ. Amen.
 
 
+
+
 #House_Of_Israel #Native_Americans

@@ -92,4 +92,6 @@ Brethren, I hope we will be faithful and true to all of our covenants. I pray th
 [^13]: [[D&C 132.47|D&C 132:47]].
 
 
+
+
 #Faith #Healing #Priesthood #Scriptures #Service

@@ -51,4 +51,6 @@ As our daughter learned the relationship between the battery and power to drive 
 I testify that covenant keepers are promised “peace in this world, and eternal life in the world to come” ([[D&C 59.23|Doctrine and Covenants 59:23]]). I bear witness that as you regularly partake of the Savior’s emblems through the sacrament, you will have His Spirit to guide you on the covenant path and stay faithful to your covenants. In the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Holy_Ghost #Jesus_Christ #Ordinances #Sacrament

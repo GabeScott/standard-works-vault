@@ -101,4 +101,6 @@ One of the ordinances performed in the temples of the Lord is the sealing of wiv
 And so, when members of a society serve the Lord according to the commandments he has given them, and uphold proper moral values, they receive very special rewards both in this life and in the life to come. This is not man’s program; it is the Lord’s program of salvation, which exalts and brings freedom, in every sense of the word, to those who will hear his voice and follow him, to which I testify in the name of him who gave his life that these things might be, even the Lord, Jesus Christ, amen.
 
 
+
+
 #Family

@@ -49,4 +49,6 @@ The payment of tithing helps us develop a submissive and humble heart and a grat
 I testify that as we pay our tithing faithfully, the Lord will open the windows of heaven and pour out upon us His richest blessings. In the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Tithing

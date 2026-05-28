@@ -8,7 +8,7 @@ For an overview of the book of Esther, see “[[BD Esther Book Of|Esther, book o
 
 ## Ideas for Learning at Home and at Church
 
-[[Esther 1.1|Esther]]
+[[Esther 1.1|Esther]][[Esther 1.2|]][[Esther 1.3|]][[Esther 1.4|]][[Esther 1.5|]][[Esther 1.6|]][[Esther 1.7|]][[Esther 1.8|]][[Esther 1.9|]][[Esther 1.10|]][[Esther 1.11|]][[Esther 1.12|]][[Esther 1.13|]][[Esther 1.14|]][[Esther 1.15|]][[Esther 1.16|]][[Esther 1.17|]][[Esther 1.18|]][[Esther 1.19|]][[Esther 1.20|]][[Esther 1.21|]][[Esther 1.22|]]
 ### The Lord puts me in situations where I can bless others.
 
 President Dieter F. Uchtdorf taught that each of us “stands at a unique place and has an important task that only \[we\] can perform. … The Lord gave you your responsibilities for a reason. There may be people and hearts only you can reach and touch. Perhaps no one else could do it in quite the same way” (“[[2008 October - Lift Where You Stand.md|Lift Where You Stand]],” *Ensign* or *Liahona*, Nov. 2008, 56).
@@ -20,14 +20,14 @@ See also “For Such a Time as This” (video), ChurchofJesusChrist.org.
 > **We learn more by doing than by listening.** Elder David A. Bednar counseled teachers: “Our intent ought not to be ‘What do I tell them?’ Instead, the questions to ask ourselves are ‘What can I invite them to do? What inspired questions can I ask that, if they are willing to respond, will begin to invite the Holy Ghost into their lives?’” (in *Teaching in the Savior’s Way*, [25](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/07-part-2/11-invite-diligent-learning?lang=eng&id=p5#p5)). If you are teaching your family or a class about Esther, what could you ask them to do that will help them learn?
 
 
-[[Esther 3.1|Esther 3]]; [[Esther 5.9|5:9–14]][[Esther 5.10|]][[Esther 5.11|]][[Esther 5.12|]][[Esther 5.13|]][[Esther 5.14|]]; [[Esther 7.1|7]]
+[[Esther 3.1|Esther 3]][[Esther 3.2|]][[Esther 3.3|]][[Esther 3.4|]][[Esther 3.5|]][[Esther 3.6|]][[Esther 3.7|]][[Esther 3.8|]][[Esther 3.9|]][[Esther 3.10|]][[Esther 3.11|]][[Esther 3.12|]][[Esther 3.13|]][[Esther 3.14|]][[Esther 3.15|]]; [[Esther 5.9|5:9–14]][[Esther 5.10|]][[Esther 5.11|]][[Esther 5.12|]][[Esther 5.13|]][[Esther 5.14|]]; [[Esther 7.1|7]][[Esther 7.2|]][[Esther 7.3|]][[Esther 7.4|]][[Esther 7.5|]][[Esther 7.6|]][[Esther 7.7|]][[Esther 7.8|]][[Esther 7.9|]][[Esther 7.10|]]
 ### Pride and anger can lead to downfall.
 
-In the book of Esther, we learn from the faithfulness of Esther and Mordecai, but we also learn from the pride and anger of Haman. As you read [[Esther 3.1|Esther 3]]; [[Esther 5.9|5:9–14]][[Esther 5.10|]][[Esther 5.11|]][[Esther 5.12|]][[Esther 5.13|]][[Esther 5.14|]], note Haman’s feelings, words, and actions. What do they reveal about him and his motivations? What consequences did he face? (see [[Esther 7.1|Esther 7]]). Reading about Haman may prompt you to evaluate what motivates your feelings and actions. Are you inspired to make any changes? How can you turn to Heavenly Father for help?
+In the book of Esther, we learn from the faithfulness of Esther and Mordecai, but we also learn from the pride and anger of Haman. As you read [[Esther 3.1|Esther 3]][[Esther 3.2|]][[Esther 3.3|]][[Esther 3.4|]][[Esther 3.5|]][[Esther 3.6|]][[Esther 3.7|]][[Esther 3.8|]][[Esther 3.9|]][[Esther 3.10|]][[Esther 3.11|]][[Esther 3.12|]][[Esther 3.13|]][[Esther 3.14|]][[Esther 3.15|]]; [[Esther 5.9|5:9–14]][[Esther 5.10|]][[Esther 5.11|]][[Esther 5.12|]][[Esther 5.13|]][[Esther 5.14|]], note Haman’s feelings, words, and actions. What do they reveal about him and his motivations? What consequences did he face? (see [[Esther 7.1|Esther 7]][[Esther 7.2|]][[Esther 7.3|]][[Esther 7.4|]][[Esther 7.5|]][[Esther 7.6|]][[Esther 7.7|]][[Esther 7.8|]][[Esther 7.9|]][[Esther 7.10|]]). Reading about Haman may prompt you to evaluate what motivates your feelings and actions. Are you inspired to make any changes? How can you turn to Heavenly Father for help?
 
 See also [[Proverbs 16.32|Proverbs 16:32]]; [[Alma 5.28|Alma 5:28]].
 
-[[Esther 3.1|Esther 3–4]]; [[Esther 5.2|5:2–3]][[Esther 5.3|]]; [[Esther 8.11|8:11–12]][[Esther 8.12|]]
+[[Esther 3.1|Esther 3–4]][[Esther 3.2|]][[Esther 3.3|]][[Esther 3.4|]][[Esther 3.5|]][[Esther 3.6|]][[Esther 3.7|]][[Esther 3.8|]][[Esther 3.9|]][[Esther 3.10|]][[Esther 3.11|]][[Esther 3.12|]][[Esther 3.13|]][[Esther 3.14|]][[Esther 3.15|]]; [[Esther 5.2|5:2–3]][[Esther 5.3|]]; [[Esther 8.11|8:11–12]][[Esther 8.12|]]
 ### Fasting shows that I trust and rely on the Lord.
 
 Notice why Esther and the rest of the Jews decided to fast (see [[Esther 3.13|Esther 3:13]]; [[Esther 4.1|4:1–3, 10–17]][[Esther 4.2|]][[Esther 4.3|]][[Esther 4.10|]][[Esther 4.11|]][[Esther 4.12|]][[Esther 4.13|]][[Esther 4.14|]][[Esther 4.15|]][[Esther 4.16|]][[Esther 4.17|]]). How did fasting bless them? (see [[Esther 5.2|Esther 5:2–3]][[Esther 5.3|]]; [[Esther 8.11|8:11–12]][[Esther 8.12|]]). Why does the Lord ask us to fast? (see Topics and Questions, “[Fasting and Fast Offerings](https://churchofjesuschrist.org/study/manual/gospel-topics/fasting-and-fast-offerings?lang=eng),” Gospel Library). Consider how you can make fasting a greater blessing in your life.

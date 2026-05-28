@@ -145,4 +145,6 @@ It will be clearly understood, then, that the great responsibility that the lead
 I want to bear my sacred witness that because I know of the divinity of this work, I know that it will prevail; and that though there may be enemies within and without the Church who would seek to undermine and would seek to find fault and try to undermine the influence of the Church in the world, this church will be borne off triumphantly and will stand through the test of time when all the man-made efforts and weapons forged against the Lord’s word will fall by the wayside. I know that our Lord and Master Jesus Christ is the head of this church; that he has daily communion through agencies known to him, not only to the leaders of the Church in high positions, but also to individual members as they keep the commandments of God. To that I bear my sacred witness and leave my blessing upon all the faithful of the Church, and indeed in the world everywhere, in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Church_Organization #Zion

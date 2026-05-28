@@ -93,4 +93,6 @@ This, I remind every man and boy in this vast audience tonight, is the Church an
 Brethren, what a tremendous organization we are all a part of. We shall go forward and never flag or be deterred in our efforts to build this kingdom and establish righteousness in the earth. May God grant us wisdom, strength, and resolution, I humbly pray in the name of our Redeemer, the Lord Jesus Christ, amen.
 
 
+
+
 #Church_Organization #Communication #Education #Generosity #Government #Homosexuality #Marriage #Media #Morality #Priesthood #Sacrifice #Service #Word_Of_Wisdom #Work

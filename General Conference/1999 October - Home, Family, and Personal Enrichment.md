@@ -59,4 +59,6 @@ As Relief Society leaders and all of us as members catch the vision and the exci
 Relief Society is an organization of divine origin. Within it lies the power to strengthen sisters and their families and to create a worldwide family of sisters. In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Home #Jesus_Christ #Relief_Society

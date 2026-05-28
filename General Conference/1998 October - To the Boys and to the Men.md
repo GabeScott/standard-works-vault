@@ -131,4 +131,6 @@ This is a part of the temporal gospel in which we believe. May the Lord bless yo
 I leave with you my testimony of the divinity of this work and my love for each of you, in the name of the Redeemer, the Lord Jesus Christ, amen.
 
 
+
+
 #Financial_Management #Honesty #Jesus_Christ #Love #Missionary_Work #Prayer #Self-Reliance

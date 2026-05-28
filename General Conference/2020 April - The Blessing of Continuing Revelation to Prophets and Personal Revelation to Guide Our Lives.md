@@ -162,4 +162,6 @@ My humble plea today is that each of us will seek continuing revelation to guide
 [^32]: Wilford Woodruff, in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-24?lang=eng)* (2007), 283.
 
 
+
+
 #Prophets #Revelation

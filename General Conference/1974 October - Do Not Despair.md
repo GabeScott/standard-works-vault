@@ -69,4 +69,6 @@ Some of you will recall in that great book *Pilgrim’s Progress* by John Bunyan
 May we use them all in the difficult days ahead so that we Christian pilgrims will have greater happiness here and go on to a fullness of joy in the highest realms of the celestial kingdom is my prayer in the name of Jesus Christ. Amen.
 
 
+
+
 #Attitude #Joy

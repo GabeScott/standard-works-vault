@@ -129,4 +129,6 @@ As a special witness for Christ, I bear my solemn testimony that God lives; that
 I bear further witness that the gospel in its fulness has been restored in these the latter days; that this church, under the direction of Jesus Christ, is led by a prophet of God, even Spencer W. Kimball. May we all accept the gospel of Jesus Christ and so live as to enjoy eternal life with God, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Godhead #Plan_Of_Salvation #Testimony

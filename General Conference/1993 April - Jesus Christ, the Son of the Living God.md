@@ -61,4 +61,6 @@ He is Jesus Christ, “the Lord Omnipotent who reigneth, who was, and is from al
 I know and bear witness that Jesus is the Christ, the Son of the living God, that he was and is the Great Jehovah, the Savior and Redeemer of the world. I know that he atoned for the sins of the world and that he was resurrected with a glorious body of flesh and bone. I bear witness that he lives and that he soon will come again to rule and reign as “King of Kings, and Lord of Lords” ([[Revelation 19.16|Rev. 19:16]]). May we truly “flood the earth with the Book of Mormon” (Ezra Taft Benson, in Conference Report, Oct. 1988, [[1988 October - Flooding the Earth with the Book of Mormon.md|p. 4]]; or *Ensign,* Nov. 1988, p. 5), that all who will may come unto him and be saved, I pray in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Book_Of_Mormon #Jesus_Christ

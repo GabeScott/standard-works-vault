@@ -156,4 +156,6 @@ Don’t we in great sincerity sing:
 That is His promise, and His word is true, I testify in His sacred name, the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Morality #Obedience

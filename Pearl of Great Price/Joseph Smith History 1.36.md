@@ -5,4 +5,4 @@
 [Joseph Smith History 1:36](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.36?lang=eng#p36)
 
 
-[^a]: [[Malachi 3.1|Mal. 3–4]].  
+[^a]: [[Malachi 3.1|Mal. 3–4]][[Malachi 3.2|]][[Malachi 3.3|]][[Malachi 3.4|]][[Malachi 3.5|]][[Malachi 3.6|]][[Malachi 3.7|]][[Malachi 3.8|]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]][[Malachi 3.13|]][[Malachi 3.14|]][[Malachi 3.15|]][[Malachi 3.16|]][[Malachi 3.17|]][[Malachi 3.18|]].  

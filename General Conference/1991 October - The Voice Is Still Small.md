@@ -61,4 +61,6 @@ As it was with Elijah, so it is today. God is not in the earthquake, nor in the 
 I know that he lives. He loves you. He wants you to follow him, and to follow him not because of any spectacular showmanship on his part, but simply because you love him—simply! I bear my solemn witness that he lives and is near you and that we are being led by his living prophet in these last days. All of which I do in the holy name of our Savior, Jesus Christ, amen.
 
 
+
+
 #Faith #Jesus_Christ #Music #Obedience #Scriptures #Spirituality #Worship

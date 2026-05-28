@@ -91,4 +91,6 @@ We have made some wonderful strides in the past. We will be lengthening our stri
 We can do it. I know we can. That we will do so is my prayer for all of us. God bless you for all the good you have done and will be doing. I leave my blessings on all of you and do so in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Pride #Repentance #Spirituality

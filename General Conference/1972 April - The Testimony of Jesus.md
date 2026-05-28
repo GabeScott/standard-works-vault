@@ -112,4 +112,6 @@ This is a day when he has said that every elder in his kingdom, everyone who hol
 I proclaim these truths and desire in my heart to have men believe and obey. I think I can say with Nephi that the fullness of mine intent is to persuade men to come unto the God of Abraham and the God of Isaac and the God of Jacob and be saved—because the work is true, because salvation is in Christ. And God being our witness, it is true. In the name of Jesus Christ. Amen.
 
 
+
+
 #Jesus_Christ #Testimony

@@ -90,4 +90,6 @@ The following Sunday he was back. He had a long conversation with his bishop and
 [^16]: [[Luke 15.20|Luke 15:20]].
 
 
+
+
 #Activation #Jesus_Christ #Love #Ministering

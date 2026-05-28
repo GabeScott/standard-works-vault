@@ -83,4 +83,6 @@ By faith, a young man in the year 1820 became an instrument in the hands of the 
 After reading that passage of scripture Joseph Smith sought a grove of trees in which to make inquiry. In response to his supplication to God, a marvelous vision opened up to him wherein he saw and conversed with two personages, God the Father, and his Son Jesus Christ. From this personal visitation and ensuing instruction, which included the translation and publication of the Book of Mormon as the keystone, the kingdom as proclaimed by Daniel was established. It is The Church of Jesus Christ of Latter-day Saints. It began in obscurity, but it is now rolling forth throughout the free world, inviting all to come unto Christ. I bear this witness to this truth in the name of Jesus Christ. Amen.
 
 
+
+
 #Prophecy #Scriptures #Testimony

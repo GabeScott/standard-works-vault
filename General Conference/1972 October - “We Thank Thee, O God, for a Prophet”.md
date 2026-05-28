@@ -99,4 +99,6 @@ One other leader wrote: “Men do not obtain place in this Church because they s
 May the Lord bless our new President and his counselors and fully sustain them. May we the people uphold his hands and totally sustain President Harold B. Lee, whom I know to be the Lord’s prophet on this earth. I bear testimony that God, whose voice was heard on the Jordan River, among the Nephites, in the grove in New York, is our Heavenly Father; and the one to whom he alluded when he said, “This is my Beloved Son, in whom I am well pleased,” is our Savior, the Lord Jesus Christ, the head of the Church. I bear testimony too that President Lee is a prophet of God, and if we will follow him, we will make great headway in the kingdom. I bear this testimony to you in all fervor and sincerity and in the name of Jesus Christ. Amen.
 
 
+
+
 #Church_Leaders #Prophets

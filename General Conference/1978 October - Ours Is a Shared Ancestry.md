@@ -65,4 +65,6 @@ At what rate are we progressing? As members of the Church we are identifying app
 With his blessings—spiritual blessings, technological blessings—we can accelerate the availability of exalting opportunities to his children who are awaiting our expression of love in turning our hearts to them. In the name of Jesus Christ, amen.
 
 
+
+
 #Family_History

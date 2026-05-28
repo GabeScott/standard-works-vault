@@ -173,4 +173,6 @@ I bear witness that the power and inspiration of calls is present in the Church.
 [^13]: [[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]].
 
 
+
+
 #Children #Church_Callings #Home #Ordinances #Service

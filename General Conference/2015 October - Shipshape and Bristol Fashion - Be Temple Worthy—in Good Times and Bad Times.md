@@ -138,4 +138,6 @@ My dear brothers and sisters, life is not easy, nor was it meant to be. It is a 
 [^29]: [[Galatians 5.22|Galatians 5:22]].
 
 
+
+
 #Agency #Holy_Ghost #Joy #Righteousness #Sabbath #Self-Control #Worthiness

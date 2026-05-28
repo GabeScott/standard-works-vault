@@ -114,4 +114,6 @@ I testify that this is what we should do to enjoy the blessings of Him whom we w
 [^3]: See, for example, Rory C. Reid, “The Road Back: Abandoning Pornography,” *Liahona,* Feb. 2005, 28–33; *Ensign,* Feb. 2005, 46–51; Arianne B. Cope, “Internet Café,” *New Era,* Mar. 2005, 34–37; Nycole S. Larsen, “The Decision,” *Friend,* Mar. 2004, 40–41.
 
 
+
+
 #Evil #Media #Repentance #Temptation

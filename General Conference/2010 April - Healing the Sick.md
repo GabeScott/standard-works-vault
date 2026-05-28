@@ -110,4 +110,6 @@ I testify of the power of the priesthood of God, of the power of the prayer of f
 [^14]: See also [[1 John 5.14|1 John 5:14]]; [[Helaman 10.5|Helaman 10:5]].
 
 
+
+
 #Blessings #Faith #Healing #Priesthood

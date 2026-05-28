@@ -87,4 +87,6 @@ Please remember that men—like salt—lose their savor through contamination; r
 I testify that an abiding and exalting relationship with the Master is established as we live to be men with savor and saviors of men. This I declare, adding my witness that He lives and directs his church today, in the name of Jesus Christ, amen.
 
 
+
+
 #Missionary_Work #Priesthood #Worthiness

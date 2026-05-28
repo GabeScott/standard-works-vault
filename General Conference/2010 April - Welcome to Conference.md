@@ -29,4 +29,6 @@ Now, brothers and sisters, we have come here to be instructed and inspired. We w
 It is my prayer that we may be filled with His Spirit as we listen and learn. That this may be so, I pray in the name of Jesus Christ, our Lord and Savior, amen.
 
 
+
+
 #Church_Growth #General_Conference #Service #Temples

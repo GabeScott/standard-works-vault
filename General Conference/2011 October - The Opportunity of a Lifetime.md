@@ -63,4 +63,6 @@ I repeat Elder M. Russell Ballard’s invitation, given to a previous group of y
 As you accept this invitation, you will learn a great lesson, as did Elder Misiego and all who have faithfully served, returned, and applied. You will learn that the words of our prophet, President Thomas S. Monson, are true: “The missionary opportunity of a lifetime is yours. The blessings of eternity await you. Yours is the privilege to be not spectators but participants on the stage of priesthood service” (in Conference Report, Apr. 1995, [[1995 April - That All May Hear.md|67]]; or *Ensign,* May 1995, 49). I testify that this is true in the name of Jesus Christ, amen.
 
 
+
+
 #Activation #Book_Of_Mormon #Missionary_Work #Sacrifice #Service #Youth

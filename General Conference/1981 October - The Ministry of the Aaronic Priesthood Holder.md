@@ -71,4 +71,6 @@ He listened. He obeyed. And through the authority and power of the priesthood, a
 May the Lord bless all of you young men as you develop *your* personal relationship with the Savior. I testify that he lives! I testify that he knows your name! He knows you intimately! He loves you! May his power and blessing be with you in your Aaronic Priesthood ministry. In the name of Jesus Christ, amen.
 
 
+
+
 #Miracles #Priesthood

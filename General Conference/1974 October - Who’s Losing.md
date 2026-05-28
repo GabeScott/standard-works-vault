@@ -69,4 +69,6 @@ He this day would have us permanently adopt the attitude of conviction and commi
 What a pleasure it is for me, brothers and sisters, to bear special witness to his reality, his strength, his divinity, and his earthly purposes. This is his church. This is his gospel. This is his plan for those who would conquer self, continue faithfully, and be victorious. I bear testimony to these truths in the name of Jesus Christ. Amen.
 
 
+
+
 #Attitude #Self-Esteem

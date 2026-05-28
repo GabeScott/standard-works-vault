@@ -104,4 +104,6 @@ To President Monson’s powerful declaration I add my own. I testify that God is
 [^19]: Thomas S. Monson, in Conference Report, Apr. 2009, [[2009 April - Be of Good Cheer.md|90]]; or *Ensign,* May 2009, 92.
 
 
+
+
 #Adversity #Faith #Obedience #Tithing

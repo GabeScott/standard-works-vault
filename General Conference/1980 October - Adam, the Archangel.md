@@ -137,4 +137,6 @@ If any of you have been confused by false teachers who come among us, if you hav
 I bear you my solemn testimony that this—The Church of Jesus Christ of Latter-day Saints—is indeed the church and kingdom of God. Jesus is the Christ. Spencer W. Kimball is his prophet. We are the legal and divinely chosen custodians of the restored truth. This I testify in the name of Jesus Christ, amen.
 
 
+
+
 #Adam_And_Eve

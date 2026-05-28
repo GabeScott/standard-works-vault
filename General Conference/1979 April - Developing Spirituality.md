@@ -71,4 +71,6 @@ A modern-day revelation makes this promise: “Put your trust in that Spirit whi
 May we follow the counsel to so labor and so live as to obtain the Spirit of God, I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Holy_Ghost #Missionary_Work #Spirituality

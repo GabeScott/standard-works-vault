@@ -221,4 +221,6 @@ Brothers and sisters, we urge all our people to “be ye clean that bear the ves
 May God bless you with His divine Spirit as you yield to the spiritual sermons of this conference by the Brethren. And with my testimony I close in the name of Jesus Christ. Amen.
 
 
+
+
 #Church_Growth #Church_History #Family #Honesty #Media #Obedience

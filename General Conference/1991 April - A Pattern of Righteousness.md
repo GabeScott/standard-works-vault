@@ -43,4 +43,6 @@ When I looked for a definition of *pattern,* I found it had a Latin origin deriv
 I am grateful to men and women and people of all ages whose lives help us see this pattern of righteousness. I am thankful for a living prophet. A few days after I was called as a counselor in the Young Women General Presidency, the First Presidency of the Church approached my chair to set me apart and give me a blessing. I realized the prophet of God was about to lay his hands upon my head, and I was in awe. Following the blessing, as I turned to face the prophet, I was quite unprepared for the magnificence of the spirit I felt. I bear testimony that Ezra Taft Benson is a prophet of God and that Jesus Christ is our Savior. He has given us a pattern of righteousness that, when followed, will lead us back to our Heavenly Father. I bear this witness in the name of Jesus Christ, amen.
 
 
+
+
 #Example #Prayer #Scripture_Study #Service #Spirituality

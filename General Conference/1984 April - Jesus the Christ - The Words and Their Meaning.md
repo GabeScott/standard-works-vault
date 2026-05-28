@@ -71,4 +71,6 @@ Some three decades ago, Professor Arnold Toynbee concluded one of the most exten
 We know that Savior to be the Lord Jesus Christ. From many, many experiences over my lifetime, I can truly testify to you that He truly is our Savior; and if the Father is approached in prayer, as His Son has commanded us, doors will open to help us move forward without fear in life. That all men everywhere may come to realize and know the significance of *Jesus the Christ,* the One chosen before the foundation of the world, is my faith and witness. In the name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ

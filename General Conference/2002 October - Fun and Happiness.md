@@ -67,4 +67,6 @@ I know that President Gordon B. Hinckley is the prophet of God today and that he
 These things are part of my testimony of the truth, and I share them with you, my brothers and sisters, in the name of Jesus Christ, amen.
 
 
+
+
 #Joy #Obedience #Plan_Of_Salvation

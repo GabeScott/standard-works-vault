@@ -87,4 +87,6 @@ Yes, the spirit of sacrifice is alive and well among those who travel *the* way!
 May each of us, brothers and sisters, navigate that straight and narrow way, landing our immortal souls “at the right hand of God in the kingdom of heaven.” ([[Helaman 3.30|Hel. 3:30]].) Only then, when we are really home, will our mortal homesickness disappear—our highest human yearnings for *what could be* are but muffled memories of *what once was*—and *will again be*—for we have indeed “wandered from a more exalted sphere.” (*Hymns,* no. 138.) May we make that journey I so pray in the name of Him who has completed this same journey and who beckons us onward, Jesus Christ. Amen.
 
 
+
+
 #Christianity #Discipleship

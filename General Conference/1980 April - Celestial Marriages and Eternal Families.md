@@ -133,4 +133,6 @@ I conclude by reading from a letter I received from a convert to the Church who,
 I know that through the gospel of Jesus Christ, and through keeping the commandments of God and the covenants we make with him, we can each make of our home a heaven on earth while we prepare ourselves and our children to return to our Heavenly Father. I bear testimony to the truthfulness of the things I have said this day, and I do it in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Family #Marriage

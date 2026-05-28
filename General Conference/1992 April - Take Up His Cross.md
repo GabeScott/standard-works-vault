@@ -71,4 +71,6 @@ May that love of God bring peace in your homes. I love you, and *kam sa ham ni t
 In the name of Jesus Christ, amen.
 
 
+
+
 #Discipleship #Gratitude #Sacrifice

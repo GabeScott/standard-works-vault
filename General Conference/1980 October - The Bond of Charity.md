@@ -53,4 +53,6 @@ If we all unite and become one sisterhood in our meetings and activities, togeth
 God grant that we may “learn, then teach” with receptive minds and clear purpose. May we be fully united in the bond of charity so that we can glean all of the blessings which the Lord has prepared for us from the foundation of the earth, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Relief_Society

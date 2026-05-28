@@ -61,4 +61,6 @@ It is as simple as that. Flesh and blood do not reveal it, but our Father which 
 I, too, have felt that Spirit; I, too, know that God lives and that Jesus the Christ is his Son. This is not my philosophy; this is not my belief. This is a knowledge borne by the Spirit. This Church is true. Joseph Smith was a prophet of God. Spencer W. Kimball is a prophet of God today. We are in the Lord’s service. In the name of Jesus Christ, amen.
 
 
+
+
 #Holy_Ghost #Spirituality #Testimony

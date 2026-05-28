@@ -92,4 +92,6 @@ Not one of you has thrown away your last chance. You can change, you can come ba
 [^14]: [[3 Nephi 17.7|3 Nephi 17:7]]; emphasis added.
 
 
+
+
 #Healing #Obedience #Repentance

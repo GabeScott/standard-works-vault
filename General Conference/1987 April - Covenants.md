@@ -127,4 +127,6 @@ They who have preceded us in this work and our forebears there, on occasion, are
 God grant that we who have an opportunity to have part in it might seek that opportunity and labor with all our might, in the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Faith #Family_History #Prayer #Temple_Work

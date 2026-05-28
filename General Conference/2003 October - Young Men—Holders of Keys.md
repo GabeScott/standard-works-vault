@@ -98,4 +98,6 @@ I testify that these Aaronic Priesthood quorums hold the holy priesthood of God.
 [^6]: [[Mormon 2.1|Mormon 2:1–2]][[Mormon 2.2|]].
 
 
+
+
 #Missionary_Work #Priesthood #Service #Youth

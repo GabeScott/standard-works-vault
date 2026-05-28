@@ -114,4 +114,6 @@ Brothers and sisters, in an ever-changing world, we must prepare for uncertainti
 [^19]: [[Genesis 41.54|Genesis 41:54]].
 
 
+
+
 #Preparation #Self-Reliance

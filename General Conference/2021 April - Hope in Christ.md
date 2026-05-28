@@ -138,4 +138,6 @@ I bear my witness on this Easter weekend of our Savior, Jesus Christ, and the et
 [^22]: [[Acts 17.26|Acts 17:26]].
 
 
+
+
 #Belonging #Blessings #Hope #Jesus_Christ #Loneliness #Obedience #Patience #Single_Adults

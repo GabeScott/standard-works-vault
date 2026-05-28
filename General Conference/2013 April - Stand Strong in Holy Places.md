@@ -138,4 +138,6 @@ My beloved priesthood brethren young and old, let us glorify God’s name by sta
 [^27]: [[1 Corinthians 16.13|1 Corinthians 16:13]].
 
 
+
+
 #Jesus_Christ #Obedience #Standards

@@ -99,4 +99,6 @@ Are these perilous times? They are. But there is no need to fear. We can have pe
 May the God of heaven, the Almighty, bless us, help us, as we walk our various ways in the uncertain days that lie ahead. May we look to Him with unfailing faith. May we worthily place our reliance on His Beloved Son, who is our great Redeemer, whether it be in life or in death, is my prayer in His holy name, even the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Agency #Book_Of_Mormon #Commandments #Contention #Death #Evil #Financial_Management #Jesus_Christ #Neighbors #Peace #Prayer #Religion #Safety #Self-Reliance #Tithing #U.S._Constitution

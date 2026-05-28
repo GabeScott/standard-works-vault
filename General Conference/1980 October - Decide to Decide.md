@@ -61,4 +61,6 @@ Decide to make decisions about certain things once—those things will push from
 May we all make our decisions in the favorable light of the gospel of Jesus Christ, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Agency #Goals

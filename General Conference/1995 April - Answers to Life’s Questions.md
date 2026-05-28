@@ -67,4 +67,6 @@ My testimony coincides with the testimony of the beloved Apostle John: “If ye 
 I leave you my testimony that the Lord’s promise of peace comes from knowing and living the principles of our Heavenly Father’s plan of happiness. May his peace and joy be with all of us I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Agency #Atonement #Faith #Hope #Obedience #Plan_Of_Salvation

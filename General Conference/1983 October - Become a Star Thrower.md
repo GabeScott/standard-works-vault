@@ -97,4 +97,6 @@ Be a star thrower! Then you may better understand our Lord’s commandment: “T
 God bless us all in his divine work of the recovering of souls, that our resolve will be firm, that our timing will be now, and that our success will be sweet, in the name of Jesus Christ, our Savior, amen.
 
 
+
+
 #Activation

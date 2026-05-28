@@ -132,4 +132,6 @@ Dr. Eckstein said, “And every bird came back!”
 Our youth will hear the classical music of the gospel, and if they have an impact teacher, every boy and girl will come back. God bless you great hosts of parents, bishops, and Aaronic Priesthood, Young Women, seminary, and Sunday School teachers who have been raised up for this special time with a special mission as impact teachers to this great generation. In the name of Jesus Christ. Amen.
 
 
+
+
 #Teaching #Youth

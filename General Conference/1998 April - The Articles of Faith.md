@@ -51,4 +51,6 @@ I encourage each of you to study the Articles of Faith and the doctrines they te
 I add my testimony to the truthfulness of these special revealed truths, in the name of our Lord and Savior, even Jesus Christ, amen.
 
 
+
+
 #Agency #Articles_Of_Faith #Atonement #Book_Of_Mormon #Covenants #Faith #Godhead #Government #Obedience #Ordinances #Priesthood #Repentance #Sin #Spirituality #Zion

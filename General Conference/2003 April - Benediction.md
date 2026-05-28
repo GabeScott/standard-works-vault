@@ -31,4 +31,6 @@ Let us be a prayerful people. Let us bring up our children “in the nurture and
 For the blessings of heaven to rest upon you I humbly pray as I express to you my love for each of you. Thank you for your great kindness to me and your great faithfulness and energy in moving forward the work of the Almighty, in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Faith #Family #Obedience #Peace #Prayer

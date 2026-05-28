@@ -155,4 +155,6 @@ Another source reports that “seventy percent of all inventory losses are due t
 I bear you my witness, my brothers and sisters, that this doctrine I’ve been quoting to you is true and is from the Almighty Himself. He has revealed to us in these latter days the principles by which we may prosper, by which we may perfect ourselves, by which we may rise from the fallen condition in which we are to the condition we must reach in preparation for the return of the Redeemer to the world. I bear my witness to these truths and to the truths of the gospel as it has been revealed and as we teach it, and I do it humbly in the name of Jesus Christ our Redeemer. Amen.
 
 
+
+
 #Honesty

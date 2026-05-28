@@ -81,4 +81,6 @@ I do not know fully why God has preserved my life to this age, but I do know thi
 Moses never entered the promised land. Joseph Smith never saw Zion redeemed. Some of us may not live long enough to see the day when the Book of Mormon floods the earth and when the Lord lifts His condemnation. (See [[D&C 84.54|D&C 84:54–58]][[D&C 84.55|]][[D&C 84.56|]][[D&C 84.57|]][[D&C 84.58|]].) But, God willing, I intend to spend all my remaining days in that glorious effort. In the name of Jesus Christ, amen.
 
 
+
+
 #Book_Of_Mormon #Missionary_Work #Scripture_Study

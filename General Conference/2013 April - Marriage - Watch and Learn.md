@@ -72,4 +72,6 @@ Marriage is a gift from God to us; the quality of our marriages is a gift from u
 [^13]: [[4 Nephi 1.11|4 Nephi 1:11]].
 
 
+
+
 #Faith #Family #Humility #Love #Loyalty #Marriage #Repentance #Respect

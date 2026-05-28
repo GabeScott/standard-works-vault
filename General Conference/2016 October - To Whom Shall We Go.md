@@ -126,4 +126,6 @@ Jesus is our Savior and Redeemer, and His restored gospel will lead us safely ba
 [^15]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
 
+
+
 #Faith #Jesus_Christ #Loyalty

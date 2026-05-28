@@ -55,4 +55,6 @@ To the Primary children of the world, I want you to know that there are many peo
 All of us can be like the giant redwood trees and support and strengthen each other, especially the children, that when storms arise we can actually hold each other up. In the name of Jesus Christ, amen.
 
 
+
+
 #Children #Family_Home_Evening #Love #Ordinances #Prayer

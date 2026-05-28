@@ -99,4 +99,6 @@ God be implored that we may have a listening ear and give heed to the voice of h
 God be thanked that he has poured out his Spirit upon us so that we know of the truth and divinity of the great latter-day work, and to its eternal verity I testify in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Foreordination #Plan_Of_Salvation

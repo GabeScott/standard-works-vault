@@ -69,4 +69,6 @@ There will be no more questions then about the historicity of Jesus of Nazareth.
 Meanwhile, may God help us to receive more effectively all newcomers and returnees to Zion—even as God has so mercifully received us into his Church. There will be one more regal reception at the gate, where Jesus is the sole gatekeeper. He awaits us there, not only to certify us, but because his divine love brings him to welcome us. Hence he “employeth no servant there” ([[2 Nephi 9.41|2 Ne. 9:41]]). May we be ready to be so received, as he leads us with his “kindly light,” I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Fellowshipping

@@ -8,7 +8,7 @@ These ancient accounts are valuable not just because they show us that wickednes
 
 ## Ideas for Learning at Home and at Church
 
-[[Genesis 6.1|Genesis 6]]; [[Moses 8.1|Moses 8]]
+[[Genesis 6.1|Genesis 6]][[Genesis 6.2|]][[Genesis 6.3|]][[Genesis 6.4|]][[Genesis 6.5|]][[Genesis 6.6|]][[Genesis 6.7|]][[Genesis 6.8|]][[Genesis 6.9|]][[Genesis 6.10|]][[Genesis 6.11|]][[Genesis 6.12|]][[Genesis 6.13|]][[Genesis 6.14|]][[Genesis 6.15|]][[Genesis 6.16|]][[Genesis 6.17|]][[Genesis 6.18|]][[Genesis 6.19|]][[Genesis 6.20|]][[Genesis 6.21|]][[Genesis 6.22|]]; [[Moses 8.1|Moses 8]][[Moses 8.2|]][[Moses 8.3|]][[Moses 8.4|]][[Moses 8.5|]][[Moses 8.6|]][[Moses 8.7|]][[Moses 8.8|]][[Moses 8.9|]][[Moses 8.10|]][[Moses 8.11|]][[Moses 8.12|]][[Moses 8.13|]][[Moses 8.14|]][[Moses 8.15|]][[Moses 8.16|]][[Moses 8.17|]][[Moses 8.18|]][[Moses 8.19|]][[Moses 8.20|]][[Moses 8.21|]][[Moses 8.22|]][[Moses 8.23|]][[Moses 8.24|]][[Moses 8.25|]][[Moses 8.26|]][[Moses 8.27|]][[Moses 8.28|]][[Moses 8.29|]][[Moses 8.30|]]
 ### There is spiritual safety in following the Lord’s prophet.
 
 Do you see anything in the description of Noah’s day that seems similar to conditions in our day? In particular, look in [[Moses 8.15|Moses 8:15–24, 28]][[Moses 8.16|]][[Moses 8.17|]][[Moses 8.18|]][[Moses 8.19|]][[Moses 8.20|]][[Moses 8.21|]][[Moses 8.22|]][[Moses 8.23|]][[Moses 8.24|]][[Moses 8.28|]]. What themes do you see repeated?
@@ -54,7 +54,7 @@ The account of the people of Babel building a tower provides an interesting cont
 
 ## Ideas for Teaching Children
 
-[[Genesis 6.14|Genesis 6:14–22]][[Genesis 6.15|]][[Genesis 6.16|]][[Genesis 6.17|]][[Genesis 6.18|]][[Genesis 6.19|]][[Genesis 6.20|]][[Genesis 6.21|]][[Genesis 6.22|]]; [[Genesis 7.1|7–8]]; [[Moses 8.16|Moses 8:16–24]][[Moses 8.17|]][[Moses 8.18|]][[Moses 8.19|]][[Moses 8.20|]][[Moses 8.21|]][[Moses 8.22|]][[Moses 8.23|]][[Moses 8.24|]]
+[[Genesis 6.14|Genesis 6:14–22]][[Genesis 6.15|]][[Genesis 6.16|]][[Genesis 6.17|]][[Genesis 6.18|]][[Genesis 6.19|]][[Genesis 6.20|]][[Genesis 6.21|]][[Genesis 6.22|]]; [[Genesis 7.1|7–8]][[Genesis 7.2|]][[Genesis 7.3|]][[Genesis 7.4|]][[Genesis 7.5|]][[Genesis 7.6|]][[Genesis 7.7|]][[Genesis 7.8|]][[Genesis 7.9|]][[Genesis 7.10|]][[Genesis 7.11|]][[Genesis 7.12|]][[Genesis 7.13|]][[Genesis 7.14|]][[Genesis 7.15|]][[Genesis 7.16|]][[Genesis 7.17|]][[Genesis 7.18|]][[Genesis 7.19|]][[Genesis 7.20|]][[Genesis 7.21|]][[Genesis 7.22|]][[Genesis 7.23|]][[Genesis 7.24|]]; [[Moses 8.16|Moses 8:16–24]][[Moses 8.17|]][[Moses 8.18|]][[Moses 8.19|]][[Moses 8.20|]][[Moses 8.21|]][[Moses 8.22|]][[Moses 8.23|]][[Moses 8.24|]]
 ### Following the Lord’s prophet will bless me and my family.
 
 - Most children love the story of Noah and the ark. Consider giving your children opportunities to share what they know about it. To help them, you could use the pictures in this outline, “[Noah and His Family](https://churchofjesuschrist.org/study/manual/old-testament-stories-2022/noah-and-his-family?lang=eng)” in *Old Testament Stories* (22–25), and the third verse of “[Follow the Prophet](https://www.churchofjesuschrist.org/media/music/songs/follow-the-prophet)” (*Children’s Songbook*, 110–11). Your children might enjoy acting out parts of the story—for example, by pretending to use a tool to build the ark or walking like animals entering the ark.> 1:39

@@ -35,4 +35,6 @@ God has called Latter-day Saint women to prepare his children for the challenges
 Let us learn and then teach that the Lord has given us a prophet to guide us back to him; learn and then teach that Jesus is the Christ, that he lives, and that our only security lies in his arms. To this I testify in the holy name of Jesus Christ, amen.
 
 
+
+
 #Family #Motherhood

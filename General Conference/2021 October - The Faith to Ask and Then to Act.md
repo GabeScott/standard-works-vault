@@ -100,4 +100,6 @@ I pray that you may have that same witness. I pray that you will ask Heavenly Fa
 [^16]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17, 30–42, 68–72]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.68|]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]][[Joseph Smith History 1.72|]]; see also [[D&C 27.12|Doctrine and Covenants 27:12–13]][[D&C 27.13|]]; [[D&C 110.1|110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
 
+
+
 #Commandments #Faith #Holy_Ghost #Jesus_Christ #Obedience #Prophets #Revelation

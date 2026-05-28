@@ -75,4 +75,6 @@ A few years ago I was in a grocery store in a city not far from here when I hear
 Plan on completing the full four years of seminary. You know the institute is available for all students and nonstudents between the ages of 18 and 30. Are you enrolled? If not, I invite you to take advantage of this wonderful opportunity. And to you who are enrolled, study diligently to learn the gospel. I promise you that the foundation you receive in these two great programs will bless you throughout your lives. This is my witness to you in the name of our Lord and Savior, even Jesus Christ, amen.
 
 
+
+
 #Education #Institute #Jesus_Christ #Scriptures #Seminary

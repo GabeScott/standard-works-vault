@@ -97,4 +97,6 @@ I know of no more glorious work. As God is my witness, I love it with every part
 God bless you, youth of the noble birthright, I pray in the name of Jesus Christ, amen.
 
 
+
+
 #Scouting #Youth

@@ -92,4 +92,6 @@ How reassuring are the Savior’s words: “I am the light of the world: he that
 [^10]: [[D&C 6.21|Doctrine and Covenants 6:21]].
 
 
+
+
 #Charity #Example #Faith #Jesus_Christ #Morality #Profanity #Scriptures

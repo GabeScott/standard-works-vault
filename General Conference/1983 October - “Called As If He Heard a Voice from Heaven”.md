@@ -127,4 +127,6 @@ In Isaiah, the prophet asks, “Watchman, what of the night?” ([[Isaiah 21.11|
 A great truth. They *will* be the torchbearers. May we be the watchmen. In the name of Jesus Christ, amen.
 
 
+
+
 #Youth

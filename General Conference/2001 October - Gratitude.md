@@ -57,4 +57,6 @@ One hundred and twenty years later, our family climbed Comb Ridge on a bright sp
 Brethren, I pray that we might keep our hearts full of thanks and appreciation for what we have and not dwell on what is not ours. As holders of the priesthood, let us adopt an attitude of gratitude in all we do is my prayer in the name of Jesus Christ, amen.
 
 
+
+
 #Blessings #Friendship #Gratitude #Joy #Love #Prayer

@@ -57,4 +57,6 @@ Challenging times require greater spiritual power. Consider carefully the Savior
 I humbly declare that God, our Heavenly Father, lives and loves each of us, His children. Jesus Christ is our Savior and Redeemer. He lives and personally leads His Church through President Monson, His anointed prophet. Because He lives, there is always hope smiling brightly before us. In a household of faith, there is no need to fear or doubt. Choose to live by faith and not fear. In the sacred name of Jesus Christ, amen.
 
 
+
+
 #Faith #Jesus_Christ #Obedience

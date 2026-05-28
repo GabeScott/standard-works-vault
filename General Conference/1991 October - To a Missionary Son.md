@@ -65,4 +65,6 @@ Brad, love every minute of your service to those wonderful Polish people. Love t
 The work in which you are engaged is true. You are teaching the restored gospel of Jesus Christ. It is the promise of salvation to all who will listen and accept your message. Of this I bear my witness in the name of Jesus Christ, amen.
 
 
+
+
 #Faith #Humility #Missionary_Work #Obedience #Scriptures

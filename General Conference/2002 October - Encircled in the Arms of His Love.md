@@ -81,4 +81,6 @@ Part of God’s “ample provision” consists of imperfect people like you and 
 In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Discipleship #Holy_Ghost #Jesus_Christ #Spirituality

@@ -124,4 +124,6 @@ I bear you my witness of the reality of God, our loving Father, and of His Belov
 [^16]: [[D&C 1.38|Doctrine and Covenants 1:38]].
 
 
+
+
 #Divine_Nature #Gratitude #Jesus_Christ #Joy #Kindness #Perspective

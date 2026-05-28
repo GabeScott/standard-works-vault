@@ -45,4 +45,6 @@ There is a familiar hymn I would like to have you adopt as a theme song for the 
 Let us sound the call today to revive the old profession of lamplighters. Let us each pick up our torch and illuminate the sacred histories, the eternal truths that divine providence has bestowed on us. Let us have the faith and courage of Nephi, roll up our sleeves like Ben Franklin, and “*go* and *do* the things which the Lord hath commanded.” May we be prepared and ready to celebrate with pride and thanksgiving our 200th anniversary with the comforting knowledge that we have made a worthy contribution to safeguard and protect those divinely inspired principles upon which this nation was established. I humbly pray, in the name of Jesus Christ. Amen.
 
 
+
+
 #Church_History #Obedience #Patriotism

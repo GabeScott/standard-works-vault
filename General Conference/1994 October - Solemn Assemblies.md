@@ -77,4 +77,6 @@ So testified at that time President Hunter. And so I have the honor and privileg
 I bear this testimony to you in the name of Jesus Christ, amen.
 
 
+
+
 #Authority #Church_Leaders #Church_Organization #Ezra_Taft_Benson #General_Conference

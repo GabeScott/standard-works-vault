@@ -84,4 +84,6 @@ I testify of the Lord’s prophet, President Thomas S. Monson, who holds the key
 [^2]: See Dallin H. Oaks, in Conference Report, Oct. 2005, [[2005 October - Priesthood Authority in the Family and the Church.md|24–28]]; or *Ensign,* Nov. 2005, 24–27.
 
 
+
+
 #Church_Organization #Holy_Ghost #Prayer #Priesthood #Revelation

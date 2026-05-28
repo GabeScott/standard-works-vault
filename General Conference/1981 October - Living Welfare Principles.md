@@ -59,4 +59,6 @@ It is the mission of the Church of this last dispensation to develop another peo
 Let us have these things in mind and let us go forward with this great program. Welfare principles are eternal. The welfare program is built upon the principles of the law of consecration. I know from my own experience that this is the Lord’s work. It is to prepare us to become like Christ. If you will think of the most holy, sacred place you have ever been, you will remember that the final thing we are all to do is to be able and willing to consecrate all that we have to the building up of the kingdom of God—which includes caring for our fellowmen. Doing this, we will hasten the advent of the Millennium. God grant that we do not fail, I humbly pray in the name of Jesus Christ, amen.
 
 
+
+
 #Charity

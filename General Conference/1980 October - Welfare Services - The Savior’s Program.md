@@ -79,4 +79,6 @@ According to Amulek, the efficacy of our prayers depends on how we care for one 
 It is my prayer that each of us will derive from this session of conference today a greater conviction and a deeper understanding that welfare services is the work of Jesus Christ, that the welfare plan is his plan, that its principles are his principles, that its spirit is his spirit, and that its achievements are the surest guarantee of peace in this life and immortal glory in the world to come. In the name of Jesus Christ, amen.
 
 
+
+
 #Charity #Plan_Of_Salvation #Welfare

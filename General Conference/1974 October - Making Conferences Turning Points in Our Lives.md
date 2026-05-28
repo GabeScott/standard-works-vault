@@ -49,4 +49,6 @@ From my experiences with conferences, I testify that what is spoken under the in
 That we may select goals from this conference that will bring salvation to us and our families, our neighbors, our wards and branches, I earnestly pray and bear you my witness that from every fiber of my being I know that God lives. I know that Jesus is our Savior. I know from very personal, wonderful experiences that President Spencer W. Kimball is a prophet of God, and that witness I bear to you in the name of Jesus Christ. Amen.
 
 
+
+
 #Spirituality

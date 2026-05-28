@@ -81,4 +81,6 @@ When I heard this tribute, I thought of Paul’s counsel to Timothy: “Be thou 
 Let us stand tall, brothers and sisters, and be not ashamed to take upon us the name of Christ. May God bless us as a church and as individuals that the testimony we bear as His witnesses will be true and clear and fully reliable, I humbly pray in the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Example

@@ -45,4 +45,6 @@ From the scriptures we learn that when the Savior went into the Garden of Gethse
 I believe in prayer. I believe in faith. I believe in repentance. I believe in the power of the Redemption. And yes, Sister Anonymous, I believe in you. And so does a loving Father in Heaven. In the name of Jesus Christ, amen.
 
 
+
+
 #Adversity #Atonement #Faith #Plan_Of_Salvation

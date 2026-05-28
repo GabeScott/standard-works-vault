@@ -165,4 +165,6 @@ All who do this shall be prepared to meet the Savior when he comes, for he has s
 That we may all, through following the guidance of the Holy Spirit, be prepared to “abide” that great day, I humbly pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Holy_Ghost

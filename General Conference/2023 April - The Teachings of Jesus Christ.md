@@ -206,4 +206,6 @@ I affirm the truth of these teachings in the name of Jesus Christ, amen.
 [^37]: [[John 14.26|John 14:26]].
 
 
+
+
 #Jesus_Christ #Scripture_Study #Scriptures #Teaching

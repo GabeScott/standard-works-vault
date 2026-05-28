@@ -102,4 +102,6 @@ Such is the legacy of one called John, even John the Baptist. We hear his voice 
 May we be motivated by his message. May we be inspired by his mission. May we be lifted by his life to a full appreciation of the Aaronic Priesthood and its divine power, I pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Priesthood

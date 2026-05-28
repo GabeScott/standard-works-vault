@@ -55,4 +55,6 @@ I testify that I know the gospel of Jesus Christ and all that it gives us is mea
 I testify that Jesus is the Christ. I love him; my wife loves him; and we deeply desire that our children and grandchildren will love and obey our Lord and Savior. In the name of Jesus Christ, amen.
 
 
+
+
 #Family #Obedience

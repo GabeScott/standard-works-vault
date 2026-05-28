@@ -79,4 +79,6 @@ In this, as is true with all of the other virtues, the Master is the perfect exa
 I testify to you that these things are true. May those “ennobling influences” about which Elder Bowen spoke come regularly enough into our own lives that our spiritual clocks will continue to run strong and true is my earnest prayer. In the name of Jesus Christ, amen.
 
 
+
+
 #Prayer #Sabbath #Sacrament #Scripture_Study #Service #Spirituality

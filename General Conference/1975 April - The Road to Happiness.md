@@ -71,4 +71,6 @@ One has true joy when he knows that he pleases God, and again, when he is assure
 The day will come when the Lord shall compensate every man according to his work. His arm shall be revealed. May we adopt and follow the true road to happiness, which is to fear God and keep his commandments and thereby attain the great goal given us by the Lord, namely, life eternal and everlasting joy in the presence of our Heavenly Father and his Beloved Son, I humbly pray in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Joy

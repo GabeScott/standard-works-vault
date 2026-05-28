@@ -122,4 +122,6 @@ I testify that teaching the gospel is a sacred and holy calling. When you love y
 [^28]: [[John 3.2|John 3:2]].
 
 
+
+
 #Love #Scriptures #Spirituality #Teaching

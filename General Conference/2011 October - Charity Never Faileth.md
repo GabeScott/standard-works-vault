@@ -130,4 +130,6 @@ May our knowledge of the great love that the Father and the Son have for us, and
 [^16]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 454.
 
 
+
+
 #Charity #Service #Visiting_Teaching

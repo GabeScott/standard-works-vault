@@ -45,4 +45,6 @@ Think of it! The Lord loves us so much that He has placed these great men here o
 May you receive in your heart through the Holy Ghost the same witness and testimony which I have in mine regarding these truths, I pray in the name of Jesus Christ. Amen.
 
 
+
+
 #Spencer_W._Kimball #Testimony

@@ -109,4 +109,6 @@ In the words of the Lord to Joshua, brethren, “be strong and of a good courage
 In the name of the Lord Jesus Christ, amen.
 
 
+
+
 #Judging #Kindness #Tolerance #Work

@@ -107,4 +107,6 @@ In “A Little Parable for Mothers” by Temple Bailey, a young mother setting o
 In the end it is you wonderful, wonderful mothers—you who have put your families first, who have helped each child come to feel the acceptance of your love and the love of our Father in Heaven, and to know the truth of the gospel as your life bears witness of it—it is you whose children will “arise up, and call \[you\] blessed.” ([[Proverbs 31.28|Prov. 31:28]].) I so testify in the name of Jesus Christ, amen.
 
 
+
+
 #Employment #Motherhood

@@ -88,4 +88,6 @@ I bear my solemn and sure witness that God, the Eternal Father, is our Heavenly 
 [^18]: See “[I Know That My Redeemer Lives](https://www.churchofjesuschrist.org/study/manual/hymns/i-know-that-my-redeemer-lives?lang=eng),” *Hymns*, no. 136.
 
 
+
+
 #Atonement #Jesus_Christ #Repentance #Sacrament #Temples

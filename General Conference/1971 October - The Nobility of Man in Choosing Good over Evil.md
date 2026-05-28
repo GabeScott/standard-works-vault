@@ -81,4 +81,6 @@ I know that God lives, that Jesus is the Christ, that Joseph Smith and his succe
 Of this I testify in the name of Jesus Christ. Amen.
 
 
+
+
 #Agency #Habits #Obedience

@@ -74,4 +74,6 @@ Brothers and sisters, never, never underestimate how precious is the *one.* Reme
 My dear brothers and sisters, may you give to others and receive for yourselves every blessing the Atonement of the Lord Jesus Christ offers, I humbly pray, in the name of Jesus Christ, amen.
 
 
+
+
 #Atonement #Individual_Worth #Jesus_Christ #Restoration #Resurrection

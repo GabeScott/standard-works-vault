@@ -49,4 +49,6 @@ I believe that our ability and our willingness to hear can be increased and that
 This conference is a great opportunity to listen to the voice of the Lord, to follow the counsel given, and to give heed to the teachings we are receiving. I know that God the Eternal Father lives, that Jesus Christ also lives and is our Savior, our Redeemer. I know that President Gordon B. Hinckley is a prophet of the Lord and that this is the true Church. I testify of the truthfulness of the Book of Mormon and of the divinely ordained role of the Prophet Joseph Smith. I testify of this in the name of Jesus Christ, amen.
 
 
+
+
 #Conversion #Holy_Ghost #Humility #Jesus_Christ #Listening #Obedience #Prayer #Pride

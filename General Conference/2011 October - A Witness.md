@@ -110,4 +110,6 @@ The Book of Mormon is a precious witness. I now leave with you my witness in the
 [^7]: [[Moroni 10.32|Moroni 10:32]].
 
 
+
+
 #Book_Of_Mormon #Charity #Consecration #Conversion #Endurance #Service #Testimony

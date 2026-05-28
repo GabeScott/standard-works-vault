@@ -77,4 +77,6 @@ If we are to be effective in our study of the scriptures, we must prepare for it
 The scriptures are priceless possessions. If we search the scriptures, seeking for the plain and precious principles, the Lord will reveal his will unto us and we will be richly blessed. If we research the revelations and respond correctly to them, we will return home safely to Heavenly Father. To this I so testify in the sacred name of Jesus Christ, amen.
 
 
+
+
 #Jesus_Christ #Scripture_Study

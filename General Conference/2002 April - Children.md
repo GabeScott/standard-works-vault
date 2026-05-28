@@ -111,4 +111,6 @@ With women such as this to be the mothers of children, we see why the Lord revea
 I bear witness that the gospel is true, and the power of it is to bless little children. I pray earnestly that the children and youth and their parents will receive the gift of the Holy Ghost, that it will be a guide and a protection to them, that it will bear in their hearts the testimony that Jesus is the Christ, the Son of God, the Only Begotten of the Father. In the name of Jesus Christ, amen.
 
 
+
+
 #Children #Love #Safety #Teaching

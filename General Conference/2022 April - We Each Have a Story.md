@@ -144,4 +144,6 @@ Praise God’s plan of happiness, Jesus Christ’s Atonement, continuing restora
 [^28]: See [[Genesis 1.4|Genesis 1:4, 31]][[Genesis 1.31|]].
 
 
+
+
 #Divine_Nature #Family #Family_History #Temple_Work

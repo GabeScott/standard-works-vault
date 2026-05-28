@@ -238,4 +238,6 @@ Let us rather qualify for the promised blessings.
 If you here today would like to test this promise, double your fast offerings and pay more than a tithing this year. My own experience is that the Lord keeps His promises. In the name of Jesus Christ, amen.
 
 
+
+
 #Welfare

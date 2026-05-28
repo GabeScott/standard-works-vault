@@ -67,4 +67,6 @@ Young men, I challenge you to build your lives on a foundation of truth and righ
 I also challenge you to determine today that you will honor this great blessing and prepare to advance in each office of the Aaronic Priesthood—deacon, teacher, and priest. Prepare yourselves for the great blessing of receiving the Melchizedek Priesthood, which you will need to be worthy to receive before you serve as a full-time missionary. The Lord needs you to prepare yourselves for His service, especially the great responsibility you will have of declaring His gospel to the world. I promise you if you will prepare to receive His holy priesthood, He will literally pour out blessings upon your heads. This witness I leave with you in the name of our Lord and Savior, even Jesus the Christ, amen.
 
 
+
+
 #Aaronic_Priesthood #Priesthood #Restoration #Service

@@ -109,4 +109,6 @@ I testify that God is not dead. He is at the helm. His power—his priesthood—
 To this I bear solemn witness as a special witness of Christ, in the name of Jesus Christ, our Lord. Amen.
 
 
+
+
 #Jesus_Christ #Prophets

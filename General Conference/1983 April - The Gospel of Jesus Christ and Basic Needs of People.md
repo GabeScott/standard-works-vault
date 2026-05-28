@@ -43,4 +43,6 @@ Leaders, let us follow the counsel of Moroni, the prophet. He said: “And after
 And members, may we reach out with all the energy and love we have, first to help every member of our family, and then to help members—every one of them—and finally everyone everywhere, so that all might have the great privilege and honor and blessing of belonging to the kingdom of God. In the name of Jesus Christ, amen.
 
 
+
+
 #Brotherhood #Mission_Of_The_Church #Service

@@ -119,4 +119,6 @@ Brothers and sisters, through these five principles, I have tried to sketch what
 I hope that each of us may benefit from their application. I bear my witness that they are true and that this Church and the work we are engaged in are true. In the name of Jesus Christ, amen.
 
 
+
+
 #Financial_Management #Welfare

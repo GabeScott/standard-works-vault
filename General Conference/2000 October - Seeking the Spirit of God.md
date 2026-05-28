@@ -80,4 +80,6 @@ I testify that the workings of the Spirit are real and are found in this Church.
 [^14]: [[Ephesians 4.30|Eph. 4:30]].
 
 
+
+
 #God_The_Father #Holy_Ghost #Scripture_Study #Spirituality #Teaching #Truth #Worship

@@ -67,4 +67,6 @@ I share with you the obligation to be a witness for God at all times and in all 
 I am grateful that I know as surely as did the Apostles Peter, James, and John that Jesus is the Christ, our risen Lord, and that he is our advocate with the Father. I know that the Father bore direct witness of His Beloved Son by introducing the resurrected Lord to the boy Joseph Smith in the Sacred Grove. I know that the Book of Mormon is the word of God, translated by the Prophet Joseph through the power of God. I know that the keys of the Melchizedek Priesthood were restored by those who received them from the Savior and that President Gordon B. Hinckley is now the only person on earth authorized to direct the use of all those keys. I bear solemn testimony that this is the true Church of Jesus Christ, in which the ordinances and the covenants are offered, which if accepted and honored produce peace in this life and assure us eternal life in the world to come. In the name of Jesus Christ, amen.
 
 
+
+
 #Covenants #Example #Family #Family_Home_Evening #Fasting #Holy_Ghost #Love #Missionary_Work #Parenthood #Testimony

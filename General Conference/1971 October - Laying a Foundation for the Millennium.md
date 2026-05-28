@@ -103,4 +103,6 @@ And then, “We believe in the literal gathering of Israel and in the restoratio
 No wonder we ought to want to lay a foundation comparable to that foundation upon which the holy temple stands, so we can be sure that we will stand with our loved ones through the millennium. May God help each one of us and our families so to do, I pray, and leave you my blessing, in the name of the Lord Jesus Christ. Amen.
 
 
+
+
 #Articles_Of_Faith #Jesus_Christ #Restoration #Spirituality
